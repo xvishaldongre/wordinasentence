@@ -1,0 +1,7 @@
+---
+title: "adjudges in a sentence | adjudges example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "adjudges"
+---
+## Unfortunately, we have no example sentences for adjudges                 

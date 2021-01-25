@@ -1,0 +1,107 @@
+---
+title: "excited in a sentence | excited example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "excited"
+---
+- He gets too `excited`.
+- Gets me `excited`, too.
+- I'm so `excited`, simon.
+- I was getting `excited`.
+- He was so damn `excited`.
+- I'm so `excited`, icarus.
+- Well, they were `excited`.
+- You'll get them `excited`.
+- Don't get `excited`, peter.
+- Well, aren't you `excited`?
+- Don't just become `excited`.
+- He was `excited` to see you.
+- He was '`excited`', you say.
+- I'm real `excited` about it.
+- John will be very `excited`.
+- She's really very `excited`.
+- You start getting `excited`!
+- But i'm `excited` about this.
+- But you don't seem `excited`.
+- He's very `excited` about it.
+- I'm so `excited` you know it.
+- Let's not get `excited`, sir.
+- What are you `excited` about?
+- What's he so `excited` about?
+- I'm very `excited` about this.
+- They're `excited` to be there.
+- You don't seem very `excited`.
+- Are you `excited` to get going?
+- Charlie, you're just `excited`.
+- Don't get too `excited`, fuzzy.
+- I have never been so `excited`.
+- No, i've been `excited` before.
+- Now don't get `excited`, hildy!
+- That "thing" gets me `excited`.
+- We're very `excited` about him.
+- He's `excited` about the script.
+- I love it when you're `excited`.
+- We're all `excited` around here.
+- I'm very `excited` about tonight.
+- I've never seen him so `excited`.
+- Don't get too `excited`, milhouse.
+- I'm all `excited` -- that's great!
+- The things that get you `excited`.
+- The whole family's very `excited`.
+- You `excited` for your first show?
+- He's so `excited` that you're here.
+- I'm so `excited` for the next room.
+- I'm sorry....i'm just so `excited`.
+- Well, don't get `excited` about it.
+- We're both a little over-`excited`.
+- Yeah, sure -- she's very `excited`.
+- I was `excited`... who was that guy?
+- Now wait, don't get `excited`, anne.
+- Wendy is so `excited` you're coming.
+- `Excited` about a couple of blankets?
+- "your mother and i are `excited` huh?
+- He was very `excited` about seeing it.
+- I'm so `excited` i just can't hide it.
+- I'm just not supposed to get `excited`.
+- I'm really terribly `excited` about it.
+- Now don't get `excited`, mr. alexander.
+- You don't seem very `excited` about it.
+- Gettin' kind of `excited` about it, too.
+- You're over-`excited`, mistress cameron.
+- Wants hildy -- and sounds very `excited`.
+- You're still `excited` by my irreverence.
+- All right, ginnie, don't get so `excited`.
+- I only hope you did not get him `excited`.
+- Drink your beer and don't get so `excited`.
+- You don't seem `excited`, my little muffin.
+- Boy is he `excited` about the game tomorrow.
+- She was a little over-`excited`, that's all.
+- Are you `excited` about becoming a collector?
+- I'm getting `excited` just thinking about it.
+- He gets so `excited` when new people are here.
+- I just got so `excited` about... your present.
+- Please tell me you're the least bit `excited`.
+- We're so `excited` for him to be here with us.
+- ...`excited` with good reason, i wanted to say.
+- I'm so `excited` to finally have some free time.
+- Can i just tell you, i am so `excited` right now.
+- Got a handshake like a partially `excited` penis.
+- These assholes get `excited` and start lining up.
+- You are... to tell you the truth...i'm `excited`.
+- A man can't help gettin' `excited` once in a while.
+- Jake, you made me promise not to get you `excited`.
+- But pretty `excited` to get back his father's place.
+- I told him about your work, and he's very `excited`.
+- I'm sure andy was just a little `excited`, that's all.
+- I'm real `excited` about working for you mr. matthews...
+- Yeah, i see those boring boxes you're so `excited` about.
+- Leon's in a bad mood, don't get `excited`, he's all right.
+- It's just i'm so `excited` to be out of the house, i guess.
+- I'm so `excited` springfield finally has a vegan restaurant.
+- I don't want you to be sorry, alan, i want you to be `excited`.
+- Not agitated, he was `excited` in the sense of being overjoyed.
+- I'm `excited`; i want to, i do, but... maybe i'll see you later?
+- You were so `excited` i think you showed it to the whole school.
+- And they were so `excited` that they want me to finish the album.
+- Told him you were making progress and we were all very `excited`.
+                 

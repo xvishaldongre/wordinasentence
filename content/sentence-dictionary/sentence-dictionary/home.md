@@ -1,0 +1,107 @@
+---
+title: "home in a sentence | home example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "home"
+---
+- Can i walk you `home`?
+- Can you get us `home`?
+- Dad's `home`, already?
+- Did vaughan go `home`?
+- Don't go `home`, okay?
+- Everybody'd go `home`.
+- Everybody goes `home`!
+- Everybody goes `home`.
+- Go on `home`, loretta.
+- He didn't come `home`.
+- Hey, guys, i'm `home`.
+- I'll drive you `home`.
+- I'm going back `home`.
+- Is not phoning `home`.
+- I wanna go `home` now.
+- I was gonna go `home`.
+- I will be `home` soon.
+- Lemme take you `home`.
+- Maybe no one's `home`.
+- Sanctum is our `home`.
+- See, i'm going `home`.
+- She's not `home`, yet.
+- So i brung her `home`.
+- Something back `home`?
+- That's my `home` town.
+- Then i'm going `home`.
+- They're coming `home`.
+- Thinking about `home`?
+- This... was my `home`.
+- Wash up and go `home`.
+- We need to get `home`.
+- We're gonna go `home`.
+- Yeah, yeah--go `home`.
+- You are really `home`.
+- You avoid your `home`?
+- You came `home` to us.
+- You're staying `home`.
+- Your father is `home`.
+- You sending me `home`?
+- You want to go `home`?
+- A long way from `home`.
+- Be `home` around seven.
+- Bring my people `home`.
+- But... let's go `home`.
+- Everybody comes `home`.
+- Fuckin' kids at `home`!
+- Go `home` and check in.
+- Greg never came `home`.
+- `Home`--where he lives.
+- I can't even go `home`.
+- I could just go `home`.
+- I gotta get `home` now.
+- I just wanna go `home`.
+- I'm about to go `home`.
+- I'm glad you're `home`.
+- I'm going `home` today.
+- I'm going to go `home`.
+- I'm `home` from school.
+- In your `home` country?
+- Is he `home` right now?
+- Isn't this your `home`?
+- I stopped going `home`.
+- It's time to go `home`.
+- Just meet me at `home`.
+- Kip� i - i mean `home`.
+- Let me take you `home`.
+- Look, come `home`, kid.
+- Mary, i'm going `home`.
+- My mom won't be `home`.
+- Now we take him `home`.
+- Of course she's `home`.
+- She hasn't come `home`.
+- She needs to be `home`.
+- So take his car `home`.
+- Starck, anybody `home`?
+- Take me to your `home`.
+- They can fly us `home`.
+- They'll be `home` soon.
+- They're heading `home`.
+- They're not `home` yet.
+- This is my `home` also.
+- This is not our `home`.
+- Welcome `home` eleanor.
+- Welcome `home`, mother.
+- What about back `home`?
+- Why don't we go `home`?
+- With a `home` ec minor.
+- You on your way `home`?
+- You own a `home` there?
+- You're still at `home`.
+- When he came `home`.
+- Are your parents `home`?
+- Boys, we're `home` free.
+- But i want to go `home`.
+- Can i go `home`, please?
+- Can we please go `home`?
+- Can you drive me `home`?
+- Come `home` with me now.
+- Everybody's back `home`.
+- Friday, send him `home`.
+                 

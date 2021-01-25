@@ -1,0 +1,62 @@
+---
+title: "dust in a sentence | dust example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dust"
+---
+- We want to `dust` him.
+- I hate that moth `dust`!
+- I hate that moth `dust`.
+- `Dust` cloud ahead, sire.
+- With `dust`, upon the air?
+- Not those faded into `dust`.
+- You've left me in the `dust`.
+- We truly want to `dust` him bad.
+- Another one bites the `dust`.
+- `Dust` and filth from top to toe!
+- So, another one bites the `dust`.
+- You better `dust` this place, sam.
+- The intakes are clogged with `dust`.
+- Bet they don't `dust` crops in japan.
+- But he turned to `dust` and blew away.
+- Life is `dust`, make it while you can.
+- But, it will only sit gathering `dust`.
+- Obsessed with footprints and coal `dust`.
+- It was jus sitting there gathering `dust`.
+- I've got to `dust` these ships for your dad.
+- `Dust` all the corneas of all their eyes.
+- Hell, i'll probably love her when i'm `dust`.
+- She leaves that little mudpatch in the `dust`.
+- Thanos will have nothing but `dust` and blood.
+- I saw it on your face back there in the `dust`.
+- Well, line of sight is impossible due to `dust`.
+- 'til he turns ta `dust` and blows away on the wind.
+- In heaven there wouldn't be `dust` on the wallpaper.
+- This `dust` is getting clogged in the intakes again!
+- He'll hit bottom `dust` before anyone takes the bait.
+- Immediate `dust` off on my 'clear,' then stay on station.
+- I wouldn't expect it this soon, turns people into `dust`.
+- Maybe they use them for `dust` rags, or pen wipers... yeah?
+- Someplace in this `dust` bowl i can get something to drink?
+- But if you're watching this, then it means we bit the `dust`.
+- You wouldn't believe how much directing `dust` he's sniffing.
+- It's to break up winds, so we don't have no more `dust` storms.
+- This is baker delta four -- captain hit bad -- need `dust`-off.
+- We're going to need a vacuum with a battery pack for the `dust`.
+- The ash on the sole of her shoe and the coal `dust` led me to them.
+- I just can't see her leaving multiple grooms in the `dust` like that.
+- In between the stars, it's seething with light and gasses and `dust`.
+- That is a socialistic volume which i refuse to so much as `dust`, sir.
+- It looks like pixie `dust`... kent would've given anything to see this.
+- In kowloon, once, i got one that said, "live now because life is `dust`."
+- Definitely a column of warm air rising; it keeps the shaft clear of `dust`.
+- How romantic... emma actually likes chalk `dust` -- says it smells like me.
+- The battles were all so confusing... there was so much smoke, `dust`, noise...
+- I think of the acropolis in another century reduced to little more than `dust`.
+- The `dust`, which counselor refers to, has appeared on only three occasions.
+- When you live in the basement of the school, you breathe in a lot of chalk `dust`.
+- Because time has wiped out everyone and everything you cared for -- they're `dust`.
+- When you come back, i'll be `dust`, and so will hope cry while you confess your sins.
+- Beats getting paid in twenties by slimedogs selling angel `dust` to high school seniors.
+- I could do all the cooking and `dust` your record collection and stuff until i get a job.
+                 

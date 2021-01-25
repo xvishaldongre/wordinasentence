@@ -1,0 +1,52 @@
+---
+title: "Frances in a sentence | Frances example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Frances"
+---
+- `Frances`... two lines!
+- I'm serious, `frances`.
+- `Frances`, you're crazy.
+- She's a shark, `frances`.
+- `Frances`, i'm such a cad.
+- `Frances`, it's me, harry?
+- I love you too, `frances`.
+- That's not all, `frances`.
+- Hi `frances`, got a minute?
+- But she told him, `frances`.
+- I always told ya, `frances`.
+- `Frances`, i'm warning you...
+- `Frances`, you're fulla drugs.
+- Listen to yourself, `frances`.
+- We'll get you home, `frances`.
+- Which one of you is `frances`?
+- She went crazy, `frances` farmer.
+- Were you mentally ill, `frances`?
+- `Frances`, we gotta do it this way.
+- `Frances`, you're a movie star now.
+- I'm really proud of you, `frances`.
+- Do you know what this is, `frances`?
+- Jesus, `frances`, how'd you find me?
+- You're not going to jail, `frances`.
+- I don't want you drinking, `frances`.
+- Oh `frances`, do i have news for you!
+- You're not the quiet type, `frances`.
+- With tyrone power and `frances` farmer.
+- Look, `frances`, i didn't want this job.
+- You have to stop being afraid, `frances`.
+- `Frances` and charles have been kidnapped?
+- `Frances`, you can't do this to your fans!
+- `Frances`, you're still filled with anxiety.
+- `Frances`, you remember my lawyer, alma styles?
+- Well, they needed immediate answers, `frances`.
+- I have to find a birthday present for `frances`.
+- Look, `frances`, i'm only gonna ask this one time.
+- `Frances` farmer, contract player, six- month option.
+- Her real name is `frances`, but we call her dolly or doll.
+- Some of us, `frances`, must believe without understanding.
+- Do you think `frances` with an "e" is too manly a name for a girl?
+- Keg house -- `frances`' room -- next this girl is going to be a star.
+- It's there, `frances`, the fire is there, but it's not coming through.
+- `Frances` fallon, with her worship of jacqueline, has had to follow like a sheep.
+- The writer writes, the director directs, and the actress...' i'm sorry, `frances`.
+                 

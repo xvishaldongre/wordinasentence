@@ -1,0 +1,107 @@
+---
+title: "destroy in a sentence | destroy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "destroy"
+---
+- `Destroy` the evidence?
+- He has to `destroy` it.
+- If they `destroy` it...
+- To `destroy` the world.
+- I can `destroy` you.
+- But why `destroy` a star?
+- Hatred will `destroy` us.
+- I can `destroy` kingdoms!
+- I'll `destroy` him, alan.
+- Vader will `destroy` her.
+- We have to `destroy` him.
+- You have to `destroy` it.
+- I... can `destroy` cities.
+- I couldn't `destroy` that.
+- It'll `destroy` the flame.
+- `Destroy` the evidence huh.
+- It'll `destroy` the valley.
+- So, how do we `destroy` it?
+- You'd have to `destroy` it.
+- Don't `destroy` that for me.
+- I must `destroy` the actors.
+- No, we have to `destroy` it.
+- We `destroy` another planet?
+- Because i can't `destroy` it.
+- `Destroy` the deflector dish.
+- He could `destroy` the earth.
+- They'll `destroy` everything.
+- They want to `destroy` nixon!
+- This is seduce and `destroy`?
+- And `destroy` it before i die.
+- Then let him `destroy` me now.
+- This will `destroy` the ba'ku.
+- You didn't `destroy` the suit.
+- `Destroy` the evidence, pronto!
+- `Destroy` the ladder behind us.
+- `Destroy` the nightblood serum.
+- Sartorius wants to `destroy` it.
+- Scorpions, pursue and `destroy`.
+- They're trying to `destroy` him!
+- Your vessel did `destroy` u.s.s.
+- I didn't `destroy` mount weather.
+- I didn't `destroy` mount weather.
+- That is going to `destroy` us all.
+- They want to `destroy` this place.
+- You must face and `destroy` vader!
+- But there is not much to `destroy`.
+- I need you to `destroy` this alita.
+- Inevitable now, `destroy` superman.
+- We need to `destroy` the stone now.
+- Death which you can now `destroy`...
+- Don't make me `destroy` you here ...
+- I made you, and i can `destroy` you.
+- Vandamm: he wanted to `destroy` you.
+- You were told to `destroy` those?
+- Could `destroy` the chip's circuitry.
+- If i didn't try and `destroy` that...
+- People who will want to `destroy` it.
+- I'll `destroy` whatever's in the case.
+- I'll get them to `destroy` each other.
+- You're letting it `destroy` you, dick.
+- Halfdan has come to kill and `destroy`.
+- If you `destroy` it, we should go back.
+- If you don't we'll `destroy` the tapes.
+- I'll say enough to `destroy` this wing.
+- I'm afraid she's gonna `destroy` stuff.
+- What if the worms `destroy` the valley?
+- Why don't they `destroy` us right away?
+- I can clearly `destroy` you at any time.
+- They are likely to `destroy` the planet.
+- We have an army of savages to `destroy`.
+- You created him - you can `destroy` him.
+- `Destroy` every planet in the system.
+- Don't you think we'd better `destroy` it?
+- We'll `destroy` you...`destroy` all of you!
+- You need not kill a man to `destroy` him.
+- Do you want me to `destroy` this one, too?
+- If the drug is here, we must `destroy` it.
+- I used the stones to `destroy` the stones.
+- You have the power to `destroy` the stone.
+- Should we seek to `destroy` -- or to build?
+- Or worse, they could `destroy` our families.
+- Who told them how to `destroy` the mountain.
+- `Destroy` your career over an issue of pride?
+- I'll `destroy` his file and refund his money.
+- It is in your nature to `destroy` yourselves.
+- So i can use it to `destroy` the vindicators.
+- You didn't come here to `destroy` wintermute.
+- I'll `destroy` them when we get back to paris.
+- Is going to `destroy` us in the years to come.
+- To `destroy` circuitry with excessive current.
+- China just threatened to `destroy` their shell.
+- China just threatened to `destroy` their shell.
+- I'll just `destroy` the evidence and play dumb.
+- Our ancestors used them to `destroy` the world.
+- `Destroy` his credibility before he goes public.
+- The sun will `destroy` the blood i've given you.
+- They're going to `destroy` the tapes on live tv.
+- Violence and rage will only `destroy` your soul.
+- What does she say about, "seduce and `destroy`."
+- You're going out there to `destroy` them, right?
+                 

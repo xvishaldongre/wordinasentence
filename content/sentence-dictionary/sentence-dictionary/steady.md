@@ -1,0 +1,67 @@
+---
+title: "steady in a sentence | steady example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "steady"
+---
+- I'm the `steady` type.
+- That's it -- `steady`.
+- All right, `steady` up.
+- He's a `steady` worker.
+- `Steady` as she goes...
+- `Steady`, daniel boone!
+- We have to be `steady`.
+- Apone: `steady`, people.
+- A `steady` rate all day.
+- Keep us slow and `steady`.
+- I'm a girl - `steady`, boy.
+- Hell, you got `steady` work.
+- Now, hold the bowl `steady`.
+- It's `steady`, good benefits.
+- You have a `steady` companion?
+- Mr. sulu, `steady` as she goes.
+- Hold her `steady` into the wind.
+- What're we... ...going `steady`?
+- Have to pump her `steady`, s'all.
+- `Steady`... all right, mr. scott.
+- `Steady` as she goes, number one.
+- Wing five by zero, helm `steady`.
+- [off becker's `steady` gaze] what?
+- `Steady`... freddy, for all i know.
+- (`steady` beep) jesus christ, apone!
+- They got a `steady` stream of supply.
+- Jarvis, get igor to `steady` this thing.
+- Me and annette bening are goin `steady`.
+- I'm just too old for going `steady`, josh.
+- I got a `steady` income -- i'm on the dole.
+- `Steady` track, they look like beam riders.
+- With her it's sorta like going `steady`.
+- They've been coming in `steady` all morning.
+- But that doesn't mean we're not going `steady`.
+- I `steady` it out, they blow us out of the sand!
+- You two planning on going `steady`, or something?
+- That's right: 'going `steady`' for four weeks now.
+- You are a healthy woman... you hold a `steady` job.
+- I don't mind tellin ya, nigga, it's `steady` work.
+- The radiation count's `steady` at 7 millirads an hour.
+- You just travel around, no direction, no `steady` work.
+- Theo reaches over and pours for him with a `steady` hand.
+- A `steady` job and a few bucks extra, that's all i wanted.
+- I've been `steady` moving for eleven years and some months.
+- You just travel around bobby-- no direction, no `steady` work.
+- Who's got a `steady` job, a couple bucks nobody's touched, who?"
+- If you really saw grandpa bouvier, abby: `steady` hand, clarke.
+- Nearly four years... how long where you and dis guy goin' `steady`?
+- `Steady` as you go... estimating nebula penetration in two minutes.
+- Well, let's make sure help hold her `steady` while i take this out.
+- Have any idea what this land'll be worth with a `steady` water supply?
+- I gave him `steady` employment -- i'll always be grateful, mr. luthor.
+- You know, settled down somewhere with a kid or two, a nice `steady` job.
+- They had them on the big one.... aye, aye, captain.... keep it `steady`....
+- Now for a word from our late, beloved mapple founder, a `steady` rate all day.
+- I still don't know what ever made me go `steady` with a crackpot writer like you.
+- I was eighteen, i didn't know any better, and he had something `steady` to offer.
+- So i know i haven't been `steady` with anybody, but i just don't want to rush it.
+- But that's okay, liz, you're the one with the `steady` job, you pay all the bills.
+- You become a mother, a wife and you stop and stay `steady` so that your children can move.
+                 

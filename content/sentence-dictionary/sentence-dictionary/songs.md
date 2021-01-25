@@ -1,0 +1,52 @@
+---
+title: "songs in a sentence | songs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "songs"
+---
+- What `songs` do we know?
+- Who likes happy `songs`?
+- You hiding love `songs`?
+- The `songs` of the birds.
+- The `songs` on the radio.
+- They were simple `songs`.
+- You boys do negro `songs`?
+- I don't sing my own `songs`.
+- Yeah, they could be `songs`.
+- Some of the old `songs`, sam.
+- Just sing your `songs` and go.
+- Sing a couple of `songs`, huh?
+- Uh, i didn't write any `songs`.
+- They'll write `songs` about you.
+- You should try to write `songs`.
+- But somebody wrote those `songs`.
+- Do you write `songs` or anything?
+- She's written sixty-five `songs`.
+- There are worse `songs`, you know.
+- Well, i don't record negro `songs`.
+- Admiral, i am receiving whale `songs`.
+- I wrote sixty-three `songs` this year.
+- They're playing his `songs` everywhere.
+- Well, hey... you guys know any `songs`?
+- I actually know a lot of these `songs` good.
+- Can you believe the `songs` they been playin'?
+- We record a couple of `songs` right, in a studio.
+- How the hell do you know all these random `songs`?
+- All the `songs` on the radio were about car crashes.
+- You will entertain them with stories and `songs`.
+- I love `songs` about extraterrestrial life, don't you?
+- Yeah, he got me to start singing my own `songs` again.
+- You were too proud to sing any of the `songs` i ever wrote.
+- I've sung a lot of `songs`, i've made some bad rhymes...' no.
+- I mean, i want to hear about those `songs` you've been working on.
+- It's helena's christmas `songs` .. they're really pretty .. jesus.
+- You have any `songs` about how i should be allowed a signal ﬁre.
+- It has only happen five times since the time from the first `songs`.
+- As suspected, the probe's transmissions are the `songs` sung by whales.
+- I've dressed him in a cossack shirt and he'll sing nelson eddy `songs`.
+- Captain spock and i will attempt to trace these whale `songs` to their source.
+- Some kid started singing one of his `songs` in a bar i was in the other night.
+- Our `songs`, our dreams, our seeds are all just a brave attempt to live forever.
+- She sings little peasant `songs` quite nicely -- a completely untrained voice, of course.
+- Every one of these `songs` will remind you of me in a slightly different way... a shelter?!
+                 

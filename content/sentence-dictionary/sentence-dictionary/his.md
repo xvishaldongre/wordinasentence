@@ -1,0 +1,107 @@
+---
+title: "his in a sentence | his example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "his"
+---
+- Ask `his` friend otan.
+- As part of `his` plan.
+- Barks at `his` master.
+- Barks `his` agreement.
+- Blew `his` brains out.
+- Clouds `his` judgment.
+- Er, what's `his` name?
+- Fumbles in `his` pack.
+- Got `his` peace talks.
+- He gave me `his` card.
+- He gave you `his` eye?
+- He got `his` deer yet?
+- He has `his` doubts...
+- He has `his` uses too.
+- He left `his` address.
+- He left `his` sweater.
+- He'll take `his` time.
+- He must do `his` part.
+- He's doing `his` best.
+- `His` company made us.
+- `His` father is a man.
+- `His` head crushed in.
+- `His` heart's beating.
+- `His` heart's stopped.
+- `His` mama one of 'em.
+- `His` mommy and daddy?
+- `His` name is chigurh.
+- `His` name is lincoln.
+- `His` name is maurice.
+- `His` name is michael.
+- `His` name is redfoot.
+- `His` name's armitage.
+- `His` name was swifty?
+- `His` son runs it now.
+- `His` technician okay?
+- `His` violin, i guess.
+- I'd cramp `his` style.
+- I looked in `his` car.
+- I'm `his` kid brother.
+- In `his` whole career!
+- I only saw `his` back.
+- I poisoned `his` life.
+- I saw `his` dead body!
+- It's `his` father sir.
+- It's only `his` dream.
+- It wasn't `his` fault.
+- It wasn't `his` fault.
+- Jim gordon `his` face.
+- Just from `his` agent.
+- Just wanted `his` o-2.
+- Kick `his` ass, steve!
+- Knock `his` block off!
+- Lester's on `his` way.
+- Let me see `his` face.
+- Liquefied `his` brain.
+- Listen to `his` heart.
+- Near `his` right hand.
+- No, not `his` funeral.
+- Now `his` body's mine.
+- No, you're `his` wife.
+- Pour it in `his` bowl.
+- Pull `his` arms, john.
+- Right at `his` keypad.
+- Take off `his` helmet.
+- Tape `his` mouth shut.
+- That's `his` headache.
+- That's not `his` knee.
+- They took `his` drive.
+- This is `his` fiancee.
+- To `his` own daughter?
+- To leave `his` family?
+- What about `his` suit?
+- What about `his` wife?
+- What's `his` demeanor?
+- Where are `his` pants?
+- Who is he, `his` name?
+- Why would `his` worry?
+- With `his` hellhounds.
+- Yes, `his` girlfriend.
+- Yessir, `his` vehicle.
+- You are `his` revenge.
+- ... .you're `his`... .
+- You sucked `his` dick!
+- You takin' `his` side?
+- You want `his` number.
+- You were `his` friend.
+- A child to `his` death.
+- ...and lift `his` chin.
+- Awaiting `his` arrival.
+- But he'll do `his` job.
+- Changing `his` opinion.
+- Cole lost `his` temper.
+- Cut half `his` ear off.
+- Did you see `his` butt?
+- Did you see `his` eyes?
+- Did you see `his` face?
+- From `his` loving cora.
+- Gabriel and `his` guys.
+- Go through `his` files.
+- Hallowed be `his` name.
+                 

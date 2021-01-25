@@ -1,0 +1,101 @@
+---
+title: "responsibility in a sentence | responsibility example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "responsibility"
+---
+- He's my `responsibility`.
+- It's my `responsibility`.
+- He is my `responsibility`.
+- It is my `responsibility`.
+- It was my `responsibility`.
+- That's my `responsibility`.
+- Daya is my `responsibility`.
+- She was my `responsibility`.
+- You are my `responsibility`.
+- He was your `responsibility`.
+- It's all my `responsibility`.
+- It's my `responsibility` now.
+- Respect and `responsibility`.
+- But it's a `responsibility`...
+- Oh, she's no `responsibility`.
+- This is your `responsibility`!
+- Your `responsibility` is over.
+- I assume full `responsibility`.
+- My mother, my `responsibility`.
+- My sister, my `responsibility`.
+- She's not your `responsibility`.
+- The coca is my `responsibility`!
+- It's an awesome `responsibility`.
+- I've got a `responsibility` here.
+- This isn't your `responsibility`.
+- This was not my `responsibility`.
+- You owe me some `responsibility`.
+- But you're not my `responsibility`.
+- I was flying...my `responsibility`.
+- We-all got a `responsibility`, men.
+- A monkey is a huge `responsibility`.
+- Is everything your `responsibility`?
+- It's the guy's `responsibility` too.
+- After all, it's our `responsibility`.
+- He was...my `responsibility`--my rio.
+- But you had so much *`responsibility`*.
+- For the `responsibility` of your power.
+- So this `responsibility` falls upon me.
+- The operation is <my> `responsibility`!
+- You have a `responsibility` to tell me.
+- And their lives are my `responsibility`.
+- But, look, i take full `responsibility`.
+- So, this `responsibility` falls upon me.
+- Except that the `responsibility` is mine.
+- I never *asked* for any `responsibility`.
+- My only `responsibility` is to myself now!
+- Until he's no longer our `responsibility`.
+- I'm taking `responsibility` for the murder.
+- It's time he assumed some `responsibility`.
+- My `responsibility` as its father, for one.
+- But it's a `responsibility` being a berserk.
+- You've got to learn to take `responsibility`!
+- It's just we have a great `responsibility` now.
+- Oh, god, that's too much `responsibility` for me.
+- Our people are now your `responsibility`, charles.
+- Chancellor: your one `responsibility` is stay alive.
+- Listen, i'll tell you about personnel `responsibility`.
+- They don't know about consequences or `responsibility`.
+- We have a monkey that's our permanent `responsibility`.
+- Except she thinks you're afraid of the `responsibility`.
+- It's my `responsibility` to tell them we won't be ready.
+- I know you feel awful but it's not your `responsibility`.
+- We still have freedom, but we also have `responsibility`.
+- Now, you're my `responsibility` and i don't want you hurt.
+- You've got to take `responsibility` for your own happiness.
+- An enquiry will place the `responsibility` where it belongs.
+- About the `responsibility` now, if you shift your weight what?
+- If it's my kid, too, then i've got a `responsibility`, don't i?
+- So i take full `responsibility` for every one of my illegal acts.
+- Why can't people take `responsibility` for their actions anymore?
+- You are judging something for which you took no `responsibility`.
+- I don't think any of you are ready for that `responsibility` yet.
+- "i didn't get lured and i will take `responsibility` for my actions".
+- I have a `responsibility` to try to make a human connection with him.
+- Altering history is a `responsibility` that i do not wish to bear.
+- But i have `responsibility` for the other guys up there, not just you.
+- A virus planted in the gibson computer system claimed `responsibility`.
+- ...so you feel absolutely no `responsibility` for killing these people?
+- We demand free access to data, well, it comes with some `responsibility`.
+- You'll only get old if you want to, hey... my sister, my `responsibility`.
+- Your very trust has instilled an enormous sense of `responsibility` in me.
+- Comes with some goddamn `responsibility`, like keeping your people in line.
+- Our first `responsibility` is to get these artifacts safely back to london.
+- He's got problems-- he has a gift and with that gift comes `responsibility`.
+- She was the last person seen with the guy -- i'll take the `responsibility`.
+- You felt it was no longer your `responsibility` to carry on the family line.
+- Of the one safe place on this moon but my `responsibility` ended at ka-ching.
+- The point is to step into a more evolved position of social `responsibility`.
+- Technical `responsibility`, real `responsibility` -- what difference does it make?
+- We have a `responsibility` to... a charismatic new preacher came to springfield.
+- Now say it--"i didn't get lured and i will take `responsibility` for my actions".
+- It is a hard decision to make -- but yours is only a technical `responsibility`...
+- If anything was to happen, which i'm sure it isn't, it would be my `responsibility`.
+- But the `responsibility` for you and the kids was the most important thing he left me with.
+                 

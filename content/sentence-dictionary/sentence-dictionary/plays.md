@@ -1,0 +1,93 @@
+---
+title: "plays in a sentence | plays example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plays"
+---
+- It only `plays` static.
+- It `plays` in 50 states.
+- Gordo `plays` the inside.
+- Wnew `plays` all the hits.
+- Fiction `plays` and novels.
+- He `plays` it all the time.
+- Cos you know how it `plays`.
+- Hitler `plays` shuffleboard.
+- Mozart `plays` shuffleboard.
+- `Plays` the piano and sings.
+- My mind `plays` tricks on me.
+- She `plays` the clarinet, too.
+- J. edgar hoover `plays` sports.
+- No one `plays` chopin like you.
+- The agency `plays` for keeps...
+- It's this silly game he `plays`.
+- There are other `plays`... well.
+- Jesus christ `plays` shuffleboard.
+- My dad `plays` for the "clippers."
+- Too many taxi drivers write `plays`.
+- Albert einstein `plays` shuffleboard.
+- Everybody that she `plays` with dies.
+- Jack the ripper `plays` shuffleboard.
+- `Plays` things more close to the vest.
+- You play what your girlfriend `plays`.
+- At least masseria `plays` by the rules.
+- In that case, here are ten basic `plays`.
+- "thunderbirds" `plays` on the television.
+- He `plays` a violin in a doctors' quartet.
+- The girl who `plays` hermia is incredible.
+- We'll just have to see how it `plays` out.
+- Fancy old thing even `plays` a little tune.
+- Is it inevitable that the game `plays` you?
+- `Plays` the lute, she has a natural ear.
+- He usually `plays` with a royal or a cadenza.
+- If she can walk, crawl or roll - she `plays`.
+- `Plays`, love stories, westerns, dog stories.
+- Don't make me sit through one of your `plays`.
+- Everyone who `plays` the game knows the rules.
+- Perhaps your memory `plays` tricks, mrs. peel.
+- This from a girl who still `plays` with dolls.
+- When i write `plays`, they will be like titus.
+- You like the man, you like the way he `plays`.
+- She *`plays`*, monsieur, like a very nice girl.
+- She `plays` with me in the garden all the time.
+- What kind of half-ass cowboy `plays` the slots?
+- Actor who `plays` you will want to die like hero.
+- I'll toss you for her--heads she `plays` with me.
+- I've been backing your `plays` for fifteen years.
+- You know, that big indian `plays` it for keeps...
+- I make the `plays`, and you back the `plays` i make.
+- This boy from west side, `plays` tackle both ways.
+- Your daddy `plays` for the worst team in the nba.
+- Twelfth night...burning pine... and mummers' `plays`.
+- Lovely little princess `plays` with rasputin's beard."
+- I hate having to tolerate the little games she `plays`.
+- Pure gold it is... `plays` a different note every time.
+- The "old man" `plays` politics harder than anybody else.
+- I hate having to tolerate the little "games" she `plays`.
+- Cici's the name of the character she `plays` in the movie!
+- They always cheated like that in cliff-- --chapter `plays`.
+- If you think about how anton berger `plays` chess you might get it.
+- Lewis carroll, who wrote alice in wonderland, `plays` shuffleboard.
+- He's big and `plays` football and will beat the shit out of you.
+- I called a fellow i know in tulsa, the one who `plays` my chauffeur.
+- Mom gets mad when she `plays` out here and don't clean up afterward.
+- Mr. smith, i've read some of your `plays` and i'd like an autograph.
+- The kind of person who `plays` three sets of tennis but doesn't sweat.
+- Find out what part virtucon `plays` in something called project vulcan.
+- His name is mark and he's into old horror movies and he `plays` guitar.
+- You are the one who comes to all the `plays`--at whitehall, at richmond.
+- He didn't realize that nobody who talks such a good game ever `plays` one.
+- I think maroon `plays` the part of the sound mind, your wife the sound body.
+- I would exchange all my `plays` to come for all of his that will never come.
+- No, i know the psychological pattern and it `plays` hell with me drum skins.
+- One day he gets pissed off, tells them he's out and `plays` his own numbers.
+- There's a mine entrance with a social conscience who writes amazing `plays`.
+- Answer me only this: are you the author of the `plays` of william shakespeare?
+- Every birthday he stays home and `plays` everything john bonham ever recorded.
+- Habeas corpus -- no bodies, no crime, and nunez still `plays` as self defense.
+- Walt disney, who gave us snow white and the seven dwarfs, `plays` shuffleboard.
+- You, i take it, are the paderewski who `plays` his concerto on me, the piano?
+- You can always tell how much a man's traveled by the way he `plays` shuffle-board.
+- All except our a-cump- uh, company-accompluh- uh, the fella that `plays` the gui-tar.
+- That's the way he `plays` when he comes up against a man who knows the way the game is.
+- I know what i'm talking about, after all they're my `plays`... miss channing is ageless.
+                 

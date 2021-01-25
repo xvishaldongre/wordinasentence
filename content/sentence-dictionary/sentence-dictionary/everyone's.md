@@ -1,0 +1,107 @@
+---
+title: "everyone's in a sentence | everyone's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "everyone's"
+---
+- `everyone's` ok. lisa?
+- `everyone's` dying.
+- `everyone's` gonna die.
+- Tell me `everyone's` ok.
+- `everyone's` in the card!
+- `everyone's` in on it!
+- `everyone's` all right...?
+- `everyone's` saying he's .
+- `everyone's` someone else.
+- `everyone's` giving orders.
+- `everyone's` irish tonight.
+- I mean, `everyone's` going.
+- Jesus, `everyone's` moving.
+- `everyone's` called in sick.
+- `everyone's` staying, stays.
+- `everyone's` turning colors.
+- Now `everyone's` got one on.
+- `everyone's` talking about it.
+- So you tap `everyone's` phone?
+- And then it's `everyone's` job.
+- It's `everyone's` trick, kevin.
+- `everyone's` invited, of course.
+- `everyone's` thinking about you.
+- `everyone's` lives at risk today.
+- While `everyone's` still at home?
+- `everyone's` ok. clarke, tell him.
+- `everyone's` waiting for you, son.
+- Pretty soon `everyone's` involved.
+- `everyone's` looking for you, jake.
+- `everyone's` scattering, moving on.
+- `everyone's` turning into a zombie.
+- `everyone's` so cool and i'm so not.
+- `everyone's` working an angle, right?
+- Not `everyone's` on the take, walter.
+- Well... you control `everyone's` fate.
+- `everyone's` looking... we shouldn't...
+- I'm sure `everyone's` doing their best.
+- `everyone's` capable of murder, osborne.
+- Seems like `everyone's` getting married.
+- `everyone's` getting ready for the party.
+- `everyone's` happy, `everyone's` in profit.
+- `everyone's` really crazy about dead cat.
+- `everyone's` been cooperating beautifully.
+- I feel like `everyone's`... staring at me.
+- I said, "`everyone's` going to die, jimmy.
+- Now `everyone's` favorite: rinse and spit.
+- Seems `everyone's` been afraid since then.
+- We've got to, brad, `everyone's` watching.
+- `everyone's` been marvellous really, jimmy.
+- `everyone's` gonna die, all of us, i saw it!
+- `everyone's` saying it's 'fuck or die' time.
+- Too much people, `everyone's` got the key...
+- Well, `everyone's` entitled to their opinion.
+- Out of `everyone's` grasp it seems, but yours.
+- You think `everyone's` gonna take care of you!
+- `everyone's` laughing at you, you fucking pussy.
+- What, you think `everyone's` as ignorant as you?
+- You are wasting `everyone's` time with this shit.
+- `everyone's` going to be out at long beach, right?
+- Off to change `everyone's` life again, is that it?
+- Even knows they're gone, `everyone's` working hard.
+- `everyone's` collecting subscriptions in your name.
+- North of here, `everyone's` always counting on you.
+- Of `everyone's` list when it comes to translations.
+- Oh, yeah, `everyone's` selling crap to stoners now.
+- They're going to look through `everyone's` budgets.
+- `everyone's` just trying to survive, dad, i got her.
+- `everyone's` all upset about fucking cigarette burns.
+- But not `everyone's` imaginary, are they, mr. taransky?
+- If `everyone's` gonna make it, so... marcus is the key.
+- But that doesn't mean i don't need `everyone's` support!
+- Agnes... `everyone's` unhappy, you're unhappy aren't you?
+- Do war of the worlds as a feature and `everyone's` happy.
+- Come on, o'donnell, `everyone's` wondering what's going on.
+- In the morning, after `everyone's` gone and there's just us.
+- `everyone's` in the auditorium waiting for the film to start.
+- I'm starting to think that `everyone's` crazy to some extent.
+- Can i help it that life is a disease and `everyone's` a victim.
+- It could be westerburg's if we can get `everyone's` john hancock.
+- `everyone's` making such a fucking fuss, just because she's a nun.
+- You know, `everyone's` so excited about the bijou re-opening... oh.
+- Oh sure, i put up a big front -- -- not that `everyone's` buying it.
+- Just as i'm sure there's a wish for shangri-la in `everyone's` heart.
+- Or what's no horrible down here that `everyone's` trying to avoid it?
+- If i'm not there for the barber game tomorrow `everyone's` gonna talk.
+- Escort `everyone's` favorite she-male over here nice and peaceful-like.
+- If i go down `everyone's` going with me - you and your crew especially!
+- If this photo is just "fine," why do you get to keep `everyone's` keys?
+- You're the market share `everyone's` tearing each other apart to get at.
+- I'd rather fight a big kid, they never fight, `everyone's` scared of 'em.
+- So, i sent some of marge's dna well, i guess this way `everyone's` happy.
+- `everyone's` very anxious to shake hands with our newest academic celebrity.
+- That guy has a problem... maggie, you can run `everyone's` life but your own.
+- Well ... `everyone's` entitled to two, aren't they, and this is me other one.
+- Chief, i get `everyone's` emotional here, but there's something you need to see.
+- `everyone's` always a suspect -- the father, the principal, the town derelict...
+- A conspiracy like this-- the rope has to tighten slowly around `everyone's` neck.
+- It acts the way people wish they could, that's why `everyone's` fascinated by it.
+- Uh, emps don't affect our bodies, okay, we'll do it when `everyone's` on the hike.
+- I'm just wondering what's so great out there that `everyone's` trying to get to it?
+                 

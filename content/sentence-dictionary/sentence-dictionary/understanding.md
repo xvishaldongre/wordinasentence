@@ -1,0 +1,72 @@
+---
+title: "understanding in a sentence | understanding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "understanding"
+---
+- `Understanding` of what?
+- We have no `understanding`.
+- I mean, for `understanding`.
+- You `understanding` me, laz?
+- Thank you for `understanding`.
+- We came to an `understanding`.
+- Ok. we have an `understanding`.
+- Why aren't you `understanding`?
+- You've been most `understanding`.
+- Are we `understanding` each other?
+- We have reached an `understanding`.
+- Empathy requires... `understanding`.
+- I thought we had an `understanding`.
+- Thank you for `understanding`, mama.
+- There is no need for `understanding`.
+- You're a very `understanding` person.
+- Your protection, your `understanding`.
+- An `understanding` between two friends.
+- We can reach an `understanding` on this.
+- Perhaps she's wanted for `understanding`.
+- Maybe i'm not `understanding` the question.
+- Alright...yeah...thanks for `understanding`.
+- `Understanding` the following rights... jesus.
+- I'm so glad we've come to this `understanding`.
+- An unspoken `understanding` that i am not human.
+- A purpose requires an `understanding` of intent.
+- I have no `understanding` of this place anymore.
+- I've been `understanding` since i was seventeen.
+- Purpose requires an `understanding` of intent.
+- Captain kirk, i so much want your `understanding`.
+- It was my `understanding` we left all that behind.
+- I was hoping to get some `understanding` from you.
+- You haven't any hope of `understanding` any of this.
+- Now i guess you and your aunt have an `understanding`.
+- The station entered into this on that `understanding`.
+- Well, thank you very much for being so `understanding`.
+- We must use patience and `understanding` with this man.
+- An analogy for `understanding` whatever the hell this is.
+- I can't imagine her being too `understanding` about that.
+- I just need a little help `understanding`, sweetie, okay?
+- We gonna drop some knowledge, wisdom and `understanding`.
+- Some of us, frances, must believe without `understanding`.
+- The other way, is we reach some sort of an `understanding`.
+- And, i'm asking you to trust me without `understanding` why.
+- The fbi was very `understanding` when i explained it to him.
+- I took unfair advantage of your patience and `understanding`.
+- Really, fettes, you irk me with your lack of `understanding`.
+- Or `understanding` them, or being able to forgive them... yeah.
+- You always had a little trouble `understanding` that, princess.
+- If at any time you do anything we have an `understanding`, then.
+- A lot of it you're simply not capable of `understanding`, not yet.
+- An `understanding` and an appreciation for the heritage of a brand.
+- He was very `understanding` - you ought to talk to him ... algeria?
+- I hope that `understanding` is worth as much as you think it is, sire.
+- I'm trying to be delicate with you, but you're not `understanding` me.
+- It would kill me if he went through his whole life never `understanding` me.
+- It's to make you <u>understand</u> him, with `understanding` comes tolerance.
+- The lack of pretense, that sort of strange directness and `understanding`- eve.
+- Love and `understanding` won't make a good detective out of a recalcitrant poet.
+- Why you should bring up the name of another conductor is beyond my `understanding`.
+- You re not thinking of going to... because i'm tired of not `understanding` things.
+- My `understanding` of the way he works is that he won't be fooled by a simple trick.
+- Now my `understanding` is that 20 hours after exposure, the victim becomes infectious.
+- You talk him out of there and they might be a little more `understanding` of your case.
+- I'm talking about eliminating <u>insight</u> and <u>`understanding`</u> as human values.
+                 

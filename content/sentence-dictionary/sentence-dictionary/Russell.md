@@ -1,0 +1,101 @@
+---
+title: "Russell in a sentence | Russell example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Russell"
+---
+- `Russell` is not here.
+- Hello, `russell` prime.
+- `Russell` really did it.
+- We want `russell` prime.
+- All we need is `russell`.
+- `Russell` wants that, too.
+- Then who's `russell` nash?
+- Who the fuck's `russell`?!
+- I'll worry about `russell`.
+- `Russell`'s here somewhere.
+- With `russell`'s execution.
+- But `russell` prime is ours.
+- `Russell`, get to the point.
+- `Russell`, listen to me, ok?
+- Take him to `russell` prime.
+- They're going for `russell`.
+- You fool, i'm not `russell`.
+- Now send for `russell` prime.
+- Please forgive us, `russell`.
+- `Russell` won't stand for it.
+- Fanatics think he's `russell`.
+- `Russell`... `russell` took her.
+- After `russell` threw the bomb.
+- I am not `russell` lightbourne.
+- It's time to talk to `russell`.
+- `Russell`, it wasn't your turn.
+- They're not all bad, `russell`.
+- What did `russell` promise you?
+- The attempt on `russell`'s life.
+- You have leverage over `russell`.
+- By helping `russell` kill gabriel.
+- I can see why `russell` likes her.
+- Than what was in `russell`'s bomb.
+- It's their fault `russell` left us!
+- Tell that to `russell` prime, null.
+- We already spared `russell`'s life.
+- Escort `russell` prime back to the lab.
+- Graham `russell` and `russell` hitchcock.
+- Indra, we need to talk about `russell`.
+- Outside `russell`'s quarters right now.
+- Should decide `russell`'s fate, not us.
+- Tomorrow, `russell` prime dies for his!
+- Tomorrow, `russell` prime dies for his.
+- What do you expect, bertrand `russell`?
+- But we could give them me and `russell`.
+- Either `russell` prime dies, she is not.
+- I demand the release of `russell` prime.
+- `Russell` came around on the trade bill.
+- But we're not letting you have `russell`.
+- I didn't know what `russell` was gonna do.
+- `Russell` isn't the only prime in sanctum.
+- So either he kills her, or `russell` does?
+- Clarke, these people want to see `russell`.
+- If `russell` told them to stop, would they?
+- The only person dying tonight is `russell`.
+- `Russell`, why haven't you used the antidote?
+- `Russell`, you don't need to do this, please.
+- They want `russell` prime whoa, what is that?
+- We're not playing games down here, `russell`!
+- Technically, `russell` killed abby, i'm sorry.
+- I didn't mean for `russell` to... god, shut up!
+- `Russell`, i love you, why is he not waking up?
+- Letting `russell` live is how we keep the peace.
+- `Russell`, these people know the truth about us.
+- `Russell` won't stand for anything if he's dead.
+- To tell `russell` we've solved our host problem.
+- `Russell`, we don't even know if it's survivable.
+- If `russell` was here, off the charts, by the way.
+- I can't have `russell` murder more innocent people.
+- `Russell` had all you fools convinced he was a god.
+- You think there were other men involved, `russell`?
+- How long before `russell` finds out okay, i'll shake.
+- You said `russell` is dead i'm the lesser of two evils.
+- Bellamy, if we don't give `russell` his daughter back...
+- But `russell` told the people that it was a false alarm.
+- `Russell` lightbourne vii, savior of sanctum, calm down.
+- ...president reagan's... she just wants to see `russell`.
+- I swear, if this is some sort of halloween prank, `russell`?
+- The police still have a lot of questions for `russell` nash.
+- This suburban mother with `russell` was curious about earth.
+- Did `russell` tell you your child will be considered worthless?
+- We're gonna live, `russell` killed us in the first red sun hmm.
+- Since `russell` and i are here, you don't need the kids anymore.
+- They're burning `russell` at the stake tonight, out of this church.
+- You ever want to see him alive again, will you release `russell` prime?
+- In view of proof, `russell`'s followers are planning some kind of attack.
+- I wouldn't build `russell` his bomb, and there's nothing funny about that.
+- If `russell` figures out that his daughter is dead, what the hell is that?!
+- Once they do, ♪ if you're so tired of moving slow ♪ you betrayed `russell`.
+- He is `russell` lightbourne, seventh of his line, before it can be executed.
+- As so ordered by `russell` prime, then we need to make the host uninhabitable.
+- `Russell` prime is a being of divine love, lost a lot of good men on that show.
+- You tell `russell` if he hurts any of my people not yet, but people are gathering.
+- Yeah, but, `russell` and i reverse-engineered their tech how many of your people would die?
+                 

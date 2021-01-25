@@ -1,0 +1,107 @@
+---
+title: "contact in a sentence | contact example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "contact"
+---
+- `Contact` the proteus!
+- `Contact` the landlord.
+- `Contact`, two o'clock.
+- How do i `contact` you?
+- I'll keep in `contact`.
+- Maintain eye `contact`.
+- Still no `contact` yet.
+- For you to `contact` me.
+- How can i `contact` them?
+- I'm making eye `contact`.
+- Today, we make `contact`.
+- Why did you `contact` us?
+- Why would he `contact` me?
+- A way we can `contact` her?
+- He's just making `contact`.
+- Was there visual `contact`?
+- We have a visual `contact`.
+- We keep in radio `contact`.
+- `Contact` starfleet command.
+- He's out of radio `contact`.
+- Did the police `contact` you?
+- I'll have them `contact` you.
+- She's trying to `contact` me!
+- You were his local `contact`.
+- Chapin did `contact` you then?
+- My `contact` is extremely shy.
+- My eyes are in `contact` with.
+- Play lots of `contact` sports?
+- She comes into `contact` with.
+- Thirty seconds till `contact`.
+- This is how we `contact` luna.
+- We'll stay in voice `contact`.
+- `Contact` a few days ago, uh...
+- Did you `contact` the alliance?
+- Not that i'm in `contact` with.
+- He's my `contact` for chrissake!
+- No talking and no eye `contact`.
+- Stay here, `contact` the others!
+- Fax it to every `contact` we got.
+- He hasn't tried to `contact` you?
+- How much skin and stem `contact`?
+- I broke `contact` with the s.a.c.
+- No `contact` with anyone in camp.
+- Sandy, `contact` traffic control.
+- We'd have to-- `contact` cointel.
+- We lost radio `contact` with him.
+- Would you try and make `contact`?
+- You can't `contact` starfleet.
+- [how do you `contact` 'the boss'?]
+- At least it's a point of `contact`.
+- Could he handle a direct `contact`?
+- First `contact`... feast your eyes.
+- I'll `contact` you when i need you.
+- Just wait kay, he'll `contact` you.
+- We're trying to `contact` the ship.
+- You want me to `contact` starfleet?
+- Of you helping us `contact` the ark.
+- Everyone they had `contact` with?
+- The mob `contact` was johnny roselli.
+- To see if bellamy has made `contact`.
+- You make `contact`, i'll back you up.
+- You're the first one he'll `contact`.
+- First `contact` was inside that thing.
+- He already tried to `contact` me once.
+- Was it that mig `contact` that did it?
+- Awacs `contact` on four hour intervals.
+- Christ, if i could only `contact` luca.
+- I managed to `contact` the mondoshawan.
+- Is anyone trying to `contact` the ship?
+- Ola is hyman roth's sicilian `contact`.
+- Tell me you brought the `contact` lens.
+- They must have made a visual `contact`.
+- You should `contact` my administration.
+- And how did you make `contact` with him?
+- Besides, we lost `contact` with bellamy.
+- Have your attorney `contact` me at once.
+- I will `contact` you every five minutes.
+- They've made `contact` with the reapers.
+- How are we supposed to `contact` the ark?
+- Anything it samples by physical `contact`.
+- That we lost `contact` with the drop ship.
+- It says here not to `contact` com-sec- int.
+- The moment when `contact` becomes possible.
+- To know we're not alone, to make `contact`.
+- Why haven't you been able to `contact` him?
+- Do you wear eye glasses or `contact` lenses?
+- If we `contact` a rescue ship we'll need it.
+- I'll find a way to `contact` the enterprise.
+- We in radio `contact` with anybody up there?
+- You mean you're still in `contact` with her?
+- If you wanna `contact` my attorney... police.
+- Sooner or later, he's going to `contact` you.
+- Why didn't they `contact` us first and say...
+- It has been 12 hours since our last `contact`.
+- The code name of your `contact` will be boris.
+- The radio `contact` said one officer had died.
+- You were supposed to `contact` a peter kurten?
+- She can't `contact` you without us knowing.
+- First team that makes `contact` wins the prize.
+- I've told the crew to `contact` their families.
+                 

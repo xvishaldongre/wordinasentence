@@ -1,0 +1,61 @@
+---
+title: "Tuesday in a sentence | Tuesday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Tuesday"
+---
+- It's `tuesday` already!
+- It's `tuesday` at 4:30!
+- Auditions are `tuesday`.
+- Back on `tuesday`, right?
+- See you `tuesday`, frank.
+- It must've been `tuesday`.
+- Busy night for a `tuesday`.
+- `Tuesday` is ladies' night.
+- I thought you say `tuesday`.
+- I won't wait until `tuesday`.
+- `Tuesday`'s my day with arthur.
+- Where were you `tuesday` night?
+- About what we said on `tuesday`.
+- The bond issue passes `tuesday`.
+- `Tuesday` is my day with arthur.
+- No, i got nothing till `tuesday`.
+- They found him dead on `tuesday`.
+- `Tuesday` night is ladies' night.
+- Yes -- start in l.a. on `tuesday`.
+- My documentary is due on `tuesday`.
+- Yeah, well today's `tuesday`, payday.
+- It won't be installed until `tuesday`.
+- `Tuesday` i'll give michael something.
+- I've lost half a pound since `tuesday`.
+- A slow `tuesday` night just about hotter.
+- Wednesday... no, it's `tuesday`, i think.
+- Now, for clarke, we call that a `tuesday`.
+- So, we'll meet every `tuesday` and friday.
+- Swing by first methodist `tuesday` nights.
+- Now what am i gonna do on `tuesday` nights?
+- Now what time does my plane leave `tuesday`?
+- Rehearsals are `tuesday` and thursday evenings.
+- I'll see him hanged every `tuesday` for a month!
+- Nine days � `tuesday` � is this multiple choice?
+- To hear you use the c-a-next-`tuesday` word again.
+- I'm gonna see you this `tuesday` payday, i promise.
+- <u>conspiracy theory</u> it just went out `tuesday`.
+- You're gonna take the vows next `tuesday`, right.
+- If i don't give anders something soon, `tuesday` at 4:00.
+- Call the police and wait until they get here on `tuesday`?
+- From `tuesday` to yesterday, not including monday or today.
+- I called you `tuesday` at 3:30 and they said you weren't in.
+- Bought them over at blackburn's supplies just last `tuesday`.
+- I'll meet you `tuesday`, and we'll go over your testimony...
+- I'll meet you `tuesday`, and we'll go over your testimony ...
+- We have a truckload of strawberries arriving on `tuesday` morning.
+- If we didn't have election `tuesday` i'd have this on my conscience.
+- I made you write a beautiful song... and on `tuesday` - hasenpfeffer.
+- The election `tuesday`'ll be only - i'm going to be elected governor.
+- I've got enough so we won't have to go out of the house till `tuesday`.
+- He visits his ladies on `tuesday` and thursday nights and saturday mornings.
+- You just better come through with some kind of payment on `tuesday`...anything.
+- If you let him run around till `tuesday`, he's gonna run right to ganz and warn him.
+- I keep thinking of that day, `tuesday` the 26th, the day after they buried kennedy, l.b.j.
+                 

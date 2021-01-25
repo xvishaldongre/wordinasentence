@@ -1,0 +1,107 @@
+---
+title: "hard in a sentence | hard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hard"
+---
+- Don't work too `hard`.
+- He worked very `hard`.
+- How `hard` is it to...
+- Is it `hard` to learn?
+- It's `hard` to figure.
+- It's not `hard` to do.
+- I work `hard` for you.
+- Now think back `hard`.
+- Old habits die `hard`.
+- That wasn't so `hard`.
+- They work very `hard`.
+- This is `hard` for me.
+- We have a `hard` seal.
+- Ain't that `hard`, son.
+- It's `hard` to get.
+- `Hard` luck -- like me.
+- `Hard` to find a place.
+- I hit the water `hard`.
+- I know it's `hard`, no!
+- It's `hard` to explain.
+- It's `hard` to imagine.
+- It's `hard` to lose ...
+- It's `hard` to swallow.
+- It's hit us all `hard`!
+- It was `hard` to score.
+- It would be too `hard`.
+- It�s `hard` to explain.
+- Nigger, fuck me `hard`!
+- No `hard` feelings, eh?
+- Or `hard` wired, right.
+- Stop pushing so `hard`.
+- That's the `hard` part.
+- They're getting `hard`.
+- What about `hard` work?
+- Work `hard`, play `hard`!
+- You do work too `hard`.
+- Everything's too `hard`.
+- `Hard` core fuckin' nva.
+- `Hard` man to live with.
+- I know how `hard` it is.
+- I see, i bank so `hard`.
+- It's `hard` to describe.
+- It won't be that `hard`.
+- No `hard` feelings, huh?
+- Not used to `hard` work.
+- That's `hard` duty, son.
+- That's not `hard` to do.
+- The `hard` part is over.
+- They hit him too `hard`.
+- Try and be a `hard`-ass!
+- We do it the `hard` way.
+- Yes i have, very `hard`.
+- Daddy and i tried `hard`.
+- Don't take it too `hard`.
+- `Hard` to believe i know.
+- Hey, i know, it's `hard`.
+- How `hard` can clarke be?
+- I know it must be `hard`.
+- It's really `hard` to do.
+- No `hard` feelings, okay?
+- That's `hard` to believe.
+- They laughed real `hard`.
+- Well, i'm `hard` to kill.
+- We've had a `hard` night.
+- Which you pulled, `hard`!
+- You're too `hard` on him.
+- You work too `hard`, pop.
+- ...are they `hard` to get?
+- Cap and i fell out `hard`.
+- `Hard` bondage, or course.
+- He's a very `hard` worker.
+- I guess habits die `hard`.
+- I know how `hard` this is.
+- It must be `hard`... yeah.
+- It's `hard` to have faith.
+- It's `hard` to say capt'n.
+- It's not that it's `hard`.
+- It's so `hard` to believe.
+- It will be a `hard` break.
+- I worked `hard` with them.
+- Kind of `hard` to believe.
+- Reading klingon is `hard`.
+- Rose, you work too `hard`.
+- These are `hard` as rocks.
+- Were the mid-terms `hard`?
+- You've worked very `hard`.
+- You work too `hard`, john.
+- Are you my big `hard` hero?
+- Does it make you... `hard`?
+- Don't be too `hard` on her.
+- Don't be too `hard` on him.
+- Good help's `hard` to find.
+- `Hard` as hell to handicap.
+- `Hard`-tack is pretty sore.
+- `Hard` to resist, isn't it?
+- He's `hard`, but he's fair.
+- Hold tight and push `hard`.
+- I mean, how `hard` is this?
+- I'm trying terribly `hard`.
+- Is that too `hard` for you?
+                 

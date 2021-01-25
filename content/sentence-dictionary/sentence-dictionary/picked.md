@@ -1,0 +1,107 @@
+---
+title: "picked in a sentence | picked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "picked"
+---
+- No, he `picked` me up.
+- `Picked` up something?
+- I `picked` them myself.
+- They're hand- `picked`.
+- Yeah, i `picked` it up.
+- You'll get `picked` up.
+- Your name was `picked`.
+- Get the dog `picked` up.
+- I `picked` those drapes.
+- I `picked` up my ticket.
+- That bus we `picked` up.
+- `Picked` up a few things.
+- That's why i `picked` it.
+- We `picked` a name today.
+- Mr. largo, he `picked` me.
+- Have i `picked` you up yet?
+- I'll have them `picked` up.
+- She `picked` the wrong one.
+- They've `picked` up henryk.
+- But they `picked` me, right?
+- Getting `picked` for things.
+- You `picked` another winner!
+- Has the response `picked` up?
+- I could have `picked` you up.
+- I `picked` it up in thailand.
+- Ever since we `picked` her up.
+- Hey, any lock can be `picked`.
+- `Picked` his pocket, actually.
+- `Picked` over, ten months ago.
+- You `picked` the wrong people.
+- No, they `picked` you, and why?
+- After him i `picked` the lawyer.
+- A present i `picked` up for you.
+- `Picked` up one of those shears.
+- An hour after you `picked` it up!
+- He has already `picked` the pope.
+- See, they should've `picked` him.
+- That i should've `picked` you up?
+- You `picked` her up on the ferry.
+- I `picked` them out for you, jake.
+- You really `picked` a winner, kid.
+- Afterwards, brandon `picked` it up.
+- I `picked` him up and i fucked him.
+- I `picked` something up on the way.
+- That's why i `picked` up the phone.
+- You know where they `picked` me up!
+- Believe me, they've `picked` him up.
+- I never did get `picked` out fer it.
+- You `picked` that up on the scanner.
+- You `picked` the unrequited variety.
+- I've been `picked` up a couple times.
+- There, she just `picked` it up again.
+- But tonight you're hand-`picked` scum.
+- Oh it's just some stuff i `picked` up.
+- Some italian i `picked` up back there.
+- We just `picked` him up on the way in.
+- We `picked` up a small group on radar.
+- It's why the eyewitnesses `picked` shu.
+- Otherwise i would have `picked` you up.
+- They must have `picked` it up in space.
+- We got `picked` up for a second season.
+- Well, you sure `picked` the right place.
+- Ester and me did; my niece `picked` then.
+- If it's ragged, it was `picked` too soon.
+- I just `picked` things up over the years.
+- Maybe glen already `picked` up the disks.
+- Naw, he `picked` up some jane in the bar.
+- The spot we `picked` to spend the winter.
+- Uh-huh i `picked` them out for you, jake.
+- Amy `picked` it off the top of that stack.
+- He always just `picked` it up at my place.
+- I `picked` her up off hollywood boulevard.
+- No wonder they `picked` you for the patsy.
+- You couldn't have `picked` a better color.
+- A little trick i `picked` up from the borg.
+- I bet you `picked` me up a couple of times.
+- I just got `picked` for advanced placement.
+- Somebody mitchell `picked` up on the train.
+- You `picked` a loser, i just don't have it.
+- It's something i `picked` up from the chink.
+- I went by your place, `picked` up your mall.
+- Just about an hour after we `picked` you up.
+- You `picked` a bad house to hole up in, son.
+- She might have `picked` up a hint you'd miss.
+- Skill `picked` up from the savages, no doubt.
+- The nurses leo and me `picked` up last night.
+- What about the life readings you `picked` up?
+- I `picked` it up in the communications center.
+- I `picked` the easiest piece i could remember.
+- Maybe she finally `picked` a winner this time.
+- Maybe that's why they `picked` me for the job.
+- `Picked` tonight to come by and watch our set.
+- That's the one i'd've `picked` for you myself!
+- The grapevine says you `picked` up a subpoena.
+- There's an item you `picked` up that's marked.
+- They ain't drops--i `picked` 'em off the tree!
+- We `picked` them up here-and-there last night.
+- You're just jealous 'cos the girl `picked` me.
+- What's the chances of mantan being `picked` up?
+- You `picked` up that girl right in front of me.
+                 

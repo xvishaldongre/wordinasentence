@@ -1,0 +1,78 @@
+---
+title: "frightened in a sentence | frightened example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "frightened"
+---
+- Don't be `frightened`.
+- I am `frightened` now.
+- I'm `frightened`, sir.
+- You look `frightened`.
+- He looked `frightened`.
+- Aren't you `frightened`?
+- Boys `frightened`, lula.
+- I'm `frightened`, mitch.
+- I was `frightened` then.
+- Terry, i'm `frightened`.
+- I'm `frightened` for you.
+- No, i'm not `frightened`.
+- You are `frightened`, no?
+- Oh brad, i'm `frightened`.
+- More and more `frightened`.
+- Something `frightened` her.
+- I know you are `frightened`.
+- I'm very, very `frightened`.
+- I am not a `frightened` girl.
+- Oh, dwight, i'm `frightened`.
+- Why would he be `frightened`?
+- I'm cold and i'm `frightened`.
+- The truth `frightened` her?
+- I'm `frightened` of you, bruce.
+- I'm sorry, i'm just `frightened`.
+- I'm so sorry we `frightened` you.
+- I must have `frightened` her away.
+- What was it that `frightened` you?
+- The men are `frightened` and angry.
+- He `frightened` you and he hurt you.
+- ...i'm `frightened`� i'm `frightened`.
+- I was `frightened` what you might do.
+- Please do not be `frightened`, madam.
+- I'm `frightened` and confused and i...
+- I'm `frightened`, terribly `frightened`.
+- I'm sorry if i `frightened` you today.
+- There's nothing to be `frightened` of.
+- Are you saying i should be `frightened`?
+- You're `frightened`, aren't you, norman?
+- It was always like you were `frightened`.
+- So there's nothing to be `frightened` of.
+- After they left, he was very `frightened`.
+- People can be very `frightened` of change.
+- No, you're `frightened`, you're pretending.
+- I'm sorry that i `frightened` you like that.
+- To tell you the truth, i am `frightened` too.
+- You shouldn't have `frightened` him like that.
+- This is not a position for a `frightened` girl.
+- I'm not `frightened`... of anything... thorfinn!
+- ... in case i get `frightened` during the night?
+- I was `frightened` and i didn't know what to think!
+- The children so `frightened`, more people will die.
+- For the first time i'm beginning to be `frightened`.
+- They don't even realize they should be `frightened`.
+- Something just must've...`frightened` her, that's all.
+- Picture edward in a strange place, lost, `frightened`...
+- He's `frightened`, exhausted -- and the mask is familiar.
+- After major strasser's warning tonight, i am `frightened`.
+- I got `frightened` all alone upstairs, so i came down here.
+- He was a `frightened` soul who acted out of fear and ignorance.
+- You know very well people are `frightened` of arming the negroes!
+- But once i realized i could surpass you, i became so `frightened`!
+- Killed by someone inside...very `frightened` that they botched it.
+- He was close to ten but seemed more like a `frightened` five or six.
+- But all i see are two tribes of `frightened` creatures what do you mean?
+- I think she is `frightened` and i happen to know hollis was fond of her.
+- They're just `frightened`, fucked-up losers that prison fucked up worse.
+- If i had seen a ghost at your age, i would have been `frightened` out of my wits.
+- They're `frightened` for themselves, their families... maybe it's the homo angle.
+- When she calls me now, she's a different person-she's `frightened` and vulnerable.
+- When that gun was pointed at my face tonight, i was surprised, but never `frightened`.
+                 

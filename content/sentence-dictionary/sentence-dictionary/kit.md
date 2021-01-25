@@ -1,0 +1,54 @@
+---
+title: "kit in a sentence | kit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kit"
+---
+- `Kit` give me nothin'.
+- You have to ask `kit`.
+- Get me a med `kit`.
+- I'll get the med `kit`.
+- Get the first aid `kit`!
+- What do you want, `kit`?
+- Tom... well, `kit`... sure.
+- Good luck with yours, `kit`.
+- I've got to stick by `kit`...
+- My porch repair `kit` is gone!
+- Okay, makeup `kit`, selfie stick.
+- Did you bring the first aid `kit`?
+- Somebody get me a first aid `kit`.
+- The `kit` kat will be letting out.
+- `Kit`, i've got a question for you.
+- But we don't have a first aid `kit`.
+- `Kit` gave it to you yesterday, cash.
+- There's a first aid `kit` in the lab.
+- It's just the standard tropical `kit`.
+- Check to see if he's got a patch `kit`.
+- `Kit`... maybe i'd better get a shovel.
+- Mind if i get some stuff from my `kit`?
+- Everything we need is in your med `kit`.
+- Everything we need is in your med `kit`.
+- Get me a stretcher and a med `kit`, now.
+- How about a canteen or a med `kit` nice.
+- Hey `kit`, where do i go for the clothes?
+- Trauma `kit`'s forward, on the bulk head.
+- `Kit`, i left that money for you days ago.
+- Landon -- check your communications `kit`.
+- They'll have some sort of first aid `kit`.
+- I left my forgery `kit` back at the office.
+- [man shouts] get that med `kit` from my bag.
+- He is readying the curtain for `kit` marlowe.
+- `Kit` "out of her favour where i am in love."
+- Deke, have you got a first aid `kit` back there?
+- Holly's over here, `kit`, if you want to see her.
+- We need access to the shuttle's med-`kit` or he'll die.
+- I need to get your signature on some papers here, `kit`.
+- Lothar, get up here fast, and bring your first- aid `kit`!
+- Sam, give dixie here fifty bucks out of my `kit`, will you?
+- The council approved kane's ♪ alors on danse ♪ a med `kit`?
+- I know, i know, and a first-aid `kit` and a fire extinguisher.
+- And i feel guilty a med `kit` from mount weather, who are they?
+- Take a hit out of that little brown bottle in my shaving `kit`.
+- The whole `kit` and caboodle of 'em are british intelligence agents.
+- Just what do you think would happen to her if she stuck around with you, `kit`?
+                 

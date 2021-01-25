@@ -1,0 +1,7 @@
+---
+title: "Sartre's in a sentence | Sartre's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sartre's"
+---
+## Unfortunately, we have no example sentences for Sartre's                 

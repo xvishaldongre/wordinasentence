@@ -1,0 +1,91 @@
+---
+title: "soldier in a sentence | soldier example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "soldier"
+---
+- Good for you, `soldier`.
+- He's an enemy `soldier`.
+- He was a good `soldier`.
+- It was just a `soldier`.
+- John, he is a `soldier`.
+- You're a good `soldier`.
+- You're a `soldier`, max.
+- A darling baby `soldier`!
+- It'll get here, `soldier`.
+- I've been a `soldier` too.
+- I'm a `soldier`, a warrior.
+- You want'a surf, `soldier`?
+- Do like the `soldier`, toto!
+- I'm not a `soldier`, really.
+- Well, he's a good `soldier`.
+- I'll have your ass, `soldier`.
+- You're a good `soldier`, bill.
+- It was on a `soldier`'s walkie.
+- Where are you going, `soldier`?
+- Your `soldier` knew, didn't he?
+- You were a `soldier`, were you?
+- I'm a `soldier` -- we're at war.
+- I'm the better `soldier`, jesse.
+- Restrain the `soldier` with him.
+- Your `soldier` shit is bad- ass.
+- You're a citizen and a `soldier`.
+- Lee oswald was no ordinary `soldier`.
+- To become our most trusted `soldier`.
+- What'dya tell that `soldier`, `soldier`?
+- If a `soldier` loses his legs in a war.
+- My dad was a straight up tin `soldier`.
+- I'm just a plain old `soldier` at heart.
+- Montcalm is a `soldier` and a gentleman.
+- Working the tap on those `soldier` boys.
+- I thought then i would marry a `soldier`.
+- Where'd you learn to do that, `soldier` ?
+- The test of a `soldier` is not in his arm.
+- Have i got something on my face, `soldier`?
+- Let alone with my most decorated `soldier`.
+- At first, like everybody, i was a `soldier`.
+- That `soldier` requires immediate attention.
+- Appoint an engineer to do a `soldier`'s work.
+- Where is the emperor and the army, `soldier`?
+- `Soldier`, you're just what we're looking for.
+- Christ, the `soldier` ran off there and waited!
+- I saw a `soldier` come in with radiation burns.
+- Wait a minute, that's no `soldier` -- that's z!
+- But there's something funny about that `soldier`.
+- The artist, to be vital, must be a `soldier` too.
+- I thought policeman was something like a `soldier`.
+- He started as a worker -- then he became a `soldier`!
+- Monsieur le marquis, i am a `soldier`, not a diplomat.
+- Why is that `soldier` strapped to an explosive device?
+- You may save the lives of every `soldier` on this base.
+- He's from there - edge of lake ontario right, `soldier`?
+- The only way to save both our people you're a `soldier`.
+- You were a `soldier`, and then a gladiator, weren't you?
+- You remember the story of the `soldier` and the princess?
+- My self-respect is gone--and my `soldier`'s honor with it.
+- Walter's on campus, being the good `soldier` for wordfest.
+- Oh, i see a small ohio farm boy becoming a great `soldier`.
+- He's gone off to be a `soldier` and mummy doesn't even know.
+- Jackson said the `soldier` had armor this is the brodie knob.
+- Do you know what the penalty for impersonating a `soldier` is?
+- The `soldier` -- he looked at me so strangely -- who is he?
+- Whatever you say, jude... come and get me, `soldier` -- people.
+- Now i understand why the `soldier` went away just before the end.
+- But what could a poor `soldier` do compared with a king's daughter?
+- Now if you'll excuse me, `soldier`, i'd like to get back to my box.
+- In this ant's army, a `soldier`'s life ain't worth a sack of fungus.
+- The most common `soldier` will defy your most depressing expectation.
+- Recall the time we was sittin' one night behind the confederate `soldier`?
+- Marcus, you honor me, but i'm a `soldier`, politics scare the hell out of me.
+- I'm `soldier` of the republic, you'll need the mahogany truncheon for this boyo.
+- Ask about spain, where he was the youngest `soldier` in the abraham lincoln brigade.
+- He believes in the future -- i said shut the fuck up -- he's a good `soldier`, jude.
+- I'm dead within minutes of landing along with every other `soldier` you are sending.
+- You must make the injustice visible -- be prepared to die like a `soldier` to do so.
+- This ain't about some little `soldier` girl sloggin' her way through commando school.
+- Even if that wasn't an iraqi `soldier` it's only a matter of time before some show up.
+- Oh, i get playing good, little `soldier` to stay alive, ontari will know you helped her.
+- Munro is expecting him to be the good `soldier` in defense of british military interests.
+- Stepped on a booby trap, sir -- got blown all to hell -- `soldier` -- where''s your c.o.?
+- The `soldier` villain who fights the hero with his hands, and then there's the real threat.
+                 

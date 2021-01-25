@@ -1,0 +1,107 @@
+---
+title: "black in a sentence | black example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "black"
+---
+- `Black`'s always good.
+- Mr. `black`, shall we?
+- Oh, `black` and white?
+- To hide a `black` eye.
+- `Black` mercedes, 600s.
+- Try the `black` knable.
+- War is not all `black`.
+- We're `black` ain't we?
+- White turns to `black`.
+- You and `black` beauty.
+- You're fucking `black`!
+- `Black` and white smoke.
+- The oriental in `black`.
+- The sun turning `black`.
+- You mean `black` people?
+- A `black` thermopod here?
+- A little `black` brother.
+- Into a `black` dress.
+- `Black` baron's mischief.
+- It appears quite `black`.
+- It's halfdan the `black`!
+- Something `black` though.
+- That little `black` line?
+- These `black` lines, see?
+- Who was that `black` guy?
+- `Black` suits and helmets.
+- His helper, `black` peter.
+- Leopard skin... `black`...
+- The `black` beverly hills.
+- The `black` flag, brother.
+- We kill the `black` blood.
+- Anything else, mr. `black`?
+- `Black` cloud following me.
+- `Black` tail district, x22.
+- Halfdan the `black`'s here!
+- It's pitch `black` in here.
+- The `black` baron, you say?
+- We have `black` and bitter.
+- I like you in a `black` tie.
+- It's called `black` leather.
+- Ma'am, ray dunbar's `black`.
+- My heart isn't that `black`.
+- Not only that he's `black`.]
+- We heard in the `black` box.
+- `Black` rain will come first.
+- `Black` soldiers, pakistanis.
+- I don't understand-- `black`.
+- It's `black`, about this big.
+- I understand `black` culture.
+- Oh � you mean `black` people!
+- She was a `black` female cop.
+- That `black` box in our cell?
+- That's mighty `black` of you.
+- That was `black` peter's job.
+- `Black` market during the war.
+- Dante, this is willam `black`.
+- Dela, kiss my big `black` ass.
+- Gordo with a `black` suitcase.
+- He a `black` man or an indian?
+- He's just a man... in `black`.
+- If he wasn't `black`, that is.
+- It's so pitch-`black` tonight.
+- Keller, `black` lion squadron.
+- Let's say it's `black` chicks.
+- Next waterhole's `black` draw.
+- Nice to meet you, mr. `black`.
+- Pink panther, `black` panther.
+- _ presents with `black` blood.
+- Sophie insists an `black` tie.
+- Welcome to the men in `black`.
+- You've seen the `black` pearl?
+- `Black` and curly, like a doll.
+- `Black` coat, possibly leather.
+- Bring `black` gloves and no id.
+- Fanucci is of the `black` hand.
+- I thought you was `black`, man!
+- Like francais `black` robes do?
+- On a `black` and white monitor.
+- The man's gone `black`, barnes.
+- Who determines what is `black`?
+- You look like `black` thursday.
+- You want this in `black` chips.
+- Excuse me -- the man in `black`?
+- I don't deal `black`-jack clips!
+- Jack right into the big `black`.
+- White people with `black` faces.
+- Why were lefferts' eyes `black`?
+- Now it's gone `black` market.
+- `Black` men were never like that.
+- But, erik... halfdan the `black`.
+- Maybe `black` means you're happy?
+- My righteous name is big `black`.
+- One egg�doughnuts�`black` coffee.
+- Piece of `black`, volcanic glass.
+- The `black` pearl is a real ship.
+- Three on a match, `black` cats...
+- What's the little `black` box do?
+- Yes sir, mr. `black`, a pleasure.
+- A `black` man gave me the message.
+- Are you getting that `black` suit?
+                 

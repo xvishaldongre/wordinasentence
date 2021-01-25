@@ -1,0 +1,107 @@
+---
+title: "city in a sentence | city example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "city"
+---
+- He mentioned a `city`.
+- It was a great `city`.
+- I work for the `city`.
+- L.a.'s an open `city`.
+- The last human `city`.
+- We were `city` champs.
+- A resort `city`, beppu.
+- ...for michigan `city`.
+- I'm in new york `city`.
+- In the `city` of light.
+- In the `city` of light.
+- I work for `city` hall.
+- Just past boise `city`.
+- Salt lake `city`, utah.
+- The `city` is new york.
+- The `city` of the dead.
+- The `city` of the dead.
+- The `city` of the dead.
+- This `city`... corrupt.
+- We'll go to the `city`.
+- By order of `city` hall.
+- He's from kansas `city`.
+- Instead of "sin `city`."
+- Is it inside the `city`?
+- It's a beautiful `city`.
+- It's just a `city` park.
+- I got them in the `city`.
+- Just the `city` of light.
+- No mo' "`city` slickers."
+- Somewhere in this `city`.
+- Started in kansas `city`.
+- This is your damn `city`.
+- A crystal `city` attorney.
+- Big day in the big `city`.
+- Go to the `city` of light.
+- He's from new york `city`.
+- It's the name of a `city`.
+- Oklahoma `city`, oklahoma.
+- Probably the whole `city`.
+- 'salt lake `city`, please.
+- What's outside the `city`?
+- I was a big-`city` cop too.
+- Next stop, new york `city`!
+- Not the bay `city` rollers!
+- Rapid `city`, south dakota.
+- Right here in river `city`.
+- The `city` sealer's office!
+- They don't know the `city`.
+- This `city`'s k-killing me.
+- To be named after a `city`?
+- What about atlantic `city`?
+- Because it's a dying `city`.
+- Come out here to the `city`.
+- He's in the `city` of light.
+- I found the `city` of light.
+- I mean, it's a dying `city`.
+- I scoured the `city` for it.
+- It's the best in the `city`.
+- Sent to the `city` hospital.
+- The `city` of light is real.
+- The `city` of light is real.
+- Trying to "save the `city`."
+- You mean here in the `city`?
+- I see a `city` in the clouds.
+- The `city`'s just in the way.
+- The `city` that never sleeps.
+- The whole `city` has stopped.
+- I am the light of this `city`.
+- I couldn't work in the `city`.
+- I mean, you known this `city`.
+- I was born in new york `city`.
+- Right there in liberty `city`.
+- This used to be a real `city`.
+- You're from the `city`, right?
+- A young girl new to the `city`.
+- I'm `city` editor in name only.
+- I should get it at food `city`.
+- It overlooks the entire `city`.
+- I <u>am</u> the `city` council.
+- Juarez - chihuahua `city` road.
+- Not anymore, not in the `city`.
+- Raven's in the `city` of light.
+- We are uh...east of the `city`.
+- Are you still in crystal `city`?
+- This is new york `city`, sister.
+- Yeah, i'll miss new york `city`.
+- You should be in the big `city`.
+- After all we did for this `city`.
+- Clarke is in the `city` of light.
+- Clarke is in the `city` of light.
+- Is the `city` of light your home?
+- Sorry, that's the largest `city`.
+- The greatest `city` in the world.
+- We're not used to the big `city`.
+- Where she lived, just the `city`.
+- Wyatt earp...dodge `city`, right?
+- You're the mayor of shark `city`.
+- `City` of light community college.
+- I allowed it to escape the `city`.
+- In this `city`, outside that bank?
+                 

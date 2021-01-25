@@ -1,0 +1,107 @@
+---
+title: "careful in a sentence | careful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "careful"
+---
+- Be `careful`, francie.
+- Be `careful` up there!
+- Be `careful` with him.
+- `Careful` -- hey, you!
+- `Careful`, it's heavy.
+- Let's... be `careful`.
+- Octavia, be `careful`.
+- Be `careful` with that.
+- Can't be too `careful`.
+- Clarke, be `careful`.
+- He said - be `careful`.
+- I have to be `careful`.
+- You gotta be `careful`.
+- Anna: be `careful`, now.
+- Be `careful`, that hurt.
+- Be `careful` with those.
+- `Careful` with that one.
+- Everything is `careful`.
+- Just be `careful`, okay?
+- ♪ lincoln, be `careful`.
+- Not if you're `careful`.
+- We'll be very `careful`.
+- You be `careful`, tommy.
+- You better be `careful`.
+- You should be `careful`.
+- Be `careful` of this one.
+- Be `careful` who sees it.
+- But we were so `careful`.
+- `Careful`, it's slippery.
+- I'm being very `careful`.
+- Please be `careful`, sir.
+- Spider-man, be `careful`!
+- Ted, please be `careful`.
+- Watch his hand `careful`!
+- We'd better be `careful`.
+- Yeah, we'll be `careful`.
+- You have to be `careful`.
+- You want to be `careful`.
+- `Careful` with that thing!
+- `Careful` with that thing.
+- Hey, be `careful`, please.
+- How `careful` should i be?
+- I need somebody `careful`.
+- `Careful`: not all at once.
+- I'll be `careful`, darling.
+- Now you gotta be `careful`.
+- We promise to be `careful`.
+- You be `careful` out there.
+- You can't be too `careful`.
+- Zoey: amanda, be `careful`.
+- Be `careful` in the sun.
+- Be `careful`, for chrissake.
+- `Careful`, `careful`, `careful`.
+- `Careful` there, nancy drew.
+- You had better be `careful`.
+- Ah, jeez, billy... `careful`!
+- Be `careful`, she'll hit you.
+- Be `careful` where you shoot.
+- He's a very `careful` driver.
+- Hey, `careful` on the jacket.
+- I'm always `careful`... whoa!
+- Just go `careful`, all right?
+- Of course, i'll be `careful`.
+- Oh, ted, please be `careful`.
+- We have to be very `careful`.
+- We need to be more `careful`.
+- We need to be more `careful`.
+- Will you please be `careful`?
+- You got to be more `careful`.
+- You should be more `careful`.
+- Be `careful` of the bald cats.
+- `Careful`, don't get under it!
+- `Careful` driving home, curly.
+- I'll try to be more `careful`.
+- I've been very very `careful`.
+- Oh -- `careful`, mr. preysing.
+- Rhodey, `careful` on re-entry.
+- Rodent, `careful` on re-entry.
+- You really gotta be `careful`.
+- Be `careful`, `careful`, `careful`!
+- Be `careful`!--they'll see you.
+- Be `careful` with those, sonny.
+- `Careful`, don't make me angry.
+- I'd be `careful` if i were you.
+- I think we should be `careful`.
+- Josiah, be `careful` with that.
+- No, be `careful` of the poster.
+- Now be `careful` with that bag.
+- Well be more `careful`, please.
+- You ought to be more `careful`.
+- You need... to be `careful`.
+- I been damn `careful` up to now.
+- I'd be `careful` going that way.
+- I'm `careful`--weekly check-ups.
+- Just-just go `careful`, alright?
+- 'ooh -- `careful` there, vicar.'
+- `Careful` of that edging there...
+- Have to be `careful` who we pick.
+- ...i'm very `careful` about that.
+- I told 'em you're real `careful`.
+                 

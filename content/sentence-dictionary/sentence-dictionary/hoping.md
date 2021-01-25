@@ -1,0 +1,107 @@
+---
+title: "hoping in a sentence | hoping example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hoping"
+---
+- What are you, `hoping`?
+- I was `hoping` for that.
+- I was `hoping` you knew.
+- `Hoping` we'd beat him up?
+- I was `hoping` to meet him.
+- I was kinda `hoping`, yeah.
+- I've been `hoping` we'd meet.
+- I was `hoping` we could talk.
+- I was `hoping` you'd show up.
+- I was `hoping` you'd find out.
+- I was `hoping` you'd say that.
+- I was `hoping` you were there.
+- I was `hoping` you were clarke.
+- I was really `hoping` for more.
+- He was `hoping` they'd kill her!
+- I was `hoping` for some privacy.
+- I was `hoping` you could tell me.
+- I was `hoping` for the real thing.
+- I was `hoping` you were over that.
+- No...i was `hoping` to get a kiss.
+- I'm halfway `hoping` to get caught.
+- I've been `hoping` to run into you.
+- I was `hoping` i'd get to meet you.
+- You were `hoping` for a kind word?!
+- `Hoping` he'll kill me for you, huh?
+- I'm `hoping` we might work together.
+- I was `hoping` sid and i could talk.
+- No� i was `hoping` you'd call, babe.
+- That's what i was `hoping` you'd say.
+- We were `hoping` you might come back.
+- What are you `hoping` to find inside?
+- I was `hoping` i might be your friend.
+- You're `hoping` to get a look at what?
+- Admiral, i've been `hoping` to see you.
+- I was `hoping` to stop there for lunch.
+- I'm `hoping` to live in the old quarter.
+- I was `hoping` maybe you'd want to stay.
+- I was `hoping` you'd be here to bury me.
+- I was `hoping` you would call me, but...
+- Yeah, i'm `hoping` to do some sluts too.
+- Actually, i was `hoping` you'd let me go.
+- That's what i was `hoping` you'd tell me.
+- He was `hoping` you could use it i had to.
+- Then what are you `hoping` i'm gon- na do?
+- You were `hoping` to get it on home video?
+- I was `hoping` i wouldn't have to tell you.
+- I was just `hoping` for something to drink.
+- I was only `hoping` to make you understand.
+- I was `hoping` you could help me mr. fazeli.
+- Well, i was `hoping` to get my balls licked.
+- I was sort of `hoping` to get out of-- lizzy!
+- I was `hoping` for a kind word, little sister.
+- I was `hoping` that it would stabilize by now.
+- I'm `hoping` it's gonna die down after sundown.
+- I was `hoping` to wait until after the inquest.
+- I was `hoping` we could have a special evening.
+- I was kinda `hoping` he'd want the job, though.
+- Maybe i was just `hoping` that he would kill me.
+- So you're `hoping` buzz can get you re- instated?
+- Well... we were `hoping` you'd fill in that part.
+- Are we `hoping` the ghost is going to have to pee?
+- I'm `hoping` you and your friend can come up here.
+- I was `hoping` it would be alright if i came home.
+- I was `hoping` to get some understanding from you.
+- What's the detective `hoping` to find in san remo?
+- I'm `hoping` it's going to die down after sun down.
+- I was `hoping` you came to the door instead of him.
+- We're `hoping` we find grant, he'll lead us to her.
+- I was `hoping` you'd be a little late, miss daniels.
+- I was `hoping` you'd changed your mind about the job.
+- Before i do -- i was `hoping` we might be alone, bill.
+- But i was `hoping` she was expelled or into hard drugs.
+- I was just `hoping` i could ask you a couple questions.
+- We're `hoping` you're going to help us figure that out.
+- But if i only see you, i'm `hoping`... but he'll get it.
+- I was half `hoping` i wouldn't have a good time tonight.
+- I was really `hoping` to start with a larger sample size.
+- I was `hoping` we could play it straight with one another.
+- I gotta say i was really `hoping` to pull off one last one.
+- `Hoping` that we survive murphy, we can't stay here forever.
+- I'm `hoping` you've got a feeling it's the right thing to do.
+- I was `hoping` you were gonna say an engagement ring, claude.
+- But i was `hoping` maybe you could do something for her -- oh.
+- I'm `hoping` to get a grant for this one project on teenagers.
+- I was `hoping` i could get a look at it sometime this weekend.
+- Dad, i'm `hoping` we can talk about some things while i'm here.
+- What answer were you-- that wasn't the answer i was `hoping` for.
+- Now, drum roll please... we�re `hoping` for the death penalty.
+- I invited him here `hoping` he might shed some light on your story.
+- Just don't tell me you're `hoping` to run away and join the circus.
+- Yikes -- i was `hoping` to wear this thing to the halford's friday.
+- It's a shame he died prematurely...i was `hoping` to kill him myself.
+- I was in town this weekend, was `hoping` to stop by and surprise him.
+- We want him--we were `hoping` he would get married and have children.
+- I was `hoping` not everyone is here yet, but i am sure he will be.
+- I don't know why i keep `hoping` you'll grow out of this tomboy thing.
+- You would, too, if you weren't still `hoping` the guests might arrive.
+- Then maybe this isn't what he wants, but this what he was `hoping` for.
+- After our fencing match, i was rather `hoping` you would do the risking.
+- I don't know what he has, but i'm `hoping` to god it's not infectious...
+                 

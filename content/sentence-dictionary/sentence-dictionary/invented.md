@@ -1,0 +1,54 @@
+---
+title: "invented in a sentence | invented example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "invented"
+---
+- He `invented` fire.
+- He `invented` profiling.
+- Who `invented` this game?
+- He also `invented` the bicycle.
+- I `invented` the questionnaire.
+- You `invented` space paranoids?
+- Hello, he only `invented` money!
+- I'm glad dancing was `invented`.
+- I'm from l.a. we `invented` gangs.
+- The lightbulb has been `invented`.
+- We better, congress `invented` him.
+- I wish it had never been `invented`.
+- Hey, i `invented` fake i.d.s, alright.
+- In case you missed it, i `invented` it.
+- You know about the guy who `invented` it?
+- No-one `invented` gravity, it just exists.
+- The man for whom faking it was `invented`.
+- Hey, it looks like i just `invented` english.
+- This is the best invention i ever `invented`.
+- It gives details which couldn't be `invented`.
+- I used to represent the guy who `invented` it.
+- You've `invented` a disease that doesn't exist.
+- Then one day they `invented` a machine to do it.
+- I didn't know you `invented` that smelting process.
+- I'd like to kill the guy who `invented` those things.
+- They `invented` firecrackers to re-create that sound.
+- It was the venetians who `invented` product placement.
+- It was the venetians who `invented` product placement.
+- That expression probably hasn't been `invented` yet...
+- So - caravaggio - hana thinks you `invented` your name.
+- My life was shaped because someone `invented` gunpowder.
+- Still, it remains to be seen why she `invented` a shark.
+- You know they `invented` something while you were inside.
+- So hauser and i sat down and `invented` you: the perfect mole.
+- That was a dance we `invented` at the international sand club.
+- When i come up i'll show you how saturday night got `invented`.
+- Striking oil in a world that hadn't `invented` internal combustion.
+- That kid's name was moe greene, and the city he `invented` was las vegas.
+- Do you know how it came about that copper wire was `invented` in scotland?
+- You tell me everything that hasn't been `invented` yet, and i'll invent it.
+- Why buzz couldn't have `invented` it -- look at the man -- he's an imbecile!
+- Yeah, well, if we'd understood we could have `invented` some kind of excuse.
+- You `invented` this, this... oh, come now... gag on your own invention, then.
+- The necessary technology to bond this type of metal has never been `invented`.
+- The man who `invented` beer, louis, that man was having a prime day for himself.
+- Language was `invented` so that people could lie to each other and to themselves.
+- Once cars were `invented`, why didn't they just my fellow citizens, easy for you to say.
+                 

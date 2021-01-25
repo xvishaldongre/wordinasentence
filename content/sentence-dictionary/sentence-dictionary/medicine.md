@@ -1,0 +1,88 @@
+---
+title: "medicine in a sentence | medicine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "medicine"
+---
+- Heavy duty `medicine`.
+- Where's the `medicine`?
+- Give him the `medicine`.
+- She needs real `medicine`.
+- Then i can `medicine` you.
+- Did you get the `medicine`?
+- Here, take your `medicine`.
+- He won't take his `medicine`.
+- I need to take my `medicine`.
+- Our `medicine` is incredible.
+- Take some allergy `medicine`.
+- Get you some cough `medicine`.
+- Some `medicine` might be nice.
+- Sterile equipment, `medicine`.
+- He can't handle the `medicine`.
+- Our technology, our `medicine`.
+- Do you wish to study `medicine`?
+- Certified in internal `medicine`?
+- Your `medicine`, mister mcmurphy.
+- Make sure he takes his `medicine`.
+- That's why i went into `medicine`.
+- Their blood is used as `medicine`.
+- Does he ever talk about `medicine`?
+- Find me dr. quinn `medicine` woman.
+- Still practice a lot of `medicine`?
+- We need to get him some `medicine`.
+- Do you have the `medicine` or not?
+- For stealing `medicine` to save you.
+- The `medicine`'s still bothering me.
+- What she called a `medicine` bundle.
+- `Medicine` and food... get off of me!
+- Give him a taste of his own `medicine`.
+- Tell me who stole the `medicine`, kane.
+- Come on, laughter's the best `medicine`!
+- Givin' him a taste of his own `medicine`.
+- Have you no faith in your own `medicine`?
+- We have made great strides in `medicine`.
+- Convicted of theft of rationed `medicine`.
+- We need `medicine` to slow the bleeding.
+- Bet you've been forgetting your `medicine`.
+- By keeping essential `medicine` from marcus.
+- I've got a lot of `medicine` in me, sweetie.
+- I know you didn't steal the `medicine`, kane.
+- You used to get high off people's `medicine`.
+- She inserts a needle into the `medicine` vial.
+- Chief says... ... and also to bring `medicine`.
+- Is it the `medicine` that's making you thirsty?
+- And, we give you `medicine`, and you get better.
+- A very interesting man hiding in `medicine` hat.
+- Now...go to the `medicine` shelf and take - and -.
+- Dr. wong -- what type of `medicine` do you practice?
+- He says their `medicine` is that much more advanced.
+- In stealing life-giving `medicine` from wonkru, we win!
+- So she can get some `medicine` to make her feel better.
+- There's `medicine`, but to get it, but it can't be good.
+- Maybe the gods can pick up where the `medicine` left off.
+- You've not reckoned with the powers of faerie `medicine`.
+- [choking] i'll need boiled water to make the `medicine`.
+- I'm afraid i'll have to give up `medicine`, dr. macfarlane.
+- There's some `medicine` at the hospital that will fix that.
+- Don't leave him in the hands of twentieth century `medicine`.
+- * day * ♪ day ♪ he's stable for now, but without `medicine`...
+- Oh excuse me, i didn't realize you had a degree in `medicine`.
+- He's stable for now, but without `medicine`... where's lincoln?
+- Who has to beg for money to buy him `medicine` when you screw up?
+- He's supposed to be a `medicine` man but he won't go see the people.
+- Before antiseptics there was no sanitation, especially in `medicine`.
+- Even cupid's becoming modern, using `medicine` balls instead of darts.
+- Ya `medicine` still got a few good swallows in it... what do you want?
+- You just have to remember, `medicine` that works leaves a bitter taste.
+- Bart, your old attention deficit disorder `medicine` you faked his death!
+- He drinks all day, then takes all that `medicine` and it makes him worse.
+- His father steals `medicine` mary's death is the reason he became a doctor.
+- I've often talked a little voodoo to get `medicine` down a patient's throat.
+- "...graduated bowdoin college, 1935, and harvard school of `medicine`, 1939."
+- You don't want to miss...it makes them think their `medicine`'s stronger than yours...
+- Now your father may seem sleepy to you, but that's just because of his `medicine`, okay?
+- This shoshone `medicine` woman taught me how to make bug repellent tea out of tree root.
+- The comanch' `medicine` country ain't far...there's one camp with a chief named cicatriz.
+- He taught me the mathematics of anatomy but he couldn't teach me the poetry of `medicine`.
+- After your fever broke, you'd wake up in spells... long enough to get that `medicine` in ya.
+                 

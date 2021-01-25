@@ -1,0 +1,107 @@
+---
+title: "learned in a sentence | learned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "learned"
+---
+- Time you `learned`....
+- I just `learned` again.
+- I never `learned` jazz.
+- I've `learned` so much.
+- I'd say we `learned` it.
+- It's what i've `learned`.
+- `Learned` from the chink?
+- Guess i must've `learned`.
+- Have we `learned` nothing?
+- I `learned` that from you.
+- Ah -- he's `learned`, then.
+- So what have you `learned`?
+- By watching, he's `learned`!
+- I have `learned` to hide it.
+- I've `learned` a few things.
+- You `learned` from the best.
+- Hope you `learned` something.
+- I mean, i `learned` my lesson.
+- I've `learned` much about you.
+- I've `learned` my lesson, sir.
+- Well, what have you `learned`?
+- ...i `learned` a long time ago.
+- I `learned` the way they think.
+- I `learned` to want everything.
+- You might have `learned` a lot.
+- Has he `learned` his lesson yet?
+- Haven't you `learned` anything?!
+- I see you've `learned` our oath.
+- I've `learned` a lot from you...
+- Do you know where i `learned` it?
+- I `learned` my fill from romeriz.
+- I `learned` that in miami in '85.
+- She `learned` what to do from us.
+- This is the thing i've `learned`.
+- I have `learned` a lesson tonight.
+- I've `learned` a lot about myself.
+- I've `learned` so much since then.
+- One thing they `learned` that day.
+- Clearly, you have `learned` nothing.
+- I `learned` it from listening to you!
+- I `learned` it when i was 10 come on.
+- There's other things to be `learned`.
+- I `learned` at the knee of the master.
+- I `learned` book-keeping at sing sing.
+- I `learned` that at my grandma's knee.
+- I never really `learned` those things.
+- Sisters, have we `learned` our lesson?
+- To understand what she `learned` here.
+- Because i `learned` to push myself!
+- I `learned` a lot of things in college.
+- That's how we `learned` your languages.
+- No, it's shit i `learned` from life.
+- I really think she's `learned` a lesson.
+- Like a baby that just `learned` to walk.
+- You `learned` her lessons better than i.
+- You've just `learned` a valuable lesson.
+- 88 years old and never `learned` to swim.
+- Have you `learned` nothing from the past?
+- Mr. clarke `learned` everything from him.
+- That you've `learned` from your mistakes?
+- Today i have `learned` that they are not.
+- What you `learned` isn't worth his death.
+- You `learned` that smirnoff over there...
+- You `learned` to dance at church socials.
+- I `learned` the craft from my grandmother.
+- ...not that you `learned` anything, chunk.
+- You `learned` this in some college course?
+- I `learned` abstract thinking from you.
+- I `learned` howto make it when i was a kid.
+- I `learned` many, many things from the cia.
+- You have `learned` more than i anticipated.
+- Have you `learned` nothing from this strike?
+- I `learned` how to do it when i was a child.
+- My people have `learned` to live without it.
+- What else have you `learned` from the chink?
+- Yeah, you `learned` a whole lot, i can tell.
+- He `learned` his lessons quickly and left me.
+- They `learned` me to do what they told me to.
+- What cooper `learned` to help save my people.
+- Yeah, 'cause maybe he's `learned` his lesson.
+- You `learned` 900 languages in five minutes?!
+- I'm reminded of a song i `learned` as a child.
+- They must've `learned` how to control water...
+- If there's one thing i `learned` in nam-- yeah.
+- Unfortunately, once he `learned` it's a hernia!
+- Everything i `learned`, i `learned` on the ground.
+- That's four, last time i `learned` how to count.
+- That was what i `learned` from watching my wife.
+- Yeah, but you know, i `learned` something today.
+- I `learned` the junk business in the can, paulie.
+- Janey, haven't you `learned` that silly tune yet?
+- Jim was old enough... shoulda `learned` with web.
+- Rose has `learned` her lesson, haven't you, rose?
+- The lessons we've `learned` are all in plan-r.
+- Can you tell me any more about what you `learned`?
+- I `learned` your language, you have to learn mine!
+- Now i'm scared to death and i `learned` my lesson.
+- No... you never `learned` how to speak my language.
+- We `learned` some magic... are you <u>real</u> mad?
+- Everything you do, you `learned` from somebody else.
+                 

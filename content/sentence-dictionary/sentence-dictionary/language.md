@@ -1,0 +1,107 @@
+---
+title: "language in a sentence | language example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "language"
+---
+- Watch your `language`!
+- Watch your `language`.
+- Try another `language`.
+- In their own `language`?
+- Got their own `language`.
+- I don't use bad `language`.
+- Yeah, it's sign `language`.
+- Pardon my `language`, ma'am.
+- That's wonderful `language`.
+- For my `language` back there.
+- `Language` exists from birth.
+- You don't know the `language`.
+- Grampa... watch the `language`.
+- The weapon is their `language`.
+- They speak the same `language`.
+- You got `language` skills, man.
+- Maybe it's a `language` problem.
+- What `language` are you talking?
+- With crude `language` and tools.
+- [in foreign `language`] bullshit.
+- What `language` are you speaking?
+- You ort not know that `language`.
+- Computer, what `language` was that?
+- Is there a `language` problem here?
+- The sounds, but not the `language`.
+- The universal `language` of mankind.
+- To help me create my own `language`.
+- Are you dreaming in their `language`?
+- She's even forgot her own `language`!
+- It's a computer programming `language`.
+- Watch your fucking `language`, alright?
+- Mind your `language` in front of my boy.
+- I thought it was some foreign `language`.
+- I've had some exposure to the `language`.
+- Because i don't like your ugly `language`.
+- Do you handle any of that sign `language`?
+- I didn't speak the enemy's `language` yet.
+- Vietnamese is such a beautiful `language`.
+- I don't find your `language` that charming.
+- It needs a more object-oriented `language`.
+- You ort not to use that sort of `language`.
+- Kyle brovlofski, you watch your `language`!!
+- Then how is it we speak the same `language`?
+- There's no call for that kind of `language`.
+- There's no need for `language`, mr. hockley.
+- Her `language` abilities, they're incredible.
+- 'least now we're talking the same `language`.
+- You approach `language` like a mathematician.
+- You're screaming with the `language` and all!
+- But the `language` he's speaking is universal.
+- I'm sorry -- you really use strong `language`.
+- "`language` is the foundation of civilization.
+- Susie, watch the `language`, would you please.
+- That is not american teen princess `language`!
+- If i was you, mr. mast, i'd watch my `language`.
+- That's enough with the mouth and the `language`.
+- There's no call for that `language`- goddamn it.
+- She's using code `language` to the studio bosses.
+- I asked you -- such `language` in front of a lady.
+- I learned your `language`, you have to learn mine!
+- Mr. gardiner, for one, understands our `language`.
+- Sometimes referred to in more colorful `language`.
+- The `language` you speak determines how you think.
+- Where `language` was seen as an expression of art.
+- Don't use `language` like that at the dinner table.
+- I'm not fucking addicted to fucking bad `language`!
+- No... you never learned how to speak my `language`.
+- Because `language` is something that people acquire.
+- I guess he didn't appreciate your use of `language`.
+- I have to do some work here -i speak the `language`.
+- It's a crude symbolic `language` -- looks primitive.
+- [speaking grounder `language`] you mean the doctors?
+- I only sound like forty-year- old in your `language`.
+- Their written `language` has no form or no direction.
+- You never told me you spoke my `language`, dr. jones.
+- Your use of `language` has altered since our arrival.
+- Good, well ask him if arabic is his second `language`.
+- Hey, there's no reason to use that kind of `language`!
+- I don't speak their `language`, they don't speak mine.
+- It's the most annoying word in the english `language`.
+- They could have the whole `language` completely wrong.
+- Well, german is earth's closest `language` to klingon.
+- He's speaking our `language`, not the other way around.
+- Get me those chinese `language` program i asked for.
+- My dear fellow, the `language` is not finally the point.
+- Nordic noir is known for its plain `language` i made it?
+- Jack, you gotta watch your `language` 'round my daughter.
+- Er, bad breath, colourful `language` and a feather duster!
+- It was kind of like clicking, maybe a `language` wasn't it?
+- Mathematics is the only truly universal `language`, senator.
+- What the hell are we supposed to use, man, harsh `language`?
+- Watch your `language`, young fellow, this is a public market.
+- We will not have this kind of `language` at the dinner table.
+- Moriah, and we still live in terror.... watch your `language`....
+- There are some things that everybody does in the same `language`.
+- Maybe i should work on that girl joyce, she speaks the `language`.
+- You'll meet some french girl who can speak your own `language`.
+- Listen, we got young girls here... you could watch your `language`.
+- Why, your `language` is shocking, mr. burns -- positively shocking!
+- In my opinion, it is time we had a piece in our own `language`, sir.
+                 

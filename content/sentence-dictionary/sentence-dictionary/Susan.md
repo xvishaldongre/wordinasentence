@@ -1,0 +1,97 @@
+---
+title: "Susan in a sentence | Susan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Susan"
+---
+- Come with me, `susan`.
+- `Susan` wants to come.
+- It's all right, `susan`.
+- Your name isn't `susan`.
+- Your name isn't `susan`.
+- Don't you agree, `susan`?
+- I do worry about `susan`.
+- Let's see...`susan`'s 15.
+- You love this... `susan`?
+- Goodnight to you, `susan`.
+- Now, apologize to `susan`.
+- How about `susan` lefferts?
+- See `susan` strut her stuff.
+- No problem, but who's `susan`?
+- You know `susan` hunsecker...?
+- It's `susan`'s cooking, claire.
+- Because i am a new man, `susan`.
+- I just got here myself, `susan`.
+- It seems like my `susan`, but...
+- Find `susan`'s killer, mr. white.
+- `Susan`, i want you to stop this.
+- Take care of william and `susan`.
+- `Susan`, you're a hell of a woman.
+- I'm not leaving without you, `susan`!
+- `Susan` and i were fighting that day.
+- We don't have time to argue, `susan`.
+- What in the world - `susan`, don't go!
+- I'm going to borrow `susan` for a second.
+- Why was `susan` lefferts at the nite owl?
+- Would you like to dance with me, `susan`?
+- Who's this `susan` when she's at home?
+- `Susan` and i are very old friends, james.
+- Jefferson dropped in for a minute, `susan`.
+- Look, `susan`...i don't mean to pry, but...
+- Only `susan` campey, our resident teenager.
+- So there's nothing between you and `susan`?
+- `Susan` said stams -- stens had cut himself.
+- `Susan`, this is the future of america here.
+- `Susan`, like you said, she's growing up.
+- `Susan`'s mother, she can't baby-sit tonight.
+- Yeah, i'm a little bit busy in here, `susan`.
+- "young lochinvar smitten with `susan` paine"!
+- Alright... `susan`, get buckingham on the box.
+- `Susan`, we're not b- ironic, don't you think?
+- I've known `susan` for more than fifteen years.
+- `Susan`'s patient is whom we are talking about.
+- Where's ... what's-his-name -- fred -- `susan`.
+- Make a note of that word and give it to `susan`.
+- We can discuss all this some other time, `susan`.
+- Do you suppose `susan` could just bring her crutches?
+- He wanted to, `susan`, but he couldn't leave his men.
+- I wasn't going to say -- that you've been to `susan`?
+- Margaret, take william and `susan` to the river shed.
+- `Susan`, dr. argon is giving you an opportunity here.
+- Anyway, you won't meet `susan` if you don't cooperate.
+- Fortunate that i was here to keep `susan` entertained.
+- I'm sorry, bill -- you're not taking `susan` anywhere.
+- Nothing like--uh--`susan`--or anything like that, huh?
+- Please, `susan`, tell me you can make me normal again!
+- I wanted to apologize, `susan` -- be sorry for nothing.
+- `Susan`, i don't think joe is going to be with us long.
+- Lynn bracken is one of them and so was `susan` lefferts.
+- You know, i've always loved your sense of humor, `susan`.
+- Here, here, `susan`--this is jeff smith-- our new senator.
+- `Susan` broke her ankle last night at the ice rink rachel?
+- Your problem, `susan`, is that you're always looking down.
+- You know, i have always loved your sense of humor, `susan`.
+- But the data needs to be tested, analyzed before -- `susan`.
+- `Susan`, i really think - what you want me to want, you mean.
+- You know her boy... `susan` told us before we got your letter.
+- I've got more than a right as far as you're concerned, `susan`.
+- So take a walk, ben...i'm going to borrow `susan` for a second.
+- Do you care about criminal matters peripheral to `susan`'s murder?
+- Did you hear that?--escort `susan` paine--reception for a princess!
+- When you put your mouth to his, `susan`, it seems a frequent thing.
+- I think you both know my director of genetic research, `susan` storm.
+- Barbara stanwyck, `susan` hayward - of course, they're just movie stars.
+- `Susan`, it seems to me - you'll never have another chance to hit me again.
+- `Susan`, listen to me: you handled that insect almost as much as siri... no.
+- `Susan` told me that your visits to norfolk had ... well, an ulterior motive.
+- I'll tell you what i told officer white when he asked me about `susan`'s death.
+- I did not; the mouth -- that's what we call `susan` schiffer -- got it on her own.
+- I can't imagine that `susan` hasn't hinted at the kind of life i lead in london.
+- Well, at the expense of some of the furniture, `susan`--you've made another conquest.
+- Don't expect me to love you - you're talking an incredible amount of nonsense, `susan`.
+- Pauline fredericks got that credit once on a u.n. special and there's `susan` zirinsky.
+- It's great of you to let william and `susan` stay at the house until he gets on his feet.
+- `Susan` paine--that's beautiful-- now, *`susan`*--that's really a *pretty* name-- clarissa.
+- Oh, the complete works of jacqueline `susan`, the novels of harold robbins.... for example?
+- Really, `susan`, i don't think that was very proper, and besides, it's common practice now.
+                 

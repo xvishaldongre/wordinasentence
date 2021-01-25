@@ -1,0 +1,67 @@
+---
+title: "cared in a sentence | cared example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cared"
+---
+- He wouldn't have `cared`.
+- You never `cared` before.
+- He'll be well `cared` for.
+- I didn't know you `cared`.
+- I've never `cared` for it.
+- You `cared` about bellamy.
+- I never `cared` about that.
+- Who `cared` for your wounds?
+- You never `cared` about him.
+- I didn't realize you `cared`.
+- That's all you `cared` about.
+- You will be well `cared` for.
+- She's fine, as if you `cared`.
+- If you actually `cared` i fled.
+- But he's being well `cared` for.
+- Didn't know you `cared` so much.
+- I thought you `cared` about me?!
+- I never really `cared` for those.
+- She killed someone i `cared` for.
+- Someone out there `cared` for him.
+- Stan, i never `cared` for gregory.
+- I only `cared` that it was america.
+- You never `cared` about her before.
+- All she `cared` about was that look.
+- But it's nice to know you `cared`...
+- I had my reasons, but nobody `cared`.
+- Neither of you ever `cared` about her.
+- She never particularly `cared` for me.
+- Would you have `cared` for my letters?
+- But i can promise they'll be `cared` for.
+- He `cared` enough to want you to have it.
+- Hey, who `cared` about me yesterday, huh?
+- I never `cared` two hoots for that fella.
+- It could be wide open for all he `cared`.
+- ... took everything i ever `cared` about.
+- I thought no one `cared` about this picture.
+- Somebody who knew her and `cared` about her.
+- She's the only thing i lost i really `cared` about.
+- The person i `cared` about wouldn't have done this.
+- Fight their hearts out for peanuts -- but who `cared`?
+- You were the first person i really ever `cared` about.
+- And never `cared` about making anything good ever again.
+- Because he `cared` so damn much about you and me, child.
+- It's been a long time since i had a case i `cared` about.
+- Oh vada, please honey i `cared` for him too, vada please!
+- The rest of you will remain here, well-`cared`-for "d-d-a."
+- Even when you were throwing up, i could tell you `cared`.
+- I have to go into the city of light she `cared` about you, murphy.
+- That someone `cared` enough about that animal to mark the spot.
+- You've been so quiet lately, petra, i thought you no longer `cared`.
+- You resented that he `cared` for her in a way he once `cared` for you?
+- Then your father admitted he was alive, but well `cared` for, in secret.
+- After she came along, he never really `cared` for himself like he used to.
+- It made me feel bad an' scared too--like we was lost... an' nobody `cared`.
+- She'll be `cared` for, fed, bathed, the ark needs unity now more than ever.
+- Yeah, i just screwed up with the only man who ever really `cared` about me.
+- She `cared` about all of us, once i cut those out, my lag time went way down.
+- But she'll be back before you know it but i can promise they'll be `cared` for.
+- Old-fashioned ones, from back when people `cared` about atmosphere and character.
+- Because time has wiped out everyone and everything you `cared` for -- they're dust.
+                 

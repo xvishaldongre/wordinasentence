@@ -1,0 +1,107 @@
+---
+title: "things in a sentence | things example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "things"
+---
+- Her `things` are gone.
+- I can handle `things`.
+- I forget `things`, no.
+- I hate these `things`.
+- I know these `things`.
+- I see many `things`...
+- ...i've seen `things`.
+- That's three `things`.
+- These `things` happen.
+- They gave me `things`.
+- They're dumb `things`.
+- `Things` have changed.
+- `Things` will perk up.
+- `Things` will pick up.
+- Well... many `things`.
+- What kind of `things`?
+- A few `things` came up.
+- Deadly little `things`.
+- Got some nice `things`.
+- I know `things`, wyatt.
+- I think about `things`.
+- I've done bad `things`.
+- Make them see `things`.
+- Maybe lots of `things`.
+- "seek higher `things`."
+- She's hearing `things`.
+- So -- how are `things`?
+- So pa your `things`.
+- So pa your `things`.
+- Strange `things` go on.
+- There's worse `things`.
+- The `things` that last.
+- `Things` are different.
+- `Things` changed, mary.
+- To go through `things`.
+- Uh, different `things`.
+- We have `things` to do.
+- Well, he owns `things`.
+- All the `things` i hate.
+- All `things` considered.
+- Heard some bad `things`.
+- How `things` been goin'?
+- I deserve nice `things`.
+- I knock `things` over...
+- I put `things` together.
+- I saw terrible `things`.
+- I say a lot of `things`.
+- I've done `things`, max.
+- I've got `things` to do.
+- Keep an eye on `things`.
+- Kids, pack his `things`.
+- Little `things`, i mean.
+- Oh... a lot of `things`.
+- Sort a few `things` out.
+- Tell you to do `things`?
+- The `things` in trouble.
+- The `things` that go on.
+- `Things` are going okay.
+- `Things` are great here.
+- `Things` change, kundun.
+- `Things` get covered up.
+- `Things` of that nature?
+- To make her do `things`.
+- To make her do `things`.
+- Wearing papa's `things`?
+- We've all done `things`.
+- Yes... lots of `things`!
+- You fought for `things`.
+- But first `things` first.
+- Did those `things` leave?
+- Discovered some `things`.
+- Has complicated `things`.
+- How are `things` at home?
+- I did all those `things`!
+- I'm just saying `things`.
+- It lets you see `things`.
+- I will work `things` out.
+- Nice `things` cost money.
+- Only respectful `things`.
+- Open the fuckin `things`.
+- Pack my `things`, walter.
+- Picked up a few `things`.
+- These `things` take time.
+- The `things` he's done...
+- `Things` ain't that neat.
+- `Things` fall into place.
+- `Things` got a lot worse.
+- `Things` they don't mean.
+- `Things`, `things`, `things`.
+- Those `things` are yours.
+- You buy me many `things`.
+- You didn't stop `things`.
+- You just try `things` on.
+- The `things` you said.
+- And... where are `things`?
+- But he does know `things`.
+- C'mon, pack your `things`.
+- Find out what `things` do.
+- He's hiding many `things`.
+- He's overlooking `things`.
+                 

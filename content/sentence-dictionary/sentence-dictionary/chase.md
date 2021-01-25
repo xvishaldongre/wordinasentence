@@ -1,0 +1,72 @@
+---
+title: "chase in a sentence | chase example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chase"
+---
+- Ah, go `chase` yourself.
+- Let's cut to the `chase`.
+- Release `chase` and dick.
+- Why do men `chase` women?
+- Don't make me `chase` you.
+- It's no big deal, `chase`.
+- You want me to `chase` you?
+- `Chase` is coming for dinner.
+- Weird they didn't `chase` us.
+- Okay, cut to the `chase`, pam.
+- I know how `chase` really died.
+- I... let me cut to the `chase`.
+- Is `chase` porter your husband?
+- Okay, let's cut to the `chase`.
+- This is the end of the `chase`.
+- You'll have to `chase` them up.
+- `Chase`, you'd better come home.
+- He can't `chase` us if he's dead.
+- Will you go `chase` an ambulance!
+- It's a goddamn wild goose `chase`.
+- `Chase`... might as well be, dylan.
+- Cut to the fucking `chase`, flynne.
+- You wanna know why i `chase` women?
+- You can call me `chase`, by the way.
+- Cut to the `chase`, william randolph.
+- He knows how to `chase` and that's it.
+- I even `chase` out moose and squirrel.
+- What do you say we cut to the `chase`.
+- Why don't you go and `chase` yourself?
+- `Chase`: sir, the hangar bay is secure.
+- You don't have to `chase` me, fletcher.
+- He thinks somebody's after him, `chase`.
+- Just seems weird they didn't `chase` us.
+- This better not be a wild goose `chase`.
+- He'll `chase` a buck straight into jersey.
+- Maybe men `chase` women to get the rib back.
+- They `chase` fenrir the wolf from the sky...
+- I was in a car `chase` and a small explosion.
+- I'm sure that's where they're keeping `chase`.
+- Maybe some tunage'll `chase` those blues away.
+- <font color=#ffff2d>you want me to `chase` you?
+- This whole thing was just a wild goose `chase`.
+- `Chase`: you can thank chancellor pike for this.
+- Kid, you ever been in a high speed `chase` before?
+- It's like i said, thelma, he just loves the `chase`.
+- You want a cup o' noodles to `chase` away the chill?
+- We didn't tell you because it's a wild goose `chase`!
+- How would you have played the three-legged `chase`?
+- To me it can be as exciting as any `chase`, any gunplay.
+- You were this close to winning the three-legged `chase`.
+- Best thing is, meyerling has to `chase` around to find us.
+- Then why did you let the police `chase` me all over the map?
+- I pay good money, only to be taken on some wild goose `chase`!
+- Agent `chase`, does it appear that they are heading for mexico.
+- We've already got `chase` working on a prototype for the glove.
+- What kind of meds do you `chase` with nights in a cadaver drawer?
+- ♪ you share in the fame ♪ now who will `chase` squirrels with me?
+- ♪ don't display any fear, this we know ♪ cut to the `chase`, clarke.
+- He lead us on that `chase` while dieter brought the chip into hong kong.
+- If it were up to me, i'd `chase` every goddamn englishman into the ocean.
+- We had to `chase` you through all this shit and you tell me you're clean?
+- Mmm... and to cut to the `chase`, forensically speaking -- is there a pre-nup?
+- How long do you have to `chase` a dream before you realize it's not gonna happen?
+- You read eddie's `chase` manhattan bombing summation in the leftist law anthology?
+- You didn't have to `chase` me so hard -- there's not a reason on earth why you should.
+                 

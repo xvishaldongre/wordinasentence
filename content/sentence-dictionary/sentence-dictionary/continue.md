@@ -1,0 +1,106 @@
+---
+title: "continue in a sentence | continue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "continue"
+---
+- `Continue` the session.
+- The ball... `continue`.
+- We'll `continue` later.
+- `Continue` forward, sir?
+- Really, `continue`, please.
+- The rest of you `continue`.
+- `Continue` on impulse power.
+- `Continue` with the session.
+- Do you mind if i `continue`?
+- Please `continue`, sergeant.
+- `Continue` about your friend.
+- To `continue`, click "agree."
+- And, i will `continue` to try.
+- Roger, i read you, `continue`.
+- We must `continue` the search.
+- [horns `continue`] suit breach.
+- But the species must `continue`.
+- We `continue` in that direction.
+- Please `continue` with the class.
+- They `continue` walking together.
+- Why did you `continue` to see him?
+- [muﬄed voices `continue`] good.
+- Of course you'll `continue` as dci.
+- To the cause if you `continue` to...
+- _ and `continue` exposing their lies.
+- `Continue` to search for raven reyes.
+- (groaning, coughing `continue`) here.
+- I beg you, please `continue`, caesar.
+- I'll `continue` to work hard for you.
+- They are fat� yes, please `continue`.
+- Are you going to `continue` with this.
+- ...and `continue` to rampage unchecked.
+- Thank you, your honor, i'll `continue`.
+- Until the lesions started... `continue`.
+- We'll `continue` the interrogation there.
+- Why don't we `continue` this on thursday.
+- You expect us to `continue` to play nice?
+- Warp two... three... `continue` on course.
+- We... we're gonna `continue` to run tests.
+- "and `continue` to bend it toward justice?"
+- Will `continue` to do everything possible."
+- Foot beat units `continue` on the boardwalk.
+- If you agree, `continue` breathing normally.
+- May i `continue` with the rearing of my son?
+- We can't `continue` to be so irresponsible .
+- I'll check on gorman, `continue` my analysis.
+- We have no choice but to `continue` as planned.
+- `Continue` your life as if nothing has happened.
+- Luther, `continue` feeding the gps her position.
+- No reply, chekov... `continue` on course... sir.
+- `Continue` working hard... then you turned bitch.
+- If it's too hard for you to `continue`, god, i...
+- Package delivery thefts `continue` in springfield.
+- You survived and now you shall `continue` the curse.
+- 40 tomorrow we will `continue` our advance on ulundi.
+- Before you `continue`... then do it the way you want.
+- My father tried to `continue` his research on his own.
+- We `continue` to be badly outmaneuvered by the chinese.
+- And i'll `continue` to do so, at least she's having fun.
+- Donnie, i'm afraid i can't `continue` this conversation.
+- They give each other looks of disgust and `continue` on.
+- `Continue` when it would be so much easier to give it up.
+- Would it be too distressing to `continue` with the towel?
+- `Continue` to play in the wrong key, like you're dyslexic.
+- Just `continue` your patterns and pretend he's not around.
+- Shot loses perry but we `continue` to hear his voice, o.s.
+- You cannot `continue` to walk in at the last moment, jack.
+- Boss, then i'm afraid i can't `continue` working with bill.
+- If you don't stay with me, i'll have to `continue` my fight.
+- When we're gone, you're free to `continue` you're a good boy.
+- Yeah, incredible how you just `continue` to convince yourself.
+- All the more reason for us to `continue` his work with the poor!
+- ♪ a touch of sable in their eyes ♪ i'm sorry, i-i can't `continue`.
+- Admiral, i'd like to `continue` my work on the ship until you leave.
+- Is something that people can `continue` to be proud of, that's rare.
+- I will `continue` with our french allies, concentrating on new york.
+- Now i sense you wish to `continue` your search for young skywalker.
+- He recommends that we `continue` to respond as if we're going to trial.
+- If you do get out of your marriage, will you `continue` to be inhibited?
+- There're millions of tons of glacier ice `continue` moving day and night.
+- In the meantime, your agency will `continue` at current levels of funding.
+- That my condition will `continue` to deteriorate until the end of my life.
+- I must `continue` a critical experiment i was running on the amargosa star.
+- Small as it is you won't be able to `continue` feeding it for very long.
+- ♪ down into the killing fields ♪ [horns `continue`] you got something to say?
+- [muﬄed voices `continue` above] look, if you don't want to go, that's fine.
+- We're on the brink of a war we can't win, i have no choice but to `continue`.
+- I want you to know that it's your final decision if we should `continue` or not.
+- Thought you said we had one shot shall we `continue` our conversation about this?
+- To get others to join isn't exactly i will `continue` now come on, let's go home.
+- He's gonna `continue` makin' a lot of money for us, so keep a good eye on him.
+- Watch that... do watch that, o dim, if to `continue` to be on live thou dost wish.
+- [horns `continue`] ♪ some day you can mend ♪ i can help you if you help me.
+- We need men like you here, to be sure that our community will `continue` to thrive.
+- He ate his fill, and was forced to `continue` eating... till his body rejected the food.
+- You `continue` to deny yourself every benefit this mission has to offer... another time.
+- It's a type of altered state... it allows a traumatized person to `continue` functioning.
+- Mr. galvin, you want to `continue` now, or we can resume with dr. thompson this afternoon.
+- Napoleon would simply spend the winter in moscow and `continue` the campaign in the spring.
+                 

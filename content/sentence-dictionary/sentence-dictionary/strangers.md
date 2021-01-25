@@ -1,0 +1,51 @@
+---
+title: "strangers in a sentence | strangers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "strangers"
+---
+- He doesn't like `strangers`.
+- That leaves two `strangers`.
+- They're all `strangers` to me.
+- We're `strangers` in the night.
+- Why be impolite to `strangers`?
+- `Strangers` are not welcome here.
+- He almost always killed `strangers`.
+- Not for `strangers`; for my country.
+- Well, we're not `strangers` anymore.
+- We're not exactly `strangers`, mary.
+- What miracles you do for `strangers`.
+- He's been torn from it by `strangers`.
+- You would risk your life for `strangers`?
+- These ain't `strangers`, they're neighbors.
+- We don't like finding `strangers` in our home.
+- Momma told ya not to speak to `strangers`, huh?
+- Well, i mostly dealt with `strangers` back then.
+- I can't help you do something not to `strangers`.
+- I would look at this and it was just `strangers`.
+- Be cool around my men, they don't trust `strangers`.
+- Because here, there are no `strangers`, only friends.
+- I'm not supposed to talk to `strangers`, not even nuns.
+- Besides, in your clothes you'd stand out to `strangers`.
+- Ergo they ain't `strangers` and this isn't what it seems.
+- My mother told me never to accept offers from `strangers`.
+- What secretly helped me was i enjoyed killing `strangers`.
+- But my mother says i mustn't accept gifts from `strangers`.
+- Rule number one in north america: no `strangers` in the car.
+- So you just barge in on `strangers`, is that what you do?
+- Miss rustokov refuses to let total `strangers` drive her car.
+- I had no idea there were so many `strangers` concerned about me.
+- You get on the phone and ask `strangers` for their money, right?
+- We also know how you feel, we're not `strangers` to confusion.
+- I'm very sorry but i never open the door to `strangers` after dark.
+- So when `strangers` come to town, i always ask them their business.
+- `Strangers` with this kind of honesty make me go a big rubbery one.
+- That's what everyone writes at the beginning of letters to `strangers`.
+- I don't take in `strangers` unless they're sent here by somebody i know.
+- It must be nice having so many `strangers` kiss your ass all of a sudden.
+- Though they are `strangers`, they are at least entitled to a christian burial!
+- In three or four years, it'll probably be against the law to smile at `strangers`.
+- I've had quite enough or i wouldn't be playing such games with beautiful `strangers`.
+- We'd be like two total `strangers` who...accidentally had relatives that got married.
+- It�s just you don�t look local... and you better stop greeting `strangers` with a shotgun.
+                 

@@ -1,0 +1,7 @@
+---
+title: "beret's in a sentence | beret's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "beret's"
+---
+## Unfortunately, we have no example sentences for beret's                 

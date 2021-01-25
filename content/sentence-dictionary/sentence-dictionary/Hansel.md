@@ -1,0 +1,8 @@
+---
+title: "Hansel in a sentence | Hansel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Hansel"
+---
+- "`hansel` shoved the blood-covered witch into the oven.
+                 

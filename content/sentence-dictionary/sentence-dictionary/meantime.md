@@ -1,0 +1,58 @@
+---
+title: "meantime in a sentence | meantime example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "meantime"
+---
+- `Meantime`, raise the lid.
+- In the `meantime` don't bug me.
+- In the `meantime`, what the...?!
+- In the `meantime` try not to worry.
+- In the `meantime`, don't leave town.
+- But in the `meantime`, don't get crazy.
+- `Meantime` i want pictures of the joes.
+- In the `meantime`, let me take a look.
+- `Meantime`, i gotta feed my little girl.
+- They will, but in the `meantime`, wrong.
+- In the `meantime`, i'll draw up the papers.
+- `Meantime`, we have to establish a routine.
+- In the `meantime`, everybody stays on salary.
+- In the `meantime`, nobody mentions the v word.
+- In the `meantime`, who issued you that weapon?
+- So what am i supposed to do in the `meantime`?
+- In the `meantime` harry can slaughter us a hog.
+- What if someone else buys it in the `meantime`?
+- In the `meantime`, i need you to shimmy through.
+- In the `meantime` i'll call you as soon as i know.
+- What about your personal safety in the `meantime`?
+- `Meantime`, try to get a feel for catherine martin.
+- Yeah, and in the `meantime` what do i tell lebowski?
+- In the `meantime` we can re-check his favorite haunt.
+- In the `meantime`, sir, you have to let me yeah, yeah.
+- In the `meantime`, you said we were gonna have some fun.
+- In the `meantime` it would be useless to alarm the others.
+- In the `meantime`, let's see if we can't bring them to us.
+- In the `meantime` no one else must know those files exist.
+- The `meantime`, i'll just hang on to her for safe keeping.
+- In the `meantime`, i can alter the blood of everybody here.
+- In the `meantime`, i'll pretend as if we really do have her.
+- In the `meantime`, we get in the lifeboat and leave the ship.
+- In the `meantime`, you explain to mr. smith about willet dam.
+- Well, why don't you hold these as evidence in the `meantime`.
+- In the `meantime`... you'll think about what we discussed?
+- Well, in the `meantime`, could you let me have $50 personally?
+- In the `meantime`, i just need you to keep the area clear for us.
+- In the `meantime`, i'll be your point person here on the magazine.
+- In the `meantime`, you need to figure out a way to get us off that beach.
+- In the `meantime`, your agency will continue at current levels of funding.
+- In the `meantime`, i want to know who helped you're still haunted by costia.
+- In the `meantime` this girl goes where she pleases, does what she pleases?
+- In the `meantime` we must endeavor to piece together what happened here tonight.
+- Back and forth, this one and that one, and, in the `meantime`, she's gone anyway.
+- In the `meantime`, we're going to need someone to deal with that mess in the lab.
+- Raven-- in the `meantime`, your friend will be used your daughter, she got a name?
+- In the `meantime` i want you to find a safe place and hole-up and let us do our job.
+- `Meantime`, it cost millions to get me looking like this... you'll have to prove it.
+- And, in the `meantime`, sling ice cream, if you get stopped, you show them my work orders.
+- In the `meantime`, the county detectives will determine if his story has any basis in fact.
+                 

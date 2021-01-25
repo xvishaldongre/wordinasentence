@@ -1,0 +1,97 @@
+---
+title: "disease in a sentence | disease example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "disease"
+---
+- A very rare `disease`.
+- And hate and `disease`.
+- It's a `disease`, jack.
+- A really rare `disease`.
+- It's a helluva `disease`.
+- They're like a `disease`.
+- Now i have your `disease`.
+- Your `disease` versus mine.
+- Your `disease` versus mine.
+- It's totally `disease`-free.
+- Then you got lyme `disease`.
+- You put your `disease` in me.
+- It can cut the `disease` away.
+- This is a new `disease` to me.
+- It's hot and full of `disease`.
+- It's hot and full of `disease`.
+- Chronic lung `disease` is worse.
+- The center for `disease` control.
+- The `disease` was cut away from me.
+- There's no `disease`, i can tell you.
+- History is a symptom of our `disease`.
+- Only feeding the `disease`, eh, martin?
+- Would huron kill tribes with `disease`?
+- You're a `disease`, girls aren't funny.
+- Is this `disease` common in the tropics?
+- Cirrhosis--it's a `disease` of the liver.
+- `Disease` prevention... change the world.
+- I don't have the same `disease` you have.
+- I don't mean infection... or `disease`...
+- This room crawls with tropical `disease`.
+- So, toddy, you've made me a `disease`, eh?
+- Sounds like a `disease` caught by a radio.
+- Without it, `disease` would spread rapidly.
+- It's mutating... spreading like a `disease`.
+- You'd better before you catch the `disease`!
+- I'm in love with you... you have a `disease`.
+- He rubs you and sucks the `disease` right out!
+- The one with the blood `disease` ... syracuse.
+- "plum island animal `disease` research center."
+- You've invented a `disease` that doesn't exist.
+- And, don't forget the `disease` spreading whore.
+- He was suffering from severe arterial `disease`.
+- Some kind of `disease`, something to get rid of.
+- To cure one `disease`, or to cure every `disease`?
+- Crs is a `disease` where you can't remember shit.
+- See, two years ago, pete got hodgkin's `disease`.
+- It's a `disease` i've got -- it's a clinical thing.
+- He's helping me turn inward and fight the `disease`.
+- Isn't that kind of like writing about gum `disease`.
+- The point is, the modern world is a jewish `disease`.
+- You wanted the `disease` in order to peddle the cure.
+- But...this `disease`...is progressive... degenerative...
+- It's a kidney `disease`, you don't get it from hot dogs.
+- Listen, how long do they keep you in this `disease` hole?
+- But... this `disease`... is progressive... degenerative...
+- What manic invents `disease` like that in the first place?
+- You're saying all `disease` will eventually be eradicated?
+- But i can safely say that lung `disease` octavia, let's go.
+- He's even found a cure for the early stages of the `disease`.
+- I mean all you hear about is `disease` this and `disease` that.
+- I ought to know better than to hire anybody with a `disease`.
+- I've got the occupational `disease` of oversized ex-athletes.
+- You don't have a fatal `disease`, you have manageable illness.
+- Can i help it that life is a `disease` and everyone's a victim.
+- My mother's been dying of the same `disease` since i was a kid.
+- These are toxic chemicals... and `disease`-spreading behaviour.
+- No -- most of 'em are still standing -- might've been `disease`.
+- The other night you said the modern world is a jewish `disease`.
+- This trial is not about a `disease`, is that what you're saying?
+- If there's a chance, oh, he's, uh... yeah, he's got some `disease`.
+- Now the `disease` that these blasphemers we cannot let her stop us.
+- Some people think bein' shy is a `disease`, but it don't bother me.
+- I said to the da, that cop who hit me must of given me crs `disease`.
+- Hepatitis, influenza, the flesh eating `disease` -- no, not "whatever."
+- She long ago fully recovered, but the `disease` did irreparable damage.
+- But i can't let your `disease` wipe out what we must now presume - what?
+- It looks like -- and i quote -- 'a `disease` to save man from his mind.'
+- I kill chimera at biocyte and he's sitting on a cure without a `disease`.
+- ...and swore under oath that they know nothing about addiction, `disease`...
+- Doctor trammel, when did you first diagnose that mr. marsh had heart `disease`?
+- Here i am, getting on in years and about to die of a young person's `disease`...
+- It's the only `disease`, mr. thompson, you don't look forward to being cured of.
+- The public should be happy to co-operate, to get this `disease` off the streets.
+- Whatever `disease` the kids in this town have got, i don't want ellie to catch it.
+- Yeah, but doc, isn't it true they keep finding out new things about this `disease`?
+- I'll tell you what, no one with lyme `disease` gonna win any damn handsome contests!
+- Smoking causes lung cancer, heart `disease`, emphysema, and may complicate pregnancy.
+- Whatever `disease` that rat had clearly passed to her... headphones on, red bulls popped.
+- All with advance degrees in xenobiology and out to conquer every `disease` in the quadrant.
+- You may be suffering from a loathsome `disease` which the american people could do without.
+                 

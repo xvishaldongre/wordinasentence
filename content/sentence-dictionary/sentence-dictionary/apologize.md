@@ -1,0 +1,107 @@
+---
+title: "apologize in a sentence | apologize example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apologize"
+---
+- I `apologize`, claude.
+- I, i must `apologize`.
+- Why'd you `apologize`?
+- Did mozart `apologize`?
+- No need to `apologize`.
+- "you must `apologize`."
+- I `apologize` again.
+- `Apologize` to that man.
+- Don't `apologize`, john.
+- I heard you `apologize`.
+- I'll go and `apologize`.
+- I wanted to `apologize`.
+- `Apologize` to that wimp?
+- Don't `apologize` for it.
+- Don't `apologize` for me.
+- No, jaime, i `apologize`.
+- No need to `apologize`...
+- Don't `apologize`, please.
+- Now, `apologize` to susan.
+- She called to `apologize`.
+- Girls, i wanta `apologize`.
+- I `apologize` for the mess.
+- Sunny, `apologize` to harry.
+- I won't `apologize` for this.
+- Moe, i'm here to `apologize`.
+- Never `apologize` for talent.
+- We `apologize` for the delay.
+- You want me to `apologize`?
+- Go over there and `apologize`.
+- I am willing to `apologize`...
+- I `apologize` for what i said.
+- I just came by to `apologize`.
+- I'm sorry, sir, i `apologize`.
+- Well, then i do `apologize`...
+- You don't have to `apologize`.
+- I `apologize` if i worried you.
+- Don't need to `apologize` to me.
+- I `apologize` if i offended you.
+- It's my fault and i `apologize`.
+- I wasn't gonna `apologize`, sir.
+- An oversight, sir, i `apologize`.
+- I `apologize` if i appear abrupt.
+- If i `apologize` we no got a war.
+- I won't `apologize` for who i am.
+- I would also like to `apologize`.
+- So pay them back and `apologize`.
+- So you dropped by to `apologize`?
+- I think you should go `apologize`.
+- You've nothing to `apologize` for.
+- I `apologize` for invading you.
+- I `apologize` for the crude images.
+- I'm going to `apologize` to bubber?
+- I'm the one who should `apologize`.
+- I really do `apologize`, mr. wayne.
+- Nothing to `apologize` for, casper.
+- You `apologize` to your mama, yeah?
+- Are you going to `apologize` or not?
+- I `apologize` for the inconvenience.
+- I `apologize` for what happens next.
+- I do `apologize` for this afternoon.
+- I keep wanting to `apologize` again.
+- You never need to `apologize` to me.
+- I `apologize` for going on like this.
+- I'm not in here to `apologize`, john.
+- I want to `apologize`, for all of it.
+- I want you to `apologize` to my wife!
+- You don't have to `apologize` for me!
+- What's more he's going to `apologize`.
+- I'd better call her up and `apologize`.
+- I'll call grandma back and `apologize`.
+- Dad, i want to `apologize` for yesterday.
+- I `apologize` -- yeah, we know, pike did.
+- I wanted to `apologize` for this morning.
+- I'd like to `apologize` for our local boy.
+- I'm not gonna `apologize` - where's raven?
+- I `apologize`, sir, i'm having a bad day...
+- Just remember to `apologize` sometime soon.
+- Layla, i'm... - don't you dare `apologize`.
+- I `apologize` for that scene with my husband.
+- Just lemme talk to joey to... to `apologize`.
+- Look, the other night, i want to `apologize`.
+- I `apologize` for goetz, he's a firehouse dog.
+- Why, you don't have to `apologize`, mr. warne.
+- You ain't got to `apologize` for your brothers.
+- You go over there right now and you `apologize`.
+- But, like a gentleman, he scorned to `apologize`.
+- Dad made me go over and `apologize` the next day.
+- Elaine, i've come to `apologize` for lt. mcelroy.
+- I `apologize` for the 'surreal but nice' comment.
+- I'll see the captain hanged before i `apologize`.
+- Norma, i want to `apologize` for not calling you.
+- I believe that version two of my code `apologize`?
+- Oh, i `apologize` for thinking the word "tootsie."
+- I can't stand women who `apologize` for wanting sex.
+- I wish... people could `apologize` for other people.
+- You thought i meant...too tough to `apologize`, huh?
+- I'm not gonna `apologize` for doing what i had to do.
+- I won't `apologize` for protecting you from yourself.
+- I wanted to `apologize`, susan -- be sorry for nothing.
+- Sir, i `apologize` for going around you, but it worked.
+                 

@@ -1,0 +1,107 @@
+---
+title: "gold in a sentence | gold example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gold"
+---
+- Because of the `gold`.
+- But what about `gold`?
+- What about the `gold`?
+- But the `gold` is gone.
+- These tapes are `gold`.
+- The `gold`'s in my pack.
+- Do you believe in `gold`?
+- `Gold` could be arranged.
+- `Gold` dig him for a meal?
+- `Gold` nose hair clippers.
+- It's the next `gold` rush.
+- More than just the `gold`.
+- They won't find the `gold`.
+- This place is a `gold` mine.
+- We just got a `gold` record.
+- He tried to steal our `gold`.
+- I don't think this is `gold`.
+- I want to look at the `gold`.
+- You mean i'm a `gold`-digger?
+- You've got a heart of `gold`.
+- Before they leave, get `gold`.
+- Well, i gave them more `gold`.
+- You get `gold`, what do i get?
+- Only this time it's not `gold`.
+- It was pale...a shadowed `gold`.
+- The slut with a heart of `gold`.
+- He's got like six `gold` records.
+- I'm not a `gold`-class passenger.
+- Kind of round, like so... `gold`.
+- Not fool's `gold`, but real `gold`.
+- One-third of that `gold` is mine.
+- Say, what about that `gold` deal?
+- The king has mountains of `gold`!
+- Easy ted, we're not mining `gold`.
+- How's he going to want the `gold`?
+- Money isn't everything, `gold` is.
+- With that cursed, bloodied `gold`!
+- You struck some `gold`, didn't ya?
+- A `gold` record, man, that's great.
+- All paved with diamonds and `gold`?
+- Each piece wrapped in `gold` paper.
+- Oh, uh, and, of course... - `gold`.
+- And in 19th century, that is `gold`.
+- As i said, we can pay you in `gold`.
+- Someone's got to send the `gold` up.
+- After they give you the `gold` watch.
+- At least we know where the `gold` is.
+- I don't give a damn about the `gold`.
+- Sure, i'm a `gold`-digger -- why not?
+- Oh...well this is our `gold` ballroom.
+- ... a hard-boiled little `gold` digger.
+- One `gold` medallion with peace symbol.
+- Pink and `gold` are my favorite colors.
+- But that's the great thing about `gold`.
+- Others pick `gold` right out of the air.
+- Why should i help you go for the `gold`?
+- I just made $800,000 in hong kong `gold`.
+- I knew this whole place'd be pure `gold`!
+- This is `gold` leader, returning to base.
+- I saw the `gold` ring and just grabbed on.
+- I say we off-load some of that `gold` now.
+- They must be worth their weight in `gold`.
+- I repeat: this is `gold` leader, all right.
+- It's supposed to be made outta pure `gold`!
+- Maybe...maybe if we traded them the `gold`.
+- 'the cuer-vo `gold`, the fi-ine columbian.'
+- You're saying they mutinied for the `gold`?
+- Besides, the `gold`'ll be safer where it is.
+- Lonely with all your `gold`, mister stevens?
+- Harmsway sank that ship and stole the `gold`.
+- I prefer `gold`, and the english have plenty.
+- Nobody's going anywhere with that `gold` now.
+- We gonna unload the `gold` and get a move on?
+- You're implying she's, what, a `gold` digger?
+- All that glitters is not delicious duff `gold`!
+- For starters, getting that `gold` off the ship.
+- How much `gold` has the master of the yengeese?
+- I saw these, i knew he'd finally struck `gold`.
+- Mary -- what would you do with a pot o' `gold`?
+- But sell the fur to the white man for `gold`?...
+- Girls go crazy everywhere for a man with `gold`.
+- I don't care what he says, he wanted our `gold`.
+- Red group, `gold` group, all fighters follow me.
+- This is how it works: nobody touches the `gold`.
+- You go up, i'll send up the `gold`, then follow.
+- Your shorts are looking especially `gold` today.
+- Second, because there's no `gold` down there.
+- Financial instrument, beating `gold`, 20 minutes.
+- Hell, i got a `gold` watch... it just don't work.
+- I'm telling you, it's worth its weight in `gold`.
+- No, we found the `gold` in unincorporated waters!
+- Two hundred twenty two kilograms of solid `gold`.
+- Even the meanest buildings are roofed with `gold`.
+- I go to the blue'n `gold` barber shop in westwood.
+- It's the paymaster from moscow -- with our `gold`.
+- Maybe you've got ideas of your own for the `gold`.
+- No one touches the `gold` until we're out of here.
+- But fifty million in `gold`, they come looking for.
+- He's got a blue-and-`gold` warm-up jacket he wears.
+- Hold on... don't you think there's too much `gold`?
+                 

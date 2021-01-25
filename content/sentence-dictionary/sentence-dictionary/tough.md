@@ -1,0 +1,107 @@
+---
+title: "tough in a sentence | tough example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tough"
+---
+- Big `tough` character.
+- Go ahead, `tough` guy.
+- It's `tough` to rhyme.
+- It was a `tough` call.
+- Playing `tough` today.
+- She�s `tough`... shit!
+- That's always `tough`.
+- We had a `tough` year.
+- You're `tough`, j-man.
+- Carefully, `tough` guy.
+- I've had a `tough` day.
+- Oh, yeah, `tough` guy?!
+- Oh, yeah, very `tough`.
+- `Tough` titty toenails!
+- Ah, i had a `tough` day.
+- Families can be `tough`.
+- I mean... `tough` break.
+- It's been a `tough` day.
+- Must be `tough` for you.
+- She's `tough`, this one.
+- That's a `tough` choice.
+- That's a `tough` racket.
+- That's gonna be `tough`.
+- Boy, you guys are `tough`.
+- Kinda `tough` on the butt.
+- Maybe he ain't so `tough`.
+- No use in getting `tough`.
+- Primal, `tough` to resist.
+- That must make it `tough`.
+- That's `tough`, i mean it.
+- Wasn't too `tough`, buddy.
+- You never `tough` alcohol.
+- You're `tough`, all right.
+- I'm pretty `tough`, myself.
+- It's a `tough` two minutes.
+- Kind of `tough`, i guess...
+- Not as `tough` as you, huh?
+- That's going to be `tough`.
+- Yes, sam's `tough` alright.
+- Leavenworth a `tough` joint?
+- Maybe that makes us `tough`.
+- That is one `tough` line up.
+- That's a `tough` row to hoe.
+- That `tough` enough for you?
+- Those guys ain't so `tough`.
+- That's `tough`, isn't it?
+- Good - be `tough` to the end.
+- He worked them `tough` towns.
+- It's been `tough`, hasn't it?
+- It's `tough` enough as it is.
+- This ivy is one `tough` baby.
+- `Tough` titty, it's mine now.
+- Well, you know, it's `tough`.
+- What makes you so `tough`?
+- Barnett's `tough` competition.
+- Because i have a `tough` mind.
+- Be `tough` to get a taxi here.
+- Having kind of a `tough` time.
+- He said it was a `tough` call.
+- Look... that's not to `tough`.
+- That was a `tough` week there.
+- `Tough`, though.. she's `tough`.
+- We want `tough` minded people.
+- ...yeah, it's a `tough` break.
+- You got the guts, `tough` guy?
+- You `tough` it out like a man.
+- My boss made it `tough` for me.
+- `Tough`, pretty girls like you.
+- But life on the road is `tough`.
+- Had a `tough` time getting them.
+- He ain't as `tough` as you, kid.
+- He's not as `tough` as he looks.
+- It's a `tough` proposition, andy.
+- My little girl, the `tough` babe.
+- Thanks `tough` guy, thanks a lot.
+- There's no such thing as `tough`.
+- This is gonna be `tough`, though.
+- Well, i can be `tough` if i want.
+- You're a `tough` one, aren't you?
+- Don't piss on a gift, `tough` guy.
+- Hey--she's in a `tough` situation.
+- Sure, sure, it's a `tough` course.
+- This sophistication ain't `tough`.
+- Cassius, so strong, so `tough`.
+- He's a `tough` mug - hard, cynical.
+- He's `tough`, your american friend.
+- I deal with some `tough` customers.
+- I thought my dad was `tough` on me.
+- I thought my dad was `tough` on me.
+- Listen kid, i'm a soft `tough` too.
+- West of scotland's a `tough` place.
+- Why make it `tough` for themselves?
+- You're not so `tough` now, are you?
+- That poor girl is in a `tough` spot.
+- The mills, the mines, `tough` times.
+- The `tough` times are behind me now.
+- Well, that might be kind of `tough`.
+- I'm not as `tough` as you think i am.
+- It's been `tough` every second since.
+- It was too `tough` on their families.
+                 

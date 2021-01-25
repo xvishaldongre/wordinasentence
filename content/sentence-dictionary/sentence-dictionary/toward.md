@@ -1,0 +1,84 @@
+---
+title: "toward in a sentence | toward example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "toward"
+---
+- Going right `toward` it.
+- I'm leaning `toward` no.
+- Just drive `toward` him.
+- Goodwill `toward` man?
+- More `toward` the cranium.
+- Especially `toward` the end.
+- Your attitude `toward` anglos.
+- They're drifting `toward` me...
+- As they walk `toward` a corridor.
+- She's walking `toward` the screen.
+- Lyssa must try to move `toward` us.
+- Stands and walks `toward` the door.
+- _ headed down poplar, `toward` main.
+- Mainly to turn her `toward` the door.
+- We're running `toward` the war drums?
+- Which means he went `toward` sunrise.
+- `Toward` children of gabriel territory.
+- She pushed gretel `toward` the oven.
+- He sees his men and walks `toward` them.
+- I see two headlights coming `toward` me.
+- You were smokin' `toward` the end there.
+- It's all flowing `toward` the museum.
+- Moving slow, but straight `toward` elsie.
+- He went off, as usual, `toward` his house.
+- It's not just how i felt `toward` jessica.
+- Let this be the first step `toward` peace.
+- "and continue to bend it `toward` justice?"
+- It is heading directly `toward` the surface.
+- "peace on earth, good will `toward` men."
+- She's in the elevator heading `toward` ethan.
+- Two and three are heading `toward` the boeing.
+- She laughs and backs up slowly `toward` the door.
+- You've taken your first step `toward` perfection.
+- I've acted pretty disgracefully `toward` her, too.
+-  make the left -- `toward` the bridge -- -- where?
+- Ayuh--they get older as you go `toward` the middle.
+- I think i'm leaning `toward` custard in this light.
+- There's an army on the march `toward` us right now.
+- Dr. lester, would you point me `toward` the restroom?
+- He nods `toward` jester, glaring at them from his a4.
+- You were running `toward` me instead of away as if...
+- Take no further steps `toward` marriage until we meet.
+- The winner followed those footprints `toward` guilder!
+- People fall `toward` a shot, you know... not back from it.
+- Wade -- i've been working `toward` this audition for years.
+- Never did i dream i could feel like this `toward` a sergeant.
+- You feel guilty and hostile `toward` your family and friends.
+- You next move, it seems to me, should be `toward` television.
+- He starts out with a worried backward glance `toward` the two.
+- If you would lead them `toward` freedom, they would follow you.
+- It flies off `toward` the thin membrane that encloses the city.
+- Universal scales tip `toward` balance because of your sacrifice.
+- Get up out of the chair, and walk `toward` the backdoor, richard.
+- On moss, as he walks the groggy schumann `toward` the gas station.
+- Make your way up through the mountains `toward` the hollywood bowl.
+- What you would've done, [beeping] she was working `toward` peace.
+- Figured i was dead, there, when i seen that angel comin' `toward` me.
+- I appreciate your efforts `toward` a speedy death, but i'm consuming.
+- No mercy will be shown `toward` the murderer who turned up in peking.
+- She turns and walks away `toward` the church, slowly, her head bowed.
+- You do seem much more disposed `toward` him than i understand, ernest.
+- You've always had hostility `toward` david ever since i mentioned him!
+- You have no feelings `toward` ... to tell you the truth, not very much.
+- You mustn't be delilah-ish and jezebel-ish `toward` your brother, dear.
+- Who pretend not to see their husband's attention `toward` another woman?
+- You just have a common -- and likable -- tendency `toward` exaggeration.
+- He wants to go to the riviera - but i sort of lean `toward` niagara falls.
+- I was walking `toward` somebody who didn't have any idea who i really was.
+- I think she went to bed �� i saw her going `toward` the house where's thea?
+- I gave him his first lesson in sensitivity `toward` the fairer sex just today.
+- I've marched back into battle, i was with the queen's army heading `toward` polis.
+- What you're doing here is checking for color density as it thins `toward` the rim.
+- Yeah, well, questions will go `toward` what work you did there, why you were fired.
+- A man's attitude ... a man's attitude goes some ways `toward` how a man's life will be.
+- When you turned her `toward` the door, where did you expect her to go, without a car?
+- Desert road -- day </b> the crew rides in the back of the wanderer's truck `toward` vegas.
+- It has a little weakness for gravy, and once in a while it leans a little `toward` ketchup.
+                 

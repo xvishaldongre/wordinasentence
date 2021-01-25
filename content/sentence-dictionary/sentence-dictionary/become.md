@@ -1,0 +1,107 @@
+---
+title: "become in a sentence | become example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "become"
+---
+- To `become` my second.
+- Flowers `become` fruit.
+- She's `become` my pimp.
+- They `become` carriers.
+- Of what you've `become`.
+- So i can `become` a nun.
+- What's `become` of them?
+- It's `become` necessary.
+- It wanted to `become` us!
+- I've `become` a werewolf!
+- We've `become` murderers.
+- Why'd you `become` a cop?
+- And we `become` the light.
+- We `become` the 13th clan.
+- What is to `become` of me?
+- You didn't `become` crazy.
+- And friends `become` foes."
+- Doesn't she `become` queen?
+- If i `become` heda, murphy?
+- They `become` a mated pair.
+- They would `become` as god.
+- Another's `become` a priest.
+- Do not `become` one of them.
+- Don't just `become` excited.
+- Do you want to `become` one?
+- I think you should `become`.
+- I've `become` a liability...
+- That we have `become` empty.
+- What else should i `become`?
+- You know what i've `become`.
+- How did i `become` a success?
+- Our houses `become` alcatraz.
+- So we `become` the 13th clan.
+- That i should `become` judas.
+- To `become` survivable again.
+- What a woman you've `become`.
+- What's to `become` of us now?
+- When you `become` heda, aden.
+- Why wish you `become` a jedi?
+- You've seen what we `become`.
+- I hate... what she's `become`.
+- Or so i could `become` famous?
+- To `become` a cable repairman?
+- What's `become` of my capture?
+- What will `become` of me then?
+- A dog, `become` master of dogs.
+- Crossroads i have `become`.
+- Feel it -- `become` part of it.
+- The illusion has `become` real.
+- Tonight you `become` one of us.
+- If i win, you `become` my slave.
+- It made me `become` a fleimkepa.
+- I've `become` everything i hate.
+- I want you to `become` the king.
+- Not the woman you have `become`.
+- To try and `become` whole again.
+- We `become` the 13th clan again.
+- You're about to `become` heroes.
+- ...is to `become` final champion.
+- They've `become` what you wanted.
+- Things have `become` complicated.
+- When did alaska `become` a state?
+- I've decided to `become` a mensch.
+- Made her see what they'd `become`.
+- This has `become` personal to you.
+- To `become` one with simone prime.
+- You `become` a big motorball star.
+- You `become` what you always were.
+- You will `become` a true believer.
+- ♪ and `become` a bombshell ♪ funny.
+- It means we've `become` spectators.
+- They `become` complicated... messy.
+- We regret you've `become` involved.
+- How did lamar `become` involved?
+- I know that's what i'd `become`.
+- But eventually, we `become` friends.
+- Has `become` my recurring nightmare.
+- Hey, we can `become` blood brothers.
+- If i do the tapes `become` evidence.
+- Then they would `become` my enemies.
+- What are you gonna `become`, raziel?
+- You've `become` a dictator, charles.
+- You've `become` the hero of my book.
+- I don't like what we've `become`.
+- I never meant it to `become` my life.
+- Oh, god, lotte, what have i `become`?
+- That i `become` invisible to the eye.
+- To `become` our most trusted soldier.
+- We all have to like what we `become`.
+- What makes a man `become` a producer?
+- Sometimes innocents `become` involved.
+- Well, how did you `become` king, then?
+- Dad, i've `become` a woman without her.
+- I've suddenly `become` quite important.
+- Look at me, this is what i've `become`.
+- Richard taupin has `become` cumbersome.
+- Some people have `become` too powerful.
+- Over time, you then `become` iconic.
+- That's how they've `become` so powerful.
+- Then why have i `become` a man like you?
+                 

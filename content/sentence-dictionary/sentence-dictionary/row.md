@@ -1,0 +1,59 @@
+---
+title: "row in a sentence | row example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "row"
+---
+- Four nights in a `row`?
+- Got it, two in a `row`.
+- Best three in a `row` now.
+- Why was he on death `row`?
+- `Row` over to the monastery?
+- That's a tough `row` to hoe.
+- The house on sorority `row`?
+- That'll make five in a `row`.
+- You're movin' to death `row`.
+- That's skid `row`... isn't it?
+- An innocent man on death `row`.
+- Look, the sky is blue... `row`!
+- Nobody can `row` at that speed!
+- It's possible -- two in a `row`?
+- Sold to mr. stone, second `row`.
+- Here, every `row` is in the back.
+- Nobody else from my `row` woke up.
+- You're the best one in your `row`.
+- This one gets a front `row` seat.
+- Fellow..." must've been a terrible `row`.
+- Or even gotten off death `row` so, how'd i do?
+- He was on death `row` and then he was executed.
+- I can't eat the same thing two nights in a `row`.
+- No way they'd line five felons in the same `row`.
+- Eight months in twelve for three years in a `row`.
+- On three machines in a `row`, it's in the billions.
+- Probably just `row` on out to the middle of a lake.
+- There's an outer `row` of columns, real heavy duty.
+- They used to be her dressing room, the whole `row`.
+- You just have to get the rest of your ducks in a `row`.
+- She never stays in the same place two nights in a `row`.
+- You know he's not supposed to work two nights in a `row`.
+- `Row` twenty-three, section c. i'll settle for l.a. county.
+- He and lloyd had a terrific `row` but lloyd insisted... well.
+- I planted a `row` just for you and you don't owe me anything.
+- It's, er, "`row`, `row`, `row` your boat, gently down the stream.
+- You've had a natural four times in a `row` in a crap game.
+- The ones in the front `row` must be the original eligius team.
+- We have front `row` seats for this theater of mass destruction.
+- I gave 'em directions out there, up by the old farm `row`...
+- Yes, and i'm afaid there's going to be a bit of a `row` about it.
+- You'll just put us in the back `row` and won't ask any questions.
+- So what are you telling me, you're putting on two comics in a `row`?
+- Have you ever thrown up in the front `row` of a richard marx concert?
+- Then the whack club i'm on loses three games in a `row` and i get blamed.
+- She has already disemboweled six in a `row` by leaving them at the altar."...
+- That makes five days in a `row` that mr. hunsecker's cut you out of his column.
+- This one guy on death `row`, who i'll call henry, told me about his last victim.
+- In fact, i put in these new type davits, which can take an extra `row` of boats here.
+- Kent, i bet you didn't know i won the all-country bowling trophy two years in a `row`.
+- I heard something like that you know that circulation is down for three months in a `row`.
+- ♪ for five years in a `row` ♪ as is tradition with every naming day, my pecs are down here.
+                 

@@ -1,0 +1,92 @@
+---
+title: "babe in a sentence | babe example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "babe"
+---
+- ...`babe` the blue ox?
+- Trust me, `babe`, e.t.
+- You'll get it, `babe`.
+- You're a fool, `babe`.
+- Get used to it, `babe`.
+- How hot is this `babe`?
+- Just forget it, `babe`.
+- This is a gutsy `babe`.
+- `Babe`, i could kiss you!
+- How're you doing, `babe`?
+- Don't want `babe` to hear.
+- `Babe`, what happened here?
+- 'i love <u>you</u>, `babe`.
+- It's taken care of, `babe`.
+- Now you're talking, `babe`.
+- That's sensational, `babe`!
+- This `babe` has said enough.
+- Whoever said we did, `babe`.
+- `Babe` brother is a poor boy.
+- They were in the way, `babe`.
+- Yeah, `babe` ruth you wasn't.
+- You know what i want, `babe`?
+- Heh heh i bet they are `babe`.
+- Why, `babe` - that's terrific!
+- Hans, `babe`, put away the gun.
+- Listen, `babe`, we needja back.
+- She's gonna be hauser's `babe`.
+- Tell him you're `babe` bennett?
+- What's gotten into you, `babe`?
+- If that's what you want, `babe`?
+- Okay, but don't give up, `babe`.
+- My little girl, the tough `babe`.
+- What'd you come back for, `babe`?
+- Put on some music will you `babe`?
+- You dumb ass, it's `babe` brother.
+- I hear mrs. swann's quite a `babe`.
+- Just take it nice and easy, `babe`.
+- You're a genius, `babe` - a genius!
+- `Babe` brother is a different story.
+- `Babe` ought to get him drunk again.
+- No� i was hoping you'd call, `babe`.
+- It's all over, `babe`, it's all over.
+- Oh, `babe`... just feeling a bit sick.
+- You been smoking too much shit `babe`.
+- I just do what the doctor says, `babe`.
+- It was my fault, `babe`, it really was.
+- I'm clean as a preacher's sheets, `babe`.
+- You know what i mean `babe`, it's enough.
+- Home a paul bunyan and `babe` the blue ox.
+- I'll let you put it in your diary, `babe`.
+- You and `babe` brother hit it off so well.
+- That was good `babe`, just keep doing that.
+- You and `babe` brother are so much alike...
+- Aw, listen `babe`, i can't let you quit now.
+- Hey, man, is `babe` ruth in the lineup today?
+- It was just one youngin -- a little boy `babe`.
+- Come on, gentleman... "pre-bicentennial `babe`?"
+- `Babe`, you're looking at the next mother teresa.
+- I asked you to wake me when `babe` brother comes.
+- I'm gonna pay you back next time i see ya, `babe`.
+- Thou wast the prettiest `babe` that e'er i nursed.
+- But you hate joey he was, like, a total `babe` why?
+- `Babe` brother, is that my shirt that you're wearing?
+- You're a setup for some gorgeous wide-eyed young `babe`.
+- Where are you `babe`, the movie starts in twenty minutes.
+- You call `babe` brother boy in front of his wife and son.
+- Don't wear it out, `babe`, or i'll make you buy me a new one.
+- `Babe`, i'm on my way out to the woods to divvy up the product.
+- I don't like being referred to as `babe`, or addressed as baby.
+- If i knew about this `babe`... you're very attractive, my dear.
+- `Babe` brother and his wife are taking advantage of a situation.
+- I'm tired of people saying `babe` brother this, `babe` brother that.
+- We're talking `babe`-a-licious chub fest, right here in the 501's.
+- Praise her beauty and you'll lull her sweet as a `babe` in a cradle.
+- Who the first `babe` to say this was i don't know, but it caught on.
+- What lesson have we learned from all of this, `babe` br... sam...
+- Oh, i'll bet you he has a `babe` with him right out of a triple-x video.
+- Guards come exactly every three minutes.... eighth room down, `babe`... gum.
+- `Babe`... but a couple of kids who scoop ice cream for a living - wait, what?
+- China i need a taking care of, not `hey how bout a pizza after class `babe`'.
+- `Babe`, you stuck a tag on that hick that'll stick to him the rest of his life.
+- ♪ 'cause my body's too bootylicious for you, `babe`... ♪ but we can be merciful.
+- ♪ 'cause my body's too bootylicious for you, `babe` ♪ when the climbers get here.
+- You know, `babe` brother's wife just dumps greens in the pot without washing them.
+- You had such style: the clothes, the dancin', the elegant way you'd snuff a `babe`.
+                 

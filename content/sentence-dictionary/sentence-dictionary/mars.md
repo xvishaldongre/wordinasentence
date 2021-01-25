@@ -1,0 +1,54 @@
+---
+title: "mars in a sentence | mars example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mars"
+---
+- He's been past `mars`?
+- I got a trip to `mars`.
+- `Mars`, watch the cops!
+- You'd hate it on `mars`.
+- Who gives a shit, `mars`?
+- Why would `mars` do that?
+- You blabbed about `mars`!
+- More about life on `mars`.
+- United republic of `mars`.
+- That's a good idea, `mars`.
+- How was your trip to `mars`?
+- What was i doing on `mars`?!
+- Jesus, first `mars`, now you.
+- That would be `mars` krupchek.
+- The whole core of `mars` is ice.
+- A martian is from `mars`, trevor.
+- Dennis and `mars` are in the den.
+- You've never even been to `mars`.
+- I don't know anything about `mars`.
+- It had something to do with `mars`.
+- `Mars` doesn't rise until 2:30 `mars`.
+- Goddammit, where are you from, `mars`?
+- Okay, you're the boss -- `mars` it is.
+- There's lots nicer places than `mars`.
+- Why not `mars`, cap, `mars` has women...
+- He's been going on and on about `mars`.
+- He shoulda killed quaid back on `mars`.
+- I've just always been fascinated by `mars`.
+- You're so pretty and it only `mars` your...
+- `Mars` and dennis don't know i'm doing this.
+- We were buddies in the agency back on `mars`.
+- But maybe we should go to `mars` and find out?
+- If `mars` had an atmosphere, he's lose control.
+- `Mars` has been transmitting jupiter for weeks.
+- Either i'm going to tie you or `mars` will tie you.
+- Hey cris, how'd you know we'd be living on `mars` by 1970?
+- Jon, no -- i can't -- in the immediate future we're on `mars`.
+- Have louise run the name '`mars` krupchek' through dmv and ncic.
+- She acts like she's on `mars` or something -- you're telling me.
+- If he wants someone to swing for the chinaman, we'll give'm `mars`.
+- It's about `mars` -- we gotta find a way outta here is what we gotta do!
+- `Mars` will go into global meltdown.--that's why the aliens never turned it on.
+- Man don't know if he's been to `mars` or not yeah...well, actually no...sort of.
+- I know it sounds crazy, but i went to this rekall place after work, and... `mars`?
+- Oh, great, an homage to body snatchers, he left on the first ship colonizing `mars`.
+- They need to sacrifice something, y'know, appease the gods of war -- `mars`, jupiter.
+- Berkeley told me that they think it came from contamination on a returning `mars` flight.
+                 

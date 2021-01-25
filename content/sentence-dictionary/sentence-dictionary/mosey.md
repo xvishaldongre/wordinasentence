@@ -1,0 +1,8 @@
+---
+title: "mosey in a sentence | mosey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mosey"
+---
+- Oh, i'll just `mosey` around here and there.
+                 

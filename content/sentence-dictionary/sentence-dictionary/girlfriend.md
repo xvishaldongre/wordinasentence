@@ -1,0 +1,107 @@
+---
+title: "girlfriend in a sentence | girlfriend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "girlfriend"
+---
+- Ask your `girlfriend`.
+- He had a `girlfriend`?
+- I have a `girlfriend`.
+- She's my `girlfriend`.
+- Yes, his `girlfriend`.
+- From a -- `girlfriend`.
+- You got a `girlfriend`?
+- Just an ex-`girlfriend`.
+- [she's my `girlfriend`.]
+- She's your `girlfriend`.
+- Try again, `girlfriend`.
+- Are you his `girlfriend`?
+- Oh -- uh -- `girlfriend`.
+- The `girlfriend` lottery.
+- Your little `girlfriend`?
+- His `girlfriend`, cynthia.
+- I assume his `girlfriend`.
+- I have a `girlfriend` now.
+- My `girlfriend` situation.
+- My `girlfriend`'s outside.
+- Do you have a `girlfriend`?
+- My `girlfriend`'s pregnant.
+- Can i bring my `girlfriend`?
+- `Girlfriend`, you got a man.
+- I don't have a `girlfriend`.
+- I'll have your `girlfriend`.
+- The usual -- a `girlfriend`.
+- Time for a new `girlfriend`?
+- What about his `girlfriend`?
+- Your brother's `girlfriend`.
+- B: doxx your ex-`girlfriend`?
+- What about your `girlfriend`?
+- Wife, `girlfriend` or mother?
+- You must have a `girlfriend`.
+- Don't you have a `girlfriend`?
+- Katrina's not my `girlfriend`!
+- My `girlfriend` was having it.
+- Talk to your new `girlfriend`.
+- What about which `girlfriend`?
+- Where's my `girlfriend` santa?
+- Yeah, i've got a `girlfriend`.
+- As your `girlfriend` after all.
+- Well, is she your `girlfriend`?
+- Is wendy hood your `girlfriend`?
+- She's not my `girlfriend`, dude!
+- That used to be my `girlfriend`.
+- What's your `girlfriend`'s name?
+- Another `girlfriend` of ordell's.
+- I have a passionate `girlfriend`.
+- I thought you had a `girlfriend`.
+- I told you i have a `girlfriend`.
+- His `girlfriend` doesn't think so.
+- I've got a `girlfriend`, remember?
+- She's kind of my `girlfriend` now.
+- So i hear you have a `girlfriend`.
+- ...yes... you have a `girlfriend`?
+- Do you have a `girlfriend`, creasy?
+- If his `girlfriend` was knocked up.
+- She was randy's only `girlfriend` .
+- Just moved in with his `girlfriend`.
+- Why don't you ask your `girlfriend`?
+- After your `girlfriend` gets through.
+- Ehm... she's not my `girlfriend`.
+- Don't you already have a `girlfriend`?
+- Mulwray's `girlfriend`, for one thing.
+- You play what your `girlfriend` plays.
+- Do you even have a `girlfriend`, jesse?
+- From patty's fun southern `girlfriend`.
+- ♪ gave me a thrill ♪ hey, `girlfriend`!
+- Going to talk to dustin's `girlfriend`.
+- One `girlfriend` wasn't enough for him.
+- Ways to get your `girlfriend` into bed?
+- Your husband and your `girlfriend` why?
+- But i'll kill your fucking `girlfriend`!
+- My ex-`girlfriend` was fucking this guy.
+- Your `girlfriend` christine is in there.
+- It's your `girlfriend`, big guy, open up.
+- Sarah was my `girlfriend` at prep school.
+- What's the matter with your `girlfriend`?
+- My `girlfriend` sucked thirty-seven dicks!
+- Starring you and your junkie `girlfriend`.
+- That his `girlfriend` fucked him to death?
+- You get it right, your `girlfriend` lives.
+- Every serious `girlfriend` lasts 18 months.
+- ...i had a `girlfriend`... a long time ago.
+- She wasn't really your `girlfriend` anyway.
+- They wouldn't go see some old `girlfriend`.
+- What would your `girlfriend` think of that?
+- You killed his goddam `girlfriend` instead.
+- You'll never have a `girlfriend` this cute.
+- You're everything i want in a `girlfriend`.
+- Kill the hostage taker and his `girlfriend`.
+- I thought she wasn't your `girlfriend`, dude.
+- Kate reynolds was my `girlfriend` in college.
+- My brother art got his `girlfriend` one once.
+- My `girlfriend` is very -- it's a quote book.
+- Speakin' of which, where's your `girlfriend`?
+- What is it � did your `girlfriend` leave you?
+- Why don't you show it to your "`girlfriend`"?
+- Woa, dude, who's your `girlfriend`'s new guy?
+                 

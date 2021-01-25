@@ -1,0 +1,107 @@
+---
+title: "heard in a sentence | heard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heard"
+---
+- But i `heard` him say.
+- `Heard` of harry lime?
+- I `heard` about today.
+- I `heard` of one once.
+- I `heard` them morgan.
+- I `heard` you and mom.
+- I `heard` you, joanna.
+- I `heard` you playing.
+- I `heard` your shower.
+- I `heard` you talking.
+- I never `heard` of it.
+- I've `heard` of sugai.
+- I've `heard` the name.
+- Never `heard` of him.
+- No, i haven't `heard`.
+- So, no one `heard` it.
+- That's what i `heard`.
+- We `heard` you scream.
+- We would have `heard`.
+- What have you `heard`?
+- Yeah, i `heard` of it.
+- Yeah, i `heard`, yeah.
+- ...you `heard` echoes.
+- You `heard` me, jesse.
+- You `heard` me, nigga?
+- You `heard` me, smith.
+- You `heard` my orders.
+- You've `heard` enough.
+- Have you `heard` of me?
+- I have `heard` of them.
+- I `heard` all about it.
+- I `heard` a story once.
+- I `heard` something ...
+- I `heard` that was you.
+- I `heard` them talking.
+- I `heard` this morning.
+- I `heard` what you did.
+- I `heard` your playing.
+- I never `heard` of him.
+- I never `heard` of sol.
+- I think i `heard` that.
+- I've `heard` all night.
+- I've `heard` it before.
+- I've `heard` that, too.
+- No one else `heard` it?
+- Pop.... you `heard` me.
+- Yeah, i `heard` rumors.
+- You haven't `heard` me.
+- You `heard` about that?
+- You `heard` from daddy?
+- Darling, i just `heard`.
+- `Heard` he got out okay.
+- `Heard` some bad things.
+- I distinctly `heard` it.
+- I `heard` he was around.
+- I `heard` what happened.
+- I `heard` you apologize.
+- I `heard` you screaming.
+- I `heard` you were sick.
+- I just `heard` from him.
+- I promise i `heard` you.
+- I *thought* i `heard`...
+- I thought i `heard` him.
+- It's not what i `heard`.
+- Never `heard` of k-mart?
+- No, i've `heard` bupkis.
+- Then you've `heard` too.
+- We `heard` all about it.
+- We `heard` an explosion.
+- Yes, we've `heard` that.
+- You ever `heard` of him?
+- You `heard` from reggie?
+- You `heard` him, norman.
+- You `heard` his, dieter.
+- You `heard` what i said.
+- You know what i `heard`?
+- Ah - you've `heard` that?
+- I `heard` whispering.
+- Bet you've `heard` of me.
+- But i `heard` of a place.
+- Have we `heard` from him?
+- Have you ever `heard` of.
+- `Heard` you were in town.
+- I have never `heard` one.
+- I `heard` about your son.
+- I `heard` he's fucked up.
+- I `heard` he was in town.
+- I `heard` him last night.
+- I `heard` something else.
+- I just `heard` them karl.
+- I never `heard` of a 908.
+- I take it you've `heard`.
+- I've `heard` of you, too.
+- I've never `heard` of it.
+- Not saw, `heard`...`heard`.
+- Parents `heard` from her?
+- That i've `heard` before.
+- Who ever `heard` of that?
+- Yeah, you `heard` of him?
+- You `heard` anything yet?
+                 

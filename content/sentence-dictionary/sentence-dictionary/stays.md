@@ -1,0 +1,64 @@
+---
+title: "stays in a sentence | stays example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stays"
+---
+- My heart `stays` here.
+- So who `stays` with me?
+- He `stays` in casablanca.
+- Your shepherd `stays` here.
+- Everyone's staying, `stays`.
+- Everything `stays` as it is!
+- Make sure he `stays` in bed.
+- I like a man who `stays` put.
+- Is this where no one `stays`?
+- Mr. brown `stays` in the car.
+- No, i figure he `stays` here.
+- The child of gabriel `stays`.
+- Wife `stays` here, of course.
+- I'll see that he `stays` calm.
+- Let's hope he `stays` that way.
+- This `stays` between you and i.
+- He `stays` with me all the time.
+- I got no clue where she `stays`.
+- Just make sure the iv `stays` in.
+- Well, i hope it `stays` that way.
+- That the human race `stays` alive.
+- Apologies, but he `stays` out of sight.
+- This way the rotation `stays` the same.
+- It doesn't work, it always `stays` black.
+- Raven `stays` here to build up defenses.
+- These are shrouds, and these are `stays`.
+- In the meantime, everybody `stays` on salary.
+- Until then--the dollar forty `stays` with me.
+- What does it matter who `stays` with the cop?
+- The power `stays` on, my offer's good till lunch.
+- The gold `stays` where it is til we're ready to go.
+- This is my house and i'll say who `stays` and goes.
+- I just want to make sure that honey `stays` in the hive.
+- She never `stays` in the same place two nights in a row.
+- But dad `stays` where <u>he</u> is, and i'm staying here!
+- What happens on the night shift `stays` on the night shift.
+- If you try a door and it `stays` shut, okay, it's off-limits.
+- So you're saying as long as that door `stays` locked, we're okay?
+- Alright, now, here: he `stays` on the ground in china til tomorrow.
+- He `stays` with us all night sometimes, but he's got his own house.
+- The only thing that `stays` the same about it is what it lives for.
+- I mean this... if faith `stays` you go away and never come back.
+- I'm hired to do a piece of work, my mark goes down and `stays` down.
+- It's not your fault you're married to a... no one `stays` out after dark.
+- No ... somone has to make sure this dock `stays` off-limits to civilians.
+- The marriage `stays` intact and the clones take care of her wifely duties.
+- No, it's not... and make sure my daughter `stays` put... ...she's grounded.
+- And it will take over the ice nation from now on, the gate `stays` closed.
+- Every birthday he `stays` home and plays everything john bonham ever recorded.
+- My interest in whether victor laszlo `stays` or goes is purely a sporting one.
+- You and your boys stay out of his way, i'll make sure he `stays` out of yours.
+- The attitude dictates that you don't care if she comes, `stays`, lays or prays.
+- He usually `stays` a day to check on his policy operations, and then flies back.
+- Just so i know you know, when i talk to people in confidence, it `stays` that way.
+- So she `stays` on ice with everyone else i mean, this is a state government agency.
+- A couple that battles the forces of evil together is a couple that `stays` together.
+- Unfortunately for you and your family, simpson, door `stays` locked, you know what i mean?
+                 

@@ -1,0 +1,107 @@
+---
+title: "speech in a sentence | speech example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "speech"
+---
+- A `speech` impediment?
+- Spare me the `speech`.
+- [muffled `speech`] aah!
+- On the `speech` centers.
+- How did your `speech` go?
+- Isn't that your `speech`?
+- They bought her `speech`.
+- Can i make a `speech` now?
+- It's a figure of `speech`!
+- I want to make a `speech`.
+- Very nice `speech`, peter.
+- It's an important `speech`.
+- That `speech` in the arena?
+- It was a figure of `speech`.
+- Spare me the noble `speech`.
+- Pretty good `speech`, maggie.
+- You did not like the `speech`?
+- Do me a `speech`, do me a line.
+- I helped him with his `speech`.
+- It's just a figure of `speech`.
+- I've heard this `speech` a lot.
+- Just a manner of `speech`, sir.
+- Isn't that <u>your</u> `speech`?
+- I've heard this `speech` before.
+- Try to cancel the last `speech`.
+- Remember the convention `speech`?
+- That's just a figure of `speech`.
+- You should work on your `speech`.
+- John doe, the one in the `speech`.
+- What was ] that `speech` in there?
+- I'll never get this `speech` right.
+- Where's he making his big `speech`?
+- Central school of `speech` and drama.
+- Have you got the `speech` i gave you?
+- I remember that `speech` really well.
+- What is this, your farewell `speech`?
+- Check out the checkers `speech` stuff.
+- You don't deserve my fucking `speech`!
+- He just gave me his "monster" `speech`.
+- I'm thinking of canceling the `speech`.
+- That's the last one in your `speech`...
+- The keynote `speech` is in two minutes.
+- Do you mean the `speech` you're writing?
+- I think i've heard this `speech` before.
+- [muffled `speech`] oh, byrne, thank god.
+- I don't want to hear your stupid `speech`.
+- Nice `speech`, although longer than grace.
+- Ned�i know�i know the `speech` is excellent.
+- .....wait til you hear the `speech` tonight.
+- It's the `speech` hop wrote for you and mike.
+- During a campaign every `speech` is important.
+- Tell'em to fly the inaugural `speech` past me.
+- Please not, 'the two kinds of people' `speech`.
+- Um, it can, but it's just a figure of `speech`.
+- A walking penis capable of intelligent `speech`.
+- So i wanted to pick up your rhythms of `speech`.
+- You don't have a `speech` impediment, dr. lester.
+- So how can they restrain his `speech` or retaliate?
+- Things like slur `speech` and irrational behaviour.
+- What was i doin' up there makin' a `speech`, anyway?
+- You must remember my `speech`... "who needs humans?"
+- Don't you want to listen to brown's victory `speech`?
+- I'd prefer we didn't refer to it as my last `speech`.
+- Did our friend announce when he's making his `speech`?
+- If you'll permit, may i read a `speech` in my defense?
+- I just wondered if you had gone over my `speech`, ben.
+- That's the `speech` you made the night you proposed. "
+- You're the only one who'll ever hear that `speech`.
+- Oh yeah, that was just um, you know, figure a `speech`.
+- Just give your `speech`.... and nothing about jews, okay?
+- Mr. alexander becomes frenzied as the `speech` progresses.
+- This is about freedom of `speech`, stan, about censorship.
+- What's the point in having a `speech` if i have to ad-lib?
+- Imagine dr. heffernan asking me what a keynote `speech` is.
+- It'll be on the teleprompter with the rest of the `speech`.
+- Why, that's the `speech` that lincoln made at gettysburg...
+- I need them to be ok. jaha's lucky he cut his `speech` short.
+- He'll think you're in the crowd until the end of the `speech`.
+- Here's the `speech` you make�and it's all written out for you.
+- You ever seen adolf hitler's eyes when he was making a `speech`?
+- Beany, go on down to the office, tell pop to give you the `speech`.
+- How many times in your <u>life</u> do you get a `speech` like that?
+- I-i don't know, maybe you should go back what's a keynote `speech`?
+- One senator just gave a `speech` slurring us 57 times in 20 minutes.
+- To carry out the principles you talked about in your radio `speech`.
+- Tell you what, if you want to blow off the sacramento `speech`, fine.
+- Wait till you get a gander at that `speech` you're gonna make tonight!
+- Any of the symptoms of pressure sickness, any tremors, slurred `speech`?
+- I don't know how she puts up with this damn `speech` impediment of mine.
+- If you have a great `speech` to save yourself, i need to have fun, bell.
+- Back in the sixties he was part of the free `speech` movement at berkeley.
+- I asked for a tough-as-nails `speech` and you gave me diplomatic bullshit.
+- Well, that `speech` she gave -- it was pretty, you know, pretty out there.
+- No matter how deep a hole he dug himself, he'd give you the whole `speech`.
+- Put... listen, it's not a question, we're locked <u>in</u> to this `speech`.
+- Say, tell me something did you read that `speech` you're gonna make tonight?
+- Stacy...stacy...maybe now isn't the best time for the i-told-you-so `speech`.
+- You see, she has her doctorate in `speech` impedimentology from case western.
+- Look out for hypothermia, things like slurred `speech` and irrational behavior.
+- We cannot afford free `speech` if it excises the moral fiber of this community!
+                 

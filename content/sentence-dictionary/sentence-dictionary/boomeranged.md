@@ -1,0 +1,7 @@
+---
+title: "boomeranged in a sentence | boomeranged example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boomeranged"
+---
+## Unfortunately, we have no example sentences for boomeranged                 

@@ -1,0 +1,107 @@
+---
+title: "works in a sentence | works example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "works"
+---
+- Here's how it `works`.
+- He `works` at gattaca.
+- He `works` for colson.
+- How this shit `works`?
+- I know how it `works`.
+- It is when it `works`.
+- That's how it `works`.
+- Gruner `works` for him.
+- Hey, it `works` for me.
+- If it `works` you mean.
+- `Works` for jimmy capp.
+- Yeah, that `works` out.
+- Anything in the `works`?
+- He `works` for friedman.
+- He `works` for gillette.
+- He `works` for mr. eddy.
+- He `works` on the movie.
+- I know how that `works`.
+- Maybe that `works`, huh?
+- She `works` at a church?
+- Which `works` out great.
+- Who cares if it `works`?
+- Ryan `works` at home.
+- Explain how that `works`.
+- He `works` for starcourt.
+- I'll show you it `works`.
+- It `works` perfectly now.
+- Okay, so the how `works`.
+- She `works` at les girls.
+- When they see it `works`.
+- But that's how it `works`.
+- But that's why it `works`.
+- He `works` in the kitchen.
+- I know who he `works` for.
+- It `works` the quadriceps.
+- Motherfucker `works` fast.
+- My mom `works` over there.
+- Natural selection `works`.
+- Nice how that `works` out.
+- That's not how it `works`.
+- That `works` at work, too.
+- This stuff really `works`?
+- Who now `works` sales, no!
+- Yeah, that `works` for me.
+- Barney `works` at the mill.
+- [beat] `works` like a drug.
+- He `works` for the airline.
+- Okay, so the "how" `works`.
+- Or the guy she `works` for?
+- What happens if it `works`?
+- Although that `works` too...
+- He no longer `works` for me.
+- I don't know how it `works`!
+- I just know that it `works`.
+- I know where dwight `works`.
+- Let's hope it still `works`.
+- Rachel's job is she `works`.
+- That is how history `works`.
+- That's not how this `works`.
+- They know who `works` there.
+- Anyhow, it never `works` out.
+- But the thumb always `works`.
+- He `works` out like a maniac.
+- How do we know if it `works`?
+- I bet it `works` out for you.
+- I do it 'cause it `works`-...
+- I told him where she `works`.
+- Our device `works` perfectly!
+- Say this heart thing `works`.
+- She only `works` when i'm on.
+- Tell me how all this `works`.
+- `Works` at the hitching post?
+- Because that's how it `works`.
+- Believe me, it always `works`.
+- But that's not how it `works`.
+- He `works` for frank abolofia.
+- Hey, this `works` pretty good.
+- If it `works`, don't fix it...
+- I'm not sure how this `works`.
+- Is that how it `works`, sorry.
+- Jesus, he `works` for me, too.
+- Oh, either way `works` for me.
+- Or is that how denial `works`?
+- President vetoes `works` bill?
+- She `works` for the president.
+- That isn't the way it `works`.
+- That's how it `works`, buster.
+- That's how the agency `works`.
+- That's not how korean `works`.
+- The young guy `works` for her.
+- We know how the stone `works`.
+- `Works` in the slaughterhouse.
+- You see, it `works` like this.
+- A boy who `works` in a grocery.
+- Five g's�or i crab the `works`.
+- He `works` at the funeral home.
+- He `works` for the post office.
+- If she is, the machine `works`.
+- Just the way the world `works`.
+- My wife `works` out at farm 22.
+                 

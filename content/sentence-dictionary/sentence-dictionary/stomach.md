@@ -1,0 +1,103 @@
+---
+title: "stomach in a sentence | stomach example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stomach"
+---
+- I got a bad `stomach`.
+- Oh, my poor `stomach`.
+- On an empty `stomach`.
+- Pit of your `stomach`.
+- Strong `stomach`, huh?
+- They had no `stomach`.
+- Here, in his `stomach`.
+- My `stomach`'s growling.
+- No -- it's my `stomach`.
+- You're in the `stomach`!
+- I got him in the `stomach`.
+- In the chest and `stomach`.
+- Then moves to my `stomach`.
+- All in the `stomach`, though.
+- Just hit me in the `stomach`.
+- Now, hit me in the `stomach`.
+- But i've got a weak `stomach`.
+- Punchin' you in the `stomach`?
+- You're `stomach`'s in the way.
+- Albert's got the `stomach` flu.
+- He shoots her in the `stomach`.
+- I got a `stomach` full of xanax.
+- My `stomach`'s not so good, man.
+- I just got a messed up `stomach`.
+- It makes me sick to my `stomach`.
+- I've got no `stomach` for murder.
+- That's how i ruined my `stomach`.
+- Through a wound on his `stomach`?
+- His `stomach` is out of whack.
+- They was givin' me sour `stomach`.
+- How's my `stomach` taste, she says.
+- Always thinking with your `stomach`.
+- I can't fight on an empty `stomach`.
+- It's burning a hole in my `stomach`.
+- Yeah, he got boxes in his `stomach`.
+- You don't have the `stomach` for it.
+- Those slimy things, in your `stomach`?
+- Gotta wind up with athlete's `stomach`.
+- He cut along the side of his `stomach`.
+- I've got no `stomach` for that any more.
+- You never had the `stomach` to be a god.
+- I don't want to hit you in the `stomach`!
+- No thanks, my `stomach`'s a little upset.
+- To be quite honest it turns my `stomach`.
+- I never discuss love on an empty `stomach`.
+- Pet--my `stomach` couldn't hold a bird seed.
+- Like a spear that comes out of your `stomach`?
+- Alex rams his stick into the tramp's `stomach`.
+- Here, here -- can't work on an empty `stomach`.
+- How'd you get that punch in the `stomach`, roy?
+- ...she went in complaining of `stomach` cramps.
+- That's when killer kicked him in the `stomach`.
+- I mean, you know what that does to my `stomach`?
+- Lie on your `stomach` and come up on your elbows.
+- We're getting to the bottom of this acid `stomach`.
+- Speakin' of moans my `stomach` is startin' to growl.
+- I took some aspirin and it really upset my `stomach`.
+- They been keepin' a folder on me cuz of my `stomach`.
+- Georgie hits alex in the `stomach` with his blackjack.
+- He's got an empty `stomach` and it's gone to his head.
+- He wrote his suicide note in lipstick on his `stomach`.
+- It's just a hunch, yet i feel it deep in the `stomach`.
+- The same type that decides to carve into her `stomach`.
+- Our only chaperon was the poor old lady's `stomach`.
+- Didn't think you had the `stomach` for another go-round.
+- You'll never pass that exam on an empty `stomach`, kara.
+- Is it sort of... like a sinking feeling in your `stomach`?
+- No, no-my, you know, my `stomach` felt queasy all morning.
+- Get that stuff out of her `stomach` -- if it isn't too late.
+- You don't read to fill your `stomach`... poetry, for instance.
+- But are there any drugs in that `stomach` to back up your story.
+- He cuts open the wolf's `stomach`, and the girl steps out alive.
+- How do you expect me to ring a curtain down on an empty `stomach`?
+- Bulletholes in exposed `stomach` badly concealed with body make-up.
+- One fight a day with veronica is about all i can `stomach`, thanks.
+- ...our original sponsor had no `stomach` for military applications.
+- That shit gives me a rash all under my arms and around my `stomach`.
+- You pumped her `stomach`, so, as we stand here at the corner - mike!
+- I don't think that that roller coaster agreed with your bad `stomach`.
+- She just rolled over onto her `stomach` and stuck her ass up in the air.
+- I haven't had my period for three months and my `stomach` is getting big.
+- She had a little pudge in her `stomach` but i didn't pay it no attention.
+- How can you sit there with your fat `stomach` and tell me to take it easy!
+- But, why would there be so many pieces in his `stomach` if it were nothing?
+- Evidently his `stomach` -- i don't think the food here is agreeing with him.
+- You're not gonna look like a fighter if you can't hit me in the `stomach`.
+- She doesn't have to take her panties off, we can see her `stomach` with 'em on.
+- You don't have the `stomach` to harm her, but you've got the money to shut her up.
+- The corridor nullifies our number... and no one has `stomach` to fight the captain.
+- Plus, you're the only person who doesn't stare at my `stomach` all the fucking time.
+- Don't you know the finest things in the world have been written on an empty `stomach`?
+- Valerie, it feels like there's a bunch of butterflies flapping around in my `stomach`.
+- Popcorn flies as maureen falls forward, into the aisle, clutching her bloody `stomach`.
+- Well, when 200 students are hospitalized with `stomach` cramps i think it's newsworthy.
+- Yeah - but that time we stole old lady haggerty's `stomach` off the coroner's physician.
+- We aim for the `stomach` or side... there's little chance the darts will pierce his hide.
+                 

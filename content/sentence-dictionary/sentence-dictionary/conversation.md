@@ -1,0 +1,107 @@
+---
+title: "conversation in a sentence | conversation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "conversation"
+---
+- End of `conversation`.
+- A casual `conversation`.
+- This is my `conversation`.
+- Only in mid-`conversation`.
+- This `conversation`'s over.
+- Only to make `conversation`.
+- This `conversation` is over.
+- To have this `conversation`.
+- I requested no `conversation`.
+- Never mind the `conversation`.
+- I'm just making `conversation`.
+- So let's have a `conversation`.
+- More stimulating `conversation`.
+- This `conversation` is finished.
+- I'm tired of this `conversation`.
+- Don't make `conversation` with me.
+- This `conversation` never occurred.
+- Ah how circuitous `conversation` is!
+- It was just a casual `conversation`.
+- Then we'll have a `conversation`.
+- I want a very private `conversation`.
+- Man, it's just, like, `conversation`.
+- That only leaves good `conversation`.
+- We're not having this `conversation`.
+- We've had this `conversation` before.
+- The `conversation` will start flowing.
+- We are going to have a `conversation`.
+- Yeah, fantastic `conversation`, marge.
+- Can't you have a normal `conversation`?
+- I'm having a rhetorical `conversation`.
+- Jack, he's starting a `conversation`...
+- Does this `conversation` have a purpose?
+- Hey, we're just having a `conversation`.
+- I don't want to have any `conversation`.
+- Then ... maybe shift the `conversation`.
+- Are we really having this `conversation`?
+- Bartender 1: whiskey is a `conversation`.
+- Have a `conversation` with a human being?
+- I don't want to have this `conversation`.
+- I was just trying to make `conversation`.
+- This `conversation` is hereby terminated.
+- This `conversation` is not worthy of you.
+- I'm just trying to start a `conversation`.
+- Should've been a `conversation`, but okay.
+- Was her breakfast `conversation` that bad?
+- Didn't we already have this `conversation`?
+- When did you guys have this `conversation`?
+- You mean the nature of this `conversation`?
+- I don't like a lot of `conversation`, diego.
+- We never would have had this `conversation`.
+- What do you think, this is a `conversation`?
+- I'm in no mood to have a lewd `conversation`.
+- Is that all this `conversation` means to you?
+- I�m not having this `conversation` right now.
+- We are not having a "duality" `conversation`.
+- We've had this `conversation` already, daniel.
+- You don't have to make `conversation` with me.
+- You're interrupting a personal `conversation`.
+- Are we going to have this `conversation` again?
+- He's interested in you for your `conversation`.
+- I thought we were just having a `conversation`.
+- This `conversation` is making me a little sick.
+- We're about two people having a `conversation`.
+- A good meal makes `conversation` so much easier.
+- Damned to an eternity of idiotic `conversation`.
+- Didn't we have this same `conversation` in july?
+- Look, man, i don't want friendly `conversation`.
+- Look, this `conversation` is utterly ridiculous.
+- We'll never remember we had this `conversation`.
+- If not, we can forget we had this `conversation`.
+- I'm really glad we're having this `conversation`.
+- Our `conversation` could have been over long ago.
+- The `conversation` will just keep getting longer.
+- This is going to be a very polite `conversation`.
+- `Conversation`...yes...well... wasn't she briefed?
+- I don't understand any part of this `conversation`.
+- That's a, that's a fountain of `conversation`, man.
+- Yes, we're going to have this `conversation` again.
+- This is not an appropriate time for a `conversation`.
+- Oh, i see, you write both sides of the `conversation`?
+- We wouldn't be having this `conversation` if i didn't.
+- "i can't make `conversation` unless it's about gaming."
+- I couldn't expect a religious `conversation` overnight.
+- I don't know why we're even having this `conversation`.
+- There's something we could have a `conversation` about.
+- Your `conversation` has one marvelous advantage, swana.
+- Donnie, i'm afraid i can't continue this `conversation`.
+- Even had a real `conversation` with a real negro before?
+- Having this `conversation` in this room, at this moment.
+- I don't want this to be the last `conversation` we have.
+- In a week... we will never have had this `conversation`.
+- It's all about bucks, kid, the rest is `conversation`...
+- Least you could do is make some friendly `conversation`.
+- So this is the first time we've had this `conversation`.
+- But that's just `conversation`... what about real things?
+- But yet it's only a snippet of the cosmic `conversation`.
+- I had a whole `conversation` with the man when he woke up.
+- It's like having a `conversation` with a couple of onions!
+- The `conversation` on this tape is totally unintelligible.
+- The one thing you don't want is air in the `conversation`.
+                 

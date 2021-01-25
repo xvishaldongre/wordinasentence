@@ -1,0 +1,107 @@
+---
+title: "calls in a sentence | calls example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "calls"
+---
+- I told you no `calls`.
+- No `calls`, in or out.
+- Oh well, duty `calls`.
+- Hana `calls` after him.
+- I get a lot of `calls`.
+- I'll make some `calls`.
+- Just, he never `calls`.
+- No one `calls` me 'mrs.
+- Were there any `calls`?
+- You told me no `calls`.
+- Alfred, hold my `calls`.
+- `Calls` for speculation.
+- Just `calls` it history.
+- No one `calls` you that.
+- One she `calls` bernard.
+- He `calls` himself "joe".
+- Just... he never `calls`.
+- No one `calls` me pattee.
+- This `calls` for a feast.
+- This `calls` for a joint.
+- This `calls` for dignity!
+- Everybody `calls` me mack.
+- Everyone `calls` me birdy.
+- Not until the man `calls`.
+- That's what he `calls` it.
+- All the ugly phone `calls`?
+- Anyway, uh, nature `calls`.
+- He `calls` himself "marge."
+- Here are tonight's `calls`.
+- I got to make some `calls`.
+- I haven't made any `calls`.
+- I'm expecting some `calls`.
+- No `calls` from inside out.
+- She `calls` it the citadel.
+- That's what she `calls` it.
+- That's what she `calls` me.
+- There've been some `calls`.
+- What `calls` came in today?
+- He `calls` it the tarantula.
+- He `calls` me... may i pass?
+- Hold all my `calls`, janine.
+- I intercepted phone `calls`.
+- I need to make some `calls`.
+- Infant death, he `calls` me.
+- Nobody ever `calls` me that.
+- She usually `calls` me loud.
+- That's what she `calls` her.
+- You don't return my `calls`.
+- But everybody `calls` me lsd.
+- Hardly anyone `calls` me tom.
+- He didn't make those `calls`.
+- Low `calls` him suspect zero.
+- * my mother `calls` me teddy.
+- My old man `calls` the shots.
+- No more little prank `calls`.
+- Overlapping distress `calls`.
+- So you're holding my `calls`?
+- You know what he `calls` you?
+- Because of your phone `calls`.
+- Caesar `calls` him the driver.
+- Local `calls` cost five cents.
+- That's what alma `calls` them.
+- Who `calls` me a foreigner?
+- How much for the phone `calls`?
+- I made a few `calls` back east.
+- She `calls` him tommy... mm-mm.
+- This `calls` for a celebration.
+- A voice `calls` in a kidnapping.
+- Dad said he'd make some `calls`.
+- Everybody `calls` him "cueball."
+- I made the `calls`... who is it?
+- Lois `calls` out to the balcony.
+- ...my mother `calls` every week.
+- Distress `calls` have been made."
+- Lady hampton `calls` impatiently.
+- Mr. soze made a few `calls`, yes.
+- We got `calls` to make, you know.
+- Caesar `calls` it "the |business."
+- Daddy `calls` it an "altercation."
+- Just a crank making phone `calls`.
+- Like weird `calls`, by any chance?
+- The woman question, he `calls` it.
+- A guy who `calls` himself armitage.
+- Counselor `calls` it harmless?!
+- Don't take the kidnapper's `calls`.
+- Everyone `calls` me jimmy the finn.
+- I've got important `calls` to make.
+- You're going to ignore his `calls`.
+- You want me to place a few `calls`?
+- He only `calls` you when he's drunk.
+- I never got those telephone `calls`.
+- People won't even return my `calls`.
+- What'll i tell him if he `calls` up?
+- She won't return my `calls` or texts.
+- Funny, nobody `calls` it that anymore.
+- Meanwhile, you make `calls` back home.
+- No wonder everybody `calls` you a bum.
+- Oh, i hate it when he `calls` me that.
+- Secret service `calls` 'em superbills.
+- First, the idiot april `calls` in sick.
+                 

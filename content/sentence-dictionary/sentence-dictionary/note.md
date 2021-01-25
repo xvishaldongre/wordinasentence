@@ -1,0 +1,107 @@
+---
+title: "note in a sentence | note example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "note"
+---
+- Did you get my `note`?
+- It's a suicide `note`.
+- Somebody make a `note`.
+- To leave my--my `note`.
+- What, it left a `note`?
+- But look at this `note`.
+- Give me the damn `note`.
+- Hauser left me a `note`.
+- Let's look for a `note`.
+- Go and look for a `note`.
+- I'll make a `note` of it.
+- Never a thank you `note`.
+- Should we leave a `note`?
+- The killer left a `note`.
+- How did he take my `note`?
+- She didn't leave a `note`.
+- They found another `note`?
+- I'll make a `note` of that.
+- The `note` to take us home!
+- But i never saw that `note`!
+- Gotta `note` and everything.
+- I have a `note` from mother.
+- Let's make a `note` of that.
+- Hit the right `note`, always.
+- I'll make a `note`, in a book.
+- It ends on such a down `note`.
+- So, she didn't leave a `note`?
+- This `note` is a suicide `note`.
+- I detect a `note` of reticence.
+- No, i need the original `note`.
+- Do you have to leave the `note`?
+- I found a `note` in the kitchen.
+- I left a `note`, on his blanket.
+- Take a `note` of that, mitchell.
+- Do i detect a `note` of jealousy?
+- I gave the kay- ducer a c-`note`.
+- What about the suicide `note`?
+- I've got your `note` in my pocket.
+- Well ... we'll leave her a `note`.
+- You've made a `note` of that, huh?
+- Don't worry about the `note`, baby.
+- I got this `note`... oh, no... you.
+- I've not heard a `note` out of you.
+- I was surprised to get your `note`.
+- Well ... yes ... you got my `note`!
+- `Note` to self... we still got time.
+- Oh, i was just writing you a `note`.
+- Right after she dropped this `note`.
+- A mortgage anna `note` from the bank.
+- Are you the one who left that `note`?
+- I hope he doesn't write you a `note`.
+- Is that what your little `note` says?
+- Is there any way i can send a `note`?
+- The second `note` to wake the gods...
+- `Note` that she said 'pretty clearly'.
+- Write me a `note` and ain't she sweet.
+- Still, make a `note` i recognized that.
+- Who do we send the thank you `note` to?
+- I came home early and found your `note`.
+- No, i don't -- i'll make a `note` of it.
+- All arkadia security personnel, a `note`.
+- A `note` right out in the open like that.
+- Duty officer so `note` in the ship's log.
+- That's a lucky c `note` for our new deal.
+- He wants to leave things on a good `note`.
+- The personal `note` is all there is to it.
+- A thank-you `note` for what you did for me.
+- That's what the `note` is about, mrs. kane.
+- Dr. chilton, please do not handle the `note`.
+- Look, this one has an old handwritten `note`.
+- All i said in the `note` was: "where are you?"
+- Have you discussed the `note` with dr. hudson?
+- I get a `note`... what <u>is</u> your problem?
+- Do you ask miles where he got that `note` from?
+- You're not still writing that thank-you `note`?
+- But before i went away i left you that `note`...
+- Make a `note` of that word and give it to susan.
+- I made miss - miss alexander send you the `note`.
+- I pretended to be a flimsy, one-`note` character.
+- What a positive `note` on which to end the class.
+- When kids run, they almost always leave a `note`.
+- But hang on -- there's a `note` to "see addendum."
+- Some `note` shawnee easton told me to give to you.
+- You need a `note` from your parents for havenbrooke.
+- Dick, please make a `note` of our final position.
+- Put a `note` on my desk in the morning: "think thin."
+- Have you made a `note` of these responses, mr. levitt?
+- He wrote his suicide `note` in lipstick on his stomach.
+- I had to figure that out, since there wasn't no `note`.
+- Pure gold it is... plays a different `note` every time.
+- Found another `note`, same thing, no name, no signature.
+- I wrote them a `note` once, and told them to clean it...
+- Well, rod, your agent passed me a `note` before the show.
+- Take out a pen, write yourself a `note`, do not trust her.
+- Please `note` i did not identify any one in particular.
+- I was working... can't you just drop me a thank-you `note`?
+- I'm sorry i didn't call sooner, but i just read your `note`.
+- The thing that really got to me... she didn't leave a `note`.
+- Um, well... do you have a `note` to corroborate these claims?
+- We would give you a promissory `note`... twenty-five percent.
+                 

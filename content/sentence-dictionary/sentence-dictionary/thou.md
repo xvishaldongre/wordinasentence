@@ -1,0 +1,104 @@
+---
+title: "thou in a sentence | thou example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thou"
+---
+- Yea, art `thou` there?
+- For `thou` art with me.
+- There art `thou` happy.
+- Yea, art `thou` there?!
+- `Thou` art my souls hate!
+- '`thou` art then a king?'
+- Go `thou` and sin no more.
+- How oddly `thou` repliest!
+- `Thou` may fool the world.
+- `Thou` talk'st of nothing.
+- Tush, `thou` art deceived.
+- Kiss the 85 `thou` goodbye?
+- `Thou` needest not be gone.
+- Wherefore art `thou` romeo?
+- Why, romeo, art `thou` mad?
+- Hast `thou` anything to say?
+- Why then, there `thou` hast.
+- Like "`thou` shall not kill"?
+- Hast `thou` not a word of joy?
+- Dost `thou` live to ask it?
+- Speakest `thou` from thy heart?
+- `Thou` hast most kindly hit it.
+- '`thou` sayest it; i am a king.
+- `Thou` art consortest with romeo?
+- What wouldst `thou` have with me?
+- "�`thou` need'st not to be gone."
+- 'art `thou` the king of the jews'?
+- `Thou` art a subject of the divine.
+- What does `thou` make us minstrels?
+- Art `thou` not romeo and a montague?
+- "`thou` shalt not..." `thou` shalt not.
+- Hence from verona art `thou` banished.
+- O wilt `thou` leave me so unsatisfied?"
+- O, wilt `thou` leave me so unsatisfied?
+- "o wilt `thou` leave me so unsatisfied?"
+- Pop, a k-whopper's worth seventy `thou`.
+- Dost `thou` love, `thou` charming maid?
+- `Thou` shall have no other god before me.
+- God pardon sin, was `thou` with rosaline!?
+- This is dear mercy and `thou` sees it not.
+- `Thou` chid'st me oft for loving rosaline.
+- What, then, didst `thou` in thy mind have?
+- Do as `thou` wilt for i have done with thee.
+- O, think'st `thou` we shall ever meet again?
+- Hast `thou` no letters to me from the priest?
+- What satisfaction canst `thou` have to-night?
+- Geth thee to be and rest, for `thou` has need.
+- I' faith, i am sorry that `thou` art not well.
+- `Thou` shall not kill... you've killed, right?
+- Well, it is not my fault that `thou` art tiny.
+- Well, `thou` hast comforted me marvelous much.
+- Thought `thou` could killeth me, didth `thou`-th?
+- "what satisfaction can'st `thou` have tonight?"
+- Dost `thou` not bring me letters from the priest?
+- How camest `thou` hither, tell me, and wherefore?
+- No warmth, no breath shall testify `thou` livest .
+- `Thou` must find thy peace at the center, richard.
+- `Thou` wast the prettiest babe that e'er i nursed.
+- One weapon fused for air burst at ten `thou`- sand.
+- Nurse, `thou` know'st my daughter's of a pretty age.
+- So keep your goddamn holier-than- `thou` mouth shut!
+- They pray, grant `thou`, lest faith turn to despair.
+- "`thou` shall not covet thy neighbour�s wife", ethan.
+- `Thou` art as hot a jack in thy mood as any in verona.
+- That's my good son: but where hast `thou` been rosaline?
+- `Thou` art stronger than harold ... stronger than arthur.
+- Wherefore railest `thou` on thy birth the heaven and earth?
+- Feather of lead-- [benvolio snickers] dost `thou` not laugh?
+- Is rosaline that `thou` didst love so dear so soon forsaken?
+- O, romeo that she were an open ass, and `thou` a poperin pear!
+- That `thou` mayest have part with christ unto life everlasting.
+- An `thou` make minstrels of us look to hear nothing of discords.
+- 'dost `thou` say this of thyself, or have others told thee of me?'
+- I would `thou` hadst my bones, and i thy news: i pray thee, speak.
+- That `thou` goest out and depart from this servant of god, michael.
+- Harold may have lost touch with his bible, but `thou` must never lapse.
+- Affliction is enamoured of thy parts, and `thou` art wedded to calamity.
+- Nurse, come back again; i have remember'd me, `thou`'s hear our counsel.
+- "i come, anon--but if `thou` meanest not well, i do beseech thee--" "madam!"
+- Show mercy... oh `thou` great king... and win the respect of your own people.
+- That's from when they were making eighteen `thou`- sand a week, and no taxes.
+- So, captain hawk, in one of your paws you got a gold bar worth about 8 `thou`.
+- 'tis but thy name that is my enemy; `thou` art thyself, though not a montague.
+- Exit, above so thrive my soul-- i gave thee mine before `thou` didst request it!
+- Methinks i see thee, now `thou` art so low, as one dead in the bottom of a tomb.
+- "i know thy works and thy labour and how `thou` canst not bear them that are evil.
+- I'll tell thee as we pass; but this i pray, that `thou` consent to marry us today.
+- Watch that... do watch that, o dim, if to continue to be on live `thou` dost wish.
+- Worse poison to men's souls, than these poor compounds that `thou` mayest not sell.
+- Take `thou` this vial, being then in bed, and this distilling liquor drink `thou` off.
+- `Thou` hast tried them who say they are apostles and hast found them to be liars".
+- I don't want to be holier-than-`thou`, but the girl doesn't have the same outlook we do.
+- Be fickle, fortune, for then i hope that `thou` will not keep him long but send him back.
+- `Thou` shalt be borne to that same ancient vault where all he kindred to the capulet lie.
+- If `thou` lose hope being weary in the days of distress, thy strength shall be diminished.
+- 'amen i say to thee, `thou` wilt not come out from it until `thou` hast paid the last penny.'
+- I can't stand that holier than `thou` bullshit and yet, i'm completely infatuated with her.
+                 

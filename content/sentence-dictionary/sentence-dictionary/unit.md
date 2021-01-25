@@ -1,0 +1,84 @@
+---
+title: "unit in a sentence | unit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unit"
+---
+- Put a `unit` out there.
+- Run sequence, `unit` 3.
+- The cryo `unit` leaked.
+- `Unit` two, this is one.
+- We just want the `unit`.
+- Your `unit` is mine now.
+- Are you on a ground `unit`?
+- The `unit` wasn't finished.
+- What `unit` were you with ?
+- I need your tactical `unit`.
+- Tell us where the `unit` is.
+- Where's that damn `unit`??!!
+- `Unit` 4, what's your status?
+- You've torn the `unit` apart.
+- That `unit` no longer functions.
+- No, this is just the second `unit`.
+- The cooling `unit` on the other.
+- Fine, but the civil terrorism `unit`?
+- He was in my civil air patrol `unit`.
+- I repeat, hostiles on east `unit` 12.
+- We're a rescue `unit`, not assassins.
+- He could still have the `unit` on him.
+- Swat is a lifesaving `unit`, you know.
+- The `unit` is still operational, dave.
+- Get a highway patrol `unit` over there.
+- My dad is training for a ground `unit`.
+- Uh hey, does anyone wanna see my `unit`?
+- I've got an elsur `unit` on the scene now.
+- Lightweight forward area air device `unit`.
+- It's just a housing `unit` for nanoparticles.
+- This is detective stern with the arson `unit`.
+- The mobile `unit` will be my sole power source.
+- Okay, so do you see a door marked "core `unit`?"
+- Part of a chemical warfare `unit` out of saigon.
+- The mobile `unit` would be my sole power source.
+- We left a `unit` in the field to keep searching.
+- Sir, i've got an overload in disposal `unit` four.
+- `Unit` nine found a couple cold ones in hollywood.
+- Within you are memory patterns of a carbon `unit`.
+- Females in combat situations impact `unit` cohesion.
+- This was a selective operations `unit`, agent levoi.
+- The collection `unit` activates when you decouple it.
+- "we" being the behavioral science `unit`, at quantico.
+- We can't pump poison gas down into the cooling `unit`!
+- You used to be in the behavioral science `unit`, right?
+- Kirk-`unit`, <u>why</u> do you not disclose information?
+- Simon, i'm going to check rok's secondary readout `unit`.
+- Until i was sure my cadet `unit` my god, you're pathetic.
+- Well... hal's reported the ao-`unit` about to fail again.
+- The one on `unit`... oh, i think it's gmr twelve zero zero.
+- The shepherd's `unit` will be with him second man: quiet!
+- We seem to have a malfunction in disposal `unit` four, sir.
+- I'm told his `unit` mates gave him the nickname, "old shoe."
+- We were a secondary `unit`, and i was pretty shaky going in.
+- You better get back there and monitor the regulatory `unit`.
+- I'm flying in some guys from your `unit` in vietnam tomorrow.
+- Shows an impending failure of the antenna orientation `unit`.
+- A `unit` was a block away, and the suspect got trapped inside.
+- So we either die in these bodies `unit` 4, what's your status?
+- You were sent here to assist in a selective operations `unit`.
+- We're computer locked and the manual navigation `unit` is down.
+- Load it in bodhi's truck and take it to a public storage `unit`.
+- My opinion, terrorists... what's the scoop on that stolen `unit`?
+- While the rest of us wait down in the cooling `unit` with the net.
+- The trendy paper lamps, the euro-trash shelving `unit`, am i right?
+- Give us the `unit` now... you must bow down to the almighty bunghole.
+- We're filtering at the pump, i think we should arm the entire `unit`.
+- Hythylodium is killing everyone the rest of our `unit` is expecting you.
+- The x-5 `unit` is a new top-secret biological weapon, a manmade virus...
+- Geordi equipped me with the prototype for the emergency transport `unit`.
+- Two: of all the members of your `unit` you were the most highly decorated.
+- Whatever information this r-2 `unit` is carrying, it must be awfully important.
+- It's a legally rentable `unit` grandfathered when south laguna was incorporated.
+- We're going to be working as a `unit`, you people will be taking orders from me.
+- It seems your department doesn't believe out new `unit` is to the public benefit.
+- But you are aware, he served in your civil air patrol `unit` when he was a teenager.
+- Dumford, kindly return to your `unit` bring them here immediately to support pulleine.
+                 

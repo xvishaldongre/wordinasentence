@@ -1,0 +1,76 @@
+---
+title: "doll in a sentence | doll example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doll"
+---
+- I said "`doll`-hairs."
+- No, doc, not a `doll`.
+- Eighty million `doll` ?
+- Is there -- a `doll`?
+- Give me the `doll` hairs.
+- Hi, `doll`, what's wrong?
+- I thought so too, `doll`.
+- He called the `doll` hope.
+- Still a `doll`-faced mugg!
+- That's a "rookies" `doll`.
+- A `doll`'s legs catch fire.
+- Promise not to tell `doll`?
+- You dress me like a `doll`.
+- But there's the `doll`, sir.
+- Don't call me `doll`, larry.
+- Do you believe that, `doll`?
+- No, `doll`, i listen to you.
+- Turn me into a paper `doll`.
+- What are they doing, `doll`?
+- He was running like a `doll`.
+- Make a `doll` of her in turn?
+- A `doll` alone proves nothing.
+- Black and curly, like a `doll`.
+- This is from me to you, `doll`.
+- You make my hair like a `doll`.
+- `Doll`, you and waski run on, too.
+- I hate it when you call me `doll`.
+- I sold the pee-wee herman `doll`!!
+- So, `doll`, what about you lately?
+- Thanks... you can keep the `doll`.
+- But princess margaret was a `doll`.
+- I ain't sure...where's that `doll`?
+- `Doll`, don't ask childish questions.
+- Dumbness doesn't concern her, `doll`.
+- He's happy, darlin .. she's a `doll`.
+- She was playing with the pooh `doll`.
+- Anyway, see you tonight, `doll`, okay?
+- That's why i got you this gig, `doll`.
+- You shouldn't watch such things, `doll`.
+- He throws ajakutty like a rag `doll`!
+- In a few minutes there will be no `doll`.
+- We're all desperate for the money, `doll`.
+- Incidentally, what happened to that `doll`?
+- Be a `doll` and just get me a perrier, okay?
+- I am not a `doll`...i' m not silly and cute.
+- It's just like dressing a great, big `doll`.
+- You used to love it when i called you `doll`.
+- It isn't that she hasn't got any sense, `doll`.
+- So, when are you getting a plastic fuck `doll`?
+- I'm talking about much, much more than a `doll`.
+- They're in this antique `doll` house in my room.
+- Listen, `doll` - what time do you get off tonight?
+- Yes, i'm afraid that would be from the `doll`'s eye.
+- Claudia - don't - you want me to be a `doll` forever?
+- I'm sorry, `doll`, i just didn't want you to be late.
+- I'll phone daddy and you go get `doll` baby and waski.
+- You wouldn't have taken me if i hadn't been `doll`-faced!
+- Her real name is frances, but we call her dolly or `doll`.
+- You always give me the `doll` on the same night of the year.
+- I was just about to ask your for some... you're such a `doll`.
+- She was playing with my pooh `doll` again... sweetheart, c'mon.
+- Nobody wants you to stop making money, `doll`, not even uncle sam.
+- My favorite thing when i was a kid was my huckleberry hound `doll`.
+- I had them do it off a `doll` that i made, so it's not like it's off a picture.
+- Let me get at that typewriter and i'll show you how a `doll`-faced mugg can write!
+- ...so the whole book winds up, mike hammer, he's inna room there with this `doll`.
+- Look, `doll`, if i wanted underwear, i woulda broken into frederick's of hollywood.
+- Now rose, the little girl sitting across from you with the blue eyes is `doll` baby.
+- I took a little `doll`-faced mugg -- i know, walter, but i -- well, go on and take it.
+                 

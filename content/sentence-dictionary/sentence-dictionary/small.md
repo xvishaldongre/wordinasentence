@@ -1,0 +1,107 @@
+---
+title: "small in a sentence | small example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "small"
+---
+- Big family... `small`?
+- I am a `small` player.
+- Just a `small` defect.
+- Mine were too `small`.
+- Mister `small` time...
+- `Small` but important.
+- `Small`, very compact.
+- We need a `small` key.
+- A very `small` service.
+- Big ones, `small` ones.
+- In `small` bills, cash.
+- It was a `small` house.
+- One very `small` thing.
+- Too `small` for a tuba.
+- Except for `small` eyes.
+- Maybe that `small` rock.
+- `Small`, but profitable.
+- `Small` world, isn't it?
+- There's a `small` ledge.
+- It's a `small` town, man.
+- Two `small` kids at home.
+- Well, that's too `small`.
+- It's a `small` town, okay?
+- It's a very `small` place.
+- Just another `small` town.
+- No, this is a `small` one.
+- People here think `small`.
+- The first wave is `small`.
+- The first wave is `small`.
+- The gazette's `small` huh?
+- Well, it's a `small` town.
+- Well, well, `small` world.
+- Yeah, i know it's `small`.
+- Bizarre `small` world, huh?
+- Doesn't matter how `small`?
+- It's a `small` world, carl.
+- Just a `small` green salad.
+- Look at it it's so `small`.
+- More like a `small` person.
+- `Small` event but dramatic.
+- That's no `small` potatoes.
+- Why don't we start `small`?
+- Now the `small` of the back.
+- Those sound kind of `small`.
+- Very `small` pay, i imagine.
+- When i was a `small` boy....
+- I shall need a `small` plane.
+- She didn't have `small` eyes.
+- The colt's still too `small`.
+- Don't sweat the `small` stuff.
+- Goddamn you got a `small` ass.
+- How `small` she make you feel.
+- Look how `small` that fuse is!
+- They're shrubs, `small` trees.
+- With one `small` modification.
+- But it's a `small` room, jason.
+- I wanna do a `small` buy first.
+- They're crated up real `small`.
+- You `small` town guys are good.
+- A `small`, "calico" kitten, sir.
+- A `small` loan would be welcome.
+- Be grateful for `small` mercies.
+- Goddamned `small` town bullshit.
+- He's looking for `small` change.
+- I have a `small` window of time.
+- I need a `small` child out here.
+- In some `small` ways, lightning.
+- Not too big and not too `small`.
+- One of life's `small` pleasures.
+- ... that is a very `small` room.
+- We're a `small` convent, bishop.
+- ...would you use a `small` word?
+- You done with your `small` talk?
+- You're too `small` to be bogart.
+- I can see your `small` business !
+- It's all about the `small` stuff.
+- Not too good at `small` talk, eh?
+- Such a `small` and weak creature.
+- A `small` family place, good food.
+- Everything just looked so `small`.
+- It's too `small` to be a dropship.
+- Maybe a `small` roadside memorial.
+- My parents live in a `small` town.
+- Perhaps a `small` amount of money.
+- `Small` versions of adults, honey.
+- Such a `small` word will never do!
+- There's a `small` community of us.
+- Why do i have such a `small` desk?
+- It doesn't work on `small` animals!
+- It's the pictures that got `small`.
+- L.a.'s a `small` town, people talk.
+- Makes you feel `small`, doesn't it?
+- Oh, don't play it `small`, charlie.
+- `Small` army, from the looks of it.
+- A `small` bump just under your skin.
+- A `small` house... with `small` rooms.
+- Big fish in a `small` pond, he says.
+- Eddie, i'm just a `small`-town girl.
+- I got a problem with `small` places.
+- I'm from a `small` town in slovakia.
+                 

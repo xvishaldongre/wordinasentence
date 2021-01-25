@@ -1,0 +1,88 @@
+---
+title: "knowledge in a sentence | knowledge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knowledge"
+---
+- Not to my `knowledge`.
+- It's public `knowledge`.
+- He has great `knowledge`.
+- His `knowledge` is great.
+- I needed this `knowledge`.
+- That's common `knowledge`.
+- `Knowledge` i wouldn't want.
+- We acquire more `knowledge`.
+- Do they have that `knowledge`?
+- I have no `knowledge` of that.
+- Please, it's common `knowledge`.
+- `Knowledge` of how to steal food?
+- And your `knowledge` of this world.
+- Of energy, `knowledge` and sparkling.
+- Sometimes `knowledge` is a curse, ed.
+- This is the storeroom of `knowledge`.
+- Read you're a man of some `knowledge`.
+- Combining ancient `knowledge` with new?
+- His `knowledge` is probably limitless..
+- But the `knowledge` is of no use to you.
+- We have ways of digging out `knowledge`.
+- It would erase all our `knowledge` of it.
+- `Knowledge` like that might come in handy.
+- Either way, you come away with `knowledge`.
+- They found our `knowledge` useful for a time.
+- By the `knowledge` that he... that's how i feel.
+- I have all of humanity's `knowledge` to explore.
+- In which part of me did this `knowledge` reside?
+- You're not the only one cursed with `knowledge`.
+- A jedi uses the force for `knowledge` and defense.
+- It has infinite genetic `knowledge` stored inside.
+- True, but that's hardly common `knowledge`, is it?
+- By the `knowledge` that he - why is this all on me?
+- Honor- bound to expand the frontiers of `knowledge`.
+- Possessed of an encyclopedic `knowledge` of the law.
+- I'm giving you a gift, absolute power and `knowledge`.
+- It's common `knowledge` you hate children and animals.
+- With madi's `knowledge` of the woods, i don't think so.
+- Yeah, and it's the truth, to the best of my `knowledge`.
+- We gonna drop some `knowledge`, wisdom and understanding.
+- I didn't have the `knowledge` of klingon anatomy i needed.
+- I have a full working `knowledge` of the ships operations.
+- I am equally impressed with your `knowledge` of the market.
+- I wish i didn't have such bitter `knowledge` of you, cathy.
+- But... you ever been in this town before, to your `knowledge`?
+- He believed the key to self-`knowledge` was emotion, not logic.
+- We must live with the `knowledge` that there is no `knowledge`.
+- How could all my father's `knowledge` and skill fail to save her?
+- What all men have sought since time began - ultimate `knowledge`.
+- Do you have any `knowledge` of the tactical abi1ities of this ship?
+- Mountain view... not to my `knowledge`, no... you cashed the check?
+- Our `knowledge` may forestall their plans to step up the timetable.
+- The `knowledge` you offer an inguinal hernia is no laughing matter.
+- How much `knowledge` does it take before a man does something crazy.
+- All we do is cling to the old `knowledge` instead of seeking the new.
+- It has no history books... it has no `knowledge` of sorrow or regret.
+- You know how certain circles would find it--the `knowledge`--a threat.
+- There are opportunities in life for gaining `knowledge` and experience.
+- You owe him your science, your language, whatever `knowledge` you have.
+- I want my students to emerge with theoretical and practical `knowledge`.
+- I must say, professor your `knowledge` of engineering is most impressive.
+- The `knowledge` and experience he sought were forbidden by vulcan belief.
+- Luke, use the force only for `knowledge` and for defense, not as a weapon.
+- The `knowledge` we gain, the achievements we leave behind... those live on.
+- This was first hand, experiential `knowledge`, the essence of the universe.
+- I don't like your possessive attitude, nor your hints of secret `knowledge`.
+- In a court of law they could prove that i have `knowledge` of his whereabouts.
+- There, there... common `knowledge`, mrs. peel ... is that written in his shoe?
+- I don't want to get blood our survival depends on us sharing your `knowledge`...
+- ...what is it that makes us human, if not the `knowledge` that we are indeed human?
+- You think it's `knowledge`, but it's a kind of memory, a kind you take for granted.
+- I have lived in this place, like my fathers before me, guarding the old `knowledge`.
+- But in this case, the mission requires a certain `knowledge` of 21st century history.
+- I doubt if people nowadays have `knowledge` of a victory garden or seen an inch worm.
+- From your `knowledge` of mitchell, would you say he would be likely to commit suicide?
+- Okay, you are a category five hurricane of `knowledge`, - no, but they wouldn't see me.
+- You don't die a prince, he's a fraud, but he does have `knowledge` you'd all be heroes.
+- I wouldn't have to walk around with the `knowledge` that someone like you was out there.
+- You can predict specific reactions and behavior and are comfortable in that `knowledge`.
+- He opened up for her a whole beautiful world full of `knowledge` and thoughts and ideals.
+- She says it was common `knowledge` around the office that her lesions were caused by aids.
+                 

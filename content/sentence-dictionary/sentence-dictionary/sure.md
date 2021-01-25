@@ -1,0 +1,107 @@
+---
+title: "sure in a sentence | sure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sure"
+---
+- But -- are you `sure`?
+- But i can't be `sure`.
+- But let's make `sure`.
+- Delighted, i'm `sure`.
+- He's `sure` to get it.
+- How can you be `sure`?
+- I feel `sure` of this.
+- I'm just `sure` of it.
+- I'm not really `sure`.
+- I'm not `sure` i will.
+- I'm not `sure`, yet...
+- I'm `sure` she's fine.
+- I'm `sure` we're okay.
+- I'm `sure` you're not.
+- I'm, uh, not `sure`...
+- Is good news i `sure`!
+- I `sure` know i would.
+- It `sure` could, yeah.
+- Just had to be `sure`.
+- Louis, are you `sure`?
+- Now i'm not so `sure`.
+- Of course, i'm `sure`.
+- Oh `sure` ... you bet.
+- Pg& -- are you `sure`?
+- Pleasure `sure` thing.
+- She `sure` sings nice.
+- `Sure`, evan, why not?
+- `Sure` i can, can't i?
+- `Sure`, i'm on my way.
+- `Sure` looks that way.
+- `Sure`, see you later.
+- `Sure` sounds like it.
+- `Sure`, `sure`, give go.
+- `Sure` take after him.
+- `Sure`, they're safer.
+- `Sure`, you got drunk.
+- `Sure`... you're `sure`?
+- `Sure` you won't mind?
+- `Sure` you won't stay?
+- To be `sure`, captain.
+- We'll know for `sure`.
+- Well, `sure`, i guess.
+- Why `sure`, boy, `sure`.
+- Win it, pretty `sure`.
+- Yeah, `sure`, i guess.
+- Yes, i'm `sure` it is.
+- You're a `sure` thing!
+- You're `sure` of that.
+- You're `sure` of that?
+- You're `sure` of this?
+- You `sure` about that?
+- You `sure` about this?
+- You `sure` do it loud.
+- You `sure` he's alone?
+- You `sure` it was him?
+- You `sure` shout that?
+- Am i `sure` about what?
+- But he `sure` can kiss.
+- But i'm not `sure` yet.
+- 'don't sound so `sure`.
+- He `sure` is pixilated.
+- How can they be `sure`?
+- I'll make `sure` of it.
+- I mean, are you `sure`?
+- I might have... `sure`.
+- I'm not `sure` anymore.
+- I'm not `sure`, myself.
+- I'm `sure` it's lovely.
+- I'm `sure` she drowned.
+- I'm `sure` she'll call.
+- I'm `sure` she's there.
+- I'm `sure` that's true.
+- I'm `sure` we wouldn't.
+- I said: are you `sure`?
+- I `sure` did, phillip!!
+- I was always so `sure`.
+- Make `sure` it's clear.
+- More `sure` of himself?
+- Oh, i'm `sure` it will!
+- Oh `sure`, it's honest.
+- Oh, yeah, `sure` -- no.
+- `Sure`, e = mc squared.
+- `Sure`, everybody does.
+- `Sure`--off the record.
+- `Sure` plenty of times.
+- `Sure` we keep records!
+- `Sure` you wanna go in?
+- Time `sure` marches on.
+- To make `sure` a.l.i.e.
+- Um... yeah, ok. `sure`.
+- <u>yes</u>, i'm `sure`.
+- We're `sure` it's hers?
+- Yeah, `sure` that's me.
+- Yeah, `sure`, whatever.
+- Yes ... make `sure` ...
+- You `sure` we're clear?
+- You `sure` you fed her?
+- You `sure` you have to?
+- You `sure` you're okay?
+- Are you `sure` they did?
+                 

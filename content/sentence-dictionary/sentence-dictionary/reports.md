@@ -1,0 +1,59 @@
+---
+title: "reports in a sentence | reports example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reports"
+---
+- Any `reports` of unrest?
+- With some spy `reports`.
+- Multiple `reports`, okay?
+- Scattered `reports`, sir.
+- ...gotta read my `reports`.
+- Better traffic `reports` on am.
+- You saw all the `reports`, beth!
+- Okay, i'll take damage `reports`.
+- Dock control `reports` ready, sir.
+- Have you finished those `reports`?
+- I'm talking multiple `reports` now.
+- Listen, you got any `reports` of...
+- I know, i read my royalty `reports`.
+- Good, because we have `reports` see you.
+- The first `reports` came in at about ten.
+- We've heard `reports` of reprisal killings.
+- Straight d fitness `reports` from every c.o.
+- Engine room `reports` auxiliary power restored.
+- Keep him in cold storage till the `reports` in.
+- Lapd data center `reports` a breach on the system.
+- How do you know catherine tramell saw my `reports`?
+- I want to go over your `reports` and your form 908.
+- It's the kind of money nobody ever `reports` stolen.
+- Spare me mini moves, progress `reports` and bullshit.
+- We're receiving `reports` that the ships are stopping!
+- What's the matter with you, you've seen the `reports`.
+- We've had `reports` of one small ship slipping through.
+- Who buys classified `reports` for three million pounds.
+- See this is why we're not watching those news `reports`.
+- These `reports` go to the justice department eventually.
+- I expect you to call in regularly with progress `reports`.
+- But � gunshot... they'll file `reports`... they'll find me.
+- We shove off as soon as griff `reports` all the crew aboard.
+- `Reports` from the greek front are going to be a little vague.
+- Roper... how about the record room for any incident `reports`?
+- What of the `reports` of the rebel fleet massing near sullust?
+- Intelligence `reports` the soviets are having the same problem.
+- We'll know more once i get the lab `reports` back from seattle.
+- "dowd also `reports` that his team of private investigators..."?
+- But we have had `reports` of a small impi farther north, over there.
+- We still have to make `reports` on ten more crewmen killed in action.
+- Because these minority `reports` are destroyed the instant they occur.
+- "space alien revealed as head of time warner; `reports` stock increase."
+- The son'a `reports` claim they didn't fire until after he malfunctioned.
+- We're getting `reports` of surges and power outages all across the county.
+- Any `reports` about monsters, people in halloween masks, anything like that?
+- There's been `reports` of management sexually abusing the artists in this place.
+- There are scattered `reports` of sightings over miami, ft. worth, and memphis.
+- Unconfirmed `reports` of eighteen or so far, but the numbers are all over the place.
+- It's the least i could do... considering i got you into this mess with those `reports`.
+- What i've done is-- then the alumni `reports` came in-- fund-raising is down this year.
+- You want me to de-prioritize my current `reports` until you advise of a status upgrade?
+                 

@@ -1,0 +1,107 @@
+---
+title: "college in a sentence | college example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "college"
+---
+- Football in `college`.
+- It's on the `college`.
+- So why go to `college`?
+- Went to `college`, huh?
+- Come on, it's `college`.
+- Did you go to `college`?
+- Nice `college` boy, huh?
+- Three `college` degrees.
+- Ah, sweet `college` days.
+- From bryn mawr `college`.
+- It's a regular `college`.
+- She met him at `college`.
+- We needed a new `college`.
+- Good luck at `college`.
+- I graduated from `college`.
+- I never finished `college`.
+- I was in rotc in `college`.
+- `College` boards are coming.
+- He was my `college` sweetie!
+- Put scott through `college`.
+- Where'd you go to `college`?
+- You never went to `college`?
+- He goes to `college` with me!
+- I'm not applying to `college`.
+- Inflation, tuition, `college`.
+- We went to `college` together.
+- You experimented in `college`.
+- High school and `college`, yes.
+- It's part of my `college` fund.
+- This brother from my `college`.
+- At least while i'm in `college`.
+- He was my roommate in `college`.
+- I'm not going to `college`, jos.
+- I never even finished `college`.
+- It's a `college` town, you know?
+- I've seen your `college` record.
+- Old `college` graduate now, huh?
+- She's leaving `college`, and...?
+- So, uh... how's `college` goin'?
+- This is cindy's `college` money.
+- Your old `college` chum, elster.
+- The `college` was from the 1960s.
+- City of light community `college`.
+- This girl is a `college` graduate.
+- What'd they call her in `college`?
+- It was made by some `college` kids.
+- Okay, `college` boy, i'll help you.
+- You've never been out of `college`.
+- `College` president shouldn't drink.
+- We brought our old `college` stereo.
+- But, then i went to king's `college`.
+- You don't look like a `college` girl.
+- You were a teach at hunter `college`.
+- Bring their `college` degrees in here!
+- I read sherwood anderson in `college`.
+- So how do you like being in `college`?
+- Did you go to `college`, mrs. crawford?
+- I learned a lot of things in `college`.
+- I remember reading a poem in `college`.
+- I was visiting an old `college` friend.
+- She majored in castration in `college`.
+- So what are you thinking for `college`?
+- You're playing an angle, `college` boy.
+- I went to `college`, did an arts course.
+- An application to androscoggin `college`.
+- Good gift for a `college` student... hmm.
+- I didn't know there was a `college` here.
+- Ran into the new `college` student, rona.
+- See, my family, we don't go to `college`.
+- Yeah... not bad for a city `college` boy.
+- I got a girl going to `college` this fall.
+- I know, but we're on a `college` campus...
+- I teach part time at the junior `college`.
+- She was a part of some study in `college`.
+- You know, val went to that `college`, too.
+- You learned this in some `college` course?
+- `College`, motorcycles and leather jackets.
+- If i knew, cledus; i'd be on `college` bowl.
+- I haven't had fun like that since `college`.
+- I'm not a dumb- smart `college` boy anymore.
+- I took three different courses in `college`.
+- Look, i told you i'm not going to `college`.
+- Where does jonathan want to go to `college`?
+- You a crazy fucker, givin' up `college` man.
+- How about richard grayson, `college` student?
+- I know why you broke up with me in `college`.
+- I'm going to be so happy to get to `college`.
+- Kate reynolds was my girlfriend in `college`.
+- Now what was your major subject at `college`?
+- We had aspirations when we were in `college`.
+- `College` girls are one step from the streets.
+- Could it be some kind of `college` initiation?
+- My mother's buying me a new car for `college`.
+- Something for me, and `college` just isn't it.
+- Actually, he was a big `college` swimming star.
+- An expired community `college` student id card.
+- Before i hit `college`, see what it feels like.
+- C-c-coll- `college` audiences are so wonderful.
+- I thought maybe i go to `college` under the g.i.
+- But we might just give it the 'ole `college` try.
+                 

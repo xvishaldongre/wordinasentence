@@ -1,0 +1,107 @@
+---
+title: "lovely in a sentence | lovely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lovely"
+---
+- It really is `lovely`.
+- It's a `lovely` party.
+- He's a `lovely` monkey.
+- I'm sure it's `lovely`.
+- It's a `lovely` garden.
+- `Lovely` day, isn't it?
+- Such a `lovely` family.
+- That's a `lovely` name.
+- The air is `lovely`.
+- Isn't it a `lovely` day?
+- It's a `lovely` outpost.
+- That's a `lovely` dress.
+- Who's the `lovely` lady?
+- What a `lovely` name.
+- You look so `lovely`.
+- It was a `lovely` dinner.
+- Oh, that was so `lovely`.
+- You have a `lovely` home.
+- It was... it was `lovely`.
+- Oh, it's... it's `lovely`.
+- You have a `lovely` voice.
+- Betty was a `lovely` child.
+- He's a `lovely` man, annie.
+- Isn't this a `lovely` room?
+- Looking `lovely` as always.
+- What a `lovely` makeup job.
+- You have a `lovely` smile .
+- A `lovely` piece of theater.
+- Isn't it a `lovely` one?
+- Isn't this a `lovely` party?
+- That's a very `lovely` size.
+- Yeah, she's a `lovely` girl.
+- You have a `lovely` home.
+- Aren't they `lovely`, birdie?
+- My `lovely` assistant, shari.
+- No, and a `lovely` speedboat.
+- O, he's a `lovely` gentleman.
+- What a `lovely`, clever name.
+- A whole week of `lovely` rain.
+- Selina kyle...`lovely` person.
+- That's very `lovely` actually.
+- This `lovely` aubusson settee.
+- Well, it's a `lovely` bedroom.
+- A `lovely` new supply of venom.
+- Mm, that's a `lovely` necklace.
+- Your elizabeth sounds `lovely`.
+- I'm sure they're quite `lovely`.
+- I think it's a `lovely` idea....
+- `Lovely` sound- they seem happy.
+- The sea-gull is a `lovely` bird.
+- In fact--i think you're `lovely`.
+- Just say "dear, you're `lovely`."
+- Yes, tennessee, a `lovely` state!
+- Thank you... that's just `lovely`.
+- They were a `lovely`, `lovely` gray.
+- You'll be `lovely`, but no thanks.
+- Your wife's a very `lovely` woman.
+- It�s `lovely`... like the dress...?
+- The sea is `lovely`, dark and deep.
+- We have some `lovely` funny beanos.
+- Well that's `lovely` talk, that is.
+- What a `lovely` room you have here.
+- `Lovely` view you have, haven't you?
+- It was `lovely` meeting... ...who...?
+- Oh, that's a `lovely` spot, isn't it?
+- That rene...`lovely` girl...a killer!
+- It was a `lovely` lunch, mrs. danvers.
+- But it looks so `lovely`, driving past.
+- Where's that `lovely` dress i made you?
+- Have a `lovely` birthday party tomorrow.
+- My, what a `lovely` place you have here.
+- Really, captain, it was a `lovely` toast.
+- She is a `lovely` bit of crumpet at that.
+- Thanks for the `lovely` evening, shithead!
+- You're doin' `lovely`, terry, very `lovely`.
+- Megeve can be so `lovely` this time of year.
+- She looks so `lovely` and normal... ernie's.
+- Let me run my fingers over its `lovely` skin.
+- There's some `lovely` filth down here ... oh!
+- Then i'll tell you a story � a `lovely` story.
+- Jesus, steven, that's...that's really `lovely`.
+- With `lovely` sissy hankshaw in the foreground.
+- A little too out in the open but simply `lovely`.
+- A `lovely` vision of exquisitely beauty -- shit!"
+- Don't you want to hear about our `lovely` friends?
+- What a `lovely` ballet, so full of form and color.
+- It was `lovely` being you being malkovich, my dear.
+- Besides, how could something so `lovely` be a crime?
+- Everything is `lovely`, ted, but much too expensive.
+- Got a couple of `lovely` cottages coming up for rent.
+- I am told that fontainebleau has many `lovely` views.
+- Well, we have had a `lovely` little chat, haven't we?
+- Yes, she's `lovely`, but she doesn't have your spark.
+- Didn't you say something about a "`lovely` speedboat"?
+- `Lovely` little princess plays with rasputin's beard."
+- We have some `lovely` parting gifts for you as you go.
+- I'm sure you'd be able to design some very `lovely` things.
+- Make a `lovely` item for "good morning, america" like hell!
+- You hear all this talk about not `lovely` your kids enough.
+- I know nothing more interesting than a `lovely` countryside.
+                 

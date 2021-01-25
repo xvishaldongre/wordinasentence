@@ -1,0 +1,107 @@
+---
+title: "problems in a sentence | problems example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "problems"
+---
+- Two `problems` solved.
+- But we have `problems`.
+- I've got no `problems`.
+- Memory `problems`, too.
+- We all have `problems`.
+- But you have `problems`?
+- So we've got `problems`.
+- You got real `problems`.
+- You expecting `problems`?
+- No `problems` up the road.
+- We got `problems` topside.
+- We've got `problems` here.
+- We've had some `problems`.
+- You do have `problems`.
+- I got `problems` of my own.
+- I don't like `problems`.
+- Does he have any `problems`?
+- More lady `problems`, chief?
+- So there were no `problems`?
+- But they are your `problems`.
+- Emotional `problems`, i hear.
+- I've got the same `problems`.
+- No `problems` on both counts.
+- You don't need my `problems`.
+- Darrell giving you `problems`?
+- I, uh, i have some `problems`.
+- Marital `problems` in general?
+- These are start-up `problems`.
+- They're my kind of `problems`.
+- He has... emotional `problems`.
+- I have my own `problems`, bart.
+- Oh, they got bigger `problems`.
+- Our `problems` might be solved.
+- She was having `problems`, too.
+- We all got the same `problems`.
+- Now they have bigger `problems`.
+- This girl's had some `problems`.
+- Bigger `problems` if you run out.
+- Having romance `problems`, romeo?
+- That'll solve all our `problems`.
+- Why are you inventing `problems`?
+- Yeah, he had a lot of `problems`.
+- Yes, it really causes `problems`.
+- I wish i only had your `problems`.
+- Mike's had psychiatric `problems`.
+- Plus i got <u>real</u> `problems`.
+- <u>you're</u> one a my `problems`.
+- Don't you ever have any `problems`?
+- I don't really have any `problems`.
+- I've got bigger `problems`, joanna.
+- We're having electrical `problems`.
+- Other couples have worse `problems`.
+- Several `problems` with that theory.
+- That's one piece of four `problems`.
+- We have two `problems`, as i see it.
+- She made me forget all my `problems`.
+- Tremors, vision `problems`, euphoria.
+- You and me are gonna have `problems`.
+- You've got bigger `problems` than me.
+- Dizziness, fatigue, vision `problems`.
+- Do you ever have any `problems`, will?
+- Just mulling over business `problems`.
+- These sound like <u>my</u> `problems`!
+- We've got bigger `problems` right now.
+- You having hearing `problems`, mister?
+- Are you having `problems` with charlie?
+- How long has he been having `problems`?
+- If paulie finds out, we got `problems`.
+- That's never been one of my `problems`.
+- Two radio calls, two `problems` solved.
+- We have bigger `problems` than the boy.
+- You have enough `problems` of your own.
+- Anyone else having breathing `problems`?
+- I got enough `problems` just hangin' on.
+- I'm sure you've got your own `problems`.
+- Larry, you and your wife got `problems`?
+- You're gonna have some union `problems`.
+- I don't care what her `problems` are.
+- Don't tell me about your `problems`, boy.
+- Sexual `problems` upsetting to the child.
+- I'm sorry about your financial `problems`.
+- To solve all your food storage `problems`.
+- We're having some `problems` with arcade...
+- What kind of `problems` does your dad have?
+- Bill, i got financial `problems` and... out!
+- Don't swear at me because we got `problems`.
+- If she's got the guns, we've got `problems`.
+- Moral or sexual `problems` or peculiarities?
+- Our `problems` are very complex, mr. klaatu.
+- The colonies, they have `problems` to solve.
+- You know smokey has emotional `problems`!
+- Eckhardt... our `problems` are your `problems`.
+- I'm not responsible for all these `problems`!
+- Most people don't have my kind of `problems`.
+- You're not doing the extra credit `problems`.
+- But mr. cuthbert, we've got bigger `problems`.
+- Helms wants iran or there might be `problems`.
+- I don't have the `problems` that artists have.
+- I don't want to hear your `problems`, jackson.
+- I've got `problems`, everybody's got `problems`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "sorry in a sentence | sorry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sorry"
+---
+- Bollocks, i�m `sorry`.
+- For that, i'm `sorry`.
+- Gillmer: `sorry`, sir.
+- I'm... really `sorry`.
+- I'm `sorry` about dev.
+- I'm `sorry`... a cure?
+- I'm `sorry`, and legs.
+- I'm `sorry`, george...
+- I'm `sorry`, i didn't.
+- I'm `sorry`, i just...
+- I'm `sorry`, i'm late.
+- I'm `sorry`, i'm lost.
+- I'm `sorry`, i only...
+- I'm `sorry`, mr. dean.
+- I'm `sorry`... um... ?
+- I'm `sorry` ... value?
+- I'm `sorry`, you know?
+- I'm so `sorry`, buddy.
+- I'm so `sorry`, helen.
+- I'm so `sorry`, james.
+- I'm so `sorry`, kalen.
+- I'm so `sorry`, laura.
+- I've said i'm `sorry`.
+- I was `sorry` to hear.
+- I wrote i'm `sorry`...
+- Just one sec, `sorry`.
+- Look, man i'm `sorry`.
+- Lord, i'm `sorry` i...
+- Marge, i'm so `sorry`.
+- Oh dewey, i'm `sorry`.
+- Oh, gosh, i'm `sorry`.
+- Oh, i'm `sorry`, trip.
+- Oh, okay, i'm `sorry`.
+- Right, right, `sorry`.
+- [sighs] `sorry`, boys.
+- [sobbing] i'm `sorry`?
+- Son of a... - `sorry`.
+- `Sorry` about alfonse.
+- `Sorry` - didn't copy.
+- `Sorry` if i woke you.
+- `Sorry` i hit jackson.
+- `Sorry` i invited you.
+- `Sorry` i'm late, sid.
+- `Sorry`, i was asleep.
+- `Sorry`, mac, i can't.
+- `Sorry`, mr. thatcher!
+- `Sorry`, not that one.
+- `Sorry`, pal, i tried.
+- `Sorry`, `sorry`, `sorry`!
+- `Sorry`, `sorry`, `sorry`.
+- `Sorry` to bother you.
+- `Sorry` to disappoint.
+- `Sorry`, wrong answer!
+- Uh-uh-uh, i'm `sorry`.
+- Walter, i'm `sorry`...
+- Yeah, yeah, `sorry`...
+- <u>i'm</u> `sorry`.
+- Big chief very `sorry`.
+- Gee, i'm `sorry`, lois.
+- He felt `sorry` for me.
+- He is `sorry`, he says.
+- I am `sorry`, duncan...
+- I am so `sorry`, jesse.
+- I don't know...`sorry`?
+- I feel `sorry` for him.
+- I feel `sorry` for you.
+- I'm-i'm really `sorry`.
+- I'm saying i'm `sorry`.
+- I'm `sorry` about abby.
+- I'm `sorry` about that.
+- I'm `sorry` about this.
+- I'm `sorry`, blodreina.
+- I'm `sorry`, d'amour...
+- I'm `sorry` for asking.
+- I'm `sorry`, gentlemen.
+- I'm `sorry` i did that.
+- I'm `sorry` i'm not in.
+- I'm `sorry`, i'm `sorry`.
+- I'm `sorry`, i must go.
+- I'm `sorry` i shot you.
+- I'm `sorry` i shot you.
+- I'm `sorry` i was late.
+- I'm `sorry`, katharine.
+- I'm `sorry` -- move on.
+- I'm `sorry`, mr. brown.
+- I'm very `sorry` -- me.
+- I said i was `sorry`...
+- Mr. kaggs, i'm `sorry`.
+- Oh god, i'm so `sorry`.
+- Oh, i'm `sorry`, harry!
+- Oh, i'm `sorry`, nigel.
+- Oh, i'm `sorry`, scott.
+- Oh my god, i'm `sorry`!
+- Oh, `sorry` about that.
+- Oh -- terribly `sorry`.
+- Okay, i'm very `sorry`.
+- Really, i'm so `sorry`.
+- `Sorry` about all that.
+- `Sorry` about the pain.
+- `Sorry` about the rope.
+                 

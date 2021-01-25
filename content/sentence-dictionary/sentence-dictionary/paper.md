@@ -1,0 +1,107 @@
+---
+title: "paper in a sentence | paper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "paper"
+---
+- Bring me that `paper`.
+- Do it for the `paper`.
+- The `paper` of record.
+- A *lot* of `paper`!
+- `Paper` to type on.
+- They wanted my `paper`.
+- Big deal `paper` hanger!
+- I never read the `paper`.
+- A `paper` on that one too?
+- ... a piece of `paper` ...
+- He shut down your `paper`!
+- I read your white `paper`.
+- Is this `paper` even good?
+- Lest you call `paper` odd.
+- Oh, this piece of `paper`?
+- You put it all on `paper`.
+- In a big `paper` like that?
+- We have an options `paper`.
+- We ran it in every `paper`.
+- I can peddle toilet `paper`.
+- I work for national `paper`.
+- Turn me into a `paper` doll.
+- We could co-write a `paper`.
+- Did you read today's `paper`?
+- I read your `paper` on eti's.
+- ...never reads the `paper`...
+- Not so much as a `paper` cut.
+- Sure i put it in the `paper`.
+- Sure - my pal on the `paper`.
+- With the `paper` to prove it.
+- Gave me this piece of `paper`.
+- Got a `paper` of kurt kelly's.
+- We don't have no `paper` bags.
+- We put that ad in the `paper`.
+- God, this `paper` is so boring.
+- I read about it in the `paper`.
+- _ - what does that `paper` say?
+- What's with the toilet `paper`?
+- You weren't a `paper` champion.
+- As long as it's on soft `paper`.
+- Hemp clothes burns like `paper`!
+- I'm washing the carbon `paper`."
+- I read about you in the `paper`.
+- Taylor's sewed up every `paper`.
+- The `paper` street soap company.
+- If you need me, call the `paper`.
+- I got him his job on the `paper`.
+- It's not like drawing on `paper`.
+- Nobody bought a `paper` that day.
+- A doctored picture in the `paper`.
+- Always wanted to be a `paper` boy.
+- His obituary was in every `paper`.
+- I once did a `paper` on it papers.
+- Maybe there's some `paper` around.
+- No, just the `paper` will be fine.
+- Say--have i got some `paper` here?
+- "doris, you gotta call the `paper`.
+- Each piece wrapped in gold `paper`.
+- Shit, nothing but `paper` panthers.
+- The `paper` ones get soggy so fast.
+- We get out a `paper` just the same.
+- Adelle... maurice is in the `paper`.
+- But i can't put that in the `paper`.
+- Got to follow the `paper` path here.
+- He doesn't exist, except on `paper`.
+- I simply called my father's `paper`.
+- It cost this `paper` a gob of dough.
+- I got an assignment from the `paper`.
+- Issue the toilet `paper` tear as a...
+- "you bought the wrong `paper`, annie.
+- Customs had some `paper` on his alias.
+- Did you see this stuff in the `paper`?
+- I can't write on this `paper`, annie."
+- I told you less `paper`, less trouble.
+- Look -- i send you a scrap of `paper`.
+- An extension on that astronomy `paper`?
+- But you told me to look in the `paper`!
+- He did such a good job on this `paper`.
+- Here's the `paper` on the brooklyn job.
+- I tore those metal fibers like `paper`.
+- This story is too big for this `paper`?
+- What would you call that `paper` there?
+- 'continentals', congress' `paper` money.
+- If you buy what you read in the `paper`.
+- I mean it's a regular `paper`, you know.
+- It'll be in the `paper` tomorrow anyway.
+- No staples or paperclips in his `paper`.
+- Have you got a `paper` bag, or something.
+- I'm out, you're giving me toilet `paper`.
+- It's just his mind poured out on `paper`.
+- Picture in the `paper`, whole nine yards.
+- What's michael tearing the `paper` about?
+- All that `paper` that went into the river.
+- Does that `paper` say we've been indicted?
+- I'll sue you and your fucking jew `paper`.
+- I said it had poppies on the wall `paper`!
+- Maybe she hasn't read the `paper`... yeah.
+- Did you toilet `paper` the johnson's house?
+- I have to buy six thousand `paper` napkins.
+- I saw that announcement in today's `paper`.
+                 

@@ -1,0 +1,53 @@
+---
+title: "survival in a sentence | survival example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "survival"
+---
+- It's about `survival`.
+- The art of `survival`.
+- It's a `survival` trait!
+- `Survival` instinct sucks.
+- `Survival` of the fittest.
+- In wilderness `survival`...
+- Strong `survival` instinct.
+- I'm talking about `survival`.
+- `Survival` of the most idiotic.
+- This is about egypt's `survival`.
+- When `survival` instincts kick in.
+- Where is your `survival` instinct?
+- _ in the name of `survival`, colonel.
+- The `survival` of the ones they love.
+- It's not personal, it's just `survival`.
+- Our first order of business is `survival`.
+- Out here, you always fight for `survival`.
+- The key to `survival` on earth, what is it?
+- I've spoken with your husband about his `survival`.
+- Know-it-alls who read about `survival` in a magazine.
+- Any chance of your `survival` was better than no chance.
+- `Survival` is the name of the game, and that flag is mine.
+- In the road to `survival`, there is always sacrifice logan.
+- After three days of `survival` training, how could i resist?
+- _ he was, the choice we made on the ark was about `survival`.
+- Now let's ensure our `survival` and get the hell out of here.
+- We'll discuss sexism in `survival` situations when i get back.
+- But they're still fighting for `survival`, like cornered animals.
+- Of a threat to human `survival`, grief shows itself in funny ways.
+- Of a threat to human `survival`, you got the same treatment i did.
+- This gives you a chance for real `survival` in a very lousy world.
+- It is a fine match with hockley, and it will insure our `survival`.
+- We don't really know, sir, but bluntly, our `survival` capability .
+- You know, octavia might not have liked you, this is about `survival`.
+- In this place, ignorance isn't just bliss, it's a matter of `survival`.
+- You want to go on struggling for `survival`, selling books on the street?
+- This is `survival`, i know you understand that, logan... or is it wolverine?
+- Your odds of `survival` are 23,763,273 to... man, you are one chilly square!
+- I don't want to get blood our `survival` depends on us sharing your knowledge...
+- I had a feeling even then that your `survival` instincts were pretty well honed.
+- I know, but the chances for `survival` here just aren't great enough in my book.
+- Our `survival` depends on having a leader it takes time, but it does get easier.
+- Everyone on this base, everyone of you is fighting for `survival`, and that's a fact.
+- I'll try, but this week we go into `survival` training, so i can't make any promises.
+- If the odds of `survival` were better, i hope there are no hard feelings try not to move.
+- The ark is about `survival` at any cost, we should execute the hostages and get you home.
+                 

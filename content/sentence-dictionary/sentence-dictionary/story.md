@@ -1,0 +1,107 @@
+---
+title: "story in a sentence | story example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "story"
+---
+- A `story` for a movie.
+- "have i got a `story`!
+- I finished my `story`.
+- I'll prove my `story`!
+- I'm writing a `story`.
+- It's a simple `story`.
+- It's the same `story`.
+- Kind of a sad `story`.
+- Not much `story` here.
+- That's a good `story`.
+- That's a long `story`.
+- That's a true `story`.
+- What terrific `story`?
+- Who's got the `story`?
+- You like that `story`?
+- Because of the `story`?
+- I don't have a `story`.
+- I heard a `story` once.
+- Is that a good `story`?
+- Jack, that's a `story`.
+- Now what's the `story`?
+- So what's your `story`?
+- That's quite a `story`.
+- There's a `story` here.
+- The `story` of my life.
+- The `story`'s not over.
+- A `story` i'm making up.
+- Aw, it's a long `story`!
+- Based on a true `story`.
+- Ernie told this `story`.
+- Great `story`, isn't it?
+- Has his `story` changed?
+- I'll tell you a `story`.
+- I saw the whole `story`.
+- It's a long `story`, bo.
+- It's too good a `story`.
+- Just a `story` won't do.
+- Must be a `story` there.
+- No pictures, no `story`.
+- Now what's your `story`?
+- Oh, it's a long `story`.
+- That a true `story` now?
+- Then, tell me a `story`.
+- This `story` gets filed.
+- This `story` is big huh?
+- What a touching `story`.
+- What's my `story` there?
+- You are success `story`?
+- But i can tell a `story`.
+- But it's a great `story`.
+- He's a different `story`.
+- I've got another `story`.
+- Let me tell my `story`...
+- Love `story` of our time.
+- Man, it's a long `story`.
+- Maybe that's the `story`.
+- Oh, that's a sad `story`.
+- That hairy chest `story`!
+- That makes you a `story`.
+- That's the whole `story`.
+- The `story` gets hairier.
+- What `story`, mr. rogers?
+- From the `story` of purim.
+- Get your `story` straight.
+- I do not like the `story`.
+- I don't like that `story`.
+- Let me tell you a `story`.
+- Like your `story` is over.
+- See how your `story` ends.
+- See, it's my life `story`.
+- `Story` of yours straight.
+- That makes a good `story`.
+- That's a terrible `story`.
+- That's a terrific `story`.
+- Thats not a `story`, alex.
+- There's the bible `story`.
+- The whole goddamn `story`.
+- Typical army brat `story`.
+- What's your `story` about?
+- What's your `story`, baby?
+- What's your `story`, pete?
+- Will, what is the `story`?
+- You remember that `story`?
+- Your `story` was terrible!
+- He will need a `story`.
+- Anyway, here's the `story`.
+- A tragic `story`, no doubt.
+- A very good `story` indeed.
+- Finish the fucking `story`!
+- I didn't cook up a `story`.
+- I finally found my `story`.
+- I'm going out on a `story`.
+- It is a good `story`, fish.
+- It's...it's a long `story`.
+- It's the `story` or salome.
+- I've got a `story` for you.
+- Joe knew the whole `story`.
+- Please finish your `story`.
+- So he can tell the `story`.
+- Sounds like a good `story`.
+                 

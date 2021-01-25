@@ -1,0 +1,81 @@
+---
+title: "progress in a sentence | progress example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "progress"
+---
+- There's no `progress`.
+- I am making `progress`.
+- In `progress`, admiral.
+- We're making `progress`.
+- I'm a work in `progress`.
+- It's a work in `progress`.
+- It's a work-in-`progress`.
+- Work in `progress`, my ass.
+- 'they can't stop `progress`.
+- But you are making `progress`.
+- That's real `progress` for you.
+- We made great `progress` today.
+- It's still a work in `progress`.
+- How is the children's `progress`?
+- It is still a work in `progress`.
+- It's been slow -- any `progress`?
+- But hey, you're making `progress`.
+- Any `progress` on the kane problem?
+- Is he making any `progress`, doctor?
+- I thought we were making `progress`.
+- We've been making `progress`, i see.
+- `Progress` is a feast to be consumed.
+- I came to check on her `progress`, too.
+- Her `progress` is defeating my `progress`.
+- How much of a work in `progress` is this?
+- You can't interrupt a link in `progress`.
+- Do you feel you're making `progress` here?
+- The blood transfusion is now in `progress`.
+- You've done nothing to show any `progress`.
+- You haven't made an ounce of `progress`.
+- It's just a work in `progress`, kinda rough.
+- Oh, sweetheart... you can see our `progress`.
+- That's the nature of all `progress`, william.
+- I'm making real `progress` with the microchip.
+- This is why you don't show work in `progress`.
+- With twice the speed of our upward `progress`.
+- Do you feel there is more `progress` to be made?
+- To say there's been no `progress` to the last war.
+- I think of it as sort of a nightmare in `progress`.
+- I feel like i'm making `progress` with these people.
+- I think i'm making real `progress` on the microchip.
+- It was the first time we made significant `progress`.
+- Spare me mini moves, `progress` reports and bullshit.
+- It's the first time we've made significant `progress`.
+- Mr. scott, any `progress` on repairing our warp drive?
+- Not that her accent would have hobbled her `progress`.
+- I don't consider uncontrollable toxic waste `progress`!
+- If there's ever going to be any `progress` ... well ...
+- So the `progress` up the stim seem to work really well.
+- That symbol of `progress`, that symbol of moving forward.
+- I expect you to call in regularly with `progress` reports.
+- I had these ideas about how we might `progress` the estate.
+- Anthony, he sat in the car and watched a 4-11 in `progress`.
+- She- she's making `progress` and i'm not making any `progress`.
+- <u>admiral</u> kirk never bothered to check on our `progress`.
+- You're not protecting the world, you're obstructing `progress`!
+- He is most displeased with your apparent lack of `progress`.
+- A condition red means enemy attack in `progress`, doesn't it?
+- Told him you were making `progress` and we were all very excited.
+- Well, i was thinking, maybe an enemy attack is not in `progress`?
+- You've been making very good `progress` against the tijuana cartel.
+- Any `progress` on using the wristbands knowing which battles to fight.
+- It shows a banquet in `progress`, the guests are enjoying raw oysters.
+- Sailing on the <u>`progress`?</u> i thought you were one of my friends.
+- How did your relationship with miss lawson `progress` after the surgery?
+- But lo and behold he found another world that `progress` could annihilate!
+- Then, in this nightmare in `progress`, does this thing have any weaknesses?
+- I hope you'll judge him by his `progress` here, and not his past reputation.
+- Of course, you don't really need doesn't always `progress` in a straight line.
+- You'll be at the docks ... keeping otto abreast of our `progress` ... what about me?
+- Actually about a hundred things, but we can make `progress`, if you answer one question.
+- You won't make any `progress` until you can recognize your dreams for what they are.
+- I'll teach these podunks what happens when they challenge the righteousness of `progress`.
+- Tell 'em there's a homicide in `progress`... cause by the time they show up there will be.
+                 

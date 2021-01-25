@@ -1,0 +1,72 @@
+---
+title: "bills in a sentence | bills example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bills"
+---
+- Don't use big `bills`!
+- See, i've got `bills`.
+- In small `bills`, cash.
+- Not with these `bills`.
+- You're paying the `bills`.
+- The `bills` are right here.
+- You always did the `bills`.
+- To pay the `bills` and save.
+- Where are your `bills`, carl?
+- Do you still have the `bills`?
+- I got a lot of `bills` to pay.
+- But how would we pay our `bills`?
+- No sense helpin' pay his `bills`.
+- I'm used to paying my own `bills`.
+- But i tested the `bills`, infrared.
+- Get all the big `bills` in the place.
+- Just `bills`, i'll take care of them.
+- There will be therapy `bills` for you.
+- Does he have the marked `bills` on him?
+- I can take care of my own `bills`, lilly.
+- I'll be payin' the `bills` so you got me.
+- But dreams don't pay the `bills`, do they?
+- I got lots of `bills` come again next day.
+- I just work for vizzini to pay the `bills`.
+- By festooning his statue with dollar `bills`.
+- I signed a dozen a those aggi-culture `bills`!
+- Receipts and `bills` and... everything's here.
+- Rolling fat jays outta hundred dollar `bills`.
+- This is where lynn bracken's booze `bills` go.
+- Two-hundred dollars in hundred-dollar `bills`.
+- Two-hundred dollars in hundred- dollar `bills`.
+- Do you fill a black bag full of unmarked `bills`?
+- Those fucking orthodontist `bills` are killing me.
+- The `bills` arrived at this branch from a cash drop.
+- Ever since my momma died the `bills` are always late.
+- The electric `bills` alone exceed your annual salary.
+- There's a lot of counterfeit big `bills` going around.
+- I just figgered -- knew you didn't have enough `bills`.
+- Okay, i'm only a secretary, oaky, but it pays the `bills`.
+- ... but it won't cover annabelle daniels's medical `bills`.
+- A job's supposed to pay your `bills`, not put you in danger.
+- In your time here, you couldn't even start on those `bills`.
+- I found this old cello case filled with `bills` and receipts.
+- Nicolet and dargus stop me at the airport and mark the `bills`.
+- Mccay had the company buy the property and they pay the `bills`.
+- Do you mind if i take a look at all your real `bills` to compare?
+- Including the vig -- brand new sequential hundred dollar `bills`.
+- Something to help pay the `bills` while i finish my dissertation.
+- That makes the medical `bills` one hundred percent tax deductible.
+- Except for last winter when the fuel `bills` kept going up and up and up.
+- I seen the han'`bills`, about how much work they is, an' high wages, too.
+- Besides, i, uh, used all your money to pay my `bills`, so i kinda owe you.
+- So he prints up 5,000 a them han'`bills` an' maybe 20,000 people sees 'em.
+- The money's in hundred dollar `bills` inside one of those jock bags, you know?
+- But that's okay, liz, you're the one with the steady job, you pay all the `bills`.
+- You didn't pay for your snazzy new suit with marked `bills`; i was glad to see that.
+- Not to mention over two thousand dollars, mostly in sequenced hundred dollar `bills`.
+- Tell you what...i'll give you five hundred dollars in small `bills` for the whole box.
+- See, my problem is, all i have are hundred dollar `bills` and i need something smaller.
+- The paper is crane linen blend -- and the `bills` are printed on u.s. intaglio presses.
+- I'm doin' what i can ... now i gotta pay for the pizza ... where are the marked `bills`?
+- The envelope contains currency... all the same denomination, one-hundred- dollar `bills`.
+- Money to pay his `bills` -- money for his wife and his children -- money to be a rich man.
+- Now, does a simple argument over phone `bills` sound like a believable explanation to you?
+- One of the plagues on members of congress--office-seekers, cranks, people with pet `bills`.
+                 

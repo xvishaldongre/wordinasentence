@@ -1,0 +1,107 @@
+---
+title: "make in a sentence | make example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "make"
+---
+- But let's `make` sure.
+- Can we `make` out now?
+- Can we `make` popcorn?
+- Do i `make` you horny?
+- Don't `make` me do it.
+- Don't `make` me laugh.
+- Hell, `make` it fifty.
+- He'll never `make` it!
+- He'll never `make` it.
+- Help `make` you happy.
+- I can `make` you rich.
+- I can't `make` it out?
+- I don't `make` policy.
+- If we can `make` that.
+- I `make` my own rules.
+- It'll `make` him sick.
+- It'll `make` it worse.
+- It's a re-`make`, hal.
+- It would `make` sense.
+- I wanna `make` a deal.
+- I wanna `make` movies.
+- I want to `make` them.
+- Lemme `make` the call.
+- Let's `make` an offer.
+- Let's `make` it seven.
+- `Make` an appointment.
+- `Make` her easy, john.
+- `Make` him come to us.
+- `Make` it easy on you.
+- `Make` it four�thirty.
+- `Make` it out to cash!
+- `Make` something else.
+- `Make` them trust you.
+- `Make` yourself at om.
+- Please `make` it stop!
+- Please `make` it stop.
+- Please `make` it work.
+- Then `make` it stop...
+- They can `make` hosts.
+- They didn't `make` it.
+- They didn't `make` it.
+- To `make` a statement.
+- To `make` him say yes!
+- To `make` your bricks.
+- Try to `make` friends.
+- We can `make` it, ava.
+- We can't `make` it ...
+- We `make` a good team.
+- We're gonna `make` it.
+- What's that `make` me?
+- Y'know -- `make` love?
+- You `make` crummy tea.
+- You `make` hamburgers!
+- You `make` me nervous!
+- You `make` me nervous.
+- You `make` them relax.
+- I'11 `make` dinner.
+- Can you `make` it back?
+- Didn't `make` no sense.
+- Did peggy `make` it up?
+- Does that `make` sense?
+- Don't `make` a tragedy.
+- Franky can't `make` it.
+- Gonna `make` ogre-stew!
+- He can still `make` it.
+- He'll `make` a mistake.
+- How much do you `make`?
+- I better `make` a list.
+- I can `make` it happen.
+- I can `make` this work.
+- I can't `make` him out.
+- I can't `make` you out.
+- I knew you'd `make` it!
+- I'll `make` some calls.
+- I'll `make` sure of it.
+- I'll `make` you a deal.
+- I'll try and `make` it.
+- I `make` you feel good.
+- I'm going to `make` it.
+- It'll `make` her happy.
+- It'll `make` it easier.
+- It'll `make` you dream.
+- I will `make` it short.
+- Let me `make` a living!
+- Let's all `make` a vow.
+- `Make` a choice, bruce.
+- `Make` a pile of money.
+- `Make` it move already!
+- `Make` it nine hundred.
+- `Make` it out to ralph.
+- `Make` me an isosceles.
+- `Make` me pretty again.
+- `Make` me throw it out?
+- `Make` sure it's clear.
+- `Make` them see things.
+- `Make` them understand.
+- `Make` this your house.
+- `Make` you feel strong?
+- `Make` yourself useful!
+- People `make` mistakes.
+                 

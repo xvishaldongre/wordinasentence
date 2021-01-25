@@ -1,0 +1,89 @@
+---
+title: "singing in a sentence | singing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "singing"
+---
+- Was i `singing` again?
+- You liked my `singing`?
+- Listen to her `singing`.
+- Tibetan `singing` bowls.
+- You're always `singing`?
+- They are `singing` for me.
+- What's she `singing` about?
+- I wasn't `singing` to myself.
+- When did you start `singing`?
+- Why are they `singing`, mama?
+- Yes, but we're just `singing`.
+- She's taking `singing` lessons.
+- What happened to the `singing`?
+- What the hell's that `singing`?
+- You were `singing`, weren't you?
+- No, she's really `singing`, papo.
+- Some tap dancing, some `singing`.
+- The tramp starts `singing` again.
+- We're `singing` for the cardinals.
+- A lot of people like our `singing`.
+- Is this uh... jazz kinda `singing`?
+- I did a lot of `singing` after that.
+- `Singing` bowl, you are so peaceful.
+- They're `singing` for the cardinals.
+- What do you feel like `singing`, bob?
+- Earlier you said `singing` and dancing.
+- Is that a crack about our `singing`...?
+- He been `singing` like that all morning.
+- Then he was `singing` and i was `singing`.
+- He was `singing` that weird song he loves.
+- I's thinkin' about `singing` in the choir.
+- I thought he was supposed to be `singing`.
+- ♪ i was `singing` this song ♪ - i saw him.
+- What about the group and my `singing` career?
+- `Singing` soprano with the vienna boys' choir.
+- You were `singing` in bowling alleys back then.
+- Schwartz had him up there `singing` and dancing.
+- I mean, we just want the `singing` when i come out.
+- `Singing` lessons, acting lessons, dancing lessons.
+- `Singing` on stage and painting in your spare time.
+- No thanks, you've been `singing` that shit all week.
+- I've got a `singing` audition for a broadway musical.
+- ♪ i was `singing` this song ♪ - i'm not lying to you!
+- That's right, this song features no actual `singing`.
+- Wretched `singing` sculptures, always yowling at you.
+- So what are you waiting for -- a `singing` commercial?
+- Yeah, he got me to start `singing` my own songs again.
+- Aw, god damn it, he's `singing` that fucking song again.
+- Just as they were groveling to him and `singing` a hymn.
+- Sorry about... not if you count '`singing` in the rain.'
+- We're `singing` for the cardinals, and then -- who knows?
+- You and walter and leon were `singing` "i wonder why".
+- "her `singing`, happily, is no concern of this department.
+- Would you put some of your `singing` in this for the baby?
+- 'but we're alone now, and i'm `singing` this song for you.'
+- He's been `singing` that i know all about you, john murphy.
+- I just couldn't - i couldn't go threw with `singing` again.
+- You never told me you were `singing` with an r and b group.
+- I have no gifts to bring, pa-rumpum- pum-pum start `singing`.
+- Kids `singing`, and way down there, the man...the mean man...
+- You'll probably do just as well `singing` to him in the womb.
+- Is she really `singing`, or is it one of those karaoke things?
+- With the gomer pyle voice and the unexpectedly good `singing`.
+- If i were in his shoes, every morning i'd get up `singing`, man.
+- You don�t have to stop `singing` on my account... mrs. peterson.
+- For five years i had this girl under training; `singing` lessons!
+- Thought i heard a couple of dead christians `singing` down there.
+- Tyler... we are the all-`singing`, all-dancing crap of the world.
+- Up and down the garden she went, laughing and `singing` to herself.
+- Will you have friends or family saying words - `singing` or anything?
+- Dinner parties vit lovely ladies and gentlemen, `singing` und dancing.
+- A good day for `singing`... you're on your own... like a true champion.
+- They're gonna give daddy a room, some breakfast, maybe bennett's `singing`.
+- Beautiful women who could lure men to their destruction with their `singing`.
+- If you're playing it and `singing` it... yeah, i always play it on the piano.
+- Some kid started `singing` one of his songs in a bar i was in the other night.
+- You're gonna be `singing` for st. peter if you don't get your ass out of here!
+- We're not going to a `singing` lesson, she's just gonna start taking `singing` lessons.
+- Your `singing` career seems all but nonexistent, and your married lover wants you dead.
+- She was found `singing` and dancing in a cabaret by the man... wait... wait... ives!
+- Right now i wouldn't be surprised if eartha kitt showed up `singing` send in the clowns.
+- She starts `singing` 'dead skunk in the middle of the road', that blows our whole case.
+                 

@@ -1,0 +1,107 @@
+---
+title: "months in a sentence | months example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "months"
+---
+- Like for two `months`.
+- Six `months` of tests.
+- That was `months` ago.
+- The past six `months`.
+- About six `months` ago.
+- Good for four `months`.
+- It's been six `months`.
+- Not for eight `months`.
+- Six `months`, at least.
+- Three `months` tonight.
+- Twelve `months` in oak.
+- You got three `months`.
+- For the last 3 `months`.
+- 6 `months`, give or take.
+- About three `months` ago.
+- Eight, nine `months` ago.
+- In the last six `months`.
+- It's been eight `months`.
+- It's been three `months`.
+- Six `months` advance pay.
+- Takes `months` to know...
+- The curse of 18 `months`.
+- 6 `months` after you left.
+- After... after 4 `months`?
+- Couple of `months` anyway.
+- How many `months` are you?
+- I'm six `months` pregnant.
+- It's been eleven `months`.
+- Only about three `months`.
+- Six `months`, eleven days.
+- That was two `months` ago.
+- Three years, two `months`.
+- .. been out three `months`.
+- Six `months`' probation...?
+- That was four `months` ago.
+- You said that `months` ago.
+- But got here `months` later.
+- Eight -- and seven `months`.
+- In nine `months`, i am free.
+- I will be in three `months`.
+- For `months`... last october.
+- He was a seven-`months` baby.
+- I'd say about three `months`.
+- Look again in three `months`.
+- Not for a couple of `months`.
+- She's been here six `months`.
+- We planned this `months` ago.
+- 4 years, 10 `months`, 22 days.
+- Been out for six `months` now.
+- Don't worry... three `months`.
+- Every couple of `months`, huh?
+- From three to twelve `months`.
+- I figure a couple of `months`.
+- I hadn't had one for `months`.
+- Nobody's seen you in `months`.
+- Picked over, ten `months` ago.
+- I haven't seen her in `months`.
+- I haven't seen him in `months`.
+- Nineteen `months` i been sober.
+- Three `months` till retirement.
+- Two `months` shy of four years.
+- Ain't seen you in `months`, boy.
+- But i was away for six `months`.
+- But we've searched for `months`.
+- Cost you six `months`, at least.
+- I haven't worn mine in `months`.
+- I met d'wana three `months` ago.
+- Not till the last four `months`.
+- We could be at sea for `months`.
+- You've been moping for `months`.
+- Eighteen `months` in a gamma lab.
+- For `months` i tried to get word.
+- He died about three `months` ago.
+- I been calling for four `months`.
+- I haven�t seen leon for `months`.
+- It took six `months` of research.
+- Oh, we'll get it in six `months`.
+- The snow that raged for `months`.
+- We've been dating three `months`.
+- He's been dead for three `months`.
+- How many `months` has it been now?
+- I give that marriage six `months`.
+- It's been six `months`, hasn't it?
+- It's only been six `months`... hi.
+- It went on like that for `months`.
+- I was already here for 3 `months`.
+- Three `months` later, we lost him.
+- Two or three `months`, that's all.
+- We could be separated by `months`.
+- You said you were only 6 `months`.
+- About five `months` -- your `months`.
+- Eighteen `months` in the gamma lab.
+- Fall, six `months` at the earliest.
+- For me, that's like seven `months`.
+- For those who remain by 6 `months`.
+- I haven't seen him in two `months`.
+- I'm giving birth in three `months`.
+- It's just for a couple of `months`.
+- I've been planning it for `months`.
+- Just give him a couple of `months`.
+                 

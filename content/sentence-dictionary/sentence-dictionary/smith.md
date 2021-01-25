@@ -1,0 +1,101 @@
+---
+title: "smith in a sentence | smith example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "smith"
+---
+- Goodbye, mrs. `smith`.
+- I have walter `smith`.
+- You heard me, `smith`.
+- Joan or margaret `smith`.
+- `Smith` or anything else!
+- Stew `smith`, a magnolia!
+- <u>i've got `smith`</u>!!
+- Did `smith` have the disks?
+- Office of--senator `smith`?
+- I've got <u>`smith`</u>!
+- Let me speak to mr. `smith`.
+- `Smith` and cooper are dead.
+- `Smith`, get out of there...
+- `Smith`, you up for a flyby?
+- We don't have time, `smith`.
+- You get anything on `smith`?
+- Lacroix, `smith`, watch our 6.
+- Oh no, you won't, mr. `smith`.
+- Stew `smith` in a gilded cage!
+- It beats dying, mister `smith`.
+- Gallagher, this is mrs. `smith`.
+- Will senator `smith` yield to--?
+- How 'bout this big chuck `smith`?
+- They're still in `smith`'s house.
+- Highway 119, just west of `smith`.
+- Is--uh--jefferson `smith` at home?
+- Now get this, gallagher - `smith`.
+- Oh excuse me - i mean mr. `smith`.
+- Uh--jefferson `smith`'s residence?
+- You want the rifle or the `smith`?
+- I'll tell mr. `smith` at once, sir.
+- I'm here, `smith`, how's the clark?
+- No one's dying on my watch, `smith`!
+- Can you take care of mr. `smith` now?
+- That's why `smith` called you macleod.
+- We're getting `smith` out of the house.
+- Cases: `smith` versus state of michigan.
+- This is dr. `smith`'s answering service.
+- I need you to let me talk to mr. `smith`.
+- I got you those trousers from paul `smith`.
+- Now mr. `smith`, now please� now i'm sorry.
+- Shit, `smith`, you're going biblical on me.
+- I might as well be rowan `smith` - or jones!
+- Now don't be absurd, `smith`� may i come in?
+- Will senator `smith` yield to his colleague?
+- You know� pardon me, mr. `smith` is engaged.
+- Dickie, are you with peter `smith`- kingsley?
+- Captain miller, i just want to say... `smith`?
+- Like '`smith`' or 'jones --' what do you mean?
+- Always was `smith` - and always gonna be `smith`.
+- The house belongs to walter and pamela `smith`.
+- I think i prefer the `smith` and wesson variety.
+- `Smith`, clear that airlock, man, i'm coming in.
+- A patient pickup and transfer to `smith`'s grove.
+- Now, as a `smith` to a smythe� the name is smythe.
+- Miller, `smith`, cooper, any of you in the airlock?
+- Talley talked those punks into letting `smith` out.
+- Is there anything you can give me on dudley `smith`?
+- `Smith` might talk just to cut a break for his kids.
+- I think mr. `smith`, whoever he is, now knows that.
+- Thank you for that scientific analysis, mister `smith`.
+- Wait a minute--jim--you didn't ask *`smith`* over here!
+- Old don quixote--man of the people `smith`-- my friends?
+- Mr. `smith` has been waiting for you and mrs. trueworthy.
+- Colt, browning, `smith`, thompson, kalashnikov... all men.
+- Here, here, susan--this is jeff `smith`-- our new senator.
+- My name is donnie `smith` and i have lot's of love to give.
+- On account of my schofield model `smith` and wesson pistol.
+- Senator `smith` can follow with mr. mcgann and the pigeons.
+- Some guy named `smith` was asking about him in church hill.
+- He says he's thomas `smith` and he's calling from the house.
+- In the meantime, you explain to mr. `smith` about willet dam.
+- But it's passed you by and `smith` here has taken up the slack.
+- That's why i tell you what i do--about `smith` and this situation.
+- Clayton `smith`, editor and publisher, and champion of lost causes.
+- Coop, `smith`, finish moving the co2 scrubbers back onto the clark.
+- Man in new york wants a 9 millimeter `smith` and wesson model 5946.
+- Now come here and see this -- someone should stay with mr. `smith`.
+- We have a situation here... `smith`, where the hell have you been?!
+- Mr. `smith`, i've read some of your plays and i'd like an autograph.
+- The sheriffs think you won't let me talk to `smith` because he's dead.
+- Well, your children are very bright-- and *they* say jefferson `smith`.
+- Miss schuyler - i mean, mrs. `smith` - she engaged me this morning, sir.
+- We are having a reception here this evening� i want to see stew `smith`.
+- If this was just a little bit looser, i said i was kevin `smith`'s father.
+- There were a few guys in my class with names like john `smith`, bill jones.
+- But it's a three-way tie between the stooges, patti `smith` and the runaways.
+- The first thing to do is-- present mr. `smith` to the press--in the *right* way.
+- Once they notice the ithaca and the `smith`, they'll know we ain't foolin' with 'em.
+- I'm quiz kid donnie `smith` from the tv -- nothing special, just a spoke in the wheel.
+- My name is `smith` - well, that you seem to have been able to stand for the last month.
+- Hey, `smith`... we're still venting trace gasses, gimme twenty minutes to plug the hole.
+- I don't know, they look pretty happy to me... mr. `smith` - -- the "complimentary couch."
+- I am dr. `smith`'s brother -- reverend `smith` -- and i am supposed to perform the ceremony.
+                 

@@ -1,0 +1,107 @@
+---
+title: "mention in a sentence | mention example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mention"
+---
+- I forgot to `mention`.
+- Not to `mention` on me.
+- He didn't `mention` her.
+- He didn't `mention` him.
+- Not to `mention` stupid.
+- She didn't `mention` it.
+- I'11 `mention` it to him.
+- When did i `mention` him?
+- Does he ever `mention` me?
+- Don't `mention` the beers.
+- Don't `mention` khrushchev.
+- He didn't `mention` a park.
+- I'll `mention` it upstairs.
+- `Mention` it, don't insist.
+- Not to `mention` abduction.
+- Not to `mention` disgusting.
+- Did she `mention` the police?
+- Don't forget to `mention` us.
+- Funny you should `mention` it.
+- He didn't `mention` the money.
+- I know you won't `mention` it.
+- Not to `mention` half my gear.
+- Not to `mention` you're drunk.
+- Barks at the `mention` of food.
+- Best if you don't `mention` it.
+- Don't `mention` this to anyone!
+- Oh no, don't even `mention` it.
+- Yes, now that you `mention` it.
+- Did he `mention` the mayflowers?
+- Not to `mention` court reynolds.
+- Don't `mention` it, captain kirk.
+- I didn't even `mention` new york.
+- So, you didn't `mention` my name?
+- He says, did someone `mention` me?
+- I didn't `mention` her once today.
+- Did she ever `mention` any friends?
+- Doesn't want to `mention` her name.
+- I'll bet she didn't `mention` that.
+- My itinerary didn't `mention` that.
+- Not to `mention` he's a bed-wetter.
+- Why am i gonna `mention` your name?
+- Don't ever `mention` his name again.
+- I'd be happy to `mention` it to him.
+- It's funny you would `mention` rose.
+- Are you afraid to `mention` his name?
+- Detail i guess i forgot to `mention`.
+- Eve did `mention` the play, you know.
+- Oh -- did i forget to `mention` that?
+- <u>no</u> `mention` of the girlscout.
+- But don't `mention` it to your father.
+- Don't `mention` that word around here.
+- I'11 be sure to `mention` that to him.
+- Not to `mention`, "saved by the bell".
+- They didn't `mention` politics at all.
+- You're selfish, not to `mention` dumb.
+- I'11 ... `mention` your business or ...
+- Not to `mention` its therapeutic value.
+- Whatever you do, don�t `mention` italy.
+- You didn't even `mention` the suicides.
+- Don't expect you to `mention` it to him.
+- He `mention` keyser soze i don't get it.
+- I `mention` marriage, all of a sudden...
+- All right, all right, don't `mention` it.
+- Her bosom--did i `mention` her bosom?
+- I'll never even `mention` her name again.
+- Not to `mention` ketchup and hot peppers.
+- Not to `mention` kill the people we love.
+- You're the only person to `mention` that.
+- Did max `mention` anything about any jobs?
+- Gosh, you didn't `mention` the big clue...
+- He's waiting for you to `mention` `mention`.
+- Okay, but i promise i won't `mention` you.
+- Only the `mention` made in that phone call.
+- The report didn't `mention` nails and eyes.
+- You forgot to `mention` their nuclear subs.
+- Did she `mention` any contests that she won?
+- I only `mention` it to illustrate a point...
+- Not to `mention` being taken over by... you.
+- Why didn't you `mention` it in your letters?
+- Not to `mention` my men who lost their lives.
+- Not to `mention` the heartbreak of psoriasis.
+- But becca doesn't `mention` that in her notes.
+- `Mention` my family once more and you're dead.
+- `Mention` my name, we never do business again.
+- I'm expecting you won't `mention` it again.
+- Don't `mention` that while i'm in the building.
+- Not to `mention` andrew zhdanov... otis, come!!
+- No wonder he didn't want to `mention` her name.
+- So she didn't `mention` anything more about it?
+- You ever heard him `mention` the name leo crow?
+- I'd like to `mention` a few <u>names</u>, who...
+- Not to `mention` the ash-poisoned soil, - ready?
+- She didn't by any chance happen to `mention` me?
+- I find it irritating, not to `mention` insulting.
+- You're right... not even to `mention` you and me.
+- I don't `mention` that anna's a vegetarian, did i?
+- Hey, i thought you were gonna `mention` us upstairs.
+- If i got out, i'd never `mention` what happens here.
+- Don't `mention` the sex thing unless he brings it up.
+- That would be murder, not to `mention` treason, lord?
+                 

@@ -1,0 +1,107 @@
+---
+title: "needs in a sentence | needs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "needs"
+---
+- He `needs` assistance.
+- He `needs` guarantees.
+- He `needs` our bodies.
+- Hey, abby `needs` you.
+- It `needs` correction.
+- It `needs` to be done.
+- Nyko `needs` you here.
+- She `needs` some time.
+- She `needs` you, finn.
+- Special `needs` class.
+- That's all he `needs`.
+- The girl `needs` help.
+- What about my `needs`?
+- Who `needs` this shit?
+- A man `needs` a family.
+- I know what he `needs`.
+- "my mother `needs` me."
+- Prowler `needs` a jump.
+- She `needs` me, archie.
+- She `needs` more water.
+- She `needs` to be home.
+- Whatever jamie `needs`.
+- But he `needs` me alive.
+- But max, she `needs` me.
+- Everybody `needs` money.
+- He `needs` a nightblood.
+- He `needs` medical help!
+- Party `needs` the bread.
+- She `needs` an exorcist.
+- Tell me what it `needs`.
+- The door `needs` a lock.
+- This car `needs` petrol.
+- Walt `needs` to see you.
+- Who `needs` maps anyway?
+- Who `needs` smart women?
+- You see he `needs` help.
+- But he `needs` treatment.
+- Everyone `needs` a plant.
+- He `needs` a real doctor.
+- He `needs` a room, dusty.
+- He `needs` hospital care.
+- Never `needs` sharpening.
+- Ok. but hope `needs` you.
+- She `needs` to slow down.
+- This `needs` clearing up.
+- What `needs` clearing up?
+- What `needs` sorting out?
+- ♪ when nobody `needs` me?
+- You know what it `needs`?
+- Your friend `needs` help.
+- Your horse `needs` water.
+- A girl `needs` protection.
+- Everybody `needs` you!
+- Everybody `needs` a hobby.
+- She `needs` a case worker.
+- She `needs` real medicine.
+- She `needs` to be changed.
+- So just `needs` some love.
+- Who `needs` his business?!
+- An' rosasharn `needs` milk.
+- Biscuit `needs` some gravy.
+- Bob, andy `needs` to relax.
+- El `needs` to be recharged!
+- Everyone `needs` something.
+- He `needs` a poet's advice.
+- He `needs` to take the key.
+- It `needs` an accelerant...
+- Joe thinks he `needs` kids.
+- My country `needs` justice.
+- My father `needs` a doctor.
+- She `needs` you to kill me.
+- Someone `needs` to grow up.
+- The front `needs` sweeping.
+- The world `needs` dreamers.
+- This boy `needs` treatment.
+- Who `needs` these thoughts?
+- Like she `needs` protection.
+- Maybe she `needs` help, ted.
+- Place `needs` a lot of work.
+- So he `needs` the fireballs?
+- Your government `needs` you.
+- Your mouth `needs` the rest.
+- He just `needs` some clothes?
+- He `needs` his pills, please.
+- He `needs` professional help.
+- He `needs` to be turned over.
+- I think he just `needs` help.
+- It `needs` some reorganizing.
+- Nothing `needs` to be rolled.
+- The equipment `needs` repair.
+- The `needs` of the few... ...
+- The ship `needs` its captain.
+- Clarke `needs` to examine you.
+- He `needs` your blood to live.
+- Hurry, the woman `needs` help!
+- I mean, i've got `needs`, too.
+- I think he `needs` a new wife.
+- Now who `needs` to trust who ?
+- She `needs` medical attention.
+- Show her she `needs` you, too.
+                 

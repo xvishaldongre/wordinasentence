@@ -1,0 +1,99 @@
+---
+title: "smoking in a sentence | smoking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "smoking"
+---
+- I just quit `smoking`.
+- You must be `smoking`.
+- `Smoking` or nonsmoking?
+- Charge me with `smoking`?
+- I just gave up `smoking`.
+- `Smoking` or non-`smoking`?
+- They're `smoking` me out!
+- To a `smoking` blue giant?
+- When'd you quit `smoking`?
+- You should stop `smoking`.
+- I quit `smoking`, didn't i?
+- You shouldn't be `smoking`.
+- Parents hate your `smoking`.
+- `Smoking` makes me feel ill?
+- Does my `smoking` bother you?
+- When did you start `smoking`?
+- You stop `smoking`, you hear?
+- Oh, when'd you quit `smoking`?
+- Well, i'm not `smoking`, okay?
+- Let's get this party `smoking`.
+- Nobody's `smoking` anybody out.
+- Will you please stop `smoking`?
+- Yeah, you cock-`smoking` clerk.
+- How long have you been `smoking`?
+- 'oughta give up `smoking`, jocko.
+- Oh, i've got to give up `smoking`.
+- `Smoking` is absolutely forbidden.
+- `Smoking` is an obsession with me.
+- You know, `smoking`'s bad for you.
+- My `smoking` doesn't go over at all.
+- It's a method for quitting `smoking`.
+- It's like `smoking` without inhaling.
+- `Smoking` makes him spit and feel ill.
+- There's no `smoking` in this building.
+- You been `smoking` too much shit babe.
+- You'll get lip cancer `smoking` those.
+- I was `smoking` this other -- good shit.
+- I'm not myself since i stopped `smoking`.
+- `Smoking` is bad for your heart, michael.
+- Pop doesn't like people `smoking` in here.
+- Hey, you mind not `smoking` that around me?
+- How long have you been `smoking` marijuana?
+- Smell like chemicals...for `smoking` drugs.
+- What's this... have you been `smoking`... ?
+- The united states is a no- `smoking` nation.
+- What was cookie `smoking` when he drew this?
+- Somebody's been `smoking` in here for months.
+- What did i say about `smoking` in this house?
+- Because i am patient, chain-`smoking` lillian.
+- Wendell can smell if someone's been `smoking`.
+- Even if we quit `smoking` and cut out red meat.
+- How much of that stuff you guys been `smoking`?
+- I smell like the `smoking` area of a nice resort.
+- What do you suppose today's saints are `smoking`?
+- If dad catches us `smoking` down here, we're dead.
+- I'm off the sauce, i'm not even `smoking` anymore.
+- What are you gonna do -- charge me with `smoking`?
+- First off, he tells me to stop `smoking` cigarettes.
+- Noinch, noinch, noinch-`smoking` weed, `smoking` weed!
+- There is no `smoking` in this building, ms. tramell.
+- A cruddy lung, `smoking` through a hole in your throat.
+- I want the next thing `smoking` and i don't care whose.
+- Just to keep me company, sam -- i hate `smoking` alone.
+- There's no `smoking` or drinking on the school grounds.
+- What the hell have you people been `smoking` out there?
+- You'll die if you keep `smoking` those in your condition.
+- She was the uhh...first girl ever suspended for `smoking`.
+- `Smoking` the low-tar cigarettes, shaving the bikini line.
+- I'll just tell lester we were `smoking` a couple of joints.
+- Your kid was down around diver's cover again, `smoking` pot.
+- You've also been `smoking` a lot of marijuana, i understand.
+- I should stop `smoking` these damn things is what i should do.
+- If i'm going to die for the cia, i'm going to go out `smoking`.
+- Moscow, where gangsters rule the night and i gave up `smoking`.
+- You stopped `smoking` sixteen years ago, is that what you said?
+- Yes -- he stopped `smoking` and drinking and exercised regularly.
+- I never intended -- your lawyers feel it's the ... "`smoking` gun."
+- This'll be great in my report, my mother was suspended for `smoking`.
+- Sleeping in the park, `smoking` dope and sticking tulips up their ass.
+- There hasn't been any `smoking` brown on the street in -- it's nothing.
+- You know, when somebody gets electrocuted, their skin starts `smoking`.
+- The stigma is just old white men in `smoking` jackets, drinking whiskey.
+- No eating or `smoking` in here, but there's a coffee machine in the hall.
+- The `smoking`-room will be closed and the lights put out at twelve o'clock.
+- Honey, i'm not, please... you better not be `smoking`, that's all i can say.
+- They're still doing a lot of yelling and pot-`smoking` but nothing to worry about.
+- They catch you `smoking` tobacco, they'll stand you up against a wall and shoot you.
+- If i hadn't blown my arms off, mom never woulda started `smoking` in the first place.
+- `Smoking` causes lung cancer, heart disease, emphysema, and may complicate pregnancy.
+- So when you hear the `smoking` sign go 'ding', you know everything's going to be okay.
+- It has been a `smoking`-room by tradition ever since father -- it is quite late enough.
+- Such as sitting in a darkened room, watching videos, drinking, `smoking` dope and wanking.
+                 

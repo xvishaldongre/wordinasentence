@@ -1,0 +1,107 @@
+---
+title: "reading in a sentence | reading example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reading"
+---
+- Are you `reading` this?
+- No, it's not `reading`.
+- What are you `reading`?
+- Enjoying your `reading`?
+- Should i keep `reading`?
+- Are they worth `reading`?
+- By `reading` my thoughts?
+- Couldn't get a `reading`.
+- I did a lot of `reading`.
+- She was always `reading`.
+- You're just `reading` me.
+- It's `reading` right, man.
+- Proceed to next `reading`.
+- `Reading` klingon is hard.
+- `Reading` and speaking.
+- But they'd be `reading` it.
+- He's `reading` a newspaper!
+- Were you eyebrow `reading`?
+- All that `reading` paid off.
+- I'll get one more `reading`.
+- `Reading` dirty comic bocks.
+- Try `reading`, for a change.
+- Catching up on his `reading`.
+- Charlie, at a will `reading`?
+- Gal gadot `reading` for lisa.
+- I miss `reading` to the boys.
+- I've been `reading` the book.
+- I've been `reading` up on it.
+- Just got a `reading`... what?
+- You were `reading` my renoir.
+- She's `reading` the bible.
+- Control tower, `reading`, sir.
+- I don't do a lot of `reading`.
+- I'll catch up on my `reading`.
+- Little light `reading` matter.
+- Read it and keep on `reading`.
+- They monitor `reading` habits.
+- We'll take `reading` as we go.
+- What are you really `reading`?
+- Chewie get a `reading` on that.
+- I'm `reading` her code, harper.
+- I'm `reading` her code, harper.
+- I've been doing some `reading`.
+- Well what you `reading` it for?
+- Don't go `reading` my lips, man.
+- You getting a `reading` on them?
+- You've been `reading` for hours.
+- Me a-`reading` the holy word!
+- Are you `reading`, birthday girl?
+- I know this part, keep `reading`.
+- There's your life form `reading`.
+- By `reading` the book of the dead.
+- I'm getting no sub `reading`, sir.
+- Now secure a sinex drop `reading`.
+- Pleased to see you `reading` this.
+- Regan, why are you `reading` that?
+- Yes, i do retain `reading` skills.
+- You're `reading` the devil's lies.
+- I have been `reading` your journal.
+- Might as well get a full `reading`.
+- You finish the `reading` for e-con?
+- Are you `reading` my mind right now?
+- I haven't finished `reading` it yet.
+- I'm `reading` to kill a mockingbird.
+- Not exactly light `reading`, i know.
+- `Reading` the patient's vital signs.
+- Well, you're not `reading` it right.
+- Your ghf `reading` is minus fifteen.
+- You get a `reading` on those tremors?
+- An unidentifiable life form `reading`.
+- Haven't you been `reading` your sassy?
+- Is that your kind of `reading`, steve?
+- I would like to finish `reading` this.
+- <font color=#ffff2d> quite a `reading`!
+- I don't want to go to a will `reading`.
+- I remember `reading` a poem in college.
+- I've been `reading`, hearing about you.
+- My business card `reading` "associate."
+- `Reading` his copies of the scriptures.
+- Did you cone... up here for a `reading`?
+- Feel free to stop `reading` at any time.
+- If you keep a diary, he is `reading` it.
+- I look forward to `reading` your report.
+- You're sure you're `reading` that right?
+- You were supposed to be `reading` words.
+- You won't have any trouble `reading` it.
+- Don't say that; `reading`'s my salvation.
+- I just kept `reading` them over and over.
+- I don't understand the news i'm `reading`.
+- I find `reading` them inspirational to me.
+- It wasn't `reading`, it was a performance.
+- Only when they make interesting `reading`.
+- You're `reading` for the part of marty.
+- You weren't `reading` huckleberry finn.
+- I've been re-`reading` arsonist's daughter.
+- Nooooo!--going to catch up on my `reading`.
+- Were you wearing your `reading` glasses...?
+- After `reading` about the bombing in dallas.
+- I remember `reading` about her in the paper.
+- Keating said everybody took turns `reading`.
+                 

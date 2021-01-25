@@ -1,0 +1,61 @@
+---
+title: "tone in a sentence | tone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tone"
+---
+- Oh, i like that `tone`.
+- Watch the `tone` fella.
+- Your skin `tone`'s off.
+- Do you hear that `tone`?
+- From the festival, `tone`?
+- I resent your `tone`, sir.
+- Same cadence, same `tone`.
+- `Tone` down our headlines?
+- Watch your `tone`, mister.
+- You said it in that `tone`!
+- No fat, but no `tone` either.
+- She's practically `tone`-deaf.
+- Your sinister `tone` intrigues me.
+- I simply can not stand that `tone`!
+- Yeah, they got great muscle `tone`.
+- I'm sorry for my `tone` earlier.
+- I'm building a damn `tone` generator.
+- And we only have two `tone` generators.
+- Please leave a message after the `tone`.
+- The color clashes with your skin `tone`.
+- Don't use that `tone` with me, young man.
+- This `tone` of yours approaches insolence.
+- Well, i just hear that `tone`, that's all.
+- [dial-up `tone` screeches] jason: oh, shit!
+- Don't take that `tone` with me, my good man.
+- Maybe we could `tone` down this stripe a bit.
+- When he fears the `tone`, we move to phase 2.
+- I can help you `tone` that body up in no time.
+- I got a winder left, but no good `tone` on it.
+- There was its `tone` -- aggressive but playful.
+- I thought we were gonna `tone` down that flabby ass.
+- No computer, couldn't even use a touch `tone` phone.
+- I seem to detect a hint of ingenuousness in your `tone`.
+- ...okay... alright, well...you've got to `tone` it down.
+- Don't you <u>ever</u> address me publicly in that `tone`.
+- He hardly ever talks and when he does it's in that `tone`!
+- Increased metabolism, high energy, improved muscle `tone`.
+- What happened to signal mirrors or two-`tone` smoke fires?
+- I don't like your `tone`, and i don't like your references.
+- High-frequency `tone` generators don't grow on trees, clarke.
+- It's like taking somebody to a concert when he's `tone` deaf.
+- Remember, pay attention to how she talks about foley, her `tone`.
+- I can tell from the `tone` of your voice, dave, that you're upset.
+- Don't use that `tone` of voice with me... never mind, i'll take gordon.
+- I think it was my `tone` of voice more than anything else that sold you.
+- I can hear you very well if you just talk in a normal `tone` of voice.
+- Listen believe me, once we get to the moon, your `tone` is going to change.
+- I just got a dial `tone`-- i don't think he understood what you were saying.
+- Your show has sparked a world of controversy, provoked a `tone` of dialogue.
+- I put my ass on the line to save yours, so don't pull a hostile `tone` with me!
+- From their `tone` of voice on the phone, i'd say they're taking us more seriously.
+- But if you want me to `tone` it down... don't you think it's a little too... bright?
+- Look, glenn, i know you cool, but you don't have to give me no `tone` of voice, okay?
+- Elevated levels of serotonin and dopamine i'm changing the `tone` frequency to 400 hertz.
+                 

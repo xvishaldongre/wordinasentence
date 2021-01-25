@@ -1,0 +1,89 @@
+---
+title: "monkey in a sentence | monkey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "monkey"
+---
+- Where's your `monkey`?
+- He's a lovely `monkey`.
+- `Monkey` knows the way.
+- The `monkey`, of course.
+- Grease `monkey` these days?
+- He's still just a `monkey`.
+- ♪ maybe the `monkey` ♪ what?
+- What's your `monkey`'s name?
+- Why, that's a `monkey` suit!
+- You cunning little `monkey`.
+- You'll wake up that `monkey`.
+- But i'm only a `monkey` and...
+- Even less in `monkey` dollars.
+- Everybody, grab your `monkey`.
+- Such a pretty little `monkey`.
+- I think i can raise a `monkey`.
+- `Monkey`, this is too exciting!
+- Putting a `monkey` on his back.
+- I'll be a `monkey`'s kid sister!
+- Okay, no `monkey` business then.
+- You shouldn't `monkey` with him.
+- Hands off the suit, `monkey`-boy.
+- Id be like a `monkey` at the zoo.
+- You try that you little `monkey`.
+- Correction, the `monkey` stole it.
+- He liked the `monkey`, didn't you?
+- My wife in a cage with a `monkey`.
+- Tame your little `monkey` of love!
+- That `monkey` is <u>good luck</u>.
+- You're too much of a butt-`monkey`.
+- A `monkey` is a huge responsibility.
+- This is the year i get the `monkey`.
+- The old `monkey`-with-the-lamp trick.
+- Dumb `monkey`-ass had a pistol on him.
+- Kong ... that's your `monkey`, denham.
+- I thought he said by the `monkey` house.
+- Don't you just love a moonwalking `monkey`?
+- Oh, she's slipped out, the little `monkey`.
+- What are you staring at, you ugly `monkey`?
+- Tony: he's a chunky `monkey`, let's get him.
+- I'll be right back after i choke my `monkey`.
+- Oh, look at that adorable `monkey` down there.
+- The `monkey` on your back is the latest trend.
+- But the kids on the `monkey` bars are climbing.
+- Now what are you staring at, you ugly `monkey`?
+- Making a first class grade a `monkey` out of me.
+- Sure glad you didn't let make a `monkey` of you.
+- This spunky `monkey` on my right is terry macey.
+- We gonna need to talk about that `monkey` later.
+- Well, i'll be an alabama porch `monkey`'s uncle.
+- What this `monkey` didn't sniff was opportunity.
+- Abu, keep your little `monkey` hands to yourself.
+- That's not `monkey` nuts son; you can still fold.
+- It's like carrying a `monkey` around on your back.
+- What the hell are you doing in here, wrench `monkey`?
+- This is a banana eating a `monkey`, nature in reverse.
+- This is getting to be a regular `monkey` and dog show.
+- After what the `monkey` did during that birthday party.
+- We have a `monkey` that's our permanent responsibility.
+- `Monkey` finger sniff sponsorships but even heroes fall.
+- Vigi, vigi, vigi -- you have been a bad little `monkey`.
+- Yeah, well, `monkey` or not i'm still editor of this rag.
+- Six feet -- seven -- eight -- this guy was a bad `monkey`.
+- What is your malfunction, you fat barrel of `monkey` spunk?
+- Confusin' me with johns now -- fear was <u>his</u> `monkey`.
+- Or `monkey` fucker- shiteater- we're going to find our boys!
+- After that i'll introduce you to my favorite `monkey`, elijah.
+- Having a `monkey` as the only parental authority in your life.
+- `Monkey` finger sniff t-shirts, sucks, but i'm dealing with it.
+- Now you have me in a cage with a `monkey` and a gun to my head.
+- Don't got patience to suffer you children and this `monkey` junk.
+- I'm not going to let that little hussy make a `monkey` out of me.
+- In my `monkey` ward safehouse 'cause i can't take my family home?
+- There was this other place where they served live `monkey` brains.
+- The only story here is how this guy made a `monkey` out of you, al.
+- The `monkey` in the wrench, the pain in the ass - who are you, then?
+- You joined up in that `monkey` troop cuz you had a plan for yourself.
+- A rockford sock `monkey`, studebaker pedal car, how about you, errand boy?
+- How does it feel being the ugly little `monkey` they keep to amuse themselves--?!
+- Well, well... that `monkey` and that `monkey`'s estate from the children of gabriel.
+- You were a `monkey`.... don't be such a grandma...i was always climbing something....
+- Jaha: how sure are you that the debris "`monkey` smells finger and falls out of tree."
+                 

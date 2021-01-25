@@ -1,0 +1,51 @@
+---
+title: "average in a sentence | average example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "average"
+---
+- Almost a 133 `average`.
+- Take your `average` cop.
+- On `average` forty million.
+- The `average` working stiff.
+- `Average` rainfall, 48 inches.
+- But superman isn't an `average` man.
+- So does your `average` cocker spaniel.
+- Or shall we say a little above `average`.
+- Waal, what was the per-screen `average`...?
+- Our batting `average` isn't very good is it?
+- The `average` man would go after the reward.
+- It's a totally normal, `average` neighborhood!
+- Our films `average` 98% on rotten communion wafers.
+- What i'd call the typical room of an `average` man.
+- You know how many people on `average` read one copy?
+- That means we gotta `average` ninety- four miles per.
+- The `average` people don't think it's much of a crisis.
+- The one we pick has gotta be the typical `average` man.
+- Even cutting half your classes, you have a b- `average`.
+- The `average` first offender gets two years for burglary.
+- She's got a great `average`, but she's looking for a prince.
+- Your `average` rolls royce doesn't have to pass as many tests.
+- Processing an `average` of 94% of all internet search requests.
+- `Average` price of $47 a share and $4 per contract for the call.
+- You know how much money the `average` jizz-mopper make per hour?
+- To him, the great barrier reef is just an `average` barrier reef.
+- A bomb with enough radiation to incinerate an `average` man like .
+- How many b-`average` students do you think they take at west point?
+- I'm here as an `average` joe, who happens to love your sister susie!
+- The problem of the `average` man, of all the john does in the world.
+- `Average` day, my glasses are everywhere -- everywhere i look, glasses.
+- If i `average` 80 miles an hour for 14 straight hours, gl50 9k smart tv.
+- Do you think the `average` storm trooper knows how to install a toilet main?
+- But in case this is the last time i get to do this, - they were so `average`.
+- Did you know that the `average` person produces three pounds of garbage a day?
+- A pair of `average` citizens have decided to risk their lives for their country.
+- My dad used to be in the army, but now he's just your `average` hvac specialist.
+- You'll see that there's really much more space than the `average` three bedroom.
+- Okay, when an alarm goes off, you got an `average` of four minutes response time.
+- Her basic intelligence is probably above `average`, maybe quite a bit above `average`.
+- That i'm just you `average` healthy totally fucked-up cop and let me get out of here?
+- The brainwaves of mutants are quite different than those of the `average` human being.
+- Your `average` newspaper guy or hard copy lady or whatever, they can't buy this stuff.
+- Be proud because they'll never trust you, sir, because we speak for the `average` american.
+                 

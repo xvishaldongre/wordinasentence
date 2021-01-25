@@ -1,0 +1,69 @@
+---
+title: "attractive in a sentence | attractive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attractive"
+---
+- Isn't she `attractive`?
+- He's an `attractive` man.
+- She is very `attractive`.
+- `Attractive` buttons, yes?
+- How `attractive` is that?!
+- You're `attractive`, tita.
+- You're an `attractive` man.
+- You're young, `attractive`.
+- Do you find him `attractive`?
+- Did you find him `attractive`?
+- She must be very `attractive`.
+- They want to be "`attractive`."
+- I think she's very `attractive`.
+- But she was an `attractive` girl.
+- She's an `attractive` older woman.
+- She's an `attractive` young woman.
+- You really think i'm `attractive`?
+- You're `attractive`, you're smart.
+- Don't you find christie `attractive`?
+- He met this very `attractive` poodle.
+- He does want you to look `attractive`.
+- I do, i have to be `attractive` to god.
+- `Attractive` in a hammy sort of way.
+- Do you think guys find that `attractive`?
+- He came on to every `attractive` student.
+- Craig, i just don't find you `attractive`.
+- You know, you're a very `attractive` girl.
+- Reminded me that i used to be `attractive`.
+- I don't find her that `attractive`, for one.
+- And no `attractive` young woman declared missing.
+- He comes with an incredibly `attractive` friend.
+- ... you needn't worry about being `attractive` here.
+- I'd be lying if i didn't say i find you `attractive`.
+- Listen, you guys are too `attractive` to be caterers.
+- I really like you and i think you're very `attractive`.
+- Come, come, you're a widow -- a most `attractive` widow.
+- I don't want you to see me -- i'm not very `attractive`.
+- We're `attractive` and charismatic and successful and...
+- Because i find you very `attractive` and any time -- yes.
+- I mean, maybe he would find her, i mean you `attractive`.
+- You know, you're quite `attractive` for a woman your age.
+- You are the most `attractive` man i've ever laid ears on."
+- Which we already knew... have women found you `attractive`?
+- Hell - i was a lot more `attractive` when the evening began.
+- I told you she wasn't `attractive`... she's all right, andy.
+- Listen, don't go around being `attractive` to anyone but me .
+- You may not suspect it, but i'm still `attractive` - to some.
+- If i knew about this babe... you're very `attractive`, my dear.
+- I'm sure i would have remembered anybody as `attractive` as you.
+- In fact i thought you were more, shall we say, `attractive` than him.
+- Chickie, i'll have to laugh at that - an `attractive` girl like you...!
+- I think i said, you mean the `attractive` guy in the gray flannel suit?
+- You're an `attractive` man, but you need to take better care of yourself.
+- I think -- i think you're the most `attractive` of all my parents' friends.
+- From what you tell me about it, it certainly doesn't sound very `attractive`.
+- I sure would like to know where a guy runs into a girl as `attractive` as this.
+- You have got to be the most `attractive` self- conscious person i've ever seen.
+- Most serial killers are `attractive`--slightly off white males in their twenties.
+- Well, that little girlfriend, she was `attractive` in a cheap sort of way of course.
+- We're gonna shop at all the stores you like a new zoo with more `attractive` animals.
+- Witnesses described kaplan's assailant as an `attractive` blonde in her late twenties.
+- Wouldn't this be a great world if insecurity and desperation made us more `attractive`?
+                 

@@ -1,0 +1,7 @@
+---
+title: "envisages in a sentence | envisages example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "envisages"
+---
+## Unfortunately, we have no example sentences for envisages                 

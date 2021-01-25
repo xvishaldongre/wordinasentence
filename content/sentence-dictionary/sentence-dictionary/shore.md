@@ -1,0 +1,56 @@
+---
+title: "shore in a sentence | shore example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shore"
+---
+- `Shore` leave, admiral.
+- I could `shore` use some.
+- Get back from the `shore`.
+- A blister `shore` can hurt.
+- Vincent, where's the `shore`?
+- I'm giving them `shore` leave.
+- I `shore` could, miss rebecca.
+- Can you get to the `shore` now?
+- `Shore` leave's been cancelled.
+- We'll lunch at the sea `shore`.
+- You're a long way from `shore`.
+- Let's get away from the `shore`.
+- Ma's `shore` gonna like it here.
+- This cake `shore` is tasty, son.
+- They `shore` don't waste no time!
+- Remember 1959, the jersey `shore`?
+- She `shore` don't look prosperous.
+- In peace may you leave the `shore`.
+- It `shore` is good to see you, boy!
+- In peace, may you leave the `shore`.
+- In peace, may you leave this `shore`.
+- Well, at least i can swim to `shore`.
+- Get your big gun and guard the `shore`.
+- In peace… may you leave this `shore`.
+- Maybe, but we `shore` takin' a beatin'.
+- No, no, not when y'can see the `shore`.
+- `Shore` looks like my lucky day, anyway.
+- Leda walks by the `shore`, gathering shells.
+- They'd never sail this close to the `shore`.
+- That should `shore` up that prick hank drexler.
+- You `shore` done got to be such a big little man!
+- I'll only go as far as the `shore` and wait for you.
+- We can't move either -- we'll end up on the `shore`.
+- That possum `shore` whipped the hell outta you tonight!
+- Listen, uh... hank and i think it best if you stay on `shore`.
+- And then we split up and search the `shore` in both directions.
+- Even with a cramp, she would have managed to reach `shore` somehow.
+- If it swam up on `shore`, and it battled a hawk, who's gonna win?
+- Well... to `shore` up product identification and preserve market share.
+- This is the ship-to-`shore` operator - i have a call for miss sugar cane.
+- South `shore` hayseeds, this is why i never play tahoe, or redneck reno...
+- The people on `shore` who handle a load we run are our people, not your people.
+- "or whether tempest tossed thee here ashore, in peace, may you leave the `shore`.
+- Problem is, don't want to hold a conventional sub off-`shore` for target practice.
+- We could go in tomorrow at dawn -- there's always off-`shore` wind in the morning.
+- Admiral donald will make certain all your ship-to- `shore` transmissions are jammed.
+- We brought you a nice little boat, so you can all get back to `shore`, safe and sound.
+- I `shore` would like to do that, ma'am, but the fack is, we ain't got but a dime for it.
+- I've identified every little birdie we're going to watch tomorrow on the eastern `shore`.
+                 

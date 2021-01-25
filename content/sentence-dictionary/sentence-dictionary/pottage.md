@@ -1,0 +1,7 @@
+---
+title: "pottage in a sentence | pottage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pottage"
+---
+## Unfortunately, we have no example sentences for pottage                 

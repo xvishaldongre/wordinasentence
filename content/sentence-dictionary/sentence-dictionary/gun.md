@@ -1,0 +1,107 @@
+---
+title: "gun in a sentence | gun example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gun"
+---
+- Did you carry a `gun`?
+- Did you see the `gun`?
+- Gimme your `gun`, boy!
+- He had the only `gun`.
+- He's got a `gun`, sir.
+- I also have the `gun`.
+- I haven't got a `gun`!
+- Point the `gun` at me!
+- The `gun`'s in case!!!
+- We need a `gun`... no.
+- I want a big `gun`.
+- "d" `gun`'s down to 20.
+- Did you buy that `gun`?
+- Don't touch that `gun`!
+- Drop the `gun`, walter.
+- Here, i'll get a `gun`.
+- How much for the `gun`?
+- I pulled my `gun` once.
+- Now put down the `gun`.
+- Now put the `gun` down.
+- That son of a `gun`...!
+- They don't get a `gun`.
+- Try to reach the `gun`!
+- Wavin' a `gun` around?!
+- You aim a `gun` at me?!
+- You still want a `gun`?
+- Beth -- gimme the `gun`.
+- ... do you have a `gun`?
+- Everybody's got a `gun`.
+- I can still use a `gun`.
+- If i could just - `gun`.
+- I hear you have a `gun`.
+- I never carried a `gun`!
+- Just put the `gun` down.
+- The `gun` just went off.
+- The `gun` will be there.
+- What if she has a `gun`?
+- You got your riot `gun`?
+- Your `gun`, your prints.
+- A naked guy with a `gun`?
+- Can i have my `gun` back?
+- Clarke: bellamy, `gun`!
+- D `gun`'s down to twenty.
+- I ain't wearing no `gun`.
+- I'm under the `gun` here.
+- It means you got a `gun`?
+- I want the `gun` emptied.
+- I wouldn't drop my `gun`.
+- Maybe i jumped the `gun`.
+- Puff, put the `gun` down.
+- Put down the `gun`, finn.
+- Put the `gun` down, alan.
+- Put the `gun` down, case.
+- Put the `gun` to my head.
+- Shoulda brought my `gun`.
+- So, do i get a `gun` now?
+- We've only got one `gun`.
+- What caliber is my `gun`?
+- When did you buy a `gun`?
+- Why mitchell had a `gun`.
+- Why would i have a `gun`?
+- You lied about the `gun`.
+- Chewie, give me the `gun`.
+- He was going for my `gun`.
+- I have a `gun` in my room.
+- Just fireman with a `gun`.
+- More bullets in the `gun`?
+- Moss looks the `gun` over.
+- Or you can hold the `gun`.
+- Put down that `gun`, earl.
+- Put the `gun` down claire.
+- That's an expensive `gun`.
+- The kid pulls out a `gun`.
+- Then what's the `gun` for!
+- Throw your `gun` down now!
+- Tyler, put the `gun` down.
+- What kind of `gun` was it?
+- Where'd you get the `gun`?
+- With a bloody `gun`- butt.
+- You mean about that `gun`?
+- Can you put down the `gun`?
+- C'mon, give me the `gun`...
+- If he sees you... no `gun`!
+- I've got a `gun` here, sir.
+- Now drop the goddamn `gun`.
+- Please, put down the `gun`.
+- Put the `gun` down, joroum.
+- Put the `gun` on the table.
+- What caliber is your `gun`?
+- What kind of `gun` is that?
+- With his `gun` of the hand.
+- Yeah, do i get a `gun` now?
+- You leave that `gun` alone!
+- You're not getting a `gun`.
+- Bela, what's with the `gun`?
+- "c" `gun`'s right behind it.
+- Don't we have another `gun`?
+- [gunﬁre] no, no, listen.
+- He's got a `gun`, hasn't he?
+- He started carrying a `gun`.
+                 

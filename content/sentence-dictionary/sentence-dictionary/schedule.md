@@ -1,0 +1,74 @@
+---
+title: "schedule in a sentence | schedule example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "schedule"
+---
+- Way behind `schedule`.
+- Where's my `schedule`?
+- How is your `schedule`?
+- Same `schedule`'s okay.
+- We still on `schedule`?
+- I got a full `schedule`.
+- You're on the `schedule`.
+- I got a `schedule` to keep.
+- I'll `schedule` the launch.
+- I changed the `schedule`.
+- Can you finish on `schedule`?
+- Right on `schedule`, admiral.
+- So, what's on the `schedule`?
+- I'm the one with a `schedule`.
+- But it's not on the `schedule`!
+- Did you `schedule` any repairs?
+- What happens to the `schedule`?
+- Class `schedule`, map, book list.
+- We keep a `schedule` aboard ship.
+- Some of us got a `schedule` to keep.
+- That's six years ahead of `schedule`!
+- I hope that works for your `schedule`.
+- We were talking about my `schedule`...
+- I'm here to put you back on `schedule`.
+- The blimp is still on `schedule`, right?
+- Actually, sir, we're ahead of `schedule`.
+- Glad you could fit me in your `schedule`.
+- Thirty-eight minutes ahead of `schedule`.
+- This is already affecting our `schedule`.
+- How free is your `schedule` this afternoon?
+- This last one put me way ahead of `schedule`.
+- Working out some kind of plan and `schedule`.
+- The death star will be completed on `schedule`.
+- Wait -- my social events `schedule` is missing.
+- Don't you know these busses work on a `schedule`?
+- Gee whiz-- we're ahead of `schedule`, that's all.
+- She called to give me my `schedule` for tomorrow.
+- `Schedule` an emergency strategy session for noon.
+- The one you came up to ask...are we on `schedule`?
+- They just pushed up the `schedule` on skywire apps.
+- Oh, and we need to `schedule` a doctor's appointment.
+- My `schedule` is not subject to the whims of lunatics.
+- Try to change the `schedule` and you'll know i'm right.
+- My mother used to say the universe is right on `schedule`.
+- Talk to riker about a work `schedule`, the next commander.
+- That's 'cause we're damn near an hour ahead of `schedule`.
+- I didn't know we had a meeting `schedule` for this morning.
+- And, you know, working out some kind of plan and `schedule`.
+- Everyone in favor of changing the `schedule` raise his hand.
+- The boys on the board want that shuttle to go on `schedule`.
+- Shall i ask the chief of staff to `schedule` your daughter in?
+- I need to go over the treatment `schedule` did you find octavia?
+- Uh, well, you know, the way our `schedule` is, i thought maybe...
+- He's already put me three weeks behind on the shooting `schedule`!
+- We lost a full day's work, took me weeks to get back on `schedule`.
+- Well, you see, the old chap is pretty anxious to open on `schedule`.
+- But those things don't always run on `schedule` -- like a greyhound bus.
+- Jane, i'm not some chore you have to finish so you can stay on `schedule`.
+- When i wake up in the morning and i'm already three hours behind `schedule`.
+- You will sing, and you will sleep,' that is your `schedule` until you depart.
+- Can you take a little time out from your busy `schedule` to dance with the old man?
+- I told you this morning you'd come around, but this is a little ahead of `schedule`.
+- ♪ outside the door, just ask me ♪ we would never presume to question your `schedule`.
+- I figured we had enough problems without monitoring a berkeley kid's class `schedule`.
+- I have a `schedule`... we can't...we got one engine dead, and the other limping badly.
+- I'm in charge of the invoices... and i type up the `schedule` for the trucking fleet...
+- You're going to have to keep up your `schedule` -- your movements are followed too closely.
+                 

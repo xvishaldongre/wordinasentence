@@ -1,0 +1,64 @@
+---
+title: "bureau in a sentence | bureau example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bureau"
+---
+- It was in his `bureau`.
+- The `bureau`'ll pay for it.
+- Welcome to the new `bureau`.
+- We miss you at the `bureau`.
+- The `bureau`'s betrayed us...
+- Mon `bureau` co�tait trop cher.
+- Have you contacted the `bureau`?
+- Call the state homicide `bureau`.
+- Federal `bureau` of investigation.
+- It's regional `bureau` chief cole.
+- I was thinking detective `bureau`.
+- No trouble with the hack `bureau`?
+- I'm `bureau` for 28 years, starling.
+- I can't bring the `bureau` into this.
+- I like working for the `bureau`, sir.
+- Why's the `bureau` been tapping them?
+- The `bureau` already has the best lab.
+- On a piece of notepaper on the `bureau`.
+- Federal `bureau` of investigation, ma'am.
+- It would look bad for the `bureau`, right?
+- I talked to the army's `bureau` of records.
+- There's nothing in the `bureau` mainframe.]
+- But the `bureau` knew sparazza killed heller.
+- For all the `bureau` chiefs and their families.
+- Patrol, internal affairs, but not the `bureau`.
+- I can't think of one `bureau` man who wears them.
+- We're with the `bureau` of cigarettes and chicks!
+- Got a code tip from the `bureau` chief this morning.
+- Dr. broom asked me to invite you back to the `bureau`.
+- The man at hot dog world is a friend, in the `bureau`.
+- Why don't we go ahead and let the `bureau` in on this.
+- He's going to kill off our `bureau` chiefs -- one-by-one.
+- I almost reported you to the `bureau` of missing persons.
+- We're talking about psychology, doctor, not the `bureau`.
+- He'd love anybody who joined the `bureau` to, what was it?
+- I've been hired by your network for the washington `bureau`.
+- That why your picture's torn up in the top drawer of her `bureau`?
+- The orphanage where you were raised, the fbi academy, the `bureau`.
+- You're a disgrace to law enforcement, to the `bureau` -- and to me.
+- My boss says it's one of the strangest requests the `bureau`'s ever had.
+- I've checked them against `bureau` records, check them against your file.
+- The federal `bureau` of investigation is not based on personal preference.
+- `Bureau` of indian annihilation and said i was messin' with your case, man.
+- The life and time of charlie manson, the `bureau`'s computer will tell you.
+- He's attached to the `bureau` of investigation of that which you call u.f.o's.
+- We're with the immigration and naturalization service, intergalactic `bureau`.
+- When they recruited me they told me women made up nine percent of the `bureau`.
+- Michaud was a twenty-two year veteran of the `bureau` -- that's what i'm saying.
+- Karen, i've been with the `bureau` fifteen years, on all kinds of investigations.
+- The `bureau` does not send us in on these cases to lord it over the local police.
+- Tell you what -- go over to the missing persons `bureau` and describe your mother.
+- Federal `bureau` of investigation, special agent chet desmond and agent sam stanley.
+- Updating the condition of all `bureau`- owned vehicles in the southwest sector, sir.
+- In fact, i was already plotting about the best way to meet the foreign `bureau` chiefs.
+- I'd like to say, frankly and off the record, that i resent the `bureau`'s presence here.
+- An indian reservation is within the jurisdiction of the federal `bureau` of intimidation.
+- An old lady just called the detective `bureau` and claims williams is hiding in her cellar.
+                 

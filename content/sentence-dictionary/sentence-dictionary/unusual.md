@@ -1,0 +1,75 @@
+---
+title: "unusual in a sentence | unusual example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unusual"
+---
+- No sir, it's `unusual`.
+- I don't know, `unusual`.
+- It's an `unusual` trade.
+- That's not so `unusual`.
+- Rodents of `unusual` size?
+- You have an `unusual` hand.
+- Graham is an `unusual` name.
+- I admit this is...`unusual`.
+- Oh, that's very - `unusual`.
+- It is not an `unusual` story.
+- He's a very `unusual` android.
+- Marge, lisa's being `unusual`.
+- It was an `unusual` experience.
+- I've had a very `unusual` life.
+- Mr. chekov, anything `unusual`?
+- But that's not `unusual` either.
+- It was an `unusual` place to be.
+- You are an `unusual` politician.
+- Anything `unusual` or unexpected?
+- They're more than a bit `unusual`.
+- It was a very `unusual` automobile.
+- That's not... that's not `unusual`.
+- The last part is much more `unusual`.
+- Well, this pate is rather...`unusual`.
+- In my experience, it's `unusual` for...
+- It's `unusual`, but no cause for alarm.
+- Well, it's not `unusual` in his case...
+- Kelvin, if you see anything `unusual`...
+- Last night, you hear anything `unusual`?
+- `Unusual` design for a contemporary piece.
+- It's actually not that an `unusual` set-up.
+- Not `unusual` for someone in his situation.
+- Something seem `unusual` to you about that?
+- Oh -- `unusual` weather we're having, ain't it?
+- You really didn't notice anything -- `unusual`?
+- I'm told `unusual` promises were made to wigand.
+- Never saw us behaving in any `unusual` way together?
+- What i have to say may sound a little ... `unusual`.
+- It's just `unusual` for pain to subside this quickly.
+- So `unusual` to see a baby with a pacifier these days.
+- Yeah, well i figure these are `unusual` circumstances.
+- Do you remember anything `unusual` happening at the time?
+- We came up with some `unusual` results on your blood test.
+- The phone company shows no `unusual` -- what'd you find out?
+- Moreover... you're a very `unusual` stenographer -- you pay me.
+- It's not all that `unusual` to be spot checked on a big buy.
+- I wouldn't bother you but you said call with anything `unusual`.
+- I need to know if you think there's anything `unusual` about him.
+- I am deeply touched by such `unusual` and unexpected generosity...
+- Something so `unusual` that all the attention went to someone else?
+- Home, school, here... been any place `unusual` in the past twelve hours?
+- Isn't it `unusual` for an asian to be accepted into a cuban prison gang?
+- Perhaps you're not yet familiar with my husband, and his `unusual` case.
+- Set up a security program to detect any `unusual` data stream rerouting.
+- There's an `unusual` metaphasic radiation coming from the planet's rings.
+- You carried a baby somewhere, it's `unusual`, but -- but i was on duty...
+- Yes, it is -- isn't it `unusual` for you to be working with a black choir?
+- Back when this started, was there anything `unusual` happening in your life?
+- Twice that many attempts, what is so `unusual` here, or i'll kill him myself.
+- I'm picking up an `unusual` electromagnetic signature from the kolarin system.
+- I'm hearing rumors, john, of some `unusual` teaching methods in your classroom.
+- In fact, she always seems to be turning up in the most `unusual` circumstances.
+- Nothing `unusual` about mr. sheldon's leaving, buster--you can tell by the champagne.
+- Anything else `unusual` about him you'd be able to describe in a court of law, willie?
+- Highly `unusual`, the elevator, you will not find this in ninety percent of brownstones.
+- There's nothing wrong with the antigens, nothing to indicate an `unusual` death... what?
+- This thief... it very `unusual`... maybe the murderer and the thief are one and the same.
+- They home in on irregular sounds, `unusual` sounds, any rhythmic low- frequency vibration.
+                 

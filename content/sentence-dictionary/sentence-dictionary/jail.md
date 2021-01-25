@@ -1,0 +1,107 @@
+---
+title: "jail in a sentence | jail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jail"
+---
+- But that's the `jail`!
+- To take you to `jail`?
+- County `jail` - get in.
+- I'm gonna go to `jail`.
+- My brother's in `jail`.
+- Now, so he's in `jail`.
+- Oh, you'd go to `jail`.
+- Your husband in `jail`.
+- Don't send me to `jail`.
+- Get bruce out of `jail`!
+- I mean, she's in `jail`!
+- Secure them `jail` time.
+- They take you to `jail`?
+- You ever been to `jail`?
+- In `jail` you lose track.
+- Randy stetz is in `jail`.
+- You'll have us in `jail`.
+- Cotton weary is in `jail`.
+- I was in `jail`, remember?
+- They'll put her in `jail`.
+- Thought you was in `jail`.
+- What was he in `jail` for?
+- You bust outa `jail`, tom?
+- Facing some time in `jail`?
+- He should be put in `jail`.
+- Or would you prefer `jail`?
+- To bail lisa out of `jail`.
+- You're not going to `jail`.
+- Are you calling from `jail`?
+- Are you taking me to `jail`?
+- Back to-back to `jail` i go.
+- Do you want to go to `jail`?
+- Hell, i'm already in `jail`.
+- He's in havana -- in `jail`.
+- They could put us in `jail`.
+- They're not going to `jail`.
+- You get not to go to `jail`.
+- You know who goes to `jail`?
+- Your ass is goin' to `jail`!
+- Back to `jail` in my own car.
+- But they'll put me in `jail`.
+- Can't keep no joad in `jail`!
+- I want them thrown in `jail`.
+- The day he got out of `jail`.
+- They could put you in `jail`.
+- They'd put you in `jail`, eh?
+- Who bailed you out of `jail`?
+- You put the killer in `jail`.
+- Did you know he was in `jail`?
+- Then the kids'll go to `jail`.
+- The other three are in `jail`.
+- Vincent bastaldi is in `jail`.
+- If i don't, i go to `jail`.
+- But let's not end up in `jail`.
+- Keeping yourself out of `jail`?
+- We could, if i'm not in `jail`.
+- We-- don't--need--a new `jail`.
+- When did you get out of `jail`?
+- Don't you go to `jail` for that?
+- "then they'd put you in `jail`."
+- What's early been in `jail` for?
+- You're not going back to `jail`.
+- I don't give a fuck about `jail`.
+- I don't give a shit about `jail`.
+- Put them all in `jail` overnight.
+- The day you got me out of `jail`?
+- Welcome to `jail`, selma bouvier.
+- We're going to `jail` for him.
+- But you could go to `jail` for it.
+- So's breaking a man out of `jail`.
+- That's why they got you in `jail`?
+- Either that or she'll be in `jail`.
+- That's a long time to be in `jail`.
+- You are no good to me -- in `jail`.
+- Even if i end up going to `jail`....
+- Half a buck i'd put him in `jail`...
+- If they put him in `jail` he's dead.
+- I told you my father died in `jail`.
+- I've got to get bruce out of `jail`!
+- So she had you in `jail`, in russia?
+- They should throw his ass in `jail`.
+- They've sent me letters from `jail`.
+- You're not going to `jail`, frances.
+- `Jail`'s too good for scum like that.
+- Then we'll all go to `jail` together.
+- You're afraid of going to `jail`, eh?
+- A bird in hand is worth two in `jail`.
+- Guys like that don't end up in `jail`.
+- I don't want to go to `jail` for this.
+- I don't want you guys to go to `jail`.
+- I hate that, i am glad he's in `jail`.
+- I'm taking my prisoner back to `jail`.
+- My milk went bad when i was in `jail`.
+- That `jail` looked pretty solid to me.
+- Even if we decide he belongs in `jail`?
+- I don't want you back in `jail` either.
+- I'm just not ready to go to `jail` yet.
+- I thought i put him in `jail` for good.
+- Lie back down, and try to - fuck `jail`!
+- Who you think got your ass outta `jail`?
+                 

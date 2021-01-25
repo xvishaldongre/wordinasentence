@@ -1,0 +1,72 @@
+---
+title: "spread in a sentence | spread example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spread"
+---
+- Everybody `spread` out!
+- I am `spread` too thin.
+- Just cover the `spread`.
+- They `spread` the virus.
+- It's `spread` to the tower.
+- Fly, fly, `spread` the words.
+- `Spread` them at the dropship.
+- `Spread` them at the dropship.
+- The rest of you, `spread` out.
+- But don't `spread` that around.
+- How did it `spread` so quickly?
+- And then `spread` them all around.
+- Get out of the car, `spread` them.
+- `Spread` your weight, keep moving.
+- Gunners, `spread` out and take aim.
+- Oh-ho-ho yes, i've `spread` my seed.
+- There's a lot of her `spread` about.
+- It just stuck up there and `spread` out.
+- The perfect place to `spread` my empire.
+- What's the `spread` on the game tonight?
+- Brought with them from earth has `spread`.
+- I have soldiers `spread` out a little bit.
+- The terror has `spread` into thanksgiving.
+- You `spread` it out ... you move around...
+- Let's `spread` out and check all the rooms.
+- Rifle teams, `spread` out along the ridge !
+- Without it, disease would `spread` rapidly.
+- Let's `spread` out and see what we can find.
+- Thought you might want to `spread` the word.
+- Tonight my feelings `spread` to someone else.
+- Worf, prepare a `spread` of photon torpedoes.
+- Hell, you helped me `spread` the word stand up.
+- It wants to `spread`, take over other dimensions.
+- `Spread` out like she was sexually assaulted here.
+- Yeah, but he's not building this army to `spread`.
+- Word has `spread` about our defeat in the wasteland.
+- Is he the one who `spread` all this blood and misery?
+- We'll never get that door open, look at this `spread`.
+- Charlene's over at the `spread` eagle every other night.
+- `Spread` their terrifying message of female empowerment.
+- Violence continues to `spread` across the us today ******.
+- This epidemic could easily `spread` to our base, dr. floyd.
+- He's gonna `spread` his nasty-ass rash to your whole family.
+- Stop by our `spread` after that, tell our ma we're all right.
+- Well, a lot of people in town talk and `spread` cruel rumors.
+- Aye, sir worf, prepare a full phaser `spread`, zero elevation.
+- `Spread` the good word in as many small-time segments as we can.
+- As i said, we weren't aware of aids, then, or how it is `spread`.
+- Don't you want to `spread` your wings and flap your way to glory?
+- Kyle started spending more and more time at the `spread` eagle...
+- Okay -- but i'm going to `spread` some common sense on the bread.
+- And i could see you again, do you want to stop the `spread`, or not?
+- Hey, if alla these nuts could just make phone calls, it could `spread`.
+- `Spread` some bunch grass under the tarp and the ground won't be so hard.
+- We're not going to go out there and `spread` it around like typhoid mary.
+- She brought in high rollers and helped them `spread` around a lot of money.
+- Once the reaction starts, it'll `spread` to all the turbinium in the planet.
+- Thanks for the publicity `spread` you got the boys for the benefit tomorrow.
+- When you `spread` help too thin, you , you just nickel and dime the situation.
+- The gangbangers'll `spread` like a wave through this city and burn it to the ground.
+- Wow, what a `spread` -- you know, there's a food shortage in the rest of the colony.
+- Iraqis could have just `spread` them out like that; make us think we're in the clear.
+- It was a deadly virus `spread` by field mice in the southwest u.s. several years ago.
+- When i finally agree to `spread` my legs, you accuse me of treating you like meat.
+- My lawyer says if we can `spread` ten thousand bucks around, we can get the case dropped.
+                 

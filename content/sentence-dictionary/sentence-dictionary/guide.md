@@ -1,0 +1,67 @@
+---
+title: "guide in a sentence | guide example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guide"
+---
+- Consider me a `guide`.
+- I can `guide` you out.
+- Marks `guide` our way.
+- She is a `guide`, neo.
+- He will `guide` me home.
+- The game will `guide` you.
+- With me to `guide` the way.
+- I'm gonna `guide` you, okay?
+- Looking for... the tv `guide`.
+- Sort of be our indian `guide`.
+- Let your instincts `guide` you.
+- Joe, you'll be the tour `guide`.
+- We want you to be our `guide`.
+- ...that will `guide` you at night.
+- You `guide` your team, i `guide` my.
+- You want me to be your `guide` --?
+- Let your conscience be your `guide`?
+- Our other `guide` out of queenstown.
+- You `guide` your team, i `guide` mine.
+- Even if the gods did `guide` your aim.
+- I'll `guide` you, once we're in the heart.
+- These laws will `guide` them in your stead.
+- According to the phone `guide` he lives here.
+- The stone markers `guide` you during the day.
+- I need you to `guide` us from the comm station.
+- Day and a half where did you get... the `guide`?
+- I'll send you off with your own private `guide`.
+- Is dependent on me to `guide` them through life.
+- May the spirits `guide` and protect your people.
+- Acting as your `guide`, what we call an adjuster.
+- I had no one to `guide` me, no one to learn from.
+- There we will call on their spirits to `guide` us.
+- If you're going to earth, you might want a `guide`.
+- I need a `guide` and you need a client...and $1000.
+- There'll be spoils aplenty if you `guide` us there.
+- The roylance `guide` to secret societies and sects.
+- We just want to `guide` you in the right direction.
+- These more highlights from the zagat prison `guide`?
+- `Guide`</u>, you don't need a t.v... you have a t.v.?
+- Ivo shandor, i saw his name in tobin's spirit `guide`.
+- Some idiot kiwi goes and advance himalaya `guide` here.
+- I'11 pipe the `guide` to every video screen in the gallery.
+- I'm taking the grounder prisoner with me to `guide` the way.
+- What happens here will be a `guide` to all other operations.
+- I can `guide` you out, but you have to do exactly what i say.
+- The "scotsman" has sent one of his indian allies to `guide` you.
+- Then once she's in you can `guide` her straight to the mainframe?
+- I'll bring along the roylance `guide` -- we can read after we eat.
+- "he who holds the horseman's desire will `guide` his reaping hand."
+- Once she's in... case will `guide` her to the mainframe in link mode.
+- Without the map to `guide` them, how can they possibly find hamunaptra?
+- [door opens] you know, this whole helpful `guide` act, i dare you not to.
+- Do you pledge to `guide` and protect this child if he is left fatherless?
+- But there is one person, a druid sor- ceress, who might `guide` you there.
+- Thanks, grandpa... no, i just like to read the <u>t.v.</u> <u>`guide`</u>.
+- No engines, no computers, just the wind, the sea and the stars to `guide` you.
+- He is a strong young man, with you as his `guide`... everyone talking about it?
+- The `guide` takes us twelve klicks upriver to target at ban... at ban... bo peep.
+- Say george, get down on that field and `guide` those planes in when they get here.
+- Well, let your conscience be your `guide`, as my mommy used to say, but it won't work.
+                 

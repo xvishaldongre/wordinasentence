@@ -1,0 +1,8 @@
+---
+title: "reappearing in a sentence | reappearing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reappearing"
+---
+- Yeah... that's because it's disappearing-`reappearing` ink.
+                 

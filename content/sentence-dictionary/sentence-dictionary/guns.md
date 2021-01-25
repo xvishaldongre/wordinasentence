@@ -1,0 +1,107 @@
+---
+title: "guns in a sentence | guns example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guns"
+---
+- He's taken the `guns`.
+- I'll get their `guns`.
+- They don't use `guns`.
+- Your enemy has `guns`.
+- Can i see those `guns`?
+- Everybody's got `guns`.
+- Our `guns` were stolen.
+- So they'll have `guns`.
+- Those `guns` are close.
+- What's with the `guns`?
+- And 4 `guns` to do that.
+- Grounders with `guns`!
+- Let's talk about `guns`.
+- We're gonna need `guns`.
+- What are the `guns` for?
+- I had `guns` all my life.
+- I'm going for the `guns`.
+- Miller, get their `guns`.
+- Six men means six `guns`.
+- Someone gave them `guns`.
+- They are carrying `guns`.
+- There's two `guns` on you.
+- We gotta get those `guns`.
+- We're not bringing `guns`.
+- Firemen don't carry `guns`.
+- Grounders don't use `guns`.
+- I don't like `guns` around.
+- I don't really like `guns`.
+- Lots of people have `guns`.
+- Please, i don't use `guns`.
+- You ran `guns` to ethiopia.
+- "blazing `guns` of the west.
+- He still carry those `guns`?
+- May be time to go to `guns`.
+- May be time to go to `guns`.
+- They'll have serious `guns`.
+- And their `guns` were stolen.
+- `Guns` could keep them alive.
+- He didn't say we need `guns`.
+- He took 12 people, 12 `guns`.
+- No more `guns`, no more `guns`.
+- Tranq `guns` down, rifles up!
+- What do those `guns` mean??!!
+- You do have `guns` don't you?
+- You ever see him sell `guns`?
+- Both killed by skaikru `guns`.
+- They had such reliable `guns`.
+- What's with the squirt `guns`?
+- Put your `guns` on the table...
+- They got `guns` pointed at 'em!
+- On bringing `guns` back to camp.
+- Rushing back in to those `guns`.
+- They're carrying `guns` in town.
+- We were just passing out `guns`.
+- I don't get involved with `guns`.
+- Tag polar bears with dart `guns`.
+- What, like `guns` that fire shot?
+- You're the only person `guns` up.
+- I got me five m-60 machine `guns`.
+- No, they ain't carryin' no `guns`.
+- Now i see why you all wear `guns`.
+- She could be moving money, `guns`.
+- With `guns` you gave us, you, too.
+- You hide and get the `guns` ready.
+- Keep your hands on your `guns`.
+- Anthony, red, stay with the `guns`!
+- Broomsticks instead of tail `guns`.
+- Gonna keep `guns` around camp, hmm.
+- I don't know anything about `guns`.
+- In 1935 you ran `guns` to ethiopia.
+- Maybe if you didn't bring `guns`...
+- Two men... two `guns` in the caddy.
+- What about one guy with two `guns`?
+- Your `guns` weren't even loaded.
+- Most of them don't even have `guns`.
+- Never seen so many guys with `guns`.
+- We've got the primes and the `guns`.
+- What kind of `guns` do you guys use?
+- All `guns` are outlawed in iron city.
+- Let's talk about `guns` and violence.
+- Only members of the guard get `guns`.
+- That's right, `guns` that fire shot .
+- Then how do you know he sells `guns`?
+- Yeah....shit, those guys have `guns`.
+- You never said anything about `guns`.
+- But no `guns` are leaving this camp!
+- We got something better than `guns`...
+- Yes -- two men -- and they had `guns`.
+- But, doc... where's the machine `guns`?
+- Then they're down to their side `guns`.
+- You're asking me to get you the `guns`.
+- You've got your six `guns` strapped on.
+- All `guns` and radios stay in the truck.
+- And their `guns` were stolen last night.
+- Get it out of sight and load the `guns`.
+- We need to get these `guns` on the wall.
+- You are never, never to touch my `guns`!
+- Does this thing have `guns`, john parker?
+- Fear of english with `guns` coming after.
+- Those boys escape and giving them `guns`.
+                 

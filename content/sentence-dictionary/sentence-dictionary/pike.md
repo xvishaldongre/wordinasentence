@@ -1,0 +1,107 @@
+---
+title: "pike in a sentence | pike example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pike"
+---
+- `Pike` for chancellor!
+- `Pike` is the problem.
+- `Pike` never confessed.
+- `Pike`: do what he says.
+- We know what `pike` did.
+- You left her with `pike`?
+- You left her with `pike`?
+- `Pike`: put them in there.
+- Kane's going in for `pike`.
+- `Pike`: damn, that was fast.
+- `Pike`: everybody listen up.
+- `Pike`: the charge is clear.
+- That was you, mr. `pike`.
+- Nate, i... - what, to `pike`?
+- No `pike` yet, but it's good.
+- `Pike` will be expecting you.
+- That first night with `pike`.
+- You led against `pike` hides.
+- Indra, this is charles `pike`.
+- Warren `pike`'s is one of 'em.
+- [`pike` sighs] what's going on?
+- `Pike` has tripled his security.
+- We seek the one you call `pike`.
+- At least `pike` understands that.
+- `Pike` put a bullet in his brain.
+- `Pike`'s always got a plan, it...
+- `Pike`'s detail is still at it...
+- `Pike` should be in his quarters.
+- We all know what you did, `pike`.
+- We came here to give them `pike`.
+- Now we have chancellor `pike`.
+- `Pike` confiscated our chip-maker.
+- Should i have let `pike` kill you?
+- Chancellor `pike`, good to see you.
+- Chancellor `pike`, good to see you.
+- So... you led against `pike` hides.
+- But `pike`'s influence is strong, how?
+- Clarke, we both know that `pike` whoa.
+- Hey, `pike`'ll want you dead now, too.
+- `Pike` if he could stay in the cellar.
+- Chancellor `pike`, you tell them, `pike`.
+- From the bullet `pike` put in her wait.
+- `Pike` knows that i helped you get out.
+- `Pike`'s turning us against each other.
+- And then you let `pike` ruin everything.
+- `Pike`, i don't think you're up to this.
+- `Pike` taught me that, taught all of us.
+- [roars] `pike` has tripled his security.
+- I apologize -- yeah, we know, `pike` did.
+- What if it's a trap and `pike`'s waiting?
+- You can thank chancellor `pike` for this.
+- Hey, wait a minute... `pike` isn't a name.
+- `Pike`: we need to talk about your sister.
+- Remember when `pike` taught us morse code?
+- We bring you chancellor `pike` of skaikru!
+- Not everyone agrees with chancellor `pike`.
+- I saw what you and `pike` did to lexa's army.
+- The same way childs was going to frame `pike`.
+- But `pike`'s influence is strong, so beautiful.
+- Gavriel... and now `pike`'s locked up sinclair.
+- Hey, remember when `pike` taught us morse code?
+- Is there any truth to what he's saying, `pike`?
+- Chase: you can thank chancellor `pike` for this.
+- I see `pike` putting that gun to lincoln's head.
+- `Pike` got free, he got a gun, he came after us.
+- A severed wolf's head on a `pike` as their symbol.
+- Thanks to the supplies your brother found, `pike`!
+- Madi... second, according to `pike`'s order, - hmm.
+- `Pike` and i got separated... then i heard gunfire.
+- That's up to `pike`, but it shouldn't be a problem.
+- Not because what you thought `pike` was doing braces?
+- `Pike`: i need every crate checked, not just counted.
+- If we don't find out what `pike`'s up to, where are we?
+- `Pike` just relieved me of my command, - put her there.
+- Stop right-- if i can get to him, he can get to `pike`.
+- He will live, but he will live `pike`, find their trail.
+- I'd go myself, but `pike`'s watching everything i do now.
+- If we don't find out what `pike`'s up to, what's an a.p.?
+- Otherwise this is just another story -- but not `pike`'s.
+- It's the last sanctuary on earth, - `pike` for chancellor!
+- "moe gives... chancellor `pike` would like to speak with you.
+- `Pike` killed west, dunbar killed mueller, childs, and nunez.
+- In the future, women will be judged `pike`: ok. open the door.
+- If we respond and `pike`'s listening... are those new vestments?
+- That you let these people die and now we have chancellor `pike`.
+- Fifteen years ago, i was here, i was section eight, i was `pike`.
+- `Pike`: lincoln of trikru, you have been sentenced to death - no.
+- `Pike`, on radio: i have a message for the traitors in this camp.
+- Given the ferocity of grounder justice, `pike`, she saved my life.
+- `Pike`: results of this morning's missions inventory was sobering.
+- `Pike` just sentenced lincoln and sinclair to death alongside kane.
+- `Pike` just sentenced lincoln and sinclair to death go save us all.
+- _ clarke, he was there when `pike` shot her in the radiation didn't.
+- He convinced `pike` to let me live we're sending them to the ground.
+- To turn neighbor against neighbor, kane lost the election to `pike`.
+- So when `pike` finally told the truth you had to get rid of him, too.
+- We bring you chancellor `pike` yeah, it’s a little late for that now.
+- I got him killed because i was too scared to kill, then `pike` trusts him.
+- The secret is to imagine `pike`'s changed his access code, already in labor.
+- `Pike` doesn't have a safe, so-- i don't know what i would do, for all mankind.
+                 

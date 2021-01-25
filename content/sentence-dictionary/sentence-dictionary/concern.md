@@ -1,0 +1,98 @@
+---
+title: "concern in a sentence | concern example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "concern"
+---
+- It is of no `concern`.
+- It's not your `concern`.
+- They don't `concern` me.
+- That's my only `concern`.
+- How does it `concern` you?
+- It's just a sub-`concern`.
+- So what is your `concern`?
+- Thanks for your `concern`.
+- This isn't your `concern`.
+- It's not my main `concern`.
+- That doesn't `concern` you.
+- This is not your `concern`.
+- I appreciate your `concern`.
+- I have only one `concern`...
+- You understand my `concern`.
+- I'm touched by your `concern`.
+- That's none of your `concern`.
+- They're of no `concern` to me.
+- George it's not your `concern`.
+- There is no need for `concern`.
+- Your `concern` is heartwarming.
+- Thanks for your `concern` larry.
+- Don't `concern` yourself, martin.
+- Don't `concern` yourself, saavik.
+- It needn't `concern` you, edward.
+- Oh... or is that `concern` i see?
+- This doesn't `concern` you, abby.
+- I appreciate your `concern`, i do.
+- Looks don't `concern` me, maestro.
+- This doesn't `concern` you, foley.
+- Honora looks at her with `concern`.
+- Gabriel is no longer your `concern`.
+- This doesn't `concern` your servant.
+- What i do is none of your `concern`.
+- You see, my main `concern` is nicky.
+- Dumbness doesn't `concern` her, doll.
+- Asteroids don't `concern` me, admiral.
+- Our biggest `concern` are the cutsies.
+- But i was so touched by your `concern`.
+- S-3, v-2-0-5, appreciate the `concern`.
+- Sir, if i may ... echo my `concern` ...
+- My only `concern` is the human tribunal.
+- But that isn't really my `concern`, is it?
+- But that shit doesn't really `concern` me.
+- It is time to `concern` yourself with life.
+- My only `concern` is getting the ship back.
+- I really hope that's none of your `concern`.
+- 173 women, that's lexa's `concern`, not ours.
+- Privacy is a great `concern` to my customers.
+- My first `concern` is to locate the lucky man.
+- But what does `concern` me is the guns you had.
+- Maybe it's our very... is peace your `concern`?
+- We feel the bigger `concern` is gordon liddy ...
+- Whatever happens to diyoza is not our `concern`.
+- Do you have any idea what triggered this `concern`?
+- My `concern` is for the reputation of the monarchy.
+- I am quite...preoccupied with `concern` about geordi.
+- But that, for the moment, doesn't `concern` me greatly.
+- I appreciate your `concern`, but we live in that house.
+- I don't see how that trash could possibly `concern` me.
+- I understand this `concern` on behalf of the tax-payers.
+- No, of course, captain, i can understand your `concern`.
+- He appreciates your `concern`, michael, and your respect.
+- My only `concern` is the welfare and prosperity of spain.
+- "her singing, happily, is no `concern` of this department.
+- You're just in time fer a case that seems ta `concern` you.
+- He's no `concern` of mine, as long as you don't talk to him.
+- None of your ideas can be goofy, stew, if they `concern` me.
+- I'm much obliged, mr. president, for your `concern` about me.
+- No, man, nothing is fucked here-- this is our `concern`, dude.
+- And he should be back... - lincoln is no longer your `concern`.
+- I don't know what the hell... ...your `concern` nor your fight.
+- My only `concern` is your well being -- do you understand that?
+- My `concern` is to protect you from any suspicion of favouritism.
+- He wouldn't be much of a man if he didn't understand my `concern`.
+- I'm laying before you the last general statement of our `concern`.
+- We understand your `concern`, but we've made our decision, doctor.
+- Was it so widely known that joseph had reason for such `concern`?
+- I mean, thanks for your `concern`, but that just ain't the thing of it.
+- I appreciate your `concern`, but she has to rest, so you can go on home.
+- Although i really don't see that it is any of your `concern`, miss price.
+- There's been some `concern` about you continuing to work without back-up.
+- Listen, i do appreciate your `concern`, but-- you get mugged or something?
+- There is something to be said for silence oh, yes, yes of course, a `concern`.
+- Miss cartwright, you are involving yourself in matters that do not `concern` you.
+- I understand your `concern`, but i feel it's time you started thinking of yourself.
+- We own a construction `concern`, real estate -- even if i knew i wouldn't tell you.
+- You show a lot of promise... but... my `concern` is i don't know where to book you.
+- Does my colleague's piece `concern` section forty of the bill--a dam on willet creek?
+- Throw me out - because i'm beginning to get goofy ideas, and they `concern` you, anne.
+- Sir -- i appreciate your `concern`, number one, but i've been itching to try out the argo.
+                 

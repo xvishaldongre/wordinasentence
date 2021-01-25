@@ -1,0 +1,60 @@
+---
+title: "grandmother in a sentence | grandmother example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grandmother"
+---
+- Fuck your `grandmother`.
+- My `grandmother`'s rich.
+- It's `grandmother` style.
+- It's from my `grandmother`.
+- Your `grandmother`'s ring...
+- My `grandmother` in colombia.
+- My `grandmother`'s ear-muffs.
+- She's with her `grandmother`.
+- My `grandmother` wants to fly.
+- What about your `grandmother`?
+- My `grandmother` was an atheist.
+- Your `grandmother` knows why.
+- My `grandmother` had more attitude.
+- You should call your `grandmother`.
+- You'd have liked your `grandmother`.
+- My `grandmother` told me to be happy.
+- My `grandmother` was an abolitionist.
+- My jewish friend's `grandmother` did.
+- Anastasia's `grandmother` is in paris.
+- No -- they're... for my `grandmother`.
+- It belonged to my beloved `grandmother`!
+- It's just like my `grandmother`'s china.
+- Somebody's `grandmother` might want one.
+- I learned the craft from my `grandmother`.
+- My `grandmother` died in an institution...
+- ...and a russian `grandmother`... bullshit.
+- Left them all: my mother, my `grandmother`.
+- You need to arrest his `grandmother`, the dowager.
+- Helloo... he just had lunch with his `grandmother`.
+- The belt i'm looking for was from my `grandmother`.
+- My great `grandmother` carolyn hummed it to her.
+- Carlotta valdes was what: your wife's `grandmother`?
+- Her `grandmother` went insane and took her own life.
+- It belonged to my great, great, great `grandmother`.
+- That `grandmother` of yours -- she's really something.
+- You're gonna have to blame that on your `grandmother`.
+- Wait a minute -- she took your `grandmother`'s flowers?
+- I suppose your `grandmother`'s house when she passed on.
+- Her `grandmother` said she'd been threatening to run away.
+- Why do you think she wouldn't go to her own `grandmother`?
+- The `grandmother` hears it and finds out he's been arrested.
+- Then we're all meeting your `grandmother` for the first time.
+- But the mayor would hang his own `grandmother` to be re-elected.
+- Antha...your `grandmother`...her life ended there, on the stones.
+- I saw my `grandmother`, of course, but i don't suppose that counts.
+- I'm just pissed enough, maybe i'll rip the neck off my own `grandmother`.
+- Stranger my foot, it was my `grandmother` who helped you into this world.
+- We got back together over the summer at my `grandmother`'s birthday party.
+- Accordingly, my wife was my `grandmother` because she was my mother's mother.
+- I'm not going to help you browbeat my hundred and one year old `grandmother`.
+- She's not my `grandmother` -- actually she rents the apartment right next to mine.
+- Then you're not her `grandmother`... she had it, before she drank herself to death.
+- I don't need your `grandmother`'s jewelry or your parents money -�how could you do that?
+                 

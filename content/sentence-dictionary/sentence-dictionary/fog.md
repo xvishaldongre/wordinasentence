@@ -1,0 +1,64 @@
+---
+title: "fog in a sentence | fog example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fog"
+---
+- The `fog` has cleared.
+- Belonging to the `fog`.
+- Am i a female `fog` bank?
+- Turns off the acid `fog`.
+- We'll make our own `fog`.
+- I mean, not in that `fog`.
+- The `fog` is too heavy, sir.
+- Did he get the acid `fog` down?
+- You can't see it for the `fog`!
+- They're talking about the `fog`.
+- After he took out the acid `fog`.
+- Get away from this goddamn `fog`.
+- Did you take out the acid `fog` yet?
+- Got some kind of `fog` moving in now.
+- I don't think the acid `fog` is down.
+- We have to take cover from the `fog`.
+- So, they make `fog` that melts people.
+- Yessir, there'd been real heavy `fog`.
+- The `fog` was the ghost of the sea.
+- They'll find us again, `fog` or no `fog`.
+- The `fog`'s thicker now, but it's there.
+- I need your help on this acid `fog` deal.
+- When that `fog` lifts, take the tower down.
+- Hope to god some man hears you in that `fog`.
+- Sir, that `fog` could keep us let 'em starve.
+- Trapped in a 100-year-old car by toxic `fog`.
+- Us dying in a cloud of acid `fog` find dante.
+- Did you find the source of the acid `fog` yet?
+- It's just kinduv...mysterious... a `fog` bank.
+- Our friends are safe and the acid `fog` is down.
+- Princeton is like a `fog`, america's like a `fog`.
+- We talk, i told you acid `fog` was our priority.
+- We will, after bellamy turns off the acid `fog`.
+- I'm walking around in a `fog` ... watch out, man.
+- We don't have any `fog` this time of year, mitch.
+- The empire state in `fog` means something, don't it?
+- Acid `fog`, then death by clarke... you want to bet?
+- I jumped in a patch of `fog`, and nobody could see me.
+- You would walk out into that `fog` and never come back.
+- "failure is the `fog` through which we glimpse triumph."
+- Sun's coming up ... we've been in the `fog` for six hours.
+- Your acid `fog` can't hurt them, octavia, can you hear me?
+- Once bellamy shuts down the acid `fog` we won't expel bart.
+- `Fog` has closed down everything this side of the mountains.
+- If they have boats ... or canoes... they'd get lost in the `fog`.
+- These people, jim, we should've left the second the `fog` cleared.
+- There's no island on these co- ordinates - not even a lousy `fog`-bank.
+- To lower their defenses, turn off the acid `fog`, i'd say it's working.
+- About seagulls getting lost in the `fog`, and heading in for the lights.
+- The others `fog` in high- -- my -- oh -- we've got to see one to find out.
+- I mean, i assume you don't like women very much, is the acid `fog` disabled?
+- When the `fog` lifted, there's darren with his head under justine's skirt.
+- Trying to have a relationship with you, max, is like standing in a `fog` bank.
+- I don't want you to go alone... have you found the source of the acid `fog`?
+- Even if the `fog` cleared, you know last night, a woman set herself on fire for him.
+- The `fog`, terror train, prom night -- how come jamie lee curtis is in all these movies?
+- When the `fog` is just right, like tonight, the lights of main look like a kaleidoscope.
+                 

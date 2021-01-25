@@ -1,0 +1,107 @@
+---
+title: "English in a sentence | English example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "English"
+---
+- But i speak `english`.
+- [in `english`] get up!
+- [in `english`] no, no.
+- Learn `english`, then!
+- Let's speak `english`.
+- Do you speak `english`?
+- I'm an `english` major.
+- In `english`, please. )
+- You are `english` pigs.
+- Does he speak `english`?
+- Do you speak `english`!?
+- I am an `english` woman.
+- [in `english`] hey, hey!
+- In `english`, pinkerton.
+- Speak `english` will ya.
+- Where are the `english`?
+- Could he speak `english`?
+- I do not speak `english`.
+- The `english` won't wait.
+- Because it's in `english`?
+- I do not speak `english`.'
+- So you do speak `english`.
+- You're failing `english` .
+- He doesn't speak `english`.
+- I'm teaching him `english`.
+- One more time in `english`.
+- She's so damn... `english`.
+- Traditional `english` fare.
+- What is the good `english`?
+- Yeah... pete the `english`.
+- You... you speak `english`?
+- Am i not speaking `english`?
+- Do you guys speak `english`?
+- How did you learn `english`?
+- It is just the `english` way.
+- Now speak czech or `english`.
+- The `english` are everywhere!
+- Why, he's speaking `english`.
+- You have excellent `english`.
+- I thought i was the `english`.
+- Peter finch -- he's `english`.
+- You opened with the `english`.
+- `English` muffin for the bread.
+- I gotta get to `english` class.
+- I told you about `english` law.
+- My `english` perhaps is coarse.
+- But, they don't speak `english`.
+- Emilio couldn't speak `english`.
+- He doesn't understand `english`.
+- I'd try `english` if i were you.
+- Man: (in `english` accent) well.
+- Rouen is in `english` territory.
+- She doesn't speak the `english`.
+- The `english` are rebuilding it.
+- You speak `english`, butt-steak?
+- Boys, this here is `english` bob.
+- I had been sold to the `english`.
+- I knew you could speak `english`.
+- Now she speaks perfect `english`!
+- She doesn't understand `english`.
+- She had a funny `english` accent.
+- She married some `english` prick.
+- She sits next to me in `english`.
+- Doesn't speak a word of `english`.
+- It's safer to teach you `english`!
+- My father hardly speaks `english`.
+- One thing i can't do is `english`.
+- Only our warriors speak `english`.
+- Sure, anything but this `english`.
+- Dignan, they don't speak `english`.
+- Every `english` child dreams of it.
+- God defeated the `english`, not me.
+- Learn how to speak `english` first.
+- The boy speaks `english`, you know.
+- Where did he pick up his `english`?
+- But don't they have it in `english`?
+- Calloway - i'm `english`, not irish.
+- `English`, you stupid little retard!
+- Does he sing in `english` or russian?
+- Do you think god hates the `english`?
+- Just like proper `english` gentlemen.
+- My wife's second cousin is `english`.
+- They're chinamen who speak `english`.
+- Don't be shy about your `english`.
+- But speak `english`, will ya, ha ha...
+- Do you have mrs. george for `english`?
+- I'm a middle-school `english` teacher.
+- [in `english`] daya, hold on, hold on.
+- The huron do not fear `english` anger.
+- He had command of the king's `english`.
+- I don't even think he speaks `english`.
+- I don't know who that `english` guy is.
+- Like i just swam the `english` channel.
+- See here, can you understand `english`!
+- They're `english` soldiers, ain't they?
+- Where did you learn to speak `english`?
+- As i told you about `english` policemen.
+- [in `english`] i don't work for breslin.
+- We'll get those `english` pigs tomorrow.
+- Apollo creed beat that `english` guy bad.
+                 

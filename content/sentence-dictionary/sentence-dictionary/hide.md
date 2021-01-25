@@ -1,0 +1,107 @@
+---
+title: "hide in a sentence | hide example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hide"
+---
+- `Hide` in the willows.
+- To `hide` a black eye.
+- Told you to `hide` it.
+- What if you `hide` me?
+- `Hide` us uncle birdie!
+- I can't `hide` anymore.
+- To `hide` the evidence.
+- Where do you `hide` it?
+- Where do you `hide` it?
+- Got something to `hide`?
+- `Hide` your laptop here.
+- I got nuthin' to `hide`.
+- Where did you `hide` it?
+- Bellamy... quick, `hide`.
+- I have nothing to `hide`.
+- We gotta `hide` the girl.
+- We'll have to `hide` you.
+- Where do they `hide` out?
+- You can't `hide` forever.
+- Can i `hide` in the trunk?
+- I could `hide` you, tommy.
+- Quick -- `hide` in here...
+- There's nowhere to `hide`.
+- We have nothing to `hide`.
+- We're going to `hide` you.
+- What do we have to `hide`?
+- Where can they `hide` him?
+- You cannot `hide` from me.
+- Did you `hide` the letters?
+- Go away -- `hide` yourself.
+- `Hide` her car in the back!
+- `Hide` me somewhere deeper?
+- I needed a place to `hide`.
+- We won't be able to `hide`.
+- You have nothing to `hide`.
+- I have learned to `hide` it.
+- To `hide` it from the i.r.s.
+- You got something to `hide`?
+- After, we'll `hide` the keys.
+- A good bowler will `hide` it.
+- Why do you `hide` in my room?
+- You always `hide` behind him.
+- Come on, we got to `hide` out!
+- `Hide` from an eye in the sky?
+- No, we have nothing to `hide`.
+- Then why `hide` behind a mask?
+- We couldn't `hide` it anywhere.
+- Ain't many places he can `hide`.
+- Sneak in and `hide` and observe.
+- The mind flayer likes to `hide`.
+- You cannot `hide` forever, luke.
+- You can't `hide` from me, sonny.
+- `Hide` her out for a coupla days.
+- `Hide` it behind the gas station.
+- You could `hide` an army up here.
+- I decided to `hide` out all night.
+- I've got a place i can `hide` her.
+- Let's not `hide` behind the fifth.
+- Places where someone could `hide`?
+- You ain't got to `hide`, have you?
+- You `hide` and get the guns ready.
+- I could `hide` better than anybody.
+- I'm sure i can `hide` it somewhere.
+- Not that i have anything to `hide`.
+- Then you gotta `hide` it somewhere.
+- They couldn't `hide` their disgust.
+- We could `hide` him... what's that?
+- We've got to `hide` our identities.
+- Where should i `hide` the car keys?
+- But right now, i need you to `hide`.
+- Yeah, he used to go there to `hide`.
+- We can `hide` there till morning.
+- How did she `hide` it during the day?
+- No, but she said you could `hide` me.
+- We play `hide` and seek all the time.
+- But we have to `hide` out for a while.
+- I `hide` these as i `hide` all my books.
+- I'm so excited i just can't `hide` it.
+- You can't `hide` from it in your room.
+- Let's forget about the high `hide`.
+- Now i have to `hide` out here with you.
+- Obi-wan was wise to `hide` her from me.
+- We could `hide` you in a tent, like el.
+- He must really have something to `hide`.
+- I told them you wouldn't want to `hide`.
+- To `hide` the fact that they killed her?
+- We can't just `hide` down there forever.
+- We won't have the darkness to `hide` us.
+- You think that's a good place to `hide`?
+- All sal wants to do is `hide` the salami.
+- Then, in the war, to kill and `hide`.
+- I want you to `hide` in your secret spot.
+- Where the hell are we supposed to `hide`?
+- You know the best place to `hide` a leaf?
+- How did she `hide` it from the other nuns?
+- Or finn would `hide` behind these walls?
+- When peter was little, he loved to `hide`.
+- Playing `hide`-and-seek with a little girl.
+- Where you won't have to `hide` your mother!
+- Had to `hide` the stone from the dark elves.
+                 

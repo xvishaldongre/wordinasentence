@@ -1,0 +1,107 @@
+---
+title: "you've in a sentence | you've example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "you've"
+---
+- Mike: `you've` got it.
+- Mike: `you've` got it?
+- So `you've` indicated.
+- Then `you've` read it?
+- Well, `you've` got it.
+- `you've` achieved zen.
+- `you've` always known.
+- `you've` been outside?
+- `you've` been perfect.
+- `you've` betrayed me.'
+- `you've` got 24 hours.
+- `you've` got 36 hours.
+- `you've` got a family.
+- `you've` got a t-rex!?
+- `you've` got a vision.
+- `you've` got big feet.
+- `you've` got it wrong.
+- `you've` got no proof.
+- `you've` got the part!
+- `you've` got the part.
+- `you've` got to laugh.
+- `you've` got to leave.
+- `you've` got two days.
+- `you've` heard enough.
+- `you've` killed louis.
+- `you've` killed women?
+- `you've` lost it, aim.
+- `you've` seen octavia?
+- `you've` seen to that.
+- `you've` worn me down.
+- But `you've` got proof!
+- But `you've` never met.
+- But `you've` tested it?
+- Oh, `you've` been hurt!
+- Okay, `you've` seen me.
+- Since `you've` had sex?
+- `you've` already eaten.
+- `you've` been drinking.
+- `you've` been drinking?
+- `you've` been promoted.
+- `you've` been retained?
+- `you've` been so great.
+- `you've` been swimming?
+- `you've` come this far.
+- `you've` cremated them.
+- `you've` cut your hair?
+- `you've` done it again?
+- `you've` eaten nothing.
+- `you've` got 5 minutes.
+- `you've` got a visitor.
+- `you've` got no choice.
+- `you've` got no work...
+- `you've` gotta help me.
+- `you've` gotten plenty.
+- `you've` got that look.
+- `you've` got the files?
+- `you've` *got* to come!
+- `you've` got to get up.
+- `you've` got to let go!
+- `you've` got to let go.
+- `you've` got your wish.
+- `you've` just got time.
+- `you've` just told one.
+- `you've` never seen it.
+- `you've` never seen me.
+- `you've` saved nothing.
+- `you've` seen the club.
+- As much as `you've` got.
+- Of what `you've` become.
+- Then `you've` heard too.
+- Well -- `you've` got me!
+- What `you've` just done?
+- Yeah, if `you've` slept.
+- `you've` always felt it.
+- `you've` always refused.
+- `you've` been wonderful!
+- `you've` broken its leg!
+- `you've` done it before.
+- `you've` done very well.
+- `you've` gone quite mad.
+- `you've` got 45 seconds.
+- `you've` got a customer.
+- `you've` got a mustache.
+- `you've` got everything?
+- `you've` got his prints.
+- `you've` got it, master.
+- `you've` got it on tape?
+- `you've` got me worried.
+- `you've` got the talent.
+- `you've` got this, mike.
+- `you've` got this wrong.
+- `you've` got tiny lungs.
+- `you've` got to help me.
+- `you've` got to kill me.
+- `you've` got to run, ok?
+- `you've` got to send me!
+- `you've` got to tell me.
+- `you've` got your shark.
+- `you've` grown up a bit.
+- `you've` known him long?
+                 

@@ -1,0 +1,90 @@
+---
+title: "social in a sentence | social example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "social"
+---
+- `Social` security tax!
+- In `social` situations.
+- It'll just be `social`.
+- The church `social` ...
+- We'll make it `social`.
+- Some `social` democrats.
+- We'll be anti- `social`.
+- Tonight my `social` life.
+- A miami `social` occasion?
+- `Social` rating nosediving.
+- Or a `social` security card?
+- This ain't no `social` call.
+- I am rusty at `social` graces.
+- ... my ... `social` situation?
+- I don't want a `social` worker.
+- I'm his `social` secretary now.
+- It's in a lower `social` scale.
+- Don't post it on `social` media.
+- `Social` standing indeterminate.
+- Don't post it, on `social` media.
+- Self sufficient... anti `social`?
+- Your `social` security number.
+- But then this isn't a `social` call.
+- I'm the doctor's `social` secretary.
+- Suggests some kind of `social` order.
+- It's the `social` event of the decade!
+- Overcome initial `social` awkwardness.
+- But we can't ignore our `social` needs.
+- ...driver's license, `social` security.
+- Of the `social` infrastructure, i mean.
+- I've got like a `social` emergency here.
+- The crusader for `social` issues and all.
+- You probably know them all from `social`.
+- Not worrying about my son's `social` life.
+- You don't have a `social` security number.
+- ...a little `social` lubricant, mistuh fink?
+- I'm not really feeling that `social` lately.
+- You said it was going to be `social`, giles.
+- You told me once that ah, `social` services.
+- Driver's license -- `social` security number?
+- Confirming a `social` outing for friday night.
+- I just can't have any `social` life right now.
+- Where will that put me in the `social` strata?
+- And monetizing via shopping and `social` media.
+- Wait -- my `social` events schedule is missing.
+- Thirty years of political and `social` upheaval.
+- Unfortunately, doc, this isn't a `social` visit.
+- We're studying the holocaust in `social` studies.
+- That's no business... that's a `social` injustice.
+- It's kind of my `social` experiment for the summer.
+- The `social` and political problems that brazil has.
+- I'm miss wilson - mrs. schuyler's `social` secretary.
+- Yeah... is the `social` studies class over for today?
+- `Social` defense tactic 17 peter, that jacket is foul.
+- That's randomly selected by `social` security numbers.
+- Is bringing his cell phone to the box `social` in 1906?
+- We�re not here to discuss your lack of a `social` life.
+- Doctor, i attempt to conduct my `social` life discreetly.
+- I was sent from the post in place of our `social` editor.
+- There's a square dance at the `social` hall this evening.
+- Crocs are `social`, why's this guy on the move by himself?
+- They live in the woods because they're anti-`social`, lila.
+- You have to be in the `social` register to keep out of jail.
+- My `social` security will expire, you'll still be sitting there.
+- Excuse me, i -- pardon me -- and they call them `social` insects.
+- Forgive me, but you don't strike me as the `social` secretary type.
+- I really don't think i need any `social` advice from you right now.
+- I thought we were officially opposed to suburban `social` activity.
+- If this is an emergency we have a staff of psychiatric `social` workers.
+- If you have any `social` skills, you've learned them from a rattlesnake.
+- Might make kind of a `social` issue, not having any other negro officer.
+- We'll cover it the way the "hickville gazette" covers the church `social`!
+- If your `social` duties permit - why - say, what kind of a pal are you?
+- You're leaving your house... and you're in a hurry to a big `social` event.
+- There's a mine entrance with a `social` conscience who writes amazing plays.
+- I'm not missing what's probably going to be the `social` event of the season.
+- The point is to step into a more evolved position of `social` responsibility.
+- I just knew you were too busy with the world peace bit to make a `social` call.
+- You haven't called him?-- i met a presidential aide once at a `social` occasion.
+- Lydia, i will never forgive you for embarrassing me in front of my `social` inferiors.
+- I have a theory that their ability to vocalize is the key to their `social` intelligence.
+- It's a personal matter which has nothing to do with politics or `social` philosophies....
+- If he wasn't `social` register -- if it was somebody like me, you'd be trying to hang him.
+                 

@@ -1,0 +1,107 @@
+---
+title: "interest in a sentence | interest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "interest"
+---
+- What's your `interest`?
+- It's in your `interest`.
+- Wouldn't `interest` you.
+- Earning `interest`, love.
+- He's taken an `interest`!
+- He's taken an `interest`.
+- Take an `interest` in it.
+- That is of no `interest`.
+- This will `interest` you.
+- A romantic `interest`.
+- This might `interest` you.
+- Maybe he's lost `interest`.
+- That wouldn't `interest` you.
+- Consider my `interest` piqued.
+- Lost `interest` in it, though.
+- Thank you for your `interest`.
+- Well he's taken an `interest`!
+- At least he took an `interest`.
+- Isn't in their best `interest`.
+- What's your `interest` in this?
+- Politics doesn't `interest` you.
+- Can i `interest` you in a holster?
+- But at nineteen percent `interest`!
+- I think these might `interest` you.
+- That doesn't `interest` me, doctor.
+- The same `interest` as yours larry.
+- What's your `interest` in all this?
+- Does this assignment `interest` you?
+- Do the chariot races `interest` you?
+- It couldn't possibly `interest` you.
+- I thought they might `interest` you.
+- It probably wouldn't `interest` you.
+- My `interest` is in you, not in her.
+- ... say ... about the `interest` ...
+- Without being `interest`-ed in them.
+- What is the `interest` for my family?
+- Purely scientific `interest` i'm sure.
+- Maybe i'm losing `interest` in my book.
+- So, uh... this wouldn't `interest` you.
+- You have a special `interest` in music?
+- Could we `interest` you in someone else?
+- His `interest` in you is <u>intense</u>.
+- `Interest` number one, is <u>moi</u>.
+- I'll get the money back, plus `interest`.
+- Romantic `interest`, or else a young kid.
+- You did that to protect my `interest`?
+- Earning `interest` in an offshore account.
+- I'm not sure it's in your best `interest`.
+- I don't have any `interest` in you anymore.
+- My `interest` in coming here is profession.
+- That act against their own self-`interest`.
+- There are two points of salient `interest`.
+- They're forgetting the national `interest`.
+- Call me crazy, but i smell human `interest`.
+- Hbo and mtv have also shown some `interest`.
+- Killing andrew wasn't in my best `interest`.
+- What is your `interest` in this, mr. taylor?
+- What's your `interest` in this, mr. bergman?
+- Something else that might `interest` you.
+- Has rarely outweighed my own self-`interest`.
+- I got an `interest` in making sure you don't.
+- I have no `interest` in your body, mr. boone.
+- I think you'll find it is in your `interest`.
+- Sounds like you got a conflict of `interest`.
+- Sure i can't `interest` you in anything else?
+- What is the nature of your `interest` in joe?
+- Could it be an overpowering `interest` in art?
+- Looks like that was his only `interest` in me.
+- A target guaranteed to catch his `interest`.
+- How come you took so much `interest` in her, dr.
+- You've never shown an `interest` in this family.
+- I mean you thought he was a person of `interest`.
+- Klute, the company's `interest` is tom grunemann.
+- So, um, what's your `interest` in kate libby, eh?
+- Thanks any- way for your `interest` in my career.
+- Wally a little too old for a romantic `interest`?
+- Can i `interest` you in a battery operated-vagina?
+- I suspected it might be worthy of your `interest`.
+- No, but i got something that might `interest` you.
+- You pay me back at your convenience, no `interest`.
+- What is the `interest` for the tattaglia family?
+- He's an old friend and his `interest` is in flowers.
+- I do appreciate the `interest` you've taken, though.
+- I have no `interest` in ever looking at you, hector.
+- I got no `interest` in you, xavier, or your... x-men.
+- You also have an `interest` in the securing property?
+- You have no `interest` in making things easy, do you?
+- I have no `interest` in removing you from your throne.
+- In the last 48 hours, i've completely lost `interest`.
+- But there's always somebody whose `interest`'s at stake.
+- Graham's got something to tell you might `interest` you.
+- I don't owe anybody 2,000 clams plus `interest`, stupid.
+- I have little `interest` in your quaint vessel, captain.
+- That it's in his best `interest` to keep all of us alive.
+- Therefore i have no `interest` in the state of tennessee.
+- Would take an `interest` in your sunken ship, don't they?
+- Believe me, i have no `interest` in ruining your life.
+- But not in whose `interest` it is to help you out of debt.
+- Once they start getting headaches they'll lose `interest`.
+- Can i `interest` you in a room-temperature sparkling water?
+                 

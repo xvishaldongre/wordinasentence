@@ -1,0 +1,107 @@
+---
+title: "blind in a sentence | blind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blind"
+---
+- `Blind` in this place?
+- I'm `blind`, not deaf.
+- This will `blind` you.
+- But i was just `blind`.
+- We're going in `blind`.
+- What fake `blind` date?
+- Why's she `blind`, bro?
+- I'm not jumping `blind`.
+- You're `blind` as a bat.
+- Your mother was `blind`?
+- I read to `blind` people.
+- Not unless we're `blind`.
+- They say love is `blind`.
+- Watch your `blind` spots.
+- My mother was `blind`.
+- `Blind` as a tiberian bat.
+- Boy, i'm `blind` as a bat!
+- God, i hate `blind` dates.
+- She's <u>`blind`</u>, bro.
+- What are you all, `blind`?
+- I get nathan `blind` drunk.
+- I thought you were `blind`!
+- You'll be going in `blind`.
+- I ain't `blind`, you asshole.
+- We don't run in `blind`, kid.
+- The `blind` leading the `blind`.
+- The guards turn a `blind` eye.
+- There was no `blind` stabbing.
+- You call that a `blind` alley?
+- He was myopic... going `blind`.
+- .. she's <u>`blind`</u>, bro ..
+- ♪ 'twas `blind`, but now i see.
+- What do you think, i'm `blind`?
+- You have a `blind` grandfather.
+- Are you sure or are you `blind`?
+- Love is deaf as well as `blind`.
+- So...what are you, `blind`, son?
+- The truck -- make a `blind` here?
+- His `blind` friend got "attacked."
+- I'm not crazy about `blind` dates.
+- No way, man, you'd rob me `blind`!
+- Only you're too `blind` to see it.
+- You're `blind`... - emori... - no!
+- Demand a recount... you're `blind`!
+- He's `blind`, for chri... fuck you.
+- On that pathetic fake `blind` date.
+- I'm `blind` because my father drank.
+- I'm flying `blind` here god damn it!
+- I'm not interested in `blind` dates.
+- Mother's not half so `blind` as you.
+- She's all over him, are you `blind`?
+- The `blind` one last year, remember?
+- What do you call a `blind` dinosaur?
+- `Blind` people, crippled... m'hm.
+- `Blind` pete taught me a great trick.
+- I got a nice safe `blind` spot going.
+- Yeah--the `blind` foster home mother.
+- Didn't he tell you about `blind` pete?
+- You sure seen a lot for a `blind` man.
+- At the riker institute for the `blind`.
+- `Blind` faith is what i consider heresy!
+- Don't play with that, you'll go `blind`.
+- Faith may be `blind`, but loyalty isn't.
+- I'm surprised you aren't `blind` by now.
+- Why do i feel like i'm on a `blind` date?
+- What do you call a `blind` dinosaur's dog?
+- Yeah, she went `blind` giving birth to me.
+- She made the `blind` see and it was a gift!
+- "whereas once i was `blind`, now i can see."
+- I'm goin' `blind`... c'mon, let's crawl home.
+- That bitch is `blind` as a blonde fucken bat.
+- We'll toss it when we make the `blind` curve.
+- Filling in mother nature's `blind` spots ... ?
+- Two things... `blind` faith and a little wine.
+- You're `blind` -- is something wrong, my friend?
+- All we have to do to grab ganz is not go `blind`.
+- Who needs affection when i've got `blind` hatred?
+- In this courtroom, mr. miller, justice is `blind`.
+- You know how `blind` you are without your glasses.
+- It's the fall of the roman empire, are you `blind`?
+- You're so `blind`, everyone can see this but you!!!
+- I'd rather be `blind` and ragged than dead, i guess.
+- I'm shutting you down on this "`blind` thing," john.
+- I should be able to `blind` the eye from right here.
+- Is it true that you and love went on a `blind` date?
+- She could `blind` me as easily as the night the day.
+- Uh... maybe he's `blind`... huh huh, check this out.
+- You're walking around `blind` without a cane, sport.
+- On a `blind` tip from bruce wayne -- we do have laws.
+- I'm not `blind` to my own failings... no, no, i don't.
+- Look...i tell you, you don't think i'm `blind`, do you?
+- My first crush... and when she's turning a `blind` eye.
+- Of, quote, 'turning a `blind` <u>eye</u> to the future.'
+- That's because you're `blind` to what's really going on.
+- Yeah, in the land of the `blind` the one eye'd are king.
+- `Blind` people feeling around for bullet holes in the wall.
+- I think they would have mentioned if he was a `blind` dwarf.
+- An eye for an eye only ends up making the whole world `blind`.
+- `Blind` because you like that a girl's not grossed out by you.
+- I know -- ...an eye for an eye making the whole world `blind`.
+                 

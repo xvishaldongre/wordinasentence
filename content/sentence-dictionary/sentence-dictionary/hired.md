@@ -1,0 +1,107 @@
+---
+title: "hired in a sentence | hired example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hired"
+---
+- You `hired` an actor??
+- Bianchinni `hired` you?
+- I've `hired` a hit man.
+- Just got `hired` today!
+- Who `hired` the bastard?
+- You `hired` me, remember?
+- A `hired` player no longer.
+- You haven't `hired` me yet.
+- I do what i'm `hired` to do.
+- I `hired` you to bus tables.
+- I was `hired` for five hits.
+- Nobody knows you `hired` me?
+- Someone `hired` both of you?
+- I'm the only one you `hired`?
+- It's what you `hired` us for.
+- I'm `hired` to watch the leads.
+- I should have `hired` this man.
+- They just `hired` me like that.
+- You weren't `hired` to miss him.
+- You were `hired` to look for tom.
+- Greek, hebrew... - you're `hired`.
+- I've been `hired` to look for him.
+- That's when john mccay `hired` me.
+- The hitman `hired` to kill israel?
+- You're a `hired` hand around here.
+- They `hired` the perfect killer.
+- He `hired` you to build this place ?
+- A `hired` gunman tried to off adrian.
+- He `hired` a dame to take it from ya.
+- We `hired` a man named murray bauman.
+- You `hired` jackson and rudy., not me.
+- His family have `hired` me to find him.
+- His law firm, same one that `hired` me.
+- Maybe -- maybe they `hired` those guys.
+- Maybe she `hired` someone to kill them.
+- I've `hired` you to help me start a war.
+- Ms. sutton `hired` you to find the girl.
+- So, your husband `hired` me to kill him.
+- Whatzername--the "psychic" anna `hired`.
+- Daddy `hired` a pinhead to take your job.
+- I don't understand... dmitri `hired` him!
+- The man who `hired` me for this contract.
+- Besides, you `hired` me for my discretion.
+- `Hired` a trainer, stall, whatever it was.
+- I told you, they `hired` me over the phone.
+- I think he `hired` shu to kill jimmy chin...
+- Yeah, everyone has to when they get `hired`.
+- I guess i should have `hired` a professional.
+- I was `hired` by your parents, mrs de moraes.
+- Maybe he `hired` some wino to make the calls.
+- Cuthbert was `hired` to get us out of the red.
+- I have loved her since the day she `hired` me.
+- Martin, we `hired` the best man we could find.
+- You're a `hired` gun, deirdre -- just like me.
+- You were `hired` to look for tom, not someone.
+- That means wintermute `hired` us to fry itself.
+- You `hired` me, you and your selectman friends.
+- You were `hired` to protect her, that's enough.
+- Guess who they `hired` to seal up the place?
+- I was `hired` to follow somebody for a few days.
+- This piece of puke `hired` me to kill you, baby.
+- For fifty pounds my `hired` player days are over.
+- They `hired` this fucking kid at the last minute.
+- But i thought you'd `hired` a private investigator.
+- Couldn't keep your hands off the `hired` help, huh?
+- I didn't realize... you `hired` someone to open it.
+- This broad `hired` you, gittes, not evelyn mulwray.
+- In fact, i just `hired` a few new guys... beautiful.
+- The man you `hired` to pretend to be your boyfriend?
+- A `hired` valet who robs me whenever he has the power.
+- You've `hired` yourself a hell of a lawyer, mr. kramer.
+- But you `hired` me or you `hired` that chippie to hire me.
+- `Hired` himself a crew, promised each man an equal share.
+- That's why you got scared when mrs. christian `hired` me.
+- The bastard fired me and `hired` another girl, a redhead.
+- But to a guy like you i'm just another two bit `hired` gun.
+- The plumbers we `hired` to replace it are very inefficient.
+- I must have been pretty much plastered if i `hired` a valet.
+- I've been `hired` by your network for the washington bureau.
+- As far as she's concerned, i'm just part of the `hired` help.
+- If you can't trust the man you've `hired` to kill your wife .
+- The family `hired` you and i have just fired you, mr lombard.
+- I was `hired` in and started to do the boring old work routine.
+- If you can't trust the man you've `hired` to kill your wife ...?
+- We're both `hired` guns, and this is a job -- like any other job.
+- Yesterday i `hired` a taxi driver to drive me around for an hour.
+- You were not `hired` for your brains, you hippopotamic land mass.
+- These men are private detectives `hired` to protect vito corleone.
+- George was so impressed he `hired` him when he divorced his second.
+- I just `hired` these guys to watch my back... no, man, that's fine.
+- Now, at the beginning he was `hired` to kill this guy the cops had.
+- What you're `hired` for is to help us--does that seem clear to you?
+- I'm `hired` to do a piece of work, my mark goes down and stays down.
+- Some beverly hillbilly just `hired` me to find you-know-fucking-who.
+- I reckon mr. woolridge got me `hired` on to work for bill cox's outfit.
+- Dell disappeared again and aunt rootie `hired` a private eye to find him.
+- It's exactly how i felt when i realized you'd `hired` the goon to kill...
+- Look, you little clown, do you know how many people i've `hired` for you?
+- So a million `hired` girls and motormen's wives will know what's going on!
+- Do what you were `hired` for, why would you not tell her the truth about me?
+                 

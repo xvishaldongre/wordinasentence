@@ -1,0 +1,101 @@
+---
+title: "senator in a sentence | senator example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "senator"
+---
+- Get your hat, `senator`.
+- Here you are, `senator`.
+- How do you do, `senator`?
+- Will the `senator` yield?
+- A united states `senator`!
+- Nice to see you, `senator`.
+- Office of--`senator` smith?
+- You may proceed, `senator`.
+- I was a `senator`, you know.
+- Your prerogative, `senator`.
+- Days are going by, `senator`.
+- If you like being a `senator`.
+- You want to see me, `senator`?
+- How's your bill, `senator`?
+- Are you catching on, `senator`?
+- The corleone family, `senator`.
+- I'll let the `senator` tell you.
+- Like a `senator` or a president.
+- Meet the *`senator`*, mr. moore.
+- Why, he's a `senator`, isn't he?
+- Will `senator` smith yield to--?
+- `Senator` daddy must be thrilled.
+- `Senator` nole just ended the war.
+- Chemco makes many things `senator`!
+- I remember mary certainly, `senator`.
+- We all know what right is, `senator`.
+- You--uh--you better relax, `senator`.
+- Perhaps even your children, `senator`.
+- `Senator` paine decided this *with* you?
+- Will the `senator` yield for a question?
+- Can `senator` martin do something to you?
+- `Senator` long set your boss up, my friend.
+- Case in point... hardly the case, `senator`.
+- That is merely your *impression*, `senator`.
+- Will `senator` smith yield to his colleague?
+- `Senator`, you can talk all you want to, now.
+- Look, `senator`--let me give you a rough idea.
+- Please tell the `senator` i won't be a minute.
+- Help the `senator`, give him whatever he wants.
+- We're all part of the same hypocrisy, `senator`.
+- Yeah, for the fifth time, `senator`-- washington.
+- I guess--sometimes--`senator` paine must be right.
+- Remember, he's the son of a `senator`, so go easy.
+- The `senator`'s white paper is almost ready, bets.
+- The `senator`'s body is literally burning itself out.
+- A receiver tuned permanently to the `senator`'s phone.
+- Jag's been notified and i called the `senator` myself.
+- Aw, i conned a `senator` from florida on a stocks deal.
+- Mr. president, will the `senator` yield for a question?
+- I don't like saying these things `senator`... with what?
+- I, unlike `senator` kennedy, have a plan to end the war.
+- Well, that's not exactly what the `senator` has proposed.
+- Here, here, susan--this is jeff smith-- our new `senator`.
+- Security arrangements generally take some time, `senator`.
+- No, not yet, `senator` paine--not hide nor hair of the man.
+- `Senator` smith can follow with mr. mcgann and the pigeons.
+- Mathematics is the only truly universal language, `senator`.
+- Now, if you're ready, `senator`, we can start for the hotel.
+- That section over there is reserved for `senator`'s friends.
+- I am avoiding a question that is decidedly loaded, `senator`.
+- I just did this procedure on a `senator` and he's doing fine.
+- I work for `senator` sam albert and i was given jerry's name.
+- This boy is a `senator`, however it happened, he's a `senator`.
+- A `senator`, an agent and something - with - long - red - hair.
+- Goodnight, `senator`-- well, goodbye, sir--and thank you again.
+- Madam `senator`... this is an internal document of the u.s. navy.
+- Congressmen, radner, schultz, diggs-- glad to know you, `senator`.
+- Looks like it, but-- then--this is *not* you signature, `senator`?
+- `Senator`, my client would like to read a statement for the record.
+- The `senator` from nevada is here with some people from washington.
+- One `senator` just gave a speech slurring us 57 times in 20 minutes.
+- But wouldn't this have more weight coming from the `senator` herself?
+- `Senator` paine too, ma--we'd like to have him-- fine-- hello, ma.
+- He used the adamantium in logan's dog tag to test it on the `senator`.
+- If i have to ask again, `senator`, i'll be asking in front of cameras.
+- Remember when `senator` hamersley died in an accident up near shenandoah?
+- You mutant bastards... mr. guyrich has been dead for some time `senator`.
+- A gay `senator`'s son who let his sarge get fragged on a training exercise?
+- The `senator` will please suspend until order is restored in the chamber. "
+- Why, i think it's very sweet of the children-- i do *not* want a `senator`.
+- In a year--the whole thing might be forgotten-- what do you want, `senator`?
+- Give you something to shoot at, `senator`--if you figure on doing any talking.
+- It won't be long till they're calling you `senator` filmore-- yes, you should.
+- I sometimes feel things've gone downhill since john kennedy was killed, `senator`.
+- Maybe when he gets tired of toying with `senator` martin, he'll talk to you again.
+- My dear `senator`, have you the faintest idea of what it takes to get a bill passed?
+- Mr. president--i did not say that `senator` paine was one of those congressmen i saw.
+- He'll let the `senator` keep hoping, day after day, until catherine finally washes up.
+- My heart was right up here all the time-- i wonder what `senator` paine thought of it?
+- `Senator` geary's here, and mr. and mrs. barrett wanted to thank you before they left.
+- The `senator` called--apologized for not coming personally, but said you'd understand.
+- But what you presume to tell this committee - control, `senator`... we teach them control.
+- The `senator` has no voice in this chamber until the oath of office has been administered!
+- I'm sure `senator` paine will do all he can-- he's a fine man, miss saunders, isn't he?
+                 

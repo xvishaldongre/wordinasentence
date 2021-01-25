@@ -1,0 +1,107 @@
+---
+title: "door in a sentence | door example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "door"
+---
+- Ben: there's a `door`?
+- Hey, i found a `door`.
+- I can open the `door`.
+- I live next `door` ...
+- Is that `door` locked?
+- Mike, open the `door`.
+- Open the outer `door`.
+- Open this damn `door`.
+- Outer `door` breached.
+- She is out the `door`.
+- Shut the `door`, emmi.
+- Shut the front `door`!
+- Shut the front `door`.
+- The `door` is opening.
+- The `door` was closed.
+- The `door` was locked.
+- The `door` won't open.
+- Walk up to the `door`.
+- We were at her `door`.
+- Who locked the `door`?
+- Why's the `door` open?
+- Can you get the `door`?
+- Crash, shut the `door`.
+- Diana, open the `door`!
+- Don't close the `door`.
+- Get that `door` open.
+- Guy answers the `door`.
+- I'm getting the `door`.
+- I said open the `door`.
+- Number's on the `door`.
+- Open the damn `door`!
+- Open the hangar `door`!
+- Please open the `door`.
+- Raven, open the `door`!
+- Take me out the `door`.
+- Tessa, open the `door`.
+- The `door`... on three.
+- The `door` ws unlocked.
+- Whaddya want, a `door`?
+- What's "cellar `door`"?
+- Yes, the little `door`.
+- You opened this `door`.
+- But that's not a `door`.
+- Come over to the `door`.
+- [`door` opens] it burns!
+- [`door` opens] kill her.
+- `Door` shuts behind him.
+- Get to the vault `door`.
+- Hey the `door` was open.
+- I walked out the `door`.
+- Open the `door`, vickie.
+- Open the goddamn `door`!
+- Open the reactor `door`.
+- Shall i shut the `door`?
+- Shut the `door`, lester.
+- The `door` needs a lock.
+- The `door` on the right.
+- The `door`'s over there.
+- The `door` was unlocked.
+- Where's the back `door`?
+- Where's the trap `door`?
+- Willie, open the `door`!
+- You answered the `door`!
+- Better unlock the `door`.
+- Can you come next `door`?
+- Chuck him out the `door`!
+- Close the fucking `door`!
+- Did you close the `door`?
+- [`door` beeps] her first.
+- [`door` creaking] - no.
+- Gabriel, open the `door`!
+- Gabriel, open the `door`.
+- Get away from the `door`.
+- Hit by a swinging `door`?
+- Jackson, open the `door`.
+- Lindsey, open the `door`!
+- Lock the `door` after me.
+- My `door` is always open.
+- Open the `door`, will ya?
+- Pow she's out the `door`.
+- Smashed the front `door`.
+- Tell me about the `door`.
+- The back `door` was open.
+- The `door` was open, sir.
+- The front `door` is open.
+- The front `door` slammed.
+- There's kids next `door`!
+- Thing had a glass `door`.
+- You left the `door` open.
+- Your `door` was unlocked.
+- A boy comes to the `door`.
+- Another unopenable `door`.
+- Chief guard closes `door`.
+- Close the `door`, raymond.
+- Containment `door` sealed.
+- First `door` on the right.
+- First `door` on your left!
+- Get away from that `door`.
+- I’m closing that `door`.
+- Move away from the `door`.
+                 

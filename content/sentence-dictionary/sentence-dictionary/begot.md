@@ -1,0 +1,7 @@
+---
+title: "begot in a sentence | begot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "begot"
+---
+## Unfortunately, we have no example sentences for begot                 

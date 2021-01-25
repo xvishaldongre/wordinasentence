@@ -1,0 +1,69 @@
+---
+title: "Frankie in a sentence | Frankie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Frankie"
+---
+- A whole lot, `frankie`.
+- I fucked up, `frankie`.
+- Take it easy, `frankie`.
+- You think so, `frankie`?
+- Do me a favor, `frankie`.
+- How you doin', `frankie`?
+- Sing it to me, `frankie`!
+- That's `frankie` zammito.
+- You're `frankie` lazzaro.
+- But `frankie` the squealer.
+- Poor `frankie` five-angels.
+- Why'd you do it, `frankie`?
+- What do you want, `frankie`?
+- `Frankie`, you piece of shit!
+- `Frankie`, you're a good boy.
+- [`frankie` chuckles] oh, yeah.
+- `Frankie`...do you respect me?
+- `Frankie` can't say a word.
+- Why don't you relax, `frankie`?
+- You're a family man, `frankie`?
+- Did you like my friend `frankie`?
+- `Frankie`, do him a fuckin' favor.
+- You hear a little girl, `frankie`?
+- Jesus, `frankie`, i'm your brother!
+- You gonna buy me a beer, `frankie`?
+- `Frankie` opens them with his teeth.
+- Who had `frankie` pantangeli killed?
+- Do you know who `frankie` flowers is?
+- It was `frankie` tried to have me hit.
+- `Frankie`, i want to ask you something.
+- I wasn't thinkin' about you, `frankie`.
+- `Frankie`, roth tried to have me killed.
+- `Frankie`, johnny wants to say goodnight.
+- `Frankie`, i -- well, li mu bai can do it.
+- C'mon `frankie`, i'm trying to make good here.
+- Well, whatever `frankie`'s got, it's catching.
+- `Frankie` still has a good string, three girls.
+- You can't just -- we don't need you, `frankie`.
+- It wasn't half full out there tonight, `frankie`.
+- You got no right springing this on me, `frankie`.
+- Don't worry about anything, `frankie` five-angels.
+- `Frankie`... they found a guy's head in the desert.
+- I'm askin' you, `frankie`, to keep an eye on nicky.
+- Oh `frankie`, what's this i hear about your brother?
+- Honey, a couple of years ago, with jane and `frankie`?
+- Everything is going to be okay, `frankie`, don't worry.
+- Wasn't `frankie` ruskin directing the picture you're in?
+- `Frankie` pentangeli is called to testify against the family.
+- `Frankie` ferchetti introduced us once, about five months ago.
+- `Frankie`, you were always interested in politics, in history.
+- Mikey, why would they ever hit poor old `frankie` five-angels?
+- Then the new york detectives turned `frankie` over to the fbi.
+- You weren't straight with us, `frankie`, what else could we do?
+- The deal's too good, `frankie` if he's gonna fuck me up the ass!
+- `Frankie` kept them in the same apartment: it cut his travel-time.
+- `Frankie`, you know my father respected roth, did business with him.
+- Years ago `frankie` had a young girlfriend; he called her his co-wife.
+- `Frankie` &quot;five-angels&quot;...thought you were never coming west.
+- You know your wife called `frankie` and told him the fuckin' heat's off?
+- `Frankie` zammito's got the word out he's looking for some french dudes.
+- `Frankie`... the little guy, he wouldn't be fuckin' the jew's wife, would he?
+- Then `frankie` took them to italy, and had them brought up by his brother vincenzo.
+                 

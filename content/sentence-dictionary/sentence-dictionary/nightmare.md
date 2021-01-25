@@ -1,0 +1,96 @@
+---
+title: "nightmare in a sentence | nightmare example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nightmare"
+---
+- Best of a `nightmare`.
+- This is a `nightmare`.
+- But it's a `nightmare`!
+- It's just a `nightmare`.
+- So you had a `nightmare`.
+- This was his `nightmare`.
+- A detective's `nightmare`.
+- God, it was a `nightmare`.
+- It was just a `nightmare`.
+- It's the `nightmare` juice.
+- I was having a `nightmare`.
+- Actually it's a `nightmare`.
+- A `nightmare`, nothing more.
+- Like a recurring `nightmare`.
+- It's a logistical `nightmare`.
+- It was just a `nightmare`, ok?
+- This is a fucking `nightmare`.
+- Traffic will be a `nightmare`.
+- You were having a `nightmare`.
+- The `nightmare` never ends.
+- I can't handle the `nightmare`.
+- It's my `nightmare` he comes to.
+- This isn't a normal `nightmare`.
+- Uh... `nightmare` on elm street.
+- When did you have a `nightmare`?
+- You put an end to a `nightmare`.
+- The `nightmare` that you created.
+- Jump right on into my `nightmare`.
+- I'm your worst fuckin' `nightmare`.
+- It could have been a `nightmare`...
+- It's not a `nightmare` or anything.
+- Oh god, this is like a `nightmare`.
+- This is a coma-induced `nightmare`.
+- Has become my recurring `nightmare`.
+- His dream and our worst `nightmare`.
+- I had the worst goddamn `nightmare`.
+- Dream -- `nightmare` is more like it.
+- It's a fucking `nightmare`, isn't it?
+- I thought you said it was a `nightmare`?
+- You had another `nightmare`, didn't you?
+- He's stuck in a loop - a `nightmare` loop.
+- Look, i just want out of this `nightmare`.
+- That's why she was having the `nightmare`.
+- Crystal lake...where the `nightmare` began.
+- I had a `nightmare` and i screamed for you.
+- I just had the most horrifying `nightmare`.
+- It's a `nightmare`, i'm back at st. anne's!
+- If i had a `nightmare`, i'd bring my dad in.
+- It's not like he's describing a `nightmare`.
+- What a dream i've had... proper `nightmare`.
+- That's not going to stop his `nightmare` - no.
+- Everybody loves a good humiliation `nightmare`.
+- I had the most terrible `nightmare` i ever had.
+- It's like waking up from a goddamn `nightmare`.
+- It's okay it was just a `nightmare` that's all.
+- Stupid anger watkins it was just a `nightmare`.
+- But who'd would want to - the `nightmare` juice!
+- It was the `nightmare` man jamie, what happened?
+- I... and how about your co-star in `nightmare` i.
+- I don't want to <u>stop</u> the `nightmare`, hutch.
+- I keep having this `nightmare`--that he catches us.
+- I think of it as sort of a `nightmare` in progress.
+- It's all been like a crazy `nightmare`, mr. dickson.
+- Uh, an arker, a grounder, it was just a `nightmare`.
+- Why's she so bothered by a stupid `nightmare`, anyway?
+- So anyway, that's the `nightmare` i've been having lately.
+- You know, all this `nightmare` we went through with hearst.
+- She just whipped up a big old batch of `nightmare` juice!
+- I had the most horrible `nightmare` we're putting it in mine.
+- I'll be able to introduce superman to his first `nightmare` .
+- I used to have this recurring `nightmare` that i was headless.
+- This place is a worse `nightmare` than anything i've seen yet!
+- I had a `nightmare` once that something like this might happen.
+- Why, they've been praying for you all through this `nightmare`.
+- So, if you have a `nightmare`, for instance like falling, right?
+- `Nightmare` in here... give him <u>that</u>pompous son of a bitch.
+- She had a `nightmare` about somebody trying to kill her, last night.
+- This hollywood exploitation of the `nightmare` i lived has to be stopped.
+- Then, in this `nightmare` in progress, does this thing have any weaknesses?
+- You wake up every night, sheets soaking, the same `nightmare` over and over...
+- "dog having `nightmare`, do you think dating sites want you to meet other people?
+- Ever since i found that thing i've been like a prisoner in a terrible `nightmare`.
+- You'll watch a little geraldo, some `nightmare` on elm street 12, i'll never know.
+- An extremely realistic `nightmare` brought on by what's been happening in this town.
+- I'm gonna be your worst fucking `nightmare` until you start breaking it down for me.
+- For ten years he's been imprisoned as freddy by the story of `nightmare` on elm street.
+- I had a `nightmare` one night and i didn't wake you up so you could tell me it was okay.
+- I've been trying to get through to the head guy - the `nightmare` god - what's his name?
+- You just said you're their worst `nightmare` - and to line their mothers up for a milking.
+                 

@@ -1,0 +1,51 @@
+---
+title: "silence in a sentence | silence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "silence"
+---
+- Still radio `silence`.
+- Until then, `silence`.
+- He's used to `silence`.
+- You can't `silence` me.
+- It's not just `silence`.
+- `Silence` seemed better.
+- Complete radio `silence`.
+- Mother... radio `silence`.
+- Put us on radio `silence`!
+- We should sit in `silence`.
+- I told you, radio `silence`!
+- Put your radio on `silence`!
+- Your `silence` intrigues me.
+- Chekov, break radio `silence`.
+- The `silence` was really nice.
+- I scared dunbar into `silence`.
+- No explanation, just `silence`.
+- We fly to honolulu in `silence`.
+- Men have good times in `silence`.
+- There is a long awkward `silence`.
+- Maybe their `silence` is a sign...?
+- Oh, he will not `silence` our toes.
+- But you still hold out for `silence`?
+- Suddenly in that `silence`, music.
+- I came to a place of deep `silence`...
+- If we mourned, we mourned in `silence`.
+- That is another reason for keeping `silence`.
+- It's a little "`silence` of the lambs" for me.
+- Should we `silence` our cell phones and pagers?
+- The only thing i want to hear is your `silence`.
+- Traded his `silence` for a kid and some cash.
+- Try to maintain radio `silence` from here on out.
+- It's late... help me with two minutes of `silence`!
+- That's like `silence` of the lambs, don't you think?!
+- They sit in `silence` for, like, at least five minutes.
+- Then i heard a voice, speaking in a sudden `silence`.
+- She whisks in with a crystal ashtray as they sit in `silence`.
+- We just need more ti... now to sit in `silence` till it's over.
+- Sisters, for the rest of the day we shall declare a vow of `silence`.
+- But then, with time, i understood what he said...and your `silence` too.
+- I'm talking to you out of two years of `silence` - listen to what i say!
+- `Silence` my husband, or you'll come to know an infamy to rival his own.
+- There is something to be said for `silence` oh, yes, yes of course, a concern.
+- This church has gone from a place of warm, awkward `silence` against the rules?
+                 

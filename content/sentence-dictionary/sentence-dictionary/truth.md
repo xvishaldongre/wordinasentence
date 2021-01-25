@@ -1,0 +1,107 @@
+---
+title: "truth in a sentence | truth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "truth"
+---
+- He steals the `truth`.
+- It's just the `truth`.
+- Just tell the `truth`.
+- Tell them the `truth`.
+- The moment of `truth`.
+- This is `truth` serum!
+- Well, `truth` be told?
+- Ain't that the `truth`!
+- Ain't that the `truth`.
+- Ain't that the `truth`?
+- I want the `truth`.
+- I realized the `truth`.
+- Isn't that the `truth`?
+- I told you the `truth`.
+- It's the `truth`, jake.
+- Let's face the `truth`.
+- Molly, `truth` or dare?
+- So `truth` is revealed.
+- So you hid the `truth`.
+- ...ain't it the `truth`!
+- But what is the `truth`?
+- For seeking the `truth`?
+- Gimme some `truth` here.
+- I am the `truth` teller.
+- I have told the `truth`.
+- I'm telling the `truth`.
+- I'm telling the `truth`.
+- I see the `truth` of it.
+- I will hold the `truth`.
+- Now tell me the `truth`.
+- That is not the `truth`.
+- That one is the `truth`?
+- That's just the `truth`.
+- `Truth`'ll set you free.
+- Yes, that's the `truth`.
+- You tellin' the `truth`.
+- Ain't that a sad `truth`.
+- Because it's the `truth`.
+- Brutal `truth`, remember?
+- But it's not the `truth`.
+- But you want the `truth`?
+- For managing the `truth`.
+- Friends tell the `truth`.
+- He's telling the `truth`!
+- He's telling the `truth`.
+- I am telling the `truth`.
+- I know the `truth`, john.
+- It's not a `truth` serum.
+- It's the `truth`, really.
+- Just tell me the `truth`.
+- So tell them the `truth`.
+- Tell me tha real `truth`.
+- Tell me the `truth`, mom!
+- Tell the `truth`, roland.
+- That's the god's `truth`.
+- There is but one `truth`.
+- The `truth` is one thing.
+- The `truth` is out there.
+- This isn't `truth` serum.
+- Until i hear the `truth`.
+- We tell them the `truth`.
+- We told them the `truth`.
+- Write the `truth` gently.
+- About `truth` and justice?
+- I always tell the `truth`.
+- If that ain't the `truth`.
+- I said i want the `truth`.
+- It's the `truth`, i swear.
+- It's the `truth`, my lord.
+- I've told you the `truth`.
+- I was telling the `truth`.
+- Oh, is that `truth` serum?
+- The `truth` is a stranger.
+- The `truth` will save you.
+- `Truth` is, things change.
+- But what <u>is</u> `truth`?
+- Do not betray his `truth`."
+- Dude, that's `truth` serum!
+- Hey, tess, `truth` or dare?
+- I have to tell the `truth`.
+- I need to know the `truth`.
+- Is that the `truth` for us?
+- I want to hear the `truth`.
+- Please tell me the `truth`.
+- We can't avoid the `truth`.
+- You're telling the `truth`.
+- You wanna know the `truth`?
+- Are you telling the `truth`?
+- Because we tell the `truth`.
+- I always t-tell the `truth`.
+- If he's telling the `truth`.
+- I'm telling you the `truth`.
+- In one remarkable `truth`.
+- Now you tell me the `truth`.
+- Or anyone else, the `truth`.
+- Tell me the `truth`, carter.
+- Tell me the `truth`, niylah.
+- That's god's honest `truth`.
+- The `truth` is never gentle.
+- Well, it's only the `truth`.
+                 

@@ -1,0 +1,54 @@
+---
+title: "webster in a sentence | webster example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "webster"
+---
+- Hello, mrs. `webster`.
+- Thanks, mr. `webster`!
+- Well -- mr. `webster`!
+- Embezzled, mr. `webster`.
+- Mr. `webster`, i presume?
+- Thank you, mr. `webster`.
+- You're next `webster`.
+- Ten throws -- mr. `webster`?
+- Gee, would you, mr. `webster`?
+- Oh, could you, mr. `webster` ?
+- She's `webster`'s girl friday.
+- What about daniel `webster`?
+- Daniel `webster` used to use it.
+- ... did you hear, mr. `webster`?
+- 'n daniel `webster` will be there.
+- Defined by `webster`'s as harmless.
+- Is mrs. `webster` coming back soon?
+- Mr. `webster` -- you will help him?
+- You had daniel `webster`, didn't ye?
+- Dan'l `webster` is coming to my party.
+- It's only a short drive, mr. `webster`.
+- May -- the best man win, mr. `webster`!
+- Seems like it's my fault, mr. `webster`.
+- Ma says breakfast's ready, mr. `webster`!
+- You shall have your trial, mr. `webster`.
+- Oh -- mr. `webster` -- i'm so glad you came!
+- I've made a special surprise for mr. `webster`.
+- Please, mr. `webster`, you're a great humanitarian.
+- Talk has never proved that question, mr. `webster`!
+- Mr. `webster` -- i'd like you to meet my wife, mary.
+- But it takes more than that to down daniel `webster`.
+- Yes, mr. `webster` -- it was here where it all began.
+- Here's a man who knows what's good for dan'l `webster`!
+- Mr. `webster`, you mustn't believe all that people say.
+- Why -- yes -- it's hard to put it into words, mr. `webster`.
+- To the champion of the whole united states -- dan'l `webster`!
+- Think this room is larger than anything `webster`'s got at marshfield?
+- You brought daniel `webster` here -- just to try to make a fool of me!
+- Gus, webco, the `webster` industrial complex, is a family-owned cartel.
+- But mr. `webster`...you're doin' okay with brazil and them other places.
+- Now you can tell people all about the house, but don't mention `webster`.
+- He said you had horns and a tall, mr. `webster`, but i ain't seen 'em yet.
+- Now a man like daniel `webster` -- guess they pay him high for what he does.
+- I had him on there too, but i was afraid dan'l `webster` might feel insulted.
+- Gone with daniel `webster` -- to marshfield, son.... you told mary to go-- ma!
+- That's not like him, mr. `webster` -- it must be my fault somehow -- my fault.
+- Goodness, mr. `webster`, i've done nothing but talk about that all through dinner.
+                 

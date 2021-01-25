@@ -1,0 +1,107 @@
+---
+title: "taken in a sentence | taken example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "taken"
+---
+- He's `taken` the guns.
+- Somebody's `taken` it.
+- They've `taken` lyssa.
+- Hitler's `taken` europe.
+- Ricky's `taken` care of.
+- You've `taken` the chip.
+- Foster's `taken` care of.
+- He's `taken` an interest!
+- He's `taken` an interest.
+- It's all `taken` care of.
+- They�ve `taken` the core!
+- It has `taken` many lives.
+- Did you -- she was `taken`.
+- I'd have `taken` that deal.
+- It's `taken` care of, babe.
+- It's `taken` on a disguise.
+- Oh, that's `taken` care of.
+- ... `taken` it for granted?
+- That's all `taken` care of.
+- Victor must've `taken` him.
+- Well, he's `taken` care of.
+- We shoulda `taken` his car.
+- Where have they `taken` it?
+- I have `taken` care of mary.
+- I want them `taken` care of.
+- None `taken` - unbelievable.
+- Salazar's been `taken` down.
+- So i've `taken` on the task.
+- They should have `taken` us.
+- When was his mother `taken`?
+- They've `taken` hostages.
+- At the moment it was `taken`.
+- I'm all `taken` care of, see?
+- She's `taken` a liking to me.
+- They've `taken` your clothes?
+- They were `taken` last night.
+- We have that `taken` care of.
+- Your daughter's been `taken`.
+- Admittedly, it's `taken` time.
+- Have the child `taken` to bed.
+- I shouldn't have `taken` that.
+- It's all been `taken` care of.
+- She's `taken` a liking to him.
+- The time stone's been `taken`.
+- Well he's `taken` an interest!
+- We've `taken` all the classes.
+- Got `taken` in the first round.
+- I never should have `taken` it.
+- I ought to have it `taken` out.
+- I've `taken` a lot of morphine.
+- No, go-- is this stool `taken`?
+- Oh, that's all `taken` care of.
+- The courtyard's been `taken`...
+- They have `taken` dr. meridian.
+- They must've `taken` it off me.
+- They've `taken` over this town.
+- You're being `taken` seriously.
+- This is why she was `taken`.
+- Is my assistant `taken` care of?
+- I've always `taken` care of you.
+- I've `taken` care of everything.
+- Man, you're hot... none `taken`.
+- Not long after this was `taken`.
+- Ruth's already `taken` him home.
+- `Taken` together, that's gospel.
+- You have `taken` business class?
+- Couldn't he have `taken` an hour?
+- He seemed quite `taken` with you.
+- I hate having my picture `taken`.
+- `Taken` by the headless horseman.
+- The man has `taken` over my mind.
+- We should have `taken` it slower.
+- A course has already been `taken`.
+- All the good meetings are `taken`.
+- He must have `taken` quite a fall.
+- She's `taken` off her hazmat suit.
+- That must've `taken` some courage.
+- That's all `taken` out of context.
+- This was not `taken` from a grave.
+- Why is this man being `taken` out?
+- You were `taken` for a buggy ride?
+- Have you all `taken` the antitoxin?
+- Have you `taken` my message to him?
+- He could have `taken` her anywhere.
+- I've `taken` pity on you, my angel.
+- Me father has `taken` back my hand.
+- She and dad had `taken` care of it.
+- That can never be `taken` from you.
+- We've `taken` worse heat than this.
+- You know anyone's who's `taken` it?
+- That damn computer has `taken` over.
+- That's already been `taken` care of.
+- Then she was `taken` by the slayers.
+- You should have `taken` their offer.
+- A little more was `taken` out before.
+- But she is -- i've `taken` her place.
+- I've `taken` that into consideration.
+- Octavia's `taken` everything from me.
+- We've `taken` up enough of your time.
+- You shouldn't have `taken` elton out.
+                 

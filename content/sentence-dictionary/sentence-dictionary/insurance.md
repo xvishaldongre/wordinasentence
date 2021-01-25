@@ -1,0 +1,107 @@
+---
+title: "insurance in a sentence | insurance example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "insurance"
+---
+- It's just `insurance`.
+- It's only `insurance`.
+- A bad `insurance` risk?
+- An `insurance` pro?
+- Do we want `insurance`?
+- What about `insurance`?
+- `Insurance`'ll cover it.
+- Little life `insurance`.
+- You need `insurance`.
+- Oh, some `insurance` man.
+- The `insurance` business?
+- Including life `insurance`.
+- Car `insurance` costs money.
+- Oh yeah, the `insurance` guy.
+- He probably sells `insurance`.
+- My `insurance` won't cover it.
+- Oh, just some `insurance` guy.
+- Where's my `insurance` policy?
+- You actually sold `insurance`!
+- It's his life `insurance` money.
+- He's in the `insurance` business.
+- In spite of that bank `insurance`.
+- I work for an `insurance` company.
+- You mean, the `insurance` frammis?
+- For `insurance`, take his coat.
+- Ever heard of `insurance`, big boy?
+- `Insurance` if anything goes wrong.
+- ...i mean, my mom's got `insurance`.
+- Is this neighborly life `insurance`?
+- You don't even own life `insurance`.
+- Suicide would nullify my `insurance`.
+- You're in the `insurance` line, harry?
+- You were in `insurance` before the war.
+- You work in the `insurance` department?
+- Like `insurance` or somethin' what clip?
+- Said he was in the `insurance` business.
+- They're just `insurance` in case we run.
+- Doesn't `insurance` pay for these things?
+- My `insurance` does not cover pms enough!
+- Standard issue mal- practice `insurance`.
+- And i'm holding her people as `insurance`.
+- It's his life `insurance` money, you know.
+- Unless you collected on the `insurance`...
+- You've made me a happy `insurance` person.
+- A man came by from mutual life `insurance`.
+- He sells `insurance` for metropolitan life.
+- Chargeures, property and casualty `insurance`.
+- From the `insurance` department wait a minute.
+- I'll get a new one with the `insurance` money.
+- Well, albany's a mighty good `insurance` town.
+- What the hell is he but an `insurance` policy?
+- But we're still going to need some `insurance`.
+- Those 17 superstars are our `insurance` policy.
+- You're a fucking dead man-- `insurance` policy.
+- But there's a lot the `insurance` doesn't cover.
+- You bought auto `insurance`, not life `insurance`.
+- Del's life `insurance` policy -- are you with me?
+- Gregor, he was their `insurance`, and i was ours.
+- Our traveler's `insurance`, you know what i mean?
+- All my clients have kidnap and ransom `insurance`.
+- I don't even have `insurance` on my goddamned car.
+- Right now, i'm waitin' for some `insurance` money.
+- That was our `insurance` company's recommendation.
+- We just signed a new `insurance` policy in nevada.
+- What'd she scam you out of-some `insurance` dough?
+- Why do you work in that hideous `insurance` office?
+- Yeah, this `insurance` business is too slow for me.
+- I'm going to cash in my life `insurance` policy.
+- I used to work in `insurance`, we were well covered.
+- I was doing an `insurance` investigation in palermo.
+- Just a little `insurance`... against the unexpected.
+- What the hell does this have to do with `insurance`?
+- It's for working scams against `insurance` companies.
+- You have to have a bodyguard to keep the `insurance`.
+- I'm dwight campbell, with neighborly life `insurance`.
+- Yeah, well, maybe the guy took out flight `insurance`.
+- She made him become a life `insurance` salesman instead.
+- You said you had an `insurance` policy out on your wife.
+- You know, health `insurance`, dental plan, paid vacation.
+- Baxter, an `insurance` company is founded on public trust.
+- I was thinking of paying it when the `insurance` comes in.
+- I won't get the `insurance` until months after she's dead.
+- Joe, the `insurance` policy won't help your wife and kids.
+- There's `insurance` and benefits and all that adult stuff.
+- Big tall, fat fellow, he tried to sell me life `insurance`?
+- I'm harry s. truman from casewell `insurance` underwriters.
+- `Insurance` against him finding that last case ahead of us.
+- Told me boyd aviation took out a lot of `insurance` on him.
+- Adam had a five hundred dollar term life `insurance` policy.
+- 'cause he ain't been around look, they take our `insurance`.
+- Besides, the school board's `insurance` on dolores is minimal.
+- You got money from dolores' `insurance` with the school board.
+- My company has taken out a very large `insurance` policy on me.
+- Okay, so you don't want `insurance`, so okay, that's your loss.
+- I got no complaint against you whatever; you got bank `insurance`?
+- My wife still has health `insurance` and gets to see the children.
+- Hello-- a good `insurance` salesman wouldn't give you time to think.
+- We all know you're gonna get over with the `insurance` money anyway!
+- He came to me early today, was talking about money, `insurance` money.
+- Oh, i was an actuarial program... worked at a big `insurance` company.
+                 

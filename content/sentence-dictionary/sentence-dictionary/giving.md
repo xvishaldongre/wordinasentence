@@ -1,0 +1,107 @@
+---
+title: "giving in a sentence | giving example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "giving"
+---
+- `Giving` you a choice.
+- He's `giving` them up?
+- The shaft is `giving`.
+- What am i `giving` up?
+- Always `giving` orders.
+- I'm `giving` a lecture.
+- You're not `giving` up?
+- It's `giving` us orders.
+- Just `giving` the facts.
+- To `giving` up her body?
+- `Giving` up isn't better.
+- I'm `giving` you a break.
+- I was `giving` you space.
+- What are you `giving` up?
+- Who's `giving` it to you?
+- Legs `giving` you trouble?
+- They're not `giving` milk.
+- We're not `giving` him up.
+- You're `giving` me a gift.
+- Are you - `giving` a party?
+- Before `giving` that to us.
+- Everyone's `giving` orders.
+- I am `giving` her a chance.
+- Nobody's `giving` me props.
+- This is not `giving` blood.
+- You're `giving` them to me?
+- Aren't you `giving` an exam?
+- I'm `giving` him a few feet.
+- I'm `giving` it to you, joe.
+- I'm `giving` you permission.
+- I was `giving` you a chance.
+- She died `giving` you to me.
+- You're `giving` it to me?
+- I'm `giving` you three leads.
+- Is he `giving` us a discount?
+- Or we'll be `giving` a.l.i.e.
+- Who has been `giving` orders?
+- You're `giving` it to sir te?
+- By `giving` them a big target?
+- Darrell `giving` you problems?
+- I'm `giving` them shore leave.
+- I'm not `giving` 'em my tapes!
+- I'm not `giving` you anything.
+- Thanks for `giving` me a ride.
+- The board is `giving` me hell.
+- We're not `giving` up, thelma.
+- What could you be `giving` me.
+- What's he `giving` the priest?
+- You're `giving` me a headache.
+- You're `giving` me the creeps.
+- I'm not `giving` up on mom.
+- But i'm not `giving` up on mom.
+- I'm `giving` her an assignment.
+- I'm `giving` him another month!
+- I'm `giving` him his ring back.
+- I'm `giving` veronica her shot.
+- I'm `giving` you clint outside.
+- I'm just `giving` you the news.
+- That's what you're `giving` me?
+- Wow... stop `giving` them away.
+- I'm just `giving` you the truth.
+- Someone `giving` you hard looks?
+- Are you `giving` them to gabriel?
+- How about `giving` a guy a break?
+- How 'bout `giving` me "the tour"?
+- Just like i'm `giving` it to you.
+- Lynch is `giving` him the boot...
+- Are you `giving` me this straight?
+- I'm not `giving` him <u>pizza</u>.
+- I think she's `giving` me the eye.
+- We keep `giving` it what it wants.
+- Yet, nobody's `giving` me love.
+- Don't be `giving` me attitude, lee.
+- How about `giving` me another coat?
+- I'm `giving` birth in three months.
+- Is he `giving` you a check or cash?
+- Like, you know, `giving` blow jobs.
+- One of the ways is not `giving` up.
+- We're `giving` you the green light.
+- Were you `giving` that pig signals?
+- Wil, i'm `giving` you your freedom.
+- You're `giving` her what she wants.
+- He's always `giving` me a hard time.
+- It's `giving` me the heebie-jeebies.
+- Now i'm `giving` it serious thought.
+- She was the one `giving` the orders.
+- They're `giving` you a fucken story.
+- Who said anything about `giving` up?
+- Who's been `giving` you weird looks?
+- `Giving` the love that lets us go on.
+- This place is `giving` me the creeps.
+- You're `giving` me a speeding ticket?
+- Are you `giving` me an ultimatum, lou?
+- `Giving` lectures she's well-paid for.
+- I'm `giving` you a chance to see them.
+- I've realized, love is about `giving`.
+- I was `giving` him some advice is all.
+- I wish it were you `giving` the story.
+- Relax, i've been `giving` him lessons.
+- This holiday's about `giving`, adelle.
+                 

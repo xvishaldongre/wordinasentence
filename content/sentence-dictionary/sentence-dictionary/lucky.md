@@ -1,0 +1,107 @@
+---
+title: "lucky in a sentence | lucky example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lucky"
+---
+- Both if we're `lucky`.
+- He's `lucky` he lived.
+- I'm feeling `lucky` ..
+- *i'm* the `lucky` one.
+- It's your `lucky` day.
+- Just `lucky`, admiral.
+- Just `lucky`, i guess.
+- `Lucky`, `lucky`, `lucky`.
+- We got really `lucky`.
+- We have to be `lucky`.
+- We've been so `lucky`.
+- You are a `lucky` man.
+- You call that `lucky`?
+- You were `lucky`, max.
+- You were very `lucky`.
+- Guess i'm just `lucky`.
+- How'd i get so `lucky`?
+- I feel `lucky` tonight.
+- I'm `lucky` i found it.
+- I should be so `lucky`.
+- Maybe i'll get `lucky`.
+- So we just got `lucky`.
+- This is my `lucky` day.
+- We... you were `lucky`.
+- Who's the `lucky` girl?
+- Yeah, if we're `lucky`.
+- You're a `lucky` fella.
+- You're `lucky`, flynne.
+- I feel `lucky`, too.
+- Are you feelin' `lucky`?
+- He's just a `lucky` guy.
+- He's so fuckin' `lucky`.
+- I have not been `lucky`.
+- `Lucky` throw, fire boy.
+- `Lucky` with the lights.
+- Maybe they were `lucky`.
+- Not even a `lucky` lush.
+- That does sound `lucky`.
+- We should be so `lucky`.
+- Who's the `lucky` fella?
+- You're `lucky` he lived.
+- You should feel `lucky`.
+- Besides i wasn't `lucky`.
+- Don't know about `lucky`.
+- How did i get so `lucky`?
+- I'm a very `lucky` woman.
+- I think i'm very `lucky`.
+- `Lucky` for you i waited.
+- So who's the `lucky` guy?
+- They got a `lucky` break.
+- Today's your `lucky` day.
+- We're just plain `lucky`.
+- Yeah, i'm a `lucky` girl.
+- You are `lucky`, convict.
+- You're `lucky` he's here.
+- But -- i was just `lucky`.
+- Consider yourself `lucky`.
+- I'm `lucky` i got a broom.
+- I'm `lucky` i'm not dead!!
+- Is she -- the `lucky` one?
+- It's your `lucky` quarter.
+- Then you're a `lucky` man.
+- We're `lucky` to be alive.
+- What's `lucky` about that?
+- You been `lucky` all week.
+- Pretty `lucky` for you.
+- But you got `lucky`, right?
+- I guess we're both `lucky`.
+- It's the kid's `lucky` day.
+- I was `lucky` in the order.
+- `Lucky` i brought my drums.
+- We sure got pretty `lucky`.
+- A very `lucky` thing indeed.
+- Funny, i don't feel `lucky`.
+- I was `lucky`... that's all.
+- `Lucky`, i'll say i'm `lucky`!
+- We should all be so `lucky`.
+- Yer `lucky` i'm here at all.
+- You're a `lucky` man, diego.
+- You're `lucky` you found me.
+- Anybody can get `lucky` once.
+- Aren't you the `lucky` one...
+- Feeling `lucky` today, miles.
+- `Lucky` for them they didn't.
+- Very `lucky`, i should think.
+- How we gonna get that `lucky`?
+- I got `lucky` with the lights.
+- Must be your `lucky` day then.
+- No, not me, i've been `lucky`.
+- This is your most `lucky` day.
+- You're `lucky` to get that.
+- Don't forget your `lucky` deck.
+- Oh, i'm just not `lucky` harry.
+- Perhaps `lucky` for both of us.
+- The luckiest among the `lucky`.
+- Today's your `lucky` day, sami.
+- Well, maybe you'll get `lucky`.
+- We `lucky` our ghost is a baby.
+- Yeah--`lucky` for us, huh, pal?
+- You're `lucky` no one was hurt.
+                 

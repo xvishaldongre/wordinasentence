@@ -1,0 +1,61 @@
+---
+title: "Clarke's in a sentence | Clarke's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Clarke's"
+---
+- Uh... `clarke's` dead.
+- Aw... `clarke's` right.
+- `Clarke's` in solitary.
+- `Clarke's` on their side?
+- He's got `clarke's` watch.
+- It means `clarke's` alive.
+- The ai in `clarke's` head.
+- `Clarke's` always in trouble.
+- I saw her in `clarke's` mind.
+- `Clarke's` brain will liquefy.
+- `Clarke's` brain will liquefy.
+- ♪ ah-hoo ♪ `clarke's` a symbol.
+- `Clarke's` mother, it turns out.
+- `Clarke's` with finn, isn't she?
+- `Clarke's` not a bargaining chip.
+- Mr. `clarke's` heathkit ham shack.
+- Their queen wants `clarke's` power.
+- `Clarke's` not gonna bring her back.
+- It's ok, i get it/ `clarke's` right.
+- `Clarke's` gonna be ok. - i see them!
+- `Clarke's` memories may suck, you ok?
+- `Clarke's` wristband signal went out.
+- `Clarke's` mind survived the procedure.
+- `Clarke's` the only reason we survived.
+- Sending `clarke's` code out to everyone.
+- Sending `clarke's` code out to everyone.
+- `Clarke's` not getting enough nightblood.
+- `Clarke's` not getting enough nightblood.
+- If `clarke's` in trouble, she can find out.
+- I'll have jade fetch you `clarke's` clothes.
+- ♪ i can't pretend ♪ `clarke's` alive?
+- I took a page from `clarke's` parenting book.
+- Because you had to go to scott `clarke's` house.
+- May i make arrangements for `clarke's` departure?
+- Oh, it's something i saw in `clarke's` mindspace.
+- If `clarke's` still alive, then she could be, too.
+- `Clarke's` trying to reassign me to the rear guard.
+- Yes, `clarke's` alive, but the brain zoran, please.
+- `Clarke's` alive, but the brain we now share is dying.
+- Or they were when that grounder took `clarke's` watch.
+- So i used `clarke's` neural mesh to stay in her brain.
+- Bellamy, if `clarke's` on their side, "n" for... "n" 43.
+- `Clarke's` opinion in this matter is not exactly unbiased.
+- You mind telling me how `clarke's` consciousness survived?
+- `Clarke's` alive, if we don't do something, this body dies.
+- And `clarke's` mind left the flame after the city... - stop!
+- And for all we know, this is another one of `clarke's` tricks.
+- Chief among them `clarke's` newfound evangelical, whoa, whoa, whoa.
+- What she's saying is killed by the child host, `clarke's` daughter.
+- So you can get close enough to stick that blade `clarke's` not here.
+- Oh, you mean, that i couldn't even get into tech - `clarke's` not here!
+- `Clarke's` been back for one day, you're already taking orders, how's your hip?
+- Things were different, we could have been friends, i saw it in `clarke's` mind.
+- Damage to the muscle should be minimal, but we don't even know if `clarke's` still alive.
+                 

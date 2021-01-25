@@ -1,0 +1,107 @@
+---
+title: "raise in a sentence | raise example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "raise"
+---
+- `Raise` the inner jib!
+- See and `raise` 1,000.
+- They `raise` the lift.
+- I'll `raise` the money.
+- Did he `raise` the kids?
+- `Raise` the forestaysail!
+- See ya and `raise` three.
+- Should i `raise` shields?
+- Uhura, `raise` excelsior.
+- I helped `raise` you both.
+- Mama's gonna `raise` hell.
+- Meantime, `raise` the lid.
+- When do i `raise` the bet?
+- You wanna `raise` the bet?
+- Then gimme another `raise`.
+- Everyone just got a `raise`.
+- Give my main man a `raise`!!
+- `Raise` the platform, hurry!
+- How many men can you `raise`?
+- I didn't take you to `raise`.
+- `Raise` a hand to me and... .
+- We need you to `raise` money.
+- Another `raise` wouldn't hurt.
+- Do i have to `raise` me voice?
+- Tell him to give me a `raise`.
+- Andy, don't `raise` your voice.
+- I think i can `raise` a monkey.
+- You know `raise` consciousness.
+- 10-4, soon as i can `raise` him.
+- Please don't `raise` your voice.
+- But the shuttle- `raise` shields.
+- Jean, can you `raise` me up there?
+- Listen, pappas... now `raise` 'em!
+- Someone should give you a `raise`.
+- With luck i might `raise` a laugh.
+- A ten percent `raise` and benefits.
+- Don't you `raise` your voice at me.
+- Wants a $2 `raise` - or he'll quit.
+- Not unless you can `raise` the dead.
+- Now `raise` it over the glass and...
+- Sir, i recommend we `raise` shields.
+- Don't make me `raise` my hand to you.
+- Don't `raise` your hands all at once.
+- Peerless, i didn't `raise` a buffoon.
+- This is going to `raise` your spirits.
+- This will help `raise` the little one.
+- We can't `raise` the wheel without it.
+- What did i `raise`, a pussy for a son?
+- Computer, `raise` lighting four levels.
+- I can't `raise` it on the radio either.
+- I `raise` a family doing this bullshit.
+- Like to `raise` the stakes, mr. felson?
+- But, joey, you don't `raise` your hands.
+- I'll `raise` it to two hundred thousand.
+- I'm just a man trying to `raise` his son.
+- They wouldn't `raise` a hand to help you.
+- We're going to `raise` horses like these.
+- He'd been trying to `raise` money all day.
+- Though it does `raise` a disturbing issue.
+- `Raise` the glass and push the blue button.
+- I ought to `raise` the price to be a thousand.
+- Do you mind if i `raise` a little caution flag?
+- `Raise` your head... and your eyes will follow.
+- 'cause that's a great place to `raise` children.
+- I did not `raise` you to see you live with fear.
+- I know what we have to do to `raise` the beacon.
+- The cops and company `raise` hell they find out.
+- Hey, you just got a five thousand dollar `raise`.
+- I couldn't bring myself to `raise` my gun to him.
+- We give a couple seven years to `raise` a family.
+- What are you doin', buddy, looking for a `raise`?
+- Maybe you just need to `raise` the money yourself.
+- You simply `raise` more money than you really need.
+- Sir, i would prefer if you didn't `raise` your voice.
+- This is so embarrassing... `raise` your hand...where?
+- We plan how to `raise` funds and... things like that.
+- He's not on deck and i can't `raise` him on the radio.
+- How you figgerin' to `raise` them two without a woman?
+- All right, you `raise` the kids -- i'll `raise` the roof.
+- I'm up for a `raise` -- oh, cornelius, show some strength!
+- It's what you give to your secretary instead of a `raise`.
+- The more you take off, you see, more money we can `raise`.
+- To get us inside and re-`raise` the shields will take- no!
+- I just want to `raise` our children and live a normal life!
+- ♪ `raise` your mug and drink it down ♪ commander, stop him.
+- Everyone in favor of changing the schedule `raise` his hand.
+- So we're having a backers party, to `raise` some more money.
+- Marry me, dana, and together we will `raise` vigo as our son.
+- The film broke, and i can't `raise` harry on the house phone!
+- I have a surprise for our tiny invaders... `raise` that hatch!
+- They won't -- `raise` them -- sir -- our shields are dropping!
+- Yes, do you think he would like a `raise` and a new position ?
+- I doubt bourne's in naples to settle down and `raise` a family.
+- Don't blame it on the ocean!--all right, you'll get the `raise`!
+- They would live and `raise` children together and be remembered.
+- When you're acting, could you `raise` one arm give me your hand.
+- He's most likely sitting there wondering why he can't `raise` us.
+- I have made that state my home; plan to `raise` my children here.
+- It's very important you don't let this `raise` your expectations.
+- That means we get five hundred thousand to help `raise` the kids.
+                 

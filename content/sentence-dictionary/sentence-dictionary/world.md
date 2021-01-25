@@ -1,0 +1,107 @@
+---
+title: "world in a sentence | world example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "world"
+---
+- A `world` like this...
+- It's not that `world`.
+- On top of the `world`.
+- People of the `world`!
+- The `world` is random.
+- It's a limited `world`.
+- It's a strange `world`.
+- Let the `world` beware.
+- That ended the `world`.
+- The end of the `world`?
+- To destroy the `world`.
+- Top of the `world`, ma!
+- Well, stop the `world`.
+- What about the `world`?
+- And the `world` by fire.
+- Get in the real `world`.
+- He's in another `world`.
+- It is a strange `world`.
+- It's your `world`, boss.
+- Oh, not for the `world`!
+- See some of the `world`.
+- Small `world`, isn't it?
+- The `world` is changing.
+- The `world` is that big?
+- The `world` of the dead?
+- The `world`'s castaways.
+- This is the `world` now.
+- <u>fuck</u> the `world`.
+- Under the `world` clock.
+- Best beer in the `world`?
+- Best game in the `world`.
+- First `world` war, right?
+- He's changed the `world`.
+- It's a brave new `world`.
+- It's a different `world`.
+- It's a wonderful `world`.
+- It's out of this `world`.
+- Let her face the `world`.
+- None in the wide `world`.
+- Oh, it's a crazy `world`.
+- Some men get the `world`.
+- The `world` is fantastic.
+- The `world` is my oyster.
+- The `world` what is that!
+- The `world` will be mine.
+- "this is our `world` now.
+- All i have in the `world`.
+- He is not of this `world`.
+- He's from another `world`.
+- I am alone in the `world`.
+- It's a transitory `world`.
+- It�s a whole `world`, sid.
+- Look at the `world` today!
+- Man, look at this `world`.
+- Saw the `world`, you know?
+- The `world` can wait, jon.
+- The `world` is in my head.
+- The `world` would tremble.
+- Thou may fool the `world`.
+- Well, well, small `world`.
+- We're a different `world`.
+- With the `world` watching.
+- You did the `world` wrong.
+- Ass first into the `world`.
+- Bizarre small `world`, huh?
+- For trans-`world` airlines.
+- Halfway 'round the `world`.
+- It meant the `world` to me.
+- It's a small `world`, carl.
+- Josie, you rock my `world`.
+- Let this `world` peel away.
+- Seems like another `world`.
+- She didn't end the `world`.
+- The fastest in the `world`.
+- The `world` has missed you.
+- The `world` is your oyster.
+- The `world` needs dreamers.
+- The `world`'s about to end.
+- The `world`'s going to end.
+- Walter-- a `world` of pain.
+- Who just saved the `world`.
+- Who just saved the `world`.
+- `World` history since 1945.
+- Be part of your `world`.
+- Birds of the `world`, unite!
+- Good exists in this `world`.
+- Greatest job in the `world`.
+- I am not third `world` ugly.
+- I'm the king of the `world`.
+- I would not for the `world`!
+- Our `world` will be overrun.
+- Safest place in the `world`.
+- See you in the next `world`.
+- That's rare in this `world`.
+- The red sox were my `world`.
+- The `world` is full of guys.
+- The `world` is in our hands.
+- The `world` of our children.
+- The `world`'s full of pests.
+- The `world`'s getting weird.
+                 

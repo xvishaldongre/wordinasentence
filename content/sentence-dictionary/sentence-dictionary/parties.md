@@ -1,0 +1,58 @@
+---
+title: "parties in a sentence | parties example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "parties"
+---
+- I hate both `parties`.
+- Don't you like `parties`?
+- I'm not big on `parties`.
+- He still having `parties`?
+- It's one of your `parties`.
+- We got two `parties` tonight.
+- I'm a guy who loves `parties`.
+- Skip the graduation `parties`.
+- Oh, you know how `parties` are.
+- You'll need them for `parties`.
+- Papa loves `parties`, don't you?
+- To tell each other at `parties`.
+- No armed boarding `parties` either.
+- Have you been to one of my `parties`?
+- I'm going as a guy who hates `parties`.
+- Suez was a minefield for both `parties`.
+- There are search `parties`, reporters...
+- Oh, you meet them at `parties` and stuff.
+- Well, how would you define to `parties`"?
+- I hate `parties` -- but it's your birthday.
+- That's what i like about cocktail `parties`.
+- Did i ever tell you, i hate costume `parties`?
+- You give such charming `parties`, mr. charles.
+- `Parties` and mass murderers don't go together.
+- I don't enjoy crashing other people's `parties`.
+- I don't want it to be just one of our `parties`.
+- I wish i always had you for my dinner `parties`.
+- Anyway, `parties` are all about standing still ..
+- Nobody gets invited to clark brandon's `parties`.
+- Without being able to send out hunting `parties`?
+- You always throw the best dinner `parties`, letty.
+- All these `parties` are so marvellously <u>alike</u>.
+- Well, we got the prom coming up, all these `parties`.
+- But, trent, all the `parties` and bars, they all suck.
+- And he said, "dad, going-away `parties` are kind of sad."
+- I know, but think about it -- at the `parties` that night.
+- I was well known for my `parties`, rina knew what they were.
+- The tours, the clubs, the silicone shows, private `parties`.
+- We've already got some requests to do a few dinner `parties`.
+- In seven years jackie's never missed one of tucker's `parties`.
+- Look, hit the bars, work some `parties`, and get me transvestites!
+- The `parties` are held in here when the weather dips below seventy.
+- It was such a bore - coming-out `parties`, cotillions - good school!
+- I used to cook for my friends' `parties` and things back in atlanta.
+- Dinner `parties` vit lovely ladies and gentlemen, singing und dancing.
+- What do you think they do at these `parties`, have tea and play scrabble?
+- Volunteer sign-ups for search `parties` are still available in the office.
+- That's why he has the `parties`, he says it's like bringing the world to me.
+- Another couple of days and the `parties` concerned are gone where i can't get them.
+- You need to get outta here, rapunzel god, these `parties` are the worst houdini mice.
+- You know what kind of drunken brawls those `parties` turn into-- it's no place for kids.
+                 

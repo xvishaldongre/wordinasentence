@@ -1,0 +1,107 @@
+---
+title: "kind in a sentence | kind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kind"
+---
+- But one of our `kind`?
+- He's `kind` of a mook.
+- I'm `kind` of nervous.
+- It is `kind` of rough.
+- It's `kind` of a ride!
+- It's `kind` of ironic.
+- It's `kind` of sexual.
+- `Kind` of a sad story.
+- `Kind` of like a 'fro.
+- No, the typing `kind`.
+- Nothing of the `kind`.
+- No time of any `kind`.
+- Seems `kind` of weird.
+- She's one of a `kind`.
+- Some `kind` of animal?
+- Some `kind` of weapon.
+- Thank you, `kind` sir.
+- Well, yeah, `kind` of.
+- What `kind` of a deal?
+- What `kind` of a game?
+- What `kind` of animal?
+- What `kind` of cancer?
+- What `kind` of choice?
+- What `kind` of damage?
+- What `kind` of dancer?
+- What `kind` of doctor?
+- What `kind` of doubts?
+- What `kind` of friend?
+- What `kind` of madman?
+- What `kind` of noises?
+- What `kind` of people?
+- What `kind` of person?
+- What `kind` of school?
+- What `kind` of shadow?
+- What `kind` of signal?
+- What `kind` of symbol?
+- What `kind` of things?
+- What `kind` of weight?
+- You're not the `kind`.
+- You're very... `kind`.
+- Your `kind` of people.
+- A hotel of some `kind`?
+- Another `kind` of game?
+- I `kind` of like him...
+- I `kind` of missed you.
+- I `kind` of rebuilt it.
+- Isn't that `kind` of...
+- It's `kind` of like aa.
+- It was `kind` of funny.
+- `Kind` of like you are.
+- Some `kind` of animals.
+- Some `kind` of problem?
+- Technician what `kind`?
+- That's `kind` of funny.
+- That's not very `kind`.
+- That's the best `kind`.
+- That was `kind` of fun.
+- The "come back" `kind`.
+- What `kind` of episode?
+- ...what `kind` of fish?
+- What `kind` of message?
+- What `kind` of mission?
+- What `kind` of problem?
+- What `kind` of project?
+- What `kind` of "stuff?"
+- What `kind` of trouble.
+- What `kind` of trouble?
+- What `kind` of weapons?
+- You are `kind`, ramona!
+- `Kind` like his mom.
+- A what `kind` of doctor?
+- Got `kind` of talkative.
+- I'd say you were `kind`.
+- I guess i'm `kind` of...
+- It is `kind` of amazing.
+- It's `kind` of my thing.
+- `Kind` of... free-lance.
+- `Kind` of wish i didn't.
+- Look for a `kind` heart.
+- My `kind` of background?
+- Not this `kind` of heat.
+- On some `kind` of toast?
+- That would be so `kind`.
+- The first of its `kind`.
+- They're `kind` of fuzzy.
+- This `kind` of murder...
+- Very `kind` of you, sir.
+- We `kind` of own horses.
+- What `kind` of accident?
+- What `kind` of activity?
+- What `kind` of business?
+- What `kind` of concerns?
+- What `kind` of exercise?
+- What `kind` of hormones?
+- What `kind` of leverage?
+- What `kind` of opinions?
+- What `kind` of proposal?
+- What `kind` of question?
+- What `kind` of vacation?
+- Wh-what `kind` of stuff?
+                 

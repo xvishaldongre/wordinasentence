@@ -1,0 +1,107 @@
+---
+title: "across in a sentence | across example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "across"
+---
+- ...`across` the border.
+- Wait 'til i'm `across`!
+- `Across` the board, sir.
+- Bar `across` the street.
+- They come `across` this.
+- `Across` at brinkmeyer's.
+- I go `across` the middle.
+- I live `across` the hall.
+- ...i'm `across` the river.
+- When did it come `across`?
+- You try get `across` laos?
+- `Across` the trench, 12:00!
+- Why don't i do it `across`?
+- I threw it `across` the ice.
+- It's `across` the dead zone.
+- It's just `across` the park.
+- Takes `across` the two days.
+- The man `across` the street.
+- Backpacking `across` vietnam.
+- Down the street and `across`.
+- Right `across` the bay there.
+- The country `across` the sea.
+- _ you could not see `across`.
+- I live just `across` the road.
+- Need to go `across` the water.
+- We'll cut `across` to montana.
+- It came from `across` the lake.
+- On a bench, `across` the street.
+- Take a look `across` the street.
+- We drive `across` the wasteland.
+- `Across` the river into zululand.
+- It's going up `across` the board.
+- Sign your name `across` the flap.
+- Stop panning `across` the family.
+- The gunthers `across` the valley.
+- It'll get you `across` the border.
+- You said there was a way `across`.
+- `Across` the board to get promoted.
+- We will get you `across` the river.
+- `Across` from her is ridgly waiters.
+- `Across` the street a great western.
+- How could it get `across` the water?
+- It's 150 miles `across` that desert.
+- It's happening `across` the country!
+- Tie the rope so i can come `across`.
+- But you never came `across` just one.
+- I'd like to be able to read `across`.
+- Strung four or five ladders `across`.
+- There's a shortcut `across` the roof.
+- Frank looks `across` the room at jack.
+- Hurtling `across` the virgin universe.
+- I'm working `across` on a cattle boat.
+- I've never run `across` one like that.
+- Just go `across` the street and watch.
+- See them two big trees `across` there?
+- The office is right `across` the hall.
+- There's no way you could get `across`.
+- I have the apartment `across` the hall.
+- The cubicle `across` from you is empty.
+- We seem to've come `across` a 211, sir.
+- `Across` the street from aaron spelling!
+- I didn't want to slap `across` the face.
+- Perhaps a stripe `across` the back wall.
+- Came `across` the war party, tracked 'em.
+- I'm certainly not going to swim `across`.
+- I went `across` to close the french door.
+- Just `across` the bay, at the fuel depot.
+- We'll come `across` him tomorra, i guess.
+- Do you think it goes all the way `across`?
+- I promise... have you come `across` fuchs?
+- Let's go down and `across` the old bridge.
+- Look, there's a place `across` the street.
+- No way we get `across` without being seen.
+- There's an empty taxi `across` the street.
+- Those motorcycles `across` the street ...?
+- Would i swim `across` an ocean for you?...
+- You're in the hospital `across` the river.
+- A man was badly beaten `across` the street.
+- It had three lines painted `across` it?
+- I'm cutting `across` to bundy to brentwood.
+- I'm talking about a shot `across` the brow.
+- I only live up there and `across` the roof.
+- Right `across` the street from it suits me.
+- That's why i'm bussing it `across` america.
+- They have her in a van `across` the street.
+- You know, come `across` or everybody knows.
+- I can't get my point `across` in five hours.
+- It'll pull her `across` the bridge remotely.
+- They have steadily advanced `across` europe.
+- I'm gonna try and get us `across` the border.
+- Move right hand `across` her left breast now.
+- Yes i did- i sat `across` from her in a mall.
+- Living `across` the street from a grade school.
+- We followed that drone `across` the open ocean.
+- Your laser butts are scattered `across` kansas.
+- We're pulling it like a zipper `across` space...
+- Which you must then carry `across` a log bridge.
+- Would i walk `across` the united states for you?
+- And brought his people safely `across` the stars.
+- Anyhow, i thought she came `across` great tonight.
+                 

@@ -1,0 +1,107 @@
+---
+title: "guys in a sentence | guys example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guys"
+---
+- Go easy on me, `guys`.
+- `Guys` ready to order?
+- `Guys`, that's enough.
+- Hey, `guys`, i'm home.
+- I don't know `guys`...
+- Oh... come on, `guys`.
+- Oh my god, you `guys`!
+- These are nice `guys`.
+- Watch out, you `guys`.
+- We're the good `guys`.
+- What about you `guys`?
+- What do you `guys` do?
+- Where'd you `guys` go?
+- Where were you `guys`?
+- Where you `guys` been?
+- Will you `guys` relax?
+- You `guys` are a mess.
+- You `guys` got busted.
+- You `guys` having fun?
+- You `guys` -- i can't.
+- Are you `guys` bruddas?
+- Gabriel and his `guys`.
+- Good to see you `guys`!
+- `Guys`, listen to this.
+- `Guys`, there's a cave.
+- `Guys` want to kill me!
+- I'll show those `guys`.
+- I'm chasing bad `guys`.
+- It's left to us `guys`.
+- I've missed you `guys`.
+- Put on two more `guys`.
+- See you `guys` tonight.
+- So you `guys` have fun.
+- These `guys` are smart.
+- These `guys` were pros.
+- This is boring, `guys`.
+- Those `guys` are right.
+- Three different `guys`?
+- Two `guys` get fucked."
+- What'd you `guys` find?
+- What's with you `guys`?
+- Where you `guys` going?
+- You `guys` do your job.
+- You `guys` turned back?
+- You `guys` want a beer?
+- A lot of `guys` like me.
+- Amanda: `guys`, come on.
+- Are you `guys`' friends?
+- Did you `guys` see that?
+- Do you `guys` hear that?
+- Fuck you fucking `guys`!
+- `Guys`, let's not panic.
+- `Guys`, she's waking up.
+- `Guys`, we have to move!
+- Hey, `guys`, we're home.
+- How're you `guys` doing?
+- I believe in you `guys`.
+- It's left to us, `guys`.
+- Never mind those `guys`.
+- Nice `guys` finish last.
+- Nice to meet you `guys`.
+- The bad `guys` beat him.
+- Those `guys` bother you?
+- Well, most `guys` don't.
+- What do other `guys` do?
+- What do you `guys` sell?
+- What do you `guys` want?
+- Will you `guys` shut up?
+- You `guys` are so sweet!
+- You `guys` are thrashed.
+- You `guys` could be gas.
+- You `guys` made me come!
+- You `guys` never saw it.
+- You `guys` turning back?
+- Are you `guys` all right?
+- Are you `guys` sluts too?
+- Come here, little `guys`!
+- Did you `guys` hear that?
+- Do you `guys` smell that?
+- `Guys`, `guys`, `guys`, `guys`!
+- `Guys`, we're being rude.
+- `Guys`, what's the sitch?
+- Hey, `guys`, it's a duct.
+- Hey, `guys`... oh, jesus.
+- Hey, second lock, `guys`.
+- Hey, you `guys` seen dax?
+- How'd you `guys` get out?
+- [hush] listen up, `guys`.
+- I am one of those `guys`.
+- I'll take two `guys` off.
+- I missed you `guys`, too.
+- I'm so sorry, you `guys`.
+- Knock it off, you `guys`!
+- Marge and nick, - `guys`?
+- Ok `guys`...have a heart.
+- Or can't you `guys` read?
+- That was you `guys`, huh?
+- There are no good `guys`.
+- To put it simply, `guys`.
+- We can take these `guys`!
+                 

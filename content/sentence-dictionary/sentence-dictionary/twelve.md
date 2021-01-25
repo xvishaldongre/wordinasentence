@@ -1,0 +1,107 @@
+---
+title: "twelve in a sentence | twelve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "twelve"
+---
+- It's `twelve` o'clock.
+- Right, `twelve` years.
+- `Twelve`-fifty i have.
+- About `twelve` hundred.
+- The oldest is `twelve`.
+- `Twelve` months in oak.
+- Until she was `twelve`.
+- `Twelve` hundred is bid.
+- Between ten and `twelve`.
+- `Twelve` bodies on board.
+- `Twelve` forty a.m. here.
+- `Twelve` hundred dollars.
+- `Twelve` what time is it?
+- `Twelve` years in prison?
+- About `twelve` more yards.
+- This is betty at `twelve`.
+- We only got `twelve` done.
+- It must be `twelve`-thirty.
+- It's `twelve` o'clock, man.
+- `Twelve` hundred years ago.
+- Why, that's `twelve` hours!
+- I'm up `twelve` grand today.
+- Page a hundred and `twelve`.
+- `Twelve` hours, no big deal.
+- Went `twelve` hours nonstop.
+- I have `twelve` big brothers.
+- She'll be `twelve` next week.
+- `Twelve`, thirteen years ago.
+- From three to `twelve` months.
+- He left when she was `twelve`.
+- I don't know, ten or `twelve`.
+- `Twelve` thirty-six a.m. here.
+- Of 12. this is one of `twelve`.
+- Paul's only `twelve` years old.
+- `Twelve` hundred dollars there.
+- Hasn't moved for `twelve` hours.
+- It's only a quarter of `twelve`.
+- Kept us warm for `twelve` years.
+- Six-to-`twelve`, armed burglary.
+- Two a year since i was `twelve`.
+- "vase with `twelve` sunflowers."
+- `Twelve` grand in commission.
+- I've got scene <u>`twelve`</u>...
+- No, she died when i was `twelve`.
+- Ten or `twelve` thousand dollars.
+- The army of the `twelve` monkeys.
+- `Twelve` young, answer the radio.
+- You have `twelve` hours, captain.
+- Crushes don't last `twelve` years.
+- For `twelve` francs, seventy-five.
+- I'm going to sleep `twelve` hours.
+- I've just climbed `twelve` floors.
+- `Twelve` cabins, `twelve` vacancies.
+- What about your `twelve` brothers?
+- But that's - <u>`twelve` hours</u>.
+- You said you'd be back at `twelve`.
+- He didn't leave 'til i was `twelve`.
+- I been drivin' since i was `twelve`.
+- `Twelve` years in prison is no joke.
+- Been what, `twelve`, thirteen year'n?
+- Fifty-seven minutes `twelve` seconds.
+- It's not three houses, it's `twelve`.
+- I've been using since i was `twelve`!
+- The number's eight-`twelve`-wynarski.
+- What happened when you were `twelve`?
+- Yes -- `twelve` o'clock... yes... ...
+- Your `twelve` steps... making amends.
+- <font color=#ffff2d>why send `twelve`?
+- For like, `twelve` zillion eternities?
+- I'd go over `twelve` percent for that.
+- I had to put marcus on `twelve` young.
+- We've made `twelve` pictures together.
+- Betting table `twelve` off the paddock.
+- Randal, `twelve` minutes is not a game!
+- Where you been the last `twelve` hours?
+- Besides, it's `twelve` in the afternoon.
+- I drove `twelve` hours straight through.
+- I got `twelve` classrooms full of water.
+- I'll expect you around `twelve` o'clock.
+- I've been training since i was `twelve`.
+- Ten maybe `twelve` years ago, in africa.
+- The senate convenes at `twelve` o'clock.
+- `Twelve` have a mission within the week.
+- `Twelve` programmes, lots of stock film.
+- `Twelve` seventy-five from the clarence?
+- We'll kill `twelve` birds with one bomb.
+- We've already had like `twelve` courses.
+- I thought a torn acl was ten to `twelve`.
+- I've already pulled `twelve` hours today.
+- Train goes at four minutes past `twelve`.
+- This girl was probably `twelve` years old.
+- After `twelve` years in the burmese jungle.
+- I've been clean for `twelve` years, shorty.
+- No, four thousand one hundred and `twelve`.
+- That's `twelve` million and change a piece.
+- They get about `twelve` and a half minutes.
+- You've slept with `twelve` different girls?
+- But she's a member of the `twelve` families.
+- He assured me that he'd be here by `twelve`.
+- I'm only here until `twelve`, then i'm gone.
+                 

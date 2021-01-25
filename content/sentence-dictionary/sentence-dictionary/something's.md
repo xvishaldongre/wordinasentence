@@ -1,0 +1,107 @@
+---
+title: "something's in a sentence | something's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "something's"
+---
+- Know `something's` up.
+- `something's` come up.
+- `something's` up wi...
+- _ `something's` wrong.
+- `something's` going on.
+- `something's` in there.
+- `something's` biting me.
+- `something's` not right.
+- `something's` eating you.
+- `something's` gone wrong.
+- `something's`... - wrong.
+- `something's` wrong here.
+- He knows `something's` up.
+- Luke, `something's` wrong!
+- Ray -- `something's` here.
+- `something's` on with you.
+- `something's` screwy here.
+- Well, `something's` wrong.
+- `something's` going on here.
+- `something's` made you sore.
+- But `something's` very weird.
+- Maybe `something's` onto him.
+- `something's` bothering them.
+- `something's` coming through.
+- `something's` wrong with you.
+- So have i `something's` wrong.
+- `something's` happened to him.
+- `something's` happened to them.
+- `something's` making that music.
+- Bellamy, `something's` happening.
+- `something's` happening out there.
+- `something's` not right... mulder.
+- Who says `something's` on my mind.
+- I think she knows `something's` up.
+- <u>`something's`</u> in that water.
+- `something's` happened to everybody.
+- `something's` haywire, that's right.
+- Because you know `something's` wrong.
+- I know `something's` happened to him.
+- I'm telling you, `something's` wrong.
+- I told you, `something's` upset them.
+- `something's` entered the atmosphere.
+- I think `something's` wrong out there!
+- `something's` wrong with the bio-scan.
+- What if `something's` happened to him?
+- I keep thinking... `something's` wrong.
+- I think `something's` wrong, too, miss.
+- Am i acting as if... `something's` wrong?
+- I tell you, `something's` not right here.
+- I think `something's` fucking connect- ed.
+- I feel like `something's` been spoiled now.
+- `something's` wrong with the damn intercom.
+- Sooner or later `something's` gonna happen.
+- Yes, `something's` very wrong, dr. mumford.
+- I don't know, like `something's` driving you.
+- `something's` trying to break into our orbit.
+- He'll think `something's` wrong i ain't there.
+- His brow is knit, `something's` bothering him.
+- I know `something's` in there - and so do you.
+- Kids know when `something's` bugging a parent.
+- No, but `something's` gonna blow in this town.
+- Sir... `something's` jamming our transmission.
+- If i don't answer, he'll know `something's` up.
+- If people found out... `something's` down here.
+- Sell this place... `something's` going on here.
+- `something's` wrong with the game, mr. difford.
+- `something's` been bothering me about last night.
+- `something's` buried under it i want you to have.
+- They don't look happy...`something's` gone wrong.
+- I thought you engineers john, `something's` wrong.
+- Wait a minute, `something's` wrong with the clock.
+- What makes you think `something's` wrong with her?
+- `something's` wrong -- i need to make a phone call.
+- Fellows, `something's` happened to my mother-in-law.
+- `something's` gone wrong -- something unanticipated.
+- Sanctum... ...`something's` not right with these rats.
+- Air quotes are for when `something's` not a real thing.
+- They'll think to themselves - "`something's` wrong here.
+- `something's` causing a ripple in the upper stratosphere.
+- Artificial and <u>posed</u>... `something's` wrong with it.
+- `something's` making noise... no, not noise, no... movement.
+- Lots of people... `something's` been going on here in europe.
+- I thought you were kia, johnny... no, i think `something's` up.
+- Right now i feel so good i'm afraid `something's` gonna happen.
+- Then seeing the fighting pit again, `something's` happening.
+- _ even though they say `something's` not addictive, their faces.
+- C'mon, you only beat up the roof when `something's` on your mind.
+- She's clearly starting to think that's `something's` not right.
+- My unfailing instinct tells me `something's` gone wrong with the stew.
+- But i don't know... `something's` crossed over in me and i can't go back.
+- `something's` up and at this point in my life, i don't want to know what it is.
+- It's like you always said- if `something's` important enough, you make the time.
+- It's what happens when you "marry beneath yourself"... `something's` bothering her.
+- The driver, all them trunks standing open like that... `something's` going on here!
+- You put the vibe out to thirty million chicks, you know `something's` gonna happen.
+- Can't say what from, whether it's viral or genetic or what, but `something's` wrong.
+- It doesn't take a genius to look at those medical records and think `something's` wrong.
+- That he doesn't...see me, or, you know, that i'm...that's `something's` wrong...with me.
+- It's not life worth living perhaps, but believe me, `something's` moving around up there.
+- Version two of my code isn't on any `something's` coming, that's why we have to find her.
+                 

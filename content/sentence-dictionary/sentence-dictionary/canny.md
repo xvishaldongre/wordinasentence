@@ -1,0 +1,7 @@
+---
+title: "canny in a sentence | canny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "canny"
+---
+## Unfortunately, we have no example sentences for canny                 

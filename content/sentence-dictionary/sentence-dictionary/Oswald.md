@@ -1,0 +1,62 @@
+---
+title: "Oswald in a sentence | Oswald example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Oswald"
+---
+- "i need you, `oswald`.
+- `Oswald` was with him.
+- `Oswald` was an assassin.
+- Yeah -- `oswald`, please.
+- Lee <u>harvey</u> `oswald`.
+- Scared of `oswald`, are you?
+- Boss, `oswald` impersonators?
+- I can supply those, `oswald`.
+- `Oswald` was a radar operator.
+- The name is `oswald` cobblepot.
+- I said `oswald` must've flipped.
+- He tried to get `oswald` a lawyer.
+- I never met anybody named `oswald`.
+- So you saw `oswald` how many times?
+- Bill, any more on `oswald` and shaw?
+- Did you speak to `oswald` in dallas?
+- Fuck knows what they got on `oswald`!
+- Lee `oswald` was no ordinary soldier.
+- `Oswald` was at best a medium shot.
+- `Oswald` did badly on the test, he says.
+- Shaw denies he knows ferrie or `oswald`.
+- Shaw, `oswald`, the cubans - all agency.
+- They put `oswald` together from day one!
+- Susie, what did you find out on `oswald`?
+- `Oswald`, ruby, banister, ferrie are dead.
+- Ruby's all mob, knows `oswald`, sets him up.
+- Look we know `oswald` didn't pull that trigger.
+- I think `oswald` was a good old-fashioned decoy.
+- Mr. shaw, did you ever meet lee harvey `oswald`?
+- If this is `oswald`, it must be our third `oswald`.
+- Then why can't somebody be using `oswald`'s name?
+- Maybe `oswald` didn't even pull the trigger, bill.
+- `Oswald` was found in a theater and shot to death.
+- Does the real `oswald` know he's been put together?
+- <u>frigid</u> ... `oswald`: we need one more thing.
+- Could the mob send `oswald` to russia and get him back?
+- Dead or alive, they'll stick me in there with `oswald`.
+- Put it in context, bill, of what we know about `oswald`.
+- Did you take a good look at the tv when they had `oswald`?
+- Why would he leave a path as big as lee harvey `oswald`'s?
+- Would you say this "leon" was actually lee harvey `oswald`?
+- That's the biggest parasol i ever --" that's fine, `oswald`.
+- `Oswald` went to see the fbi two weeks before the assassination.
+- Banister has someone using the name "`oswald`" to buy the trucks.
+- Just where did the first description of `oswald` come from at 12:44?
+- Maybe `oswald` is what everyone says he is and i'm just plain dumb wrong.
+- So-how is it possible for `oswald` to have fired from two angles at once?
+- Are you claiming, mr. garrison, that mr. `oswald` also had dinner with me?
+- You mean you identified him on saturday, the day before ruby shot `oswald`?
+- Powers hinted that `oswald` could've given the russians enough data to hit it.
+- Was it the same `oswald`, dave, that was in dallas, or was it an impersonator.
+- What the hell's a communist like lee `oswald` doing working out of banister's?
+- Dave introduced him as... and that's where you met `oswald` for the first time?
+- Who'd ever thought that goofy `oswald` kid would pull off a stunt like an assassination?
+- We can make you look crazier'n marguerite `oswald`, and everybody knows how crazy she is.
+                 

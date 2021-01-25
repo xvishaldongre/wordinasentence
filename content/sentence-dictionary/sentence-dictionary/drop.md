@@ -1,0 +1,107 @@
+---
+title: "drop in a sentence | drop example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drop"
+---
+- `Drop` and give me 50!
+- `Drop` her a postcard.
+- `Drop` us at my place.
+- Figured i'd `drop` by.
+- I gotta `drop` a dime.
+- I said i'll `drop` it.
+- Let's `drop` it, okay?
+- Okay, let's `drop` it.
+- So is this the `drop`?
+- So, when's the `drop`.
+- Two minutes to `drop`.
+- We'll `drop` the song.
+- You can `drop` it now.
+- `Drop` the gun, walter.
+- [you stole the `drop`.]
+- And `drop` me off first.
+- `Drop` a tiny log on me.
+- `Drop` it on mrs. evans.
+- If you stop, you `drop`.
+- I'll `drop` the eighths.
+- I'll `drop` the lawsuit.
+- Just `drop` me off here.
+- Made me `drop` a stitch!
+- Vertical `drop` checked.
+- For once, stu, `drop` it.
+- Glad you could `drop` in.
+- I wouldn't `drop` my gun.
+- Jarvis, `drop` my needle.
+- Mark at 5-4-3-2-1-`drop`.
+- Mollie, `drop` down here!
+- Nice of you to `drop` by.
+- Thirty seconds to `drop`!
+- You're gonna `drop` that?
+- `Drop` that fucking money!
+- I don't want to `drop` it.
+- So i can survive a `drop`.
+- We `drop` awareness bombs.
+- Can i `drop` you somewhere?
+- ...happen if i `drop` this?
+- I'll `drop` you right here.
+- I said, `drop` your weapon.
+- Mrs. langtry may `drop` by.
+- Now `drop` the goddamn gun.
+- Shall i `drop` by tomorrow?
+- You `drop` your dive light?
+- Apes don't `drop` lines.
+- Why did you `drop` them?
+- He did `drop` the odd pearl.
+- I'll `drop` those off later.
+- I'll try to `drop` by later.
+- It's the dead weight `drop`.
+- No wonder the `drop` is off.
+- Octavia, `drop` your weapon!
+- Secure another sinex `drop`.
+- We can't `drop` it now, joe.
+- We can't `drop` the lawsuit.
+- Well, er... let's `drop` it.
+- Why don't you `drop` around?
+- 5-4-3-2-1-`drop`, `drop`, `drop`!
+- Don't `drop` the guitar, man.
+- I'm about to `drop` as it is.
+- I never, ever, `drop` a case.
+- "now hear this: `drop` dead."
+- We'd best `drop` canvas, sir!
+- We hang down here and `drop`.
+- We all let it `drop` away.
+- `Drop` that fucking briefcase!
+- `Drop` the phone, or we shoot.
+- `Drop` to 2600, heading 0-3-0.
+- I'm just gonna `drop` you off.
+- Let's `drop` back an' boot up.
+- Steve... - `drop` your weapon.
+- We need the other `drop`-ship.
+- Where'd she `drop` her cherry?
+- All that for a `drop` of blood.
+- Have to `drop` you here, steve.
+- How deep's the `drop`-off here?
+- I'll `drop` a cow on the knave!
+- Now i'm working the `drop` car?
+- Well, any time, just `drop` by.
+- We'll `drop` that line for now.
+- Why didn't you `drop` any sail?
+- You better `drop` it right now!
+- You let a bomb `drop` on tondc.
+- Don't be stupid, `drop` the gun!
+- He asked us to `drop` the story.
+- I'll `drop` you off in a minute.
+- I want you to `drop` everything.
+- "no, we didn't `drop` any bombs!
+- Please `drop` the bluestar deal.
+- You `drop` this bombshell on me.
+- `Drop` you right at the hospital.
+- If you `drop` that, i understand.
+- Just don't `drop` the ball, okay?
+- Can i `drop` you anywhere, harold?
+- `Drop` the whole business quickly.
+- Flash, `drop` it-- no, no, listen.
+- Haven't had a `drop` in six years.
+- I'm not fit to -- let's `drop` it.
+- It won't `drop` from the bomb bay.
+                 

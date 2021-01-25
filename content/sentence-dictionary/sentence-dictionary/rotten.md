@@ -1,0 +1,56 @@
+---
+title: "rotten in a sentence | rotten example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rotten"
+---
+- I shagged her `rotten`.
+- Are you a `rotten` liar.
+- `Rotten` luck, this storm.
+- You were spoiled `rotten`.
+- She was always a `rotten` wife!
+- Fuck you too, you `rotten` whore!!
+- I was forgotten here and `rotten`.
+- You're a filthy, `rotten` bastard.
+- You wouldn't believe how `rotten`.
+- Don't say it, i know, i'm `rotten`.
+- Things are really `rotten` at home.
+- Grownups can be pretty `rotten`, too.
+- It's just that goddamn `rotten` stench.
+- You are a `rotten` bastard, that's what!
+- Everybody talks about how `rotten` kids act.
+- The dirty, stinking, `rotten`, sons of b's!!
+- That was kind of a `rotten` thing to do, anne.
+- What is it about my writing that's so `rotten`?
+- All i got left is in his `rotten`, bloody hands.
+- You rush a miracle man, you get `rotten` miracles.
+- Cut out this `rotten` business and act like a lady.
+- Our films average 98% on `rotten` communion wafers.
+- Some fool gave the order to distribute `rotten` food.
+- He represents everything that was `rotten` in germany.
+- Mind letting me make the best of a `rotten` situation?
+- You seem to be trying to fill mine with `rotten` apples.
+- Hey, nothing is my fault 'cause dad raised me so `rotten`.
+- Somewhere up there's the lode, the rock `rotten` with it.
+- Didn't i tell you she'd never marry that `rotten` humperdinck?
+- Well, nothing is my fault 'cause my dad raised me so `rotten`.
+- Listen, pal�this fifth column stuff's pretty `rotten`, isn't it?
+- Churchill, vit his cigars and his brandy and his `rotten` paintings.
+- I admit, i thought it was a `rotten` idea, but i put up the scratch.
+- Even though i think what you did was `rotten` -- it's not all impersonal.
+- Well, of all the mean, `rotten`, contemptible, crooked -- i'll take that.
+- Yep, you and me: victims of a `rotten`, corrupt, cor- rupt, `rotten` world.
+- Could be--or a `rotten` branch or a mountain lion could have landed on it.
+- I'm wise to you, i should have seen it before, you `rotten` son of a bitch.
+- Someone had cut them and chipped off `rotten` pieces far back in his mouth.
+- This `rotten` bastard tipped off the cops and got mr. brown and mr. blue killed.
+- You know, we have a saying back home: "either the salt is `rotten` or the meat."
+- I just couldn't face going to the police by myself when my italian's so `rotten`.
+- Well how would you like his `rotten` carcass dug up and drug all over national tv?
+- ...it's all so `rotten`... and getting worse... and all i care about is hugh sloan.
+- She minds her business and we ... no, not mad at all: she's `rotten` with religion.
+- I need to touch it to "see"... oh, right -- `rotten` eggs and the safety of mankind.
+- Still you serve him loyally -- though people hurl `rotten` eggs at his royal emblem.
+- You might think apples were pretty good, even if you occasionally got a `rotten` one.
+- It's just a joke to you... poor girl -- chloroform would give her a `rotten` headache...
+                 

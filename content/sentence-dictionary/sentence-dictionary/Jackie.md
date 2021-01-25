@@ -1,0 +1,76 @@
+---
+title: "Jackie in a sentence | Jackie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jackie"
+---
+- Brown, `jackie` brown.
+- Does `jackie` know this?
+- I don't know... `jackie`?
+- Look at my face, `jackie`.
+- You'd love that, `jackie`.
+- `Jackie` ain't no criminal.
+- You like it, `jackie`- boy?
+- How you doing, ms. `jackie`?
+- `Jackie`, what're you doing?
+- `Jackie`, i'm william starks.
+- Now, `jackie` -- commercials.
+- Thanks for waiting, `jackie`.
+- It's complicated for `jackie`.
+- `Jackie` didn't trust melanie.
+- `Jackie`, go play in the snow.
+- I have to have `jackie` ask me?
+- Okay, so it was `jackie` brown.
+- `Jackie`, are you back on narco?
+- Yeah, this is -- `jackie` shawn.
+- You got a good memory, `jackie`.
+- How's the smut business, `jackie`?
+- Devra, try `jackie` shawn will you?
+- `Jackie` treehorn wants to see you.
+- You a fine lookin' woman, `jackie`.
+- `Jackie` being a stewardess and all.
+- `Jackie` can come back in this boat!
+- `Jackie` treehorn trashed the place.
+- Did `jackie` treehorn do that as well?
+- `Jackie`, all i know is what you know.
+- `Jackie` - what are you talking about?
+- `Jackie`, will you hand me the mirror?
+- Well did he go in there with `jackie`?
+- So who else was there besides `jackie`?
+- `Jackie`, if i thought for one moment...
+- `Jackie`, they come to be part of my life.
+- `Jackie`, would you argue with your doctor.
+- Damn, `jackie`, i was just playin' with you.
+- Ok. [beat] you be good to yourself, `jackie`.
+- I was a fixin' on trading it to `jackie` cobb.
+- I told `jackie`, and `jackie` said you wanted him.
+- Oh, george, this is uh miss -- this is `jackie`.
+- Do max cherry and `jackie` brown know each other?
+- I mean `jackie`'ll fuck around but not that much.
+- Things 're lookin' up on the docks, huh, `jackie`?
+- `Jackie`...i've really given this a lot of thought.
+- Ma, i'm gonna stay home and watch `jackie` gleason.
+- I sure hope you haven't done anything dumb `jackie`.
+- Hey, `jackie`... no, `jackie`, i didn't get your message.
+- `Jackie` treehorn wants to talk to the deadbeat lebowski.
+- `Jackie` says she wouldn't bring children into this world.
+- C'mon, `jackie`, i'm only trying -- george -- i don't know.
+- You phony asshole -- yes, `jackie` shawn, my wi -- felicia.
+- Maybe you could, on your way, you know, pick up `jackie` here.
+- In seven years `jackie`'s never missed one of tucker's parties.
+- C'mon -- `jackie`, can we -- -- don't you want to -- -- why not?
+- `Jackie` can tell me any story come in that pretty head of hers.
+- `Jackie` covers her ears and looks at him, pleading with her eyes.
+- `Jackie`, you've made mistakes -- we all make mistakes -- not to me.
+- If you knew how many times i wanted to hear you say that... `jackie`...
+- Now i bail out `jackie`, i'm liable to have the police on me again, huh?
+- Well, `jackie`, you got caught, you're gonna have to give 'em something.
+- Agent ray nicolet, `jackie` brown, ordell robbie money exchange trial run.
+- Look, `jackie`-boy, a friend of mine just sold some reefer to matt reynolds.
+- `Jackie`, <u>we</u> were taking them water- skiing for the <u>whole</u> weekend!
+- Heathcliff, `jackie` gleason, and in the role of catherine earnshaw, lucille ball.
+- Elle, if i'm going to be a politician, i need to marry a `jackie`, not a -- marilyn.
+- `Jackie` ain't got time for all that shit -- you want me to speculate on what you do.
+- Your face looks awfully familiar, i just can't quite place it... `jackie`, get in the car.
+- Oh i don't know -- -- `jackie` really shouldn't drink -- george is a hairdresser, isn't he?
+                 

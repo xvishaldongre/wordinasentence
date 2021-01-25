@@ -1,0 +1,107 @@
+---
+title: "ideas in a sentence | ideas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ideas"
+---
+- Don't get any `ideas`.
+- Anybody got an `ideas`?
+- I've got a few `ideas`.
+- You're full of `ideas`.
+- Anybody got any `ideas`?
+- Do you have any `ideas`?
+- Getting her own `ideas`.
+- So don't get any `ideas`.
+- I got big `ideas`, though!
+- I still have good `ideas`.
+- She's got her own `ideas`.
+- This guy has good `ideas`.
+- That's where `ideas` begin.
+- You got any better `ideas`?
+- Any `ideas` who it could be?
+- Well i'm open to `ideas`!...
+- You'd start getting `ideas`.
+- Your `ideas` never work out.
+- Any `ideas` about the colour?
+- Because i got my own `ideas`.
+- He wants to have `ideas` too.
+- I've got some `ideas` myself.
+- Anybody got any other `ideas`?
+- Where do you get your `ideas`?
+- Any more `ideas` animal planet?
+- I remember the basic `ideas`...
+- Shall i give you a few `ideas`?
+- Ted seems to have some `ideas`.
+- You know, i had many `ideas`...
+- You've done five of my `ideas`.
+- Do have any `ideas` or don't ya?
+- Got any `ideas`, little brother?
+- Maybe i don't need your `ideas`.
+- You have lots of `ideas`, right?
+- The `ideas` you get in your head.
+- Clearly, a murderer out of `ideas`."
+- I get my best `ideas` in the shower.
+- I'll bet you have some good `ideas`.
+- I've got original `ideas` of my own.
+- Yeah, they're full of great `ideas`.
+- You're the one with all the `ideas`.
+- What about all those `ideas` you had?
+- I thought you would have some `ideas`.
+- Here, in case you think of any `ideas`.
+- You're a fey creature with mad `ideas`.
+- Your investment `ideas` never work out.
+- I get some real crazy `ideas`, you know?
+- Before you get any `ideas`, i don't care.
+- But john foster dulles had other `ideas`.
+- He wanted to talk to me about my `ideas`.
+- Well, what're your `ideas` on these guys?
+- Hitler had all his best `ideas` in prison.
+- I have `ideas` now--and solid information.
+- Bud fox, i look at a hundred `ideas` a day.
+- So where is ed with all the bright `ideas`?
+- All these `ideas` flying in from everywhere.
+- Let's not blow it by people getting `ideas`.
+- If you guys have any bright `ideas`, speak up.
+- She's gonna have to 'cause i'm out of `ideas`.
+- Many wrong `ideas` about the government of men.
+- Now don't go getting any `ideas`, miss kubelik.
+- My mind is racing with `ideas`, and i can think.
+- She's perfectly healthy, don't give her `ideas`.
+- You have some very primitive `ideas`, don't you?
+- Johnny friendly and my brother had other `ideas`.
+- Well, if any `ideas` come to you, give me a call.
+- Maybe you've got `ideas` of your own for the gold.
+- You'll come up with one of your brilliant `ideas`.
+- Actually, the art department had some `ideas` on...
+- Fact i already got some `ideas` on how to fix it up.
+- They make slaves of us all with their fetid `ideas`!
+- It makes no difference, bert�the `ideas`'s still good.
+- They killed me because they were afraid of my `ideas`.
+- You and i, niki, have very different `ideas` about sex.
+- Well i was just throwing out `ideas`... a satellite dish?
+- I got all the `ideas` ... you want me to give you the gun?
+- Uh, excuse me, i'd like to know where he gets his `ideas`.
+- I had these `ideas` about how we might progress the estate.
+- It's not like i didn't have `ideas`, i had plenty of `ideas`.
+- I was in the money business and i get `ideas` all the time.
+- [music playing] i'm not hearing any better `ideas`, clarke.
+- Maybe they just... before you get any `ideas`, finn is mine.
+- None of your `ideas` can be goofy, stew, if they concern me.
+- It's on a night like this when the best `ideas` come to mind.
+- I have a couple of `ideas` i wanted to share with the country.
+- Buljanoff, she still has those old- fashioned bolshevik `ideas`.
+- Whatever my `ideas` are of being a jew is not going to help you.
+- In london those radical `ideas` could land you in newgate prison.
+- I thought he might be more inclined because i am void of `ideas`.
+- Well, if you've got any bright `ideas`, now's the time to - uh uh.
+- You have a lot of interesting `ideas`.... <i>new york times</i>...?
+- You mean other than the 500 `ideas` always keep the curtains drawn.
+- If you've any peculiar `ideas` that i'm interested in you, forget it.
+- Well, he was a fellow of the royal zoological society ... any `ideas`?
+- You were hatching `ideas`, making plans, arriving at decisions, right?
+- Don't let longdale's questionable choice of weapon give you any `ideas`.
+- We all need to make room for someone else's `ideas`, lou, especially me.
+- Hey, you, manager... don't get any `ideas`, fucker... see that man there?
+- However our `ideas` disagree, as i've said before, i'm <u>not</u> a coward!
+- "see what's around you listen to their lies" where do you get your `ideas`?
+                 

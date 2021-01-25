@@ -1,0 +1,107 @@
+---
+title: "sees in a sentence | sees example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sees"
+---
+- Nobody ever `sees` me.
+- What if he `sees` you?
+- He `sees` himself in me!
+- No one `sees` him again!
+- Be careful who `sees` it.
+- He `sees` me as a threat.
+- Go, before she `sees` you.
+- He `sees` a shrink in l.a.
+- She `sees` me differently.
+- If he `sees` you... no gun!
+- He `sees` us and we're dead.
+- Rabbit `sees` <u>stars</u>!'
+- Everything i see, she `sees`.
+- Wait till he `sees` the bill.
+- Wait till she `sees` you now.
+- Hardly `sees` anybody anymore.
+- He `sees` betrayal everywhere.
+- I know what she `sees` in you.
+- `Sees`: that's not where i am.
+- He `sees` policemen in his soup.
+- I think maybe she `sees` me now.
+- Yeah but no one ever `sees` that.
+- Everyone `sees` someone different.
+- Whatever one `sees`, they all see.
+- You two `sees` like a perfect fit.
+- But raven `sees` the city of light.
+- Nobody `sees` where i get the stuff.
+- He `sees` it when he closes his eyes.
+- If vinovich `sees` me talking to you.
+- .."i love how she `sees` them, bobby.
+- What ronnie `sees`... you disgust me.
+- When one `sees` you they all see you.
+- Am i the only one who `sees` this fine.
+- Then she wakes and `sees` him dead.
+- He `sees` a city where i see an empire.
+- Roan will signal when he `sees` ontari.
+- Clarke, if you fail, now she `sees` you.
+- He knows a tough guy when he `sees` one.
+- He `sees` his men and walks toward them.
+- He `sees` the world with his nose, mwah.
+- I just don't get what she `sees` in him.
+- Please, if he `sees` you, he won't come!
+- I don't think he `sees` you as a guy guy.
+- If tatum `sees` you -- she'll draw blood.
+- She `sees` beyond the relativity of time.
+- He never `sees` them and i never met them.
+- Is this how the world `sees` me... as a...
+- She knows a good thing when she `sees` it.
+- Then she `sees` her opportunity, and boom!
+- This is dear mercy and thou `sees` it not.
+- The white man `sees` you and he laughs.
+- It means "gentle heart that no one `sees`."
+- He `sees` this chaos, he'll replace you all.
+- I better clean this up before she `sees` it.
+- You better get out before someone `sees` us.
+- Am i the only one who `sees` how bad this is?
+- He `sees` this differently, as you well know.
+- If she `sees` you, she'll have your head, too.
+- More like jenny is after every man she `sees`.
+- Okay, remember, if anyone `sees` us, look sad.
+- Thinks every man he `sees` is after his jenny.
+- Your dog `sees` everyone who's ever been here.
+- And his nose `sees` so much more than our eyes.
+- He `sees` the open diary and begins reading it.
+- I want to know where he goes and who he `sees`.
+- `Sees` an execution, freaks out in an alleyway.
+- Remember that i see into thy soul as god `sees`.
+- If he `sees` i'm not here he'll call his partner.
+- If he `sees` me, he'll run, so i'll get out here.
+- Only there's another fire in there nobody `sees`.
+- He'll stay there until he `sees` me enter the bank.
+- The pentagon `sees` to it that i know more than you.
+- Then captain renault `sees` us and he is so kind.
+- Barbara `sees` this girl, tries to help her, perhaps.
+- But you've got something... jack `sees` it, i do too.
+- My face will be the first that the follow team `sees`.
+- She won't buy anything if she `sees` me working on it!
+- The horse that is going to greet me when he `sees` me.
+- Whatever you see it `sees` and transmits it back here.
+- If he `sees` the cops, he'll think he's in trouble.
+- "berthier `sees` only what is in the open," murat said.
+- He finds morelli there... `sees` she's two- timing him.
+- If chet `sees` you, he'll kill you, don't you know that?
+- Then the whole country `sees` them on tv and mocks them.
+- Turn on your locators -- anyone `sees` anything... good.
+- When will `sees` this, he's totally gonna blow his shit.
+- You have to be a hero, because you think she `sees` you!
+- M'lady... if anyone `sees`, it is death... no, stay back!
+- 'nobody' makes it; 'nobody' shows it; 'nobody' `sees` it.
+- Someone always `sees` a girl with forty thousand dollars.
+- Theo looks down the lane and `sees` the two pins standing.
+- Looks at miller, `sees` him growing weak, starting to sway.
+- I know he'll turn up as soon as he `sees` this in the papers.
+- What's gonna happen when he `sees` me drivin' the car tomorrow?
+- Doug `sees` beyond that stuff to what the person inside is like.
+- We gotta get 'im outta here before skipper `sees` him like this.
+- Deltoid drinks again but this time `sees` the teeth in the glass.
+- Bala comes strolling down the line, she `sees` me -- <u>bingo</u>!
+- She `sees` her father naked with another woman for the first time.
+- Then he `sees` their friends odette and her husband jean baptiste.
+                 

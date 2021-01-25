@@ -1,0 +1,107 @@
+---
+title: "security in a sentence | security example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "security"
+---
+- `Security` pretty lax.
+- Social `security` tax!
+- I need some `security`.
+- `Security` clearance 3.
+- `Security` officer, eh?
+- He was `security` crazy.
+- Only minimum `security`.
+- What did `security` say?
+- Every `security` measure.
+- I can arrange `security`.
+- I got `security` covered.
+- It's national `security`.
+- What, working `security`?
+- Her `security` is in on it.
+- `Security` detail, come in.
+- I'm your head of `security`.
+- Or a social `security` card?
+- `Security` team coming, sir.
+- That's a `security` measure.
+- Head of `security` for zhang.
+- How's the villa's `security`?
+- Price was elected `security`.
+- The `security` is very tight.
+- They have `security` cameras.
+- We have `security` protocols.
+- Your `security` is air tight.
+- Is your `security` team armed?
+- `Security` of tomorrow, today.
+- `Security` protocol initiated.
+- `Security` took the night off?
+- They had impressive `security`.
+- We did a full `security` sweep.
+- What's with all the `security`?
+- You have elected me `security`.
+- You want me to call `security`?
+- And not get tased by `security`.
+- You'll have real `security`.
+- How is this national `security`?
+- Mount weather `security` detail.
+- Mount weather `security` detail.
+- Pike has tripled his `security`.
+- `Security` of tomorrow... today!
+- This ellingson `security` creep.
+- What am i -- a `security` guard?
+- Your `security`'s for shit, kid.
+- All `security` personnel, report.
+- Can i see your `security` badges?
+- I've added additional `security`.
+- I've added additional `security`.
+- Your social `security` number.
+- I'll have `security` lock it down.
+- Is this `security` camera footage.
+- Luther, i'm looking at `security`.
+- Okay, `security` -- what happened?
+- "`security`" is not strong enough.
+- So you feel `security`, stability.
+- His `security`'s in the car beyond.
+- `Security`, uh norm, norm speaking.
+- `Security`'s been our biggest worry.
+- You can avoid `security` altogether.
+- You've seen their `security` system.
+- Tony: is this forehead of `security`?
+- We jury-rig the `security` pylons da.
+- What's all this for, more `security`?
+- Command codes, `security` protocols...
+- I want a map of that `security` level.
+- Let's call `security` and get him out.
+- And reprogram the `security` protocols.
+- ...driver's license, social `security`.
+- Look at all these layers of `security`.
+- Are you with plant `security`, sergeant?
+- I'm overseeing `security` on the ground.
+- I'm with the national `security` agency.
+- Our `security` people will jump for joy.
+- [roars] pike has tripled his `security`.
+- `Security`, ash, i just worked `security`.
+- A friend owns a large `security` company.
+- All arkadia `security` personnel, a note.
+- They want us to help with `security`.
+- Can you get us in there, past `security`?
+- 'cause, it's a lot of `security` cameras.
+- I'm - i'm hearin' things from `security`.
+- I was protecting the national `security`.
+- My `security` people are right next door.
+- Ain't no way, man, `security`'s too tight.
+- I'll give you mrs. teasdale as `security`.
+- Just between as and the `security` forces.
+- The `security`'s actually not that severe.
+- Way too many `security` cameras, don't we?
+- You don't have a social `security` number.
+- All the `security` protocols in this place.
+- As <i>`security`</i>, you know what i mean?
+- Even if you don't, her `security` men will.
+- It's a `security` program itself, actually.
+- Phone `security` systems, everything works.
+- "financial `security` is around the corner."
+- It's your `security` i'm most concerned for.
+- Sire, we have an emergency -- of `security`.
+- The largest `security` forces in the sector.
+- The `security` of this nation depends on it.
+                 

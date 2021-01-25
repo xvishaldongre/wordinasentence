@@ -1,0 +1,70 @@
+---
+title: "jury in a sentence | jury example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jury"
+---
+- Let the `jury` decide.
+- `Jury` might like that.
+- Save it for the `jury`.
+- That's up to the `jury`.
+- A `jury`'s gonna love that.
+- You mean -- a `jury` trial?
+- Or perhaps a `jury` summons?
+- The `jury` saw it differently.
+- The `jury` will be influenced.
+- I'd love to sit in that `jury`.
+- `Jury` found you guilty, not me.
+- He was accused of `jury` tampering.
+- But a `jury` is gonna want an alibi.
+- In the end, the `jury` saw it my way.
+- We `jury`-rig the security pylons da.
+- `Jury` knows we win she gets the cash.
+- There's another issue, for the `jury`.
+- It would unfairly influence the `jury`.
+- I was on the `jury` that convicted him.
+- That doesn't sound so good to a `jury`.
+- The `jury` finds herschel krustofsky...
+- They still have to take it to a `jury`.
+- You can save it for the `jury`, charles.
+- I don't buy it and neither will a `jury`.
+- Those same men will be sitting on the `jury`.
+- Would a `jury` around here convict their own?
+- That's the story she'll be telling the `jury`.
+- I got you this far, let's go to the grand `jury`.
+- I thought it's not over till the `jury` comes in.
+- It makes the `jury` feel sorry for the defendant.
+- But the `jury` won't s... did you write that column?
+- First i'm stuck with `jury` duty, now this nonsense.
+- The case is hardly one for an ordinary `jury` -- i do!
+- There was one man on the `jury`-- --but he was afraid.
+- Hey c'mon, c'mon, what is this, an audience or a `jury`?
+- I'11 have this thing in front of a grand `jury` by monday.
+- `Jury`'ll sympathize -- dude was banging your wife, right?
+- I'm going to have to ask the `jury` to leave the courtroom.
+- So every time you think about showing that `jury` strength.
+- We'll confuse the `jury` enough to create a reasonable doubt.
+- If i can't win this case with a `jury`, you shall have me, too.
+- Mr. gudmundsson, we <u>know</u> what that `jury` is looking at.
+- My `jury`'s still out on that, i'm glad you're around to say it.
+- That's exactly what the `jury` will see when they look at me.
+- Now this `jury` is gonna be lookin' at the evidence with one eye.
+- They know the evidence; they know they're gonna lose a `jury` trial.
+- You really think you'll be able to fool a `jury` with this bullshit?
+- The man played judge, `jury`, and executioner with eight people's lives.
+- There's always a pause when the `jury` goes out to consider its verdict.
+- Dr. thompson, just so the `jury` knows, you never treated deborah ann kaye.
+- So i'll get a fair trial in front of a `jury` bought off by thaddeus rains?
+- Your honor -- gentlemen of the `jury` -- this case need not detain us long.
+- You certainly will if you go to trial -- a `jury` in this kind of ugly mood.
+- On accounta you, sonrisa didn't get to buy off the `jury`, or kill the judge.
+- Tell the `jury` how many people work in that office with you and mr. viznick.
+- When the `jury` sees this - no matter what cutler tries, they'll convict him.
+- That's the point ...is that they might...you see, the `jury` wants to believe.
+- That's the point... is that they might... you see, the `jury` wants to believe.
+- It's a `jury` rig, at best, and we'll need every second of use we can get out of it.
+- Let it be the quick or the dead -- so it is an american judge and an american `jury`!
+- I want to hear you say, under oath, in front of a judge and a `jury`, i'm a bad lawyer.
+- You really expect a `jury` to believe that jason has a mystery killer living in his tummy?
+- I don't know anymore, bruce ... jesus, selina, you're not the judge <u>or</u> the `jury`...
+                 

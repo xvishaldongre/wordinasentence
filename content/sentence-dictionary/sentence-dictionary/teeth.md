@@ -1,0 +1,107 @@
+---
+title: "teeth in a sentence | teeth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "teeth"
+---
+- He has good `teeth`...
+- Your `teeth` are fine.
+- Is it about my `teeth`?
+- What about her `teeth`?
+- What about his `teeth`?
+- He's losing his `teeth`.
+- She has perfect `teeth`.
+- I also have good `teeth`.
+- Porcelain is for `teeth`!
+- I want to keep my `teeth`.
+- Throw your `teeth` at 'em?
+- Your `teeth` are straight.
+- Corrective `teeth` surgery.
+- Look -- `teeth`, jaw, gills.
+- The predator has no `teeth`.
+- I already brushed my `teeth`.
+- Let him take a few `teeth`...
+- What's wrong with my `teeth`?
+- You want to check my `teeth`.
+- It grazed me with its `teeth`.
+- The `teeth` doin' any talkin'?
+- _ never brush my `teeth` again.
+- You knocked out a guys `teeth`.
+- With the `teeth` of your zipper?
+- Your `teeth` were� in braids?
+- I have to get my `teeth` cleaned.
+- I've seen better film on `teeth`.
+- Let me whiten your `teeth`, lisa.
+- Make sure you brush your `teeth`.
+- Those are suzie toller's `teeth`.
+- You mind her claws and `teeth`...
+- If the `teeth` aren't suzie's?
+- I saw his `teeth` in the bathroom.
+- There's a doctor for your `teeth`?
+- Don't forget to brush your `teeth`!
+- How are your `teeth` getting along?
+- I don't need my baby `teeth`, mike!
+- I'd take better care of my `teeth`.
+- Make your `teeth` yella -- ...yeah.
+- Nothing... just taking his `teeth`.
+- With stupid braces on your `teeth`.
+- Frankie opens them with his `teeth`.
+- You see the `teeth` on those things?
+- Of course i'm gonna brush my `teeth`.
+- He knocked out his `teeth`... blood...
+- Just watch out for those buck `teeth`.
+- Maybe they took out the wrong `teeth`.
+- I kissed shirley felder on the `teeth`.
+- I was having a brace put on my `teeth`.
+- When he smiles i can't see his `teeth`.
+- He sucks soup through his front `teeth`.
+- Like a big leech, with those `teeth`!...
+- Through the `teeth` and over the gums...
+- Give him `teeth` - the whole personality.
+- What you did on that battlefield `teeth`.
+- You come back and fuck with your `teeth`!
+- I got more brains than you've got `teeth`.
+- Yeah, and who wants that on their `teeth`?
+- But they should brush their `teeth`, honey.
+- Help him lose the rest of his baby `teeth`.
+- I have to get my `teeth` cleaned this week.
+- In six months, you'll have perfect `teeth`.
+- She says kissing is better without `teeth`.
+- `Teeth` gnaw through a man like a buzz saw.
+- Do you wear any false `teeth` or false limbs?
+- Whatever it is, they're armed to the `teeth`.
+- You see those little `teeth` marks, don't ya?
+- But you can't just kill a man for his `teeth`!
+- Maybe i'll get someone to fix your `teeth`.
+- If we brought the stuff back, two, and `teeth`.
+- [inhales through `teeth`] i suppose that's game.
+- The clink of the `teeth` sounding like ice-cubes.
+- Garcetti, you're `teeth`, they're fucking perfect.
+- Maguire and me got out by the skin of our `teeth`.
+- From your `teeth` -- the dental work -- where am i?
+- If i'm wrong about those `teeth` -- it's a promise.
+- I have the species identification on these `teeth`.
+- Now get your ass up there and show me some `teeth`.
+- But i am fed up to the `teeth` with elevated things!
+- Champagne for mouthwash when you brush your `teeth`!
+- Do you remember when you were brushing your `teeth`?
+- Like that one girl with two `teeth` and a clit ring.
+- When i get my `teeth` into something i never let go.
+- You'll look funnier sucking my dick with no `teeth`.
+- Come on to bed, you don't have to brush your `teeth`.
+- The both of you have been as scarce as hen's `teeth`.
+- They have great wings end long `teeth` -- on my word!
+- For my `teeth` and for you....for you so we can speak.
+- I think it's cute - look at his little weasel `teeth`.
+- It was you and it turned my `teeth` black for a month.
+- The `teeth`, were they... she looked shaky, but lucid.
+- Has the biggest... buck `teeth` in all of missouri.
+- It had a long tongue, `teeth` this big and yellow eyes.
+- These chaps'll need a woodpecker to pick their `teeth`.
+- Like pulling `teeth` to get you to do a little box step.
+- Losing my hair and my `teeth`...and my guts and my wind.
+- Couldn't be a mouthful of `teeth` among the bunch of 'em.
+- You gotta pull `teeth` to get anything done in this town.
+- All i got in return in the end was a kick in the `teeth`."
+- When you're done can you make sure she brushes her `teeth`?
+                 

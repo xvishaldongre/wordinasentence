@@ -1,0 +1,107 @@
+---
+title: "okay in a sentence | okay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "okay"
+---
+- Besides, she's `okay`.
+- Billy, are you `okay`?
+- Bruce, are you `okay`?
+- Buff is funny, `okay`?
+- Don't do that, `okay`?
+- Don't go home, `okay`?
+- Don't grab me, `okay`?
+- Don't rush me, `okay`?
+- Eddie, are you `okay`?
+- Everything was `okay`.
+- Gorman: `okay`, ferro.
+- Hang in there, `okay`?
+- He's `okay`, i assume.
+- Hey, iris, you `okay`?
+- Hey, neal, you `okay`?
+- His technician `okay`?
+- Honey, are you `okay`?
+- How can you be `okay`?
+- I did my time, `okay`?
+- I guess you're `okay`.
+- I'll call you, `okay`?
+- I'm doing `okay`, sir.
+- I mean, you're `okay`.
+- I'm in charge, `okay`?
+- I'm sure we're `okay`.
+- Instant coffee `okay`?
+- Is he gonna be `okay`?
+- It'll be `okay`, newt.
+- It's not over, `okay`?
+- It's `okay`, i get it.
+- It's `okay`, mr. eddy.
+- It's `okay`, my sweet.
+- It's `okay`.. we lost.
+- It would be so `okay`.
+- I... yeah, i'm `okay`.
+- Just sit down, `okay`?
+- Just trust me, `okay`?
+- Let's drop it, `okay`?
+- Look; `okay`, come on.
+- Nah... you `okay` man?
+- Oh, it's `okay`, then.
+- Oh, `okay`, i'm sorry.
+- `Okay` danny, you win.
+- `Okay`, get in to bed.
+- `Okay`, he screwed up.
+- `Okay`, i believe you.
+- `Okay`, if i sit here?
+- `Okay`, if you insist.
+- `Okay`, i'll buy that.
+- `Okay`, i'll go first.
+- `Okay`, i'll have one.
+- `Okay`, i'll help you.
+- `Okay`, i'll tell her.
+- `Okay`, it's fleegman!
+- `Okay`, it's official.
+- `Okay`, joke about it.
+- "`okay`, let's drink."
+- `Okay`, let's drop it.
+- `Okay`, listen-- yeah?
+- `Okay`, miss starling?
+- `Okay`... night, baby.
+- `Okay`, `okay`, hold on.
+- `Okay`, `okay`... there.
+- `Okay`, one more time.
+- `Okay`, peaches, `okay`.
+- `Okay`, reality check.
+- `Okay`...see you soon.
+- `Okay`, so... jason...
+- `Okay`, so what is it?
+- `Okay` -- take a seat.
+- `Okay`, thanks, helen.
+- `Okay`, that's a five.
+- `Okay`, that's enough.
+- `Okay`, that was rude.
+- `Okay`.up to the cave.
+- `Okay` we'll use this.
+- `Okay`, we're back in.
+- `Okay`, what happened?
+- `Okay`, yes, i got it.
+- `Okay`, you busted me.
+- Or is that `okay` now?
+- Paulie got the `okay`.
+- Peter, are you `okay`?
+- [ray whispers] `okay`.
+- See you later, `okay`?
+- That's agreed, `okay`?
+- That's `okay`, hannah.
+- <u>are</u> you `okay`?
+- Well, i'm out, `okay`?
+- Well... yeah - `okay`.
+- We're gonna be `okay`.
+- *what* will be `okay`?
+- All right, it's `okay`.
+- The rent is `okay`?
+- Andy... are you `okay`?
+- Are you feeling `okay`?
+- Are you `okay`, jonesy?
+- Are you `okay`, violet?
+- Bishop, you did `okay`.
+- But no bawling, `okay`?
+                 

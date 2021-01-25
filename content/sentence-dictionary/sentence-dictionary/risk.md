@@ -1,0 +1,107 @@
+---
+title: "risk in a sentence | risk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "risk"
+---
+- He took a huge `risk`.
+- I am a suicide `risk`.
+- I think it's a `risk`.
+- It's worth the `risk`.
+- We couldn't `risk` it.
+- We'll take the `risk`.
+- A bad insurance `risk`?
+- Do you accept the `risk`?
+- I'm willing to `risk` it.
+- What, and `risk` anarchy?
+- I can't let you `risk` it.
+- It's not worth the `risk`.
+- You have to take a `risk`.
+- I didn't want to `risk` it.
+- I'm the one at `risk` here.
+- At great `risk` to yourself.
+- ...but it's worth the `risk`.
+- Did you calculate the `risk`?
+- I like the diminished `risk`.
+- It would be worth the `risk`.
+- My money my `risk`, my rules.
+- She may prove to be a `risk`.
+- She won't `risk` their lives.
+- We `risk` everything we have.
+- No... the `risk` is too great.
+- `Risk` goes up, price goes up.
+- A `risk` she's willing to take.
+- Brill's fee varies with `risk`.
+- He didn't think we'd `risk` it.
+- I can't `risk` not finishing...
+- She won't `risk` the attention.
+- To... to `risk` looking for us.
+- It's a `risk` meeting like this.
+- It's necessary to take a `risk`.
+- We can't `risk` letting them in.
+- Why should you `risk` your life?
+- Willing to `risk` your own life.
+- Now you `risk` the same fate.
+- Everyone's lives at `risk` today.
+- I don't know the `risk` involved.
+- Puts our entire agenda at `risk`.
+- It's a `risk` i'm willing to take.
+- Listen it was a calculated `risk`.
+- Otherwise, you `risk` killing him.
+- You're afraid to `risk` believing.
+- You're putting yourself at `risk`.
+- It's too much of a `risk` for mike.
+- "put the corporation at `risk`"...?
+- That's why it was worth the `risk`.
+- You are at `risk` of contamination.
+- You want to `risk` losing our head?
+- I think we could be at grave `risk`.
+- That's a `risk` i'm willing to take.
+- True or false: it's worth the `risk`.
+- Where's the fun if there's no `risk`?
+- If i can find a mob that'll `risk` it.
+- Such showboating puts lives at `risk`.
+- That'll put even more lives at `risk`.
+- The upside is our `risk` goes to zero.
+- Until then, it's not worth the `risk`.
+- I've no choice but why `risk` yourself?
+- There's always `risk` -- life's a `risk`.
+- I am not gonna let you `risk` where?
+- But in your profession that is a `risk`.
+- Easy, business-like, very little `risk`.
+- He ran a great `risk`, helping us today.
+- No political `risk`, and big publicity.'
+- We `risk` being pathetic and ridiculous.
+- You're not going to `risk` your freedom.
+- You took an awful big `risk` back there.
+- Captain, please -- we'll take the `risk`.
+- I can't `risk` this reality on a promise.
+- You would `risk` your life for strangers?
+- I couldn't `risk` trying to get you there.
+- Sometimes, you just have to take a `risk`.
+- To land any closer would `risk` detection.
+- We can't `risk` the child being seen here.
+- We `risk` our whole operation for nothing.
+- Give me `risk` analysis based on this data.
+- I'm not letting my husband `risk` his life.
+- Leaving orlando was the unnecessary `risk`.
+- Damn it, without `risk`, there's no heroism.
+- Is there any sort of `risk` of brain damage?
+- ♪ par for the course ♪ puts lives at `risk`.
+- The `risk` is nothing, the profits enormous.
+- I can't `risk` the lives of my people deadly.
+- It's my job to `risk` my life, but not yours.
+- You gonna `risk` all that over a misdemeanor?
+- But i couldn't `risk` being late into memphis.
+- I'll get you some quick work -- it's a `risk`.
+- Until the life of everyone else was at `risk`.
+- We should try, but it is one heck of a `risk`.
+- You go out there, ghost or not, it's a `risk`.
+- But you `risk` everything, just to help people.
+- I `risk` nothing, for i am certain to kill him.
+- Is that really a `risk` you're willing to take?
+- You `risk` your life when you cross the street.
+- You're willing to `risk` everything on that?
+- Can-- but i do know that i can't `risk` kill me!
+- I know it's a `risk`, there may be more of them.
+                 

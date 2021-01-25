@@ -1,0 +1,107 @@
+---
+title: "pictures in a sentence | pictures example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pictures"
+---
+- But it has `pictures`.
+- I take the `pictures`.
+- No scanner `pictures`.
+- We run the `pictures`.
+- Can we take `pictures`?
+- Did you get `pictures`?
+- Look at your `pictures`.
+- No `pictures`, no story.
+- We just take `pictures`?
+- I have `pictures` of him.
+- I've got some `pictures`.
+- No, i work in `pictures`.
+- Cornball clown `pictures`?
+- It matches the `pictures`.
+- No `pictures`-- two years.
+- Do you have any `pictures`?
+- I don't look at `pictures`.
+- We'll need more `pictures`.
+- Sing it in `pictures`, nick.
+- Yeah, i sent you `pictures`.
+- Can i look at the `pictures`?
+- I love bill cosby `pictures`.
+- You're in `pictures`, barton.
+- You used to be in `pictures`.
+- Are you takin' the `pictures`?
+- Get inside and get `pictures`.
+- I just look at the `pictures`.
+- You didn't see the `pictures`?
+- You take `pictures` and split.
+- And, take some more `pictures`.
+- I don't want to see `pictures`.
+- Pretty `pictures`, aren't they?
+- You even took `pictures` of it.
+- You know...take the `pictures`?
+- I'm sure you've seen `pictures`.
+- You print `pictures` of bigfoot!
+- I'm keeping those `pictures`.
+- Get me a couple juicy `pictures`.
+- I'll take `pictures` from a jeep.
+- Oh, we've got lots of `pictures`.
+- Are yuh gonna take `pictures` now?
+- Do you have any `pictures` if her?
+- Do you have any `pictures` of her?
+- I didn't know you took `pictures`.
+- I just took some lousy `pictures`.
+- I want the rest of the `pictures`.
+- She's here to take the `pictures`.
+- They showed the `pictures` on t.v.
+- Your last three `pictures` tanked.
+- Any group `pictures` in the annual?
+- Do you want to see some `pictures`?
+- I can't wait to see the `pictures`.
+- I take `pictures` of a lot of junk.
+- It's the `pictures` that got small.
+- Pretty `pictures`, don't you think?
+- The horror `pictures` were trifles.
+- These are such horrible `pictures`.
+- They're not...i had the `pictures`.
+- Her `pictures` don't do her justice.
+- I directed all her early `pictures`.
+- Nudie `pictures`, what do you think?
+- Those clown `pictures` on the walls!
+- We've got two spreads of `pictures`.
+- You mean, like posed for `pictures`?
+- You've seen `pictures` of me, right?
+- I don't make major motion `pictures`.
+- Thing is, you saw it, the `pictures`.
+- We're doing some `pictures` together.
+- They want me to bring some `pictures`.
+- We've made twelve `pictures` together.
+- You mean like going to the `pictures`?
+- You said you had `pictures` of him....
+- He said he liked jack oakie `pictures`.
+- Meantime i want `pictures` of the joes.
+- Tell me, do you like motion `pictures`?
+- We'll need `pictures` of the inside too.
+- We've made a lot of `pictures` together.
+- We want some action in these `pictures`.
+- What did i tell ya 'bout dem `pictures`?
+- I better just stick to making `pictures`.
+- I'd like to see your `pictures` some day.
+- That's one of her `pictures` on the wall.
+- There's `pictures` of me on the internet.
+- These `pictures` are not just myth, andy.
+- What about the fellow in those `pictures`?
+- You're more adorable than your `pictures`.
+- I don't want to see any goddamn `pictures`.
+- I have to have my `pictures` when i travel.
+- I produce feature motion `pictures`, no tv.
+- ...so what kind of `pictures` does he like?
+- He's got `pictures` of you, clippings, maps.
+- I know it's why i stopped making `pictures`.
+- We're supposed to take `pictures` and split.
+- You know that guy in the `pictures` you saw?
+- You have written `pictures`, haven't you?
+- Ben meadows getting `pictures` for the paper.
+- I hate the way she interrupts the `pictures`.
+- You're hardly even looking at the `pictures`.
+- I am not going to look at any more `pictures`.
+- She says she's through with motion `pictures`.
+                 

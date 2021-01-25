@@ -1,0 +1,107 @@
+---
+title: "some in a sentence | some example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "some"
+---
+- Doing `some` shopping?
+- Get me `some` bourbon?
+- Get me `some` clothes.
+- Get `some` sleep, kid.
+- Give 'em `some` stiff.
+- Give her `some` water.
+- Give me `some` credit.
+- Give me `some` gossip.
+- Had `some` good years.
+- How about `some` ammo?
+- I brought `some` wine.
+- I got `some` acid man.
+- I have `some` scotch.
+- I'll find `some` copy.
+- I’ll get you `some`.
+- I'm in `some` trouble.
+- I put `some` decaf on.
+- I saved `some` people.
+- It has `some` history.
+- It's been `some` time.
+- I've got `some` money.
+- I want `some` answers.
+- I want `some` service!
+- Just `some` young guy.
+- Less with `some` luck.
+- Let's have `some` fun.
+- Let's watch `some` tv.
+- Move to `some` island.
+- Norm made `some` eggs.
+- Now, get `some` sleep.
+- Or `some` nice lesbos.
+- Pass me `some` whisky.
+- She needs `some` time.
+- Show `some` character.
+- `Some`, everyone does.
+- `Some` friend you are!
+- `Some` hotshot banker.
+- `Some` kind of animal?
+- `Some` kind of weapon.
+- `Some` of rhodes' men.
+- `Some` people like it.
+- `Some` privacy, maybe?
+- `Some` string in fact.
+- So was `some` luggage.
+- Spilling `some` punch.
+- That's `some` pinfall.
+- That was `some` dance.
+- Try `some` other ways.
+- Want `some` champagne?
+- Want `some` more soup?
+- We have `some` lotion.
+- We'll get `some` more.
+- What're `some` of 'em?
+- Would you like `some`?
+- Yeah baby, get `some`!
+- Yeah, you want `some`?
+- You doin' `some` good?
+- You need `some` sleep.
+- You want `some` punch?
+- A hotel of `some` kind?
+- Douse `some` in it.
+- `Some` new clothes.
+- Care for `some` suchi?.
+- Get `some` tea in here.
+- Get `some` tea into ya.
+- Give me `some` bourbon.
+- Give me `some` comfort?
+- Got `some` nice things.
+- Honey, `some` crackpot.
+- How about `some` ether?
+- How about `some` music?
+- How about `some` water?
+- How 'bout `some` cokes?
+- I'd love to buy `some`.
+- I have `some` thoughts.
+- I have `some` upstairs.
+- I'll boil `some` water.
+- I'll fix `some` drinks.
+- I'll get `some` towels.
+- I'll make `some` calls.
+- I'm not `some` playboy.
+- I need `some` security.
+- I studied `some` latin.
+- It'll take `some` time.
+- I've had `some` dreams.
+- Let me show you `some`.
+- Let's get `some` drugs!
+- Let's get `some` lunch.
+- Let's get `some` shots.
+- Let's get `some` sleep.
+- Let's grab `some` food.
+- Maybe watch `some` t.v.
+- Must be `some` mistake.
+- Not as rough as `some`.
+- Not as silly as `some`.
+- Possibly `some` coffee?
+- Read `some` good books.
+- Send `some` bodyguards.
+- She stole `some` money.
+- Show `some` compassion.
+                 

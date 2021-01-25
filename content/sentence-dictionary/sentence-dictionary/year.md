@@ -1,0 +1,107 @@
+---
+title: "year in a sentence | year example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "year"
+---
+- Give or take a `year`.
+- Happy new `year`, sir.
+- He toured last `year`.
+- I attend every `year`.
+- I met him last `year`.
+- One `year` or one day?
+- Ran away a `year` ago.
+- Try again next `year`.
+- We had a tough `year`.
+- Another `year`, anyway.
+- Happy new `year`, tess.
+- Maya: happy new `year`.
+- No, about a `year` ago.
+- They do it each `year`.
+- What `year` are you in?
+- Your `year` of absence?
+- At least a `year`, mike.
+- A whole `year`, in fact.
+- A `year` and a half ago.
+- A `year` is a long time.
+- A `year` older than you?
+- Both in the last `year`.
+- Got all a's this `year`.
+- Happy: happy new `year`.
+- Happy new `year`, bitch!
+- Happy new `year`, lenny.
+- He do that every `year`?
+- How many times a `year`.
+- It's a very good `year`.
+- It was one `year` ago...
+- I've been back a `year`.
+- The scoop of the `year`!
+- Third issue this `year`.
+- This `year` alone: five!
+- Try a `year` and a half.
+- Um, how's senior `year`?
+- We got them last `year`.
+- A `year` and three weeks.
+- By changing every `year`.
+- I'll see you next `year`.
+- I'm laid off last `year`.
+- It's a 20-`year` journey.
+- It's been about a `year`.
+- Probably a `year`... o.k.
+- To a five-`year`-old kid?
+- We look good this `year`.
+- About a `year` and a half.
+- A nineteen-`year`-old kid.
+- A `year` and a half later?
+- Fourteen `year` old girls.
+- Happy new `year`, darling.
+- He does this every `year`.
+- He does this every `year`?
+- Hey, that was last `year`.
+- I'm the bum of the `year`.
+- Just for the first `year`.
+- Maybe next `year`, oliver.
+- She's a 9-`year`-old girl.
+- That means under a `year`.
+- We got first every `year`.
+- The `year` before that?
+- Fourth-`year` earth skills.
+- It's crazy this `year`, eh?
+- It's my last school `year`.
+- She was a `year` behind us.
+- This time of the `year`...?
+- We did a piece last `year`.
+- About a `year` and half ago.
+- Especially this last `year`.
+- He was a `year` ahead of us?
+- I hope to go up next `year`.
+- It's still the new `year`...
+- I was 24 for a whole `year`.
+- I wish it was just a `year`.
+- Last `year` toby was in a.p.
+- Lean `year` for role models.
+- That was about a `year` ago.
+- The son of an 18-`year`-old.
+- They did it last `year` too.
+- This has been a good `year`.
+- This `year` i want that pig.
+- Traumas of a ten-`year` old.
+- All these in the last `year`?
+- ... at base camp this `year`.
+- I heard about it last `year`.
+- I'm sorry about new `year`'s.
+- One `year`...almost one `year`.
+- That's just the first `year`.
+- The dark `year` broke us all.
+- The dark `year`, cannibalism.
+- Typical seventeen `year`-old.
+- We're examined once a `year`.
+- What am i, a five `year` old?
+- 1322 last `year` in la county.
+- Do you know what `year` it is?
+- First semester, senior `year`.
+- Got a sixteen-`year`-old girl.
+- Had a two-`year`-old daughter.
+- I've been coming for a `year`.
+- I was there twice last `year`.
+                 

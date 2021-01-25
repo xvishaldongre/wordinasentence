@@ -1,0 +1,107 @@
+---
+title: "line in a sentence | line example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "line"
+---
+- Dr. bronfman's `line`.
+- Is the `line` sinking?
+- It's your life `line`.
+- That's a great `line`.
+- Yeah, hold the `line`.
+- You jumped the `line`.
+- Another crossed `line`?
+- I'm drawing the `line`.
+- Just follow the `line`.
+- Keep her on the `line`!
+- Mind your `line`, bart.
+- Now give me the `line`.
+- That's not your `line`.
+- That was out of `line`.
+- The unbreakable `line`!
+- You crossed the `line`.
+- Can you get us a `line`?
+- Get back to your `line`.
+- Great `line` at the end.
+- I envy the hair- `line`.
+- It's a very fine `line`.
+- `Line`-caught mahi mahi.
+- Look at the next `line`.
+- No, stay off the `line`!
+- Over the `line`, smokey!
+- Salvy was out of `line`.
+- She's on the `line` now.
+- The `line`'s over there.
+- This is a `line`, right?
+- Are you on a land `line`?
+- First squad up on `line`.
+- Get off the `line`, guy.'
+- Gonna meet you in `line`?
+- He's a human chum `line`!
+- How bout my phone `line`?
+- I've got a `line` on one.
+- Life on the fault `line`.
+- Or an on-`line` computer.
+- Out past the date `line`.
+- That little black `line`?
+- That's a terrific `line`.
+- That's the bottom `line`.
+- What's the bottom `line`?
+- You're way out of `line`!
+- You see this `line` here?
+- You set up the `line`-up.
+- All in the `line` of duty.
+- Coming on `line` now, sir.
+- First squad up, on `line`.
+- Get cynthia on the `line`.
+- Luther just got in `line`.
+- Must be my clothes `line`.
+- Sir, the cpu is on-`line`.
+- We're way over the `line`.
+- Drew, you're out of `line`.
+- Goin' to the county `line`.
+- I always liked that `line`.
+- Let's `line` up right here.
+- Next customer in `line`...!
+- Right on the flight `line`?
+- See y'at the finish `line`.
+- Are you on the other `line`?
+- I called a phone sex `line`.
+- I can't stay on this `line`.
+- I'll fall right into `line`.
+- `Line` up where you want it.
+- Movement on the tree `line`!
+- Play back the last `line`...
+- Pull your car out of `line`.
+- Roman that's not the `line`.
+- That is one tough `line` up.
+- That would spoil the `line`.
+- We have a boy on the `line`.
+- Where do we draw the `line`?
+- You crossed the `line`, man.
+- Get these men back in `line`!
+- Keep the `line` open, dizzy !
+- Not to go back to the `line`?
+- Priya, seventh of her `line`.
+- That's the end of the `line`.
+- The fail-safe on�`line`, yet?
+- You're out of `line`, mister.
+- You win all along the `line`.
+- Bottom `line`, you execute it.
+- Bring the warp core on-`line`.
+- Get 'em on `line`, then stall.
+- Get him on the `line`, please.
+- I have a customer help `line`.
+- No, you fool, a rescue `line`.
+- Purifying of the blood `line`.
+- Right along this fault `line`.
+- But the `line` has to be drawn.
+- Disruptors are off-`line`, sir.
+- Do me a speech, do me a `line`.
+- `Line` up your tracking system.
+- That ridge `line`, one o'clock.
+- That's over the fucking `line`.
+- They got in the `line` of fire.
+- We'll drop that `line` for now.
+- You're crossing a `line`, kane.
+                 

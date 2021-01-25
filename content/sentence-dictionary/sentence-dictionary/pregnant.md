@@ -1,0 +1,81 @@
+---
+title: "pregnant in a sentence | pregnant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pregnant"
+---
+- She was `pregnant`.
+- I'm `pregnant`, bonita!
+- I'm not even `pregnant`!
+- She's `pregnant`, aaron.
+- When she was `pregnant`.
+- Shoot a `pregnant` woman?
+- Suppose i was `pregnant`.
+- How's my `pregnant` chick!
+- I'm six months `pregnant`.
+- No...i've been `pregnant`.
+- `Pregnant` girls doped up.
+- You knew she's `pregnant`.
+- I'm staying `pregnant`, le.
+- My girlfriend's `pregnant`.
+- I'm too `pregnant` to argue.
+- It's shelly who's `pregnant`.
+- My best friend got `pregnant`.
+- Lula tell you she's `pregnant`?
+- You're not `pregnant`, are you?
+- Did you know she was `pregnant`?
+- Do you like it, being `pregnant`?
+- First of all, i'm not `pregnant`.
+- She really say she was `pregnant`?
+- His wife's `pregnant`... good luck.
+- I think i'm `pregnant`, by the way.
+- Did you tell him you were `pregnant`?
+- How did you know gracie's `pregnant`?
+- Can't get a little bit `pregnant`, bud.
+- I want you to know that i'm `pregnant`.
+- Did you hear juno macguff is `pregnant`?
+- I got `pregnant`, too--about a year ago.
+- In fact, uh, my wife's `pregnant` again.
+- The sex, i mean, not getting `pregnant`.
+- Oh-jesus-mary-n-joseph, she's `pregnant`!
+- Would you... let yourself get `pregnant`?
+- Come to find out, she six months `pregnant`.
+- One ain't in town, the other one `pregnant`.
+- Strung out on crack, four months `pregnant`.
+- All you'll get from their kind is `pregnant`!
+- Being `pregnant` makes you pee like seabiscuit.
+- You have to tell everyone you're `pregnant`.
+- You had to marry him because you got `pregnant`?
+- I'm not surprised you thought she was `pregnant`.
+- Mikey - `pregnant` women get crazy you know that.
+- ... that you don't remember getting `pregnant`...
+- Your mom got `pregnant` and i had to make choices.
+- What is... oh my god, she's a `pregnant` superhero!
+- Well, i could use one, especially if i'm `pregnant`.
+- There was a `pregnant` woman in a white delivery van.
+- You're `pregnant` with an asian design major's child?
+- I was already `pregnant`, and i didn't have much time.
+- If we do it in a church, i, like, can't get `pregnant`.
+- If you don't like it - you try being a `pregnant` teen!
+- If it's the first of its kind, how can it be `pregnant`?
+- So, it looks like you're getting `pregnant`-er these days.
+- I found out i was `pregnant` and it scared the shit out of me.
+- That's what happens when our moms and teachers get `pregnant`.
+- I'll bet i'm the happiest `pregnant` fired person in the world!
+- Why do you insist upon pressing... who knew she was `pregnant`?
+- All right, tell us, rose, what makes you think you're `pregnant`?
+- I mean, if i've made you `pregnant`, i'd want to... do the right thing.
+- That don't justify trying to trap a boy by getting `pregnant`, lynette!
+- I'm already `pregnant`, so they figure nothing worse could happen to me.
+- You should have tried to get `pregnant` marylin -- solidify your position.
+- It might buy you some time, she didn't know she was `pregnant` at the time.
+- Two years ago you got laura `pregnant`; you then proceeded to cheat on her!
+- She's no more `pregnant` than i am, she just doesn't want to go to that farm!
+- We�re `pregnant`... yeah...that must�ve been...i mean that was very unexpected.
+- Next year, he had him traded for lumber anyway and me `pregnant` with his child.
+- There's this girl he's gotten `pregnant` and she's putting him through hell, sir.
+- Poor charlie...i got `pregnant` on my 18th birthday and we had to get married.
+- To the destruction of mount weather we're both `pregnant` with big moose's babies.
+- Got `pregnant`, and...went to live in a trailer up on a woodlot kyle's dad used to own.
+- The saxophone runs off with a bible salesman, and the bass fiddle gets herself `pregnant`.
+                 

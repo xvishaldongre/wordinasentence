@@ -1,0 +1,107 @@
+---
+title: "land in a sentence | land example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "land"
+---
+- Still in la-la `land`.
+- This `land` is cursed.
+- Village ghetto `land`.
+- I just want the `land`.
+- On <u>`land`</u> maybe.
+- These `land` purchases?
+- Forced me off my `land`.
+- How did you `land` that?
+- Pretty `land`, isn't it?
+- This is a brutal `land`.
+- This `land` is ours now.
+- Are you on a `land` line?
+- Beautiful rolling `land`.
+- It happens when i `land`.
+- `Land` of your forebears.
+- *used* to be your `land`.
+- We work the `land` alone.
+- Doom was after his `land`.
+- Making the `land` useless.
+- My father had farm `land`.
+- This plane can not `land`!
+- We mustn't let him `land`!
+- Dinner when you `land`.
+- I always `land` on my feet.
+- `Land` sakes, i don't mind.
+- No, it's "`land` the bird."
+- Then wh-where do we `land`?
+- Try to `land` on your feet.
+- We should have seen `land`.
+- You and the `land` are one.
+- My company... a `land` mine.
+- Saved the `land` from dying.
+- Well that's a lot of `land`.
+- But this is *my `land`*, son.
+- Gods country, promise `land`.
+- How am i gonna `land` a fish?
+- Well you own a lot of `land`.
+- Why do they want this `land`?
+- A `land` called "el salvador".
+- It's a pretty piece of `land`.
+- We're gonna `land` karapetyan.
+- We're supposed to `land` soon.
+- Back to the `land` of grownups.
+- It's got to `land` on somebody.
+- Just like you `land` the plane.
+- Lot of `land`, not many people.
+- So you never bought any `land`.
+- We're not gonna `land` on `land`!
+- You mean get off my own `land`?
+- Captain, how soon can we `land`?
+- How would you get him on `land`?
+- It's the freest `land` on earth.
+- Why they `land` in these places?
+- If they `land`, we can take them.
+- I hope there's a place to `land`.
+- `Land` of enchantment and riches.
+- Well, i'm contracting the `land`.
+- That this, this is our `land`!
+- A plot of `land` to call your own.
+- I mean, we gotta `land` this bird.
+- `Land` reform is underway in amdo.
+- Oh, we own the `land` around here.
+- They needed property, some `land`.
+- We need to... we need that `land`.
+- All the time, '`land`, `land`, `land`.'
+- Because you and the `land` are one.
+- Helping him... irrigate the `land`.
+- One if by `land`--two if by sea!...
+- That `land` belongs to the natives!
+- Ah, a breath of the promised `land`!
+- It's like living in munchkin `land`.
+- "`land`-based maritime specialties."
+- `Land` deeds, transfers of property.
+- The `land` has stayed in the family.
+- The last survivable `land` on earth.
+- This is america, `land` of the free.
+- And skull-splat 'em when they `land`.
+- I'll go to the `land` of death alone.
+- Look, we need to `land` that account.
+- That `land` belongs to the strongest.
+- A `land` where anyone can be anything.
+- How long does it take a man to `land`?
+- They could try to tranq him on `land`.
+- This is their `land`, he doesn't care.
+- We've got to `land` as soon as we can.
+- But if i `land` this thing upside down.
+- Can we use it to `land` the pod or not?
+- On the last survivable `land` on earth.
+- The planes can't `land` without lights.
+- They come on `land` and they're brazen.
+- Yeah, oz, but not when she's on `land`.
+- Drive fast, they can move on `land`.
+- Can you fly this airplane and `land` it?
+- The `land` and the king are one, my son.
+- The expression is "`land` this fish."
+- Any court in the `land` would understand.
+- Hiding out, afraid to walk my own `land`.
+- I recommend we `land` at coordinate 8563.
+- 's bra strap, and this is where i `land`?
+- The loans give the `land` to your father.
+                 

@@ -1,0 +1,59 @@
+---
+title: "miserable in a sentence | miserable example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "miserable"
+---
+- He's a `miserable` twit!
+- I'm just too `miserable`.
+- It's wet and `miserable`.
+- 'cause you're `miserable`.
+- Well, he looks `miserable`.
+- He's just a `miserable` zombie.
+- Lester, you're a `miserable` man.
+- Rejected, worthless, `miserable`.
+- Did he make your life `miserable`?
+- It's like those `miserable` psalms.
+- You `miserable` little tripe-hound.
+- You pitiful, `miserable` creatures!
+- Everybody's `miserable` in our house!
+- Every inch of it hot and `miserable`.
+- Cowards, `miserable` cringing cowards.
+- Eh, you were `miserable` this morning!
+- ...on this `miserable` road to nowhere.
+- Then we'd both have a `miserable` time.
+- But you seem pretty `miserable` already.
+- Haven't you, you `miserable` petty crook?
+- Because she's not `miserable` like you two.
+- I'm ok. or at least, much less `miserable`.
+- Your mother is a rather `miserable` woman .
+- These `miserable` brats only get in the way.
+- I had a `miserable` time tonight 'cause of you.
+- You know, and the `miserable` is everyone else.
+- She'll end up fat, alcoholic and `miserable`.
+- When i wasn't so `miserable` i used to sell pigs.
+- Know he ain't got the stuff, makes him `miserable`.
+- This `miserable` wilderness is a state of the union.
+- It'll just tear you up inside and make you `miserable`.
+- You `miserable`, cowardly, wretched little caterpillar.
+- I've met some cynical and `miserable` humans in my time.
+- You're too young to be `miserable` the rest of your life.
+- You'd rather think about it and make yourself `miserable`?
+- You're damn right it incensed me, the `miserable` bastard.
+- Should we split up because i'm used to you being `miserable`?
+- Do you honestly think that i want to be single and `miserable`?
+- That `miserable`, manipulating loathsome she-devil of a witch!!
+- He said that if i didn't come back he'd make my life `miserable`.
+- Look, i know you're `miserable`, darling, you're experiencing ok.
+- She would be `miserable` tagging along after this insensitive doofus!
+- I've been such a burden to you�made your life so `miserable`�and mine, too.
+- I-i-i feel that life is-is divided up into the horrible and the `miserable`.
+- But i gotta, or he'll kill the `miserable` bastard and he'll be there for life.
+- You know i'd offer to clip your dinner but you seem pretty `miserable` already.
+- Life does not stop and start at your convenience, you `miserable` piece of shit.
+- Um... oh no, sir, not exactly, i still feel very `miserable`, very much down in spirits.
+- Until ma has you home so she can fuss over you herself, she's gonna make me `miserable`.
+- I kick myself sometimes, but the thing is, i would have been `miserable` living his life.
+- People don't come to me unless they're `miserable` and i help 'em out of a bad situation.
+- She wears her cheap `miserable` blouse as though it were the latest model by schiaparelli.
+                 

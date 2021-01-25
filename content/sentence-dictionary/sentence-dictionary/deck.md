@@ -1,0 +1,81 @@
+---
+title: "deck in a sentence | deck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deck"
+---
+- I got a `deck` with me.
+- You find out the `deck`?
+- I'll be waiting on `deck`.
+- Man: chancellor on `deck`.
+- Hey, red, bump me a `deck`.
+- But ya got a `deck` a cards?
+- `Deck` 15, section 21-alpha.
+- Man: chancellor on `deck`.
+- Man: get them on `deck` two.
+- We need all hands on `deck`.
+- You always get a new `deck`.
+- A dead d-8 on the `deck`.
+- `Deck` by `deck`, room by room.
+- Don't forget your lucky `deck`.
+- Put me down for a quarter `deck`.
+- This is `deck` chief gus mancuso.
+- We were the only one's on `deck`.
+- I'm taking her down to the `deck`.
+- Then i tried to `deck` the sucker.
+- Below the hard `deck` doesn't count.
+- Bring him on `deck` with the others.
+- My days of punching `deck` are over.
+- We have to go to the command `deck`.
+- Best cowboy that ever punched `deck`.
+- Maybe you should try the lido `deck`.
+- Now all we need is a `deck` of cards.
+- So, uh, do i get the `deck` from you?
+- Then all we need's a `deck` of cards.
+- He brought a gun onto the pool `deck`.
+- It's getting kind of chilly on `deck`.
+- He got onto the pool `deck` with a gun.
+- Of these tech stations on every `deck`.
+- He likes to cold `deck` low, 8's or 9's.
+- We'll stand the watch on `deck` tonight.
+- You're my sister... chancellor on `deck`.
+- He's shown himself to you... on the `deck`.
+- `Deck` four, captain; officers' quarters...!
+- To fight it out on the `deck` of your ship?!
+- You know, if i were you, i'd hit the `deck`.
+- C'mon, we're wanted up on the command `deck`.
+- They're all upstairs on the passenger `deck`.
+- Fell out of the tail rope and onto the `deck`.
+- They'll report to b `deck` in less than an hour.
+- There's a dampening field in place on this `deck`.
+- The hard `deck` for this hop was ten thousand feet.
+- Son, i can take everything you got with that `deck`.
+- Can you meet me and sartorius on b `deck` in an hour?
+- He's not on `deck` and i can't raise him on the radio.
+- Oh, i thought they were doughnuts chancellor on `deck`.
+- Seal off that entire `deck` with emergency force fields.
+- Would you like to take a turn around the `deck` with me?
+- I wouldn't hold out much hope for the tape `deck` though.
+- Have a security team meet me at `deck` four main elevator!
+- This whole `deck` is an electrical fire waiting to happen.
+- I'm real sorry someone broke in and stole your tape `deck`.
+- My plan right now is to go up on `deck`, look at the sunset.
+- You klingons never do anything small, do you... `deck` five.
+- Captain, we have lost ventral shielding on `deck` twenty nine.
+- The sheriff and the deputy and i inspected the `deck` closely.
+- This thing was rigged, the `deck` was stacked, the fix was in.
+- Guy, cet down to `deck` c and make sure tne injured are secured.
+- On the `deck` of the yankee, the night you asked me to marry you.
+- Must've heard something below `deck` and went down to check it out.
+- When the first slaver put out for the congo, i stood on the `deck`.
+- We have to make it to the third `deck`... how do we get out of here?
+- But it was thought... by some... that the `deck` would look too cluttered.
+- I hear there's a shuffleboard court on `deck` -- it might be kinds cool...
+- He was on rowan's `deck` - and the plane... geography seems irrelevant now.
+- Up on the upper `deck` is the cockpit and the mission communication center.
+- I'll set you up, get you a `deck` at my cost... since my thing is the software.
+- In "the quasar dilemma", you used the auxiliary of `deck` b for gamma override.
+- But castro's on alert and we're flying attack planes over their sites, on the `deck`.
+- I planned getting you off the hangman's `deck` -- we're gonna have to talk... fine.
+- An energy reading from 'c" `deck` -- from inside mr. spock's quarters... mr. chekov -- ?
+                 

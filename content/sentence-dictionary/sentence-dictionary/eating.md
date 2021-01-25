@@ -1,0 +1,107 @@
+---
+title: "eating in a sentence | eating example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eating"
+---
+- I'm `eating` its cure.
+- Tell her i'm `eating`.
+- What are you `eating`.
+- I'm not `eating` alone.
+- Thanks for `eating` it.
+- You're always `eating`.
+- From `eating` -- no way.
+- You're `eating` maggots.
+- Something's `eating` you.
+- All i'm `eating` are eggs.
+- What are you `eating`?
+- That food you're `eating`.
+- <u>you're</u> `eating` it.
+- What's `eating` you, judy?
+- You're `eating` a zarg-nut.
+- `Eating` fertilizer seems...
+- I'm `eating` her crumb cake.
+- I'm `eating` my lunch, okay?
+- I'm not `eating` their food.
+- `Eating` grass to stay alive?
+- Have you been `eating` pizza?
+- How come you're not `eating`?
+- I killed a shit-`eating` dog.
+- Then why aren't you `eating`?
+- Well, at least he's `eating`.
+- You're `eating` my burger?
+- By `eating` our food supplies.
+- Bonnie was `eating` a sandwich.
+- I couldn't stop `eating` steak.
+- Not for `eating`, i assure you.
+- What's this about not `eating`?
+- But you are not `eating` enough.
+- `Eating` solid breakfasts, utah?
+- Is that why you're not `eating`?
+- Then why are you `eating` alone?
+- `Eating` their way to the center?
+- Except ducks `eating` watermelon.
+- He was `eating` when it happened.
+- He ain't `eating` beans fer lunch.
+- It's `eating` a hole in the floor!
+- Nothing like `eating` fish sticks.
+- She'll think she's `eating` money.
+- Adventure" `eating` out of my hand.
+- Do you want me to keep `eating` it?
+- Go tell your father we're `eating`.
+- I can't keep `eating` this garbage.
+- I should be `eating` with the crew.
+- The cat lady is `eating` with cats.
+- Bill, i am `eating` dinner with you.
+- Yeah, i'm still `eating` that candy.
+- It's replicating, `eating` up memory.
+- She was `eating` one of your rations.
+- While dad is `eating` three desserts.
+- Hey you're not `eating` your meatloaf.
+- I feel like i'm the only one `eating`.
+- Actually, i'm not `eating` lunch today.
+- He always have that shit-`eating` grin?
+- Now finish `eating` and then go to bed.
+- She writes here she's `eating` oranges.
+- Then why are you compulsively `eating`?
+- You never cook anything worth `eating`.
+- Please, doctor - time is `eating` us up.
+- Until you can't see what's `eating` you?
+- Come on now, sit down and go on `eating`.
+- Jack, sweetie, i'm only `eating` for two.
+- See, you've reduced me to `eating` weeds.
+- Then that would be `eating` and drinking!
+- Because i am your bug-`eating` nude fatso.
+- He ain't been `eating` so good, either.
+- For some, `eating` is a sensual experience.
+- Not `eating` like you used to, that's what.
+- Dad, are you sure you're okay `eating` here?
+- Got him `eating` out of the palm of my hand.
+- Mom, they don't mind `eating` with one fork.
+- You have them all `eating` out of your hand.
+- An earth pig; an ant- `eating` african mammal.
+- I can't believe that we're `eating` cantonese.
+- You had them `eating` out of your hand, kiddo.
+- Flyer, went down, `eating` snakes for ten days.
+- Harper's been `eating` a little too much algae.
+- That's not the only thing your `eating` rachel.
+- Who cares what sandwich the bitch was `eating`?
+- Glow-in-the-dark forests or man-`eating` snakes?
+- Not `eating` and reverse insomnia are my curses.
+- Chief, chief, space plants are `eating` everyone.
+- He's gonna lose a finger `eating` eggs like that.
+- Right, `eating` at the core, `eating` it's way out.
+- [tewkesbury] we should think about `eating` soon.
+- An `eating` contest against the monstrous cthulhu?
+- One of the few things i remember doing is `eating`.
+- Come on, i feel like i'm the only one `eating` here.
+- I guess i'll be `eating` dinner in the pantry again.
+- You tell me, when would you start `eating` red meat?
+- She stopped `eating` completely... and what happened?
+- They're going to start `eating` each other out there.
+- While here i sit `eating` christmas cheese in spring.
+- `Eating` scungilli, just like the last time you asked.
+- Then i see you inside `eating` ten pounds of macaroni.
+- This is a banana `eating` a monkey, nature in reverse.
+- `Eating` is `eating`... and... and no elbows on the table!
+                 

@@ -1,0 +1,97 @@
+---
+title: "dancing in a sentence | dancing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dancing"
+---
+- I feel like `dancing`!
+- I feel like `dancing`.
+- Are we going `dancing`?
+- I don't like `dancing`.
+- We were just `dancing`.
+- Good samba `dancing`...?
+- She's through `dancing`.
+- You don't like `dancing`?
+- I was `dancing` on a table.
+- Your `dancing`'s very good.
+- I'm in no mood for `dancing`.
+- When the `dancing`'s over?
+- Hi, want to take up `dancing`?
+- You wanted to go `dancing`.
+- If you were `dancing` with her.
+- You truly are a `dancing` fool.
+- He needs his legs for `dancing`.
+- I'm `dancing` with the war hero.
+- I mean, we just went `dancing` .
+- I'm glad `dancing` was invented.
+- Some tap `dancing`, some singing.
+- You want to go `dancing` tonight?
+- `Dancing` around like a smacked ass.
+- Probably because i suck at `dancing`.
+- They may do some more folk `dancing`.
+- He's `dancing` around everything else.
+- Well, then, why don't we go `dancing`?
+- Earlier you said singing and `dancing`.
+- Is it milhouse's break `dancing` tutor?
+- I'm going to give you `dancing` lessons.
+- But i ain't doing no more buck `dancing`.
+- But you can go out `dancing` in this too.
+- It's fun `dancing` with your eyes closed.
+- I don't even care as long as i'm `dancing`.
+- I'd like to go down to that `dancing` place.
+- I'm not in the mood for dining and `dancing`.
+- A great loss to playwriting, and to `dancing`.
+- I've always had a weakness for folk `dancing`.
+- "detente" -- it sounds like two fags `dancing`.
+- Faith is angels `dancing` on the head of a pin.
+- I'm `dancing` on the roof of the peabody hotel.
+- Schwartz had him up there singing and `dancing`.
+- You wanna have a drink before we start `dancing`?
+- `Dancing` is alright; you're falling on the floor.
+- Maybe we should try a different kind of `dancing`.
+- We finally got fluoridated water in `dancing` elk.
+- He was -- he ain't dead -- he's `dancing` in there.
+- If you got a problem with me, why are we `dancing`?
+- Singing lessons, acting lessons, `dancing` lessons.
+- Did you see hiromix last night `dancing` with bambi?
+- What if we're witnessing the end of touch `dancing`?
+- If you don't mind `dancing` with an old fogey like me.
+- Till we figure it out, let's ... let's keep `dancing`.
+- She's got to keep `dancing` -- i don't need a few days.
+- You call that john travolta/denny terio shit `dancing`?
+- I have disappointed marge with my `dancing` in the past.
+- They decided gambling and `dancing` were bad for people.
+- Sorry i can't answer the phone, i'm out square `dancing`.
+- Oh man, i can just picture you slow `dancing` like a dork!
+- I got to stop that `dancing` in the street �till all hours.
+- I think you should feel like `dancing` at a time like this.
+- So i had ten years of dramatic lessons, diction, `dancing`.
+- You might've seen jimmy hoffa `dancing` with timothy leary.
+- C'mon-- crash, i didn't think you-- she's `dancing` with me.
+- Now english music... and you are `dancing` to english music!
+- You mean like disco `dancing` or doing the funky chicke...oh.
+- I was slow `dancing` to that song before rachel was even born.
+- Wait a minute!--they're `dancing` in the palm court-- good-by.
+- I was having fun `dancing`, it's the best match we're gonna get.
+- Okay, you�re right, we�ve been `dancing` around this for years...
+- Tyler... we are the all-singing, all-`dancing` crap of the world.
+- What fun we have, `dancing` and fucking, not a care in the world.
+- I was in texas `dancing` in an industrial show for sunkist oranges.
+- A masculine paradise -- drink, the ladies, `dancing`... what, doctor?
+- Manray, sloan says you're too talented to be `dancing` on the street.
+- Dinner parties vit lovely ladies and gentlemen, singing und `dancing`.
+- Think you to sleep in a faerie ring and not spend the night a-`dancing`?
+- Come on, you guys -- take me out for a good time... take me out `dancing`.
+- Have to look for clues... even if it means `dancing` with beautiful women.
+- I worked my whole life... `dancing` on a string held by all those big shots.
+- You have cockroaches `dancing` on tables and you tell me the cellar is empty?
+- 'but keep `dancing`, and if you're lucky, i might just never leave, who knows?'
+- You got all bent out of shape as soon as he started `dancing` with someone else.
+- Dude, if it were `dancing` the way fred astaire did it, i'd give it my best shot.
+- But surely the emperor didn't mean to prohibit `dancing` when it's part of the story.
+- I am once more available for `dancing` in the streets and shouting from the housetops."
+- We were just `dancing`-- and you and private graves-- if i had i wouldn't have gone in.
+- She was found singing and `dancing` in a cabaret by the man... wait... wait... ives!
+- There was one nice-looking one there inna black dress and beads, but she's `dancing` now.
+- I give him his cut of seventeen hundred, i think he knows i can't make that lap `dancing`.
+                 

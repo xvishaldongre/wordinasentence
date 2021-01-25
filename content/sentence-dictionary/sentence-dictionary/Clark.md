@@ -1,0 +1,80 @@
+---
+title: "Clark in a sentence | Clark example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Clark"
+---
+- Take it easy, `clark`.
+- I wish `clark` were here.
+- This is... ...`clark`.
+- It always is with `clark`.
+- Don't fake me out, `clark`.
+- Prep the `clark` for launch.
+- He looked like `clark` gable.
+- You always overreact, `clark`.
+- `Clark`, you come on out here!!
+- Hey, mr `clark`, how you doin'?
+- She's joanna `clark`'s daughter.
+- I can't `clark` already asked me.
+- I know you're a good boy, `clark`.
+- I'm here, smith, how's the `clark`?
+- Any more like you back home, `clark`?
+- I didn't make any -- oh, no, `clark`.
+- You don't have to be polite, `clark`.
+- Lester `clark` jr. my ex-partner's son.
+- I'm going outside to work on the `clark`.
+- This is the lewis and `clark`, hailing...
+- Where is your cousin `clark`, by the way?
+- Who does `clark` kent think he is anyway!
+- All right, so where is lester `clark` now?
+- `Clark`, you want me to come in after you?!
+- Mrs. `clark`, why are you doing this to me?
+- We can take the filters from the `clark`...
+- I think weir may have put it on the `clark`.
+- It must be tough, having to be `clark` kent.
+- `Clark` kent, i'd like you to meet lois lane.
+- The money that makes you mr. `clark` brandon.
+- They could be what hit the lewis and `clark`.
+- Will you marry me, loretta castorini `clark`?
+- You make friends quickly, don't you, `clark`?
+- It isn't that i still don't like you, `clark`.
+- Oh, `clark`, you're so delightfully primitive.
+- Thanks, `clark`, but i'm booked for the night.
+- This gun permit was issued to `clark` brandon?
+- While you're at it, fire that `clark` kent.
+- My cousin `clark` is my only relative on earth.
+- Satch is busting me for sissy `clark`'s murder.
+- Sissy `clark`, 190 riverside dr., apartment 3c.
+- Well, you shouldn't be more aggressive, `clark`!
+- I thought "`clark` kent has a really nice voice."
+- Nobody gets invited to `clark` brandon's parties.
+- Okay, `clark`, out of the john where i can see you!
+- `Clark`, i think you worry too much about mayonnaise.
+- Where did they play it - in a garage on `clark` street?
+- Captain miller, we're ready to repressurize the `clark`.
+- `Clark` personally, i think it could be a terrific story!
+- Frank, they're gonna make you for sissy `clark`'s murderer.
+- We need whatever's left in our suits to repair the `clark`.
+- Favoring `clark` -- happy now, he turns to leave the office.
+- It must have been a super effort to get out of bed, `clark`.
+- I just saw weir, i think he was messing around on the `clark`.
+- If it got to `clark`... `clark` could have gotten to anybody.
+- I mean, you will try to push it through, won't you, mr `clark`?
+- I mean, it's not as if -- you're great with the advice, `clark`.
+- `Clark`, stop feeling so threatened every time you hear his name.
+- The malcolm mcclaren of `clark` street is in his executive suite.
+- Mr `clark` brandon an almost gentleman of almost complete leisure.
+- `Clark` kent, if you had only seen it the way i did, you - oh sure.
+- Coop, smith, finish moving the co2 scrubbers back onto the `clark`.
+- `Clark` brandon's throwing a party up in his penthouse this evening.
+- Anybody want to tell us kids in the cheap seats who joanna `clark` is?
+- So i put some of the money into legitimate deals with charlie `clark`.
+- That old man of his still livin' over there on `clark` street i believe.
+- If they still think it's in `clark`'s head, we are not here to wipe them out.
+- Your cousin `clark` taught me everything i know about the newspaper business.
+- It would take the lewis and `clark` a thousand years to reach our closest star.
+- Just tell 'em that it was shepard who killed finelli and `clark` and the others.
+- I'll tell you what, `clark`, i'll take you to lunch and you can tell me all about it.
+- `Clark`, everything i was saying -- can't you see i only say it because i really care?
+- What your mother means, `clark`, is that she don't want folks to think you're special.
+                 

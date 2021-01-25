@@ -1,0 +1,68 @@
+---
+title: "mayor in a sentence | mayor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mayor"
+---
+- The `mayor`'s outside.
+- What about the `mayor`?
+- You're not the `mayor`.
+- Da `mayor` ain't no bum.
+- I'll talk to the `mayor`.
+- Upstanding `mayor` stuff.
+- I'm not studying no `mayor`.
+- I'm the `mayor`'s assistant.
+- You know who the `mayor` was?
+- [daya] thank you, mr. `mayor`.
+- Da `mayor` don't bother nobody.
+- `Mayor` kline is ready for you.
+- The `mayor` pressures the cops.
+- It's the `mayor`, he's saying...
+- The `mayor`'s car is pulling up.
+- And the `mayor`'s wife has fleas.
+- I'm going to be `mayor` tomorrow.
+- You're the `mayor` of shark city.
+- Da `mayor` just mind his business.
+- Doctor, this is da `mayor` talkin'.
+- I'm an old friend of the `mayor`'s.
+- If it isn't the `mayor` of base camp!
+- If it isn't the `mayor` of base camp.
+- Look, you stay away from the `mayor`.
+- Hell, i can get you the `mayor`'s box.
+- Nobody don't bother da `mayor` but you.
+- People call you the `mayor` of darktown.
+- "you're doin' great, `mayor` cobblepot."
+- ...he's right here, mr. `mayor`... hello.
+- Mr. `mayor`, it's a pretty simple choice.
+- "your table is ready, `mayor` cobblepot."
+- Does it really matter who's the "`mayor`"?
+- If the `mayor` wants me, he knows where i am.
+- Lenny, `mayor` of shelbyville and an ostrich.
+- You are too cruel to da `mayor`, it isn't right.
+- `Mayor` bennett and i have been friends a long time.
+- No, that's what i want to talk to the `mayor` about.
+- Tell 'em about the `mayor` and the unemployment lines.
+- Martin swayzak is going to be this town's next `mayor`.
+- Next thing i know, the `mayor`'s pinning a medal on me.
+- How much do you want to run to the store for da `mayor`?
+- Da `mayor` is an old man, haven't run that fast in years.
+- You cannot leave ... is anything the matter, mr. `mayor`?
+- You've got the `mayor` and hartman backed against a wall.
+- You get the `mayor` off my back with this zoning crap.
+- We had a shark attack at south chop this morning, `mayor`.
+- The war... ernie cole here just got himself elected `mayor`.
+- Can i call the `mayor` a bird of prey -- or is that libelous?
+- My dad's the `mayor`.... you're betting what you already got.
+- But the `mayor` would hang his own grandmother to be re-elected.
+- The `mayor` and i have already spoken and we see eye to eye here.
+- The `mayor`'s office, under the bed, the back room at lombardi's.
+- ♪ every move you make ♪ the fault of a disgraced, corrupt `mayor`?
+- The colored vote happens to be very important to the `mayor` of this town.
+- ...upset and impressionable... get me the `mayor`... nobody knows it but us.
+- I just saw the `mayor`, he said anything we... we can't shoot in the old mill.
+- The `mayor` stupidly took cobblepot's bait -- you're not coming to that, are you?
+- But to get the `mayor` recalled, we still need a catalyst, a trigger, an incident.
+- She put it even at three to three, so as the `mayor` i get to cast the tiebreaker.
+- The `mayor` and chamber of commerce don't want tv announcing killers on the loose.
+- Course you're feeling fine ... you almost made a monster the `mayor` of gotham city.
+                 

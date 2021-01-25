@@ -1,0 +1,107 @@
+---
+title: "someone in a sentence | someone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "someone"
+---
+- Did `someone` save me?
+- Do you meet `someone`?
+- I found you `someone`.
+- I'm meeting `someone`.
+- I think `someone` did.
+- It was `someone` else.
+- I've killed `someone`!
+- Looking for `someone`.
+- Looking for `someone`?
+- `Someone` else coming?
+- `Someone` else did it.
+- `Someone` has to stay.
+- `Someone` i can trust!
+- `Someone` shut him up.
+- `Someone` will follow.
+- That's `someone` else.
+- To strangle `someone`.
+- We sent `someone` out.
+- Got to trust `someone`.
+- He thinks `someone`'s .
+- I know `someone` there.
+- I saw `someone` i knew.
+- Is `someone` else here?
+- Oh, `someone` pinch me.
+- `Someone` attacked him.
+- `Someone` beat us here.
+- `Someone` close to you?
+- `Someone` get a doctor.
+- `Someone` has seen her.
+- `Someone` has to go in.
+- `Someone` lost the key.
+- `Someone` not his wife?
+- `Someone` put it on me.
+- `Someone`'s back there.
+- `Someone`'s in the way.
+- `Someone` stole my car.
+- `Someone` will find me.
+- Talk to `someone` else.
+- There's `someone` here.
+- Through `someone` else?
+- To belong to `someone`.
+- Uh, `someone` like a...
+- We could ask `someone`.
+- Will `someone` help me?
+- You're `someone` to me.
+- Actually, `someone` did.
+- Can't we call `someone`?
+- Can you spare `someone`?
+- Have you told `someone`?
+- I had to tell `someone`.
+- I kill `someone` famous.
+- I'll find you `someone`.
+- I'll speak to `someone`.
+- I met `someone` tonight.
+- In `someone` else's war.
+- Is it `someone` we know?
+- Is there `someone` else?
+- I've met `someone` else.
+- I�ll send `someone` out.
+- Jasper's lost `someone`.
+- Reminds me of `someone`.
+- `Someone` could hear us.
+- `Someone` else was here.
+- `Someone` from the past.
+- `Someone` gave it to me.
+- `Someone` recommend you?
+- `Someone`'s chasing him.
+- `Someone` that you like.
+- `Someone` tipped us off.
+- `Someone` who loves you.
+- `Someone` you talked to?
+- Well, i met `someone`...
+- You expecting `someone`?
+- You're seeing `someone`?
+- Did you...kill `someone`?
+- From `someone` he trusts.
+- Have you `someone` there?
+- How do you gut `someone`?
+- I got to call `someone`.
+- I mean, `someone`�s dead.
+- I think `someone` hasn't.
+- Listen to `someone` else.
+- So, i'm seeing `someone`.
+- `Someone` alive on earth.
+- `Someone` could be dying.
+- `Someone` else might die.
+- `Someone` else was there.
+- `Someone` gave them guns.
+- `Someone` has tipped him.
+- `Someone` not from maine.
+- `Someone`'s following me.
+- `Someone`'s gonna see us.
+- `Someone`'s got that job.
+- `Someone`'s got to do it.
+- `Someone` so intelligent.
+- `Someone` stole my stuff.
+- We've all lost `someone`.
+- You might hurt `someone`.
+- Changing `someone`'s mind.
+- Dial `someone` else, okay?
+                 

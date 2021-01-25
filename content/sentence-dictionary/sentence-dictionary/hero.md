@@ -1,0 +1,107 @@
+---
+title: "hero in a sentence | hero example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hero"
+---
+- Boys... died a `hero`.
+- Don't be a `hero`, ok?
+- Great american `hero`.
+- My husband the `hero`.
+- I'm a great `hero`.
+- Are you still a `hero`?
+- Bart, you're my `hero`.
+- Being a `hero` and all.
+- He became a big `hero`.
+- I know i'm your `hero`.
+- Super `hero` like even.
+- Wave that flag, `hero`.
+- You're my `hero`, carl.
+- Your mom died a `hero`.
+- You think i'm a `hero`.
+- You were a `hero`, man.
+- A chance to be a `hero`.
+- Are you my brave `hero`?
+- Dead `hero` father rule.
+- I `hero`-worshipped him.
+- You have to be a `hero`.
+- Don't try to be a `hero`!
+- He gets to be the `hero`.
+- So you became the `hero`.
+- You're not even a `hero`.
+- He was a true-blue `hero`.
+- She gets a `hero`'s death.
+- You're everybody's `hero`.
+- You're not a super-`hero`.
+- Are you my big hard `hero`?
+- I shouldn't tease a `hero`.
+- It's what made me a `hero`.
+- I wish my dad was a `hero`.
+- Yeah, you're a real `hero`.
+- Listen, i'm no `hero`, john.
+- Flip was a `hero` in vietnam.
+- Foam lenny, you're my `hero`.
+- Why don't you go play `hero`?
+- Everybody has a `hero`, danny.
+- No, honey, not to be a `hero`.
+- No, kid, you're a real `hero`.
+- We can make `hero` sandwiches.
+- Well, my boy, you're a `hero`.
+- How you doing in there, `hero`?
+- I wasn't trying to be a `hero`.
+- The brand should be the `hero`.
+- You're a `hero` to your people.
+- Don't go and buy another `hero`.
+- I'm dancing with the war `hero`.
+- That way he could exit a `hero`.
+- They're making him a `hero` now.
+- You don't think he was a `hero`?
+- He's gonna play the young `hero`.
+- He was a `hero` in the china sea.
+- My daddy is going to be a `hero`?
+- You beg for a `hero` to kill you.
+- Your father died a `hero`, monty.
+- Ah, to taste the mind of a `hero`.
+- So now you're a big `hero`, right?
+- You gonna be a `hero`, madmartigan?
+- Your daddy is going to be a `hero`.
+- You're going to marry a big `hero`!
+- But no... rambo's gotta be a `hero`.
+- I had to be a damn hemingway `hero`.
+- You like being a `hero`, yeah, home.
+- You've become the `hero` of my book.
+- You are a `hero` for awarding it.
+- You just mentioned `hero` sandwiches.
+- But then again, that's the `hero` gig.
+- Make you a `hero` sure as you're born!
+- `Hero` murphy's kind of freaking me out.
+- He's got a fuckin' `hero` sandwich here.
+- I heard you are the `hero` of iron city.
+- Well, i don't care if dad's your `hero`.
+- You have to be the `hero`, don't you?...
+- Didn't he also say, "show me a `hero` no.
+- Everyday you gotta be everybody's `hero`.
+- She's a damn `hero`, is what she is, sis.
+- Was i the dashing `hero` who got the girl?
+- Like you were the `hero` in the china seas.
+- What they all want -- to handcuff a `hero`.
+- You're the `hero` of the battle of corphon.
+- Don't try to be a `hero`, you can't do this.
+- We're all the `hero` of our own story, john.
+- You want to be a martyr or a `hero` or what?
+- Wait, so i'm a big `hero` to my folks, right?
+- Well, the play makes a `hero` out of a valet.
+- Narcissus: `hero` of the battle of the danube.
+- Your fellow `hero`, untouched... bring him up.
+- Because i am getting tired of being the `hero`.
+- You could still be a `hero` if you'd cooperate!
+- [footsteps] i never said i was a `hero`, madi...
+- Actor who plays you will want to die like `hero`.
+- Because it brought me here... homer is my `hero`.
+- For `hero` to be appreciated, you need a monster.
+- I... because he was a <u>real</u> `hero`, chucky.
+- So, princess, have you ever danced with a `hero`?
+- You just picked that wrong war to be a `hero` in.
+- Not every girl makes a super-`hero`'s night table.
+- Now he's trying to be a `hero` to the liberals ...
+                 

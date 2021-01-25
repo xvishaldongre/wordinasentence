@@ -1,0 +1,107 @@
+---
+title: "tony in a sentence | tony example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tony"
+---
+- He's a plague, `tony`.
+- `Tony`, sit, sit down!
+- `Tony`: the president.
+- `Tony` you fought him.
+- Where is `tony` stark?
+- Come back here, `tony`.
+- I gotta tell ya `tony`.
+- Now i get to be `tony`.
+- They're gettin' `tony`!
+- `Tony`: pep, i got you.
+- `Tony`, you fought him.
+- No, `tony`, forget leon!
+- `Tony`, what's going on?
+- Hi, i'm-i'm `tony` lacey.
+- I blame `tony` pee-pants!
+- It was always me, `tony`.
+- `Tony` called me himself.
+- `Tony` knows [bleep] all.
+- `Tony`: what did you say?
+- `Tony`: what's your name?
+- `Tony`: yeah, we're full.
+- Uh, wrong picture `tony`.
+- C'mon `tony`, waddaya say?
+- Don't fuck around, `tony`.
+- Plus `tony` fucking levin?
+- Sam, `tony`, come in here.
+- `Tony` stark is in my van!
+- `Tony` stark is in my van.
+- A lot has happened, `tony`.
+- Never fear, `tony` is here.
+- No, i'm holding for `tony`.
+- `Tony` and china, together?
+- Yo, you gonna show, `tony`?
+- But your name is fat `tony`.
+- `Tony`: honey... great idea.
+- `Tony`, i don't know... why?
+- `Tony`: just breaking it in.
+- `Tony` -- what do you think?
+- Who is this `tony` clifton?!
+- A double for michael, `tony`.
+- `Tony`: sorry, i gotta split.
+- Is `tony` one of your animals?
+- They're not universal, `tony`.
+- How�d you do this year, `tony`?
+- `Tony`: that ain't gonna cut it.
+- Uh... and... uh... `tony` lacey.
+- I know `tony` better than you do.
+- `Tony`: you like that, westworld?
+- But `tony` says you're a botanist.
+- George, this is gonna kill `tony`.
+- Hey, do you wanna... `tony` stark?
+- Like the time `tony` dogs... fine.
+- How can i be pissed at you, `tony`?
+- That governs repair... `tony`: wow.
+- `Tony` bennett... what do you mean?
+- `Tony` clifton is not andy kaufman.
+- `Tony` i'm gonna need you to focus.
+- `Tony` show him the shirts, adrian.
+- `Tony`, you lost another super-bot?
+- It's classified information, `tony`.
+- This is from `tony` for the rainout.
+- `Tony` has got them in his basement.
+- `Tony`, i'm gonna need you to focus.
+- `Tony` janiro's gotta watch out, eh?
+- I didn't know `tony` bennett painted.
+- This is bigger than `tony` pee-pants.
+- `Tony`: is this forehead of security?
+- Jarvis, ultron, `tony`, me, the stone.
+- There's been some trouble with `tony`.
+- `Tony`: i can't protect you out there.
+- You really didn't deserve her, `tony`.
+- Does `tony` ever tell you to do things?
+- I respect your business, mister `tony`.
+- People are concerned about you, `tony`.
+- `Tony` and china, they're just friends.
+- Does your mum and dad know about `tony`?
+- If `tony` says this is it, then it's it.
+- Isn't `tony` clifton going on taxi soon?
+- Is `tony` the one that tells you things?
+- So `tony` pee-pants starts ignoring kat.
+- `Tony`: and you're starting with plants.
+- `Tony`: it started in bern, switzerland.
+- `Tony`: harley, tell me what's happening.
+- `Tony`: i must have called it in my sleep.
+- `Tony`: you know, and thank you by the way.
+- We're awaiting the arrival of `tony` stark.
+- `Tony`: and what about the suit i'm wearing?
+- `Tony`: he's a chunky monkey, let's get him.
+- `Tony`: as promised, i got pepper sorted out.
+- `Tony`: well, actually, it's a good question.
+- Drinks for everybody `tony`... what can i say?
+- Finally, the sexy story of `tony` roma's ribs.
+- If you book `tony`, do not expect to get andy.
+- `Tony`'s the little boy who lives in my mouth.
+- `Tony` and i have to talk some business, first.
+- If you must know, it's a hectic time for `tony`.
+- `Tony`: jarvis, target extremis heat signatures.
+- `Tony`, you got anything we can put on his face?
+- You know `tony` doesn't have that kind of money.
+- My name is `tony` stark and i'm not afraid of you.
+                 

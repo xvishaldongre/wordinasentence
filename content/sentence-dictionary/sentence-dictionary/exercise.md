@@ -1,0 +1,59 @@
+---
+title: "exercise in a sentence | exercise example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exercise"
+---
+- I don't even `exercise`.
+- What kind of `exercise`?
+- Maybe it's an `exercise`.
+- An `exercise` in futility.
+- It's good `exercise`, mom.
+- Leading us in our `exercise`.
+- Give him some good `exercise`?
+- `Exercise` caution, lieutenant.
+- That `exercise` is an invasion.
+- The `exercise` is good for him.
+- Diet and `exercise` should help.
+- You don't get enough `exercise`.
+- I despise any form of `exercise`.
+- And least fitted to `exercise` it.
+- Why is it a vacant `exercise`?
+- Are you talking ~about `exercise`?
+- But it's just a vacant `exercise`.
+- Leading that team building `exercise`.
+- They don't get fresh air or `exercise`!
+- A little `exercise` in lateral thinking.
+- That was an `exercise` to prove a point.
+- Diet and `exercise`, that's all there is.
+- At least it gives you plenty of `exercise`.
+- The boy should still go out and `exercise`.
+- Chew valerian root and get some more `exercise`.
+- Frankly, it even fails as an `exercise` in craft.
+- I lead maggie through a visualization `exercise`.
+- Snatches up an `exercise` book from a large pile.
+- I have the impression he never gets any `exercise`.
+- Then let me see him go out and get some `exercise`.
+- This `exercise` is about communication and teamwork.
+- No, they wouldn't send us in with bombs on an `exercise`.
+- The iraqi ambassador is claiming it's just an `exercise`.
+- You can eat balanced meals, `exercise`, and take geritol.
+- Those were the guys who went on the `exercise` with you?
+- Vitamins, `exercise`, herb tea... and see a doctor, will ya?
+- Can somebody tell me what the object of the `exercise` is here?
+- The `exercise` was one of his section eight "private sessions".
+- Keep your voice down, this lot'll paste you, just for the `exercise`.
+- This is all the `exercise` i need... maybe we should do some `exercise`.
+- "vigo the carpathian, born 1505, died 1610 --" you need the `exercise`.
+- A gay senator's son who let his sarge get fragged on a training `exercise`?
+- You're going to eat well, meditate, `exercise`, and watch mindless television.
+- ...come on sport, you gotta try harder, i need some `exercise` for chrissake...
+- Having rescued one little life he unwisely set out to repeat the `exercise`.
+- We've just begun the mobilization under cover of a pre-arranged `exercise`, sir.
+- If we're going to get through this we're going to have to `exercise` self control.
+- Then why did you order your man to remove his helmet during a live fire `exercise` ?
+- Must be all the `exercise` i get scampering up and down these stairs like a wee lamb.
+- It'd do you birds some good just to get a little `exercise` lifting your arms to vote!
+- That's the influence of the right food, the right `exercise`, and the right breathing.
+- Presumably so he can now `exercise` his intellect stacking school texts at $1.25 an hour.
+                 

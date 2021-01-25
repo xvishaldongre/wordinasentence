@@ -1,0 +1,68 @@
+---
+title: "fucker in a sentence | fucker example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fucker"
+---
+- Big, twitchy `fucker`.
+- Bag this `fucker` buzzy.
+- `Fucker` never retracted.
+- Get that little `fucker`!
+- `Fucker` rolls in at five.
+- I want that `fucker` dead.
+- Let's shoot this `fucker`!
+- The `fucker` shot himself.
+- I want more life, `fucker`.
+- Just cover the `fucker` up.
+- No, just some crazy `fucker`.
+- You slept with the `fucker`!!
+- But i don't like the `fucker`.
+- You heard me, mother-`fucker`.
+- Some `fucker`'s shootin' at us.
+- Straight from my gun, `fucker`.
+- The little `fucker` was strong.
+- Don't you think of it, `fucker`.
+- No i'm not, you mother-`fucker`!
+- 'yippe-ki-yea, mother `fucker`'?
+- You're a superstitious `fucker`.
+- How do you turn the `fucker` off?
+- Straight from my heart, `fucker`.
+- Straight from my heart, `fucker`.
+- I absolutely hate the `fucker`.
+- Goddam are you suave, you `fucker`.
+- Goddam are you suave, you `fucker`.
+- You're one beautiful `fucker`, ben.
+- Just as high as the `fucker` can go!
+- This `fucker`'s ready to blow... no.
+- What's that `fucker` ever done for us?
+- As i recall, you're the sick `fucker`.
+- '`fucker` could have gotten us all killed.
+- It's a, how do you say... mother-`fucker`.
+- That `fucker`'s dead -- that true, fergus?
+- I'll give it my best shot, mother `fucker`.
+- This `fucker`'s having himself an accident.
+- You a crazy `fucker`, givin' up college man.
+- It's a bullet, straight from my gun, `fucker`.
+- That little `fucker` belongs in the smithsonian.
+- If you ask me, the `fucker` got what he deserved.
+- If you understand what i mean... you ol' `fucker`!
+- The `fucker` would just sit there puke all over himself.
+- What if that `fucker` finds it before we're ready to go?
+- We come across this `fucker` on a roan goin' south an'...
+- There's warsaw, there's this -- you are one sick `fucker`.
+- Or monkey `fucker`- shiteater- we're going to find our boys!
+- We both come out, you cold cock the `fucker`, and we got him.
+- You're gonna - you come out here and talk to me, you `fucker`!
+- He'll kill me anway, sam, shoot though me and kill this `fucker`.
+- This mother `fucker`'s like charles bronson in "the great escape."
+- That deviant `fucker` was right under my nose and i didn't see him.
+- Jesus, that is one big ugly fat `fucker`... dead ahead, 5000 meters.
+- You `fucker`, don't you ever touch lula - you `fucker`, i'll kill you.
+- Tell me what happened, you `fucker`, or i'll tie your dick in a knot.
+- Hey, you, manager... don't get any ideas, `fucker`... see that man there?
+- Please, gabriel, don't... is this the `fucker` you been writing all year!?
+- 'cause that mother `fucker` kennedy stole that fuckin' election, that's why!
+- No, this is the home of the oglala sioux and i want the dog-`fucker` who killed leo.
+- She said she needed my help and i... aw jesus, mace... the sick `fucker` killed her.
+- Thank you, it's so rewarding to imagine my tax dollar finding its way to you, you `fucker`.
+                 

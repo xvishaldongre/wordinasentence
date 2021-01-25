@@ -1,0 +1,107 @@
+---
+title: "build in a sentence | build example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "build"
+---
+- I want you to `build`.
+- To `build` you a lair.
+- `Build` for him a pyre.
+- Maybe i'll `build` one.
+- On that we can `build`.
+- Let's `build` a society.
+- We haven't `build` shit.
+- `Build` our own compound.
+- Oh, we didn't `build` it.
+- We could `build` our own.
+- When did you `build` this?
+- Why `build` this key here?
+- You `build` us a compound.
+- I helped `build` these cells.
+- I'm gonna `build` air fields.
+- I want to `build` it, doctor.
+- `Build` a brace for yours.
+- But you could `build` on that.
+- Enough to `build` 100 bombs.
+- I think i'll `build` a tavern.
+- Maybe we could `build` a fire.
+- You `build` a life of details.
+- `Build` in automated factories.
+- The `build` us another sanctum.
+- I'll `build` in a counter-punch!
+- Specifically how to `build` one?
+- They `build` up with experience.
+- Why didn't i `build` in orlando?
+- How long will it take to `build`?
+- I don’t want to `build` a bomb.
+- The morlocks didn't `build` this.
+- Why did you `build` a whorehouse?
+- But i can `build` anything, buddy.
+- I won't help you `build` monsters.
+- They help us `build` our compound.
+- What do we need to `build` a bomb?
+- You gotta `build` a customer list.
+- Big `build`, square jaw, dark hair.
+- Can we really help `build` a house?
+- Fumes `build` up in the fuel tanks.
+- I didn't `build` the fucking thing.
+- I didn't `build` this for a junkie.
+- Need you to `build` a radio beacon.
+- So we can `build` our own compound.
+- A man in a suit with a slim `build`.
+- He hired you to `build` this place ?
+- _ how to `build` a radiation shield.
+- I thought you were a `build`-a-bear.
+- And then i'm going to `build` things.
+- Did you `build` the estadio olympico?
+- How similar in `build` you and i are.
+- I'm helping george `build` his house.
+- We should `build` a collection first.
+- Why don't you just `build` something?
+- `Build` them a dormitory in the woods.
+- I was starting to `build` my own life.
+- No, i'm usin' it to `build` somethin'.
+- What'd you do, <u>`build`</u> this...?
+- Why did you `build` this whole place ?
+- Can't `build` no civilization that way.
+- Can't...can't you `build` the old mill?
+- Can you `build` a house in four months?
+- I could `build` a house and live in it.
+- I'm gonna `build` bridges a mile long .
+- I want the evening to `build` and `build`.
+- _ we can't let raven `build` the portal.
+- We need to break her and `build` her up.
+- You can `build` another one... with her.
+- Are we going to `build` our little house?
+- `Build` the bridge over the tsavo river.
+- This thing of ours, that we will `build`.
+- Wha-- what kind of things do you `build`?
+- Raven stays here to `build` up defenses.
+- So they `build` another death star, right?
+- They can't `build` anything like that yet.
+- They don't `build` them like this anymore.
+- Your dad's really gonna `build` his house?
+- I have the power to `build` a time machine.
+- Just how easy is it to `build` a... device?
+- Or i'll take my business to `build`-a-bear.
+- Should we seek to destroy -- or to `build`?
+- We met in graveyards to `build` that union!
+- Why would someone `build` a ship like this?
+- You have 24 hours to `build` my tree house.
+- Men come... that's what i... you `build` it!
+- That we `build` out of scrap and a computer.
+- `Build` your children the school of tomorrow.
+- To work the machines and `build` the tunnels.
+- We'll `build` you a darkroom in the basement.
+- You'll `build` a wall that... where are they?
+- ese foxholes aren’t gonna `build` themselves.
+- Harry, are we gonna `build` this thing or not?
+- I'm living here while i `build` another house.
+- I want to `build` something, make things grow.
+- Try to `build` a mental picture of the script.
+- Hey, guys, the wall's not gonna `build` itself.
+- Men come work for you... you fucking `build` it!
+- Prince albert was going to `build` a bench here.
+- We'll `build` character by building it ourselves.
+- Been fixin' to `build` me fence one of these days.
+                 

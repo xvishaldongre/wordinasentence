@@ -1,0 +1,107 @@
+---
+title: "poor in a sentence | poor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "poor"
+---
+- But alas `poor` romeo!
+- Jeez, `poor` ronnie...
+- Oh, my `poor` stomach.
+- `Poor` brenda frazier.
+- Oh, did i say "`poor`"?
+- `Poor` impulse control.
+- `Poor`, noble isle...".
+- `Poor`, `poor` ninotchka.
+- Ah, my `poor` josephine.
+- A `poor` choice of word.
+- I gave it to the `poor`.
+- Kicking that `poor` boy?
+- Killed the `poor` thing.
+- Now that's `poor` taste.
+- Oh christ... `poor` dog.
+- Oh - oh, `poor` dorothy!
+- `Poor` little rich girl.
+- That `poor` little girl.
+- That `poor`, lonely man.
+- He was mad, `poor` devil.
+- I thought we were `poor`.
+- It's `poor` salesmanship.
+- Oh my son, my `poor` son!
+- `Poor` darling, and then?
+- Those `poor` `poor` people.
+- Would you kill `poor` me?
+- Here it comes, `poor` tom.
+- He said he grew up `poor`?
+- `Poor` little grusinskaya!
+- There's some `poor` s.o.b.
+- He laughed -- `poor` devil!
+- He's `poor`, this wrestler!
+- Hmm, that `poor` clown man.
+- I lied to this `poor` girl.
+- `Poor` frankie five-angels.
+- Don't bother the `poor` boy.
+- `Poor` communication skills.
+- I'm a `poor` businessman.
+- Babe brother is a `poor` boy.
+- But we weren't `poor` either.
+- `Poor` kitty; puss puss puss.
+- `Poor` man had to leave town.
+- What about that `poor` woman?
+- I know my behavior was `poor`.
+- It ain't no joke being `poor`.
+- No, no, roy, just cash `poor`.
+- `Poor` thing, don't cry, rose.
+- She came from a `poor` family.
+- ♪ would they see a `poor` boy?
+- Must've been hard being `poor`.
+- Oh, let the `poor` devil alone.
+- `Poor` thing has a little dick.
+- The `poor` girl's out of a job.
+- We're just a `poor` substitute.
+- I took pity on the `poor` woman.
+- Let the `poor` thing go quietly.
+- Now it's patriotic to be `poor`.
+- `Poor` boy, has to work so hard.
+- `Poor` fatty never had a chance.
+- `Poor` girl... oh my g-d. honey!
+- Uhhhh... `poor` mr. price -- oh.
+- We're both from `poor` families.
+- Them `poor` diseased puppies!
+- But the `poor` kid's going crazy.
+- Remember, it has `poor` eyesight.
+- ", that's considered `poor` form.
+- What do you mean, you `poor` ham!
+- Yes, i heard about `poor` warren.
+- You're a `poor` little rich girl.
+- But it destroyed my `poor` mother.
+- Couldn't some go to `poor` people?
+- I'll take care of `poor` rosemary!
+- She's very tired, `poor` creature.
+- Well, her people were very `poor`.
+- Well, that's my `poor` upbringing.
+- We've all done a `poor` job of it.
+- You're just `poor` white trash!
+- I thought, that `poor`... - genius.
+- `Poor` freud, turning in his grave.
+- `Poor` thing, you ought to get out.
+- The board is using this `poor` guy!
+- Always picking on `poor` little roy.
+- The `poor` girl never came back.
+- He was easy to dislike, `poor` chap.
+- I am only a `poor` corrupt official.
+- That `poor` girl is in a tough spot.
+- This is a joke in very `poor` taste.
+- Now you're tired, `poor` darling.
+- He's mentally retarded, `poor` thing.
+- `Poor` little eggy, leaking your goo.
+- `Poor` rose, what a life she has had.
+- She was raised on a `poor` dirt farm.
+- You mean the `poor` -- of course not.
+- Easier than learning how to be `poor`.
+- `Poor` mother was completely taken in.
+- Rich or `poor`, the odds are the same.
+- You `poor` sausage, are you all right?
+- After all, i'm just a `poor` bourgeois.
+- I just feel sorry for the `poor` thing.
+- I'm afraid `poor` toto will have to go.
+                 

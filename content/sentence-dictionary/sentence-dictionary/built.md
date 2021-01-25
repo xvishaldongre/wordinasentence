@@ -1,0 +1,107 @@
+---
+title: "built in a sentence | built example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "built"
+---
+- So they `built` bombs.
+- It was `built` for her.
+- It was `built` to move.
+- Worst car ever `built`.
+- Why did they `built` it?
+- I've already `built` one.
+- We `built` them all over.
+- The cia `built` that club.
+- `Built` this cabin above it.
+- Custom- `built`.forty knots.
+- Says the man who `built` it!
+- So that's what they `built`.
+- You `built` that from scrap?
+- `Built` like a brick kremlin!
+- `Built` to sustain thousands?
+- I'd have `built` you a house.
+- I'll have the fire `built` up.
+- It was `built` from both ends.
+- You `built` this body for her.
+- Hell, i even `built` the props.
+- It was `built` as a guesthouse.
+- My father `built` your company.
+- That's the way god `built` you!
+- The jelly `built` itself a can.
+- You've never `built` in africa.
+- I can't believe we `built` this.
+- The man who `built` the first...
+- There are safeguards `built` in.
+- They `built` one for each of us.
+- ...and a body `built` for battle.
+- I thought she `built` it herself.
+- That's why you `built` this ship?
+- This guy's `built` like a pebble!
+- Bucharest wasn't `built` in a day.
+- `Built` like you wouldn't believe.
+- You don't know what he's `built`?!
+- Your grandaddy `built` it himself.
+- Nobody ever `built` them like this!
+- So whoever `built` this-- yeah, so?
+- You `built` her a pair of fast legs.
+- Your life is not `built` on nothing.
+- A coma car - `built` to german specs.
+- `Built` to withstand a nuclear blast.
+- Do you know how i `built` that trust?
+- He `built` it when he was with leora.
+- We should have `built` a bigger bomb.
+- You `built` a prototype at whitehall.
+- You're the only one `built` for this.
+- You're well `built`; how old are you?
+- It won't get our compound `built`.
+- I need to know how skynet get `built`.
+- I own the house, my father `built` it.
+- Maybe we `built` the damn thing wrong.
+- Not anything `built` into the chassis.
+- This place is `built` like a fortress.
+- Of course, he `built` it for her - yes.
+- The convent was `built` for over fifty.
+- We `built` the camp here because of it.
+- When i was at whitehall, i `built` one.
+- Bro, what you `built` was a work of art.
+- This is a new world still being `built`.
+- I `built` this machine to see the future.
+- My second host `built` that, alejo, yeah.
+- Relationships are `built` on trust, hope.
+- She and i - we' not `built` the same way.
+- So far you haven't `built` up any points.
+- We tell stories of a place stone-`built`.
+- He `built` that gate and these damn walls.
+- An entire religion, `built` on an oxymoron!
+- Fan-forced air-trains, `built` around 1870.
+- He `built` a gorgeous tension and suspense.
+- The `built` more turbines than they needed.
+- Raven could have `built` a cathedral by now.
+- She's fucking prejudiced, but she's `built`.
+- So i `built` another ... and that stayed up.
+- This place was `built` the same from day one.
+- I can't believe your dad `built` this for you.
+- That summer i `built` the patio at your house?
+- The children hugh crain `built` the house for.
+- Was a military base `built` within a mountain.
+- Well, ruth shoulda `built` it a little better.
+- Mount weather wasn't `built` to last this long.
+- There's a camera `built` right into the bridge.
+- Wow, we `built` a whole float in one afternoon.
+- A few fans `built` a little set in their garage.
+- Don't worry, these babies are `built` for speed.
+- I `built` my first model here when i was twenty.
+- It's an electric chair that was `built` in 1896.
+- I was never `built` for these moonlight strolls.
+- Dorothy -- what if i'm just not `built` that way?
+- I `built` this operation, you fucking turd stain.
+- If it's `built` on a crime, they deserve to know.
+- I'm not the fucking alien that `built` the thing.
+- Men who `built` the a-bomb - raven... - i'm good.
+- Six foot one, strongly `built`, about 190 pounds.
+- What was god thinking when he `built` this place?
+- I mean, if you `built` this thing i can't do it...
+- Jerses i want it `built` up in the daily action...
+- What do you think he `built` that opera house for?
+- `Built` and maintained by broken- hearted children!
+                 

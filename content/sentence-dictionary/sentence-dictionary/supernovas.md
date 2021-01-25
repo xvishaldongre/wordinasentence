@@ -1,0 +1,7 @@
+---
+title: "supernovas in a sentence | supernovas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supernovas"
+---
+## Unfortunately, we have no example sentences for supernovas                 

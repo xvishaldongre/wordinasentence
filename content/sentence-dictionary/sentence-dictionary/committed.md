@@ -1,0 +1,65 @@
+---
+title: "committed in a sentence | committed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "committed"
+---
+- `Committed` to memory.
+- So i'm `committed`.
+- I should be `committed`.
+- You `committed` treason.
+- Get yourself `committed`?
+- I have `committed` no sin.
+- We're totally `committed`.
+- She `committed` atrocities.
+- You `committed` some crime?
+- I `committed` no war crimes.
+- Well, he hasn't `committed`.
+- He's `committed` to our care.
+- She `committed` suicide baxter.
+- What sins have you `committed`?
+- Green `committed` to a thousand.
+- Only way to be 100% `committed`.
+- You said she `committed` suicide?
+- So, is your man truly `committed`?
+- Because it just `committed` suicide.
+- Who `committed` murder during a test.
+- You have `committed` the sin of pride.
+- Yes, she `committed` suicide yesterday.
+- Your daddy never `committed` no murder.
+- Your husband... he `committed` suicide?
+- I ought to fuckin' have you `committed`.
+- A crime was `committed` in new york city?
+- Told me you `committed` suicide last night!
+- Were `committed` to a war in southeast asia.
+- What hideous sin have you `committed` lately?
+- If i wasn't already `committed` to lydia, boy.
+- Are you so `committed` you cannot face the truth?
+- Each of you has `committed` crimes against wonkru.
+- ...stupid kid who `committed` that terrible crime.
+- You realize, however, that you `committed` a crime?
+- A young, wild, i'm `committed` to nuke for the season.
+- Then he couldn't have `committed` those other murders.
+- I asked the officers if you had `committed` some crime...
+- It seems to me i already got my boys `committed` elsewhere.
+- You couldn't be a criminal if you `committed` a major crime.
+- In chattanooga this man `committed` an almost perfect murder.
+- How many sins have you `committed` since your last confession?
+- Yellow bird `committed` suicide at three o'clock this morning.
+- Don't act like you've never `committed` a crime before, hawkins?
+- Each of these 4 combatants have `committed` crimes against wonkru.
+- So the sheriff had got an uncle who's `committed` a serious crime.
+- All i know is the bank's been robbed and a murder's been `committed`.
+- I've also `committed` numerous healthcode violations in my restaurant.
+- We also know your contact in pittsburgh since jason `committed` suicide.
+- Because your crimes were `committed` to save your people, how do you feel?
+- He `committed` suicide before he got published, and look how famous he is.
+- You have `committed` a crime against our people, what do you want me to do?
+- Once a performance is `committed` to film, the blood and bones are gone anyway.
+- They're simply `committed` to the cause, hey, buddy, thanks for saving me a spot.
+- We haven't quite decided whether he `committed` suicide or died trying to escape.
+- Normally, i'd go for that sort of thing, but now i'm in a `committed` relationship.
+- `Committed` by those above the age of maturity you're gonna be ok. echo, look around you.
+- Each of you have `committed` crimes against wonkru, your heart shows no sign of weakness.
+- At sixteen he `committed` his first murder -- a pretty teacher's aid named molly pettygrove.
+                 

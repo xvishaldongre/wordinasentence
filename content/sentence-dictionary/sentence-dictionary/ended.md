@@ -1,0 +1,96 @@
+---
+title: "ended in a sentence | ended example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ended"
+---
+- We `ended` in f major?
+- That `ended` the world.
+- He just `ended` the war.
+- That `ended` that dream.
+- That�s why i `ended` it.
+- You `ended` the reaping.
+- Oh, it just `ended`, then.
+- That's not how it `ended`.
+- The marriage already `ended`.
+- You just `ended` up together.
+- You remember how that `ended`.
+- The marriage `ended` in divorce.
+- That's how i `ended` up here.
+- Start with how the world `ended`.
+- Senator nole just `ended` the war.
+- All three of us `ended` up in angola.
+- But that's how it should have `ended`.
+- My life `ended` the day you were born.
+- Sammy `ended` up in an institution - !
+- Where that code `ended` up, that's all.
+- Computer program that `ended` the world.
+- It's not your fault it `ended` this way.
+- I `ended` up collapsing in a wheat field.
+- I think my sleep for the night just `ended`.
+- We could have `ended` up in the incinerator!
+- If the horn be restored the curse is `ended`.
+- You almost `ended` my career before it began.
+- I could have `ended` it tonight, but i didn't.
+- Since that guy rear-`ended` me in palm springs.
+- I guess we `ended` up doing more harm than good.
+- Plus, it `ended` my marriage -- sure i loved it!
+- Somehow a head always `ended` up on the counter.
+- Well, we started it, he `ended` it... oh, god...
+- For me, the tiny green plastic war never `ended`.
+- You `ended` up at uc berkely -- not a problem.
+- The only one who `ended` up falling for it was me.
+- Transplant `ended` up under the wheels of a chevy.
+- But that `ended` your career with the big airlines.
+- Every attempt to fight them has `ended` in failure.
+- I'd still go through--even if i `ended` up in jail.
+- I told you my life `ended` the day you were born.
+- You were criminals that `ended` up at alpine grove.
+- But anyway, after my boxing career `ended`, fall in.
+- I was praying this curse would have `ended` with me.
+- So, mccall, how come you `ended` up in san francisco?
+- Will you be my partner on the double-`ended` bucksaw?
+- They've only just begun ... 'our revels now are `ended`.'
+- I `ended` up breaking down and buying it a few days later.
+- Yes - it `ended` - then there was susie - that `ended`, too.
+- I mean, why do you think i `ended` up back in this shithole?
+- It began, "ninotchka, my darling," and `ended`, "yours, leon."
+- Why did you escape to switzerland just before the war `ended`?
+- Maybe that's why he `ended` up dead in the streets of rome.
+- He's been waiting for the money since the fucking game `ended`.
+- If this war `ended` tomorrow, zion is where the party would be.
+- Antha...your grandmother...her life `ended` there, on the stones.
+- Last time you needed my help i `ended` up in the back of a truck.
+- She called the fbi and they both went down, `ended` up at lompoc.
+- I `ended` the war, i got salt i with the russians, i opened china!
+- When i sent you to kill my wife you `ended` up sexing her instead.
+- The rest, hell, you were the one who `ended` things with me, emori.
+- My last job... it... the person i was working for... the job `ended`.
+- I wouldn't like it if this partnership `ended` before it gets started.
+- Yo -- he `ended` up moving back to milwaukee to live with his parents.
+- You haven't been able to deal with anything since high school `ended`!
+- A cenotaph -- a monument to someone whose remains `ended` up elsewhere.
+- That was how i `ended` up in a barber shop quartet in skokie, illinois.
+- I'm trying to figure out why we each `ended` up with different symptoms.
+- Besides, as soon as your leg heals, the war `ended` two years ago, creep.
+- The last time i took orders from you i `ended` up with five years probation.
+- They worked themselves to death, but cohaagen `ended` up with all the money.
+- Of the one safe place on this moon but my responsibility `ended` at ka-ching.
+- Then we `ended` up in a parking lot and he put peas around my hand to fix it.
+- You directed me to report to you the moment the king's conference was `ended`.
+- You started the week stealing the sforza and you `ended` it swiping the codex.
+- If i hadn't gotten rid of her now, i'd have `ended` up writing her forever.
+- The guy never saw his kids, one of whom, i think, `ended` up in an asylum-- who?
+- I don�t wanna know who you are or how come you `ended` up roasting in owl canyon.
+- When the supper had `ended`, he took the cup, again he gave you thanks and praise.
+- I quit workin' for 'im, but just before i did, i `ended` up one night at a house...
+- All i know's he came to take the tv one afternoon and `ended` up staying for dinner.
+- He was seeing other women -- asking other nurses at the hospital out, so i `ended` it.
+- Your self-image started to rub off on me and i `ended` up thinking that i was strange.
+- On one mission, i had to pass up three and `ended` up living on rats and chocolate bars.
+- Who all `ended` up wearing candles for faces... swayzak's up to his ass in this somehow.
+- Would any of you be interested in knowing exactly why i `ended` up here in the basement?
+- After the hostilities are `ended`, there will be such a thing as a war crimes commission.
+- But i'm sorry it `ended` like this -- tossed off a train like a sack of third-class mail.
+- We just got married too young, and `ended` up blaming each other for missing out on things.
+                 

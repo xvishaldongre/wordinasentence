@@ -1,0 +1,107 @@
+---
+title: "blood in a sentence | blood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blood"
+---
+- `Blood` has been shed.
+- `Blood`'s on the butt.
+- I'm losing my `blood`!
+- It ran out of `blood`.
+- It's not just `blood`.
+- She's got the `blood`!
+- She's got the `blood`.
+- The `blood` is horror.
+- They use your `blood`.
+- Those `blood` suckers.
+- Egypt is in my `blood`.
+- I need the `blood` now.
+- Our `blood` heals them.
+- This bucket of `blood`.
+- Was there much `blood`?
+- What about the `blood`?
+- `Blood` must have `blood`!
+- `Blood` must have `blood`.
+- Get the `blood` flowing.
+- His `blood`'s always up.
+- Hungry for your `blood`.
+- I'll check your `blood`.
+- I took away the `blood`.
+- It was after my `blood`.
+- Kill me in cold `blood`?
+- No `blood` on the knife.
+- Take some of my `blood`.
+- The `blood` transfusion.
+- Too rich for my `blood`.
+- You just needed `blood`.
+- You know me and `blood`.
+- A traitor to the `blood`.
+- Bits of `blood` and wood.
+- ...`blood` has been shed.
+- `Blood` is a big expense.
+- `Blood` is not a turn on.
+- Shot him in cold `blood`.
+- There's a lot of `blood`.
+- This isn't human `blood`.
+- To keep the `blood` flow.
+- Water turning to `blood`.
+- We have `blood` to spare.
+- You draw first `blood`...
+- Been a lot of bad `blood`.
+- `Blood`... come on, blade.
+- "`blood` must have `blood`."
+- For that `blood`, jackson.
+- I'm a full-`blood` oglala.
+- Is there a lot of `blood`?
+- It was written in `blood`.
+- There was no `blood`, man.
+- This is <u>my</u> `blood`!
+- To be her `blood` brother.
+- We kill the black `blood`.
+- What's left of my `blood`.
+- You don't see any `blood`?
+- You'll taste real `blood`!
+- You lost too much `blood`.
+- You need his `blood`-type.
+- `Blood` has answered `blood`.
+- `Blood`... must have `blood`.
+- His `blood` is ab positive.
+- I am that `blood`, general.
+- Is there any `blood` in it?
+- Off the `blood` of animals?
+- Play for `blood`, remember?
+- The `blood` is still there.
+- There was some bad `blood`.
+- This is not giving `blood`.
+- Whose `blood` is that, jay?
+- You're losing your `blood`?
+- The `blood` let you out?
+- `Blood` must not have `blood`.
+- But i want `blood` and gore.
+- But no drugs in her `blood`.
+- Do you see any more `blood`?
+- Flesh, skin, hair...`blood`.
+- Had a lot of `blood` in him.
+- He's got `blood` in his eye.
+- How much `blood` has he had?
+- I hate the sight of `blood`.
+- I'm gonna need your `blood`.
+- It was just her own `blood`.
+- I vant to suck your `blood`.
+- I want `blood` for my `blood`.
+- Lamagra -- the `blood` tide.
+- She'd lost a lot of `blood`.
+- She's lost a lot of `blood`.
+- She's lost too much `blood`.
+- That's a lot of bad `blood`.
+- The `blood` was running out.
+- The `blood` will not return.
+- There was so much `blood`...
+- We're going to draw `blood`.
+- Where'd you get the `blood`?
+- Where's the fuckin' `blood`?
+- All they want is the `blood`.
+- `Blood` has been shed, jerry.
+- "`blood`, sweat, and canvas".
+- Chicken `blood` on the crops.
+                 

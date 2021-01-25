@@ -1,0 +1,107 @@
+---
+title: "television in a sentence | television example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "television"
+---
+- I have a `television`.
+- Who's on `television`?
+- See this, `television`!
+- `Television` or movies?
+- What about `television`?
+- Hey, you on `television`?
+- It's on the `television`.
+- I watch `television` too.
+- On national `television`.
+- Working for `television`?
+- We saw it on `television`.
+- He's watching `television`.
+- I don't own a `television`.
+- It was on the `television`.
+- This guy's on `television`!
+- This guy's on `television`.
+- Does it have a `television`?
+- On the goddamn `television`!
+- I've seen it on `television`.
+- Jack, you're on `television`.
+- I've seen you on `television`.
+- You put cliff on `television`.
+- It was my fucking `television`.
+- I wasn't watching `television`.
+- Watching `television` in color.
+- But i had faith in `television`.
+- I'm watching it on `television`.
+- I'm working in `television` now.
+- It'll be like live `television`!
+- The group watching `television`.
+- They're `television` characters.
+- You watch too much `television`.
+- This live `television` is madness!
+- Wha'd `television` ever do to you?
+- Have you ever been on `television`?
+- I have seen styles on `television`.
+- It's the influence of `television`.
+- I would like to watch `television`.
+- "60 minutes," the `television` show?
+- I saw you on `television` yesterday.
+- Saw it on a `television` show, once.
+- That's all `television` is, my dear.
+- He's a reality `television` producer.
+- I've done no `television` whatsoever.
+- They make it into `television` shows.
+- Weren't you on a `television` series?
+- I'm not fond of `television` comedies.
+- My father is a `television` repairman.
+- Oh, you've been watching `television`.
+- Alvy's giving an award on `television`.
+- It's on national `television`, barnett.
+- Do they have auditions for `television`?
+- I've seen your `television` commercials.
+- Jesus christ we're on `television` here!
+- But i have seen the army on `television`.
+- I think `television`'s a dangerous thing.
+- It's self-reflexive reality `television`.
+- "thunderbirds" plays on the `television`.
+- I don't watch as much `television` as you.
+- They don't speak that way on `television`.
+- Uh, uh...we didn't have `television` then.
+- Yes, `television` ] is rotting our brains!
+- Yes, i have seen that show on `television`.
+- He was watching a ball game on `television`.
+- She's a prisoner of public `television` now.
+- They only know you from `television` anyway.
+- We're gonna veg' out and watch `television`.
+- That's what comes of working in `television`.
+- The biggest waste of time since `television`.
+- When my face is all over the `television`.
+- Hey, girls -- i was on `television`... howard!
+- One glances at things, watches `television`...
+- Fox `television` studios -- lobby -- next okay.
+- Have you listened to the radio or `television`?
+- 'cause i wanna watch the knicks on `television`.
+- I kissed my boyfriend's brother on `television`!
+- On `television`, you seemed so sure of yourself.
+- She's auditioning for a `television` commercial.
+- She's never seen a movie or a `television` show.
+- We have enough of those on `television` already.
+- Pictures like this don't show up on `television`!
+- You want me to move the `television` set in here?
+- Every time you're on `television` i get mentioned.
+- Lately, we've been getting your `television` also.
+- I just realized this is for `television`, isn't it?
+- I've never seen anything like this on `television`.
+- When i was your age, `television` was called books.
+- I had the `television` set had the `television`- yeah?
+- I haven't, i haven't been in `television` for a year.
+- No `television`, forget the homework, no phone calls.
+- Yes but, we were wondering- it's a `television` show.
+- You can see it out your window or on your `television`.
+- You got money for your bullshit `television`, don't you?
+- You might fall between that chair and this `television`.
+- How is it possible to see this `television` without film?
+- To get him to trust us, to get him to go on `television`.
+- Let's take a look at the `television` and see how we look.
+- Maybe... look -- just... you want to watch some `television`?
+- You next move, it seems to me, should be toward `television`.
+- Y'know how i said that stuff on `television` didn't bother me?
+                 

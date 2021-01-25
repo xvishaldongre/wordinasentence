@@ -1,0 +1,107 @@
+---
+title: "call in a sentence | call example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "call"
+---
+- `Call` 'em that, yeah.
+- `Call` it our theater.
+- `Call` me back in ten.
+- `Call` me sentimental.
+- `Call` me spontaneous.
+- `Call` the coastguard?
+- Did you `call` anyone?
+- Don't `call` him that.
+- Don't `call` me a bum!
+- Don't `call` me honey!
+- Get out, i `call` 911.
+- I better `call` again.
+- I `call` that regular.
+- I can `call` upstairs.
+- I can't `call` it off.
+- I'll `call` from work.
+- I'll `call` her later.
+- I'll `call` you a cab.
+- I'll `call` you again.
+- I'll `call` you later.
+- I'll `call` you later.
+- I'll `call` you, okay?
+- I'll `call` you there.
+- I'm gonna `call` boyd.
+- I say we `call` it in.
+- It's your `call`, pal.
+- It's your `call`, rob.
+- It was a tough `call`.
+- Just `call` me barney.
+- Just `call` me creasy.
+- Just `call` me daphne.
+- Just `call` me gaston.
+- Just `call` me junior.
+- Just `call` me spidey.
+- Just `call` us harvey.
+- Krieger was my `call`.
+- Lemme make the `call`.
+- Linda, `call` vaughan.
+- Never `call` him that.
+- Phone `call`, clarice.
+- Please `call` me bill.
+- Tell me you'll `call`.
+- That's an easy `call`.
+- Then `call` documents.
+- The phone `call`, man.
+- They `call` him names.
+- They gave me a `call`.
+- We'll `call` it excom.
+- We'll `call` you back.
+- What do you `call` it?
+- What'd you `call` him?
+- Why did she `call` me?
+- Why did you `call` me?
+- Yes, `call` me simone.
+- You `call` that a sip?
+- You `call` that lucky?
+- You `call` that order?
+- You `call` them again.
+- You `call` this a map?
+- You can `call` me doc.
+- You can `call` me jim.
+- You have to `call` me.
+- You'll `call` me then?
+- You need to `call` it.
+- You should `call` her.
+- Ain't your `call`, man.
+- And `call` the doctors.
+- A puff-up, i `call` it.
+- `Call` donovan, marcus.
+- `Call` me a cocksucker!
+- `Call` my chiropractor.
+- `Call` off the mission.
+- `Call` off the patrols.
+- `Call` the white house.
+- `Call` up headquarters.
+- `Call` you later, jeff.
+- Did you `call` the zoo?
+- Don't `call` me father.
+- Don't `call` me fletch.
+- Don't `call` them that.
+- Faith, `call` me, okay?
+- I `call` him a monster.
+- I `call` myself phoebe.
+- I'll `call` for backup.
+- I'll `call` them, okay?
+- I'll `call` the police.
+- I'll `call` you a taxi.
+- I'm sure she'll `call`.
+- Is dr. davis on `call`?
+- It's your `call`, will.
+- I will `call` you back.
+- I wouldn't `call` that.
+- Oh, okay, can i `call`?
+- Our first phone `call`!
+- Please, `call` me alan.
+- Please, `call` me gale.
+- Please `call` me peggy.
+- Shouldn't we `call` in?
+- Sir, i took the `call`.
+- The `call` i just made?
+                 

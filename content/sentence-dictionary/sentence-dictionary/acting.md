@@ -1,0 +1,107 @@
+---
+title: "acting in a sentence | acting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "acting"
+---
+- You're `acting` weird.
+- I think she's `acting`.
+- I am not `acting` weird!
+- I'm only `acting` crazy!
+- Try this `acting` thing.
+- Don't start `acting` hurt.
+- He's in my `acting` class.
+- So are you still `acting`?
+- You are `acting` like one!
+- He'd been `acting` strange.
+- Studied `acting`, i assume?
+- They were `acting` nervous.
+- Yes `acting` the way we do.
+- `Acting` sergeant john rico.
+- I'm `acting` correctly here.
+- Is david `acting` strangely?
+- Okay, you're `acting` weird.
+- Resentment and `acting` out.
+- She's `acting` weird, vince.
+- So why you `acting` so mean?
+- Then stop `acting` like one.
+- You're not `acting` like it.
+- He was `acting` like... what?
+- Look how you're `acting` now!
+- Stop `acting` like an infant.
+- Vlad, stop `acting` this way!
+- You're `acting` like a child.
+- You're `acting` like a rando.
+- You're `acting` really weird.
+- Oh, i'm in her `acting` class.
+- Why are you `acting` this way?
+- You're `acting` kind of...odd.
+- You're `acting` very immature.
+- `Acting` dumb doesn�t suit you!
+- I knew you were `acting` weird.
+- I quit that `acting` shit, man.
+- Quit `acting` all squeezed out.
+- Why are you `acting` like this?
+- `Acting` in a suspicious manner.
+- What sort of `acting` do you do?
+- Why is he `acting` so strangely?
+- I only enjoy `acting` for myself.
+- I told you i was bad at `acting`.
+- So you're going to stop `acting`?
+- Do you think she's `acting` weird?
+- He was just `acting` very strange.
+- Pretend it's an `acting` job, kid.
+- You're `acting` like a guilty man.
+- Dad, why are you `acting` this way?
+- He was not `acting` on mad impulse.
+- Oh, jenny was in my `acting` class.
+- Rico, you're `acting` sergeant now.
+- You're `acting` like a school girl.
+- You're offering me an `acting` job?
+- You've been `acting` weird all day.
+- You were the `acting` chancellor...
+- I knew you were `acting` weird, too.
+- I was `acting` as a private citizen.
+- Said he'd been `acting` up in class.
+- Stop `acting` like a colonel, henry.
+- Why are we `acting` like she's dead?
+- You're `acting` like a crazy person.
+- I know i was `acting` funnyi'm sorry.
+- You think i've been `acting` strange.
+- I'm the only one `acting` normal here!
+- Stop `acting` like a silly little fag!
+- What's this `acting` class guy's name?
+- Yeah, you're `acting` like she's dead.
+- George, you're `acting` very strangely.
+- He's been `acting` real strange lately.
+- I won't have you `acting` like a tramp!
+- My mate has been `acting` very strange.
+- They're `acting` very strange suddenly.
+- `Acting` as landing roets, last time?
+- 'd if you don't catch my `acting` debut.
+- Dwayne was there, `acting` all official.
+- No, homer, she's just `acting` the part.
+- She's been `acting` weirder than normal.
+- Yeah, i think i've had it with `acting`.
+- Am i `acting` as if... something's wrong?
+- I'll just have... she was `acting` weird.
+- I'm sorry i've been `acting` like a jerk.
+- She's been `acting` weird lately, though.
+- He keeps on `acting` like such an asshole!
+- Now come on - you're `acting` silly -- oh!
+- Well, he certainly isn't `acting` like it.
+- Yeah, no, you're `acting` like she's dead.
+- You let him see your passion for `acting`?
+- You're `acting` like you're on trial here.
+- You were `acting` like a different person.
+- Filmore i was `acting` under legal counsel!
+- They were all `acting`, from the beginning.
+- Clarke, you're not `acting` like someone no.
+- Mrs. parker, was kristen `acting` different?
+- Anyway, i hate the idea of `acting` paranoid.
+- Clarke, you're not `acting` like someone now.
+- Jack ... jack ... you're `acting` like a kid.
+- Ninty-nine percent of `acting` is commitment.
+- She's `acting` like she doesn't even know me.
+- I was `acting` in the town's best interests...
+                 

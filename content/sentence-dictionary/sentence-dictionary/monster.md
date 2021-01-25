@@ -1,0 +1,107 @@
+---
+title: "monster in a sentence | monster example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "monster"
+---
+- I call him a `monster`.
+- He's a <u>`monster`</u>!
+- Then the `monster` dies.
+- Yes, you're a `monster`.
+- That woman's a `monster`.
+- There was this `monster`.
+- What is it, a `monster`?!
+- I feel like his `monster`.
+- The `monster`'s my friend.
+- Fight the `monster` inside.
+- I'm some kind of `monster`.
+- You've created a `monster`.
+- About what a `monster` i am?
+- Was it your plan, `monster`?
+- Claimed they saw a `monster`.
+- He is... a fuckin' `monster`.
+- So does the shadow `monster`.
+- Turning her into a `monster`.
+- You'd be my second `monster`.
+- You `monster`... we gotta go.
+- You're not a `monster`, craig.
+- What kind of `monster` are you?
+- Bottle, but i'm not a `monster`.
+- I'm not the `monster` you think.
+- In '52 i called him a `monster`.
+- Map is kinda dirty, `monster`...
+- What a fucking `monster` she is!
+- What d'ya mean "what `monster`?'
+- You are that soulless `monster`.
+- You must think i am a `monster`.
+- No, el, you're not the `monster`.
+- We are awesome `monster`-bashers!
+- Can we watch the `monster` movies?
+- It was... it was a... a `monster`.
+- Maybe you're creating a `monster`.
+- A legendary `monster` called mbwun.
+- A `monster` comes out of the night.
+- Jesus... we've created a `monster`.
+- Yeah, this is the `monster` killer!
+- He turned that `monster` into stone!
+- I know... you are a `monster`, zorg!
+- What if it's some kind of `monster`?
+- Where's the scary `monster` now huh?
+- Get <u>away</u> you little `monster`.
+- My original sketch for the `monster`.
+- And it mutated into a jelly `monster`.
+- You... you don't know me -- `monster`.
+- Our `monster` would be gary cooper.
+- Did whittlesley's `monster` have claws?
+- He just gave me his "`monster`" speech.
+- More food for the sea `monster`, right?
+- That's what every `monster`-maker says.
+- What does this `monster` have to mourn?
+- What kind of goddamn `monster` are you?
+- You are a `monster`, i'm a human being.
+- Burning bamboo scared the `monster` off.
+- I wanna know why that `monster` is here.
+- Jesus... that's the loch ness `monster`.
+- That would make a formidable `monster`."
+- At least we're rid of the damn `monster`.
+- Superman broke your `monster`, uncle lex.
+- It's about the shadow `monster`, isn't it?
+- "it's a perfect day for a `monster` jump."
+- She's toxic...`monster` in bed, but toxic.
+- What's the matter, - the shadow `monster`.
+- Yeah, thanks, `monster` man hallucination.
+- It's a `monster` from an unknown dimension.
+- So, it's ok for me to be the `monster`, uh!
+- There's a friggin' `monster` loose in here!
+- Lehigh comes back with a `monster` dunk!
+- What `monster` could have done such a thing?
+- He steps in, smash, over the green `monster`.
+- People pay to see your `monster`, mr. treves.
+- Is there any way we can defeat this `monster`?
+- Shhiii -- sounds like a damn `monster` movie!!
+- That soulless `monster` gets no tears from me.
+- This `monster` killed him because i loved him.
+- Into a `monster` for as long as i can remember.
+- Just in case there's a `monster` in the closet.
+- We got to find the jelly `monster` and kill it.
+- Look at me closely, patterson: i am a `monster`.
+- What if they meet a `monster` in their dream?
+- But the `monster` never receives any of my gibes.
+- For hero to be appreciated, you need a `monster`.
+- There's some `monster` bucks hiding out up there.
+- This is your fifth attempt to slay the `monster`.
+- Who came up with the `monster`'s makeup and look?
+- Not just a closed minded redneck, but a `monster`.
+- That `monster` was sangedakru's greatest champion.
+- This bitch put a goddamn sea `monster` in my bunk!
+- Because - `monster` as i was - i was bound by laws.
+- He says that i will become a `monster` in two days.
+- Okay, so, the shadow `monster`'s inside everything.
+- An obstacle course we call "the ultimate `monster`."
+- Igor -- are you sure the `monster` has a good brain?
+- I let the `monster` out, you gonna do what it wants.
+- In ancient times, there was a `monster` called nian.
+- We've all got a `monster` inside of us, clarke, now.
+- It's like i feel what the shadow `monster`'s feeling.
+- He said that hugh crain... hugh crain was a `monster`.
+                 

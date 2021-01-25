@@ -1,0 +1,107 @@
+---
+title: "lesson in a sentence | lesson example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lesson"
+---
+- What -- what `lesson`?
+- So teach me a `lesson`.
+- What's the `lesson` here?
+- I must teach the `lesson`.
+- You taught him a `lesson`.
+- It'll teach them a `lesson`.
+- Time for your `lesson`, vic.
+- My last `lesson`'s next week.
+- When is the next `lesson`?
+- I mean, i learned my `lesson`.
+- I've learned my `lesson`, sir.
+- Spare me the science `lesson`.
+- We want to teach the `lesson`.
+- How was your swimming `lesson`?
+- Journalism `lesson` number one.
+- We are teaching her a `lesson`.
+- Has he learned his `lesson` yet?
+- We�re late for a dance `lesson`.
+- But this'll teach him a `lesson`.
+- How about a quick `lesson`, then?
+- It's an object `lesson` in grace.
+- You're learning a cruel `lesson`.
+- Dell was learnin' a hard `lesson`.
+- I have learned a `lesson` tonight.
+- With today's `lesson`, mr. murphy?
+- A `lesson` in work and its rewards.
+- Said it was a good `lesson` for me.
+- Son, here's a life `lesson`: billy.
+- Time for <u>your</u> `lesson`, vic.
+- I'd rather be preparing the `lesson`.
+- I never even took a `lesson`, either.
+- Sisters, have we learned our `lesson`?
+- That's the whole `lesson` right there.
+- Now, to teach you kids a life `lesson`.
+- Yeah, i'll teach you a `lesson` -- hey.
+- I really think she's learned a `lesson`.
+- You've just learned a valuable `lesson`.
+- Cause here's a `lesson`: life's not fair.
+- Naturally you didn't learn your `lesson`.
+- First `lesson`... have begun to melt down.
+- I don't need a geography `lesson`, luthor.
+- The one good `lesson` he taught me, louis.
+- Twice, in the course of the same `lesson`.
+- Man, you're really teaching her a `lesson`.
+- You've been giving him a *flying* `lesson`!
+- What `lesson` do get outta that story, lula?
+- (without accent) ready for another `lesson`?
+- But then what kind of `lesson` would that be?
+- I'm not here for a philosophy `lesson`, kane.
+- Thanks for teaching me an important `lesson`.
+- This little corpse is intended as a `lesson`?
+- Yeah, 'cause maybe he's learned his `lesson`.
+- You're going to get more than one `lesson`.
+- Madame cavalieri is here for her `lesson`, sir.
+- There's a baseball `lesson` in there somewhere.
+- Through today's `lesson` on the book of allness.
+- Only you're going to need more than one `lesson`.
+- Rose has learned her `lesson`, haven't you, rose?
+- Because you liked this `lesson`, kane doesn't.
+- Now i'm scared to death and i learned my `lesson`.
+- Hopefully it's taught him a very valuable `lesson`.
+- I told you, i had to teach a few people a `lesson`!
+- This is friday, her riding `lesson` is on tuesdays.
+- Believe me, i've a `lesson` or two left to teach you!
+- I knew i had an important `lesson` to learn that day.
+- That is -- if you don't mind changing the `lesson`, ma.
+- We've learned a valuable `lesson` we won't ever forget.
+- `Lesson` two, "dead eye"... should have been `lesson` one.
+- Like firing andrew beckett taught <u>him</u> a `lesson`?
+- Another `lesson` in the destructiveness of familial love.
+- They'd use me as a `lesson` to anyone who tries to leave.
+- Take a `lesson` from young masbath's desires, ichabod crane.
+- Probably wants to borrow my `lesson` plans from last semester.
+- Well no, it's not noble, but it's a good aid to your `lesson`.
+- First `lesson` in war college: never under- estimate your enemy.
+- It was insured--how about that swimming `lesson` i promised you?
+- Teach both of them a `lesson` in cooperation and self-discipline.
+- We probably ought to take his car, you know, teach him a `lesson`.
+- Let that be a `lesson` to you, cyrus, a warning to mend your ways."
+- What `lesson` have we learned from all of this, babe br... sam...
+- Hell, no, i taught the bastard a `lesson` he'll never forget... what?
+- I was just showing homer the orchards... kind of a geography `lesson`.
+- I monitor the core temperature all right, kids, let this be a `lesson`.
+- That's another `lesson` for ya--now quit fucking around and help me up.
+- The `lesson` plans for the rest of the year are in my top right drawer.
+- "perhaps we shoulld take a `lesson` from our dinosaurs..." the pentagon.
+- The others decided to get cute with me, so i'm teaching them a `lesson`!
+- I'm afraid i'm gonna have to teach this uppity nigger a `lesson` in manners.
+- Why don't we sing, i don't know, ah... kane's trying to teach me a `lesson`.
+- I gave him his first `lesson` in sensitivity toward the fairer sex just today.
+- Every year, marge complains _ you're all gonna get a `lesson` from the detonator.
+- In ways we should not... cannot... a `lesson` the marquis would do well to learn.
+- Well, now that you've had your history `lesson`, i think i'll get on to the museum.
+- Jack lint is a `lesson` to you - he never had your brains but he's got the ambition.
+- We're not going to a singing `lesson`, she's just gonna start taking singing lessons.
+- Sometimes the mob does that to teach guys a `lesson`, if they blow a job or something.
+- Well, if you're ever in the mood for a history `lesson`, i'm your teacher, understand?
+- But, i don't know, there's a `lesson` here somewhere, and i want to make sure you get it.
+- If it was anybody else, i'd say what's going to happen to you would be a `lesson` to you.
+- A training program to help you get your sea legs and teach you one very important `lesson`.
+                 

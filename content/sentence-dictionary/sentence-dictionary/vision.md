@@ -1,0 +1,77 @@
+---
+title: "vision in a sentence | vision example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "vision"
+---
+- You've got a `vision`.
+- I am a man of `vision`.
+- I'm gettin' a `vision`!
+- But you have a `vision`.
+- Somebody get to `vision`!
+- You got a `vision`, girl.
+- My `vision` got worse again.
+- You had yourself a `vision`.
+- Use your peripheral `vision`!
+- Who could find `vision` then?
+- Your `vision` of paradise.
+- She has the power of `vision`.
+- Up next, night `vision` fails.
+- We don't trade lives, `vision`.
+- You lack `vision`, mr. o'brien.
+- But look at your `vision` board.
+- Such a `vision` will be opposed.
+- Something you have a `vision` for.
+- You said the `vision`, the images.
+- A true `vision` of paradise itself?
+- They have great powers of `vision`.
+- You didn't have another `vision`...
+- C'est une vedette � la t�l�`vision`.
+- Is that the limit of your `vision`?!
+- X-ray `vision`, things of that sort.
+- Tremors, `vision` problems, euphoria.
+- You putting a hurtin' on my `vision`.
+- Dizziness, fatigue, `vision` problems.
+- Even your `vision` board is a failure.
+- A man waits a long time for a `vision`.
+- Guys, we got a `vision` situation here.
+- Another `vision` of incomparable beauty?
+- What about this x-ray `vision` of yours?
+- Sandy, you want to give us some `vision`?
+- `Vision`, get your ass back on the table.
+- Your problem, dan, is a lack of `vision`.
+- Tell me about your `vision` of the reunion.
+- There's still a whole lot of `vision` left.
+- Yeah, right, `vision` is highly over- rated.
+- You're saying `vision` isn't just the stone?
+- It came to me in a `vision`, long, long, ago.
+- Leandra's funeral is so on my `vision` board.
+- Il peut te faire travailler � la t�l�`vision`.
+- He says he saw you in a `vision` some time ago.
+- Not everyone can have x-ray `vision`, you know.
+- They don't have the long-term `vision` anymore.
+- A lovely `vision` of exquisitely beauty -- shit!"
+- Mulet, romirez, they were fools without `vision`.
+- Because you can't compromise an artist's `vision`!
+- Two weeks ago, `vision` turned off his transponder.
+- It would destroy my entire `vision` of the universe.
+- They scare people off because most people lack `vision`.
+- Still don't see it-- whatta you got, telescopic `vision`?
+- Keep absolutely still - - it's `vision`'s based on movement!
+- Make sure you have batteries in your night-`vision` googles.
+- But if we do, will that convince you that my `vision` was true?
+- Krusty's got the passion and `vision` to make this movie great.
+- `Vision`, if that's true, then maybe going isn't the best idea.
+- | | at that moment there is a yell and a scream out of `vision`.
+- At that point and moment, darcy was like a `vision` of perfection.
+- If it weren't for those accords, `vision` would've been right here.
+- When the other rabbits hear of fiver's `vision`, do they believe him?
+- You're a `vision`, louise, a goddamn `vision` of loveliness, you always are.
+- You scuttle back into your cockroach hole and never cross my `vision` again.
+- `Vision` is out there somewhere with the mind stone and we have to find him now.
+- The good lord didn't give you that `vision` just for painting pretty pictures.
+- He didn't have the `vision` to grasp the potential of adam, until it was too late.
+- Tell you that you're just upset and not thinking straight, it came to me in a `vision`.
+- You're the only filmmaker in hollywood with the artistic integrity to realize my `vision`.
+- That's all you've been waiting for, an artist with integrity, with a `vision`, who can see.
+                 

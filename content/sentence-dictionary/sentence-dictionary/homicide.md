@@ -1,0 +1,55 @@
+---
+title: "homicide in a sentence | homicide example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "homicide"
+---
+- `Homicide`, miss hearn.
+- So, this is a `homicide`.
+- Vice cop on a `homicide`?
+- Call the `homicide` squad!
+- I'm a `homicide` detective.
+- Gary says triple `homicide`?
+- This isn't `homicide` school.
+- Inspector halloran, `homicide`.
+- Modern `homicide` investigation.
+- That's a justifiable `homicide`.
+- Call the state `homicide` bureau.
+- It's not a `homicide`, lieutenant.
+- You're narco, lad, not `homicide`.
+- You wanna go to `homicide` school?
+- It still doesn't tell me `homicide`.
+- You'll be working out of `homicide`.
+- I'm a `homicide` detective, remember?
+- We have a multiple `homicide`, sir ..
+- But sir-- you're vice, not `homicide`.
+- Maybe that's why you're from `homicide`.
+- Now you're an accomplice in a `homicide`.
+- You know, i'm not in `homicide` any more.
+- I worked `homicide` before i went federal.
+- That makes it `homicide`, that makes it ours.
+- It's `homicide`'s job now, ray, let 'em do it.
+- Everybody wants him, he's a `homicide` suspect.
+- Your son is a material witness to a `homicide`.
+- You've got a lot to lean about `homicide`, jeff.
+- I've worked `homicide` for five and a half years.
+- Your first `homicide`, that's gonna happen, ray...
+- If there is any evidence here, it's for `homicide`.
+- It started as a bad joke in kansas city `homicide`.
+- You think you're the only guy ever worked a `homicide`?
+- `Homicide` is a much healthier therapeutic expression.
+- You're here 5 minutes, you find yourself a fucking `homicide`?
+- Do you know how many orgies i had as a `homicide` copy, gordon?
+- Equal parts greed and paranoia, usually resulting in `homicide`.
+- I've got a babysitting job for a material witness on a `homicide`.
+- Ray, there's been a `homicide` out in an area known as the badlands.
+- After that the case and the witness go back to the `homicide` department.
+- I mean no one's dealing with the `homicide` squad yet or anything, right?
+- This is ice- cold `homicide` by person -- or persons -- house 2, guests 0.
+- You took a `homicide` witness to take a shower after your partner was shot?
+- I bet i could pull this trigger right now and call it justifiable `homicide`.
+- ... the one the courts use for a crime of `homicide` which drags on for months?
+- If i could work `homicide` like a real detective... do you like being a cop, bud?
+- Remote witnesses are hooked in... red ball -- double `homicide`: one male, one female.
+- Tell 'em there's a `homicide` in progress... cause by the time they show up there will be.
+                 

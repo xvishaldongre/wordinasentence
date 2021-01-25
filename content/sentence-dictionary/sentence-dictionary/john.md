@@ -1,0 +1,107 @@
+---
+title: "john in a sentence | john example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "john"
+---
+- Damn `john` whorfin--!
+- Don't tell me, `john`.
+- Hang on a sec, `john`.
+- He had cancer, `john`.
+- He went to the `john`.
+- I am not `john` wayne.
+- I needed that, `john`.
+- It's `john`, isn't it?
+- `John`, you all right?
+- Make her easy, `john`.
+- Pull his arms, `john`.
+- Read on, young `john`.
+- They're broke, `john`.
+- This is `john` murphy.
+- You mean `john` wayne?
+- Dr. `john` whittlesley.
+- He played `john` wayne.
+- I'll set `john` on you!
+- * `john` g. was clever.
+- "`john` james urgayle."
+- `John` loves the house.
+- `John` wayne's great...
+- Just come down, `john`.
+- Listen to me -- `john`.
+- My name's `john` klute.
+- Out of the way, `john`!
+- Professor `john` frink.
+- She trusts you, `john`.
+- That's a shame, `john`.
+- That was `john` bubber.
+- You mean `john` bubber?
+- You're welcome, `john`.
+- Do go on ... ... `john`.
+- Don't apologize, `john`.
+- Do you hear me, `john`!?
+- His name is `john` book.
+- How is your tea, `john`?
+- `John`, can you hear me?
+- `John` hammond will too.
+- `John`, he is a soldier.
+- `John`... hey, is he in?
+- `John`, it's ok. murphy!
+- `John`, let me help you.
+- `John`, what a surprise.
+- `John`, you still there?
+- Mr. `john` ola of miami.
+- The real trapper `john`?
+- We will make it, `john`.
+- What about `john` brown?
+- When did `john` divorce?
+- You got no case, `john`.
+- You'll be a god, `john`.
+- Anyway, `john` was upset.
+- Good to know you, `john`.
+- He ain't our guy, `john`.
+- He's being `john` murphy.
+- I haven't got it, `john`.
+- I know the truth, `john`.
+- It's the country, `john`.
+- `John` -- everybody runs.
+- `John`, hold on a second.
+- `John`, play the sinatra.
+- `John` said you're amish.
+- `John` wouldn't get help.
+- Join the `john` doe club.
+- More romances for `john`?
+- Mr. `john` steed, please.
+- My name is `john` murphy.
+- Take it easy, `john` doe.
+- There is no hell, `john`.
+- What about `john` murphy?
+- Whatever you say, `john`.
+- What if `john` was right.
+- Will you help me, `john`?
+- You give me hope, `john`.
+- There's little `john`!
+- What was that, `john`?
+- Barnett, `john` triplette.
+- But `john` hasn't got any.
+- For christ's sake, `john`!
+- I'm `john` edward gammell.
+- `John` fitzgerald kennedy.
+- `John`, i'm concentrating.
+- `John`, it's me, remember?
+- `John`, `john`, ten percent.
+- `John`: my daughter... no.
+- `John`, throw me the keys.
+- `John` wayne is dead, man.
+- `John`: you go fetch ruby.
+- No, you look here, `john`.
+- Stay in your lane, `john`.
+- What is due north, `john`?
+- You look splendid, `john`.
+- You're a fake, `john` doe!
+- Your name is `john` white.
+- You were `john` malkovich.
+- You work too hard, `john`.
+- What do you do, `john`?
+- Are you a good cop, `john`?
+- Eli, `john` is a carpenter.
+                 

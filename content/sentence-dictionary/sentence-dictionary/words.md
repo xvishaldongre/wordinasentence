@@ -1,0 +1,107 @@
+---
+title: "words in a sentence | words example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "words"
+---
+- Bad choice of `words`.
+- Cochran�s own `words`.
+- It�s all just `words`.
+- Stone, paint, `words`.
+- ...`words` to live by?
+- `Words`, `words`, `words`!
+- Are those your `words`?
+- Find the right `words`.
+- In ten `words` or less?
+- Remember those `words`.
+- She used those `words`.
+- She used those `words`?
+- These are your `words`.
+- They're not my `words`.
+- Those are last `words`.
+- Those were all `words`.
+- Those were his `words`?
+- Writing `words`, `words`!
+- All `words` are made up.
+- Don't say those `words`.
+- I ain't got the `words`.
+- In so many `words`, yes.
+- I've run out of `words`.
+- Quit using your `words`!
+- Those were your `words`.
+- Try and use big `words`.
+- I can fight with `words`.
+- I'm moved beyond `words`.
+- In other `words`, eureka.
+- In other `words`, scurvy.
+- `Words` fail you at last!
+- Your `words`, not mine...
+- Or `words` to that effect.
+- Say some `words` over him.
+- She can sign five `words`.
+- The `words` are beautiful.
+- The `words` of their gods.
+- The `words` wouldn't come.
+- They're `words` on a page.
+- Tow `words`, man: roll on.
+- What three `words`, harry?
+- You gotta say the `words`.
+- You're nasty with `words`.
+- You're puttin' up `words`!
+- Your `words` mean nothing.
+- All the `words` you've got.
+- Any last `words` of wisdom?
+- Can you fight with `words`?
+- He used your exact `words`.
+- Not use my `words`, please!
+- Two `words`, mr. president.
+- `Words` can hurt very much.
+- Those two `words` are...
+- Don't cross `words` with me.
+- He's trying to form `words`.
+- I can't put it into `words`.
+- I have not said the `words`.
+- Oh, don't say those `words`!
+- Only if you say the `words`.
+- Tell me in your own `words`.
+- Those were my `words`, bill.
+- You have a gift for `words`.
+- You have a way with `words`.
+- You have to see the `words`.
+- Fly, fly, spread the `words`.
+- I don't dig half the `words`.
+- In other `words`, i'm fucked.
+- Speak the `words`, constable.
+- What if i forget the `words`?
+- You have never heard `words`?
+- You want to say some `words`?
+- Any last `words`, general lee?
+- Any parting `words` of wisdom?
+- Be specific with your `words`.
+- Don't put `words` in my mouth.
+- Do you know any swear `words`?
+- How do you know those `words`?
+- I'm not afraid of his `words`.
+- Indra taught me a few `words`.
+- Interesting choice of `words`.
+- Not just `words` in some book.
+- Of the `words` "our compound."
+- The exact `words` of the text.
+- Well, not those exact `words`.
+- He said his last `words` to me.
+- In other `words`, i'm on trial.
+- Okay, try and form the `words`.
+- These are grade school `words`.
+- `Words` will flow like a river.
+- In other `words`, level with me.
+- In other `words` you don't know.
+- My final `words` are lisa sucks!
+- Say the `words`, "i understand."
+- You know i'm lousy with `words`.
+- You're good with `words`, caleb.
+- You're very clever with `words`.
+- Carefull those are dirty `words`!
+- Fine `words` from a child killer.
+- In other `words`, you don't know.
+- Those are pretty hostile `words`.
+                 

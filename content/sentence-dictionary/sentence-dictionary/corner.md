@@ -1,0 +1,107 @@
+---
+title: "corner in a sentence | corner example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "corner"
+---
+- Which street `corner`?
+- He put me in a `corner`.
+- Then go find a `corner`.
+- Just around the `corner`.
+- On every street `corner`.
+- Upper right hand `corner`?
+- Yeah.. � in this `corner`?
+- Well, this is the `corner`.
+- It's my `corner`, after all.
+- Go to the northeast `corner`.
+- It's just round the `corner`.
+- Make a left at this `corner`.
+- The building on the `corner`.
+- You're always in my `corner`.
+- He's just around the `corner`.
+- Strike on the inside `corner`!
+- Everyone to a neutral `corner`.
+- It's just to the `corner`, mam.
+- It's right around the `corner`.
+- Put a skeleton in the `corner`.
+- Or a nice little `corner` table?
+- Deuce in the `corner` needs help.
+- I just dropped him on a `corner`.
+- I live right around the `corner`.
+- Jafar's guards on every `corner`.
+- Round the `corner` fudge is made.
+- Never `corner` yourself like that.
+- I'm at a hotel around the `corner`.
+- Oh that one there, in the `corner`.
+- The next `corner` we can get a cab.
+- I'm on the `corner` of 65th and cpw.
+- In the `corner`, behind the curtain.
+- Pony's coming here to the `corner`?!
+- Then go right over to that `corner`.
+- Wait for me at the `corner` of 47th.
+- Oh, yeah, drunk on the `corner`, man.
+- Bonus time's just around the `corner`.
+- The `corner` of hawthorne and granvia.
+- We're going to go around the `corner`.
+- What are you doing out of the `corner`?
+- It's a bag of limestone in the `corner`.
+- Come on -- i'll walk you to the `corner`.
+- See that tram coming around the `corner`?
+- I'll put it in the `corner` of the alcove.
+- It's right arounna `corner` from my house.
+- Well, i asked the newsboy on the `corner`.
+- When we get to the next `corner` jump out.
+- There's another coming 'round the `corner`.
+- "financial security is around the `corner`."
+- A fluffy little white kitten in the `corner`.
+- What is that in the lower right hand `corner`?
+- But, so, pony's comin' by here to the `corner`?
+- <u>fine</u> you backed me into a `corner` again.
+- I'm going to the `corner` to get a cup of coffee.
+- They asked who i was, then told me what `corner`.
+- Tribeca, near the waterfront, northeast `corner`.
+- Probably stoned out of his gourd in some `corner`.
+- There's a camera in the upper right-hand `corner`.
+- Come on, heathcliff, i'll walk you to the `corner`.
+- Drive around the `corner` out of sight of the house.
+- I know, i moved the barca-lounger into the `corner`.
+- Relax, eddie, i want you to go to the `corner` store.
+- Story of your life could be right round the `corner`.
+- Well -- it was a place -- a street `corner`, i think.
+- Everybody's going to that bar on the `corner`, 'caps.'
+- I don't know, doesn't that `corner` seem funny to you?
+- I'll put him in the low `corner` of the frame -- good.
+- You never know what you might find around the `corner`.
+- If you need an excuse, there's a bakery on the `corner`.
+- Some gung-ho agent from d.c. pushed him into a `corner`.
+- There's a store around the `corner`, i'll be right back.
+- We think it makes vegas look like the `corner` crap game.
+- They're in the far `corner` of the room under the windows.
+- Maybe one day i'll get to sit on a `corner` and spout wise.
+- We could follow the optic nerve to the `corner` of the eye.
+- Yeah, no more ninety-minute deliveries around the `corner`.
+- You think they've just got a crooks r us on every `corner`?
+- Huh...the restaurant's just around the `corner` here... yep!
+- I'll turn around at the `corner` if you'll shut the fuck up.
+- You ain't got a `corner` on the fucking market or something.
+- Well, i don't want to get mugged on a bowery street `corner`.
+- During the middle ages people were executed at every `corner`.
+- Heck, it'll probably clear up once we drive around the `corner`.
+- I'll pick you up on the same `corner` at three thirty-five, okay?
+- I've been standing on the `corner` back there -- waiting for you.
+- Well, he's kinda just resting in the `corner` with his girlfriend.
+- I gotta hunch it's me from here on in... one ball, `corner` pocket.
+- I make at least two junk connections at that table in the `corner`.
+- At the `corner` of good but not great good thing we harvest tonight.
+- You pumped her stomach, so, as we stand here at the `corner` - mike!
+- Now, look, i want you to drive me around the `corner` and wait for me.
+- Besides, i've got to be on my `corner` at eight sharp tomorrow morning.
+- You've got to go over the back fence and i'll meet you on the `corner`.
+- It's not knowing what's around the `corner` that makes like worth living.
+- No matter where i go, there'll always be a shell station on the `corner`.
+- The one you took out of the `corner` of your bunk and put in this pocket.
+- You're going to a cardiac arrest, avenue c and ninth, northeast `corner`.
+- You're gonna sit in that `corner` watching soaps and you're gonna die!...
+- If you're here then we'll go to the `corner` and have some coffee and pie.
+- If you feel up to a short walk, there's a place to eat around the `corner`.
+                 

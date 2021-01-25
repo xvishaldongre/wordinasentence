@@ -1,0 +1,67 @@
+---
+title: "cap in a sentence | cap example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cap"
+---
+- We hit a memory `cap`.
+- That `cap` needed help.
+- Well guess what, `cap`?
+- M-`cap`'s on this level.
+- Did you `cap` off funboy.
+- Levitt departing m-`cap`.
+- Take this one to m-`cap`.
+- `Cap` and i fell out hard.
+- Tell me about m-`cap` again.
+- What if he's not in m-`cap`?
+- `Cap`, we can bring her back.
+- I got nothing for you, `cap`.
+- It's great to see you, `cap`.
+- I think you look great, `cap`.
+- How i sneak away for `cap`-naps?
+- If only `cap` could see you now.
+- That's the blasting `cap` - good!
+- Doesn't mint stupid `cap` troopers.
+- Hey, `cap`, we got a situation here.
+- That's a feather in your `cap`, man.
+- Why not mars, `cap`, mars has women...
+- You got somethin' against the `cap`'n?
+- How did you get that `cap` on your head?
+- Look at the structure of the roof `cap`.
+- That's what `cap` troopres are good for.
+- I got my second chance right here, `cap`.
+- Now screw the end-`cap` on...very gently.
+- Yes, you're quite a feather in the `cap`.
+- A target, kendall, `cap` a fucking target.
+- Don't that get kind of expensive, `cap`'n?
+- What, leave you alone so he can `cap` you?
+- You think golden boy can handle it, `cap`?
+- You should've seen me in my `cap` and gown.
+- Listen, kid, i think you snapped your `cap`.
+- M-`cap`, memory capture, a day... let me go!
+- She and another m-`cap` session with levitt.
+- I want her back in m-`cap` by the end of the day.
+- It'd `cap` it for garber if he could bring him in.
+- You'll `cap` my ass as soon as i step out the door!
+- You pop your memory `cap` before we can activate you.
+- `Cap`, what do you want me to do with this damn thing?
+- You've been shaking your `cap` and bells all over town.
+- That would be quite a feather in your `cap`, wouldn't it?
+- The stones, `cap`, we can bring her back, isn't that right?
+- You can tear me apart like the box the shower `cap` came in.
+- There's gotta be something else in there, another `cap` maybe.
+- We set you loose, and you draw the disciples away from m-`cap`.
+- You were thinking: 'that's no `cap` gun in that kid's overcoat.'
+- Well, well, i'll have to put my thinking-`cap` on about all this.
+- He's gotta `cap` all three of us before they even read our rights.
+- I think you know i'd love you even more in a blue polyester `cap`.
+- She's siphoning tanks - takes a sec to `cap` off the cyanide hose.
+- The whole roof `cap` was fabricated with a magnesium-tungsten alloy.
+- But when the trunk opened, how come you didn't `cap` the two guys then?
+- Hell, no, last time i shot a corporal, `cap`'n miller near bit my head off.
+- I figure it's him or me... but i can't `cap` him without a chump to take the fall.
+- Isn't it fashionable any more to put on a sailor's `cap` with the name of the yacht?
+- You can't see it, but you can feel it, like this, uh... what if who's not in m-`cap`?
+- I have a blue velvet `cap` which will do well, i have seen apothecary with a `cap` just so.
+- From the m-`cap`, okay, now we're entering the mid-game, it wasn't that great for tzeitel.
+                 

@@ -1,0 +1,8 @@
+---
+title: "thankless in a sentence | thankless example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thankless"
+---
+- Listen to me, you `thankless` little prick.
+                 

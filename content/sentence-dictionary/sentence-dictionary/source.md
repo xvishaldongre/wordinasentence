@@ -1,0 +1,96 @@
+---
+title: "source in a sentence | source example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "source"
+---
+- Into a power `source`.
+- So we need a `source`.
+- You find the `source`?
+- You know the `source`?
+- He had the energy `source`.
+- Where's the water `source`?
+- Without a protein `source`.
+- But what about the `source`?
+- I never abandoned a `source`!
+- I vetted the `source`, marty.
+- We have to find the `source`.
+- We're closer to the `source`.
+- There's a `source` behind him.
+- But the power `source`, zaltar.
+- What about finding the `source`?
+- Mr. henry has an inside `source`.
+- I don't even see a power `source`.
+- So, we need to get to the `source`.
+- Crocs hang around the food `source`.
+- I'm the `source` of all your misery.
+- Have you found another food `source`?
+- You asking me to disclose my `source`?
+- Looks like we found the water `source`.
+- There's a water `source` about halfway.
+- By going to the `source` of their blood.
+- We found the `source` of the phone call.
+- Just as the `source` of light is burning.
+- Like tracing a call back to its `source`!
+- Like tracing a call back to its `source`.
+- Transmission jammed at the `source`, sir.
+- Take away a man's only `source` of income.
+- What i need is a `source` for propofol mm.
+- It was my fault we lost the power `source`.
+- Now lock onto the strongest power `source`.
+- Did you find the `source` of the acid fog yet?
+- I never left a `source` hung out to dry, ever.
+- It's the `source` of his memories -- his rage.
+- The mobile unit will be my sole power `source`.
+- It's dangerous to use a power `source` on earth.
+- The mobile unit would be my sole power `source`.
+- To stamp it out, you gotta start at the `source`!
+- Well, then there must be a water `source` nearby.
+- What do i tell a `source` on the next tough story?
+- It could be a while before we find a food `source`.
+- I'll come back as soon as i have the power `source`.
+- Leather is a very good `source` of vitamin e. ebbie.
+- And thanks to our `source` on the inside, i love you.
+- The `source` was...shall we say, completely reliable.
+- I went there to find the lost power `source`... earth?
+- That's the power `source` that was lost from argo city!
+- As a `source` of quick information, we can't forget him.
+- Um, a friend-- it's the `source` of the temporal flares.
+- I have discovered the `source` of the thalaron radiation.
+- She was my best friend, my `source` of love and strength.
+- Well, they play audio back at us, from an unseen `source`.
+- The joker is supplying tainted ingredients at the `source`.
+- There must be some kind of thermal heat `source` down here.
+- Perhaps you gentlemen would like to check with the `source`?
+- Sandy... how far are we from the `source` of the transmission?
+- Yeah, well i have it on a reliable `source`... that it exists.
+- Unless i bring back the power `source`, argo city will die.
+- Forgive me, but it really is intoxicating being a news `source`.
+- I hear you have experience there is only one potential `source`.
+- I just drop everything, my whole life, english lexical `source`.
+- By finding this power `source` of the mimic horde and killing it.
+- If we stay too long at one `source` ... people become suspicious.
+- If you're lucky, discover their `source`, how they penetrated us.
+- `Source` of transmission is to the northeast... about 300 meters.
+- The cars, the clothes, the houses... well, consider the `source`.
+- Gentlemen, we are directly above the `source` of the transmission.
+- I don't under-- i got a call this morning from a `source` i trust.
+- I'm egon -- it may be ebbing and flowing from some tidal `source`.
+- Do you realize you've cut off a valuable `source` of communication?
+- We're usually successful in detecting the `source` of most problems.
+- This is, as you know, your prime `source` of scrap metal, m. charnier.
+- I finally got a `source` to go on the record about dodgeball concussions.
+- This place is reacting to you, or the `source` of their greatest failure.
+- You're the `source` in this area, and we're going to shut you down for good!
+- Captain spock and i will attempt to trace these whale songs to their `source`.
+- Geordi and i have identified the `source` of the unauthorized computer access.
+- Lowell bergman, the hot show who never met a `source` he couldn't turn around.
+- I don't want you to go alone... have you found the `source` of the acid fog?
+- Well, now we know the `source` of the numbers, but we still don't know what they mean.
+- We're going to start by tracking down your anonymous `source` from three years ago.
+- To get people to take the chip if we can find the `source`, then maybe we can stop him.
+- And... and driscoll kept saying how she needed to go back to the `source`... diyoza, no.
+- But the one who made him, who made the one who made him, the `source` of all this evil...
+- There's only one `source` for this stuff -- the adrenaline gland from a living human body!
+- Almost every `source` we've used has been republican, this guy's a card- carrying democrat.
+                 

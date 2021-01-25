@@ -1,0 +1,107 @@
+---
+title: "strong in a sentence | strong example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "strong"
+---
+- Father's not `strong`.
+- He has grown `strong`.
+- He will grow `strong`.
+- Stay so damn `strong`.
+- `Strong` men also cry.
+- `Strong` stomach, huh?
+- You gotta be `strong`.
+- You made her `strong`.
+- Feel her `strong` legs.
+- Make you feel `strong`?
+- Oh, you're so `strong`.
+- Raven, you're `strong`.
+- She sounded `strong`...
+- They made you `strong`.
+- You're `strong` enough.
+- You're `strong` though.
+- I'm not `strong` enough.
+- I'm `strong` in my mind.
+- I'm too `strong` for it.
+- Its powers are `strong`.
+- It's real `strong` like.
+- She's not that `strong`.
+- But you, you're `strong`.
+- He's not `strong` enough.
+- Life is for the `strong`!
+- She was already `strong`.
+- He's getting too `strong`.
+- My game is still `strong`.
+- That is a trifle `strong`.
+- You have a `strong` heart.
+- You're too `strong`, beth.
+- As `strong` as you are now.
+- Don't get `strong`, donnie.
+- [he sounded `strong` to me.
+- He was never this `strong`!
+- Scamming's a `strong` word.
+- `Strong` survival instinct.
+- That fish smelled `strong`.
+- They need to look `strong`.
+- Boy, i'll bet he's `strong`.
+- You've always been `strong`.
+- ...but we must stay `strong`.
+- I tell them they're `strong`.
+- So i've got a `strong` heart.
+- That's a good, `strong` name.
+- That's pretty `strong` stuff.
+- You are `strong` and patient.
+- He's very `strong` physically.
+- He was very kind and `strong`.
+- I hope she has `strong` hands.
+- My body isn't `strong` enough.
+- That's a `strong` possibility.
+- The blizzard was too `strong`.
+- What i do now is `strong`-arm.
+- He's `strong`, and you're good.
+- Need to get your legs `strong`.
+- The force is `strong` with him.
+- The little fucker was `strong`.
+- What `strong` muscles you have.
+- You won't come on too `strong`.
+- Your bitter and you're `strong`.
+- You're not so `strong` now, huh?
+- "you shall be `strong` like me."
+- Be `strong`, direct, unrelenting.
+- His vital functions are `strong`.
+- I am `strong`, paul, like a lion.
+- I need someone `strong` like you.
+- Is `strong`, and she's not alone.
+- I wasn't `strong` enough...alone.
+- They say she was brave, `strong`.
+- Well, that is a `strong` opinion.
+- Which was "still going `strong`."
+- You always were the `strong` one.
+- You are one of the `strong` ones.
+- Grandpa was so `strong` back then.
+- "security" is not `strong` enough.
+- There are `strong` forces at work.
+- We all have to be `strong`, right?
+- Ah, the mushrooms must be `strong`.
+- Cassius, so `strong`, so tough.
+- And you are so `strong`, good news.
+- Stay `strong` and he can't do shit.
+- That's never been my `strong` suit.
+- The force is `strong` in my family.
+- A think wirebut very, very `strong`.
+- Carl was a `strong` swimmer, he m...
+- Hospitality's not our `strong` suit.
+- I'm not...i'm not `strong` that way.
+- Maths always was your `strong` suit.
+- Relax, this is going to be `strong`.
+- Your feelings for them are `strong`.
+- Iris was `strong`, good with a knife.
+- I've never felt so `strong` or happy.
+- It's made your dark side `strong`.
+- But pike's influence is `strong`, how?
+- I hope you've a `strong` constitution.
+- The man said: "i want to be `strong`."
+- Yet look at them... `strong`, unified.
+- You have a `strong` unfufilled desire.
+- A guy hates a girl to come on `strong`.
+                 

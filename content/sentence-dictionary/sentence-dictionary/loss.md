@@ -1,0 +1,68 @@
+---
+title: "loss in a sentence | loss example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "loss"
+---
+- I'm at a `loss`, then.
+- Why the memory `loss`?
+- `Loss`... pain, regret.
+- Sorry about your `loss`.
+- Their `loss` is our gain.
+- We adjusted to the `loss`.
+- Well, their `loss`, right?
+- I'm at a `loss`, ninotchka.
+- It is, a `loss` to the cause.
+- ...i'm so sorry about your `loss`.
+- I'm sure she's not a total `loss`.
+- You're never at a `loss` for words.
+- By the `loss` of another competitor.
+- I'm so damn sorry about your `loss`.
+- He feels tremendous `loss` and guilt.
+- Mack the mouth at a `loss` for words.
+- Well, i mean it's not a total `loss`.
+- The silver screen's `loss` is your gain.
+- Please accept my sympathy for your `loss`.
+- Young masbath, i am sorry for your `loss`.
+- The death of peter peel was a great `loss`.
+- Is suffering from complete `loss` of memory.
+- The great bill parrish at a `loss` for words?
+- Uh, mr. gekko, we took a little `loss` today.
+- A great `loss` to playwriting, and to dancing.
+- Believe it or not, i am sorry for your `loss`.
+- A `loss` i trust bernie will be able to reverse.
+- And we're all upset about the `loss` of our men.
+- I just want to say, i'm sorry about your `loss`.
+- Some jerk d.k'd me and i gotta cover his `loss`.
+- You know,living with the `loss` of our loved ones.
+- Thank him and tell him we're sorry about his `loss`.
+- For a guy like me, it's a momentary `loss` of sanity.
+- They accumulate millions by taking `loss` after `loss`.
+- But his `loss`, just like all of yours, is not in vain.
+- Dr. redfield already has a background in memory `loss`.
+- He feels awful `loss`--which was precisely my intention.
+- Here in springfield, reactions to lisa's `loss` i'm you.
+- When you started noticing your short term memory `loss`.
+- A second tail brain, `loss` of ears and increased libido.
+- They tell me he'll be a great `loss` to the liquor trade.
+- You see the army leaving and you see the `loss` of a tool.
+- Chronic alcoholism ~ one cause of short term memory `loss`.
+- With the `loss` of so much, but what else have you been in?
+- A change of job, of living situation... a `loss` of some kind?
+- I've got to cover his `loss` to the tune of about seven grand!
+- To the point of `loss` of motor function and eventually death.
+- Okay, so you don't want insurance, so okay, that's your `loss`.
+- Grief, `loss`, remorse... data... are you sure you're all right?
+- The official inquiry blamed weir's design for the ship's `loss`.
+- But you have me at a `loss` -- you know my name, but who are you?
+- Only then, as the people riot for the `loss` of their god, get her up.
+- I'm sorry for your `loss`, cadogan built it to be totally self-contained.
+- Anyway, it was too much of a `loss` for my mother... she had nothing left.
+- How you respond to the `loss` of your queen i'm telling you out of respect.
+- It's impossible to express the hole his `loss` will leave in our community.
+- But i'm not coming to you out of deep conviction, i'm coming to you out of `loss`.
+- Gravity `loss` means that whatever's wrong is starting to hit the big-ticket items.
+- I had a pretty good idea i'm sorry for your `loss`, tell me this isn't what i...
+- My importing methods are as safe as these things can be, about five per cent `loss`.
+- Right arm severed above the elbow with massive tissue `loss` from upper musculature.
+                 

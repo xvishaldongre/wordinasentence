@@ -1,0 +1,107 @@
+---
+title: "expected in a sentence | expected example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "expected"
+---
+- He `expected` me here.
+- Not what i `expected`.
+- It is to be `expected`.
+- About what i `expected`.
+- It was to be `expected`.
+- Somehow i `expected` not.
+- What's `expected` of you?
+- I `expected` nothing else.
+- I should of `expected` it.
+- He's not what i `expected`.
+- I `expected` better, chief.
+- I `expected` more from you.
+- When is it `expected` back?
+- It's `expected` any day now.
+- That's only to be `expected`.
+- I `expected` no less, captain.
+- Sooner than we had `expected`.
+- Well that is to be `expected`.
+- Well, that's to be `expected`.
+- When are they `expected` home?
+- You `expected` something else?
+- Did it look like you `expected`?
+- He's not what i `expected`, sir.
+- I `expected` you to do the same.
+- It means better than `expected`.
+- Perhaps he `expected` to eat it.
+- They're `expected` back anytime.
+- I `expected` more of you, ripley.
+- I knew what was `expected` of me.
+- I am as well as can be `expected`.
+- The dinner guests are `expected`.
+- It is to be `expected` on a sunday.
+- I `expected` it to be bad, you know.
+- I never `expected` to see you again.
+- I `expected` more from you, you know?
+- So i'm not as tall as you `expected`?
+- You know, i `expected` more from you.
+- As well as can be `expected`, i guess.
+- Heaven doesn't look like i `expected`.
+- What happened... no one `expected` it.
+- Like i said; i `expected` more from you.
+- What am i `expected` to do�leap for joy?
+- I -- i guess i'm not what you `expected`.
+- I `expected` to go to the vancouver royal.
+- I kind of half `expected` you to thank me.
+- I should have said: it's to be `expected`.
+- It's just taking longer than i `expected`.
+- So what time is my brother `expected` back?
+- Flies out, i want you to have `expected` it.
+- I `expected` it was something more romantic.
+- The meeting went much longer than `expected`.
+- Frankly, treves, it's not what i'd `expected`.
+- Has spent time in a place it never `expected`.
+- Your daily routine � you know what's `expected`.
+- I think that went as well as could be `expected`.
+- Just make sure you know what's `expected` of you.
+- Your flunkey said he was `expected` back tonight.
+- Everybody knows what better than `expected` means.
+- How many are `expected` to die of a mystery virus?
+- I have lived to see two things i never `expected`.
+- I've told harper it's to be `expected`, but, um...
+- Like i said, i hadn't really `expected` to use it.
+- Only you `expected` it to be like other marriages.
+- I don't know what you `expected` to find, matthews.
+- No more than i `expected` not as difficult as this.
+- I was at harrow ... you're better than i `expected`.
+- Mrs de moraes is out and not `expected` before eight.
+- Nightmares are `expected` after psychological trauma.
+- Then why not just fuckin' say better than `expected`?
+- You see, i kind of `expected` to find you here alone.
+- Your dad and i always `expected` you two to get married.
+- I `expected` that you would want to speak to me about it.
+- It may not be the home that we `expected`, but we're here.
+- V'ger `expected` it to be a machine -- some single entity.
+- ... not what i `expected` when we walked through that door.
+- I `expected` graham to be this... well, like john, you know?
+- I never in my life `expected` her to get an a in arithmetic.
+- There are those who wouldn't have `expected` that out of me.
+- There's no way apollo `expected` this kind of hitting power.
+- Well, after a thing like that you wouldn't be `expected` to.
+- The last person i ever `expected` to get a call from was you.
+- About as good as can be `expected` with one foot in the grave.
+- We stayed a little longer than `expected` with mr and mrs grant.
+- I `expected` to be seeing you, not talking to you over the phone.
+- I `expected` that two months ago, and they're wasting their time...
+- In high school i played football because my old man `expected` me to.
+- You repeat "third reich" as though you `expected` there to be others.
+- Your "briar patch" turned out to be more hospitable than i `expected`.
+- A press agent eats a columnists dirt and is `expected` to call it manna.
+- No... of course not... it's just i hadn't `expected` it to be quite so big.
+- The last thing they `expected` was mickey knox to get up close and personal.
+- Hiya -- sorry -- the guinea fowl is proving more complicated than `expected`.
+- If i `expected` somethin', i wouldn't be still standin' out here in the hall.
+- I never `expected` to have to ask you this again... but how did our evening go?
+- I `expected` some common sense on your part and clearly i was expecting too much.
+- I feel like i need some kind of indication of... what's `expected` � sure he did.
+- Well, constable... are you aware... to be honest, you are not what we `expected`.
+- I'd seen him in a coffin so many times, i `expected` him to jump out... bela died.
+- This old guy -- he's the kind of person i `expected` to meet when i moved out here.
+- We `expected` you last week; we sent the car to pick you up at the airport last week.
+                 

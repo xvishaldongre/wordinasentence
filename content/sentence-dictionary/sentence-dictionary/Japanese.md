@@ -1,0 +1,54 @@
+---
+title: "Japanese in a sentence | Japanese example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Japanese"
+---
+- `Japanese` import only.
+- `Japanese` squid fleet.
+- Anything but `japanese`.
+- The buyer is `japanese`.
+- `Japanese` and chemistry.
+- Easy, peasy, `japanese`-y.
+- You don't look `japanese`.
+- An ancient `japanese` ceremony.
+- I wanna import `japanese` cars.
+- My `japanese` isn't that hot...
+- `Japanese` are here in a big way.
+- What if the `japanese` did invade?
+- Hey, here's an evil `japanese` guy!
+- He won't speak `japanese` either.
+- This is a `japanese` company, you know?
+- We're `japanese`, not mexican, ishmael.
+- All we have is a `japanese` beetle trap.
+- How do you say "hospital" in `japanese`?
+- So, is this like a `japanese` restaurant?
+- The `japanese` embassy is very interested.
+- All he talks about is those `japanese` gals.
+- How'd a `japanese` guy get a name like hans?
+- They were `japanese`-american boys, yes sir.
+- Those `japanese` could <u>run</u> it for us.
+- The old man was a `japanese` paper manufacturer.
+- I asked, down at the `japanese` community center.
+- They're made by americans, based on a `japanese` recipe.
+- This `japanese` toilet is the first kind voice good idea.
+- I couldn't speak `japanese`, and his english was terrible.
+- They only arrested that poor soul because he's `japanese`.
+- But back in '34, `japanese`-born could not <u>own</u> land.
+- You didn't want `japanese`, i said, our first date since...
+- Then if you are `japanese`, then why are you called the chink?
+- The navy will get us to within 400 miles of the `japanese` coast.
+- If the `japanese` are pansies, then pansies are my kind of people.
+- Well, it was one of them little bitty two-inch screen `japanese` jobs.
+- At school, she kept mostly to the `japanese` kids, and sort of ignored me.
+- Hell, the arabs and the `japanese` are bleeding the shit out of our gold ..
+- Face it-the `japanese` will own most of this country by the end of the '90s.
+- I put, like, this techno beat on this `japanese` folk tune -- wanna hear it?
+- Since when do sprawl doctors know more about nerve rehab than the `japanese`?
+- Well, a `japanese` tourist took pictures of me, don't make me come back there!
+- But i couldn't say anything, because his english was better than my `japanese`.
+- A `japanese` game show needs an american celebrity i'm not the one who screwed up.
+- It's like those `japanese` in the caves on okinawa... didn't believe the war was over.
+- I said that if i was playing sherlock holmes...i'd maybe look for a... `japanese` person.
+- So i simply made sure the `japanese` consortium received the systems integration contract.
+                 

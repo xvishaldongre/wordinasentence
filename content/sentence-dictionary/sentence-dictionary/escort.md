@@ -1,0 +1,55 @@
+---
+title: "escort in a sentence | escort example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "escort"
+---
+- Your `escort`'s outside.
+- `Escort` me, by all means.
+- Where is `escort` service?
+- `Escort` him onto the ship.
+- `Escort` them to the cutter!
+- I would like to `escort` eve.
+- Disciples, `escort` them down.
+- This isn't an `escort` service?
+- Two officers will `escort` you.
+- We'll `escort` your holinesses.
+- You goin' to the `escort` service?
+- But i have to give you an `escort`.
+- `Escort` russell prime back to the lab.
+- Do you need a police `escort`, starling?
+- You can `escort` your team to the steps.
+- You, my friend, are getting an `escort`.
+- Chekov, any signs of federation `escort`?
+- They will `escort` you to your rooms now.
+- Her people will `escort` us to the summit.
+- `Escort` *you* gee--i mean--*sure*-- *yes*!
+- Mr. stamper will `escort` you to the plane.
+- The `escort` units are not responding, sir.
+- Bateman killing owen and the `escort` girls?
+- Just the idea that they�d bring an `escort`.
+- What would you do if you weren't an `escort`?
+- Peter will simply `escort` molly to the villa.
+- A police `escort` is gonna pick us up en route.
+- Organize a military `escort` to crystal mountain.
+- Please `escort` dr. santiago back to his friends.
+- If that ring checks out, we'll give him an `escort`.
+- I'm assigning him to your team as security `escort`.
+- I mean, i tried... calls, texts, i'll `escort` them.
+- I was part of the `escort` team that re-animated him.
+- `Escort` detective carter to the airport -- thank you.
+- Chief guard briskly leads the way for alex and `escort`.
+- As i said before, we'd be happy to `escort` you to delhi.
+- So, uh, how long have you been with the `escort` service?
+- We'd be proud to provide as `escort` for malcolm's widow.
+- Since you're going to be my `escort`, you'll need a new tie.
+- `Escort` her to quarters and have monk prepare a tranquilizer.
+- We serve as `escort` for our grand champion, jack o' the green.
+- Did you hear that?--`escort` susan paine--reception for a princess!
+- I was to rendezvous with them in albany and `escort` them to the fort.
+- `Escort` everyone's favorite she-male over here nice and peaceful-like.
+- Elias: ♪ i'm walking in this cloud ♪ `escort` this woman past the shield right now.
+- No -- captain charles commanded the cavalry `escort`, and rode outside the carriage.
+- He can barely pick up an `escort` girl, let alone...what was it you said he did to her?
+- We've been ordered to `escort` you through federation space to your meeting place on earth.
+                 

@@ -1,0 +1,107 @@
+---
+title: "second in a sentence | second example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "second"
+---
+- C'mere for a `second`.
+- Duke... `second` pint.
+- Every `second` counts.
+- Every `second` sunday.
+- Gotta take a `second`.
+- I'm...wait a `second`.
+- I `second` the motion!
+- Now, go into `second`.
+- "the `second` coming"?
+- To become my `second`.
+- Wait a `second`, whoa!
+- Won't take a `second`.
+- Excuse me one `second`.
+- Is our `second` chance.
+- ...just for a `second`.
+- Just not this `second`.
+- Just one more `second`.
+- Nor i, on the `second`.
+- Now hold on a `second`.
+- No you wait a `second`.
+- `Second` best there is.
+- `Second` from the left.
+- `Second` is not enough!
+- Wait a `second`, chief?
+- Wait a `second`, hoffy.
+- Yeah, for one `second`.
+- You're `second` billed.
+- A `second` passport.
+- Gimme a `second`, dudes.
+- Here's my `second` plan.
+- Hold on a `second` here.
+- I'm still `second` best.
+- It's my `second` chance.
+- Just a `second`, walter.
+- Just give it a `second`.
+- Just give me a `second`.
+- Just -- one -- `second`!
+- Let me think a `second`.
+- `Second`, it's my piano.
+- `Second` squad, move up.
+- `Second`: you hesitated.
+- She was anya's `second`.
+- Sit down for a `second`.
+- That'll take a `second`.
+- We got it `second`-hand.
+- You knew a `second` ago.
+- Excuse me for a `second`.
+- Having `second` thoughts?
+- Hey, `second` lock, guys.
+- I always finish `second`.
+- John, hold on a `second`.
+- Julia's my `second` wife.
+- Just be a `second`, yeah.
+- Let's go just a `second`.
+- Octavia, wait a `second`.
+- `Second` generation, huh?
+- `Second` no more, master.
+- `Second`-raters, the lot.
+- The `second` dawn bunker.
+- The `second` r is silent.
+- Wait, hold on a `second`.
+- We're like `second` moon.
+- Yeah, first and `second`.
+- Cool your jets a `second`.
+- Every `second` counts now.
+- Hold on a `second`, chief.
+- I'll be off in a `second`.
+- I'll only take a `second`.
+- It's almost `second` moon.
+- I want a `second` opinion.
+- Just give me one `second`.
+- `Second` he's not a thief.
+- `Second`, how old are you?
+- The `second` he pops up...
+- Thinkin' a `second`, baby.
+- Throw the `second` switch!
+- _ wait a `second`, clarke.
+- What's the `second` thing?
+- You're the chief `second`.
+- The `second` condition?
+- Can we rest for a `second`?
+- Can we talk for a `second`?
+- Can you hang on a `second`?
+- He has until `second` moon.
+- Hello `second` mate barnes.
+- I came `second` to the nba.
+- I'll be down in a `second`.
+- It'll just take a `second`.
+- It'll only take a `second`.
+- Just listen for a `second`.
+- Of having a `second` child.
+- Other people come `second`.
+- `Second` floor girls' john!
+- `Second` movement, andante!
+- `Second` team, move inside.
+- That's her `second` cousin.
+- There is no `second` place.
+- The `second` one just dies.
+- Wait just a `second` there.
+- I'll tell you in a `second`.
+                 

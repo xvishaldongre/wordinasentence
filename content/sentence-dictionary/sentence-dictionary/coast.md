@@ -1,0 +1,75 @@
+---
+title: "coast in a sentence | coast example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "coast"
+---
+- `Coast` guard station.
+- Hello, new west `coast`!
+- Right along the `coast`.
+- East `coast`, ivy league.
+- The `coast` guard 'eagle'.
+- You from the west `coast`?
+- Is down the western `coast`.
+- Then we head for the `coast`.
+- My `coast` is maine, actually.
+- We need to head for the `coast`.
+- Did you notify the `coast` guard?
+- "enemy armada off jersey `coast`."
+- 's on the way to the west `coast`.
+- Dr. grant is looking for the `coast`.
+- Going to the `coast` was alan's idea.
+- On the `coast` guaranteed his safety.
+- You ship for the `coast` in one hour.
+- Josh and i are going to south `coast`.
+- I want to go to an east `coast` school!
+- Maybe we should call the `coast` guard.
+- Or two if you take the `coast` highway.
+- The `coast` guard has our last position.
+- We crossed the `coast` over an hour ago.
+- The `coast` is probably clear now anyway.
+- But i do know it's happening off the `coast`.
+- The next day, the `coast` guard found me alone.
+- I was born in the transkei, on the wild `coast`.
+- The entire east `coast`, the satellites are down.
+- Says it's like the birthplace of west `coast` bebop.
+- The same thing that happened on our pacific `coast`.
+- Call the us `coast` guard: "come and arrest our ass."
+- I've been letting you `coast` for almost two minutes.
+- They travel up and down the `coast` with the seasons.
+- Satellites show minimal enemy movement on the `coast`.
+- We should be crossing the `coast` in about six minutes.
+- I've been looting and pillaging up and down the `coast`.
+- This is united states `coast` guard north island station.
+- We had a house on that `coast` and it never rained blood.
+- He's probably has a better chance by the `coast` as it is.
+- I would have liked to visit the town... see the `coast`...
+- I know a little road-house, down the `coast` - i'll throw up!
+- With any luck, the costa rican `coast` guard will pick us up.
+- There's a report here from every state along the east `coast`.
+- You'd better `coast` through... do you wanna give me a minute?
+- Mccone's been notified and is coming back from the west `coast`.
+- The freeway went to the `coast`, right where van ryan wanted it.
+- The navy will get us to within 400 miles of the japanese `coast`.
+- The river at this point is the most dangerous on the east `coast`.
+- Well, i've just been able to get off that norway `coast` - so far.
+- This kid, this package boy could bring down the whole east `coast`.
+- ... the `coast` guard has to clear them back to a twenty mile radius.
+- But i think i can convince him to call a `coast` guard cutter for you.
+- Wrong `coast` i should have thought, still� absolutely right, shut up.
+- If the feds get those disks, the east `coast` is gonna take a hit, too.
+- This dickhead's parents just told me he took a road trip up the `coast`.
+- Like a self-sustaining island off the `coast` of south america, for instance.
+- Of <u>course</u> he's on the `coast`, where's he gonna be, the <u>hague</u>...
+- He always goes from here down the `coast` to the le sirenuse hotel in positano.
+- Maybe if you're on the `coast`, we'll get together and... and we'll meet there.
+- When we find her we'll radio her position...the `coast` guard will pick her up.
+- I thought the `coast` guard could find us easier if... christ...where's rennie??
+- The west `coast` as we know it would have -- couldn't have said it better myself.
+- Your dad and me ran the whole east `coast` syndicate you snot-nosed little prick.
+- Get you to the west `coast`, mexico, most anyplace, with a few dollars in your jeans.
+- I don't, uh, actually have a west `coast` agent as of yet... who's your booking agent?
+- I just wanted to know if you were all right... the `coast` guard let me use their radio.
+- One day she was sighted off the `coast` of portugal by a merchant vessel, the dei gratia.
+- I got 750 grand coming in from the `coast`, and i'm not gonna blow it for a lousy 14 gees.
+                 

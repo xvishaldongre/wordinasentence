@@ -1,0 +1,107 @@
+---
+title: "shooting in a sentence | shooting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shooting"
+---
+- Forget `shooting` them.
+- Good `shooting`, danny!
+- What is she `shooting`?
+- Good `shooting`, scotty.
+- He just kept `shooting`.
+- You call that `shooting`?
+- When the `shooting` stops.
+- Bingo, good `shooting` ace.
+- He just started `shooting`!
+- Now that's good `shooting`.
+- We start `shooting` monday.
+- Maybe demille is `shooting`.
+- Only two did the `shooting`.
+- `Shooting` this gatling gun.
+- What are you `shooting` for?
+- `Shooting` in all directions.
+- We will open `shooting` soon.
+- There `shooting` at something.
+- Try `shooting` the hinges off.
+- Colonel - `shooting`'s no good!
+- I used to go turtle `shooting`.
+- `Shooting` at maybe eight feet.
+- They know about the `shooting`.
+- I'm `shooting` tomorrow morning.
+- The night before the `shooting`.
+- They start `shooting` in a week.
+- If `shooting` people is charming.
+- It’s like `shooting` at ghosts.
+- That's what we're `shooting` for.
+- Anything new about the `shooting`?
+- I saw you there, `shooting` at me.
+- I told you, i'm `shooting` iraqis.
+- Jake, this was no `shooting` star.
+- Mcmanus wants to go in `shooting`.
+- Until they start `shooting` at us?
+- We had an awful lot of `shooting`.
+- What are you `shooting` at us for?
+- Bellamy, you're not `shooting` him!
+- Finn, that's not a `shooting` star.
+- How do you feel after a `shooting`.
+- That's when she started `shooting`.
+- The guy couldn't do the `shooting`.
+- But...what kind of a `shooting` war?
+- They're `shooting` at the defectors.
+- Good god... they're `shooting` midge!
+- `Shooting` me won't get you anywhere.
+- You ought to take up crap `shooting`.
+- They're going to be `shooting` at him!
+- You're `shooting` "bride of the atom."
+- I'm `shooting` in osaka for a few days.
+- What's that `shooting` out of his cane?
+- Did he say if she was `shooting` at him?
+- It looks like we're in a `shooting` war!
+- Done much `shooting` with that rifle yet?
+- It might catch on, like `shooting` skeet.
+- I was the one they were `shooting` at!
+- I had this idea of `shooting` on location.
+- Land of the free... good `shooting`, rafe!
+- Man, it's a `shooting` gallery down there.
+- No, i saw a guy `shooting` from over there.
+- That fuckin' `shooting` spree in the store.
+- Anywhere nobody's `shooting` at me is pretty.
+- But from now on, no `shooting`, you got me?
+- Can you wish on this kind of `shooting` star?
+- Just `shooting` pool, getting drunk together.
+- The police shouldn't have started `shooting`.
+- Well, since no one's `shooting`, do you mind?
+- Why you in such a hurry to get to `shooting`?
+- Maybe i was over at charlie's `shooting` pool.
+- There's something funny about that `shooting`.
+- Because it looks like he's `shooting` cabbages.
+- The doors off the place and come in `shooting`.
+- Alright...i'm `shooting` for a nine o'clock eta.
+- It would be the same as `shooting` a gun at him.
+- If it isn't there i'm `shooting` her in the back.
+- This is a chance to start again, stop `shooting`.
+- Somebody suddenly starts `shooting` at me, i duck.
+- When the `shooting` stops, you get that door open.
+- Where you'll learn geometry by `shooting` meteors.
+- Here, this is the light scoop for night `shooting`.
+- I'm just here `shooting` this band, what about you?
+- Twombley sure as hell won't be `shooting` it again.
+- You plan on `shooting` that gun or just hugging it?
+- Huh, well then... did someone else start `shooting`?
+- In case you need me to testify about the `shooting`.
+- Other times he'd be `shooting` the bull with ferrie.
+- Out `shooting` everybody they see for the fun of it?
+- Well he's the one `shooting` up all his guys, right?
+- Why have you come, i'm sorry for `shooting` you, ok?
+- You believe they're `shooting` a nike ad down there?
+- They're on location in arizona, `shooting` a western.
+- Cactus--`shooting` a man in the back is not very noble.
+- The 458 `shooting` solids -- less ammo to carry anyway.
+- Because when the `shooting` started he was way too cool.
+- From what you saw, did huey newton start the `shooting`?
+- It was probably luck- i'd rather you did the `shooting`.
+- Not good enough to be standing here `shooting` the bull.
+- Bet her husband spends one day a week `shooting` milkmen.
+- Ok. looks like there's 6 planets why are they `shooting`?
+- If you're planning on `shooting` anything, you killed her.
+                 

@@ -1,0 +1,76 @@
+---
+title: "downtown in a sentence | downtown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "downtown"
+---
+- They're way `downtown`.
+- Oh, anywhere `downtown`.
+- The guy from `downtown`.
+- Well, i live `downtown`.
+- You call 'em `downtown`.
+- Eleven to get `downtown`.
+- With a `downtown` and all.
+- I could take you `downtown`.
+- I just checked "`downtown`".
+- I believe he went `downtown`.
+- The people `downtown` said...
+- We got the `downtown` ramada.
+- I own three blocks `downtown`.
+- Oh, not <u>that</u> `downtown`.
+- Probably own half of `downtown`.
+- I'll take him with me `downtown`.
+- In `downtown` sydney for a start.
+- It's a massage parlor `downtown`.
+- How long have you been `downtown`?
+- There's been some trouble `downtown`.
+- We sometimes went `downtown` to score.
+- Better take 'em to virgil's `downtown`.
+- Uh... yeah, i, we both live `downtown`.
+- No survivors... a hotel fire `downtown`.
+- The regency `downtown`, thursday-friday.
+- I'm glad they didn't hold you `downtown`.
+- I'm going to have to take you `downtown`.
+- It's up to you either here or `downtown`.
+- You're coming `downtown` with me, walter.
+- Hangs out in queer s & m joints `downtown`.
+- The switchboard is lightning up `downtown`.
+- I was `downtown` looking for a ... a friend.
+- You know there's a double murder `downtown`?
+- Is actually `downtown` calgary, and now we pray.
+- But would rather kill himself than go `downtown`.
+- I just called `downtown`, and it's on their desk.
+- Uh, well, you just said you were going `downtown`.
+- We'll handle mr. valiant our own way... `downtown`.
+- You're not takin' me to `downtown` <u>toon</u>town?
+- You wanna go `downtown` and discuss this officially?
+- Third, but i still can't tell uptown from `downtown`.
+- You know, i'm `downtown` near wall street quite often.
+- Fear of what... you threatened to drive her `downtown`.
+- Read me my rights and arrest me and i'll go `downtown`.
+- Asked me to meet him at 3:00 at the `downtown` heliport.
+- Could've happened in the middle of `downtown` anchorage.
+- The elevator disaster `downtown` on the news last night.
+- She was staying at the grand `downtown` ... come on, jack.
+- Go `downtown` and get a license and get married right away!
+- She lives `downtown` with mojo dellasandro in the big boat.
+- We got the avedon for three or the park `downtown` for two.
+- There's gotta be a hundred pawn shops in `downtown` philadelphia.
+- There is a motel `downtown`, near the machine shop... the suncrest.
+- ...i only... ...then... ...no... ...do you want to go `downtown`...?
+- Brother gets taken `downtown`, we post bail, hook 'em up with a lawyer.
+- I've got more connects than you have, lieutenant... brown `downtown`...
+- We got a partner `downtown` runs the central office of the western union.
+- The boys on the board are under a lot of pressure from the boys `downtown`.
+- I'm going `downtown` and talk to mitch and murrray, and i'm going to lemkin.
+- I passed his name around with your buddies `downtown` but they drew a blank.
+- Okay, twist, but you know if this blows up, i can't do ya no good `downtown`.
+- `Downtown` garage rooftop -- next </b> ziering and green approach a large tent.
+- Ms. tramell, we'd like you to come `downtown` and answer some questions for us.
+- I told you, leave the boys in washington to the boys `downtown` and the boys down...
+- You called us, doctor, if you don't want to look at them here, how about `downtown`.
+- So we go `downtown` and we ask you a few questions... you know, like what's your name?
+- If she's not there, you're going `downtown`, and you're staying there til she shows up.
+- His body was discovered three days ago, in an alley off of central avenue, near `downtown`.
+- Listen, lady, we can do this `downtown` if you -- i don't really feel like talking anymore.
+                 

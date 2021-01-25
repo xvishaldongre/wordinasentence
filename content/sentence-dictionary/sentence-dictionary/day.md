@@ -1,0 +1,107 @@
+---
+title: "day in a sentence | day example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "day"
+---
+- Brynner's van - `day`.
+- Dev, absolution `day`!
+- Good `day`, gentlemen.
+- He took the `day` off.
+- Hey, it's pizza `day`.
+- How's your `day` been?
+- How was your `day`...?
+- I did slave all `day`.
+- I don't got all `day`!
+- I do that every `day`.
+- I do this every `day`.
+- Is the `day` so young?
+- It's just a `day` off.
+- It's your lucky `day`.
+- I watch him all `day`.
+- One year or one `day`?
+- On independence `day`?
+- Prison visiting `day`.
+- Ten miligrams a `day`.
+- That's a `day`'s work.
+- The `day` of the dead.
+- The unity `day` title.
+- This isn't your `day`.
+- Today's my last `day`.
+- What a `day` i've had.
+- What a `day` i've had!
+- What's one more `day`?
+- Where's my `day` book?
+- Yeah, judgement `day`.
+- You-you made my `day`.
+- About the `day` we met.
+- A `day` like any other.
+- Calendar for the `day`.
+- Christmas `day` came...
+- Come on, `day`, try it.
+- Good-`day`, miss winch.
+- Good `day`, mr. carter!
+- Good `day` to you, sir.
+- Great moves, `day`-`day`.
+- Hardware store - `day`.
+- Hold it a `day` for me?
+- I don't have all `day`.
+- I mean, it's all `day`!
+- In a `day` or two, yes.
+- It's been a long `day`.
+- It's only been a `day`.
+- It�s been a long `day`.
+- I've had a tough `day`.
+- Lovely `day`, isn't it?
+- Never take a `day` off.
+- [niers] every `day`.
+- No `day` trips to hell.
+- Not twice in one `day`.
+- That was a great `day`.
+- This is my lucky `day`.
+- Today is the `day`, ah?
+- Well, it's a big `day`.
+- What a beautiful `day`.
+- Worst `day` of my life.
+- You see it every `day`.
+- A `day`, a week -- when?
+- A `day`-to- `day` account.
+- Ah, i had a tough `day`.
+- One `day` she snaps.
+- That `day` has come.
+- A steady rate all `day`.
+- But how long is a `day`?
+- By the end of the `day`.
+- Darlene's store - `day`.
+- `Day` with sideshow mel.
+- Every `day` for 6 years.
+- Every dog has his `day`.
+- Good `day`, good fellow.
+- Good `day`, mr. merrick.
+- Have you seen `day`-`day`?
+- He came the first `day`.
+- He died that `day`, too.
+- He left that very `day`.
+- He'll show up one `day`.
+- Hi, how'd your `day` go?
+- I ain't eaten all `day`.
+- I can do this all `day`.
+- I can't plan your `day`.
+- Ice cream truck - `day`.
+- I could go on all `day`.
+- I had a bad `day` today.
+- I know what `day` it is!
+- I see kenny every `day`.
+- Isn't it a lovely `day`?
+- "is the `day` so young?"
+- Is this a special `day`?
+- It is a beautiful `day`.
+- It's a new `day` people.
+- It's been a tough `day`.
+- I've suffered all `day`.
+- Next `day`, he was dead.
+- Nice `day` lead the way.
+- Our good `day` has come.
+- Remember dress up `day`?
+- So one `day` we'll meet.
+                 

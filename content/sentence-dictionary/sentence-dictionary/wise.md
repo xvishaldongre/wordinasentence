@@ -1,0 +1,97 @@
+---
+title: "wise in a sentence | wise example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wise"
+---
+- They're `wise` by now.
+- Bridle-`wise`, too.
+- A `wise` foreign policy.
+- You think that's `wise`?
+- Don't get `wise` with me.
+- Killaine's `wise` to what?
+- Perhaps that's not `wise`.
+- Eyes bart-`wise`, everyone.
+- Hope they didn't `wise` up.
+- You're `wise` to resist him.
+- You've made a `wise` choice.
+- Don't think that'd be `wise`.
+- Your majesty is `wise` in it.
+- I see will the `wise` is back.
+- Yes sir, it's a `wise` idea...
+- Are you gettin' `wise` with me?
+- A very `wise` suggestion, leon.
+- I'm `wise` to your tricks, lady.
+- Just as i suspected, `wise` guy!
+- You are `wise` to listen to her.
+- Do you think this is `wise`, boy?
+- They were a `wise` bunch of birds.
+- You get `wise` to <u>yourself</u>!
+- Don't crack `wise` to me, flatfoot.
+- What are they, `wise` sir bedevere?
+- Other- `wise` we're out of business.
+- Besides, a `wise` man once told me...
+- Okay, will the `wise`, jaha found it.
+- But the shepherd was brave and `wise`.
+- It's a must -- gracious-living-`wise`.
+- Now there is a man who is very `wise`.
+- That wouldn't be a `wise` thing to do.
+- Obi-wan was `wise` to hide her from me.
+- That's a very `wise` deduction, general.
+- The `wise` snake coils before he strikes.
+- Somethin' i can `wise` the rabbit up with.
+- Bud, get `wise` to the political realities.
+- `Wise` up -- it's not hip to be her friend.
+- You've made a considerably `wise` decision.
+- I mean, decency-`wise` -- and otherwise-`wise`.
+- She's gonna die alone if she don't `wise` up.
+- `Wise` up, jack, this whole business is bent.
+- A marked man gets `wise` and wants to come in.
+- I don't know if this would be a `wise` move...
+- If he's so `wise`, why does he need fireballs?
+- Maybe we could live without the `wise` cracks.
+- Stab 3's going to cutting corners cast-`wise`.
+- You thought it `wise` to sacrifice yourselves?
+- Do you think this is a `wise` course of action?
+- But give them a few years, and they'll `wise` up.
+- Fame is what fools yearn for and `wise` men shun.
+- Too `wise`, in fact, to live under the same roof.
+- Will the `wise`'s fireball hits the thessalhydra!
+- Will the `wise`'s fireball hits the thessalhydra.
+- Well -- that's the way it crumbles, cookie-`wise`.
+- Get `wise` to yourself, sally--you're no sob story.
+- None of them half as `wise` or strong i don't know.
+- I guess that's the way it crumbles -- cookie-`wise`.
+- As a `wise` man once said... we've got shared trauma.
+- Who are you who are so `wise` in the ways of science?
+- Other- `wise` we'll get kind of close to the fireball.
+- There is no expert on this subject, no `wise` old man.
+- `Wise` beyond her years, i'm sure, and such poise, too.
+- I think the lady is `wise` to keep your love at a distance.
+- Maybe one day i'll get to sit on a corner and spout `wise`.
+- Baxter, we're a little disappointed in you -- gratitude-`wise`.
+- A `wise` woman once said "polite conversation is rarely either."
+- Well -- - they say he was very `wise`, so i'm sure he must have.
+- Dignified, honorable, `wise`... what more could we ask of a king?
+- "get your head out of that machine, `wise` up to the real world."
+- He'll have a tough time thinking up a `wise`-crack for this one .
+- It will be `wise` for both of us to proceed with greatest caution.
+- Your daddy must have been a helluva guy, a deep man, a `wise` man.
+- Boat five -- wickwire, cozad, vinyl, intagliata, ayers, and `wise`.
+- You should know that it's not `wise` to play halloween pranks on me.
+- I did not consider it `wise`, in the circumstances, to tax your nerves.
+- She got `wise` and dumped him months ago... small, blond, good-looking.
+- From my `wise`, albeit youthful, vantage point, the world is your oyster.
+- I'm `wise` to you, i should have seen it before, you rotten son of a bitch.
+- I remember though, once long ago in persia, we met a `wise` man in the bazaar.
+- What are we talkin' on the split... we gotta lay something out, strategy- `wise`.
+- This bag of concentrated death i thought the flame was supposed to make you `wise`.
+- Dig up some ice from the kitchen and let's not waste any time -- preliminary-`wise`.
+- You're very flippant and perhaps `wise`, but not `wise` enough to see the truth, louis.
+- I understand they've had a bad run of luck, health-`wise`, and they have my sympathies.
+- I'm a pretty good operator myself -- but she just won't give me a tumble -- date-`wise`.
+- But, lee, i'm fairly confident that you came here to do business, not to be a `wise`-guy.
+- If one of us did that he wouldn't hang around here waiting for the other two to `wise` up.
+- Well, the `wise` man was right - if you remember that, you can't help but live life fully.
+- You're a `wise` guy--gimme back-- oh, no--you're not gonna give my hard-earned money away.
+                 

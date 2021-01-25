@@ -1,0 +1,107 @@
+---
+title: "chancellor in a sentence | chancellor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chancellor"
+---
+- `Chancellor` on de.
+- He's the `chancellor`.
+- I am the `chancellor`.
+- It's the `chancellor`.
+- Kill the `chancellor`.
+- Pike for `chancellor`!
+- `Chancellor`, look out!
+- `Chancellor` of the ark.
+- I shot the `chancellor`.
+- Stay here, `chancellor`.
+- Thank you, `chancellor`.
+- The `chancellor`'s here?
+- When i was `chancellor`.
+- `Chancellor`'s been shot.
+- I am `chancellor` gorkon.
+- `Chancellor`, dr. griffin.
+- Feel better, `chancellor`.
+- He shot `chancellor` jaha.
+- Man: `chancellor` on deck.
+- The `chancellor` abstains.
+- `Chancellor` code accepted.
+- Yes, sir, mr. `chancellor`.
+- It's the `chancellor`'s pin.
+- Man: `chancellor` on deck.
+- The `chancellor` is waiting.
+- You killed the `chancellor`?
+- How's the `chancellor` doing?
+- It's all yours, `chancellor`.
+- `Chancellor` griffin, welcome.
+- I need you to be `chancellor`.
+- `Chancellor`, i have to object.
+- Hey, the `chancellor` is right.
+- How does the `chancellor` vote?
+- That's the point, `chancellor`.
+- The `chancellor` can't allow it.
+- This would be `chancellor` jaha.
+- In your capacity as `chancellor`.
+- Now we have `chancellor` pike.
+- Congratulations, mr. `chancellor`.
+- `Chancellor` pike, good to see you.
+- `Chancellor` pike, good to see you.
+- You were the acting `chancellor`...
+- `Chancellor`: mount weather is life.
+- The `chancellor` will break the tie.
+- Your `chancellor` is going into shock.
+- `Chancellor` pike, you tell them, pike.
+- Apparently, the `chancellor` thinks aah!
+- She is still the `chancellor` after all.
+- Well, that's good for you, `chancellor`.
+- You're talking to the next `chancellor`.
+- Marcus kane to the `chancellor`'s office.
+- The `chancellor`'s not from farm station.
+- Well, i'm nothing like you, `chancellor`.
+- You can thank `chancellor` pike for this.
+- You're my sister... `chancellor` on deck.
+- You weren't elected `chancellor`, marcus.
+- `Chancellor`, sir, i'll take a spot in 17.
+- He shot the `chancellor`'s dog, didn't he?
+- How's your faith holding up, `chancellor`?
+- So tell me about you and the `chancellor`.
+- The new `chancellor` should remember that.
+- We bring you `chancellor` pike of skaikru!
+- Abby: `chancellor` has lost a lot of blood.
+- Not because the `chancellor` said so, guys?
+- Not everyone agrees with `chancellor` pike.
+- [bellow] [coughing] after you, `chancellor`.
+- `Chancellor` jaha has hell of a job you did.
+- I ask again, how does the `chancellor` vote?
+- Let the `chancellor` decide what to do next.
+- Are you here as my `chancellor` or my doctor?
+- `Chancellor` griffin was running around here.
+- Is it a little late to call the `chancellor`?
+- You still don't get it, do you, `chancellor`?
+- The `chancellor` told nyko that we would help.
+- 24 hours ago, you elected me your `chancellor`.
+- `Chancellor` jaha, sir, would you mind staying?
+- _ he gave me the gun to shoot the `chancellor`.
+- It's ok. put `chancellor` jaha in the stockade.
+- Thanks... `chancellor` gorkon, can you hear me?
+- The former `chancellor` i'll even buy you a gi.
+- You may be the `chancellor`, but i'm in charge.
+- Chase: you can thank `chancellor` pike for this.
+- Transitioning to a new `chancellor` right, mike.
+- For my first official action as `chancellor`, no.
+- Here we stand on the brink kill the `chancellor`.
+- As `chancellor` pro tempore, it's still out there.
+- `Chancellor` jaha has approved a mission to earth.
+- His father was the `chancellor` that locked us up.
+- The more reason to stand behind your `chancellor`.
+- : marcus kane, report to the `chancellor`'s office.
+- A word from their `chancellor` and i'm letting them.
+- `Chancellor`: your one responsibility is stay alive.
+- He didn't have-- he's the duly elected `chancellor`.
+- I'm gonna blow your minds `chancellor`, dr. griffin.
+- Are you sure you don't want to tell the `chancellor`?
+- As a former `chancellor`, no one knows more about uh!
+- Look at this, everybody... the `chancellor` of earth.
+- She's offering all of wonkru hello, mr. `chancellor`.
+- So you got a lot of blood on your hands, `chancellor`.
+- Oh, i thought they were doughnuts `chancellor` on deck.
+                 

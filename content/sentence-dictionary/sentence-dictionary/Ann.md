@@ -1,0 +1,98 @@
+---
+title: "Ann in a sentence | Ann example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ann"
+---
+- Sally `ann` cavanaugh.
+- It's called `ann`'s 440.
+- All in due course, `ann`.
+- Jesus, `ann`, get a life.
+- Hey, sue `ann`, what's up?
+- Ok. take your coat, `ann`?
+- You told `ann` about this?
+- I'm `ann` millaney's sister.
+- In front of him, `ann`, yes.
+- `Ann`, you don't have a clue.
+- What makes them do it, `ann`?
+- You mean -- sue `ann` hanson.
+- `Ann` is very much interested.
+- Oh, yes you will, `ann` dear .
+- There's nothing to know, `ann`.
+- `Ann` ... you're father is dead.
+- `Ann`, do you see a pattern here?
+- I'd like you to call me `ann`.
+- `Ann`, when would i have told you?
+- `Ann`, you are truly breathtaking.
+- That's your father's diary, `ann`.
+- `Ann`'d throw me out on my keister!
+- `Ann`, you always underestimate me.
+- `Ann`, you are completely paranoid.
+- I... `ann`....iinn.. ff....nnyin...
+- Oh, you mean `ann` schuyler's husband?
+- That `ann`, is the key to archaeology.
+- Well, like i said, `ann` is my sister.
+- Photography teaches you nothing, `ann`!
+- The... interviews are about sex, `ann`.
+- By definition you're lying to `ann`, too.
+- John doesn't have sex with `ann` anymore.
+- Beautiful, popular, `ann` bishop millaney.
+- Now `ann` ... get the hell out of here.''!
+- Is that what happened to deborah `ann` kaye?
+- `Ann`'s deserted him for some guy on the movie.
+- It's sue `ann` rogers, betty sizemore's friend?
+- They try to limit it, and-- `ann`-- a spacecraft.
+- Usually `ann` has some serious salt action going.
+- They're still married... alan and sally `ann`.
+- It's not my place to tell you these things, `ann`.
+- Well, she called sue `ann` yesterday from arizona.
+- ... i... `ann`....iinn.. ff....nnyin... one minute.
+- `Ann` arbor isn't... that far from cleveland, right?
+- For god's sake, `ann`, i am not fucking your sister.
+- Of course, his wife's name is sally `ann` cavanaugh?
+- We're looking for `ann`, not making a goddamn movie!
+- You're a couple o' sticks shy in your column, `ann`.
+- `Ann`, in life one has to be aware of hidden agendas.
+- Goddam, you and `ann` make such a big deal out of it.
+- In your opinion, what happened to deborah `ann` kaye?
+- Well, what kind of answer are you looking for, `ann`?
+- `Ann`-- at night, there were lights--we both saw them.
+- `Ann`, will you come in, sit down, maybe have a drink?
+- Folks this is celia `ann` but you can call her mattie.
+- I wish i could tell everybody that `ann`'s a lousy lay.
+- He got `ann` rumsey that cute little island of george's.
+- I think you're trying to run before you can walk, `ann`.
+- I was grilling `ann` about your marriage this afternoon.
+- Look, you don't need a lesabre to go out with sue `ann`.
+- Oh, `ann`, dear, it's a shame, those poor� the websters!
+- `Ann`, i don't understand why this freaks you out so much.
+- You -- oh, you mean -- yeah, east lansing and `ann` arbor.
+- '...with his legal wife, the former sally `ann` cavanaugh.'
+- I don't need sue `ann`'s fat ass around to fuck it up...
+- As far a hot... goes i gotta go with... ruth `ann` moorehouse.
+- Before you do, `ann`, perhaps you'd better finish this column.
+- I just... `ann` is very... she's a grown-up, she can handle it.
+- He'll drive there for me, and i'll drive to `ann` arbor for him.
+- Did you know that it's...450 miles from `ann` arbor to nashville?
+- Last time i saw `ann` she left here very... confused, i would say.
+- Now listen, `ann`�he can't possibly get in without our seeing him.
+- Me and my girlfriend `ann` used to go up the fire escape, you know?
+- It's the people that don't know, like `ann`, that have to watch out.
+- All right, you want to talk about lies, let's talk about lies, `ann`.
+- I mean, i can't imagine `ann` painted a very flattering portrait of me.
+- `Ann` and i have kept to our separate bedrooms for the last three years.
+- Dr. thompson, just so the jury knows, you never treated deborah `ann` kaye.
+- Go back to the wall ... tell'em to give me twelve hours to get back with `ann`!
+- Oh, every time `ann` coulter has a cold, what you told me doesn't make any sense.
+- Well, they must be something sexual, because `ann` gets freaked out by that shit.
+- Did you examine deborah `ann` kaye last night at the northern chronic care facility?
+- But those notations stop... ...four-and-one-half minutes after deborah `ann` kaye's...
+- But those notations stop... ...four-and-one-half minutes after deborah `ann` kaye's...
+- 'sally `ann` can confirm all this when the police pick her up at the airport marriott.'
+- I'm joe galvin, i'm representing deborah `ann` kaye, case against st. catherine laboure.
+- This year... drum roll please, my lovely daughter, rebecca `ann` leeman is competin'.
+- He wants to meet with you at seven tonight re testimony in the case of deborah `ann` kaye.
+- Sue `ann`, i thought you of all people would back me up on this, you know what del's like.
+- Towler and marx based their treatment of deborah `ann` kaye on this chart that you signed .
+- `Ann` taylor would have paid a lot more, but i wouldn't trade this experience for the world.
+                 

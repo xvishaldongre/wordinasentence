@@ -1,0 +1,107 @@
+---
+title: "earth in a sentence | earth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "earth"
+---
+- `Earth` is survivable.
+- He is evil on `earth`!
+- Invaders from `earth`.
+- Just peace on `earth`.
+- On god's flat `earth`.
+- These `earth` people .
+- But the `earth` bleeds.
+- But why `earth`, jor-el.
+- The `earth` feels junky.
+- The `earth` is a planet.
+- "the `earth` is my body.
+- The `earth` is our home.
+- The people from `earth`?
+- The scum of the `earth`.
+- The scum of the `earth`.
+- You... you mean `earth`?
+- A hell exists on `earth`?
+- `Earth` before the bombs.
+- He taught `earth` skills.
+- It's coming from `earth`.
+- Oh, damn, i love `earth`.
+- Someone alive on `earth`.
+- We just left old `earth`.
+- What on `earth`, darling?
+- You get to go to `earth`.
+- Answer was always `earth`.
+- Are they going to `earth`?
+- Back to heaven on `earth`.
+- `Earth` is gone, blown up.
+- `Earth` is in outer space.
+- `Earth` isn't coming back.
+- He is going after `earth`.
+- The `earth` is survivable.
+- Welcome to `earth` skills.
+- You have to be on `earth`.
+- Don't tread on the `earth`?
+- `Earth` is their home, too.
+- `Earth` shelter's the best.
+- `Earth`'s mightiest heroes.
+- Fourth-year `earth` skills.
+- I've never been to `earth`.
+- Killed everyone on `earth`.
+- That's not of this `earth`.
+- To peace on `earth`, major.
+- What would i do on `earth`?
+- Woman inherits the `earth`.
+- And scratch out the `earth`.
+- `Earth` was pretty terrible.
+- It's the biggest on `earth`!
+- That `earth` was survivable.
+- But we saw `earth` destroyed.
+- `Earth`... isn't coming back.
+- `Earth` monitoring station.
+- `Earth` skills before dinner.
+- He could destroy the `earth`.
+- He's the salt of the `earth`.
+- It has entered `earth` orbit.
+- There was a stone on `earth`.
+- We all come from `earth`, ok?
+- We're still in `earth` orbit.
+- Creator of heaven and `earth`?
+- "`earth`'s last tomato seeds."
+- I have to get back to `earth`.
+- Is simone back to `earth` yet?
+- I was speaking of `earth` men.
+- Raven will make it to `earth`.
+- So we provide for the `earth`.
+- Then set a course for `earth`.
+- To monitor `earth` is working.
+- And then right back to `earth`.
+- Help me to get back to `earth`.
+- Please send me back to `earth`.
+- What on `earth` are they doing?
+- What on `earth` were you doing?
+- Why on `earth` do you say that?
+- `Earth` monitoring, do you read?
+- It's the freest land on `earth`.
+- Representing the word "`earth`."
+- Tell me your purpose on `earth`.
+- The `earth` must have given way.
+- Well, she's back to `earth` now.
+- Why are the `earth` people here?
+- You gotta listen to the `earth`.
+- How on `earth` did you find that?
+- I think you've saved the `earth`.
+- That the `earth` is survivable?
+- They're stranded here on `earth`.
+- What on `earth` is goin' on here!
+- Where on `earth` have you been!?!
+- Yeah, that's on `earth`, dipshit.
+- Back on `earth`, before the bombs.
+- Days since thanos came to `earth`.
+- How long ago did we leave `earth`?
+- Rest in peace, `earth` monitoring.
+- The greatest conductor on `earth`.
+- To the `earth` in the first place.
+- We received a signal from `earth`.
+- "what is your purpose on `earth`?"
+- When i was a child on `earth`, no.
+- Who aced botany in `earth` skills.
+                 

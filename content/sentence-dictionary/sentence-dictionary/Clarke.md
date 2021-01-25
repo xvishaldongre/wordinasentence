@@ -1,0 +1,107 @@
+---
+title: "Clarke in a sentence | Clarke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Clarke"
+---
+- `Clarke`... helmet on.
+- `Clarke`, is that you?
+- `Clarke`: it's true.
+- `Clarke`: on my way.
+- `Clarke`, we need him.
+- `Clarke`: which one?
+- `Clarke` will be fine.
+- `Clarke`, you made it.
+- Forget about `clarke`.
+- Hurry along, `clarke`.
+- I care about `clarke`.
+- I'm not her, `clarke`.
+- I'm serious, `clarke`.
+- It can stop, `clarke`.
+- That she was `clarke`.
+- That's up to `clarke`.
+- Then we find `clarke`.
+- This is war, `clarke`.
+- Uh... `clarke`'s dead.
+- Your name is `clarke`?
+- Aw... `clarke`'s right.
+- [bellow] `clarke`, run!
+- `Clarke` and gaia have.
+- `Clarke`, be careful.
+- `Clarke`, come with me.
+- `Clarke`: he's alive.
+- `Clarke`: he's right.
+- `Clarke` is in trouble.
+- `Clarke`, listen to me!
+- `Clarke`, listen to me.
+- `Clarke`, listen to me.
+- `Clarke`'s in solitary.
+- `Clarke`, this is aden.
+- `Clarke` took the chip?
+- `Clarke` took the chip?
+- `Clarke`, what is this?
+- I’m coming, `clarke`.
+- Just give up, `clarke`.
+- Listen to me, `clarke`.
+- That could be `clarke`.
+- They're after `clarke`.
+- This is about `clarke`.
+- We can't lose `clarke`.
+- We're at war, `clarke`.
+- We should get `clarke`.
+- What would `clarke` do?
+- You're brave, `clarke`.
+- You stay with `clarke`.
+- All right, mr. `clarke`.
+- [all whooping] `clarke`!
+- `Clarke`, 3 millimeters.
+- `Clarke`... - bellamy...
+- `Clarke`, i've lost her.
+- `Clarke` left us, monty.
+- `Clarke` will have mine.
+- `Clarke`, you read this?
+- `Clarke`... you're hurt.
+- Finn: come on, `clarke`.
+- If you let me, `clarke`.
+- I'm sorry, mr. `clarke`.
+- Now it's up to `clarke`.
+- Now it's up to `clarke`.
+- Ok. _ come on, `clarke`.
+- Real cheerful, `clarke`.
+- But i know you, `clarke`.
+- `Clarke`: bellamy, gun!
+- `Clarke`, do you read me?
+- `Clarke`, it's ok. hello.
+- `Clarke`, just slow down.
+- `Clarke` made her choice.
+- `Clarke`, oh, what is it?
+- `Clarke`'s on their side?
+- `Clarke`, where'd you go?
+- `Clarke` would love this.
+- `Clarke`, you were right.
+- How hard can `clarke` be?
+- I do trust you, `clarke`.
+- I'm going after `clarke`.
+- I shot the man, `clarke`.
+- No, `clarke`, you're not.
+- Ok. just go get `clarke`.
+- Tell `clarke` i love her.
+- This is `clarke` griffin.
+- War is brewing, `clarke`.
+- Yes, machina... `clarke`?
+- You were right, `clarke`.
+- `Clarke`, can you hear me?
+- `Clarke`, can you hear us?
+- `Clarke` elevates herself.
+- `Clarke` knows about this?
+- `Clarke`: slow down, roan.
+- `Clarke`, there's no time.
+- `Clarke`... they're alive.
+- `Clarke` told her stories.
+- `Clarke` will get it down.
+- `Clarke`, you can do this.
+- `Clarke`, you're bleeding.
+- Don't be afraid, `clarke`.
+- Find `clarke` and bellamy.
+- For your people, `clarke`.
+                 

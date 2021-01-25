@@ -1,0 +1,66 @@
+---
+title: "sport in a sentence | sport example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sport"
+---
+- How 'bout it, `sport`?
+- You're a real `sport`.
+- This is `sport`-fucking.
+- Oh, please, be a `sport`.
+- I - sure you are, `sport`.
+- There wasn't time, `sport`!
+- Aw, be a good `sport`, rose.
+- You're a good `sport`, lady.
+- I look forward to the `sport`.
+- It's a zero sum game, `sport`.
+- As they say in the `sport` biz.
+- Kitesurfing's a simple `sport`.
+- Please, rose, be a good `sport`.
+- Free diving is over as a `sport`.
+- I like the `sport` the way it is.
+- So whatta you got for me, `sport`?
+- Full of `sport` they were, my lord.
+- They reproduce like it's a `sport`.
+- What's your favorite `sport`, hawk?
+- Even this noble `sport`'s been fixed.
+- `Sport` never treated me bad, honest.
+- I'm out of this `sport` in five years.
+- A natural athlete can play any `sport`.
+- Away, begone; the `sport` is at the best.
+- I am the richest man i love this `sport`!
+- We better make it, or `sport`'ll get mad.
+- Bowling was the most incorruptible `sport`.
+- Merciless, one of the champions of the `sport`?
+- That fella "`sport`" looks like a killer to me.
+- You heard of kickboxing, `sport` of the future?
+- How are things in the pimp business, hey `sport`?
+- You had me going for quite a while there, `sport`.
+- Sure...relax `sport`, no one's gonna blow a whistle.
+- You're walking around blind without a cane, `sport`.
+- You try to be a good `sport`, and look what happens.
+- Don't expect to get it all, `sport`, you'll burn out.
+- Shit, i'm all for being a `sport`, but this is ridiculous.
+- Some people say it's the most virile `sport` in the world.
+- Come into new orleans and let me show you some real `sport`!
+- What are you going to do about `sport` and that old bastard?
+- I have killed thousands of other animals as well--for `sport`.
+- So `sport`, the falcon has heard the falconer...tell me more...
+- ...and after that `sport` and i just started hanging out... o.k.
+- I was just-- but i do miss that green `sport` coat of yours.
+- He's taken our young men off to teach them my favorites `sport`.
+- Now be a `sport` and lemme have twenty bucks to put in my pocket.
+- The mask is an artifact from a `sport` outlawed in twenty-twelve.
+- I want you, `sport`, to give me the missing half of the picture...
+- I don't even know why hang-gliding is considered a legitimate `sport`.
+- Revenge is a dish best served cold... well, it's payback time, `sport`.
+- You need to go back to the school i am falling in love with this `sport`.
+- It's a dog, what else you got, `sport`, besides connections at the airport?
+- The baron couer de noir is his guest and must be provided with some `sport`.
+- ...come on `sport`, you gotta try harder, i need some exercise for chrissake...
+- I like you `sport`, i ever tell you that... gordon, call me gordon from now on.
+- You tried to run away in my taxi but your friend -- `sport` -- wouldn't let you.
+- I'm getting rather bored with that `sport` jacket, and those same baggy pants.
+- He calls me `sport` one more time, and i'll blow a watermelon-sized hole through him.
+- I hope to spoil this `sport`, and trust to see this sword of mine in that big bully's body.
+                 

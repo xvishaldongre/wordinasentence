@@ -1,0 +1,107 @@
+---
+title: "dollars in a sentence | dollars example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dollars"
+---
+- Millions of `dollars`.
+- One billion `dollars`.
+- One billion `dollars`.
+- Only twenty `dollars`?
+- Pay the two `dollars`.
+- Six million `dollars`.
+- Ten million `dollars`.
+- Thirty five `dollars`.
+- Two hundred `dollars`.
+- Two million `dollars`?
+- Two million `dollars`!
+- You won ten `dollars`.
+- Five `dollars` an hour?
+- Five hundred `dollars`.
+- Five million `dollars`.
+- Five million `dollars`?
+- Four billion `dollars`.
+- Here's forty `dollars`.
+- In 'sixties' `dollars`.
+- Six thousand `dollars`.
+- Six thousand `dollars`?
+- Tem thousand `dollars`.
+- Ten thousand `dollars`.
+- Two-hundred `dollars` .
+- Two thousand `dollars`.
+- You owe five `dollars`.
+- Eight million `dollars`.
+- Fifty million `dollars`.
+- Five thousand `dollars`.
+- How bout five `dollars`?
+- Nine thousand `dollars`.
+- Eight thousand `dollars`.
+- Fifty thousand `dollars`!
+- Forty thousand `dollars`?
+- I gave him two `dollars`.
+- It's six `dollars` a man.
+- Ten `dollars`... a month.
+- Twelve hundred `dollars`.
+- You need a few `dollars`.
+- Eh... five `dollars` more.
+- Fifteen million `dollars`.
+- Give me the two `dollars`.
+- He gave me five `dollars`.
+- Thousand `dollars` a game.
+- About forty-five `dollars`.
+- A half a million `dollars`?
+- Everything's ten `dollars`.
+- Fifteen thousand `dollars`.
+- Here's a hundred `dollars`.
+- I'd pay you 1000 `dollars`.
+- Okay... twenty `dollars`...
+- Only two hundred `dollars`.
+- Eight quadrillion `dollars`.
+- Forty `dollars` -- was $250.
+- ...forty thousand `dollars`!
+- It's ten thousand `dollars`.
+- Just five `dollars`, please.
+- One million `dollars`, dino.
+- That's twenty-six `dollars`.
+- Two hundred `dollars` a pop.
+- We've got sixteen `dollars`.
+- But a half million `dollars`!
+- Five, seven, eight `dollars`.
+- I've got a million `dollars`.
+- Man 2: one hundred `dollars`.
+- Still got that ten `dollars`?
+- Thousand `dollars` of reward.
+- About five thousand `dollars`.
+- Even less in monkey `dollars`.
+- Extra cheese is two `dollars`.
+- For twenty thousand `dollars`.
+- I bet him a hundred `dollars`!
+- I get thirty `dollars` a week.
+- I have five-hundred `dollars`.
+- I need ten thousand `dollars`.
+- I took out thirteen `dollars`.
+- It's three thousand `dollars`!
+- Man 3: two thousand `dollars`.
+- Ninety-six thousand `dollars`.
+- One-hundred billion `dollars`.
+- Ten minutes for ten `dollars`.
+- Tens of millions of `dollars`.
+- That's five hundred `dollars`.
+- Two hundred `dollars`, please.
+- Who wants a hundred `dollars`?
+- A million `dollars` in jewelry.
+- Fifty `dollars` an hour, right?
+- Give yourself twenty `dollars`.
+- I got eighteen `dollars`, dude.
+- I have a few hundred `dollars`.
+- I have three billion `dollars`.
+- I need three hundred `dollars`.
+- That's five thousand `dollars`.
+- The ticket is thirty `dollars`.
+- This is nine hundred `dollars`.
+- Twelve hundred `dollars` there.
+- Two-hundred thousand `dollars`?
+- A hundred and eighty `dollars`?!
+- C'mon, three thousand `dollars`.
+- I gave her a thousand `dollars`.
+                 

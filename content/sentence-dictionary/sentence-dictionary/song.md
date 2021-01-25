@@ -1,0 +1,107 @@
+---
+title: "song in a sentence | song example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "song"
+---
+- I remember the `song`.
+- That's rache's `song`!
+- We'll drop the `song`.
+- Who's the `song` bird?
+- A `song` about pirates.
+- Shall we have a `song`?
+- This is a great `song`.
+- Wine, women and `song`.
+- Yeah, that's my `song`.
+- Early, sing me a `song`.
+- I fucked that `song` up.
+- It's that `song`, harry!
+- This `song`'s for peggy.
+- Yes, i know this `song`.
+- You can sing the `song`.
+- A `song` a comin' i feel.
+- He wrote a `song` for me.
+- It's such a great `song`.
+- I wrote a `song` for you.
+- Got another `song` for us?
+- I feel a `song` coming on.
+- I never heard that `song`.
+- Sing a `song` of sixpence.
+- You not ruining my `song`.
+- An authentic pirate `song`.
+- I always hated this `song`.
+- I'm a `song`-and-dance man.
+- I'm screwing up the `song`.
+- It's the steely dan `song`.
+- Let's listen to the `song`.
+- There's an old punk `song`.
+- They're playing our `song`.
+- He used to love this `song`.
+- I feel a `song` a comin' on.
+- Oh, like that `song`... sue.
+- What's your favorite `song`?
+- I know they're `song` lyrics.
+- It's only my favorite `song`.
+- Looks like you know a `song`.
+- The `song` is directly ahead.
+- Without a `song` in my heart.
+- I don't understand the `song`.
+- The `song`'s 9th and hennepin.
+- ...this is a snappy `song`....
+- Anybody could know that `song`.
+- Grant wrote the `song` himself.
+- The `song` i was trying to hum.
+- Those are `song` lyrics, jerry.
+- My mother taught me that `song`.
+- Sing a `song` of sixpence... no.
+- The `song` my friend, taught me.
+- You better not sing that `song`.
+- Is there a `song` you don't know?
+- Maybe we could all sing a `song`.
+- A beautiful crazy, `song`, maxine.
+- I'm just so scared of that `song`.
+- I wanna play a `song` on the juke.
+- That's a great title for a `song`!
+- Because they're playing our `song`.
+- Turns up in a leonard cohen `song`.
+- I haven't heard that `song` in ages.
+- Don't drag me into your lonely `song`.
+- Just come play a little `song` for me.
+- Play a `song` then do i know any gigs?
+- There is no way she likes that `song`.
+- We're gonna do the <u>team `song`</u>.
+- Where have i heard this `song` before?
+- They're playing your `song`, mrs. peel.
+- When they won't play my fucking `song`?
+- And she's gonna sing an original `song`.
+- Ike, you could make a `song` outta that!
+- Oh mama, i'm so... tired of that `song`.
+- Remember the `song` we did in the diner?
+- `Song` that was playing when we crashed.
+- You gotta let the whole `song` play out.
+- I never get to finish my "safely" `song`.
+- I thought that was the end of the `song`.
+- The `song` is called "murder by numbers."
+- He was singing that weird `song` he loves.
+- ♪ i was singing this `song` ♪ - i saw him.
+- The real question is who wrote the `song`?
+- We are gonna have to practice that `song`.
+- And already pissing yourself a swan `song`.
+- Individual whale `song` getting stronger...
+- Geez, don't make it into a `song` and dance.
+- I thought maybe you'd like to hear a `song`.
+- It's the exact same `song` on the recording.
+- ♪ jingle bells chime ♪ - i love this `song`.
+- Okay, marge, this is your big `song` number.
+- It just came out of me like a `song`, maxine.
+- I'm reminded of a `song` i learned as a child.
+- Same booth, same `song` -- i missed you, fran.
+- You said you're goin' a help me pick a `song`.
+- Here's a very sad `song` about the world today.
+- You're not going to do a `song` while i'm here!
+- And a `song` someone sings once upon a december.
+- Frank, i can't sing that fucking `song` anymore!
+- Had a hit `song` in each of these sites in 1980.
+- Hey, i'm glad you put truth in your `song`, man.
+- We were romantic then too-- but the same `song`.
+                 

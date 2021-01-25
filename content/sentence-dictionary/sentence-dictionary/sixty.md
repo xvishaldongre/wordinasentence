@@ -1,0 +1,107 @@
+---
+title: "sixty in a sentence | sixty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sixty"
+---
+- `Sixty`-five years ago.
+- `Sixty`- forty, at best.
+- This ain't `sixty`-five.
+- I star-`sixty`-nined you.
+- The firm took in `sixty`.
+- For `sixty` seconds, maybe!
+- I owe you a dollar `sixty`.
+- You mean camp `sixty`-nine.
+- We're `sixty` thousand left.
+- What other `sixty`-thousand?
+- About `sixty`, seventy bucks.
+- Four hundred and `sixty`, sir.
+- In miami, we sell for `sixty`.
+- The property is worth `sixty`.
+- A hundred and `sixty`-two feet.
+- Can you live on `sixty` pounds?
+- `Sixty` years old by our count.
+- This rope is `sixty` years old!
+- A dollar `sixty`-nine, plus tax.
+- I'm `sixty`-five years old, ray.
+- `Sixty`, maybe seventy families.
+- You keep the `sixty`-four cents.
+- It is guarded by `sixty` men.
+- Hundred and `sixty` first street.
+- Hundred and `sixty` first street?
+- She's written `sixty`-five songs.
+- They told me about `sixty` hours.
+- About `sixty` miles north of here.
+- All i want is thirty-nine `sixty`.
+- If it's `sixty` pounds, it's three.
+- `Sixty` miles off, heading in fast.
+- That's over `sixty` years of intel.
+- A dollar `sixty` per share you said.
+- Dropping you off in `sixty` seconds.
+- I'd say about `sixty`, seventy-tops.
+- I give you `sixty` seconds, admiral.
+- Age: `sixty`-six ...at time of death.
+- `Sixty` four thousand, eight hundred.
+- Twenty, forty, `sixty`, eighty, nine.
+- I wrote `sixty`-three songs this year.
+- `Sixty` seconds, then i'm out of here.
+- Then just say he was `sixty` years old.
+- Well i need the other `sixty`-thousand.
+- Hicks: `sixty` rounds left on "b. forty.
+- I went to fifty or `sixty` games a year.
+- Looking for my room -- one `sixty`- six.
+- Give me the `sixty`-five, i'm on the job.
+- We were going `sixty`-five miles an hour.
+- Y'ever hear of the `sixty` hour work week?
+- A hundred and `sixty`-seven, i think it is.
+- Twenty, forty, `sixty`, eighty, a thousand.
+- Yes -- killing in number one- `sixty`-four.
+- This one came out of a `sixty`-year-old man.
+- At nightfall, he moves, fifty, `sixty` yards.
+- Good evening -- my key -- one `sixty`- eight.
+- `Sixty` for small and seventy-five for large.
+- The ipo's tracking at fifty, `sixty` a share.
+- George, we've got `sixty`-one million dollars.
+- Reptile genes, `sixty` five million years old.
+- Three hundred and `sixty`-fifth bomb squadron?
+- How about marvin's `sixty`-fifth birthday party?
+- You must be a man of about-- about `sixty`-five.
+- ♪ with `sixty` elephants, llamas galore for real?
+- But the truth is, i might have been doing `sixty`.
+- I'm going to buy a `sixty`- three 'vette stingray.
+- The other `sixty`-thousand you said you'd give me.
+- Thirty-five to the left--`sixty`- three, eight ...
+- Well, bomb, we have about `sixty` seconds to drop.
+- You have `sixty` seconds... here's the question...
+- He's been playin' old farmer nigh on `sixty` years.
+- `Sixty` at the needle, another thirty in the forest.
+- In any event, you must be out within `sixty` minutes.
+- Three hundred and `sixty` thousand, so it'll be easy.
+- `Sixty`-five, when we were there, with glen ross farms?
+- Wasn't it something like a hundred and `sixty` million?
+- Date of birth, november the fourth nineteen-`sixty`-two.
+- Set down `sixty` meters this side of the telemetry mast.
+- My company sues your ass for `sixty` million dollars.
+- Class of `sixty`-five is having this event in six months.
+- Give me a minute, marla, alright... just `sixty` seconds.
+- There has been a murder -- this is room one `sixty`-four.
+- I'm doing `sixty` years at otisville, no chance of parole.
+- Chance hill has been with my family for over `sixty` years.
+- We only caught `sixty` ton of skipjack around san benedict.
+- A goddamn radiator hose in a `sixty`-four-and-a-half mustang.
+- I saw him do "tru" with his `sixty` foot robert morse puppet.
+- There's a lisa shermer living just `sixty` miles west of here.
+- A god damn radiator hose in a `sixty`- four-and-a-half mustang.
+- Make that `sixty` and i'm docking your allowance for two weeks.
+- `Sixty`-five, ninety-four-- you <u>have</u> to get out of here!
+- Hell, anyone who can write can pass fifty-`sixty` dollar checks.
+- This is what you want�thirty- nine dollars and `sixty` cents?
+- Madam grusinskaya -- at once -- mr. preysing -- one `sixty`-four.
+- That's not just a ford, that's a `sixty`-four-and-a-half mustang.
+- We can only keep things miniaturized for exactly `sixty` minutes.
+- I guess that's the `sixty` four thousand dollar question, isn't it?
+- "that's not just a ford, that's a `sixty`-four-and-a-half mustang."
+- So the entire `sixty` mile ride back to the airport, we don't speak.
+- Because she only scored `sixty`-one on a look magazine marriage quiz!
+- You're gonna have to carry a mortgage `sixty`, seventy bucks a month.
+                 

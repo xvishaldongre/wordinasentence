@@ -1,0 +1,107 @@
+---
+title: "johnny in a sentence | johnny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "johnny"
+---
+- `Johnny`, how are you?
+- Pop star `johnny` pop.
+- That's `johnny` tyler.
+- Back it down, `johnny`!
+- Don't try me, `johnny`!
+- I don't know, `johnny`.
+- It's not you, `johnny`.
+- `Johnny` dancer, right?
+- `Johnny`, what's wrong?
+- Listen to me, `johnny`.
+- Swell's here, `johnny`.
+- Fuck you, `johnny` utah.
+- It's for luck, `johnny`.
+- It's `johnny` cammareri.
+- `Johnny`, i know, but...
+- `Johnny`, what the fuck?
+- My name's `johnny` utah!
+- Pop don't like `johnny`.
+- Very good, mr. `johnny`.
+- Hello... oh, `johnny`...!
+- `Johnny`, this is zander.
+- Pretty radical, `johnny`.
+- Where you from, `johnny`?
+- I can't do that, `johnny`.
+- `Johnny`, i can't do that.
+- My son's name is `johnny`?
+- Where'd `johnny` find you?
+- I hate this shit, `johnny`.
+- I've got to go be `johnny`.
+- `Johnny` ola... hyman roth.
+- Nothing happened, `johnny`.
+- So this is `johnny` farrel.
+- Take care, wilya `johnny` ?
+- Who killed `johnny` crunch?
+- You're gonna die, `johnny`.
+- But pop don't like `johnny`.
+- It's a little `johnny` joke.
+- `Johnny`, it's the only way.
+- `Johnny`... what's going on?
+- Damn it, damn it -- `johnny`!
+- I know, `johnny`, i know... .
+- I'll miss you, too, `johnny`.
+- `Johnny` has a big apartment.
+- Now then, `johnny`-o; pay me.
+- But `johnny`... you can't fly.
+- Hey, `johnny`, look over here!
+- I'm ronny, `johnny`'s brother.
+- I've worked with `johnny` wad.
+- `Johnny` does you favors, kid.
+- `Johnny`, get this man's file.
+- `Johnny`, my dad's home today.
+- Look, darling, `johnny` ringo.
+- That he knew `johnny` roselli?
+- Why are you marrying `johnny`?
+- I'll take care of it, `johnny`.
+- `Johnny` rico, you're jealous !
+- Preach... get it at `johnny`'s.
+- That don't sound like `johnny`.
+- That wasn't luck, `johnny` boy.
+- I didn't say `johnny` tightlips.
+- I hope it's not `johnny` depp's.
+- But all these people... `johnny`.
+- But that wasn't `johnny`'s fault.
+- Hey `johnny`, where're you goin'?
+- `Johnny` crunch ain't your daddy?
+- `Johnny`, you're a real jerk-off.
+- Bill... pick up... it's `johnny` !
+- His dad was big `johnny` cash fan.
+- I'm going down to `johnny`'s club.
+- `Johnny` had nothing to do with it.
+- You know `johnny` when he gets mad.
+- You want to hurt `johnny` friendly?
+- But `johnny`...you <u>can't fly</u>.
+- `Johnny`, get to the command center.
+- What do you want me to do, `johnny`?
+- You don't want to do that, `johnny`!
+- You've made me very happy, `johnny`.
+- Do you think she killed `johnny` boz?
+- Farm... you heard what `johnny` said.
+- I'm `johnny`-come-lately to all this.
+- It's tied to `johnny`'s c.d., i know.
+- I would never say `johnny` tightlips.
+- I� i was just on my way up, `johnny`.
+- Mr. corleone is `johnny`'s godfather.
+- Mr. corleone is `johnny`'s godfather.
+- The mob contact was `johnny` roselli.
+- And settle this business for `johnny`.
+- Ben -- this isn't permanent, `johnny`.
+- I don't care who's on `johnny` carson.
+- I'm calling for your brother `johnny`.
+- I've been having bad dreams, `johnny`.
+- The don's proud of you, too, `johnny`.
+- This guy, on the `johnny` carson show.
+- What happened to the heroin, `johnny`?
+- ... .and you'll tell `johnny` friendly.
+- I bought the farm, didn't i, `johnny` ?
+- I've seen that kamikaze look, `johnny`.
+- `Johnny` fontane never gets that movie.
+- `Johnny`, get this boy some sun screen.
+- `Johnny`, i have something to tell you.
+                 

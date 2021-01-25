@@ -1,0 +1,59 @@
+---
+title: "pushing in a sentence | pushing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pushing"
+---
+- Stop `pushing` so hard.
+- I was `pushing` the arrow.
+- `Pushing` it is flat wrong.
+- `Pushing` time through lang.
+- I'm not `pushing` you around!
+- We're `pushing` oxygen today.
+- You're `pushing` this too hard.
+- Please, bobbie, we're `pushing`.
+- Dan's parents were `pushing` him.
+- You better quit `pushing` me, pal.
+- I was `pushing` as fast as i could.
+- Just stop `pushing` me all the time!
+- Maybe `pushing` you to do something.
+- `Pushing` the legal limit even then.
+- They're `pushing` us over the cliff.
+- He's `pushing` it through first thing.
+- No kidd'n, he musta been `pushing` 90!
+- That's fucking `pushing` it, margaret.
+- He's `pushing` a little too hard - but...
+- We could try `pushing` the other buttons.
+- `Pushing` the guy sleeping next to you away.
+- What do they have you `pushing`, water beds?
+- Why aren't you `pushing` the large sizes?
+- You're really `pushing` it, bringing me here.
+- What landed you this job, `pushing` "pamcakes"?
+- You've been `pushing` too many pencils, dillon.
+- After `pushing` the button that floated my mother.
+- Even if i was, i'd have been `pushing` a plow.
+- His basket is bigger than the one you're `pushing`.
+- Because you're `pushing` me to be something i'm not.
+- Congress is `pushing` ahead with your court-martial.
+- Then you run the danger of `pushing` them to mutiny.
+- I'm getting tired of you and jaeger `pushing` me around.
+- They would have had much more strength `pushing` on them.
+- I've been `pushing` you too hard to do things on your own.
+- What are you doing -- no, i'm sorry, for `pushing` you out.
+- She's `pushing` for suspension... ... is accusing me of rape.
+- I remember seeing soldiers `pushing` helicopters overboard huh?
+- Well, if we all pushed him away what about him `pushing` us away?
+- What are you doing -- no, <u>i'm</u> sorry, for `pushing` you out.
+- Do you ever feel a flow, as if some- thing were `pushing` against you?
+- No `pushing` in the neighborhood, especially not on my fucking street.
+- My father worked hard too like an elephant `pushing` electrical supplies.
+- That's it... and if you keep `pushing` this hard, they didn't find raven.
+- In another 10 years you're going to be `pushing` him around in a wheelchair.
+- Well, he has been `pushing` me to meet his father, but i've been putting it off.
+- You just keep `pushing` those buttons, those there, send everything at him, okay?
+- I had to call beery this morning, let him know we were `pushing` the picture back.
+- `Pushing` emori away because she deigned to find a skill but you're doing so well.
+- There's just so much `pushing` i can take and i think... sick old women are sharp.
+- Management was restructurin'-- you got fired from `pushing` a broom, you little bitch.
+- Instead of `pushing` lang through time, you might've wound up `pushing` time through lang.
+                 

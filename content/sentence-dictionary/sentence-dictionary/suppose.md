@@ -1,0 +1,107 @@
+---
+title: "suppose in a sentence | suppose example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suppose"
+---
+- `Suppose` nobody does.
+- `Suppose` you tell me?
+- Yes, i `suppose` i do.
+- But `suppose` he loses?
+- Do you `suppose`..... ?
+- I... `suppose` so, yes.
+- `Suppose` he found out.
+- Well, `suppose` we did?
+- Yep, i `suppose` it is.
+- You don't `suppose`...?
+- I `suppose` he loved me.
+- I `suppose` it was mine.
+- I `suppose` that's true.
+- It's funny, i `suppose`.
+- `Suppose` i take a look.
+- The accent, i `suppose`.
+- Well, `suppose` he does?
+- Well, yeah, i `suppose`.
+- Yes, i `suppose` it was.
+- You don't , i `suppose`.
+- But `suppose` it doesn't?
+- I `suppose` that's right.
+- I `suppose` you're right.
+- On his back, i `suppose`.
+- `Suppose` i was pregnant.
+- You said- i `suppose` so.
+- Easy for you to `suppose`.
+- I `suppose` everyone does.
+- I `suppose` it does a bit.
+- I `suppose` it's possible.
+- I `suppose` they are, sir.
+- Might as well i `suppose`.
+- What am i `suppose` to do?
+- What do you `suppose` for?
+- I `suppose` you want a tip?
+- No, not really i `suppose`.
+- `Suppose` i do...then what?
+- `Suppose` they don't come?
+- Then i `suppose` it was me.
+- The same thing i `suppose`.
+- To be married, i `suppose`.
+- Yes, i `suppose` you would.
+- I `suppose` our deal is off.
+- I `suppose` we're all human.
+- `Suppose` he had slipped us.
+- `Suppose` it's an emergency?
+- `Suppose` i was really hurt!
+- What do you `suppose` it is?
+- I `suppose` it worked before.
+- I `suppose` that means "hi" ?
+- I `suppose` you want a cabin.
+- No, i don't `suppose` it has.
+- `Suppose` that were the case?
+- `Suppose` you could say that.
+- `Suppose` you help us escape.
+- That's something i `suppose`.
+- Yes, i `suppose` that's true.
+- Yes, i `suppose` that we did.
+- An inevitability, i `suppose`.
+- I `suppose` i could manage it.
+- I `suppose` i did it to clive.
+- I `suppose` i proposed to you!
+- I `suppose` it could be wrong.
+- `Suppose` i don't go for that?
+- `Suppose` she should leave it?
+- Watch us all die, i `suppose`.
+- What d'you `suppose` happened?
+- You're an expert, i `suppose`.
+- You're a real cop i `suppose`.
+- Am i `suppose` to be this sore?
+- Who do you `suppose` he is?
+- Do you `suppose` it's a faerie?
+- I `suppose` he trusts you, too?
+- I `suppose` i am a bit anxious.
+- I `suppose` i can move it over.
+- I `suppose` i could answer you.
+- I `suppose` that would be okay.
+- I `suppose` you could say that.
+- It was `suppose` to be private.
+- Let's `suppose` you were a spy.
+- Like your cocaine, i `suppose`.
+- No i don't `suppose` you would.
+- Who do you `suppose` they were?
+- I don't `suppose` i could watch.
+- I `suppose` anything's possible.
+- I `suppose` he changed his mind.
+- I `suppose` you're in your taxi?
+- I `suppose` you're seventy-five.
+- Oh, lots of things, i `suppose`.
+- `Suppose` he's holding a grudge?
+- `Suppose` you make up your mind.
+- Coming... just me, i `suppose`...
+- I don't `suppose` you've read it.
+- I `suppose` duval's onto me, too?
+- I `suppose` that's true in a way.
+- I `suppose` you don't believe me.
+- I `suppose` you know why i came�?
+- It could be a cover, i `suppose`.
+- Looking for peanuts, i `suppose`.
+- No one was `suppose` to get hurt.
+                 

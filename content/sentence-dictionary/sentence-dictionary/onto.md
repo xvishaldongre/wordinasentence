@@ -1,0 +1,107 @@
+---
+title: "onto in a sentence | onto example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "onto"
+---
+- Grab `onto` something.
+- He's `onto` something.
+- Runs `onto` the field.
+- It leads `onto` a roof.
+- You're `onto` something.
+- I wanna hold `onto` them.
+- Now they're `onto` neski.
+- He knows we're `onto` him!
+- Hold `onto` your potatoes!
+- How'd they get `onto` you?
+- Just hold `onto` the rope.
+- ...as they snoop `onto` us.
+- Escort him `onto` the ship.
+- Go `onto` the next question.
+- How did you get `onto` doom?
+- To back up `onto` the drive.
+- Maybe something's `onto` him.
+- Dad was `onto` something here!
+- He says he's `onto` something.
+- Hold `onto` those co-ordinates.
+- We better hold `onto` 'em both.
+- Mickey hold `onto` that thought.
+- I'll just hold `onto` it for you.
+- I suppose duval's `onto` me, too?
+- Now i want you to hold `onto` it.
+- Cat, you tie `onto` this manifold.
+- Data,lock `onto` that plasma coil.
+- Don't you know what you're `onto`?
+- I think i'm `onto` something, joe.
+- Ok. bear right `onto` the freeway.
+- We're `onto` something really big.
+- How long was it latched `onto` you?
+- They led big dave `onto` the craft.
+- You better hold `onto` your tongue!
+- You hang `onto` it or give it back?
+- You held `onto` this all that time?
+- A window `onto` the human condition?
+- I moved payroll `onto` the computer.
+- Make sure you hold `onto` something.
+- Conviction that i'm `onto` the truth.
+- Do you mind if i hang `onto` this?
+- He brought a gun `onto` the pool deck.
+- Hold `onto` your pay- check this week.
+- Like pouring pure silk `onto` my skin.
+- He got `onto` the pool deck with a gun.
+- Well, i'm `onto` something more useful.
+- You're projecting your anger `onto` us.
+- And therefore, more cases `onto` a boat.
+- Hold `onto` it-- wow... this one's cool.
+- I must've walked `onto` the wrong yacht.
+- The feds would be `onto` you in a month.
+- Their transporters can lock `onto` them.
+- We can't afford to have a fed `onto` us.
+- You cannot drive them out `onto` the road.
+- All i can do is try to hold `onto` to both.
+- He was going to turn me `onto` the big man.
+- I'll have to go outside to tie `onto` them.
+- Isn't that my report you're holding `onto`?
+- Let the communists know you're `onto` them.
+- Now lock `onto` the strongest power source.
+- Short round, come on, grab `onto` me tight!
+- You were holding `onto` it like grim death.
+- For coming `onto` my property... with a gun.
+- He superimposed your head `onto` "scarface."
+- History books are first `onto` the bonfires.
+- So... clarke: get her `onto` the dropship.
+- That's quite a girl you boys latched `onto`.
+- The nsa thinks the un is `onto` your work...
+- Towards your mother `onto` your art teacher.
+- We need to tattoo her code `onto` your back.
+- I'm `onto` something, marlon - something big.
+- I was standing there, holding `onto` that tv.
+- `Onto` the ridge, and once we have fireballs.
+- Fell out of the tail rope and `onto` the deck.
+- I will of course do my best to hang `onto` it.
+- Just don't let salucci think we're `onto` him.
+- My wife turned me `onto` cold lamb sandwiches.
+- There has to be another way `onto` the bridge.
+- Well, we should all go out `onto` the terrace.
+- Empty the gun `onto` the table, very carefully.
+- Her mind latched `onto` it during the procedure.
+- It's the one thing i've got left to hold `onto`.
+- My brother's hanging `onto` it for safe keeping.
+- Snoop `onto` them... yo, brain dead, the manual!
+- That's why we're turning off `onto` a fire road.
+- I can probably walk `onto` the lacrosse team.
+- Are the clothes thrown out `onto` the front yard?
+- But it opens `onto` the sheer wall of the needle.
+- Death causes her mind to back up `onto` the drive.
+- The thing i don't get is get kane `onto` the ship.
+- That's how you knew you were `onto` something ugly.
+- I might have to hang `onto` that for the time being.
+- I need you to pull your vehicle `onto` the shoulder!
+- Either way, figure it's something you can grab `onto`.
+- Is actually home rage that i bring `onto` the highway.
+- Some of 'her perfume' has found its way back `onto` you.
+- Take the getty center exit -- make a right `onto` cisco.
+- When she ran `onto` the field in the middle of the game?
+- Locus is sobbing... latching `onto` his mother's sweater.
+- Someone is going to have to lure him `onto` the platform.
+                 

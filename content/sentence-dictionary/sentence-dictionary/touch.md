@@ -1,0 +1,107 @@
+---
+title: "touch in a sentence | touch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "touch"
+---
+- Don't `touch` a thing.
+- Don't you `touch` him.
+- Frozen to the `touch`?
+- He has to `touch` her.
+- Hey, don't `touch` me.
+- I want to `touch` you.
+- Just don't `touch` me!
+- Let's stay in `touch`.
+- No one can `touch` it.
+- No one can `touch` us.
+- Practical `touch` 'em.
+- They can't `touch` us.
+- You're out of `touch`.
+- Don't `touch` anything.
+- Don't... `touch`... me!
+- Don't `touch` that car.
+- Don't `touch` that gun!
+- I wouldn't `touch` 'em.
+- Nobody `touch` nothing.
+- Can i `touch` your nose?
+- Can't stand his `touch`.
+- Don't `touch` anything.
+- Don't `touch` him jamie!
+- Finn, don't `touch` her.
+- Hey, don't `touch` that.
+- Never `touch` the stuff.
+- Not you mustn't `touch`.
+- Are you still in `touch`?
+- Did you `touch` anything?
+- He can't `touch` you now.
+- Hey, `touch` me ... wait!
+- No one is to `touch` him!
+- Skin has to `touch` skin.
+- We lost `touch` with her.
+- When i `touch` myself...?
+- Why don't you `touch` it?
+- You guys keep in `touch`?
+- You will keep in `touch`.
+- Don't `touch` that button.
+- Don't you dare `touch` me!
+- I `touch` it all the time.
+- Look, i didn't `touch` it.
+- Now don't `touch` a thing.
+- Sorry... don't `touch` me!
+- We never `touch` anything.
+- You shouldn't `touch` her.
+- But i can sure `touch` him.
+- I don't `touch` it no more.
+- Irs can't `touch` one cent.
+- Jimmy, did you `touch` her?
+- Now, `touch` me... ...here.
+- No, you have to `touch` it.
+- ...that they can't `touch`.
+- To be able to `touch` them.
+- ....with a woman's `touch`.
+- You `touch` anything, mike?
+- You will never `touch` her.
+- Get off me don't `touch` me.
+- Let's stay in `touch`, okay?
+- No-o-o... don't `touch` her!
+- Can you not `touch` my plant?
+- Don't ever `touch` him again.
+- Don't `touch` those triggers!
+- They can't `touch` me inside.
+- You `touch` my spleen, rollo.
+- A `touch` of malaria, perhaps?
+- But he couldn't `touch` me...!
+- Don't `touch` me, god damn it!
+- Please don't `touch` her bags.
+- `Touch` some part of her body.
+- You won't let him `touch` her?
+- I don't try to `touch` her.
+- I'm...in `touch` with humanity.
+- I will get in `touch` with you.
+- No, no, a `touch` of cold only.
+- Only let you `touch` it...ouch!
+- We'll be in `touch`, mr. cross.
+- We'll definitely be in `touch`.
+- Bend over and `touch` your toes.
+- First the kiss then the `touch`.
+- Inhale this, but do not `touch`.
+- I thought it was a nice `touch`.
+- It just needs a woman's `touch`.
+- Nice `touch`, pritchett: subtle.
+- Oh jack, mightn't i `touch` one?
+- They didn't `touch` the machine.
+- We shouldn't `touch` that money.
+- [zhang, faint] don't `touch` me!
+- Did you `touch` murphy yesterday?
+- Don't let her `touch` the device.
+- Do you keep in `touch` with them?
+- How do i get in `touch` with you?
+- I bet you'd like to `touch` them?
+- I thought the rag had to `touch`?
+- No, he didn't make me `touch` it.
+- So near we can almost `touch` it?
+- The local boys put us in `touch`.
+- We can't `touch` hoover -- no ...
+- What the hell... ...`touch` that.
+- You can `touch` me, i won't bite.
+                 

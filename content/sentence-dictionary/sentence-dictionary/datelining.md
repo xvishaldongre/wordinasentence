@@ -1,0 +1,7 @@
+---
+title: "datelining in a sentence | datelining example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "datelining"
+---
+## Unfortunately, we have no example sentences for datelining                 

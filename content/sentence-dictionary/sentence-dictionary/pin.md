@@ -1,0 +1,72 @@
+---
+title: "pin in a sentence | pin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pin"
+---
+- We'll `pin` it on him.
+- By the way, your `pin`.
+- I tried your atm `pin`.
+- It�s my father�s `pin`.
+- A `pin`, neighbor stone!
+- What'll i `pin` this on?
+- [what's the `pin` number?]
+- It's the chancellor's `pin`.
+- Management were `pin` heads.
+- Some `pin` head's yelling...
+- Maybe the firing `pin`'s off.
+- You have a `pin`, just in case?
+- Hard to `pin` that bastard down.
+- `Pin` your diapers on, lebowski.
+- I guess we know mike's `pin` code.
+- I was gonna `pin` it to your wall.
+- The two men struggle for the `pin`.
+- Because i'm his damned `pin`-up girl!
+- Find the insider who switched the `pin`.
+- You can "`pin`" me any time you want to.
+- _ as long as you don't pull the `pin` out.
+- Guess we're goin' over to the "ten `pin`".
+- I can put a `pin` in it right now and stop.
+- Don't worry about your little `pin` cushion.
+- I can put a `pin` in it right now, and stop.
+- You try and `pin` me, and i try and `pin` you.
+- There's no way they can `pin` anything on me.
+- You going to give me your `pin` or something?
+- Faith is angels dancing on the head of a `pin`.
+- Just goin' up'ta "tops"... maybe the "ten `pin`".
+- We draw him in, `pin` him down, get what we need.
+- What if-- nah, they'd shut down the `pin` number.
+- Made him give them the `pin` numbers of our accounts.
+- Sleeping in a mud pit, pulls the coil and `pin` back.
+- So i'm standing there and you could hear a `pin` drop.
+- They had to take apart the `pin` machine to get him out.
+- We've been passing the chancellor's `pin` not this song!
+- When i saw it, you could'a knocked me over with a `pin`.
+- It'll explode in just five seconds if you pull the `pin`.
+- You tried to `pin` three stone murders on dunbar -- stop.
+- Cack the old man, `pin` it on roger, and destroy the will.
+- Uh... because that's who the king `pin` wants us to fleece.
+- I'm gonna pull it out and i want you to `pin` it down, okay?
+- A pneumoencephelogram, i would think, `pin` down that lesion.
+- Her ball moves so slowly it barely tips over the first `pin`.
+- All you needed was a sap to `pin` it on, and you'd just met me.
+- Turns out this ducking moe was an accountant for the king `pin`.
+- If you could speak to baby jesus, `pin` a dollar on jesus, homer.
+- Do they think i did it, or is it just something else to `pin` on me?
+- Except usually there's more grunting and squirming before the `pin`.
+- It tried to `pin` down what the attraction is after all these years.
+- I figure masseria's gonna try to rub out profaci, and `pin` it on us.
+- Seamus offers up the `pin` - maura waits a beat, then takes it - why?
+- Then you want to give her your school `pin` ... what's the matter?
+- The firing `pin`'s busted - the - don't waste time talking about that.
+- There's only about one explanation for a thing like this..got a `pin`?
+- Currently, the king `pin` is a very large-type pole stuck up our asses.
+- His specialty for tourists was a maxim engraved on the head of a `pin`.
+- I know his cock's the size of a `pin` - let me give you the real thing.
+- Guy's fixing to pull the `pin` on fifty kilotons and we're all ringside!
+- T.j., run a trace on this, see if you can `pin` down where it came from.
+- You strutted and swaggered, you fucking piece of shit, king-`pin` in a shithouse.
+- I have two bodyguards, i don�t need a third... it�s not the `pin` your father wore.
+- ♪ hot wing sauce is great ♪ i'll give you this little `pin` from a defunct yacht club.
+- They call him the king `pin` because he looks like that guy from the comic book... big.
+                 

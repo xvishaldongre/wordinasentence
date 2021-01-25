@@ -1,0 +1,56 @@
+---
+title: "awfully in a sentence | awfully example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "awfully"
+---
+- It looks `awfully` bad.
+- Is it `awfully` violent?
+- They're `awfully` heavy.
+- You were `awfully` good.
+- It's `awfully` clear now.
+- We're going `awfully` far.
+- It's `awfully` kind of you.
+- That seems `awfully` silly.
+- You've been `awfully` kind.
+- `Awfully` nice of you to say.
+- Isn't that `awfully` forward?
+- Mummy's `awfully` good at it.
+- It is `awfully` hot down here.
+- Paul said you were `awfully` sick.
+- Yes, `awfully` tempting, wasn't it?
+- Her: 'well -- it is `awfully` late.'
+- Neither have i. i'm `awfully` sorry.
+- I warn you, i can yell `awfully` loud.
+- No, i meant, it's `awfully` dangerous.
+- You give up `awfully` easy, don't you?
+- You have an `awfully` nice habit, sam.
+- They're going to think i'm `awfully` rude.
+- Oh, those motorcycles are `awfully` chilly.
+- You're being `awfully` forward, aren't you?
+- Two transports at a time is `awfully` risky.
+- Well, someone looks `awfully` nice for church.
+- You look `awfully` young to be a police officer.
+- Well, i'm really am most `awfully` sorry but i ...
+- It's `awfully` nice of you to show me around like this.
+- Dave, these things get `awfully` complicated sometimes...
+- You are `awfully` young to be traveling alone, aren't you?
+- For somebody with such a big brain, you think `awfully` small.
+- But, you know, it's `awfully` hard to forget what he called me.
+- You're concentrating `awfully` hard considering it's gym class.
+- They're getting `awfully` close... what the hell are they doing?
+- I mean burn me for a heretic, but your god seems `awfully` small.
+- I would be `awfully` glad to oblige, you've been so decent to me.
+- Oh, you're sorry are you, well you must think i'm `awfully` stupid.
+- Or you're an `awfully` good one.. ..this thing these blokes pinched..
+- She said `awfully` sorry, make yourself comfortable, she won't be long.
+- Leonard: he's heading pretty far out on the north leg and `awfully` high.
+- But--i mean--for a woman--and--you've done `awfully` well-- no complaints.
+- Jack kerouac and i came `awfully` close, but he was afraid of me, i think...
+- Whatever information this r-2 unit is carrying, it must be `awfully` important.
+- `Awfully` short notice.. well, ethan hunt, what is it you want to talk to me about?
+- I--i'm `awfully` glad to be--that is, it was nice of you to-- uh--how's your father?
+- Diverting to the kolarin system takes us `awfully` close to the romulan neutral zone.
+- Your face looks `awfully` familiar, i just can't quite place it... jackie, get in the car.
+- That seems like an `awfully` long time to be waiting for just one moment, don't you think?"
+                 

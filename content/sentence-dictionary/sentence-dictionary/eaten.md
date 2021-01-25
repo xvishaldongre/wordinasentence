@@ -1,0 +1,53 @@
+---
+title: "eaten in a sentence | eaten example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eaten"
+---
+- Try not to get `eaten`.
+- You've already `eaten`.
+- You've `eaten` nothing.
+- I ain't `eaten` all day.
+- `Eaten` by some squirrels.
+- You haven't `eaten` in days.
+- Has he `eaten` anything at all?
+- Have you ever `eaten` with one?
+- You haven't `eaten` your lunch.
+- I feel as if i've `eaten` glass.
+- Is this all you've `eaten` today?
+- They have `eaten` your ass alive.
+- Food will be `eaten` on your time!
+- We haven't `eaten` in three weeks!
+- He was `eaten` by a praying mantis.
+- Ohhh, but i've `eaten` five of these.
+- The cure before we get `eaten` alive.
+- It's been two days since it's `eaten`.
+- I would have `eaten` that dirt for them.
+- No good... it's `eaten` too much of me...
+- Because pasta should be `eaten` "al dente".
+- Well you should have `eaten` your breakfast.
+- They tell me you haven't `eaten` in two days.
+- Oh, man, i've never `eaten` so good in my life.
+- Well, you're to take these after you've `eaten`.
+- Yes, it's been several hours since we've `eaten`.
+- But she hadn't `eaten` one hour prior to admission.
+- When was the last time, either of you have `eaten`?
+- If he's `eaten` in the area, he shouldn't be far away.
+- Including things that ate or were `eaten` by a chicken.
+- I gotta get something to eat, i haven't `eaten` all day.
+- I haven't `eaten` an egg in�have you noticed there are chickens?
+- You get sort of shaky but you don't realize you haven't `eaten`.
+- But since it's all i've ever `eaten`... to put the flame in ontari.
+- Ever imagine what it'd be like to get `eaten` alive by a wild beast?
+- I don't know -- it depends on whether or not they've already `eaten`.
+- In the old days, jimmy would have ordered doubles and `eaten` it all.
+- Rose, you don't look well and you haven't `eaten` a bit of breakfast.
+- There as a fucking tiger in the woods -- i could've been `eaten` alive.
+- The american boy in twenty-one is only to have these after he's `eaten`.
+- I never know if i've already `eaten`, so i always just eat small amounts.
+- Judging by this segment alone, it's already `eaten` about... two days.
+- Dragging our asses through the swamps in search of some worm-`eaten` boat?
+- But if i were you, i'd leave the doctor alone until after he's `eaten` breakfast.
+- He's painted my picture, we've `eaten` dinner in god knows how many places together.
+- Usually a slice is dried out your mother's about to say that the money was `eaten` by rats.
+                 

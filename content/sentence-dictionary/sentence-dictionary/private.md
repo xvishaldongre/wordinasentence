@@ -1,0 +1,107 @@
+---
+title: "private in a sentence | private example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "private"
+---
+- I'm a `private` snoop!
+- What is it, `private`?
+- Your `private` number?
+- Is in `private` prison.
+- You hear me, `private`?
+- You're a `private` eye.
+- He's `private` property.
+- I am a major, `private`.
+- It's `private` property.
+- `Private` cage, j squad.
+- `Private` property, bub.
+- A `private` investigator?
+- Can we talk in `private`?
+- This is a `private` area!
+- This is a `private` club.
+- You know, very `private`.
+- I'm a `private` detective.
+- Let us speak in `private`.
+- `Private` affair... wyatt!
+- She's intensely `private`.
+- This is a `private` party.
+- This is `private`, auggie.
+- Your `private` train, sir.
+- It's my `private` business!
+- Miller dream on, `private`.
+- This is `private` property.
+- We gotta talk in `private`.
+- No, doc, a `private` secret!
+- Take care of `private` cage.
+- This here is `private` cage.
+- This is a `private` meeting.
+- This is her `private` space.
+- This is my `private` home...
+- You're dismissed, `private`.
+- Don't threaten me, `private`.
+- More a `private`... business.
+- `Private` cage is a deserter.
+- Suicide is a `private` thing.
+- Are you a `private` detective?
+- Compliments of `private` cage.
+- Good morning, `private` james.
+- This is my `private` property.
+- It's a `private` investigation.
+- It was suppose to be `private`.
+- They are - `private` - letters.
+- He was a `private` investigator.
+- So you're our own `private` guy?
+- There's hope for you, `private`.
+- To a `private` island, like you?
+- But you're very `private` people.
+- Explains the `private` detective.
+- In the `private` aircraft hangar.
+- It's got a cabin, it's `private`.
+- Roth got out on a `private` boat.
+- That this be opened in `private`.
+- Yeah, this way is more `private`.
+- You are a `private` investigator?
+- Let's talk in `private`, okay?
+- Could i speak to you in `private`?
+- [enola] i'm a `private` detective.
+- I'm just a `private` investigator.
+- `Private` investigation, you mean.
+- Tell that to `private` james ryan.
+- This is as `private` as we'll get.
+- ...for our own `private` amusement.
+- He's a san francisco `private` eye.
+- I didn't go to no `private` school.
+- I'm looking for a `private` island.
+- I need to talk to you in `private`.
+- It's a `private` matter, for you...
+- They are for my `private` use only.
+- You're like, a `private` detective?
+- You're not in uniform... `private`.
+- You're that guy, the `private` eye.
+- Buried her at a "`private`" service.
+- Can we talk about this in `private`?
+- I've worked in the `private` sector.
+- I was acting as a `private` citizen.
+- So was the radio `private` property.
+- We'll start a `private` study group.
+- Ask him about his `private` life.
+- Did you just interrupt me, `private`?
+- I'm sorry, it's a `private` function.
+- I want a very `private` conversation.
+- But i just became a `private` citizen.
+- Milt arbogast, `private` investigator.
+- That sounds kind of `private`, clarke.
+- This is `private` property, my friend.
+- Watches and mileage on `private` jets.
+- He's a very `private` person, actually.
+- Hey, the poet... hi, `private` eye guy!
+- I know how `private` you and sally are.
+- I'm very happy to hear that, `private`.
+- I've told you a lot of `private` stuff.
+- `Private` school, harvard, and now med.
+- You seem to have misplaced a `private`.
+- But you gave up your `private` practice.
+- I have an eye on his `private` bathroom.
+- Maybe you two should speak in `private`.
+- These are `private` -- these are for us.
+                 

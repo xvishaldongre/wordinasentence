@@ -1,0 +1,7 @@
+---
+title: "acutes in a sentence | acutes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "acutes"
+---
+## Unfortunately, we have no example sentences for acutes                 

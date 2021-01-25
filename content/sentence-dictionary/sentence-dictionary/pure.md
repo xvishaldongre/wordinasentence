@@ -1,0 +1,84 @@
+---
+title: "pure in a sentence | pure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pure"
+---
+- This is `pure` indigo.
+- It's `pure` and simple.
+- It's `pure` speculation!
+- `Pure` calypso, brother.
+- `Pure` un-refined spice!
+- But your heart is `pure`.
+- "`pure` animal instinct"?
+- I'm not "`pure` of heart."
+- `Pure` as the driven snow.
+- Acosta is `pure` mercenary.
+- Uh, it means "`pure` life."
+- `Pure` unadulterated hatred?
+- It's `pure` bullshit, sweetie.
+- You're really `pure`, you know?
+- 125% `pure` pleasure malt liquor.
+- Also that... not `pure` evil.
+- It seems his motives were `pure`.
+- `Pure` animal instinct took over.
+- Upholstered in `pure` silk damask.
+- Hone in on the `pure` transmission.
+- Never mind, it's absolutely `pure`.
+- This is vengeance `pure` and simple.
+- What's so fucking `pure` about that?
+- More like `pure` pants-wetting panic.
+- Someone chaste... `pure`... innocent.
+- Like pouring `pure` silk onto my skin.
+- I knew this whole place'd be `pure` gold!
+- It's supposed to be made outta `pure` gold!
+- That stuff is like `pure`, concentrated evil.
+- That's `pure` nitro you're dealin' with there.
+- Turner blood doesn't flow `pure` in his veins.
+- But it was `pure` wishful thinking on her part.
+- Moments of `pure` joy always have consequences.
+- What's so `pure` about forty-eight dead bodies?
+- Of course -- no one's that perfect, that `pure`.
+- Thirty-five percent `pure` methane gas in there.
+- Bowling used to be so `pure`, so...all- american.
+- She is experiencing nothing but `pure` happiness.
+- Pump in two liters of `pure` oxygen, please henry.
+- Since you confess this is all `pure` guesswork.
+- That's what it comes down to, `pure` and simple.
+- He's `pure` slime and it's leakin' all over my baby.
+- `Pure` and uncut, straight from the cerebral cortex.
+- The `pure` horror, it both repels and attracts them.
+- I sensed <u>no</u> emotion, only... ... `pure` logic.
+- What a maiden, `pure` as the driven snow, i'm sure.
+- But the psychoactive component is `pure` red sun toxin.
+- `Pure` gold it is... plays a different note every time.
+- A laser capable of emitting a beam of `pure` anti-matter.
+- You rob a bank, but you keep your body `pure`, is that it?
+- I just need to have access to the `pure` virus, that's all!
+- Like winton marsalis says, it was `pure`, spiritual essence.
+- `Pure` and fuckin' simple, i'll fuckin' kill you, you bitch.
+- Every life we honored at the memorial are they `pure` enough?
+- Your kind is `pure` of heart - the devil won't dick with you.
+- I got me a flask of `pure` kentucky mash whiskey... what deal?
+- I know what you're thinking, she's a hysteric `pure` and simple.
+- It's `pure` hell--if i never see another chicken, i'll be happy.
+- Colson doesn't know about it; he's `pure` as a virgin on this one.
+- I think i speak correctly when i say that cameron's love is `pure`.
+- It only looks `pure` because blood washes so easily from its blade.
+- You want to reach out and touch `pure` evil... and in detroit no less!
+- You know that officially that's a `pure` fantasy -- who did he digitize?
+- It was kind of inspiring to know there was someone so `pure` in the world.
+- They was scared of me... figured i might shoot 'em out of `pure` meanness.
+- That's how she's able to stay so `pure` -- by isolating herself in her art.
+- Suddenly you're into `pure` research and you... you're what, a parasitologist?
+- My faith is not as `pure` as yours, ♪ it's all inside you ♪ i'll figure it out.
+- Teacher asked me why we raise black angus-herefords 'stead of `pure` herefords.
+- And now you want a mathematical equation that you should know it means "`pure`."
+- Just a little tiny taste, that stuff makes `pure` mescaline seem like ginger-beer.
+- This is a grade, one-hundred percent `pure` colombian cocaine, ladies and gentlemen.
+- Me and my brother dozer, we are 100 percent `pure`, old- fashioned, home-grown human.
+- Even when i was little, i remember my mother used to say, "that child is `pure` sunshine.
+- It's `pure` evil to make a captain walk the plank of his own ship, twice in one lifetime.
+- If you think i come here for any reason besides `pure` boredom, then you're all wrong.
+- The fact that they say it's made out of `pure` gold, makes no nevermind to you, right?
+                 

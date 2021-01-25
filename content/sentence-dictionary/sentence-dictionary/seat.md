@@ -1,0 +1,107 @@
+---
+title: "seat in a sentence | seat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seat"
+---
+- Okay -- take a `seat`.
+- Please, have a `seat`.
+- Return to your `seat`!
+- I'll save you a `seat`.
+- It's under your `seat`.
+- You can't get a `seat`.
+- Do we have `seat` belts?
+- Let's all have a `seat`.
+- Not enough `seat` belts.
+- Under the `seat`... who?
+- Won't you have a `seat`?
+- Come here, have a `seat`.
+- Grab a `seat` there, boy.
+- I found it on the `seat`.
+- In a box under my `seat`.
+- Lifting `seat` with shoe.
+- The `seat`'s got my feet!
+- Um, save me a `seat`, ok?
+- Yeah, take a `seat` there.
+- Yes, please have a `seat`.
+- Have a `seat`, dr. jackson.
+- He's `seat` of the pants...
+- Well, have a `seat`, anyway.
+- Woman: please have a `seat`.
+- But, cliff, that's my `seat`.
+- If you'll just have a `seat`.
+- Take a `seat` -- you're next.
+- I'll take your `seat` any day.
+- No, no, no�that's your `seat`.
+- The `seat` behind him is open.
+- Uh, let me see, have a `seat`.
+- We only `seat` by reservation.
+- Bart's mom wears a `seat` belt.
+- Good... you have a nice `seat`.
+- No... well, offer her a `seat`!
+- Remember, get the `seat` fixed.
+- Did you get up from your `seat`?
+- Go get us a `seat` on the plane.
+- You keep a bat under your `seat`?
+- I'm taking over the center `seat`.
+- It's the best `seat` in the house.
+- Please have a `seat` on the table.
+- Sorry i'm in your `seat` aren't i?
+- Stretch your arms over the `seat`.
+- Take a `seat` and learn something.
+- Well then, take a `seat` everyone.
+- Will you all please take a `seat`.
+- Yeah, `seat` belts and insulation.
+- About me taking the council `seat`.
+- My wife needs a `seat` as well.
+- Stretch out under the `seat`, miss.
+- Ricky, can you put on a `seat` belt?
+- There's a `seat` over there for you.
+- This one gets a front row `seat`.
+- If you were my friend, take a `seat`.
+- I've already got `seat` cushion butt.
+- Man, you won't like that back `seat`.
+- You'll find it under the wagon `seat`.
+- It's ok. just have a `seat` right here.
+- Right here's the `seat` of the trouble.
+- You didn't have to give away my `seat`.
+- Do you want an aisle or a window `seat`?
+- I put up a stiff battle for that `seat`.
+- Let's grab a fuckin beer -- `seat` belt.
+- Have a `seat`, make yourself comfortable.
+- There you go �� best `seat` in the house.
+- To `seat` you here if you should come in.
+- Back in the driver's `seat` again, doctor?
+- Please, have a `seat`, lieutenant... west?
+- I'll even let you ride in the front `seat`.
+- Okay -- have a `seat`... gently, carefully.
+- Why don't we have a `seat` and talk it over.
+- ...actually, he keeps his on the back `seat`.
+- Get her out of the `seat`, i need room to sit.
+- I got you a `seat` in the seven hundred level.
+- Ok. marice why don't you take a `seat` for me?
+- This is all so -- by the `seat` of your pants.
+- They put me in a `seat` and asked me questions.
+- You just have a `seat`, wait for me to get there.
+- Marty, that's louise kelly, inna back `seat` there.
+- Mr. kane... come right in...please...have a `seat`.
+- I think you should go back to your `seat` now, joey.
+- Put on your `seat` belt before i get another ticket.
+- Well, i got a `seat`, but i have no place to put it.
+- Every `seat` for the opening has been sold at vienna.
+- What are you doing in the girl's room, `seat` soaker?
+- Captain tyler flies out of his `seat` and into action.
+- You'll get a shock from hell if you touch that `seat`.
+- ♪ and where is the `seat` belt, 'cause i can't find it.
+- By offering the skaikru a `seat` the data says it does.
+- Best `seat` in the house -- hey, mick, this is too much.
+- My wife found a bird in the back `seat` of her car once.
+- Take a `seat`, pop, we gotta talk - she seems very nice.
+- I feel glued to my `seat` for reasons i don't understand.
+- I was just about to take my `seat` in the house of lords.
+- As of this morning, there's an open `seat` on the council.
+- Just lots of forms and an appearance at the county `seat`.
+- Hildy, you've got the whole city by the `seat` of the pants!
+- Not your oldest acquaintance, yeah, just take a `seat`, sir.
+- Or possibly your land, your estate, your title, your `seat`.
+                 

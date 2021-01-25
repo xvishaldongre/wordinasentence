@@ -1,0 +1,64 @@
+---
+title: "community in a sentence | community example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "community"
+---
+- This was a `community`.
+- I "polarize the `community`."
+- It was a `community` service.
+- Pillar of the `community` ...
+- The trust of our `community`.
+- It's my bit for the `community`.
+- A real pillar of the `community`.
+- Is this the `community` hospital?
+- Making money for our `community`.
+- City of light `community` college.
+- There's a small `community` of us.
+- The word only means "`community`."
+- He'd been revered in our `community`.
+- I do good things for this `community`.
+- That dog's a menace to the `community`.
+- I've seen them grow up in the `community`.
+- Get them out to the jewish `community` stat.
+- To all the young females in the `community`.
+- An expired `community` college student id card.
+- We're providing a valuable `community` service.
+- I asked, down at the japanese `community` center.
+- She works in admissions at lakeshore `community`?
+- Oh, he's going to leave a hole in the `community`.
+- `Community` thespians, today we honor our covenant.
+- It is important that we come together as a `community`.
+- What an act of benevolence--a service to the `community`.
+- Joker, a man like yourself can do a lot for this `community`.
+- What possible use can i be to an already thriving `community`?
+- No, we're bringing the `community` into the effort to find her.
+- It's embarrassing to the professional `community`, is what it is.
+- My uncle - dr. matthew collins, pastor of the `community` church.
+- Self reliance and `community` through the disciplines of sailing.
+- To hear what skills you can bring to the `community`, is he here?
+- Bobs it's part of st. katherine's new `community` outreach program.
+- For that `community` that we have been at the forefront of driving.
+- Usually this goads a `community` into some kind of paranoid frenzy.
+- We want the power to determine the destiny of our black `community`."
+- That mythical `community` you're supposed to come from -- fort wayne'?
+- When she publishes, the scientific `community` must take it seriously.
+- Yeah, man, it means love, respect, `community`... and the dollars too.
+- The vampires find a `community` and they feed on it, make it their own.
+- It's impossible to express the hole his loss will leave in our `community`.
+- I want this to be a marriage based on love, trust and `community` property.
+- Uh... we seem to have "underestimated" the support of the black `community`.
+- Without a paper -- a journal of some kind -- you cannot unite a `community`.
+- The whole `community` is hiding the truth of what actually happened up there.
+- Three: "we want to end the robbery by the white man of our black `community`."
+- The whole u.s. intelligence `community` is mixed in with the covert activities.
+- We cannot afford free speech if it excises the moral fiber of this `community`!
+- They do most of the working and paying and living and dying in this `community`.
+- They don't teach that at sunday school or at the whittier `community` playhouse!
+- We got a nice quiet beach `community` here, and i aim to keep it nice and quiet.
+- ...and the opportunity to help my brothers and sisters in the jewish `community`.
+- We need men like you here, to be sure that our `community` will continue to thrive.
+- You have been called by some in the `community` a traitor, a sellout, an uncle tom.
+- You go into the `community`, walk their walk, talk their talk, gain their confidence.
+- We provide some extracurricular activities for the senior citizens in the `community`.
+                 

@@ -1,0 +1,69 @@
+---
+title: "Sarah in a sentence | Sarah example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sarah"
+---
+- She named her `sarah`.
+- `Sarah`, my daughter...
+- Faithful little `sarah`.
+- You can call me `sarah`.
+- `Sarah`, order a chopper.
+- This is a dream, `sarah`.
+- After `sarah`... hey, yeah.
+- I think she's with `sarah`!
+- Jack's pinned down `sarah`.
+- Room service...hi, `sarah`.
+- `Sarah` eye on the package.
+- `Sarah`, if i get zeroed...
+- I saw `sarah` the other day.
+- Is this about `sarah` lawrence?
+- `Sarah` packard... bert gordon.
+- I'm josephine `sarah` marcus.
+- `Sarah`, this is dr. silber- man.
+- `Sarah`, do you think i'm a loser?
+- What did you say that for, `sarah`?
+- Would you get off my back, `sarah`?
+- `Sarah`, we weren't unreasonable.
+- How did you know my name was `sarah`?
+- I think my `sarah` fancies you, conner.
+- `Sarah`, please don't bounce that here.
+- You see, `sarah`... here's the problem.
+- `Sarah` was my girlfriend at prep school.
+- Those are `sarah` lawrence guys, patrick.
+- You're supposed to be showing up `sarah`.
+- I believe you already know `sarah` harding.
+- So, what's this `sarah` got that you don't?
+- `Sarah` has gone missing... my servant girl.
+- `Sarah`, hold on, he'll have you in a second.
+- `Sarah` so what happens when you've sold out?
+- I'm asking you seriously, `sarah`, a stranger?
+- After `sarah`... what the hell is he doing here?
+- Hey, about everything that happened with `sarah`.
+- There's not much time left in the world, `sarah`.
+- Well, you went to `sarah` lawrence for one thing.
+- Listen `sarah`, i think i know what's going on ok.
+- To sell that hemp body lotion `sarah` likes so much?
+- Hi there `sarah` sir wilfred, this is `sarah` brighton.
+- `Sarah` lawrence is on the other side of the country.
+- '`sarah`"...this is the message... '`sarah`, thank you.
+- That's where `sarah` darling was murdered last night.
+- You know, someday, `sarah`, you're gonna settle down.
+- `Sarah` williams left the bar with trudell on her own.
+- And our little `sarah`, we'll all go climbing together.
+- This is me and `sarah` when i was still at city college.
+- I want to get maxie dean and `sarah` up here immediately.
+- Lieutenant... `sarah` had a picture book about outer space.
+- You kept sayin' "`sarah`, close the window," over and over.
+- `Sarah`, tonight why don't you and hal come over for dinner?
+- Alright `sarah`, are you ready for the best ride in the park?
+- Bailey won't stop drinking and `sarah` can't take it anymore.
+- So we broke up and i went home with some beatnik from `sarah` lawrence.
+- When you go to `sarah` lawrence, i won't even be able to watch the game.
+- I'm showing sixteen people with the name `sarah` williams in l.a. county.
+- She's `sarah` connor, works as a legal-- six shots at less than ten feet.
+- `Sarah`, i'm going to kentucky to play pool, with a guy by the name of findley.
+- We've almost got the house ready, you bring `sarah` with you and i'll show you.
+- Your department contacted our agency regarding information on `sarah` williams.
+- `Sarah`, we could take off and leave this guy behind... fine, i guess... how're ya feeling?
+                 

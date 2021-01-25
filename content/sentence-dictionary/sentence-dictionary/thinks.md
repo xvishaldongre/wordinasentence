@@ -1,0 +1,107 @@
+---
+title: "thinks in a sentence | thinks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thinks"
+---
+- He `thinks` he failed.
+- He `thinks` i have it.
+- He `thinks` i took it.
+- Daddy `thinks` so, too.
+- Even kelly `thinks` so.
+- "he `thinks` i'm neat."
+- He `thinks` i'm simple.
+- He `thinks` it's funny.
+- He `thinks` someone's .
+- I know how he `thinks`.
+- She `thinks` he's here.
+- `Thinks` it's terrific.
+- Who `thinks` that, sir?
+- Everybody `thinks` that.
+- Everyone `thinks` i did.
+- It `thinks` like a game.
+- She `thinks` he's a pig.
+- She `thinks` we�re dead.
+- `Thinks` it's a mistake.
+- Fie on what she `thinks`!
+- He `thinks` he's in love.
+- He `thinks` it's elegant.
+- He `thinks` of the river!
+- He `thinks` they're what?
+- I know emily `thinks` so.
+- She `thinks` i do, but...
+- That's what she `thinks`.
+- The doctor `thinks` i am.
+- `Thinks` he's making art.
+- `Thinks` i can't see him.
+- <u>`thinks`</u> i'm gone.
+- Will `thinks` it's funny.
+- Ask paul what he `thinks`.
+- Everyone else `thinks` so!
+- He `thinks` he's innocent.
+- He `thinks` he's superior.
+- Santiago `thinks` you did.
+- Who `thinks` of this shit?
+- He `thinks` he looks young.
+- Joe `thinks` he needs kids.
+- Whatdoya think it `thinks`.
+- Everyone `thinks` i'm crazy.
+- I'm sure she `thinks` it is.
+- John `thinks` i'm so snotty.
+- She `thinks` she's so great.
+- That's not what he `thinks`.
+- `Thinks` he's martin borman.
+- Hector `thinks` you like him.
+- He `thinks` like an american.
+- Science `thinks` there isn't.
+- She `thinks` she's gonna die.
+- Well, dad `thinks` it's okay.
+- If she `thinks` me a liar?
+- He `thinks` he's ethel merman.
+- He `thinks` he's joe gunn now.
+- He `thinks` homer is an idiot.
+- He `thinks` i just want money.
+- He `thinks` i'm "sublimating".
+- I don't care what he `thinks`.
+- That's what everyone `thinks`.
+- Diyoza `thinks` the same thing.
+- Everybody always `thinks` that.
+- Everybody `thinks` you're what?
+- He never `thinks` he needs any.
+- He `thinks` i've bewitched you.
+- He `thinks` something happened.
+- If he `thinks` he's man enough.
+- I he `thinks` she's the killer.
+- She `thinks` i'm nick, i'm not!
+- She `thinks` this face is cute?
+- The commander `thinks` you did.
+- `Thinks` it has so many colors.
+- Who `thinks` about such things?
+- He `thinks` his nose is too big.
+- John `thinks` it's very dashing.
+- She `thinks` it was an accident.
+- She `thinks` of him as a father.
+- She `thinks` you're with simone.
+- `Thinks` you raised me stupidly.
+- You don't know what he `thinks`.
+- You know what everyone `thinks`?
+- I don't care what scott `thinks`!
+- I'm telling you what he `thinks`!
+- No doubt paul `thinks` it stinks.
+- She `thinks` we're good together.
+- Wally `thinks` apples are boring.
+- Who `thinks` about such nonsense?
+- Yeah, she `thinks` you're a dork.
+- You know she `thinks` it's a sin.
+- Because he `thinks` he's innocent.
+- He `thinks` he's in good standing.
+- He `thinks` you're a loose cannon.
+- It `thinks` and learns like we do.
+- Mama `thinks` she's gone for good.
+- Maybe he `thinks` it'll come back.
+- She `thinks` it�s-- why, with you.
+- She `thinks` she can punk me, huh?
+- She `thinks` we tried to kill her.
+- Think he still `thinks` about her.
+- `Thinks` he's got us by the balls.
+                 

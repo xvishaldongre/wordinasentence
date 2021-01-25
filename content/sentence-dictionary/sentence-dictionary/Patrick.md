@@ -1,0 +1,65 @@
+---
+title: "Patrick in a sentence | Patrick example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Patrick"
+---
+- I'm `patrick` bateman.
+- Sister mary `patrick`?
+- What is it, `patrick`?
+- Listen to me, `patrick`.
+- `Patrick` -- is that- a.
+- `Patrick`, what's wrong?
+- You going with `patrick`?
+- Call me please, `patrick`.
+- Well, where was `patrick`?
+- `Patrick` bateman's office.
+- `Patrick`, we should do it.
+- Isn't that right, `patrick`?
+- `Patrick`, we need to focus.
+- `Patrick`, you re a lunatic.
+- `Patrick` verona random skid.
+- You can't name her `patrick`.
+- Can you bring mr... `patrick`?
+- I don't understand, `patrick`.
+- She was unconscious, `patrick`.
+- Listen: `patrick`, he's... bill!
+- Pleasure to meet you, `patrick`.
+- Tell baby `patrick` i loved her.
+- Oh don't be difficult, `patrick`.
+- This is `patrick` ewing wegman.
+- `Patrick`, would you do me a favor?
+- `Patrick`, me lad, i'm ahead of you.
+- I'm not davis, i'm `patrick` bateman!
+- `Patrick`, let's just get through this.
+- `Patrick`, you get platinum props, man.
+- `Patrick` can ask katarina to the party.
+- `Patrick`, i think he knows you're here.
+- It's all over talk about what, `patrick`?
+- Mary `patrick`, i need you in the office.
+- Oh `patrick`, i can't make this decision.
+- Those are sarah lawrence guys, `patrick`.
+- Goes out with that loser `patrick` bateman.
+- I can't say i know `patrick` all that well.
+- Oh, `patrick`, you didn't want any, did you?
+- `Patrick`, we're in the middle of -- hold on.
+- `Patrick` don't call me pumpkin anymore, okay?
+- This is my very good friend `patrick` bateman.
+- Answer the question, `patrick` you need therapy.
+- Name's `patrick`, i met him at the driving range.
+- Could your confess to father `patrick` from now on?
+- `Patrick`, a mr. donald kimball is here to see you.
+- I'll just have them call and tell `patrick` it's us.
+- `Patrick`, thanks so much for looking after courtney.
+- That was `patrick` and the last name-- it's pat cary.
+- `Patrick`, have you ever wanted to make someone happy?
+- `Patrick`, pat, you're not looking at the big picture.
+- He has a great body everybody's good-looking, `patrick`.
+- "this is `patrick`..." "...and this is `patrick` on crack."
+- She'll be minding you until sister mary `patrick`'s return.
+- Mary `patrick`, you're a pretty cheerful person, aren't you?
+- Girls, please excuse sister mary `patrick` for a few moments.
+- Mary `patrick`, you re not a natural soprano, you're an alto.
+- I've always wondered what `patrick` swayze is like in real life.
+- Spring is here the sun will shine mary `patrick` -- do you remember the dixie cups?
+                 

@@ -1,0 +1,8 @@
+---
+title: "preachers in a sentence | preachers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "preachers"
+---
+- Look kinda like `preachers`.
+                 

@@ -1,0 +1,8 @@
+---
+title: "dribbling in a sentence | dribbling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dribbling"
+---
+- `Dribbling` down the pitch.
+                 

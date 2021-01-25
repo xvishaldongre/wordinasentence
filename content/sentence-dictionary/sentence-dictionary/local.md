@@ -1,0 +1,105 @@
+---
+title: "local in a sentence | local example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "local"
+---
+- From `local` plant life.
+- Just a `local` farm boy.
+- Just `local`, of course.
+- Oh, uh, `local` theater.
+- They have to be `local`.
+- I want something `local`.
+- This is a `local` writer.
+- `Local` 15, monday nights.
+- With the `local` bacteria.
+- Oh, those are only `local`.
+- Fbi, cia, nsa, `local` cops.
+- `Local` completely isolated.
+- Interested in `local` curios?
+- Part of the `local` wildlife.
+- You were his `local` contact.
+- `Local` calls cost five cents.
+- No way those are `local` boys.
+- I'm the `local` police officer.
+- No, it was `local` jurisdiction.
+- And all the `local` police can't?
+- It was all over the `local` news.
+- The `local` boys put us in touch.
+- He's starring in the `local` play.
+- You should be dating `local` boys.
+- `Local` government commissioned it.
+- Sonrisa didn't want `local` talent.
+- We got a `local` kid that's missing.
+- `Local` lawyer for dominican dealers.
+- Think we should call the `local` p.d.
+- `Local` 8 just started in penns grove.
+- I just told them the `local` situation.
+- It may well have been the `local` cops?
+- What's your take on these `local` boys?
+- You don't go after the `local` scrunch?
+- He was a `local` legend back in the '70's.
+- I'd like to apologize for our `local` boy.
+- "`local` boy inherits more money than god."
+- `Local` man leonard "lenny" leonard no, no.
+- You seem to appreciate the `local` scenery.
+- It's the `local` palermo paper, isn't it?...
+- You can reach me through the `local` police.
+- Asking you to sponsor the `local` quilting bee?
+- Only till they get you into the `local` school.
+- Kris kringle union, `local` 5732. girl problems.
+- They're gonna let some `local` cop blow him away.
+- You stole it from a drunk at the `local` casbah?!
+- They have to clear all the `local` roads of mines.
+- Now i want to say a few word to you `local` people.
+- Down at a `local` dive the kids like to hang out in.
+- The `local` importers get a pass for the time being.
+- Get some `local` people to take care of the other two.
+- I wasn't standing around guarding the `local` taco bell.
+- Battling gangs for `local` charities, that kind of thing.
+- Perhaps we should call a `local` law enforcement officer.
+- A series of bizarre shifts in `local` weather patterns ...
+- Just some `local` pinot, you know, then a little burgundy.
+- Maybe we can get some of the `local` kids to sing with us.
+- Takin' over this `local`, you know it took a little doin'.
+- I'm writing programs for the `local` public access station.
+- Most all the babies i delivered were from `local` families.
+- Then we woulda moved on 'til the next `local` putz caught on.
+- You and i become a driving force on the `local` geisha scene.
+- Gustavo dudamel and `local` wunderkind, kids, call the police!
+- He's well rehearsed .. mr blattis, of our `local` news- paper.
+- Sheriff bogany, head of the `local` forces ... miss van buren.
+- You can do practically the whole deal at your `local` kinko's.
+- A gang of `local` thugs managed to rescue him from the gallows.
+- `Local` smarty-pants lisa simpson has been abducted and then...
+- She's a `local` grief counselor from the church over in jonesboro.
+- But generally we let the `local` police and da do their work first.
+- To the `local` police i'm a prize, to the `local` hoods i'm a legend.
+- You are absolutely not to involve yourself in any `local` disputes.
+- I contacted your `local` coroner, and he found it taped to his back.
+- The result would be ... destruction of their `local` weather systems.
+- That's `local` underground, where information spreads by word of mouth.
+- I didn't see those on any of the other girls... well, she's not `local`.
+- Teddy roosevelt, one of the `local` shrimp boat captains is in jail now.
+- He's also had his people phone a `local` madame for another group of girls.
+- They popped-up on the medium-range about thirteen twenty-four `local` time.
+- * feeding you a line of crap about john g. * being some `local` drug dealer.
+- I'm just trying to make a living, and i don't want to become a `local` joke.
+- You could take a `local`, arrives in two hours, and transfer in albuquerque.
+- Zombies set to knock out `local` air defense four hundred miles from primary.
+- I don't have anything planned, turning now to `local` news, oh, i'm a nothing.
+- The `local` priest and this doyle girl are getting up a meeting in the church.
+- The `local` population hates us and we don't know we'll get through it somehow.
+- The bureau does not send us in on these cases to lord it over the `local` police.
+- `Local` girl, karen murphy, been missing for a couple months, figured for a runaway.
+- Whenever we got `local` merch, we'd usually send it to palm spring or arizona... la.
+- A `local` railwayman told him the tracks are divided, one branch leading to treblinka.
+- Two weeks ago, we managed to arrange to have the army hang one of the `local` farmers.
+- All `local` women at first, then we had support from women and men all over the country.
+- We have an autopsy report on the murderer who was shot in the act by the `local` police.
+- You have access, you can call up `local` authorities, check morgues, conduct interviews.
+- I can't go to the `local` cops -- they'd never be able to get close enough at this point.
+- Look we can use someone from the embassy and we can get the `local` authorities involved.
+- Mooning over julie when we could <u>both</u> be gettin' some o' this fine `local` action.
+- It�s just you don�t look `local`... and you better stop greeting strangers with a shotgun.
+                 

@@ -1,0 +1,107 @@
+---
+title: "cares in a sentence | cares example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cares"
+---
+- You know, who `cares`?
+- Nobody fucking `cares`!
+- Who `cares` about that?
+- After that, who `cares`?
+- Who `cares` about bugs ?
+- Who `cares` if it works?
+- Yeah, well, who `cares`?
+- It's like nobody `cares`.
+- Who `cares` about brooke?
+- Who `cares` if you're mr.
+- Who `cares` what i think?
+- I dunno, i... who `cares`?
+- He `cares` about you, abby.
+- He's a toon... who `cares`?
+- Who `cares` what i believe?
+- Who `cares` what you think.
+- All he `cares` about is low.
+- She `cares` so much about you.
+- Who `cares` what your name is?
+- I care because god `cares`!
+- How much she `cares` about you?
+- Nobody `cares` for you like me.
+- Who `cares` about these people?
+- Nobody `cares` about an old man.
+- Who `cares` who it hurts, right?
+- Who `cares`... you wanted slime.
+- He actually `cares` about these .
+- Let's never stop... who `cares` ?
+- Nobody `cares` enough about them.
+- She only `cares` about the money.
+- Nobody `cares` about the watchmen.
+- Who the hell `cares` what i think?
+- Mistaken me for someone who `cares`.
+- Besides, who `cares` if he's married?
+- <u>nobody</u> `cares` about my movie!
+- Who the fuck `cares` about cleveland.
+- I went to a turkish bath, who `cares`?
+- No one `cares` about your blood there.
+- Who `cares` what anybody thinks anyway?
+- If the public `cares` enough to read it.
+- I guess no one `cares` what i got a job.
+- She actually `cares` about other people.
+- Why, i believe the little woman `cares`.
+- You're the only person he `cares` about.
+- Am i the only one who `cares` about this?
+- Right now, i don't think she `cares`.
+- Because he `cares` about your department.
+- I'm the only one that `cares` about will!
+- Whether he `cares` about us is different.
+- Zuzu, wake up... who `cares` about people?
+- The king `cares` for nothing and for no one!
+- I'm telling you that no one else `cares`.
+- Nobody `cares` a damn, what's the use of them!
+- Who `cares` what psychiatrists write on walls?
+- Not that he `cares` but the wife and kid might.
+- Who `cares` what sandwich the bitch was eating?
+- It is so comforting to know that someone `cares`.
+- It's like, you're his favorite, then who `cares`?
+- All he `cares` about is getting back to the nexus.
+- [door closes] who `cares` about his damn quarters?
+- Do you still think the joker `cares` about money??
+- There's not one of them that `cares` a damn for you.
+- You know what jerry, who really `cares` at this point?
+- Aw, come, come, come -- nobody `cares` about me at home.
+- I mean, who the hell `cares` about this penny-ante shit.
+- I never had a friend that `cares` for me the way you do...
+- Who `cares` if what's outside doesn't match what's inside?
+- We take the cash and the only other thing he `cares` about.
+- Who `cares` that 11 billion people are on fire as we speak?
+- I'm just happy that george has found someone he `cares` for.
+- Everybody `cares` for youth but nobody `cares` about joey blow.
+- Now, if you don't mind, but who `cares` if it gets you drunk?
+- I don't think mom `cares` that much that my...that peter left.
+- I mean, there's ray, but he `cares` for me in a different way.
+- Who is only invulnerable so long as he `cares` about the dead.
+- Who `cares` if you're never known as the first girl in the nba.
+- All my mother `cares` about is her standing at the country club.
+- An adult t-rex `cares` about one thing -- filling its own belly.
+- Who `cares` about marriage, the bed just gets crowded and noisy?!
+- The only thing octavius `cares` about is repeating his experiment.
+- It's the ticking of a box on a sheet of paper no one `cares` about.
+- Someone's dead and all he `cares` about is his superstition exhibit.
+- That's because i'm a heartless bastard who only `cares` about money.
+- The ``cares` about people like me' numbers are really in the toilet.
+- Who `cares` if there's a few little things you'd rather not remember?
+- Who `cares` if this guy is devoid of faith or sleeps over a pentacle?
+- One more dead body's not going to make any difference, so who `cares`?
+- Welcome back to the grizzly timbersports that's all she `cares` about.
+- You're depriving our famous young friend here... nobody `cares`, ronald.
+- Who `cares` what i said last night, james i -- i was drunk, i was stoned.
+- Nobody `cares` what you think, i'm running this show, i make the decisions.
+- Why don't you just cut it down and count the goddamn rings--who <u>`cares`</u>?
+- Who `cares` if a couple of no- account bootleggers went to jail for his killing?
+- Alright, wait... there's a dentist in brentwood peddling morphine... who `cares`?
+- God `cares` nothing for the man he denies and nothing either for the man he uses.
+- He won't solve your case, but who `cares`, you'll be dead in a couple days anyway.
+- She was here for 10, every field must be cleared of stones who `cares` if it works?
+- What the hell.... snickers, baby, i love you like a brother, but really, who `cares`?
+- Find a nice little snow covered chalet, warm little woman, crackling fire-- who `cares`?
+- He is too simple to see the trap - and there is no one there who really `cares` for him.
+                 

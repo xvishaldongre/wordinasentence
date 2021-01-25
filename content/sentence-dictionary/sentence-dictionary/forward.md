@@ -1,0 +1,107 @@
+---
+title: "forward in a sentence | forward example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "forward"
+---
+- The `forward` airlock.
+- Can you fast `forward`.
+- I look `forward` to it.
+- Continue `forward`, sir?
+- Looking `forward` to it.
+- I'll `forward` your mail.
+- Step `forward` this time.
+- How do you move `forward`?
+- I'll look `forward` to it.
+- It gets carried `forward`.
+- We have to push `forward`.
+- Man: kindly move `forward`.
+- To scout `forward` terrain.
+- Just keep looking `forward`.
+- Okay, wayne, step `forward`.
+- They need a power `forward`.
+- We look `forward`, not back.
+- `Forward` motion, captain...!
+- I shall look `forward` to it.
+- Isn't that awfully `forward`?
+- I step `forward` to lead you.
+- My `forward`-thinking school.
+- Or `forward` into the future.
+- Will you step `forward`, sir.
+- Come `forward`, show yourself.
+- I look `forward` to seeing it.
+- I look `forward` to the sport.
+- I look `forward` to your call.
+- I'm looking `forward` to that.
+- I'm looking `forward` to this.
+- I was looking `forward` to it.
+- Okay, arms up, lean `forward`.
+- Copy that, continuing `forward`.
+- They can look `forward` to that.
+- `Forward` the only way to go.
+- Rudder's left, stick's `forward`.
+- As you exhale, lean `forward`.
+- `Forward` operating base heathrow.
+- Because they keep moving `forward`.
+- I hope i'm not being too `forward`.
+- I've always looked `forward` to it.
+- Then go a little `forward` in time.
+- Just like we look `forward` to this.
+- Then come `forward` and be so named.
+- I left him behind to scoot `forward`.
+- I'm looking `forward` to meeting you.
+- There are still some boats `forward`.
+- To a show i was looking `forward` to.
+- Decided <u>not</u> not come `forward`.
+- Drives `forward`, reverse - stop that!
+- He's really looking `forward` to this.
+- I back up again -- you pull `forward`.
+- I-i'm lookin' `forward` to the future.
+- I was looking `forward` to seeing him.
+- Jake's really looking `forward` to it.
+- I mean, he was lookin' `forward` to it.
+- It�s a step `forward`... don�t you see?
+- Move `forward` with the rest of the 47.
+- The mad `forward` thrust of everything.
+- How could he be looking `forward` to it?
+- I hope you don't think it too `forward`.
+- I look `forward` to reading your report.
+- I was looking `forward` to this evening.
+- To come `forward` seemed like a mistake.
+- He's always been very `forward`-thinking.
+- I'm looking `forward` to this production.
+- It reads the same `forward` and backward.
+- To walking `forward`, to leaning `forward`.
+- Trauma kit's `forward`, on the bulk head.
+- What about a reward for coming `forward`?
+- I look `forward` to the day we meet again.
+- I'm looking `forward` to meeting you, too.
+- I sent the document `forward` to sandefur.
+- Lisa's really been looking `forward` yeah.
+- You look `forward` to this party all year.
+- And, do you wish you hadn't come `forward`?
+- I hear that other women came `forward`.
+- He's looking `forward` to the hotel, i bet.
+- I'll see you then...i look `forward` to it.
+- I'm looking `forward` to the pillow fights.
+- Lightweight `forward` area air device unit.
+- You're being awfully `forward`, aren't you?
+- `Forward` to the white line, toes behind it.
+- It's looking `forward` or it's looking back.
+- Jim was so looking `forward` to meeting you.
+- I've been looking `forward` to this all week.
+- I was looking `forward` to rowing you around.
+- Peters and i will search the `forward` decks.
+- I am not looking `forward` to another stretch.
+- I'm looking `forward` to making it all better.
+- I see him as a `forward`-thinking guy, clarke!
+- I've looked `forward` to this for a long time.
+- The estate stuff is pretty straight `forward`.
+- We can't go `forward` -- and we can't go back.
+- It has to constantly move `forward` or it dies.
+- It's the one thing i have to look `forward` to.
+- Like you've got something to look `forward` to?
+- They're powering their `forward` weapons array.
+- You sent the document `forward` to sandefur?
+- God, how i have looked `forward` to this, honey.
+                 

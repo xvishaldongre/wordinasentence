@@ -1,0 +1,51 @@
+---
+title: "Claudia in a sentence | Claudia example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Claudia"
+---
+- But why, `claudia`?...
+- Didn't you, `claudia`?
+- Not without `claudia`.
+- Seein' `claudia` an...?
+- `Claudia` is dear to me.
+- Don't make me, `claudia`!
+- He's dead, `claudia`, dead.
+- You are neither, `claudia`.
+- `Claudia` dear, come closer.
+- That's not funny, `claudia`.
+- `Claudia`, aren't you coming?
+- `Claudia`, let's get married?
+- He can protect us, `claudia`.
+- `Claudia`... ain't here, bill.
+- It's not finished - `claudia`!
+- `Claudia`, you torture yourself.
+- Don't you find it so, `claudia`?
+- `Claudia`, `claudia`, listen to me.
+- How did you learn to write, `claudia`?
+- Oh, `claudia`, you've outdone yourself.
+- Oh, it'll be fine, i'm sure, `claudia`.
+- I hate myself ... what is it, `claudia`?
+- I seen `claudia` too... easy, bill, easy.
+- Why doesn't `claudia` talk to you, jimmy?
+- But you wouldn't go if `claudia` was alive.
+- Ok. `claudia` wilson: you tryin' to go deaf?
+- Hush, `claudia` don't talk about such things.
+- I won't say, no, wait, `claudia` -- just say no.
+- Ask `claudia`, she's much more beautiful than me.
+- ...i want to....i want so many things, `claudia`.
+- Tell me, `claudia`, what do you think of raimondo?
+- `Claudia` - don't - you want me to be a doll forever?
+- What are you doing here, i mean...you know `claudia`?
+- I ask you as a favor... `claudia`, listen to me... me...
+- The swamp... don't mock, `claudia`... should we burn him?
+- Go left here, i want to see my new statue at via `claudia`.
+- Life was very different with madame `claudia`, as you can imagine...
+- This is, for not a fresh cup, a great cup of coffee, `claudia` -- ok, ok.
+- `Claudia`, she... straightened me up, got me clear of the whiskey an' all.
+- This is `claudia`, anna's friend... you've never met my husband, have you?
+- I think the only way to help ourselves, `claudia`, is for us to be together.
+- Say, `claudia`, wouldn't you like to climb up with me and take a look over there?
+- Ok. `claudia`: why don't you let me handle the questions and you handle the answers, ok?
+- No... you come back to me louis... louis, louis, i gave you the gift help me `claudia`!
+                 

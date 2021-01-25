@@ -1,0 +1,107 @@
+---
+title: "t in a sentence | t example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "t"
+---
+- As if i didn'`t` know.
+- Asshole, can'`t` talk.
+- A "`t`." you're right.
+- Aw, don'`t` get mushy.
+- Aw, isn'`t` that cute?
+- Aye, but don'`t` rush.
+- Baby, don'`t` do this.
+- Basquiat, don'`t` lie.
+- [beat] i don'`t` know.
+- Beautiful, isn'`t` it?
+- Beautiful, isn�`t` it?
+- Bombs don'`t` unscrew.
+- Booze we don'`t` need.
+- Brooks ain'`t` no bug.
+- But can'`t` you see...
+- But couldn'`t` you...?
+- But don'`t` blame him.
+- But, hildy, i can'`t`.
+- But i can'`t` be sure.
+- But i can'`t` do that.
+- But i don'`t` have it.
+- But it can'`t` happen.
+- But that isn'`t` true.
+- But wasn'`t` it funny?
+- But why shouldn'`t` i?
+- But you can'`t`...you.
+- But you don'`t` agree?
+- Can'`t` arrest ghosts.
+- Can'`t` have gone far?
+- Can'`t` it wait, then?
+- Can'`t` live with 'em.
+- Can'`t` remember shit.
+- Can'`t` say that i do.
+- Can'`t` see you today.
+- Can'`t` she come back?
+- Can'`t` you go higher?
+- Can'`t` you just quit?
+- Can'`t` you stop that?
+- Cause it won'`t` work.
+- Charming, isn'`t` she?
+- C'mon, don'`t` be shy.
+- Couldn'`t` be happier.
+- Couldn'`t` believe it.
+- Couldn'`t` you change?
+- Dialysis won'`t` work.
+- Did he or didn'`t` he?
+- Didn'`t` even deny it.
+- Didn'`t` he force you?
+- Didn'`t` mean nothin'.
+- Didn’`t` say where to.
+- Didn'`t` they, duffy?!
+- Didn'`t` tom tell you?
+- Didn'`t` you, claudia?
+- Didn'`t` you hear him?
+- Didn'`t` you say that?
+- Didn'`t` you tell her?
+- Divorce ain'`t` final.
+- Doesn'`t` hurt to ask.
+- Doesn'`t` need to fly.
+- Doesn'`t` ring a bell.
+- Doesn'`t` satisfy, eh?
+- Doesn'`t` surprise me.
+- Doesn'`t` work on you.
+- _ don'`t` answer that.
+- Don'`t` argue with me.
+- Don'`t` ask questions.
+- Don'`t` be a hero, ok?
+- Don'`t` be an asshole.
+- Don'`t` be frightened.
+- Don'`t` belong to you!
+- Don'`t` be ridiculous!
+- Don'`t` be ridiculous.
+- Don'`t` be sad, barry.
+- Don'`t` be so grouchy.
+- Don'`t` be so literal.
+- Don'`t` be such wimps.
+- Don'`t` bring that up.
+- Don'`t` call him that.
+- Don'`t` call me a bum!
+- Don'`t` call me honey!
+- Don'`t` cause a scene.
+- Don'`t` come in sal's.
+- "don'`t` come near me.
+- Don'`t` deny me, duff.
+- Don'`t` disappoint us.
+- Don'`t` do it, evelyn.
+- Don'`t` do it, norman!
+- Don'`t` do it, please.
+- Don'`t` do that again!
+- Don'`t` do that, okay?
+- Don'`t` do that to me!
+- Don'`t` do the finger.
+- Don'`t` do this again.
+- Don'`t` do this, andy.
+- Don'`t` do this to me.
+- Don'`t` encourage her.
+- Don'`t` even go there.
+- Don'`t` even thank me.
+- Don'`t` even try that.
+- Don'`t` ever say that.
+                 

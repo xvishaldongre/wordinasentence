@@ -1,0 +1,107 @@
+---
+title: "jake in a sentence | jake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jake"
+---
+- `Jake`, `jake` you copy?
+- `Jake` says thank you.
+- `Jake`'s the same way.
+- Know who i am, `jake`?
+- Oh my god, `jake`, no.
+- Still married, `jake`?
+- 'course you do, `jake`.
+- He let you kill `jake`.
+- I'm leaving you `jake`.
+- It's the truth, `jake`.
+- `Jake` griffin is gone.
+- `Jake`, it's chinatown.
+- What were they, `jake`?
+- Where were you, `jake`?
+- You can call me `jake`.
+- You were great, `jake`.
+- Can you hear me, `jake`?
+- Get out of here, `jake`.
+- I'm with you now `jake`.
+- `Jake`, can you hear me?
+- Learn well `jake` sully.
+- <u>we</u> killed `jake`.
+- What do you say, `jake`?
+- You were scared, `jake`!
+- Ain't that right, `jake`?
+- Get me the sheet, `jake`.
+- I'm not your boy, `jake`.
+- I'm worried about `jake`.
+- It's still there, `jake`.
+- `Jake`, you need to rest.
+- Shit... let's go, `jake`?
+- They're monsters, `jake`.
+- What's happening, `jake`?
+- Yeah... whatever, `jake`.
+- I don't like that, `jake`.
+- I had a fight with `jake`.
+- I need to see you, `jake`.
+- It ain't worth it, `jake`.
+- `Jake`, for christ's sake.
+- `Jake`'ll take care of me.
+- `Jake`, you're `jake` right?
+- Let's go, `jake`, wake up!
+- My name is `jake` griffin.
+- They'll float you, `jake`.
+- Where's your wife, `jake`?
+- You're killing me, `jake`.
+- You're right here, `jake`.
+- Don't get me wrong, `jake`.
+- How are you feeling `jake`?
+- I'll bring `jake` out here.
+- I'm looking for `jake` vig.
+- `Jake`, i saw it, i saw it!
+- `Jake` sully will go first.
+- She wants you dead, `jake`.
+- Tommy, `jake` respects you.
+- What are you saying `jake`?
+- You know something, `jake`?
+- Grace, this is `jake` sully.
+- How's your business, `jake`?
+- I put up new drapes, `jake`.
+- Is that what it was, `jake`?
+- `Jake`... take off my pants.
+- `Jake` -- we'll use the euc.
+- `Jake` you need to sit down.
+- Like you helped her, `jake`?
+- Well, go ahead, tell `jake`.
+- What's the plan here `jake`?
+- Call `jake` at players motel.
+- I loved your chemist, `jake`.
+- I think you're right, `jake`.
+- `Jake`, `jake`, come over here.
+- Stick out your hands, `jake`.
+- Then why is he called `jake`.
+- What else did he say, `jake`?
+- You're calling `jake` stupid?
+- You sound just like `jake`...
+- It's so dark in there, `jake`.
+- I want to go with you, `jake`.
+- `Jake` i need you to sit down.
+- `Jake` ... is it the antidote?
+- `Jake`'s away killin' himself.
+- `Jake`, sit down for a minute.
+- `Jake`, you're very disturbed.
+- Time to go for a walk, `jake`.
+- You have quite a mind, `jake`.
+- `Jake` said you were out there.
+- `Jake`, what're you doin' here?
+- `Jake` you have to come inside.
+- They're not interested, `jake`.
+- You're quite a dreamer, `jake`.
+- I could if i had `jake`'s money.
+- It's not that i'm bored, `jake`.
+- It's not what you think, `jake`.
+- Maybe it's not the army, `jake`.
+- This is your avatar now, `jake`.
+- Welcome to your new body `jake`.
+- You're behind the times, `jake`.
+- You will have one chance `jake`.
+- I got no say with `jake` on this.
+- `Jake`'s got a lotta aggravation.
+                 

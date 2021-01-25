@@ -1,0 +1,107 @@
+---
+title: "Octavia in a sentence | Octavia example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Octavia"
+---
+- Bellamy and `octavia`?
+- `Octavia`, are you ok?
+- `Octavia`, be careful.
+- `Octavia`, get in now!
+- `Octavia` is a threat.
+- `Octavia` kom skaikru.
+- `Octavia`: wait, kane.
+- `Octavia`, what is it?
+- You've seen `octavia`?
+- [chuckles] - `octavia`.
+- `Octavia` is my people.
+- `Octavia`, `octavia`, no.
+- Then explain `octavia`.
+- Abby, just... `octavia`.
+- Always yours, `octavia`.
+- Any word from `octavia`?
+- Have you seen `octavia`?
+- I'll check on `octavia`.
+- I'm so sorry, `octavia`.
+- `Octavia`, i got this.
+- `Octavia`, please, yeah.
+- `Octavia`'s my favorite.
+- `Octavia`... - take her.
+- Tell me about `octavia`.
+- Bellamy: `octavia`, no!
+- How about you, `octavia`?
+- `Octavia`: jasper's hurt.
+- `Octavia`'s not a threat.
+- `Octavia`, that's enough.
+- `Octavia`, wait a second.
+- Taking `octavia` with it.
+- Tell `octavia` it was me!
+- They put `octavia` in it.
+- Where's `octavia`, quiet!
+- `Octavia`, please respond.
+- `Octavia`'s such a badass.
+- `Octavia`: they're coming.
+- `Octavia`, this isn't you.
+- `Octavia` told you not to?
+- `Octavia`... we've got me.
+- `Octavia`, who is bellamy?
+- Then let's kill `octavia`.
+- `Octavia` and zora, slower.
+- `Octavia`, can you hear me?
+- `Octavia`, just stay there.
+- `Octavia`: monty, get up!
+- `Octavia`'s waiting for me.
+- `Octavia`... - time, emori!
+- I wish `octavia` could have.
+- `Octavia` and echo are here.
+- `Octavia`, drop your weapon!
+- `Octavia`, they'll kill you.
+- `Octavia`, what's happening?
+- Well, um, where's `octavia`?
+- What do you want, `octavia`?
+- What's `octavia` doing here?
+- You've done well, `octavia`.
+- ♪ i, i ♪ `octavia`, let's go.
+- _ i'm doing it for `octavia`.
+- `Octavia`, echo, and gabriel.
+- `Octavia`... for all mankind!
+- `Octavia`, get away from her.
+- `Octavia`, this isn't a game.
+- `Octavia` tried to warn them.
+- `Octavia`, we're your people.
+- `Octavia`: you saw lincoln.
+- This is `octavia`, my friend.
+- Abducted my mom and `octavia`.
+- Cooper's worse than `octavia`.
+- Kill `octavia` is you have to.
+- `Octavia`, it's not safe here.
+- `Octavia`, it's too dangerous.
+- `Octavia` said to let them go.
+- `Octavia` said you were smart.
+- `Octavia` lost her memory, too.
+- `Octavia`: sounds like a party.
+- `Octavia` will never surrender.
+- You're not a killer, `octavia`.
+- Does `octavia` know you have it?
+- Hey, `octavia`, can you hear me?
+- `Octavia`... - get away from me!
+- `Octavia`, get out of the water.
+- `Octavia`, get the hell out now.
+- `Octavia`, on radio: roger that.
+- `Octavia`... what are you doing?
+- `Octavia` will take care of him.
+- `Octavia` would never surrender.
+- Passed information to `octavia`.
+- You kept us together, `octavia`.
+- Like the one on `octavia`'s back.
+- [`octavia` giggles] sure, thanks.
+- `Octavia` will have to surrender.
+- Echo and `octavia` are in trouble.
+- I'm leaving, `octavia`, right now.
+- [indistinct shouting] `octavia`!
+- Madi is not a threat to `octavia`.
+- Man: `octavia`, get out of here.
+- `Octavia`, this is colonel diyoza.
+- The first one there was `octavia`.
+- Clarke and `octavia` bring us over.
+                 

@@ -1,0 +1,107 @@
+---
+title: "police in a sentence | police example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "police"
+---
+- It's not the `police`.
+- No `police` admire me.
+- Peter is the `police`!
+- The `police` took him.
+- Wait for the `police`.
+- We go to the `police`.
+- I am chief of `police`.
+- I didn't mean `police`.
+- I'll call the `police`.
+- I'm a `police` officer.
+- Sorry, `police` orders.
+- Stop with the `police`!
+- Telephone the `police`.
+- The `police` called us.
+- Don't call the `police`!
+- Don't call the `police`.
+- He'll call the `police`.
+- I sent for the `police`.
+- Thank god, the `police`.
+- The `police` department?
+- Was "call the `police`."
+- We are not the `police`.
+- We're `police` officers.
+- You called the `police`?
+- An unmarked `police` car.
+- But, senor-- no `police`.
+- Don't bring the `police`.
+- I can go to the `police`.
+- I'm calling the `police`.
+- The `police` are outside.
+- Welcome to `police` work.
+- What do the `police` say?
+- You lied to the `police`!
+- Did you call the `police`?
+- I'm going to the `police`.
+- I'm the chief of `police`.
+- New york `police` - jesus.
+- Send in the riot `police`.
+- The `police` are amateurs.
+- The `police` are here now.
+- The `police` are watching.
+- You can call the `police`.
+- You're a `police` officer.
+- Glen cove `police` station.
+- Go to the `police` station!
+- I should call the `police`.
+- Let the `police` handle it.
+- No more `police` brutality!
+- Somebody call the `police`!
+- The `police` are satisfied.
+- The `police` are very busy.
+- What do the `police` think?
+- Woman 2: call the `police`.
+- But why should the `police`?
+- Get me the `police`, please.
+- Glen cove `police` station.
+- I'll deal with the `police`.
+- My wife called the `police`.
+- Somebody call the `police`.
+- The `police` have it by now.
+- The `police`'ll just dip me.
+- We'll send for the `police`!
+- What are the `police` doing?
+- You're `police`, aren't you?
+- The `police` did nothing?
+- Call the `police`, goddamnit.
+- Did she mention the `police`?
+- Did the `police` believe you?
+- Did the `police` contact you?
+- He killed a `police` officer.
+- No, honey, it's the `police`.
+- The `police` beat me up, sir.
+- The `police` can protect you.
+- This is the `police` lock-up.
+- You try calling the `police`?
+- Aren't the `police` after you?
+- Have you gone to the `police`?
+- It might attract the `police`.
+- I've been in `police` custody.
+- Oh, jesus...call the `police`.
+- `Police` -- god -- get a life.
+- State `police` are on the way.
+- The hawkins chief of `police`.
+- The horrible ghastly `police`.
+- The `police` are on their way.
+- The `police` haven't told you?
+- There's two `police` cars now.
+- Uh... `police` chief, hawkins.
+- What do you mean `police` dog?
+- Your `police` are at the gate?
+- Did you tell the `police` this?
+- Have you notified the `police`?
+- I'm going to call the `police`.
+- I'm the chief of `police` here.
+- I'm the local `police` officer.
+- Shall i call the `police`, sir?
+- The bristo `police` department.
+- Then we must call the `police`.
+- We've got to call the `police`.
+- What did you tell the `police`?
+                 

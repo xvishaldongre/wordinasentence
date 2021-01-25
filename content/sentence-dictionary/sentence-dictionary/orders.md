@@ -1,0 +1,107 @@
+---
+title: "orders in a sentence | orders example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "orders"
+---
+- Attack on my `orders`!
+- I gave clear `orders`.
+- These are my `orders`.
+- Those are my `orders`.
+- You gave the `orders`!
+- You heard my `orders`.
+- Always giving `orders`.
+- Doctor's `orders`- - -?
+- I just follow `orders`.
+- Sorry, police `orders`.
+- We've got our `orders`.
+- What are your `orders`?
+- You have `orders`, too.
+- It's giving us `orders`.
+- You don't give `orders`.
+- He exceeded his `orders`.
+- Henry's got our `orders`!
+- I only followed `orders`.
+- I was following `orders`.
+- My `orders` came through.
+- Whose `orders` are these?
+- You've got your `orders`.
+- But these are my `orders`.
+- But you took his `orders`.
+- There's a word - `orders`.
+- What are my `orders`, sir?
+- Whose `orders` were those?
+- You'll follow my `orders`.
+- Everyone's giving `orders`.
+- General randall's `orders`.
+- I take `orders` from indra.
+- Look at all these `orders`!
+- `Orders` are shoot to kill.
+- They're your `orders`, too.
+- You don't give me `orders`.
+- But andy also took `orders`.
+- On the `orders` of haldeman?
+- Sir, what are your `orders`?
+- Big jim gave strict `orders`.
+- Didn't you get your `orders`?
+- I am done following `orders`.
+- I don't take `orders` at all.
+- I mean, follow `orders`, sir.
+- This isn't doctor's `orders`.
+- We have `orders` to evacuate.
+- Who has been giving `orders`?
+- Any `orders` for me, princess?
+- Check your `orders`, sergeant.
+- We have received new `orders`.
+- What are their `orders`, heda?
+- At first, it was just `orders`.
+- I don't take `orders` from you.
+- I'll take my `orders` from her.
+- No josh, i don't take `orders`.
+- `Orders` from little bonaparte.
+- Weak men follow their `orders`.
+- All i know is i got my `orders`.
+- I do not take `orders` from you.
+- We have `orders` to do the same.
+- Again with the `orders` from you!
+- Men like you don't need `orders`.
+- Noone `orders` southpaws anymore.
+- Blodreina, what are your `orders`?
+- Follow his `orders` to your death.
+- I don't take `orders` from anyone.
+- I don't take `orders` from smurfs.
+- No one gives `orders` here but us.
+- Get ready to fire on my `orders`...
+- I cut your new `orders` personally.
+- I, too, have `orders` from high up.
+- Your `orders` are to shoot to kill.
+- I'm fed up with taking her `orders`.
+- `Orders` from the president himself.
+- She was the one giving the `orders`.
+- I'm not just following `orders`, jax.
+- They take their `orders` from me now.
+- Admiral kirk's `orders` are confirmed.
+- He just can't seem to follow `orders`!
+- How'd you get around the tap `orders`?
+- I have on occasion disobeyed `orders`.
+- The `orders` were for your protection.
+- Are you questioning my `orders`, major?
+- If anyone `orders` merlot, i'm leaving.
+- I won't disobey `orders`, not even now.
+- We're here on the commander's `orders`.
+- With `orders` to kill anyone hostile.
+- He `orders` you to surrender this vessel.
+- I can't write `orders` on the psych ward.
+- Sheila comes over to take their `orders`.
+- Do you have a problem with those `orders`?
+- I don't like taking `orders` from grissom.
+- My `orders` are from com-sec intel -- b.l.
+- You don't take `orders` very well, do you?
+- Credit card `orders` to dummy corporations.
+- I am sorry, madame, but i have my `orders`.
+- If you stay, you'll be disobeying `orders`.
+- I'm sorry, i -- are you giving me `orders`?
+- So you're... you're giving me `orders` now?
+- The `orders` were to shoot him in the back.
+- Yes sir... we have `orders` to do the same.
+                 

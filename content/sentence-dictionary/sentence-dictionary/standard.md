@@ -1,0 +1,66 @@
+---
+title: "standard in a sentence | standard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "standard"
+---
+- It's a `standard` gui.
+- Ten is `standard`, sir.
+- Viewer, `standard` ahead.
+- Okay, it's not `standard`.
+- Well, as a "`standard`"...
+- `Standard` orbit, mr. sulu.
+- It's a `standard` agreement.
+- There's a higher `standard`.
+- It wasn't a `standard` hit.
+- Are all `standard` nerd tropes.
+- The `standard` treatment sucks.
+- It doesn't feel very `standard`.
+- What's the `standard` treatment?
+- This is your `standard` dart gun.
+- `Standard` for a mayfair marriage.
+- `Standard` treatment isn't working.
+- Yes, but by what `standard`, ask i?
+- Computer, this is captain `standard`.
+- It's just the `standard` tropical kit.
+- `Standard` light armor-piercing round.
+- That's their `standard` deal, brother.
+- This is `standard` horror movie stuff.
+- A girl makes a guy cum, it's `standard`.
+- `Standard` issue mal- practice insurance.
+- `Standard`, modern, upscale -- -- waiter.
+- I want the `standard` file, you know that.
+- Nan-- is there a non-`standard` treatment?
+- That's the industry `standard`... ...yeah.
+- Norris-newman, of "the `standard`", my lord.
+- They money will be `standard` bank transfer.
+- They haven't done the `standard` scratch test.
+- He presented credentials from "the `standard`".
+- He's not gonna sit still for a `standard` play.
+- I need lag bolts, especially one inch `standard`.
+- Program set for `standard` warp entry, captain...
+- She says the `standard` of your work is slipping.
+- Just another `standard` disciple psych evaluation?
+- That they have offered double your `standard` fee.
+- It complies with all `standard` construction codes.
+- That's `standard` military packaging for plastique.
+- Throw a gray scale on it; `standard` interpolation.
+- A `standard` visit would run you about fifty pounds.
+- Because the `standard` treatment sucks compared to you.
+- I'm just here to record some details, `standard` stuff.
+- That's always been `standard`, whether you like or not.
+- This model comes with abs and dual air bags `standard`.
+- Is that the same `standard` you used to choose general formica?
+- We ran the `standard` newborn screen on her, that's the point.
+- But -- ellie, the only one holding you to that `standard` is you!
+- Don't tell me that flare is `standard` prison issue... are you crazy?
+- Right `standard` rudder, z plus five degrees... uhura, hailing frequencies.
+- No doubt she's worried that she would lower the `standard` of your offspring.
+- It's this double-`standard`, the separate quarters, the deferential treatment.
+- The biggest mistake we ever made was letting nixon get off the gold `standard`.
+- Jesus, ed, from time immemorial it's been `standard` booking procedure to ask an alias.
+- Right `standard` rudder, bring us alongside... only don't try putting words in my mouth.
+- So playing hockey and attending wakes-these practices are `standard` operating procedure.
+- It purports to be the x-ray of dr. l... ...`standard` issue... a fellow with five fingers.
+- Yeah, yeah, it's the `standard` resignation boilerplate -- go down to the second paragraph.
+                 

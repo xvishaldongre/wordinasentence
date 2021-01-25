@@ -1,0 +1,107 @@
+---
+title: "cute in a sentence | cute example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cute"
+---
+- Aw, isn't that `cute`?
+- Baby ducks are `cute`!
+- I think you're `cute`.
+- Oh, they're so `cute`.
+- That's a `cute` trick.
+- That's `cute` asshole.
+- He's kinda `cute`, hmm?
+- He's your `cute` thing.
+- Isn't that `cute`, huh?
+- It's the `cute` decade.
+- Oh i think he's `cute`.
+- Pecs and a `cute` butt.
+- That's `cute`, kathryn.
+- `Cute` young thing, too.
+- He has a `cute` what...?
+- Look at how `cute` i am!
+- Or because she's `cute`.
+- She's rabid, but `cute`.
+- That tom sure is `cute`.
+- Well, aren't you `cute`?
+- But you looked so `cute`.
+- He's a `cute` little guy.
+- She's `cute` as a button.
+- You don't find me `cute`?
+- I think you're real `cute`.
+- `Cute` is not enough, misty.
+- I think he's kind of `cute`.
+- She's quite `cute` you know.
+- That's funny, you're `cute`.
+- Well, i think you're `cute`.
+- I always think you're `cute`.
+- I forgot how `cute` you look.
+- I thought it might be `cute`.
+- Of course they're `cute` now.
+- Your hair's `cute` like that.
+- That murphy is kind of `cute`.
+- Any `cute` guys gonna be there?
+- Do you think that guy's `cute`?
+- He is kind of `cute`, isn't he?
+- Now isn't that just too `cute`?
+- She thinks this face is `cute`?
+- `Cute`, dejesus...specimen cups?
+- He's `cute` enough to melt lead!
+- `Cute` nickname, don't you think?
+- He's so `cute` - collects shells.
+- I mean, they were kind of `cute`.
+- I think you make a `cute` couple.
+- You know, you're `cute` this way.
+- You sound very `cute`, very nice.
+- Darryl doesn't have a `cute` butt.
+- He said you're `cute` for a thief.
+- Your belief in yourself is `cute`.
+- God, you're `cute` when you're mad.
+- Aw, it ain't crap... it's... `cute`.
+- I even like his `cute` little penis.
+- I just though you were awful `cute`.
+- That `cute` little button of a nose!
+- They're `cute`... and they're horny.
+- They're `cute`, but they'll eat you.
+- You're pretty `cute`, you know that?
+- Your hair looks so `cute` like that.
+- He was so `cute` ... how do you know?
+- I hear this is the decade for `cute`.
+- One of the deputies is pretty `cute`.
+- We do make a `cute` couple, don't we?
+- Women like me, they think i'm `cute`.
+- Wow, you're `cute` when you're angry.
+- She was a `cute`, little husky-collie.
+- The `cute` brutal type with handcuffs.
+- Oh, you look so `cute` as little elvis.
+- We sure are `cute` for two ugly people.
+- You know, you're so `cute` when you lie.
+- Probably, like everyone, - _ - so `cute`.
+- You really are dangerously `cute`, honey.
+- I made a fool of myself... she was `cute`.
+- You'll never have a girlfriend this `cute`.
+- He's `cute`...and he's got a crush on you...
+- I am not a doll...i' m not silly and `cute`.
+- Will you still think i'm `cute` if i'm huge?
+- If it isn't the `cute` couple together again.
+- Stayin' on four but went up to six -- `cute`.
+- My friends say i'm pretty `cute`, so.... well.
+- She's real heavy, but she's `cute` in the face.
+- You're so `cute` when you're super controlling.
+- It was so `cute` how he had his own little bags.
+- I said, you were `cute` when you were little.
+- That is the most unprofessional -- is dunbar `cute`?
+- I don't know whether you're being `cute` or crazy now.
+- I think it's `cute` - look at his little weasel teeth.
+- He was a `cute` boy, though, so it was almost worth it.
+- I can't get over how `cute` the girls in this city are.
+- So `cute`... - yeah... and then i remembered... eugene.
+- He got ann rumsey that `cute` little island of george's.
+- He thought it was `cute` when i called him frankenstein.
+- I'll tell you who doesn't know, `cute` girls don't know.
+- Oooooh, you look so `cute` in your little cowboy outfit.
+- Unlike yours, which is you're `cute` when you're modest.
+- `Cute` little old man, if you want a boy, i can be a boy.
+- I hear the crew members are `cute` guys in their twenties.
+- Besides, the money is good and some of the guys are `cute`.
+                 

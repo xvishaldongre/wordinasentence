@@ -1,0 +1,62 @@
+---
+title: "useless in a sentence | useless example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "useless"
+---
+- It's `useless`, robert.
+- You're being `useless`.
+- It's a `useless` talent.
+- My guards are `useless`!
+- The balls are `useless`.
+- An old, `useless` friend.
+- Well, it beats `useless`.
+- Making the land `useless`.
+- They're old and `useless`.
+- `Useless`, do you, murphy?
+- Your tactics are `useless`.
+- I can see this is `useless`.
+- You're all bloody `useless`.
+- It's `useless`...look at him.
+- Our tricorders are `useless`.
+- I'd be helpless and `useless`.
+- Full of `useless` thoughts, eh?"
+- Most of these kids are `useless`.
+- Edith mentioned "a `useless` boy."
+- Well, it looks like i'm `useless`.
+- What a bunch of `useless` zombies.
+- Guessing at this point is `useless`.
+- This cauliflower is `useless` to me.
+- It's so fucking `useless`, all of it.
+- Most of what they teach is `useless`.
+- The police, as always, are `useless`.
+- But nulls, you are less than `useless`.
+- But that doesn't mean you're `useless`.
+- But, that doesn't mean you're `useless`.
+- Look at it, it's been rendered `useless`.
+- Do you want her to think you're `useless`?
+- Old don is as `useless` as tits on a boar.
+- Did i get drunk and buy `useless` stuff why?
+- I dunno... you have that sharp, `useless` look.
+- Being utterly fucking `useless`, what else is new.
+- I was dirt poor and `useless`... but i was honest.
+- `Useless` motherfucker, that's what she called me.
+- There was a `useless` boy, but i rid myself of him.
+- There was no killing, no fighting, i was `useless`.
+- Our guns are `useless` -- but this isn't the jungle!
+- Without someone on the inside, an army is `useless`.
+- You're so... so goddamn `useless`... just wondering.
+- I was born to do more than marry some `useless` prince.
+- You're not really as large and `useless` as you seem.
+- In the meantime it would be `useless` to alarm the others.
+- Miss simpson would just play it and ... a `useless` talent.
+- You're just going to have to kill me -- it's `useless` to you!
+- You don't see us getting wasted, being `useless`... happy now?
+- Business must be good if he can afford to buy up `useless` property.
+- This is the most protected shipment we've got-- and the most `useless`.
+- You never seemed the type, kader, inclined to performing `useless` actions.
+- Maybe i can fulfill my destiny as a `useless` bimbo and join the swedish bikini team.
+- Steal, swindle, rob--but don't become one of those `useless`, good-for-nothing gigolos!
+- This ship is equipped with fourteen long range transporters... are they all `useless`...?
+- You quit trying to stop anybody� i've tried to stop the evening papers, but it's `useless`.
+                 

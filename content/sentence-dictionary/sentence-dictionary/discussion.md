@@ -1,0 +1,55 @@
+---
+title: "discussion in a sentence | discussion example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "discussion"
+---
+- As per our `discussion`.
+- At a `discussion` group?
+- Not up for `discussion`.
+- What's the `discussion`?
+- This isn't a `discussion`.
+- Just a family `discussion`.
+- Do not attempt `discussion`.
+- It's not open for `discussion`.
+- That isn't up for `discussion`.
+- This `discussion` is terminated.
+- This needs to be a `discussion`.
+- A simple theological `discussion`.
+- It�s been an ongoing `discussion`.
+- That's not even up for `discussion`.
+- `Discussion` group, alex, `discussion`.
+- So, what's the topic of `discussion`?
+- We shall have a serious `discussion`.
+- What's on the table for `discussion`?
+- This is just an informal `discussion`.
+- This is not up for `discussion`, madi.
+- Well, what's the topic of `discussion`?
+- I'm fully amenable to that `discussion`.
+- Could we table this `discussion` right now?
+- Didn't we already have this `discussion` once?
+- Boys, we have to have a difficult `discussion`.
+- It would form the ideal basis of a `discussion`.
+- That is the only matter under `discussion` today.
+- But how can you carry on a `discussion` in this heat?
+- Puff and i got into a big, philosophical `discussion`.
+- A result of our `discussion` the other day, i'm afraid.
+- Can't we ever have a `discussion` without that coming up?
+- We were just having a little `discussion` about morality.
+- ...sounds like you're not leaving much room for `discussion`.
+- Well, i can't li- we can't have this `discussion` all the time.
+- Look, marylin, can't we have a civilized `discussion` about this?
+- When he says, "`discussion`", how do you take that, agent desmond?
+- Chauncey, you're always involved in some sort of `discussion`... no.
+- A `discussion` between an american embassy official and a un colonel.
+- But it's hard to find a place around here for a private `discussion`.
+- This is not the time or the place to have this same old `discussion`.
+- ♪ you just can't say good-bye ♪ allow me to facilitate the `discussion`.
+- A revolution is not a polite `discussion` in a parlor, citizen lieutenant.
+- I'm a customer, a customer engaged in a `discussion` with other customers.
+- Focused... conscientious... participates actively in classroom `discussion`.
+- Then perhaps the time has come to add some illumination to our `discussion`.
+- These ladies was having themselves a `discussion` and you're interrupting it.
+- I think i wanna have a `discussion` about it with any of the ones still walking.
+- The boys and i were just having a philosophical `discussion` about women and cigars.
+                 

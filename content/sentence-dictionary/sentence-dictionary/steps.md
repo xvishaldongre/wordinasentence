@@ -1,0 +1,57 @@
+---
+title: "steps in a sentence | steps example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "steps"
+---
+- Only two `steps` back?
+- Ten more `steps`, mate.
+- You know these `steps`.
+- Yeah, under the `steps`.
+- Exactly four `steps` now.
+- I don't know the `steps`.
+- Get in all 10,000 `steps`.
+- Yes... man-carved `steps`.
+- Six `steps` out, three left.
+- These are her first `steps`.
+- What `steps` do we take now?
+- I just, uh, i saw you on the `steps`.
+- Your twelve `steps`... making amends.
+- I must take `steps` to see that they do.
+- You can escort your team to the `steps`.
+- I'm counting the `steps` to the entrance.
+- When a man `steps` in dung, it is obvious.
+- Then the ego `steps` in, the obsession.
+- In case someone `steps` to you, snoop dogg?
+- I will let down the `steps` for your honor.
+- Perhaps with a few small `steps` at a time.
+- He `steps` in, smash, over the green monster.
+- I allowed him to make ten `steps`... no more.
+- Three `steps` forward -- i want to get up there.
+- You always think you're two `steps` ahead of me.
+- Sheila `steps` over to the booth with their food.
+- It's a beautiful name -- two `steps` back, please.
+- 10.30 -- i don't -- is that by the spanish `steps`?
+- Always makes me think she's two `steps` ahead of me.
+- I'd learn the `steps` and practice in my spare time.
+- We need to retrace your `steps` and find the breach.
+- What `steps` are you taking to remedy the situation?
+- She's been a few `steps` for a while now, hasn't she?
+- Take no further `steps` toward marriage until we meet.
+- That's those little brave baby `steps` you gotta take.
+- Sue, i've lived my life unafraid of taking big `steps`.
+- Don't not use them and then miss a couple of `steps`, ok?
+- Coming down the courthouse `steps` every day in the media.
+- I retraced your exact `steps` according to your statement.
+- But in this game you gotta be one, two, three `steps` ahead.
+- These are some of the `steps` i've taken as chief of police...
+- He cuts open the wolf's stomach, and the girl `steps` out alive.
+- Roger meris, `steps` up, it's a corker down the pipe... no way phil.
+- I think someone may be taking `steps` to ensure that you crash and burn.
+- As a matter of fact, today i have taken `steps` to insure total disaster.
+- I have seen elaine and i have spent the afternoon taking `steps` to insure... huh?
+- As buzz gets up, theo rises and `steps` between his father and the two sleazeballs.
+- He was shot and killed when i was fourteen on the `steps` of his church in bethesda.
+- I'm prepared to take whatever `steps` are necessary to see to it they don't get mine!
+- The queen will be in my charge till a champion `steps` forward to fight on her behalf.
+                 

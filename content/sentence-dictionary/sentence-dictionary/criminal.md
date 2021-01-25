@@ -1,0 +1,106 @@
+---
+title: "criminal in a sentence | criminal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "criminal"
+---
+- Yes, i am a `criminal`.
+- Noriega is a `criminal`.
+- What makes a `criminal`?
+- I'm a fucking `criminal`.
+- Robbery's not `criminal`?
+- Jackie ain't no `criminal`.
+- No prior `criminal` record.
+- Aiding an escaped `criminal`!
+- You mean you're a `criminal`?
+- As an irredeemable `criminal`?
+- The `criminal` courts building.
+- You mean he's not a `criminal`?
+- He's a thief--he's a `criminal`.
+- I'm like you said, a `criminal`.
+- Jade fox is a master `criminal`.
+- You don't have to be `criminal`.
+- But he's just a filthy `criminal`?
+- I'll admit to `criminal` insanity.
+- Said by every war `criminal` ever.
+- <i>whatever.</i> he's a `criminal`.
+- Raymond levoi, `criminal` division.
+- She didn't know he was a `criminal`.
+- Yes...it would have been `criminal`.
+- Going to find me the real `criminal`?
+- Newsreader: this story is `criminal`.
+- Where's `criminal` hugo, bounty 9107?
+- Yes... it would have been `criminal`.
+- Are those the actions of a `criminal`?
+- Checking........ a real `criminal`....
+- Kill the `criminal` reflex that's all.
+- I'll run them through `criminal` index.
+- I'm also a `criminal` and a hotel thief.
+- Never been caught, no `criminal` record.
+- Deliver the `criminal` hugo, bounty 9107.
+- Newsreader: and this story is `criminal`.
+- You don't have to do anything `criminal`.
+- Always wanted to be a `criminal`, i guess.
+- I don't want a `criminal` for a boyfriend.
+- No... you know any good `criminal` lawyers?
+- That'd change with a `criminal` indictment.
+- Was it just your `criminal` nature or what?
+- All that because of your `criminal` savagery!
+- You woke up one day and you were a `criminal`.
+- Every `criminal` i have put in prison, the d.a.
+- This is like a `criminal` investigation, david.
+- You're implying i'm some kinda psycho `criminal`?
+- I'm a `criminal` psychologist working for the fbi.
+- But lacking in `criminal` credibility, aren't they?
+- Raymond, i'm the only `criminal` attorney you have.
+- Treat me like a `criminal`, i'll end up a `criminal`.
+- But in the absence of a `criminal`, we will try you.
+- Extinguish the greatest `criminal` flame of our age?
+- He wants to pay off that `criminal` he's in hock to.
+- I have little experience with "the `criminal` mind."
+- You're too young to be studying `criminal` behavior.
+- Better to have an insane spouse than a `criminal` one.
+- He's a stone fuckin' `criminal`, honey, and you ain't.
+- That doesn't apply to me because i'm not a `criminal`.
+- I'm a `criminal` lawyer -- you think i like my clients?
+- Lady, resisting arrest is a serious `criminal` offense.
+- Casanova isn't just a `criminal` -- he's a supervillain.
+- Hey... he didn't look like no big time `criminal` to me.
+- His `criminal` career has officially come to a close ...
+- That, sir, is the ultimate extent of my `criminal` life.
+- Butchering anyone who refused to kneel, he's a `criminal`.
+- I feel like a `criminal` or, like we're cheating on someone.
+- Mccreary... she was the most wanted `criminal` in the world.
+- The americans, and the un they have you as a war `criminal`.
+- You couldn't be a `criminal` if you committed a major crime.
+- Cabbie had no `criminal` record, no history of mental illness.
+- It isn't rare to find destructive or even `criminal` behaviour.
+- There's only one `criminal` standing in this room and it's you.
+- Under the state `criminal` code, section 545, paragraph 10-b...
+- Well, of course, i, uh, it's out of my league, `criminal` stuff.
+- Because i told her you were the best `criminal` attorney we have.
+- These people died because of the `criminal` actions of my doctor.
+- Do you care about `criminal` matters peripheral to susan's murder?
+- Imagine crime limited to the `criminal` element who perpetrate it.
+- Like `criminal` impulses, homicidal impulses..... what do you mean ?
+- That's... that's the `criminal` mind about to stomp our sorry butts!
+- Yeah, i'm ok. and yet now you have a problem executing a `criminal`?
+- We can go federal on your ass right now: ongoing `criminal` conspiracy.
+- What if the real `criminal` mastermind was billionaire montgomery burns?
+- Never - this robber was clearly the work of a `criminal` of great genius.
+- You want to stop being treated like a `criminal`, you won't feel a thing.
+- He's agreed to... lend us his vehicle to transport our dangerous `criminal`.
+- If you're a `criminal` you don't carry id, and if you do you're a damn fool.
+- We're only stealing from the war `criminal` billionaires who own this place.
+- Not an active `criminal` but... a nice guy with the conscience of a `criminal`.
+- Then they'd find your deeper, hidden `criminal` selves... how will it stand up?
+- You can learn a lot about the `criminal` justice system on a program like that.
+- You see, if you were really a bold `criminal`, you could have raised a million.
+- I'll get my bag and go over to the press room in the `criminal` courts building.
+- We get our money back, but then we have to deal with a `criminal` investigation.
+- You plan to be a `criminal` defense attorney, know this going in: everybody's guilty.
+- Besides, when you say i make tax- deductible excuses you make me out a `criminal`.
+- Yeah, it's basically the same thing in a rear end so huge, no `criminal` could miss it.
+- But no ordinary `criminal` would have the extensive military and medical expertise you do.
+- Mark me, it is always the `criminal` mind that is the first to exploit modern invention.
+                 

@@ -1,0 +1,60 @@
+---
+title: "choices in a sentence | choices example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "choices"
+---
+- Governed by `choices`.
+- We have two `choices`.
+- What are my `choices`?
+- We've got two `choices`.
+- I have two `choices`.
+- I've got three `choices`.
+- So we have two `choices`.
+- What `choices` have i got?
+- Look, we have two `choices`.
+- Our `choices` are never easy.
+- Is an insult to bad `choices`.
+- I meant all the `choices` here.
+- Win made his `choices`, claire.
+- Some of us made other `choices`.
+- There's a lot of `choices` here.
+- What other `choices` have we got?
+- Gentlemen, you have two `choices`.
+- I don't understand your `choices`.
+- The `choices` were him, or a tree.
+- Your `choices` were him or a tree.
+- We are the `choices` we've made, robert.
+- But sometimes there are no good `choices`.
+- But you gotta start making some `choices`.
+- [cheering] oh, not a lot of `choices` there.
+- Clarke griffin and her impossible `choices`.
+- Well -- as i see it we've got two `choices`.
+- You and your "panthers" got three `choices`.
+- And the way i see it, you have two `choices`.
+- We become the sum total of our `choices`.
+- That leaves me very few `choices`, doesn't it?
+- The `choices` i made have led me here as well.
+- To yet another episode of "no good `choices`".
+- Some `choices` must be made that are difficult.
+- Because there are hard `choices` to be made now.
+- I want you to trust me to make my own `choices`.
+- We make our own `choices`, we pay our own prices.
+- The hardest `choices` require the strongest wills.
+- Your mom got pregnant and i had to make `choices`.
+- The way i see it, we got two `choices`... let's go.
+- You don't have the guts to make the hard `choices`.
+- [eudoria] right, ladies, to conclude: our `choices`.
+- This is nothing like the `choices` you make, clarke.
+- We got exactly two `choices`, maranzano or masseria.
+- We make our own `choices` and we pay our own prices.
+- It is exactly why we must make the `choices` we make.
+- `Choices`... now the commerce department.., `choices`???
+- We need to find out: do they make conscious `choices`?
+- Stick to assignments where you won't have to make those `choices`.
+- But i get to make my own `choices` now, what else aren't you telling me?
+- Well... wait for it... first there's this one... what are the `choices`?
+- There aren't many `choices` in town and ... anyway, you'd have to eat alone.
+- I was thinking about our conversation the other day -- what you said about `choices`.
+- They've made important `choices`; they're going to have great challenges ahead of them.
+                 

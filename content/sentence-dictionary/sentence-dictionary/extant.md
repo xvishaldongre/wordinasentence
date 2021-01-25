@@ -1,0 +1,7 @@
+---
+title: "extant in a sentence | extant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "extant"
+---
+## Unfortunately, we have no example sentences for extant                 

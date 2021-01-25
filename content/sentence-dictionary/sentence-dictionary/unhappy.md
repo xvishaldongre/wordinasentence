@@ -1,0 +1,63 @@
+---
+title: "unhappy in a sentence | unhappy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unhappy"
+---
+- So you were `unhappy`?
+- Mac's really `unhappy`.
+- He's a little `unhappy`.
+- Nobody's that `unhappy`.
+- Yeah, `unhappy` and fat.
+- He didn't look `unhappy`!
+- She seems very `unhappy`.
+- Maybe the man was `unhappy`.
+- I understand you're `unhappy`.
+- I smoke more when i'm `unhappy`.
+- Why do the workers look `unhappy`?
+- An `unhappy` marriage, for example.
+- Being `unhappy` is a state of mind.
+- He makes you feel pretty `unhappy`?
+- Probably had an `unhappy` marriage.
+- By way of saying you were `unhappy`.
+- I feel `unhappy` if i don't have it.
+- What `unhappy` people most of you are!
+- I don't want you to be `unhappy`, jack.
+- You must have been, uh, very `unhappy`.
+- Are you `unhappy` at our little company?
+- Not man-eaters -- `unhappy` combination.
+- Wait - don't tell me: `unhappy` marriage?
+- Maybe your mom was a very `unhappy` woman.
+- Ted, joanna's very `unhappy` and-- things?
+- If they're happy or `unhappy` half the time.
+- Yeah, i'm `unhappy` with you about something.
+- I don't want to do that with you `unhappy`....
+- It will make you `unhappy` to find jacqueline.
+- Why do they always look like `unhappy` rabbits?
+- Come on, now, i don't want to see you `unhappy`.
+- How `unhappy` he's going to be--alone in his room.
+- My hunch is she's just torn up an `unhappy` marriage.
+- But he is not `unhappy` with you because he knows you.
+- If she wants to go, if she's `unhappy` here, she can go.
+- Agnes... everyone's `unhappy`, you're `unhappy` aren't you?
+- No, sir-- private johnson, are you `unhappy` in the army?
+- Look, lester... are you `unhappy` with me about something?
+- All i'm saying is that if you're `unhappy` you should leave.
+- It always seemed to me she was sort of lonely and `unhappy`.
+- If one person is `unhappy`, both have to be... by definition.
+- An `unhappy` marriage hardly seems a sufficient reason for that.
+- Sweetie, if they're so `unhappy`, win the fight, save your life.
+- But... why, saved a little girl from being `unhappy`...that's all.
+- If you're `unhappy` with the arrangement -- that's what we agreed.
+- I know you're as `unhappy` as i am about debbie's marriage to rick.
+- People might get the wrong idea and think you're `unhappy` at home.
+- I can sometimes talk to `unhappy` spirits inhabiting a certain place.
+- I was just as confused and `unhappy` was before; i did terrible things.
+- Ever since the accident i've been worried that you'd been `unhappy`, or...
+- They are very `unhappy` about the way their species has been treated by man.
+- But it wasn't all like you were so `unhappy` i was there, just you were upset.
+- That is true, but it seems to me impossible that you should be `unhappy` in love.
+- Y'know, we've been, i don't know, sort of, `unhappy` with each other and -- what?
+- But if, when i love, i am `unhappy`, i will know that my empty heart was my good fortune.
+- An- an-and in a way you led me on, because i truly believed you were `unhappy` with hannah.
+                 

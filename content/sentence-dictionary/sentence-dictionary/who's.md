@@ -1,0 +1,107 @@
+---
+title: "who's in a sentence | who's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "who's"
+---
+- I said, `who's` there?
+- Then `who's` this one?
+- `who's` been creeping?
+- `who's` captain howdy?
+- `who's` colson, harry?
+- `who's` coming for me?
+- `who's` gonna be next?
+- `who's` gonna do that?
+- `who's` gonna get him?
+- `who's` gonna stop us?
+- `who's` gonna to that?
+- `who's` got the nuke ?
+- `who's` got the story?
+- `who's` got two bucks?
+- `who's` he talking to?
+- `who's` my cream puff?
+- `who's` on television?
+- `who's` protecting us?
+- `who's` the clown now?
+- `who's` the other one?
+- `who's` the song bird?
+- `who's` winning, mama?
+- `who's` your designer?
+- You say `who's` there.
+- Hey, `who's` the idiot?
+- I'm -- `who's` calling?
+- I said, `who's` there?!
+- Okay, `who's` the jerk?
+- So, `who's` prince ali?
+- So `who's` the villain?
+- They--`who's` in there?
+- `who's` been in berlin?
+- `who's` charles colson?
+- `who's` charlie walser.
+- `who's` fucking around?
+- `who's` going to do it.
+- `who's` going to do it?
+- `who's` going with you?
+- `who's` gonna play you?
+- `who's` he think he is?
+- `who's` in charge here?
+- `who's` in charge then?
+- `who's` in trouble now?
+- `who's` left out there?
+- `who's` mr. jocularity?
+- `who's` our little man?
+- `who's` she talking to?
+- `who's` taking genesis?
+- `who's` that with you ?
+- `who's` that young man?
+- `who's` the big winner?
+- `who's` the cheapskate?
+- `who's` the lucky girl?
+- `who's` the top player?
+- `who's` -- `who's` shari?
+- `who's` your boyfriend?
+- `who's` your candidate?
+- `who's` your decorator?
+- Why, look `who's` here.
+- Yeah, uh, `who's` this?
+- A friend `who's` a girl.
+- Hey, guess `who's` here?
+- Hey, look `who's` here.
+- Now `who's` being cruel?
+- Then `who's` the banker?
+- Well, look `who's` here!
+- Well, look `who's` here.
+- `who's` flying the ship?
+- `who's` gonna help you!?
+- `who's` gonna outfit us?
+- `who's` gonna tell them?
+- `who's` in charge here?!
+- `who's` looking for you?
+- `who's` paying for this?
+- `who's` she gonna marry?
+- `who's` side are you on?
+- `who's` the fancy broad?
+- `who's` the guy, schulz?
+- `who's` the head honcho!
+- `who's` the little girl?
+- `who's` the lovely lady?
+- `who's` the lucky fella?
+- `who's` the married man?
+- `who's` the new yardman?
+- `who's` the other woman?
+- `who's` tipping you off?
+- `who's` your daddy, boy?
+- Hey `who's` that jeffrey?
+- I'm the one `who's` here.
+- Look `who's` here, margo.
+- Now `who's` being stupid?
+- One `who's` not a mutant.
+- So `who's` going to know?
+- So `who's` the lucky guy?
+- To find out `who's` what?
+- Well `who's` dumping who?
+- What `who's` been sayin'?
+- `who's` always leaving...
+- `who's` being naive, kay?
+- `who's` driving the boat?
+                 

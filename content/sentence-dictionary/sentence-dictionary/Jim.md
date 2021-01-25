@@ -1,0 +1,107 @@
+---
+title: "Jim in a sentence | Jim example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jim"
+---
+- `Jim` gordon his face.
+- `Jim` preston located.
+- `Jim` sighs, saddened.
+- Uh, i'm `jim` preston.
+- What about you, `jim`?
+- You can call me `jim`.
+- Hey, you reached `jim`.
+- `Jim`, this is garbage.
+- `Jim` -- what's wrong?!
+- That's not true, `jim`.
+- They got alexei, `jim`!
+- What happened to `jim`?
+- What's going on, `jim`?
+- Don't you get it, `jim`?
+- I don't think so, `jim`.
+- I will, but `jim` won't.
+- We don�t have to, `jim`.
+- Whatcha thinkin', `jim`?
+- What do you want, `jim`?
+- What's `jim` doing here?
+- *you* tell `jim` taylor.
+- Are you firing me, `jim`?
+- General `jim` beam, then.
+- Hey, `jim`, what's doing?
+- I'm calling `jim` taylor.
+- `Jim`, are you all right?
+- `Jim`, i�m coming to you.
+- `Jim` morrison was right.
+- `Jim` -- mother, go back!
+- Marlin perkins and `jim`!
+- Three... `jim`... four...
+- Here's your coffee, `jim`.
+- I don't think so, `jim`...
+- Now, that's not me, `jim`.
+- She's half romulan, `jim`.
+- Captain, i need `jim` kirk.
+- I *will* tell `jim` taylor.
+- `Jim` looking for somebody.
+- Pleased to meet you, `jim`.
+- Why did she do that, `jim`?
+- Yeah, good, ok. just `jim`.
+- But that's the point, `jim`.
+- I get the same as you `jim`.
+- `Jim`... he <u>wants</u> it.
+- `Jim`, i won't stand for it.
+- `Jim`, please say something.
+- Big `jim` gave strict orders.
+- I call'em as i see'em, `jim`.
+- `Jim` lingk, d. ray morton...
+- This is `jim` hopper... yeah.
+- I'm sorry -- oh my god, `jim`.
+- It's a common reaction, `jim`.
+- `Jim`, you're not even trying.
+- Wait -- `jim` please -- carol!
+- I wish i could help you, `jim`.
+- Well maybe you're right, `jim`.
+- You got me, `jim`--but they do.
+- Don't go starting rumors, `jim`.
+- I can tell `jim` what you do...?
+- I don't see any violence, `jim`.
+- `Jim`, i can't... we have to go.
+- `Jim`, pat, mick, what the fuck.
+- `Jim`, you been with a girl yet?
+- Values've gone to hell, `jim`...
+- We have two options here, `jim`.
+- We'll speak to her, `jim`... no.
+- You're in perfect health, `jim`.
+- I take out my slim-`jim`... stop.
+- I've got to talk to you... `jim`!
+- I'll call you this evening, `jim`.
+- Is this `jim` garrison's daughter?
+- It's four- thirty, `jim` garrison.
+- It's not funny, `jim`, i'm scared.
+- Sometimes they call me jism `jim`.
+- There wasn't no conspiracy, `jim`.
+- This is me...this is ricky, `jim`.
+- We waited for you... hours, `jim`.
+- A real dreamer, `jim` williams, eh?
+- Aren�t you going to thank me `jim`.
+- ♪ hangin' with the frink ♪ `jim`...
+- I saw... you compromised me, `jim`.
+- `Jim`, dinner's just about ready...
+- `Jim` sullivan's going to be in it.
+- `Jim`, that bunch is out for blood.
+- Oh, `jim`, that's beside the point.
+- That kid's name was `jim` marshall.
+- Well, i can't figure it out, `jim`.
+- That leaves you trailing, `jim`.
+- `Jim`, where the hell have you been?
+- That's what you think, is it, `jim`?
+- This isn't a laughing matter, `jim`.
+- Was it davy crockett or `jim` bowie?
+- You know what's in four days, `jim`?
+- `Jim`, i don't even know his anatomy.
+- `Jim` left it, last time he was over.
+- `Jim`, these are not robot questions.
+- `Jim`, you don't have to-- oh, i see.
+- That pose is out too, sunny `jim`.
+- Ethan, if you knew about `jim`?..why..
+- It was nice to meet you officer `jim`.
+                 

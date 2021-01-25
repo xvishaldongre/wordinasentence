@@ -1,0 +1,89 @@
+---
+title: "likely in a sentence | likely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "likely"
+---
+- But not darn `likely`.
+- Most `likely` jimmy's.
+- Not `likely`, convict.
+- `Likely` that's an sos.
+- Not a `likely` suspect.
+- `Likely` just the weather.
+- An embezzler most `likely`.
+- `Likely` happen to you all.
+- Most `likely` a spacecraft.
+- He will `likely` succeed me.
+- `Likely` also the ionosphere.
+- Murder is the least `likely`.
+- It isn't very `likely`, is it?
+- In a war she's `likely` to win?
+- From the parapets most `likely`.
+- Most `likely`, that part is dead.
+- What are we `likely` to run into?
+- Compressed air horn, most `likely`.
+- Most `likely` one's inside the other.
+- These kids aren't `likely` to forget.
+- `Likely` to be out of it for some time?
+- One that's not `likely` to be answered.
+- Right... or more `likely` the opposite.
+- They voted me most `likely` to succeed!
+- You make it less `likely` just in time.
+- The more `likely` that scenario becomes.
+- They are `likely` to destroy the planet.
+- Yeah, i noticed... not `likely`, reggie.
+- It will `likely` be a dormant program, hey!
+- I'll most `likely` kill you in the morning."
+- More than `likely` he never even watched it.
+- Hey, look out, somebody's `likely` to see us!
+- Then you'll most `likely` know our son, dick.
+- When is she `likely` to grow old in appearance?
+- He'll `likely` have more before the month is out.
+- Most `likely` caused by whatever you were mining.
+- She's far more `likely` to rot out from under us.
+- It will `likely` be a dormant program, i admit it.
+- Maybe i seem less `likely` to rip their heads off.
+- If i should die today, he will `likely` succeed me.
+- I know, which is why people are more `likely` yeah!
+- I think a skin cell�s the more `likely` of the two.
+- It's just there's, uh, it's `likely` to be a shock.
+- Are 8 times more `likely` to have terminated signals.
+- Folks around here aren't `likely` to forget your face.
+- State of remorse, most `likely` -- for gettin' caught.
+- The ball you hit him with was not `likely` to hurt him.
+- On our way to a planet even less `likely` to support life?
+- I doubt it was drugs, more `likely` a problem with a nerve.
+- _ but since your plan most `likely` leaves us dead, we don't.
+- We haven't got them adapted to this cold yet ... not `likely`!
+- Faith, i think you are a lad that's `likely` to keep your word.
+- They're not `likely` to forgive me if i testify against him.
+- You'll try hard to deny it; you're quite `likely` to destroy it.
+- At this point, the most `likely` result of a foreign pact is war.
+- He more than `likely` just shot himself in the foot or something.
+- He's most `likely` sitting there wondering why he can't raise us.
+- After that act he put on up here, is it `likely` she'd let him in?
+- Most `likely`, he's on his way to detroit, where we should be.
+- I believe the most `likely` outcome will be our collective demise.
+- I most `likely` would have, sir, had i been given the opportunity.
+- Not `likely` i am afraid; i don't think i'll be seeing them again.
+- This <i>is</i> the most `likely` location-- we're in the wrong place.
+- Even if ryan's where he's supposed to be, he's more than `likely` dead.
+- Seems more `likely` becker does, but at the very least she knows how i died.
+- Even if they didn't do it, it times out that they most `likely` witnessed it.
+- More `likely`, it's a long drive out in the country, if you know what i mean.
+- Most `likely` the same hungarians that sate all but wiped out back in turkey.
+- What's more `likely`, they got in the room and was just panicked, that's all.
+- You'll most `likely` kill all of us, to go find the next class of novitiates.
+- Well, anything you do is `likely` to be fatal, so you know - i've had a drink.
+- It's `likely` there are people in the union who don't want twombley to testify.
+- One case of scotch, you're getting cheap in your old age, brian... not `likely`.
+- Yes, but it's more `likely` that the tolerances on our testing gear are too low.
+- Don't think the rangers are `likely` to find out any more than they already have.
+- You'd `likely` try to make an outside call, compromise security of this operation.
+- The older you are when you have a baby, the more `likely` this stuff is to crop up.
+- From your knowledge of mitchell, would you say he would be `likely` to commit suicide?
+- I wish you wouldn't take the dog with you, david -- he's `likely` to be a burden to you.
+- I think no matter which way i go i'm `likely` to wind up face down on a sheet of plastic.
+- Every metro captain agrees that he's their top sharp-shooter and most `likely` to succeed.
+- Even if this vincent luca <i>is</i> alive, is it `likely` he could bludgeon a man to death?
+                 

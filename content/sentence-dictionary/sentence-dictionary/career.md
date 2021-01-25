@@ -1,0 +1,107 @@
+---
+title: "career in a sentence | career example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "career"
+---
+- In his whole `career`!
+- It's a `career` killer.
+- A journalistic `career`?
+- I bet my `career` on you.
+- This could ruin my `career`.
+- In his unremarkable `career`.
+- Maybe a `career` in politics?
+- She's opposed to my `career`.
+- I know the answer -- `career`.
+- You call this a `career` move?
+- Weaver, they're `career` girls.
+- Jesus, leo, this is my `career`!
+- * _ you ruined a man's `career`?
+- Do not resuscitate your `career`.
+- I know the porn `career`'s a lie.
+- You have to decide on a `career`.
+- This isn't a `career` opportunity.
+- You're shitting ion your `career`.
+- Then i want to start a `career`.
+- It's not your `career` -- it's mine.
+- I yes-and-ed myself into a `career`.
+- It's aterm of service, not a `career`.
+- When we were discussing my "`career`"?
+- My father helped him with his `career`.
+- Our lives, the revolution, my `career`?
+- Terrible thing, but good `career` move.
+- You might have a second `career` coming.
+- You've got your `career` and everything.
+- Pretty sure my football `career` is over.
+- Good thing you have a voice-over `career`.
+- That doesn't sound -- my writing `career`!
+- I'm concentrating on my `career` right now.
+- That's the job, with or without a `career`.
+- After that, my movie `career` was kaput.
+- Don't ruin your life, your `career` for her.
+- My `career`'s, uh, slowed down a bit lately.
+- Well, my `career` takes up a lot of my time.
+- Destroy your `career` over an issue of pride?
+- What about the group and my singing `career`?
+- You almost ended my `career` before it began.
+- You could make a `career` by telling me where.
+- You mean because his `career`'s ruined and all?
+- Your family doesn't object to your `career`?
+- This isn't a newspaper story -- it's a `career`!
+- You're a `career` intelligence officer, shermin.
+- Jack crawford is helping your `career`, isn't he?
+- Thanks any- way for your interest in my `career`.
+- Didn't you tell me to be patient with my `career`?
+- His `career` will be over and it'll be your fault.
+- I hadn't really thought about a `career` or stuff.
+- In the twilight of my `career`, do i deserve this?
+- I've been watching your `career` for a good while.
+- We're talking your `career` here, bill, your life.
+- But that ended your `career` with the big airlines.
+- You `career` girls have no idea what we go through.
+- But anyway, after my boxing `career` ended, fall in.
+- She had a good job, it turned into a great `career`.
+- Is it sabotage, does my `career` mean nothing to you?
+- Beauty... a brilliant `career`... a wonderful husband.
+- My marrying one will be good for my father's `career`.
+- In his `career` he's killed over a thousand gladiators.
+- Well this is gonna end your `career` and probably mine.
+- You almost single-handedly derailed her whole `career`.
+- He's my father's godson; he owes him his whole `career`.
+- His criminal `career` has officially come to a close ...
+- I'll torture you so slowly you'll think it's a `career`!
+- That's twice the fifty you got for wrecking his `career`.
+- Another one of your conspiracies to hold ya `career` back?
+- I can reveal that i am considering a `career` in politics.
+- Pimples, heartburn, cellulite... and no modeling `career`.
+- You ever wonder why your `career`'s in the fucking toilet?
+- Lex luthor's `career` guidance... lex luthor's school of...
+- This is my eighth and final call... you mean like `career`?
+- You missed every one of your `career` counselling sessions.
+- Can i ask you a question totally unrelated to your `career`?
+- That ain't a hulluva lot to show for a twenty year `career`.
+- You almost destroyed the most sensitive deal of my `career`!
+- A sort of `career` shift, more in the engineering line of work.
+- Oh, jimmy, can't you forget about your `career` for one second?
+- I have a life here, a `career` -- i don't care what you believe.
+- Mav... ahhh...you know, at one point i did want a navy `career`.
+- My `career`, well, it's gotten pretty, you know, frustrating.
+- Foster, he hasn't had one good idea in his unremarkable `career`.
+- In fact, in my entire professional `career`, my mom voted for her.
+- My whole `career` depends on me never quite getting to the finish.
+- You actually could make breaking and entering into a new `career`.
+- You seem to be making a `career` of studying sensational murderers.
+- Says to me that he don't want nothin' to do with no military `career`.
+- It's something i'm sure you've come across many times in your `career`.
+- I love you -- you love me -- you want to get your `career` going, great!
+- It was made clear before you came -- harassment equals `career` suicide.
+- There's nothing selfish about pursuing your own life, your own `career`.
+- Schoenick... your lieutenant is about to make a real bad `career` move...
+- See, since you shitcanned my `career`, i don't even have to call you sir.
+- You know, boss, this happened to geraldo and his `career` never recovered.
+- I mean a college fetish is one thing, but we're talking about your `career`.
+- Well, maybe that's okay for someone like you whose `career` is winding down.
+- But i'm afraid of water, so that's been holding my `career` back a little bit.
+- To so many things i want to be for bill... funny business, a woman's `career`.
+- Hasn't this 'incident' as you call it, jump started your `career` as an artist?
+                 

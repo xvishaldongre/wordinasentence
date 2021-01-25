@@ -1,0 +1,107 @@
+---
+title: "fast in a sentence | fast example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fast"
+---
+- Damn, that was `fast`.
+- `Fast` and loose, man.
+- `Fast` and or furious.
+- He's comin' up `fast`!
+- It all went so `fast`.
+- It happened so `fast`.
+- It really goes `fast`.
+- Shit, that was `fast`.
+- They better be `fast`.
+- Tie your lines `fast`?
+- Unbuckle me -- `fast`!
+- We got to move `fast`.
+- You're a `fast` mover.
+- Can you `fast` forward.
+- It gets cold so `fast`.
+- It happened too `fast`.
+- I want to leave `fast`.
+- Just not `fast` enough.
+- So the virus is `fast`.
+- These are `fast` shoes.
+- They grow up so `fast`.
+- We have to talk `fast`.
+- News travels `fast`.
+- As `fast` as they could.
+- How `fast` does that go?
+- How `fast` does this go?
+- It happened very `fast`.
+- It was going too `fast`.
+- It wasn't `fast` enough.
+- I wanted it over `fast`.
+- Loop around real `fast`.
+- So do you, `fast` eddie.
+- Still not `fast` enough.
+- He was big but so `fast`.
+- How `fast` are you going?
+- How `fast` can you learn?
+- My god, you're so `fast`!
+- Pretty `fast`, wasn't it.
+- Probably a little `fast`.
+- Run as `fast` as you can.
+- Shoot pool, `fast` eddie.
+- So we better move `fast`.
+- That bugger moves `fast`.
+- They grow old too `fast`.
+- We've got to move `fast`.
+- You -- you're too `fast`.
+- I don't wanna look `fast`.
+- It all happened so `fast`.
+- It all happened so `fast`.
+- Motherfucker works `fast`.
+- Not so `fast`, pocahontas.
+- The light's fadin' `fast`.
+- This has to happen `fast`.
+- Too much... too `fast`...?
+- Very high an' very `fast`.
+- We have to do this `fast`.
+- We'll have to work `fast`.
+- Have we been going `fast`!?
+- I have to make this `fast`.
+- Leo `fast` elk... is alive.
+- Not so `fast`, mr. scratch.
+- We must take action `fast`!
+- We're coming in too `fast`!
+- We were too `fast` for him.
+- You're a little too `fast`.
+- You walk `fast`, don't you?
+- Some really `fast` cars.
+- Brought me along too `fast`.
+- Come on, we gotta be `fast`.
+- I mean <u>really</u> `fast`.
+- It doesn't work that `fast`.
+- Not so `fast`, mrs. buckley.
+- Pike: damn, that was `fast`.
+- So we got to cut him `fast`.
+- About how `fast` was i going?
+- `Fast` eddie felson, hustler.
+- How'd you get here so `fast`?
+- I'm going as `fast` as i can.
+- I pick things up real `fast`.
+- See how `fast` he is -- damn!
+- They're moving pretty `fast`.
+- Why're you driving so `fast`?
+- You're making friends `fast`.
+- But it won't be `fast` enough.
+- How `fast` can you install it?
+- News travels `fast` in vienna.
+- Take chances and drive `fast`.
+- This is <u>way</u> too `fast`!
+- We work `fast` enough for you?
+- You still doin' it too `fast`!
+- But i didn't act `fast` enough.
+- Dolores was driving too `fast`.
+- Don't try to grow up so `fast`.
+- Even you can't fly that `fast`!
+- `Fast` as we can get you there.
+- How `fast` does it take effect?
+- I'm twice as `fast` as you are.
+- It all just happened so `fast`.
+- It's not `fast` enough, norman.
+- It will be on the `fast` track.
+                 

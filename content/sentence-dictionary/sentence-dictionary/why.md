@@ -1,0 +1,107 @@
+---
+title: "why in a sentence | why example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "why"
+---
+- But `why`, claudia?...
+- But `why` did i do it?
+- But `why` shouldn't i?
+- Can you tell me `why`?
+- For god's sake, `why`?
+- Her doctors ... `why`?
+- He's gotta know `why`.
+- I can't imagine `why`.
+- I don't know... `why`?
+- I don't know... `why`?
+- I don't see `why` not.
+- I'm at- `why` would i?
+- In hampstead... `why`?
+- It bothers you, `why`?
+- It's `why` dev turned.
+- I wouldn't know `why`.
+- Knew `why`, didn't ya.
+- Let me tell you `why`.
+- Nah, `why` should you?
+- Now, <u>`why` him</u>?
+- Right here, `why` not?
+- So `why` should a man?
+- So `why` start now...?
+- Sure, evan, `why` not?
+- That's `why` i'm here.
+- That's `why` she left.
+- The question is `why`?
+- Victor, tell me `why`!
+- Well, can i ask `why`?
+- Well, `why` don't you?
+- Well, `why` rochester?
+- What is it and `why`?
+- `Why` all the secrecy?
+- `Why` am i doing this?
+- `Why` am i still here?
+- `Why` are we standing?
+- `Why` are we stopping?
+- `Why` are you ashamed?
+- `Why` are you driving?
+- `Why`, are you famous?
+- `Why` are you here...?
+- `Why` are you limping?
+- `Why` are you running?
+- `Why` are you shaking?
+- `Why` are you smiling?
+- `Why` are you so glum?
+- `Why` are you venkman?
+- `Why` are you yelling?
+- `Why` bring us inside?
+- `Why` can't it be her?
+- `Why` can't you do it?
+- `Why` certainly, baby.
+- `Why`, certainly, sir.
+- `Why` did he bite you?
+- `Why` did he tell you?
+- `Why` didn't you come?
+- `Why` didn't you fade?
+- `Why` didn't you stop?
+- `Why` did she call me?
+- `Why` did you call me?
+- `Why` did you come by?
+- `Why` did you do that?
+- `Why` did you do this?
+- `Why` did you hate me?
+- `Why` did you help me?
+- `Why` did you sign up?
+- `Why` does he want it?
+- `Why` doesn't it hurt?
+- `Why` do my eyes hurt?
+- `Why` don't they come?
+- `Why` don't we use it?
+- `Why` don't you go on.
+- `Why` don't you shoot?
+- `Why` don't you speak?
+- `Why` don't you watch?
+- `Why` do they do that?
+- `Why` do we have them?
+- `Why` do you ask, sir?
+- `Why` do you ask that?
+- `Why` do you say that?
+- ...`why` do you think?
+- `Why`'d you apologize?
+- `Why`'d you come back?
+- `Why`'d you come here?
+- `Why`'d you get fired?
+- `Why`'d you let me in?
+- `Why` get me involved?
+- `Why` have we stopped?
+- `Why`... in the heart.
+- `Why` is he a janitor?
+- `Why` is it a cop-out?
+- `Why` is it always me?
+- `Why` is it an insult?
+- `Why` isn't it stupid?
+- `Why`, mister stevens?
+- `Why` must i tell you?
+- `Why` no, mr. martins.
+- `Why` not give it all?
+- `Why` not just go now?
+- `Why` not tell me now?
+                 

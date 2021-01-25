@@ -1,0 +1,107 @@
+---
+title: "weapons in a sentence | weapons example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weapons"
+---
+- You got any `weapons`?
+- You'll need `weapons`.
+- A variety of `weapons`.
+- Miller, `weapons` down.
+- What kind of `weapons`?
+- Put down your `weapons`!
+- Put down your `weapons`.
+- Put your `weapons` down.
+- Their `weapons` missing?
+- There were no `weapons`.
+- `Weapons` there, please.
+- Everybody, `weapons` hot.
+- Except for the `weapons`.
+- Their `weapons` are down.
+- `Weapons` not responsive.
+- Your `weapons`, sergeant.
+- About this `weapons` plan?
+- Do you have any `weapons`?
+- I said get your `weapons`.
+- Let's get their `weapons`.
+- Let's get their `weapons`.
+- All of you, `weapons` down.
+- Are these `weapons` lethal?
+- Get those `weapons` stowed.
+- These two lethal `weapons`.
+- `Weapons` down, all of you.
+- What `weapons` do you have?
+- Ask him about his `weapons`.
+- Assassination and `weapons`.
+- Blow the `weapons` in place.
+- Pair up, grab the `weapons`.
+- Put your `weapons` down now.
+- We don't need your `weapons`.
+- All aircrafts, `weapons` free.
+- But, yeah, they have `weapons`.
+- What's our `weapons` situation?
+- You know your `weapons`, buddy.
+- The gestapo found our `weapons`.
+- All your `weapons`, on the floor!
+- Remove your `weapons`, commander.
+- What kind of `weapons` they used.
+- You got extra `weapons` and ammo?
+- With `weapons`, breaking our laws.
+- As we can with automatic `weapons`.
+- No `weapons` were found in the cave.
+- Their `weapons` require energy, too.
+- Well i do have the `weapons` charge.
+- Subspace `weapons` are unpredictable.
+- ...with no `weapons` and no training.
+- Handcuffed, with no kind of `weapons`.
+- I'm not the chemical `weapons` expert.
+- No power to the `weapons` system, sir.
+- With `weapons` way deadlier than that.
+- ♪ drop these `weapons` now ♪ apophenia.
+- Make sure there are no other `weapons`.
+- I feel we have all been given `weapons`.
+- I was only mentoring you `weapons` down!
+- They'd let me play with their `weapons`.
+- You don't think `weapons` are important?
+- Captain, if -- stand down your `weapons`.
+- Sometimes people carry `weapons` in here.
+- They had the `weapons` and the willpower.
+- Everybody put your `weapons` i'm so tired.
+- John, we have no `weapons` and no rations.
+- He don't have a concealed `weapons` permit.
+- I heard they make space `weapons` in there.
+- No mortal `weapons` can kill this creature.
+- None of which is gonna matter no `weapons`.
+- I'm the one who locked the `weapons` system.
+- Soran doesn't care about power or `weapons`.
+- With `weapons`... - what did you do to atom?
+- Put down your `weapons`, or we pull the plug.
+- You have no authorization to carry `weapons`.
+- Mere errand boys carrying concealed `weapons`.
+- "put down your `weapons` or we pull the plug."
+- Still, the sword is the lightest of `weapons`.
+- They are not `weapons`, my friend, but truths.
+- And see if he left any `weapons`, i don't know.
+- No, but i liked your book on nuclear `weapons`.
+- They're powering their forward `weapons` array.
+- He didn't have to worry about nuclear `weapons`.
+- But they're moving their `weapons` into position.
+- The liar and the thief the deal was no `weapons`.
+- `Weapons` and supplies to the northern perimeter?
+- Besides, why do we even need `weapons` anyway?
+- Apparently, the lanterns float, so build `weapons`.
+- Bet you got to handle a lot of `weapons` out there.
+- It's important to feature your sponsored `weapons`.
+- Man: with `weapons`... what did you do to atom?
+- Mr. kint will plead guilty to `weapons` possession.
+- No tricks, no `weapons`, skill against skill alone.
+- The americans, they have `weapons` from the future.
+- These `weapons` from the future, they are not real.
+- We move in formation, no straggling, `weapons` hot.
+- What would she want with `weapons` grade plutonium?
+- We have everything... the `weapons`, eye in the sky.
+- Commander, if one of their `weapons` hits that gas...
+- Don't want you pulling any `weapons` out of your fur.
+- Tell your men to lower their `weapons` we're, uh, ow!
+- Well, i say lets tear this place apart for `weapons`.
+                 

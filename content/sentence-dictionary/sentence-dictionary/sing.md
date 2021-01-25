@@ -1,0 +1,107 @@
+---
+title: "sing in a sentence | sing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sing"
+---
+- Get to see you `sing`.
+- You have to go `sing`.
+- Did you `sing` her one?
+- Do you `sing` and dance?
+- Early, `sing` me a song.
+- I didn't want to `sing`.
+- `Sing` because i cannot.
+- Would you `sing` for me?
+- You can `sing` the song.
+- You never really `sing`.
+- Can you `sing` something?
+- I don't `sing` very well.
+- `Sing` it to me, frankie!
+- Will i ever `sing` again?
+- You couldn't even `sing`.
+- Five years in `sing` `sing`.
+- I can `sing` "humoresque."
+- I can't `sing` it anymore.
+- I'm gonna `sing` it jazzy.
+- `Sing` a song of sixpence.
+- You gotta hear him `sing`.
+- Can whoopi `sing` or dance?
+- I don't `sing` my own songs.
+- "i `sing` the body electric.
+- It's better when you `sing`.
+- Laura's mom could `sing` it.
+- `Sing` it in pictures, nick.
+- We can't `sing` without her!
+- What are we going to `sing`?
+- You come and `sing` with me.
+- All you do is need to `sing`.
+- I don't- you're gonna `sing`?
+- They won't `sing` without me.
+- I couldn't hear myself `sing`!
+- Just `sing` your songs and go.
+- `Sing` a couple of songs, huh?
+- They used to beg me to `sing`.
+- You gonna `sing` me somethin'?
+- Come on in, and `sing` a spell.
+- Does he know you `sing` at all?
+- Do you think you can `sing` it?
+- Go'on and `sing` it, i'll play.
+- He said, `sing` the devil away!
+- She made us `sing` beautifully.
+- `Sing` and the devil will flee!
+- We can `sing` shallow together.
+- We used to `sing` it in school.
+- What do you do, pick or `sing`?
+- Yellow bird... is gonna `sing`.
+- Is that what she used to `sing`?
+- `Sing` a song of sixpence... no.
+- That's the place where i `sing`.
+- They want me to `sing` and shit.
+- You better not `sing` that song.
+- You want me to `sing` something?
+- 'cause you can't `sing` or dance?
+- Honey, `sing` it for judge tower.
+- Hum a tune and i'll `sing` to it.
+- I'm going to see the diva `sing`.
+- I used to `sing` with male bands.
+- Make 'em `sing` for their supper.
+- Maybe we could all `sing` a song.
+- `Sing` and your spirit will soar!
+- And i'll `sing` with him for life.
+- I'd rather `sing` than do anything!
+- Mom, we came to `sing` some carols.
+- Girl, do you still `sing` and dance?
+- When i'm alone, i `sing` show tunes.
+- Does he `sing` in english or russian?
+- I don't think she can `sing`, either.
+- I'd like to `sing` it for him tonight.
+- I learned book-keeping at `sing` `sing`.
+- No, i, eh, it's just that they `sing`.
+- This is not the finals -- just `sing`!
+- Where's your joy if you cannot `sing`?
+- All i ever wanted was to `sing` to him.
+- Daddy, come up and `sing` the baseball.
+- Not even the birds `sing` sweet as you.
+- And she's gonna `sing` an original song.
+- Oh, you wouldn't want to hear me `sing`.
+- Wait and hear the birds `sing` over you!
+- Let me climb to the top and `sing` to it.
+- Not yet... you must hear my birds `sing`.
+- Olaf: `sing`... did he say "making fuck?"
+- As a matter of fact, i do `sing` a little.
+- Come on, you know the words, `sing` along.
+- Oh, right ... you don't have to `sing` it.
+- You shut up, or i'll `sing` you a lullaby!
+- For chrissake, hannah, you heard me `sing`!
+- No, saturday night i'm gonna- gonna `sing`.
+- What... bones, what are we going to `sing`?
+- Yes i'll `sing` and know joy evermore `sing`!
+- Gentleman, when you hear an order, `sing` out.
+- I'd rather ... just ... `sing` ... rather what?
+- What do you mean, they don't want me to `sing`?
+- Frank, i can't `sing` that fucking song anymore!
+- ♪ hear me shout and hear me `sing` ♪ i'm shauna.
+- We hear you pay good money to `sing` into a can.
+- Even to shoot another grounder, now `sing`, bart.
+- Hey, baby, that's where they put me, `sing`-`sing`.
+                 

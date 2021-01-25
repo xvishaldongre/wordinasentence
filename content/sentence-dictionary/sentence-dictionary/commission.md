@@ -1,0 +1,64 @@
+---
+title: "commission in a sentence | commission example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "commission"
+---
+- We have a `commission`.
+- I'd like to `commission` a work.
+- Twelve grand in `commission`.
+- Complain to the bar `commission`.
+- The warren `commission` call him?
+- Waterfront� crime� `commission`� ?
+- You just saw my `commission` slip.
+- Mine's sort of out of `commission`.
+- We got friends in the `commission`.
+- Is he on the trilateral `commission`?
+- Stripped lincoln of his `commission`.
+- I also sit on the townlot `commission`.
+- If i call, you lose the `commission`.
+- Yet the `commission` found you, dean.
+- I have come to `commission` work from you.
+- What's `commission` on a $100,000.00 policy?
+- Oh, here's your check, minus my `commission`.
+- His brother-in-law runs the county `commission`.
+- Somebody took it out of `commission` last night.
+- Yeah, well, i've sort of been out of `commission`.
+- I was one member of the investigating `commission`.
+- That's $1200 `commission`, if the papers go through.
+- The gaming `commission` would never give me a license.
+- Then you tell the `commission` he was five foot eight.
+- Somehow he came by the money to `commission` the pearl.
+- The `commission` don't decide how i spend my honeymoon.
+- * with the united nations high `commission` on refugees.
+- Makes no difference to me if they're only on `commission`.
+- Sorry, the blue thunder's out of `commission` for a while.
+- Young man, we are going to `commission` an opera from you.
+- Can't you find a way to hold back some of her `commission`?
+- Even if you beat it, you'll never get another `commission`.
+- Once we get rid of the dons, the `commission`'s gonna rule.
+- We got a big fax today... we need this `commission`, buddy.
+- Could the mob appoint the warren `commission` to cover it up?
+- If there's a dispute over territory, the `commission` decides.
+- Then how the hell did you get in the warren `commission`, dean?
+- I'm not thanking the georgia film `commission`, here you go.
+- Um, i think the warren `commission` has been closed for a while.
+- If my plan works, gentlemen, i'll just take a tiny `commission` .
+- Date of `commission` day nine month seven year one nine three two.
+- I don't know if it's brill's prices going up or your `commission`.
+- Can't you think of anyone who might `commission` some work from him?
+- I'm gonna get this developed and send it to the warren `commission`.
+- Hey, terry, guess who's here... that joker from the `commission`... .
+- Those warren `commission` fellows were pickin' gnat shit out of pepper.
+- William says now you have requested a british `commission`, why not colonial?
+- I'm going to assume that means that the secret service is out of `commission`.
+- But you didn't seem nearly so sure in your statement to the warren `commission`.
+- That e-e-everybody o-o-on the warren `commission` is in on this conspiracy, right?
+- And, uh, i'm going to have to charge you a `commission`... kind of like a brokerage fee.
+- I have thought of calling for a royal `commission` to "investigate" the new legislation.
+- After the hostilities are ended, there will be such a thing as a war crimes `commission`.
+- The crime `commission` has offered a reward of ten thousand dollars for williams' capture.
+- The first thing you do is buy ammunition -- you buy it from me and i get 10% `commission`.
+- In recognition of your hard work we've decided to increase your `commission` to 12 percent.
+- You know if there's a way i'll go to the `commission` and the `commission` will side with me.
+                 

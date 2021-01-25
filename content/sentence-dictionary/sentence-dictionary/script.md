@@ -1,0 +1,76 @@
+---
+title: "script in a sentence | script example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "script"
+---
+- You see this `script`..?
+- Did she read the `script`?
+- Have you read the `script`?
+- Just finished one `script`.
+- The `script` is wonderful.
+- I haf question 'bout `script`.
+- Oh, just like in the `script`!
+- But what does the `script` say?
+- It's a good `script`, isn't it?
+- Cain looks down at her `script`.
+- He's excited about the `script`.
+- Stick to the `script`, amateurs!
+- What...what about your `script`?
+- I got you a copy of the `script`.
+- Well, it's not my first `script`.
+- I'm not just selling the `script`.
+- You read the `script`, didn't you?
+- Chili palmer showed you my `script`?
+- So whatta you think of the `script`?
+- Would you give that `script` a rest?
+- Is your `script` much like the novel?
+- We can finish the `script` by thursday.
+- How long is a movie `script` these days?
+- This, this "`script`" you're following .
+- Anyway, i brought a copy of the `script`.
+- Like the book/`script` thing, do you see?
+- The minute i read that `script` i said...
+- The `script` was written by some new guy.
+- Yeah, it'll help you finish your `script`.
+- Look, i'm supposed to fix up your `script`.
+- Where's it say in this `script` he's white?
+- Anyway, i had lou read your `script` for me.
+- But now he's got a new `script` in the works.
+- I gave her some advice on an idiotic `script`.
+- Try to build a mental picture of the `script`.
+- Did you read that `script` i was talking about?
+- It's not just a new `script`, it's a new movie.
+- Because i need half a million to buy a `script`.
+- I still haven't received simone's `script` notes.
+- It must be about that appalling `script` of hers.
+- Your lines are in the `script`, but you can ad lib.
+- Bob, how long has wes been working on this `script`?
+- ♪ history won't care at all ♪ stick to the `script`.
+- It's like every five minutes there's a new `script`.
+- This is still a `script` we're talking about, right?
+- And, you know it isn't rocket science, this `script`.
+- I told them what you said about the `script`... what?
+- The two terrys, they just turned in a great `script`.
+- I-i would love to talk to you about, uh, that `script`.
+- We understand you read the `script` and like it... a lot.
+- It's in your `script`...it's about getting a second chance.
+- Who helped type your `script`, and did all your grunt work?!
+- Abby's working around the clock i want input on the `script`.
+- It only had fragments of real scenes from the actual `script`.
+- The killer is choosing his victims as they die in the `script`!
+- What, by putting it in a fuckin' `script`, for everyone to see?!
+- I'm writing a `script` and i'm dying to finish it, no matter what.
+- If freddy's loose, i mean, in your `script`, where's he going to go?
+- The legendary unproduced `script` that was too good ever to get made?
+- Da vinci made the real directions in a secret `script` that i decoded.
+- You know, when you rewrite a `script`, it just gets better and better!
+- Number one there were five different versions of the `script` given out.
+- Actually, my first `script` was about hannah and her husband, but, uh... hmm.
+- Ben damon was given a fake `script` because he was only being offered the role.
+- He flips over a `script`, and when the time comes to make a deal, he flips out.
+- More to the point, i read your new `script`... um... yeah, well, that's enough.
+- Anyway, what i was calling about was...have you seen any of the `script`, by any chance?
+- But lipnik said he wanted to look at the `script`, see something by the end of the week.
+- I swear to you i'll stay at my computer and keep writing until i finish the `script`.
+                 

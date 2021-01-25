@@ -1,0 +1,107 @@
+---
+title: "eyes in a sentence | eyes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eyes"
+---
+- Blue `eyes`, yes, sir.
+- Check the `eyes`, ben.
+- I ain't got no `eyes`.
+- I got `eyes`, don't i?
+- I have `eyes` on loki.
+- I have my `eyes` open.
+- I have sincere `eyes`.
+- In my `eyes`, officer.
+- Keep your `eyes` open.
+- My `eyes` are lighter.
+- Now close your `eyes`.
+- Now, shut your `eyes`.
+- Ok. close your `eyes`.
+- Why do my `eyes` hurt?
+- Your `eyes` are puffy.
+- Did you see his `eyes`?
+- Did you see its `eyes`?
+- His tongue, his `eyes`.
+- I saw it in his `eyes`.
+- I see it in his `eyes`.
+- It doesn't have `eyes`.
+- Just close your `eyes`.
+- Never closed my `eyes`.
+- Prying `eyes` annoy me.
+- Shut your `eyes`, mama.
+- So, so much for `eyes`.
+- Then close your `eyes`.
+- Your `eyes` say you do.
+- A sight for sore `eyes`!
+- Blond hair, blue `eyes`.
+- Close your `eyes`, baby.
+- Cover your `eyes`, newt.
+- Deacon opened my `eyes`.
+- Everyone, `eyes` peeled.
+- Except for small `eyes`.
+- Get me `eyes` on it now.
+- I got `eyes` everywhere.
+- I saw it in your `eyes`.
+- I see it in your `eyes`.
+- I think it's the `eyes`.
+- I've got `eyes` on kane.
+- Jesus, open your `eyes`!
+- Keep your `eyes` peeled.
+- My `eyes` are not lying!
+- My wife had blue `eyes`.
+- Okay, close your `eyes`.
+- Open your `eyes`, james.
+- Soon, dark `eyes`, soon.
+- Your `eyes` are shining.
+- His `eyes` were open.
+- Don't worry, four `eyes`.
+- `Eyes` on your own belly!
+- I have `eyes` on 'em now.
+- Marcus, open your `eyes`.
+- May i open my `eyes` now?
+- My `eyes` are killink me.
+- Open your `eyes`, dammit!
+- Open your fucking `eyes`!
+- Right between the `eyes`!
+- Right between the `eyes`.
+- They make my `eyes` itch.
+- Keep your `eyes` open.
+- Blue `eyes` give you away.
+- I can't believe my `eyes`.
+- If she got `eyes`, she do.
+- I'll suck your `eyes` out!
+- It brings out your `eyes`.
+- Lost my `eyes` on okinawa.
+- The lenses hurt my `eyes`.
+- You have beautiful `eyes`.
+- Are my `eyes` really brown?
+- But now my `eyes` are open.
+- `Eyes` bart-wise, everyone.
+- Here all `eyes` gaze on us.
+- I had to lay `eyes` on you.
+- Is there sand in my `eyes`?
+- It's peggy to these `eyes`.
+- Just keep your `eyes` open.
+- Let's not close our `eyes`.
+- Looked at with your `eyes`.
+- Oh, not through his `eyes`.
+- She just closed her `eyes`.
+- The bags under your `eyes`.
+- They're cold, lying `eyes`.
+- We'll keep our `eyes` open.
+- You have expressive `eyes`.
+- All right, open your `eyes`.
+- I see it in your `eyes`.
+- You know i got `eyes`...
+- `Eyes` closed, mind a blank.
+- I can see it in your `eyes`.
+- I saw it with my own `eyes`.
+- My god, clarke, your `eyes`.
+- She had these violet `eyes`.
+- So don't look in his `eyes`.
+- So long as i get his `eyes`.
+- Well, keep your `eyes` open.
+- We'll need `eyes` out there.
+- We've got our `eyes` on her.
+- What happened to his `eyes`?
+                 

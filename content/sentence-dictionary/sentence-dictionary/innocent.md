@@ -1,0 +1,107 @@
+---
+title: "innocent in a sentence | innocent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "innocent"
+---
+- Don't play `innocent`.
+- I swear i'm `innocent`.
+- Jack, she's `innocent`!
+- An `innocent` child.
+- We were `innocent`, man.
+- Actually, i'm `innocent`.
+- I know you're `innocent`.
+- I'm `innocent` i tell ya.
+- None of us is `innocent`.
+- You know i am `innocent`.
+- This `innocent` child.
+- He thinks he's `innocent`.
+- I think you're `innocent`.
+- Shu kai kim is `innocent`.
+- You're the `innocent` one.
+- By taking `innocent` lives?
+- He's completely `innocent`.
+- How many `innocent` people?
+- Let me out, i'm `innocent`.
+- An `innocent` child is dead.
+- Christ... shu is `innocent`.
+- Every simpson is `innocent`.
+- I mean, for real `innocent`?
+- `Innocent` lives, we should.
+- We're both `innocent`, nick.
+- I hate `innocent` bystanders.
+- Put on your `innocent` faces.
+- Because jackson is `innocent`.
+- Finn killed `innocent` people.
+- I told you she was `innocent`.
+- What could be more `innocent`?
+- An `innocent` man on death row.
+- Everybody in here's `innocent`.
+- Everybody's `innocent` in here.
+- Guilty until proven `innocent`?
+- The truly `innocent` were safe.
+- You murdered `innocent` people.
+- See, i told you, all `innocent`.
+- [indra moaning] `innocent` girls.
+- It's just an `innocent` question.
+- My wife is completely `innocent`.
+- Are you saying andy is `innocent`?
+- Because he thinks he's `innocent`.
+- Don't act so goddamned `innocent`!
+- Easy, it's an `innocent` question.
+- She was young, she was `innocent`!
+- Do you still think he's `innocent`?
+- Shut up, all you `innocent` people.
+- Another `innocent` grounder village.
+- If she's `innocent`, she'll be fine.
+- I've put `innocent` lives in danger.
+- Makes her look even more `innocent`.
+- There are no `innocent` people here.
+- 320 `innocent` people will be killed.
+- But you still think she's `innocent`.
+- If i do not know it, i am `innocent`.
+- Someone chaste... pure... `innocent`.
+- Don't play `innocent` with me, thelma.
+- No one is `innocent` -- including you!
+- You think that the girl is `innocent`?
+- If he's `innocent` he'll have an alibi.
+- If you're so `innocent`, why'd you run?
+- Killing 6 `innocent` people, all right.
+- As clarke said, we spare the `innocent`.
+- I went up there an `innocent` climber...
+- No reason to kill `innocent` bystanders.
+- Trying to impress this `innocent` thing?
+- An `innocent` man is dead because of you.
+- In other words, no `innocent` people die.
+- Over the `innocent` people you've killed.
+- Somebody's flesh who was `innocent` once.
+- I'd rather have a client who's `innocent`.
+- `Innocent` men, women, and children alike.
+- You act like you're so fucking `innocent`.
+- You don't really believe she's `innocent`?
+- Barnes wouldn't kill two `innocent` guards.
+- How can you still believe she's `innocent`?
+- She's so little, so pretty, and `innocent`.
+- 300 `innocent` people will die if you don't.
+- I mean, we're destroying an `innocent` girl.
+- Hanging an `innocent` man to win an election!
+- I think you are rather `innocent`, my friend.
+- So you don't have to play `innocent` with me.
+- Don't play `innocent` with me bazza; spanking!
+- No matter what happens... you're `innocent`...
+- Putting hundreds of `innocent` people in jail.
+- Anyway... ...ain't nobody who's `innocent`.
+- And so many more `innocent` lives will be lost.
+- Guilty and `innocent` alike, even the children.
+- Hanging an `innocent` for the crime of a fiend.
+- No question from you is `innocent`, mr. gittes.
+- So this is what it feels like to be `innocent`.
+- Why do you want to kill more `innocent` people!
+- You know you're `innocent` until proven guilty.
+- Because if we're not gone don't play `innocent`.
+- For awhile we had this dream we were `innocent`.
+- Mom, `innocent` people died from my right thing.
+- And that includes the `innocent` people i got it!
+- She's `innocent`, jack she's done nothing wrong.
+- That's ridiculous... because she's an `innocent`.
+                 

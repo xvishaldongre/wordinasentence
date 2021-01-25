@@ -1,0 +1,8 @@
+---
+title: "smothering in a sentence | smothering example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "smothering"
+---
+- Just some horrible dreams about `smothering`.
+                 

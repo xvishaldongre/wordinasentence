@@ -1,0 +1,66 @@
+---
+title: "fourteen in a sentence | fourteen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fourteen"
+---
+- She's only `fourteen`.
+- When i was `fourteen`.
+- It's `fourteen` floors!
+- `Fourteen` business days.
+- I'm `fourteen` years old!
+- `Fourteen` year old girls.
+- Thirteen, `fourteen` years.
+- `Fourteen`-fifty hours, sir.
+- `Fourteen` times you told me.
+- Two pounds, `fourteen` ounces.
+- Besides, i was only `fourteen`.
+- `Fourteen`, fifteen grand a week.
+- You're `fourteen` years old here?
+- `Fourteen` counts of 8 to 10 years.
+- `Fourteen` years of public service...
+- `Fourteen` movie theaters under one roof.
+- I was taller than you when i was `fourteen`.
+- `Fourteen` million dollars upstairs, burnham.
+- It's only `fourteen` or fifteen flesh wounds.
+- Optimum approach angle is `fourteen` degrees.
+- Touchdown, andrews, `fourteen` hundred, today.
+- You hit the ball pretty good for a `fourteen`.
+- Jenny would've been ... `fourteen` at the time?
+- Leaving section `fourteen` for section fifteen.
+- 'bout `fourteen` miles this side of mississippi.
+- He's out `fourteen` cents, and he can't find it.
+- I've been dodging bullets since i was `fourteen`.
+- Rooms thirteen and `fourteen` are on indian land.
+- Exactly how is `fourteen` days almost three weeks?
+- Once a `fourteen`-year-old told me she was twelve.
+- `Fourteen` and he�s hoodwinked by a an erector set?
+- `Fourteen` dead, eleven wounded, eighteen captured.
+- I have been breeding these fowl for `fourteen` years.
+- She's only `fourteen`... maybe we should knock first?
+- The last we spent any time together i was `fourteen`.
+- `Fourteen` day escrow, man, that's almost three weeks!
+- We just got our first lead `fourteen` hours ago, and now?
+- Howard jr. is `fourteen` and mandy must be what -- twelve?
+- Seeing dulli after `fourteen` years sealed the deal for me.
+- How hard could it be squeezing out some `fourteen` year old?
+- You and i have been doing this together for `fourteen` years.
+- I was sentenced to a youth camp out here when i was `fourteen`.
+- More than `fourteen` thousand marks... were in that pocketbook.
+- Five thousand eight hundred and `fourteen` dollars, to be exact.
+- I am programmed to detonate in `fourteen` minutes thirty seconds.
+- Hell,' we've been playing poker together since we were `fourteen`.
+- Mcclosky manufacturing company as a bookkeeper for `fourteen` years.
+- One man on a tractor can handle twelve or `fourteen` of these places.
+- How do you think i felt -- riding home on that seven-`fourteen` train?
+- I'm `fourteen` cents out, and it took me half an hour to find the mistake.
+- One-four degrees... ...make your approach vector negative `fourteen` degrees...
+- He was shot and killed when i was `fourteen` on the steps of his church in bethesda.
+- So for `fourteen` years, this stuff flowed into the groundwater, free as you please.
+- I tried it once... `fourteen` years ago... 'i was a lousy husband and a worse father.
+- I've been inside the beltway `fourteen` years, and i feel like i just got my feet wet.
+- Well, there are, but for some reason they stop working at five-`fourteen` every night.
+- If something had happened last night...it would have cost me `fourteen` hundred dollars?
+- I read you, lieutenant doolittle, but i am programmed to detonate in `fourteen` minutes.
+- This ship is equipped with `fourteen` long range transporters... are they all useless...?
+                 

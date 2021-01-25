@@ -1,0 +1,7 @@
+---
+title: "heedful in a sentence | heedful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heedful"
+---
+## Unfortunately, we have no example sentences for heedful                 

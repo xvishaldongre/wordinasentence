@@ -1,0 +1,101 @@
+---
+title: "operation in a sentence | operation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "operation"
+---
+- They had our `operation`.
+- It's a two-man `operation`.
+- That `operation` has begun.
+- This is my `operation` now.
+- Are the labs in `operation`?
+- For the `operation` for you?
+- It's a four-man `operation`.
+- This is a joint `operation`.
+- The man's got an `operation`.
+- She says it's a `operation`!
+- Yes, a name for the `operation`.
+- How dangerous is the `operation`?
+- I'm going to need an `operation`.
+- Do you still want the `operation`?
+- I believe the `operation` is over.
+- Just for the `operation` in paris.
+- This `operation` is in two phases.
+- Any major `operation` is dangerous.
+- This is what funds our `operation`.
+- How's your mining `operation` going?
+- They called it `operation` mongoose.
+- Very impressive `operation`, fletch.
+- We do the `operation` after i finish.
+- But the whole `operation` was my idea.
+- I'm in charge of this `operation` now.
+- I'm still not having that `operation`.
+- This whole `operation` was a molehunt.
+- The `operation` is <my> responsibility!
+- But this is, still, a naval `operation`.
+- Commence `operation` child endangerment.
+- Commencing `operation` uninvited guests.
+- Did you ever have a serious `operation`?
+- I went myself to oversee the `operation`.
+- We risk our whole `operation` for nothing.
+- You got no discipline in your `operation`.
+- An `operation` he referred to as "job 314".
+- We want a rescue `operation` mounted tonight.
+- This is a three-man `operation`, jim, not two.
+- The committee's not an independent `operation`.
+- You'll be linked during the entire `operation`.
+- I built this `operation`, you fucking turd stain.
+- We'll be closing down their `operation` for days.
+- I wasn't really part of the `operation`, you know.
+- I had a `operation` couple of years ago on my eyes.
+- I had an `operation` a couple years ago, on my eyes.
+- Sometimes a story is a mask for a covert `operation`.
+- Non-violence means co-`operation` when it is possible.
+- Say, does your boss use a computer in this `operation`?
+- We'll do an `operation`, doctor dylan and doctor julie.
+- I have great hopes for the future of our co-`operation`.
+- `Operation` downfall isn't our endgame it's the enemy's.
+- Repairing the antenna is a pretty dangerous `operation`.
+- Now, those savages are threatening our whole `operation`.
+- `Operation` deflower mayflower is going full speed ahead.
+- No wonder they want me to stand by during the `operation`.
+- Well, he knows thirty-nine pages worth of our `operation`.
+- Check out something called "mongoose" `operation` mongoose.
+- Not since i walked out of a loanshark `operation` in miami.
+- Word on the street was he was saving up for an `operation`.
+- You've done just about everything else on this `operation`.
+- Do i have a fifty-fifty chance of surviving the `operation`?
+- My `operation` depends on specifications that do not change.
+- If we can find the plates, we can stop the whole `operation`.
+- That'll give us at least a few hours for `operation` mirkwood.
+- A covert military `operation` riddled with civilian... ...noon.
+- To wait until the actual `operation` -- when it may be too late?
+- In fact -- -- i'd like you to handle this `operation` personally.
+- Even our gambling `operation` is in trouble isolation madness.
+- `Operation` deflower mayflower is a bad joke and i'm the punchline.
+- Her mama needs this `operation`, and they ain't got the money for it.
+- After, after the `operation`, when that poor girl, she went in a coma.
+- We haven't even begun and you're already jeopardising this `operation`.
+- I got more depressed than ever; i saw i'd never get the `operation`.
+- I appreciate your assistance, m. but this is now a military `operation`.
+- Some little rinky- dink `operation` with a little mickey- mouse computer.
+- Look, boy, we got a smooth `operation` here, and i aim to keep it that way.
+- ...her mother needs an `operation`... she's got other problems, of course...
+- Unfortunately -- her husband suspected someone very close to the `operation`.
+- We practically compromised our whole `operation` to save your puckered old ass!
+- Together we take out maranzano, and each family gets a piece of his `operation`.
+- But besides the `operation`, we've got to get in at least eighteen holes of golf.
+- It's got programmable facilities, but it was never rigged for remote `operation`.
+- You'd likely try to make an outside call, compromise security of this `operation`.
+- I don't know if we have any younger man more respected in our `operation` than you.
+- And if that means negotiating... then tell me there's a rescue `operation` underway.
+- Calm yourself, doctor, the `operation` is almost complete... we do sleep lying down.
+- Dad's fishing trip, grandma's knee `operation`, grandma's birthday... ah, beautiful.
+- He's closing down his `operation` and this is his way of saying thanks to all of us.
+- Seems to be some sort of vaulted chamber up ahead... tis a delicate `operation`, lad.
+- This `operation` is under military jurisdiction and hicks is next in chain of command.
+- It means killing benes... and for all we know, they may have completed the `operation`!
+- According to what mr. crandall says, the road's a lot more dangerous than the `operation`.
+- I get it... ...we�re really more of a boutique `operation`, as you can see... not exactly.
+- Why would you stay so long with an `operation` that is so clearly not a growth enterprise?
+                 

@@ -1,0 +1,53 @@
+---
+title: "pirate in a sentence | pirate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pirate"
+---
+- I look like a `pirate`.
+- Sounds like a `pirate`.
+- `Pirate` -- no question.
+- Don't `pirate` movies.
+- Because you're a `pirate`.
+- It's a `pirate` medallion.
+- You really are a `pirate`.
+- An authentic `pirate` song.
+- Now that's a great `pirate`.
+- What kind of `pirate` is that?
+- Why'd you make him a `pirate`?
+- Crossing blades with a `pirate`?
+- Is it about a `pirate`'s daughter?
+- My father -- was not -- a `pirate`!
+- We need ralph for the `pirate` king.
+- You want to turn `pirate` yourself?
+- It's not true my father was a `pirate`.
+- `Pirate` or not, this man saved my life.
+- Romeo and ethel the `pirate`'s daughter.
+- I am ethel, sir, the `pirate`'s daughter.
+- All but done, a `pirate` comedy, wonderful.
+- Which means principal collins is a `pirate`!
+- You're the dread `pirate` roberts; admit it.
+- That's because captain rob is not a `pirate`.
+- He is a sailor on the `pirate` ship "revenge."
+- It's like a `pirate` had a baby with an angel.
+- You'd make a wonderful dread `pirate` roberts.
+- He was a `pirate` who sailed these waters long ago.
+- Quit hitting on my wife, you crooning sex `pirate`.
+- Well, you're the worst `pirate` i've ever heard of.
+- So me and groot will go with the `pirate` angel here.
+- I think it would be rather exciting to meet a `pirate`.
+- Romeo and ethel the `pirate`'s daughter�almost finished?
+- Maybe the `pirate` who buried this treasure chest made it.
+- Eddie, if i was a `pirate`, i wouldn't throw you to the crew.
+- No `pirate` would sail to london, for fear of execution dock.
+- Well, there's a `pirate` in truth, i have not written a word.
+- I was thinking more along the lines of being a river `pirate`.
+- You are without a doubt the worst `pirate` i have ever heard of.
+- Would you rather be ravished by a `pirate` or a british rear admiral?
+- The dread `pirate` roberts is always close to florin this time of year.
+- Better to see it at the bottom of the sea than in the hands of a `pirate`.
+- When a `pirate` is marooned, will, he's given a pistol with a single shot.
+- His ship was attacked by the dread `pirate` roberts, who never left captives alive.
+- This guy drinks rum from a barrel, says "yo ho ho" has a peg leg... yeah, he's a `pirate`.
+- On the high seas, your ship attacked, and the dread `pirate` roberts never takes prisoners.
+                 

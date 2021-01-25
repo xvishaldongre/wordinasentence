@@ -1,0 +1,107 @@
+---
+title: "lonely in a sentence | lonely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lonely"
+---
+- I've been so `lonely`.
+- You must get `lonely`.
+- Don't you get `lonely`?
+- Probably just `lonely`.
+- You have been `lonely`?
+- For two `lonely` nights.
+- I've been `lonely` here.
+- That poor, `lonely` man.
+- It got `lonely` upstairs.
+- It must be very `lonely`.
+- Rafe was...he was `lonely`.
+- Hey, i'm a `lonely` old man.
+- Sometimes when i'm `lonely`.
+- They're `lonely`, something.
+- He's just a `lonely` old man.
+- I'm afraid of being `lonely`.
+- I'm `lonely`... at the store.
+- Oh, you won't be so `lonely`.
+- They're just `lonely` is all.
+- Obviously, we're both `lonely`.
+- You must get `lonely` at times.
+- I know how it is to be `lonely`.
+- I'm a woman -- a `lonely` woman.
+- I was `lonely`... why am i here?
+- Mr. marschal gets real `lonely`.
+- She's `lonely` since daddy died.
+- At least you were never `lonely`.
+- He wasn't a `lonely` man, though.
+- It just looks... really `lonely`.
+- It was a `lonely` way to grow up.
+- Marty, she's a `lonely` old lady.
+- I think he must be a `lonely` man.
+- I will never be a `lonely` spirit.
+- Sanctum is yours, sounds `lonely`.
+- She was `lonely`, i talked to her.
+- It's `lonely` in there, in my room.
+- It's `lonely`, it's rough at first.
+- Mr brandon's a rather `lonely` man.
+- One `lonely`, terrifying sea snake.
+- It's not going to be `lonely`, judy.
+- They're `lonely`, worse than wolves.
+- You're the one who -- i was `lonely`.
+- Don't drag me into your `lonely` song.
+- She says she's `lonely`... aubrey run!
+- ..and as `lonely` as i am... maybe not.
+- You must have been a very `lonely` girl.
+- I guess it's too `lonely` for most folks.
+- I always think of motel rooms as `lonely`.
+- I'm not a `lonely` spooky writer like you.
+- Desert's kind of `lonely` this time of day.
+- It gets, um... it gets so `lonely` sometime.
+- It's been a pretty `lonely` couple of years.
+- `Lonely` with all your gold, mister stevens?
+- Sometimes saturday night has a `lonely` sound.
+- Thought you might get `lonely`, mad- martigan!
+- To tell the honest-to-god truth, i'm `lonely`.
+- Sister, do you ever get `lonely` after vespers?
+- There are a lot of `lonely` people in the world.
+- Don't you get `lonely` in that little green room?
+- If you get `lonely`, go down and see mrs. romari.
+- It's beautiful but it does get a little `lonely`.
+- You tell them there's no crime in being `lonely`.
+- It's been so `lonely` here without you... hi, mom.
+- Amy was `lonely`; she was desperate for friendship.
+- Growing up in an orphanage, you're always `lonely`.
+- It's `lonely` here, so she got herself a companion.
+- Must get `lonely`, living out here all by yourself.
+- The days are so very long and `lonely` without you.
+- Because if you couldn't, i would be very `lonely`...
+- Soon, you gorgeous thing... tell me... how `lonely`?
+- Are there any `lonely` lighthouse keepers abaft here?
+- It is only that i have been so `lonely` lately and...
+- I was afraid one bottle might get `lonely` by itself.
+- Ah ... then you've come to the right `lonely` mansion.
+- He's an important man - he's `lonely` - don't be dumb!
+- I came over because i couldn't sleep and was `lonely`.
+- I got kinda `lonely`, you know, just wandering around.
+- Just the child of some `lonely` girl i gave a ride to.
+- ... to the tune of "only the `lonely`" by roy orbison.
+- Without them growing old can be a very `lonely` thing.
+- You could get mighty `lonely` now that pollux is gone.
+- Amy wasn�t just jealous...she was sad and `lonely`.
+- It's just - i been so `lonely` - then i saw you, and...
+- Welcome to the nineties, you're going to be very `lonely`.
+- I guess he was pretty `lonely` down there those last years.
+- It always seemed to me she was sort of `lonely` and unhappy.
+- But for the `lonely`, the... let me ask you something, bruce.
+- We are alone - but look at the stars and never feel `lonely`.
+- When i was in the concentration camp, were you `lonely` in paris?
+- [indistinct atter] makes you feel kind of `lonely`, doesn't it?
+- I need to net one birdie only and i will stop feeling so `lonely`.
+- I am the great and powerful oz... that's `lonely` for you, i guess.
+- If you feel `lonely`, or need to talk, all you have to do is say so.
+- It isn't human not to feel `lonely` -- it isn't human not to afraid!
+- It seems that as long as i have those letters i'll never be `lonely`.
+- The monster's `lonely` and he wants a friend, a girlfriend, somebody.
+- ...and i don't think i'm some `lonely`, middle-aged woman cracking up.
+- Speaking of misery, miss `lonely` hearts drank herself to sleep again.
+- Guys away from home, `lonely`, good-hearted women try to cheer them up.
+- ♪ `lonely` world ♪ to know where the last of them... echo... is hiding.
+                 

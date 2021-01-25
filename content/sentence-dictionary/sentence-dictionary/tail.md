@@ -1,0 +1,61 @@
+---
+title: "tail in a sentence | tail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tail"
+---
+- My <u>`tail`</u> itches.
+- Smokey was on our `tail`.
+- `Tail` me from brentwood?
+- I'm working my `tail` off.
+- Somebody pulled my `tail`.
+- 24-hour `tail` on taransky?
+- Black `tail` district, x22.
+- Oh, that `tail` is so fake.
+- Wh get oack on their `tail`.
+- I hope your `tail` holds out.
+- We'll get a `tail` put on him.
+- His head--ma'll take the `tail`.
+- I'm going to lift the `tail` up.
+- Kind of, but there was no `tail`.
+- Oh, um, it's called a car `tail`.
+- Broomsticks instead of `tail` guns.
+- I can't compete with a wagging `tail`.
+- You must have been some `tail` gunner!
+- Sexy little split `tail`, like you say.
+- She'll come draggin' her `tail` back home.
+- Then bring us back its `tail` and whiskers.
+- With about twenty of his spies on my `tail`.
+- Whatta you say we wait and give him a `tail`?
+- Fell out of the `tail` rope and onto the deck.
+- Henry, i've been working my `tail` off on this.
+- At the end is the `tail` of what could be an 'r.
+- Call it in first so we can have a car on `tail`.
+- I just can't, son--not the head and `tail` both!
+- Go get a `tail` on eagle bear, and stay with her.
+- Wouldn't have been able to `tail` you if you did.
+- You got too much nose to `tail` -- i'm coming in.
+- My handle's smokey bear and i got you by the `tail`.
+- We could put a `tail` on them, see how it turns out.
+- Three-to-one should get you both ears and the `tail`.
+- You know, it's like a snake swallowing its own `tail`.
+- Yeah, mr. cobb said stick to your `tail` no matter what.
+- A second `tail` brain, loss of ears and increased libido.
+- I'm going to lift the `tail` up, to fly us over the edge.
+- I'll have you out of here in two shakes o'f a lamb's `tail`.
+- We get ourselves some `tail` and we're talking spring break!
+- We throw away the `tail`, the rest of the insides and the head.
+- From now on, you can put flutes on my `tail` and bells on my feet!
+- You can `tail` the victim and call it in at just the right moment.
+- We fell together as modest people will in the `tail` of the herd...
+- Nobody is going to be taken in if he has a long, red, pointy `tail`.
+- Half the german army's on our `tail` and you want me to go to berlin?
+- I'm gonna be flying by in about five minutes with smokey on my `tail`.
+- Now get your `tail` out of here and go wash those dishes, and stop crying!
+- When you fellas picked me up at baskul, they'd been on my `tail` for a year.
+- You may not realize it, but we're all just a mouse that a cat has by its `tail`.
+- Like in mythology...with the head of a lion, the body of a goat and the `tail` of...
+- I don't know about the captain - but the navigator is getting his `tail` out of here.
+- They assure me there's a fine `tail` wind which will sweep you back to moscow in no time.
+- We got the world by the `tail` with a downhill pull and all of a sudden you go glum on me.
+                 

@@ -1,0 +1,53 @@
+---
+title: "alien in a sentence | alien example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "alien"
+---
+- It was an `alien` ship.
+- Somebody said "`alien`."
+- What `alien` environment?
+- I think she's the `alien`.
+- But it's something `alien`.
+- Ian malcolm's `alien` autopsy.
+- It was an `alien` space craft.
+- It's not an `alien` spacecraft.
+- What's out there isn't `alien`.
+- One of those `alien` things, okay?
+- We're doing `alien` artifacts now.
+- Seeing an `alien` would be awesome.
+- Apparently, she saw an `alien` once.
+- So barren, so `alien`, hold on, please.
+- But what if we encounter an `alien` race?
+- If it is an `alien` spacecraft -- do you?
+- I liked your `alien` theory a lot better.
+- We need to talk to you about the `alien`.
+- An `alien` that shows emotional responses.
+- Is v'ger the captain of the `alien` vessel?
+- Your `alien` had a room in the holiday inn?
+- I received this information from an `alien`.
+- So beyond our capabilities means what, `alien`?
+- You don't suppose grandpa's an `alien`, do you?
+- I'm not the fucking `alien` that built the thing.
+- Caught in an `alien` whore house with my pants down.
+- That guy's band is playing tonight... `alien` autopsy.
+- She thought they said "illegal `alien`", and signed up.
+- This was a device we... discovered on an `alien` planet.
+- If it is `alien`, maybe we shouldn't try to open it at all.
+- The fabric of the clothes will prove it's `alien` composition.
+- What i've given you the `alien` colonists have no idea exists.
+- What do you... ... you want schumann saved by an illegal `alien`...?
+- I'm a giant semi-conductor, and there's `alien` creatures all around us.
+- "space `alien` revealed as head of time warner; reports stock increase."
+- The computer's translated the `alien` signal, and it's kind of alarming.
+- Somebody said `alien`...she thought they said illegal `alien` and signed up.
+- On the men, in the room, arguing about the illegal `alien`, schumann in the b.g.
+- Back on that planetoid is an `alien` ship and on that ship are thousands of eggs.
+- We monitor all-`alien` activity in and around earth and its enveloping atmosphere.
+- He allowed her to be taken to an `alien` hybrid program, so that she would survive.
+- Hey, you think this place called `alien` ed's ufo welcoming center is still around?
+- They're positioning their military to blow the `alien` vessel right out of the sky.
+- They are positioning their military to blow the `alien` vessel right out of the sky.
+- Looking for some foreign compound in the blood of that `alien` you dropped the other day.
+- Transmit image of the `alien` to starfleet; advise we are attempting further communication.
+                 

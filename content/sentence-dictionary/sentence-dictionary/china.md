@@ -1,0 +1,106 @@
+---
+title: "china in a sentence | china example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "china"
+---
+- Except at `china` bank.
+- `China` yeah about what?
+- Could we hear to `china`?
+- Go back to `china`, bitch!
+- The silver and the `china`.
+- Tony and `china`, together?
+- We were working on `china`.
+- A bargain buy, from `china`.
+- `China` is on the offensive.
+- Okay, this one's for `china`.
+- A trip to `china` sounds nice.
+- Chairman mao can keep `china`.
+- `China`'s coming to mansfield.
+- Well, i ain't goin' to `china`.
+- "a trip to `china` sounds nice."
+- A trip to `china` sounds nice...
+- Just give it a break `china` ok?
+- The `china` had never been used.
+- You should have gone to `china`.
+- He was a hero in the `china` sea.
+- Don't try to talk -- `china` town.
+- How has your time in `china` been?
+- Fenner's the best pilot in `china`.
+- Have the planes made it to `china`?
+- I hear the `china` club is a laugh.
+- Again with the fucking `china` club!
+- `China` and russia are off the grid.
+- I got a job in `china` - some place.
+- Maybe i should just move to `china`.
+- `China` lawyer, doctor, i don't care.
+- Maybe you wanna try the `china` club.
+- `China` is close, america is far away.
+- Russia and sudan are following `china`.
+- Tony and `china`, they're just friends.
+- It's just like my grandmother's `china`.
+- Part of the most deadly gang in `china`.
+- You're a fucking bull in a `china` shop.
+- Oh fuck, toby's that little `china` girl.
+- No, it is `china`, my country, my history.
+- Then it will be your turn to help `china`.
+- There's a sat-line, here dialling `china`.
+- Are thought to be following `china`'s lead.
+- Like you were the hero in the `china` seas.
+- But the emperor of `china` had 1000 of them!
+- It's a wall you bought in `china`, mr. kane.
+- You're the analyst for east `china`, o'neil.
+- Long ago, you even conquered part of `china`.
+- I have the number one tech company in `china`.
+- `China` just threatened to destroy their shell.
+- `China` just threatened to destroy their shell.
+- `China` will think it happened before midnight.
+- Do we have news from the delegation in `china`?
+- I've been to `china` and seen them in the wild.
+- `China` has asked for immediate talks at the un.
+- I wouldn't miss this for all the tea in `china`.
+- Sir... there's a satelite here dialling `china`.
+- To unite with `china` and take a similar stance.
+- But by that time she's liable to be in `china`...
+- So, we must face `china` and all her might alone.
+- Two years ago i got a notion and went to `china`.
+- In `china`, i am michael jackson, and you are toto.
+- Take a boat to `china`, take an airplane to brazil?
+- Then we can go for the big play -- `china`, russia.
+- You gotta be hungry, you just flew in from `china`.
+- A trip to `china` sounds nice if you tread lightly."
+- Indo-`china` -- jeff predicted it would go sky-high.
+- At the handover of hong kong--from britain to `china`.
+- Billion people in `china`, and everyone uses my phone.
+- `China` well, it all started when a friend and i well.
+- I saw the greatest movie with mark last night `china`.
+- Would i like to get her on a slow elevator to `china`.
+- Your buddy, mr. lee, is on his way back to `china`.
+- So ... how's the food over there in `china`, mr. nixon?
+- The man got silver, `china`, rugs -- so what about him?
+- Yes -- it will... now: why is the president in `china`?
+- Come on, the copy they were filing from `china` was great.
+- So how do you get from the bronx to the south `china` sea?
+- The most important piece of chinese art outside of `china`.
+- What does that have to do with the price of tea in `china`?
+- I've got to play the hawk in vietnam and the dove in `china`.
+- During the day you can chew the band with `china` if you want.
+- Just to dry out the components "a trip to `china` sounds nice.
+- Chairman mao wants you to feel that `china` belongs to you now.
+- After countless people die, `china` would still, always, be close.
+- I ended the war, i got salt i with the russians, i opened `china`!
+- If we agree that we are part of `china`, nothing else will matter.
+- Who left us in mount weather to die a trip to `china` sounds nice.
+- Alright, now, here: he stays on the ground in `china` til tomorrow.
+- The voice you're about to hear belongs to `china`'s military chief.
+- Excuse me ... are you talking about recognizing `china`, mr. president?
+- Before i kick your ass all the way to `china` and back, let's make a deal.
+- `China` i need a taking care of, not `hey how bout a pizza after class babe'.
+- Has announced in an emergency press conference that `china` is standing down.
+- He can crawl on his hands and knees to `china` if that's what he wants to do.
+- [in english] honey, opening plants outside of `china` may not play so well here.
+- According to marco polo, the kingdom of `china` is one of the richest of the world.
+- I don't care what kind of cop you are in `china`, you have no jurisdiction in america.
+- They were hospitalized for almost a week in `china` before they were flown back to india.
+- We'll get separated over the target, but you and i will rendezvous for the run to `china`.
+                 

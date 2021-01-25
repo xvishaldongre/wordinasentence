@@ -1,0 +1,57 @@
+---
+title: "Catherine in a sentence | Catherine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Catherine"
+---
+- `Catherine` is waiting.
+- Oh, `catherine`, please!
+- You know, `catherine`...
+- `Catherine`, my sister...
+- Tell me about `catherine`.
+- I'll get her... `catherine`!
+- `Catherine`, you are no fool.
+- Fbi, `catherine`, you're safe.
+- `Catherine`... at being a fake.
+- `Catherine` -- she's a pianist.
+- My friends call me `catherine`.
+- `Catherine`, your son is married.
+- `Catherine` told me what happened.
+- `Catherine` told me what was in it.
+- Just keep your eyes on `catherine`.
+- `Catherine` says you don't like her.
+- `Catherine`, you are very dear to me.
+- I'm not 'going out' with `catherine`.
+- Aren't you going out with `catherine`?
+- What do you want from me, `catherine`?
+- You're looking for `catherine`, not me.
+- `Catherine`, you are a blanket of gloom.
+- `Catherine`, don't make an opera outta this.
+- Say -- "what do you want from me, `catherine`?"
+- `Catherine` has a tremendous capacity for empathy.
+- They had another fight with your aunt `catherine`.
+- How do you know `catherine` tramell saw my reports?
+- Meantime, try to get a feel for `catherine` martin.
+- He says okay, it's all right `catherine` comes here.
+- They had another fight with your aunt `catherine`...
+- St. `catherine`'s a very well thought of institution.
+- Czar peter gave it to his wife, `catherine` the great.
+- Just because i wasn't sucking up like that bitch `catherine`.
+- Your sister... `catherine` -- she's still your best friend?
+- But `catherine`, she had the ability to feel what was happening.
+- But for `catherine` martin, it all comes down to you and lecter.
+- `Catherine`, i want you come live in my house with marty and me.
+- So `catherine` seems like she might become a really good writer.
+- Do you think if you saved `catherine`, you could make them stop...?
+- Let me tell you something, doctor, those men at `catherine` laboure.
+- So they ask me, would it be all right if `catherine` come to live with us.
+- They're trying to make him see `catherine` as a person - not just an object.
+- You fucking bitch don't you leave me down here, don't you - you `catherine`.
+- I won't waste your time and `catherine`'s time bargaining for petty privileges.
+- My sister `catherine`, she's my sister, but i gotta admit, she's an old goat.
+- You don't think my sister `catherine` should live in her daughter-in-law's house?
+- Heathcliff, jackie gleason, and in the role of `catherine` earnshaw, lucille ball.
+- He'll let the senator keep hoping, day after day, until `catherine` finally washes up.
+- I'm joe galvin, i'm representing deborah ann kaye, case against st. `catherine` laboure.
+- Well, i always like to visit you, `catherine`, because you always got such cheerful news.
+                 

@@ -1,0 +1,87 @@
+---
+title: "counting in a sentence | counting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "counting"
+---
+- I'm `counting` on you.
+- I'm `counting` on that.
+- Keep `counting` claire.
+- Now, i'm `counting` it.
+- She's `counting` on it.
+- I'm `counting` the days.
+- We're `counting` on you.
+- Not `counting` this week.
+- We're `counting` on that.
+- But i'm not `counting` it.
+- I'm also `counting` on it.
+- I was `counting` on hours.
+- So let's start `counting`.
+- You been `counting` money.
+- One oh four and `counting`.
+- Six weeks, `counting` post.
+- I'm not `counting` it again.
+- Murphy: 24 and `counting`.
+- We were `counting` on ...
+- I'm `counting` on you, bruce.
+- That's what i'm `counting` on.
+- We're t-minus 5 and `counting`.
+- I'm `counting` on you, reverend.
+- Hands on switches and `counting`.
+- T minus 5 minutes and `counting`.
+- The shepherd is `counting` on you.
+- T-minus 90 seconds and `counting`.
+- One minute eighteen and `counting`.
+- We're already `counting` backwards.
+- Why don't you try `counting` sheep?
+- Listen, kelly, i'm `counting` on you.
+- Your government is `counting` on you.
+- `Counting` the gray hairs in your head.
+- Four, `counting` the one in the chamber.
+- I'm `counting` the steps to the entrance.
+- Seventeen times - not `counting` maiming.
+- Tell him everything it's `counting` down.
+- But everyone is `counting` on me, fabergé.
+- The numbers on his arm were `counting` down.
+- There's a lot of brothers `counting` on you.
+- And, clarke, t minus 5 minutes and `counting`.
+- I'm `counting` on you to get them out of there.
+- Can't you see that's what they're `counting` on?
+- Nineteen and a half pounds, not `counting` ammo.
+- Cuthbert's `counting` on the exhibition's success.
+- No more `counting` the big money for someone else.
+- ...well, you know, not `counting` the first table.
+- I'm `counting` this all out and deducting my share.
+- North of here, everyone's always `counting` on you.
+- One, two, three -- you do all the `counting`, okay?
+- But the remake... that's what we were `counting` on.
+- In case you were `counting` on his sudden appearance.
+- That's a lot of money to be `counting` out in public.
+- Hard seal lockdown in t-minus 30 minutes and `counting`.
+- I guess we're not `counting` lying, stealing and murder.
+- It's hard, but those little buggers are `counting` on you.
+- I'll just say i'm `counting` dirty words for sunday school.
+- Sometimes `counting` on someone else is the only way to win.
+- Computer: missile launch in t-minus 4 minutes and `counting`.
+- Computer: missile launch in t-minus 7 minutes and `counting`.
+- You're `counting` a little too much on my being absent-minded.
+- Computer: missile launch in t-minus two minutes and `counting`.
+- Maybe that's what you're `counting` on to get you off the hook.
+- [italian- american slang for 'i'm `counting` on you'] all right.
+- Must have been 15 or twenty -- not `counting` women and children.
+- That sometimes `counting` on someone else is the only way to win.
+- I'm `counting` on it... we've been ordered to head to sector 3274.
+- Don't look at your feet, and i don't want to see anybody `counting`.
+- Speculative theories with untested technologies i'm `counting` on it.
+- ♪ start `counting` backwards from ten to one ♪ - yeah, see you later.
+- I know your mom is `counting` the minutes until she can see you again.
+- I'm `counting` on you to link him to the bimmel girl, before he's indicted.
+- Numbers... you can spend your whole life `counting` and never reach the end.
+- But i think it's fairly close to the vault room, bellamy's `counting` on you.
+- It's am easy catch, you let - - go - - you do the `counting`, you count it, tim.
+- Well, let's see now - not `counting` tonight ... must be about twenty-eight times.
+- We have to get the money out by thursday and i'll be buggered if i am `counting` it .
+- I spend my life `counting` other people's money -- people i'm smarter than, better than.
+- He'll tell me how they're `counting` on me and to put it out of my mind "for my own good."
+- Well, thirty-three, but i'm not `counting` del, on account of you... so, what do you think?
+                 

@@ -1,0 +1,107 @@
+---
+title: "lab in a sentence | lab example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lab"
+---
+- Get them in the `lab`!
+- He runs hawkins `lab`.
+- _ biocontainment `lab`?
+- It has to be the `lab`.
+- It's the fucking `lab`!
+- Like `lab` rats to die.
+- Where's the `lab` coat?
+- Pym's `lab` is gone.
+- I want that `lab`, boys.
+- So come up to the `lab`.
+- We'll wait on the `lab`.
+- She's from hawkins `lab`.
+- I got a friend at a `lab`.
+- The `lab` emits radiation.
+- She's waiting in the `lab`.
+- `Lab` coordinates not found.
+- Long enough to get my `lab`?
+- This has gotta be the `lab`.
+- Time to get that `lab` back.
+- We gotta go find that `lab`.
+- Wow, this `lab` looks great.
+- But they never found a `lab`.
+- How many people at the `lab`?
+- I'll be in the physics `lab`.
+- Mount weather, becca's `lab`.
+- Only you and the photo `lab`.
+- Quick, everyone to the `lab`.
+- The `lab` should be up ahead.
+- Then grendel hit space `lab`.
+- This has got to be the `lab`.
+- Yeah, be a fuckin' `lab` rat.
+- We captured the `lab` complex.
+- The basic `lab` stuff is on it.
+- You wanna go back in the `lab`?
+- Get it, get, get, get the `lab`!
+- Move the child host to my `lab`.
+- This is the `lab` right here.
+- Eighteen months in a gamma `lab`.
+- So, uh, how do we find the `lab`?
+- That we tracked to hawkins `lab`.
+- We gotta find that `lab` already.
+- We've got to get that `lab` back.
+- You get the `lab` somewhere safe.
+- And figure out where the `lab` is.
+- Doctor, we need to find our `lab`.
+- Get these people out of the `lab`.
+- `Lab` is showing traces of toxins.
+- Eighteen months in the gamma `lab`.
+- How well do you remember the `lab`?
+- Or do i have to wait for the `lab`?
+- There it is right there, the `lab`.
+- We can't grow the `lab` without it.
+- You smoke like a fucking `lab` dog.
+- I can take you to the `lab` where...
+- Let's burn that `lab` to the ground.
+- So, uhh... how do we find the `lab`?
+- How much `lab` training have you had?
+- There's a first aid kit in the `lab`.
+- Didn't you take it to the crime `lab`?
+- Maybe the `lab` can pick something up.
+- One, we have to break into that `lab`.
+- The bureau already has the best `lab`.
+- Don't you need the remote to the `lab`?
+- Escort russell prime back to the `lab`.
+- We need to find out who took the `lab`.
+- But all of my equipment is in the `lab`.
+- Of arranging some buyers for your `lab`.
+- Then have the `lab` check raspail's head.
+- We can get out through the `lab` section.
+- We might be able to track down the `lab`?
+- When he first came in to the sleep `lab`?
+- Yllo go to `lab` two and cover out backs.
+- I'm kind of a deadbeat `lab` partner, huh?
+- That `lab` was consumed by fire last week.
+- I want that `lab`, boys, whatever it takes.
+- Approaching regula and space `lab` regula i.
+- It's a bunch of businessmen touring a `lab`.
+- Like `lab` rats to die, - that's the beacon.
+- We have a man down, and pym's `lab` is gone.
+- When you do, you gonna get me that `lab`.
+- Bring the drive to the `lab` when you get it.
+- Jason: so, his evil `lab` has a waiting room?
+- Did you put some kind of lojack on your `lab`?
+- `Lab`'s backed up, we're still waiting for it.
+- Treated like some kind of `lab` rat, you know?
+- When you do, you're gonna get me that `lab`.
+- Then you found the book, remember in your `lab`.
+- Well then, we'll make them bring the `lab` back.
+- Well, then we'll make them bring the `lab` back.
+- Didn't you put some kind of lojack on your `lab`?
+- As soon as we're in the `lab`, how is the patient?
+- My first organic-polymerization was a `lab` mouse.
+- The big bad government baddies from hawkins `lab`?
+- Do you have the -- we should get back to the `lab`.
+- I did the prep questions for this `lab` last night.
+- I wish i was never artificially created in a `lab`.
+- That `lab` is swarming with hundreds of those dogs.
+- Face it �� i'm nothing more than a `lab` rat to you.
+- Move the prisoners from the `lab` to the great hall.
+- We know it's already killed everybody in that `lab`.
+                 

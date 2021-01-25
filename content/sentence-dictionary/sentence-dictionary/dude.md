@@ -1,0 +1,107 @@
+---
+title: "dude in a sentence | dude example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dude"
+---
+- `Dude`, get back here!
+- `Dude`, i can't do it!
+- `Dude`, i was drugged.
+- `Dude`, she kissed me.
+- `Dude`, that was lame.
+- `Dude`, watch me work.
+- Sell yourself, `dude`.
+- We missed you, `dude`.
+- `Dude` `dude` the bagman.
+- `Dude`'s a half--squid.
+- `Dude`, this is smokey.
+- I know, i know, `dude`.
+- Is it sleeping, `dude`?
+- Just one thing, `dude`.
+- Thaaat's right, `dude`.
+- There are ways, `dude`.
+- Whattaya think, `dude`?
+- I wouldn't know, `dude`.
+- Once, in church, `dude`.
+- She's a mermaid, `dude`.
+- Thaaaat's right, `dude`.
+- They were nazis, `dude`?
+- Well `dude`, here it is.
+- Where you going, `dude`?
+- `Dude`, these seats blow.
+- `Dude`, we need you, man.
+- Gimme the ringer, `dude`!
+- That's your name, `dude`!
+- We can't do that, `dude`.
+- Where's your car, `dude`?
+- Come on, let's go, `dude`.
+- Did you say `dude` finlay?
+- `Dude` is a big-time cook.
+- `Dude`, that was so crazy.
+- `Dude`, this is all i got.
+- `Dude`, troy peed himself.
+- Hey, the `dude`'s holdin'.
+- I like your style, `dude`.
+- I'm gonna get buff `dude`.
+- What's your drink, `dude`?
+- What's your point, `dude`?
+- Are you kidding me, `dude`?
+- `Dude`, get back out there.
+- `Dude`, know your art form.
+- `Dude`, that's truth serum!
+- I'm in high school, `dude`.
+- I'm perfectly calm, `dude`.
+- Now that's one ugly `dude`.
+- Oh shit `dude`, the l-word!
+- Wave of the future, `dude`.
+- What a gnarly wave, `dude`.
+- You're just golden, `dude`.
+- `Dude`, i think that was it.
+- Hardly `dude`, a new 'vette?
+- I'm totally freakin' `dude`.
+- Shit, `dude`, i didn't know.
+- So don't feel so bad `dude`.
+- What do they got, `dude`?
+- `Dude`, don't call us plucky.
+- `Dude`, i found the clitoris!
+- `Dude`-- yeah, thanks walter.
+- `Dude`, you crack me up, man.
+- `Dude`, you puked for 3 days.
+- That was pretty cold, `dude`.
+- Uh, huh huh, this fat `dude`.
+- Whoa, this `dude`'s el barto.
+- Yeah, i can see that, `dude`.
+- Your phone's ringing, `dude`.
+- `Dude`, somebody's on the rag.
+- `Dude`, we don't have watches.
+- Hey, `dude`, you got a tattoo.
+- It's the same concept, `dude`.
+- Sorry, concert's over, `dude`.
+- Stop being chivalrous, `dude`.
+- You know what he mean, `dude`.
+- `Dude`... that guy's a lunatic.
+- `Dude`, this is seriously lame.
+- I got eighteen dollars, `dude`.
+- Now that is ridiculous, `dude`.
+- She's a <u>cartoon</u>, `dude`.
+- That's the simple part, `dude`.
+- Chick drummer and freaky `dude`.
+- Donny-- call the medics, `dude`.
+- `Dude`, i'm--it was an accident!
+- `Dude`, they cut out 92 minutes!
+- `Dude`, what are you doing here?
+- Fuck that redneck noise, `dude`.
+- I got there from "coin," `dude`.
+- Really, `dude`, you surprise me.
+- She's not my girlfriend, `dude`!
+- Should we be doing this, `dude`?
+- Sure, i'll put him down, `dude`.
+- There's that weird `dude` again.
+- Well `dude`, we just don't know.
+- Yeah, i know what it is, `dude`.
+- Don't run away from this, `dude`!
+- Just please stop talking, `dude`.
+- Or rabbi mankiewicz will, `dude`.
+- That `dude` is surprisingly woke.
+- Truth is, i never met the `dude`.
+                 

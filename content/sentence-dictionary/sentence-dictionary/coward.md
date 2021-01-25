@@ -1,0 +1,54 @@
+---
+title: "coward in a sentence | coward example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "coward"
+---
+- But you're a `coward`.
+- _ echo was a `coward`.
+- I know you're a `coward`.
+- That you were a `coward`.
+- Your husband is a `coward`.
+- Don't be a `coward`, miller.
+- Does that make me a `coward`?
+- A `coward`, a waste of breath.
+- You're really just a `coward`.
+- So would i. i'm no `coward`!
+- You're right -- i am a `coward`.
+- Your father was a `coward`, too.
+- Do you like being called a `coward`?
+- You think i'm a `coward`, don't you?
+- Abandoning all of us like a `coward`.
+- A `coward` and a traitor to the blood.
+- ...if i wasn't such a fucking `coward`.
+- Makes you a `coward` where i come from.
+- He's probably running away -- the `coward`.
+- He ran as a `coward`, unfettered by my fate.
+- Your friend may be smart, but she's a `coward`.
+- Or you crawl away and die alone like a `coward`.
+- I didn't want to slink away like some `coward`...
+- I thought you said there were you’re a `coward`.
+- Or we body-snatch more of them you die a `coward`!
+- I sent for him -- and the little `coward` send you?!
+- Yes, so which one of us does that make the `coward`?
+- I can love a `coward`, i can't love another dead man.
+- You know, i'm starting to miss being a live `coward`.
+- Because i was afraid he was as much of a `coward` as i am.
+- If i don't come back the people will think i'm a `coward`.
+- I have to be a little drunk for that because i'm a `coward`.
+- You don't want the truth, * the truth is a fucking `coward`.
+- The way i acted, in the snow...you must think i�m a `coward`.
+- If i'm going to die, i'd rather go out a hero than a `coward`.
+- If you help me, i swear an oath you're really just a `coward`.
+- Is it, am i a terrible `coward` to ask how much water we have?
+- Man, if you weren't such a fucking `coward`... leave me alone.
+- He's just the sort of `coward` who would shoot an unarmed giant.
+- That `coward` of a fellow has been making of your uncle's family.
+- His testimony...that `coward` wanted them to think you were crazy.
+- That you're a `coward` and a liar, putting your life above theirs.
+- And murdered everyone inside, i know you took the `coward`'s way out.
+- A `coward`... without the moral courage to stop an unspeakable atrocity.
+- However our ideas disagree, as i've said before, i'm <u>not</u> a `coward`!
+- What's the matter -- gonna let a little old pig make a `coward` out of you?
+- I'm a `coward` -- the doctors said to do everything the same as long as possible.
+                 

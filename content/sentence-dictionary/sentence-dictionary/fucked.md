@@ -1,0 +1,107 @@
+---
+title: "fucked in a sentence | fucked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fucked"
+---
+- I think it's `fucked`.
+- This ship is `fucked`.
+- You `fucked` up, glen.
+- You're `fucked`, sami.
+- I `fucked` up, frankie.
+- I-i know i `fucked` up.
+- I knew you `fucked` it!
+- Man we `fucked` him up.
+- My credit was `fucked`!
+- This is so `fucked` up.
+- Two guys get `fucked`."
+- Well he's `fucked` you!
+- We're `fucked`, walter!
+- You `fucked` me, diego.
+- You `fucked` us so bad.
+- You `fucked`' it up.
+- `Fucked` if i care, man.
+- I `fucked` that song up.
+- I `fucked` your brother.
+- The agency `fucked` him.
+- Yeah, but i `fucked` up.
+- Government's `fucked` up.
+- I heard he's `fucked` up.
+- I've `fucked` detectives.
+- I've `fucked` up bigtime.
+- Maybe i `fucked` that up.
+- My life is `fucked`, liz!
+- You guys are `fucked` up!
+- You're `fucked` now, pal!
+- You're `fucked` up, lila.
+- Youse so `fucked` up man.
+- You've `fucked` yourself.
+- `Fucked`-up fucking weird.
+- Well, they `fucked` it up.
+- You `fucked` a prostitute?
+- You `fucked` up real good.
+- Then diego `fucked` me.
+- You're all `fucked` up.
+- I'm completely `fucked` up.
+- This family is so `fucked`!
+- We are so totally `fucked`!
+- We `fucked` up his pay-off.
+- Because hardin `fucked` you.
+- I `fucked` her too, i think.
+- I thought i was `fucked` up.
+- Whole country's `fucked` up.
+- You're `fucked` in the head.
+- Ahhh... it's all `fucked` up.
+- Brimmer you're `fucked` up...
+- `Fucked` up chromosomes, man.
+- Hey, we `fucked` once, honey.
+- I `fucked` up good this time.
+- "i'm completely `fucked` up."
+- In other words, i'm `fucked`.
+- It certainly `fucked` you up.
+- Then i'll ask if we `fucked`.
+- This is so `fucked`, solomon.
+- Yeah, but then i `fucked` up.
+- You `fucked` up little prick!
+- You look sort of `fucked` up.
+- Are you `fucked` up right now?
+- Being `fucked` up by some guy.
+- I'm just a little `fucked` up.
+- Somebody `fucked` us big time.
+- Then i `fucked` your daughter.
+- They've `fucked` with my head.
+- Ah, shit, sid, i'm `fucked` up.
+- It `fucked` her up royally.
+- Because i was `fucked` up, man.
+- I `fucked` her countless times!
+- So i guess we're just `fucked`.
+- You really need to be `fucked`.
+- Had one, now i'm `fucked` again.
+- I know that you `fucked` cecile.
+- I think i've really `fucked` up.
+- Or just the way he `fucked` you?
+- You're saying that i'm `fucked`.
+- I never `fucked` up before, bobo.
+- You got good all `fucked` around.
+- `Fucked`-up bowman's turning blue.
+- He's got some `fucked` up friends.
+- I think you `fucked` up my office.
+- Nothing is `fucked` up here, dude.
+- Sorry, i'm completely `fucked` up.
+- What if we just `fucked` with 'em?
+- Your head's been so `fucked` with.
+- You seem pretty `fucked` up to me.
+- I'm better... no, you `fucked` you!
+- I picked him up and i `fucked` him.
+- You and your pals, you're `fucked`.
+- You just `fucked` a total stranger?
+- You totally `fucked` with his head.
+- I had a partner and she `fucked` me.
+- I'm the one `fucked` it up... nikko?
+- So i guess we're both `fucked`, huh?
+- That money's `fucked` up your brain.
+- We're gonna get `fucked` up tonight!
+- Who the fuck, `fucked` this fuckin'?
+- I am so `fucked` here if you do this.
+- But my sleeping is really `fucked` up.
+                 

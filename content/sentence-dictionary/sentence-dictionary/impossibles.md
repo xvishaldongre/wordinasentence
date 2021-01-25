@@ -1,0 +1,7 @@
+---
+title: "impossibles in a sentence | impossibles example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "impossibles"
+---
+## Unfortunately, we have no example sentences for impossibles                 

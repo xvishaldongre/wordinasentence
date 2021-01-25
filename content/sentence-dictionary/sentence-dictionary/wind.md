@@ -1,0 +1,107 @@
+---
+title: "wind in a sentence | wind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wind"
+---
+- We can measure `wind`.
+- More, with this `wind`.
+- Not a breath of `wind`.
+- The `wind`'s northwest.
+- What's the `wind` like?
+- He's into his `wind`-up.
+- I'm gone with the `wind`.
+- The `wind` isn't blowing.
+- It's a `wind`-up... thing.
+- What do i `wind` up being?
+- `Wind` section since 1936.
+- It was probably the `wind`.
+- The `wind` will be with us!
+- A gust of `wind` killed him.
+- So i can `wind` up like you?
+- The `wind` drift is lateral.
+- I don't even hear the `wind`.
+- Searching for a `wind` break.
+- You `wind` up looking like...
+- How did i `wind` up in church?
+- How in hell does it `wind` up?
+- Is the `wind` tired out there?
+- A little bit of `wind` up high.
+- You take account of the `wind`?
+- Hold her steady into the `wind`.
+- Little bit of `wind`, up higher.
+- There's the `wind` and the snow.
+- The `wind` will be against us...
+- [`wind` blowing] absolutely not.
+- I think it started in the `wind`.
+- They're headed for a `wind` farm!
+- We're going to `wind` up like us.
+- I sold all the `wind` instruments.
+- I was trying to get her up `wind`!
+- Last line of gone with the `wind`?
+- We're fighting `wind` and current.
+- You can't run from the `wind` son.
+- Instead `wind` up with nothing.
+- With the right `wind`, 15-20 knots.
+- Gone like the `wind` in deer meadow.
+- I don't want to `wind` up like that.
+- The boys hit a bit of a high `wind`.
+- [`wind` whistling] breast or bottle?
+- All anyone talks about is the `wind`.
+- Like the `wind` but i'm not doing it.
+- There is the harmattan, a red `wind`.
+- We'll see which way the `wind` blows.
+- `Wind` up someone's luggage that way.
+- Come rain, `wind`, snow, never budged!
+- I'd love to see her `wind` up settled.
+- I'm three sheets to the `wind`, ma'am!
+- And her `wind` chime store burned down.
+- Born free, as free as the `wind` blows.
+- Gotta `wind` up with athlete's stomach.
+- Man vanished like a fart in the `wind`.
+- The boys have hit a bit of high `wind`.
+- The `wind` moves in a predictable path.
+- This `wind`'s fixin't to *do* somepin'!
+- Gets the `wind` every time it opens.
+- Do you not hear the `wind` in the trees?
+- Let the blow drive the boat down `wind`.
+- Or maybe the `wind` blew something over.
+- All you need is the `wind` and the waves.
+- Aye, sir, she's got her second `wind` now.
+- But if the `wind` shifts... and then what?
+- Does she `wind` up with ian or windthorne?
+- I didn't want to `wind` up abusing anyone.
+- The media has caught `wind` of his pardon.
+- They turned it into a fucking `wind` farm!
+- What i thought i'd `wind` up doing, maybe.
+- I'm afraid he's going to `wind` up in jail.
+- Somebody got `wind` of it, killed them all.
+- Sweeter than bee pollen on a summer `wind`.
+- The `wind` gets in that blasted pipe organ.
+- They `wind` comes howling in from the lake.
+- We'll bear off to port and run down `wind`.
+- Besides, the `wind`'s turning with the tide.
+- Gentlemen... may the `wind` be at our backs.
+- You'd have turned down gone with the `wind`.
+- Best case, i `wind` up back in that facility.
+- I never had the lungs for `wind` instruments.
+- Sooner or later, we `wind` up here, don't we?
+- The `wind` blows... the fire burns... leeloo?
+- They got `wind` of something they don't like!
+- We might as well be shouting into the `wind`.
+- We were pissin' in the `wind` the whole time.
+- You could `wind` up with a harassment charge.
+- I turn, i feel the `wind`, i turn very strong.
+- You couldn't find your dick in a `wind` storm!
+- Eat something before the `wind` blows you away.
+- I mean how does anyone ... `wind` up like this?
+- It's the longest, and directly into the `wind`.
+- Look, i'm not gonna `wind` up paying his debts.
+- That's a real good reason to `wind` up in 'nam.
+- How the hell did you `wind` up in corto maltese?
+- Can't hear anything through that `wind` and rain.
+- If the house caught fire, he'd pray for a `wind`.
+- You ride out as fast as the `wind` can carry you.
+- ...feel the `wind` push you back and it's gonna...
+- You're going to get the `wind` knocked out of you.
+                 

@@ -1,0 +1,107 @@
+---
+title: "wall in a sentence | wall example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wall"
+---
+- Going over the `wall`.
+- The one on the `wall`.
+- The `wall` just moved.
+- The `wall` street guy?
+- To shrink that `wall`.
+- Up against the `wall`!
+- What about the `wall`?
+- Against the `wall` now.
+- Get against the `wall`!
+- It's by the far `wall`.
+- Up against that `wall`.
+- The `wall`, the patrols.
+- Why am i on this `wall`?
+- We go through the `wall`.
+- Blake, against the `wall`.
+- Gonna knock down a `wall`?
+- Maybe he's in this `wall`.
+- Then the `wall` goes down.
+- Tucked against the `wall`.
+- Going to `wall` street.
+- I need the main wet-`wall`.
+- Jesus, look at that `wall`.
+- An emotional `wall`, i know.
+- I said, hands on the `wall`.
+- Some plaque on the `wall`...
+- Catch you back at the `wall`.
+- How did the `wall` get there?
+- I'm about to blow the `wall`.
+- Lasers, spikes in the `wall`?
+- What's with the brick `wall`?
+- All guards to the `wall`, now!
+- But why draw it on the `wall`?
+- Prisoner 319, face the `wall`.
+- They crashed it into a `wall`.
+- That cupcake on the `wall`.
+- I can't get back to the `wall`!
+- Ridin' the `wall` just perfect.
+- The goddamn sign on the `wall`.
+- Tunnel under the `wall`, maybe.
+- We're going outside the `wall`.
+- Yesterday, the `wall`-- - what?
+- You mean the `wall` street guy?
+- But how did the `wall` get here?
+- I can see him through the `wall`.
+- Then get your men off the `wall`!
+- The `wall` of unanswered prayers.
+- Will and the thing in the `wall`?
+- Asina... we go through the `wall`?
+- Drops you outside the camp `wall`.
+- I was gonna pin it to your `wall`.
+- What was i, talking to the `wall`?
+- It was nailed to the cellar `wall`.
+- Miller, put him against the `wall`.
+- They're gonna blow out that `wall`.
+- This is single-`wall` construction!
+- Would still be building the `wall`.
+- You could just fly over the `wall`.
+- It was on the `wall` near the stone.
+- Let me get you behind that `wall`.
+- There's a `wall`, like a glass `wall`.
+- And wait for us to finish the `wall`?
+- I'm in the picture on wendy's `wall`.
+- Marshall said nail him to the `wall`.
+- She took down that `wall` with an ax.
+- Shut your ass up and grab the `wall`!
+- We could've shot you from the `wall`.
+- You see what's hanging on the `wall`?
+- Go relieve monroe on the south `wall`.
+- Terry's name should be on this `wall`.
+- There's something through that `wall`!
+- The thing that came out of the `wall`?
+- Why is kane so far outside the `wall`?
+- Why is kane so far outside the `wall`?
+- Bunch of pipes running into the `wall`.
+- He likes it and hangs it on the `wall`.
+- I got the bat at home... on the `wall`.
+- Mom, first the lights, then the `wall`?
+- She's on the other side of this `wall`.
+- That `wall` is going to need something.
+- They got wells just outside the `wall`.
+- Just tell me who's closer to the `wall`?
+- No, just that it came out of the `wall`.
+- Perhaps a stripe across the back `wall`.
+- We need to get these guns on the `wall`.
+- Who is closer to the `wall`, joey or me?
+- You're driving me up the `wall`, lester.
+- You're `wall` to `wall` and tree top tall.
+- 'cause i got a lot of `wall` space there.
+- Jesus, they were `wall`-to-`wall` in there.
+- Must feel better this side of the `wall`.
+- That's one of her pictures on the `wall`.
+- We got movement outside the south `wall`!
+- Why did you write remember on the `wall`?
+- I said it had poppies on the `wall` paper!
+- Now i've always hit a `wall` at 18 months.
+- Like when you play tennis against a `wall`.
+- One `wall` of his room is a double barrier.
+- Probably come through the `wall` i suppose.
+- We've come all this way for a rock `wall`?!
+- You're outside of the `wall` without a gun.
+                 

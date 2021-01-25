@@ -1,0 +1,107 @@
+---
+title: "big in a sentence | big example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "big"
+---
+- `Big` corporation `big`.
+- `Big` family... small?
+- `Big` mess every time.
+- `Big` night coming up?
+- `Big` piece or little?
+- `Big` sympathy factor.
+- `Big` tough character.
+- `Big`, twitchy fucker.
+- Bloody `big` if it is.
+- But i have `big` news.
+- Come on, `big` fellow!
+- Don't use `big` bills!
+- Gimme the `big` knife!
+- Give me the `big`'uns.
+- He looks plenty `big`.
+- He's a `big` flounder.
+- How about a `big` mac?
+- How `big` did he sign?
+- How `big` did you get?
+- I did it pretty `big`.
+- I got a `big` problem.
+- It'll be a `big` help.
+- It's a `big` decision.
+- It's a very `big` one.
+- It's not a `big` deal.
+- It's not a `big` plot.
+- It's the `big` potato.
+- Me and my `big` mouth.
+- Something maybe `big`.
+- That was `big` of him.
+- There is no `big` job.
+- They're all too `big`.
+- We get a `big` pi�ata.
+- What's the `big` deal?
+- What's the `big` idea?
+- What's the `big` rush?
+- You're not that `big`.
+- Your friend, `big` al?
+- You've got `big` feet.
+- You were a `big` help.
+- I want a `big` gun.
+- `Big` chief very sorry.
+- `Big` hospital in ussr.
+- `Big` mistake, i think.
+- `Big` ones, small ones.
+- `Big` through the hips.
+- `Big` v jack vincennes!
+- Come on, `big` brother.
+- Comes in a `big`...pot.
+- Don't worry, `big` guy.
+- Dropped two `big` ones.
+- Heading to "`big` top."
+- He became a `big` hero.
+- His is the `big` scene.
+- I needed a `big` buyer.
+- It's `big`, right jahn?
+- It was a `big` nothing!
+- I've got a `big` mouth.
+- Look at that `big` ass.
+- My boobs are too `big`?
+- One `big` happy family.
+- One great `big` coffin.
+- Texas is a `big` state.
+- That's the "`big` guy".
+- The `big` guy likes it.
+- Their ship is so `big`.
+- This guy is `big` time.
+- This is the `big` show.
+- This one is `big` time.
+- This place is so `big`.
+- We got a `big` problem.
+- Well, it's a `big` day.
+- Who's the `big` winner?
+- You have a `big` mouth.
+- Your nose is too `big`?
+- A `big` fiery explosion.
+- A `big` pat on the back?
+- It's a `big` reward.
+- Miss the `big` game?
+- What about `big` al?
+- You're a `big` liar!
+- Are we in a `big` hurry?
+- `Big` deal paper hanger!
+- `Big` fan like yourself.
+- `Big` hotel billionaire.
+- `Big`, weird...you know.
+- But you're a `big` star!
+- Easy there, `big` fella.
+- He is...really... `big`.
+- Here you are, `big` guy.
+- His arms indicate `big`.
+- How `big` is this horse?
+- How `big` is this place?
+- How `big` is this thing?
+- I come from a `big` one.
+- It's never `big` enough.
+- It's too `big` to image.
+- Like `big` business `big`.
+- Like maybe a `big` part?
+- Our pleasure, `big` dan.
+                 

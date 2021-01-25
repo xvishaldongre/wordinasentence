@@ -1,0 +1,104 @@
+---
+title: "lies in a sentence | lies example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lies"
+---
+- But even a kid `lies`.
+- Stole and tole `lies`.
+- Heavy `lies` the crown.
+- Now he `lies` to me.
+- Because he tells `lies`.
+- Salvation `lies` within.
+- She `lies` all the time.
+- You tell amusing `lies`.
+- [people shouting] `lies`.
+- I got tired of the `lies`.
+- My burps taste like `lies`.
+- Big `lies` get punished.
+- We can see what `lies` ahead.
+- `Lies` in the hands of a child.
+- Not everybody `lies`, you know?
+- Why not face up to your `lies`?
+- No need to listen to her `lies`.
+- That's where your talent `lies`.
+- And all you gave them were `lies`!
+- I'm running out of `lies`, trevor.
+- One whose worth `lies` far within.
+- One who's worth `lies` far within.
+- Why do people have to tell `lies`?
+- You're reading the devil's `lies`.
+- Ah, but therein `lies` the paradox.
+- Any inaccuracies or blatant `lies`?
+- Sort of... "deception..." "`lies`."
+- Those `lies` she's been telling?
+- It's one of the great `lies`, right?
+- My fortune `lies` in my plantations.
+- _ and continue exposing their `lies`.
+- I know where your heart truly `lies`.
+- Oh, all hit movies are `lies`, marge.
+- What you seek `lies` in front of you.
+- The universe `lies` within your grasp.
+- Your future `lies` with us, skywalker.
+- She continues to believe in her `lies`.
+- But the city of `lies`, is dark and bleak.
+- We must be ready for whatever `lies` ahead.
+- Your `lies` are old, but you tell 'em well.
+- Our future `lies` in the stroke of your pen.
+- You believe his feeble, self-serving `lies`.
+- Ask me no questions, i'll tell you no `lies`.
+- Bill is filling that girl's head with `lies`.
+- I've had it with you and your goddamn `lies`.
+- Just `lies` to get laid, `lies` to get respect.
+- Even in your `lies`, some truth slips through!
+- `Lies` are like stars... they always come out.
+- Our only security `lies` in preemptive attack.
+- So don't talk to me about little white `lies`.
+- They're sitting home reading all these `lies`.
+- ♪ this'll be the day that i die ♪ more `lies`.
+- To see you through the night that `lies` ahead.
+- All that i once loved `lies` in a shallow grave.
+- He claims he is the victim of `lies` and deceit.
+- Point out all the `lies` and fucked-up thinking.
+- Not me... no one will believe your `lies`, whore.
+- While our kids grow up into a shithole of `lies`!
+- ...as the advertising says: tomorrow never `lies`.
+- The difference `lies` in the field of civic virtue.
+- Can we talk about the `lies` you've been spinning me?
+- Don't you see the opportunity that `lies` before you?
+- I told you, `lies` lead to punishment, but which one?
+- I spend most of my waking hours dwelling on my `lies`.
+- Now, making a woman cum... therein `lies` a challenge.
+- What a pack of `lies` you told us about those porters!
+- It's your `lies` you can't stand anymore... everything!
+- But he will also mix `lies` with the truth to attack us.
+- I don't even know how many `lies` you told about clarke.
+- All i wrote about him before was `lies` from will graham.
+- All spies really do is conceal the truth and tell `lies`.
+- We was crossin' the river-- don't tell me `lies`, enrique.
+- Get clean, get into dealing, that's where the future `lies`.
+- He `lies`, that's his... half the time he doesn't even realize.
+- It had to be you with all your `lies` and bullshit theories.
+- You can go tell the others i believed your `lies` where are they?
+- We're not help- ing her any, feeding her `lies` and more `lies`.
+- Besides, it'll give you all night to think up a new set of `lies`.
+- I came to make peace with you, even if you're the father of `lies`.
+- I'm not one of your 'little london girls' who falls for the `lies`.
+- All right, you want to talk about `lies`, let's talk about `lies`, ann.
+- He `lies` out on the marsh, raven-fodder; his horn torn from his head.
+- He was face to face with his god, and no one `lies` in that situation.
+- Of course you shall -- -- whose cell `lies` next to the linen cabinet!
+- I'd appreciate it if you didn't go around telling people `lies` about me.
+- Young men's love then `lies` not truly in their hearts but in their eyes.
+- You're an impostor, sir; your `lies` and folly have confirmed this to me.
+- Nobody `lies` in naked in a field in new york..it's...it's too midwestern.
+- "see what's around you listen to their `lies`" where do you get your ideas?
+- There are things i can say -- when other people say them, they'd be `lies`.
+- He enters the tomb to say farewell to juliet who `lies` there cold as death.
+- So, you don't have to make up a buncha `lies` to make me feel good about it.
+- Or if you do not make the bridal bed in that dim monument where tybalt `lies`.
+- You played the sneak behind my back -- made up all sorts of `lies` against me!
+- There in `lies` the catch-22 banks need to know how they're going to get their money back.
+- You're not someone who `lies` very easily... so it's obvious when you do... at least to me.
+- A boy who `lies` through his teeth, buys demonic records, and smokes the dope just like you.
+                 

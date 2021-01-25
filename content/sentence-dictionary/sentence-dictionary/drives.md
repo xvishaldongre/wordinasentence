@@ -1,0 +1,60 @@
+---
+title: "drives in a sentence | drives example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drives"
+---
+- It `drives` them nuts.
+- He `drives` a carriage.
+- The scent `drives` him.
+- It `drives` him mad.
+- Reagan usually `drives`.
+- The car `drives` itself.
+- `Drives` me crazy with it.
+- Mrs. marge simpson `drives`.
+- To avoid `drives` like this.
+- That `drives` everything mad.
+- `Drives` 'em crazy every time.
+- My dad always `drives` my mom.
+- He certainly `drives` like a jerk.
+- Because no nightblood, no `drives`.
+- And the system's hard `drives`, too.
+- Did they have mind `drives` as well?
+- Ah, my mother, she `drives` me crazy.
+- He gets in his car and `drives` home.
+- `Drives` forward, reverse - stop that!
+- My mother, boy, she `drives` me crazy.
+- You're the man who `drives` the plane.
+- No, but sometimes he `drives` a hearse.
+- I make her wait and it `drives` her crazy.
+- It's used to repair memory `drives`, fine.
+- ♪ the car just `drives` itself ♪ - our play?
+- We can take out the `drives` it's repeating.
+- Gabriel, you engineered memory `drives` amen.
+- We can access the mind `drives` i'm a-comin'!
+- We're lucky this thing still `drives` at all.
+- Is someone sad-snacking when he `drives` alone?
+- I expect that's what `drives` him under the bed.
+- It `drives` every living creature in sanctum mad.
+- Theo `drives` away leaving sheila standing alone.
+- Whoa, homer's making a smoothie while he `drives`.
+- Chevy suburban </b> claremont `drives` like a maniac.
+- Becca franko designed the mind `drives` and the flame.
+- It's what `drives` the darkness that makes you suffer.
+- You say he `drives` after breakfast and before dinner.
+- His children how mind `drives` work then we're bug food.
+- But it's the pelvic thrust that really `drives` you insane.
+- Hard `drives`, anything that will explain is someone there?
+- I know, look at the way he `drives`... he's like an old man.
+- I hear he `drives` a carriage around central park or something.
+- You going to tell me no one else in this shit hole `drives` a ford?
+- Watch closely, as bialystock `drives` the last nail into the coffin.
+- Because it's the plight that `drives` you, and the plight will never end.
+- But he usually works in the mornings, and then `drives` to school himself.
+- I had to face up to all my competitive `drives`, and believe me, i've got 'em.
+- Nevada desert -- later on </b> the cast winnebago `drives` through the desert.
+- The case of phineas gage geez, hope this guy euthanizes better than he `drives`.
+- Teach them how to make nightblood, no need for spaceships or cryo or mind `drives`.
+- So i came to new york and moved in with my sister and her husband -- he `drives` a cab.
+- `Drives` the same car out from new york each time--'65 mustang--said it helps him think.
+                 

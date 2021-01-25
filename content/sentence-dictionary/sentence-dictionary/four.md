@@ -1,0 +1,107 @@
+---
+title: "four in a sentence | four example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "four"
+---
+- At least `four` hours.
+- `Four` hundred is bid.
+- `Four` in the morning?
+- He's `four` feet tall.
+- In five, `four`, bang!
+- It's been `four` days!
+- It's only `four` days.
+- Just the `four` of us.
+- Make it `four`�thirty.
+- Only `four` more cars.
+- Three of `four` times.
+- Three or `four` times.
+- Try `four` and a half.
+- "back in `four` weeks."
+- Camp `four`'s that way!
+- Eight, six, and `four`.
+- `Four` billion dollars.
+- `Four` five nights ago.
+- `Four` hundred, anyone?
+- `Four` hundred, delmar.
+- `Four` nights in a row?
+- `Four` times... so far.
+- Good for `four` months.
+- He's twenty-`four` now?
+- I left `four` messages.
+- Nineteen eighty `four`.
+- Our chief `four` wives.
+- She's `four` feet tall.
+- Tommy got `four` years.
+- Two down, `four` to go.
+- Yeah, `four` years ago.
+- Been there `four` years.
+- Eight and twenty-`four`!
+- Eight and twenty-`four`.
+- Forty-nine point `four`.
+- `Four`, nice, deep ones.
+- `Four` of ours are dead.
+- `Four` or five days ago.
+- It is now nearly `four`.
+- One, two, three, `four`.
+- That'll be `four` fifty.
+- Transporter room `four`.
+- Twenty-`four` years ago.
+- Twenty run from `four`?!
+- With `four` casualties?!
+- ...and `four` and five...
+- Don't worry, `four` eyes.
+- Exactly `four` steps now.
+- For `four` fucking grand?
+- `Four` dudes sneaking in?
+- `Four` hundred years old.
+- `Four` seconds to impact!
+- Is it gone `four`-thirty?
+- It's a `four` hour drive.
+- I've got `four` quarters.
+- One zero zero two `four`.
+- Or possibly phase `four`.
+- Three... jim... `four`...
+- Two units in `four` days.
+- Would `four` of them -- ?
+- Fifty million `four` ways.
+- Five... `four`... three...
+- For the last `four` years.
+- `Four` complete skeletons.
+- `Four` in this block, sir.
+- `Four` more weeks and out.
+- `Four` out of five anyhow.
+- `Four` shots to the heart.
+- `Four` your point of view.
+- Got out in `four`--parole.
+- Hudson: `four` more weeks.
+- Is it season `four` again?
+- Like a `four` wheel drive.
+- Maybe three, `four` times.
+- That was `four` hours ago!
+- There's only `four` of us.
+- There were `four` of them.
+- Twenty-`four` isn't young.
+- A `four`-digit code, maybe?
+- Been going for `four` days.
+- E. one, two, three, `four`.
+- `Four` guys, but that's it.
+- `Four` honor medals... gci.
+- `Four` hundred cases worth.
+- `Four` people, `four` spoons?
+- He will be there at `four`.
+- I need a `four`-digit code.
+- It's `four` in the morning.
+- Just `four` couples remain.
+- My math says twenty-`four`.
+- One oh `four` and counting.
+- That was `four` months ago.
+- The next show is at `four`.
+- Three `four` nine nine one.
+- Three or `four` times over.
+- We been going `four` years.
+- We check every `four` days.
+- Who said there were `four`?
+- But i believe it was `four`.
+- Fogel has `four` more names.
+                 

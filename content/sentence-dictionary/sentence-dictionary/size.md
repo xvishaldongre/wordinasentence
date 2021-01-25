@@ -1,0 +1,107 @@
+---
+title: "size in a sentence | size example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "size"
+---
+- `Size` has no meaning.
+- The `size` of a whale?
+- Just regulation `size`.
+- Try this on for `size`.
+- Try "old" on for `size`.
+- What `size` do you wear?
+- What's your shoe `size`?
+- I trust it's your `size`.
+- It should be your `size`.
+- I didn't know your `size`.
+- Rodents of unusual `size`?
+- I wear a `size` eight, too.
+- Look at the `size` of that!
+- That's a very lovely `size`.
+- I always go a `size` smaller.
+- Judge me by my `size` do you?
+- What `size` shoe do you wear?
+- A wire transfer of this `size`?
+- But i'm sorry, i wear `size` 8.
+- Only an object of equal `size`.
+- It's the `size` of a grapefruit.
+- Well try this one on for `size`.
+- Don't let his `size` frighten you.
+- You know, the `size` of the mouth?
+- Any woman can go up a dress `size`.
+- Don't matter the `size` of the bed.
+- Machines the `size` of molecules...
+- The `size` of this is... beyond me.
+- Did you ever see a lion that `size`?
+- What is the `size` of our army, now?
+- A dose half of this `size`, i'm dead.
+- It's the right `size` and everything.
+- Something maybe grew a `size` bigger.
+- That young lady's `size`, right'cher.
+- Let's see...do you know her cup `size`?
+- Look at the `size` of those two beasts.
+- Out of something the `size` of a grape.
+- It's a...full length life-`size` figure!
+- It's not the `size` of the role, viktor.
+- Just three people in a room this `size`?
+- Something rigid the `size` of my finger.
+- I'd settle for one the `size` of a house.
+- It was about the `size` of a half dollar.
+- The biggest piece is the `size` of a pea.
+- A ship this `size` you can't exactly miss.
+- One boat can't control a ship that `size`.
+- About my `size`, wears a fancy two-gun rig.
+- A shoe that `size` i would have remembered.
+- At this `size`, i would certainly think so.
+- You're seven times the `size` of the c.i.a.
+- I don't think they make nikes in her `size`.
+- I'd say she's a `size` 6 who wears a `size` 4.
+- You bought the new girdles a `size` smaller.
+- Oh, everything's the same `size`, same price.
+- I just can't get over the `size` of that ring.
+- But there's the problem of his `size`, you see.
+- I know, but it keeps down the `size` of my can.
+- It must be fair old `size`, suppose it's empty?
+- 27, 26... to the `size` of a small child, octavia.
+- The `size` of the lungs has nothing to do with it!
+- To support the file `size` of a mature human mind.
+- You could double the `size` of your hardware store!
+- My god, it's stormy for a piece of rock that `size`!
+- Now running a bank of this `size` is very stressful.
+- We got no business towing a ship that `size` anyway.
+- You know, i had an apartment about this `size` once.
+- It's just a reaction to the `size` of the investment.
+- Like i said before, a twenty- two's more your `size`.
+- The third degree and the `size` twelve boot ankle-tap.
+- Who'd have thought they'd both be a `size` 138 regular.
+- So it really has nothing to do with actual brain `size`?
+- I was really hoping to start with a larger sample `size`.
+- Jesus the whole joint is half the `size` of rhode island.
+- You stupid sonofa- did you see the `size` of that thing?!
+- Honey -- i can't find those large- `size` hefty trash bags!
+- No sense to have <u>any</u> at all., even the right `size`.
+- Yeah, there's an olympic `size` swimming pool up on the roof.
+- You cut that slice down to bite-`size` and maybe we can talk.
+- A thousand times more information on a fraction of the `size`.
+- It may need some slight alterations, but it is madam's `size`.
+- Sounds like you're taking a dump the `size` of butte, montana.
+- Blond, right-handed, really strong, wears a `size` eleven shoe.
+- Honey, there's a spider in your bathroom the `size` of a buick.
+- It is the sacred place that matters, charles -- not the `size`.
+- If i was his `size` and had ganz on my ass, i'd just leave town.
+- This guy's heart's got to be roughly the `size` of a canned ham.
+- Arter that, everything starts growing back to its original `size`.
+- I couldn't believe... did you see the `size` of that thing's mouth?
+- You'd think on a ship this `size` there'd be something left to eat.
+- A man's life can only grow to a certain `size` in a place like this.
+- And, sir... do you have a `size` in mind for what you're lookin' for?
+- Should have seen his rose garden: blooms the `size` of hand grenades.
+- But a '97 le sabre'll be easy to find if it's here, town this `size`...
+- I know his cock's the `size` of a pin - let me give you the real thing.
+- Minutes, this area is gonna be a cloud of vapor the `size` of nebraska.
+- I don't understand why a meteor this `size` didn't make a bigger crater.
+- No, but they might surgically implant one, about the `size` of my thumb.
+- As we've seen, what he lacks in `size` he more than makes up for in speed.
+- Of course a tape can get misplaced in a library the `size` of sense/net's.
+- Went down to see this old hag and she had needles the `size` of that cane.
+                 

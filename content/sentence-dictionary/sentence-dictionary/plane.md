@@ -1,0 +1,107 @@
+---
+title: "plane in a sentence | plane example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plane"
+---
+- Get me into a `plane`!
+- Just like the `plane`.
+- The `plane` to lisbon.
+- The `plane` went down.
+- We met on the `plane`.
+- The `plane`'s boarding.
+- We'll miss the `plane`.
+- What about the `plane`?
+- "a `plane` out of phase.
+- Can i drive the `plane`?
+- Can you catch a `plane`?
+- Don't miss your `plane`.
+- We get on which `plane`?
+- The `plane` leaves in 40.
+- The `plane`'s turning....
+- There wasn't any `plane`.
+- Don�t get on that `plane`!
+- How was your `plane` ride?
+- ...she was on the `plane`.
+- The next `plane`, officer.
+- This `plane` can not land!
+- He called from the `plane`.
+- It'll come for the `plane`.
+- Let paris hold its `plane`?
+- Never missed a `plane` yet.
+- No, i slept on the `plane`.
+- You can't fly this `plane`!
+- Your `plane` leaves at six.
+- I bought us `plane` tickets.
+- ...i just missed my `plane`.
+- Just like landing a `plane`.
+- Not before the `plane` ride.
+- On a `plane` back to sicily.
+- We'll hop a `plane` tonight.
+- You cracked up in a `plane`.
+- About the `plane`, you mean?
+- All right, `plane`'s waiting.
+- He is already on the `plane`.
+- His `plane` lands in an hour.
+- I shall need a small `plane`.
+- Meaning he'll need a `plane`.
+- No man i'm on my own `plane`.
+- That `plane` goes to miami...
+- That `plane` was untouchable.
+- Unless you charter a `plane`.
+- We go on to the next `plane`.
+- Can anyone here fly a `plane`?
+- I-i'll be on the next `plane`.
+- Beats forty hours on a `plane`.
+- Couldn't we forget the `plane`?
+- Even the fall from the `plane`.
+- Even the fall from the `plane`?
+- I wish you were on the `plane`!
+- Just like you land the `plane`.
+- My luck, he was on the `plane`.
+- There's always a later `plane`.
+- We'd hire a `plane` in october.
+- Why didn't you catch a `plane`?
+- You've never been on a `plane`.
+- Go get us a seat on the `plane`.
+- His `plane`'s just been delayed.
+- Use the bathroom on the `plane`!
+- We'll discuss it on the `plane`.
+- You're on the next `plane` home.
+- I'm taking the next `plane` home.
+- It was blown up with the `plane`.
+- The the whole `plane`... blew up.
+- Victor laszlo is on that `plane`.
+- Wait, will... get me a `plane`...
+- What time does the `plane` leave?
+- Who's flying the fucking `plane`?
+- God, i'll have to go on a `plane`.
+- Indy, they make our `plane` crash?
+- I will follow on the next `plane`.
+- Where's this `plane` going anyway?
+- As soon as the `plane` goes, louis.
+- ...he's ill, the `plane` is sick...
+- Look, i'm sorry about your `plane`.
+- The others flew back in my `plane`.
+- A `plane` crashed into our backyard.
+- Can't be that hard to fly a `plane`.
+- I never been up in a `plane` before.
+- I've never been on a `plane` before.
+- Looks like i got a `plane` to catch.
+- What kind of `plane` are you flying?
+- When the `plane` landed he was dead.
+- You even brought the `plane` for us.
+- You told a lie and got on a `plane`.
+- A transport `plane` is due at eleven.
+- He was supposed to be on the `plane`.
+- I'll nick the boss' `plane` again....
+- I've got to get right on the `plane`.
+- She's already on a `plane` back home.
+- This `plane` will take you to canada.
+- We'll have hamburgers on the `plane`.
+- You know, i was on this `plane` once.
+- Your `plane`'s at nine a.m. be on it.
+- I didn't know you could fly a `plane`.
+- I'll be back in a week with a `plane`.
+- I'm putting you on a `plane` to vegas.
+                 

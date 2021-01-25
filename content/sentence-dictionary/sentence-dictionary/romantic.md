@@ -1,0 +1,84 @@
+---
+title: "romantic in a sentence | romantic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "romantic"
+---
+- Now that's `romantic`.
+- This is so `romantic`.
+- ... was so `romantic`.
+- It is kinda `romantic`.
+- It's a `romantic` name.
+- That's very `romantic`.
+- You're so `romantic`...
+- Very `romantic` setting.
+- That's really `romantic`.
+- A `romantic` interest.
+- It's `romantic` down here.
+- A most `romantic` creation.
+- I love `romantic` lingerie.
+- You're a `romantic`, frank.
+- Oh, it's just so `romantic`.
+- In what, a `romantic` comedy?
+- It was incredibly `romantic`!
+- A `romantic` and tragic drink.
+- Besides, jack's the `romantic`.
+- Oh, buddy, that's so `romantic`.
+- Oh, paul, this is so `romantic`.
+- That's what makes it `romantic`.
+- It's a `romantic` and tragic drink.
+- It's a `romantic` movement, curtis.
+- I guess i'm a hopeless `romantic`...
+- That's ro... that's kinda `romantic`.
+- Yes... just a `romantic`, that's you.
+- What an incredibly `romantic` gesture.
+- It's kind of `romantic`, don't you think?
+- `Romantic` interest, or else a young kid.
+- Well... can't i play the `romantic` part?
+- The view is so `romantic` from my balcony.
+- Do you have a `romantic` bone in your body?
+- I expected it was something more `romantic`.
+- Is the most `romantic` thing i've ever seen.
+- `Romantic` comedies, do our nails, gossip...
+- They like things to be sweet and `romantic`.
+- You take her to dinner, nice and `romantic`.
+- The setting wasn't `romantic`, but lloyd was.
+- Maybe he's not quite as `romantic` as you are.
+- We'll have a nice `romantic`, quiet, vacation.
+- But you still come out this goofball `romantic`.
+- I'm spending `romantic` time with my girlfriend.
+- Maybe you should try a more `romantic` approach.
+- We were `romantic` then too-- but the same song.
+- I think square rigs look so much more `romantic`.
+- That's the most `romantic` thing i've ever heard.
+- Wally a little too old for a `romantic` interest?
+- Why don't we have a `romantic` adventure right now?
+- Bala has always been a hopeless `romantic`, general.
+- Isn't usually the most `romantic` word, but... smart.
+- This was supposed to be a `romantic` adventure, - no.
+- I'm saying you're about as `romantic` as a bag of sand.
+- Yes, it made me cry it was so beautiful...so `romantic`.
+- Can you think of something more `romantic` than attacked?
+- That's even more `romantic` than what you said at fort dix.
+- Yes -- might make it hard to strike a really `romantic` note.
+- Sneaking in will be the most `romantic` thing we've ever done.
+- The `romantic` comedies and dramas were much more to my liking.
+- Next, lisa helped gil, for that most `romantic` of reasons: inertia.
+- It's `romantic`, what you're doing, and they want to be a part of it.
+- But you only wore mascara when you and daddy went on `romantic` dates...
+- Well, how about those old `romantic` movies with those great stars, huh?
+- I don't think there's anything more `romantic` than going to the drive in.
+- How `romantic`... emma actually likes chalk dust -- says it smells like me.
+- I could ask her in the carriage -- but it is more `romantic` at the palace.
+- Oh, it's so `romantic`--this whole house is going to be filled with romance.
+- It wouldn't be so `romantic` if we weren't... how do i know if this is love ?
+- A `romantic` quest * which you wouldn't end even if i wasn't * in the picture.
+- Didn't you have something a little more `romantic` in mind for your first time?
+- Have you ever let a `romantic` moment make you do something you know is stupid?
+- This seems like the perfect `romantic` exotic place to do it and -- that's okay.
+- You don't need to go to lookout point and spout cheeseball lines to be `romantic`.
+- What makes you think this watercolorist and i would develop a `romantic` relationship?
+- You merely feel you must put yourself in a `romantic` mood to add to your exhilaration.
+- I know it's not very `romantic`, but there will be romance again at some stage, i'm sure.
+- A former patient of mine, whose `romantic` attachments ran to, shall we say, the exotic...?
+                 

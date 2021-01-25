@@ -1,0 +1,69 @@
+---
+title: "nonsense in a sentence | nonsense example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nonsense"
+---
+- Don't talk `nonsense`.
+- It's total `nonsense`.
+- `Nonsense`, my friend.
+- I've talked `nonsense`.
+- That's `nonsense`, alma.
+- What is that `nonsense`?
+- What is this `nonsense`?
+- Oh `nonsense` young lady.
+- You're talking `nonsense`.
+- This is absolute `nonsense`!
+- None of that mocha `nonsense`.
+- Some of this native `nonsense`.
+- That's just `nonsense` from tv.
+- You're just talking `nonsense`.
+- It's all `nonsense`, believe me.
+- Forget about all this `nonsense`.
+- `Nonsense`, it's all of our home.
+- Who thinks about such `nonsense`?
+- `Nonsense` -- german ghost stories!
+- That's `nonsense`, and you know it!
+- I don't have time for this `nonsense`.
+- I don't have time for your `nonsense`.
+- So you think it's all `nonsense`, huh?
+- They even cure `nonsense`, miss betsy.
+- I can't afford to film this `nonsense`!
+- Let's not talk any more `nonsense`, huh?
+- Then why bother me with this `nonsense`?
+- It is all `nonsense`; it was an accident.
+- Yes, you were -- you called it `nonsense`.
+- I want you to stop all this `nonsense`, jim.
+- `Nonsense`- samuel would have done something.
+- We'll have no more `nonsense` about the ring.
+- Being murdered in cold blood isn't `nonsense`.
+- It's all a bunch of `nonsense` and you know it.
+- I do *not* want any more of this `nonsense`!
+- `Nonsense`, i... no, no, this one didn't escape.
+- A lot of `nonsense` is talked and written about it.
+- First i'm stuck with jury duty, now this `nonsense`.
+- I never heard such a crazy bunch of `nonsense` talk.
+- When this `nonsense` is over i will be most grateful.
+- You're not seriously buying into darren's `nonsense`.
+- I think that's enough of this `nonsense`, dr. jones...
+- `Nonsense`, i'm your mother now and i want you to eat.
+- I, that what all that `nonsense` was about this morning?
+- I want you to go to sleep and forget all this `nonsense`.
+- The fidelity `nonsense`... oh, come on, we're not children.
+- Just stopping all this `nonsense` about eve - and eve and me?
+- `Nonsense` -- you're only saying that because no one ever has.
+- Please, you're not buying into any of this `nonsense`, are you?
+- You ought to stop this `nonsense`, loretta, these two dollar bets.
+- You were an excellent student, before all that clarinet `nonsense`.
+- I mean, you couldn't function i hoped she was beyond such `nonsense`.
+- If you're going to talk `nonsense`, i don't want to talk to you at all.
+- You have to admit, it sounds like some fantasy, role-playing `nonsense`.
+- I didn't have anything to do with this fidelity `nonsense` and you know it.
+- But something tell me it's going to be the strangest `nonsense` we've ever seen.
+- `Nonsense`, we can pick up the tram on the other side, it won't take any longer.
+- `Nonsense`, mr. president - i thank you for coming to spend time with a dying man.
+- It's revived all their old superstitions -- zombies -- and that sort of `nonsense`.
+- I'm trying to get us into the next century and you insist on this medieval `nonsense`.
+- Don't expect me to love you - you're talking an incredible amount of `nonsense`, susan.
+- A 5% raise, and -- look, erin, this is not the way i do business, this extortion `nonsense`.
+                 

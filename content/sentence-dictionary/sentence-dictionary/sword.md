@@ -1,0 +1,107 @@
+---
+title: "sword in a sentence | sword example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sword"
+---
+- Do you have a `sword`?
+- Gimme a `sword`, airk.
+- Just show the `sword`.
+- Did you find a `sword`?
+- What use is my `sword`?
+- I presume it's a `sword`.
+- The green destiny `sword`?
+- And get her a real `sword`.
+- That's li mu bai's `sword`.
+- Sir... kay needed a `sword`.
+- You're a `sword` fighter too?
+- Keep your `sword` greased.
+- Cooper, give him your `sword`.
+- That was a `sword` in a field.
+- You've brought me the `sword`?
+- I don't care about the `sword`.
+- It's the same for this `sword`.
+- I am his shield and his `sword`.
+- I don't care about your `sword`.
+- Krakauer's `sword` is unleashed.
+- But he's brought me this `sword`.
+- But it's not your `sword` anymore.
+- Only the `sword` will settle this.
+- When you put a `sword` through me.
+- Sigurd's `sword` is no great thing.
+- I'll act as the `sword`'s custodian.
+- I'll match any man with the `sword`.
+- I love you, cage, my `sword`'s gone.
+- I saw your hand go for your `sword`.
+- Then you have no use for the `sword`.
+- The pen is mightier than the `sword`.
+- Has governor yu ever seen the `sword`?
+- It is my `sword` and my shield, macey.
+- It's not a `sword`, ma...it's a sabre!
+- Behold the `sword` of power, excalibur.
+- No, it's just... a `sword` is a weapon.
+- Pick up the `sword` and strike him down.
+- Why would he give his `sword` to sir te?
+- But the `sword` could be in his compound.
+- Do you always walk around with a `sword`?
+- I always knew you had stolen the `sword`!
+- I come not with peace but with a `sword`.
+- Not tonight...ben, put that `sword` back.
+- To slay the dragon, use the magic `sword`.
+- Certain moves, however, call for a `sword`.
+- You are no match for best with the `sword`.
+- I am his shield and his `sword` i was right.
+- You can give the `sword` to sir te yourself.
+- You put your `sword` right through his head!
+- He'll slice you up with a ceremonial `sword`.
+- It's a naked steel of the `sword` of justice.
+- The bottom falls out of the `sword` business!
+- Still, the `sword` is the lightest of weapons.
+- That's a very handsome `sword` you have there.
+- The `sword` had pierced its tiny heart exactly.
+- What good is a `sword` unless it be unsheathed?
+- Same reason you haven't used that `sword` on me.
+- I'd draw my `sword`, and cut my way through them.
+- So sometimes you were carrying just your `sword`?
+- Even your `sword` won't be able to affect me then.
+- Please... what do you fear most now... my `sword`?
+- Which did you prefer, your banner or your `sword`?
+- I just brought you down here because of the `sword`.
+- Never even had a `sword` in my hand until yesterday.
+- The guy had a `sword` and was dressed like this guy.
+- The widow windsor had been run through by a `sword`.
+- What you want is to... offer him the wooden `sword`.
+- This is li's personal `sword`, a great hero's weapon!
+- At sunrise, the commander will end it with her `sword`.
+- Sigurd's `sword`... his feet shall never cross my lips.
+- Where men live and die by the axe and by the `sword`...
+- Find a pool of calm water and throw the `sword` into it.
+- The king without his `sword`, the land without a king...
+- But i've never known anyone to survive until the `sword`.
+- I believe this is a `sword` such as the archangels wield.
+- I was forty times more fond of my banner than my `sword`.
+- The `sword` of damocles is lifted from above seth's head.
+- Who do you think hid your `sword` where you would find it?
+- Tis not the `sword` that counts, but the man what swings it.
+- I'll fight him with `sword` or with pistol, captain as he is.
+- There are many ways a `sword` might find itself in a field...
+- They wouldn't have found me if you hadn't stolen the `sword`.
+- Those who would not, met their fate at the end of my `sword`.
+- My job was to get the `sword` back, without embarassing anyone.
+- When did your pleasure begin with that `sword` in your hand...?
+- Now we know that some problems cannot be settled with a `sword`.
+- A `sword` is a weapon whatever else you might wish to use it for.
+- That `sword` has served me through many an evil time, ben harper.
+- If you can take back the `sword` in three moves, i'll go with you.
+- They blend together like the metals we mix to make a good `sword`.
+- I held it up to... did you use the `sword` that you held in your hand?
+- My father's `sword` means more to me than any other possession i have.
+- I thought by giving away the `sword`, i could escape the giang hu world.
+- I am king, and this is excalibur, `sword` of kings from the dawn of time.
+- I thought once that you were the one to unite the land under one `sword`.
+- One day, while in battle, he was killed by the `sword` of li mu bai's enemy.
+- This `sword` was taken several days ago from your son by some of my soldiers.
+- When a roman general knew a battle was lost, he'd throw himself on his `sword`.
+- But one can still keep a `sword` sharp riding out in the name of the king's law.
+- I don't remember... you held up your `sword` and flourished it about in the air?
+                 

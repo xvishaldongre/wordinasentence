@@ -1,0 +1,71 @@
+---
+title: "carried in a sentence | carried example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "carried"
+---
+- Got `carried` away, huh?
+- I never `carried` a gun!
+- They could be `carried`.
+- Don't get `carried` away.
+- I just got `carried` away.
+- It gets `carried` forward.
+- Sorry, i get `carried` away.
+- He `carried` on some; kicked.
+- I `carried` the king's child!
+- I got a little `carried` away.
+- We `carried` cyanide capsules.
+- I `carried` you up to your bed.
+- We got a little `carried` away.
+- Well, don't get `carried` away.
+- I `carried` her back to her room.
+- I `carried` the child of the king.
+- Who `carried` the day at saratoga!
+- Don't be gettin' `carried` away.
+- The master and i `carried` you here.
+- I `carried` that rifle in world war i.
+- You just get `carried` away sometimes.
+- He has to be `carried` by native bearers.
+- He `carried` you like this, i suppose.
+- I never realized you `carried` around so much.
+- People that aren't going to be `carried` away.
+- I just `carried` the drugs from the chief to sam.
+- I knew - i guess i got `carried` away enjoyed it?
+- We wouldn't want to get `carried` away, would we?
+- Uh, he handled rackets, and i `carried` the balls.
+- Harold, i think you're getting `carried` away here.
+- Lancelot `carried` my honor and guenevere my guilt.
+- Well...i guess they did get a little `carried` away.
+- ... and that you don't believe you `carried` a child.
+- `Carried` diphtheria bacilli in the wound until 1920.
+- Currents could've `carried` the body 10 miles further.
+- Well don't get `carried` away -- i'm not that good at it.
+- You get so `carried` away when you are being contradicted!
+- He came late after they `carried` him to the joseph statue.
+- It would've happened years ago if you hadn't `carried` him.
+- That's one ton a peaches picked an' `carried` for a dollar.
+- "as a part of a religious program `carried` on where's my dad?
+- You uhm--you remember what old buddy `carried` for a side arm?
+- Yes, for a short time, while they `carried` him across the road.
+- Anyway, he `carried` me into the maid's dayroom which nobody used.
+- Emily hasn't `carried` a house key since she was twelve years old.
+- Ten years you `carried` that pistol, and you end up wasting your shot.
+- We were, you know... he got a little `carried` away... george bit you?
+- Yeah, i saw her ... she was `carried` into the jungle by ... an animal.
+- I backed up the car to the door and we `carried` her in, like groceries.
+- Remember the bowling ball bag sid `carried` with him in virtual reality?
+- You `carried` a baby somewhere, it's unusual, but -- but i was on duty...
+- No, he picked me up and `carried` me out to the sundeck -- god, it was hot.
+- He fought his way through the trap and `carried` her body to a secret place!
+- I mean, i may have `carried` your soul, but i sure couldn't fill your shoes.
+- The child she `carried` was eight months grown at least... near to birthing.
+- I was reading this horror comic and i guess i go a little `carried` away... sam!
+- Dahmer `carried` the head of one of his victims in a bowling bag for over a week.
+- You've got a great career, you're beautiful -- uh oh -- don't get `carried` away.
+- Captain, their call is being `carried` on an amplification wave of enormous power!
+- I will not have conversations of this sort `carried` on by the children at dinner!
+- You ever hear the story about the boy who `carried` a calf around the barn every day?
+- Yes, it <u>did</u> seem prehistoric but i'm sure he just `carried` the thing for luck.
+- Already i felt the earth flee beneath me, as if i were being `carried` away up to the sky.
+- From the way she `carried` herself i could tell she'd been around the block a few times...
+                 

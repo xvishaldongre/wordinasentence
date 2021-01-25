@@ -1,0 +1,66 @@
+---
+title: "Roy in a sentence | Roy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Roy"
+---
+- Makes no sense, `roy`.
+- I need a partner, `roy`.
+- Oh, `roy`, it was great!
+- Get off the grift, `roy`.
+- See you in a week, `roy`.
+- `Roy` bensinger, the poet.
+- But i tell you what, `roy`.
+- `Roy`'ll wonder where i am.
+- We're in a shootout, `roy`!
+- Good to have you back, `roy`.
+- You won't regret this, `roy`.
+- No, no, `roy`, just cash poor.
+- Once we nail `roy`, that's it.
+- I said we'll talk later, `roy`.
+- You're wastin' your time, `roy`.
+- I don't like to come here, `roy`.
+- I have to have that money, `roy`.
+- What happened to your arm, `roy`?
+- This is my uncle `roy`, sebastian.
+- You don't know what i'd do, `roy`.
+- But so am i. i'm a survivor, `roy`.
+- `Roy`, i don't want money from you.
+- `Roy`, you're a short-con operator.
+- Always picking on poor little `roy`.
+- That's what i mean... 'night, `roy`.
+- `Roy`, i know what to do with myself!
+- I'm not trying to make trouble, `roy`.
+- This is `roy` ostrey, he's a reporter.
+- You don't mind, really, do you, `roy`?
+- Gino travels with a big man named `roy`.
+- You just don't know when to quit, `roy`!
+- I didn't break your precious clock, `roy`!
+- I'll let you in on a little secret, `roy`.
+- I'm tellin' you it wasn't no woman, `roy`!
+- You're too good for the small-time, `roy`.
+- ..they wanna do some `roy` orbison tribute.
+- You just go write your little story, `roy`.
+- I don't know much about biomechanics, `roy`.
+- Kan maaaaw `roy` orbison kin nah mah oh che.
+- `Roy`, remember, it is all within your power.
+- The truth is, mr. kaggs -- oh, come on, `roy`.
+- Actually, i was always partial to `roy` rogers.
+- How'd you get that punch in the stomach, `roy`?
+- How much are you getting on the tribune, `roy`?
+- `Roy`, when was the last time you had an actual date?
+- Thanks, `roy`, you're sweet... a big liar, but sweet.
+- ... to the tune of "only the lonely" by `roy` orbison.
+- He was so good, `roy`, he could just play with the mark.
+- `Roy`... what if i told you i wasn't really your mother?
+- Don't get him involved with none of your bullshit, `roy`.
+- Small-time, pissant, barney fife -- fuck you, `roy` ostrey!
+- Well, `roy`, if that's the way you feel, i won't badger you.
+- You've got a legitimate complaint, `roy`, i don't deny that.
+- I'm well connected, `roy`, cole introduced me to a lot of people.
+- After all, you -- `roy`, that's fine, but i don't have time for this.
+- `Roy`... we might never see each other again, so i'd better tell you now...
+- You were never cut out for the rackets, `roy`, and if you -- you're one to talk.
+- Is there nothing i can do, `roy`, nothing at -- lilly, jesus, what are you doing?
+- But it has to have a center, `roy`, something you care about, something you can think about.
+                 

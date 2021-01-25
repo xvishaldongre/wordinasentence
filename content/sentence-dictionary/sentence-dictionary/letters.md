@@ -1,0 +1,107 @@
+---
+title: "letters in a sentence | letters example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "letters"
+---
+- They're love `letters`.
+- Those are my `letters`!
+- He found your `letters`.
+- His `letters` will keep.
+- Give me back my `letters`.
+- I couldn't talk `letters`.
+- I get `letters` every day!
+- `Letters` in the alphabet.
+- Did you hide the `letters`?
+- I knew about her `letters`!
+- Now i want those `letters`.
+- He read the `letters`, nick.
+- He's learning his `letters`.
+- He wrote you some `letters`.
+- My `letters` of appointment.
+- For the `letters`, of course.
+- I brought you some `letters`.
+- They are only love `letters`.
+- I never could write `letters`.
+- Must you take those `letters`?
+- No -- `letters` to two-eighty.
+- The `letters` in your journal.
+- You know, we've got `letters`.
+- They are - private - `letters`.
+- What about all these `letters`?
+- Yeah, but not on the `letters`.
+- Apparently he has the `letters`.
+- I have the `letters` right here.
+- `Letters` hidden up her chimney.
+- They get thousands of `letters`.
+- The `letters` sound very similar.
+- After which of his `letters`, huh?
+- Do you always type your `letters`?
+- Please stop sending us `letters`."
+- Where did you get those `letters`?
+- You have the `letters` of transit.
+- Don't you even know your `letters`?
+- She still gets those fan `letters`.
+- Start learnin your `letters` again?
+- They've sent me `letters` from jail.
+- Would you have cared for my `letters`?
+- His journals, `letters`, maps, books...
+- There are some `letters` here from him.
+- You ever going to open those `letters`?
+- It had some `letters` and numbers on it.
+- One simple word, three little `letters`.
+- What do you write... `letters` an' such?
+- I'd skip my turn and swap some `letters`.
+- Somebody's been sending me love `letters`.
+- Wrote you a hundred `letters`, didn't she?
+- You mentioned that in your `letters` okay.
+- Give her a receipt for these `letters` too.
+- I think you know where those `letters` are.
+- She had written him many `letters` of love.
+- You won't give me the `letters` of transit.
+- She came there for the `letters` of transit.
+- Why didn't you mention it in your `letters`?
+- This, only one of these `letters`, major.
+- Hast thou no `letters` to me from the priest?
+- There are `letters` here, but there are nine.
+- Rick, have you got these `letters` of transit?
+- All his `letters`, saying what a paradise it is.
+- You show 'em your id with the `letters` "f.b.i."
+- About his `letters` -- that's all she remembered.
+- Dost thou not bring me `letters` from the priest?
+- It's not normal, not reading `letters` from home.
+- I wrote and wrote but all my `letters` came back.
+- Or maybe some combination of the three `letters`.
+- Read him one of the old `letters` and rephrase it.
+- But you write your `letters` if it makes you happy.
+- No, nick, no -- you told him about nick's `letters`.
+- There you are, miss, your receipt for the `letters`.
+- I have a proposition for whoever has those `letters`.
+- In one week she got seventeen thousand fan `letters`.
+- She has sent half-a-dozen `letters` to you in dublin.
+- There's a lot more `letters` in the alphabet of love.
+- Plus the forty to mason... how many `letters` is that?
+- The vowels are little dots that go under the `letters`.
+- We'll try combinations of those `letters`... k-r-o-one.
+- I'll send my `letters` to thy lord post haste to mantua.
+- Then why do they still write me fan `letters` every day.
+- We are always pleased to receive `letters` from parents.
+- I've got the `letters` right here, all made out in blank.
+- Well, i told strasser he wouldn't find the `letters` here.
+- Yes, i have the `letters`, but i intend using them myself.
+- I found one of your `letters`... it was a nice letter, sam.
+- They give basement apartments `letters` instead of numbers.
+- What'd you say your station...uh, your call `letters` were?
+- From now on, i'll write two `letters` a week instead of one.
+- Cecile if there's one thing i'm great at it's love `letters`.
+- It's two of the `letters` in my favorite nurse's name, annie.
+- Or my `letters` ... of course ... you getting my checks ... ?
+- What do we do instead, write each other lurid love `letters`?
+- Just with the `letters` stacked into blocks of syllables, wow.
+- That is the proposition i have for whoever has those `letters`.
+- The mystics tried to read the white spaces around the `letters`.
+- Those `letters` were not found on ugarte when they arrested him.
+- That part, nick... was planned out the day i read your `letters`.
+- If i could lay my hands on those `letters`, i could make a fortune.
+- I want you to make me copies of his `letters` and bring them to me.
+                 

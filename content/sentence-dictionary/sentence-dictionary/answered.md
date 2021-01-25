@@ -1,0 +1,56 @@
+---
+title: "answered in a sentence | answered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "answered"
+---
+- Nobody ever `answered`.
+- You `answered` the door!
+- Sometimes `answered`.
+- Blood has `answered` blood.
+- She `answered` our prayers.
+- `Answered`, "we don't know."
+- You `answered` every question.
+- I phoned but nobody `answered`.
+- The creator has not `answered`.
+- The massacre must be `answered`.
+- Who was it `answered` the phone?
+- I need some questions `answered`.
+- Our prayers have been `answered`!
+- You never `answered` my question.
+- [zap] blood has `answered` blood.
+- Ma'am, i `answered` your question.
+- You haven't `answered` my question.
+- One that's not likely to be `answered`.
+- When a bird called, we `answered` back.
+- I `answered` these questions last night.
+- I'm not sure you `answered` my question.
+- Hey -- your prayers have been `answered`.
+- You still haven't `answered` my question.
+- Anyway, i never even `answered` his letter.
+- Mike said a young girl `answered` the door.
+- Yeah... and when i called no one `answered`.
+- If i had `answered`, what were you gonna say?
+- No calls from outside in are even `answered`.
+- Well, why haven't they `answered` our flares?
+- You still haven't `answered` monty's question.
+- You still haven't `answered` monty's question.
+- He hasn't `answered` his telephone in two days.
+- Wait, betty... you still haven't `answered` me.
+- You've `answered` all of these, like, 10 times.
+- So, i called the number ... and a woman `answered`.
+- Oh yeah... our prayers have been `answered`, turkle!
+- I rang the doorbell, and old mrs. wheeler `answered`.
+- _ `answered` a lot of questions but raised a lot more.
+- If she would be my queen, my dreams would be `answered`.
+- I `answered` the darn - i'm cooperating here, and i... ...
+- We're having sex and george actually `answered` the phone.
+- Two weeks ago i wrote him a letter -- never even `answered` me.
+- Tell me, roland, when was the last time you `answered` your phone?
+- When tutors `answered` every question except those about who i was.
+- They were the only ones who `answered` the ride share note, remember?
+- In fact, for the last 18 hours no one has `answered` any of my questions.
+- 'that is so,' `answered` the night in a bold and haughty manner..." see you.
+- Anyhoo, jesus `answered`, and i think it might have gone i got to get this done.
+- Lucy said she tried to call you, but no one `answered` so she faxed you the list of names.
+                 

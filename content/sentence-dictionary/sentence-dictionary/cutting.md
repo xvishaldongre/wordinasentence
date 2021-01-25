@@ -1,0 +1,77 @@
+---
+title: "cutting in a sentence | cutting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cutting"
+---
+- Still `cutting` lawns?
+- I'm `cutting` a record.
+- `Cutting` off my own ear?
+- `Cutting` edge mathematics.
+- How about `cutting` it off?
+- He's `cutting` our throat...
+- Delete in `cutting` ) there .
+- Dustin, you're `cutting` out.
+- It's called "`cutting` sign."
+- Damn thing keeps `cutting` out.
+- He's `cutting` funding for nasa.
+- He's `cutting` his remarks short.
+- I'm not `cutting` if you're here.
+- Kinuba had `cutting` in his side.
+- How 'bout `cutting` me some slack?
+- It's a `cutting` from one of mine.
+- We should both be `cutting` loose.
+- After that i'm `cutting` you loose.
+- He's `cutting` down the visibility.
+- Might end up `cutting` your throat.
+- `Cutting` down the advancing germans.
+- It's `cutting`-edge stuff, all right?
+- Just a bunch of kids `cutting` loose.
+- They're `cutting` off my unemployment.
+- [`cutting` in] mackenzie, listen to me.
+- Well, it's `cutting` awful close to me.
+- We're just about to start `cutting` in.
+- That's `cutting` it closer than you know.
+- I'm `cutting` across to bundy to brentwood.
+- Isn't that `cutting` it a little too close?
+- The johnnie walker story without `cutting`.
+- You better start `cutting` them some slack.
+- `Cutting` it a little close, don't you think?
+- That's `cutting` it a little close, isn't it?
+- Well, you'd be working on the `cutting` edge.
+- Delete in `cutting` then we must go there too.
+- Stab 3's going to `cutting` corners cast-wise.
+- To him, `cutting` is so crude ... so primitive.
+- Mike, why are you `cutting` me out of the action?
+- He'd be fine `cutting` my grass or parking my car.
+- We'll be `cutting` ourselves off from the outside.
+- Don't be late -- we're `cutting` it close as it is.
+- She's already working on `cutting` why you little...
+- I mean, if we're `cutting` the crap... what happened?
+- That's `cutting` it mighty close -- for a perfect fit.
+- It's called «`cutting` sign.» fourth-year earth skills.
+- And `cutting` the power doesn't why is soccer so stupid?
+- Even `cutting` half your classes, you have a b- average.
+- Keeps `cutting` before the papillary line can grow back.
+- I liked it so much i'm `cutting` you out of the squadron.
+- I think you're one step away from `cutting` your ear off.
+- You said you were `cutting` in <u>establishing shots</u>!
+- I think we should consider `cutting` the experiment short.
+- Be grateful boone's not `cutting` shirley temple's lawn.
+- You guys trying to cure the headache by `cutting` off the head.
+- Don't go making it too simple, we're on the `cutting` edge here.
+- Jesus, i don't know, baby, i been `cutting` too much hair lately.
+- You just sit up front and sign the mail, and leave the `cutting` to us.
+- And `cutting`-edge delivery systems, that i must add to my organization.
+- I think they'll enjoy attending our ribbon `cutting` at the acme factory.
+- You're brain is in reverse mode ... `cutting` off your supply of dopamine.
+- I mean, it was as if there were four razors `cutting` her at the same time.
+- Delete in `cutting` delete in `cutting` i want my liberace record back tonight.
+- <u>we</u> harness energy on a small scale by `cutting` magnetic lines of force.
+- How fucking razor sharp and `cutting` edge and ahead of it's time this concept is?
+- Off the record, i'm this close to `cutting` someone in on the action if it'd help.
+- I'm ... uh, i think it's time we begin to think in terms of `cutting` our losses.
+- For `cutting` and slashing everything in your way so you can have your goddamn movie?!
+- Okay, you got my attention, but this is `cutting` off the circulation to my head, here.
+- Choosing those shitheads over me, `cutting` me out of the deal, then screwing them over too.
+                 

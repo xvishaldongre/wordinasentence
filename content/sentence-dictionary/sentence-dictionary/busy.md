@@ -1,0 +1,107 @@
+---
+title: "busy in a sentence | busy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "busy"
+---
+- Been `busy`, have you.
+- Go away -- i'm `busy`.
+- He's `busy` right now.
+- I'm a little...`busy`.
+- Lad, i'm a `busy` man.
+- Tell him we're `busy`.
+- Are you `busy` tonight?
+- Got a `busy` afternoon?
+- He's `busy` being dead.
+- I'm `busy` with school.
+- I'm just really `busy`.
+- I'm too `busy` tonight.
+- It's the `busy` season.
+- See, we're very `busy`.
+- Well, i've been `busy`.
+- We're very `busy` here.
+- Yeah, i've been `busy`.
+- Anthony, daddy's `busy`.
+- I've been `busy`, gerry.
+- I've been really `busy`.
+- You need to stay `busy`?
+- Are you `busy` on friday?
+- Can't you see i'm `busy`?
+- I'm `busy` at the moment.
+- I'm too `busy`, actually.
+- Not now, mom, i'm `busy`!
+- We're `busy` people here.
+- Harry must've been `busy`.
+- He's terribly `busy`, sir.
+- I'm `busy` thursday night.
+- I'm kind of `busy`, norma.
+- I really am rather `busy`.
+- Nobody can be that `busy`.
+- That uncle alex is `busy`?
+- Was i a really `busy` guy?
+- Are you `busy` after work ?
+- Are you `busy` on saturday?
+- `Busy` night for a tuesday.
+- I'm `busy` tomorrow anyway.
+- I've been very `busy` and .
+- I've certainly been `busy`.
+- Oh, thanks, but i'm `busy`.
+- The police are very `busy`.
+- This has been a `busy` day.
+- All their lines were `busy`.
+- Come on -- let's get `busy`.
+- Don't tell me he's "`busy`".
+- I'll be too `busy` grieving.
+- Maybe the circuit is `busy`?
+- Say, i've got to get `busy`.
+- What if he's `busy` tonight?
+- You two been `busy` in here.
+- `Busy` little creatures, huh?
+- Joey's getting stupid `busy`.
+- Too `busy` playin' ball, huh?
+- Are you `busy` tomorrow night?
+- Because i know you are `busy`.
+- Can't you see i'm `busy` here?
+- I'm sorry, i been real `busy`.
+- It's just to keep them `busy`.
+- Something to keep them `busy`.
+- So you're monumentally `busy`?
+- We were too `busy` screaming."
+- What, daughter are you `busy`?
+- You're not to `busy`, are you?
+- He just wants to -- i'm `busy`.
+- Hello lucy, had a `busy` night?
+- He's too `busy` running around.
+- I'm kind of `busy` right now...
+- _ i'm not keeping `busy`, finn.
+- I'm probably, you know, `busy`.
+- I told them you're real `busy`.
+- It's not like we're too `busy`.
+- I've just been so `busy`, lisa.
+- Oh, i guess you're `busy`, huh.
+- Or should i pretend i'm `busy`?
+- Thumper had a `busy` afternoon.
+- Business is good, you're `busy`?
+- It's perfect the line is `busy`?
+- Mr. mccaffrey... keeping `busy`?
+- Tell annette i'm `busy` in july.
+- You're `busy` monkeys, mr. case.
+- `Busy` day, my little fire chief.
+- I didn't realize you were `busy`.
+- I'd rather keep `busy`, you know?
+- Say that i'm `busy`, and hang up.
+- I'm seeing what a `busy` man does.
+- Nothing... it's, ahh, `busy` here.
+- Sorry, a bit `busy` at the moment.
+- You had a `busy` night last night.
+- You know how `busy` saturdays are.
+- Detroit, you must be pretty `busy`.
+- It's a big and `busy` funeral home.
+- Of course he's `busy`, and so am i.
+- They keeping you `busy` these days?
+- Would have kept most people `busy`.
+- You've been a `busy` little beaver.
+- You�ll be a `busy` man from now on.
+- I'm `busy` -- i -- let me up, hildy.
+- Is that `busy` husband of mine `busy`?
+                 

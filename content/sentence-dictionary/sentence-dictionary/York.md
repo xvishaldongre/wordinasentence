@@ -1,0 +1,107 @@
+---
+title: "York in a sentence | York example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "York"
+---
+- Back is in new `york`.
+- Cuz i want new `york`.
+- Is he from new `york`?
+- I'm in from new `york`.
+- I'm in new `york` city.
+- New `york` for a month?
+- The city is new `york`.
+- You're like new `york`.
+- Far cry from new `york`.
+- I met him in new `york`.
+- That's new `york`, baby.
+- First time in new `york`?
+- Flew a run to new `york`.
+- New `york` or washington?
+- Saddle river, new `york`!
+- That's new `york` living.
+- He's from new `york` city.
+- I'm a cop from new `york`.
+- New `york` police - jesus.
+- The new `york` yacht club.
+- Wallace has sacked `york`!
+- We're going to new `york`?
+- You don't like new `york`?
+- A whole week in new `york`.
+- Jason's here in new `york`.
+- Next stop, new `york` city!
+- She's flying to new `york`.
+- Want to walk to new `york`?
+- You're going to new `york`.
+- Well, i'm in new `york` now.
+- You should go to new `york`.
+- He's offering you new `york`.
+- I want to talk to new `york`.
+- I want you to see new `york`.
+- New `york` treating you okay?
+- So you're from new `york` eh?
+- This is the new `york` times.
+- Wait, he lived in new `york`?
+- Yes, we're in new `york` now.
+- Yes you talked to new `york`?
+- Forget about new `york`, jeff.
+- I'm going to go to new `york`.
+- I'm still going to new `york`.
+- I was born in new `york` city.
+- New `york` is dangerous place.
+- New `york`'s a long way's off.
+- That's new `york` steak, baby.
+- Then we move on to new `york`.
+- Where's the bus to new `york`?
+- `York` just turned up outside.
+- But do it in la and new `york`!
+- But i want to go to new `york`.
+- From new `york` and new jersey.
+- I'll give it a try, mr. `york`.
+- Say hello to new `york` for me.
+- She's going home to new `york`.
+- Why'd he ever leave new `york`?
+- Back to new `york` for starters.
+- Chart says he's from new `york`.
+- Get your ass back to mew `york`.
+- I don't any woman in new `york`.
+- I leave for new `york` tomorrow.
+- I'll pay your way to new `york`.
+- I mean to a guy from new `york`.
+- It's not like new `york`, mikey.
+- That'd be seventy in new `york`.
+- The hell you will, harry `york`.
+- This is new `york` city, sister.
+- Yeah, i'll miss new `york` city.
+- I didn't even mention new `york`.
+- I thought you were in new `york`.
+- It's my first time in new `york`.
+- Lives in new `york` near his mom.
+- Might be different in new `york`.
+- My father wants me in new `york`.
+- That's why he came to new `york`.
+- The new `york` pneumatic railway.
+- What's so great about new `york`?
+- When i was in new `york`, oh boy!
+- All aboard - new `york`, new `york`!
+- Did you see it here in new `york`?
+- He talked to the new `york` times?
+- His stuff comes out of new `york`.
+- What are your plans in new `york`?
+- When can we talk about new `york`?
+- I bet they're asleep in new `york`.
+- My shows've only played new `york`.
+- The scene we said is new `york` no!
+- You'd never been out of new `york`?
+- You're going to new `york` with us.
+- You said we could go to new `york`.
+- After new `york`, aliens... come on.
+- Am i going to see you in new `york`?
+- Dan, is this -- is this new `york`??
+- I have to go to new `york` tomorrow.
+- In new `york` the trouble finds you.
+- New `york` is filled with creatures.
+- Same energy signature as new `york`?
+- I mean, your life is new `york` city.
+- I've heard of you back in new `york`.
+                 

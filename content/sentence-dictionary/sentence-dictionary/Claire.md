@@ -1,0 +1,57 @@
+---
+title: "Claire in a sentence | Claire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Claire"
+---
+- `Claire` is your wife?
+- I know that, `claire`.
+- `Claire`-- i was there.
+- `Claire`, listen to me.
+- `Claire`: listen to me.
+- Keep counting `claire`.
+- Don't you see, `claire`?
+- The leaves... `claire`...
+- Put the gun down `claire`.
+- What's going on, `claire`?
+- `Claire`, we talked about it.
+- `Claire`, will you calm down?
+- I did what i had to, `claire`.
+- `Claire`'s in a weird mood too.
+- It's susan's cooking, `claire`.
+- Win made his choices, `claire`.
+- Wally... no, she didn't `claire`.
+- You show `claire` these sketches?
+- Anyway, `claire` slept with him...
+- You like that, don�t you `claire`?
+- You really had me going, `claire`.
+- I just... `claire`, when did you...
+- It's mrs...it's `claire`...spencer.
+- `Claire`, transport in five minutes.
+- `Claire`... what am i supposed to do?!
+- `Claire`... you should have tried harder.
+- I have to get to the airport... `claire`.
+- I liked being around you too... `claire`.
+- He's trying to put it behind him, `claire`.
+- `Claire`, i have to show up for the-- don't.
+- That's not what `claire` tells me about you.
+- I'd never be able to live with mysel-- `claire`...
+- A woman was kidnapped in eau `claire` this morning.
+- I'm sorry... `claire`, please... maybe you're right.
+- Of course - i�m sorry to hear you say that `claire`.
+- I'm sorry for leaving, but i mean, jesus, `claire`...
+- What <u>the problem was</u> you and `claire` had in kiev?
+- I�ll have `claire` and luther stickell with me on the train.
+- He told me not to tell anybody, to bring `claire` and come alone!
+- Well, `claire`, you�ve asked the question and you are the answer.
+- Oh, ethan is in love with you, `claire`, make no mistake about it.
+- If you're gonna do this again `claire`, it's not gonna be on my watch.
+- `Claire`: as an interpretive artist to a creative artist: stay with me.
+- `Claire`, jack, even jim - - hannah, maybe, i -- don�t know who�s dead?
+- It's with me all the time, `claire`, i just don't like to talk about it.
+- `Claire` used to tell me i loved the event horizon more than i loved her.
+- I gave up my life and my music... `claire`, please don't... don't touch me.
+- `Claire`, `claire`, `claire`, if you're not dead, he's going to assume you're with me.
+- Don't let me dis...i'll just... we're just talking about the... `claire`, bob bar...
+- In all fairness, ethan, `claire` was never convinced her charms would work with you.
+                 

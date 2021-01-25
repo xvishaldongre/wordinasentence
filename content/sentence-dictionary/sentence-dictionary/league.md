@@ -1,0 +1,72 @@
+---
+title: "league in a sentence | league example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "league"
+---
+- It's a `league` record.
+- This is a `league` game.
+- East coast, ivy `league`.
+- Remember little `league`?
+- Hey, you ivy `league` shit.
+- She's out of your `league`.
+- Tonight your `league` night?
+- ...in the champions `league`.
+- You are out of your `league`.
+- God--what a big `league` move.
+- If what's during `league` play?
+- Of patriot `league` basketball.
+- He was in a `league` of his own.
+- This is a `league` game, smokey!
+- Boss of the world crime `league`?
+- You're in `league` with barbossa!
+- Even this is out of your `league`.
+- I'm king of my rotisserie `league`.
+- Next stop is second `league` tryout.
+- The negro `league` don't pay so good.
+- You're out of your `league`, marylin.
+- Big `league` pitchers don't use these.
+- Somebody is in `league` with the cops.
+- Oh man, you're way out of our `league`.
+- It's your first major `league` game sal.
+- Geller, this is way out of your `league`.
+- Lane's closed big fellah, `league` night.
+- That reef is less than a `league` distant.
+- The `league` of families leans on congress.
+- He was some kid i knew from little `league`.
+- I wish i did, but you're out of my `league`.
+- ...through the ranks of the second `league`.
+- I believe that's out of lariviere's `league`.
+- I made a deal with some minor `league` bad boys.
+- There might not be any little `league` tomorrow.
+- Vector wants you to try out for second `league`.
+- Now we get 'em from carnegie-melon, ivy `league`.
+- A black man playing big `league` ball is something.
+- I-- they did when they were in the carolina `league`.
+- No more pissant basin `league` bullshit for us, hunh?
+- Jesus, jack, this is a `league` match, for god�s sake!
+- You got two minor `league` home run records don't you?
+- I'm supposed to umpire a little `league` game tomorrow.
+- There was a major `league` scout there watching me, too.
+- Don't play with me dear, you're way out of your `league`.
+- Corbach is only a `league` off, let us push on for corbach.
+- You blow their brains all over your nice ivy `league` suit.
+- You don't really think tuttle and the girl are in `league`?
+- I'm strictly minor `league`... except for the fucked-up part.
+- Pop, there's no way an ivy `league` team is going all the way.
+- Well, of course, i, uh, it's out of my `league`, criminal stuff.
+- What do they do to you boys in those ivy `league` schools, anyway?
+- I want to take out kids to little `league` together up foley field.
+- Even if it's the carolina `league`-- this is a chance to play everyday.
+- I told him if it was during `league` play-- what if it's during a game?
+- We can't let 'em get to this bush-`league` pitcher and start pumping him.
+- If he's as good as i think he is, he can move into the big `league` later.
+- But you know these back-stabbing ivy `league` intellectuals, they can't ...
+- Ace got my son, little nicky, involved with little `league`, and it was great.
+- If you hit twenty homers this year you'll be the all time minor `league` champ!
+- Everybody respects you for what you've done for scouting and the little `league`.
+- There's no such thing as "ex-cia," john -- they're all ivy `league` establishment.
+- The winner tonight will make one step closer to qualifying for the champions `league`.
+- Little abraham will go to stanford for college, batya will go ivy `league`, maybe vassar.
+- Oh, you know - junior `league` - charity bazaars - i used to sell kisses for the milk fund.
+                 

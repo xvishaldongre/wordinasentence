@@ -1,0 +1,107 @@
+---
+title: "point in a sentence | point example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "point"
+---
+- Do you have a `point`?
+- How about the `point`?
+- No, that's my `point`.
+- Now that's my `point`.
+- `Point` the gun at me!
+- So what's the `point`?
+- That's a good `point`.
+- There'd be no `point`.
+- They `point`, i shoot.
+- Vasquez, take `point`.
+- What'd be the `point`?
+- ...what's the `point`?
+- You made your `point`.
+- He's got a `point`.
+- That's the `point`.
+- At `point` blank range?
+- At this `point`, a nap.
+- But what's the `point`?
+- For real, `point`-five.
+- He does have a `point`.
+- Isn't that the `point`?
+- It's charlie's `point`.
+- I was making a `point`.
+- She'll get the `point`.
+- So what's your `point`?
+- That's not the `point`!
+- That's not the `point`.
+- Yes, i get the `point`.
+- You missed the `point`.
+- But i take your `point`.
+- Forty-nine `point` four.
+- Hmm, you have a `point`.
+- Meet `point`'s up ahead!
+- No, jimmy has a `point`.
+- Now, here's the `point`.
+- Okay, i get the `point`.
+- `Point` that out to her.
+- So, what's your `point`?
+- So, what�s your `point`?
+- Straight to the `point`.
+- Takes a turning `point`.
+- That's my whole `point`.
+- Then what's the `point`?
+- The `point` sounds fine.
+- Which isn't the `point`.
+- You got a `point` there.
+- You made your `point`...
+- But he has got a `point`.
+- Go back to green `point`.
+- I didn't see any `point`.
+- I get the `point`, kiddo.
+- I'll come to the `point`.
+- My `point` is, - a child?
+- Okay, you have a `point`.
+- That's not a bad `point`.
+- That's the `point`, hank.
+- That's the whole `point`!
+- That's the whole `point`.
+- Well, i ... good `point`.
+- What's your `point`, wes?
+- ... you have a `point`...
+- You have a `point` there.
+- You've made your `point`!
+- You've made your `point`.
+- Can we get to the `point`?
+- Don't `point` it at james!
+- Evil is a `point` of view.
+- Four your `point` of view.
+- I can see kalen's `point`.
+- I mean that's the `point`.
+- I'm just making a `point`.
+- I said that's the `point`!
+- No, no, here's my `point`.
+- `Point` is, things change.
+- `Point` your toe this way.
+- That's beside the `point`.
+- That's exactly my `point`.
+- Well, she's got a `point`.
+- What's your `point`, dude?
+- You got a `point` there...
+- At another `point` in time?
+- But that's not the `point`!
+- I mean, you get my `point`.
+- I said, get to the `point`.
+- Is there any `point` to it?
+- I think he's got a `point`.
+- Luke's got a `point`... ...
+- Please come to the `point`.
+- Sorry, what's your `point`?
+- That's a very good `point`.
+- That's the `point`, dickey.
+- There's my `point` exactly.
+- Uh huh...one `point` seven.
+- <u>what's</u> your `point`.
+- What's the `point` of that?
+- What's the `point` of this?
+- You're missing the `point`.
+- You've got a `point` there.
+- Austin, what's your `point`?
+- But i don't see the `point`.
+                 

@@ -1,0 +1,91 @@
+---
+title: "super in a sentence | super example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "super"
+---
+- `Super` hero like even.
+- It's a `super`-organism.
+- Jason: `super` friendly.
+- The guy is `super` cool!
+- You're `super` smart.
+- But daddy's `super` sick!
+- I'm not just `super` fat!
+- Ooh, `super` bowl in july!
+- You're not a `super`-hero.
+- Our rims are `super` salty.
+- It's going to be `super` fun!
+- The `super` bowl, if you will.
+- His pupils are `super` dilated.
+- Like a `super` secret spy code.
+- `Super` religious white people.
+- Baby videos are `super` popular.
+- `Super`'s the one made the rule.
+- Because it's all so `super`-cool.
+- Really angry and `super` uptight.
+- You know that `super` bowl party?
+- She was always `super`- nice to me.
+- Tony, you lost another `super`-bot?
+- Whoa, that thing is `super` creepy.
+- But he was `super`-gentle, you know?
+- She's, like, `super` well-respected.
+- We're taking it up with the `super`.
+- I told you, man, `super` bowl sunday.
+- Uh, yes, uh, thank you, `super`-fish.
+- No, it has to be like a `super` magnet.
+- Please tell him it's `super` important.
+- Rez is `super` psyched, so it'll be great.
+- This "`super`" man is nothing of the kind.
+- I think it's such a `super` thing to study.
+- It sounds like you're doin' really `super`.
+- Hey, that's `super` i got all my signatures.
+- Why did i get these `super` shag floor mats?
+- I didn't know, but i'm `super` self-involved.
+- The third one was the `super`-bitch - maxine.
+- God, these apartments are `super` expensive...
+- One day, she asked me if i wanted `super` sex.
+- How do i ever think i can fool the `super` guy.
+- You're so cute when you're `super` controlling.
+- He joined the team `super` late, hands off of him.
+- Not every girl makes a `super`-hero's night table.
+- `Super`'s busy -- with your negotiatin' committee.
+- Locks are a `super` important part of escape rooms.
+- Light to `super`-middleweight, as my body developed.
+- I need to look `super` hot to win back jimbo's heart.
+- "dear, you are a woman of `super` strength and beauty.
+- We're picking up the new `super` just like i told you.
+- I understand you're hot, you're `super`-fuckin' pissed.
+- I know, i know, but it'd be `super` weird if i'm not there.
+- Uh... that's `super` important, because friends... oh, god.
+- I got a `super`--special birthday present for you this year.
+- It must have been a `super` effort to get out of bed, clark.
+- The wind was blowin' `super`-hard and i wasn't dressed warm.
+- Took some talking to convince your `super` i was a relative.
+- She's `super`-nice yeah, no, she's a go-getter, all right.
+- So, um... we are tipping thanksgiving `super` small this year.
+- We've been through ten `super` bowls, was if he did one thing.
+- All right you�re the `super` sleuth, what do you want, a medal?
+- I can never keep them all straight - was she the `super`-bitch?
+- The `super` said he'd seen her before but she didn't live here.
+- We thought it was will because his body was `super` decomposed.
+- It's okay, mike... you were such a `super` lady... and then i...
+- As i push my palm into your back, no, i'm sure it's `super` safe.
+- How 'bout i come next sunday and watch the `super` bowl with you?
+- It's probably gonna take a `super` genius to crack it, but... hmm.
+- On their `super`-exclusive multi-family vacation they killed them.
+- Please tell me i'm gonna get to see the jets win the `super` bowl.
+- Donald, this park was not built to carter only to the `super` rich.
+- Maybe a `super` bowl quarterback or, no, maybe a fucking rock star.
+- Making yourselves into some sort of "team" of `super`-powered freaks.
+- The `super`'s just given me the sweetest dressing down i've ever had.
+- Ah... you don't even have any powers, you're just `super` good at air.
+- Every time i look at you, the baby starts kicking me `super` hard.
+- A spaghetti del mare for the `super` dedicated traveling insurance agent.
+- If gus gorman can push the right buttons we already have a `super`-tanker.
+- I believe you saw some `super` weird stuff, totally, we must warn our panzers!
+- Have you guys been listening to k- billy's `super` sounds of the seventies weekend?
+- And has access to a `super`-powered handcrafted radio tower, what did we... talk about?
+- Every oil tanker and `super`- tanker and `super`-duper-tanker in the ocean is controlled.
+- It's a stone killer-diller get-down get-it-on and twice-on-sunday `super` mutha computer.
+- I want to tell you the `super` fixed the leaky pipes and sealed up that hole in your wall.
+                 

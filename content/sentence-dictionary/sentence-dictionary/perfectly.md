@@ -1,0 +1,107 @@
+---
+title: "perfectly in a sentence | perfectly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "perfectly"
+---
+- He's `perfectly` tame.
+- It's `perfectly` safe.
+- `Perfectly` all right.
+- She's `perfectly` safe.
+- We see you `perfectly`.
+- I'm `perfectly` capable.
+- It's `perfectly` normal.
+- It works `perfectly` now.
+- I understand `perfectly`.
+- Sounds `perfectly` clear.
+- That's `perfectly` clear.
+- They're `perfectly` safe.
+- But i am `perfectly` sane.
+- He looks `perfectly` fine.
+- Oh, it's `perfectly` safe.
+- `Perfectly` not confusing.
+- They are `perfectly` fine.
+- I'm `perfectly` calm, dude.
+- You understand `perfectly`.
+- It's a `perfectly` good car.
+- The plan worked `perfectly`.
+- You are `perfectly` healthy.
+- You're `perfectly` safe now!
+- Hey, you're `perfectly` safe.
+- I understand you `perfectly`.
+- Our device works `perfectly`!
+- That's `perfectly` all right.
+- I think it's `perfectly` clear.
+- That would suit me `perfectly`.
+- [`perfectly` friendly, my dear.]
+- ...that's `perfectly` all right.
+- Yes, that's `perfectly` correct.
+- ... that's `perfectly` all right.
+- Why, that's `perfectly` dreadful.
+- Ruin a `perfectly` good story?
+- Not so `perfectly` if you noticed.
+- "the rocket performed `perfectly`.
+- You had a `perfectly` good motive.
+- Everyone is so `perfectly` natural.
+- You know `perfectly` well they are.
+- You know, these fit... `perfectly`.
+- I'm `perfectly` fine, and safe, too.
+- No, i-i've been `perfectly` healthy.
+- I'm `perfectly` willing to go in raw.
+- So it's all worked out `perfectly`...
+- Yes, mr. zorg, i hear you `perfectly`!
+- I mean, it's `perfectly` fine out here.
+- In a `perfectly` proper way, of course.
+- It's a `perfectly` good word, ain't it.
+- Other than that i'm `perfectly` normal.
+- You can spoil a `perfectly` nice dance.
+- What you're doing is `perfectly` normal.
+- It's `perfectly` normal to feel confused.
+- It will be `perfectly` all right, walter.
+- Two years if everything goes `perfectly`.
+- I thought i made myself `perfectly` clear.
+- You know `perfectly` well what's going on.
+- I'll be `perfectly` honest with you, ma'am.
+- They're `perfectly` harmless, just willful.
+- Barbara's a `perfectly` good name, isn't it?
+- I know `perfectly` well how little i can do.
+- Those were `perfectly` good fries, hamilton.
+- It sounds like a `perfectly` safe investment.
+- It's `perfectly` normal for a child to dream.
+- You played it `perfectly`, sir -- cocksucker!
+- `Perfectly` balanced, as all things should be.
+- I'm `perfectly` calm, i'm a normal human being.
+- She's `perfectly` healthy, don't give her ideas.
+- Well, i think that's `perfectly` understandable.
+- And yet she disguised her intentions `perfectly`.
+- Lampone's a good man; he's operating `perfectly`.
+- I `perfectly` understand where you're coming from.
+- Where they'll be `perfectly` preserved - mount up.
+- But you're `perfectly` fine ah, get me out of here.
+- It `perfectly` describes the new foreign secretary.
+- You've made your point `perfectly` clear, mr. kane.
+- My clothes have always been `perfectly` serviceable.
+- Now mother, your attitude is `perfectly` ridiculous.
+- _ this avocado will be `perfectly` ripe in two days.
+- To be `perfectly` honest, i haven't the vaguest idea.
+- `Perfectly` certain, because i shall make him tremble.
+- The man from the tribune seemed `perfectly` satisfied.
+- What i did with those companies was `perfectly` legal.
+- But nobody fits `perfectly`, everyone is an adjustment.
+- Enola seems to be surviving `perfectly` well on her own.
+- I understand `perfectly`, count d'algout gave you a dog.
+- The injector performs `perfectly` in every simulation...
+- It's just a little blow out -- we'll be `perfectly` safe.
+- No matter what happens, he makes me feel `perfectly` safe.
+- All the forces of the universe tied together-- `perfectly`!
+- Honey, do you have to spoil a `perfectly` wonderful morning.
+- I think it's time we got one thing `perfectly` clear, willa.
+- ...but i'm `perfectly` willing to accept your current choice.
+- What i have in mind is massage--a `perfectly` decent massage.
+- When you just lie `perfectly` still and let me do everything.
+- Genesis was `perfectly` named: the creation of life not death.
+- Other than feeling slightly embarrassed, i'm `perfectly` fine.
+- The letter -- to the apartment -- it matches mine `perfectly`.
+- You threw him the lighter and somehow you're `perfectly` fine?
+- Benjamin -- i thought i made myself `perfectly` clear about this.
+                 

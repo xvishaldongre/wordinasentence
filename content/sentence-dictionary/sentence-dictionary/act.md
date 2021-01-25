@@ -1,0 +1,107 @@
+---
+title: "act in a sentence | act example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "act"
+---
+- It's out of the `act`.
+- And you `act` like one.
+- He tries to `act` cool.
+- There's no first `act`.
+- You do `act` different.
+- Don't `act` natural.
+- Does it `act` as a drug?
+- Don't `act` so -- crazy.
+- Hamlet, `act` i scene 4.
+- They incite us to `act`.
+- This is an `act` of war.
+- Try to `act` cool, okay?
+- Yes, in the third `act`.
+- You don't `act` like it.
+- You don't `act` like it?
+- You have the last `act`?
+- You just `act` like one.
+- `Act` as a gentile would.
+- Don't `act` so surprised.
+- Lasher will `act`, rowan.
+- That was a brave `act`...
+- Y'all just `act` natural.
+- You can `act` like a man!
+- This is a class `act`!
+- But they `act` like roads.
+- It's an `act` of defiance.
+- We are not a saloon `act`.
+- Welcome tothe final `act`.
+- `Act` like nothing's wrong.
+- How am i supposed to `act`?
+- Solid, solid novelty `act`.
+- The physical `act` of love.
+- Veronica is into his `act`.
+- We don't need an `act` two.
+- You must allow us to `act`.
+- `Act` one albania denies it.
+- I think you're all an `act`.
+- This is an `act` of treason!
+- This isn't an `act`, murphy.
+- What about the second `act`?
+- You don't try to `act` cool.
+- Because you `act` like a pig.
+- Did you like the first `act`?
+- `Act` like you hardly know me.
+- I know you didn't `act` alone.
+- Then let's `act` like friends.
+- What am i - the closing `act`?
+- What kind of an `act` is this?
+- But i didn't `act` fast enough.
+- If you don't `act` now... finn?
+- Like i've never seen him `act`.
+- No, you just `act` like you do.
+- To the way you `act` around me.
+- You must not `act` impetuously.
+- Did i `act` stupidly last night?
+- I'll `act` like i do until i do.
+- Was the third `act` too intense?
+- What do you mean, only an `act`?
+- You all `act` like two roosters.
+- `Act` <u>two</u> ... the... uh...
+- Ever heard of the sullivan `act`?
+- Nah, it was a premeditated `act`.
+- Neil, you know you want to `act`.
+- So, soggy, uh, what's your `act`?
+- That third `act` had me in tears.
+- But you `act` like you're at home.
+- Don't `act` so goddamned innocent!
+- If you think that, `act` that way.
+- Man, `act` like this is your home.
+- You can drop the `act`, it�s over.
+- You gotta get your `act` together.
+- But not when you `act` like a jerk.
+- Think it, `act` it, know it, be it.
+- Why, i wouldn't even have to `act`.
+- Death can be an `act` of unity, too.
+- I'll `act` as the sword's custodian.
+- We've got to catch him in the `act`.
+- I have to `act` like nothing's wrong.
+- I'm not as dumb as i `act`, you know.
+- That whole third `act` has got to go.
+- Then you can learn to `act` normally.
+- You getting into the `act` too, toto?
+- You're talking about an `act` of god.
+- Because they didn't `act` fast enough.
+- If we can't `act` on what he tells us?
+- It was -- in its way -- a noble `act`.
+- So you're gonna `act` salty all night?
+- The enjoyment of the gratuitous `act`.
+- You `act` as if you created the world!
+- You are not allowed to `act` this way.
+- You insult them and `act` like a bore.
+- You've got to get your `act` together.
+- A refusal is not the `act` of a friend.
+- I wouldn't say anything--i would `act`.
+- The bed looks like a dead animal `act`.
+- They don't `act` like what you'd think.
+- They look at you to see how to `act`...
+- You are committing an `act` of treason!
+- Your `act` only works with an audience.
+- Even when they try to `act` like heroes.
+                 

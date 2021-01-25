@@ -1,0 +1,107 @@
+---
+title: "write in a sentence | write example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "write"
+---
+- Uh, tryin' t' `write`.
+- `Write` what you want.
+- I'll `write` it myself.
+- I'll `write` your name.
+- It's a tax `write` off.
+- I `write` like a child.
+- Now `write` the ticket.
+- We didn't `write` them.
+- Why didn't you `write`?
+- You `write` gracefully.
+- Don't `write` that part.
+- He made me `write` them.
+- I couldn't `write` that.
+- If he didn't `write` it?
+- I'll `write` it for you.
+- Just to `write` it even.
+- Let me `write` a letter.
+- What do i `write` about?
+- When did you `write` it?
+- `Write` from your heart.
+- Don't forget to `write` !
+- Except `write` our wills.
+- Just `write` another one.
+- `Write` the truth gently.
+- You can `write` that off.
+- And i can `write` all day.
+- I can't `write` it, mabel!
+- I'll never `write` it now.
+- You `write` what you know.
+- Another hour to `write` it.
+- Didn't you `write` it down?
+- I couldn't `write` anymore.
+- I'll `write` them a letter.
+- I'll `write` you ten poems.
+- I merely `write` the stuff.
+- Man, could he `write` code.
+- Maybe `write` a little bit.
+- Now you'll have to `write`.
+- `Write` her another letter.
+- You promise you'll `write`.
+- You wanna `write` about me?
+- A tax `write`-off, actually.
+- A woman can `write` a check.
+- I have to `write` this down.
+- I'll have ned `write` it up.
+- I `write` for you sometimes.
+- Now i have to `write` it up.
+- Then i'll `write` about you.
+- We could co-`write` a paper.
+- You'll `write` your book.
+- Did your daughter `write` it?
+- I can't `write` this anymore.
+- I'll `write` it down for you.
+- Now `write` down the address.
+- `Write` down drexl's address.
+- You gonna `write` me a check?
+- You talk same as you `write`.
+- But i wanna `write` about her.
+- Couldn't `write` his own name.
+- Did he `write` you about this?
+- Did you just `write` that now?
+- Going to `write` a book on it.
+- He just likes to `write` code.
+- I could `write` my own ticket.
+- I don't `write` the questions.
+- I hope you can see to `write`.
+- I never could `write` letters.
+- Lemme `write` it down for you.
+- Then, you <u>`write`</u> that.
+- They wasn't people to `write`.
+- Who do you want to `write` to?
+- I'd come to <u>`write`</u>.
+- But you implored me to `write`!
+- I can only `write` on a manual.
+- Uh, i didn't `write` any songs.
+- When did you `write` the check?
+- Yes, but what didn't i `write`?
+- Yet cannot love nor `write` it.
+- You didn't `write` that figure.
+- And i'll `write` you a tragedy"?
+- Depends what number you `write`.
+- How do you propose i `write` it?
+- I'd have to `write` in an aglet.
+- Something to `write` home about.
+- They'll `write` songs about you.
+- Trying to `write` our report....
+- When will he be able to `write`?
+- Why not let him `write` skywire.
+- `Write` about yourself and anne.
+- You can `write` your own ticket.
+- You didn't `write` that, either!
+- You should try to `write` songs.
+- Don't never `write` nothing down.
+- Do you `write` songs or anything?
+- Do you `write` them now and then?
+- He promises not to `write` again.
+- How do you `write` women so well?
+- I got to `write` my report first.
+- I'll `write` you an introduction.
+- Just wake up and `write` it down.
+                 

@@ -1,0 +1,107 @@
+---
+title: "idea in a sentence | idea example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "idea"
+---
+- I got a better `idea`!
+- I got a better `idea`.
+- I had no `idea`... no.
+- I have a rough `idea`.
+- I have a vague `idea`.
+- It was just an `idea`.
+- That's a great `idea`!
+- That's a great `idea`.
+- Then i have no `idea`.
+- Then we got an `idea`.
+- This `idea` is genius.
+- This is my own `idea`.
+- This was a bad `idea`.
+- This wasn't my `idea`.
+- Was he the `idea` man?
+- What's the big `idea`?
+- Yeah, i got an `idea`.
+- Any `idea` where it is?
+- But it's a nice `idea`.
+- Daddy, i got an `idea`.
+- Good `idea`... kill me.
+- Have a better `idea`?
+- I got an `idea`, snake.
+- I have a better `idea`.
+- I have no `idea` how...
+- Might be a good `idea`.
+- No `idea` why ... drat.
+- Oh, you have no `idea`.
+- Okay, here's an `idea`.
+- That's an `idea` there.
+- That's the `idea`, rat.
+- That's the main `idea`.
+- They'll get the `idea`.
+- This was not my `idea`.
+- Very good `idea`, jack.
+- Was this abby's `idea`?
+- What a charming `idea`.
+- Yes, that's the `idea`.
+- You getting the `idea`?
+- Assa good `idea`, pappy.
+- A stellar `idea`, skull.
+- Begin to get the `idea`?
+- But it was bob's `idea`.
+- 'cause i have no `idea`.
+- Fine, one decent `idea`.
+- Give me a better `idea`.
+- I don't have any `idea`.
+- I got no `idea` of love.
+- I meant about my `idea`.
+- I really have no `idea`.
+- It's asick `idea`, alex.
+- I've got another `idea`.
+- Mike: yeah, good `idea`.
+- That `idea` is over now.
+- That's not a bad `idea`.
+- This was a great `idea`.
+- Was that swann's `idea`?
+- What a brilliant `idea`.
+- What's the `idea`, anne?
+- You got a better `idea`?
+- You've really no `idea`?
+- I have no `idea` why.
+- Any `idea` what happened?
+- Great `idea`, great `idea`.
+- How- whose `idea` was it?
+- I have no fucking `idea`.
+- I might have an `idea`...
+- It's a comfortin' `idea`.
+- It's still a good `idea`.
+- I've got a better `idea`.
+- Now i have a good `idea`.
+- Oh, baby, what an `idea`.
+- Pretend it's your `idea`.
+- Sir, that's a bad `idea`.
+- That it was a bad `idea`.
+- That's a terrific `idea`.
+- That's not a good `idea`.
+- That was never my `idea`.
+- This scam was her `idea`.
+- Was that simone's `idea`?
+- Who gave you this `idea`?
+- You got the wrong `idea`.
+- You have a better `idea`?
+- Bobby -- i have an `idea`.
+- Course it's a good `idea`.
+- Don't -- i have no `idea`.
+- Have you any `idea` where?
+- He says it's a bad `idea`!
+- Hey, i just got an `idea`.
+- Hey, that's a good `idea`.
+- I have an `idea` for that.
+- I...i have no `idea`, sir.
+- I like the `idea` of that.
+- I think it's a bad `idea`.
+- It's a cool `idea`, misty!
+- It's jerry's worst `idea`.
+- It was my father's `idea`.
+- It was my `idea`, grandma.
+- It was my parents' `idea`.
+- Papa, is this your `idea`?
+                 

@@ -1,0 +1,83 @@
+---
+title: "spoken in a sentence | spoken example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spoken"
+---
+- Has roger `spoken` yet?
+- She has `spoken` to me.
+- `Spoken` like an author.
+- The virgin has `spoken`!
+- ... -- oz -- has `spoken`!
+- The clitoris has `spoken`.
+- The majority has `spoken`.
+- We haven't `spoken` since.
+- `Spoken` like a protestant.
+- `Spoken` like a press agent.
+- Using a `spoken` passphrase.
+- Has ada ever `spoken` to you?
+- I have `spoken` to the queen.
+- Has harry `spoken` with jerry?
+- Speak when you're `spoken` to.
+- `Spoken` like a true believer.
+- He has `spoken` of your mother.
+- You were not to be `spoken` to.
+- I have `spoken` with your father.
+- Are you `spoken` for this evening?
+- `Spoken` like a true psychologist.
+- They haven't `spoken` to this day.
+- We haven't `spoken` in five years.
+- Easily `spoken`... defend ourselves.
+- She's awake but she hasn't `spoken`.
+- Has she ever `spoken` to you about me?
+- He hasn't `spoken` a word in 15 years.
+- I've never `spoken` for anything else.
+- But not once have we `spoken` about it.
+- `Spoken` like a spook..you ever afraid?
+- What happened to speak when `spoken` to?
+- You haven't even `spoken` a word to her.
+- I haven't `spoken` to him for six months.
+- I don't like the way drew `spoken` to you.
+- So don't speak before you are `spoken` to!
+- You're the fifth hospital i've `spoken` to!
+- Have you `spoken` to anyone else about this?
+- The lord has `spoken` to you twice this day.
+- Every word i have `spoken` will be confirmed.
+- I can't go in, i've `spoken` on this too much.
+- Unless `spoken` to, ain't that right, horrace.
+- I just wish i'd `spoken` to you before tonight.
+- It was asubject not to be `spoken` of, captain.
+- My father and i haven't `spoken` in three years.
+- Were any other words `spoken` that you remember?
+- I have `spoken` to the klingon high council, sir.
+- I believe i've `spoken` to one of you on the phone.
+- I've `spoken` with your husband about his survival.
+- `Spoken` like a man who gave up jets for spaceships.
+- You were demoted... those words were `spoken` by me.
+- Has she `spoken` to you of her father and her mother?
+- I have never heard an unkind word about her `spoken`.
+- I've `spoken` to washington, mrs. lampert -- yes -- ?
+- Then, how -- he would not have `spoken` of it openly.
+- Reggie -- you haven't `spoken` a word in twenty minutes.
+- Fate has `spoken` to this man in the depths of the night.
+- Looks like the best parts have already been `spoken` for.
+- My rules are you don't speak unless you're `spoken` to.
+- I don't know him personally, but i've `spoken` to his boss.
+- Am i not `spoken` of, still, in every church in new england?
+- It is none of the 678 dialects `spoken` by technological man.
+- Yes, i know what you mean, but i've already `spoken` to ferrari.
+- Just throw up your screw face and don't speak unless `spoken` to.
+- The mayor and i have already `spoken` and we see eye to eye here.
+- I mean, i let him take me out and stuff, but i ain't `spoken` for.
+- Since you two've been sentenced, mallory hasn't `spoken` one word.
+- Were i an orator, those are the exact words i would have `spoken`.
+- I learned it so well that we've hardly `spoken` for twenty years.
+- I'm afraid you'll have to wait until the police have `spoken` to you.
+- I told her that i had `spoken` to lloyd - and that he was interested.
+- But the nlf has always `spoken` of a strike as a demonstration ... no.
+- I've `spoken` with the judge and he's agreed to release you under my supervision.
+- Did mr. marsh ever tell you that he had `spoken` to miss lawson about his illness?
+- I tell you this acquaintance of mine knows you and she has often `spoken` to me about you.
+- I've already `spoken` to one therapist, his name is henry lipkin and he's a friend of mine.
+- I've `spoken` to friends of mine and my husband's, in harrisburg, in lancaster and hershey.
+                 

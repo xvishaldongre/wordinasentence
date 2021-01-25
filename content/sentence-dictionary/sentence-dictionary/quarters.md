@@ -1,0 +1,55 @@
+---
+title: "quarters in a sentence | quarters example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "quarters"
+---
+- Close `quarters` combat.
+- Here are two `quarters`.
+- In my `quarters`, uhura.
+- I'll be in my `quarters`.
+- I've got four `quarters`.
+- Come to my `quarters` later.
+- Three `quarters` of an hour.
+- Disco blows dogs for `quarters`.
+- Pike should be in his `quarters`.
+- I had them confined to `quarters`.
+- Go directly back to your `quarters`.
+- We'll get you to medical `quarters`.
+- That's three-`quarters` of a century.
+- He wants me to come to his `quarters`.
+- Return to your `quarters` immediately.
+- Ok. everybody, back to your `quarters`.
+- Outside russell's `quarters` right now.
+- Bowman and sixpack...living `quarters`...
+- My yeoman will show you to your `quarters`.
+- You've been to his `quarters`, haven't you?
+- And confined to `quarters` when not at work.
+- Deck four, captain; officers' `quarters`...!
+- I heard the shepherd gave them his `quarters`.
+- You got a telegram from head�`quarters` today.
+- Mr. chekov, i ordered spock's `quarters` sealed!
+- [door closes] who cares about his damn `quarters`?
+- Visitation is still up by two at the three-`quarters`.
+- Then in mister burns' `quarters` he tried to kiss me.
+- Nine, nine and three `quarters` -- that's our prime rate.
+- Uhh... setting the arresting officer's `quarters` on fire.
+- Close `quarters`, no advance layout, ten men, maybe twenty.
+- Hook it up to the phone and drop in five bucks in `quarters`.
+- The men are out of `quarters` - practicing putting out fires.
+- Escort her to `quarters` and have monk prepare a tranquilizer.
+- I remember these `quarters` being bigger clarke is a survivor.
+- Set up mr. sparrow's `quarters`, nice and fine ... in the brig.
+- Now, lieutenant, how would you like to join me in my `quarters`?
+- I'll be in my `quarters` if needed, but i would prefer... aye, sir.
+- I'm three `quarters` of the way up the lot behind the concession stand.
+- It's about three `quarters` of a mile up a big white thing on the left.
+- Exactly what i wanted... setting the arresting officer's `quarters` on fire.
+- I'd just as soon you delete it... go back to your `quarters` that's an order.
+- Three `quarters` of the way up, melton comes even with todd, then passes him.
+- Crew `quarters`, bridge, medical and science labs, hydroponics, what have you.
+- It's this double-standard, the separate `quarters`, the deferential treatment.
+- Actually it's down .2 from the last `quarters` highest, but i think it will pick up.
+- Now you know as well as i do... you're not to entertain visitors in your `quarters`.
+- An energy reading from 'c" deck -- from inside mr. spock's `quarters`... mr. chekov -- ?
+                 

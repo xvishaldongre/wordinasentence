@@ -1,0 +1,56 @@
+---
+title: "Kevin in a sentence | Kevin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Kevin"
+---
+- `Kevin`'s coming back!
+- Find something, `kevin`.
+- `Kevin` left without you.
+- `Kevin`, this is serious!
+- Oh `kevin` -- don't stop!
+- His name's `kevin` mccall.
+- Jesus, `kevin`, rub it in.
+- Put in the `kevin` costner.
+- Who was replaced by `kevin`.
+- She's mrs. `kevin` bannister.
+- It's okay with me, hi `kevin`.
+- `Kevin`...you're not your dad.
+- It's everyone's trick, `kevin`.
+- `Kevin` told me you were upset.
+- I gotta know the truth, `kevin`.
+- I think you're so right, `kevin`.
+- Stay with `kevin`'s grandparents.
+- `Kevin`, my father needs a doctor.
+- Molly and `kevin` will be back soon.
+- Not if they don't catch us, `kevin`.
+- It's `kevin`, i don't want him to see me.
+- Dammit, `kevin`, what's with the attitude?
+- We're already past it, aren't we, `kevin`?
+- Would you like a checkup with dr. `kevin`?
+- I came up here after `kevin`'s father died.
+- I went out with her a week before `kevin` did.
+- `Kevin` and molly are on their way to montana.
+- `Kevin`, i'11 send bean in to keep you company.
+- To make her, you know... say that again, `kevin`?
+- `Kevin`, as long as we... what was that last part?
+- `Kevin`, you're so fuckin' stupid... that's crazy.
+- Or i haven't done enough with it... `kevin`'s fine.
+- `Kevin`'s gone, your daddy's gone, everybody's gone.
+- There's a trick that always works with `kevin` james.
+- `Kevin`, i'm telling you... it was like nothing i've...
+- You guys have to -- `kevin`, it was just a -- attitude?
+- `Kevin` kosar: it signifies style, it signifies success.
+- Sorry i'm late, i got lost dropping ben off at `kevin`'s.
+- `Kevin`, come on, the bus to stifler's is gonna be here soon.
+- I don't care, `kevin`'s a jerk and i don't like him anymore.
+- You know, like rick thieson and `kevin` speck and those burn-outs.
+- `Kevin` flynn is one of the brightest young software engineers at icom.
+- No, `kevin` -- that's the whole thing, that's what i've been realizing.
+- It's what `kevin` called her when he was little... what's this mama shit?
+- It wasn't suppose to happen, i don't know what to say... you and `kevin`.
+- If this was just a little bit looser, i said i was `kevin` smith's father.
+- Don't forget, mrs. higgins wants to talk to you this afternoon about `kevin`.
+- Will, they never get to see `kevin` and a few more days... come home with me.
+- Have you just never had one with `kevin` -- or have you never had one, period?
+                 

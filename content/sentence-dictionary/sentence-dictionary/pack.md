@@ -1,0 +1,107 @@
+---
+title: "pack in a sentence | pack example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pack"
+---
+- Can i help you `pack`?
+- Fumbles in his `pack`.
+- You'll have to `pack`.
+- A `pack` of camels.
+- I'll `pack` us a lunch.
+- Now give me the `pack`.
+- Kids, `pack` his things.
+- The gold's in my `pack`.
+- We might as well `pack`.
+- `Pack` it in six dragons.
+- `Pack` my things, walter.
+- C'mon, `pack` your things.
+- I think i'll `pack` it in.
+- Let me `pack` some things.
+- Madi, `pack` up the rover.
+- `Pack` only what you need.
+- "`pack` up your troubles."
+- They'll search the `pack`.
+- You just `pack` your bags.
+- Now put on the damn `pack`.
+- Help me `pack` for the climb.
+- I'll `pack` my stuff tonight.
+- Let's `pack` up and head out.
+- My dad had to help me `pack`.
+- Sergeant, `pack` your things.
+- But i suggest `pack` up first.
+- You'll have to `pack` quickly.
+- You want me to `pack` for you?
+- A `pack` of wraps, my good man.
+- Hey, thanks for the jet `pack`.
+- Let's just `pack` it up and go.
+- Over you bitches, so `pack` up!
+- `Pack` it up, we're going home.
+- Do you have more in your `pack`.
+- Do you have more in your `pack`?
+- `Pack`, wladek, there's no time.
+- Cereal, man, you owe me a `pack`.
+- Did you `pack` your soccer shoes?
+- `Pack` the bags, we have to move.
+- I had to `pack` all that away.
+- I `pack` up and go somewhere else.
+- `Pack` it into black garbage bags.
+- Just `pack` up your cameras and go.
+- `Pack` of wolves took down a moose.
+- The alpha must care for his `pack`.
+- Get a six-`pack`, share some laughs.
+- I can't do surgery out of my `pack`.
+- Before we `pack` it in for the night.
+- But you gotta give me time to `pack`.
+- Got you a `pack` of mores again, huh?
+- I'll have to `pack` a lot of clothes.
+- Just `pack` up and leave, is that it?
+- My last sergeant lost the com `pack`.
+- I didn't `pack` a giant chocolate bar.
+- I was told ten thousand in each `pack`.
+- `Pack`, darling, get your things, `pack`.
+- He'll see that the `pack`'s been opened.
+- If you want, i got a `pack` in the room.
+- If you want the clothes, `pack` them up.
+- Just to be sure, you can take my `pack`.
+- You want us to `pack` up, we'll `pack` up.
+- I hope you don't mind i took your `pack`.
+- A `pack` of blessings light upon thy back.
+- She left her `pack`, and her tent is in it.
+- You better `pack` it up and get outta here.
+- Do you want me to carry your `pack` for you?
+- `Pack` the money up and put it in the trunk.
+- We tried to follow them, you need to `pack`.
+- Hmm... - do you see a battery `pack` on this?
+- `Pack` of marlboro reds, i'll just flip this.
+- `Pack` some food while i prep for the flight.
+- Were you watching your `pack` on the ride in?
+- I'll `pack` my things and meet you downstairs.
+- `Pack` your things, rent a moving van and git!
+- Today, i want you to interact with the `pack`.
+- We'll `pack` up everything and send it to you.
+- The head's okay, but i could sink a six-`pack`.
+- I rigged it to blow if anyone opened the `pack`.
+- You are all nothing but a `pack` of greedy pigs!
+- How 'bout springing a `pack` of cigarettes loose?
+- Well he has nothing to `pack`, but he is leaving.
+- What do you do for a living you `pack` a shotgun?
+- Just had to get the `pack` unhooked from the line.
+- `Pack` up anything else you want to take with you.
+- Should we all just `pack` up again and move back?!
+- They came with a free gift coupon in every `pack`.
+- Don't use the phone, just `pack` a bag and get out.
+- We wait until first light, `pack` your bags, helen.
+- Now, `pack` your bags and get the hell out of there.
+- Okay, kid, i'm gonna teach you how to `pack` got it.
+- I'm gonna `pack` my bags and go back to my own place.
+- I'm not gonna tell you what to `pack`, but be brutal.
+- What a `pack` of lies you told us about those porters!
+- Now `pack` up a few basics and -- i fell in love miles.
+- Patients are rationed to one `pack` of cigarettes a day.
+- Two-fifty a `pack` and i go through 'em like toothpicks.
+- What, did you think he was raised by a `pack` of wolves?
+- I'll go `pack` our bags, get the gear, be back in an hour.
+- You may think we are a `pack` of superstitious dullards...
+- I picked me up a `pack` of vantages before we left the cape?
+                 

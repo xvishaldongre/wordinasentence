@@ -1,0 +1,107 @@
+---
+title: "pissed in a sentence | pissed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pissed"
+---
+- Because i am `pissed`.
+- Man they got `pissed`.
+- Oh boy, am i `pissed`.
+- You're not... `pissed`?
+- He was getting `pissed`.
+- Was he all `pissed` off?
+- Why would i be `pissed`?
+- Because i'm `pissed` off.
+- Doc is gonna be `pissed`.
+- Like you're `pissed` off.
+- You were pretty `pissed`.
+- Uh, he's `pissed` off.
+- Are you `pissed` about al?
+- Boy, you must be `pissed`.
+- I can't say `pissed` off?!
+- It's already `pissed` off.
+- Now, he's really `pissed`.
+- You're not still `pissed`?
+- I'm really `pissed`, pablo.
+- I told ya he'd be `pissed`.
+- Spanky's gonna be `pissed`.
+- Spanky's gonna be `pissed`?
+- They're pretty `pissed` off.
+- You're `pissed`, that's all.
+- Helen's going to be `pissed`.
+- Husband gettin' `pissed` off.
+- He gets it, but he's `pissed`.
+- I'm more than `pissed`, margie.
+- Looks like we `pissed` her off.
+- I'm really `pissed` off, george.
+- She's gonna be fucking `pissed`.
+- Grounder princess looks `pissed`.
+- He's still `pissed` off about it.
+- It `pissed` off a lot of parents.
+- She fled, you're not... `pissed`?
+- You jerking off or just `pissed`?
+- Your dad must be really `pissed`.
+- Fuckin' `pissed` in his topsiders.
+- Don't get `pissed` off with me now!
+- How can i be `pissed` at you, tony?
+- I'm a whole lot more than `pissed`.
+- Takin' your truck `pissed` you off?
+- Roger, i'm starting to get `pissed`.
+- This really `pissed` him off, sonny.
+- Either i just `pissed` my pants or...
+- I'd be `pissed` off too if i was her.
+- I think she gets that you're `pissed`.
+- He had every right to be `pissed`-- hey!
+- You pet's `pissed` i killed its brother.
+- Does she sound `pissed`, scared, hostile?
+- Yeah dude, why is walter so `pissed` off?
+- Fernando wasn't `pissed` off at everybody.
+- I don't know... but i think he's `pissed`.
+- Never `pissed` holding a girl's hand, jude.
+- You seem `pissed` off all the time, though.
+- All women are `pissed` off, man, all of 'em.
+- Don't you think they're going to be `pissed`?
+- I can't believe tommy's still `pissed` at me.
+- She's really going to be `pissed` if i don't.
+- I have a feeling that really `pissed` him off.
+- No, but she's definitely `pissed` and hostile.
+- If he hadn't `pissed` his pants, we woulda won.
+- I know... wouldn't you be totally `pissed` off?
+- My duty as a human being is to be `pissed` off.
+- Boy is he `pissed` he missed all the excitement.
+- Jimmy was so `pissed` he didn't even say goodbye.
+- She's still `pissed` at me and took it out on you.
+- When you're really `pissed` off, you want it back?
+- Hell, kennedy's `pissed` cuba away to the russians.
+- ♪ he'll rip your lungs out, jim ♪ i'm not `pissed`.
+- _ like a giant `pissed` all over jack's bean field.
+- Jesus christ is coming back and he's really `pissed`.
+- I understand you're hot, you're super-fuckin' `pissed`.
+- Kind of funny, i thought he'd be `pissed` as hell at me.
+- Because i'm getting two things: `pissed` off and curious!
+- He got so `pissed` that night.... you make sure they come?
+- He `pissed` on the rug all the time, but i still kept him.
+- When you're his age you'll still be `pissed` off about him.
+- I guess gale's going to be `pissed` she missed her exclusive.
+- If we don't the owner of that movie house gets `pissed` off.
+- I'm `pissed` too, but i'm not like "twenty-five to life" `pissed`.
+- Goldsmith's gonna be plenty `pissed` at losing one of her babies.
+- She sounded more ... `pissed` off -- angry -- than upset or afraid.
+- You're not still `pissed` off about the switzerland thing, are you?
+- I am different, it's just that i just got `pissed` off...that's all.
+- Then momo gets `pissed` for wasting his time and we don't need that.
+- No, no, i hadn't planned on going, it's just mickey will be `pissed`.
+- Beat you so bad that you `pissed` blood and couldn't walk for a month.
+- I can do it with one phone call, and i'm `pissed` enough to do it now!
+- That guy's wife must be pretty `pissed` off to play a trick like that.
+- He's `pissed` them off so much now that nobody can make a move anymore.
+- All i know is maxie's still `pissed` at me cause i sold his fucking van.
+- I bet him he couldn't set himself on fire and now he's all `pissed` off!!
+- I'm just `pissed` enough, maybe i'll rip the neck off my own grandmother.
+- Not that you had it bad but being that `pissed` that so many had it good.
+- You sound like betty, all `pissed` off because archie is taking veronica.
+- Then when he's `pissed` as hell, we're gonna drop the tape in his lap.
+- It doesn't hurt you when somebody pisses on you, it just `pissed` you off.
+- O-o-o-oh... no, kid, it was my own stupidity, that's what `pissed` me off.
+- You're just `pissed` off heard the blast, figured you could use some help.
+                 

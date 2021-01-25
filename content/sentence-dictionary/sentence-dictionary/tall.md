@@ -1,0 +1,80 @@
+---
+title: "tall in a sentence | tall example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tall"
+---
+- He's four feet `tall`.
+- How `tall` are you?
+- She's four feet `tall`.
+- One `tall`, decent body.
+- Just over six feet `tall`.
+- The `tall` trees... where?
+- No, it's in a `tall` dresser.
+- Oh, so this is a `tall` tale?
+- That `tall`, bright building.
+- They ain't married a'`tall` .
+- One is like a `tall` princess.
+- A six-foot-`tall` bunny rabbit.
+- He's white and six feet `tall`.
+- No, it was in a `tall` dresser.
+- `Tall`, short-haired, scary eyes.
+- Walk with us and you walk `tall`.
+- Because he's not forty feet `tall`.
+- [miss harrison] stand `tall`, girl.
+- I thought you were very very `tall`.
+- `Tall` her he ran away with a broad.
+- So i'm not as `tall` as you expected?
+- They are so <u>`tall`</u> and simple.
+- Even with lifts i'm never that `tall`.
+- It's supposed to be 22 stories `tall`.
+- Tell me something: how `tall` are you?
+- Sure you're `tall` enough for that ride?
+- You're wall to wall and tree top `tall`.
+- I thought he was a big `tall` fat fellow.
+- Only thirteen and already six feet `tall`.
+- Well, a `tall` handsome ubangi, i suppose.
+- Okay, how `tall` did you <i>used</i> to be?
+- This doctor, was he `tall`, with dark hair?
+- What are you, about a fifty big and `tall`?
+- You fell out of the `tall` tower you creep!
+- A `tall` texan with a twenty-nine inch waist.
+- Tom, i jus' don't feel like nothin' a `tall`.
+- `Tall` knight we are the knights who say "ni"!
+- `Tall` guy, not that good-looking, needed saving.
+- You've grown so `tall`... so `tall` in the last year.
+- The `tall` one, the redhead, she left me a huge tip.
+- That's her--`tall` hungry woman with fire in her eyes.
+- I'm not that `tall` or big, but i'm quick as lightning.
+- I'm `tall`, dark and handsome, you're third world ugly.
+- Bucket letter, `tall` man, i know how to stop the attack.
+- But brother bembry says i'm `tall` enough for a `tall` man.
+- That's the big `tall` one, the fellow with the moustache.
+- A girl comes up to me that was real `tall`, taller than me.
+- Big `tall`, fat fellow, he tried to sell me life insurance?
+- Dark or fair, `tall` or short, fat or thin, tough or tender?
+- Grow up `tall`, and change, and fall to replenish the earth.
+- That `tall` drink of water with the silver spoon up his ass.
+- Too `tall`... too short... and this guy doesn't work at all.
+- Your uncle had a weakness for dark ones, `tall` and stately.
+- He was `tall`, thin, pleasant, and had a moustache like mine.
+- Is it true the mountains are so `tall` you can't see the tops?
+- If it's the `tall` man -- he had one of those hair transplants.
+- Most mountain-climbers remember how `tall` that mountains were.
+- Well, i could go for a `tall` glass of polar bear milk right now.
+- I guess a lot of those `tall` buildings we saw this morning are new.
+- He was `tall`, and thin, and like a shadow, his face was just a blur.
+- You know: strong, gentle, `tall` men with bright blue eyes and square.
+- He said you had horns and a `tall`, mr. webster, but i ain't seen 'em yet.
+- He's scared of that seven-foot-`tall` russian freak - to get my wife back.
+- That, a coupla perks, and you can leap `tall` buildings in a single bound.
+- For the first time ever on the amazing place, - `tall`, blond, not smiling.
+- You don't have enough, you can't pee in the `tall` weeds with the big dogs.
+- Home to a nuclear power plant and an active volcano, i thought i was `tall`.
+- Then, near the cabin, a very `tall` mast with a little cabin for the lookout.
+- Captain rob is seven feet `tall`, wears an eye patch, got a hook for a hand...
+- The mountain was very `tall` and very scary, every detail of your terrible plan.
+- I am ergo the magnificent, short in stature, `tall` in power, etcetera, etcetera.
+- Uploaded by corn `tall` i would really like to be with my wife… i'll kill cadogan.
+- You'd have to see for yourself-- --the prairies--the wind leaning on the `tall` grass-- no.
+                 

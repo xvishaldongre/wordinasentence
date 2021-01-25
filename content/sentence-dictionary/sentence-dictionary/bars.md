@@ -1,0 +1,55 @@
+---
+title: "bars in a sentence | bars example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bars"
+---
+- Julian `bars` the way.
+- Put him behind `bars`!
+- What's with the `bars`?
+- You know, piano `bars`.
+- Back against the `bars`.
+- It was the `bars`, then.
+- It must've been the `bars`.
+- Have you checked the `bars`?
+- I went to a few `bars` first.
+- Drunk guys in `bars` are good.
+- Any candy `bars`, anything sweet?
+- The `bars` don't open until eight.
+- Kicks the `bars` out of the window.
+- Girls left `bars` with ted bundy too.
+- More walls, more `bars`, more guards.
+- We put a lotta bad guys behind `bars`.
+- The judge should have put you behind `bars`!
+- Roper, we're into it... and what about `bars`?
+- But the kids on the monkey `bars` are climbing.
+- Chapter one: "a childhood behind golden `bars`.
+- During that whole scene i just drank in `bars`.
+- Run a 60- room hotel with `bars` on the windows.
+- Cigarettes, candy `bars`... pcp, crack... "materiel"?
+- Is that why you'd like to see everyone behind `bars`?
+- But, trent, all the parties and `bars`, they all suck.
+- Did he frequent those pathetic `bars` on camac street?
+- Do not reach through the `bars`, do not touch the `bars`.
+- We can talk to neighbors to see what `bars` he frequents.
+- Reputed mobster fat tony d'amico is at last behind `bars`.
+- No base, no `bars`, just lots of sun and aircraft maintenance.
+- But -- -- there are plenty of street-level `bars` in this town.
+- Look, hit the `bars`, work some parties, and get me transvestites!
+- Besides if the dea heard that tape we'd be behind `bars` right now.
+- Shit, i been to `bars` make this place look like a fuckin' 4-h club.
+- To think me own grandson would have let them put me behind `bars`!
+- I'11 feel safer without a job if a man like mr. kint is behind `bars`.
+- The brick has been repointed, the glass is original with new glazing `bars`.
+- You and i are going to a courthouse together, put some people behind `bars`.
+- Frank asked if she'd sit in for a song, she said yes, and we did a few `bars`.
+- Hartman, if you take this desk out of this building, i'll put you behind `bars`.
+- I been in a lot of `bars` where a white cop rousted me and some of the brothers.
+- I usually drive over to los angeles and go to some `bars` and get kind of drunk.
+- Hell, i seen him eat ten choc'lat `bars` and seven cold drinks in fifteen minutes.
+- You telling me you moved in to that big white house with the `bars` on the windows?
+- We want a low profile on this, that's why i got kaplan and the candy `bars` involved.
+- On one mission, i had to pass up three and ended up living on rats and chocolate `bars`.
+- I'm supposed to sell those candy `bars`, and if i don't, i come home without the money....
+- Someone like you who divides his time, fairly evenly, between the batting cages and `bars`.
+                 

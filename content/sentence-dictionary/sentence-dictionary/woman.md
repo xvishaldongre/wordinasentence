@@ -1,0 +1,107 @@
+---
+title: "woman in a sentence | woman example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "woman"
+---
+- A `woman`'s intuition.
+- Godspeed, hot `woman`.
+- Hey, pretty `woman`...
+- I am not that `woman`.
+- I'm a married `woman`!
+- I'm meeting a `woman`.
+- No `woman` since then?
+- She's a brave `woman`.
+- That horrible `woman`!
+- This is not a `woman`!
+- Well, lisa, a `woman`?
+- `Woman` 2: i'm trying.
+- You love this `woman`.
+- A `woman`... murderers?
+- Buffy, the ape-`woman`.
+- Here's the `woman`, ma.
+- Not any `woman`, marie.
+- No `woman` in jeopardy.
+- She was a good `woman`.
+- Sweet talk the `woman`.
+- That goddamned `woman`.
+- The consummate `woman`.
+- The doctor's a `woman`.
+- The `woman`'s unstable.
+- This is wonder `woman`.
+- Wait a minute, `woman`.
+- Whose `woman` was this?
+- `Woman` 1: one hundred.
+- `Woman`: ey’re here.
+- `Woman`: hey, hey, hey.
+- [`woman`] i know, dear.
+- You are a good `woman`.
+- You are a rich `woman`.
+- You liked this `woman`.
+- Don' be facety, `woman`.
+- I am an english `woman`.
+- I know you're a `woman`.
+- I'm a `woman` who knows.
+- I need me a new `woman`.
+- I never met the `woman`.
+- Just a homeless `woman`.
+- Kiss a `woman` in italy.
+- Of a `woman` you killed!
+- Who's the other `woman`?
+- You see the old `woman`?
+- Admire that in a `woman`.
+- A jealous `woman`, right?
+- Anybody but that `woman`.
+- A wonderful `woman`, boy.
+- Did you see that `woman`?
+- From a beautiful `woman`.
+- Have ya lost it `woman`?!
+- I'm a very lucky `woman`.
+- Salome -- what a `woman`!
+- She was my `woman`, once.
+- Shoot a pregnant `woman`?
+- So the `woman`'s married.
+- That `woman`'s a monster.
+- The `woman` was in shock.
+- Well, it's for a `woman`.
+- What a difficult `woman`.
+- [`woman`] excuse me, ray.
+- [`woman`] ooh, marvelous.
+- Go to the `woman`'s group.
+- Great `woman` your mother.
+- He's a `woman`'s director.
+- I got the `woman` covered.
+- I'm a `woman`, i like men.
+- It must be from a `woman`.
+- That fool `woman` took it.
+- We met at burning `woman`.
+- Who will buy this `woman`?
+- `Woman` 1: go to override.
+- `Woman`: he's waking up!
+- `Woman` [over phone]: yes?
+- Young `woman` cut herself.
+- You're an amazing `woman`.
+- You're a `woman` of fifty.
+- You're becoming a `woman`.
+- A fucking cleaning `woman`?
+- An old `woman`, his mother.
+- I am not a wealthy `woman`.
+- I didn't save that `woman`.
+- Is that the `woman` from..?
+- It was to the same `woman`.
+- I understand `woman`, damn!
+- No, it was another `woman`.
+- She's, you know, a `woman`.
+- That `woman` -- what is it?
+- This is the `woman` i love.
+- This jade fox is a `woman`?
+- ....with a `woman`'s touch.
+- `Woman` 2: call the police.
+- `Woman`: go find something.
+- `Woman` inherits the earth.
+- `Woman`: we want answers.
+- You humiliated the `woman`!
+- You're a beautiful `woman`.
+- A `woman` can write a check.
+- Do i hear a `woman`'s voice?
+                 

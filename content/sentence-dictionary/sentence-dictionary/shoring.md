@@ -1,0 +1,7 @@
+---
+title: "shoring in a sentence | shoring example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shoring"
+---
+## Unfortunately, we have no example sentences for shoring                 

@@ -1,0 +1,104 @@
+---
+title: "sugar in a sentence | sugar example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sugar"
+---
+- Go ahead, `sugar` die.
+- Here you are, `sugar`.
+- `Sugar`, i warned you!
+- No, no, `sugar` - wait.
+- A little `sugar` though.
+- You listened to `sugar`?
+- `Sugar` ray hits me here.
+- Okay, `sugar` - all clear.
+- You take cream or `sugar`?
+- You take `sugar` and milk?
+- Get your `sugar` levels up.
+- What's the matter, `sugar`?
+- You'll forget him, `sugar`.
+- A little bit of `sugar`.
+- Ben listen to me... `sugar`.
+- Dooler, you know bob `sugar`.
+- Forget it, `sugar`, will you?
+- It's a vacation, `sugar` bear.
+- Use your blood `sugar`, child.
+- Did you see any `sugar` in here?
+- I don't have any `sugar` either.
+- It used to be `sugar` kowalczyk.
+- You have fun, `sugar`, look out.
+- Put a little brown `sugar` on it.
+- Don't turn on the lights, `sugar`.
+- I don't believe this `sugar` shit.
+- Extra `sugar`, just how you like it.
+- Hey `sugar`, you lookin' for a date?
+- But i hope you have a lot of `sugar`.
+- Get some `sugar` too, for the coffee.
+- Bears, mapleleafs, "`sugar` -on-snow."
+- I told you to cut down on the `sugar`.
+- `Sugar`, bring up that flame thrower !
+- Well, maybe just a pinch more `sugar`.
+- All right, `sugar`, what's on your mind?
+- `Sugar` and a spoonful of jack'll do it.
+- `Sugar` and me, we're just like sisters.
+- I'm going to be on that boat with `sugar`.
+- You see, mr. holland is a `sugar` planter.
+- All we wanted to do is borrow some `sugar`.
+- Good thing `sugar` ray wasn't here tonight.
+- Here - i got an old `sugar` sack in my car!
+- Look - no butter, no pastry, and no `sugar`!
+- `Sugar`, dear - let me give you some advice.
+- Clarke `sugar`-coated it for you, didn't she?
+- Come on, `sugar` - time to change for dinner.
+- What are you trying to do to poor `sugar`?
+- How the room's a boiling pot of `sugar` water.
+- `Sugar` and spice and everything... what the?!
+- I don't like `sugar` what was i supposed to do?
+- `Sugar` and cream for goetz; i take mine black.
+- You didn't actually sign with `sugar`, did you?
+- How about that brown `sugar` meat loaf you make?
+- There's our shaving stuff - and there's `sugar`.
+- This is bob `sugar`, who needs to learn to knock.
+- You couldn't lift fly specks from a `sugar` bowl.
+- Boy, would i like to borrow a cup of that `sugar`.
+- `Sugar`, you know how i feel about you, don't you?
+- Avoid salt, `sugar`, starches, caffeine, alcohol...
+- Honestly, `sugar`, you can talk more shit sometimes?
+- I ain't never met anyone come close to you, `sugar`.
+- Uh...um...i mean uh, can we borrow a cup of `sugar`?
+- You fellas aren't talking with bob `sugar`, are you?
+- You like a little coffee with your cream and `sugar`?
+- She always used to say "you're under arrest, `sugar`."
+- Vest holdings - in `sugar`, oil, gold, electronics.
+- He's a fuckin' wackjob thinks he's `sugar` ray leonard.
+- Well, i'm gonna tell my partner you mocked white `sugar`.
+- That's right, `sugar`, find the grip that's right for you.
+- I know why you want to stick around - you're after `sugar`.
+- Just listen to daddy, `sugar`, and don't do nothin' stupid.
+- Well, not that i wouldn't `sugar` bun but earl's in a bind.
+- All right, gentlemen, i'm not gonna `sugar`-coat this thing.
+- Man, we came over here from some `sugar` and rolling papers.
+- `Sugar`, you're going to get yourself into a lot of trouble.
+- He wants to know if you'd like a cube of `sugar` in your tea.
+- Cream cheese mixed with granulated `sugar` and suffused with rum.
+- Do you anally rape my mother while pouring `sugar` in my gas tank?
+- You are the chosen few who heard the message it is `sugar` on ice.
+- Hope you don't think i been lyin' to you 'bout other things, `sugar`.
+- I need some nutmeg, flour, eggs, `sugar`, and... whatcha wanta order?
+- Johnnie... that's the past... we gotta get on to our future, `sugar`!
+- Melvin, would you get me a good hot cup with two `sugar` substitutes?
+- And...and... ellie-- because your mother and i need the rest, `sugar`.
+- If i were you, `sugar`, i'd throw that bracelet right back in his face.
+- Some things you wish you could forget... what's troublin' you, `sugar`?
+- Hysterics have a way of severely depleting one's blood `sugar`, you know.
+- This is the ship-to-shore operator - i have a call for miss `sugar` cane.
+- As a matter of fact, it means the `sugar` syrup is ready to be poured off.
+- He could beat all the `sugar` ray robinsons and all the janiros he wants to.
+- It's going to break `sugar`'s heart when she finds out i'm not a millionaire.
+- He understood how most people don't want their `sugar` and salt in the same jar.
+- I'm sorry, i -- so you empowered bob `sugar` to deal with denver behind my back?
+- `Sugar` free lollipops, potty seat covers for public restrooms... fine, forget it.
+- Shh, little daniel -- sleep -- sleep -- what in `sugar` hill's the matter with him?
+- I'm the only guy ever to beat `sugar` ray, and i still don't have a shot at the title.
+- You ain't gonna begin worryin' about what's bad for you at this hour, are you, `sugar`?
+                 

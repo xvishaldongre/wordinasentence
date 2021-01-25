@@ -1,0 +1,51 @@
+---
+title: "Leonard in a sentence | Leonard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Leonard"
+---
+- `Leonard`: at the most.
+- Eve: i shall, `leonard`.
+- `Leonard`: i'll do that.
+- `Leonard`: miss kendall?
+- Please call me `leonard`.
+- `Leonard`, dutton, erlich.
+- `Leonard`, how's the feed?
+- Tommy `leonard` was right.
+- A family secret, `leonard`.
+- `Leonard`: there isn't time.
+- Vandamm: jump in, `leonard`.
+- That's about all, `leonard`.
+- `Leonard`, what are you doing?
+- I gotta make statues `leonard`.
+- What's the situation, `leonard`?
+- What can i do for you, `leonard`?
+- It's called spontaneity, `leonard`.
+- Turns up in a `leonard` cohen song.
+- Well, what's your opinion, `leonard`?
+- `Leonard`: oh, that has been arranged.
+- `Leonard`: the gun she shot kaplan with.
+- Come on, `leonard`, we talked about this.
+- Even worse than sideshow `leonard` cohen.
+- `Leonard` found the gun in your luggage.
+- `Leonard`, it's burt from the front desk.
+- Lester: give mr. kaplan a drink, `leonard`.
+- Local man `leonard` "lenny" `leonard` no, no.
+- I know about your fucking condition, `leonard`!
+- `Leonard`, you don't have a clue what's going on.
+- Shit, `leonard`, i'm a john g. why would i do that?
+- Oh, `leonard`, have you met our distinguished guest?
+- `Leonard`: sometimes the truth does taste like worms.
+- He's a fuckin' wackjob thinks he's sugar ray `leonard`.
+- Like our friends, i too believe in neatness, `leonard`.
+- I'm `leonard` shelby, i'm from san francisco and i'm - teddy!
+- Mr. fumitsu, good evening sir, `leonard` nero, security express.
+- `Leonard`: one of my most valuable attributes as it now turns out.
+- Well, it all depends, `leonard`... would you pose for me for free?
+- `Leonard`, you offered to help when you saw what this guy did to me.
+- As soon as the plane leaves, my husband and mr. `leonard` will be back.
+- `Leonard`: he's heading pretty far out on the north leg and awfully high.
+- So he could have decided to go on a trip... `leonard` does not hold a driving licence.
+- What my daughter is on about, mr lombard, is that `leonard` is somewhat of a bohemian.
+- Tell him `leonard`'s gonna have his bubble-butt he don't have someone down here in ten.
+                 

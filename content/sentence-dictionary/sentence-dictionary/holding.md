@@ -1,0 +1,107 @@
+---
+title: "holding in a sentence | holding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "holding"
+---
+- Yes, i'm `holding` on.
+- `Holding` for memories.
+- `Holding` you... again.
+- Is the frame `holding`?
+- How're you `holding` up?
+- I'm `holding` your hand!
+- I'm `holding` your hand.
+- No, not `holding` hands.
+- Thanks for `holding` on.
+- How are you `holding` up?
+- I was `holding` him back.
+- You `holding` up alright?
+- He's `holding` open house.
+- He's `holding` out on you.
+- I'm `holding` you to that.
+- See how he's `holding` up.
+- The sutures are `holding`.
+- They're `holding` a vigil.
+- What's `holding` you back?
+- How you `holding` up, wade?
+- No, i'm `holding` for tony.
+- Preferably `holding` hands.
+- They're `holding` position.
+- Ed, how're you `holding` up?
+- I was `holding` for someone.
+- They're `holding` the sweep.
+- They�re `holding` a seminar.
+- How is jonathan `holding` up?
+- I'm done `holding` your hand.
+- Not while i'm `holding` this.
+- So you're `holding` my calls?
+- That locket you're `holding`.
+- Well, your luck is `holding`.
+- You're `holding` up the show!
+- Are you `holding` her hostage?
+- Astricky was `holding` a list.
+- Dad, you're `holding` my hand.
+- Dispersive armor is `holding`.
+- How are you boys `holding` up?
+- It's cozy girl `holding` on...
+- You guys been `holding` hands?
+- You're `holding` me too tight.
+- Always `holding` himself above.
+- `Holding` hands are holy hands.
+- Is to fight a `holding` action.
+- I was `holding` these out, too.
+- Range 500 meters and `holding`.
+- Stop `holding` a book, addison.
+- What are you `holding` over me?
+- How many fingers am i `holding`?
+- How you `holding` up there, bob?
+- It's ok. - how you `holding` up?
+- Suppose he's `holding` a grudge?
+- They're `holding` it for ransom.
+- You've been `holding` out on me.
+- You were `holding` the evidence.
+- Looks like she was `holding` out.
+- Well... how are you `holding` up?
+- I'm `holding` you responsible.
+- Try `holding` the match like this.
+- Where are they `holding` the wake?
+- Hell, what am i `holding` back for?
+- It's `holding`... she's `holding`...!
+- Just get the `holding` cells ready.
+- Why were you `holding` everyone up?
+- Find out what's `holding` things up.
+- I guess our luck is still `holding`.
+- I need your help `holding` her down.
+- What are you `holding` in your hand?
+- Coolin' her jets in a `holding` cell.
+- Emergency force fields are `holding`.
+- Guess what i am `holding` in my hand.
+- I'm `holding` for lieutenant beldere!
+- [men grunting] -how you `holding` up?
+- How's peterson's `holding` up for you?
+- Now he's `holding` her at knife point.
+- Keep `holding` the thruster down tommy!
+- She dropped in on me... `holding` this.
+- ♪ we'll be `holding` on forever ♪ wait.
+- We're `holding` the workers down below.
+- Maybe the police are still `holding` it.
+- Okay how many fingers am i `holding` up?
+- Then feel me `holding` lexa as she dies.
+- They're `holding` my husband downstairs.
+- How are you `holding` up in this weather?
+- Pass the bottle; i know you're `holding`.
+- And i'm `holding` her people as insurance.
+- How's your faith `holding` up, chancellor?
+- I won't _ `holding` a mustache on a stick?
+- This is a woman `holding` a gun thank you.
+- You're not `holding` him right ... caz ...
+- Because you're just `holding` the position.
+- He's `holding` a press conference tomorrow.
+- I can't believe i'm `holding` one of these.
+- Isn't that my report you're `holding` onto?
+- Let them know we're not `holding` a grudge.
+- Never pissed `holding` a girl's hand, jude.
+- She's in the `holding` cell, on this floor.
+- There's nobody `holding` you here, mr. doe.
+- We're `holding` her for a million smackers.
+                 

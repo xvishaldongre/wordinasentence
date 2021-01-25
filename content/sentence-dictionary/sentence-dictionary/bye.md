@@ -1,0 +1,101 @@
+---
+title: "bye in a sentence | bye example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bye"
+---
+- `Bye`-`bye`, nancy drew.
+- I'll go -- good-`bye`.
+- Let me explain- `bye`.
+- This isn't good-`bye`.
+- Good-`bye`, old friend.
+- I wou...i wou... `bye`.
+- Lex is going `bye`-`bye`.
+- `Bye` that was snowball.
+- Good-`bye`, dr. lecktor.
+- Good-`bye`, mister bond.
+- He says here good-`bye`.
+- Oh mom... `bye`, birdie.
+- So good `bye`, shi'ites.
+- `Bye`-`bye`, see you later.
+- `Bye` dad, i'll miss you.
+- So here i am, good-`bye`.
+- Good-`bye`, dil i will be.
+- We use that... `bye`, `bye`.
+- And it's `bye`-`bye` sanctum.
+- '`bye`, '`bye`, now, sweetheart.
+- Clarke, this isn't good-`bye`.
+- Everybody say, "`bye`, house."
+- "good-`bye` for now" in latin.
+- Hm... nice night out... `bye`!
+- I'll talk to you later, `bye`.
+- I love you too sweetie, `bye`.
+- Might help you say good-`bye`.
+- It'll be my good-`bye` present.
+- Okay...`bye` daddy, i love you.
+- Okay, helen, thanks, `bye`-`bye`.
+- There are those among us `bye`!
+- Wait, i want to say good-`bye`.
+- Coz i never told her good-`bye`.
+- I'll talk to you later... `bye`!
+- This can't look like good-`bye`.
+- `Bye`-`bye`, you're not going home.
+- I didn�t know... `bye` `bye`, jane.
+- ♪ `bye` `bye` miss american pie ♪ no!
+- `Bye`-`bye` ya stupid son of a bitch.
+- Ray, come an-- good-`bye`, brother!
+- You left without saying good-`bye`.
+- '`bye`, son -- i won't be gone long.
+- You gotta take it somewhere - `bye`.
+- '`bye`, mama... david, come back here!
+- I'll say `bye` to bill and get on back.
+- She deserves a chance to say good-`bye`.
+- Thank you for letting me say good-`bye`.
+- Well, `bye` you guys... congratulations!
+- Thanks good-`bye`, look in your backpack.
+- You can just kiss all of that good-`bye`!
+- Dr. zira, i'd like to kiss you good-`bye`.
+- Father, i have sinned... `bye`-`bye`, elena.
+- It's safe for me to go and say good-`bye`.
+- Just good-`bye` isn't enough for a friend.
+- So i'm saying good-`bye` to you now, bart.
+- ♪ toot-toot-tootsie, good-`bye` ♪ come on.
+- It's faint, but...it's there... good-`bye`.
+- Come back and make up a good-`bye` at least.
+- No, don't wait up for me -- '`bye`, darling.
+- Why do i get the feeling this is good-`bye`?
+- Yeah... well... `bye`... sorry... `bye`, leif.
+- `Bye` sweety, we could of been great together.
+- ♪ `bye` `bye` miss american pie ♪ - where's jane?
+- Good `bye`, my love, a thousand times good `bye`.
+- Weren't you going to come out to say good-`bye`?
+- That's not going to be the way we say good-`bye`.
+- Think of it as a good-`bye` gift for your mother.
+- He tells her, "`bye`-`bye`," and she gets "attacked."
+- If you don't, we can kiss that kenworth good-`bye`.
+- I thought you were too mad at me to say good-`bye`.
+- And you can say good-`bye` to your genocidal friend.
+- But i thought that you might like to say good-`bye`.
+- Just saying good-`bye` to everyone before you leave?
+- Teach me how to say "good-`bye`", that's all i need.
+- ♪ but i come to get my money back" ♪ now, good-`bye`.
+- `Bye`.... well, i'll see you at the next staff party.
+- 7 circles, only she told me then this is good-`bye`...
+- But... honey, i can't talk now...i've gotta run, `bye`.
+- '`bye`, jane, i'll see you in church in a couple weeks.
+- But if they see that we're at peace, `bye`, little bird!
+- I'll discuss it with him right now... good-`bye`, chief.
+- Okay... `bye`, honey, i'll call you in a couple of days.
+- I've missed you - i thought your specialty was good-`bye`.
+- "good-`bye`, princess," & the same night she gets attacked?
+- ♪ it's a scary place in the world outside ♪ good-`bye`, sister.
+- I want to speak to him anders said you were like me... good-`bye`!
+- So, if i'm gonna do this, to say good-`bye` to our beloved rose...
+- Echo will be sent to penance for 20 years, i already said good-`bye`.
+- `Bye`, then... oh, yeah, he's got things up and running, alright... hmm.
+- ♪ you just can't say good-`bye` ♪ allow me to facilitate the discussion.
+- G'day, they say it's worth three grand... '`bye` ford...' hey, let me cheer you up.
+- She'll rub it on me - and i'll rub it on her - and we'll rub it on each other - `bye`.
+- Well, just promise me you'll be careful... alright, alright see ya soon... good-`bye`.
+- ♪ `bye` `bye` miss american pie... ♪ from the u.s. department of energy - leave me alone!
+                 

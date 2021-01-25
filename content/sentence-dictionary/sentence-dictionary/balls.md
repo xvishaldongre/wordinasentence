@@ -1,0 +1,107 @@
+---
+title: "balls in a sentence | balls example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "balls"
+---
+- !</b> suck my `balls`.
+- Great `balls` of fire!
+- You fight `balls` out.
+- At least i got `balls`.
+- Now that takes `balls`.
+- Stop busting my `balls`.
+- The `balls` are useless.
+- They're billiard `balls`.
+- `Balls` in their six- ties.
+- Bust their fucking `balls`.
+- He's got me by the `balls`.
+- They had me by the `balls`.
+- You don't have the `balls`.
+- `Balls` resting on his lips.
+- Bowling `balls`, naturally.
+- Don't go busting my `balls`.
+- ...what `balls` on this guy?
+- You still have your `balls`.
+- Where's your fuckin' `balls`?
+- Your `balls` need scratching?
+- Grabs the bull by the `balls`.
+- Then i'll cut his `balls` off.
+- They all smell of moth `balls`.
+- Don't forget the `balls`, ernie.
+- They also smell of moth `balls`.
+- You cut their `balls` off for me.
+- Are there any `balls` down there?!
+- Thinks he's got us by the `balls`.
+- Why you always bustin' my `balls`?
+- Okay, penis, that's one, `balls`...
+- Then he'll be back at blue `balls`?
+- You feel the roll of those `balls`.
+- `Balls` of flame and grinding metal.
+- Small brains make your `balls` itch?
+- There is shit nibbling at my `balls`!
+- They make his `balls` smell like pie.
+- Give your friends some cheese `balls`.
+- This time i'm going to eat `balls`!...
+- You've got `balls` bigger than toledo.
+- How 'bout i give you your `balls` back?
+- Um, coupla' eight `balls` oughta do us.
+- Father took tapir `balls` all ten times.
+- Stop thinking with your fucking `balls`.
+- Two golf `balls` glued to a can of oats.
+- I think you need your `balls` reattached.
+- I thought redding had like three `balls`!
+- You got a pool cue, `balls` on the table.
+- You got `balls`, i'll give you that much.
+- He's juggling alot of `balls` on this one.
+- Remember to roll his `balls` around a bit.
+- You don't think i can grab bulls' `balls`?
+- You won't leave a man his fucking `balls`!
+- The sheriff's lookin' to bust your `balls`.
+- "goodness, gracious, great `balls` of fire."
+- Since the snake that ate three pool `balls`.
+- Well, i was hoping to get my `balls` licked.
+- You always did have more `balls` than brains.
+- You got some `balls` goin' after that psycho.
+- You see how he took that fire by the `balls`?
+- Ridley: you've got some `balls` coming here.
+- We got those pg&e fuckers by the `balls` here.
+- If that means freeze my `balls` off, no thanks.
+- I bet they like him for his big charity `balls`.
+- Wouldn't penis and `balls` be the same category?
+- You should play with much larger tennis `balls`.
+- That you're sweating your `balls` off and i'm not.
+- Uh, he handled rackets, and i carried the `balls`.
+- I've got `balls` like watermelons, i'm telling you.
+- Well, as soon as you grow some `balls`, let me know.
+- You could have hit him, or kneed him in the `balls`.
+- But at least i have the `balls` to it give it a shot.
+- So, how many `balls` are we allowed of croquembouche?
+- We've got the pg&e fuckers in hinkley by the `balls`.
+- Got some clubs, but not very many fellas with `balls`.
+- He doesn't even have the `balls` to pick up the phone!
+- I still maintain that he kicked himself in the `balls`.
+- I wouldn't sell you the sweat off a dead dog's `balls`.
+- You don't have to prove to us how big your `balls` are.
+- How about you and i whacking a couple of `balls` around?
+- She gives me a cigarette, my `balls` feel like concrete.
+- ♪ build a scary dragon to fire tennis `balls` ♪ i hear you!
+- I don't even know a jew who'd have the `balls` to say that.
+- I'd love to serve your `balls` to those red coats for lunch!
+- Which must be a nice vacation for his `balls`... look at him.
+- Look, why don't you bust somebody else's `balls` for a change.
+- Then get those `balls` in the air and get your butt over here.
+- One of them had his `balls` tap-danced on by the secret police.
+- Come on, you fat bastard, offer the customer some cheese `balls`.
+- <i>the children like to urinate in the `balls`.</i> jesus christ!
+- They'd cut my `balls` off and flush them down the fucking toilet.
+- We got a jammed pressure door wooden paddles with `balls` on 'em.
+- If the other primes had half your `balls`, you're dead, henderson.
+- They don't know class if it walks up and grabs 'em by the `balls`.
+- I wonder if we couldn't get bull `balls` somewhere, and fry 'em up.
+- If i was busting your `balls`, i'd send you home for your shine box.
+- I'm just glad randal had the `balls` to tell me, since you couldn't.
+- Now you'll take 300 cuts at least have the `balls` to stand by them.
+- Even cupid's becoming modern, using medicine `balls` instead of darts.
+- Amazing, what you can do with five thousand ping-pong `balls`, isn't it?
+- That's the trick they played, they got you by the `balls` and they squeezed.
+                 

@@ -1,0 +1,88 @@
+---
+title: "staff in a sentence | staff example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "staff"
+---
+- The `staff` and guests!
+- The `staff`, the guests.
+- The `staff` usually forgets.
+- Dr. paley's on `staff` there.
+- It's the `staff`'s night off.
+- The `staff` don�t know yet...
+- He was on `staff` at the clinic.
+- I'm on the `staff` of... uh-huh.
+- Then there's kissinger's `staff`.
+- This is the `staff` of the bijou.
+- He's on the fleet general `staff`.
+- I'm going on `staff` at the n.s.f.
+- How about any guys on your `staff`?
+- I want the entire `staff` on alert.
+- Burns just called a `staff` meeting.
+- I thought you said no `staff`, bazza!
+- It's janine melnitz, from my `staff`.
+- You are nothing without your `staff`!
+- On my `staff`, foreign policy whiz ...
+- This is the `staff` wing of the hotel.
+- I'm lucky helms lets me have a `staff`.
+- Put mr. bensinger right on the `staff`.
+- Get someone from our `staff` on his ass.
+- He's also on `staff` over at loma vista.
+- I could speak to the chief of `staff`...?
+- I killed it at the `staff` meeting today.
+- Zozo, get a key for two `staff` bedrooms.
+- Shit, head of the joint chiefs of `staff`.
+- You have a `staff` of literally thousands.
+- This is straight from the chief of `staff`.
+- What about the hotel `staff` obstructing us.
+- I didn't ask what your `staff` thinks, henry.
+- I guess this is `staff` side of the building?
+- I will take jaha's `staff` may we meet again.
+- I'd like you to meet some of our `staff` here.
+- Were you a resident or on a `staff` someplace?
+- Ah, the `staff` meeting could have gone better.
+- Dr. ravell's the finest surgeon on the `staff`.
+- These `staff` meetings, they just go on and on.
+- You will be interrogated by the general `staff`.
+- ...we've had a rise in `staff` complaints of 300%.
+- Why didn't you tell me about this `staff` meeting?
+- My `staff` tells me it's been mostly drug pushers...
+- Bye.... well, i'll see you at the next `staff` party.
+- Now, vera...uh, simpson, you know my `staff` dietician?
+- Trust me, we won't any problems with the hotel `staff`.
+- Look, man, i�ve got to get to... what about the `staff`?
+- Besides, how do we know one of his `staff` didn't see it?
+- I hate to break up the `staff` meeting, but they're here!
+- Now we have eight hundred guests and one hundred `staff`.
+- Look at my `staff`, they won't work, they listen to no one.
+- Just gather everyone up for a `staff` meeting and be happy!!
+- I believe you're my most creative person i've got on `staff`.
+- We're going to need to get the u.n. `staff` in and warmed up.
+- A six man security force, plus a member of our butler `staff`.
+- As she's a member of my `staff`, may i ask what this is about?
+- ...i'm sorry to keep you waiting, the `staff` review ran over.
+- Shall i ask the chief of `staff` to schedule your daughter in?
+- But if i equip this `staff` that lets me cast lava quadballs...
+- We had to bring `staff` in from the whole county to handle this.
+- Teachers, students, `staff`, janitors... do they know who did it?
+- Eldon tyrell, his family and half his `staff` were just massacred.
+- It may take them some time to kill their way up to senior `staff`.
+- John levy, `staff`, and amy cain, press off.... who we got here...?
+- Consequently, i didn't recommend your release at the `staff` review.
+- ... interview every employee, support `staff`, associates, partners.
+- Well, most of the original `staff` knows about the twelfth floor ...
+- Out of all the household `staff` at berchtesgarten, i vas his favorite.
+- You know how long it took the "chronicle" to get that `staff` together?
+- If this is an emergency we have a `staff` of psychiatric social workers.
+- There are geologists on my `staff` who would laugh at your speculations.
+- I am on the `staff` of... what qualifies you as an expert in anesthetics?
+- I will not tolerate this infighting among the `staff`, i warn you that...
+- `Staff` sargeant detailed me to prepare firewood for the break- fast cooking.
+- A young girl on the `staff` was accidentally locked in here over the holidays.
+- So, you're suggesting that i replace the entire janitorial `staff` with robots.
+- Well, as you know, most of my `staff` have weighed in against this "incursion."
+- We don't have the `staff` to ... for christ's sake, it soils my mother's memory.
+- Let's keep you overnight and have the `staff` obstetrician do a follow-up tomorrow.
+- We can run the whole park from this room, with minimal `staff`, for up to three days.
+- But i can't keep you on `staff` if you turn every pta meeting into an agent orange cover up.
+                 

@@ -1,0 +1,53 @@
+---
+title: "hammer in a sentence | hammer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hammer"
+---
+- `Hammer`, you alright?
+- One last thing `hammer`.
+- I have to go... `hammer`?
+- G dash d damn it, `hammer`!
+- It better be some `hammer`.
+- You watch your back `hammer`.
+- Can't beat it with a `hammer`.
+- His nickname is "the `hammer`."
+- I need a `hammer`, not a spoon.
+- Now make her take the `hammer`.
+- Aye, the big `hammer`, smashing!
+- You should put down the `hammer`.
+- Mike: well, this isn't a `hammer`.
+- It's the birthplace of my `hammer`.
+- Well, it won't work on me `hammer`.
+- Or `hammer` them hard if they won't.
+- Water `hammer`, something like that?
+- By grabthar's `hammer`, this is true.
+- He can't `hammer` a nail, plow a field.
+- He couldn't break an egg with a `hammer`.
+- I don't have to tell you anything `hammer`!
+- What are you doin' with that damn `hammer`?
+- The `hammer` came down and nothing happened.
+- I'm getting a new `hammer`, don't forget.
+- I wonder if you might get me a rock `hammer`.
+- Pull your `hammer` back, smokey's coming at you.
+- You'll understand when you see the rock `hammer`.
+- A rock `hammer` is about six or seven inches long.
+- If there's trouble, i won't use the rock `hammer`.
+- You threw a `hammer` through a sliding glass door?
+- Have to fix you up with another `hammer`, won't we.
+- Ask me what it's costing us to `hammer` it down.
+- Go grab your `hammer` and you go fly and you talk to him.
+- Go grab your `hammer`, and you go fly and you talk to him.
+- `Hammer`, the fate of my daughter rests solely in your hands.
+- Each fit for a hero... my uncle fashioned a `hammer` for thor.
+- By grabthar's `hammer`, by the suns of warvan i wish you- thanks.
+- Your love machine... the throbbing thrill `hammer`... your thing!
+- By grabthar's `hammer`, dr. lazarus, i- well good, that's very... nice.
+- Step out of line, and i don't care who knows you, i'll swing the `hammer`.
+- I can see the `hammer` still, it was cocked... you can't remember that -- !
+- You can either have the money and the `hammer` or you can walk out of here.
+- Defeats that keep you awake, that pound in your head like the `hammer` of fate.
+- ...so the whole book winds up, mike `hammer`, he's inna room there with this doll.
+- All i can say to you is take your `hammer` and sickle and get out of that royal suite!
+- We need to disconnect her before she gets the flame, oh, yeah... and a big-ass `hammer`.
+                 

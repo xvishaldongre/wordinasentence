@@ -1,0 +1,98 @@
+---
+title: "defense in a sentence | defense example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "defense"
+---
+- It was self `defense`.
+- It was self-`defense`.
+- Was it self-`defense`?
+- `Defense` against what?
+- If it's self-`defense`.
+- The `defense` is there.
+- Not trade, not `defense`.
+- Energize `defense` fields.
+- `Defense` network computer.
+- Ok, ok, the `defense` rests.
+- Was that self-`defense` too?
+- The center counter `defense`.
+- What do we use for `defense`?
+- Hell of a `defense` mechanism.
+- I took self `defense` marylin.
+- The best `defense` is offense.
+- It's my subway `defense` system.
+- Against this we have no `defense`.
+- It was self-`defense`, your honor.
+- Right by the civil `defense` sign?
+- You are a `defense`- -of sorts.
+- Fear is their greatest `defense`...
+- Lioness rushes to `defense` of cub.
+- Can i say something in my `defense`?
+- I don't even have to play `defense`.
+- You're in the ministry of `defense`.
+- But i don't need a `defense` anymore.
+- Well it's... it's a `defense` mechanism.
+- Head of a secret `defense` establishment.
+- Or deploy some other `defense` mechanism.
+- Any one of them's ideal for home `defense`.
+- He was the biggest `defense` lawyer around.
+- The only `defense` we have is high voltage.
+- He stabbed duane lindeman in self-`defense`?
+- But i got to arrange a legal `defense` first.
+- He's the top `defense` attorney in the state.
+- Do you have anything to say in your `defense`?
+- But the bet `defense` is a good offense, right?
+- These men may be the only `defense` you've got.
+- A jedi uses the force for knowledge and `defense`.
+- I don't even know whether a `defense` is possible.
+- <u>all</u> earth `defense` systems have gone dead.
+- He'll hit you in the head and plead self-`defense`.
+- Before it's too late - it was self-`defense`, tubbs!
+- "crashed through our `defense` and began its attack.
+- This is pastor collins, director of civil `defense`.
+- God, louise, can't we even say it was self-`defense`?
+- Human decisions are removed from strategic `defense`.
+- I gotta have my own shop, just out of self `defense`.
+- If you'll permit, may i read a speech in my `defense`?
+- Social `defense` tactic 17 peter, that jacket is foul.
+- There were no planetary `defense` systems in this era.
+- What about the black panther party for self-`defense`?
+- But my dad says you don't work hard enough on `defense`.
+- Col., the secretary of `defense` is on the line for you.
+- John bull loves her and john bull is her best `defense`.
+- Jake, i'm going to ask you once -- was it self-`defense`?
+- Before when i killed, it was for food or in self-`defense`.
+- Colonel, the secretary of `defense` is on the line for you.
+- You're projecting your anger on me as a `defense` mechanism.
+- The vaccine you hold is the only `defense` against the virus.
+- Surely you have, but in my `defense`, not just someone, reapers.
+- Those vampires knew our `defense` system backwards and forwards.
+- All living organisms develop `defense` mechanisms against attack.
+- A computer `defense` system built for sac-norad by cyber dynamics.
+- Are we in any danger of being detected by earth `defense` systems?
+- `Defense` and state department in the conference room in one hour.
+- In his `defense`, every primitive culture known to man deified them.
+- According to civil `defense` plans from before the war, moe's tavern.
+- He's sure he can get you off on self-`defense`, so if you're patient.
+- I'm here to raise this county's militia to aid the british `defense`.
+- That's the whole reason i'm starting the blonde legal `defense` fund.
+- I warned you civil `defense` people to be ready if you have to evacuate.
+- Why, our strategic `defense` boys would have -- maybe i should get help.
+- 'are you or are you not part of a plot to weaken our national `defense`?'
+- How does a hot chick like you end up working at the ministry of `defense`?
+- Luke, use the force only for knowledge and for `defense`, not as a weapon.
+- We should set up a cuban `defense` fund on this; take care of all of them.
+- Zombies set to knock out local air `defense` four hundred miles from primary.
+- Habeas corpus -- no bodies, no crime, and nunez still plays as self `defense`.
+- I see the perimeter `defense` system is still fully intact... at least i tried.
+- It's supposed to go off, and all we should hear are civil `defense` broadcasts.
+- They had to shape up their employment practices to keep this `defense` contract.
+- However, as regards this witness, i'm going to sustain the `defense`'s objection.
+- If we bring an organism on board, we won't have a single layer of `defense` left.
+- Just have the car ready to go if i call or if the civil `defense` warning comes on.
+- I still can't believe it paul -- that you wouldn't say a word in your own `defense`.
+- Please accept my compliments for the strong and skillful `defense` of your fortress.
+- You plan to be a criminal `defense` attorney, know this going in: everybody's guilty.
+- He can't just wave his little wand in the air and make a plausible `defense` materialize.
+- Munro is expecting him to be the good soldier in `defense` of british military interests.
+                 

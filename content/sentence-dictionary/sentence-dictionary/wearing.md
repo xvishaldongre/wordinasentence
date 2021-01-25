@@ -1,0 +1,107 @@
+---
+title: "wearing in a sentence | wearing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wearing"
+---
+- I'm not `wearing` any.
+- I'm `wearing`, archie.
+- What is she `wearing`?
+- She's `wearing` a ring.
+- What are you `wearing`?
+- He was `wearing` a suit.
+- I'm not `wearing` a bra.
+- `Wearing` papa's things?
+- Are you `wearing` lotion?
+- I ain't `wearing` no gun.
+- I'm not `wearing` a wire.
+- I'm `wearing` shirts now.
+- Lisa's `wearing` a dress.
+- The one you're `wearing`?
+- Ricky's not `wearing` one.
+- They were `wearing` masks.
+- You're `wearing` eyeliner.
+- Adrenaline's `wearing` off.
+- He wasn't `wearing` a ring.
+- She was `wearing` a helmet.
+- The scent you're `wearing`.
+- Uh, what are you `wearing`?
+- Are you `wearing` a uniform?
+- Denning was `wearing` a bug.
+- I'm not `wearing` his pants.
+- I'm not `wearing` underwear.
+- I'm `wearing` your bracelet.
+- Me, `wearing` my good shoes.
+- So...what are you `wearing`?
+- Were they `wearing` condoms?
+- What are they `wearing` now?
+- Are you `wearing` eye shadow?
+- Are you `wearing` my perfume?
+- He's `wearing` a navy jacket.
+- They're `wearing` party hats.
+- What's that you're `wearing`?
+- Who was `wearing` this watch?
+- Why is he `wearing` a helmet?
+- You're `wearing` the thimble.
+- You were `wearing` your belt.
+- Lil was `wearing` a sour face.
+- Mom... what are you `wearing`?
+- See this jacket i'm `wearing`?
+- They were `wearing` ski masks.
+- Why is he `wearing` handcuffs?
+- You're not `wearing` a bustle.
+- I'm `wearing` a cardboard belt.
+- I saw him leaving `wearing` it.
+- It's time i start `wearing` it.
+- Why are you `wearing` a helmet?
+- Why were you `wearing` a sheet?
+- ...you were `wearing` a tuxedo.
+- Are you `wearing` a coconut bra?
+- As the clothes you're `wearing`.
+- I'm not `wearing` an undershirt.
+- I'm not `wearing` any underwear!
+- I'm `wearing` your pants, steve.
+- Now he's `wearing` an eye-patch!
+- We are `wearing` long underwear.
+- `Wearing` biometric wrist bands?
+- When it's '`wearing`' hudsucker!
+- I'm `wearing` three sweaters.
+- Because he's `wearing` moccasins.
+- Is he `wearing` a green cardigan?
+- Shouldn't we be `wearing` gloves?
+- They were all `wearing` hardware.
+- Um, i like what you're `wearing`.
+- Yeah, but he was `wearing` shoes!
+- I'm `wearing` two pairs right now.
+- Like my fear of `wearing` pastels?
+- Were you `wearing` this nightgown?
+- Are you `wearing` a gun, right now?
+- I'm not even `wearing` any drawers.
+- `Wearing` bloomin' uniforms n' all.
+- Why are you `wearing` a suit again?
+- You're not `wearing` any underwear.
+- He was `wearing` one of our jackets.
+- I'm `wearing` a t-shirt and panties.
+- Rose, my patience is `wearing` thin.
+- What color underwear am i `wearing`?
+- Whose `wearing` the coconut bra now?
+- You will be `wearing` rubber gloves.
+- He was `wearing` a bullet proof vest.
+- I just happened to be `wearing` this.
+- I rather hoped you'd be `wearing` it.
+- I... what glasses were you `wearing`?
+- What's a cop `wearing` a headset for?
+- You're not `wearing` that ironically?
+- Mine is `wearing` thin, young man!
+- Are you `wearing` anything under that?
+- But i'm `wearing` a pound of mary kay.
+- What are you still `wearing` that for?
+- What kind of clothes was he `wearing`?
+- Why are you `wearing` a wedding dress?
+- Why is no one else `wearing` costumes?
+- You been `wearing` rubbers, billy-boy?
+- Why are you always `wearing` black?
+- Can you at least start `wearing` a bra?
+- How come you're not `wearing` my shoes?
+- Marsh was `wearing` a cast on the tape.
+                 

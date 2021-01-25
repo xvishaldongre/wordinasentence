@@ -1,0 +1,104 @@
+---
+title: "fail in a sentence | fail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fail"
+---
+- If i `fail`, you `fail`.
+- I will not `fail` you.
+- That is why you `fail`.
+- To strive is to `fail`.
+- Did they try and `fail`?
+- You know, a `fail`-safe.
+- The invasion will `fail`.
+- Words `fail` you at last!
+- Do you think we'll `fail`?
+- I've never seen it `fail`.
+- Everyone else must `fail`."
+- Yet to `fail`, nonetheless.
+- You want me to `fail`, too?
+- I once longed to see `fail`.
+- The locks are `fail` secure.
+- Where's the `fail`-safe key?
+- The `fail`-safe on�line, yet?
+- Will almost certainly `fail`.
+- I've never known it to `fail`.
+- We'd seen god `fail`, you see.
+- Father, we will not `fail` you.
+- He just wants to see me `fail`.
+- I `fail` to see the connection.
+- We will not `fail` you, father.
+- Hibernation pods are `fail`-safe.
+- If we `fail`, i'll take her life.
+- I must have wanted you to `fail`.
+- How could i `fail` to notice that!
+- I can't see how that could `fail`.
+- But at least they won't `fail` you.
+- Your little decoy trick will `fail`.
+- You said the system couldn't `fail`!
+- Its molecular integrity could `fail`.
+- It's not a pass-`fail` kind of thing.
+- Oh, hibernation pods are `fail`-safe.
+- Did he ever `fail` to provide for you?
+- If you `fail`... not if i can help it.
+- It's telling me `fail` mode confirmed.
+- You're not going to `fail` me are you?
+- No one will come for you if you `fail`.
+- Cameras `fail`, i lose audio, the works.
+- Clarke, if you `fail`, now she sees you.
+- Did you set me up just to see me `fail`?
+- Without that, this alliance will `fail`.
+- You rigged the illusion to `fail`, right?
+- If he gets away, your mission will `fail`.
+- There's no way these computers can `fail`.
+- Sam, you know you never `fail` to amaze me.
+- But it will `fail` within seventy-two hours.
+- I `fail` to understand your purpose in this.
+- If you `fail`, however, until proven guilty.
+- So the next time we meet, i will not `fail`.
+- I love him because he's not afraid to `fail`.
+- What will happen to me if i `fail` your test?
+- I will not `fail`: 'tis twenty year till then.
+- Every day you try it, and every day you `fail`.
+- If people `fail` at cake, they need to be told.
+- Well, it worked, and i will not let you `fail`.
+- And, if we `fail` now, remember: you stopped us!
+- If we `fail`, she'll take the ship's escape pod.
+- When this is all over, if you `fail`, thank you.
+- Brake linings that `fail` after a thousand miles.
+- I need a computer reading on a `fail`- safe mark.
+- They'll do everything possible to make it `fail`.
+- No, no, the key, the key to the `fail`- safe lock!
+- When he told you raven locked you we don't `fail`?
+- But i can assure you that they were about to `fail`.
+- Don't `fail` me again, admiral, i've had quite enough!
+- Of the farm she grew up on, oh, my god, what a `fail`!
+- Let him go if that's what it -- -- we need a `fail`-safe.
+- Or you `fail` to take down the eye, the radiation shield.
+- Well... hal's reported the ao-unit about to `fail` again.
+- Though i doubt he will not ultimately `fail` even at that.
+- We could rig this if we `fail`, the transcendents send gem9.
+- By god, captain god, i shall not `fail` you.. hey, hot stuff.
+- But just remember...if we `fail` tonight, there's no tomorrow.
+- Is that the only way you can succeed, anton, to see me `fail`?
+- If the meeting should `fail`, then i'm afraid there is no hope.
+- How could all my father's knowledge and skill `fail` to save her?
+- How you people `fail` to grasp the long-range significance of this!
+- I `fail` to see how a little christianity could *hurt* anyone here!
+- In that event, the probabilities are that our mission would `fail`.
+- A pleasant smile perhaps a kiss; i would not `fail` to give her this.
+- No--not much--excepting-- you never `fail` at anything, do you, chad?
+- You weren't crazy enough to `fail` on purpose you can't win in florida.
+- How could something named "the tree of the dead" `fail` to draw attention?
+- After we strike, we lure their reinforcements then how about we don't `fail`?
+- Back when we jailed together, he'd call his sister every week without `fail`.
+- Or is it that you `fail` to recognize one of your own dreams when you see it?
+- With our `fail`-safe system, only the president himself can push that button.
+- If we `fail`, and lose our carriers, we destroy our ability to fight them at all.
+- The other will `fail` and have a horrible life none of you will inherit anything.
+- They will `fail` for, during the day, the power of the circle is greater than theirs.
+- His ethical and moral subroutines took over all of his basic functions... `fail`-safe?
+- I `fail` to see that the identity of that somebody has anything to do with this trial.
+- Others have had similar actions and they have failed just as surely as you will `fail`.
+- Without someone at the convention, who has the people behind him, everything will `fail`.
+                 

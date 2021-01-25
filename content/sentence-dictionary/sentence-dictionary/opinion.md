@@ -1,0 +1,107 @@
+---
+title: "opinion in a sentence | opinion example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opinion"
+---
+- I want your `opinion`.
+- That's your `opinion`.
+- What's your `opinion`?
+- Changing his `opinion`.
+- It's my fucking `opinion`.
+- I want a second `opinion`.
+- Let me ask your `opinion`.
+- An interchange of `opinion`?
+- Okay, that's your `opinion`.
+- You asked my `opinion`, sir.
+- Jesus... that's my `opinion`.
+- Let's get a second `opinion`.
+- That's a matter of `opinion`.
+- That's your expert `opinion`?
+- They might have no `opinion`.
+- This is the second `opinion`.
+- That is a matter of `opinion`.
+- Well, i gave you my `opinion`.
+- Engaged to render an `opinion`.
+- Is that your medical `opinion`?
+- It's really a stupid `opinion`.
+- Is that your "expert `opinion`?"
+- Mr. crawford asked my `opinion`.
+- In my `opinion` he saved my army.
+- Is that a professional `opinion`?
+- Well, that is a strong `opinion`.
+- Well, that's just your `opinion`.
+- Ed, it's just one man's `opinion`!
+- He likes people with an `opinion`.
+- If you're asking my `opinion`, no.
+- Then what's your goddam `opinion`?
+- You're entitled to your `opinion`.
+- Well, i can respect your `opinion`.
+- I could come for a second `opinion`?
+- Is that your professional `opinion`?
+- ♪ oh ♪ you want my honest `opinion`?
+- Somehow his `opinion` doesn't count.
+- That's an `opinion`, not evidence...
+- You must have formed some `opinion`.
+- Chingachgook's of the same `opinion`.
+- Feel free to form your own `opinion`.
+- I was engaged to render an `opinion`.
+- Quite a guy if you want my `opinion`.
+- Well, what's your `opinion`, leonard?
+- Apparently my `opinion` wasn't needed.
+- I mean-- well, then a third `opinion`.
+- We'll get clobbered in world `opinion`.
+- Wouldn't you like to hear my `opinion`?
+- Not the most popular `opinion`, but yes.
+- Sir, i have an `opinion` on this matter.
+- We didn't ask for your `opinion`, doctor.
+- Well, not your real `opinion`, naturally.
+- In your `opinion` is his estimate correct?
+- It's my `opinion` it took him much longer.
+- Will you abide by the council's `opinion`?
+- Public `opinion` is a funny thing, charles.
+- Well, if you want my `opinion`... at times.
+- I'd just like to know your `opinion` of him.
+- Yet her `opinion` of you mattered even more.
+- But in your `opinion`, would i definitely go?
+- I'm already familiar with taylor's `opinion`.
+- I've always respected your `opinion`, martin.
+- Wait a minute, why can't i give my `opinion`?
+- Well, everyone's entitled to their `opinion`.
+- I don't son, but i got the minority `opinion`.
+- In my `opinion`, jaundice is not very serious.
+- Dr. arroway, you are entitled to your `opinion`.
+- I tell you, i'm not interested in your `opinion`.
+- I want to know your honest `opinion` about sammy.
+- Expressing my `opinion` is not a terrorist action.
+- So i think it's safe to say my `opinion` is valid.
+- I'll *make* public `opinion` out there in five hours.
+- In your `opinion`, what happened to deborah ann kaye?
+- It's your `opinion` that's going to make or break us.
+- Look - oh, this is "good business" in your `opinion`.
+- You've really got a low `opinion` of me, haven't you?
+- Grampa, i want to hear your `opinion` that one's easy.
+- I'll bet he's got an `opinion` on the stock market too.
+- Love to have the `opinion` of a paleobotoanist as well.
+- In the `opinion` of this reviewer - that's all there is.
+- Tell me, do you share my high `opinion` of san francisco?
+- Clarke's `opinion` in this matter is not exactly unbiased.
+- The most important of which, in my `opinion`, being mexico.
+- Because my `opinion` threatens yours, it's poorly developed?
+- But naturally your own `opinion` is more informed than mine.
+- I'm glad you came by, changed my `opinion` of harvard people.
+- The `opinion` of a scorned lover is hardly an objective view.
+- If i was him i'd have the same `opinion` about me that he does.
+- Then i gotta say, in my `opinion`, you can't get what you want.
+- My `opinion`, terrorists... what's the scoop on that stolen unit?
+- You didn't want my `opinion` in the first place, so why even ask?
+- In your `opinion`, why did frank kidnap dorothy's son and husband?
+- I was thinking -- mandy really values your `opinion` ... for what?
+- Commissioner gordon thought you might give me your expert `opinion`.
+- I'd like to have the expert `opinion` of the fish--along with yours.
+- In my `opinion`, it is time we had a piece in our own language, sir.
+- We want you to give us your `opinion` on some clothes for teenagers.
+- For such a little man he had quite an oversized `opinion` of himself.
+- If i may, your majesty, i would like to offer a dissenting `opinion`.
+- There was a certain difference of `opinion` concerning a venison pie.
+                 

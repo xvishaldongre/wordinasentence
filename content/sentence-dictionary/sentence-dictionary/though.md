@@ -1,0 +1,107 @@
+---
+title: "though in a sentence | though example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "though"
+---
+- Eight years, `though`.
+- Great stems, `though`.
+- He's a dick, `though`.
+- I don't mind `though`.
+- I shouldn't, `though`.
+- It's french, `though`.
+- It's so lit, `though`.
+- It was scary `though`.
+- Just should, `though`.
+- Kinda clammy `though`.
+- Not bad `though`, huh?
+- Travels well `though`.
+- Weird beard, `though`.
+- You feel it, `though`.
+- Better `though`, right?
+- I could have, `though`.
+- I'll find out `though`.
+- I'll tell you `though`.
+- I never would `though`.
+- My dog knows, `though`.
+- No, maybe not `though`.
+- She was great `though`.
+- You're strong `though`.
+- A little sugar `though`.
+- But i saw him, `though`.
+- Carter's here, `though`.
+- Fun `though`, wasn't it?
+- He's harmless, `though`.
+- I know better, `though`.
+- Never fired it `though`.
+- No, good guess `though`.
+- Not too bright `though`.
+- We still talk, `though`.
+- Yeah, hurry up `though`.
+- You know what, `though`?
+- Actually, i am, `though`.
+- Clean `though`, isn't he?
+- He's a nice guy `though`.
+- He sure is nice `though`.
+- I have wondered `though`.
+- I started slow, `though`.
+- It's delicious, `though`.
+- No onions `though`, okay?
+- No sign of doc, `though`.
+- No ... thanks `though`...
+- Poetic justice, `though`.
+- Right now, i do `though`.
+- Something black `though`.
+- Still loves you `though`.
+- Sure is pretty, `though`.
+- `Though` nicer than most?
+- What about you, `though`?
+- Can't place him, `though`.
+- Citizens only, `though`...
+- I do have a ride `though`.
+- I got big ideas, `though`!
+- I'm enjoying it, `though`.
+- I'm just saying, `though`.
+- I `though` you were a han.
+- Just the same, `though`...
+- She really does, `though`.
+- We're both good, `though`.
+- Bad timing for me `though`.
+- I do have a ride, `though`.
+- I only went twice `though`.
+- I `though` it was terrific.
+- This one's on me, `though`.
+- Very byronic end, `though`.
+- We got a picture, `though`.
+- You can't be late `though`.
+- You don't have to `though`.
+- You don't want it `though`.
+- You gotta be cool `though`.
+- You're okay, `though`, huh?
+- Got you something, `though`.
+- Guy's not a dummy, `though`.
+- He wasn't no flyer `though`.
+- I can't let you go `though`.
+- I'm being serious, `though`.
+- I'm off the booze, `though`.
+- I'm sure you will, `though`.
+- Made you a badass, `though`.
+- No....i `though` i'm afraid.
+- You got to cock it `though`.
+- You have a purpose `though`!
+- You liked the guy, `though`.
+- All in the stomach, `though`.
+- Even `though` they should be.
+- Gotta time it right `though`.
+- He just ain't here, `though`.
+- He's better, `though`, right?
+- I'll make some more `though`.
+- I remember the bat, `though`.
+- I `though` we went over this.
+- It's a pretty name, `though`.
+- I've only seen one, `though`.
+- Maybe it blew `though` early.
+- Right now, `though`, i can't.
+- Tell you one thing, `though`.
+- There is good news, `though`.
+                 

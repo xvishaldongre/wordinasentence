@@ -1,0 +1,107 @@
+---
+title: "foot in a sentence | foot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "foot"
+---
+- He has to be on `foot`.
+- Look at my `foot`, sir!
+- Two `foot`, one `foot`...
+- A wolf without a `foot`!
+- They're going on `foot`?
+- We have to go on `foot`.
+- You're on `foot`, lenny.
+- ...brian hurt his `foot`.
+- Doesn't your `foot` hurt?
+- You can move your `foot`.
+- A `foot` and a half thick?
+- From here, we go on `foot`.
+- He stamps on alex's `foot`.
+- My god damn `foot` is gone!
+- Shoe's on the other `foot`?
+- They must be a `foot` long.
+- Gotta move your `foot` here.
+- Guess we're going on `foot`.
+- My `foot` must have slipped.
+- I got my `foot` on the floor.
+- Monsieur `foot`-in- the-mouth.
+- So you chewed off your `foot`!
+- A six-`foot`-tall bunny rabbit.
+- Your face smells like a `foot`.
+- Like i'm one `foot` in the dirt.
+- Prove it... stand on one `foot`.
+- Put your `foot` on here, please.
+- 8700 `foot` pound striking force.
+- My `foot` went through the fence.
+- One `foot` in front of the other.
+- A fifty `foot` extension lead?
+- I've been over every `foot` of it.
+- Only to get my `foot` in the door.
+- Six `foot` clearance at the ridge.
+- Look, i'm gonna put my `foot` down!
+- Adam, you had a photo of big `foot`!
+- At low tide, we can cross on `foot`.
+- We just got off on the wrong `foot`.
+- Now i'm gonna take the whole `foot` off.
+- Er, let me guess, my `foot` in your arse?
+- Like if you shoot yourself in the `foot`?
+- Sorry, boy, i have to put my `foot` down.
+- That pudwapper just stepped on my `foot`.
+- You don't have fifty `foot` of apartment!
+- She will not set `foot` in my house again.
+- We got off on the wrong `foot`, you and i.
+- If you get an oscar, i get the left `foot`.
+- I think he wants to see your rabbit `foot`.
+- So am i going to help you with your `foot`?
+- When they finally set `foot` on the ground.
+- `Foot` beat units continue on the boardwalk.
+- He led us here so we'd have to go on `foot`.
+- She never should've set `foot` on this ship.
+- We'll go around that way, come up on `foot`.
+- Finn, there's a splinter in your left `foot`.
+- Four to the chest and one through his `foot`.
+- I think we've gotten off on the wrong `foot`.
+- You can't even set `foot` in the parking lot.
+- Our `foot` soldiers will blow your brains out!
+- Cleon jones is gonna get hit in the `foot`.
+- The homeless are here for their `foot` washing.
+- Her boyfriend lost his `foot` in a shark attack.
+- He's going to take his `foot` off slowly, david.
+- I haven't so much as set `foot` in your bedroom.
+- Ask the american taxpayer to `foot` the bill?
+- Six `foot` one, strongly built, about 190 pounds.
+- Get me drunk so i don't stick my `foot` up yo ass.
+- He's trying to get a `foot` hold in our territory.
+- The bear was dragging one kid around by the `foot`.
+- Fight me from your horse or on `foot`, but fight me.
+- I have a bone in my `foot` that still hasn't thawed.
+- They didn't, they buried him at the `foot` of anubis.
+- You will take command of the 62nd regiment of `foot`.
+- Then we'd best leave them here and carry on on `foot`.
+- Then you tell the commission he was five `foot` eight.
+- For gosh sake, eve, take your `foot` off the chair!
+- He took a thorn out of a lion's `foot`, smell ya later.
+- I never saw agnes until she set `foot` in this convent.
+- Thirty-second opening in the roof and a 250-`foot` drop.
+- Well i guess that'd be our ten-`foot` backyard per-gola.
+- Yeah, but you got to come the rest of the way on `foot`.
+- Yeah, well you wrote me you were six- `foot`-four, baby.
+- This kid is six `foot` two, two hundred and forty pounds.
+- Jimmy has a serious ind'n walk -- ball of the `foot` first.
+- We'll take the jeep as far as we can, then go on on `foot`.
+- A wife who threw you out the first time your `foot` slipped.
+- He busted the back window with his feet, and fled on `foot`.
+- No living man has ever set `foot` in the halls of asgaard...
+- I saw him do "tru" with his sixty `foot` robert morse puppet.
+- You're not setting `foot` off this ship until we return home.
+- About as good as can be expected with one `foot` in the grave.
+- Aides push two 6-`foot` loudspeakers and a hi-fi on a trolley.
+- Get all the water you can carry, and we'll head out on `foot`.
+- You also told the fbi when you met him, he was six `foot` two.
+- That thing's got a what, twenty-five, twenty-seven `foot` neck?
+- You pray in the one you'd never set `foot` in...and vice versa.
+- Because i got off to a wrong `foot` with my own thing, you know.
+- Give me a 400-`foot` magazine; we may be down there for a while.
+- Now this is a heel, see, and there, that's the ball of a `foot`.
+- You're an adrenaline junkie with one `foot` in the penitentiary.
+                 

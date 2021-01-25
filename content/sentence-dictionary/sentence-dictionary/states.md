@@ -1,0 +1,107 @@
+---
+title: "states in a sentence | states example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "states"
+---
+- Where in the `states`?
+- Turn `states` evidence.
+- It plays in 50 `states`.
+- Larry from the `states`.
+- A united `states` senator!
+- A voice from the `states`.
+- This is the united `states`.
+- Best head in fifty-two `states`.
+- To the united `states` of america.
+- It was gettin' ugly in the `states`.
+- Says the united `states` of america.
+- We got through two `states` already.
+- How does he get back to the `states`?
+- The president of the united `states`.
+- The president of the united `states`?
+- Through different `states` of matter.
+- The entire united `states` of america.
+- Vincent's in the `states` on business.
+- You lived in the `states` for a while?
+- You represent the united `states` now.
+- Are we talkin' united `states` dollars?
+- They're headed for the united `states`.
+- Third president of the united `states`.
+- This is your first time in the `states`?
+- Do you prefer cuba or the united `states`?
+- He spent half of his life in the `states`.
+- Can't find anything like it in the `states`.
+- Except the president of the united `states`.
+- The united `states` is a no- smoking nation.
+- Trying to get on the plane for the `states`.
+- "a history of the united `states`, volume i."
+- I was aiming for the eastern united `states`.
+- We neutralized enemies of the united `states`.
+- You, when will you go back to the `states`?
+- We've got enough for the whole united `states`.
+- You went back to the `states` when we split up.
+- That woman could be in any one of four `states`.
+- Would i walk across the united `states` for you?
+- I've had my license taken away in three `states`.
+- Laid down in our more snow-laden sister `states`.
+- Laid out in all those snow-laden sister `states`.
+- Major william cage, united `states` military media.
+- They took out the president of the united `states`!
+- Banned from the united `states`, just like asbestos.
+- I am harold ryan, of the united `states` of america.
+- I've heard you've got the best coke in the `states`.
+- They are undermining the united `states` of america.
+- Two terms; one in italy, one in the united `states`.
+- But you are an honored guest of the united `states`...
+- God bless the united `states` of america welcome back.
+- It clearly `states` in the will -- well, that's crazy.
+- This is the united `states` government for god's sake.
+- 'the president of the united `states` to harry shapiro.
+- Compliments of the united `states` army artillery corps.
+- Maybe not visions, but like these waking dream `states`.
+- This is united `states` coastguard station north island.
+- We’ll miss the window for the eastern united `states`.
+- General, i am an officer in the united `states` military.
+- I've still got a few legal problems back in the `states`.
+- This is united `states` coast guard north island station.
+- I'm starting to... we may do the capitols of the `states`.
+- When an object moves through different `states` of matter.
+- ...you'd be operating outside territorial united `states`.
+- You won't even give me your address in the united `states`.
+- He was the president of the united `states` -" you're wrong.
+- Sir, this plane carries the president of the united `states`.
+- You got about six more big `states` to go before we find out.
+- The united nations has voted authority to the united `states`.
+- To the champion of the whole united `states` -- dan'l webster!
+- Four big `states` where the deer and the antelope play, wesley!
+- I'm an undercover agent for the united `states` secret service.
+- If he decides to turn `states` he could dismantle us... totally.
+- I've known people in other `states` who went back on their word.
+- Personally, i'll be calling the president of the united `states`.
+- Whatever this is, it clearly responds to human emotional `states`.
+- What is your intended purpose of your visit to the united `states`?
+- In 1959, the united `states` was very friendly with the shah of iran.
+- Between the quantum `states` composed of her molecules and your brains.
+- Did you know that's written in the constitution of the united `states`?
+- Y-yes-- does that include helen filmore, united `states` congresswoman?
+- Our information `states` it came from a small group of armed, dissidents.
+- Narrator: to the united `states` went the best that britain could produce.
+- If ye'd wanted a bloody cadillac ya should'a stayed in the bloody `states`!
+- The amount of coke we got on you means capital punishment in some `states`.
+- Lee, this is special agent sterling from the united `states` secret service.
+- Who do you think gets through this gate into the united `states` of america?
+- I can arrange the most creative financing in the six `states` of new england.
+- How can you say a thing like that about an officer in the united `states` army?
+- I am the commander-in-chief of the united `states`, and i say when we go to war!
+- You talk about the people of the united `states` as though they belonged to you.
+- Pathological `states` can induce abnormal strength, accelerated motor performance.
+- So you do have an agreement with the united `states` government, mr. jung, correct?
+- This gang operates across four `states`, often riding a hundred miles between jobs.
+- Not you -- not the united `states` government -- me -- i'm the one being ripped off!
+- <u>nasa</u> is going to kill the president of the united `states` with an earthquake.
+- He became addicted to them in south america, followed the plants back to the `states`.
+- ...the united `states` into the kind of country we're supposed to be fighting against.
+- Isolated completely, a quantum system would revert back to separate `states` of matter.
+- How the hell do you have the temerity to blackmail the president of the united `states`?
+- You represent the united `states` government... never end a sentence with a preposition.
+                 

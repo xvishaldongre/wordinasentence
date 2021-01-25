@@ -1,0 +1,86 @@
+---
+title: "connection in a sentence | connection example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "connection"
+---
+- Create a `connection`.
+- We had a `connection`.
+- Planet and `connection`?
+- What's the `connection`?
+- But what's the `connection`?
+- I feel a `connection` to it.
+- I don't see the `connection`.
+- Me and her got a `connection`.
+- I fail to see the `connection`.
+- There has to be a `connection`.
+- There's a psychic `connection`.
+- He has a very high `connection`.
+- There's gotta be a `connection`.
+- But there's this -- `connection`.
+- Sounds like a `connection` to me.
+- We had a `connection`, didn't we?
+- You think there's a `connection`?
+- The `connection` sounds very good.
+- So what the hell's the `connection`?
+- From your old-school pot `connection`.
+- Does she get to meet your `connection`?
+- Who's providing the smack `connection`!
+- Oh yeah, what's my `connection` to that?
+- Everywhere, but no apparent `connection`.
+- She's my `connection` to an investigator.
+- Still the `connection` was undeniable.
+- You're not the only one with `connection`.
+- ... electrical `connection` malfunctioning.
+- Ready to transmit -- checking `connection`.
+- Somehow you have to break the `connection`.
+- The `connection` between you and our mother.
+- 'the oliver stone-george bush `connection`'.
+- What do you need my `connection` for, diego?
+- With your `connection` you can find a buyer.
+- Always use the eyes to keep the `connection`.
+- There's no `connection` between the families.
+- Why don't you tell me about your `connection`.
+- Is there a `connection` between them, alderman?
+- Well, there isn't a literal `connection`, dude.
+- I don't see any `connection` to vietnam, walter.
+- So the method of death is the only `connection`?
+- There's a `connection`, we just have to find it.
+- The `connection` is, it did a head number on him.
+- An organic `connection` between all living things.
+- I'm going to check on the beam `connection`, yori.
+- What if there were a `connection` between the two?
+- You said he was no possible `connection` with tom.
+- I think there's a `connection` -- what did you say?
+- I thought you might be able to make a `connection`.
+- You are, you are my only `connection` to the world!
+- ...is that your `connection` for getting into zalem?
+- You and my mother would have a special `connection`.
+- You're on a `connection` to a trans siberian express.
+- You think there was a `connection` to-- i don't know.
+- Believe me, i have no `connection` with her any longer...
+- We still haven't found a `connection` between the victims.
+- Can't quite make the `connection` with that sucker, though.
+- Gon blodreina there is an ember of `connection` between us.
+- The point is-- walter, face it, there isn't any `connection`.
+- Fans have a deep `connection` to the marble cinematic universe.
+- There must be some `connection` between the plane and this place.
+- I have a responsibility to try to make a human `connection` with him.
+- Any `connection` between your reality and mine is purely coincidental.
+- I want a good look, so if you've got that kind of `connection`, great.
+- However, none of them appear to have a `connection` to the energy ribbon.
+- The point of fedex, as i understand it, is to make the damn `connection`.
+- You don't understand, they'll make the `connection`, they'll hoover again.
+- Thought there might be a mexico `connection`, el paso and all, but nothing.
+- If that's true, then there must be some `connection` with the amargosa star.
+- I've been clicking the loose wires together hoping it'd make a `connection`.
+- I cannot make one simple `connection` with any woman who could truly love me.
+- I cannot accept a `connection` between david kessler and last night's murders.
+- Whatever twisted `connection` you think you have holy crap, you're glen tangier.
+- I'm your priest, your shrink, your main `connection` to the switchboard of souls.
+- You know libbets, i really feel, you know, like a real `connection` to you -- yeah.
+- Another thing that baffles me, doctor - what was his `connection` with the deceased?
+- This case has no `connection` with any subsequent act my client may be charged with!
+- There's no `connection` at all among these places, or the computers would've nailed it!
+- Can you tell my readers more about your star-crossed `connection` with emperor commodus?
+                 

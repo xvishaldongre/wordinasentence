@@ -1,0 +1,107 @@
+---
+title: "laid in a sentence | laid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "laid"
+---
+- I'm off to get `laid`.
+- You need to get `laid`!
+- I haven't `laid` a hand.
+- I'm going to get `laid`.
+- I'm `laid` off last year.
+- It's `laid` in araby now.
+- Bobby `laid` his own tracks.
+- We're gonna get `laid`, baby.
+- Where has it been `laid` out?
+- He's never `laid` eyes on her.
+- So -- you've `laid` the ghost.
+- But i'm kind of `laid` up here.
+- It wasn't about getting `laid`.
+- Somebody just `laid` this down.
+- Three days you've `laid` there.
+- I've `laid` out your green coat.
+- Does it tell me how to get `laid`?
+- He's pretty `laid` back, confident.
+- She was just looking to get `laid`.
+- My father never `laid` a hand on me.
+- No shit, i'm never gonna get `laid`.
+- Coordinates for vormir are `laid` in.
+- If i get `laid`, you won't tell annie?
+- I'm going to get you `laid` this week.
+- I never `laid` a hand on her in anger.
+- My husband never `laid` a hand on her.
+- I know a place there we can get `laid`.
+- In other words, you want to get `laid`?
+- I've `laid` out a paint table for them.
+- You don't need <u>us</u> to get `laid`.
+- There's no red carpet `laid` out for me.
+- My parents are `laid` out in the library.
+- The coordinates for vormir are `laid` in.
+- Shit, i bet i been `laid` more'n you have.
+- The unquiet spirit must be `laid` to rest.
+- This isn't gonna get you `laid`, you know.
+- You called me to ask me how to get `laid`?
+- Even though she's never `laid` eyes on him.
+- I hate to bother you when you're `laid` up.
+- It's not like you `laid` the eggs yourself.
+- Go have a jacuzzi and get `laid` in bangkok.
+- Just lies to get `laid`, lies to get respect.
+- The south africans were `laid` out at camp 3.
+- If i was a fag i could get `laid` in a subway.
+- By the way, sherman didn't even get `laid`.
+- That's the first time you `laid` eyes on me?
+- `Laid` down in our more snow-laden sister states.
+- `Laid` out in all those snow-laden sister states.
+- He was dead long before we `laid` a finger on him.
+- The picture `laid` an egg, a great expensive bomb.
+- I ain't `laid` a hand on ya but to ease yo fever...
+- I `laid` some bread on him and he let me copy them.
+- No juice, looks like it's been `laid` up for years.
+- I've `laid` eyes on no mortal but you this day, jack.
+- Baby never `laid` eyes on her till she showed up here.
+- That one of their own in-laws `laid` a dumper on them?
+- It's because you're no longer trying to get `laid`.
+- I thought maybe i'd been `laid` off and nobody told me.
+- You are the most lost woman i have ever `laid` eyes on.
+- Dude, it's not like i haven't been trying to get `laid`.
+- He got a knife in me and i `laid` him out with a shovel.
+- I knew you were a squid the moment i `laid` eyes on you.
+- Save the speeches for malcom x. i just wanna get `laid`.
+- Listen, pardner; this ain't no time to be getting `laid`.
+- He got `laid` off from work and had to just work odd jobs.
+- I am going to get `laid` before i settle down on saturday.
+- If you don't i'll curse the day i ever `laid` eyes on you.
+- Now here's the deal: we all get `laid` before we graduate.
+- You are the most attractive man i've ever `laid` ears on."
+- You don't think i can be "`laid` back" like everyone else?
+- I used the remote control thing and `laid` it on the floor.
+- This man's family will want to see the body `laid` to rest.
+- From the time i was born, you had `laid` this all out for me.
+- I knew you were a loser the first night i `laid` eyes on you.
+- We do this the way i `laid` it out, or we don't do it at all.
+- They `laid` on a tour for tomorrow a.m. told me to wear a tie.
+- I've loved you ever since i first `laid` eyes on you, jeremiah.
+- Because somebody just fucking called me and fucking `laid` it out!
+- I knew the minute i `laid` eyes on you, you had what it takes bud.
+- Is this a genetic thing, men will say anything just to get `laid`?
+- It hasn't been `laid` out, we haven't finished with the embalming.
+- Everything he owns is `laid` out on the bedroom, ready for packing.
+- ...shut up, sue... have you gotten `laid` once since you moved here?
+- Now, do you think she'd prefer -- cool hip jim... or `laid` back jim?
+- I would have fuckin' made you lay ten... well, how come i `laid` nine?
+- Guy'd have to look as ugly as king kong not to get `laid` in this place.
+- ...it must have `laid` something inside his throat, some sort of embryo.
+- I was kinda' hopin' to get a "good night `laid`" but...i'll take a kiss.
+- C'mon, let's have some chablis, otho, i'm `laid` bare by this experience.
+- We thought there might be a brain on p. bugs `laid` a trap, didn't they ?
+- People were scared, the agency was respected, and i got `laid` every night.
+- She `laid` down in the offering grove a year later, i just need more power.
+- The day you first `laid` your oily rap on my future wife you started a war!
+- We `laid` out very careful ground rules -- oh sweetheart, just a quick one.
+- Yes-- well, it still says some animal got `laid` down here after, don't it?
+- If you ask me, i say you just `laid` eyes on our murderer through that glass.
+- When you leave this place you're going out to dinner or a movie or get `laid`.
+- There's a certain kind of wounded young man who uses his oddness to get `laid`.
+- Yeah, yeah, jesus - i'm sayin', we'll stop for pancakes, then we'll get `laid`.
+- Yeah, i haven't figured out the plot yet, but it's `laid` in a siberian village.
+                 

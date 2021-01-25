@@ -1,0 +1,107 @@
+---
+title: "computer in a sentence | computer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "computer"
+---
+- In a `computer` program.
+- One `computer` is lying.
+- Or an on-line `computer`.
+- The `computer` knows that.
+- Dad, the `computer` says...
+- Defense network `computer`.
+- The `computer` knows where.
+- We've blown the `computer`!
+- A `computer` canna lie, sir.
+- `Computer`: 3, 2, 1, launch.
+- `Computer` voice: attention.
+- Control `computer` restored.
+- `Computer`: caution, terrain.
+- `Computer`: terrain, terrain.
+- I'm in this `computer` right?
+- I saw the `computer` records.
+- `Computer`, can it be repaired?
+- There's no `computer`, nothing.
+- When i was at `computer` crime.
+- It's like cracking a `computer`.
+- Not according to the `computer`.
+- ...this is conklin's `computer`.
+- To the on-board `computer` room.
+- Connected to the `computer` here?
+- He was just a `computer` program.
+- Wasn't that a `computer` glitch ?
+- I'm repeating the damn `computer`!
+- Your dad has two `computer` disks.
+- `Computer`, what about our engines?
+- `Computer`, what language was that?
+- I got a look in testa's `computer`.
+- I moved payroll onto the `computer`.
+- In the `computer` system of the ark.
+- It's the reactor-control `computer`.
+- Ready to engage `computer`, admiral.
+- That damn `computer` has taken over.
+- That's great if you're a `computer`.
+- With that `computer`--nobody better.
+- You can search the `computer` again.
+- You got yourself a `computer`, alma.
+- Accountants and `computer` whiz-kids.
+- `Computer` fraud, identity theft.
+- But we need access to the `computer`.
+- `Computer`: missile bay airlock open.
+- `Computer`, this is captain standard.
+- Is it coming from our own `computer`?
+- I want you back in `computer` crimes.
+- A high priority from the `computer`...
+- That `computer`'s wired into internet.
+- But don't have a `computer` or a phone.
+- `Computer`, raise lighting four levels.
+- Did they disconnect testa's `computer`?
+- It's a `computer` programming language.
+- Our `computer` went on the fritz again.
+- Their new `computer` sciences division.
+- "airbag," radiohead, from ok `computer`.
+- `Computer` program that ended the world.
+- How else do you test a chess `computer`?
+- It's taken control of the `computer`...!
+- I was `computer` code -- ones and zeros.
+- We are quite beyond the `computer` disc.
+- An entire-suite of main-frame `computer`.
+- He was a `computer` program for crissake.
+- There's a `computer` upstairs in med bay.
+- He's a sales rep for a `computer` company.
+- I took a loan on my car and my `computer`.
+- You don't have a `computer` in your cabin?
+- You're the `computer` hacker, you tell me.
+- According to my nava-`computer`, the -- no.
+- I put an ad on a `computer` bulletin board.
+- One of those `computer` geniuses, isn't it?
+- You can't catch this man with a `computer`.
+- Bring me that fuckin' kid on the `computer`.
+- Buy ibm, buy polaroid, buy apple `computer`.
+- Everybody's favourite `computer`, of course.
+- That explains why the `computer`'s confused.
+- That we build out of scrap and a `computer`.
+- As a child, my only friend was my `computer`.
+- At least the `computer` at langley likes you.
+- `Computer`, display these failures over time.
+- Couldn't we just get a `computer` to do this?
+- Right now, we're inside a `computer` program?
+- It's a direct feed into our `computer` system.
+- It's when a human interacts with a `computer`.
+- That `computer` has everything... ...my files!
+- According to the `computer`, he paid the price.
+- In that whole time, i never left my `computer`.
+- I wished to be reinstated at `computer` crimes.
+- He can get into my `computer` any time he likes!
+- He isn't to consort with his `computer` friends.
+- Seabiscuit, the `computer` that won on jeopardy!
+- That the `computer` has artificial intelligence.
+- Andy didn't lose the complaint in his `computer`.
+- I need a `computer` reading on a fail- safe mark.
+- Is somewhere in the `computer` system of the ark.
+- Is somewhere in the `computer` system of the ark.
+- That's why you didn't find it in your `computer`.
+- The event horizon's `computer` think's it's 2034.
+- He's gone to check your answers on his `computer`.
+- We've run it through the `computer` a dozen times.
+                 

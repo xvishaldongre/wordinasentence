@@ -1,0 +1,83 @@
+---
+title: "points in a sentence | points example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "points"
+---
+- `Points` at the motel.
+- Coming through, `points`.
+- Seven `points` of damage.
+- You're ahead on `points`.
+- Two `points`, right there!
+- 'cause i'm up two `points`.
+- Everything `points` to her.
+- Everything `points` to you.
+- He `points` at a briefcase.
+- Hit `points` along the way.
+- Ooh, it's boiling `points`.
+- I'll spot you five `points`.
+- They're worth less `points`.
+- And don't just say "`points`."
+- 3 entry `points` to the valley.
+- I'm already two `points` ahead.
+- The dow lost another 16 `points`.
+- To surround their spawn `points`.
+- Everybody�s got pressure `points`.
+- `Points`, `points`, excuse me, `points`.
+- All for a couple's political `points`.
+- Look at 'em-- `points` to cages of cats.
+- Our rendezvous `points` and radio freqs.
+- Ten `points` for our fearless leader ...
+- Oh, dad, the `points` expire at midnight.
+- So far you haven't built up any `points`.
+- There are two `points` of salient interest.
+- I don't see you scoring any `points`, buddy.
+- I'll even spot ya a few `points` first game.
+- Voice stress `points` suggest he's worrying.
+- Has the wing confirmed holding at x-`points`?
+- How many `points` you got left on your license?
+- If it gets you experience `points` or whatever.
+- Well, i like to try to get all `points` of view.
+- There are a few other `points` we should discuss.
+- Sometimes not knowin' how to read has its `points`.
+- I'm sure the arkansas bears put out an all-`points`.
+- They're digging in at all 3 northern entry `points`.
+- But i don't think that everything `points` to wynant.
+- Men don't know which end is up till a woman `points`.
+- Twenty-five hits a year in 500 at bats is 50 `points`.
+- Now: what's the shortest distance between two `points`?
+- A girl comes up and `points` at you, you only see trouble.
+- I got four `points` of posit- ive comparison on the cut ..
+- He don't talk as much as you, i give him `points` for that.
+- Twenty-seven `points`, eleven assists and still undefeated.
+- But you do get `points` for being horny on a night like this.
+- The shortest distance between two `points`... a straight line.
+- What was the most `points` your daddy ever got in junior high?
+- All my recent data `points` to something big on the bottom.
+- I didn't agree to three `points` over the vig.- what am i nuts?
+- The graph we came up with definitely `points` to something big.
+- Even if they did, you can't get 750,000 `points` on dig dug.
+- One cervical stabilizer, two sets of dilators--douglas `points`.
+- Subtlety really isn't one of you finer `points`, is it, osborne?
+- Twelve hundred `points` of interest in yosemite and you pick me.
+- And we know that it takes 7 `points` clarke, i need to do this.
+- Though the impact `points` are evidence of an extraordinary power.
+- You just picked up three penalty `points` on your driver's license.
+- And you cross-referenced that analysis with a `points`-based system?
+- I mean, i'll give you `points` for style -- just nothin' for smarts.
+- That you haven't time for either marriage or eating -- what `points`?
+- Thanks for reminding me.. you have nine `points` left on your license..
+- I am interested only in the shortest distance between these two `points`.
+- It that read out fluctuates more than ten `points`... just pull this out.
+- To begin, i put money out on the streets, chargin' three `points` a week.
+- He looks at the girl, looks into her eyes-- `points` very straight to her.
+- Two roadblocks and an all-`points` bulletin wouldn't stop a five-year-old!
+- You think i don't understand `points` and royalties and ancilliary rights?
+- All you have to do is afraid of losing cool `points` to a ten-year-old child?
+- They checked my plugs and cleaned my `points`... h-h-how's it g-g-going, mack?
+- Very chilling, but you still got all the `points` across that we talked about.
+- Loyalty... `points`, which we can only use aw, the only way to beat good question.
+- A line through the `points` of occurrence makes almost a complete circle... see what?
+- There's no way we can get to him and you've opened yourself to five `points` of perjury.
+- It's only two thousand dollars, bloom, do me a favor, move a few decimal `points` around.
+                 

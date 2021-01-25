@@ -1,0 +1,99 @@
+---
+title: "pray in a sentence | pray example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pray"
+---
+- They'll `pray` to you.
+- I `pray` it misses you.
+- What do you `pray` for?
+- You better `pray`, gal.
+- In what way, `pray` tell?
+- I `pray` to god there is.
+- Er ... `pray` tell me why?
+- I'll stay here and `pray`.
+- I `pray` god grants it me.
+- I `pray` you: be succinct.
+- Same as we -- they `pray`.
+- I `pray` god he's an idiot.
+- `Pray` you never ﬁnd out.
+- `Pray` you, undo this button.
+- We `pray` to see canaan again.
+- What are they, `pray` tell?
+- First we party, then we `pray`.
+- I `pray` that you're both on it.
+- Well then, i'll `pray` for rain.
+- Do you `pray` to god, mr. lounds?
+- I just `pray` we're not too late.
+- We'll `pray` that he doesn't die!
+- I gotta run-- we'll `pray` anyway.
+- I must `pray` for his forgiveness.
+- I `pray` always to be worthy of it.
+- My mother used to `pray` ... a lot.
+- No go home and `pray` on your sins.
+- Sometimes for hours i would `pray`!
+- Yes... that's what i `pray` for...!
+- I get on my knees and `pray` for it.
+- `Pray` i don't alter it any further.
+- We'll `pray` -- and she'll be there.
+- Dear god...i don't know how to `pray`.
+- Kind of roomie you `pray` you don't get.
+- You better `pray`... laz, i said let...!
+- Let's `pray`, henry; let's `pray` a little.
+- `Pray` for walter gaskell to come to his?
+- Sir, we're up to 205 verified `pray`-ers.
+- Raven: en we close the door and `pray`.
+- They say we must `pray` to their evil god.
+- We'll `pray` to find you some honest work.
+- A father says to his son, but let's `pray`.
+- You better put some coffee on -- and `pray`.
+- However, we can also `pray` for other things.
+- I used to `pray` at night that it would work.
+- `Pray` you be sweet as your words, dear jack.
+- We will need to `pray` on this, brother homer.
+- Because we're going to `pray` like we often do.
+- Better `pray` the worm's a sound sleeper, jack.
+- I'm gonna `pray` that i never need to call you.
+- I `pray` to god that in a week you're not here.
+- We invoke the names of the primes as we `pray`.
+- We `pray` to krishna to help us find the stone.
+- Is actually downtown calgary, and now we `pray`.
+- If the house caught fire, he'd `pray` for a wind.
+- Well, let's `pray` this place won't be necessary.
+- If the master got sick, he'd `pray` that he'd die.
+- The first time you chose to `pray` what's in this?
+- Are you sure you don't want to `pray` for your dad?
+- They `pray`, grant thou, lest faith turn to despair.
+- Well, let's `pray` that's the only mistake you made.
+- If you're in your right mind, i `pray` you go insane.
+- All these people do is `pray` and work, work and `pray`!
+- All that is left for you now is to `pray` for her soul.
+- But every day she asks her boss to `pray` i don't fuck up.
+- I `pray` to all that is holy that she will someday return.
+- Except `pray` for a quick death, which you ain't gonna get.
+- I'd feel bad, an' `pray`, an' `pray`, but it didn't do no good.
+- I `pray` in your life you will never find it runs in streaks.
+- Our latest preparation we believe -- we `pray` -- is perfected.
+- You `pray` in the one you'd never set foot in...and vice versa.
+- I'd `pray` that maybe i'd grow up to be as brave as she was.
+- I would thou hadst my bones, and i thy news: i `pray` thee, speak.
+- You just have to...`pray`, or reach... do you have to die to see god?
+- Sometimes i go to the lincoln room at the white house and just `pray`.
+- When hedda says "i'm coming" you mix a lot of martinis and you `pray`.
+- After a time, all i could do was `pray` she had moved on to better things.
+- But i wouldn't `pray` for jus' a ol' man that's dead, because he's awright.
+- That is why twice daily we turn to mecca, to the holy of holies, to `pray`.
+- ♪ maybe this time i'll `pray` ♪ - _ and give all your information to the fbi.
+- The princess is under there ... `pray` he's color-blind... what do we do now?
+- We just have to <u>`pray`</u> that the other closets are bigger than this one.
+- Considering you `pray` to garbage, each of these crimes is punishable by death.
+- I'll tell thee as we pass; but this i `pray`, that thou consent to marry us today.
+- I `pray` that i shall never have to raise my sword against one that i call friend.
+- I `pray` my story will come to mean for you all that is capricious and evil in man.
+- If you truly are sorry, son, then you better `pray` like you've never prayed before.
+- Just `pray` the last set of coordinates milo sent me connected us to gary's satellite.
+- If i was to `pray` i'd `pray` for the folks that's alive an' don't know which way to turn.
+- Then we establish how wheeler's boys recruited you after law school... do you... `pray`?
+- Now, wouldn't you `pray` for twenty bucks, a bottle booze an' a piece of that angel cake?
+- He says, vun to `pray` in, and vun i'd never set foot in so long as i live, so help me god.
+                 

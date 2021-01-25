@@ -1,0 +1,76 @@
+---
+title: "process in a sentence | process example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "process"
+---
+- It's in the `process`.
+- `Process` my thoughts.
+- Trust in the `process`.
+- The educational `process`.
+- It's a disgusting `process`.
+- Purification is a `process`.
+- I just `process` the profits.
+- Rebooting `process` initiated.
+- So is our electoral `process`.
+- Through his hellish `process`.
+- Fried air tram in the `process`.
+- The `process` has already begun.
+- We've just slowed the `process`.
+- Crew wake-up `process` initiated.
+- Yourself too in the `process`.
+- It's a neural-net `process` -- oh.
+- They're pretending it's `process`.
+- What if this `process` kills janet?
+- The `process` was carefully guarded.
+- I, um... purification is a `process`.
+- We never went through that `process`.
+- It's just part of the whole `process`.
+- We can begin the extraction `process`.
+- You've got a warped thought `process`.
+- It's all part of the recovery `process`.
+- It's where the filtering `process` starts.
+- We can begin the extraction `process` now.
+- Serving `process`, a summons and complaint.
+- But if someone miniaturized the `process`...
+- I'm in the `process` of switching from econ.
+- The selection `process` was entirely random.
+- They're already familiar with the `process`.
+- <u>it destroyed the electoral `process`</u>.
+- You've blocked it from the healing `process`.
+- I thought it might begin the healing `process`.
+- It's a long `process` but... they sent me home.
+- You got a nasty side to your thought `process`.
+- I hope this is part of the unfreezing `process`.
+- I didn't know you invented that smelting `process`.
+- A good immigration lawyer could stall the `process`.
+- I want the `process` to become second nature to you.
+- The point is there's a certain art to the `process`.
+- Jasper is decreasing the efficiency of the `process`.
+- Do you truly believe the electoral `process` is absurd?
+- The focus is on the college admissions `process` today.
+- The problem is the by-product created by the `process`.
+- We have an antidote that'll retard the aging `process`.
+- His last visitor was the `process` server beast blaster!
+- Not everyone is able to `process` experiences like this.
+- This is the painstaking `process` of piecing together clues.
+- You're implying that the whole selection `process` is a sham?
+- The foundation runs itself -- i'm extraneous to the `process`.
+- Narrator: whiskey is the reward of a long, unhurried `process`.
+- My guys don't have a week for a feeb bureaucratic `process`.
+- I think the whole `process` would have taken an hour... maybe more.
+- You're at this third stage everyone describes the same `process`.
+- At least we will have control over the `process` can you handle that?
+- I'm sorry i have to take so many shortcuts in the training `process`.
+- The shouting is a temporary side- effect of the unfreezing `process`.
+- I'm the first to admit that `process` included making some compromises.
+- He's now in the `process` of negotiating for a contract here in sicily...
+- Did you lose your mind all of a sudden or was it a slow gradual `process`?
+- I don't know the `process`, dr. weir was the expert... can you shut it down?
+- You want me to bring a grounder i will begin the `process` of making amends.
+- Hip alternative types who will understand the `process` better� we're not ready.
+- I'm beginning to wonder if trading for this baby i know this is a lot to `process`.
+- What to expect says that readying the baby's room is an important `process` for women.
+- How do i tell them that because of the unfreezing `process`, i have no inner monologue?
+- Dusty's just bought a huge house in southampton and he's in the `process` of decorating it.
+                 

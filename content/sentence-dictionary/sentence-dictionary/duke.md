@@ -1,0 +1,51 @@
+---
+title: "duke in a sentence | duke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "duke"
+---
+- Certainly, mr. `duke`!
+- `Duke`... second pint.
+- Good thinking, `duke`.
+- The `duke` of bedford?
+- The d-d-`duke` of death.
+- You in the market `duke`?
+- She didn't say mr. `duke`.
+- And `duke` ellington, 1962.
+- I must offer to the `duke`.
+- Did we tape the `duke` game?
+- Hawkeye and `duke` are here.
+- Where the fuck is she, `duke`?!
+- You're wasting your time, `duke`.
+- Eagle thrust four -- big `duke` six.
+- She is brought to the `duke`�orsino.
+- So the `duke` dug a tunnel--just in case.
+- Thufir you will make a formidable `duke`!
+- An excellent beginning let him be�a `duke`.
+- `Duke`, will you take that belly back there?
+- Listen `duke`, we're setting up a wire store.
+- Are you suggesting a `duke`'s son is an animal?
+- Last month, the `duke` of suffolk spent no more.
+- Ogdenville's car detailing king `duke` druthers.
+- Hell, boy there some other `duke` you know about?
+- Tell `duke` to do him ahead of the busted spleen.
+- You may call him "the `duke`," "my lord," or "sire."
+- I trust my honorable `duke` of burgundy is feeling well?
+- Hello, mr. `duke`, i'm sorry we were cut off a moment ago...
+- I took over for my pa just after the `duke` nabbed the oscar.
+- Affirmative, big `duke` six -- we're even got some rockets left.
+- Big `duke` six to baker delta four -- hold -- we're right over you.
+- Maybe it's going to be a longer war than you figured -- eh, `duke`?
+- She's your lady only cause she ain't had a taste of the `duke` yet.
+- Mr. `duke`, how can you claim that jason voorhees is not truly dead?
+- It's for somebody named thompson, but it says 'care of raoul `duke`'.
+- `Duke`, did i ever tell you how i beat dartmouth by intercepting a pass?
+- The `duke` of drunk, the king of stink, our most frequent flier, mr. oh.
+- The `duke` accelerates the ornithopter in the direction of the harvester.
+- A `duke`'s son must know about many poisons -- this one kills only animals.
+- Big `duke` six to hell's angels four -- bring it in on along tree line and huts.
+- The `duke` is becoming more popular in the landsraad... he could threaten me....
+- That's why he's entrusted me with the task of... shall we say... and your `duke`?
+- You betrayed the `duke`, stole his wife and took his castle, now no one trusts you.
+- Your grandfather wore that in his service to the king, and i to fight for the `duke`.
+                 

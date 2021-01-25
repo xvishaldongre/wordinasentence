@@ -1,0 +1,107 @@
+---
+title: "putting in a sentence | putting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "putting"
+---
+- `Putting` on my armor.
+- You're `putting` me on.
+- Are you `putting` me on?
+- `Putting` ashley outside.
+- I'm not `putting` her away!
+- Just `putting` up some tea.
+- Like `putting` on a play...
+- That's `putting` it mildly.
+- We're `putting` it in mine.
+- `Putting` on george's boots.
+- Then `putting` them together.
+- He was `putting` me on notice.
+- Oh, `putting` on the swell, eh?
+- Oh, that's `putting` it mildly.
+- `Putting` a monkey on his back.
+- `Putting` what you know to use?
+- She's `putting` the titty back.
+- That's one way of `putting` it.
+- Been `putting` my files into it.
+- I'm `putting` you on the coin...
+- He�s `putting` on a show, barnes.
+- I'm `putting` it on the top step.
+- Clint is `putting` a guard on you.
+- I'm `putting` it here by the door.
+- I'm `putting` the ark on lockdown!
+- Is he `putting` food on the table?
+- That's a nice way of `putting` it.
+- You're `putting` yourself at risk.
+- Say, who's `putting` up this dough?
+- This one is `putting` out low bits.
+- While `putting` yourself in danger.
+- Damn it, you're `putting` me behind!
+- Do you mind `putting` out the light?
+- Do you mind `putting` that gun away?
+- Yes and that's `putting` it mildly!
+- You're `putting` off the inevitable.
+- He's been `putting` stuff in my mail.
+- I'm `putting` that in my next report.
+- Is `putting` up with hank's bullshit.
+- I was `putting` them back on for you.
+- Just `putting` in an appearance then.
+- Well, that's one way of `putting` it.
+- You `putting` a hurtin' on my vision.
+- You're `putting` me on the defensive.
+- I'm `putting` you on a plane to vegas.
+- Then why are you `putting` on mascara?
+- They're `putting` me on film tomorrow.
+- You're `putting` me on the spot, bill.
+- Do you like `putting` makeup on people?
+- I'm `putting` out a fire with kerosene.
+- I'm `putting` this car in snuggle mode.
+- `Putting` all that poison in your hair.
+- They're `putting` it on at henley hall.
+- Why am i `putting` myself through this?
+- With mama, `putting` the baby to sleep.
+- I'm `putting` in a new illusion tonight.
+- I'm `putting` on my coat -- we are late.
+- I'm `putting` the base on condition red.
+- Thanks for `putting` me in a tough spot.
+- We were thinking of `putting` in a pool.
+- You better start `putting` your face on.
+- You're already `putting` me in therapy!!
+- Gump, you're `putting` words in my mouth.
+- I'm `putting` a piece of tape on my nose.
+- I'm `putting` my ass on the line for you.
+- I've been `putting` my own guilt on gary.
+- So how come you're `putting` lipstick on?
+- Well, i'm here `putting` together a show.
+- You been `putting` it up your whole life.
+- I'm `putting` my stuff on the right, okay?
+- I was `putting` the... yeah, a little bit.
+- They're `putting` drugs in our medication?
+- You `putting` that in the scales, wilhelm?
+- That's why we're `putting` her in the back.
+- They had no business `putting` me in there!
+- What are you `putting` that crap on me for?
+- George, i've been `putting` things together.
+- Of a proposal i'm `putting` together myself.
+- You're `putting` me in a difficult position.
+- He's probably `putting` together a lynch mob.
+- Like i was `putting` them into my big basket.
+- Look you're `putting` me off, standing there!
+- You're not `putting` my overcoat on that dog!
+- I'll be `putting` an observer in with you.
+- I'm `putting` everyone in this camp in danger.
+- `Putting` hundreds of innocent people in jail.
+- They're `putting` up their tent in the garden.
+- I'm `putting` my daughter's life in your hands.
+- We're `putting` up pictures for parent's night.
+- We're still `putting` the victim list together.
+- I don't care if you're `putting` from the rough.
+- I'm `putting` you back in the numbers right now.
+- I saw how you're `putting` mal johnson straight.
+- I see pike `putting` that gun to lincoln's head.
+- That's `putting` it crudely, but� wait a minute.
+- But i feel what you guys are `putting` out there.
+- Geoffrey, you do so love `putting` on a disguise.
+- Anything worth `putting` on between commercials...
+- But you're not `putting` any shit in me this time.
+- I've been `putting` this together for over a year.
+                 

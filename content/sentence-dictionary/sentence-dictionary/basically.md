@@ -1,0 +1,58 @@
+---
+title: "basically in a sentence | basically example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "basically"
+---
+- `Basically` the same thing.
+- She's `basically` a wizard.
+- To conquer us, `basically`.
+- You're `basically` screwed.
+- It's fool proof, `basically`.
+- He `basically` runs motorball.
+- `Basically`, guys i don't know.
+- What do you mean "`basically`"?
+- You... `basically`, uhmm, yeah.
+- `Basically` impenetrable, i'd say.
+- Had women `basically` as elbow candy.
+- `Basically` you're fucked any way you go.
+- I'm `basically` a pretty resourceful guy.
+- I'm `basically` conservative, but flexible.
+- `Basically` james, this is our uk sales team.
+- But `basically` he is, how you say, a legume.
+- At that point, `basically`, that has to be it.
+- They're `basically` like real-life video games.
+- Well, `basically`, there are parallel universes.
+- `Basically` that you're part of the same car pool.
+- `Basically`, any movie that deals with time travel.
+- You'd go and i'd be... well, buggered, `basically`.
+- Why i'm here, leo, `basically`, is to save your ass.
+- But... `basically` no one has seen or heard anything.
+- So `basically` you've spent half your life in prison.
+- `Basically`, they want what they think they can't have.
+- This whole station is `basically` a big fusion reactor.
+- After paperback it's `basically` someone else's problem.
+- So you're `basically` lying your ass off the whole time?
+- A cubano army, `basically`... inside and outside prisons.
+- So, i'm thinking prom is `basically` our last big chance.
+- So, `basically`, i've got the life expectancy of a zit, right?
+- Uh, no, not really, no actually, `basically`, you don't know me.
+- Fighting the aryan warriors and the black guerrillas, `basically`.
+- These big bathtubs, `basically`, that only helps the mountain men.
+- `Basically`, we're looking for something around two-hundred dollars.
+- He laughed -- and `basically` said he would decide when it was over.
+- It's the one job `basically` any woman can get, and make a living on.
+- I think `basically` it's because he thinks johnnie is a complete idiot.
+- Well, `basically`, what we did was put part of the old show on first...
+- I mean, i am a friend -- i'm not a lunatic but -- no, you `basically`...
+- Might wanna fasten your seat belt, jack... `basically`, it�s my car now.
+- The fact that you didn't know is `basically` the fault of yours truly.
+- Well, can i come with y... once they do that, they `basically` become him.
+- `Basically` we'll be hanging out together like we have so far this evening.
+- Women, as lovers, are all `basically` the same: they just have to be there.
+- Identical twin debutantes from nashville, who are `basically` vengeful sluts.
+- I've spent the last ten years with women who are `basically` all wrong for me.
+- And... and with that solenoid, which `basically`... she hasn't stopped for two days.
+- And the way they've done that is `basically` bartering and bargaining with the ships.
+- Yeah, it's `basically` the same thing in a rear end so huge, no criminal could miss it.
+                 

@@ -1,0 +1,74 @@
+---
+title: "leading in a sentence | leading example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leading"
+---
+- You're `leading` again.
+- What is it `leading` to?
+- How was i `leading` you on?
+- Is this `leading` somewhere?
+- Just keep `leading` the way.
+- They were `leading` us here.
+- `Leading` a grey little life.
+- `Leading` us in our exercise.
+- `Leading` us to another trap?
+- The witness is `leading` him.
+- You're `leading` the witness.
+- Nothing, `leading` to nothing.
+- The blind `leading` the blind.
+- Andrew hardly needed `leading`.
+- She's `leading` them into a trap.
+- Thank you for `leading` indra here.
+- Southern norway's `leading` unboxer.
+- My `leading` man is on time for once.
+- `Leading` that team building exercise.
+- The guard is `leading` the evacuation.
+- Will be `leading` the charge tomorrow.
+- With my little sparrow `leading` team.
+- `Leading` to section 17 will be sealed.
+- Can't you see what this is `leading` to?
+- From here on out, i'm `leading` the way.
+- That's casablanca's `leading` commodity.
+- Hasn't been very interested in `leading`.
+- I suppose all this is `leading` somewhere?
+- I'll be `leading` a very important mission.
+- I'm `leading` a mission to bring them back.
+- Stevens -- what's all this `leading` up to?
+- The internet's `leading` walkthrough gamer.
+- There's a vent shaft `leading` straight up.
+- .. where is this `leading` to, mr. garrison?
+- Caliber will be `leading` the charge tomorrow.
+- He was `leading` the cut-backs in the program.
+- Marcus, he could be `leading` you into a trap.
+- But our `leading` man can't remember his lines.
+- Stole a car, `leading` us through the compound.
+- Then we're `leading` our people into an ambush.
+- He is the fifth `leading` authority in his field.
+- Luke starkiller here is `leading` our expedition.
+- They came to me to talk about `leading` for women.
+- You and bellamy are `leading` us down a dangerous road.
+- The air ducts `leading` to the bridge we have a problem.
+- For the sake of the gods, you're not `leading` these men?
+- I have your new `leading` lady... ... right here in my pants.
+- So you're the one `leading` the americans, i shoulda figured.
+- Spas t. raikin, a `leading` member of an anti-communist group.
+- That's true of any `leading` artist in any country in the world.
+- Though frankly, at times i was unsure of who was `leading` whom.
+- I think that this is `leading` our relationship to a new level.
+- I capture quebec `leading` an army by river fordings through maine...
+- Run a trace on the culvert `leading` off the auto-shop maintenance pit.
+- They were children of our `leading` citizens, stars of the football team.
+- All this time you were `leading` me on -- i think that's what you ordered.
+- Cirrhosis of the liver is the fifth `leading` killer of adult western males.
+- How does a war hero end up `leading` told them i was part native american...
+- The killer is `leading` him across the city by calling different pay phones.
+- You know, it must need to have had its `leading` from one thought to another.
+- Any sentence that starts with "at church camp" ain't `leading` to the big "o."
+- When the final war between our races comes, who do you want `leading` the charge?
+- Every ounce of blood that's been spilled has all been `leading` up to this moment.
+- I understood; i saw where they were `leading` and i suppose that it just made sense.
+- What do you need before you can search -- bloody footsteps `leading` up to the door?
+- A local railwayman told him the tracks are divided, one branch `leading` to treblinka.
+- At the excavation site in scotland, the tunnel `leading` into the cavern had collapsed.
+                 

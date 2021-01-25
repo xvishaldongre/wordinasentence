@@ -1,0 +1,76 @@
+---
+title: "ta in a sentence | ta example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ta"
+---
+- I'm goin' `ta` bed now.
+- You wouldn'`ta` jumped.
+- ...-`ta` get outta here!
+- I'll get bugs `ta` do it.
+- I got it `ta` my head now.
+- Just wanted `ta` say hello.
+- From your mouth `ta` god's ear.
+- I want you both `ta` hear this.
+- He told me it was the key - `ta`!
+- You don't have `ta` tell me that!
+- You tryin' `ta` tell me something?
+- Just called `ta` torture us did ya?
+- How long is this supposed to `ta`--?
+- People came here fer years `ta` die.
+- Wouldn'`ta` guessed it, that's sure.
+- Ya like `ta` scared the crap outta me.
+- My tits are saggin' down `ta` my ankles.
+- Ya don't have `ta` be hard asses, do ya?
+- I know how `ta` get him back if you want.
+- Everybody lookin' `ta` knock somebody off!
+- I have three words for you... ex-ac- `ta`.
+- I tol' her the fambly had `ta` get acrost.
+- Ve <u>haff</u> to `ta`... we have to talk.
+- I have'na been able `ta` -- fook ya dooble!
+- I was just tryin' `ta` get a rise outta ya.
+- This is supposed `ta` be siam or some such.
+- I wouldn'`ta` done that without tellin' you.
+- Masseria's tryin' `ta` find a way around ya.
+- I can teach you everything ya need `ta` know.
+- I got- `ta` save one to show the high aldwin.
+- It used `ta` be peaceful before they got out.
+- Okay, seriously, both you listen `ta` me now.
+- One `ta` screw it in and one `ta` suck my cock.
+- Well you tell him `ta` take it easy with that.
+- If that was a girl i want `ta` see some papers.
+- Just goin' up'`ta` "tops"... maybe the "ten pin".
+- We're hopin' you can show us where `ta` go, toby.
+- All right, i suppose you have the right `ta` know.
+- She had `ta` be just preoperative for christ sakes.
+- 'til he turns `ta` dust and blows away on the wind.
+- Word's out tommy reina's goin' over `ta` maranzano.
+- If i wanted `ta` kill ya, i woulda done it long ago.
+- Fourth beat of the first measure - c. con-fu-`ta`-tis.
+- Second beat of the first measure - a. con-fu-`ta`-tis.
+- In fact i think you ain't got shit `ta` complain about.
+- He's gotta learn `ta` respect women the way connor does.
+- You shouldn'`ta` -- no wonder you're such a chickenshit.
+- One fuckin' year ago i had `ta` hit you up for train fare.
+- We had ways to make people `ta`-- ways to avoid the radar.
+- You're just in time fer a case that seems `ta` concern you.
+- Shut up -- you shouldn'`ta` turned the gun on that kid, man.
+- I want `ta` tell ya one last thing before i pull the trigger.
+- When i was comin' up, bein' fat meant ya had somethin' `ta` eat.
+- A jew's gotta let his heart tell him when `ta` give his presents.
+- I trip over em for christ sakes, now ya listen `ta` me, no fighten!
+- Well, we tried `ta` make friends and she gave me a shot `ta` the nuts.
+- I don't want you drunk out- `ta` your head searching my office ag- ain.
+- Now how'd you like `ta` spend two weeks up t'the vegetable farm yerself?
+- An army that ain't afraid `ta` die...ha ha ha...'cause it's awreddy daid!
+- Well listen, i know how my boys take `ta` scrappin' when they take `ta` drinkin'.
+- It consoles the bereaved family `ta` see the perpetrator take his load of juice.
+- Yeah, i remember mr. alacard the shop teacher use'`ta` call you little dick wick.
+- A man'd have `ta` be an idiot not to be a little cautious about a movie like that.
+- Well, ecklund & swedlin's, that's closer `ta` moose lake, so i made that assumption.
+- I use'`ta` go to school with her, she just up and disappeared some day... real weird.
+- But before you lecture me about the meaning of life maybe you oughta get one...`ta` `ta`.
+- The rest o' the country used `ta` think we was nothin' but a bunch o' farts and fogies.
+- Me and my girlfriends use-`ta` talk 'bout them hard fingertips he got pickin' that guitar.
+- There's millions o' bees out there jus' waitin' fer' a general `ta` lead 'em on `ta` vict'ry!
+                 

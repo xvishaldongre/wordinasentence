@@ -1,0 +1,107 @@
+---
+title: "eleven in a sentence | eleven example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eleven"
+---
+- At the seven-`eleven`.
+- Her name was `eleven`.
+- I hate being `eleven`.
+- We're like 7-`eleven`.
+- Departs at `eleven` pm.
+- A little after `eleven`.
+- `Eleven` thirty - jesus!
+- I'm `eleven` and a half.
+- About... `eleven` metres.
+- Dad -- `eleven` o'clock!!
+- `Eleven` to get downtown.
+- It said "`eleven`" on it.
+- It's quarter to `eleven`.
+- I've got `eleven` horses.
+- I was `eleven` years old.
+- They know about `eleven`!
+- Uh, `eleven` twenty-five.
+- `Eleven`, can you hear me?
+- `Eleven` forty-two, sharp.
+- It's been `eleven` months.
+- Six months, `eleven` days.
+- There are `eleven` levels.
+- It's about `eleven` thirty.
+- It's only `eleven` o'clock.
+- The 7-`eleven` on burnside?
+- You have a wound, `eleven`.
+- That was `eleven` years ago.
+- 'and wainwright...' `eleven`.
+- Angelo, it's `eleven` thirty.
+- It's almost `eleven`- thirty!
+- Two hundred and `eleven` die.
+- I've been here since `eleven`.
+- ...and `eleven` closed the gate.
+- That's <u>`eleven`</u> things...
+- Four hundred and `eleven` pounds.
+- What happens at `eleven` o'clock?
+- After you made `eleven` spy on us?
+- He's building it to stop `eleven`.
+- This won't hold for `eleven` days.
+- Then we're gonna find `eleven`.
+- A steal at `eleven` hundred dollars.
+- For christ's sake, it's `eleven` pm.
+- I'll be `eleven` tomorrow, you know.
+- Well, about - uh - `eleven` o'clock.
+- A transport plane is due at `eleven`.
+- Come by my house tonight at `eleven`.
+- `Eleven` thousand four hundred, cash.
+- I could see shootin' 'em... `eleven`.
+- You gotta double down on an `eleven`.
+- A signazoid's `eleven` thousand pounds.
+- Coach has us on `eleven` o'clock curfew.
+- Seventeen of them--`eleven` by accident.
+- Open your eyes, she's `eleven` years old!
+- Shit, girl, you couldn't'a been `eleven`.
+- There was one time when i was `eleven`...
+- I accidentaly drove into a seven-`eleven`.
+- Couldn't we just stop at a seven- `eleven`?
+- Ladies, don't you double down on an `eleven`?
+- The prisoners found out about order `eleven`.
+- You have a wound, `eleven`, a terrible wound.
+- You can protest all you want, henry, `eleven`?
+- Once a nine- year-old told me she was `eleven`.
+- `Eleven` civilian vehicles damaged or destroyed.
+- Jeez, mrs. raymond, that was `eleven` years ago.
+- We been talking for `eleven` fucking hours, man.
+- Charlie called at `eleven` thirty looking for you.
+- C'mon, let's check out the 7-`eleven`, whatya say?
+- Fourteen dead, `eleven` wounded, eighteen captured.
+- Yeah, on the weirdness scale he's about an `eleven`.
+- He says on the photo he'll call tomorrow at `eleven`.
+- No radio or tv... not bad for `eleven` dollars a day.
+- Burger king is nowhere near the 7-`eleven`, by the way.
+- `Eleven` said telling any adult would put us in danger.
+- The record's `eleven`, and i'll beat that if i have to.
+- You told that story to merv griffin `eleven` years ago.
+- The family emigrated from bulgaria when he was `eleven`.
+- When you were ten or `eleven` and she was eight or nine.
+- `Eleven` o'clock, my lorj 42 what o'clock is it, mr noggs?
+- I can't believe you were only `eleven` when you wrote this.
+- I've been steady moving for `eleven` years and some months.
+- Twenty-seven points, `eleven` assists and still undefeated.
+- When we were `eleven` years old cause he was about to lose.
+- I'm putting him on the plane to fairbanks, `eleven` tomorrow.
+- I'm telling you, baby, you always double down on an `eleven`.
+- It's `eleven` forty-five let's go anybody want another drink?
+- One moment, and they're at the <u>seven-</u> <u>`eleven`</u>.
+- To get a drink before we meet the guys for a bite at `eleven`.
+- Aw, it's gotta be a typo-- it skips from page nine to `eleven`.
+- Blond, right-handed, really strong, wears a size `eleven` shoe.
+- He's the one who asked me to be here at `eleven` in the morning.
+- It's been `eleven` days and these guys want their fucking money.
+- Hobbs was trying to cut his `eleven`- year-old daughter's throat.
+- The kid is `eleven` years old and already he sounds like a jesuit.
+- Yeah or like a seven-`eleven` or something... are we almost there?
+- If they can get this on the tube by `eleven`, she may just call us.
+- When i turned `eleven` or twelve, things... well, they got worse.
+- It's usually from `eleven` in the morning until one in the afternoon.
+- It's only `eleven` -- and i just want the place for forty-five minutes.
+- By `eleven` you�re gonna be sprawled out on the bed snoring your head off.
+- I'm just trying to demonstrate how careless max is with `eleven`'s powers.
+                 

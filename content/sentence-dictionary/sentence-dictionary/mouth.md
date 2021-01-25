@@ -1,0 +1,107 @@
+---
+title: "mouth in a sentence | mouth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mouth"
+---
+- I had my `mouth` full.
+- Me and my big `mouth`.
+- So, shut your `mouth`!
+- ...-spite the `mouth`.
+- Tape his `mouth` shut.
+- You shut your `mouth`!
+- I've got a big `mouth`.
+- Keep your `mouth` shut!
+- Keep your `mouth` shut.
+- My `mouth` -- my `mouth`!
+- Put it in your `mouth`!
+- Put it in your `mouth`.
+- Some got on my `mouth`!
+- You have a big `mouth`.
+- You watch your `mouth`.
+- Don't open your `mouth`!
+- Don't open your `mouth`.
+- Hey, watch your `mouth`.
+- My `mouth` is kinda dry.
+- My `mouth` is shut, boy.
+- Please open his `mouth`.
+- Raising a dirty `mouth`!
+- Rush your `mouth`, girl.
+- Shut your sewer `mouth`!
+- Such hair, such `mouth`!
+- Watch your `mouth`, man.
+- He kept his `mouth` shut.
+- I can't close my `mouth`.
+- Indra: shut your `mouth`.
+- Not with my `mouth` open.
+- Shut yer fuckin' `mouth`.
+- I shot my `mouth` off.
+- I'll keep my `mouth` shut.
+- My `mouth` turned to mush.
+- Open your `mouth`, george.
+- Shut up your damn `mouth`!
+- Shut your big fat `mouth`!
+- Shut your big fat `mouth`.
+- So just shut your `mouth`.
+- You make my `mouth` water.
+- You shut your `mouth` now!
+- I keep my `mouth` shut?
+- Now keep your `mouth` shut.
+- Wanna rag your fat `mouth`?
+- You keep your `mouth` shut.
+- Get that outta your `mouth`!
+- His dick was in his `mouth`?
+- Lynette, watch your `mouth`!
+- Out of the `mouth` of babes.
+- Running out of your `mouth`.
+- She had this in her `mouth`.
+- Shut your `mouth` and drive!
+- Squirt some in your `mouth`.
+- Then keep your `mouth` shut.
+- Watch your `mouth`, captain.
+- You can do it in my `mouth`.
+- Your `mouth` needs the rest.
+- Can i put it in your `mouth`?
+- He had the gun in my `mouth`.
+- Hey, what's with the `mouth`?
+- I said with the `mouth` shut.
+- Sticking food in his `mouth`.
+- Clean your `mouth`, or i will.
+- Don't put words in my `mouth`.
+- Here, put this in his `mouth`.
+- I had to shoot off my `mouth`!
+- Listen to miss smarty `mouth`.
+- Monsieur foot-in- the-`mouth`.
+- Nor is where i put my `mouth`.
+- Peggy sue, watch your `mouth`.
+- Why, buddy, shut your `mouth`!
+- From your `mouth` ta god's ear.
+- Keep your fucking `mouth` shut.
+- Keep your `mouth` shut, keitel!
+- You watch your fucking `mouth`!
+- ...and put them in your `mouth`.
+- From the oven into your `mouth`.
+- It will make your `mouth` water.
+- Shreds the roof of your `mouth`.
+- Well, shut my big nasty `mouth`!
+- You want a punch in the `mouth`?
+- He listens with his `mouth` open.
+- His nose and `mouth` are blocked.
+- I told you to watch your `mouth`!
+- Probably penis, `mouth` and neck.
+- A dip and plop, into your `mouth`.
+- It's only me and my big `mouth`...
+- Just park your `mouth` and listen.
+- Shut your `mouth` and quit crying!
+- Why, they just melt in my `mouth`.
+- You know, the size of the `mouth`?
+- Get that stick out of your `mouth`.
+- He needed some work on his `mouth`.
+- I don't wanna hear elroy's `mouth`.
+- It's called code shut-your-`mouth`.
+- Shut you `mouth` or you'll be next.
+- Shut your `mouth` 'bout my lucille.
+- Take that mush out of your `mouth`!
+- The taste of blood in your `mouth`.
+- Here -- here -- he said his `mouth`.
+                 

@@ -1,0 +1,70 @@
+---
+title: "nail in a sentence | nail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nail"
+---
+- Everything's a `nail`.
+- I want to `nail` you ass.
+- We gotta `nail` this guy.
+- I don't want to `nail` you.
+- I'm gonna `nail` the chief.
+- I'm gonna `nail` you, nash.
+- I rebuilt it `nail` by `nail`.
+- They're lookin' to `nail` ya.
+- Once we `nail` roy, that's it.
+- So how'd he finally `nail` you?
+- Think you can `nail` mulvihill?
+- We have to `nail` 'em all at once.
+- Dad didn't `nail` these in too well.
+- The only thing i `nail` are my sats.
+- Into a pool of `nail` polish remover.
+- Marshall said `nail` him to the wall.
+- The police are gonna `nail` your ass!
+- De-`nail` ain't just a river in egypt.
+- He can't hammer a `nail`, plow a field.
+- They may `nail` me into this now, mccoy.
+- So you want to `nail` the ex- presidents?
+- I'd say you've hit the `nail` on the head.
+- `Nail` this guy and make us all look good.
+- I've got to `nail` that thing where it lives.
+- Rubbing it with a thumb `nail`, or something?
+- So that was like the final `nail` in the coffin.
+- Buddy, he's gonna `nail` our behinds to the wall!
+- For want of a `nail` a <u>kingdom</u> was lost...
+- You can help or -- you gonna `nail` the chief?
+- For three months, you'd miss the `nail` every time.
+- We're gonna `nail` your ass to the wall on this one.
+- Bateman goes back to the cupboard for the `nail` gun.
+- I help you `nail` this a.i., you gotta do me one favour.
+- That's why every badge back home wanted to `nail` him.
+- We're going to `nail` every last one... harold, calm down!
+- He said there's enough in here to `nail` cohaagen for good.
+- Keep it clean, rambo, or i'll `nail` your hide to the shed.
+- If you get out of here they'll `nail` you wherever you land.
+- When i flush him, you `nail` him... those eyes... disappeared.
+- Eh, have you got a `nail` file, these handcuffs are killing me.
+- I decided not to `nail` her when she was too drunk to remember it.
+- You know how easy it'd be for one of lonnegan's guys to `nail` you?
+- Didn't give him no medals or nothing -- they `nail` him for it bad ?
+- I'm gonna make sure that they `nail` you right to the wall for this!
+- Watch closely, as bialystock drives the last `nail` into the coffin.
+- But this is one where if you don't `nail` the other guy, you're dead.
+- I've been trying to `nail` george's for years, but he's very careful.
+- Lillian's been trying to `nail` me to a cross since the day i met her.
+- In the words of my private investigator, we're going to `nail` his ass.
+- `Nail` him first, be careful he doesn't panic and want to shoot somebody.
+- Something came over me, i just had `nail` him, no matter what the * risk.
+- 'bout the same time i busted doucet i tried to `nail` this big-time dealer.
+- For two-hundred i got a nice rubber band and a real sharp `nail` in back...
+- With a little effort, i really think we can `nail` their asses to the wall.
+- To help, jack, of course -- and to `nail` those sonsofbitches, the two gordons.
+- Well i'm a `nail` technician, and i think we both ought to stick to what we know.
+- Well, i'm closer than you think, pal -- and i'm gonna `nail` your ass to the wall!
+- I didn't care about `nail` polish or lip gloss or sneaking a spray of your perfume.
+- I don't know what you're up to, lady, but i'm gonna `nail` you for the acme murder.
+- Her ears are pierced three times each, and she's wearing green glitter `nail` polish.
+- You set out to `nail` him - and he� print one line of that, and i'll blow your place up!
+- Yep, you step on a rusty `nail`, get lockjaw, never say another word as long as you live.
+- Your numbers are still pretty low and you called in a lot of chips to `nail` stravanavitch.
+                 

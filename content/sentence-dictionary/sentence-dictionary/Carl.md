@@ -1,0 +1,107 @@
+---
+title: "Carl in a sentence | Carl example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Carl"
+---
+- `Carl`, it's a jungle.
+- `Carl`'s a fine boy...
+- `Carl`, that's insane.
+- He's terrific, `carl`.
+- I'm so used to `carl`.
+- `Carl`, you're back in.
+- Don't have one, `carl`.
+- You're my hero, `carl`.
+- Could you put `carl` on?
+- `Carl`, i'm running late.
+- Dr. `carl` was just here.
+- From `carl` heine's boat.
+- H'ya, `carl`--h'ya, bill!
+- I wonder where `carl` is.
+- That's wonderful, `carl`!
+- All against `carl`'s will?
+- She's working with `carl`.
+- But `carl` was a fisherman.
+- `Carl`, what are you doing?
+- Hey, `carl`, what's wrong ?
+- It's a small world, `carl`.
+- Lenny, `carl`, barney, moe.
+- Tell me what to do, `carl`.
+- What happened to `carl`?
+- Who may i ask is `carl`?
+- `Carl` heine was found dead.
+- `Carl`, quarrelsome settler.
+- Found on `carl`'s boat, too.
+- Tell me who `carl` sells to.
+- Let's give old `carl` a call.
+- Maneuver up to `carl`'s boat?
+- Thanks for your help, `carl`.
+- Where are your bills, `carl`?
+- You aren't as good as `carl`.
+- You want to work at `carl`'s?
+- `Carl` held it <u>for</u> 'em.
+- `Carl` restored my confidence.
+- Oh, no...it's a combat `carl`.
+- Only `carl` knows who they are.
+- `Carl` would never be so stupid.
+- First of all, `carl` isn't here.
+- That `carl` loses two batteries.
+- There's too much heat on `carl`.
+- `Carl`, dennis, get out of sight.
+- We hear how `carl`...passed away.
+- `Carl` emerson, madi's sketchbook.
+- `Carl` ever say <u>he</u> got one?
+- That's three games to none, `carl`.
+- Well -- i have to see `carl` first.
+- But it doesn't match `carl`'s lines.
+- `Carl` has hydrotherapy on tuesdays.
+- `Carl` was a strong swimmer, he m...
+- I haven't been being fair to `carl`.
+- Hi, `carl` denham ... how's it going?
+- He's not even `carl` stargher anymore.
+- That you came upon `carl` by accident.
+- Claimed <u>not</u> to have seen `carl`.
+- Richard `carl` in "the spring chicken."
+- You sure you should be playing, `carl`?
+- I thought you were going to help `carl`.
+- Someone murdered `carl` in the mensroom!
+- You stole from your own country, `carl`.
+- `Carl` and i were friends from childhood.
+- So `carl` <u>let</u> him aboard, to help.
+- You're a sex junkie, you know that, `carl`?
+- `Carl` emerson, that is monumentally stupid.
+- Did `carl` padgett buy something you wanted?
+- That's military intelligence... oh, `carl` !
+- This rod is a fuckin', embarrassment, `carl`.
+- `Carl` junior treated him like a white person.
+- Frankly, `carl`, i can't see giving much more.
+- I'm going to pick up some friends of `carl`'s.
+- Now what happened the day `carl` heine was found?
+- `Carl` is doing his federal and he isn't inferior.
+- Well, somebody better tell `carl` 'cause he is in.
+- `Carl` can't believe how much i make at swap meets.
+- `Carl` emerson, we'll go hunting when we come back.
+- `Carl`'s boat was running, he goes back to fishing.
+- Tell me you checked the bus before we left, `carl`.
+- I guess he didn't... naw, i made it, `carl` made it.
+- Eduardo ruiz is the only real witness against `carl`.
+- `Carl` padgett died for the franklin mint, didn't he?!
+- So tell me, `carl`, how you're gonna make it up to me.
+- Have you ever talked to `carl` - tried to see his side?
+- It was <u>`carl`'s</u> boat that was dead in the water.
+- Unfortunately, `carl` had only one successful business.
+- For the dollar, i give you mcgann *and* bill and `carl`.
+- If you left one with `carl` heine, how is that possible?
+- That's cool... hey look, you're `carl`'s brother, right?
+- The sea water seeped into `carl`'s watch and stopped it.
+- `Carl` emerson, mount weather ah, welcome home, my friend.
+- `Carl`, establish contact with that deputy we met earlier.
+- Sometimes i wonder what i'll do if `carl` doesn't get out.
+- Only if you're not in the mood `carl` emerson, - wormholes.
+- They need a potted palm over in the `carl` laemmle building.
+- `Carl` musta lost both, so miyamoto there gave him one a his.
+- I'm `carl` showalter and this is my associate gaear grimsrud.
+- Man, i don't even want to see those guys from `carl`'s again.
+- We are one-dimensional, boring peddlers of fine carpet, `carl`.
+- Well--who d'you take this time--paine, bill, `carl`--or mcgann?
+                 

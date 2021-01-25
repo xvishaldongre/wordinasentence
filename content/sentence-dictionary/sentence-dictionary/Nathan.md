@@ -1,0 +1,73 @@
+---
+title: "Nathan in a sentence | Nathan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Nathan"
+---
+- I don't know, `nathan`.
+- I'm so happy, `nathan`!
+- `Nathan` was wonderful.
+- What's wrong, `nathan`?
+- Is `nathan` your friend?
+- It's hormonal, `nathan`.
+- It was jerry `nathan`'s.
+- `Nathan` told my brother.
+- I like you, too, `nathan`.
+- I get `nathan` blind drunk.
+- There is a "but," `nathan`.
+- His name is `nathan` miller.
+- You have to choose `nathan`.
+- I work at `nathan`'s company.
+- Only it is `nathan`'s choice.
+- What's the problem, `nathan`?
+- Jerry `nathan` owes you money.
+- You were right about `nathan`.
+- `Nathan`, you've looked better.
+- It's good to meet you, `nathan`.
+- Did you hear about `nathan` hale?
+- In a word, `nathan`, i became you.
+- Mornin'... good mornin', `nathan`.
+- You remind me so much of `nathan`.
+- Do you believe in ghosts, `nathan`?
+- Remember `nathan` hale, right, sir?
+- Somebody told me `nathan` was back.
+- I want to be what you want, `nathan`.
+- You sure you feel up to it, `nathan`?
+- Are you seeing somebody else, `nathan`?
+- I read george jean `nathan` every week.
+- Revenge is an abstract concept, `nathan`.
+- Going out on a limb, aren't you, `nathan`?
+- `Nathan`'s silk suit, just like you asked.
+- You did create me in your image, `nathan`.
+- I can't ask her again -- `nathan`, stop it!
+- You can't take him from his home, `nathan`.
+- You'd be taking away his freedom, `nathan`.
+- `Nathan`, what the hell are you talking about?
+- `Nathan`'s memory lives on in our sacred union.
+- Why did you tell me i shouldn't trust `nathan`?
+- `Nathan` lee morgan... what's your daddy's name?
+- `Nathan`, samuel, and i are going to get gabriel.
+- I need you to go with `nathan`, all right, - homer?
+- I bet you could use a hot cup of coffee, `nathan` lee.
+- I love you, doctor `nathan`... ...but i will not wait.
+- She'd say it to me when i picked on thomas or `nathan`.
+- You hurt me, you know, when you made `nathan`'s choice.
+- `Nathan`, we have to talk, you and i. gabby, what is it?
+- Oh `nathan`, this salad is delish... you look wonderful.
+- Puff, what happened to you is as much my fault as `nathan`'s.
+- Actually, studies show that one and a half it's fine, `nathan`.
+- But, `nathan`-- to the commissary to get this boy some clothes!
+- It's lunchtime, and i wanna have a talk with you, `nathan` lee.
+- You're like a boy sneaking in... oh, `nathan`, let's have a baby!
+- Rose, `nathan`'s no midget, but he's asked me to move in with him.
+- I'm leaving from the `nathan` road station at 6:30 tomorrow morning.
+- Why didn't your brother tell you that `nathan` was having an affair?
+- We gotta lotta men here... do you know my daddy, `nathan` lee morgan?
+- My brother says things are going really well between you and `nathan`.
+- According to my brother `nathan`'s abormally close with his mother.
+- Just tell us what you can -- it's been 84 years... `nathan` hockley, right.
+- You remind me so much of `nathan` plus so much of my little mongrel doggie.
+- I hope you don't perform any of those dreadful torture experiments, `nathan`.
+- The season is a long way off, mr. howard, and by that time, `nathan` oughta be home.
+- As much as i loved `nathan`, i'm not sorry she killed him, if it means i can have you.
+                 

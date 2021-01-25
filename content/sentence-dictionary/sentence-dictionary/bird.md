@@ -1,0 +1,107 @@
+---
+title: "bird in a sentence | bird example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bird"
+---
+- Go easy on jay `bird`.
+- They found the `bird`.
+- Who's the song `bird`?
+- Yeah, like the `bird`.
+- You eat like a `bird`.
+- `Bird` dog to scarecrow.
+- Without the `bird` seed.
+- You're a strange `bird`.
+- Position, `bird` of prey?
+- A `bird` in a gilded cage!
+- A `bird` in a gilded cage.
+- A `bird` in a gilded cage?
+- When i go `bird`-watching.
+- No, it's "land the `bird`."
+- We must follow that `bird`.
+- You should hear the `bird`.
+- Aww, the little `bird` died.
+- Klingon `bird` of prey, sir!
+- Are you a `bird`-watcher too?
+- But is this the right `bird`?
+- A `bird` in a gilded cage, eh?
+- Got a `bird`: too much hassle.
+- A `bird` in a gilded cage, huh?
+- Sounds like the `bird` we want.
+- Yellow `bird`... is gonna sing.
+- I go to `bird` shops on fridays.
+- It's time to die, little `bird`.
+- That's right, a tweeting `bird`.
+- The sea-gull is a lovely `bird`.
+- We were looking for this `bird`.
+- What `bird` lays eggs in a barn?
+- Yeah, a `bird` in a gilded cage.
+- A wounded `bird` was on his roof.
+- Slide of `bird`'s nest with eggs.
+- They keep taking the `bird` seed.
+- I mean, we gotta land this `bird`.
+- It is a class d-12 `bird` of prey.
+- "prophet still if `bird` or devil!
+- You could save him, little `bird`.
+- Is there a `bird` nesting in there?
+- That's what i wish i was, a `bird`.
+- The `bird` seems to be in his cage.
+- They're using hal for a `bird` dog.
+- Big `bird` touches down <u>when</u>?
+- I was still... `bird` is in the air.
+- The early `bird` gets the damn worm.
+- Thought she was just another `bird`.
+- A `bird` in your house... lighten up.
+- How about sign of a big black `bird`?
+- Up and away on that big steel `bird`.
+- A `bird` in hand is worth two in jail.
+- Going to catch yourself a rich `bird`?
+- This will be a full grown myna `bird`.
+- You see that `bird` at the faro table?
+- The others are called skank, t- `bird`.
+- There isn't a `bird` anywhere in sight.
+- When a `bird` called, we answered back.
+- Can't get a `bird`: no chance of a ride.
+- She even had time to flip me the `bird`.
+- Go in the direction the `bird` is flying.
+- Just a visit with my old pal, jay-`bird`.
+- Moss's working on big `bird`'s inaugural.
+- Mr. chekov, i've lost the `bird` of prey.
+- Tomorrow you come for some `bird`, right?
+- What we need... is richard yellow `bird`.
+- Just let nygel know it's her little `bird`.
+- There's no `bird` nesting in here, asshole.
+- Where'd you dig up this shit-`bird` anyway?
+- Come in, mother `bird`, this is alpha bravo.
+- Hell, he can hit a `bird` in the eye flyin'.
+- Pet--my stomach couldn't hold a `bird` seed.
+- A clown with a `bird` and a rising death toll.
+- `Bird` of prey bearing one zero five mark two.
+- Keep talking, yellow `bird`... red deer table!
+- That noise don't come from no ordinary `bird`.
+- What, tryin' to catch him with another `bird`?
+- You know what they say about the early `bird`.
+- A `bird` of prey canna fire when she's cloaked!
+- There's a `bird` of prey on the lookout for us.
+- Patch me through to the big `bird`, will...?
+- The procnias averano is a south american `bird`.
+- 'a `bird` in a gilded cage' - that's what i'd be.
+- I'm doing this so you can fly...fly like a `bird`.
+- [`bird` chirping] you can coach him on my weaknesses.
+- We're keeping the `bird` clear should they call back.
+- We can finally consign my old `bird` to the scrapheap.
+- You'll need more than `bird` droppings for blackheart.
+- Yeah, an' i could still hit a `bird` in the eye flyin'.
+- But if they see that we're at peace, bye, little `bird`!
+- My wife found a `bird` in the back seat of her car once.
+- Oh, you mean that posh `bird` who gets everything wrong?
+- Put on some clothes, rose, you're naked as a jay `bird`.
+- Neither do you.... we've got a rare `bird` here, michael.
+- I make him coming right out of the hotel free as a `bird`.
+- Mr. sulu, what is the crew complement of a `bird` of prey?
+- So you're gonna be needin' the "blue- `bird`" pretty soon?
+- There was a drawing on the wall that looked like a `bird`.
+- We don't wanna have to push this "`bird`" into new orleans.
+- [`bird` cawing] you wanna get electrocuted, go climb a tree.
+- `Bird` books mostly... dr. sutphin is your wife a big reader?
+                 

@@ -1,0 +1,102 @@
+---
+title: "Leon in a sentence | Leon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Leon"
+---
+- Hello, `leon` darling!
+- `Leon`, my little boy.
+- If you knew, `leon`...!
+- �not `leon`.� who then?
+- �not `leon`,� you said.
+- Huh... `leon` did drugs.
+- I wouldn't waken `leon`.
+- No, tony, forget `leon`!
+- That's bullshit, `leon`.
+- I want to talk to `leon`.
+- Now, `leon` that's wrong.
+- `Leon`, darling, how nice!
+- We could stay with `leon`!
+- You think it over, `leon`.
+- I love you so much, `leon`.
+- Oh, `leon`, you are so good.
+- What kind of things, `leon`?
+- �`leon` does his own prints.
+- A neighbour of his... `leon`?
+- `Leon`�s story about the boy?
+- The same old trouble, `leon`.
+- `Leon` sure is one of �em.
+- You don�t know `leon`, do you?
+- A very wise suggestion, `leon`.
+- Pay attention to women, `leon`.
+- How shall we get out now, `leon`?
+- I haven�t seen `leon` for months.
+- I hear you�re looking for `leon`.
+- Believe me, `leon` can't help you.
+- Oh, `leon`, you are so good to me.
+- You... you found that at `leon`�s?
+- Do you know `leon`�s parents names?
+- Say it over and over again, `leon`.
+- Somebody's got to stop him, `leon`.
+- Count `leon` d'algout... a count!...
+- I take it your son is called `leon`?
+- `Leon` didn�t hang himself, deborah.
+- You're in it up to your ass, `leon`.
+- `Leon` could still have hung himself.
+- `Leon` - meet us at 63rd and madison.
+- Anyway, `leon`... did i do it for you?
+- But that my husband had killed `leon`?
+- Thank you, `leon`... thank you, masses.
+- Well, i don't know what to say, `leon`.
+- At long last `leon` had found a mission.
+- In the living room, `leon` still thinks.
+- Did `leon` speak to you about his sister?
+- I paid `leon`�s boy a visit this morning.
+- I've some wonderful news for you, `leon`.
+- `Leon`, i would like to ask you something.
+- We like you, `leon` -- don't we like `leon`?
+- But, `leon`, i am only here for a few days.
+- I also know that `leon`�s not here, rhian.
+- `Leon`, i should be stood up against the wall.
+- She said, "`leon`, my darling little grandson.
+- He was talking to me and `leon` about marriage.
+- I doubt friedman ever even met `leon`, deborah.
+- The money `leon` left for the boy, was it cash?
+- That's not the way to win him back... not `leon`.
+- Could you tell me if `leon` spitz is here, please?
+- `Leon`, leonitchka, she is not going to negotiate!
+- `Leon`... leonitchka... why are you so good to us?
+- If we say that, `leon`... we'll be sent to siberia!
+- `Leon` didn�t come here to borrow money for prints.
+- `Leon`, don't ever ask me for a picture of myself...
+- `Leon`, you know the jokes you told me a few days ago?
+- Things turned out to be as we thought; `leon` was weak.
+- Those old boys in ciudad `leon`-- that's not the point.
+- Well, `leon` does not need money for prints, mr lombard.
+- You and walter and `leon` were singing "i wonder why".
+- `Leon`, how would you like to have three lifelong friends?
+- `Leon`'s in a bad mood, don't get excited, he's all right.
+- Would you say this "`leon`" was actually lee harvey oswald?
+- It began, "ninotchka, my darling," and ended, "yours, `leon`."
+- You reach down and flip the tortoise over on its back, `leon`.
+- I know you wouldn't need `leon` if heidi was treating you right.
+- I... we have to bury `leon` tommorrow... you wouldn�t understand.
+- Did `leon` tell you why he didn�t want the police involved, rhian?
+- She doesn't dare passing before the open door again to join `leon`.
+- We didn�t quite make it as lovers... `leon` is a good man, though...
+- You're looking magnificent, `leon`... ...isn't he, general savitzky?
+- But i do understand that your partner, `leon` jackson's been injured.
+- Yes, `leon`... soviet russia will put all its might behind this case.
+- I think i know `leon` quite as well as you... possibly a little better.
+- At a certain moment i thought: maybe `leon` would like working on his own?
+- Let us be happy... give us our moment.... we are happy, aren't we, `leon`?
+- As you know from speaking to phil, your friend `leon` has disappeared, rhian.
+- An englishman might have thought of that, but a brazilian... `leon` hung himself.
+- You must help us, `leon`... if you don't win her over we're on our way to siberia!
+- If `leon`�s austrian was looking for you i reckon he�d have found you before i did.
+- He... �our world was so old and cold, we shone for one another,� `leon` used to say.
+- My face doesn't compose well... all highlights... how can i dim myself down, `leon`?
+- But i�ve seen the boy and made telephone contact with the man `leon` bought him from.
+- But i think that�s just one of `leon`�s dark delusions... i�m afraid i don�t understand.
+- I found the name vigo the carpathian in `leon` zundinger's magicians, martyrs and madmen.
+                 

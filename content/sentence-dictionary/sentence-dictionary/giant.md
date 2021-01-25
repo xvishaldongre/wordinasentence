@@ -1,0 +1,70 @@
+---
+title: "giant in a sentence | giant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "giant"
+---
+- Like a `giant` shadow.
+- A `giant` fishing hole.
+- There's a `giant` brain.
+- To a smoking blue `giant`?
+- What's your name, `giant`?
+- You shread like a `giant`.
+- Big `giant` <u>capacitor</u>.
+- It's a `giant` sliding puzzle.
+- This is one `giant` death trap.
+- He holds up a `giant` key chain.
+- He looks like a `giant` tea bag.
+- Well hector's a `giant` cracker.
+- Frank... the `giant` bunny rabbit?
+- Looked like a `giant` parking lot.
+- It looks like a `giant` jello mold.
+- I've always liked `giant` pandas...
+- The u.s. becomes a `giant` pharmacy.
+- If you ask me, he's one `giant` bore.
+- We're in a `giant` concrete building.
+- I didn't pack a `giant` chocolate bar.
+- In a `giant` oven and tried to cook us.
+- The `giant` candy canes are not real.
+- I handle most of cardiff `giant`'s stuff.
+- Mike: what are those, `giant` oven coils?
+- Oh, i'd like to give earth a `giant` hug.
+- That `giant` wormhole in, um, in new york.
+- Nobody's done that since andré the `giant`.
+- I see this `giant` hovering over the ground.
+- This place is gonna be one `giant` cemetery.
+- All i know is the account is cardiff `giant`.
+- Then it turned into a `giant` oven, okay?
+- He's going to steal the `giant` white diamond.
+- The others said it looked like a `giant` snake.
+- I can use the metal walls as `giant` conductors.
+- A tribe every member of which had `giant` thumbs.
+- Daikinis are `giant` people who live far far away.
+- _ like a `giant` pissed all over jack's bean field.
+- Oh my god, he just ordered a `giant` glass of milk!
+- Money's one `giant` pain in the ass y'ask me... thanks.
+- I made sure the boyfriend marge's `giant` chocolate bar.
+- You know... wake up the sleeping `giant` of his passion.
+- ... a `giant` drilling truck burrowing under the city ...
+- Not unless those are `giant` jiffy pop containers out there.
+- A `giant`... hydraulically operated microscope... that explodes?
+- He's just the sort of coward who would shoot an unarmed `giant`.
+- I'm just going to have to find myself a new `giant`, that's all.
+- You've beaten my `giant`, which means you're exceptionally strong.
+- Jane said it looked like the green `giant` used it for a toothpick!
+- Joey, you want to get sucked out by a `giant` fucking mutated squid?
+- When they ask you what account, you will respond: 'cardiff `giant`.'
+- `Giant` figure now spotted at the intersection of broadway and wycona.
+- I'm a `giant` semi-conductor, and there's alien creatures all around us.
+- Faith has persuaded them a pygmie with a sling can kill an armed `giant`.
+- A `giant` pair of praying hands we have feelings we need to learn to control.
+- Supposed to be getting some `giant` x- ray machines to run the trucks through.
+- Alex eyes a `giant` white, fibreglass phallic sculpture on the table beside him.
+- Three hundred kilos of white lady hidden inside a `giant` bust of abraham lincoln.
+- They have the world's most famous sculptures all in these `giant` plaster replicas.
+- You seemed to big - a `giant` - and i felt like a child who can't keep her balance.
+- And then we're laying down on kaylee's `giant` bed, dad, am i gonna get my dog back?
+- Room and tax has been picked up by cardiff `giant`, as well as one fifty in incidentals.
+- They found him in the barn, sleeping between two `giant` hooves of a percheron stallion.
+- In a catastrophic emergency, we're taking `giant`, panicked breaths... no, supply oxygen?
+                 

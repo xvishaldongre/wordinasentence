@@ -1,0 +1,63 @@
+---
+title: "teaching in a sentence | teaching example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "teaching"
+---
+- Did you love `teaching`?
+- They `teaching` that now?
+- I'm `teaching` high school.
+- I'm `teaching` him english.
+- But i like `teaching` school.
+- Then why aren't you `teaching`?
+- We are `teaching` her a lesson.
+- Why did you give up `teaching`?
+- I'm `teaching` my son to be a man.
+- I've seen you... uh, `teaching`...
+- Then why are you `teaching` me...?
+- She was `teaching` him to hitchhike.
+- Why are you `teaching` special needs?
+- I think they're used to me `teaching`.
+- But you've been `teaching` us to fight.
+- My husband was `teaching` school there.
+- You won't be `teaching` this one either.
+- I can't see much fun in `teaching` school.
+- Did you know that i'm giving up `teaching`?
+- Man, you're really `teaching` her a lesson.
+- Lloyd's really the one `teaching` the class.
+- He's `teaching` environmental science, grant.
+- Thanks for `teaching` me an important lesson.
+- ♪ dad, what exactly are you `teaching` nelson?
+- Did you come here to talk about my `teaching`?
+- Is that what they're `teaching` now at stanford?
+- `Teaching` wayward mutants about classical literature.
+- I see .. well, she's `teaching` an- other class at four ..
+- Michael is `teaching` me to drive... watch, i'll show you.
+- Oh, you must be `teaching` the kids about nutrition right.
+- I was bored while they were `teaching` us about the primes.
+- `Teaching` has been more or less a way of making ends meet.
+- And `teaching` you would take days, and go find our friends.
+- We're `teaching` them to buy groceries for lazy rich people.
+- But it's just `teaching` them to be the task rabbits of today.
+- Next thing you know, you'll be `teaching` toadstools to speak.
+- Right now i'm `teaching` mice... well, table manners, to be candid.
+- You think you've been `teaching` me all these years from the manual?
+- She's 57 and she's been `teaching` third grade for the last 33 years.
+- I'm not going to think about what they're not `teaching` you in school.
+- Maybe they don't want worldly things distracting me from my `teaching`.
+- Eric was `teaching` college, and then he got the job with northland oil.
+- The others decided to get cute with me, so i'm `teaching` them a lesson!
+- Why did you let me go on like that, `teaching` you what you already knew?
+- But i believe in what they're `teaching`, _ i don't know if i can do this.
+- Shouldn't we be `teaching` our students to imagine a world beyond all this?
+- Low was a field agent, koessler administrative, i was `teaching` criminology.
+- You wouldn't happen to be `teaching` them how to use their powers to -- math.
+- I'm hearing rumors, john, of some unusual `teaching` methods in your classroom.
+- They have the perfect combination of power, about `teaching` a baby sign language.
+- Clarke took them along with the usurper aw, man, they were `teaching` her mandarin.
+- You think he would have bought me a stadium, instead of `teaching` me how to play ball?
+- `Teaching` english to fucking eighth-graders when they should be reading what you wrote.
+- Can you tell the members of this committee what exactly you are `teaching` these mutants?
+- Oh please, is that as articulate as you can be after all the time i spent `teaching` you?
+- Genetically engineered with what you call nightblood what exactly is my dad `teaching` you?
+                 

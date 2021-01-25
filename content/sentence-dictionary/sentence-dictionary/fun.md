@@ -1,0 +1,107 @@
+---
+title: "fun in a sentence | fun example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fun"
+---
+- It was a lot of `fun`.
+- It was `fun` to flirt.
+- Let's have some `fun`.
+- More `fun` win battle?
+- Not much `fun`, is it?
+- This is so much `fun`.
+- This looks like `fun`.
+- You guys having `fun`?
+- Not in a `fun` way.
+- Did you have any `fun`?
+- I'm having `fun`, sean.
+- It's really more `fun`.
+- Let him have his `fun`.
+- Look pretty `fun`, huh?
+- Now's the `fun` part...
+- So you guys have `fun`.
+- That coulda been `fun`!
+- That ought to be `fun`.
+- That sounds like `fun`.
+- That's the `fun` of it.
+- That was kind of `fun`.
+- There's no `fun` in it.
+- They make `fun` of him.
+- This isn't about `fun`.
+- What do i do for `fun`?
+- What'll i do for `fun`?
+- Wouldn't that be `fun`?
+- Are we having `fun` yet?
+- Come and join the `fun`.
+- Come on, it'll be `fun`.
+- `Fun` though, wasn't it?
+- It'll be `fun`, come on!
+- Just for `fun`, i guess.
+- Just have `fun` with it.
+- So, we having `fun` yet?
+- That'd be `fun` for yuh.
+- That was just for `fun`.
+- Tons have `fun` tonight?
+- We sure had `fun` today.
+- "`fun` loving" -- insane.
+- He was having some `fun`.
+- He was just having `fun`.
+- Isn't this a `fun` place?
+- It'll be `fun` i promise.
+- It's `fun` writing again.
+- It wasn't no `fun`, lula.
+- Let 'em have their `fun`.
+- Let's go have some `fun`.
+- That's going to be `fun`.
+- We watch... good `fun`...
+- What do you do for `fun`?
+- Believe me, it's no `fun`.
+- Get ready for `fun`, kids.
+- I think it could be `fun`.
+- Just trying to have `fun`.
+- Oh, this is so much `fun`.
+- She's going to have `fun`!
+- That, and the `fun` of it.
+- That was `fun` last night.
+- They make your life `fun`.
+- Well, the 60's were `fun`.
+- Where's the `fun` in that?
+- Are you making `fun` of me?
+- Bloody hell, this is `fun`.
+- I'm just having some `fun`.
+- It'd be `fun`, wouldn't it?
+- It's `fun` to look at them.
+- It's not about being `fun`.
+- It's really gonna be `fun`.
+- Let you have all the `fun`?
+- Oh, but the winter's `fun`.
+- Pretty `fun` too, isn't it?
+- The `fun` palace is a tomb.
+- They're just `fun` to read.
+- Well, the `fun` is outside.
+- Well, this should be `fun`.
+- What's he know about `fun`?
+- Aren't you having any `fun`?
+- Are we havin' `fun` or what?
+- Did 'ya have `fun` with her?
+- Gonna make `fun` of my hair?
+- Hey, enough `fun` and games.
+- Indeed, the best of `fun`...
+- I thought it would be `fun`.
+- It should be `fun`, melanie.
+- Most `fun` i've had all day.
+- She's more `fun`, more open.
+- Why not have a little `fun`?
+- I don't call this `fun`, pal.
+- I had a `fun` weekend, daddy.
+- It's going to be super `fun`!
+- It sure isn't the `fun`-fair.
+- It was `fun` while it lasted.
+- I wasn't making `fun` of you.
+- Now that's what i call `fun`.
+- Oh, it's been a lot of `fun`.
+- So, are you having `fun` yet?
+- So, what do you do for `fun`?
+- We have had `fun`, you and i.
+- We're not having `fun`, here.
+                 

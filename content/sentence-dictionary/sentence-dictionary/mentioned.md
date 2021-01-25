@@ -1,0 +1,107 @@
+---
+title: "mentioned in a sentence | mentioned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mentioned"
+---
+- He `mentioned` a city.
+- I `mentioned` you both.
+- Never `mentioned` what?
+- Forget i `mentioned` it.
+- He never `mentioned` it.
+- He's barely `mentioned`.
+- Ben never `mentioned` it.
+- Her name got `mentioned`.
+- Yes -- he `mentioned` it.
+- He never `mentioned` that.
+- She never `mentioned` you.
+- You never `mentioned` him!
+- He's never `mentioned` him.
+- She hasn't `mentioned` you.
+- That was never `mentioned`.
+- I might have `mentioned` it.
+- She hasn't `mentioned` this.
+- Yeah, so you've `mentioned`.
+- You `mentioned` information.
+- Yeah, colleen `mentioned` it.
+- Hardin never `mentioned` that.
+- I `mentioned` it in my report.
+- She never `mentioned` divorce!
+- You just `mentioned` her name.
+- I `mentioned` you in town today.
+- I shouldn't have `mentioned` it.
+- I've never `mentioned` it to him.
+- No one `mentioned` yours, either.
+- She never `mentioned` her father.
+- Edith `mentioned` "a useless boy."
+- I never `mentioned` it to anybody.
+- But not until you `mentioned` them.
+- Nobody's `mentioned` that in years.
+- I never `mentioned` the word before.
+- You might have `mentioned` me first.
+- Your brother's name was `mentioned`.
+- But she `mentioned` beaumont by name?
+- No, i `mentioned` it only in passing.
+- She has never `mentioned` her family.
+- You just `mentioned` hero sandwiches.
+- You weren't `mentioned` in the story.
+- Hannah `mentioned` something about it.
+- The one you `mentioned` at the morgue.
+- He `mentioned` a name, at the very end.
+- You `mentioned` something this morning.
+- You never `mentioned` a 'stella' to me.
+- You never `mentioned` his mental state.
+- You never `mentioned` my father before.
+- You might have `mentioned` you had that.
+- You've `mentioned` it about fifty times.
+- Have i `mentioned` that i hate this idea?
+- He `mentioned` you had a girl for a while.
+- In no way have you `mentioned` that money.
+- You `mentioned` something called redstone.
+- You `mentioned` that in your letters okay.
+- I don't know if i `mentioned` the headaches.
+- I doubt hank has ever `mentioned` my father.
+- She wasn't even `mentioned` in marsh's will.
+- <font color=#ffff2d>you `mentioned` berkeley.
+- Have i `mentioned` that i don't like it here?
+- I doubt hank have ever `mentioned` my father.
+- I'm a doctor, but i think i `mentioned` that.
+- I'm sorry...i just `mentioned` it in passing.
+- It wasn't `mentioned` in the job description.
+- Still -- `mentioned` it, is more what he did.
+- But when i `mentioned` savage henry he freaked!
+- She's always `mentioned` in the columns, mitch.
+- All right, but beware, i never `mentioned` guns.
+- I'm surprised captain rob never `mentioned` him.
+- It's a name anna's `mentioned`--from her dreams.
+- Smells funny, it being `mentioned` in the paper.
+- Well, you `mentioned` her father... the divorce.
+- I think we `mentioned` it to him the first night.
+- Every time you're on television i get `mentioned`.
+- I'm going home...to that roommate you `mentioned`.
+- You `mentioned` that he had a learning disability.
+- Nevertheless, you could have `mentioned` the sauce.
+- Ricky tan `mentioned` a boat in hong kong harbor...
+- ... you `mentioned` the "bay of pigs" several times.
+- Sir, someone `mentioned` you received the navy cross.
+- He never `mentioned` it to me and he loves the business.
+- For i have never heard your name `mentioned` in my family.
+- I may've `mentioned` adele, how she worked for a magician.
+- In the shop you `mentioned` something about-- yes -- it is.
+- You `mentioned` on the phone that you'd had some dizziness.
+- I think they would have `mentioned` if he was a blind dwarf.
+- We went to every goddamn place del `mentioned` and no betty.
+- You `mentioned` berkeley, are you going to ask danvers next?
+- Ain't nobody `mentioned` that name on this farm for 14 years.
+- You `mentioned` that she had gone, were you close to her also?
+- Then she `mentioned` penis envy... did you know about that?
+- Have you ever `mentioned` to everyone what good work i'm doing?
+- You `mentioned` salvy, tommy como, you -- that means somethin'.
+- My guidance counselor never `mentioned` anything about vampires.
+- She `mentioned`, of course, that margo expects to play the part?
+- ... chauncey... last night you `mentioned` an old man, that died.
+- In every sentence, she `mentioned` a lord or a person of quality.
+- "let all who love me follow me"... where does god get `mentioned`?
+- I probably shouldn't have even `mentioned` that possibility to her.
+- But since you `mentioned` it, wasn't esparza your primary informant?
+                 

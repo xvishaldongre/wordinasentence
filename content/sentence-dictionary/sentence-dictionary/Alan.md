@@ -1,0 +1,77 @@
+---
+title: "Alan in a sentence | Alan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Alan"
+---
+- This is wrong, `alan`!
+- I can see that, `alan`.
+- Please, call me `alan`.
+- They want `alan` grant.
+- `Alan`-one... feel what?
+- That was stupid, `alan`.
+- I'll destroy him, `alan`.
+- Put the gun down, `alan`.
+- He's gone sailing, `alan`.
+- Is `alan` baer "the game?"
+- Because i trust you, `alan`.
+- Just don't call him, `alan`!
+- Oh, i�m hearing you, `alan`.
+- Are you a friend of `alan`'s?
+- `Alan` stayed awake, at least.
+- We'll be up in `alan`'s office.
+- Well, i didn't mean it, `alan`.
+- What about containment, `alan`?
+- Sorry... jack approaches `alan`.
+- You're `alan` grant, aren't you?
+- `Alan` don't be afraid to evolve.
+- Check out "`alan` pope" in miami.
+- So where do you know `alan` from?
+- Are you still in love with `alan`?
+- Let me know if i can help, `alan`.
+- Sorry, `alan` it's been six years.
+- `Alan`, these aren't bones anymore.
+- I have to get in touch with `alan`.
+- `Alan` that shelter was in this bill.
+- Going to the coast was `alan`'s idea.
+- He certainly has your number, `alan`.
+- You give `alan` an annual, don't you?
+- So `alan` stanwyk does not have cancer.
+- `Alan` comes by every three weeks or so.
+- I took care of him through this, `alan`.
+- I don't need your help, `alan` dershwitz!
+- Not disintegrating, `alan` -- digitizing.
+- `Alan` albright called me a handsome woman.
+- Miss sellers, do you know dr. `alan` paley?
+- `Alan`, we still have to control this guy...
+- You promised you'd meet projections, `alan`.
+- Jesus, `alan`, the guy could be a psychopath.
+- `Alan` was not...unbalanced when i married him.
+- Gee, `alan`'s been looking kind of sick lately.
+- `Alan` stanwyk is not involved in improprieties.
+- They're still married... `alan` and sally ann.
+- I'm a program from a user that... knows `alan`...?
+- Then i want you to check out a doctor `alan` paley.
+- Well, `alan`, i think we�re gonna have a banner year.
+- Anyway, i'm surprised `alan` got the policy so easily.
+- There is no baer/grant publishing without `alan` baer.
+- Do you happen to have a picture of `alan` and his wife?
+- See what we've got on a guy named `alan` stanwyk, okay?
+- You know, `alan` and i were recently speaking of dying.
+- I fucked around on him, i fucking cheated on him, `alan`.
+- I have to find out what `alan` wants... that comes first.
+- Listen `alan`, i really appreciate you bringing me along.
+- I just have to take another peek at `alan` stanwyk's file.
+- `Alan` has put together sort of a training program i promise.
+- I couldn't help but hear you say something about rio, `alan`.
+- Maybe... you think i like being here on christmas eve, `alan`?
+- I don't want you to be sorry, `alan`, i want you to be excited.
+- Listen, if you're so bored, why didn't you go to utah with `alan`?
+- A minute later `alan` came in the room and asked me why i was shaking.
+- Oh, margie, sorry, frieda lost the number of `alan`'s realtor in provo.
+- Whoa, whoa... what do you expect them to say, you're `alan` dershowitz?
+- `Alan` ladd, '64, more pills, carole landis, pills again, i forget when.
+- I went up for one this morning with `alan` thicke and corey haim -- what's mow?
+- `Alan`, i want to tell you that i'm so sorry about the... we need to keep moving.
+- `Alan`-one gave me the coding we need to go up against master stranger and stranger...
+                 

@@ -1,0 +1,107 @@
+---
+title: "so in a sentence | so example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "so"
+---
+- Because you said `so`.
+- Boy-- `so` what's new?
+- But it's `so` obvious.
+- Don't be `so` grouchy.
+- Don't be `so` literal.
+- Don't leave `so` soon.
+- Eddie, i'm `so` broke.
+- Explain it `so` i can.
+- God, you are `so` hot.
+- He is doing `so` well.
+- I am afraid `so`, son.
+- I am `so` proud of us.
+- I certainly hope `so`.
+- ...i don't think `so`.
+- I don't... think `so`.
+- I happen to know `so`.
+- I'm afraid `so`, brad.
+- I miss them `so` much.
+- I'm running `so` late.
+- I'm `so` happy, becky.
+- I'm `so` proud of her.
+- I'm `so` proud of you.
+- I'm `so` sorry, buddy.
+- I'm `so` sorry, helen.
+- I'm `so` sorry, james.
+- I'm `so` sorry, kalen.
+- I'm `so` sorry, laura.
+- I'm `so` used to carl.
+- I rather thought `so`.
+- I sincerely hope `so`.
+- I `so` wish i'd known.
+- Is the day `so` young?
+- It all went `so` fast.
+- It feels `so`.. .real.
+- It happened `so` fast.
+- I think `so`, for now.
+- ...i think `so`...you?
+- It's not bad `so` far.
+- It’s `so` beautiful.
+- It's `so` frustrating.
+- It's `so` lit, though.
+- It was `so` beautiful!
+- It was `so` real, dad.
+- It would be `so` okay.
+- I've been `so` lonely.
+- I want... `so` nice...
+- I wouldn't think `so`.
+- I would say `so`, yes.
+- Just `so` sad, really.
+- Marge, i'm `so` sorry.
+- Maybe 50 feet or `so`.
+- Not `so` bad yourself.
+- Not `so` rough, honey.
+- Now i'm not `so` sure.
+- Oh i don't think `so`.
+- Oh, i hope `so`, dear.
+- Oh, it's not `so` bad.
+- Oh, that is `so` cool.
+- Oh, they're `so` cute.
+- Oh, this is `so` good.
+- Oh, you're `so` smart.
+- Okay, `so`... jason...
+- Okay, `so` what is it?
+- One would assume `so`.
+- Or `so` my momma says.
+- Pretty rough `so` far.
+- She's `so` articulate.
+- She's `so` nice, brad.
+- `So`, are you happier?
+- `So` beautiful, irena.
+- `So` be here at three.
+- `So` can i come along?
+- `So` casual, friendly.
+- `So` cold and distant.
+- `So` did gene tierney.
+- `So` do as i tell you.
+- `So` do i, believe me.
+- `So` far you're great.
+- `So` franky finds out.
+- `So` goodbye, focusyn.
+- `So` have you, jasper.
+- `So` how 'bout friday?
+- `So`, how do we do it?
+- `So`, how do you feel?
+- `So` how're you doing?
+- `So`...how's the knee?
+- `So`... how you doin'?
+- `So` i brung her home.
+- `So` i can have these?
+- `So` i can take a nap.
+- `So`, i gotta ask you.
+- `So` i'm a rock hound.
+- `So`, i'm not worried.
+- `So` is the farmhouse.
+- `So` is this the drop?
+- `So` i thought if i...
+- `So` i threw them out!
+- `So`, it's all agreed.
+- `So` i was over-ruled.
+- `So` i watched europe.
+                 

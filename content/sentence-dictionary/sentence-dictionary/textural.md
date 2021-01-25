@@ -1,0 +1,7 @@
+---
+title: "textural in a sentence | textural example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "textural"
+---
+## Unfortunately, we have no example sentences for textural                 

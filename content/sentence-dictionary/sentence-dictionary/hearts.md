@@ -1,0 +1,52 @@
+---
+title: "hearts in a sentence | hearts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hearts"
+---
+- Our `hearts` were full.
+- Breaking girls' `hearts`.
+- He's a thief of `hearts`!
+- Must be stealing `hearts`.
+- We're inside our `hearts`.
+- Break each other's `hearts`.
+- Break each other's `hearts`.
+- Let 'em eat their `hearts` out.
+- You'll break a lot of `hearts`.
+- Broken `hearts` are for assholes.
+- And feed their `hearts` to your dog.
+- You lilly-livered bleeding `hearts`!
+- `Hearts` and kidneys are tinker toys!
+- Broke their `hearts` when we closed up.
+- Hey, two `hearts` got busted last time.
+- Broken `hearts` aren't that simple, arthur.
+- You know me, breakin' `hearts` and takin' names.
+- Illuminate `hearts` and minds with a ray of truth.
+- Rupturing both the primary and secondary `hearts`.
+- ♪ broken `hearts` lie all around me ♪ just... lucas.
+- Fight their `hearts` out for peanuts -- but who cared?
+- But look at what's been done with `hearts` and kidneys!
+- Oh, you mean you...fix the `hearts`...of little babies?
+- Yeah, out of the goodness of your own `hearts`, i'm sure.
+- Sicilians have nigger blood pumpin' through their `hearts`.
+- I believe we have a few too many soft `hearts` in the building.
+- I wish they were vampires so i could nuke them in their `hearts`.
+- `Hearts` will never be practical until they can be made unbreakable.
+- Speaking of misery, miss lonely `hearts` drank herself to sleep again.
+- Young men's love then lies not truly in their `hearts` but in their eyes.
+- It is the `hearts` of two good men whom i have had the honor of calling son.
+- I prefer the `hearts` of hawks and wolves; fierce and free and keen as steel!
+- Watching the fear grow in their eyes, knowing in their `hearts` i wasn't human.
+- They fear us because in their `hearts` they know their race has become obsolete.
+- May your `hearts` be filled with love and light anything left down here is ruined.
+- 1... every slice hot and fresh when we encounter danger, our `hearts` start pounding.
+- Then plainly know my `hearts` dear love is set, on the fair daughter of rich capulet.
+- We are here to ruin ourselves and break our `hearts` and love the wrong people and die!
+- But in her heart of `hearts` i imagine, dallas, that she fancies you in an uncommon way.
+- Miss lonely `hearts` just laid out something that looks like sodium trieckonal capsules.
+- But she doesn't mean any harm and it'll break the children's `hearts`, they all love her.
+- Says here you done real good in the war: silver star, bronze star, couple purple `hearts`.
+- I'm gonna win my way into the lives and `hearts` of people even if i have to kill to do it.
+- Looks like you and i when this movie touches people's `hearts`, oh, it's powerful tiresome.
+- Lucky for you, you got him in both of his... well, what we loosely refer to as... `hearts`.
+                 

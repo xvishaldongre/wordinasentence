@@ -1,0 +1,107 @@
+---
+title: "fifty in a sentence | fifty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fifty"
+---
+- Hell, make it `fifty`.
+- Not for three-`fifty`.
+- Seven hundred `fifty`?
+- That was two- `fifty`.
+- This is `fifty` bucks.
+- Twelve-`fifty` i have.
+- Uh... at least `fifty`.
+- We get `fifty` percent.
+- You got the `fifty` up?
+- You said three-`fifty`?
+- `Fifty` cents admission.
+- `Fifty` million dollars.
+- `Fifty` yards ain't bad.
+- He doesn't look `fifty`.
+- I need an extra `fifty`.
+- I owe you `fifty` bucks.
+- Not for `fifty` million.
+- One-`fifty` is bid here.
+- That'll be four `fifty`.
+- Almost `fifty` years ago.
+- `Fifty` bucks a lead.
+- `Fifty` thousand dollars!
+- She was `fifty`-six, son.
+- You owe me `fifty` bucks.
+- You owe me three-`fifty`.
+- A hundred and `fifty`-six.
+- `Fifty` million four ways.
+- `Fifty` yards and closing.
+- Here's your `fifty` bucks.
+- I'll give you two-`fifty`.
+- You ever eat `fifty` eggs?
+- You're a woman of `fifty`.
+- He'll see `fifty` thousand.
+- I can go two...two-`fifty`.
+- I'm `fifty`-five-years old.
+- I'm `fifty`- six years old.
+- The `fifty` kilos, matthew.
+- When i have `fifty` pounds.
+- `Fifty` cars by 8 am friday.
+- `Fifty` ladies in two weeks.
+- Fourteen-`fifty` hours, sir.
+- I'll give you `fifty` cents.
+- Man 1: three-`fifty` i have.
+- Nobody kin eat `fifty` eggs.
+- Plus the usual `fifty` cash.
+- You're `fifty` short, skins.
+- 'bout `fifty` thousand times.
+- He just saved `fifty` people.
+- I don't know... like `fifty`.
+- It's `fifty` cents admission.
+- Maybe forty, `fifty` million.
+- Take your `fifty` cents back.
+- That's `fifty` thousand, huh?
+- Twenty here, `fifty` there...
+- Was one `fifty` last quarter.
+- Always two-`fifty`, my friend.
+- `Fifty`'s a nice round number.
+- Nineteen `fifty` -- what year?
+- Nothing bigger than a `fifty`.
+- They cost `fifty` pounds each!
+- We'll agree to buy at `fifty`.
+- Well, here are `fifty` francs.
+- Why'd you have to say `fifty`?
+- You get `fifty` a day, period.
+- A hundred, hundred and `fifty`.
+- Are you a `fifty` dollar whore?
+- `Fifty` dollars an hour, right?
+- `Fifty` yards right down there.
+- I'd go `fifty`-`fifty` with you .
+- I do about three-`fifty`, four.
+- Man 1: one hundred and `fifty`.
+- Still, `fifty` cents ain't bad.
+- Why only `fifty` percent, ruth?
+- You have `fifty`-eight seconds.
+- You're `fifty` feet in the air!
+- The `fifty`'s all gone, huh?
+- Best head in `fifty`-two states.
+- No, it don't have to be `fifty`.
+- Reed just gave us `fifty` grand.
+- You'll take `fifty` and like it!
+- `Fifty`, and you've got your man.
+- Five minutes and `fifty` seconds.
+- Four-`fifty` is bid for the pair.
+- Four hundred and `fifty` dollars.
+- Give me `fifty` and get them out.
+- ...one `fifty`-nine, two minutes.
+- That was forty, `fifty` thousand.
+- A `fifty` foot extension lead?
+- But his dad gave me `fifty` grand.
+- Ever sat on the `fifty` yard line?
+- This is...it's about `fifty` feet.
+- We still have `fifty`-one minutes.
+- You left vegas with four- `fifty`?
+- You said five hundred and `fifty`!
+- A hundred and `fifty` bucks a week.
+- `Fifty`-seven...oh, christ... shit.
+- `Fifty` thousand dollars they want.
+- Here... ten, thirty, `fifty` bucks.
+- He wants a `fifty`-thousand marker.
+- I gotta have `fifty`-seven dollars.
+                 

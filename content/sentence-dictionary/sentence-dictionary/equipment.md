@@ -1,0 +1,83 @@
+---
+title: "equipment in a sentence | equipment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "equipment"
+---
+- Not with this `equipment`.
+- I service video `equipment`.
+- Our `equipment` has arrived.
+- This place, the `equipment`.
+- We need medical `equipment`.
+- I don't have any `equipment`.
+- The `equipment` needs repair.
+- Sterile `equipment`, medicine.
+- I had to rent some `equipment`.
+- So, i'm a piece of `equipment`.
+- Not with the `equipment` i have.
+- All the `equipment` is brand new.
+- My `equipment` doesn't crap out....
+- You use your `equipment`, don't you?
+- We've done containers... `equipment`?
+- Who can buy this kind of `equipment`.
+- [`equipment` buzzing] you were around.
+- Like the `equipment` you're describing.
+- But all of my `equipment` is in the lab.
+- We weren't able to save the `equipment`.
+- Where else can we find that `equipment`?
+- Denmark makes great nautilus `equipment`.
+- He's a piece of `equipment` for crissake.
+- Precise `equipment`� such as waldos� roz?
+- I thought all your `equipment` got stolen.
+- Your `equipment` has crapped out again....
+- Zavitz had digital compression `equipment`.
+- No, they didn't say -- no other `equipment`?
+- I mean, rent, and tapes and this `equipment`.
+- Snatching `equipment` to make her own sequel?
+- Their `equipment` is primitive but effective.
+- Well, where else can we find that `equipment`?
+- But with your antiquated `equipment`, hey, hey.
+- I can't exactly afford that kind of `equipment`.
+- Our communications `equipment`'s been destroyed.
+- Will the hospital `equipment` be at the airport?
+- You'da done the same if you had the `equipment`!
+- Actually, that's exactly what our `equipment` is.
+- Our sensing and analytic `equipment` worked well.
+- I get to keep the `equipment` when we're done.
+- When he left, he took a lot of `equipment` with him.
+- Now we need a sound store with the finest `equipment`.
+- His `equipment`, trucks, client list, the whole shmear.
+- We use the same `equipment`, more or less... my secret?
+- That could work, yes, but all my `equipment` is in the lab.
+- We can't send you new `equipment` until our file is complete.
+- You've got the `equipment`, you just need to read the manual.
+- Putting somebody into hibernation requires special `equipment`.
+- We're doing all the hard research and designing the `equipment`.
+- The good news is i found the problem and it's not our `equipment`.
+- You do pretty well when it comes to getting space and `equipment`.
+- I made a trip to the hospital last night, borrowed some `equipment`.
+- How dare you bring skaikru then he had a fund-raiser for `equipment`.
+- None of the `equipment` we used why don't you go to your room, sweetie?
+- Found the...what- ever it was called...the time-displacement `equipment`.
+- We've never had a completely successful test with any of the `equipment`.
+- I want to take the blood samples to a lab that has the `equipment` i need.
+- A remarkable piece of `equipment`, but a little inelegant, wouldn't you say?
+- The crew hasn't had near enough transition time with all the new `equipment`.
+- Hope, i'd love to help you but i don't have the `equipment` you're describing.
+- If `equipment` is functioning properly, indications are -- an animal life form.
+- We'll get those new routes to pittsburgh and boston and the `equipment` we need.
+- Before you report a possible `equipment` malfunction, you check the subjects....?
+- It'll showcase all the latest `equipment`, bellamy... then i'll erase her forever.
+- I can do more good with access to this `equipment` than i can off in some wasteland.
+- They're right by the ads for like, iguanas and terriers and used fitness `equipment`.
+- And we don't have the `equipment` to exploit them if there were, and no tv for a week.
+- So they'd arrest the hacker, sieze his `equipment`, things that we can't do on our own.
+- Well, we could bring in special `equipment`, monitors, sound devices, things like that.
+- That's impossible, they can't have the sensory `equipment` to track it all the way here!
+- The <u>kobayshi maru</u> scenario frequently wreaks havoc with students and `equipment`.
+- ...would it be a terrible imposition to ask you to take better care of your `equipment`?
+- Then just wait -- maybe this whoever's got you next on the asylum's `equipment`- test list.
+- We did manage to pull any sensitive `equipment` and material out of our safehouse wreckage.
+- ... and i want you to start cleaning the `equipment` out of the scan- shielded compartments.
+- Continued well, i suppose they've been having a bit of trouble with some of the `equipment`.
+                 

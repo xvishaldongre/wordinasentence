@@ -1,0 +1,89 @@
+---
+title: "created in a sentence | created example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "created"
+---
+- It `created` a sensation!
+- When was he... `created`?
+- Sir, he `created` the park.
+- The things you `created`...
+- You've `created` a monster.
+- All peoples `created` equal?
+- No, we `created` the morlocks.
+- This is where ava was `created`.
+- The nightmare that you `created`.
+- I `created` you in my image, puff.
+- Jesus... we've `created` a monster.
+- Sending mickey cohen up `created` it.
+- God `created` the world in seven days.
+- You act as if you `created` the world!
+- He `created` the voices after the fact.
+- That we've `created` ourselves a ghost?
+- The van ryan family `created` blue bay.
+- All of them `created` by people like me.
+- I `created` all of sanctum in its image.
+- Of the artist who `created` this tattoo.
+- You `created` him - you can destroy him.
+- You've `created` a world without murder.
+- Tell us why all apes are `created` equal.
+- To pay back the people who `created` him.
+- The creator is that which `created` v'ger.
+- They were `created` during a dictatorship.
+- Something dr. soong `created` before data .
+- They're `created` by a female gynecologist.
+- You know, i was the one who `created` hell.
+- A new species `created` by man's recklessness.
+- Becca `created` the flame after apocalypse one.
+- The most advanced cyborg weapon ever `created`.
+- In one act of brutality, you have `created` chaos.
+- So i `created` a new taxonomic category... guaiwu.
+- I wish i was never artificially `created` in a lab.
+- You, buddy, are stuck in a situation you `created`.
+- You son of a bitch, you just `created` a lynch mob.
+- `Created` by that little tabloid twit gale weathers.
+- He `created` it, and yet he never actually heard it.
+- You've `created` a dilemma... and, look at the that.
+- According to myth, the earth was `created` in six days.
+- The problem is the by-product `created` by the process.
+- If you were an artist you could have `created` something!
+- I suppose i want to know how a man like you is `created`.
+- No one is allowed to destroy the life that god `created`!
+- It's `created` a situation without a goal, and i hate that.
+- Christ, we `created` frankenstein with those fucking cubans.
+- Then they weren't `created` to go after your "patient zero".
+- `Created` in the image of man, by the masses, for the masses.
+- I have `created` the ultimate weapon to defeat austin powers.
+- It's a humanoid weapon system `created` by the urm technarchy.
+- You are an imperfect being... `created` by an imperfect being.
+- Maybe he just figures lenny will appreciate what he's `created`.
+- Apparently, the fallout has `created`....a subspecies of mutants.
+- You must be very proud of what you and your mother have `created`.
+- I `created` mister da vinci so we could call in the secret service.
+- It could take years for me to get past the barriers he's `created`.
+- She needed, a companion, so out of her own hunger she `created` one.
+- Not even the old man who just wants to hang onto what he's `created`.
+- They were eighty-seven-point-two centimeters the day i was `created`.
+- Dr. soong `created` us to become active and useful members of society.
+- You've `created` something in your mind, james -- a substitute reality.
+- The event horizon was `created` for one reason: to go faster than light.
+- We have more officers `created` by congress than we know what to do with.
+- Sometimes when new things happen, he `created` a world without love small?
+- He set up shop in london, and he `created` this myth around johnnie walker.
+- I have `created` a race of plants with the strength of the deadliest animals.
+- Which god would that be, the one who `created` me, or the one who `created` you?
+- A pity he didn't live to see how, from humble beginnings, i `created` an empire.
+- When it did, it was almost like...like each new day was `created`...only for us.
+- Code that like the flame itself was `created` by... ♪ 'cause we are living ♪ huh?
+- This has `created` pressure on the lunar stratum beyond gravitational tolerances.
+- This show was `created`, conceived by you, a non-threatening african- american male.
+- Before we knew it, we `created` the most popular men's magazine in the entire nation.
+- So lisa `created` an imaginary journal for seymour, hey, jj, do you still like legos?
+- What you're seeing is a computer driven image `created` by photons and forcefields...
+- You think i want my future children to know their daddy `created` frank's fun palace?
+- They come and go as naked as the day god `created` them... do they have such thoughts?
+- It is thoroughly secured, which is not surprising considering lindenmeyer `created` it.
+- Even a god that wasn't active, that just `created` something and stood back and watched?
+- Captain, it was our anti-matter imbalance that `created` the wormhole in the first place.
+- Why should only batman and robin die while the society that `created` them goes unpunished?
+                 

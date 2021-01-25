@@ -1,0 +1,54 @@
+---
+title: "media in a sentence | media example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "media"
+---
+- British `media` mogul.
+- The mainstream `media`.
+- You sound like the `media`.
+- This is free `media` exposure.
+- Don't post it on social `media`.
+- I'm u.s. army `media` relations.
+- You are a multi-`media` magnate.
+- Don't post it, on social `media`.
+- You know what the `media`'s like.
+- We're talkin' a `media` event here.
+- We could turn that into a `media` room.
+- The `media` has caught wind of his pardon.
+- And the entire garbage blast `media` family.
+- He didn't expect the `media` to lionize him.
+- Imagine: you'll have the ear of the `media`.
+- Since when have you become a `media` expert?
+- She's the best `media` consultant in the biz.
+- And monetizing via shopping and social `media`.
+- I don't go for that shit... interviews, `media`.
+- Major william cage, united states military `media`.
+- That information's being withheld from the `media`.
+- The jews clearly control the `media` and the banks.
+- But gary's tied-in to a lot of `media` conglomerates.
+- Andy usually just sends those to the national `media`.
+- Coming down the courthouse steps every day in the `media`.
+- Every time the `media` get a look at him, they come to me.
+- We could cross-reference a data base on `media` ownership.
+- As soon as we get somethin' we'll let you alert the `media`.
+- Could the mob influence the national `media` to go to sleep?
+- I strongly doubt it, but i wasn't really discussing `media`...
+- So're `media` conglomerates, cable companies, phone companies.
+- [whistles] homer, i'm the ceo of a major `media` conglomerate.
+- Whatever sid is going to do next, it's going to involve `media`.
+- When i lived in roxbury, the `media` followed this man everywhere.
+- I've never seen anyone handle the `media` as well as you, chauncey.
+- Your faith in the veracity of the major `media` is touching, jerry.
+- It's like you were never seventeen and the head of a `media` empire.
+- You know, we get it to the `media` somehow... how long does it last?
+- I happen to teach a class at columbia called "tv `media` and culture"!
+- So, fine, it's not that the jew, the jews own the `media` and the banks.
+- You're about to be a `media` darling -- you might want to dress the part.
+- All i know is we're in motion for the most watched `media` event in history.
+- Come on, doc, i don't want to be stuck here with this bunch of `media` creeps.
+- Do we tell the `media` and hope for somebody to come forward with information?
+- You `media` people, you think you can just go anywhere you want, spy on people.
+- Kind of a coming out party under the glare of `media` covering the metro club gala.
+- Please to explain, why i should agree to interview... with pro-zionist american `media`?
+                 

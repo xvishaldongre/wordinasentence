@@ -1,0 +1,7 @@
+---
+title: "froth in a sentence | froth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "froth"
+---
+## Unfortunately, we have no example sentences for froth                 

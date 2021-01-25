@@ -1,0 +1,107 @@
+---
+title: "around in a sentence | around example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "around"
+---
+- Come to look `around`?
+- I just drove `around`.
+- I'll scuffle `around`.
+- I'll see you `around`.
+- I mean, look `around`.
+- It's turning `around`!
+- It's turning `around`.
+- Just looking `around`.
+- Pan it `around` a bit.
+- Quit fuckin' `around`.
+- Quit fucking `around`.
+- Quit kidding `around`.
+- Quit messing `around`!
+- See you `around`, pal.
+- Stop kidding `around`.
+- They'll come `around`.
+- Turn the car `around`.
+- Without dave `around`.
+- Alright, look `around`.
+- Be home `around` seven.
+- Bring it `around` back.
+- Don't finagle `around`.
+- Has he hinted `around`?
+- I know my way `around`.
+- I'll lead you `around`.
+- I've seen you `around`.
+- Just drive me `around`.
+- Let's go `around` back.
+- Meet you `around` back.
+- Not while i'm `around`.
+- Outside, `around` back.
+- Quit screwin' `around`!
+- Quit screwing `around`.
+- Stick `around`, please?
+- To be walking `around`.
+- Try to get `around` it.
+- Wavin' a gun `around`?!
+- We climb down `around`.
+- Who's fucking `around`?
+- You from `around` here?
+- You live `around` here?
+- You work `around` town?
+- Close those `around` it.
+- Down `around` my ankles.
+- Generally `around` dark.
+- Go `around` to the back.
+- He moves `around` a lot.
+- He's `around` someplace.
+- He's `around` somewhere.
+- He wasn't `around` here.
+- I heard he was `around`.
+- I'll just look `around`.
+- I no from `around` here.
+- Joe is just... `around`.
+- Let's turn him `around`.
+- Look `around` some time.
+- Loop `around` real fast.
+- Lotta law `around` here.
+- Mind if i look `around`?
+- ...not to turn `around`.
+- Other way `around`, sir.
+- Pretty low all `around`.
+- See you `around`, girls.
+- Stop fooling `around`...
+- There's a hawk `around`.
+- They don't run `around`.
+- To boss people `around`.
+- Turn the rover `around`.
+- Well, look `around` you!
+- W... wandering `around`.
+- Yeah i saw 'em `around`.
+- Always sneaking `around`.
+- [beat] not `around` here.
+- Bring the motor `around`.
+- Come over `around` seven.
+- Cut the horsing `around`.
+- Get up and turn `around`.
+- Honey, look `around` you.
+- I'll bring them `around`.
+- I'm not fooling `around`!
+- I'm not playing `around`.
+- It's `around` dinnertime.
+- It's curling `around` me!
+- It shifts `around` a lot.
+- It was `around` his neck.
+- I wasn't `around` much...
+- Joe, you do get `around`.
+- Just `around` the corner.
+- Let me show you `around`.
+- Let's see whose `around`.
+- Lines `around` the block.
+- Oh, i've looked `around`.
+- Push them `around` first.
+- See you `around`, fellas.
+- Show him `around` for me?
+- Take a look `around` you.
+- There's nothing `around`.
+- They don't fool `around`.
+- They're turning `around`.
+- They're usually `around`.
+                 

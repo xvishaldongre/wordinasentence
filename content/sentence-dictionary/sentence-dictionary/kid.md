@@ -1,0 +1,107 @@
+---
+title: "kid in a sentence | kid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kid"
+---
+- But even a `kid` lies.
+- Come back here, `kid`!
+- Come over here, `kid`.
+- Get some sleep, `kid`.
+- Goin' to see my `kid`.
+- Happy birthday, `kid`.
+- How they goin', `kid`?
+- I don't rattle, `kid`.
+- I know it will, `kid`.
+- I'm his `kid` brother.
+- Like that other `kid`?
+- Loud and clear, `kid`.
+- Oh, that was my `kid`.
+- Paulie's a good `kid`.
+- Shame about the `kid`.
+- Sock it to 'em, `kid`!
+- So whattya say, `kid`?
+- That `kid` is amazing.
+- That `kid` was scared.
+- That was `kid` gloves?
+- The `kid` gets killed.
+- We've got your `kid`!!
+- When you were a `kid`.
+- You were just a `kid`.
+- But why `kid` yourself?
+- Don't be scared, `kid`.
+- Forget about it, `kid`.
+- Glad to meet ya, `kid`.
+- He's a sensitive `kid`.
+- He's my sister's `kid`.
+- `Kid` is a little shit.
+- Let tits see her `kid`.
+- Let tits see her `kid`.
+- Look, come home, `kid`.
+- Look, i got this `kid`.
+- My `kid` is in trouble.
+- She's passed on, `kid`.
+- Since you were a `kid`?
+- The girl and the `kid`.
+- The `kid`'s got talent.
+- The `kid`'s with them!!
+- They killed him, `kid`.
+- Welcome to hell, `kid`!
+- You got it made, `kid`.
+- You knew me as a `kid`.
+- You're dreamin', `kid`.
+- You were never a `kid`.
+- About a `kid` in a coma?
+- Christ, `kid`, look out!
+- Don't let him `kid` you.
+- Find that fucking `kid`.
+- For dr. hibbert's `kid`.
+- He has a wife and `kid`.
+- He's the sweetest `kid`.
+- Hey, don't worry, `kid`.
+- Hey, `kid`, that's okay.
+- Hey, she's just a `kid`.
+- How'd the `kid` hold up?
+- I did this with a `kid`.
+- I got a `kid`, you know.
+- I'm not a `kid` anymore.
+- It's no disgrace, `kid`.
+- I was here...as a `kid`.
+- `Kid`, come on, wake up!
+- Look at jeannie's `kid`.
+- Of a `kid` with promise.
+- Slay your demons, `kid`.
+- Superior numbers, `kid`!
+- Take care of your `kid`.
+- Tell me about it, `kid`.
+- That's the `kid`'s name?
+- The `kid` is contagious.
+- The `kid` is only great.
+- They shot us all, `kid`.
+- This `kid`, hosea brown?
+- ...tiful wife and `kid`.
+- To genteel crime, `kid`.
+- Yeah, you got me, `kid`.
+- You don't `kid` me, pal.
+- You gonna shoot a `kid`?
+- Your photos suck, `kid`.
+- All right, listen, `kid`.
+- 'cause he's a good `kid`!
+- Certainly not some `kid`.
+- Cut the `kid` some slack.
+- Ever since i was a `kid`.
+- From when he was a `kid`.
+- He's a good little `kid`.
+- He's scared of the `kid`.
+- I'm a businessman, `kid`.
+- I'm a little `kid` in it.
+- I'm gonna get you, `kid`.
+- It's like having a `kid`!
+- `Kid`, don't threaten me.
+- `Kid`, that's the wizard.
+- Let's get the `kid` home.
+- Man: right here, `kid`.
+- Missing `kid`, suicide...
+- My `kid` brother has one.
+- Now don't `kid` a kidder.
+                 

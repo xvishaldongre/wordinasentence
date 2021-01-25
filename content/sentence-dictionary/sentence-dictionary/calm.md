@@ -1,0 +1,107 @@
+---
+title: "calm in a sentence | calm example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "calm"
+---
+- `Calm` down, benjamin.
+- `Calm` down everybody.
+- `Calm` down, richards.
+- `Calm` the fuck down.
+- Everybody `calm` down!
+- Everybody stay `calm`.
+- Everything was `calm`.
+- Paul will `calm` down.
+- All right, `calm` down.
+- `Calm` down, `calm` down.
+- `Calm` down, sweet pea.
+- `Calm` yourself, bones.
+- `Calm` yourself, nurse.
+- Dave, just `calm` down.
+- I will not `calm` down!
+- Now `calm` down walter!
+- Okay, just `calm` down.
+- Please `calm` yourself.
+- Stay `calm`, everyone!!
+- To `calm` your anxiety.
+- `Calm` down, dave, what?
+- `Calm` down, dr. levine.
+- Can you `calm` her down?
+- Everybody stay `calm`...
+- How are you this `calm`?
+- Let's all remain `calm`.
+- Look dixon, `calm` down!
+- No, i won't `calm` down!
+- You have to stay `calm`.
+- `Calm` down, mrs. tasker.
+- I beg you -- `calm` down.
+- If you don't `calm` down.
+- It'll `calm` your nerves.
+- Jeanne... `calm` down...!
+- No, i should stay `calm`.
+- Now you stay `calm` here.
+- Alright miss, `calm` down.
+- I need you to stay `calm`.
+- I want you to `calm` down.
+- Now just `calm` down here.
+- Sweetie, just stay `calm`.
+- You've got to `calm` down.
+- Alright, let's keep `calm`.
+- `Calm` down, you're not ...
+- Dietrich: just stay `calm`.
+- I'm perfectly `calm`, dude.
+- I'm fighting to stay `calm`.
+- Knox, you gotta `calm` down.
+- No, you stay `calm`, doctor!
+- Um, you need to `calm` down.
+- You need to `calm` her down.
+- `Calm` down, i'm just asking.
+- Claire, will you `calm` down?
+- Don't tell me to `calm` down!
+- Would you please `calm` down.
+- You gotta `calm` down, paden.
+- You say it just to `calm` me!
+- `Calm` down and don't do this.
+- `Calm` down, what, what is it?
+- `Calm` yourself, xaintrailles.
+- I'll see that he stays `calm`.
+- The shepherd brings us `calm`.
+- I told you, try to stay `calm`.
+- It's just a shot to `calm` you.
+- But you need to `calm` yourself.
+- `Calm` down, my lord, i beg you!
+- Can you just try to `calm` down?
+- ♪ i'll be the `calm` ♪ i'm here!
+- Just stay `calm`, use your head.
+- Okay, okay, lenore, `calm` down.
+- ...with his strength and `calm`.
+- But they need you to stay `calm`.
+- `Calm` down...give the gun to me.
+- He says you make him feel `calm`.
+- Ma'am, i need you to `calm` down.
+- No, i've been `calm` all my life!
+- We don't go if it doesn't `calm`.
+- I try to keep `calm` all the time.
+- Stay `calm`, identify the problem.
+- You seem so `calm` and experienced.
+- `Calm` down, mrs. lampert -- please.
+- I were you, i'd `calm` down, shelly.
+- `Calm` down and get in your position.
+- Daddy says rose is `calm` as lettuce.
+- Please be `calm`, ambassador de sade.
+- Stop telling me to `calm` down, okay?
+- `Calm`, dishonorable, vile submission!
+- Everybody just `calm` down a bit here.
+- So `calm` down, chick--and--goodnight.
+- `Calm` down -- dwayne please `calm` down!
+- Well, we don't go if it doesn't `calm`.
+- Ben: hey, zoey, you need to `calm` down.
+- How can you just sit there being `calm`?
+- I said `calm` down and shut the fuck up.
+- President comes on the air, "be `calm`."
+- Ma'am, i'm gonna need you to stay `calm`.
+- We gave her something to `calm` her down.
+- Remember, stay `calm`, use your thrusters.
+- The lake was dead `calm` until up he came.
+- But i got him angry 'cause i wasn't `calm`.
+                 

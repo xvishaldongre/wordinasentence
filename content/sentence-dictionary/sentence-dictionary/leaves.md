@@ -1,0 +1,107 @@
+---
+title: "leaves in a sentence | leaves example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leaves"
+---
+- So that `leaves` this.
+- No one `leaves` a star.
+- That only `leaves` three.
+- That still `leaves` what?
+- The `leaves`... claire...
+- The plane `leaves` in 40.
+- Don't crunch the `leaves`.
+- No one `leaves` this camp.
+- That `leaves` us no choice.
+- Until then no one `leaves`.
+- Your plane `leaves` at six.
+- It never `leaves` the house.
+- That `leaves` two strangers.
+- That only `leaves` the rest.
+- `Leaves` them in toilets.
+- And we use these `leaves` no.
+- She never `leaves` the house.
+- She `leaves` the room to burp!
+- I know the guy `leaves` a sign.
+- See the `leaves` are all brown.
+- That `leaves` haldeman, period.
+- He `leaves` us, he goes to them.
+- The reaper gets up and `leaves`.
+- No sky person `leaves` this room.
+- You mean that `leaves` miss hall.
+- But she `leaves` early on fridays.
+- At the top, hiding in old `leaves`.
+- Everything we do `leaves` its mark.
+- My flight `leaves` at four o'clock.
+- That `leaves` you trailing, jim.
+- Look, dick, i don't - coco `leaves`.
+- She always `leaves` town, you dummy.
+- She `leaves`, somebody'll be on her.
+- When he `leaves` again, you tell me.
+- Who `leaves` to scout without a map?
+- Yes... nobody `leaves` cuervo jones.
+- He never `leaves` the beach, fat sam.
+- `Leaves` at seven fifty two, tonight.
+- That only `leaves` good conversation.
+- If echo `leaves`, i am going with her.
+- Dad must have raked the `leaves` today.
+- Nobody `leaves` here till seven thirty.
+- So i don't know where that `leaves` us.
+- The uss maggie `leaves` quite a wake...
+- The `leaves` had fallen off in november?
+- So that only `leaves` one thing an a.t.f.
+- Yeah, my room-mate `leaves` it on the tv.
+- He never `leaves` the house until evening.
+- In her mind her friend never `leaves` her.
+- Your flight `leaves` in a couple of hours.
+- I know it wasn't me...so that `leaves` you.
+- Now the train `leaves`-- spanish passports?
+- I told you, nobody `leaves` this camp.
+- Next gas station either he `leaves` or i do!
+- They're cancelling all `leaves`, all passes.
+- This thing `leaves` a bad taste in my mouth.
+- Until we know will is okay, no one `leaves`.
+- You got two hours until your plane `leaves`.
+- Promise...please don't thx `leaves` the room.
+- That `leaves` fifteen or twenty for your end.
+- Then she takes a trip and `leaves` it behind.
+- I feel like i'm going to die when he `leaves`.
+- My flight `leaves` first thing in the morning.
+- She `leaves` that little mudpatch in the dust.
+- That `leaves` me very few choices, doesn't it?
+- You think dwight gooden `leaves` his socks on?
+- It `leaves` him with at least a shred of honor.
+- It sheds it's `leaves` the first week of march.
+- C'mon, we're gonna call her before she `leaves`.
+- Which `leaves` you the only psychologist in town.
+- The train for marseilles `leaves` at five o'clock.
+- He `leaves` behind him this very prosperous business.
+- I guess part of us never really `leaves` high school.
+- Scumbag-- we'll close up as soon as everybody `leaves`.
+- He shows up with his mask on, `leaves` with his mask on.
+- I know you're good, but all that paper `leaves` a trail.
+- ...right up to the point he `leaves` the country tonight.
+- You be at my place a half hour before the plane `leaves`.
+- But that `leaves` another seven or eight pints of chimera.
+- Relax in our pile of wet dead `leaves` i don't know, okay?
+- So maybe just try to knock it down with some wet `leaves`.
+- Oh, and for some reason this woman `leaves` no paper trail.
+- Truth is like a blanket that always `leaves` your feet cold.
+- _ but since your plan most likely `leaves` us dead, we don't.
+- I'm sorry, really i am, but my train `leaves` in ten minutes.
+- Bo, can you turn down the volume until officer paski `leaves`?
+- Spend as much time as possible with diane before she `leaves`.
+- Do you know what will happen to her if she `leaves` shangri-la?
+- She `leaves` the store, gets in her car -- mission accomplished.
+- The killer `leaves` a newspaper clipping at each murder, sidney.
+- I am not someone who `leaves` a great deal to chance, mr. nugent.
+- Big shot from the cia, `leaves` his desk to come back to the bush.
+- Okay, so we wait until the pool closes, until everyone `leaves`, hey.
+- You leave her on earth, she `leaves` you to die in the fighting pits.
+- She turns out to be a multimillionaire and `leaves` you all her money.
+- As soon as the plane `leaves`, my husband and mr. leonard will be back.
+- But as far as i'm concerned that only `leaves` one fucking possibility.
+- You just have to remember, medicine that works `leaves` a bitter taste.
+- You probably heard the wind stirring up those dead `leaves` over there.
+- Naturally when mr. harris `leaves`, i won't see you in this hotel again.
+                 

@@ -1,0 +1,107 @@
+---
+title: "seconds in a sentence | seconds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seconds"
+---
+- Couple more `seconds`!
+- Fifteen `seconds` now.
+- Ten `seconds`, people.
+- You got two `seconds`!
+- 30 `seconds` to impact.
+- About thirty `seconds`.
+- Alec in five `seconds`.
+- Exactly 15.5 `seconds`.
+- For us, five `seconds`.
+- In under six `seconds`.
+- You have ten `seconds`.
+- 4 minutes, 10 `seconds`.
+- For about two `seconds`.
+- You've got 45 `seconds`.
+- 2 minutes, .12 `seconds`.
+- Four `seconds` to impact!
+- It was fifteen `seconds`.
+- Okay, ten more `seconds`.
+- Thirty `seconds` to drop!
+- Hold on for two `seconds`.
+- Impact in eight `seconds`!
+- `Seconds` and thirds, too.
+- Six `seconds` and i'm out.
+- Two minutes, 35 `seconds`.
+- You got 45 `seconds` each.
+- You have thirty `seconds`.
+- 4 minutes and 10 `seconds`.
+- For sixty `seconds`, maybe!
+- Take a couple of `seconds`.
+- Ten `seconds`, full charge.
+- Touched you five `seconds`.
+- Two minutes, ten `seconds`.
+- I'll give you ten `seconds`.
+- I might even take `seconds`.
+- Impact in fifteen `seconds`!
+- I require 60 `seconds` wait.
+- Okay, karla, five `seconds`.
+- What happens in 5 `seconds`?
+- You were gone ten `seconds`.
+- Can i have `seconds`, please?
+- Maybe in about two `seconds`.
+- About - thirty-four `seconds`.
+- In two `seconds` effortlessly.
+- Thirty `seconds` till contact.
+- We'll know in forty `seconds`.
+- By the way, how many `seconds`?
+- In only two `seconds` out here.
+- Three `seconds` and we'll stop.
+- You got about thirty `seconds`.
+- You have 3 `seconds` to decide.
+- You have fifty-eight `seconds`.
+- Another fifteen `seconds` to go.
+- Between six and seven `seconds`.
+- But i ask, you have 3 `seconds`.
+- `Seconds` to close the aperture!
+- `Seconds` to close the aperture.
+- Three... fuck... five `seconds`.
+- You have five `seconds` to live.
+- A few `seconds` is all i'll need.
+- A few `seconds` is all i'll need.
+- Christ, twenty `seconds`, christ!
+- Five minutes and fifty `seconds`.
+- You have 5 `seconds` to come out.
+- During one of those two `seconds`.
+- T-minus 90 `seconds` and counting.
+- But it's only for thirty `seconds`!
+- You have 5 `seconds` never will be.
+- About twenty `seconds` in your time.
+- Dropping you off in sixty `seconds`.
+- Fifteen `seconds` to cloud boundary.
+- I dunno, maybe five `seconds` -- ow!
+- I give you sixty `seconds`, admiral.
+- In thirty `seconds`, you'll be dead.
+- Mark, mr. sulu... 10 `seconds`, sir!
+- You were dead for fifteen `seconds`.
+- Fifty-seven minutes twelve `seconds`.
+- Give me two `seconds` with lacy here?
+- Thirty `seconds` to cloud boundary...
+- You were born two `seconds` after me.
+- I want to be airborne in 90 `seconds`.
+- Sixty `seconds`, then i'm out of here.
+- Ten `seconds`.... transmit, mr. spock!
+- The man's been dead for two `seconds`!
+- Three minutes, twenty-three `seconds`.
+- We just got here thirty `seconds` ago.
+- You just missed me by a few `seconds`.
+- It's only ninety `seconds` up the line.
+- Now you have 3 `seconds` to stand down.
+- And the other `seconds` won't follow me.
+- Fifty six minutes, forty five `seconds`.
+- Go stand watch with the other `seconds`.
+- That lasted about maybe three `seconds`.
+- 10 `seconds`, admiral; 5 - 4 - 3 - 2 - 1.
+- Could you concentrate for five `seconds`?
+- He runs the fifty in under six `seconds`.
+- I can show you in about thirty `seconds`.
+- Impact in fifteen `seconds`... mr. spock?
+- Might take a few days to -- 70 `seconds`!
+- They're pretty quick...fifteen `seconds`?
+- I'm two `seconds` from calling the police.
+                 

@@ -1,0 +1,107 @@
+---
+title: "hungry in a sentence | hungry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hungry"
+---
+- Hey, are you `hungry`?
+- I know she's `hungry`.
+- I'm a little `hungry`.
+- I'm suddenly `hungry`.
+- Yes, are you `hungry`?
+- `Hungry` `hungry` hippos.
+- Now i'm `hungry` again.
+- Yeah, i'm `hungry` too.
+- Yes, i'm very `hungry`.
+- Are you `hungry`, honey?
+- `Hungry` for your blood.
+- I'm not `hungry`, oddly.
+- I'm not really `hungry`.
+- It's making me `hungry`.
+- Maybe he's not `hungry`?
+- No thanks, not `hungry`.
+- The living are `hungry`.
+- Well, i'm `hungry`, too.
+- I'm not `hungry`, really.
+- I'm still `hungry`, brad.
+- The creature is `hungry`.
+- You `hungry` or anything?
+- Are you terrible `hungry`?
+- _ in case you're `hungry`.
+- My rangers are `hungry`.
+- Not `hungry`, serving boy.
+- No wonder dede's `hungry`.
+- Aren't you `hungry`, honey?
+- Then you gotta be `hungry`.
+- Are you... are you `hungry`?
+- [girl] i'm `hungry`, mother.
+- He is actually `hungry` now.
+- I'm `hungry` and�and scared.
+- I think it's still `hungry`.
+- My people are very `hungry`.
+- I'm `hungry` you're not what?
+- I'm really not that `hungry`.
+- I told you, i'm not `hungry`.
+- Pretty `hungry`, weren't you?
+- Something `hungry` for blood.
+- The boy is `hungry`, rebecca.
+- Those children were `hungry`!
+- But i'm not `hungry`, are you?
+- I guess i'm just not `hungry`.
+- I'm so `hungry` i could faint.
+- God help us, he's `hungry` too.
+- I did... and `hungry`, i'd say.
+- I'm `hungry`, let's get a taco.
+- No, i'm just not that `hungry`.
+- We can't feed all the `hungry`.
+- You were `hungry`, remember.
+- But you're not `hungry` are you?
+- Come on, i know you're `hungry`.
+- I thought you might be `hungry`.
+- They're scared, indra, `hungry`.
+- I'm not very `hungry`, thank you.
+- No wonder they're so....`hungry`.
+- You `hungry` or thirsty, or both?
+- Anything else you -- not `hungry`.
+- I just haven't been very `hungry`.
+- I'm not really `hungry` after all.
+- I'm so `hungry` i'm seeing double.
+- I'm fuckin' `hungry` now, you know.
+- I'm `hungry` enough to eat a horse.
+- Was�but� thought you were `hungry`!
+- Actually--i'm not real ... `hungry`.
+- I'm so `hungry` i could eat a horse.
+- Sure you're not `hungry` at all... ?
+- You were saying... we were `hungry`.
+- Nothing, he's probably just `hungry`.
+- Power-`hungry`, self-serving jackass.
+- Aw, c'mon -- anybody can get `hungry`.
+- Hell, it doesn't matter, i'm `hungry`.
+- I'm `hungry`, i can't last any longer.
+- I'm not `hungry` -- isn't it glorious?
+- They're probably `hungry`, that's all.
+- But my lips were `hungry` - too `hungry`.
+- I got some `hungry` people in there ...
+- Oh, all this packing makes me `hungry`.
+- You will be `hungry`, you will be weak.
+- How about the very `hungry` caterpillar?
+- Not if you're more `hungry` than scared.
+- By freeing the minds... are you `hungry`?
+- I've never been so `hungry` in my life...
+- People in love are very seldom `hungry` .
+- Sit down... sit down... are you `hungry`?
+- Gee, i'm `hungry` too -- my pleasure, sir.
+- When they're `hungry` enough, they'll eat.
+- You don't have to remember to be `hungry`.
+- We're `hungry` do you have anything to eat?
+- A dark entity -- evil, ancient and `hungry`.
+- `Hungry` ghosts, killed off all the indians.
+- If he gets `hungry`, he can pick his dinner!
+- Going to bed `hungry`, scrounging for scraps.
+- If it's all right with you, i'm not `hungry`.
+- We do not ask for your poor or your `hungry`.
+- Give us food and we will be `hungry` tomorrow.
+- I don't care about the overtime, i'm `hungry`.
+- I'm getting `hungry`, let's head for the barn.
+- I'm so fuckin' `hungry` i think i'm gonna die.
+                 

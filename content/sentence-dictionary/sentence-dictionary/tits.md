@@ -1,0 +1,60 @@
+---
+title: "tits in a sentence | tits example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tits"
+---
+- She have three `tits`?
+- You have great `tits`.
+- Let `tits` see her kid.
+- Let `tits` see her kid.
+- Of their <u>`tits`</u>.
+- Share the love, `tits`!
+- She's got great `tits`.
+- Suzanne somers' `tits`.
+- Her `tits` are perfect.
+- She's got great `tits`.
+- She doesn't show her `tits`.
+- You're looking at my `tits`.
+- Especially with those `tits`.
+- Always - like `tits` on a pig.
+- Did she have `tits` like that?
+- I don't want to talk about `tits`.
+- I established some `tits` and ass.
+- Are you into girls with big `tits`?
+- Better than `tits` -- a <u>star</u>!
+- They know what her `tits` look like.
+- He already signed your `tits`, honey.
+- You think these are `tits` don't you?
+- The man has the biggest `tits` in asia.
+- How all the magazines show `tits` today.
+- My `tits` are saggin' down ta my ankles.
+- They have to be the biggest `tits` ever.
+- You ever look at another woman's `tits`?
+- Old don is as useless as `tits` on a boar.
+- Did you see that kid grab vampira's `tits`?
+- There are more important things than `tits`.
+- [i should start going for your `tits` first.]
+- She didn't show her `tits` until she went legit.
+- Hey `tits`, i'm taking your neighbor to the country.
+- This place should have been wall to wall `tits` by now.
+- Yeah, god she really does have great `tits`, great `tits`.
+- They're not too classy to have `tits` rubbed in their face.
+- She wants eight hundred thousand dollars to show her `tits`.
+- Well, if you put them on the list, they're already `tits` up.
+- For the porn-addict, big `tits` aren't big enough after a while.
+- I'll cut your fucking `tits` off and shove 'em down your throat.
+- I want to see some <u>pictures</u> of the women's <u>`tits`</u>.
+- The breasts symbolize motherhood... she doesn't show her `tits`!!!
+- Eight hundred grand to show her `tits`... that's why i <u>want</u> it.
+- She used her `tits` and that cute little ass to get him, didn't she?
+- I don't get my `tits` any further into the wringer than they already are.
+- Have you ever had someone that took forever he was like sucking my `tits`.
+- Get someone to <u>double for her</u>, her `tits`, the `tits` scene, call l.a.
+- ...then you'd notice about six huge hairy `tits` swelling up on your back...
+- They cut up her face an' cut her eyes out, cut her ears off an' her `tits` too.
+- A guy can talk `tits` til he's dead but the minute you mention an eight inch weenie.
+- I just hope you'll remember there's never been a great poem called "`tits` and ass."
+- They caught him examining her little `tits` for breast cancer in the faculty lounge.
+- No, no, it's your energy or your attitude or the way you carry yourself or... my `tits`?
+                 

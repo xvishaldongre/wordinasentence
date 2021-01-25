@@ -1,0 +1,107 @@
+---
+title: "Paul in a sentence | Paul example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Paul"
+---
+- It's all over, `paul`.
+- `Paul`, are you there?
+- `Paul` michael glaser.
+- `Paul` will calm down.
+- Say something, `paul`!
+- Did you talk to `paul`?
+- Is that `paul` goodman?
+- I wish i could, `paul`.
+- Now don't fuss, `paul`.
+- Terrible times, `paul`.
+- This is my son, `paul`.
+- What's goin' on `paul`?
+- A little longer, `paul`?
+- Another martini, `paul`?
+- At `paul` and miranda's.
+- `Paul`, i just can't go.
+- `Paul` wasn't into that.
+- Yes, `paul`, i remember.
+- You could leave, `paul`.
+- You liked sister `paul`?
+- `Paul` i was cleaning it.
+- `Paul` lamont, all right?
+- Ask `paul` what he thinks.
+- Better ask `paul` d. true.
+- Don't bullshit me, `paul`.
+- I came for `paul` as well.
+- It's... it's nice, `paul`.
+- It's `paul`'s grandfather.
+- Minneapolis -- st. `paul`.
+- My sister is dead, `paul`.
+- `Paul` wunder, wbai radio.
+- Politics is power, `paul`.
+- What i know, `paul`, is...
+- What's the matter, `paul`?
+- Where did `paul` hang out?
+- This is my son, `paul`.
+- He wasn't with `paul` owen.
+- I've got to pick up `paul`.
+- No, `paul`, they're afraid.
+- Now you've hurt me, `paul`.
+- `Paul`, don't let them die.
+- `Paul` will look after you.
+- She went to pick up `paul`.
+- You made a mistake, `paul`.
+- Hi, lindsey, this is `paul`.
+- `Paul` clambers in the back.
+- Yes, the redoubtable `paul`.
+- Annie, `paul`'s on the phone!
+- Anything for art, eh, `paul`?
+- Can we phone them in, `paul`?
+- Good luck to you too, `paul`.
+- Is your name `paul` benjamin?
+- I tore down `paul`'s posters.
+- Let's see `paul` owen's card.
+- Oh, anything you say, `paul`.
+- `Paul`, how the hell are ya'?
+- `Paul`, you gotta try harder.
+- `Paul`, you know who this is?
+- The night sister `paul` died.
+- Then light the match, `paul`.
+- 256 for `paul`, 255 for tracy.
+- Don't you put her out, `paul`.
+- `Paul`, `paul`, a moment please.
+- The amish boy saw him, `paul`.
+- We're going to pick up `paul`.
+- You remember what `paul` said.
+- It's, it's really nice, `paul`.
+- Oh, `paul`-- stay home tonight!
+- `Paul`, give me your amex card.
+- `Paul`, i know you've been out.
+- `Paul` is mother's first child.
+- `Paul`, it's not worthy of you.
+- `Paul` moves on her first move.
+- `Paul` newman in "the hustler."
+- `Paul`'s only twelve years old.
+- Use your influence with `paul`.
+- You wanna go to `paul`'s house?
+- Oh, `paul`, this is so romantic.
+- `Paul`, this will be our legacy.
+- An explosion, just like `paul`'s.
+- Hey, you're talkin' about `paul`.
+- I am strong, `paul`, like a lion.
+- No doubt `paul` thinks it stinks.
+- `Paul`, john, george - get at it.
+- `Paul` said he'd call the school.
+- `Paul` went to school in england.
+- Please, `paul`, 'til first light.
+- The disappearance of `paul` owen.
+- What universe are you in, `paul`?
+- Looks like `paul`'s our president.
+- Madmen are on the streets, `paul`.
+- `Paul` moves off into the shadows.
+- `Paul` said you were awfully sick.
+- `Paul`, where's the octopus motor?
+- `Paul`, will you sign my yearbook?
+- Sister `paul` was in her eighties?
+- Take that, `paul` thomas anderson.
+- The same kind `paul` sheldon used.
+- Hey, i thought `paul` was grounded.
+- I am always glad to see you `paul`.
+                 

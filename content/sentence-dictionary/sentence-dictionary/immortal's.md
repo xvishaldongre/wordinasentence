@@ -1,0 +1,7 @@
+---
+title: "immortal's in a sentence | immortal's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "immortal's"
+---
+## Unfortunately, we have no example sentences for immortal's                 

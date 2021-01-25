@@ -1,0 +1,8 @@
+---
+title: "glycerol in a sentence | glycerol example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "glycerol"
+---
+- At least, fatty acids, `glycerol`, then muscle.
+                 

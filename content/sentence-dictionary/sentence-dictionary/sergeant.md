@@ -1,0 +1,107 @@
+---
+title: "sergeant in a sentence | sergeant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sergeant"
+---
+- Excuse me, `sergeant`.
+- Thank you, `sergeant`.
+- Thank you, `sergeant`.
+- Dislike it, `sergeant`.
+- I got this, `sergeant`.
+- Just do it, `sergeant`.
+- `Sergeant` lovejoy, hi.
+- So it seems `sergeant`.
+- What is it, `sergeant`?
+- Aren't they, `sergeant`?
+- I know that, `sergeant`.
+- Keep trying, `sergeant`.
+- Yes, `sergeant` hoffman?
+- Master `sergeant` farell.
+- `Sergeant` emile klinger.
+- You heard the `sergeant`.
+- You knew `sergeant` west?
+- Your weapons, `sergeant`.
+- Advance, `sergeant` major!
+- Call `sergeant` vincennes.
+- Hold up there, `sergeant`.
+- Oh, certainly, `sergeant`.
+- You all right, `sergeant`?
+- A bootleg... no, `sergeant`.
+- Acting `sergeant` john rico.
+- I'm sorry, `sergeant` major.
+- Please continue, `sergeant`.
+- Thank you, `sergeant` major.
+- That's an order, `sergeant`.
+- Well, what then, `sergeant`?
+- Don't call me `sergeant`.
+- `Sergeant`, pack your things.
+- `Sergeant`, secure the boat !
+- Thank you, `sergeant` farell.
+- Check your orders, `sergeant`.
+- `Sergeant`, not today, please.
+- So let's haul ass, `sergeant`.
+- Bomb #20 to `sergeant` pinback.
+- I beg you, `sergeant`... smile!
+- Please hold, `sergeant`... yeah.
+- What does that mean, `sergeant`?
+- Where the hell am i, `sergeant`?
+- Detective `sergeant` phil heller.
+- I am, sir...`sergeant` al powell.
+- Report to the `sergeant`- at-arms.
+- `Sergeant` hoffman from barrack 4.
+- You dislike it, `sergeant` farell.
+- Officer hector sanchez, `sergeant`.
+- Rico, you're acting `sergeant` now.
+- Would you step outside, `sergeant`?
+- You can leave us alone, `sergeant`.
+- `Sergeant`, we could use a big bomb.
+- Tell him to go to `sergeant` milton.
+- I'm sorry to disturb you, `sergeant`.
+- My last `sergeant` lost the com pack.
+- `Sergeant` jack vincennes requesting.
+- `Sergeant` shaw was shot by an arrow.
+- He's got `sergeant` halloran in there.
+- Reese, `sergeant`/tech-com, dn38416...
+- Probably isn't good enough, `sergeant`.
+- The `sergeant` asked me to identify it.
+- We're missing three and the `sergeant`.
+- Are you with plant security, `sergeant`?
+- I'll need the `sergeant`'s okay on that.
+- Is this in the line of duty, `sergeant`?
+- Just like `sergeant` vrataski at verdun.
+- `Sergeant` says, don't do her like that.
+- Youngest officer promoted to `sergeant`.
+- Our manhood is under assault, `sergeant`.
+- Yes, hindu dances, thank you, `sergeant`.
+- Men are to stay in file, `sergeant` major!
+- But sir, `sergeant` wade saved the hostages.
+- Indicates possibly -- am i right `sergeant`?
+- `Sergeant`, is commander skywalker back yet?
+- This is `sergeant` pinback calling bomb #20.
+- Major byrne, `sergeant` miller, please go back.
+- I was a `sergeant` in the third cavalry brigade.
+- Are you saying `sergeant` west tried to kill you?
+- `Sergeant` west's served for twenty- three years.
+- That is no way to address an officer, `sergeant`.
+- This is `sergeant` sykes, and i am-- that's right.
+- I'll never forget you as long as i live, `sergeant`.
+- As i said, `sergeant`, you nearly ran into <u>me</u>?
+- You helped set up my partner, `sergeant` william wade.
+- Now what can you tell us about `sergeant` john vincennes?
+- One that went up for murder -- he was an army `sergeant`.
+- Sheriff--hi--this is `sergeant`--this is priscilla worth.
+- But the `sergeant`... and here you are going out of house.
+- `Sergeant` whitman, i hope you don't think me mad -- here.
+- But we have a theory .. did you find the knife, `sergeant`?
+- There's no need... fifteen years ago under `sergeant` west.
+- `Sergeant`... you stay close and wait for me to contact you.
+- Never did i dream i could feel like this toward a `sergeant`.
+- That `sergeant`'s a body-blow veteran if ever i measured one.
+- Then you could have saved yourself a lot of driving, `sergeant`.
+- It diminishes our lives, you read our thoughts `sergeant` miller?
+- Any serious problems with your `sergeant` or your fellow soldiers?
+- `Sergeant` langston was forced to push the arrow out in the field.
+- Your name is master `sergeant` farell from science hill, kentucky.
+- I know the judge and `sergeant` exley here is friends with hte d.a.
+                 

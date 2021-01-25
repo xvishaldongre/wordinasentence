@@ -1,0 +1,55 @@
+---
+title: "replace in a sentence | replace example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "replace"
+---
+- They want to `replace` me!
+- We'll `replace` the paradigm.
+- Gotta `replace` the whole deal.
+- You tried to `replace` me with.
+- `Replace` them with new ones.
+- She brought you in to `replace` me.
+- The board is going to *`replace`* me!
+- This is to `replace` the bike i lost.
+- To `replace` a goddamn radiator hose!?
+- You just told us how to `replace` you.
+- To `replace` a god damn radiator hose!?
+- We'll have to `replace` commander sonak.
+- Someone forget to `replace` what we took.
+- I didn't tell you to `replace` any gasket.
+- You think you can `replace` that so easily?
+- Hal, i'm going out now to `replace` the a.o.
+- He sees this chaos, he'll `replace` you all.
+- The board of trustees wants to *`replace`* me!
+- Anyway, it's just as well that we `replace` it.
+- But i know the robots are coming to `replace` us!
+- When i couldn't find you, i had to `replace` you.
+- Bulbs burned out, nobody bothered to `replace` 'em.
+- She was going to `replace` me with a younger father.
+- We kill detectives, they can `replace` 'em in a day.
+- Some of them might try to `replace` octavia with you.
+- That's a million five the company's got to `replace`.
+- Some- thing to `replace` the love that can never work.
+- Um... are you sure-- and now they want to `replace` her.
+- I'm not trying to `replace` your dad... or steal your mom.
+- The plumbers we hired to `replace` it are very inefficient.
+- Guess what white-bread family man is going to `replace` her?
+- They'll `replace` me with someone that will burn levitt, on me.
+- Gentleness must `replace` violence everywhere, or we are doomed.
+- Some woman's composed a hymn to `replace` the star spangled banner.
+- Remember, he was supposed to `replace` you at nearly your current age.
+- You mean they'll `replace` you with someone who won't perform abortions.
+- Back on earth, when something breaks, you don't fix it, you `replace` it.
+- Okay, now you can move your men into the mall, `replace` tessio's people.
+- Unless we manage to `replace` the filter by tomorrow morning, i'm afraid.
+- Mr. franklin said he wouldn't permanently `replace` you until we came back.
+- That the technology was developed for the feds, to `replace` the body wire.
+- I'll drill the locks and `replace` the barrels, that way it won't cost so much.
+- So, you're suggesting that i `replace` the entire janitorial staff with robots.
+- That sounds dandy, but it doesn't `replace` a father and a husband on easter day.
+- You're very sorry, you passive aggressive, son-of-a-bitch...can we `replace` him?
+- The other stuff i can `replace`, but there's a cardboard box... photos of my mother.
+- Francis, nothing will `replace` your sons but helping us will justify their sacrifice.
+- They were grabbing her fucking ass -- maxie wants me to `replace` you on the job tomorrow.
+                 

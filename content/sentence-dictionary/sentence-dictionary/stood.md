@@ -1,0 +1,73 @@
+---
+title: "stood in a sentence | stood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stood"
+---
+- We `stood` up together.
+- Robins `stood` for love.
+- I `stood` by as she did it.
+- Eden never `stood` a chance.
+- You `stood` for like a month.
+- You `stood` there and watched.
+- I just `stood` there, hating her.
+- That you `stood` up for yourself.
+- They just `stood` there, confused.
+- They `stood` out like cottonballs.
+- You never `stood` up for yourself.
+- At least mitchell `stood` up to it.
+- Bet you wish you'd `stood` in bed...
+- My mother `stood` on this very spot.
+- You `stood` godfather to our baby.
+- He was a good ol' boy, `stood` by me...
+- I just `stood` there and watched him...
+- I `stood` in the courtroom like a fool.
+- It's always `stood` there, miss connell.
+- Old sam `stood` for somethin', you know?
+- Otis `stood` on good terms with the man.
+- In the morning, zalem stills `stood`.
+- Jimmy just `stood` there on the sidewalk.
+- She `stood` in front of these dudes, man.
+- That got `stood` up and can't get over it?
+- Although dr. furtw�ngler `stood` up to him.
+- Hasn't a rag except what she `stood` up in.
+- Was there something that `stood` out to you?
+- I've `stood` just about as much as i can bear!
+- Leon, i should be `stood` up against the wall.
+- You wanna know why i `stood` up for this show?
+- But it always `stood` between me and my husband.
+- I know -- teresa -� we `stood` here once before.
+- I don't see how you `stood` it as long as you did.
+- It was touching the way you `stood` by me in there.
+- The barrier `stood` between us - but we breached it.
+- They all `stood` round me like children saying 'you!
+- You and me... we `stood` by blodreina marcus, please.
+- I `stood` up in court five years ago and i picked you.
+- I `stood` by his wishes to let his son run the company.
+- No one's ever `stood` up to my brother the way you did.
+- I saw that my imaginings had `stood` me in better stead.
+- I couldn't talk, just `stood` there shivering...like this.
+- Marge, have you considered this time, i `stood` my ground.
+- Mind you, i `stood` up for you, i mean i wouldn't have it.
+- Your grandfather had one iron rule that's `stood` me well.
+- After the play i `stood` in the alley just to watch her come out.
+- Scottie -- ...we `stood` there and i kissed her for the last time.
+- You wouldn't have `stood` a chance against these boys by yourself.
+- We `stood` right there -- we never even had a conversation, norman.
+- When the first slaver put out for the congo, i `stood` on the deck.
+- You've never `stood` there and looked up at that beautiful ceiling.
+- I just `stood` up and the words came flowing like water out of my mouth.
+- I couldn't kill anybody -- it's against everything i've ever `stood` for.
+- Since you `stood` me up on prom night and vanished without saying a word?
+- Then i `stood` in the hallway and listened to her audition...and i cried.
+- I saw you, i couldn't go in, i...just `stood` there wondering if you knew.
+- ♪ oh, and there we were all in one place ♪ this time, i `stood` my ground.
+- That's right, you just `stood` there and watched, because you "felt like it."
+- I remember when i first started reading these i thought dwf `stood` for "dwarf!"
+- For a few minutes the afternoon before -- before -- your dad has `stood` for plenty.
+- You see the way i'm treated around here -- but have you ever `stood` up for me once?
+- Even a god that wasn't active, that just created something and `stood` back and watched?
+- Son of a bitch `stood` there with a quart of blood on his pant leg and didn't even blink.
+- He was real scared nobody would believe him -- i could tell, even when he first `stood` up.
+- I `stood` alone on the green, searching for something, and i started to walk to the church.
+                 

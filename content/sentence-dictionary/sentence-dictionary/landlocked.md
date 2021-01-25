@@ -1,0 +1,8 @@
+---
+title: "landlocked in a sentence | landlocked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "landlocked"
+---
+- Largest `landlocked` body of water on earth.
+                 

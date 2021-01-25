@@ -1,0 +1,69 @@
+---
+title: "vice in a sentence | vice example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "vice"
+---
+- "lamotta on `vice` rap."
+- Madame `vice` president.
+- `Vice` cop on a homicide?
+- You're not `vice`, are you?
+- That's the `vice` president.
+- The `vice`-president... who?
+- I worked `vice`, narcotics...
+- `Vice` president thing, right?
+- Is the `vice`- president there?
+- Don't call the `vice` president!
+- What about the `vice` president!
+- I'm `vice`-president of my class.
+- You were lucky today, `vice` boy.
+- Things i signed as `vice` president.
+- You say this is an indian `vice`?
+- But sir-- you're `vice`, not homicide.
+- Which they regard as a harmless `vice`.
+- If you were `vice` you couldn't deny it.
+- One presupposes the other and `vice` versa.
+- But i've got something going with ad `vice`.
+- I'm trapped in the hall of `vice` presidents.
+- ...that she fell for you- -and `vice` versa.
+- Well, i'm kind of the `vice` president of us.
+- Well, maybe he's still the `vice`- president.
+- You said i could be `vice`-president, cuervo.
+- Check out the miami `vice` action spectacular.
+- The `vice` president here will vouch for that.
+- Uh, el likes to watch miami `vice` on fridays.
+- Spiro t. agnew was `vice` president, i believe.
+- I'm turning your file over to the `vice`-squad!!
+- Mr `vice` president, i think you should see this.
+- Bastard nailed the `vice`- principal and a teacher.
+- `Vice` squad, and meltdown... whole slew of 'em.
+- If not, call houstan, and become a `vice`-president.
+- But i met with him several times as `vice` president.
+- I'm brad majors and this is my fiancee, janet `vice`.
+- No one gets to be `vice` president by being that clean.
+- Thanks very much, sonny-- all the ex-`vice`-presidents.
+- The `vice`-president and treasurer is gordon lariviere.
+- His personality is overflowing into mine and `vice` versa.
+- We're `vice`, i didn't see no pimps or hookers in that van.
+- You mean we get `dave' to nominate you as `vice` president.
+- Reliant is supposed to be at our disposal, not `vice`-versa.
+- The `vice`-president presides over the senate--you know that.
+- Dev, a disciple prisoner who showed up `vice` presidents rule!
+- That pal of yours from the `vice` squad wants you to call him.
+- Twelve years ago he worked a `vice` roust with dick stensland.
+- Lighten up, ian, you sound like a high school `vice`-principal.
+- Oh, and this next bit may include the `vice` president as well.
+- You pray in the one you'd never set foot in...and `vice` versa.
+- `Vice`...you think they had something to do with this dead hooker?
+- How about making me `vice`- president in charge of cheering you up?
+- The `vice` principle called and she cut class again this afternoon.
+- There out on a call, perhaps i can help you- officer reilly, `vice`.
+- When i was `vice` president, ike sent me down there like a blocking back.
+- You�re talking to their new `vice` president of mergers and acquisitions.
+- Stanton and fleming, both started in '83, both in area six...both in `vice`?
+- You give up the peanut stand and i'll make you `vice`-president of the country.
+- I'd like to thank you for filling in on such short notice for the `vice` president.
+- What about `vice`-president of the chamber of music, you used that title didn't you?
+- I had a brother who was a `vice`-president once and that's the last we ever heard of him.
+- Look, i don�t know what�s going on here but i am senior `vice` president of this company.
+                 

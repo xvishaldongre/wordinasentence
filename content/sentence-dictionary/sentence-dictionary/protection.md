@@ -1,0 +1,75 @@
+---
+title: "protection in a sentence | protection example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "protection"
+---
+- Just for `protection`.
+- ...give me `protection`?
+- Did you use `protection`?
+- Do you have `protection`?
+- I mean like `protection`.
+- A girl needs `protection`.
+- Cast a `protection` spell.
+- For the kids `protection`.
+- But where's my `protection`?
+- Like she needs `protection`.
+- She's taking off `protection`.
+- It's for your own `protection`.
+- And `protection` _ not a chance.
+- They are under your `protection`.
+- You men lookin' for `protection`?
+- Bucknell's got no rim `protection`.
+- Real `protection`.&gt;&gt; not dope.
+- No more `protection` from the guards.
+- Oh... yes... ultraviolet `protection`.
+- Prime `protection` protocol in effect.
+- The orders were for your `protection`.
+- Your `protection`, your understanding.
+- Hope you're carrying some `protection`.
+- It's for your `protection`, sweetheart.
+- Just tell this man i want `protection`.
+- The way it goes down is... `protection`.
+- It's okay, you got a lot of `protection`.
+- We're under the commander's `protection`.
+- She deserves our loyalty and `protection`.
+- But madi no longer needs your `protection`.
+- Political influence and legal `protection`.
+- To make you violently hurl, - `protection`.
+- You'll get federal `protection` after that.
+- He has better `protection` than george bush.
+- You can't buy better `protection` than that.
+- Clarke will be safe here under my `protection`.
+- Don't you want a second take, for `protection`?
+- This one ... ... shut off the `protection` grid.
+- I'm afraid i can't offer you any real `protection`.
+- Said i should cast you out for my own `protection`.
+- The flame offers some `protection`, i want justice.
+- Unless the person he needs `protection` from is me.
+- The flame offers some `protection`, we'll do it here.
+- I wear this mask not for concealment but `protection`.
+- Listen to me, the statute, it's for your `protection`.
+- This man needs help and you need `protection` from him.
+- We could put you into our witness `protection` program.
+- With four of them, i didn't use any kind of `protection`.
+- Will could've cast `protection` last night, but he didn't.
+- You just send her out to this lunatic with no `protection`?
+- Even the old man's political `protection` would run for cover.
+- I receive 30 per cent just for finance and legal `protection`.
+- Then send a `protection` team as soon as we lock the location.
+- When i find a queen in need of `protection` i'll let you know.
+- You won't get `protection`, you won't get the trucks - nothing!
+- They always got `protection` against things we'd never do to 'em.
+- You're very brave under the commander's `protection`, aren't you?
+- I represent the environmental `protection` agency, third district.
+- We cover the story from here until we can get proper `protection`.
+- Your strong right arm's all the `protection` i'll need this night.
+- You're trespassing into the area of witness `protection`, mr. dowd.
+- I am beholden to them now as i was when they begged my `protection`.
+- There's a still, quiet place child abuse dressed up as `protection`.
+- I want them to have federal `protection` under the paper's sponsorship.
+- That's funny: you struck me as the kind of man who always carries `protection`.
+- Those surgeons in witness `protection` can fix things nobody's even broken yet.
+- I accidently triggered a `protection` mechanism which erased the entire program.
+- You will let me know if you find that queen who's in need of `protection`, won't you?
+                 

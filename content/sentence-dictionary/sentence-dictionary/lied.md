@@ -1,0 +1,107 @@
+---
+title: "lied in a sentence | lied example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lied"
+---
+- He `lied` to me again.
+- I never `lied` to you.
+- Look, i `lied` to you.
+- We both `lied` to him.
+- Max, have i `lied` yet?
+- You `lied` at my trial.
+- You `lied` to everyone.
+- I haven't `lied` to you.
+- I never `lied` about it.
+- I shouldn't have `lied`.
+- I `lied` about my family.
+- I've never `lied` to you.
+- Maybe they `lied` to you.
+- You `lied` about the gun.
+- You `lied` to the police!
+- Have i ever `lied` to you?
+- He `lied` about that, too.
+- I `lied`... -oh, damn it.
+- I can't believe you `lied`.
+- I `lied` to this poor girl.
+- You `lied` to me all along!
+- So you admit you just `lied`?
+- They `lied` about everything.
+- Maybe that little creep `lied`.
+- Mom, i `lied` about everything.
+- Only because we `lied` to them.
+- You `lied` to me my whole life.
+- He `lied` to me please be quiet.
+- I've never `lied` to him before.
+- Looks like he `lied` to you too.
+- God, tim `lied` to your ass, man.
+- The woman you boarded off `lied`.
+- You `lied` to me, mr. lundegaard.
+- That son-of- a-bitch `lied` to me.
+- Being ignored, and being `lied` to.
+- Healy `lied` to us about everything!
+- I understand why you `lied`, clarke.
+- You looked in my face and you `lied`.
+- Frank, i think maybe you `lied` to me.
+- He `lied` to me, he `lied` to everybody.
+- You stole from them, you `lied` to me.
+- If you've `lied` to me to me -- not yet.
+- I told you everything, you `lied` to me.
+- You `lied` to me because you're gutless.
+- Darling: he's disappeared ... you `lied`.
+- What do you mean `lied` about who you are?
+- You `lied` to me about those school books.
+- I `lied` to her, and then i stole from her.
+- I'll know you've `lied` to me... all along.
+- It's the first time he's ever `lied` to me.
+- I'm sorry i `lied` to you, i shouldn't have.
+- Just like she `lied` about fixing your suit.
+- The little shit `lied` to me about that guy!
+- That's what this buck said...maybe he `lied`.
+- I'm sorry about lucy, cal, you `lied` to them.
+- Why have i been `lied` to when - i under5tand.
+- Far as i can tell, he hasn't even `lied` to us.
+- Susie `lied` to me - she'll see that boy again.
+- Well, to tell you the truth, i `lied` a little.
+- You `lied` to me to gather information for you.
+- You lie in your meadow as you `lied` in my bed.
+- Because we love each other, very m... you `lied`.
+- I `lied` about sending the hundred to the ground.
+- I should never have `lied` to you about your mom.
+- That's why you `lied` and cheated to get near me!
+- I'm quoting my son, and he has never `lied` to me.
+- They `lied` to us the whole time about everything.
+- If he `lied`, he didn't disclose their information.
+- I `lied` to you, i didn't destroy the floppy disks.
+- What did i tell you would happen if you `lied` to me?
+- [beep] would she kill you if you ever `lied` to her...
+- [continues scraping] you `lied` about maya's accident.
+- He said he lived in philadelphia, but may have `lied`.
+- I would have `lied` to me if i thought i'd believe it.
+- That's why you `lied` about being 6 minutes to impact.
+- Tell her i `lied`, that i didn't take advantage of her.
+- You `lied` to us, that could be obstruction of justice.
+- If you `lied` <u>then</u>, maybe you're lying <u>now</u>.
+- You know harry `lied` about how that boy hocker got kilt.
+- You `lied` to me so many times -- reggie -- listen to me!
+- After you `lied` to me about telling barnes about my past.
+- It'll come out jack `lied` and the kid'll get hung for it.
+- It's what we've `lied` for... cheated for... murdered for.
+- Mr. murphy, do you mean that you `lied` on your application?
+- I mean, he looked me in my face and `lied` like it was nothing.
+- I guess i `lied`..you can't get both of us out of here, can you?
+- But i wouldn't have if hiss hadn't `lied` about knowing chambers.
+- Lecter's description was accurate, he just `lied` about the name.
+- May i make an original and groundbreaking observation santa `lied`.
+- I could have `lied` i suppose, but i want this marriage to be legal.
+- Karen's a good kid, but she's mad at you, because you `lied` to her.
+- So if the money's in a safe we'd have to get the combination-- `lied`?
+- You've `lied` to me twice - i'm sorry, but it will be strictly routine.
+- I only `lied` that night because it was the only way i knew to stop her.
+- For their families you `lied` to, it must've gotten loose during reentry.
+- You `lied` to me -- the way charles did -- and after promising you wouldn't.
+- Our government killed fifty thousand in vietnam and `lied` about it every day.
+- Nothing about that is ok. what did i tell you would happen if you `lied` to me?
+- Now every psychopath in the city knows i'm back in business... you `lied` to me!
+- It shall nourish us both i want blood and how do you feel when you are `lied` to?
+                 

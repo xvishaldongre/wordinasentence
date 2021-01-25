@@ -1,0 +1,3 @@
+User-agent: *
+Disallow:
+Sitemap: https://xvishaldongre.github.io/exsentences/sitemap.xml

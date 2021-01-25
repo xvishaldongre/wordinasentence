@@ -1,0 +1,107 @@
+---
+title: "ago in a sentence | ago example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ago"
+---
+- A week `ago`, at most.
+- Fifteen minutes `ago`.
+- How long `ago` was it?
+- Is from an hour `ago`.
+- Like, ten years `ago`.
+- Ran away a year `ago`.
+- Same as an hour `ago`.
+- That was awhile `ago`.
+- That was months `ago`.
+- Yeah, long time `ago`.
+- About five years `ago`.
+- About six months `ago`.
+- Four five nights `ago`.
+- No, about a year `ago`.
+- She left a while `ago`.
+- Sixty-five years `ago`.
+- That's gone long `ago`.
+- Twenty-two years `ago`.
+- Two years `ago`, buddy.
+- We left two days `ago`.
+- ...yeah, a month `ago`.
+- Yeah, four years `ago`.
+- A long, long time `ago`.
+- A year and a half `ago`.
+- But that was long `ago`.
+- Five or six years `ago`.
+- Four or five days `ago`.
+- He died two years `ago`.
+- How long `ago` was that?
+- It was one year `ago`...
+- That was two days `ago`.
+- They left an hour `ago`.
+- Three days `ago` it was.
+- Twenty-four years `ago`.
+- We signed an hour `ago`.
+- You knew a second `ago`.
+- 20 minutes `ago`, thanks.
+- About three months `ago`.
+- Almost fifty years `ago`.
+- Eight, nine months `ago`.
+- He finished awhile `ago`.
+- It was all so long `ago`.
+- It was a long time `ago`.
+- Just a few minutes `ago`.
+- Oh, about ten days `ago`.
+- Seven, eight years `ago`?
+- That was two hours `ago`.
+- That was two years `ago`.
+- Twenty eight years `ago`.
+- Two or three years `ago`.
+- Five years `ago`, we lost.
+- He died a long time `ago`.
+- He died three weeks `ago`.
+- He took off a while `ago`.
+- He was killed years `ago`.
+- I left like an hour `ago`.
+- I lost my arm years `ago`.
+- Left twenty minutes `ago`.
+- My dreams died long `ago`.
+- She copped out long `ago`.
+- She le 5 minutes `ago`.
+- That was a lifetime `ago`.
+- That was five years `ago`.
+- That was four hours `ago`!
+- That was two months `ago`.
+- We just met an hour `ago`.
+- But that was so long `ago`.
+- Came back three days `ago`.
+- Happened a long time `ago`.
+- He died couple years `ago`.
+- He moved out a month `ago`.
+- He was tiny two days `ago`.
+- I got one nine years `ago`.
+- I had it, a minute `ago`...
+- It started two years `ago`.
+- It was a long time `ago`...
+- Oh, yah, a long time `ago`.
+- Retired twenty years `ago`.
+- She died a long time `ago`.
+- Ten, fifteen minutes `ago`.
+- That was a long time `ago`.
+- That was eight years `ago`.
+- That was four months `ago`.
+- That was seven years `ago`.
+- That was three hours `ago`.
+- That was three years `ago`.
+- Twelve hundred years `ago`.
+- You said that months `ago`.
+- About a year and half `ago`.
+- Closed down two years `ago`.
+- Gabriel left 70 years `ago`.
+- I did that 10 minutes `ago`.
+- Man, that was so long `ago`.
+- My daughter died long `ago`.
+- Oh, uh, about a month `ago`.
+- Pittsburgh, two years `ago`.
+- Seems like a lifetime `ago`.
+- That was about a year `ago`.
+- That was eleven years `ago`.
+- That was twenty years `ago`.
+                 

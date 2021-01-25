@@ -1,0 +1,107 @@
+---
+title: "free in a sentence | free example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "free"
+---
+- Elizabeth goes `free`!
+- It's a `free` country!
+- It's a `free` country.
+- So we could be `free`.
+- We can't break `free`!
+- We got `free` tickets.
+- Are you `free` tonight?
+- As in "`free`, gratis."
+- Christ, set her `free`.
+- `Free` for the hauling!
+- I gotta be `free`, man.
+- I'm a `free` man again.
+- It'll `free` your head.
+- It's the `free` market.
+- Or you could `free` me.
+- What's `free` about it?
+- You'll be `free` there.
+- Boys, we're home `free`.
+- Feel `free` to lie down.
+- Feel `free` to speak up.
+- For he cannot be `free`.
+- I got to be `free`, man.
+- I shall be a `free` man.
+- Kind of... `free`-lance.
+- These are `free` papers.
+- Truth'll set you `free`.
+- Want some `free` advice?
+- You're a `free` thinker.
+- You're `free`, plissken.
+- Are we `free`, buljanoff?
+- Buy five, get one `free`.
+- Can you `free` these men?
+- Drinks are `free`, right?
+- How are you still `free`?
+- I can't shake her `free`.
+- I'm as `free` as the air.
+- I've got my hands `free`.
+- Then i'm `free` to go...?
+- These are `free` samples.
+- With her own `free` will.
+- You want... a `free` one.
+- Even at the `free` clinic.
+- Everything's `free` there.
+- `Free` to love each other.
+- I mean, 'cause i'm `free`.
+- I want to `free` you, wil.
+- Or no more `free` repairs!
+- What do you mean '`free`'?
+- All your drinks are `free`.
+- Are there `free` doughnuts?
+- But now it's `free`, right?
+- Can i `free` the prisoners?
+- Doesn't sound `free` to me.
+- Footloose and fancy `free`.
+- `Free` will is the problem.
+- I'd even do it for `free`.'
+- I'm a `free` agent tonight.
+- It was a great `free` meal.
+- I want a noise-`free` zone.
+- ...nearly `free` of charge.
+- Thanks for the `free` bike.
+- The rest of you are `free`.
+- Actually, i'm `free` sunday.
+- All the food here is `free`.
+- Yet, you are not `free`.
+- Everything's `free` up here.
+- I agreed to set them `free`.
+- In nine months, i am `free`.
+- It's totally disease-`free`.
+- Krusty, you're `free` to go.
+- Not much `free` time, gerry.
+- Or you must set them `free`.
+- The rice is conflict-`free`.
+- What do you want for `free`?
+- ...which of us is `free`...?
+- You go `free`, i'm engaging.
+- A hologram is `free` of time.
+- A refuge for `free` thinkers.
+- But nothing comes for `free`.
+- Can <u>you</u> be `free`....?
+- Hey, if it's `free`, it's me.
+- I'm `free` to do what i want?
+- I'm here to set you `free`...
+- Make out with you for `free`.
+- Mayhap i can cut them `free`.
+- That might break them `free`.
+- Then we will both be `free`.]
+- You'll be `free` soon enough.
+- You need to `free` it trevor.
+- All aircrafts, weapons `free`.
+- But i'd, i'd do it for `free`.
+- But i think he's a `free` man.
+- For now, he's `free` to leave.
+- Human beings have `free` will.
+- Human beings have `free` will.
+- Out there in the `free` world.
+- She'll be `free` in half hour.
+- So i'm here to set you `free`.
+- This is `free` media exposure.
+- We just got a `free` vacation.
+                 

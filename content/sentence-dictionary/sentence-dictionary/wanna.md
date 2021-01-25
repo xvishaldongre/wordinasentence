@@ -1,0 +1,107 @@
+---
+title: "wanna in a sentence | wanna example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wanna"
+---
+- Barb, you `wanna` try?
+- Do you `wanna` do it??
+- Do you `wanna` go out?
+- I don't `wanna` do it.
+- I don't `wanna` think.
+- I `wanna` be with you.
+- I `wanna` do it right.
+- I `wanna` get married.
+- I `wanna` go home now.
+- I `wanna` go swimmin'.
+- I `wanna` help people.
+- I `wanna` make a deal.
+- I `wanna` make movies.
+- I `wanna` play a game.
+- I `wanna` talk to you.
+- Naah, i don't `wanna`.
+- <u>i `wanna` know</u>!
+- `Wanna` go for a swim?
+- `Wanna` know a secret?
+- ...`wanna` savor this.
+- We might `wanna` turn.
+- We `wanna` do her now!
+- Whatta you `wanna` do?
+- You `wanna` go to bed?
+- You `wanna` hear from.
+- You `wanna` hear mine?
+- You `wanna` see, baby?
+- Do you `wanna` wrestle?
+- Hey--i `wanna` *scoop*!
+- Hi, `wanna` ride bikes?
+- I don't `wanna` be you.
+- I just `wanna` go home.
+- I `wanna` kill my boss.
+- I `wanna` see that guy!
+- I `wanna`' talk to you.
+- Sure you `wanna` go in?
+- `Wanna` arm wrestle...?
+- `Wanna` go out tonight?
+- What do you `wanna` do?
+- Where do ya `wanna` go?
+- You don't `wanna` know.
+- You `wanna` ask me out?
+- You `wanna` czech girl?
+- You `wanna` french fry?
+- You `wanna` knock of f?
+- Ava, i `wanna` help you.
+- Don't `wanna` miss this.
+- Do you `wanna` have sex?
+- Do you `wanna` sit down?
+- How much ya `wanna` bet?
+- I don't `wanna` go down.
+- I don't `wanna` go home.
+- I don't `wanna` go, sam.
+- I don't `wanna` hear it.
+- I `wanna` be wrong here.
+- I `wanna` be ya manager.
+- I `wanna` close up soon.
+- I `wanna` enjoy my life.
+- I `wanna` hear about it.
+- I `wanna` reach the top!
+- Only if you `wanna` die.
+- Yeah, i `wanna` go back.
+- You really `wanna` know?
+- You `wanna` get a drink?
+- You `wanna` grab a bite?
+- You `wanna` make a baby?
+- You `wanna` talk turkey?
+- Did you `wanna` be alone?
+- Do you `wanna` be normal?
+- How much you `wanna` bet?
+- I don't `wanna` be alone.
+- I don't `wanna` be apart.
+- I don't `wanna` die, man.
+- I don't `wanna` see that.
+- I just `wanna` make sure.
+- I `wanna` hold onto them.
+- I `wanna` play some klob.
+- I `wanna` remain friends.
+- I `wanna` see everything.
+- I `wanna` take it anyway.
+- Merle, i `wanna` go home!
+- So, you `wanna` play huh?
+- Sure you `wanna` do this?
+- They really `wanna` work.
+- They `wanna` talk to you.
+- `Wanna` count your money?
+- `Wanna` hear another one?
+- `Wanna` test that theory?
+- We just `wanna` be alone.
+- You might `wanna` change.
+- You `wanna` be like that?
+- You `wanna` check it out?
+- You `wanna` get some air?
+- You `wanna` go to rikers?
+- You `wanna` love me back?
+- You `wanna` talk to them?
+- Anyone `wanna` trade jobs?
+- Don't `wanna` register it.
+- Do you `wanna` break down?
+- Do you `wanna` go tonight?
+                 

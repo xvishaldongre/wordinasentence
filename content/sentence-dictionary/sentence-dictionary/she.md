@@ -1,0 +1,107 @@
+---
+title: "she in a sentence | she example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "she"
+---
+- Because `she` left me.
+- Besides, `she`'s okay.
+- But `she` betrayed me.
+- But `she` can hear me?
+- But `she` talks a lot.
+- Can't `she` come back?
+- Charming, isn't `she`?
+- Did `she` believe you?
+- Did `she` talk to you?
+- Does `she` want to be?
+- Do you think `she` is?
+- Dude, `she` kissed me.
+- Hear `she`'s retarded.
+- Hey, `she`'s ticklish!
+- Hey, there `she` is...
+- How did `she` pay you?
+- How far away is `she`?
+- How's `she` taking it?
+- If `she` calms down...
+- I know, but `she` did.
+- I know `she` liked me.
+- I know `she`'s hungry.
+- I'm sure `she`'s fine.
+- Isn't `she` beautiful!
+- Isn't `she` beautiful?
+- Is `she` here tonight?
+- Is `she`… not yet.
+- Is `she` on the phone?
+- Is `she` or isn't `she`?
+- I think `she`'s lying.
+- Lloyd, `she`'s my mom.
+- Maybe `she`'ll listen.
+- Maybe `she` loves you.
+- Miller, `she`'s right.
+- Naw, `she` don't mind.
+- No, `she`'s afraid to.
+- No, `she`'s all right.
+- No... `she`'s too old.
+- Now `she`'s all yours.
+- Or is `she` in a coma?
+- See where `she` leads.
+- `She` asked me not to.
+- `She` buys me a drink.
+- `She` called you brad?
+- `She` can't get at it.
+- `She` comes along too.
+- `She` couldn't decide.
+- `She` deserved better.
+- `She` deserves better.
+- `She` did not remarry.
+- `She` didn't kill you!
+- `She` didn't know him.
+- `She` didn't steal it.
+- `She` didn't tell you.
+- `She` did that before.
+- `She` died in my arms.
+- `She` doesn't approve.
+- `She` doesn't know me.
+- `She` doesn't want it.
+- `She` fucks it all up!
+- `She` gave me the key.
+- `She` got two of them.
+- `She` got <u>paid</u>.
+- `She` had a moustache.
+- `She` had to go - yes!
+- `She` had white shoes.
+- `She` has agoraphobia.
+- `She` has superpowers.
+- `She` hates me, louis.
+- `She` hates surprises.
+- `She` have three tits?
+- `She` is a guide, neo.
+- `She` isn't josephine.
+- `She` isn't my cousin.
+- `She` is out the door.
+- `She` just isn't here.
+- `She` knows about you.
+- `She` knows i'm lying.
+- `She` left you, nikko.
+- `She` liked the chaos.
+- `She` lit up the room.
+- `She`'ll be all right.
+- `She`'ll be all right?
+- `She`'ll be here soon.
+- `She`'ll be right out.
+- `She`'ll come for her.
+- `She`'ll do all right.
+- `She`'ll get right in.
+- `She`'ll go into coma.
+- `She`'ll help us, too.
+- `She` loves everybody.
+- `She` loves to please.
+- `She` named her sarah.
+- `She` needs some time.
+- `She` needs you, finn.
+- `She` really did that?
+- `She` really loves me.
+- `She`'s a beauty, huh?
+- `She`'s a brave woman.
+- `She`'s a drug addict.
+                 

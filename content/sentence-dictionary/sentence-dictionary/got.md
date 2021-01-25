@@ -1,0 +1,107 @@
+---
+title: "got in a sentence | got example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "got"
+---
+- But he `got` you here.
+- But i've `got` school.
+- Cat `got` your tongue.
+- Cat `got` your tongue?
+- Charges `got` dropped.
+- Client `got` delivery.
+- Everybody `got` upset.
+- Everything you `got` !
+- Forget how i `got` it!
+- Gale he's `got` dewey!
+- Glenn, `got` a minute?
+- `Got` anything to say?
+- `Got` his peace talks.
+- `Got` plans of my own.
+- `Got` that desert yet.
+- `Got` the radar ready?
+- `Got` three callbacks.
+- `Got` to be somewhere.
+- `Got` to get sollozzo.
+- `Got` to get supplies.
+- "`got` to give it up!"
+- `Got` vodka in it now.
+- "have i `got` a story!
+- Haven't `got` a thing.
+- He `got` his deer yet?
+- He `got` hit by a bus.
+- He's `got` a good job.
+- He's `got` a gun, sir.
+- He's `got` a nice dog.
+- He's `got` a sickness.
+- He's `got` bare hands.
+- He's `got` principles.
+- He's `got` the misery.
+- He's `got` the shakes?
+- Hey, i `got` a mother.
+- Hey, i `got` this one.
+- How long have i `got`?
+- How much time i `got`?
+- I ain't `got` no eyes.
+- I can't `got` tonight.
+- I don't `got` all day!
+- I `got` a bad feeling.
+- I `got` a bad stomach.
+- I `got` a better deal.
+- I `got` a better idea!
+- I `got` a better idea.
+- I `got` a big problem.
+- I `got` a dress, yeah.
+- I `got` a half a tank.
+- I `got` an award once.
+- I `got` a single room.
+- I `got` a tab running.
+- I `got` eyes, don't i?
+- I `got` my ass kicked.
+- I `got` my mind right.
+- I `got` my own fences.
+- I `got` my pry bar in!
+- I `got` nowhere to go.
+- I `got` one coming up.
+- I `got` plenty of 'em.
+- I `got` punished, man.
+- I `got` some acid man.
+- I `got` the case file.
+- I `got` the real deal!
+- I `got` the right man.
+- I `got` tired of them.
+- I `got` to have trust.
+- I `got` you a present.
+- I `got` you into this.
+- I haven't `got` a gun!
+- I just `got` divorced.
+- I just `got` it fixed.
+- I just `got` out here!
+- I just `got`... tired.
+- I'm the one `got` hit.
+- I say we `got` a boat.
+- Is that all you `got`?
+- Is this all you `got`?
+- It...almost `got` you.
+- I think i `got` lased!
+- I think i've `got` it.
+- I think they `got` me.
+- It's `got` everything.
+- It's `got` to be here.
+- It's ok, i `got` this.
+- I've `got` a backpack.
+- I've `got` a contract.
+- I've `got` a headache.
+- I've `got` a surprise.
+- I've `got` everything!
+- I've `got` everything.
+- I've `got` it blocked.
+- I've `got` it, elaine!
+- I've `got` my face on.
+- I've `got` my own car.
+- I've `got` no allergy.
+- I've `got` some money.
+- I've `got` to get out!
+- I've `got` to go, dad.
+- I've `got` to go, now.
+                 

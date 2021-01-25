@@ -1,0 +1,107 @@
+---
+title: "stuck in a sentence | stuck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stuck"
+---
+- `Stuck` with what guy?
+- We'll be `stuck` here.
+- Got `stuck` in the ice.
+- I got `stuck` in there.
+- You're `stuck` with it.
+- You're `stuck` with me.
+- I `stuck` to pellegrino.
+- It `stuck` in my throat.
+- Heather, i'm `stuck` here.
+- I `stuck` them on, man....
+- Still `stuck` on her, huh.
+- And i got `stuck` in there.
+- The car top is `stuck`!
+- Meet me at the `stuck` pig.
+- Should've `stuck` with key.
+- To get `stuck` with aurora.
+- My spur's `stuck` in my eye!
+- Then i guess you're `stuck`.
+- But we're still `stuck` here.
+- Do you feel a little `stuck`?
+- So they `stuck` it down here.
+- I `stuck` a flute in my pussy.
+- It's like... like i'm `stuck`.
+- It won't come -- it's `stuck`.
+- I've `stuck` it back together.
+- Oh, so it's, like, `stuck` on?
+- So you're `stuck` with me, eh?
+- We'll be `stuck` here forever.
+- Who `stuck` up the laundromat?
+- She's just `stuck`, they think.
+- You've been `stuck` in my head.
+- He's `stuck` between two floors.
+- Qualen, glad you `stuck` around.
+- Yeah, then we'd be `stuck` here.
+- Are we `stuck` with her for life?
+- I'm `stuck` in my pork chop suit.
+- It's my fault we're `stuck` here.
+- Look, i'm `stuck` on the freeway.
+- You shoulda `stuck` around, jerk.
+- I just hate seeing you so `stuck`.
+- There's a couple `stuck` in there.
+- We're `stuck` until he comes back.
+- Cheese be `stuck` to the cardboard.
+- ♪ `stuck` underwater ♪ raven, stop!
+- That's where they `stuck` dick low.
+- You'll be `stuck` with me for good.
+- Applejack's `stuck` in the elevator?
+- In a guy who `stuck` a knife if you.
+- Well, as long as we're `stuck` here.
+- At least we're `stuck` here together.
+- So, what-you're `stuck` here all day?
+- We're `stuck` here till it wears off.
+- I'm the one who's neck is `stuck` out.
+- Well, maybe we oughta be `stuck` here.
+- It's `stuck`, but thanks for the offer.
+- Like, like, `stuck` in the upside down?
+- Message received, you `stuck`-up bitch.
+- The man who does `stuck` me with kelly.
+- A leg is `stuck` out and alex goes down.
+- I'll be `stuck` with whatever i can get.
+- It just `stuck` up there and spread out.
+- Look, we're `stuck` here front and back.
+- I'm tired of being `stuck` in that wagon.
+- He's `stuck` in a loop - a nightmare loop.
+- I'm `stuck` back here until it's too late.
+- It's just we're `stuck` here, so... - hmm.
+- So there's tommy `stuck` with this kitten.
+- Trouble...is, if we both get `stuck` here.
+- Was her... ...he `stuck` a fishhook in it.
+- Big baldy kinda got `stuck` in the doorway.
+- He `stuck` his hand out and marty shook it.
+- I don't know how long i'll be `stuck` here.
+- It could be `stuck` in your hair, you know.
+- `Stuck` at work all day with nothing to do.
+- There is no -- the woman you're `stuck` on.
+- Why you're gonna be `stuck` a lt. for life?
+- You crash and bleed out like a `stuck` pig.
+- Don't get `stuck` on some glamour puss- huh?
+- They're stupid, and... oh, no, it's `stuck`.
+- We've `stuck` it out for a whole week now...
+- When you're `stuck`, you can ask for a hint.
+- ...and kinda `stuck` to the side of the ship.
+- Being `stuck` in this rat-hole when it blows.
+- I'm `stuck` here for another couple of hours.
+- To recover that knife you `stuck` in my back?
+- And then the aether `stuck` itself inside her.
+- But you `stuck` it out, anyway, all that time.
+- I never had my fambly `stuck` out on the road.
+- I've been `stuck` down here for <u>months</u>.
+- We've just been `stuck` together for 12 years.
+- Who asked you to get `stuck` with any of them?
+- After all, i got `stuck` with a railway ticket.
+- You're still moping over that `stuck`-up bitch.
+- He's `stuck` all the way over here go in there ?
+- I knew i was going to get `stuck` for the money.
+- I'm `stuck` with these damn dinner reservations.
+- I `stuck` a number eight scalpel into his chest.
+- Look, the way i see it, i'm `stuck` here, right?
+- How did i get `stuck` with you as a moving buddy?
+- When they're `stuck` with a bunch a the old ones!
+                 

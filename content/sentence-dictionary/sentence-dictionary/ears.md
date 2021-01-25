@@ -1,0 +1,107 @@
+---
+title: "ears in a sentence | ears example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ears"
+---
+- Deers have `ears` too.
+- I'm all `ears`, joyce.
+- My `ears` are hurting.
+- Wet behind the `ears`.
+- My mother's `ears`.
+- Now he's got no `ears`!
+- Deaf `ears`, mr. nelson.
+- Do my `ears` deceive me?
+- Are my `ears` hearing this?
+- Cover your `ears`, darling.
+- He did have pointed `ears`.
+- I'm all `ears`, good buddy.
+- You got wax in your `ears`?
+- Can you believe your `ears`?
+- I've got water in my `ears`.
+- Oh, do my `ears` deceive me?
+- Your father's got no `ears`!
+- Fingers in your `ears`, boys.
+- Oona was our eyes and `ears`.
+- We're up to our `ears` in them.
+- Amber... -- red nose and `ears`.
+- From your lips, to god's `ears`.
+- I must protect my virgin `ears`.
+- That fits right over his `ears`.
+- Assail your `ears` for one night.
+- But all that kissing my `ears`...
+- I have this ringing in my `ears`.
+- Keep your eyes and `ears` open.
+- Someone to be our eyes and `ears`.
+- I'll wash behind my `ears` for you.
+- Maybe we oughta call you no-`ears`.
+- The problem's in between my `ears`.
+- With my own `ears` and my own eyes.
+- Got my gloves on, my `ears` pricked.
+- I need you to be my eyes and `ears`.
+- Should have scrogged her `ears` off.
+- Are you cleaning sand from my `ears`?
+- Dr. jaffe has pinned her `ears` back.
+- I couldn't believe my fuckin' `ears`.
+- I got numbers coming out of my `ears`.
+- I got vegetables coming out my `ears`.
+- My, those little `ears` pick up a lot.
+- Lend your `ears` to this brutality.
+- But he puts his mouth to her `ears` ...
+- Yes... and the bite marks on my `ears`?
+- I can't believe my `ears`... everything.
+- I'm going to dream of `ears` for a year!
+- Yes, rubbing your `ears` is very soothing.
+- That your brother makin' the rabbit `ears`?
+- I, i, my `ears` are experiencing a meltdown!
+- "a mule is an animal with long funny `ears`."
+- I don't trust you to wash behind your `ears`.
+- Maybe all that testosterone plugs his `ears`.
+- Of your kill - `ears`, nose, scalp, privates.
+- Others are...cover your `ears`, son, and hum.
+- My god, he's in hock up to his `ears` already.
+- We must tread softly and keep our `ears` open.
+- You buy yourself a bag and plug up your `ears`.
+- The `ears` were for her a warning to stay alive.
+- The `ears` were for her a warning to stay alive.
+- Oh, nol they wanted the `ears` of the world, too.
+- Or ringing in your `ears`, like you have tinnitus.
+- Say, did your `ears` pop coming up in the elevator?
+- Three-to-one should get you both `ears` and the tail.
+- Ya' eyes hurt, ya' `ears` hurt, ya' hair even hurts...
+- The walls have `ears`, we landed with that number, too.
+- I should've told you, he's got a thing about his `ears`.
+- It's reserved for suzie's `ears` and suzie's `ears` alone.
+- Old place is as good as falling down around your `ears`.
+- A second tail brain, loss of `ears` and increased libido.
+- Why, if i were eighty years younger, i'd box your `ears`.
+- Well i do, i do 'til it's fucking coming out of my `ears`.
+- You are the most attractive man i've ever laid `ears` on."
+- I'm standing next to kayleigh, my hands are over her `ears`.
+- He's a big fellow with pointy `ears` and a face like a falcon.
+- You and your daddy got the same mouth, eyes, `ears`, and nose.
+- I mean before he started wiggin out and eating people's `ears`?
+- Oh, i almost forgot... they have green blood and pointed `ears`.
+- Unfortunately, to my `ears`, it also sounds highly weaponisable.
+- I'll box your `ears` if you don't show some respect for the dead!
+- Yes, is it, is it, uh, healthier to have problems in both `ears`?
+- Jackie covers her `ears` and looks at him, pleading with her eyes.
+- Listenin' to that music so loud: you tryin' to damage your `ears`?
+- At least one of those animals had the brains to protect his `ears`.
+- Yes, miss weathers, your name is embedded clearly between my `ears`.
+- If you kept your `ears` wide open instead of your mouth� talk louder.
+- The impulses somehow aren't getting from you `ears` to your brainpan.
+- Oh, you mean the kid that had his `ears` slapped back by the druggist.
+- My `ears` are ringing, and i can't really breathe, i believe that, too.
+- I <u>cut my fucking</u> <u>`ears` off</u> so i'd only hear <u>my</u> music.
+- With you, marge is a great woman - my `ears` are little geniuses, trust me.
+- God, give her the `ears` to hear me so she knows i don't want her to hurt so!
+- They cut up her face an' cut her eyes out, cut her `ears` off an' her tits too.
+- Since my `ears` started to die out on me, it's the only music i can really hear.
+- Your `ears` you keep, and i'll tell you why -- -- and then my `ears`, i understand.
+- Hell, it's the same thing <u>he's</u> talking about, if you just open your `ears`.
+- Her `ears` are pierced three times each, and she's wearing green glitter nail polish.
+- A man could stretch his legs without bring- ing half the world down around his `ears`.
+- Because people who are suffering from aural hallucinations hear voices in both `ears`.
+- Sir, i- i pay you a good deal of money to be my eyes and `ears` in hollywood, do i not?
+                 

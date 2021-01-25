@@ -1,0 +1,56 @@
+---
+title: "Lucas in a sentence | Lucas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lucas"
+---
+- `Lucas`, look, my arm.
+- Yeah, shut up, `lucas`.
+- "albert `lucas` trumbo."
+- Erica, is `lucas` there?
+- Son of a bitch, `lucas`.
+- `Lucas`... `lucas`, come on!
+- `Lucas`, are you all right?
+- We're going to get `lucas`.
+- `Lucas`, come on, seriously?
+- `Lucas` was right about you.
+- `Lucas`, what are you doing?
+- Yeah, `lucas`, they're on us.
+- `Lucas`, you don't understand.
+- This is weird without `lucas`.
+- You don't understand, `lucas`.
+- `Lucas`, come on, seriously, no.
+- Claim was thrown out-- - `lucas`.
+- By "we," you're including `lucas`?
+- I'm just being realistic, `lucas`!
+- `Lucas` and his romper room stage.
+- Yes, but it takes hours, - `lucas`?
+- Sir `lucas`, the zombie horde roars!
+- You weren't in there, okay, `lucas`?
+- My brother, `lucas` charles sinclair?
+- It's `lucas`, i think he's in trouble.
+- `Lucas`, come on, i know you're there!
+- `Lucas`, if you can hear us, slow down.
+- Mostly `lucas`, 'cause he lives so close.
+- `Lucas`' farm is on the other side of town.
+- But if not, we always have `lucas`' fireworks.
+- That was unbelievable what you did to `lucas`.
+- Nah - i had a shmuck of an uncle named `lucas`.
+- `Lucas` cuts off its seven heads, - i feel normal.
+- `Lucas`... `lucas`, how many fingers am i holding up?
+- ♪ broken hearts lie all around me ♪ just... `lucas`.
+- Mr. appleton, do you know an "albert `lucas` trumbo?"
+- Dina and `lucas` have never met each other, tell you what.
+- ♪ i lie awake and watch it all ♪ `lucas`, what's going on?
+- I guarantee you, him and `lucas` are playing atari right now.
+- I can show you how to still your mind i had no choice, `lucas`.
+- Looks like the hard road finally got to mister `lucas` war hero.
+- Mike and i, we should've never... - i don't care anymore, `lucas`.
+- Sorry to interrupt, but, uh, may i borrow michael, `lucas` and dustin?
+- `Lucas`, `lucas`, `lucas`, `lucas`, `lucas`, `lucas`, `lucas`-- are you saint peter?
+- After father was floated i saw you two holding hands in the bus, `lucas`.
+- You was to sell your job, maybe this `lucas` war hero would give you a price.
+- `Lucas`, `lucas`, `lucas`, `lucas`, `lucas`... live happily ever after or don't, boom.
+- I probably shouldn't be telling you this, but... oh, yeah, real mature, `lucas`.
+- Judging from you, i'm sure your family is just as delightful but i didn't, `lucas`, okay?
+                 

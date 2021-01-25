@@ -1,0 +1,84 @@
+---
+title: "eighty in a sentence | eighty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eighty"
+---
+- Class of `eighty`-six!
+- Here's `eighty` cents.
+- Bring me back `eighty`.
+- Nineteen `eighty` four.
+- A buck `eighty` a pound.
+- `Eighty` million doll ?
+- You don't look `eighty`.
+- Fires the `eighty`-eight.
+- `Eighty`-eight years to go.
+- `Eighty` third most common.
+- `Eighty`-two fucking grand.
+- I'll be `eighty` next week.
+- I'm `eighty`-three years old.
+- We left them `eighty`-eights.
+- `Eighty`-eight miles per hour!
+- No -- letters to two-`eighty`.
+- A hundred and `eighty` fathoms!
+- 'bout `eighty` kilos southwest.
+- A hundred and `eighty` dollars?!
+- I'll be `eighty`-four years old.
+- Round the world in `eighty` days.
+- I heard he was `eighty` years old.
+- Seven `eighty`-five out of twenty.
+- Liquid funds over `eighty` million.
+- On an `eighty`-thousand dollar day?
+- There's over `eighty` thousand here.
+- Two hundred and `eighty`-five names.
+- Twenty, forty, sixty, `eighty`, nine.
+- We want the entire `eighty` thousand.
+- Would they notice and `eighty`-eight?
+- Fifty-five west `eighty`-first street.
+- What does she weight, `eighty` pounds?
+- But it is `eighty` dollars the portion.
+- I think i'm we got that `eighty`-eight.
+- They called about `eighty` minutes ago.
+- This is a hundred and `eighty` dollars.
+- Laurie, mister riddle is `eighty`-seven.
+- I thought `eighty` was a good round number.
+- It's like `eighty` degrees in this hallway.
+- Seventy-six, `eighty`-- you look beautiful.
+- Twenty, forty, sixty, `eighty`, a thousand.
+- 'bout `eighty` percent female in greenpeace.
+- Did i tell you i'll be `eighty` on saturday?
+- `Eighty` cents a word--three--six--nine words.
+- `Eighty` miles a day, a hundred miles a night.
+- Ummmm... two hundred and `eighty`-five dollars.
+- We gonna go take care of those `eighty`-eights?
+- That's right--here's the `eighty` cents for you.
+- He gets this way when he hits over `eighty`-five.
+- It's shifted a good hundred and `eighty` degrees.
+- Embalming people with coffee - `eighty`-six proof.
+- Damn few places you can make `eighty` bucks a week.
+- I weigh a hundred and `eighty`-two pounds stripped.
+- When we take from them, we divide, `eighty`-twenty.
+- I turned the contract, eight units `eighty`-two grand.
+- Now... tell me what you want or i'll `eighty`- six you.
+- Why, if i were `eighty` years younger, i'd box your ears.
+- `Eighty`-eight dollars ain't gonna make a dent, baby girl.
+- Maybe i am three-`eighty`-five if you carry a second lien!
+- `Eighty` five million people go to the pictures every week.
+- I've spent `eighty` years looking for another way, captain.
+- I get an `eighty`-year-old pallbearer for a daughter-in-law!
+- You'd lose only twenty percent instead of seventy or `eighty`.
+- I'd say about `eighty` percent of them were at least drug related.
+- You handle more than `eighty` percent of the intelligence workload.
+- Tv option, that's a dollar twenty, makes nine `eighty`-six plus tax.
+- They were `eighty`-seven-point-two centimeters the day i was created.
+- They will be `eighty`- seven-point-two centimeters the day i go off line.
+- Let's see-- you will be exactly `eighty`-seven when you come out of prison.
+- "will be back in four weeks"-- --that saves you `eighty` cents right there!
+- Christ, `eighty`-eight doctors and all you can tell me is all of your bullshit...
+- Listen to this: i said... those fuckin' deadbeats... `eighty`-two thousand dollars.
+- `Eighty`-five percent of domestic disturbances of this nature end in murder/suicide.
+- Nineteen `eighty`, `eighty`-one...`eighty`-two...six months of `eighty`-two...who's there?
+- I'll tell you why-because people come here and they're like "a dollar `eighty` for soda?
+- Retainer... will, our offer starts you at `eighty`- four thousand a year, plus benefits.
+- In twenty-`eighty`-two many of the survivors moved their facilities underground to escape .
+                 

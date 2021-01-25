@@ -1,0 +1,107 @@
+---
+title: "warm in a sentence | warm example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "warm"
+---
+- `Warm` stuff, i guess.
+- Oh jack, i'm so `warm`.
+- `Warm` water, no doubt.
+- Are you `warm`, captain?
+- Are you `warm`, my love.
+- Are you `warm`, my love?
+- I got my `warm` t-shirt.
+- Mike: yeah, it's `warm`.
+- He feels a little `warm`.
+- I'm sure you kept `warm`.
+- The engine's still `warm`.
+- Getting to be a `warm` day.
+- Jason: it's getting `warm`.
+- Come -- it's `warm` in here.
+- Get you some `warm` clothes.
+- Served on a `warm` doughnut.
+- It's very `warm` out tonight.
+- It was getting `warm` anyway.
+- A `warm` place with no memory.
+- But it keeps the blood `warm`.
+- Is it a nice `warm` room, sir?
+- It's `warm` then it gets cold.
+- Kind of `warm` in here anyway.
+- `Warm` them of what's to come.
+- But the sun'll `warm` you soon.
+- I was in my `warm`, cozy grave.
+- Jesus, it's barely a `warm`-up!
+- The `warm` air helped my hands.
+- Kept us `warm` for twelve years.
+- But the sun will `warm` you soon.
+- Come `warm` yourself if you like.
+- This beer's gonna get too `warm`.
+- This beer's gonna get too `warm`.
+- Too `warm` for a sweater, anyway.
+- `Warm` this place up, you'll see.
+- Was it like a `warm` ice capades?
+- Yeah, they're so `warm` and soft.
+- Feels like `warm` apple pie, dude.
+- I can't stand fuckin' `warm` beer.
+- It is me, or is it `warm` in here?
+- Stop me when i'm getting `warm`...
+- This is a `warm`-blooded creature.
+- Emori... yeah, ladies, `warm` it up.
+- I just came in to get `warm`, myself.
+- Listen, at least it's `warm` in here.
+- You could move on somewhere *`warm`*!
+- You didn't even `warm` them, did you?
+- ♪ but i'm `warm` and fed ♪ she cut me.
+- It's already gotten `warm`, hasn't it?
+- She's the only `warm` body we got left.
+- He was still `warm` when they confirmed.
+- I'll even give you a `warm` up question.
+- Didn't i tell you to `warm` the place up?
+- Well, it does seem mighty `warm` in here.
+- I'm gonna take a `warm` bath and sack out.
+- Thought you might need a little `warm`-up.
+- I need something to keep me `warm` at night.
+- I've got some `warm` milk all ready for you.
+- They're not `warm`, but rigor hasn't set in.
+- ♪ and his sodas were `warm` and flat ♪ mm-hmm.
+- Glass half full, at least it's `warm` in here.
+- The `warm` feeling of helping your fellow man.
+- Being a cop has such a `warm` effect on people.
+- I figure every creature deserves a `warm` meal.
+- Near the earth's core, where it's still `warm`.
+- We had all the same `warm` memories: sock hops.
+- I don't recall siberia being this `warm`, steed.
+- Now dude-- that makes me feel all `warm` inside.
+- As the words of st. paul `warm` your soul, there.
+- He's got a blue-and-gold `warm`-up jacket he wears.
+- They like `warm` weather... you'd never believe it.
+- We were waiting till your planet was `warm` enough.
+- Yeah, let these `warm` your insides she's not here.
+- Then sit in the `warm` sun outside the butcher shop.
+- `Warm` water current maybe, making the metal expand.
+- Don't go getting all `warm` and fuzzy on me, randall.
+- This is like a knockout punch for `warm`-bloodedness.
+- You want to come in, get a cup of coffee -- `warm` up?
+- You want to get out of here, run, it'll `warm` you up.
+- As for the blankets, you will notice they are very `warm`.
+- Couldn't stand the pa - ah - we're getting `warm` - sorry.
+- Out blood oughta be fizzin' like a `warm`, shook- up coke.
+- You'd better sit here and keep `warm` while i go for help.
+- So, today, we celebrate the 200th birthday it's `warm`.
+- Francis, may i ask whether you wear `warm` winter underwear?
+- The wind was blowin' super-hard and i wasn't dressed `warm`.
+- You're gonna feel the metal getting `warm`, maybe very `warm`.
+- The ocean would feel so good, the water's so soft and `warm`.
+- You may find the climate of casablanca a trifle `warm`, major.
+- Would you like to take me there, so that we can get `warm`, sir?
+- I'm a girl, i'm a girl, i'm a girl - let me `warm` them a little.
+- It's here.... what the hell's it doing in `warm` water anyway...?
+- Tomorrow, i see on the tv weather, it's gonna be nice and `warm`.
+- Charlie, take your gum, stick it under your ass and keep it `warm`.
+- Hurry up -- the salad's getting `warm` and the pasta's getting cold.
+- I've brought you something to keep you `warm`, mrs. stone -- jabez -- ?
+- Then you can go to some nice `warm` place, and i don't mean california.
+- You'll like the `warm` fire upon the hearth, and the long, long nights.
+- The music surrounds you like a... `warm` and, comfortable pool of water.
+- Definitely a column of `warm` air rising; it keeps the shaft clear of dust.
+                 

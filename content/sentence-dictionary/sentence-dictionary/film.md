@@ -1,0 +1,107 @@
+---
+title: "film in a sentence | film example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "film"
+---
+- I'm a `film` producer.
+- What about the `film`?
+- I had a roll of `film`.
+- Let's put it on `film`.
+- That `film` was a fake!
+- What about your `film`?
+- Did you like the `film`?
+- How's your `film` going?
+- You load the `film`... ?
+- Don't want to `film` this?
+- Is this your first `film`?
+- That's like a stag `film`.
+- They're like `film` stars.
+- This is henry james `film`?
+- * cut from completed `film`.
+- Did you fix the damn `film`?
+- I've come to see the `film`.
+- The last take is the `film`.
+- I want to make a good `film`.
+- Then we'll go see the `film`.
+- No one's getting that `film`!!
+- We're talkin' a lot of `film`.
+- Gentlemen, the `film` is yours.
+- Prior `film` experience a must.
+- The `film`'s looking wonderful.
+- This is probably a stag `film`.
+- Because it's a brilliant `film`.
+- Especially when you `film` them.
+- Is that the `film` you're doing?
+- You've been watching the `film`.
+- D'you wanna see a `film` with me?
+- He's starring in that new `film`.
+- I thought i'd invest in a `film`.
+- I've seen better `film` on teeth.
+- Then you can `film` all you want.
+- We're not gonna `film` any of it.
+- I can't even get a `film` going...
+- Well, then i'm going to `film` it.
+- Could we go with you and `film` it?
+- Looks like you got some `film` cans.
+- Vtr, `film`, polaroid, stills, what?
+- We'll `film` around you for a while.
+- I'll have to ask you for that `film`.
+- I think my `film` is perfect for you.
+- So you haven�t seen the `film`, then?
+- Philip will be there to `film` it.
+- They're putting me on `film` tomorrow.
+- We met last week, at the wajda `film`.
+- You're not a `film` producer, are you?
+- Ahm -- did you enjoy making the `film`?
+- I can't afford to `film` this nonsense!
+- I'll try to get her to plug the `film`.
+- Not a good time to `film` a commercial.
+- `Film` making can be pretty expensive...
+- I just graduated from nyu `film` school.
+- Our church has the money for one `film`.
+- The `film` broke... jesus... six-thirty.
+- Twelve programmes, lots of stock `film`.
+- What did you think of that wadja `film`?
+- All i wanted to do was finish the `film`.
+- We're to `film` him for the evening news.
+- Come alone or you'll be in my next `film`.
+- I don't want this `film` to be haif-assed.
+- I hear you brought a `film` clip with you.
+- It's a `film`... of a girl being murdered.
+- It's longdale, looking for a snuff `film`.
+- Told him you could get him a snuff `film`.
+- You know that `film` you made called angel?
+- The future of `film` conference in san jose.
+- He's one of the most indulgent `film` makers.
+- You shouldn't have shown the `film` to frank.
+- You wouldn't have any color `film`, would ya?
+- What the fuck did he want with a snuff `film`?
+- What you're talking about is a "snuff `film`."
+- You killed that girl and you put it on `film`.
+- A broken leg and twelve melted rolls of `film`.
+- I just got tmz here to `film` our relationship.
+- I'm not touching my `film`... that's happening.
+- Live, or in a photograph or `film` of some sort?
+- Right before which kind of `film` stock we used.
+- That little blonde groupie with the `film` crew?
+- This isn't some 80's porno `film`, you dip shit.
+- Is he your favourite italian `film` director?
+- Broussard had `film` in his datastick, didn't he?
+- Do you have a, ah, `film` called 'slave of love?'
+- Where is the `film` crew from the british museum?
+- Can't people see the damage that `film` is doing?!
+- Do you think the `film` could have cost that much?
+- Ok... toto, this is no `film` for the common herd.
+- This movie's gonna be the ultimate ed wood `film`.
+- Time-life buried the zapruder `film` for 15 years.
+- Who else but crazy men would `film` their murders?
+- You're supposed to `film` it, not turn it to hash!
+- I have to talk to her about my experimental `film`.
+- I mean, last `film` you did, what did you get paid?
+- At work there's always this sort of `film` over you.
+- Get me something to be sick in... stop the `film`...
+- Hello, i am, uh, `film` director guillermo del toro.
+- I'm interested in financing an adult feature `film`.
+- Is it an art `film`, a horror show, a hygiene flick?
+                 

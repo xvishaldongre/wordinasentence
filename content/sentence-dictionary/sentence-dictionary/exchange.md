@@ -1,0 +1,57 @@
+---
+title: "exchange in a sentence | exchange example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exchange"
+---
+- They `exchange` a glance.
+- An everlasting `exchange`.
+- Vandamm: to `exchange` it.
+- We'd better `exchange` keys.
+- In `exchange` for endowments.
+- A simple `exchange` of favors.
+- In `exchange` for safe passage.
+- No, no, pardon me, `exchange` .
+- And herbert `exchange` a glance.
+- It was an information `exchange`.
+- She's a foreign `exchange` student.
+- In `exchange` for them being hilarious.
+- ...live in `exchange` for sexual favors.
+- Never `exchange` yourself for a hostage.
+- We'll consider it a prisoner `exchange`.
+- You're just a foreign `exchange` student.
+- We did everything but `exchange` gunshots.
+- We met, we wooed, we made `exchange` of vow.
+- Didn't she meet castro on foreign `exchange`?
+- Goodspeed and the s.e.a.l.s `exchange` looks.
+- A cultural `exchange` for radical expressionism.
+- Get parker at the union-leeds - the `exchange` .
+- Um... marla, should we maybe `exchange` numbers?
+- In `exchange` for eternal damnation of your soul?
+- It seems to me that's a san francisco `exchange`.
+- The `exchange` of thy love's faithful vow for mine.
+- That dress should be listed on the stock `exchange`.
+- Didn't have a lot of time to `exchange` pleasantries.
+- In `exchange` for my salary, i'll keep my mouth shut.
+- In `exchange`, we ask only that you follow the rules.
+- "the `exchange` of thy love's faithful vow for mine."
+- Whoever took the rest took it before the `exchange`.]
+- It's a high-efficiency filter and heat `exchange` system.
+- We must be extremely careful what goods we take in `exchange`.
+- When you see me -- call me and i'll walk you through the `exchange`.
+- To `exchange` our thoughts - what does a russian know about business?
+- So...how much money do you want in `exchange` for not ruining my life?
+- The tokyo `exchange` is nine hours ahead of us, new york one hour behind.
+- Agent ray nicolet, jackie brown, ordell robbie money `exchange` trial run.
+- If i give myself up in `exchange` for sophy, would you make sure she's okay?
+- I would `exchange` all my plays to come for all of his that will never come.
+- Maybe we can reason with jesse, give him a third in `exchange` for the tape.
+- Why don't you and the colonel `exchange` numbers if you need more information?
+- <i>the money `exchange` will take place at top of the world at the stratosphere.
+- One more thing -- your personal assurance that job will be at the `exchange`.
+- Oxygenation... don't tell me they're refueling... a simple `exchange`, mr. grant.
+- In `exchange` for my help, i need permission to leave the country and immunity.
+- Are you willing to give me your son in `exchange` for an extension of our contract?
+- All i want in `exchange` for my services is the right to hunt one of the tyrannosaurs.
+- This boy tapped into that main link between tokyo and the new york stock `exchange`.
+                 

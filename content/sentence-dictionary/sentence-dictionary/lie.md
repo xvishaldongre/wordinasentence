@@ -1,0 +1,107 @@
+---
+title: "lie in a sentence | lie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lie"
+---
+- Basquiat, don't `lie`.
+- Don't `lie` to me now.
+- I cannot tell a `lie`.
+- I didn't `lie` to you.
+- `Lie` down on the bed.
+- Nee chin `lie` how ma?
+- True north is a `lie`.
+- What's with the `lie`?
+- Wouldn't `lie` to you.
+- A "little white `lie`"?
+- Because it was a `lie`.
+- Because she will `lie`?
+- "i always never `lie`."
+- Just don't `lie` to me.
+- Religiosos don't `lie`.
+- When i'm drunk i `lie`.
+- You're telling a `lie`.
+- But friends don't `lie`.
+- Do not `lie` to us, ray.
+- Either way it's a `lie`.
+- Feel free to `lie` down.
+- I couldn't `lie` to him.
+- It teaches you to `lie`.
+- `Lie` flat and then cut.
+- No, that wasn't a `lie`.
+- Now you just `lie` here.
+- "true north is a `lie`."
+- Why did you `lie` to me?
+- Why did you `lie` to us?
+- You `lie` * to yourself!
+- 'cause he wouldn't `lie`.
+- Or was that a `lie`, too?
+- Shouldn't you `lie` down?
+- These walls do not `lie`!
+- Why would i `lie` to you?
+- Why would nadelman `lie`?
+- Allegiances need to `lie`.
+- Don't `lie`, or i'll know.
+- Don't try to `lie`, ruben.
+- I can't `lie` to me, liza.
+- I don't want you to `lie`.
+- I just need to `lie` down.
+- It wasn't exactly a `lie`.
+- It wasn't much of a `lie`.
+- That dreamers often `lie`.
+- That's just a total `lie`.
+- What did they `lie` about?
+- Then to `lie` about it!
+- Computers never `lie`, kid.
+- How can he `lie` like that?
+- I don't want to `lie` down.
+- If you `lie` on the ground.
+- I'm sorry you had to `lie`.
+- That's an outrageous `lie`!
+- Why would i `lie` about it?
+- You'd `lie` about anything.
+- You'd `lie` to protect him.
+- A computer canna `lie`, sir.
+- Don't `lie` to me, hamilton!
+- Feels so good to `lie` here.
+- He will `lie` to confuse us.
+- How can you `lie` like that?
+- Now why did you `lie` to me?
+- Why did you `lie` just then?
+- Why don't you go `lie` down?
+- You expect me to `lie` down?
+- You're not allowed to `lie`.
+- You `lie` to me about it.
+- Carter, would i `lie` to you?
+- If it's a `lie`, goddamn her.
+- I just need to -- `lie` down.
+- I should probably `lie` down.
+- I think i need to `lie` down.
+- I think think a `lie` stinks.
+- It's the `lie` that gets you.
+- `Lie` face down on the floor.
+- Now that's a malicious `lie`!
+- That's a `lie`, lieutenant...
+- Why would she `lie` about it?
+- Yeah, well, boyfriends `lie`.
+- Do i... `lie` down... or what?
+- Don't `lie`, i won't be angry.
+- I'm not going to `lie` to you.
+- No she didn't; that's a `lie`.
+- Now `lie` back and we'll talk.
+- Oh come on, why would i `lie`?
+- Our movie's a hit and a `lie`.
+- You never used to `lie` to me.
+- Because you cannot `lie` to me.
+- Don't you `lie` to me, rayford.
+- I'm not going to `lie` for you.
+- I need to `lie` down and sleep.
+- I need to `lie` down for a bit.
+- I wouldn't `lie` if i were you.
+- Jerry, you'd better `lie` down.
+- Just tell a little white `lie`?
+- `Lie` down and close your eyes.
+- That's a `lie` and you know it.
+- That was a `lie`, a `lie`, a `lie`.
+- ] wendy ] the truth is a `lie`!
+                 

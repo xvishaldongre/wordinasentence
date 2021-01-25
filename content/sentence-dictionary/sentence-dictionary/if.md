@@ -1,0 +1,107 @@
+---
+title: "if in a sentence | if example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "if"
+---
+- As `if` i didn't know.
+- Bloody big `if` it is.
+- Both `if` we're lucky.
+- But what `if` it does?
+- Do you mind `if` i do?
+- Even `if` it was true.
+- Even `if` i wanted to.
+- Even `if` they're bad.
+- Go back `if` you want.
+- I'd clap `if` i could.
+- `If` he's still alive.
+- `If` he was a traitor.
+- `If` i change my mind.
+- `If` i fail, you fail.
+- `If` i get a signal...
+- `If` i hadn't done it.
+- `If` i owe, i will go.
+- `If` i remembered you.
+- `If` i spoke with him.
+- `If` it comes to that.
+- `If` it's good advice.
+- `If` possible -- both.
+- `If` she calms down...
+- `If` that's all right.
+- `If` that's your word.
+- `If` we can make that.
+- _ `if` we don't fight.
+- `If` we had the parts.
+- `If` we work together.
+- `If` you believe that.
+- `If` you could help...
+- `If` you ever need me.
+- `If` you keep this up?
+- `If` you know, i know.
+- `If` you'll excuse me.
+- `If` you love me, joe.
+- `If` you only knew ...
+- `If` you pull my cart.
+- `If` you wanted to go?
+- `If` you would come...
+- I'll get `if` for you.
+- I will `if` you don't.
+- Kill me `if` you want.
+- Mind `if` we sit down?
+- Not `if` it can't dig.
+- Okay, `if` i sit here?
+- Okay, `if` you insist.
+- Only `if` you kiss me.
+- Or `if` he's moved on.
+- See `if` they'll what?
+- So i thought `if` i...
+- Sorry `if` i woke you.
+- What `if` he found it?
+- What `if` he sees you?
+- What `if` he wakes up?
+- What `if` i come back?
+- What `if` i just left?
+- What `if` i spazz out?
+- What `if` i was vince?
+- What `if` max says no?
+- What `if` she forgets?
+- What `if` she's right?
+- What `if` they fought?
+- What `if` <u>what</u>?
+- What `if` you hide me?
+- Would `if` i were you.
+- You can `if` you want.
+- Aaron `if` it's a boy.
+- A harem, `if` you will.
+- `If` i enclosed it?
+- `If` we're unlucky?
+- What `if` i say no?
+- As `if` it's that easy.
+- Ask `if` i can keep it.
+- Because `if` you are...
+- But `if` it comes up...
+- But `if` the shoe fits.
+- Even `if` i am fifteen?
+- Goofy, `if` ya ast me.]
+- I can't `if` you watch.
+- I don't mind `if` i do.
+- `If` he can do it, yes.
+- `If` he were only that.
+- `If` i did-i don't-now.
+- `If` i don't cooperate?
+- `If` i might interject.
+- `If` i needed your i.d.
+- `If` i quit, what then?
+- `If` it did get to him.
+- `If` it's cassius, yes.
+- `If` it's on the level.
+- `If` it's self-defense.
+- `If` it works you mean.
+- `If` i were interested.
+- `If` i weren't married?
+- `If` not you, then who?
+- `If` she dies, he dies.
+- `If` sheep don't count.
+- `If` she paid you well?
+- `If` that was her name.
+                 

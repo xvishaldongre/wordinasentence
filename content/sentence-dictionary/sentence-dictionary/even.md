@@ -1,0 +1,107 @@
+---
+title: "even in a sentence | even example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "even"
+---
+- But `even` a kid lies.
+- Didn't `even` deny it.
+- Did you `even` notice?
+- Don't `even` go there.
+- Don't `even` thank me.
+- Don't `even` try that.
+- `Even` a little motor.
+- `Even` book the dates.
+- `Even` chop the trees.
+- `Even` i can't get in.
+- `Even` if it was true.
+- `Even` if i wanted to.
+- `Even` if they're bad.
+- `Even` the bedspreads.
+- `Even` the camera guy.
+- `Even` where to start?
+- `Even`, you sit there.
+- He doesn't `even` eat.
+- He never `even` asked.
+- He's not `even` there.
+- He wasn't `even` hurt.
+- I can `even` be funny.
+- I can't `even` say it.
+- It's not `even` close.
+- It's not `even` yours.
+- Not `even` antibodies.
+- Not `even` close, son.
+- Not `even` with exley?
+- Not `even` your birds.
+- She won't `even` know.
+- This isn't `even` you.
+- This isn't `even` you.
+- Will this `even` work?
+- Yes, `even` in berlin.
+- You can't `even` pass!
+- You can't `even` walk.
+- You `even` have a map?
+- Can you `even` do that?
+- Can you `even` imagine?
+- `Even` dumber than you.
+- `Even` find this place?
+- `Even` if i am fifteen?
+- `Even` in the bathroom?
+- `Even` kelly thinks so.
+- `Even` the powder room.
+- `Even` your fianc�e...?
+- Have you `even` looked?
+- He doesn't `even` know.
+- How do you `even` know?
+- I ain't `even` married.
+- I can't `even` breathe.
+- I can't `even` go home.
+- I can't `even` imagine.
+- I don't `even` have it!
+- I `even` fought in ww2.
+- Is that `even` allowed?
+- It's not `even` a mile.
+- I won't `even` wear it.
+- Nope, not `even` close.
+- Not `even` a stalemate?
+- Or `even` a good porno.
+- Super hero like `even`.
+- That's not `even` true.
+- They're so `even` keel.
+- We're not `even` armed!
+- You don't `even` smoke.
+- Don't `even` look at me.
+- Don't `even` think that.
+- Don ' t you `even` dare.
+- `Even` before ascension.
+- `Even` for wilkes-barre.
+- `Even` i could beat him.
+- `Even` i could help him.
+- `Even` if it's terrible!
+- `Even` if you wanted to.
+- ...`even` limb regrowth.
+- `Even` nuns have to pee.
+- `Even` people he killed.
+- `Even` the choir's late.
+- `Even` when she's wrong?
+- He didn't `even` get up.
+- He hasn't `even` called.
+- He's not `even` like me.
+- How can you `even` tell?
+- I can't `even` drink it.
+- I can't `even` remember.
+- I didn't `even` pass it.
+- I don't `even` exercise.
+- I don't `even` know him.
+- I don't `even` know you.
+- I don't `even` like him.
+- I don't `even` watch tv.
+- I'm not `even` catholic.
+- I'm not `even` pregnant!
+- I'm not `even` sure why.
+- Is that `even` possible?
+- It's not `even` covered.
+- It's not `even` load-...
+- Just to write it `even`.
+- Maybe an `even` hundred.
+                 

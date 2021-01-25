@@ -1,0 +1,107 @@
+---
+title: "carry in a sentence | carry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "carry"
+---
+- Did you `carry` a gun?
+- We can't `carry` them.
+- Few can `carry` it off.
+- How many can i `carry`?
+- We have to `carry` her.
+- `Carry` on, my good man!
+- ...you `carry` firearms.
+- He wants to `carry` them.
+- I can't `carry` on alone.
+- I never c-c-`carry` arms.
+- Want me to `carry` elora?
+- Whatever you can `carry`.
+- You always `carry` these?
+- Here, let me `carry` that.
+- I never `carry`...baggage.
+- Mary clarence, `carry` on.
+- We can't `carry` all this.
+- You can `carry` your keys.
+- You had enough to `carry`.
+- Firemen don't `carry` guns.
+- I always `carry` batteries.
+- I could `carry` your spear!
+- I don't `carry` dapper dan.
+- I don't `carry` it with me.
+- I think i'll...`carry` him.
+- Do you `carry` door handles?
+- He still `carry` those guns?
+- I... can i `carry` your box?
+- Many plants `carry` viruses.
+- We'll `carry` the desk over.
+- I `carry` bacon in my pocket.
+- I'll `carry` the instruments.
+- Hoyt, junior, `carry` gardner.
+- Then you should `carry` a gun.
+- Which means they `carry` fuel.
+- Why should i `carry` your bag?
+- The man who helped `carry` him.
+- You guys had to `carry` me out.
+- Didn't you also `carry` a banner?
+- Do you `carry` a gun, mr. welles?
+- I'll `carry` him 'till the third.
+- Just take what you can `carry`.
+- Leave to `carry` on, sir, please?
+- Let her `carry` this shit inside.
+- May i `carry` your package, grace?
+- You always `carry` a gun with you?
+- Not one who can `carry` a tune.
+- We `carry` stuff that big in stock.
+- Whatever i'd say, you'd `carry` on.
+- You know what, i'll `carry` it too.
+- `Carry` a kilo around in your purse?
+- How much to get a permit to `carry`?
+- Some people `carry` rabbits' feet...
+- Speak soft, and `carry` a big stick.
+- The secret i `carry` i cannot share.
+- Well, fortunately, i `carry` my own.
+- We ought to try and `carry` dorothy.
+- I can't `carry` it in my pocket, man.
+- They're licensed to `carry` firearms.
+- You got anything to `carry` these in?
+- But it's my fault and i'll `carry` it.
+- Didn't know what cash and `carry` was.
+- I'm not gonna `carry` you out of here.
+- Just take what you can `carry`, now.
+- Let me `carry` one of the instruments.
+- You always `carry` an umbrella, bruce?
+- You used to `carry` a gun, didn't you?
+- They probably expect you to `carry` on.
+- What's wrong with how i `carry` myself.
+- If it was my own mother, i'd `carry` on!
+- You gonna `carry` that around all night?
+- I'll `carry` a copy of one of your books.
+- It's attitude...how you `carry` yourself.
+- Sometimes people `carry` weapons in here.
+- The blades will `carry` us to the ground.
+- We get to `carry` on and plan the sequel.
+- You know we can't `carry` a live picture.
+- His understudy can't `carry` the play.
+- Why can't golfers `carry` their own clubs?
+- You `carry` my unborn sister in your womb!
+- You want a lock to `carry` in your wallet?
+- I used to `carry` a gun when i drove a cab.
+- Why should you `carry` other people's bags?
+- Can i `carry` something for you, to the car?
+- Do you want me to `carry` your pack for you?
+- [it's a permit to `carry` a gun in columbia.
+- The supermarkets don't `carry` italian meat.
+- Don't tell me you `carry` it around with you.
+- He helped him `carry` home the clean laundry.
+- I come by to help you `carry` out your money.
+- The gate has but one key, and i `carry` that.
+- You have no authorization to `carry` weapons.
+- Figured we could use it to `carry` out jasper.
+- University and 10th--want to `carry` my books?
+- A spy must `carry` out orders without question.
+- Be ready at two -- i can't `carry` all of them.
+- I `carry` these everywhere but they don't help.
+- I think folks `carry` on about heaven too much.
+- I've got a right to `carry` a gun if i want to.
+- Pigeons `carry` diseases and muss up the place.
+                 

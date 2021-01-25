@@ -1,0 +1,70 @@
+---
+title: "harder in a sentence | harder example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "harder"
+---
+- Come on, try `harder`.
+- `Harder` than it looks.
+- `Harder` than i thought.
+- Stealing's got `harder`.
+- There's nothing `harder`.
+- Then try `harder`, mozart.
+- Paul, you gotta try `harder`.
+- That makes it `harder` still.
+- We just have to try `harder`.
+- You, you're `harder` to read.
+- I'll just have to try `harder`.
+- It was `harder` before the war.
+- Hit "i'm" a little `harder`.
+- Good bodyguards are even `harder`.
+- I could hit her a little `harder`.
+- Guess you should've tried `harder`.
+- It's `harder` playing detective now.
+- They should just be looking `harder`.
+- `Harder` than this, do you understand?
+- Let's try a little `harder`, shall we?
+- They're `harder` to do than they look.
+- Claire... you should have tried `harder`.
+- It was him, it wasn't us -- try `harder`.
+- Maybe we ought to look a little `harder`.
+- Will only make keeping the peace `harder`.
+- The `harder` you fight, the faster you die.
+- I work `harder` than him and i'm your own son.
+- The longer we wait, the `harder` it's gonna be.
+- Don't make this any `harder` than it already is.
+- Paint `harder`, you sausage-fingered no-talents!
+- The `harder` i pushed, the more you pulled away.
+- Somethin' tells me it gets `harder` from here in.
+- Trapping's a lot `harder` than most people think.
+- I think you're right, it would be `harder` on her.
+- The hungrier we'll get and the `harder` this'll be.
+- Probably even `harder` than having to kill a sister.
+- It shouldn't be any `harder` than general motors was.
+- `Harder` than diamonds -- and they're changing into...
+- Look, the more you think about it, the `harder` it is.
+- The deeper she goes, the `harder` it is to contact her.
+- It was a `harder` time and a `harder` place than you know.
+- The "old man" plays politics `harder` than anybody else.
+- You don't have to make this `harder` than it already is.
+- He can push himself `harder`, longer than any normal man.
+- These cases are `harder` on the doctor than on the patient.
+- Does all that make it `harder` for you to hate him or easier?
+- The tighter you squeeze, the `harder` he'll try to break free.
+- Evidence doesn't get any `harder` than that -- not for my money.
+- Higher, lower, faster, `harder`, small circles, do the alphabet.
+- Mommy works `harder` as a mom than she did when she was working.
+- I guess i'll havta work `harder` to git him back like he usta be.
+- Nothing makes the great spirit laugh `harder` than a man's plans.
+- It's make the bergs `harder` to see, with no breaking water at the base.
+- The reason all previous metempsychosis trials you've got to try `harder`.
+- The longer we wait, the `harder` it's gonna be but you're not one of them.
+- If at first it's not what you want, just work that much `harder`, peerless.
+- ...come on sport, you gotta try `harder`, i need some exercise for chrissake...
+- I can't have you caught up in a power struggle, we should have looked `harder`.
+- Now we have to fight `harder` to get ahead than anyone else you'll find in this gym.
+- Not a scar remains... we're talking about a spell; `harder` to repair than sword-work.
+- I feel like, this summer, i have laughed `harder` they must've married for some reason.
+- Two of our people died today because of her, and you just made it a whole lot `harder`.
+- It will be `harder` if i am surrounded by a body of men who look like me, don't you think?
+                 

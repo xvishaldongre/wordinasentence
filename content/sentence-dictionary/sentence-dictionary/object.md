@@ -1,0 +1,67 @@
+---
+title: "object in a sentence | object example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "object"
+---
+- It is my only `object`.
+- Your honor, i `object`.
+- We `object`, your honor.
+- She's a respect `object`.
+- "your honor, i `object`!"
+- It's an impossible `object`.
+- What `object` should i draw?
+- I `object` to a cut-rate one.
+- Like an `object` or a person?
+- Chancellor, i have to `object`.
+- Only an `object` of equal size.
+- A <u>fantasy</u> `object`...
+- It's an `object` lesson in grace.
+- My daughter's not a sex `object`.
+- Then why did she `object` to you?
+- As long as ellie doesn't `object`.
+- I `object` to that form of question.
+- He'll be hurt, but he won't `object`.
+- `Object` to the form of the question!
+- I `object` to the form of that question.
+- Pentangeli is a dead man; do you `object`?
+- I `object`, your honor... mr. concannon...?
+- It needs a more `object`-oriented language.
+- It's buried under layers of rote `object` code.
+- Your family doesn't `object` to your career?
+- Negative, on surface... a manufactured `object`.
+- Well, no - it's more like a "found art `object`."
+- Nothing, unless you `object` to having girls here.
+- As long as i tell him beforehand he won't `object`.
+- Oh, you `object` to the kind of business i do, huh?
+- The past, the future, whatever this `object` holds.
+- But a toothbrush is a non-lethal `object`, isn't it?
+- Above all, not hurting the `object` of your love.
+- Even if wudan accepts her, her husband might `object`.
+- So...would you `object` if i said you're quite striking?
+- The rational `object` of terrorism is to promote terror.
+- Naturally, i want the best for him, money is no `object`.
+- When an `object` moves through different states of matter.
+- This field affects any charged `object` in its vicinity.
+- But everybody's treating him like this -- valuable `object`.
+- Does v'ger `object` to the presence of the two carbon units?
+- He was their only child...the `object` of all their attention.
+- Mister decker; every minute brings that `object` nearer earth!
+- Why is my veggie burger the only burnt `object` on this grill?
+- Can somebody tell me what the `object` of the exercise is here?
+- My gosh, alvin, was i supposed to `object` every time you did that?
+- I am the `object` of this desire, and all eyes are on me as i speak.
+- Every valuable `object` in the museum carries a small electronic chip.
+- That `object` out there is less than two days from earth, mister scott.
+- ....now that i've met you.... would you `object` to never seeing me again?
+- So what do you really `object` to - the writer or what he's writing about?
+- What i `object` to is that you automatically treat me like an inferior ...
+- What i really `object` to, uncle, is your finishing all my condensed milk.
+- They're trying to make him see catherine as a person - not just an `object`.
+- Unidentified small `object` has been pulled into the wormhole with us, captain!
+- Anybody can clean the surface of an `object`, but dirt can find its way anywhere.
+- Can you tell whether an `object` moved against the head, or the other way around?
+- Those injuries are produced by the head being propelled <u>against</u> an `object`.
+- Mrs. holland has become an `object` of speculation and religious interest to these people.
+- Probable cause repeated blows to the back of the head with an obtuse angled blunt `object`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "days in a sentence | days example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "days"
+---
+- It's been four `days`!
+- It's only four `days`.
+- Those `days` are over.
+- Those good ol' `days`?
+- Those were the `days`.
+- Three business `days`.
+- Two and a half `days`?
+- Well, you like `days`.
+- What is it, 97 `days`?
+- You have three `days`.
+- You've got two `days`.
+- About seventeen `days`.
+- We switched `days`.
+- But after our `days`...
+- How is he these `days`?
+- Shouldn't be no `days`!
+- Take two, three `days`.
+- That could take `days`.
+- We left two `days` ago.
+- But you want `days` too.
+- For the past few `days`.
+- Four or five `days` ago.
+- I got a few `days` left!
+- I'm counting the `days`.
+- It's only ten `days` ...
+- Just a couple of `days`.
+- One a those `days`, huh.
+- Slavery `days` are over.
+- That was two `days` ago.
+- Three `days` ago it was.
+- Two `days`' work detail.
+- A couple of `days` later.
+- Ah, sweet college `days`.
+- At least a couple `days`.
+- Fourteen business `days`.
+- Just like the old `days`.
+- More like the old `days`.
+- Ninety `days`, suspended.
+- Not long... a few `days`.
+- Not today, of all `days`!
+- Oh, about ten `days` ago.
+- Suffer a few more `days`.
+- Three nights, two `days`.
+- Two `days` without water?
+- Two.. maybe three `days`.
+- Two units in four `days`.
+- 5 dead primes in 5 `days`.
+- A rare man-- these `days`.
+- Been like this for `days`.
+- How many `days` you short?
+- I didn't count the `days`.
+- I smoke more these `days`.
+- It's only been two `days`!
+- I've been here for `days`.
+- I was alone for 58 `days`.
+- She died two `days` later.
+- Six months, eleven `days`.
+- Sold out for three `days`.
+- The last few `days`, um...
+- To find work these `days`?
+- Been going for four `days`.
+- Before his broadway `days`.
+- Boy, those were the `days`.
+- Came back three `days` ago.
+- Disappear for a few `days`.
+- First few `days` are weird.
+- Grease monkey these `days`?
+- He was tiny two `days` ago.
+- I just... for 2,201 `days`.
+- I miss the old `days`, too.
+- In just a couple of `days`.
+- It'll just be a few `days`.
+- It's coming up in 3 `days`.
+- I've got three `days` left.
+- Just for a few `days`, sam.
+- Twenty `days` work, oh boy!
+- Two episodes in two `days`.
+- Two weeks and three `days`.
+- We check every four `days`.
+- We're live in three `days`.
+- Whatcha doin' these `days`?
+- Back in the old `days`, yes.
+- He was here for four `days`.
+- How is central these `days`?
+- How's the left these `days`?
+- I'm leaving in a few `days`.
+- Like the old `days`, dillon.
+- Shows up three `days` later.
+- Sir, it's been 3 `days` hey!
+- Takes across the two `days`.
+- Those were great old `days`.
+- Two `days`, we got two `days`!
+- We'll tag up, couple `days`.
+- You haven't eaten in `days`.
+- Your `days` are running out.
+- You've been here two `days`.
+- Achhh, those were the `days`.
+- Been here a couple of `days`.
+- `Days` are going by, senator.
+- Dude, you puked for 3 `days`.
+                 

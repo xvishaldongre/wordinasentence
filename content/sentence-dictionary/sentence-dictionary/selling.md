@@ -1,0 +1,88 @@
+---
+title: "selling in a sentence | selling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "selling"
+---
+- `Selling` scrap metal.
+- You did the `selling`.
+- We're not `selling` it.
+- What are you `selling`?
+- She was `selling` birds.
+- I'm `selling` this place.
+- You're `selling` it back!
+- Imagine us `selling` cars?
+- They're `selling` at 1200.
+- I'm not `selling` anything.
+- Are they `selling` it or what?
+- Isn't like `selling` log cabins.
+- `Selling` all my baseball cards.
+- A best-`selling` memoir, perhaps.
+- I'm not just `selling` the script.
+- Should i really be `selling` them?
+- We are `selling` cars, goddamn it.
+- We're not interested in `selling`.
+- But no intention of `selling` them.
+- Mike, you sure about moe `selling`.
+- I heard you're `selling` tubberware.
+- I was buying or `selling` something.
+- She's `selling` you a pig in a poke.
+- Now they're `selling` their house.
+- By `selling` them off, i make a profit.
+- Is that why you're `selling` the house?
+- Maybe you're `selling` bad merchandise.
+- You're `selling` and ending the culture.
+- I'm not `selling` them to you one by one.
+- `Selling` parts to him and his new tuner.
+- I was thinking of `selling` all the cards.
+- The kids `selling` that shit have no sense.
+- Is he fucking `selling` it by the milligram?
+- Your husband homer is `selling` weed, marge.
+- I'm `selling` something they don't even want.
+- I won't be `selling` you this house, mr. bloom.
+- Another busy night `selling` porno to wireheads?
+- I got fined for `selling` cigarettes to a minor.
+- Whatever you're `selling`, i ain't buying, okay?
+- Anyone who says differently is `selling` something.
+- Oh, yeah, everyone's `selling` crap to stoners now.
+- I can't believe you're `selling` some of this stuff.
+- Well, my parents are `selling` their house in maine.
+- All the bread you're gonna make `selling` tubberware.
+- `Selling` your sould for a fistful of carbohydrates...
+- I wasn't thinking of `selling` him, but if you want ...
+- My boss tells me i have to do more suggestive `selling`.
+- Sorta like stealing cars and `selling`'m for parts, huh?
+- We thought they were `selling` hamburgers in that place.
+- I'm probably not interested in whatever you're `selling`.
+- Well, for christsakes, you sound like you're `selling`...
+- His own people were `selling` him to a gang of hungarians.
+- `Selling` naked pictures of little kids over his computer.
+- Shirley, i wrote for years without `selling` a single word.
+- Aren't you `selling` paintings now for quite a lot of money?
+- I have a high maintenance `selling` painter coming through...
+- I got way too many of them... you're `selling` dad's boat?
+- If you're `selling` girl scout cookies i'm borderline diabetic.
+- I'm stuck here with you, so he can stop `selling` us that crap.
+- You think i'm going to end up `selling` appliances like my father?
+- You were `selling` novelty products in wichita the day i was born.
+- She is a writer, writing best `selling` books about serial killing.
+- `Selling` vacuum cleaners isn't the best preparation you could have.
+- There's a scratch on the hood and how much you make `selling` my gun?
+- It was <u>free</u>--i recall that was the chief `selling` point for you.
+- They're `selling` more crap that people go and buy than you can imagine.
+- You want to go on struggling for survival, `selling` books on the street?
+- I take that kinda thing... ...`selling` this young man beer wednesday night.
+- This guy rory breaker can afford to do the deal at the price we are `selling`.
+- <i>spare room</i> - i can start thinking about `selling` up...and i'll be gone.
+- We were `selling` arizona...they're nuts...did you see how they were living?
+- Your snide remarks i don't take kindly to you and falco `selling` me ethics.
+- I also need you to check out a car for me down there that this guy is `selling`.
+- ♪ `selling` tubberware ♪ there's nothing worse than being the parent hey, homer.
+- The cops say it's a special kind of scale drug dealers use in `selling` marijuana.
+- I hear the health department is going to close this joint for `selling` dirty beer.
+- It wouldn't really make a statement if i tiptoed out the door...what are you `selling`?
+- Are you really willing to let your friend die how long have you been `selling` balloons?
+- Beats getting paid in twenties by slimedogs `selling` angel dust to high school seniors.
+- I'm in this fucking city where my father is a hot shit lawyer, and i'm `selling` my blood.
+- Four years in a town like los ang-gleez, and a peanut `selling` job is the best you can do?
+                 

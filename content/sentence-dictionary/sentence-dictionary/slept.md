@@ -1,0 +1,102 @@
+---
+title: "slept in a sentence | slept example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slept"
+---
+- Madam has `slept` well?
+- You `slept` with molly?
+- I `slept` with her once.
+- I `slept` with the girl.
+- Yeah, if you've `slept`.
+- Haven't `slept`, have you?
+- I can't believe i `slept`.
+- I haven't `slept` in weeks.
+- I `slept` with your sister.
+- I've never `slept` so well.
+- No, i `slept` on the plane.
+- Sighs: i've `slept` enough.
+- You `slept` with the fucker!!
+- Have you `slept` with him yet?
+- I haven't `slept` much either.
+- You `slept` all the way there.
+- But no... you `slept` with her!
+- His bed hasn't been `slept` in.
+- I told them i `slept` with you.
+- They attacked while we `slept`.
+- A lot happened while you `slept`.
+- I haven't `slept` for three days.
+- You have not `slept` in two days.
+- Anyway, claire `slept` with him...
+- I `slept` for three days straight.
+- I `slept` with her once in school.
+- Oh, you `slept` well; don't worry.
+- You've `slept` with several women.
+- Einstein `slept` three hours a year.
+- Haven't `slept` one night this week.
+- I `slept` too near where i fell out.
+- How long's it been since you `slept`?
+- How many girls have you `slept` with?
+- I don't think i've `slept` in a year.
+- I must have `slept` through my alarm.
+- I `slept` on this couch for nothing?!
+- The sheets had never been `slept` in.
+- You `slept` too near where you got in?
+- I couldn't have `slept` tonight anyhow.
+- While i `slept`, i said, "extra large."
+- You haven't `slept` with her, have you?
+- I'm the fellow you `slept` on last night.
+- Magua `slept` hard in the english wigwams.
+- I... a... `slept` with my fianc�'s brother.
+- You've `slept` with twelve different girls?
+- The one that `slept` in my mouth last night.
+- I `slept` with ray because i was sick of you.
+- We haven't `slept` in the same bed for years.
+- I told you about the people i've `slept` with.
+- Most show business companies you `slept` well.
+- I don't think she `slept` in her bed last night.
+- We've `slept` together but we haven't made love.
+- Haven't `slept` since that shit article came out.
+- You look awful, like you haven't `slept` in days.
+- I had friends who even `slept` less than i did.
+- I `slept` through most of earth skills, so... aagh!
+- What difference does it make if i `slept` with her.
+- Not bad for a man who hasn't `slept` in four nights.
+- Why did you tell me you only `slept` with three guys?
+- Yes, i `slept` with him but that was a long time ago.
+- I `slept` with him and he knocked off a hundred bucks.
+- Last night i `slept` with a member of the war council.
+- You have not `slept` with your husband for five years?
+- I'd be more comfortable if he `slept` in the guestroom.
+- I couldn't face her if i had `slept` with somebody else.
+- I'd be more comfortable if you hadn't `slept` with josh.
+- I've never even `slept` over at some other dude's house!
+- Like the women you `slept` with behind your wife's back.
+- Will control everything, she hasn't `slept` in two days.
+- I took a human life... but i `slept` like a baby that night.
+- And, for the <u>second time</u>, i `slept` in her living room.
+- The mother said the boy hadn't `slept` for over three _months_.
+- I `slept` til one-thirty, when my wife woke me up with the news.
+- As i said, i couldn't keep my eyes... you `slept` here all night?
+- He `slept` over because i was a little anxious... that's amazing.
+- I'm denying maggie happiness must have `slept` through that class.
+- The fact that they survived means think we've `slept` long enough.
+- What i can't believe is that in an earlier life i `slept` with him!
+- You know he `slept` in a hole in the ground under a toolshed, right?
+- No, not -- i mean have you, you know -- i told you i `slept` with him.
+- We had everything: we ate good, we `slept` late, we had money to burn.
+- Now about our date for tonight... that's funny - i never `slept` better.
+- We almost `slept` together... and... then the hair started and i booked.
+- You ever take a dump made you feel you'd just `slept` for twelve hours...?
+- I've always wondered whether they `slept` together before they got married.
+- That spot under the bridge where we `slept` last night's good enough for me.
+- We can't join the ark until that thing is... hey, what if she `slept` naked?
+- 'well done you -- you `slept` with that actress -- we've seen the pictures.'
+- You've `slept` with half of the borough so don't tell me you're being choosy.
+- I understand that you `slept` with three different guys, and that's all you said.
+- Hers and his father's; from god, for having sex-- i knew he `slept` in a toolshed.
+- Some irish, some german, some french, dutch -- the women in my family `slept` around.
+- The only reason we're still here is that none of us has `slept` since the grad party.
+- Oh, i knew you shouldn't have had who hacked the heads off children while they `slept`.
+- I wasn't in jail, i don't know marilyn manson, and i've never `slept` with a spice girl.
+                 

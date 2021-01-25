@@ -1,0 +1,107 @@
+---
+title: "shut in a sentence | shut example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shut"
+---
+- Both of you `shut` up.
+- But, lily-- `shut` up!
+- I can't `shut` it off.
+- Now, `shut` your eyes.
+- `Shut` her down, wick.
+- `Shut` it up, loretta.
+- `Shut` the door, emmi.
+- `Shut` the front door!
+- `Shut` the front door.
+- `Shut` up and get out.
+- `Shut` up and tell me.
+- `Shut` up, king jay ..
+- `Shut` up, you zombie!
+- Someone `shut` him up.
+- So, `shut` your mouth!
+- Tape his mouth `shut`.
+- The stones are `shut`!
+- <u>oh `shut` up</u>!!!
+- Will you `shut` up!?!!
+- You can `shut` up now.
+- You fucking `shut` up!
+- You `shut` up, miller.
+- You `shut` up, stupid!
+- You `shut` your mouth!
+- Both of you, `shut` up.
+- But `shut` up about it.
+- Can you `shut` it down?
+- Crash, `shut` the door.
+- Did he `shut` you down?
+- Hey, `shut` up, connie.
+- Hey -- `shut` up, okay?
+- Keep your mouth `shut`!
+- Keep your mouth `shut`.
+- Now `shut` up, or walk.
+- `Shut` up and sit down.
+- `Shut` your eyes, mama.
+- So you `shut` them off?
+- They'll `shut` me down!
+- Yeah, `shut` up, lucas.
+- Does it ever `shut` off?
+- Finn: `shut` the gate!
+- It'll `shut` itself off.
+- Just `shut` the fuck up.
+- Just `shut` the fuck up!
+- My mouth is `shut`, boy.
+- Pay me, and i `shut` up.
+- Shall i `shut` the door?
+- `Shut` the door, lester.
+- `Shut` up and let me in.
+- `Shut` up, miss henried!
+- `Shut` your gibber-hole.
+- `Shut` your sewer mouth!
+- Sit down, and `shut` up!
+- Why don't you `shut` up!
+- Will you guys `shut` up?
+- You're `shut` down, pal.
+- ...and i said, `shut` up!
+- Everybody just `shut` up!
+- He kept his mouth `shut`.
+- Indra: `shut` your mouth.
+- I order you to `shut` up.
+- Just `shut` the -- -- no!
+- `Shut` down accelerators.
+- `Shut` the fuck up, jude.
+- `Shut` up -- i'm talking.
+- `Shut` up -- yes you are.
+- `Shut` up, you liar, you!
+- `Shut` yer fuckin' mouth.
+- University's `shut` down.
+- Would you just `shut` up?
+- He `shut` down your paper!
+- How long's it been `shut`?
+- I'll keep my mouth `shut`.
+- Just get in and `shut` up.
+- Just `shut` up and hit me!
+- Just `shut` up and listen.
+- Roach, `shut` the fuck up.
+- `Shut` it off, lieutenant.
+- `Shut` the fuck up, barry.
+- `Shut` the fuck up, donny!
+- `Shut` the fuck up, donny.
+- `Shut` up, apple-polisher.
+- `Shut` up, it's all right.
+- `Shut` up your damn mouth!
+- `Shut` your big fat mouth!
+- `Shut` your big fat mouth.
+- `Shut` your hole, slutnik.
+- So just `shut` your mouth.
+- They `shut` all right now.
+- We keep our mouths `shut`.
+- You `shut` your mouth now!
+- I keep my mouth `shut`?
+- Ben: can you `shut` it off?
+- Can't they `shut` that off?
+- Could you please `shut` up?
+- I think it's rusted `shut`.
+- It means `shut` up, thelma.
+- I've `shut` down the until.
+- Just `shut` up, you idiot!!
+- Now keep your mouth `shut`.
+                 

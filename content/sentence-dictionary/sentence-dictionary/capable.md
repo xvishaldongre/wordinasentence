@@ -1,0 +1,74 @@
+---
+title: "capable in a sentence | capable example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "capable"
+---
+- He is a `capable` man.
+- I'm perfectly `capable`.
+- What she's `capable` of.
+- You're not `capable` of it.
+- What made you `capable` of it.
+- But they are `capable` of love.
+- He's `capable` of doing anything.
+- I'm not `capable` of being wrong.
+- Would you call him a `capable` man?
+- He's `capable` of some heinous shit.
+- She's good, and `capable` and smart.
+- You have a suspect `capable` of this?
+- I'm not `capable` of being fooled!
+- I don't believe he's `capable` of that.
+- I don't think he's `capable` of murder.
+- You see us as `capable` of such a blow?
+- Everyone's `capable` of murder, osborne.
+- Your people are `capable` and courteous.
+- This is way beyond what we're `capable` of.
+- I knew what they were `capable` of, nothing.
+- "are not `capable` of love" is what you mean.
+- I know, i know, you're not `capable` of hope.
+- My psychiatrist knew what i was `capable` of.
+- Are they `capable` of faster than light travel?
+- A walking penis `capable` of intelligent speech.
+- He lost control and is `capable` of doing it again.
+- He's `capable` of causing you a lot of trouble, mr.
+- Do something they didn't know they were `capable` of?
+- He's fully `capable` of walking out of this hospital.
+- It is keeping a very `capable` thief off the street..
+- A man who isn't even `capable` of returning that love.
+- You'd be surprised what horrors a man is `capable` of.
+- I think you'll be surprised what edmund's `capable` of.
+- I never met anyone more--more intelligent--or `capable`.
+- People have no idea what the human mind is `capable` of.
+- What the hawkins police haven't been `capable` of doing.
+- Who's `capable` of sitting for hours at a time, i'm not.
+- A device `capable` of harnessing the power of the stones.
+- A laser `capable` of emitting a beam of pure anti-matter.
+- Bork, don't you realize what kids today are `capable` of?
+- They're the kind of people who are `capable` of anything.
+- Maybe even the worst of us is `capable` of one decent act.
+- Who would've thought he was `capable` of such atrocities?!
+- I know how ugly you can be -- you're `capable` of anything.
+- Moe, i never dreamed you were `capable` of such a sweet thing.
+- Better than anyone else, i am `capable` of stopping sid 6.7.
+- A lot of it you're simply not `capable` of understanding, not yet.
+- But i am certain of this, garland: i'm `capable` of more good work.
+- Don't we need a leader `capable` of guiding us through the seasons?
+- My family is quite `capable` of communicating with the queen in person.
+- That's good, because i don't think libbets is `capable` of the sex act.
+- I think every ] child is `capable` of being talented, ] happy, and great.
+- Mr. scott, are your engines `capable` of handling a minor training cruise?
+- I believe that sammy should be physically `capable` of making new memories.
+- There's no telling what this new anti semitic psycho santa is `capable` of.
+- Like al says..."under stress, the human body is `capable` of impossible feats.
+- I am `capable` of exceeding forty-seven meters per second... because you're it.
+- If we don't, dozens will be born, each one `capable` of laying eggs of its own.
+- If you don't know her that well what makes you think she's `capable` of murder?
+- I'm more than `capable` of separating feelings can you tell me what's going on?
+- It's hard for me to see stargher as human, `capable` of something like "remorse."
+- I am the only person `capable` of evaluating the performance of the gravity drive.
+- More than humans are currently `capable` of creating, mind you, foam lenny on fox!
+- I never would have thought you `capable` of such blatant disregard of store policy.
+- All i want you to promise me is that you're `capable` of being around linda and frank.
+- Because... because of what will happen if humans see what we are `capable` of becoming.
+- My on-board memory store is more than `capable` of handling all the mission requirements.
+                 

@@ -1,0 +1,107 @@
+---
+title: "stay in a sentence | stay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stay"
+---
+- Do you want to `stay`?
+- Everybody `stay` back.
+- Everybody `stay` calm.
+- I could `stay` and go.
+- I'll `stay` here also.
+- I'm gonna `stay` here.
+- I want to `stay` here.
+- I wish i could `stay`.
+- Jimmy, `stay` with me.
+- Just `stay` down here.
+- Just `stay` with them.
+- Let's `stay` in touch.
+- No, `stay` in the car.
+- Of course they `stay`.
+- Please, please `stay`.
+- Please `stay` with me.
+- Should we `stay` here?
+- Someone has to `stay`.
+- So...`stay` out of it.
+- `Stay` in him forever?
+- `Stay` out of the way!
+- `Stay` out of trouble.
+- `Stay` so damn strong.
+- `Stay` with us, emori.
+- Sure you won't `stay`?
+- They `stay` out of it.
+- Thought i'd `stay` in.
+- Where... can i `stay`?
+- You can't `stay` here.
+- You'll `stay` with me.
+- You `stay` in the car.
+- You `stay` right here.
+- You two `stay` inside.
+- You want me to `stay`?
+- `Stay` in the room.
+- Eve is going to `stay`.
+- Every moment we `stay`.
+- Got a reason to `stay`.
+- I'd like to `stay`, ma.
+- I don't want to `stay`.
+- I let him `stay` there.
+- I'll only `stay` a sec.
+- I'll `stay` with emori.
+- I'll `stay` with priya.
+- I need to `stay` awake.
+- Just enjoy your `stay`.
+- Just `stay` here, okay?
+- Just `stay` right here.
+- Just `stay` very still.
+- Let him `stay` up here.
+- No, let's `stay` on it.
+- No, well, `stay` there.
+- `Stay` calm, everyone!!
+- `Stay` put, goddamn it!
+- `Stay` with me, karina.
+- `Stay` with me tonight.
+- Then why do you `stay`?
+- They must `stay` sharp.
+- We came here to `stay`!
+- Where you gonna `stay`?
+- You asked me to `stay`.
+- You better `stay` here.
+- You can `stay` tonight.
+- You gotta `stay` alive.
+- You `stay` away, jenny.
+- You `stay` glued to me.
+- You `stay` out of this!
+- You `stay` with clarke.
+- `Stay` away from me.
+- But i'm going to `stay`.
+- Everybody `stay` calm...
+- How could i `stay` away?
+- How long can you `stay`?
+- I `stay` in my own yard.
+- Just `stay` there, nell!
+- Let's `stay` here, will.
+- Mom, `stay` out of this.
+- Newt, just `stay` still.
+- No, `stay` off the line!
+- `Stay` here, chancellor.
+- `Stay` out of the trees.
+- `Stay` out of your yard.
+- `Stay` the course, cage.
+- `Stay`, we'll just talk.
+- `Stay` with us, darling.
+- `Stay` with your family?
+- `Stay` with your mother.
+- The children can `stay`.
+- Then order me to `stay`.
+- Then why does he `stay`?
+- They can `stay` with me.
+- They'll `stay` with him.
+- To `stay` here in polis.
+- We can't... `stay` here.
+- We can't `stay` in here.
+- We can't `stay` up here.
+- You have to `stay` calm.
+- You need to `stay` busy?
+- Abby, `stay` with murphy.
+- Do you want me to `stay`?
+                 

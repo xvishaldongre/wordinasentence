@@ -1,0 +1,107 @@
+---
+title: "played in a sentence | played example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "played"
+---
+- He `played` john wayne.
+- We `played` backgammon?
+- I never `played` better!
+- I never `played` tennis.
+- I `played` gregory lutz.
+- Only `played` morrissey.
+- `Played` the radio loud.
+- They `played` it for me.
+- I just `played` with her.
+- You `played` for the sox?
+- Well he `played` it smart.
+- You got `played`, so what?
+- I mean completely `played`.
+- I never `played` for winos.
+- I `played` that game, bert.
+- `Played` the part too well.
+- Remember what you `played`?
+- I have `played` a few times.
+- She's never `played` before.
+- You never `played` a violin.
+- But you `played` the big con.
+- I never `played` fort sumter.
+- The facts are i got `played`.
+- You `played` it cool, though.
+- And we `played` right into it.
+- First time i ever `played` it.
+- Or a g flat that you `played`?
+- The one who `played` his wife.
+- We already `played` that game.
+- Have you `played` the game yet?
+- I never `played` a jewel thief.
+- I've never `played` this before.
+- They `played` beethoven, wagner.
+- You think he `played` it square?
+- I `played` piano in a few places.
+- I got tired of being `played` with.
+- My shows've only `played` new york.
+- Right after we `played` backgammon.
+- Roth `played` this one beautifully.
+- You ever `played` billiards before?
+- I thought you `played` by the rules.
+- Look, i've `played` out every angle.
+- You `played` his wife so well, judy!
+- You `played` the big con since then.
+- Any game worthy of being `played` is.
+- Frequently `played`, seldom remarked.
+- He hasn't `played` it in a long time.
+- I haven't `played` since i was a kid.
+- I `played` vladimir in "godot" twice.
+- Now then... we all `played` the field.
+- We `played` down in jackson yesterday.
+- With music `played` on a pennywhistle.
+- Guess we shoulda `played` by the rules.
+- I `played` base guitar for pat benatar.
+- "losers," who `played` games of chance.
+- When she `played` the crystal ballroom.
+- That's the way the game is `played`.
+- I `played` the cards i was dealt, wyatt.
+- I should have `played` the record first.
+- It's where i hid every time we `played`.
+- Same way grace `played` us this morning.
+- All three of us `played` for our schools.
+- He even `played` golf with the president.
+- I ain't never `played` a banjo in my life.
+- In my head i `played` it a thousand times.
+- Okay, so they `played` on your insecurity.
+- That's not how pop would have `played` it.
+- We just `played` in the championship game.
+- Will you wait until the chump is `played`?
+- But the gods `played` a little trick on me.
+- He `played` rachmaninov's vocalize opus 34.
+- Thought you said you never `played` before?
+- You used to know how the game was `played`.
+- I `played` charmaine - with a french accent.
+- Over three years we `played` twelve matches.
+- You know, back in hungary, i `played` romeo!
+- You `played` an interesting game last night.
+- It's where i hid every time that we `played`.
+- You `played` it perfectly, sir -- cocksucker!
+- You've `played` billiards before, mr. felson.
+- That little farce you `played` with my sister.
+- It doesn't matter how much we're `played` with.
+- Have you ever `played` the consulting detective?
+- Clarke gets the shield down "who `played` batman.
+- If it `played` in england somebody owes me money.
+- When's the last time we `played` a wedding, jack?
+- Data... haven't you ever just `played`... for fun?
+- Just a fucked-up guy who `played` beautiful music.
+- That little farce you `played` out with my sister.
+- We've `played` with each other, pushed each other.
+- When she `played`, it was... how did you meet her?
+- You probably don't remember the night we `played`.
+- Here's marge with the actress who `played` her.
+- Do you remember the first time i `played` you this?
+- I play the tuba� he `played` in the town band, too.
+- Well, i `played` a mean harmonica as a younger man.
+- You `played` it for her and you can play it for me.
+- Sheila told me you `played` bouncy- bouncy with her.
+- You saw the way she `played` this afternoon, edward.
+- But i ain't gonna be `played` like no trick, neither.
+                 

@@ -1,0 +1,57 @@
+---
+title: "Gary in a sentence | Gary example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Gary"
+---
+- One day `gary` was there.
+- Another caucasian, `gary`.
+- To tie it all in to `gary`.
+- `Gary` blinker's fulla shit!
+- `Gary` or john or something.
+- `Gary` says triple homicide?
+- `Gary`, i -- oh, that's right.
+- Friends like these, huh `gary`.
+- `Gary`'s not into fiber optics.
+- So it's a little bit... `gary`.
+- Thanks for stopping by, `gary`.
+- Are we talking about `gary` boyd?
+- It's `gary` you're talking about.
+- `Gary` knows i'm close on skywire.
+- `Gary`, how we doing, big stallion?
+- `Gary` blinker... who told you that?
+- I'd have to get into `gary`'s house.
+- We didn't get into that with `gary`.
+- What do you do for a living, `gary`?
+- Hey, `gary`, how's the divorce comin'?
+- Our monster would be `gary` cooper.
+- I thought `gary` boyd was the greatest.
+- I've been putting my own guilt on `gary`.
+- `Gary` cooper, james stewart, henry fonda?
+- Must have been `gary` at the hitching post.
+- Screw you... `gary`, you're quite an animal.
+- You should see what they did to poor `gary`.
+- Ok `gary`, we call each other kenny, all right?
+- Thanks, `gary`...take care, man, i gotta get back.
+- But `gary`'s tied-in to a lot of media conglomerates.
+- You sure `gary`'s got this whole party deal together?
+- We tried the big vaporware number, `gary`, it's no-sale.
+- Plus every time i get jammed-up, `gary` has an inspiration.
+- There're so many disinformation sites about `gary` already.
+- `Gary` and celeste, jesus, what do they know about anything?
+- That was `gary` cooper, shithead... nein, dies ein ist mein.
+- So, `gary`, tell me about these troopers that brought in will.
+- Yeah...i remember my brother-in-law `gary`, the wheel watcher.
+- `Gary`, don't worry, we -- help me change the skywire settings.
+- Those men from state, they... they sent `gary` home last night.
+- Time-warner has a 40 per cent stake in `gary`'s set-top device.
+- They did 14 grand in evanston, 16.5 is `gary`, and 20 in cicero.
+- Well, everything's been a bit chaotic around here without `gary`.
+- You know i -- i went to see the skywire model in `gary`'s office.
+- The weird thing is, my fantasy he could somehow be like the old `gary`?
+- On the other hand, we just learned `gary` boyd owns the skywire satellites.
+- Plus, he has a tendency to get `gary` mixed-up with his dad once in a while.
+- Dressed up like a million dollar trouper trying hard to look like `gary` cooper.
+- Just pray the last set of coordinates milo sent me connected us to `gary`'s satellite.
+- I don't get it, but at least `gary`'s got the real stuff coming up here in a few minutes.
+                 

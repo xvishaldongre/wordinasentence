@@ -1,0 +1,7 @@
+---
+title: "typesetter in a sentence | typesetter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "typesetter"
+---
+## Unfortunately, we have no example sentences for typesetter                 

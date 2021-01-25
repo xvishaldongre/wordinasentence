@@ -1,0 +1,107 @@
+---
+title: "George in a sentence | George example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "George"
+---
+- Clair, `george` clair!
+- Don't worry, `george`.
+- `George` can drive us.
+- I'm married, `george`.
+- I'm sorry, `george`...
+- Oh, come on, `george`.
+- Or `george` jefferson.
+- You hurt me, `george`.
+- You're late, `george`.
+- `George` asked her out!
+- `George` - do you mind?
+- `George` sanford brown.
+- `George` will, i think.
+- I like `george` bailey.
+- I think `george` knows.
+- I understand, `george`.
+- Or, `george` jefferson?
+- When is that, `george`?
+- You're wrong, `george`.
+- `George`, this is drama.
+- `George` zipp said that?
+- Greetings, mr. `george`.
+- Hidden talents `george`.
+- Oh, no, `george`, don't.
+- This is `george` bailey!
+- Time is money, `george`.
+- To mister `george` jung.
+- Welcome, `george` bryan!
+- We're going to `george`.
+- Which is what, `george`?
+- Are you `george` sherman?
+- Don't be stupid `george`.
+- `George`, i hate sitcoms.
+- Happy birthday, `george`.
+- I'm very tired, `george`.
+- Is this `george` shapiro?
+- It's all right, `george`.
+- It was perfect, `george`.
+- Oh, yes, `george` bailey.
+- We're upstairs, `george`.
+- Christ almighty, `george`.
+- Don't be stupid, `george`.
+- Fuckin' indians, `george`.
+- `George` sarton said that.
+- He is an island, `george`.
+- He's going down, `george`.
+- My name's `george` bailey.
+- My name's `george` kovich.
+- Open your mouth, `george`.
+- Screw `george` washington!
+- Screw `george` washington.
+- Shermin... hello `george`.
+- Some other time, `george`.
+- Townsend: `george` kaplan?
+- We started this, `george`.
+- What do you mean `george`?
+- What'd you wish, `george`?
+- You can't leave, `george`.
+- `George`, he wasn't asking.
+- `George`, now cut this out.
+- I saw the ad at `george`�s.
+- Oh, jesus christ, `george`.
+- This is bullshit, `george`.
+- Well, let's roll, `george`.
+- What do you want, `george`?
+- You coming later, `george`?
+- Don't bullshit me, `george`.
+- Don't count on me, `george`.
+- Do you know `george` winton?
+- How are you doing, `george`?
+- I don't know, `george`, why?
+- I don't like it, `george`...
+- It is; we need you `george`.
+- Putting on `george`'s boots.
+- The fuck you care, `george`?
+- There is no `george` bailey.
+- Uh, uh, `george`, pull over.
+- What do you think, `george`?
+- What's the matter, `george`?
+- What's this about, `george`?
+- You're a good man, `george`.
+- You're cheating on `george`?
+- `George` bailey lassos stork.
+- `George`, kristina hates you.
+- `George`... what did you say?
+- Hello, `george`, how are you?
+- I'll call `george`'s parents.
+- Is there a problem, `george`?
+- Oh, `george`, `george`, `george`.
+- Well, `george`, who were you?
+- Do you have a dream, `george`?
+- `George`, c'mon -- lighten up.
+- `George`... how about felicia?
+- `George`, where have you been?
+- I know, `george`, i was there.
+- I'm not going to go, `george`.
+- It's two-point-five, `george`.
+- It's what i believe, `george`.
+- I would not do that, `george`.
+- This ain't `george`'s doing--!
+                 

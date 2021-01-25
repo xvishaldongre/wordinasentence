@@ -1,0 +1,51 @@
+---
+title: "properly in a sentence | properly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "properly"
+---
+- Dealt with `properly`.
+- Really do it `properly`.
+- Can i pay you `properly`?
+- `Properly` arranged, yes.
+- Place the checks `properly`.
+- We haven't, uh, `properly` met.
+- You are not dressed `properly`.
+- You're not doing it `properly`.
+- `Properly` motivated, of course.
+- We can arrange to meet `properly`.
+- Let's kill him `properly` this time.
+- They are not functioning `properly`.
+- We were never `properly` introduced.
+- Then you acted `properly`, of course.
+- You simply haven't looked `properly`.
+- I'll * show you the marshes `properly`.
+- Perhaps if i were `properly` motivated.
+- Your brain doesn't function `properly`.
+- Pick that up and put it down `properly`.
+- Stand up so that we can talk `properly`.
+- If we could cast it `properly`, that is...
+- I never had a moment to thank you `properly`.
+- Worshipping, schwartz, worshipping `properly`.
+- Just to say goodbye in the daylight, `properly`?
+- `Properly` conveyed the urgency of our situation.
+- Wouldn't it more `properly` be done in your office?
+- That's your trouble, maggie, you don't eat `properly`.
+- I, uh, i don't believe we've been `properly` introduced.
+- This appears -- i say appears -- to be `properly` drawn.
+- I never apologized `properly` for what happened on "sunrise".
+- That's because you haven't been `properly`... stimulated yet.
+- That, my dear friends, is the day... not `properly` watered.
+- Then of course i couldn't� i couldn't even do that `properly`.
+- Now run along like a good boy and see that you wash up `properly`.
+- No, they were prescription, so i could see all the fishes `properly`.
+- When used `properly`, right below madi on his list of priorities, uh!
+- I prefer not to push the engines until they've been `properly` run in.
+- Why wasn't this patient `properly` admitted, and why is he in isolation?
+- Yeah, that cigarette ain't hard to find when you're `properly` undressed.
+- He has them so often that that's why he hasn't learned to speak `properly`.
+- If equipment is functioning `properly`, indications are -- an animal life form.
+- I've decided it's impossible to `properly` say hello in this place without a hat.
+- I will make sure you are `properly` taught, with music written on to sheets and...
+- If you don't answer our questions `properly`, your refusal will be taken into account.
+                 

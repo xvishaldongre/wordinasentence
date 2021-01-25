@@ -1,0 +1,107 @@
+---
+title: "roll in a sentence | roll example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "roll"
+---
+- Guess i'm on a `roll`.
+- It's a victory `roll`.
+- Let's rock 'n' `roll`.
+- Prepare to `roll` out.
+- `Roll` up your sleeve.
+- I had a `roll` of film.
+- I like rock and `roll`.
+- They don't `roll` down.
+- You know rock-n-`roll`?
+- Light smoke, low `roll`.
+- Ages will `roll`... ages.
+- How goes the `roll` call?
+- Let's `roll`, good buddy.
+- You're on a `roll` kiddo.
+- I'll just `roll` over you.
+- No bank `roll` there, boy.
+- Tow words, man: `roll` on.
+- `Roll` up your sleeves.
+- I dunno... cinnamon `roll`?
+- The `roll`, it was a seven.
+- We get the call, we `roll`.
+- Well, let's `roll`, george.
+- Can't `roll` the dice on it.
+- C'mon let's rock an' `roll`.
+- Grab yourself an egg `roll`.
+- `Roll` right off the trucks.
+- To initiate `roll` maneuver.
+- Well, let's rock and `roll`.
+- We `roll` with this problem.
+- `Roll` up your sleeve, chief.
+- How about a `roll` in the hay?
+- I can't `roll` the dice again.
+- I'm just gonna `roll` over ya.
+- We just `roll` on out of here!
+- Try the spicy tuna hand `roll`.
+- You want to `roll` them for me?
+- Ice, `roll` off, i can shoot him.
+- It's your dirty `roll`, cheswick.
+- We've been on a heck of a `roll`.
+- You can't `roll` a joint in here!
+- I'd have to `roll` a 13 or higher!
+- I'm gonna `roll` him off the hood.
+- Let's eat pasta and `roll` around.
+- Twenty-five by five, `roll` seven.
+- How come there's no rock 'n `roll`?
+- You feel the `roll` of those balls.
+- You're ready to rock and `roll`.
+- Darling, i'd say you're on a `roll`.
+- The clouds `roll` in like clockwork.
+- You get it right, we `roll` with it.
+- At fifteen em-pee-aitch i `roll` out!
+- Fine, then just `roll` over yourself.
+- But it doesn't always `roll` that way.
+- Did you ever have a `roll` in the hay?
+- Look at us, two rock 'n' `roll` dicks.
+- Let's `roll` - fine... find out for me.
+- After we `roll` up abby, we go for shaw.
+- Aw, find yourself a shoplifter to `roll`.
+- Bus is all gassed up and ready to `roll`.
+- `Roll` it around your tongue for a years.
+- I believe in you, me, and rock and `roll`.
+- Remember to `roll` his balls around a bit.
+- Sometimes i feel like i'm... let's `roll`.
+- There's some people i'd like to `roll` on.
+- If i could just have a `roll`, i'd be okay.
+- Jack open the door, let the package `roll`.
+- I could have it sent out... cinnamon `roll`?
+- Sure thing, and -- ready to `roll`, partner?
+- Um, okay... `roll` camera what's to protect?
+- If she can walk, crawl or `roll` - she plays.
+- No.... and you never heard of rock 'n `roll`?
+- Rock & `roll` hall of fame with no pearl jam!
+- She fucks fighters and rock and `roll` stars.
+- How come you don't `roll` on saturday, walter?
+- In case i ever need to `roll` over on somebody.
+- Might find someone's prick in a hot-dog `roll`.
+- You think maxie doesn't want us to `roll` hard?
+- Sometimes shit happens, you gotta `roll` with it.
+- Or putting your chairs back... you're on a `roll`.
+- I can give you an english muffin or a coffee `roll`.
+- I'm on their blacklist already, their `roll` of honor.
+- He has plenty of tobacco, but no paper to `roll` it in.
+- Clarke says when that happens to `roll` him on his side.
+- We gotta `roll`, stevie... -- i'm busy goddamn it, okay?
+- You know, like weird 1960's indian rock n' `roll` music.
+- Okay, we got a straight shot to t town, so let her `roll`.
+- She thinks it's nothing but sex, drugs, and rock & `roll`.
+- I'm telling you that was the best time for rock and `roll`.
+- Scruffy young lads, lacking even the price of a jam `roll`.
+- The fucking point is-- it's your `roll`-- have it your way.
+- Do me a favor and `roll` it around for a bit on your way in.
+- How many times in your life do you get to do a victory `roll`?
+- Stick your finger in the hole, and out comes a tootsie `roll`!'
+- He didn't remember to `roll` up his window... "dat's gotta hurt!"
+- Now, drum `roll` please... we�re hoping for the death penalty.
+- Give me three men, if i'm wrong, i can still `roll` up that flank.
+- I say we `roll` them in there and nerve gas the whole fucking nest.
+- Just 'cause it's rock 'n `roll`, doesn't mean it's be set in stone.
+- Steve and me, we use a saddle for a pillow and `roll` up in a tarp.
+- Hey, troops, here's that rock 'n' `roll` detective i told you about.
+                 

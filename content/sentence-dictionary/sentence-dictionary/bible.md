@@ -1,0 +1,72 @@
+---
+title: "bible in a sentence | bible example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bible"
+---
+- No, no `bible` readers.
+- Not <u>the</u> `bible`?
+- What's the `bible` for?
+- Yeah, we got a `bible`.
+- Probably in the `bible`.
+- It's in the `bible`, see.
+- The `bible`'s one of 'em.
+- There's the `bible` story.
+- You ever read the `bible`?
+- Discipline and the `bible`.
+- We're having roast `bible`.
+- You believe in the `bible`?
+- `Bible` tells you that much.
+- Why would you burn a `bible`?
+- She's reading the `bible`.
+- Would you condemn the `bible`?
+- I was quoting from the `bible`.
+- Lecktor wasn't using a `bible`.
+- ...mind if i hold that `bible`?
+- Parts of the `bible` are great.
+- What do you need a `bible` for?
+- So, let us turn to that `bible`.
+- Pick up your clothes and `bible`.
+- You've just inherited the `bible`.
+- Have you ever heard of the `bible`?
+- Have you read the `bible`, garland?
+- You must swear by the holy `bible`.
+- Kane i cain -- like the `bible` guy?
+- Well... because it's in the `bible`.
+- And read the `bible` a little bit closer.
+- I'll offer up my `bible` for a small fee.
+- Daddy says the `bible`'s a load of bunkum!
+- Queen esther from the `bible`, or st. joan?
+- You must have a `bible` in here, don't cha?
+- One of his daddy's `bible` lessons i imagine.
+- The `bible` says two men ort not lay together.
+- You ever hear of something called the `bible`?
+- The `bible` said, "a child shall lead them."
+- Lisa marie simpson, are you reading the `bible`?
+- Reverend, you're very concerned with the `bible`.
+- But then he disappears for the length of a `bible`.
+- Father would not approve, lest it were the `bible`.
+- I just want to say, rot in hell, `bible` burner.
+- Like the `bible` sez, ya don't get no second chance.
+- The `bible` says not to or you end up goin' to hades.
+- `Bible` says the same thing about killin' others, too.
+- I'd lay my hand on the `bible` and say the same thing.
+- From-the-movie-mary-brown, trailer park `bible` psycho?
+- Your report's become our `bible` down here, dr. johnson.
+- I saw how people were using the `bible` to divide and exclude.
+- The `bible` only says don't seethe a kid in its mother's milk.
+- We have a `bible` study meeting tonight if you'd like to come.
+- But after you took the `bible` out of the drake hotel in chicago.
+- Hey, you been sneaking some reading outside the frigging `bible`!
+- Start with the `bible`; it's cheerier, and more artfully written.
+- But, his father made sure that his mother knew what the `bible` said.
+- Harold may have lost touch with his `bible`, but thou must never lapse.
+- But if he ever chooses sides against the clan again, he burned the `bible`.
+- [the `bible` says, "be not overcome of evil, but overcome evil with good."]
+- Then we was beat up by a `bible` salesman and banished from woolworth's.
+- It's sort of like the `bible` for what they're trying to do in computer crime.
+- Besides, like the `bible` says... an eye for an eye... geez, i feel bad for him.
+- In the `bible` stories you read to us, everybody's always goin' on a long journey.
+- Swear to god, on the `bible`, you won't try to escape and you'll get us across the border.
+- The saxophone runs off with a `bible` salesman, and the bass fiddle gets herself pregnant.
+                 

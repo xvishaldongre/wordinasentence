@@ -1,0 +1,81 @@
+---
+title: "tour in a sentence | tour example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tour"
+---
+- Speed of sound `tour`.
+- Thanks for the `tour`.
+- You bowl on the `tour`.
+- We're here for a `tour`.
+- Would you like a `tour`?
+- It's her first `tour`.
+- Enjoying the `tour` so far?
+- Ready for a walking `tour`?
+- I'll get you a great `tour`.
+- Theo's bowled on the `tour`.
+- We're gonna take the `tour`.
+- You gotta get another `tour`.
+- Do you wanna `tour` the clubs?
+- Ray, start the `tour` program.
+- I'll give you the royal `tour`.
+- I'm not on the `tour` this year.
+- Joe, you'll be the `tour` guide.
+- Thank you for the `tour`, wally.
+- How 'bout giving me "the `tour`"?
+- I'll see you get a proper `tour`.
+- Just a routine inspection `tour`.
+- So how much for our first `tour`.
+- ... would you take me on a `tour`?
+- Save it, i already took the `tour`.
+- Hey, ain't i seen you on the `tour`?
+- I'm supposed to give you the `tour`.
+- Well, i'll give you the dime `tour`.
+- I don't need the stinking pro-`tour`.
+- I will take you on a `tour` let's go.
+- Jack should come out on `tour` with me.
+- Make up for what you lost on the `tour`.
+- You also follow the pro cornhole `tour`?
+- He wants to send you on a lecture `tour`.
+- I'm the first stop on the apology `tour`?
+- That you can take jack on `tour` with you.
+- We do a `tour` of duty and we're finished.
+- Well, just until i get my pga `tour` card.
+- What are you guys, taking an all-night `tour`?
+- Hey, if people pay to send me on my `tour` help!
+- Whatever made you want to do a `tour` down here?
+- Well, so much for the `tour` of our humble plant.
+- I thought you could give us the `tour` this morning.
+- You know why the grateful dead are always on `tour`?
+- You're dead without the pro-`tour`, and you know it.
+- Try to get another `tour`....you're following gruner?
+- We had a busload of retired folks in on a wine `tour`.
+- Did that porcupine say he'd get you back on the `tour`?
+- I'll give you a `tour` of the building, then we'll talk.
+- We're going to have to cut the `tour` short, i'm afraid.
+- It feels like i've been on a cook's `tour`[18] some place.
+- I'm flattered, but i've taken this little adventure `tour`.
+- Everybody in corporate training serves a `tour` on the line.
+- I'm embarking on another bus- and�truck `tour` of "dracula."
+- If you can't make that happen, then fucking cancel the `tour`.
+- They laid on a `tour` for tomorrow a.m. told me to wear a tie.
+- Why don't ya take rose on a little `tour` of our facilities...
+- If he's looking for a flaw in the system -- so give him a `tour`.
+- I thought you'd be off on `tour`, playing london, paris, new york?
+- Make sure to check in with max, he'll give you the 25 cent `tour`.
+- I'm going with the patrol boat to make a `tour` around the islands.
+- You know how long i've been begging to take you on the wine `tour`.
+- I'm sorry danny, but i'll have to give you the full `tour` later on.
+- You might wanna go there for some r and r after a `tour` on pandora.
+- Listen, in two days i'm embarking on a `tour` of the western territories.
+- I went on a `tour` once of the finest single malt distillery in the world.
+- And, if you'd like we can take you for a `tour` of the front at first light.
+- Then get yourself a crew... tell me... are you considering a comeback `tour`?
+- Another day in paradise with julie-your-`tour`-director...miss psychotic episode.
+- We're gonna cancel the rest of the `tour`, and i'm just gonna be here all summer.
+- Thank you for the guided `tour`, but would you mind telling me what we�re doing here?
+- I'll `tour` a year with this one, anything - only you do understand - don't you, lloyd?
+- Somehow during the `tour`, she came into possession of a prototype transmitting device.
+- Then our friend ahab continues down the river to the ocean and begins his world `tour`.
+- Well, on the `tour` - - the film said they used frog dna to fill in the gene sequence gaps.
+                 

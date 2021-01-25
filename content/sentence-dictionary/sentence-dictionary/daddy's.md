@@ -1,0 +1,55 @@
+---
+title: "daddy's in a sentence | daddy's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "daddy's"
+---
+- `daddy's` an elephant.
+- `daddy's` little angel.
+- `daddy's` not with you.
+- It was `daddy's` dream.
+- Anthony, `daddy's` busy.
+- But `daddy's` super sick!
+- It's his `daddy's` fault.
+- She used `daddy's` razor.
+- He even got my `daddy's` watch.
+- Not right now, `daddy's` asleep.
+- I'll bet `daddy's` mad at me now.
+- 'cause he knows your `daddy's` name?
+- I used to play on my `daddy's` farm.
+- You still have your `daddy's` watch?
+- `daddy's` died and gone to heaven, eh?
+- `daddy's` gonna get the rainman suite.
+- `daddy's` not coming back...he's dead.
+- `daddy's` last body so we can be alone.
+- My `daddy's` s'posed to be around still.
+- Why, 'cause he knows your `daddy's` name?
+- `daddy's` gonna get her to bring a friend.
+- He was a business partner of my `daddy's`?
+- Why does rachel wear `daddy's` underpants?
+- `daddy's` going to buy you a hunk of cheese!
+- Well, i know what my `daddy's` going to say.
+- One of his `daddy's` bible lessons i imagine.
+- See, her `daddy's` a dentist so they're rich.
+- You think `daddy's` gonna let me go anywhere?
+- This is about your `daddy's` last case, right?
+- You're never too old to sit on `daddy's` knee.
+- Nathan lee morgan... what's your `daddy's` name?
+- Kevin's gone, your `daddy's` gone, everybody's gone.
+- Will you at least call and make sure `daddy's` okay?
+- Oh, well, what, what's he... `daddy's` very ill. what?
+- `daddy's` gone where rudolf went and isn't coming back!
+- Paxcow says `daddy's` going to do something really bad.
+- Come on, maggie, get on `daddy's` wap and take the wheel.
+- `daddy's` offered me jobs at some of his other companies.
+- Scott, i want you to meet `daddy's` nemesis, austin powers.
+- Remember everybody, tonight, dinner in the city at `daddy's`.
+- You'll be in `daddy's` law firm as sure as i'm standing here.
+- Your `daddy's` still livin' down there from what you told me.
+- No, i'm gonna kill him -- he's got my `daddy's` watch, claude.
+- Tina, i dedicated a record on mister se�or love `daddy's` show to you.
+- In one of `daddy's` clubs there was this black cocktail waitress named elois.
+- A little bullshit about `daddy's` "needs," and presto, i'm a lap dog in high society.
+- `daddy's` not coming back, she's in the middle of a divorce, it's just the two of them.
+- Besides, `daddy's` still trying to figure out how to get his new television set working.
+                 

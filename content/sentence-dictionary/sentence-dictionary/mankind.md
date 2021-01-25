@@ -1,0 +1,58 @@
+---
+title: "mankind in a sentence | mankind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mankind"
+---
+- The fate of `mankind`.
+- `Mankind` could go home.
+- `Mankind` is going home.
+- Instead of all `mankind`.
+- For all `mankind`... heda.
+- For the good of `mankind`.
+- [crying] for all `mankind`.
+- Indeed for `mankind` itself.
+- Octavia... for all `mankind`!
+- Are the last hope of `mankind`.
+- It is `mankind`, rather, who...
+- For all `mankind`, that's great.
+- What do you do for `mankind`?
+- My love for all `mankind`, blake!
+- The cow says... for all `mankind`.
+- When `mankind` comes to its senses.
+- The universal language of `mankind`.
+- We are talking about `mankind` here.
+- You take the test for all `mankind`.
+- And we are the last hope of `mankind`.
+- As we fight this fight for all `mankind`!
+- Ready to serve `mankind` in the last war.
+- And we will be victorious for all `mankind`!
+- You swore an oath to fight for all `mankind`.
+- But everything has changed, for all `mankind`.
+- Careful, big brother, `mankind` could go home.
+- I do the shepherd's bidding for all `mankind`.
+- The shepherd brings us love for all `mankind`.
+- In the light of the shepherd for all `mankind`.
+- In the shadow of the shepherd for all `mankind`.
+- One of the 14 research outposts for all `mankind`!
+- This woman is `mankind`'s most precious possession!
+- `Mankind` will finally be free of pain welcome back.
+- Knowing `mankind` as i do, that could take centuries!
+- We are the last of the human race, "for all `mankind`."
+- In the shadow of the shepherd for all `mankind`, _ hit me.
+- I will do everything you say, i promise, for all `mankind`!
+- Class one quarantine protocols are now... for all `mankind`.
+- Now, lisa, to winning the last war `mankind` will ever wage.
+- We emp'd the chip in the light of the shepherd for all `mankind`.
+- Once you have frozen `mankind`, my mutants will overrun the globe.
+- "`mankind` is born free, but everywhere he is in chains..." really?
+- Imagine `mankind` exploring new solar systems, colonizing new worlds.
+- I write of the great, eternal truths that bind together all `mankind`!
+- And we are the last hope of `mankind`, and whoever wins gets the bunker.
+- In the shadow of the shepherd for all `mankind`, it's not bullshit, mike.
+- Dr. venkman, we believe that the purpose of science is to serve `mankind`.
+- In the shadow of the shepherd for all `mankind`, kom falau oso na gyon op.
+- For `mankind` not a thing -- for womankind the record is not quite so bleak.
+- Pike doesn't have a safe, so-- i don't know what i would do, for all `mankind`.
+- I need to touch it to "see"... oh, right -- rotten eggs and the safety of `mankind`.
+                 

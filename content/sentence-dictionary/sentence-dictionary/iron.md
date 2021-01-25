@@ -1,0 +1,55 @@
+---
+title: "iron in a sentence | iron example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "iron"
+---
+- Remember old cat `iron`?
+- `Iron` patriot on the job.
+- It's "`iron` patriot" now.
+- That's... is that `iron` man?
+- Which is next, `iron` springs?
+- (gruffly) "i am `iron` patriot!"
+- There were wrinkles to `iron` out.
+- It's just a hunk of peasant `iron`.
+- You were the man in the `iron` mask.
+- All guns are outlawed in `iron` city.
+- With an `iron` penis three feet long.
+- Yeah, let's try there, `iron` springs.
+- I heard you are the hero of `iron` city.
+- You have had to rule with an `iron` hand.
+- They also renamed him, "`iron` patriot.
+- I can't believe this is the `iron` curtain.
+- That is so much better than "`iron` patriot."
+- What are you doin' with that piece of `iron`?
+- No, there's another point i want to `iron` out.
+- That great big `iron` man was moving around!
+- I got a tire `iron` right where i can get at it.
+- I'm not trusting my future to a piece of `iron`.
+- Chiren and i were forced to descend to `iron` city.
+- Pungent, with just an irrepressible hint of `iron`.
+- Since i got a `iron` pipe put across my knees, man.
+- They're using the `iron` patriot as a trojan horse.
+- Down here we have `iron` city with all its charm.
+- `Iron` city is no place for an innocent, little flea.
+- To the champion of the `iron` horseshoe, jabez stone!
+- I been in `iron` mountain for two years, truck driver.
+- You know, in life you gotta strike when the `iron`'s hot.
+- A large `iron` rod was driven completely through his head.
+- That slab was engineered by an `iron`-age culture at best.
+- You can't expect to `iron` out all the kinks in one night.
+- Your grandfather had one `iron` rule that's stood me well.
+- He's got the best doctor in the world and a will of `iron`.
+- Through the power of the simple word have you seen 'pumping `iron`?'
+- You have a heart strong enough to power all of `iron` city for years.
+- Ringo, me old scout, they grabbed yer leg for the `iron` too, did they?
+- There are a few people back home i'd like to put under a red hot `iron`.
+- I'm even talkin' hellholes, where the warden's as hard as a bar of `iron`.
+- The killer knocks the knife out of her hand with the wrought-`iron` poker.
+- Bullshit, a twenty-two doesn't carry a one-`iron` -- don't sandbag me, lady.
+- I want to put some `iron` into that big yap... what's that supposed to prove?
+- 'we will remove the `iron` stove -- the one that was camouflaging the trap door.'
+- I've found out there are these two young men who fix the situation with an `iron` fist.
+- I'm sorry if it gets noisy -- as a matter of fact, you must be an `iron` man all around.
+- Two men of similar height dropped this guy down, each put some `iron` to his head and boom!
+                 

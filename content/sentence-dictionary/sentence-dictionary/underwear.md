@@ -1,0 +1,56 @@
+---
+title: "underwear in a sentence | underwear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "underwear"
+---
+- I'm in my `underwear`.
+- In homer's `underwear`.
+- I was in my `underwear`.
+- I'm not wearing `underwear`.
+- I'm in my fucking `underwear`.
+- I still have your `underwear`.
+- I'm not wearing any `underwear`!
+- We are wearing long `underwear`.
+- We forgot to buy you `underwear`.
+- Do you own any colored `underwear`?
+- You're not wearing any `underwear`.
+- What color `underwear` am i wearing?
+- I hope you have on clean `underwear`.
+- And barfing into your own `underwear`.
+- A lot of people don't wear `underwear`.
+- 'cos i know you wear purple `underwear`.
+- I went out in my goddamn `underwear` too.
+- She found cockroaches in dell's `underwear`.
+- You must not run around in your `underwear`.
+- Well this guy wasn't wearing any `underwear`.
+- Then you go out in your goddamn `underwear`.
+- What do i need overpriced fancy `underwear` for?
+- I cannot take orders from that `underwear` model.
+- I wouldn't dream of breaking your `underwear` rule.
+- Sometimes my food, and my clothes, and my `underwear`.
+- Later on, we make her wear her `underwear` on her head.
+- You must wear long-sleeved and long-legged `underwear`.
+- After that he'll tell ya if he wears ladies `underwear`.
+- There she goes, now wearing nothing but her `underwear`.
+- Oh my gosh, i don't think she's even wearing `underwear`!
+- Who cleans the floor and washes your goddamn `underwear`?
+- Suits, `underwear`, 100 million dollars...the usual stuff.
+- Francis, may i ask whether you wear warm winter `underwear`?
+- I should hate to see our country endangered by my `underwear`.
+- I had a date with mark davis and i even bought new `underwear`!
+- I'm about to get in your ass like last year's `underwear`, man.
+- You know i don't like to wear any `underwear`, don't you, nick?
+- It's `underwear`, so if you lose your clothes you'll still be decent.
+- But while you was buying the `underwear`, i could have lifted the socks.
+- If you've never kissed a guy, we got bigger problems than the `underwear`.
+- I've always said you were wasting your time in the `underwear` department.
+- Like sex crime victims, `underwear` inside-out, bound with electrical tape.
+- You make it sound i pawed through your priceless collection of `underwear`.
+- Mix up your laundry list and your grocery list, you'll be eating your `underwear`.
+- Look, doll, if i wanted `underwear`, i woulda broken into frederick's of hollywood.
+- Say "i'm wearing no `underwear`"--it'll be funny.. you do know you're evil, don't you?
+- But, you know, they're gonna keep their `underwear` on and they're not gonna do anything.
+- I heard he's wearing women's `underwear`--and he's breathing through his pingala nostril.
+- You know how moms always tell you to wear clean `underwear` in case you're in an accident?
+                 

@@ -1,0 +1,107 @@
+---
+title: "stick in a sentence | stick example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stick"
+---
+- `Stick` the soft soap.
+- `Stick` to data entry.
+- Well, `stick` with it.
+- It was `stick` figures.
+- `Stick` around, please?
+- `Stick` it in your leg.
+- `Stick` to the program.
+- `Stick` to the program?
+- We `stick` to the plan.
+- You `stick` with me.
+- Like this won't `stick`.
+- `Stick` it in the bag...
+- `Stick` out your tongue.
+- He retrieves the `stick`.
+- So just `stick` to these.
+- I'll `stick` close to you.
+- Not even a `stick` of gum.
+- Reaper `stick`, last dose.
+- She'll `stick` around too.
+- `Stick` a fork through me!
+- `Stick` a plug in it boyd.
+- I'll `stick` with loveless.
+- I need to `stick` with you.
+- We can `stick` to the plan.
+- We should `stick` together.
+- And chose to `stick` it out.
+- But it's never thai `stick`.
+- I always `stick` up for you.
+- I think i'll `stick` around.
+- Now `stick` your nose in it.
+- On the non-`stick` surfaces.
+- `Stick` around and find out.
+- I'm gonna `stick` with water.
+- I've got to `stick` by kit...
+- Now go find me a big `stick`.
+- `Stick` out your hands, jake.
+- `Stick` your cock up her ass!
+- Then `stick` with bialystock!
+- Give me a `stick`, pretty boy!
+- He was about to un-`stick` me!
+- I don't need you to "`stick`."
+- I gotta `stick` around here...
+- `Stick` around and you'll see.
+- Then we `stick` with the plan.
+- We `stick` together, huh, kid?
+- We've got to `stick` together.
+- It'd `stick` in my throat, mom.
+- No sir i'll `stick` with this .
+- Shall we, um, `stick` together?
+- `Stick` with me on this gloria.
+- We need to `stick` to the plan.
+- We `stick` in each others craw.
+- You'll never make that `stick`.
+- Just `stick` to the deal, johns.
+- She's got a `stick` up her butt.
+- `Stick` to the script, amateurs!
+- We `stick` out like sore thumbs.
+- Why should the sale not `stick`?
+- You can `stick` it up your arse.
+- You just got to `stick` with it.
+- You know how to drive a `stick`?
+- Do you want me to `stick` around?
+- Everyone, we `stick` to the plan.
+- I'm going to `stick` it out here.
+- I `stick` my neck out for nobody.
+- Jackson, i need a reaper `stick`.
+- Okay, makeup kit, selfie `stick`.
+- Pull on the goddamn `stick`, man!
+- Rudder's left, `stick`'s forward.
+- This is an anti-grounder `stick`.
+- We have to `stick` with the plan.
+- You just `stick` by old barbatus.
+- You make sure it doesn't `stick`.
+- Anya, we need to `stick` together.
+- I'd `stick` out like a sore thumb.
+- I'm the one's got the big `stick`.
+- So will you if you `stick` around.
+- `Stick` 'em in the bushes for now.
+- You just said `stick` to the plan!
+- Get that `stick` out of your mouth.
+- I loved every `stick` of furniture.
+- Kid's a bit of a `stick`, isn't he?
+- We've got to `stick` together, sam.
+- He is going to `stick` to one brand.
+- I don't wanna `stick` out my tongue.
+- I'm lucky to get a zucchini `stick`.
+- I think you should `stick` to sales.
+- Just `stick` it in the band-aid can.
+- Or can you `stick` it out for a bit?
+- Speak soft, and carry a big `stick`.
+- We better `stick` here till tonight.
+- Can we `stick` to that plan at least?
+- Huh, the old carrot and `stick`, huh?
+- `Stick` out your tongue and say "ah."
+- `Stick` strictly to the cash drawers.
+- Us kirby men, we `stick` around, huh?
+- Well, you `stick` to that story, son.
+- We should `stick` together out there.
+- Why don't you two `stick` to reality.
+- You two have to `stick` together now.
+                 

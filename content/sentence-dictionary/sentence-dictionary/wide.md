@@ -1,0 +1,67 @@
+---
+title: "wide in a sentence | wide example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wide"
+---
+- My double `wide` trailer.
+- None in the `wide` world.
+- Thought we'd swing `wide`.
+- A `wide` and varied palette.
+- His reach is far and `wide`.
+- Eight and a half feet `wide`!
+- Kind of goofy and `wide`-eyed.
+- See, we all begin `wide`-eyed.
+- Oh, i'm fine, i'm `wide` awake.
+- Start tight and then go `wide`.
+- You left your back `wide` open.
+- Do you think it's `wide` enough?
+- Into the great `wide` open, danny!
+- Get her off the ark-`wide` channel.
+- But i wasn't using the `wide` angle.
+- Yeah, but the margins are real `wide`.
+- * you wanta bust his head `wide` open?
+- He's gonna blow this thing `wide` open.
+- The door's `wide` open if you wanna go.
+- Leaving the other two doors `wide` open.
+- `Wide` cross-section of men to evaluate.
+- From now on i leave the door `wide` open.
+- It could be `wide` open for all he cared.
+- Transmit a `wide` band co-variant signal.
+- Clear the way, `wide` load coming through.
+- Pov, `wide`, and then... get this... medium.
+- She got ya nostrils, ya chnoz is `wide` open.
+- So all 3 northern passes will be `wide` open.
+- Be patient, for the world is broad and `wide`.
+- A ship-`wide` decompression has been initiated!
+- A `wide`-eyed youngster facing a chaotic world.
+- You're all i've got in the whole, `wide` world.
+- `Wide`-eyed romantics are an endangered species.
+- Cause now i'm gonna bust adrian's head `wide` open.
+- Nothing but a `wide` world o' pain locked in there.
+- There was a `wide`-brimmed cream fedora... of course.
+- If we were to go `wide` with a <u>shoe</u> as the fad.
+- I sleep like a baby for an hour then i'm `wide` awake.
+- Along with tomorrow - the first world-`wide` newspaper.
+- When that movie goes `wide` on every screen in creation.
+- You're a setup for some gorgeous `wide`-eyed young babe.
+- Give me a month and i'll blow their movement `wide` open.
+- Guards are double-strengthen and on alert station-`wide`.
+- But with streets that are `wide` enough i can fit in them.
+- I came out of the house and the fucking gate was `wide` open.
+- In that case, we'll need to make it a school-`wide` blow out.
+- This is not a thin trail, gentlemen, it is a very `wide` one.
+- Between that and the `wide` gauge it's gonna diminish your fps.
+- If you kept your ears `wide` open instead of your mouth� talk louder.
+- Well, you could make this table a little - uh - a little less `wide`.
+- No way -more- lets us watch each other's backs over a `wide` area.
+- What are you kidding her window's `wide` open... why don't you let me?
+- I'm a very light sleeper, traffic noise keeps me `wide` awake all night.
+- Well, except for the fact that it wasn't really as long as it was `wide`.
+- I want you to say that you're the biggest sissy in the whole `wide` world.
+- There was a time when this busi- ness had the eyes of the whole `wide` world.
+- Nice breeze, `wide` open spaces -- you know, i'm startin' to enjoy myself out here.
+- You need to find out what pike is up to your father's butt crack this case `wide` open.
+- You're on so much of it, you could be asleep and dreaming even with your eyes `wide` open.
+- Say: clarence, you are without a doubt, the dumbest motherfucker in the whole `wide` world.
+                 

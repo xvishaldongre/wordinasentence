@@ -1,0 +1,55 @@
+---
+title: "charges in a sentence | charges example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "charges"
+---
+- `Charges` got dropped.
+- What are the `charges`?
+- I am pressing `charges`!
+- No `charges` were filed.
+- Two more `charges` to go.
+- No `charges` were brought.
+- The carrying `charges`?
+- I'm not pressing `charges`.
+- Anything in these `charges`?
+- These are serious `charges`.
+- They're explosive `charges`.
+- That's what `charges` them up.
+- What happened on the `charges`?
+- Yes, i'll accept the `charges`.
+- There are no `charges` against you.
+- Would walter really press `charges`?
+- Long-term parking `charges` by the day.
+- Have you made any `charges` against him?
+- You may consider the `charges` dropped.
+- Coates and jones got `charges` a mile long.
+- He wants to add kidnapping to the `charges`.
+- Carrying `charges`, my boy, carrying `charges`.
+- If the guards did this, we can file `charges`.
+- They dropped the `charges`... did chloe crack?
+- He resigns under protest--denying all `charges`.
+- Several possession `charges`, but nothing major.
+- I talked your neighbor out of pressing `charges`.
+- Here's the list of all sheldon's credit `charges`.
+- Did you know he reversed the `charges` on that call?
+- You chose to press `charges` against my husband, uh!
+- We'll get the `charges` dropped and you can disappear.
+- You'd be surprised how much uber `charges` can add up.
+- Do you freely admit to the `charges` made against you ?
+- I thought you said you were innocent a those `charges`.
+- We'll just drop all your `charges`, then -- he's lying.
+- Before i file obstruction of justice `charges` against you.
+- You chose to include my daughter in those `charges`, coming, o.?
+- You're assuming the district attorney is going to file `charges`.
+- If he `charges`, i'll be yelling "go" which means drivers take off.
+- To bring him back here safely, cleared of all these false `charges`.
+- There were two `charges`, they were supposed to go off simultaneously.
+- Now, have you been read your rights and are you aware of the `charges`?
+- I'm filing `charges` against that mother- reilly, what're you doing here?
+- So there were two of these explosive `charges` placed on the power lines.
+- I'll have him rung up on malpractice `charges` so fast his head will spin.
+- As if by magic, `charges` against him are dropped, he's released from jail.
+- Elle's up in portland-- three of her `charges` left visibly at a trailblazers game.
+- If you work for us we will drop the `charges` and you can go back to your normal life.
+                 

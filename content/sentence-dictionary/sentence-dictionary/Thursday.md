@@ -1,0 +1,80 @@
+---
+title: "Thursday in a sentence | Thursday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Thursday"
+---
+- See you on `thursday`.
+- We'll play `thursday`.
+- I'll see you `thursday`.
+- `Thursday` after school.
+- It's okay for `thursday`.
+- Oh, yes, it's `thursday`.
+- He can see you `thursday`.
+- Honey, this is `thursday`.
+- I'm busy `thursday` night.
+- Well, catch you `thursday`.
+- I told you, since `thursday`.
+- To you, to me it's `thursday`.
+- Wednesday, `thursday`, friday.
+- You look like black `thursday`.
+- We'll do the rest on `thursday`.
+- I'd say `thursday` would be good.
+- Put me down for `thursday` again.
+- Nothing til `thursday`, all right?
+- See you `thursday`... regular time.
+- That's two weeks from `thursday`...
+- There will be no `thursday` for us.
+- Marry my child next `thursday` morn.
+- Until `thursday`, then, contessa mio.
+- I could go to a movie `thursday` night.
+- We can finish the script by `thursday`.
+- We'll talk about it more on `thursday`.
+- You were in here last `thursday` night.
+- I told him we'd be out there `thursday`.
+- She's been there since `thursday` night.
+- The regency downtown, `thursday`-friday.
+- Until `thursday`, then, you bawdy wench.
+- I've got to be in new york on `thursday`.
+- Why don't we continue this on `thursday`.
+- An' `thursday` two yards from cappoli, okay?
+- Can you get me on a flight `thursday` night?
+- They're coming out for one job - `thursday`.
+- Wait for me `thursday` at the cinema paradiso.
+- Rehearsals are tuesday and `thursday` evenings.
+- They always pick rachel up early on `thursday`.
+- I'll be at your studio `thursday` three o'clock.
+- I understand everything will be over by `thursday`.
+- I want it done `thursday` evening, around eight pm.
+- How about the first `thursday` in march, ten o'clock.
+- I was going to stay with him, but he died `thursday`.
+- Til `thursday`, my darling, i shall count the minutes.
+- Give my love to mama- tell her i'll see her `thursday`.
+- I finally made up my mind -- i guess it was `thursday`.
+- It's <u>`thursday`</u>, we get to be with <u>rache</u>!
+- I'll have the story by `thursday` night, i swear to god.
+- You're right, madame, it will all be over by `thursday`.
+- It's `thursday` today -- and it's almost five -- come on!
+- But on `thursday`, when he normally comes home, he didn't.
+- John, i'll be back here again `thursday`; i'll be in touch.
+- Instead of friday -- could you possibly switch to `thursday`?
+- The only thing that will be over on `thursday` is the lawsuit.
+- You know, i did come home, come to think of it, on `thursday`.
+- Envoy extraordinary arrives `thursday` six ten with full power.
+- I almost hugged a perfect stranger in the salon last `thursday`.
+- Leo and i know that santy claus is coming to town... `thursday`.
+- I think we should meet `thursday` night at nine to talk about it.
+- I said... you must come out to the house for dinner on `thursday`.
+- I'll be back next `thursday`, we'll talk the whole thing over then.
+- The stamp market, of course -- it is here every `thursday` afternoon.
+- Look, sylvia -- instead of friday - could we make it `thursday` night?
+- It was last `thursday`, five o'clock at the jardin des champs- �lys�es!
+- I've got some stuff to do this week, but i'm thinking maybe `thursday`.
+- From your tucker bag next `thursday`, name and badge number, both of you!
+- Then i'll simply invite all the robinsons' over for dinner on `thursday`.
+- Next `thursday` prioritizing the want of self over the need of all others.
+- He visits his ladies on tuesday and `thursday` nights and saturday mornings.
+- There it is... `thursday`... you can't rip it out of the week.... no, no music.
+- We have to get the money out by `thursday` and i'll be buggered if i am counting it .
+- I got nine bucks and twenty more `thursday` and i gonna be riding high before you know it.
+                 

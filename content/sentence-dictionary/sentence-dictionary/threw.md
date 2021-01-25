@@ -1,0 +1,107 @@
+---
+title: "threw in a sentence | threw example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "threw"
+---
+- So i `threw` them out!
+- You always `threw` up.
+- You `threw` it at me!!
+- A lady `threw` it to me.
+- No, she `threw` you out.
+- `Threw` a turbine blade.
+- You `threw` a time bomb.
+- I `threw` my back, again.
+- `Threw` my whole day off.
+- Mac `threw` cobb out again.
+- She `threw` up in her mask.
+- I `threw` it across the ice.
+- `Threw` us into the lake.
+- However, you `threw` her out.
+- She `threw` it with her mind.
+- She `threw` me out, remember.
+- I `threw` that cocksucker out.
+- Sir, you `threw` out page two.
+- After russell `threw` the bomb.
+- You `threw` a knife at my head!
+- You `threw` a man out a window!
+- She `threw` up in her mask, yes.
+- I just `threw` these in the fire.
+- Somebody `threw` him off a train.
+- They `threw` him out that window.
+- You `threw` it in a trash barrel?
+- I `threw` a little salad together.
+- You `threw` us together, remember?
+- But you `threw` a knife at my head!
+- Say it: she `threw` up in her mask.
+- Even after i `threw` you in the pit?
+- I practically `threw` myself at him.
+- Old man, i `threw` the slats at you.
+- If you `threw` yourself- hello, jason.
+- I think i just `threw` up in my mouth.
+- Judge `threw` out the cases each time.
+- You `threw` my briefcase in the river.
+- When she `threw` your line back at you.
+- You didn't see the look she `threw` me.
+- He didn't lose her, he `threw` her away.
+- I already called him, i `threw` it away.
+- I `threw` out the stuff that got broken.
+- Just rolled them up and `threw` them in.
+- But i `threw` it away for a cheap thrill.
+- Manny never `threw` the coupling switch!!
+- She `threw` a punch at a man on the team.
+- When you `threw` it in, what did you see?
+- I mean, she `threw` herself at you, right?
+- I `threw` a fireball at him and... - dead.
+- They `threw` us in this shithole for life.
+- Come on... we sure big al `threw` him to us?
+- They got on my nerves, so i `threw` 'em out.
+- She `threw` a goddamn radio into the bathtub.
+- So, they `threw` him in here for six months...
+- Yeah, she `threw` you in the air with her mind!
+- The girls `threw` them at me in the locker room.
+- The professor told us they `threw` away the key.
+- Well, i `threw` out that picture of me and mona.
+- Dissed his mamma and he nearly `threw` a tantrum.
+- He was one of our best, `threw` it in the gutter.
+- I remember when she `threw` this into the bridge.
+- What would happen if i `threw` him into the core?
+- You `threw` a hammer through a sliding glass door?
+- Damned if i know... who `threw` this party, anyway?
+- I took him out to sea and `threw` him in the water.
+- Oh, i'll bet <u>that</u> `threw` 'em off the scent.
+- She `threw` it all away to make me look ridiculous.
+- Did i tell you she `threw` the bottle- a milk at me?
+- All i have to do is... maybe sydney `threw` them off.
+- Along the way, i `threw` my gun into the royal river.
+- She `threw` herself in front of a car this afternoon.
+- So, uh...i `threw` it out, but i have this other one.
+- Uh... a bunch of stuff that other people `threw` out?
+- You and al were - and that's why you `threw` him out.
+- No one ever `threw` juice boxes at you in the hallway.
+- He `threw` her away and it was the mistake of his life.
+- I mean california almost `threw` up right in the ocean.
+- You could've given up after you `threw` that ball away.
+- But i just `threw` them up and wound up in the hospital.
+- He's the guy who `threw` his cloak down over the puddle.
+- So i took the bottle, and i `threw` it against the door.
+- They tore my legs off, and they `threw` them over there!
+- I mean that you knew her and everything -- '`threw`' you?
+- I thought they locked you up and `threw` away the warden!
+- Sorry i `threw` a scare into our lives there -- let's go.
+- They `threw` him a football once, he tried to dribble it.
+- Two cubans `threw` her out of a car on the way to dallas.
+- When i was ten, my old man `threw` a bottle at my mother.
+- How many people suffocated when you `threw` away my radio?
+- I just couldn't - i couldn't go `threw` with singing again.
+- A wife who `threw` you out the first time your foot slipped.
+- Then they took my chest out, and they `threw` it over there!
+- That dent is where he `threw` a bottle of vodka at the pilot.
+- You `threw` him the lighter and somehow you're perfectly fine?
+- His name was george -- he `threw` me over for a drum majorette.
+- I bet alice `threw` out all my crap after i'd been gone a week.
+- I `threw` the package in the kitchen and went to take her hone.
+- When i dressed like you do now, you `threw` me out of the house.
+- She goes around telling everybody i `threw` the bottla milk at her.
+- Suppose when they returned they `threw` the boots into the garbage?
+                 

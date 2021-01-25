@@ -1,0 +1,61 @@
+---
+title: "bored in a sentence | bored example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bored"
+---
+- What, are you `bored`?
+- You're `bored` already.
+- I got `bored` in saigon.
+- Most of all, `bored`.
+- You'd get `bored` to death.
+- Christ, i'm getting `bored`.
+- You must get `bored` easily.
+- I'd hate to have them `bored`.
+- I'm `bored` with corporations.
+- Listen, asshole... no-`bored`.
+- Yeah, well, i'm `bored`, bear.
+- I am so `bored` with this face.
+- It's not that i'm `bored`, jake.
+- I'm `bored`, and so are the kids.
+- Are we just `bored` with each other?
+- Gets `bored`... has anyone seen greg?
+- I got `bored` so i went to the movies.
+- Tommy, i'm `bored` shitless over here.
+- When you got `bored`, what did you do?
+- Because your problem is you're `bored`.
+- Don't you ever get `bored` around here?
+- What do you mean, and be `bored` to death?
+- If there's one atom of life... and `bored`.
+- He probably gets `bored` with all that shit.
+- We are tired and `bored` with your bullshit.
+- But it's almost spring break, and i'm `bored`.
+- I think kids get `bored` and have intercourse.
+- Their only guarantee is you will not be `bored`.
+- Uh, i was all set...i was set to be `bored` stiff.
+- I'm `bored` with this prattle -- fascination...
+- Or were you just `bored` and decided to get creative?
+- When he gets `bored`, you'll be yesterday's papers.
+- Yeah, because the alternative is to be `bored` to death.
+- All those soldiers out there... getting `bored`, thirsty.
+- To begin with, i was `bored` with my job in san francisco.
+- I can't believe the kids are already `bored` with the view.
+- I was `bored` while they were teaching us about the primes.
+- You came back here to solve the puzzle -- i was `bored`.
+- If you're `bored`, why don't you just go home, call it a day?
+- ♪ into this crowded space ♪ so you don't get `bored` in here.
+- Jesus, i'm the kind of guy, i'll let you know if i'm `bored`.
+- I really came in here because i was `bored` stiff by the party.
+- When did pretending to be `bored` become a sign of superiority?
+- Don't you think you'll get a little `bored` living with a drunk?
+- Fuckers'll sting a tree if they're `bored`- so - where is she...?
+- She was already `bored`, why do you think she was looking around?
+- Listen, if you're so `bored`, why didn't you go to utah with alan?
+- You take these `bored` housewives, married to the same guy for years.
+- I'm getting rather `bored` with that sport jacket, and those same baggy pants.
+- I was afraid you got `bored` and left, or that you were with some mysterious woman.
+- It's sexy that we were like a married couple, griping and overly-familiar and `bored`.
+- Anyway, i know you weren't `bored` that day because there was a lot of stuff on tv.
+- Because i got `bored` and had sex with you one day, and then i didn't, like, marry you?
+- He's probably some wack rich dude sitting around in a trick-ass apartment, `bored` stupid.
+                 

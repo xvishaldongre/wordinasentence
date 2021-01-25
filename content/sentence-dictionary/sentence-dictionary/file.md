@@ -1,0 +1,107 @@
+---
+title: "file in a sentence | file example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "file"
+---
+- I got the case `file`.
+- May i keep the `file`?
+- The `file`'s not here.
+- You crashed my `file`?
+- Annie, i need a `file`.
+- Now, top secret `file`.
+- Cates checks the `file`.
+- I have a `file` on them.
+- I looked up your `file`.
+- Oh, this is your `file`.
+- She hands him the `file`.
+- What was the `file` name?
+- Is that the ransom `file`?
+- 's gonna `file` on joanne?
+- Show me her memory `file`.
+- They decided to no-`file`.
+- "i want my goddamn `file`."
+- Man 2: is it in the `file`?
+- Set it to receive a `file`.
+- Someone stole sid's `file`?
+- [what does the `file` say?]
+- I know that from the `file`.
+- ...it's not in the `file`...
+- `File` it up here, like i do.
+- When'd they `file` the demur?
+- You ought to `file` a report.
+- `File` a missing drugs report?
+- Johnny, get this man's `file`.
+- Make sure you `file` it smooth.
+- The eligius iii mission `file`.
+- Darlin', this is x-`file` stuff!
+- I found them in your `file` box.
+- I believe it's in my `file`, sir.
+- I might if i saw the case `file`.
+- Look, i brought your damn `file`.
+- There was talk of a `file` photo.
+- Well, i have to `file` a claim...
+- If your `file`'s in there... yeah.
+- Nothing on `file`, nothing online.
+- Er... well you're the `file` clerk.
+- Sire, the `file` appears entangled.
+- Then why not take your case `file`?
+- Thought you two were `file`-closed.
+- Why don't you read the `file`, man?
+- Is it that new `file` they gave you?
+- I take it this `file` is still open.
+- The hacker copied my garbage `file`.
+- Candice will have his name on `file`.
+- His `file` says he is an avid jogger.
+- I said that the `file` is incomplete.
+- I've located the suspect zero `file`.
+- 's going to `file` on rebecca lawson.
+- Today is the `file` clerk's big scene.
+- Who's got access to my goddamn `file`?
+- I bet you haven't even seen the `file`.
+- I got a `file` on him two inches thick.
+- It's on the top of my personnel `file`.
+- Tryin' to find the `file` and erase it.
+- Your interpol `file` is six pages long.
+- First you've got her buying your `file`.
+- It's too big a `file` to copy to a disk.
+- Goes back to obscurity as a `file` clerk.
+- He said he'd `file` an appeal right away.
+- Learn anything from lindenmeyer's `file`?
+- Oh, your "nostalgia" `file`, they's fine.
+- Why would the zero `file` be kept secret?
+- You've read this `file` a thousand times.
+- Fine, i'm sure it's in the `file` at home.
+- I've studied the case `file`, have you...?
+- I want the standard `file`, you know that.
+- Men are to stay in `file`, sergeant major!
+- You'll get to see the `file` on this case.
+- His `file` listed you as a known associate.
+- You'll need a forklift for the case `file`.
+- `File` an action first thing in the morning.
+- Well, look, i got this `file` i need valued.
+- I'll destroy his `file` and refund his money.
+- I'm a `file` clerk - harrison feed and grain.
+- They had a large chunk of the garbage `file`?
+- If the guards did this, we can `file` charges.
+- Pulled your `file` because of various factors.
+- She might `file` on you for sexual harassment.
+- Which leads us to the mysterious, lost `file`.
+- Clear it with the captain if you need a `file`.
+- How could witwer have accessed the case `file`?
+- Take a look at this `file` on professor morton.
+- You've got to find that `file` before he does..
+- I copied a garbage `file` from... yo, what's up?
+- I'm turning your `file` over to the vice-squad!!
+- I need the `file` on.. daniel paul schreber m.d.
+- Joey, a garbage `file` holds miscellaneous data.
+- Suppose those contained all the `file` info too?
+- A garbage `file`'s got shit in it, joey, come on.
+- Keep moving and `file` on out when you're through.
+- She wanted to see the `file` on sid, for research.
+- To support the `file` size of a mature human mind.
+- I know your `file`... your first job was geneva!...
+- To complete and `file` my report by 0800 wednesday.
+- Who are you guys gonna sell my `file` to this time?
+- You'll be dead before you can `file` the complaint.
+                 

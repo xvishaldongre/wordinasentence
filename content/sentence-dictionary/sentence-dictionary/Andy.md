@@ -1,0 +1,107 @@
+---
+title: "Andy in a sentence | Andy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Andy"
+---
+- Don't do this, `andy`.
+- Eh, i dunno... `andy`.
+- Hey `andy`, good show.
+- Hi, i'm `andy` warhol.
+- They're `andy`'s toys.
+- Where is `andy` going?
+- `Andy`... are you okay?
+- It's chemistry, `andy`.
+- Listen to `andy`, sean.
+- `Andy`, am i in the way?
+- `Andy`, who is that guy?
+- `Andy`, it's not so easy.
+- I'm worried about `andy`.
+- Okay, here we go, `andy`.
+- So, should i call `andy`?
+- That's his name... `andy`.
+- You always go with `andy`.
+- `Andy`'s coming, everybody!
+- `Andy` would never do that.
+- Bob, `andy` needs to relax.
+- I talked to `andy` kaufman!
+- Take care of `andy` for me!
+- `Andy`, you don't want this.
+- `Andy`, you're not horrible.
+- But `andy` also took orders.
+- God, `andy`, you look awful.
+- `Andy`, you can't be serious.
+- But why would `andy` want me?
+- Yeah, i got an `andy` warhol.
+- You're exactly right, `andy`.
+- Look, uncle terrence - `andy`?
+- `Andy`, don't raise your voice.
+- `Andy`, man, thanks for coming.
+- `Andy`... there is no real you.
+- `Andy`, the theater's that way!
+- `Andy`... this is nick charles.
+- Do you really think so, `andy`?
+- I'll be upstairs with `andy`...
+- I'm still `andy`'s favorite toy.
+- `Andy`, hit the lights, will you?
+- It's a tough proposition, `andy`.
+- What if `andy` tips off mr. eddy?
+- `Andy`, they don't think you suck.
+- Anyway, `andy`'s okay... what job?
+- Are you saying `andy` is innocent?
+- Funny situation, ain't it, `andy`?
+- No i.... `andy`, you can't be sure.
+- Oh, this is `andy` -- i thought so.
+- This is `andy` we're talking about.
+- Tony clifton is not `andy` kaufman.
+- We've been talking it over, `andy`.
+- `Andy`, can you do something for her?
+- `Andy`, gimme three thousand dollars.
+- I sent `andy` out on murder missions.
+- `Andy`, start breaking up some chairs.
+- So are you really friends with `andy`?
+- The world thinks `andy` kaufman sucks.
+- "was this in actuality `andy` kaufman?
+- You an' `andy` get the hell out there.
+- `Andy`, don't do it -- give me the book.
+- It's like where `andy` hardy would live.
+- They sure didn't give `andy` much to do.
+- `Andy`, do you know who reps kronos inc.?
+- `Andy`... this is every comedian's dream.
+- But what if `andy` gets another dinosaur?
+- I like to introduce you to `andy` harris.
+- These pictures are not just myth, `andy`.
+- `Andy`, don't let them take me back there!
+- Excuse me, `andy`... we are all impressed.
+- You know, `andy` thinks you're doing this.
+- `Andy` come down to the loading dock today.
+- `Andy`'s ice cream factory/stairwell - day.
+- I'd like to introduce you to `andy` harris.
+- I've got so much on `andy`, it isn't funny.
+- Did <u>any</u> of them know `andy` was sick?
+- Monsieur `andy`, disapproves of my coiffure?
+- This could be bigger than "amos and `andy`."
+- You've got a date right <u>here</u>, `andy`.
+- `Andy` would go for this, don't you think?...
+- `Andy`, you're surrounded by what you create.
+- `Andy`'s private life is none of our business.
+- If you book tony, do not expect to get `andy`.
+- In a word, bob... are we interrupting, `andy`?
+- Listen, lightsnack, you stay away from `andy`.
+- Look...i kinda borrowed the truck from `andy`.
+- One misstep and we're doing "amos and `andy`."
+- `Andy`'s ice cream factory/`andy`'s office - day.
+- He's been `andy`'s favorite since kindergarten!
+- Where's `andy`, can we get some coffee in here?
+- Alright...`andy`'s opening the first present now.
+- `Andy` didn't lose the complaint in his computer.
+- I ain't got time to argue with you today, `andy`.
+- I thought you were -- why would `andy` want you?!
+- Ehh -- `andy` doesn't really like playing casinos.
+- `Andy`, do you realize you don't do comedy anymore?
+- ...then he laughed and actually shook `andy`'s hand.
+- If it was `andy` kaufman, is `andy` kaufman crazy?"
+- Protest finally forced "amos and `andy`" off the air.
+- `Andy` usually just sends those to the national media.
+- I'm sure `andy` was just a little excited, that's all.
+                 

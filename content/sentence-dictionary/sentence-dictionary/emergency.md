@@ -1,0 +1,107 @@
+---
+title: "emergency in a sentence | emergency example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "emergency"
+---
+- `Emergency` room only.
+- It's that `emergency`.
+- It was an `emergency`.
+- In case of `emergency`!
+- Is this an `emergency`?
+- 'state of `emergency`.'
+- This is an `emergency`.
+- We have an `emergency`!
+- What's the `emergency`?
+- But it's an `emergency`.
+- What is your `emergency`?
+- Prep for `emergency` evac.
+- Becca, it's an `emergency`.
+- What's the big `emergency`?
+- It is a fucking `emergency`.
+- Suppose it's an `emergency`?
+- I haven't got an `emergency`.
+- This is an `emergency`, mike.
+- Initiate `emergency` protocol.
+- Level one medical `emergency`.
+- The `emergency` channel, open.
+- It is an `emergency`, isn't it?
+- Listen, this is an `emergency`!
+- Request `emergency` assistance.
+- She said it was an `emergency`.
+- That means it's an `emergency`!
+- That means it's an `emergency`.
+- And gather `emergency` supplies.
+- `Emergency` override authorized.
+- How was the `emergency`, doctor?
+- Then pull the `emergency` brake!
+- The prisoners in an `emergency`.
+- Are you declaring an `emergency`?
+- We have a level five `emergency`.
+- We thought it was an `emergency`.
+- `Emergency` lockdown is in effect.
+- `Emergency` parachute launch ramp.
+- What's `emergency` landing plan b?
+- The `emergency` number is 327-0800.
+- Then this is a goddamn `emergency`.
+- An `emergency` situation has arisen.
+- But, missus, this is an `emergency`.
+- 'in case of `emergency`, draw door.'
+- Pal, my whole life's an `emergency`.
+- `Emergency` force fields are holding.
+- I'm down by the `emergency` air lock.
+- Like an `emergency` life-raft, right?
+- State the nature of your `emergency`.
+- `Emergency` generators are on standby.
+- Engineering... full `emergency` power!
+- Have you tried the `emergency` system?
+- Channel 9 is the `emergency` frequency.
+- It was a national `emergency` - retired.
+- I've got like a social `emergency` here.
+- This is a police `emergency`, all right?
+- I am sorry, due - this is an `emergency`!
+- Nobody to call in case of an `emergency`?
+- Not there - that's the `emergency` brake.
+- I have a medical `emergency` to deal with.
+- I'm gonna activate the `emergency` beacon.
+- I'm thinking, uh, it's not an `emergency`.
+- Yes i can transmit the code 3 `emergency`!
+- Pick it up, walter, this is an `emergency`.
+- They only call me when it's an `emergency`.
+- An `emergency`, a tidal wave, an earthquake.
+- Commander, starfleet on `emergency` channel.
+- Sire, we have an `emergency` -- of security.
+- The doctor was called away on an `emergency`.
+- You have no appropriate sense of `emergency`.
+- A man ought to be prepared for any `emergency`.
+- I feel for you, but we got an `emergency` here.
+- It's an `emergency` -- see you some other time.
+- This is an `emergency` call from air force one.
+- If elevator stops, use `emergency`... " why not?
+- Something tells me we got your `emergency` beat.
+- `Emergency` forcefields are in place and holding.
+- Only in the `emergency` room or when he was well.
+- Grooved rubber mats, and an `emergency` door oh...
+- Schedule an `emergency` strategy session for noon.
+- You have an `emergency` call on your private line.
+- Please, if you can hear me, this is an `emergency`.
+- There's some kinda `emergency` at the trailer park.
+- Transmit the code 3 `emergency` and take us offline.
+- Mom, you heard there was an `emergency` and you came?
+- Okay, but how does all this add up to an `emergency`?
+- Steve taught me how to use the `emergency` generator.
+- Well, i'm in the `emergency` air lock and -- not now!
+- He had an `emergency` call... a <u>real</u> `emergency`.
+- I thought i should check our `emergency` transmitters.
+- Some kind of `emergency` back at the sheriff's station.
+- Try the `emergency` channels... she's not responding...
+- You sure i can't just take you to the `emergency` ward?
+- Seal off that entire deck with `emergency` force fields.
+- Your mom had to...help a friend with this...`emergency`?
+- If you have any kind of `emergency`, you can page me.
+- I'm emigrating to homestead ii and i have an `emergency`.
+- I think we can classify this as an `emergency` situation.
+- So, i understand you've got a real `emergency` down there.
+- The one up front doubles as an `emergency` medical center.
+- They'll detect you upon re-entry in an `emergency` vessel!
+                 

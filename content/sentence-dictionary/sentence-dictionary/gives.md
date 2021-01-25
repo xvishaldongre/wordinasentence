@@ -1,0 +1,107 @@
+---
+title: "gives in a sentence | gives example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gives"
+---
+- It `gives` them power.
+- ...and `gives` me shit.
+- `Gives` me the willies.
+- `Gives` you more power.
+- It `gives` you insight.
+- Love `gives` you wings.
+- Radar `gives` me noise.
+- Sonar `gives` me noise.
+- `Gives` people a choice.
+- It `gives` me headaches.
+- It `gives` me the creeps.
+- Who `gives` a shit, mars?
+- It `gives` me the jitters.
+- `Gives` holy cross the win.
+- He `gives` me the creeps...
+- This `gives` me the creeps.
+- What `gives`, don corleone?
+- What `gives` you that idea?
+- He `gives` a fuck what i do?
+- He `gives` me a total boner!
+- `Gives` wade the second shot.
+- She never `gives` him a turn.
+- The forest `gives` much here.
+- Who `gives` a shit about aft?
+- An algorithm `gives` us stars.
+- It `gives` us somethin' to do.
+- Man, it `gives` me the creeps.
+- So that `gives` you something.
+- `Gives` her a sympathetic look.
+- `Gives` us something in common.
+- He `gives` me things sometimes.
+- It `gives` me a sense of peace.
+- That `gives` you... one thirty.
+- Honora `gives` him a peck cheek.
+- That's what `gives` me the fear.
+- But who `gives` a shit about you?
+- Clarke `gives` the flame to luna.
+- Oh, who `gives` a damn who he is?
+- Right, the one simone `gives` me.
+- That thing `gives` me the creeps.
+- This place `gives` me the creeps.
+- For it `gives` you great strength.
+- No one `gives` orders here but us.
+- She `gives` him a shot in the bum.
+- This `gives` you a chance to live.
+- This place `gives` me the willies.
+- Wessex `gives` his purse to viola.
+- When he `gives` the word, we move.
+- Which `gives` us about five hours.
+- Who `gives` a fuck what you think?
+- Who `gives` this girl in marriage?
+- This `gives` worth to butchery?
+- So that `gives` us a 1 in 4 chance.
+- That `gives` me time to see my boy.
+- This prison `gives` out $400 suits?
+- A soul is what `gives` you feelings.
+- Dragline `gives` out the names here.
+- He `gives` a good report and i walk?
+- Sittin' around `gives` me the piles.
+- This is great, this `gives` me hope.
+- What `gives` you the right to judge?
+- Who `gives` a shit what you believe?
+- A ghost `gives` dan aykroyd oral sex.
+- `Gives` me a little for gas and food.
+- The man who `gives` us the airplanes.
+- Who `gives` a goddamn what you think?
+- I don't imagine he `gives` a shit now.
+- It `gives` me a great sense of danger.
+- Still `gives` one a ridiculous thrill.
+- That `gives` me a very secure feeling.
+- That `gives` us less than three hours.
+- The cup that `gives` everlasting life.
+- Anyway, it `gives` us a chance to talk.
+- It `gives` me a great sense of history.
+- Out of nowhere - `gives` a performance!
+- He `gives` jessica the flowers and tape.
+- No one `gives` anything keep her safe.
+- `Gives` them something to wonder about...
+- It `gives` her the motive to kill nilsen.
+- It `gives` me something to beat tomorrow!
+- Who `gives` a shit what he calls himself?
+- So, as collateral, he `gives` you his car.
+- Someone `gives` your name to someone else?
+- Who `gives` a shit about the midterms now?
+- Your shrink always `gives` you bad advice.
+- At least it `gives` you plenty of exercise.
+- By the way - who `gives` me the anti-toxin?
+- If he `gives` us any shit, we kill 'em all.
+- I give it to her and she `gives` it to him.
+- It just `gives` me the creeps a little bit.
+- Replaces the baton, `gives` steve the case.
+- What `gives` with our boy tonight, charley?
+- What `gives` you that certain satisfaction?
+- Yeah, she `gives` you shit and you take it.
+- Four o'clock `gives` you time to go to bank.
+- `Gives` me time to take a go-go juice break.
+- `Gives` your circulation something to fight.
+- Yeah, but i hear she `gives` a mean blow job.
+- It `gives` details which couldn't be invented.
+- The rain... sometimes it `gives` me the blues.
+                 

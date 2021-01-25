@@ -1,0 +1,107 @@
+---
+title: "personally in a sentence | personally example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "personally"
+---
+- `Personally`, i'm type o.
+- I called her `personally`.
+- I checked it `personally`.
+- Well, not me `personally`.
+- Don't take it `personally`.
+- You know them `personally`?
+- I'll see to it `personally`!
+- I don't take it `personally`.
+- `Personally`, i think it's god.
+- Shouldn't take it `personally`.
+- I take it all very `personally`.
+- No need to take it `personally`.
+- `Personally` i'd pass on the jab.
+- You are `personally` responsible.
+- `Personally`, i think it's stupid!
+- Did i give it to you `personally`?
+- I cut your new orders `personally`.
+- `Personally`, i'd prefer stupidity.
+- It's dangerous, to me, `personally`.
+- `Personally`, i think he's a retard.
+- Try not to take it too `personally`.
+- Me, `personally`, i could lose a lot.
+- `Personally`, i don't need a mule.
+- I hope you won't take it `personally`.
+- `Personally`, i think it's silly, too.
+- Hmmm...do i know any...`personally`...?
+- I'll try not to take that `personally`.
+- I took the call from glen `personally`.
+- `Personally` as well as professionally.
+- A man whom he, `personally`, recommends.
+- `Personally`, i would like to surrender.
+- You, `personally`, are assuming command?
+- I haven't turned up anything `personally`.
+- Most of the creditors i know `personally`.
+- That's right he `personally` asked you to?
+- Yes, `personally`, i find it a bit odd.
+- But `personally`, i prefer classical music.
+- I would `personally` enjoy doing that, sir.
+- `Personally`, i think he should aim higher.
+- Well, mr. tatum did `personally` choose me.
+- I'm going to have to front you `personally`.
+- Listen, don't take it so `personally`, okay?
+- Not you `personally`... well i'm the doctor.
+- `Personally`, i don't want to see that happen.
+- You `personally`'d be sending him to his grave.
+- I requested she be put on the case `personally`.
+- She's seen to his ongoing recovery `personally`.
+- `Personally` i think the guy went a little nutso.
+- This time i will supervise each test `personally`.
+- Well, `personally`, i never went for church names.
+- Well, `personally`, major, i will take what comes.
+- I feel `personally` responsible for you being here.
+- `Personally`, you can have all the credit you want.
+- So he's `personally` issued the contract on israel?
+- Now, `personally`, i don't care about your politics.
+- I'll take care of this guy bingy myself, `personally`.
+- Deception isn't something i `personally` consider sexy.
+- Were you thinking of `personally` driving me back east?
+- Clark `personally`, i think it could be a terrific story!
+- I am, but you are too `personally` in... not like a lady.
+- I just want to say to tony -- don't take it `personally`.
+- I `personally` don't need that shit in my life right now.
+- `Personally`, i don't know what mr. cedar's raving about.
+- `Personally` i'd prefer a greyhound with a shot of speed.
+- I don't know him `personally`, but i've spoken to his boss.
+- `Personally`, i think mr. michael's marrying the wrong girl.
+- Don't be ridiculous -- sharks don't take things `personally`.
+- It's important enough for mr. demille to call me `personally`.
+- Well, in the meantime, could you let me have $50 `personally`?
+- I'm heading over to the hotel to `personally` oversee security.
+- I'm sorry man, i shoulda picked you up `personally` at the pen.
+- Sorry man, i didn't mean that `personally`... what did you say?
+- I'm making you all `personally` responsible for his deliverance.
+- These are very intense people and they take things `personally`.
+- You see, he's had to meet all these people `personally` tonight.
+- In fact -- -- i'd like you to handle this operation `personally`.
+- `Personally`, i hate offices -- i'd much rather be in the movies.
+- `Personally`, i'll be calling the president of the united states.
+- `Personally`, i think he's filthy, rude and a complete scoundrel.
+- I put it out, and i have `personally` found that girls do respond.
+- `Personally`, i think you're getting panic-stricken about nothing.
+- My husband never dealt with money `personally`, certainly not cash.
+- `Personally` i don't feel these tree hugging traitors deserve steak.
+- `Personally` james, i'm very excited by this new arrangement we have.
+- After all, you didn't `personally` drain the gasoline out of the tank...
+- But `personally`, i think you ought to spend a little time prioritizing.
+- Find out something that's important to him `personally` and you squeeze.
+- Your little girlfriend might take this kinda `personally`, dont you think?
+- Besides, you don't have the experience and you're too `personally` involved.
+- You couldn't have a problem, chick, because i `personally` have got them all.
+- `Personally` i think he has a deep, almost pathological desire to corrupt you.
+- You mean, did you `personally` come and pee on my-- did i urinate on your rug?
+- I just sent out the vibe and i have `personally` found that... girls do respond.
+- Still, this was a sensitive issue for me and i wanted to thank you `personally`.
+- Stu, i like you `personally`, i admire your work, but i'm just the god of sleep.
+- That's what everybody says - although `personally`, i don't see the resemblance.
+- But i `personally` wouldn't care to be head of a business that kept losing money.
+- Perhaps you'd rather discuss it `personally` with the president-- i'd be glad to.
+- You have `personally` - i have `personally` vouched for you in this matter, captain.
+- Uh, i come here `personally` to kind of smooth over a fracas about a certain matter.
+                 

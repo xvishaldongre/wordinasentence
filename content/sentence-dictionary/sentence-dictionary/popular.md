@@ -1,0 +1,75 @@
+---
+title: "popular in a sentence | popular example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "popular"
+---
+- Very `popular` tonight.
+- You were pretty `popular`.
+- He was very `popular`, too.
+- You know what'd be `popular`?
+- No wonder you're so `popular`.
+- Why is this place so `popular`?
+- Baby videos are super `popular`.
+- She's never been less `popular`.
+- So, what makes you so `popular`?
+- A very `popular` drink, i'm told.
+- It's a lie that art is `popular`.
+- Just what makes you so `popular`?
+- You must be `popular` with children.
+- Your novels are very `popular` here.
+- But it's proving to be very `popular`!
+- I hear that's a rather `popular` date.
+- Boy, she's so `popular` all the sudden.
+- The most `popular` florida tradition...
+- I am more `popular` because i'm smiling.
+- It was a very `popular` tune in its day.
+- Not the most `popular` opinion, but yes.
+- Is it because i'm becoming too `popular`?
+- Since i was an athletic, `popular` child.
+- Smile and you'll be a lot more `popular`.
+- Beautiful, `popular`, ann bishop millaney.
+- I've never been `popular` with the ladies.
+- They had a very `popular` series together.
+- I directed a `popular` off-broadway musical.
+- Oh, you... you're very `popular`, i can see.
+- Now that she's gone, she's finally `popular`.
+- You�re really `popular` amongst the demented.
+- I'm sure you'll enjoy it, it's very `popular`.
+- It isn't her fault if she's `popular`... what?
+- We still just wanna be `popular`... fall back.
+- You must be very `popular` in the neighborhood.
+- More `popular` than uncle's day at a whorehouse.
+- Or the most `popular` gift this year, an orange.
+- Plus, i'm `popular`... you want to be `popular`...
+- Heather chandler is more `popular` than ever now.
+- I guess he wasn't too `popular` at the end there.
+- You know the `popular` version of how he left town.
+- You're the most `popular` month on the usc calendar!
+- Bowl... and i wrote a `popular` off-broadway musical.
+- You're one of the most `popular` students at millard.
+- This place don't seem real `popular` with the brothers.
+- You never dreamed about being `popular`- you already were.
+- I'm not a `popular` favorite since i let the leopard loose.
+- Just for one minute to feel what it was like to be `popular`?
+- He certainly was not a `popular` fellow when they planted him.
+- Tell me, baxter -- just what is it that makes you so `popular`?
+- The gooey, harmless plaything wildly `popular` with kids today.
+- This section was pretty `popular`, all the way to fulton street...
+- Well... see, at my old convent, i wasn't always... real `popular`.
+- I don't seem to be so very `popular` after all -- in cross corners.
+- I can't get with any religion that advertises in `popular` mechanics.
+- I have learned it is a very `popular` place for the young people to go.
+- You know, you can't just come in here and be `popular` in just one day.
+- In a demographic study i proved to be most `popular` amongst males, 11-24.
+- The only thing `popular` about it is that it's written about in newspapers.
+- The episode we did on mickey and mallory was one of our most `popular` ones.
+- The duke is becoming more `popular` in the landsraad... he could threaten me....
+- It's like they're just people i work with and our job is being `popular` and shit.
+- Gus i, the `popular` kids and i, we just don't- i mean, i don't think i can do this.
+- Before we knew it, we created the most `popular` men's magazine in the entire nation.
+- I know that's not a `popular` opinion nowadays and i ain't saying it's the right one.
+- There's a big difference between the most `popular` girl in the school and dead sperm.
+- He won't follow the herd, or change his convictions -- even when they're not `popular`.
+- Apparently taking uzis away from sixth graders isn't as `popular` as we thought it'd be.
+                 

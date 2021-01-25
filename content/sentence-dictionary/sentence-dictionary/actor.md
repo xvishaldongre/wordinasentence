@@ -1,0 +1,77 @@
+---
+title: "actor in a sentence | actor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "actor"
+---
+- You hired an `actor`??
+- Wants to be an `actor`.
+- You're an `actor`, max.
+- I want to be an `actor`.
+- Her husband's an `actor`.
+- Said he's not an `actor`.
+- You talk like an `actor`.
+- I wanted to be an `actor`.
+- He's a very proper `actor`.
+- I'm the `actor` playing him.
+- He's trying to be an `actor`.
+- I am a trained method `actor`.
+- More like a character `actor`?
+- Nobody said she was an `actor`.
+- You're such a talented `actor`.
+- I think you could be an `actor`.
+- You're my favorite `actor` on...
+- You should be an `actor`, frank.
+- <i>my real father was an `actor`.
+- Say, aren't you that `actor` guy?
+- Were you an `actor` or something?
+- So, do you enjoy being an `actor`?
+- Then there was jerry, the `actor`.
+- A synthespian, virtual `actor` -- ?
+- He's a pretty good `actor`, though.
+- Hope you're a good `actor`, elliot.
+- Sag meaning screen `actor`'s guild.
+- 'swish `actor` gets the gay blade.'
+- Whatever his name is, that `actor`.
+- Taransky isn't that good an `actor`.
+- He's an `actor`, so it can't be good.
+- Oh, for chrissake, she was an `actor`.
+- I'm a director-`actor`-writer-producer.
+- You mean... george mccord, the `actor`?
+- He's an `actor`... stop talking to them!
+- You're an `actor`, so act, motherfucker.
+- Look, miles, all i know is i'm an `actor`.
+- Steve couldn't get arrested as an `actor`.
+- Yes... not the `actor`, though, the doctor.
+- Never wanted to be an `actor` anyway, three!
+- I take it back--she <u>wasn't</u> an `actor`.
+- To do this job you got to be a great `actor`.
+- "who's the number one `actor` or the pop star?"
+- Have you ever thought about becoming an `actor`?
+- Peter redmond is an `actor` i admire enormously.
+- `Actor` who plays you will want to die like hero.
+- A famous `actor` who's getting married next week.
+- You're an `actor`, remember, the show must go on.
+- A famous `actor` bringing me flowers on my birthday.
+- Not the `actor` -- whose name is george, by the way.
+- Now there's the principal `actor` in our little play.
+- The `actor` my name is orson welles who are you, sir?
+- He's such a rest `actor`, and nobody uses him anymore.
+- A living, breathing `actor` -- i can't work with a fake.
+- He has an unbelievable work ethic for a voice-over `actor`.
+- Trying to talk an `actor` out of leaving for a better part.
+- You don't understand -- every `actor` is an invention, viktor.
+- Pictures of you and an out of work `actor` with your pants down?
+- He's not <u>supposed</u> to be an `actor`, that's the whole point.
+- I am `actor`, he is `actor`, although he is an `actor` stroke musician.
+- Hell of an `actor` � though, for my money, you can't beat jack oakie.
+- No, i am an `actor` not a labourer, i am just warning you, that's all.
+- Maybe when i start being a successful `actor` i'll know those guys.
+- Now, if you want to sell a little bit at a time - but you're an `actor`.
+- He is, bar none, the greatest `actor` working in martial arts movies ever.
+- It's like everybody's a supporting `actor` in the film of your life story.
+- Are you familiar with the `actor` ben damon, or the actress christine perkins?
+- See that if the performance is genuine, it doesn't matter if the `actor` is real.
+- If you ain't a great `actor` you're a bad `actor`, and bad acting is bullshit in this job.
+- I don't want people saying, 'there goes that famous `actor` with the big, fat girlfriend."
+                 

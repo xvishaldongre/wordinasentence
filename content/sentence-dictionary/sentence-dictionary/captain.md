@@ -1,0 +1,107 @@
+---
+title: "captain in a sentence | captain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "captain"
+---
+- `Captain` barbossa ...
+- `Captain` renault did.
+- `Captain` rhodes is...
+- Goodbye, `captain` ...
+- I read you, `captain`.
+- Is it `captain` howdy?
+- Let me out, `captain`.
+- No, `captain`, please.
+- No, no, no, `captain`.
+- Oh, `captain`'s chair.
+- To be sure, `captain`.
+- Uh, `captain`... push!
+- Who's `captain` howdy?
+- `Captain` jack sparrow.
+- I can do it, `captain`.
+- I'll be your `captain`.
+- Like `captain` amazing?
+- ...out here, `captain`.
+- Scotty here, `captain`.
+- Spit it out, `captain`.
+- Very clever, `captain`.
+- All too well, `captain`.
+- Are you warm, `captain`?
+- Bring in `captain` solo.
+- `Captain` rob came back?
+- `Captain`, take it easy!
+- Channel open, `captain`.
+- Good evening, `captain`.
+- Good one, `captain` rob.
+- I do, `captain` america.
+- It's go time, `captain`.
+- Oh `captain` my `captain`.
+- That's right, `captain`.
+- To amuse you, `captain`?
+- `Captain`, i implore you.
+- Data to `captain` picard.
+- Nice work, `captain` sir.
+- Peter's right, `captain`.
+- This business, `captain`?
+- What about the `captain`?
+- With pleasure, `captain`.
+- Are we leaving, `captain`?
+- `Captain`, the enterprise!
+- Course heading, `captain`?
+- Funniest thing, `captain`.
+- I am -- i'm `captain` b.l.
+- It's all right, `captain`.
+- None available, `captain`.
+- Oh, `captain`, my `captain`.
+- Perhaps i have, `captain`.
+- Thank you, `captain` kirk.
+- Thank you, `captain` sulu.
+- There, you see, `captain`.
+- Welcome aboard, `captain`.
+- What about you, `captain`?
+- What'd you say, `captain`?
+- Where is `captain` decker?
+- Without `captain` america.
+- Yes, i'm sorry, `captain`.
+- All right, `captain` oveur.
+- That sea `captain` guy.
+- Bridge to `captain` picard.
+- But he's got it, `captain`.
+- `Captain`, i need jim kirk.
+- `Captain` miller, you copy?
+- `Captain`, our shields -- !
+- `Captain` rhodes is... sir.
+- Childish dreams, `captain`.
+- Don't you worry, `captain`.
+- Due west, `captain` mendez.
+- How old are you, `captain`?
+- I'm `captain` of this ship.
+- It is a courier, `captain`.
+- That's a beauty, `captain`.
+- The kid's clean, `captain`.
+- `Captain`, belay that order!
+- `Captain`, we got a problem.
+- `Captain`, what do you want?
+- Did you meet `captain` kirk?
+- Have it your way, `captain`.
+- I don't think so, `captain`.
+- I'm `captain` john harriman.
+- I'm with `captain` hamilton.
+- I was `captain` of the team.
+- Just be yourself, `captain`.
+- Mon `captain`, it's for you.
+- My name is sojef, `captain`.
+- Standing by, `captain` kirk.
+- Thank you, `captain` pierce.
+- The `captain` on a ship can.
+- Watch your mouth, `captain`.
+- What about `captain` medley?
+- Avast, there, `captain` cook!
+- Brazilian, `captain` fidalgo.
+- `Captain`, are you all right?
+- `Captain` kirk was your host!
+- `Captain` walt muldoon, nypd.
+- Don't question me, `captain`!
+- Do you know of it, `captain`?
+- Forward motion, `captain`...!
+                 

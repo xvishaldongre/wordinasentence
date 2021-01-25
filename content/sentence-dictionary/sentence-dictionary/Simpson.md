@@ -1,0 +1,105 @@
+---
+title: "Simpson in a sentence | Simpson example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Simpson"
+---
+- Abe `simpson`, you dog.
+- A mrs. marge `simpson`.
+- Hmm... homer `simpson`?
+- So spill it, `simpson`.
+- Oh, oh, homer `simpson`.
+- Homer and bart `simpson`!
+- Mr. `simpson` ... oh yeah.
+- The safe's a `simpson` 71.
+- `Simpson`, get on the bike.
+- Don't worry, mrs. `simpson`.
+- Every `simpson` is innocent.
+- Mrs. marge `simpson` drives.
+- `Simpson`, is that your kid?
+- That `simpson` house really?
+- Well, well, homer `simpson`.
+- I say we have lisa `simpson`.
+- Bart `simpson` took the money.
+- Hold it right there, `simpson`.
+- Marge `simpson` takes the lead!
+- `Simpson`, pull the fire alarm.
+- `Simpson`, what's the log on that?
+- You call it "homer `simpson`-ing."
+- Abraham `simpson`, - uh... - choke!
+- Bart `simpson`, well-behaved child.
+- Well, god bless you, mr. `simpson`.
+- You're a good man, homer `simpson`.
+- I know what you did, bart `simpson`.
+- Homer `simpson`, you'll leave a ring.
+- Maggie `simpson` here for a playdate.
+- Bart `simpson` has not given the "gg."
+- Everyone, say hello to lisa `simpson`.
+- Yeah, don't homer `simpson`, you jerk.
+- Bart `simpson`, i hereby declare you...
+- Tell us, what do you do, mr. `simpson`?
+- Mr. `simpson`, are you flirting with me?
+- Ms. `simpson`, you're a very lucky lady.
+- You're a fascinating man, mr. `simpson`.
+- `Simpson`, mr. burns is a fortune 500 ceo.
+- So, `simpson`, word on the street is quiet.
+- "congratulations, marge and homer `simpson`.
+- Lisa `simpson`, i think your superpower mel!
+- `Simpson`, i'd like to see you in my office.
+- This is homer `simpson`, azgeda is a memory.
+- Without the baggage of being lisa `simpson`.
+- As for you, `simpson`, employee of the month.
+- But lisa `simpson` is not even a little cool.
+- The great `simpson` robbery remains unsolved.
+- You're unbuttoning your shirt, mr. `simpson`.
+- You just signed your death warrant, `simpson`.
+- Lisa `simpson`, a bright girl in a dull school.
+- Lisa marie `simpson`, are you reading the bible?
+- By lisa "thank god you're a throwback" `simpson`.
+- `Simpson`, you have a key to the main server room?
+- Have to keep talking, or can i meet lisa `simpson`?
+- ♪ live, live through your kid ♪ hi, mrs. `simpson`.
+- So, my client, uh, homer `simpson`, is suing youse.
+- To the next suspect on their list, homer `simpson`.
+- Well, we could borrow a couple from mrs. `simpson`.
+- I'm working the problem, oh, yes, the `simpson` boy.
+- I want to be more than just mr. mrs. homer `simpson`.
+- Last time i played the game, `simpson` only had a 40.
+- Well, `simpson`, thanks to you, to keep an eye on me.
+- So that's everyone in the `simpson` family, uh, sorry.
+- A special award for best newcomer, marge `simpson`.
+- Now, vera...uh, `simpson`, you know my staff dietician?
+- Homer `simpson` has two children enrolled in our school.
+- Why, look, it's bart `simpson` on summers and christmas.
+- A day that would soon change the `simpson` women forever.
+- If `simpson` keeps eating like this, i mean, what's next?
+- Miss `simpson` would just play it and ... a useless talent.
+- So enjoy the view before... where is coach homer `simpson`?
+- Hey, guys, this is bart `simpson` it doesn't make any sense.
+- Bottom lock, hey, miller, could homer `simpson` have done it?
+- It was pretty clear, chief liked homer `simpson` for this case.
+- Local smarty-pants lisa `simpson` has been abducted and then...
+- I'm homer `simpson`, that's a matter for the council to discuss.
+- In a mysterious crime that would tear the `simpson` family apart.
+- Anyone caught beyond the ruins... homer `simpson`, welcome to heaven.
+- But i'm ok. mr. `simpson`'s daily tasks is that all you're gonna say?
+- Marcus... on the count of attempted murder of homer `simpson`, come on.
+- They're vietnamese, can't we just give them more bart `simpson` shirts?
+- Homer `simpson`, are you watching football get out of this hideous dress.
+- I'm going over it and over it in my head, but quiet hello to lisa `simpson`.
+- Even someone you have reason to hate, `simpson`, you think this is helping you?
+- Mr. and mrs. `simpson`, the new season of odder stuff drops on netflix tonight.
+- Maya's blood through your system... life was a struggle for the `simpson` women.
+- Miss `simpson`, was that an f sharp if there is any fluid leaking from the wound.
+- Marge `simpson` and her daughter have now been did they tell you why you are here?
+- Now, keep going, keep going, keep going... `simpson`, what the hell are you doing?
+- Now, this morning, marge `simpson` has insistently volunteered stay low and quiet.
+- This is lisa `simpson`, i tried to convince her that she was safe here, all right.
+- "the great `simpson` robbery remains unsol..." he's corrupting her, i'm telling you.
+- See - - i could veto this `simpson` garner thing, but i really don't want to do that...
+- ♪ upstate new york ♪ `simpson`, i dare you to jump into the reservoir they're over here.
+- In the history of religion, bart `simpson` lied that we like each other for our children.
+- I would like to accuse marge `simpson` looking forward to learning from you, mr. `simpson`.
+- After clarke left, `simpson`, you're getting one day of detention [clank] uh, look, dad.
+- Unfortunately for you and your family, `simpson`, door stays locked, you know what i mean?
+                 

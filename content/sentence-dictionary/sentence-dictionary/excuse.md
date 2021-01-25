@@ -1,0 +1,107 @@
+---
+title: "excuse in a sentence | excuse example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "excuse"
+---
+- `Excuse` me, mister...
+- `Excuse` me, mr. hulk?
+- `Excuse` me, mr. kane.
+- `Excuse` me... ottawa!
+- `Excuse` me, penelope.
+- `Excuse` me, sergeant.
+- `Excuse` us, amorcito.
+- `Excuse` us, fraulein.
+- `Excuse` us por favor!
+- If you'll `excuse` me.
+- It's just an `excuse`.
+- Ooh, well `excuse` me.
+- Would you `excuse` me?
+- Would you `excuse` us?
+- You please `excuse`...
+- `Excuse` me for asking.
+- `Excuse` me for living.
+- `Excuse` me, gallagher.
+- `Excuse` me, gentlemen.
+- `Excuse` me one second.
+- Now please `excuse` me.
+- Secretary: `excuse` me.
+- That's a good `excuse`.
+- You gotta `excuse` him.
+- `Excuse` me miss daniel?
+- `Excuse` me momentarily.
+- `Excuse` me, ms. gayley.
+- So what's your `excuse`?
+- Uh, `excuse` me, please.
+- Well, `excuse` me, miss.
+- Woh, `excuse` me, sir...
+- But what's your `excuse`?
+- `Excuse` me for a minute.
+- `Excuse` me for a second.
+- `Excuse` me, mr. szyslak.
+- I... will you `excuse`...
+- Mr. udall... `excuse` me.
+- That's still no `excuse`.
+- Well, please `excuse` us!
+- [woman] `excuse` me, ray.
+- `Excuse` me, miss vampira?
+- `Excuse` me, mr. coccotti.
+- `Excuse` me... mr. pickle!
+- `Excuse` me, mrs. sutphin.
+- I hope you'll `excuse` me.
+- No... no, `excuse` me eve.
+- No, no...oh...`excuse` me.
+- That's a perfect `excuse`.
+- The word is "`excuse` me."
+- `Excuse` me, do you have...
+- `Excuse` me, mrs. williams.
+- I'll make up some `excuse`.
+- It's not an `excuse` dummy.
+- Now, if you'll `excuse` me.
+- Now, if you�ll `excuse` me.
+- Please `excuse` her french.
+- Uh, `excuse` me, `excuse` me.
+- Uh, `excuse` me, krusteleh.
+- Will you `excuse` us, skye?
+- You all please `excuse` me.
+- You'll have to `excuse` me.
+- `Excuse` me, sorry, sorry...
+- Now if you'll `excuse` me...
+- So if you'll `excuse` me ...
+- That don't `excuse` nothing.
+- Will you `excuse` us please?
+- Will you please `excuse` me?
+- ...would you `excuse` me...?
+- Clarke, will you `excuse` us?
+- `Excuse` me, agent mackelway?
+- `Excuse` me, are you alright?
+- `Excuse` me for interrupting.
+- `Excuse` me, mr. treves, sir.
+- `Excuse` me, that's our food.
+- If you'll `excuse` me, ma'am.
+- Now, if you'll `excuse` me...
+- Well, `excuse` me for livin'!
+- You must `excuse` the doctor.
+- `Excuse` -- get away from her.
+- _ `excuse` me, `excuse` me, pal.
+- `Excuse` me, i have to change.
+- `Excuse` me, <i>your</i> life.
+- `Excuse` me, we are not alone.
+- Uh...`excuse` me, folks... oh.
+- What's her `excuse` this time?
+- Would you `excuse` us, please.
+- Yes, `excuse` me for a second.
+- You'll `excuse` me, gentlemen.
+- You'll `excuse` me, gentlemen?
+- You'll `excuse` me, won't you?
+- Better think of a new `excuse`.
+- `Excuse` me, professor lambeau?
+- `Excuse` me -- theresa, was it?
+- Will you `excuse` me for a sec?
+- `Excuse` me, i'll be right back.
+- `Excuse` me, i'm talking to you.
+- `Excuse` me, sir... all right...
+- `Excuse` me -- the man in black?
+- `Excuse` me, what about the job?
+- `Excuse` me -- what did you say?
+                 

@@ -1,0 +1,107 @@
+---
+title: "whoa in a sentence | whoa example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whoa"
+---
+- Wait a minute, `whoa`.
+- Wait a second, `whoa`!
+- `Whoa`, that's toasty!
+- All over the... `whoa`!
+- `Whoa`, check this out.
+- `Whoa`, look out there.
+- `Whoa`, this kicks ass!
+- `Whoa`, `whoa`, easy man.
+- Bellamy... `whoa`, `whoa`.
+- Mom... hey, hey, `whoa`.
+- `Whoa` -- wait a minute.
+- `Whoa`, `whoa`, `whoa`, hey.
+- I'm always care-- `whoa`!
+- `Whoa`, cool your maples.
+- `Whoa`, i made a mistake.
+- `Whoa`, nice to meet you.
+- `Whoa`, what's happening?
+- `Whoa`, `whoa`, `whoa`, `whoa`!
+- `Whoa`, `whoa`, `whoa`, `whoa`.
+- Hey... `whoa`, `whoa`, `whoa`!
+- `Whoa` - give me a chance!
+- `Whoa`, hold up li'l sis'.
+- `Whoa`-- little help here!
+- `Whoa`... she is a killer.
+- `Whoa`... she just farted.
+- `Whoa`, this is so clench!
+- `Whoa`, this was a mistake.
+- `Whoa`, what are you doing?
+- `Whoa`, you look like shit.
+- `Whoa`, check it out beavis.
+- `Whoa`, thanks for stopping.
+- I'm always careful... `whoa`!
+- `Whoa`, hey -- wait a minute.
+- `Whoa`, homemade prank masks.
+- `Whoa`, is this your hideout?
+- `Whoa`, this dude's el barto.
+- `Whoa`, `whoa`, `whoa`, i'm simon.
+- It's gotta be... `whoa`, jesus!
+- `Whoa`, nance, where you going?
+- `Whoa`, `whoa`, `whoa`, `whoa`, `whoa`!
+- `Whoa`, `whoa`, `whoa`, `whoa`, `whoa`.
+- `Whoa`, why are we getting off?
+- `Whoa`... what's your name, son?
+- `Whoa`, `whoa`, `whoa`, `whoa`, what...
+- Honey, hey... hey... `whoa`, `whoa`!
+- `Whoa`, `whoa`, `whoa`, spoiler alert.
+- [cracking, rumbling] jason: `whoa`!
+- Quietly, slow down, `whoa` -- what?
+- Uh, it's fine with... `whoa`, `whoa`!
+- `Whoa`, that thing is super creepy.
+- `Whoa`, there goes the hot dog man.
+- Hey, `whoa`, `whoa`, `whoa`, `whoa`, `whoa`.
+- The hatch only opens - oh... `whoa`!
+- `Whoa`, hans, now you're the cowboy?
+- `Whoa`...`whoa`...wait a second, jack.
+- Stray from the moral path, `whoa`-ho!
+- `Whoa`, `whoa`, `whoa`, `whoa`, `whoa`, `whoa`.
+- Clarke, we both know that pike `whoa`.
+- `Whoa`, `whoa`, i didn't steal anything.
+- `Whoa`, `whoa`... it's gonna be alright.
+- ♪ allelujah ♪ `whoa`, `whoa`, `whoa`, `whoa`!
+- I mean, `whoa`, daddy, stand back, man.
+- ♪ tell me why ♪ `whoa`, `whoa`, hey, hey.
+- `Whoa`, wait a minute... that's a fact.
+- He's probably calling hopper, `whoa`.
+- If i remove the flame, - no, `whoa`, `whoa`.
+- I want you to suffer - `whoa`, `whoa`, `whoa`.
+- `Whoa`, i knew you were going to say that.
+- ♪ `whoa`, oh... ♪ and not alone next time.
+- `Whoa`, what kind of accent you got there?
+- `Whoa`, `whoa`, `whoa`...hold it right there...
+- `Whoa`, dwight, i say when we pull the plug.
+- W... `whoa`, it's ok. at the point of a gun?
+- They want russell prime `whoa`, what is that?
+- `Whoa`, `whoa`, `whoa`, `whoa`... do you think... ?
+- `Whoa`, hey, are you sure you want to do that?
+- `Whoa`...`whoa`...wait, wait -- don't please....
+- `Whoa`, that chick must be the real deal, then.
+- `Whoa`, `whoa`, `whoa`, `whoa`, that's not it, is it?
+- `Whoa`, you better cut a bigger hole than that.
+- It's only 5 notes, but... `whoa`, nellie, right?
+- `Whoa`, homer's making a smoothie while he drives.
+- When they pop above, `whoa`, `whoa`, hey, `whoa`, `whoa`.
+- `Whoa`, easy, trip, this is radio, not "taxi driver."
+- ♪ a generation lost in space ♪ `whoa`, `whoa`, hey, hey.
+- `Whoa`, `whoa` -- i don't know what you're talking about.
+- He's just saying if both of us... `whoa` `whoa` `whoa` `whoa`.
+- The secret passageway on the other hand.... `whoa`, part 2.
+- I'm embarrassed to have -- `whoa`, `whoa`, what are you doing?
+- It's like a really long time ago... `whoa`, my life is cool!
+- `Whoa`, that chick behind that blue-haired lady's your wife?
+- You broadcast that stupid spy shit all over town, `whoa`, `whoa`!
+- Leaving them without power that long `whoa`, no, no, no, no, no.
+- Chief among them clarke's newfound evangelical, `whoa`, `whoa`, `whoa`.
+- Thanks -- `whoa`, professor tripp, careful here... as a heart attack.
+- If he's not lyin' to me, and it really is thai stick, then `whoa` baby.
+- Then, `whoa`, differences... you know: might not of even been no money.
+- `Whoa`, `whoa`... what do you expect them to say, you're alan dershowitz?
+- ♪ a root, a toot, just don't eat his fruit ♪ near as i can figure `whoa`.
+- We put a watch on this pemberton, somebody tries to grab him... `whoa`, jim.
+                 

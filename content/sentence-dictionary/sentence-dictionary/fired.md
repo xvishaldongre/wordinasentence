@@ -1,0 +1,107 @@
+---
+title: "fired in a sentence | fired example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fired"
+---
+- I said you're `fired`.
+- That you were `fired`.
+- They `fired` everyone.
+- Why'd you get `fired`?
+- Yeah, they `fired` me.
+- Fine... you're `fired`.
+- I `fired` her, damn it!
+- Julian, you're `fired`.
+- You'll have me `fired`?
+- Yet you `fired` him.
+- Awwww, buddy -- `fired`!
+- Never `fired` it though.
+- Chub says you're `fired`.
+- In lieu of being `fired`.
+- Margaret, you're `fired`.
+- She said she was `fired`.
+- There were shots `fired`!
+- Did you get `fired` again?
+- I think he's been `fired`.
+- Kennedy `fired` them both.
+- Probably `fired` one time.
+- He just up and `fired` you?
+- I don't want to be `fired`.
+- I think that i got `fired`.
+- Unless... am i `fired` now?
+- Your whole team's `fired`!"
+- You�re `fired`, mr lombard.
+- Did you hear a shot `fired`?
+- I've never even `fired` one.
+- Or you will be `fired` upon.
+- Thank him or you're `fired`!
+- They `fired` a rocket at us.
+- You're gonna get me `fired`.
+- I just `fired` bob alexander.
+- This is where he got `fired`.
+- I'm going to have you `fired`.
+- Jasper `fired` the first shot!
+- No, son, i didn't get `fired`.
+- The data banks say we `fired`.
+- I just got `fired`, that's all.
+- I was `fired` by wyant wheeler.
+- Till the first shot is `fired`.
+- You `fired` the cleaning woman?
+- It's stupid to get `fired` over.
+- Proud of me for getting `fired`?
+- You're the reason i got `fired`!
+- <u>you</u> `fired` <u>me</u>.
+- Because he wanted to get `fired`.
+- The ghosts-- nobody gets `fired`.
+- All right, you said i was `fired`.
+- If you live, you're still `fired`.
+- I thought blockbuster `fired` you.
+- You `fired` that shot, didn't you?
+- You've gotten the old man `fired`!
+- I could have you `fired` right now.
+- I'm damn happy dela `fired` ya ass.
+- The king's stinking son `fired` me.
+- I drew down and `fired` right at it.
+- ...`fired`...your `fired`...your `fired`.
+- I'm the one that `fired` the rockets.
+- I've never `fired` anyone in my life.
+- That we `fired` two photon torpedoes.
+- I remember, distinctly, being `fired`.
+- The captain almost `fired` me tonight.
+- They `fired` tear gas, rubber bullets.
+- What if i were to say "you're `fired`?"
+- But we shouldn't have `fired` him... ...
+- You getting promoted or getting `fired`?
+- This gun gets `fired` before ten o'clock.
+- You got `fired` this morning, didn't you?
+- It's probably because you got him `fired`.
+- Retrorockets ought to have `fired` by now.
+- Well, here's a better one: you're `fired`.
+- Didn't i say "one word and you're `fired`?"
+- The only way i get paid is if i get `fired`.
+- Yet the data banks insist we `fired`: twice.
+- I `fired` my shrink [rumbling] ok. work fast.
+- If you fabricate your facts, you get `fired`.
+- It was fort sumter they `fired` on- you rest.
+- It has been three weeks since i "`fired`" her.
+- Sir... braking thrusters seem to have `fired`.
+- Five-- six-- how many times have i `fired` her?
+- He's intuitive - he knows he's getting `fired`!
+- I had this job with enzo... we got `fired` too.
+- Well, he sure seems `fired` up all of a sudden.
+- What kind of loser gets `fired` after one day?!
+- Gave me half the picture, then he got `fired`...
+- So, i'm the first person to ever be `fired` - we?
+- We found out what happened and we `fired` philip.
+- If i don't show up for work tomorrow, i'm `fired`.
+- Not that he doesn't deserve to get `fired`... look!
+- Uh, just to be clear, we weren't `fired`, you know.
+- Yes, and i got `fired` for it, thank you very much.
+- The negotiation... you... you... you `fired` on him.
+- Well, i - you deny enterprise `fired` on kronos one?
+- A leak happens, the whole damn place should be `fired`.
+- And i don't know about you, clarke `fired` out of here.
+- I `fired` upon the horseman and the bullet did nothing.
+- I just showed up for work and found out you `fired` me.
+- The soviet union collapsed without a shot being `fired`.
+                 

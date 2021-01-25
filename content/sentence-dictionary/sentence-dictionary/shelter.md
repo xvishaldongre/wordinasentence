@@ -1,0 +1,51 @@
+---
+title: "shelter in a sentence | shelter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shelter"
+---
+- They have a `shelter`.
+- They'll find `shelter`.
+- It's a homeless `shelter`.
+- Earth `shelter`'s the best.
+- Today, water and `shelter`.
+- Hyenas, we must find `shelter`.
+- You should come into the `shelter`.
+- Perhaps we can take `shelter` there.
+- Alan that `shelter` was in this bill.
+- He sought `shelter` when he needed it.
+- What about a battered woman's `shelter`?
+- We'll stop here, dig out a snow `shelter`.
+- We had to take `shelter` in the checkpoint.
+- We have to find `shelter`... isolinear tags.
+- Explore `shelter` possibilities, funding bodies.
+- They've got to find `shelter` soon, and so do we.
+- If things get really bad, there's a storm `shelter`.
+- I'll take `shelter` in the douglas exhibition shaft.
+- I absolutely refused the house and the bomb `shelter`.
+- Look at this structure... a kind of natural `shelter`.
+- No one <u>needs</u> anything except food and `shelter`.
+- Why the fuck would i want to save a homeless `shelter`?
+- Surely there must be a `shelter` somewhere in this city.
+- We have plenty of food and `shelter` for those how, seda?
+- Why would you put a fallout `shelter` under a porno shop?
+- Let it be like a `shelter` that keeps you safe in a storm.
+- It could provide `shelter` for the 100 okay, taking a break.
+- 24 of them, there's plenty of food, water, we have `shelter`.
+- It'll be dark soon, there's no other `shelter` for ten miles.
+- There's a bomb `shelter` over in durant, by the iga, on first.
+- I can't...i can't find a `shelter` do ,you know how bad you smell?
+- What if i told you there might be a fallout `shelter` he's strong.
+- All citizens must report to the nearest `shelter` zone immediately.
+- Good god...you don't think there really is a bomb `shelter`, do you?
+- Eve tells me you've been living in a bomb `shelter` most of your life.
+- Hitler himself offered you a beautiful house and a personal bomb `shelter`.
+- But you cannot complete the conquest, so far from your `shelter` and supply.
+- But if this is a sample of american diplomacy i'm buying a fallout `shelter`.
+- But the nearest `shelter`'s the wyatt ranch and that's maybe five hours away.
+- Winds are too strong to get a chopper up there, are you near any natural `shelter`?
+- I told you, we were late for `shelter` fill them with water, as big as you can find.
+- There's enough food and clothing and `shelter` for everybody if we'd use some sense.
+- When my business manager told me i should `shelter` some money, i thought i'd try this.
+- Every one of these songs will remind you of me in a slightly different way... a `shelter`?!
+                 

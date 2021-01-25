@@ -1,0 +1,7 @@
+---
+title: "legatee in a sentence | legatee example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "legatee"
+---
+## Unfortunately, we have no example sentences for legatee                 

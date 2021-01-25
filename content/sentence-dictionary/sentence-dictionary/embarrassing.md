@@ -1,0 +1,62 @@
+---
+title: "embarrassing in a sentence | embarrassing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "embarrassing"
+---
+- I'm not `embarrassing`!
+- This is `embarrassing`.
+- Cos it's `embarrassing`.
+- That'd be `embarrassing`.
+- You're `embarrassing` me.
+- It's `embarrassing`, okay?
+- This is so `embarrassing`!
+- This is so `embarrassing`.
+- It's pretty `embarrassing`.
+- It's really `embarrassing`.
+- Man, this is `embarrassing`.
+- You're `embarrassing` me.
+- An `embarrassing` way to die.
+- It's a little `embarrassing`.
+- That's just so `embarrassing`.
+- This is `embarrassing`, really.
+- Every damn `embarrassing` thing.
+- This is `embarrassing`, you know.
+- Oh, marge, this is `embarrassing`.
+- Yeah, it's kind of `embarrassing`.
+- Is that an `embarrassing` question?
+- Mom, this costume's `embarrassing`.
+- No... no... this is `embarrassing`.
+- Oh mommy, you're `embarrassing` me.
+- In my own bedroom is `embarrassing`!
+- Christ, this could be `embarrassing`.
+- Now, sally, you're `embarrassing` me!
+- It's kind of `embarrassing` but, okay.
+- My goodness, you're `embarrassing` me.
+- Oh my g-d, how `embarrassing` were they?
+- This is going to be very `embarrassing`.
+- It would have been really `embarrassing`!
+- It's so `embarrassing`, it has to be true.
+- Well, gents, this is kinda `embarrassing`, but...
+- "it's `embarrassing` for you to be seen with her."
+- Well, it's actually more `embarrassing` than that.
+- Is that my punishment for `embarrassing` mr heineman?
+- This is so `embarrassing`... raise your hand...where?
+- This is so `embarrassing`, it's never happened before.
+- Dude, you're `embarrassing` me in front of the wizards.
+- The whole thing must have been so `embarrassing` for you!
+- Is it ever `embarrassing`, having your bum kissed in public?
+- You know, i'm in a restaurant and it's - it's `embarrassing`.
+- I know it's `embarrassing`... but who were you exposed to, dear?
+- It'd be so `embarrassing` his name's wally brown .... great guy.
+- It's a little `embarrassing`, but i feel very unguarded with you.
+- It's `embarrassing` to the professional community, is what it is.
+- ...plenty they're just eggs, elden, how `embarrassing` can eggs be?
+- This is really weird and really `embarrassing` for me but....uh....
+- I was dreaming -- oh, no -- can't tell -- how `embarrassing` for me.
+- You know, each of us admit something `embarrassing` about ourselves.
+- I don't know why i went out with you in the first place, it was `embarrassing`!
+- Lydia, i will never forgive you for `embarrassing` me in front of my social inferiors.
+- I'm not saying anything else until you tell me something `embarrassing` about yourself.
+- You know... every week i come in here and i tell you stuff... and it's all `embarrassing`.
+                 

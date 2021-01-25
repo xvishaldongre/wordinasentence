@@ -1,0 +1,107 @@
+---
+title: "planning in a sentence | planning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "planning"
+---
+- He's `planning` a job.
+- I'm always `planning`.
+- Takes money, `planning`.
+- Wasn't `planning` on it.
+- I'm not `planning` on it.
+- You're `planning` a trip?
+- I wasn't `planning` on it.
+- `Planning` for our future.
+- You're `planning` to speak?
+- Are you two `planning` kids?
+- But you're `planning` to be?
+- I got some `planning` to do.
+- No, but we're `planning` to.
+- Yes, that's good `planning`.
+- Is that what you `planning`!?
+- To `planning` before property.
+- What are you `planning`, jack?
+- Were you `planning` to tell me?
+- When i was `planning` some job.
+- We're `planning` a june wedding.
+- What are you `planning`, mother?
+- I've spent years `planning` this.
+- Not `planning` on sleeping at all.
+- They had him `planning` air raids.
+- Are you `planning` to be home soon?
+- I've been `planning` it for months.
+- Whatever it is you're `planning`...
+- How long are you `planning` to stay?
+- It's still in the `planning` stages.
+- Because i'm `planning` on dying soon.
+- Howard and i are `planning` to marry.
+- Start `planning` my memorial service?
+- What were you `planning` to do, jack?
+- You `planning` on sleeping out there?
+- He's probably `planning` it right now.
+- What is he `planning` on telling them?
+- When are you `planning` to start back?
+- Are you `planning` to be the exception?
+- How you `planning` on getting it there?
+- They're `planning` some kind of attack.
+- What are you `planning` to do tomorrow?
+- You `planning` to do anything about it?
+- You `planning` to rock the boat at all?
+- `Planning` on getting -- just sit me up.
+- Thanks so much for `planning` it, letty.
+- When were you all `planning` to tell me?
+- When you `planning` to cut back on that?
+- You `planning` on using that on me, too?
+- Which car were you `planning` on - - tim.
+- You're not `planning` on staying are you?
+- Are you `planning` to go back to new york?
+- I thought you were `planning` the evening.
+- Right now he's `planning` a trip to japan.
+- He... he's `planning` to kill us, isn't he?
+- I am `planning` to go out and do some work.
+- We need to find out what echo's `planning`.
+- We were `planning` on seeing the astrodome.
+- I did't know you were `planning` a comeback.
+- How long are you `planning` to stay in regan?
+- You must be `planning` on doing some hunting.
+- Bob and i have been `planning` on it all week.
+- I didn't anticipate what they were `planning`.
+- `Planning` on burning this place to the ground?
+- Well, i was sort of `planning` on... alright...
+- We're `planning` to go to cortina at christmas.
+- Kane's `planning` a secret council meeting will?
+- `Planning` on going to war all by your lonesome?
+- Are you two `planning` to go away with the money?
+- But where are you `planning` to stay in new york?
+- My friend, if you're `planning` on crossing me...
+- What are you `planning` to do when they got here?
+- What sort of problems are you `planning` exactly?
+- You two `planning` on going steady, or something?
+- I was `planning` to do a lot of business with you.
+- You're not `planning` -- am i right or am i right?
+- Are you and your friends `planning` on driving soon?
+- If you knew what i was `planning`, why are you here?
+- Shaw's been `planning` to beat your game for months.
+- Actually, i was `planning` on running down to kinkos.
+- I was `planning` to hit the pentagon next week...
+- You were `planning` to send me back to the ice house.
+- When were you `planning` on informing the rest of us!?
+- Where are you `planning` on putting private ryan, sir?
+- Neatness is always the result of deliberate `planning`.
+- `Planning` the wedding without you has been a disaster.
+- We were `planning` to be married right after christmas.
+- Ain't you `planning` on going to bed in the near future?
+- At the last second, we're `planning` at the last minute.
+- I suppose i can, sir; are you `planning` to take a swim?
+- With one day, not even a day, of `planning`, you did it.
+- I thought we were `planning` a long rosy future together.
+- I've been `planning` on kissin' you for a very long time.
+- If you're `planning` on shooting anything, you killed her.
+- I think he's `planning` on staying in rome for a few days.
+- Maybe you're `planning` to murder me, right here, tonight.
+- Cochrane was `planning` to use it to ignite the warp drive.
+- Were you `planning` on kissing me when you finished quoting?
+- Are you `planning` to build the crib out of twigs and saliva?
+- Either you've caught a cold, or you're `planning` to kill me.
+- I was wondering, how are you `planning` to beat the security?
+                 

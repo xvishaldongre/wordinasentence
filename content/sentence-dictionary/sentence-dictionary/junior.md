@@ -1,0 +1,105 @@
+---
+title: "junior in a sentence | junior example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "junior"
+---
+- Just call me `junior`.
+- `Junior` gave it to me.
+- `Junior` prom... kinda.
+- It's `junior`, isn't it.
+- Isn't that right `junior`?
+- What kind of `junior` p.i.
+- `Junior`'s a problem child.
+- The `junior` shop stewards.
+- Juicy, `junior`, real juicy.
+- `Junior` gets up and follows.
+- Oh, `junior`... alexandretta.
+- Hoyt, `junior`, carry gardner.
+- That's two you owe me, `junior`.
+- Three white males shot `junior`.
+- Your `junior` life-saving buddy?
+- Besides, `junior` cut the phones.
+- Did you always call him `junior`.
+- `Junior` will take it from there.
+- You still got the touch `junior`.
+- You told `junior` that we did it.
+- `Junior`, give me your other hand!
+- Dad... what did you find, `junior`?
+- `Junior` is going to drive me over.
+- This was your department, `junior`.
+- `Junior` spends time with his child.
+- You're supposed to say `junior` who!
+- Circa `junior` high... long time ago.
+- Get back here, `junior` bean counter.
+- `Junior` cringes away from the light.
+- `Junior` kim was doa at the hospital.
+- Remember this from our `junior` prom?
+- Theo and `junior` circle one another.
+- I'm afraid to let you think, `junior`.
+- `Junior`, i don't have to worry about.
+- No, `junior`, you shouldn't touch her.
+- Come on, `junior`, it's a school night.
+- Why is `junior`'s watch in that coffin?
+- You don't get two chances with `junior`.
+- If `junior` finds us, he'll kill us both.
+- I teach part time at the `junior` college.
+- `Junior` catches him, grabbing his ankles.
+- The beam of light catches `junior`'s face.
+- Got her right where you want her, `junior`.
+- Who's gonna come to save you, `junior`??
+- `Junior` sits impassively, his face a blank.
+- They won't do anything to `junior`, darling.
+- I have someone for you to play with `junior`.
+- Look, i'm `junior` man -- and it's your beat.
+- The `junior` pathologist at ashford hospital.
+- Carl `junior` treated him like a white person.
+- I haven't walked that far since `junior` high.
+- Just like `junior` did the last time; lane six.
+- Tell theo what happened to your hand, `junior`.
+- Nobody in this town really understands `junior`.
+- The kid - `junior`, that is - will be right down.
+- This isn't the `junior` chamber of commerce brad.
+- Almost a `junior` broker at e.f. hutton... you?
+- I am interested in - well, `junior`, for one thing.
+- There's a meeting of the `junior` shop stewards ...
+- I'm worshipped at westerburg and i'm only a `junior`.
+- I have someone for you to play blueface with `junior`.
+- Sheriff deeds' dead, honey--you just sheriff `junior`.
+- This one, in case you haven't guessed, is `junior`.
+- Then `junior` blew a fuse and i became their last hope.
+- Fda `junior` captain, hollywood division you my partner?
+- We caught the little one, `junior`, in the cooler there.
+- I was gonna cremate it and... don't piss me off, `junior`.
+- Well, you and `junior` have the same name, too, don't you?
+- You tried to make it look like `junior` trashed his place.
+- `Junior`'s underground in that coffin you dicks put him in.
+- Baxter -- `junior` executive, arthur murray graduate, lover.
+- It takes a hell of a `junior` high kid to hit a ball that far.
+- Kastle slams the ketchup bottle down on `junior`'s right hand.
+- What was the most points your daddy ever got in `junior` high?
+- I met her in `junior` college and she was from this other town.
+- `Junior` starts stroking the ketchup bottle with his dead hand.
+- Nobody knows you barfed during `junior` high school graduation.
+- She told us you went after `junior` to save your old man's hide.
+- Somebody blew out `junior`'s pilot light, if you get my meaning.
+- Because i kept asking my husband where the heck could `junior` be?
+- Stop calling me mr. patel, you're not a `junior` clerk anymore.
+- I tried to teach him right from wrong just like i did his `junior`.
+- We'll just make an appointment for you at seattle `junior` college.
+- I kept a lot of scrapbooks and pictures and stuff from `junior` high.
+- I mean she's a `junior` at chicago university, she's twenty years old!
+- You're sure going to be poison to that `junior` leaguer[4] from now on!
+- ...i was the number one `junior` sales associate at e.f. hutton in 1988.
+- Mike, `junior` vaughn, brookie peters, pat, lucy -- all that whole gang.
+- I'd sure like to see them swinging on the jungle gym with al `junior`.
+- Her `junior` high sweetheart... what chance would i have had against that?
+- `Junior` looks from one man to the other, breathing heavily, his nostrils flaring.
+- Sheila grabs the bottle from `junior`, opens it and pours some on her shish kebab.
+- Every time someone asks you to do something, you always say, tell `junior` to do it.
+- Y'ever look at yoself in the mirror `junior`, youse uglier than a dick on a dog man.
+- `Junior`, you gigantic idiot, how are we supposed to get into the room if they pass out?
+- So i don't want to hear anymore of this scooter, buddy, `junior`, skippy, tiger, bullshit.
+- I'm sending `junior` home in the car, charles - with oliver - they won't hurt you, darling.
+- Oh, you know - `junior` league - charity bazaars - i used to sell kisses for the milk fund.
+                 

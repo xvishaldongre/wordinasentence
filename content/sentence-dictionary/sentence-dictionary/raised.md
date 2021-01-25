@@ -1,0 +1,84 @@
+---
+title: "raised in a sentence | raised example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "raised"
+---
+- Children you `raised`.
+- You `raised` on a farm?
+- _ children you `raised`.
+- `Raised` a family there.
+- We `raised` you as a jew.
+- We're `raised` as riders.
+- I was `raised` for it, ok.
+- Bayside, born and `raised`.
+- And `raised` you as her own.
+- Just the way i was `raised`.
+- You `raised` me, like a son.
+- I was `raised` very strictly.
+- It's what i was `raised` to do.
+- I was `raised` by witches, boy.
+- I was `raised` with no religion.
+- Thinks you `raised` me stupidly.
+- He and my aunt, ellie `raised` me.
+- I was `raised` by a single mother.
+- You `raised` me to think like you.
+- I was born and `raised` right here.
+- I was `raised` alone on a spaceship.
+- She was `raised` on a poor dirt farm.
+- Someone has `raised` the temperature.
+- A generation of men `raised` by women.
+- He can't help the way he was `raised`.
+- Besides i was `raised` better than that.
+- `Raised` lettering, pale nimbus white...
+- You've `raised` it up to the chin, i see.
+- Will let your child be `raised` in sanctum.
+- She's `raised` in them shanties off st. luc.
+- I was actually `raised` on stories about her.
+- I was `raised` that a girl gets married young.
+- Everyone on bardo is `raised` to be a disciple.
+- You know, the guy who was `raised` from the dead?!
+- And i `raised` my daughter in the american fashion.
+- According to the backer's list you `raised` $60,000.
+- I wasn't `raised` with the ideals of the federation.
+- We `raised` such a fuss they finally brought cots in.
+- _ answered a lot of questions but `raised` a lot more.
+- Damn lot of corn `raised` in hollywood these days too.
+- They `raised` enough money to build a day care center.
+- Upon her death, sybok and i were `raised` as brothers.
+- You know, ♪ we're the spirits you `raised` ♪ josephine.
+- And the king will let your child be `raised` in sanctum.
+- What, did you think he was `raised` by a pack of wolves?
+- I's horned and `raised` here up till i's twelve year old.
+- Hey, nothing is my fault 'cause dad `raised` me so rotten.
+- `Raised` her like she was, but no, walter's my only child.
+- What, because i wasn't such a genius the way i `raised` you?
+- Two hundred to follow you, and i've `raised` it four hundred.
+- Well, nothing is my fault 'cause my dad `raised` me so rotten.
+- A son who was `raised` in a world quite different from our own.
+- You were `raised` on farm station and recruited by engineering.
+- Buttercup was `raised` on a small farm in the country of florin.
+- How is someone `raised` beneath the floor not a total basket case?
+- The orphanage where you were `raised`, the fbi academy, the bureau.
+- I-i-i mean, i'm comparatively normal for a guy `raised` in brooklyn.
+- It's obviously a poisonous environment for a baby to be `raised` in.
+- I'm a full blood oglala sioux, born and `raised` on this reservation.
+- Marge and homer `raised` their three kids how did murphy get a gun?
+- But my old lady `raised` us ten kids on a stinkin' watchman's pension.
+- They're making us do the hard work you were `raised` alone on a planet.
+- Indra, tell your people to stand down he `raised` my property taxes, jim.
+- You `raised` two thousand more than you needed to produce your last play.
+- In this country, they'd have to be specially `raised`, from imported eggs.
+- I `raised` you to think for yourself, in my way i've hated him all my life.
+- Once abraham `raised` the knife, in his heart it was as if he'd killed him.
+- Those were the attitudes in the fifties, and that's the way you `raised` me.
+- I know you don't approve of the subject being `raised`-- i heard you tonight.
+- Because you were `raised` in space, what, are they gonna float me for looking?
+- You see, if you were really a bold criminal, you could have `raised` a million.
+- She turns behind her to see the ghost face coming at her again...knife `raised`.
+- You have `raised` the sisters' expectations, you have excited and confused them.
+- I'm not convinced of that, mr. president, but your visit has `raised` my spirits...
+- Your, uh, voice sounds different on the-- ♪ we're the spirits you `raised` ♪ i'm in.
+- Chingachgook - who found me with two french trappers - `raised` me up as his own.
+- He let me believe that he did it, she `raised` me to be better, to be good... light her up.
+                 

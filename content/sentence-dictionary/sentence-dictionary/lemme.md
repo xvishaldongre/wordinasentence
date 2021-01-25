@@ -1,0 +1,80 @@
+---
+title: "lemme in a sentence | lemme example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lemme"
+---
+- `Lemme` down, bugface!
+- `Lemme` make the call.
+- `Lemme` see your ball.
+- `Lemme` take you home.
+- Then `lemme` have 'em.
+- `Lemme` tell it, tommy.
+- `Lemme` clarify for you.
+- `Lemme` fix you a drink.
+- `Lemme` see it, will you?
+- `Lemme` ask you something.
+- `Lemme` get this straight.
+- `Lemme` take another look.
+- `Lemme` ask you a question.
+- `Lemme` tell you something.
+- `Lemme` out of this coffin!!
+- `Lemme` put some clothes on.
+- `Lemme` write it down for you.
+- So please... `lemme` try, huh?
+- Okay... `lemme` clear it with...
+- So... `lemme` get this straight.
+- Wait a minute, `lemme` see that.
+- Come on, `lemme` give you a lift.
+- First `lemme` look at your necks.
+- You gonna `lemme` see your scars?
+- `Lemme` ask you something, steven.
+- Okay, `lemme` walk you through it.
+- Willya `lemme` talk for chrissake?
+- Ah, come on, `lemme` see your ball.
+- Erin -- `lemme` tell you something.
+- Harry, `lemme` give you some advice.
+- `Lemme` just, uh... that'll be fine.
+- `Lemme` see ... stop global warming.
+- ... or `lemme` guess -- toxic waste?
+- All right, `lemme` ask you something.
+- `Lemme` get off the other line, baby.
+- Dragline, `lemme` look at the picture.
+- Hey peter, `lemme` ask you a question.
+- `Lemme` guess where you got that from.
+- Well, `lemme` play the other side then.
+- Beat your butt, you don't `lemme` think!
+- `Lemme` talk to buddy, set up a meeting.
+- `Lemme` tell you about my first movie...
+- I say, `lemme` get a cigar outta the car.
+- `Lemme` give you the number for bellevue.
+- `Lemme` feed you, sweetie, while they hot.
+- `Lemme` tell you about sarge... and sarge?
+- I don't know... `lemme` tell you something.
+- Then `lemme` throw in a couple more things.
+- Just `lemme` keep my job, i'm prayin' to ya!
+- `Lemme` give you another piece of advice.
+- Just `lemme` talk to joey to... to apologize.
+- `Lemme` think... shit, did you touch the car?
+- `Lemme` tell you about history: black history.
+- Saunders--it's meat and drink--`lemme` at 'im!
+- `Lemme` get this through this lame brain of mine.
+- Mr. ... oh, hey -- `lemme` give you a hand there.
+- `Lemme` see, was that before or after the oil fire?
+- No, just stand there... `lemme` look at you a minute.
+- Then... hey, `lemme` close out the thing in style.
+- `Lemme` see that rifle son... what are doing with yours?.
+- All right... `lemme` see... okay, new burger king opens up.
+- Come on, `lemme` load you up... what's the matter with you?
+- `Lemme` turn around and we'll be in hau fat in six minutes.
+- Well, not forever--`lemme` think ... five year sentence ...
+- You breeds are all alike -- two drinks an'... `lemme` alone...
+- Now be a sport and `lemme` have twenty bucks to put in my pocket.
+- So, `lemme` just ask you a couple questions to start -- -- go, go, go.
+- Help... `lemme` go... no, don't let me go... help... let go of my hand.
+- * `lemme` take you down in the basement and show you what you've become.
+- I think an ending is being arranged there... come on, `lemme` see a smile.
+- `Lemme` get this straight, you broke in again to apologize for breaking in before?
+- But `lemme` tell you, he is the most dangerous thing in every way that i've come on so far.
+- `Lemme` give you some advice, if she asks you to dance, make sure her brother's not around.
+                 

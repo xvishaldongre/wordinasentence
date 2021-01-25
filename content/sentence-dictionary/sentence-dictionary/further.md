@@ -1,0 +1,107 @@
+---
+title: "further in a sentence | further example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "further"
+---
+- Others went `further`.
+- No `further` questions.
+- It don't go no `further`.
+- For `further` instruction.
+- It's `further` to the sea.
+- For a `further` three years.
+- I can't go any `further` in.
+- I'm not going any `further`!
+- It goes `further` back, sid.
+- Let's take a step `further`.
+- Don't humiliate me `further`.
+- Don't take this any `further`.
+- I have no `further` questions.
+- Nothing `further`, your honor.
+- Sorry, no `further` questions.
+- And know it'll go no `further`.
+- Do not take this any `further`.
+- It's a lot `further` than that.
+- _ did you two get any `further`?
+- He must be `further` down there.
+- Then don't drift down `further`.
+- I refuse to discuss it `further`.
+- Let us not discuss this `further`.
+- [music playing] how much `further`?
+- Not yet...how much `further` is it?
+- Now how far would `further` out be?
+- We won't trouble you any `further`.
+- Before we go any `further` here, mr.
+- I can't ask you to go any `further`.
+- Pray i don't alter it any `further`.
+- Any `further` words of encouragement?
+- "how much `further` can we push this?
+- I can't drag you `further` into this.
+- We should head a little `further` in.
+- Any `further` thoughts on the subject?
+- I am not taking a step `further` - no!
+- Don't take this any `further`, or what?
+- Going `further` up and you can imagine.
+- You needn't take it any `further`, sir.
+- I can't go down that road any `further`.
+- They are awaiting `further` information.
+- Well, octavius won't get much `further`.
+- Always, my dear one, never any `further`.
+- ...hundred yards `further` down the road.
+- If i can ever be of `further` assistance.
+- I will speak to you `further` when i come.
+- Well, you just have to move `further` out.
+- They will slow the impact even `further`.
+- I cannot dig any `further` in zis direction!
+- Please advise pending `further` information.
+- Then `further` as the violence intensiﬁed.
+- `Further`... what are you talking about, air?
+- We'll need a vehicle to get `further` inland.
+- We should not go much `further` in this murk.
+- Where our motto is, "no `further` questions."
+- Does anyone care to touch upon this `further`?
+- `Further`: ms. costello is a rebuttal witness.
+- Apparently you're to report for `further` review.
+- Explorers in the `further` regions of experience.
+- He's been taken downstairs for `further` testing.
+- I'd make no `further` attempt to find jacqueline.
+- Without `further` ado, i present the story of us.
+- Instead, you antagonize her `further` bode wright.
+- That's away from the hummer; `further` into iraqi.
+- The committee is adjourned until `further` notice.
+- We must talk `further`, when it's more convenient.
+- You'll be able to throw it `further` than i could.
+- Can't you pull that stocking down `further`, kenny?
+- I do believe this requires `further` investigation!
+- Next week we'll meet and discuss `further` details.
+- There's nothing `further` to be gained from this...
+- ... but i still recommend `further` simulation study.
+- Currents could've carried the body 10 miles `further`.
+- Take no `further` steps toward marriage until we meet.
+- Your parents...they ...well...they exist no `further`.
+- I can't go any `further`... you didn't try hard enough.
+- I'm not going any `further` until you tell who you are.
+- It's just a little `further` down the dial, that's all.
+- You don't get it, guys - he can't go down any `further`.
+- I'll just take this to my laboratory for `further` study.
+- I think we need to address him, before he reacts `further`.
+- It's `further` than i thought... a worm is sure to come....
+- Honey, i can't reach any `further` and you can't stay there.
+- Plenty of time for that when we're a little `further` along.
+- Report to your station supervisor for `further` instructions.
+- Take this to that desk over there for `further` instructions.
+- Yes... that we should take our friendship a little `further`?
+- If we haven't taken any `further` action, they certainly will.
+- We shouldn't go any `further` till we know the route's secure.
+- You can't get any `further` away before you start coming back.
+- Well, could there be any position... `further` down the trough?
+- We'll leave these papers here for your `further` consideration.
+- Every year, the death rate lags `further` behind the birth rate.
+- I will not permit any `further` testing on the eve of a mission.
+- Be prepared to come in for `further` interrogation on this later.
+- Even the man they left to guard me retreated `further` than that.
+- Since the initial transmission, there's been no `further` contact.
+- Well, suppose she got a little `further` north than she should have.
+- Can i push my beliefs `further` so don't turn away from it this time.
+- School and scheduled activities and that's it until `further` notice.
+                 

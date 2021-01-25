@@ -1,0 +1,56 @@
+---
+title: "possession in a sentence | possession example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "possession"
+---
+- His most cherished `possession`?
+- `Possession` of a stolen shovel.
+- For that old `possession` charge?
+- I busted her once for `possession`.
+- That's my most prized `possession`.
+- It's felony `possession` of marijuana.
+- Taking `possession` be another matter.
+- Someone in `possession` of all the facts.
+- They callin' it `possession` with intent.
+- `Possession` of unregistered machine guns.
+- We busted frank antonucci on `possession`.
+- How did it come to be in your `possession`?
+- What is his most cherished `possession`?
+- The bond for `possession` is only a thousand.
+- Besides, `possession` is 9/10 of the law, ugh!
+- If you plead to `possession` and tell l.a.p.d.
+- The cowgirls have `possession` of siwash lake.
+- Why is the green destiny in your `possession`?
+- Several `possession` charges, but nothing major.
+- In full `possession` of your faculties, at least.
+- The khamba's gun is his most prized `possession`.
+- Mr. kint will plead guilty to weapons `possession`.
+- This woman is mankind's most precious `possession`!
+- That doesn't help support a case for `possession`.
+- I did a minute in quentin for `possession` with intent.
+- You have no idea what you're in `possession` of, do you?
+- The new kid, alita, takes `possession` right of the snap.
+- Like i said, open container, p.i., misdemeanor `possession`.
+- Love and hate too busy fighting for `possession` of my soul.
+- She came to me with a wild story about demonic `possession`.
+- He's got a record of 459's and he was busted on `possession`.
+- You probably know as much about `possession` than most priests.
+- The three hundred grand chili palmer now has in his `possession`.
+- I need evidence that the church would accept as signs of `possession`.
+- My father's sword means more to me than any other `possession` i have.
+- ♪ love and marriage, love and marriage ♪ my most precious `possession`.
+- `Possession` alone will cost you six months, not to mention your badge.
+- How did a sky person come to be in `possession` how's finn doing, anyway?
+- The crystal darth stole was the last one in the `possession` of the jedi.
+- `Possession` of narcotics isn't something we take lightly, you understand?
+- Automatic imprisonment for `possession` of materials considered seditious...
+- Care to tell us how you came into `possession` of an illegal access program?
+- You know the police have charged him with a dui and `possession` of marijuana.
+- Anyway, they had him on `possession`, dealing in heroin, murder one and a lot more.
+- The few crystals that remain are in the `possession` of the sith lords on alderaan.
+- Somehow during the tour, she came into `possession` of a prototype transmitting device.
+- It started out drunk driving, but they wrote it up "`possession` of a concealed weapon."
+- `Possession` or use of marijuana or alcohol on campgrounds will means instant dismissal.
+- I've got orders here to take `possession` of this train and to investigate a certain crime.
+                 

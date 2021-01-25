@@ -1,0 +1,52 @@
+---
+title: "poetry in a sentence | poetry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "poetry"
+---
+- I didn't ask for `poetry`.
+- Is there `poetry` in math?
+- Uh... `poetry` recitation.
+- What do you mean, `poetry`?
+- All `poetry` was acceptable.
+- They had a `poetry` to them.
+- I love `poetry` above all.
+- Do you like `poetry`, raymond?
+- Make me up some more `poetry`.
+- Uh, "modern american `poetry`"?
+- I will have `poetry` in my life.
+- That `poetry` really killed her.
+- I love you, will, beyond `poetry`.
+- Can we skip the `poetry`, inspector?
+- Don't limit `poetry` to the word.
+- I'm telling her your map is `poetry`.
+- He makes most of it from his `poetry`.
+- No, wordsworth .. do you like `poetry`?
+- I don't think `poetry`'s my kinda thing?
+- All the men at court are without `poetry`.
+- Mrs. kane liked `poetry` - can't say, sir.
+- The war pulled `poetry` out of some of us.
+- Darth vader reads `poetry`... we're fucked.
+- Oh, that's different if it's just `poetry`.
+- Me, two hours a week, talking about `poetry`.
+- 'kings and sixes the pot affixes'... `poetry`.
+- From jewish folk `poetry`, a song cycle... panes?
+- I ain't sure `poetry` will go down too well here.
+- You 're so -- i heard there was a `poetry` reading.
+- There's plenty of `poetry` right inside that ring, fink.
+- He's behind all this with all his stupid blowhard `poetry`!
+- There's `poetry` in that, if you want to go, go, i promise.
+- You wanted to learn everything about `poetry`, about music.
+- You don't read to fill your stomach... `poetry`, for instance.
+- Charles foster craig doesn't have the knives-out `poetry` i need.
+- Oh yes, he is the one, lovely waistcoat, shame about the `poetry`.
+- It may make very fine `poetry`, mr. hoag, but it doesn't make good sense.
+- And your `poetry` and all the other amazing things that you share with the world.
+- Your `poetry` and all the other amazing things that you share with the world.
+- Nuwanda recited `poetry` to gloria and she jumped all over him... right, nuwanda?
+- The fifth grader who somehow turned the school `poetry` magazine we're dead to them!
+- I'd like to talk with you about doing some performance `poetry` here....a weekly thing.
+- He taught me the mathematics of anatomy but he couldn't teach me the `poetry` of medicine.
+- Now, look, all the books on death and dying are yours and all the `poetry` books are mine.
+- This `poetry` �� like the `poetry` you wrote before extols the passion and beauty of life?
+                 

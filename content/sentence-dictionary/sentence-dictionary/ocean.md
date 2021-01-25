@@ -1,0 +1,105 @@
+---
+title: "ocean in a sentence | ocean example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ocean"
+---
+- A view of the `ocean`.
+- An `ocean` liner maybe.
+- In the pacific `ocean`.
+- Looks like the `ocean`.
+- Do they have an `ocean`?
+- This `ocean` business...
+- The heart of the `ocean`.
+- It is the western `ocean`.
+- He jumped into the `ocean`.
+- I see the `ocean` currents.
+- The `ocean` is uncrossable?
+- I need to get to the `ocean`.
+- I've heard about the `ocean`.
+- Never saw the `ocean` before.
+- You can just see the `ocean`.
+- I want him out of the `ocean`.
+- Nothing out there but `ocean`.
+- She was crazy for the `ocean`.
+- Can you make it to the `ocean`?
+- Make a right at `ocean` avenue.
+- Somewhere in the indian `ocean`.
+- Columbus sailed the `ocean` blue.
+- Not exactly a big `ocean` country.
+- The `ocean` is said to be infinite.
+- I think better than the `ocean`.
+- I can't blame the `ocean`--it's you.
+- I've never seen the `ocean`, either.
+- In the middle of the `ocean` no less.
+- A little place on the pacific `ocean`.
+- Comoros islands in the indian `ocean`.
+- Finn: ere’s an `ocean` to the east.
+- It’s a 120-mile walk to the `ocean`.
+- There was no boardwalk and no `ocean`.
+- Which makes the `ocean`... uncrossable.
+- Nowhere... just straight to the `ocean`.
+- <font color=#ffff2d>...above the `ocean`.
+- Speedboat in the middle of the `ocean`...
+- Nat, it's an earthquake under the `ocean`.
+- Would i swim across an `ocean` for you?...
+- Attracted by the boardwalk and the `ocean`.
+- From the 13th station fell into the `ocean`?
+- All i get out of these `ocean` trips is dizzy.
+- Her hair blowing softly in the `ocean` breeze?
+- There must be a passage to that other `ocean`.
+- This here is the `ocean`, and you're drowning.
+- We followed that drone across the open `ocean`.
+- I am going to mysteriously drown in the `ocean`.
+- Or pee in their pants when they see the `ocean`!
+- Very deep... usually... how deep is the `ocean`?
+- I've bet it all to find the heart of the `ocean`.
+- The `ocean` tides are changed into energy somehow.
+- You're just another piece of trash in the `ocean`.
+- "we don't stop... until we hit the fucking `ocean`."
+- A very rare diamond, called the heart of the `ocean`.
+- If the thing hatched in mid-`ocean`, where did it go?
+- Your "ability to fight a two-`ocean` war" against who?
+- I mean california almost threw up right in the `ocean`.
+- It's beautiful; an old greek town right on the `ocean`.
+- You're not going to the `ocean` with that, are you son?
+- <i>the tough get going.</i> just like billy `ocean` says.
+- No, but tiger sharks are the garbage cans of the `ocean`.
+- You set a fish free because it has an `ocean` to swim in.
+- I'm in this tiny sub on the bottom of the fucking `ocean`.
+- "mommy, we're going out to the `ocean` -- to go swimming."
+- Stunning bod, very snugglelicious `ocean` sunset dreamer."
+- There sure is some weird shit on the bottom of the `ocean`.
+- Like lab rats to die, to an evil god from the `ocean` depths.
+- The `ocean` would feel so good, the water's so soft and warm.
+- I went for a walk after dinner, down to the `ocean`...alone...
+- Until i touch the `ocean` with my hands... it's all just words.
+- Don't blame it on the `ocean`!--all right, you'll get the raise!
+- I must say you're an island of reality in an `ocean` of diarrhea.
+- Would you guys like to set sail on this `ocean` of flavor with me?
+- I live in riverside, goddammitt and you get to piss in the `ocean`.
+- We climb down to the barge and follow the river out to the `ocean`.
+- If it were up to me, i'd chase every goddamn englishman into the `ocean`.
+- We're on the bottom of the fucking `ocean` -- he can't just walk outside!
+- If i were in the comoros, in the indian `ocean`, where would you be...?
+- Guess the `ocean` makes one sentimental a lot of things i'd like to forget.
+- Come on, sam, you know before there were malls there was 'like the `ocean`.'
+- Why not incorporate the best genetic components the `ocean` has to offer?...
+- Load up the lincoln... point it west... stop when we hit the fucking `ocean`.
+- Right now she's like a diver on the bottom of an `ocean` no one's mapped yet.
+- An `ocean` of life... everything can be divided in half, no matter how minute.
+- Take it easy--the `ocean`'s pretty rough today-- is that one of the who's who?
+- You don't go through all the hardships of an `ocean` voyage to make "friends".
+- I've never seen a painting that captures the beauty of the `ocean` at this moment.
+- What do you call a thousand lawyers chained together at the bottom of the `ocean`?
+- It was just that, maybe the way the sun struck the `ocean`, the sound of the waves.
+- Beaches, warm `ocean`, lots of food, little clothes...population of one... quite a few.
+- Every oil tanker and super- tanker and super-duper-tanker in the `ocean` is controlled.
+- Then our friend ahab continues down the river to the `ocean` and begins his world tour.
+- I'm afraid it is dr. johnson... because it's sitting on the bottom of our `ocean` floor.
+- Soft `ocean` breezes and beautiful sunsets -- leaving the world and it's problems behind.
+- The only thing i've been certain of, all this time, is that i need to get to the `ocean`.
+- You keep them just in case you ever get rescued, but it's a pretty big `ocean` out there.
+- Mulwray was murdered and moved because somebody didn't want his body found in the `ocean`.
+- Lucky you got out, that water's got quite a pull, and it empties straight into the `ocean`.
+                 

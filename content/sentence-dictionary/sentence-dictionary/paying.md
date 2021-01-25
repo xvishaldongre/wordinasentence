@@ -1,0 +1,107 @@
+---
+title: "paying in a sentence | paying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "paying"
+---
+- I'm `paying` for this.
+- How much am i `paying`?
+- I'm `paying` attention.
+- Max is `paying` for it.
+- You `paying` attention?
+- They're `paying` for it.
+- Who's `paying` for this?
+- How will you be `paying`?
+- I was `paying` the check.
+- She was `paying` you off.
+- You `paying` for the gas?
+- I'm `paying` these people.
+- You're `paying` the bills.
+- A stud like you - `paying`!
+- I'm not `paying` this back.
+- I'm `paying` you to be you.
+- Now i'm `paying` the price.
+- They're `paying` him scale.
+- Who was `paying` you, dave?
+- He's `paying` for it, emily.
+- Not `paying` attention, huh?
+- You were `paying` attention.
+- But now, i'm `paying` for it!
+- I don't want my dad `paying`.
+- What are you `paying` me for?
+- You're not `paying` for this.
+- You're still `paying` for it.
+- He must, he's `paying` for it.
+- He's not `paying` you one cent!
+- How much are they `paying` you?
+- I'm not `paying` for this shit.
+- No, i'm `paying` for the dress.
+- People stop `paying` attention.
+- They're `paying` a higher rent.
+- Aren't we `paying` you for this?
+- Ganz'll be `paying` him a visit.
+- No, we're `paying` for the wine.
+- But what are we `paying` him for?
+- Don't worry, i'm `paying` for it.
+- Finally `paying` attention to me.
+- How much is he `paying` you, rob?
+- Somebody `paying` you to do this?
+- They're not `paying` me anything.
+- And you're not `paying` attention.
+- He's `paying` out in stacks of 25.
+- I'm used to `paying` my own bills.
+- There's no point `paying` a hotel.
+- Who else is `paying` for all this?
+- Now i'm `paying` for it, right?
+- Are they `paying` you for all this?
+- What are we `paying` her three mil?
+- You are `paying` for it you know...
+- You're not even `paying` attention.
+- Or even `paying` for what they take?
+- The question is: why is he `paying`?
+- A newspaper is `paying` for all this.
+- But only cause you're `paying` me to.
+- I advised against `paying` the ransom.
+- I'm not `paying` any attention to him.
+- I'm `paying` you to give cello lessons.
+- I'm not `paying` for your trip to aspen.
+- I'm `paying` people just to wait for you.
+- I paid for it, i'm still `paying` for it.
+- They're `paying` for it, so don't be shy.
+- But i did, and now i'm `paying` the price.
+- How much are they `paying` you to be here?
+- <u>marty</u>...are we <u>`paying`</u> you?
+- How much is cohaagen `paying` you for this?
+- I'm `paying` four hundred dollars for shit.
+- This seminar's already `paying` for itself.
+- Who do you think's been `paying` the rent?!
+- Because i was not really `paying` attention.
+- How are you `paying` tor the braces, donnie?
+- Well, he's... only `paying` for his airfare.
+- Whoever killed heyworth is `paying` him off.
+- Wouldn't be a favor if you were `paying` me.
+- Amanda: what the hell, are they `paying` you?
+- That's what you're `paying` me for, ain't it?
+- I'm not `paying` you for the lovemaking, hawk.
+- Somebody's `paying` through the nose for this.
+- What happens when these guys stop `paying`?
+- I'd say your investment was `paying` dividends.
+- Look, i'm not gonna wind up `paying` his debts.
+- You start `paying`, who knows what will happen.
+- Well, i guess she figures she's `paying` for it.
+- I'm `paying`...one point five million and change.
+- In the first place, i'm `paying` you union scale.
+- You're `paying` me to protect her, not amuse her.
+- Driving them new cadillacs, `paying` 50% on a bet.
+- Should we talk to trini about `paying` these guys?
+- You know how much i'm `paying` for private school?
+- This my world, you just a nigga late `paying` rent.
+- Good journalism ain't `paying` the pizza man, toots.
+- Looks like dying my nose hair's really `paying` off!
+- That ranch you thought you were `paying` for in utah?
+- Well, the 60's were fun, but now i'm `paying` for it.
+- You're not `paying` me to ask you question like that.
+- I'm just `paying` $40 an hour for basic human contact.
+- `Paying` attention to an open airlock in that section.
+- They won't be `paying` you enough to perform miracles.
+                 

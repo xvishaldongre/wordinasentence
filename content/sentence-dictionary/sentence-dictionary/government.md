@@ -1,0 +1,107 @@
+---
+title: "government in a sentence | government example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "government"
+---
+- I am the `government`.
+- It means `government`.
+- The `government` says.
+- The `government` bonds.
+- The `government` knows.
+- In the `government`.
+- ...and the `government`.
+- The secret `government`.
+- `Government`'s fucked up.
+- This is our `government`.
+- This a `government` sting?
+- You and your `government`!
+- It's a `government` program.
+- It's split the `government`.
+- I work for the `government`.
+- The `government`, of course.
+- You're a `government` spook?
+- Your `government` needs you.
+- `Government` secrets, perhaps.
+- Not bad for `government` work.
+- The `government` did... ...me?
+- We're the `government`, cowan.
+- Guaranteed by the `government`.
+- It's gotta be the `government`.
+- I have been to your `government`.
+- I told you, the `government` pays.
+- This is `government` business now.
+- Your `government` needs your help.
+- I don't need to be in `government`.
+- Local `government` commissioned it.
+- But i am also with the `government`.
+- Funded by the scottish `government`.
+- That's `government` property, major.
+- We were under `government` contract!
+- To create a non-elected `government`.
+- Your `government` is counting on you.
+- It belongs to the british `government`.
+- So many experts on `government` grants.
+- That's the curse of a `government` job.
+- Or has the `government` cut your salary?
+- The `government` wants you to be scared.
+- The `government` has moved to the circus.
+- Did you know the `government` is wasteful?
+- I paid the `government` for it, all right.
+- The `government` and who's gonna find out?
+- Think again, that's `government` property.
+- Because our `government` funding "ran out."
+- His excuse was the `government` got it all.
+- I goes deep, and involves the `government`.
+- In this case, the costa rican `government`.
+- It was work for the `government` or do time.
+- That's not what student `government`'s about.
+- The whole goddamn federal `government`, bill!
+- Many wrong ideas about the `government` of men.
+- My `government` grant was rescinded i got this.
+- The imperial `government` is under his control.
+- We're here to say, your `government` was right.
+- Those maps belong to his majesty's `government`.
+- Through constant increases in `government` duty.
+- Well, i mean, he's gotta be `government`, right?
+- Eddie, i received a letter from the `government`.
+- Right after the `government` sold the expedition.
+- The big bad `government` baddies from hawkins lab?
+- Your husband was wanted by the u. s. `government`.
+- What would this camp set the `government` back?
+- Maybe we can get the kids `government` health care.
+- As in, they're working for the russian `government`?
+- But it must be done; your `government` is paralyzed.
+- I'm a key figure in an ongoing `government` charade.
+- I'm not saying you should work for the `government`.
+- Our `government` has nothing to gain by killing you.
+- Where would the `government` be without accountants?
+- For instance, how to run the affairs of `government`?
+- Maybe this whole damned system of `government` is ...
+- My `government` can go fuck itself, and so can yours.
+- To protest the `government`'s handling on the crisis.
+- We have decided to move the `government` to gitarama.
+- He's known to the `government` as a top narcotics man.
+- The `government` doesn't have to tell people to do it.
+- This is the united states `government` for god's sake.
+- Probably safe in the hands of the federal `government`.
+- Now he works for your `government`, doesn't he, brad?
+- Seems to me the `government` could do somethin' about it.
+- The same way everyone does; the `government`, the agency.
+- That's what the <u>`government`</u> says... ...who say...?
+- The `government`'s afraid, and they don't know what to do.
+- The `government`'s putting dough in too many places *now*!
+- I believe there was a conspiracy, but not the `government`.
+- The `government` inserts itself into all drug transactions.
+- The `government` troops have all but eliminated the rebels.
+- We can't keep a goddamn secret in this `government`, edgar.
+- Well, if i am, why is the `government` concealing evidence?
+- Worst of all, with a man he thinks is a `government` agent.
+- Dumb shit, what do you think the `government` will do to me?
+- ...i feel that my `government` owes me a little restitution.
+- Maybe 'cause there's some rogue element in the `government`!
+- Mr. liebkind, relax, relax, we're not from the `government`.
+- Yes, the little ratfuckers are now running our `government`.
+- Get whatever information your `government` seeks and get our.
+- How you gonna do that with `government` and rules everywhere?
+                 

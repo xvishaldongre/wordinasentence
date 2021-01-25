@@ -1,0 +1,107 @@
+---
+title: "it's in a sentence | it's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "it's"
+---
+- Because `it's` absurd.
+- Because `it's` in you.
+- Because `it's` my job.
+- Bikes, `it's` all you.
+- But `it's` all you do.
+- But `it's` bad enough.
+- But `it's` impossible.
+- But `it's` not enough!
+- But `it's` not enough.
+- But, `it's` not is it?
+- But `it's` not, jimmy.
+- But `it's` 'ok'... oh.
+- But `it's` so obvious.
+- Careful, `it's` heavy.
+- Carl, `it's` a jungle.
+- 'cause `it's` organic.
+- Christ, `it's` ho-jon!
+- Clarke: `it's` true.
+- Control, `it's` reese.
+- Echo, `it's` not real.
+- For what `it's` worth.
+- Fuck, `it's` freezing.
+- Grace, `it's` amazing.
+- [grunts] `it's` heavy.
+- Guess `it's` our turn.
+- Happy: `it's` not y2k.
+- Hello, bob, `it's` me.
+- Herb, `it's` too much.
+- He says `it's` a game.
+- Hey, `it's` all right.
+- Hey, `it's` pizza day.
+- Hope, `it's` too late!
+- How come `it's` white?
+- I can't, `it's` yours.
+- I figure `it's` karma.
+- If `it's` good advice.
+- I know `it's` a dream.
+- I know `it's` no good.
+- I know, `it's` stupid.
+- I know that `it's`....
+- I mean, `it's` a joke!
+- I mean, `it's` jammed.
+- I said, `it's` coming.
+- It has `it's` moments.
+- I think `it's` a risk.
+- I think `it's` better.
+- I think `it's` fucked.
+- `it's` 350 pages long.
+- `it's` a bargain then.
+- `it's` a beauty ranch.
+- `it's` a better place.
+- `it's` a big decision.
+- `it's` a bluff, vince.
+- `it's` about survival.
+- `it's` about this guy.
+- `it's` about wellness.
+- `it's` a bright sound.
+- `it's` a country club.
+- `it's` a decent batch.
+- `it's` a dinosaur egg.
+- `it's` a down payment.
+- `it's` a fact, landon.
+- `it's` a family motto.
+- `it's` a federal bank.
+- `it's` a flat feeling.
+- `it's` a free country!
+- `it's` a free country.
+- `it's` after midnight.
+- `it's` a full dossier.
+- `it's` a gift for him.
+- `it's` a good thought.
+- `it's` a guy you know.
+- `it's` a heart attack.
+- `it's` a horse apple.
+- `it's` a little heavy.
+- `it's` all businesses.
+- `it's` all money, man.
+- `it's` all over, paul.
+- `it's` all right here.
+- "`it's` all right now.
+- `it's` all right, sir.
+- `it's` all soul's eve.
+- `it's` all worked out.
+- `it's` all your fault!
+- `it's` all your fault.
+- `it's` almost morning.
+- `it's` almost sunrise.
+- `it's` a lot of money.
+- `it's` a lovely party.
+- `it's` a loyalty test.
+- `it's` already in you.
+- `it's` already posted.
+- `it's` already stowed.
+- `it's` also very safe.
+- `it's` amazing, josie.
+- [`it's` a moral issue.
+- `it's` an exact match.
+- `it's` an improvement.
+- `it's` an inner thing.
+- `it's` an observation.
+                 

@@ -1,0 +1,52 @@
+---
+title: "drank in a sentence | drank example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drank"
+---
+- `Drank` herself to death.
+- Daddy `drank` some ick-ick.
+- I `drank` the stuff myself.
+- That's when i `drank` the...
+- Thought you only `drank` milk.
+- You `drank` half the lemonade.
+- Something i `drank` or touched?
+- You just `drank` the rest of it.
+- I think maybe i `drank` too much.
+- He was really nicer when he `drank`.
+- How much would you say you `drank`?
+- I'm blind because my father `drank`.
+- So he `drank` himself into a stuper?
+- He `drank` as much whisky as you did.
+- That amanda `drank` all of our clues.
+- Thousands `drank` themselves to death.
+- You were the only one who `drank` them.
+- A case of orange drink, which we `drank`.
+- How much would you say that you `drank`?
+- I `drank` like ten tons of sunny delight.
+- Mother `drank` herself to death let's go.
+- I thought only hookers `drank` those things.
+- Cosmo `drank` five glasses of wine at dinner.
+- `Drank` too much, went for a swim and drowned.
+- During that whole scene i just `drank` in bars.
+- I sat on a yoga ball and `drank` cucumber water.
+- *alcohol* killed him--he `drank` himself to death.
+- Mommy, the leprechauns `drank` the milk last night.
+- He `drank` so much the kidneys were taking out salt.
+- When was the last time you `drank` soup standing up?
+- Once we had a picnic here and `drank` a '95 opus one.
+- So he `drank` a bottle of pepto and his ass blew off.
+- Yeah, and you `drank` yours like it was orange juice.
+- I mean we `drank` the juice, now we're just licking peel.
+- Did you see his last film, the flower that `drank` the moon?
+- She knows she can't leave here -- she `drank` liquid oxygen.
+- I just `drank` my weight in sunny d. and i have to go, pronto.
+- You `drank` too much, you picked on me for being passive and timid.
+- My father was an alcoholic who `drank` himself right into the grave.
+- Speaking of misery, miss lonely hearts `drank` herself to sleep again.
+- She said her friends smoked pot and `drank` -- how long have you known?
+- After all this, you still think mother `drank` herself to death i am done.
+- That brought him close to gray, he roistered with him and `drank` with him.
+- I'll say one thing for jack, he was never ugly or mean, or `drank` too much.
+- Then you're not her grandmother... she had it, before she `drank` herself to death.
+                 

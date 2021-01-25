@@ -1,0 +1,107 @@
+---
+title: "surprise in a sentence | surprise example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surprise"
+---
+- A `surprise`, he said.
+- Doesn't `surprise` me.
+- I've got a `surprise`.
+- Oh, what a `surprise`.
+- What's the `surprise`?
+- Your `surprise`, chet.
+- He say is a `surprise`.
+- I could `surprise` her.
+- Imagine our `surprise`.
+- Where's the `surprise`?
+- John, what a `surprise`.
+- What a great `surprise`.
+- You were the `surprise`.
+- Another `surprise` guest.
+- Does that `surprise` you?
+- It was a `surprise`, mom.
+- That don't `surprise` me.
+- That must `surprise` you.
+- There's a big `surprise`.
+- You want your `surprise`?
+- Conrad, what a `surprise`.
+- Hey, guys, um, `surprise`.
+- Nice `surprise`, isn't it?
+- Scrambled eggs `surprise`?
+- Taylor, you `surprise` me.
+- That's the big `surprise`.
+- This is a nice `surprise`.
+- I got a `surprise` for you.
+- It's a `surprise`, you see.
+- Scrambled eggs `surprise`?!
+- What a pleasant `surprise`.
+- I have a `surprise` for you.
+- Kinda took us by `surprise`.
+- She's a constant `surprise`.
+- That doesn't `surprise` you?
+- Way to spoil the `surprise`.
+- Wouldn't `surprise` me none.
+- Doesn't `surprise` me at all.
+- I just killed the `surprise`.
+- Isn't this a nice `surprise`.
+- I thought i'd `surprise` you.
+- So what�s the big `surprise`?
+- Wanted it to be a `surprise`.
+- Well, it's a nice `surprise`.
+- Even just a `surprise` or two.
+- I can't say it's a `surprise`.
+- She's going to `surprise` you.
+- `Surprise` us... a week or so.
+- This is no fuckin' `surprise`.
+- Well, this is some `surprise`.
+- Frankly, yes, to my `surprise`.
+- I-i thought i'd `surprise` yuh.
+- Imagine our `surprise` when no!
+- I wanted it to be a `surprise`.
+- Mr. kane, this is a `surprise`!
+- Why doesn't that `surprise` me?
+- You want the `surprise` or not?
+- Big `surprise`, they were wrong.
+- I have a big `surprise` for you.
+- I just wanted to `surprise` you.
+- It was going to be a `surprise`!
+- Really, dude, you `surprise` me.
+- Well, maybe i'll `surprise` you.
+- I want it to be a big `surprise`.
+- Mr. president, what a `surprise`.
+- Doctor helburn, what a `surprise`.
+- I just thought i'd `surprise` you.
+- The element of `surprise`, scully.
+- You -- -- are in for a `surprise`.
+- Does the concept of `surprise` hey!
+- It's no `surprise` to want to love.
+- Then again, i might `surprise` you.
+- We got one last `surprise` for you.
+- What a `surprise`, good to see you.
+- Why, mr. conway, you `surprise` me!
+- Hey, i got a `surprise` for tonight.
+- If i `surprise` you, let me explain.
+- I've got a `surprise` for you, chet.
+- We're able to `surprise` each other.
+- What a `surprise`... ...is he brown?
+- You're going to spoil my `surprise`.
+- Nobody- i thought i'd `surprise` you.
+- She has a special `surprise` for you.
+- We have achieved complete `surprise`!
+- You're kind of a `surprise` yourself.
+- You see, i wanted to `surprise` them.
+- Gee, this is a `surprise`, mr. gittes.
+- My special, scrambled eggs `surprise`.
+- So much for the element of `surprise`.
+- I got a `surprise` for you in the room.
+- I kind of wanted it to be a `surprise`.
+- It came as a complete `surprise` to me.
+- It's a `surprise` party for lenny, sir.
+- It's supposed to be a `surprise` party.
+- Just wanted to `surprise` you, i guess.
+- We will, but first i have a `surprise`.
+- Get ready to hear the `surprise` ending.
+- I am jack's complete lack of `surprise`.
+- If you want to protect madi, `surprise`.
+- I might have quite a `surprise` for him.
+                 

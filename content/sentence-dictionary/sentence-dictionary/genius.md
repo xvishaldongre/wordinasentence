@@ -1,0 +1,89 @@
+---
+title: "genius in a sentence | genius example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "genius"
+---
+- This idea is `genius`.
+- By an unknown `genius`.
+- He had `genius` in him.
+- Moe, you're a `genius`!
+- This place is `genius`.
+- I knew i was a `genius`!
+- It's your `genius`, pal!
+- My father is a `genius`.
+- Pops, you're a `genius`!
+- That's `genius`, viktor.
+- Join the party, `genius`!
+- Look, `genius`� now, look.
+- Yeah, i'm a real `genius`.
+- You're a fucking `genius`.
+- It doesn't take a `genius`.
+- Boy, that's fucking `genius`.
+- Of not being a `genius` am i?
+- You were like a boy `genius`?
+- I love you, you're a `genius`.
+- That was a stroke of `genius`.
+- So he was a marketing `genius`.
+- Amanda: zoey, you're a `genius`.
+- He's like a fucking `genius`.
+- Does that mean you're a `genius`?
+- I'm not a tech `genius` like you.
+- I think the doctor is a `genius`!
+- This guy's an eccentric `genius`.
+- Gus, my friend, you're a `genius`.
+- Good luck, `genius`... that's nice.
+- I thought, that poor... - `genius`.
+- You're a `genius`, babe - a `genius`!
+- Because you're the compass `genius`!
+- I think thomas pynchon's a `genius`.
+- Listen, you are witnessing `genius`!
+- Unless you're a `genius` like meeks.
+- Don't squander your `genius` on evil.
+- You're only a `genius` on earth, pal.
+- Need a `genius` to figure out "where."
+- Does he have some `genius` stowed away?
+- My days are not the old days, `genius`.
+- Your scheme, you bloody little `genius`.
+- Out the window...buzz, you're a `genius`!
+- If you're a creative `genius` like he was.
+- Don't need a `genius` to figure out "what."
+- He says i'm a `genius`, your don -- brother!
+- Ramanujan's `genius` was unparalleled, sean.
+- Well then admit it, it's a work of `genius`.
+- What i have planned requires sheer `genius`.
+- Dr. pym, you're the smartest `genius` i know.
+- I've just been inside the mind of a `genius`.
+- I told you, this girl is some kind of `genius`.
+- I've been a `genius` since the moment i was born.
+- Dr. pym, you're like the smartest `genius` i know.
+- As if the proud tower of my `genius` has collapsed.
+- Bud, i hate to tell you this but you're a `genius`!
+- I think the word you're searching for is "`genius`."
+- She's a `genius` and she's hotter than phoebe cates?
+- So what will it be, then, clarke... that's `genius`!
+- Why don't you let me do the thinking, huh, `genius`?
+- Okay, a naughty `genius`, but hell, nobody's perfect.
+- True `genius` is rarely rewarded within its lifetime.
+- Scott, `genius` cameraman, roger, magician with sound.
+- Major, we're discussing a man of `genius`, i don't want...
+- You got a suggestion, feel free to shout it out, `genius`.
+- But he was always a `genius` at one thing -- getting grants.
+- The only difference between a psychopath and a `genius`, mr.
+- What, because i wasn't such a `genius` the way i raised you?
+- Morris ain't no `genius` and the rest of you are just losers.
+- The big mistake was my not believing in your `genius` earlier.
+- It's probably gonna take a super `genius` to crack it, but... hmm.
+- I mean it doesn't take a `genius` to figure which is more important.
+- I had a brilliant plan -- all worked out -- work of `genius`, it was.
+- The architect was either an authentic whacko or a certified `genius`.
+- Never - this robber was clearly the work of a criminal of great `genius`.
+- On the tambourine and lyrics morris hobbs the fuckin' `genius` of the group.
+- Darling emma -- yes, we: the true `genius` behind the prospero project ... you.
+- Who was it that said: "a man of `genius` has seldom been ruined but by himself."
+- But the important thing--and this was the `genius` of the stroke--*it means votes*!
+- According to caltech, this webber guy was a bonafide `genius` and a borderline nutcase.
+- It doesn't take a `genius` to look at those medical records and think something's wrong.
+- Anyway, it turns out the `genius` behind the whole project is your neighbor, jim williams.
+- A people -- a real people -- derives its `genius` from the land: the sun, the sea, the soil.
+                 

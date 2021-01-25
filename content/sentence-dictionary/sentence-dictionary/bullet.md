@@ -1,0 +1,99 @@
+---
+title: "bullet in a sentence | bullet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bullet"
+---
+- Never took a `bullet`.
+- What--it's a `bullet`.
+- What was the `bullet`?
+- You dodged a `bullet`.
+- That's a `bullet` hole.
+- It's this or a `bullet`.
+- One "pristine" `bullet`?
+- That's a `bullet` wound.
+- I got a `bullet` in my leg.
+- So he swallowed a `bullet`.
+- `Bullet` nicked an artery...
+- `Bullet` went right through.
+- Number five with a `bullet`.
+- Don't duck the `bullet` cates.
+- e `bullet`’s in your spine.
+- Turning one `bullet` into two.
+- Your `bullet`-proof waistcoat.
+- The `bullet` is still shifting.
+- You put a `bullet` in my brain.
+- The glass is `bullet` resistant.
+- They put a `bullet` in his head.
+- A knife is worse than a `bullet`?
+- `Bullet` proof vests don't bleed.
+- Pike put a `bullet` in his brain.
+- A `bullet` to the right cerebellum.
+- Another stray `bullet` to the head.
+- at `bullet` is still inside you.
+- Barnes took a `bullet` right there.
+- Help your mother find the `bullet`.
+- Best goddamn `bullet` stop there is.
+- Here, i thought it was the `bullet`.
+- His dead body with a `bullet` in it.
+- That `bullet` was for a .38 caliber.
+- Whatever happened to `bullet` proof?
+- Have you got a match on the `bullet`?
+- He was wearing a `bullet` proof vest.
+- Someone put a `bullet` in my mailbox.
+- Haven't you got a `bullet` i can bite?
+- From the `bullet` pike put in her wait.
+- Gino will put a `bullet` in me himself.
+- Someone's got to suck out the `bullet`.
+- That `bullet` in his belly is my fault.
+- The `bullet` is pressing on your spine.
+- `Bullet` holes are usually a big clue.
+- at `bullet` was one less dead grounder.
+- That's where a lead `bullet` has torn you.
+- You stepped in front of a `bullet` for me.
+- They wanted to put a `bullet` in your head.
+- See if you can find me two `bullet` casings.
+- It's a `bullet`, straight from my gun, fucker.
+- I would have taken a `bullet` for i you, dave.
+- I want you to turn this into a silver `bullet`.
+- Feels like there's a `bullet` still in my chest.
+- A `bullet` in the head in the middle of the desert?
+- Please...senor...destroy me...one `bullet`...please.
+- I fired upon the horseman and the `bullet` did nothing.
+- Still no sign of the `bullet` that went through farrell.
+- All you've got to do is shoot a gun, and stop a `bullet`.
+- The weird thing is... he shot her with a silver `bullet`.
+- Blind people feeling around for `bullet` holes in the wall.
+- It's from the `bullet` wounds that i took what do you mean?
+- Okay, um... indra will put a `bullet` in your brain me, too.
+- Only twelve years old and i was felled by a silver `bullet`.
+- She nearly put a `bullet` in price right after your "demise."
+- We both know you would never take a `bullet` for someone else.
+- He fucked up one too many times so i put a `bullet` in his eye.
+- The clock opposite the vault was stopped by a `bullet` at 12:09.
+- There's a sniper out front waiting to put a `bullet` in your eye.
+- Why would the germans invent a `bullet` that doesn't kill people?
+- If he hadn't you'd have put a `bullet` in his head a long time ago.
+- Can find us on luna's rig, and then you put a `bullet` in his brain.
+- Explained what he did wrong, and then you put a `bullet` in his head.
+- Just make sure you've got the `bullet` before you try to pull it out.
+- The photo on the left shows the `bullet` that killed jimmy chin, true?
+- The one on the right is the `bullet` you test-fired from shu's gun?
+- That kid in there is dying from a fuckin' `bullet` that i saw him take.
+- Someone put a `bullet` through his eye; no one knows who gave the order.
+- Jesus christ man, that microwave food will kill ya as quick as a `bullet`.
+- Well, that `bullet` whizzin' by panicked corky, an' he done the wrong thing!
+- What are you -- the `bullet` came out clean, but he lost a whole lot of blood.
+- Why did colonel finck not dissect the track of the `bullet` wound in the neck?
+- Even if you <u>were</u> on target, a `bullet` might not penetrate his hide.
+- I just want somebody who won't put a `bullet` in my back once the truck is full.
+- But with this steel casing and `bullet` proof glass, odds for you are not so good.
+- We're not horse-trading here, wade, we just gotta bite the `bullet` on this thing.
+- Besides, if he decides to put a `bullet` in my head, i don't wanna be there for it.
+- No, the problem is one's dead, one's got a `bullet` in his arm, and one won't talk.
+- The `bullet` broke the flesh on your right brow and glanced off your temporal plate.
+- Do you know what ethan will do if he has a chance?...he'll put a `bullet` in her brain!
+- Day with krusty will actually be _ she put herself between a `bullet` and my child whoo!
+- Okay, to get their chug jugs, i got the `bullet` out, but there was - it is almost here.
+- He called, and... his tests show that shu's gun fired the `bullet` that killed jimmy chin.
+                 

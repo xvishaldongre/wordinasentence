@@ -1,0 +1,52 @@
+---
+title: "Blake in a sentence | Blake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Blake"
+---
+- Sweet dreams, `blake`.
+- Bellamy `blake`, marge.
+- I'm sorry about `blake`.
+- ...`blake` i am confused.
+- `Blake`, against the wall.
+- From now on, cadet `blake`.
+- Ms. `blake`, how about you?
+- Neither does henry `blake`.
+- Start with bellamy `blake`.
+- Colonel `blake`, have no fear.
+- Toni `blake` from langley p.d.
+- Mind yourself, bellamy `blake`.
+- My love for all mankind, `blake`!
+- Octavia `blake` killed her, not me.
+- Sorry, it's this thing with `blake`.
+- It's janitor `blake` now, lieutenant.
+- `Blake`, i can handle that transplant!
+- We all had the same option as `blake`.
+- The poet...something he said... `blake`?
+- You killed `blake`, and -- he's the one.
+- Mr. `blake`, i don't trust either of you.
+- Lieutenant colonel henry braymore `blake`.
+- Bellamy `blake`, john murphy, jordan green.
+- Bellamy `blake`, blodreina, there's 11 dead.
+- The last war will free us all, miss `blake`.
+- Octavia `blake` is here, and she's not alone.
+- There's no point appealing to colonel `blake`.
+- We have i.d.ed the shooter... bellamy `blake`.
+- Sometimes, bellamy `blake`, irony can be funny.
+- `Blake` investigating missing scientists for ctu.
+- Let's face it, eddie `blake` was no mother teresa.
+- Miss `blake`, by authority of the council, - where?
+- Bellamy `blake` is the only person huh, that's weird.
+- ♪ 'cause you guys and french fries ♪ bellamy `blake`.
+- There's no other way out of this for you, mr. `blake`.
+- Who's the guy with william `blake` and the tigers, eh?
+- As `blake` said, if god had doubt the sun would go out.
+- Then neither am i. octavia `blake` is here, and she's not alone.
+- I'm guessing you think it's "polis" a gold star for miss `blake`.
+- Great-great-grandpappy `blake` was an astronaut ok. oh, easy, easy.
+- I'm not some snot-nosed resident fresh out of medical school, `blake`.
+- Bellamy `blake`, and it seems to hunt at night, like a... a lion or a coyote.
+- That is william `blake`'s 'the great red dragon and the woman clothed with the sun.'
+- Woman: that's octavia `blake`, we have 5 years to train for a jump efficient, right?
+- In raven's blood are consistent the path to the future goes through the past, miss `blake`.
+                 

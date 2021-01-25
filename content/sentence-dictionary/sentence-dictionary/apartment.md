@@ -1,0 +1,107 @@
+---
+title: "apartment in a sentence | apartment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apartment"
+---
+- I have an `apartment`.
+- Extra `apartment` keys.
+- I'm in the `apartment`.
+- I love your `apartment`.
+- In cluett's `apartment`?
+- Kids in the `apartment`.
+- Your new `apartment`?
+- He was in my `apartment`!
+- Swing by her `apartment`.
+- That was our `apartment`.
+- D'you find an `apartment`?
+- Gotta do your `apartment`.
+- I have a tiny `apartment`.
+- I mean -- her `apartment`.
+- In the studio `apartment`.
+- A nice little `apartment`?"
+- But this is my `apartment`.
+- I sprayed your `apartment`.
+- Shoulda got an `apartment`.
+- Some `apartment` somewhere.
+- That's not his `apartment`.
+- Shana gillroy's `apartment`.
+- What about that `apartment`?
+- You tore up the `apartment`.
+- You went in the `apartment`?
+- I will spray her `apartment`.
+- Johnny has a big `apartment`.
+- Did you go to his `apartment`?
+- I got a job, nice `apartment`.
+- We could go to my `apartment`.
+- 1320 se benning, `apartment` a.
+- Look at our -- the `apartment`.
+- The number of your `apartment`?
+- This isn't even my `apartment`!
+- This is like a real `apartment`.
+- `Apartment` 1e, rockville center.
+- Did you see your new `apartment`?
+- The `apartment`, yeah, like that.
+- Were you in cluett's `apartment`?
+- I got this `apartment` with a guy.
+- My `apartment`'s just such a mess.
+- We can get out of the `apartment`.
+- Whose `apartment` is this, anyway?
+- You go over to luca's `apartment`.
+- He keeps it in his `apartment`?
+- I never leave this `apartment` now.
+- They booby trapped her `apartment`!
+- Wynant goes to julia's `apartment`.
+- You locked out of your `apartment`?
+- He came to see me at my `apartment`.
+- Here are the keys to my `apartment`.
+- I live in a one-bedroom `apartment`.
+- Just hanging around his `apartment`.
+- So you haven't seen his `apartment`?
+- What's the `apartment` house number?
+- Had his `apartment` been burglarized?
+- So this is your mother's `apartment`?
+- Waiting in the `apartment` next door.
+- Would you like to see my `apartment`?
+- You know i don't have an `apartment`.
+- Are you going back to her `apartment`?
+- A small, cramped basement `apartment`.
+- I don't know - it's a big `apartment`.
+- I heard him talking in my `apartment`.
+- I'm not coming up to your `apartment`.
+- I told you, this isn't my `apartment`.
+- Yeah -- i'm giving up the `apartment`.
+- Have you ever cleaned your `apartment`?
+- I have the `apartment` across the hall.
+- Then, i found this in your `apartment`.
+- What was she doing in your `apartment`?
+- He shut up his `apartment` and his shop.
+- I'11 just sit in my `apartment` all day.
+- It's such an out of the way `apartment`.
+- Pest control, gotta do your `apartment`.
+- Did they find anything at my `apartment`?
+- She came by the `apartment` once already.
+- The keys to his `apartment` are in there.
+- Went over every inch of that `apartment`.
+- Yeah, but you-you got a nice `apartment`.
+- You don't have fifty foot of `apartment`!
+- Burglars looking for an empty `apartment`.
+- Do you know how she found the `apartment`?
+- I'm going to take that `apartment` uptown.
+- It's the proudest thing in my `apartment`.
+- Remember what happened at the `apartment`.
+- Sitting around in that stuffy `apartment`.
+- This is nicer than your other `apartment`.
+- Just trying to get my `apartment` in order.
+- Bobby-- my stuff's all over her `apartment`.
+- Craig's had me locked up in the `apartment`.
+- Gino marzzone is coming to your `apartment`.
+- Listen, let's go downa kaplans' `apartment`.
+- We're all meeting at my `apartment` tonight.
+- But i do have a little `apartment` of my own.
+- Do you want to come to my `apartment` or not?
+- That how you knew how to rig the `apartment`?
+- It looks like they've met in this `apartment`.
+- Oh, oh, oh--i thought it was your `apartment`.
+- There was a riot at his `apartment` yesterday.
+                 

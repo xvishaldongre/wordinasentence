@@ -1,0 +1,107 @@
+---
+title: "oil in a sentence | oil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "oil"
+---
+- Her `oil` pan is shot.
+- Industrial wood `oil`.
+- Manchurian tung `oil`?
+- Started an `oil` fire.
+- _ i don't hear an `oil`.
+- My `oil` wells in texas?
+- `Oil` company propaganda.
+- Pumps stop pumping `oil`.
+- It looks like motor `oil`.
+- Christ, it's `oil` of tansy!
+- `Oil`, gas, cattle, farmin'.
+- God... manchurian tung `oil`?
+- Pipe lines stop pipin' `oil`.
+- To the back, above the `oil`.
+- Was this all about the `oil`?
+- Here -- here's your `oil`-can.
+- I guess it's `oil` money, huh?
+- Tankers stop deliverin' `oil`.
+- In it, a simple `oil` lamp.
+- For cleaning up `oil` spills.
+- Oh, mother, not the castor `oil`.
+- `Oil` can.....`oil` can.... oh, my!
+- The squeaky wheel gets the `oil`.
+- I'll keep the `oil`-can handy.
+- I'm looking for some bath `oil`...
+- It's as smooth and slick as `oil`.
+- Far more `oil` than anyone thought.
+- Oh, give me the `oil` can -- quick!
+- This is our `oil` from our estates?
+- It�s heading for the `oil` terminal.
+- `Oil` can.... did you say something?
+- Roger: have you got any olive `oil`?
+- Ecological study for northland `oil`.
+- I detest comparisons made with `oil`.
+- I forgot to check the `oil` pressure.
+- But - that's the way the `oil` gushes.
+- All... we can get to work on that `oil`!
+- Kids, where do we keep the castor `oil`?
+- After sucking the earth dry of `oil`, no.
+- What `oil` i sautéed these vegetables in?
+- You start out with a little bit of `oil`.
+- But ted, you're the only... `oil` pressure.
+- No, he's out changin' the `oil` in the car.
+- Did your momma really give you castor `oil`?
+- His car was leaking `oil` all over the road.
+- They asked if you would endorse their `oil`.
+- With his olive `oil` voice and guinea charm.
+- Oh -- `oil` my arms, please -- `oil` my elbows.
+- Oh, the bus has been leaking `oil` for miles.
+- (sighs) he's strung up over the `oil` tanker.
+- Maxwell gave him a bottle of wheat germ `oil`.
+- In the olive `oil` business, settling out here.
+- I mean i got federal price controls on my `oil`.
+- It's like all of a sudden i got `oil` in my arm.
+- My father sold it before they found `oil` on it.
+- Then how's all the people gonna get their `oil`?
+- And, what was the name of that olive `oil` company?
+- Burn the midnight `oil` tryin' to find who done it?
+- Lemme see, was that before or after the `oil` fire?
+- Like extra virgin olive `oil`, the best of the best.
+- Vest holdings - in sugar, `oil`, gold, electronics.
+- I've got girls and chicken and hot `oil` waiting for me.
+- I have `oil` in bakersfield -- pumping, pumping, pumping.
+- Mother, cant you make it calomel instead of castor `oil`?
+- I'm going to spend my time `oil` painting, please help us!
+- That kind with the garlic and the `oil` that i like so much?
+- I still can't believe i'm being financed by an `oil` company.
+- Nitro, dash of semtrex, vegetable `oil` ... look, it's important.
+- Or to sit and let the americans cut off our `oil` and our future.
+- Yes, your letter indicated you were in he `oil` business up there.
+- Striking `oil` in a world that hadn't invented internal combustion.
+- There enough lamp `oil` but i'm not going to be a reefer saleslady.
+- It's not ergot, it's not pituitary extract, it's not `oil` of rue...
+- Roger: i want to be packed in olive `oil` if i'm gonna be a sardine.
+- Eric was teaching college, and then he got the job with northland `oil`.
+- You'll burn the damn thing out before your next fucking `oil` change.
+- But i'm going to need a little advance, to `oil` the wheels, so to speak.
+- Lane `oil`... let's face it, we all knew it would happen sooner or later.
+- No, there's no problem, dr. helburn just needs to have his `oil` changed.
+- There's some lilac `oil`, you want some, a vanilla candle under the sink.
+- ♪ it's almost time to go ♪ uh, do you recommend the tincture or the `oil`?
+- Gideon, get some bread and toast it quickly and find me the cod liver `oil`.
+- Do you think the "enquirer" shouldn't have campaigned against the `oil` leases?
+- We haven't got the `oil`-can with us and you've been squeaking enough as it is.
+- At the end of the day i was approached by the golden pompeii olive `oil` company.
+- I've been right here all the time, putting olive `oil` on my rubber plant leaves!
+- We'll see all of our `oil` reserves depleted, in fact, all of our energy sources.
+- If there ain't no war, you can punch out, go home, and take up `oil` painting.
+- A virus called da vinci will cause `oil` spills at 10:30 am eastern time tomorrow.
+- Oh, ahh, `oil` change, i...ehh...i just drove in from chicago and uhh...nice hair.
+- Computers to tell them where to go, how much `oil` to take on, where to deliver it.
+- Miles, how nice of you to see us -- may i introduce howard d. doyle of doyle `oil`.
+- You know, supercomputers they use to like, do physics, and look for `oil` and stuff?
+- Look around you baby, we're rubbing elbows with royalty, `oil` sheiks, this is class.
+- But following a regimen of cbd `oil` must find place to avoid pop culture discussions.
+- Then johnny comes along with that olive `oil` voice and guinea charm and she runs off.
+- Every `oil` tanker and super- tanker and super-duper-tanker in the ocean is controlled.
+- Money - arms, big `oil`, pentagon people, contractors, bankers, politicians like l.b.j.
+- You're not going to bust out baby `oil` and start rubbing me down or anything, are you?
+- She hasn't any friends left sine you started this `oil` business, and she never sees you.
+                 

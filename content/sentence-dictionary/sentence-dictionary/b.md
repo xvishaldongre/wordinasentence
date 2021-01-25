@@ -1,0 +1,107 @@
+---
+title: "b in a sentence | b example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "b"
+---
+- "`b`" as in balthazar.
+- !</`b`> suck my balls.
+- I'll go with plan `b`.
+- It's encephalitis `b`.
+- What about that d.`b`.
+- You know `b`... grace.
+- I don't care for `b`.s.
+- Ray's with the f.`b`.i.
+- Thank god for site `b`.
+- "`b`" dock's restricted.
+- I spoke to your f.`b`.i.
+- It's go time, billy-`b`.
+- It's just a `b` picture.
+- Murphy, you're `b`-team.
+- Sorry, i need a `b`.a.r.
+- The f.`b`.i., the c.i.a.
+- You know what a `b`.a.r.
+- You `b`-believe that.
+- Get me l. `b`. jefferies.
+- Give the fucking f.`b`.i.
+- It's sixth century `b`.c.
+- Som'`b`'y you don't know.
+- The man from the f.`b`.i.
+- I am -- i'm captain `b`.l.
+- Only if you call me `b`.a.
+- There's some poor s.o.`b`.
+- Time to activate plan `b`.
+- Two guys from the f.`b`.i.
+- We don't use the `b`-word.
+- Dr. william e. `b`. dubois.
+- Heading for bedroom `b`-54.
+- It's a goddamn `b` picture!
+- It's only a `b`-`b`-`b`-book...
+- Study hard and get a "`b`."
+- And "`b`," there is no hope.
+- <`b`>something must be done!
+- <i>mescaline.</i> <`b`> int.
+- I seen 'em `b`'fore you did.
+- `B`: doxx your ex-girlfriend?
+- `B`'longs to the comp'ny now.
+- <`b`>shut your fucking face!!
+- For a long time, the f.`b`.i.
+- I'm telling you this s.o.`b`.
+- Bellamy: so what's plan "`b`"?
+- <`b`>hey, guy, relax, put out!
+- He gave outlander a `b`-minus.
+- I got a call from the f.`b`.i.
+- <i>never again.</i> <`b`> ext.
+- In the `b`.g., moss, drinking.
+- Mass, amherst, `b`.u.... yeah?
+- So i came to vancouver, `b`.c.
+- Some'`b`'y'll have you killed.
+- To airlock `b`-17 immediately.
+- But there isn't a `b`-2 bomber.
+- "deploy the `b`-2, <u>why</u>?"
+- I logged outside the g.r.a.`b`.
+- Uh, `b`...a...u... no, uh, v...
+- `B`-movies from milton's heyday.
+- Give the big pig with the `b`.o.
+- Liberator... a `b`-24 liberator.
+- No one ever watches a `b`-minus.
+- You're-you're `b`-`b`- beautiful.'
+- At that sweet little `b` &amp; `b`.
+- `B`) she never told me i was fat.
+- Who's seeing the guy at c.`b`.s.?
+- Can you give me cover, mister `b`?
+- In the sixth century `b`.c., home.
+- I should say <`b`>die</`b`> with it!
+- I wouldn't mind another `b`.e.e.r.
+- Jasper was plan `b`. rabid rats?
+- No, bergman... `b`.e.r.g.m.a.n....
+- What's emergency landing plan `b`?
+- "a" and "`b`" gun tracking far end.
+- But what do the '`b`' and 'p' mean?
+- Guess we'll have to go to plan `b`.
+- I know who this mysterious "s.`b`."
+- Us kids just called him stanny `b`.
+- I'm working on a plan "`b`," though.
+- The `b`-9 is like a slow child, sir.
+- ♪ will give those shows a `b`-minus.
+- You tell me who went to the `b`.i.a.
+- You want something off the `b` list?
+- Are you still fucking <`b`>here</`b`>??
+- `B`-black... what colour is your car?
+- `B`-but... we saw... your neck... no!
+- `B`-i-n-g-o and bingo was his name-o.
+- Somebody's butt is gonna bar-`b`-que.
+- I have mr. barrenger's tuna `b`...
+- I'll call you right `b`- 702 472 1862.
+- Rick, i want to cut through the `b`.s.
+- Still no response from recon team `b`.
+- Some kinda lousy `b`-`b`-balinese temple.
+- That's strictly `b`�ader-meinhof stuff.
+- Transport ship docking, terminal "`b`."
+- `B`-but it's our money -- i'm directing.
+- Felony `b` and e, three months in juvey.
+- Hicks: sixty rounds left on "`b`. forty.
+- We're gonna need a plan `b`. oh, my god.
+- The `b`-2 bomber... clear me a space.
+- Don't forget, when you get home, o.`b`.'s.
+                 

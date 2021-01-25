@@ -1,0 +1,7 @@
+---
+title: "prefabrication's in a sentence | prefabrication's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prefabrication's"
+---
+## Unfortunately, we have no example sentences for prefabrication's                 

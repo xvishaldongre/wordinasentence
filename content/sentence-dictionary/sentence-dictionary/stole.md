@@ -1,0 +1,107 @@
+---
+title: "stole in a sentence | stole example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stole"
+---
+- `Stole` and tole lies.
+- You `stole` her purse!
+- She `stole` some money.
+- Someone `stole` my car.
+- They `stole` the leads.
+- You `stole` a trans-am.
+- You `stole` my luggage?
+- You `stole` my savings.
+- You `stole` the damn...
+- [you `stole` the drop.]
+- You `stole` this truck!
+- You `stole` this truck.
+- Nobody `stole` anything.
+- 'she `stole` the money.'
+- They `stole` the phones.
+- You `stole` her from me.
+- I `stole` your beat, huh?
+- Someone `stole` my stuff.
+- That i `stole` the leads?
+- Even `stole` a horse once.
+- He `stole` your passwords.
+- I thought they `stole` it.
+- The man's car you `stole`.
+- Someone `stole` sid's file?
+- What do you mean '`stole`'?
+- He `stole` another contract.
+- Someone `stole` my backpack.
+- I know she `stole` the flame.
+- They `stole` your life, jane.
+- No, but you `stole` from them.
+- Said he `stole` his invention.
+- You `stole` all my best lines.
+- 'cause he `stole` <u>paint</u>?
+- Nobody `stole` my credit cards.
+- She `stole` everything from me.
+- Why, buckley `stole` that body.
+- ...`stole` a truck under arrest.
+- Ain't nobody `stole` dad's skiff.
+- It was zaltar who `stole` it.
+- Girls `stole` itchy and scratchy.
+- I `stole` four beers from my dad.
+- No you don't know who `stole` it.
+- Who you think `stole` the stuff!?
+- Correction, the monkey `stole` it.
+- He `stole` it to take care of you.
+- He `stole` my car... my porsche...
+- [maybe your men `stole` from you.]
+- You `stole` my visit from airshot.
+- I `stole` a car and they chased me.
+- I thought someone `stole` you away!
+- Since i `stole` them, probably not.
+- You `stole` him from scott fischer.
+- You `stole` him from scott fischer?
+- He thinks you `stole` his promotion.
+- I... `stole`... your... fancy shoes?
+- Some little kid `stole` the hubcaps.
+- Some psycho `stole` that dude's car.
+- You did not find it, you `stole` it.
+- You `stole` my cousin enrique's car.
+- We know who `stole` the missing item.
+- Death and chance `stole` your parents.
+- His kingdom he `stole` from my mother.
+- Now i feel guilty i `stole` his shoes.
+- You `stole` from them, you lied to me.
+- Or should i saw <u>`stole`</u> it from?
+- Tell me who `stole` the medicine, kane.
+- The man who `stole` your memories what?
+- Yeah, some creep `stole` my cigarettes!
+- But buzz -- and sid says you `stole` it!
+- Did mr. doyle think i `stole` this case.
+- You `stole` from your own country, carl.
+- Craig `stole` maxine from me, dr. lester.
+- Find the person who `stole` the presents.
+- From somebody whose body you `stole` aah!
+- Let's just say i `stole` the money, okay?
+- Mr. teeny `stole` the money, - any comic?
+- But the list golitsyn `stole` was a decoy.
+- He `stole` my mother away from her people.
+- Right now like i `stole` her favorite toy.
+- Ah, listen ... somebody `stole` my handles.
+- I lied to her, and then i `stole` from her.
+- They `stole` our land-- that makes it okay?
+- Here, i `stole` you a couple of extra clams.
+- Someone `stole` marilyn's jacket last night.
+- Harmsway sank that ship and `stole` the gold.
+- Wait a minute, i think i know who `stole` it.
+- I need to put together -- you `stole` my boat.
+- It's dr. furtw�ngler's baton, which i `stole`.
+- That's why the big, bad man `stole` jane away.
+- `Stole` a car, leading us through the compound.
+- Well, most people say you `stole` all the rest.
+- Hey come here, you `stole` my girl, you bastard.
+- Maybe you shoulda `stole` a better truck, tonto.
+- Perhaps they `stole` one of the escape shuttles.
+- Your girl friend `stole` forty thousand dollars.
+- Because you `stole` my memories, you crazy bitch!
+- I kind of `stole` a pair of her panties, is what.
+- Quill said he `stole` the power stone from morag.
+- You `stole` it from a drunk at the local casbah?!
+- But, if the farm is not mine, who `stole` it away?
+                 

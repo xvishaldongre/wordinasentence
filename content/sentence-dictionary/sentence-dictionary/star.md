@@ -1,0 +1,107 @@
+---
+title: "star in a sentence | star example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "star"
+---
+- Courtesy of `star` 69.
+- I don't need a `star`.
+- Pop `star` johnny pop.
+- The `star`'s gone out.
+- You made her a `star`?
+- It was a dream, `star`.
+- No one leaves a `star`.
+- Now we need the `star`.
+- Show me the `star` map.
+- "swinging on a `star`."
+- Where's `star`, david?!
+- But you're a big `star`!
+- I ain't no movie `star`.
+- I'm one of them, `star`!
+- In the `star` of braxis.
+- It's the evening `star`.
+- That makes one a `star`.
+- You were a movie `star`!
+- But why destroy a `star`?
+- I `star`-sixty-nined you.
+- That is the north `star`.
+- You can't kill me, `star`.
+- I know it was them, `star`.
+- It's a five-pointed `star`.
+- For my recusa `star` system.
+- I can even read `star` maps.
+- It'll make him a big `star`.
+- That's a `star`-head, right?
+- Who made "a `star` is born"?
+- You're gonna be a tv `star`.
+- You wanna be a movie `star`?
+- It's like... "`star` search."
+- Look buddy, i'm a big `star`.
+- That's the rock `star` thing.
+- The other girl is the `star`?
+- You're a fuckin' rock `star`.
+- A movie `star` from hollywood.
+- Lot of pressure at the `star`.
+- You don't mean a movie `star`?
+- Guess what... all `star` stuff.
+- I hereby name this `star` fred.
+- I said, show me the `star` map.
+- The track `star` doesn't smoke.
+- But you're a big-time tv `star`.
+- Hey, listen, baby, i'm a `star`.
+- Reagan's `star` wars technology?
+- See that bright `star` up there?
+- Why am i looking at this `star`?
+- Drew... ninja `star` to the face.
+- He's our only "`star`" right now.
+- I thought you was a movie `star`.
+- Who's your favorite movie `star`?
+- Baby, i'm gonna make you a `star`.
+- Each of us has a `star` to follow.
+- He's like a rock `star` in london.
+- I found a `star`-head screwdriver.
+- I got a new `star` on the readout.
+- I was gonna make her a big `star`.
+- Jake, this was no shooting `star`.
+- Ms. laufer gave me a `star` today.
+- Still no word from `star` command.
+- What's your favorite movie `star`?
+- Without a `star` there's no movie.
+- Yeah, well we've got a big `star`!
+- You become a big motorball `star`.
+- Are you the `star` of this picture?
+- Awaken the heart of a dying `star`.
+- Finn, that's not a shooting `star`.
+- Frances, you're a movie `star` now.
+- You got a real good memory, `star`.
+- Better than tits -- a <u>`star`</u>!
+- I'm the greatest `star` of them all.
+- There he is, there's our new `star`.
+- "you could be swinging on a `star`."
+- He was going to make me a `star`.
+- Is fart "the `star` spangled banner."
+- Last one to the midnight `star` buys.
+- Same shit happened to a movie `star`.
+- You know, like, reagan's `star` wars.
+- Bet you can see every `star` there is.
+- Her "co-`star`" in the beaver picture?
+- I'm not `star`-- you're staring at me.
+- Like it's some five `star` restaurant.
+- Nobody's going near `star` without me.
+- She's the `star` reporter on the mail.
+- `Star` drive in three... two... one...
+- That `star` destroyer is slowing down.
+- Was it in the `star`, or the enquirer?
+- Hal... hal sinclair... your co- `star`.
+- I wasn't `star`-- you're staring at me.
+- Let's make this like `star` trek, okay?
+- Your friend just made himself a `star`.
+- Before it became a `star` in the movies?
+- My own sit down `star` wars arcade game.
+- So much for raven's `star` student, huh?
+- Turn into an argument about `star` wars?
+- Performed by youtube `star` reaction guy.
+- A `star` is... good morning, mr. taransky.
+- So they build another death `star`, right?
+- The 'death `star`' has become operational.
+                 

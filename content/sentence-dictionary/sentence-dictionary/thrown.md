@@ -1,0 +1,69 @@
+---
+title: "thrown in a sentence | thrown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thrown"
+---
+- I'm a little `thrown`.
+- Wow, you got `thrown` out?
+- I want them `thrown` in jail.
+- You almost got us `thrown` out!
+- Claim was `thrown` out-- - lucas.
+- We were `thrown` out like garbage.
+- It's alright, it was `thrown` away.
+- I thought it has been `thrown` away.
+- `Thrown` clear when the boat burned.
+- `Thrown` out of another amusement park.
+- Want to walk out... or get `thrown` out?
+- The job got `thrown` to me by this lawyer.
+- For which we both be `thrown` into the pit.
+- I thought you got `thrown` off the council.
+- By all means i should have you `thrown` out.
+- Don't be `thrown` off course by other people.
+- After she was `thrown` out, she needed a job.
+- Are the clothes `thrown` out onto the front yard?
+- With a little of the bill of rights `thrown` in...
+- I haven't `thrown` up since i was twenty years old.
+- Maybe somebody else ought to have `thrown` this party.
+- Then if you won't get out, i'll have you `thrown` out.
+- I've seen bodies `thrown` 50-60 feet from a crash site.
+- She wanted her ashes to be `thrown` over roseman bridge.
+- I mean, love, it's like a term that gets `thrown` around.
+- Today's papers will all have been `thrown` away tomorrow.
+- Louisa got `thrown` through the windshield and was killed.
+- They could be `thrown` off... tomorrow... a year from now.
+- I want the money back i've `thrown` into this rubbish heap.
+- To the point where they had him `thrown` out of the office.
+- The squeaky wheel gets <u>`thrown`</u> <u>away</u>, alright?
+- Despite being shot, poisoned and `thrown` into an icy river .
+- Half the town was `thrown` out of work when they closed down.
+- That he be cremated and his ashes `thrown` on roseman bridge.
+- That spear was `thrown` with pinpoint accuracy from 300 feet.
+- I ought to have you and your friend `thrown` out... hiya, kid.
+- I should've told you, but you would've `thrown` me out, right?
+- I'm not the one who got five good men `thrown` in a bamboo cage.
+- He saw me `thrown`... saw the horseman looming over me as i fled.
+- If you get `thrown`, your vest will automatically inflate hopper!
+- I know what it's like to be `thrown` out like garbage you're right.
+- Tortured in prison, then `thrown` out to be tortured by the police.
+- Have you ever `thrown` up in the front row of a richard marx concert?
+- Just an insignificant girl `thrown` out with the rest of the garbage.
+- <u>oh</u>... no, no, i'm not angry i'm not, i'm just `thrown`, i'm...
+- If i had known you were coming, i would have `thrown` you up a waffle.
+- How'd you like to be `thrown` in the can on account of not remembering?
+- I don't know... couldn't he have just `thrown` a shoe at the poor thing?
+- I've been shot, and stabbed and `thrown` from a car and none of it hurt.
+- :his mother, with her head `thrown` back, her eyes aglitter and laughing.
+- I really wish someone had `thrown` a party like that when i was your age.
+- Anyway, he doesn't need sexual confusion `thrown` into the stew right now.
+- How could he do that if he's in jail and they've `thrown` away the key...?
+- If you weren't `thrown` off balance by this, then something would be wrong.
+- With an occasional burger or slice of `thrown` in for our vitamins and energy.
+- Now you get out of here before i call the bailiff and have you `thrown` in jail.
+- There's no way i'm getting `thrown` out i also don't want you to be who you are.
+- I haven't had any first-class blarney `thrown` at me since the day i was married.
+- 'cyclopes' were the sons of heaven, who forged the thunder- bolts `thrown` by zeus.
+- You don't think someone will have a problem with a body being `thrown` off a balcony?
+- Why don't i have mickey `thrown` back into his cell and we can forget the whole thing?
+- It's time to get `thrown` from the treehouse... why are you--i fought for you with honor.
+                 

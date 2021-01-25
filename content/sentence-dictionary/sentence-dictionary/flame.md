@@ -1,0 +1,107 @@
+---
+title: "flame in a sentence | flame example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "flame"
+---
+- `Flame` on, `flame` off.
+- Give madi the `flame`.
+- The key's the `flame`.
+- They took the `flame`.
+- Alie wants the `flame`.
+- The key is the `flame`.
+- `Flame` booted me again.
+- Not without the `flame`.
+- Now give me the `flame`.
+- One, the `flame` spurts.
+- I will be in the `flame`.
+- Like a moth to a `flame`.
+- It'll destroy the `flame`.
+- Thank god for the `flame`.
+- The `flame` was destroyed.
+- What about the `flame`?
+- He knows about the `flame`.
+- I'm gonna need the `flame`.
+- So i destroyed the `flame`.
+- Then we put in the `flame`.
+- You got to get the `flame`.
+- You tap, i get the `flame`.
+- Even if you had the `flame`.
+- The `flame` will protect me.
+- The `flame` will protect me.
+- I know she stole the `flame`.
+- Still believe in the `flame`.
+- Tell me where the `flame` is.
+- The `flame` takes their life.
+- To pull data off the `flame`.
+- Who can activate the `flame`.
+- And i take him to the `flame`.
+- Into the order of the `flame`?
+- She's unworthy of the `flame`.
+- This is the `flame` i'm sorry.
+- We need to remove the `flame`.
+- We need to remove the `flame`.
+- We need to unlock the `flame`.
+- Do you have the `flame` or not?
+- Learning to master the `flame`.
+- Will get the `flame` either way.
+- Bring her to me with the `flame`.
+- Clarke gives the `flame` to luna.
+- He went in search of the `flame`.
+- It's called the `flame` alphabet.
+- Before we put the `flame` in luna.
+- No heat, no `flame`, no explosion.
+- The `flame` can change everything!
+- But you can give the `flame` to me.
+- The backdraft blew out the `flame`.
+- You don't have the `flame`, ontari.
+- You don't have the `flame`, ontari.
+- You mission is to pass the `flame`.
+- Your father can't have the `flame`.
+- Balls of `flame` and grinding metal.
+- Did she put the `flame` in her head?
+- Does that mean you have the `flame`?
+- Hey... is my `flame` keeper correct?
+- We can't let ontari get the `flame`.
+- Clarke, tell us where the `flame` is.
+- The `flame` is bonding with her mind.
+- The truth about the `flame` helps us.
+- What did she write about the `flame`?
+- Our friends are out there the `flame`.
+- Sugar, bring up that `flame` thrower !
+- You really think she's in the `flame`?
+- _ alie will get the `flame` either way.
+- Luna... the `flame` is your birthright.
+- Now, put your hands inside the `flame`.
+- Because i can just take out the `flame`.
+- We just need your help with the `flame`.
+- With the `flame` if they got in her way.
+- The `flame` deepens what's already there.
+- Yeah, so jane was an old `flame` of mine.
+- Her body is already rejecting the `flame`.
+- Her body is already rejecting the `flame`.
+- If i remove the `flame`, - no, whoa, whoa.
+- If i can get the `flame`, you can find out.
+- If we're gonna do this, i need the `flame`.
+- If we're gonna do this, i need the `flame`.
+- Just take the damn `flame` out of her head.
+- She's uploading the `flame` from your mind.
+- She's uploading the `flame` from your mind.
+- The flamekeeper claims he lost the `flame`.
+- Then they'll bring the `flame` right to us.
+- They took her and the `flame` to the tower.
+- Titus entrusted me with the `flame` please.
+- War, power... the `flame` takes their life.
+- What if there was a way to fix the `flame`?
+- Ontari's no longer an option for the `flame`.
+- Ontari's no longer an option for the `flame`.
+- What you call the `flame`, they call the key.
+- If i remove the `flame`, i was protecting you.
+- I was the reason the `flame` takes their life.
+- What happens if you can't find the `flame`?
+- Becca created the `flame` after apocalypse one.
+- I'm waiting for him to return with the `flame`.
+- That's jane... she's... an old `flame` of mine.
+- The `flame` that you told cadogan we destroyed?
+- I know you don't want ontari to get the `flame`.
+                 

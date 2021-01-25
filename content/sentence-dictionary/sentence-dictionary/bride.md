@@ -1,0 +1,60 @@
+---
+title: "bride in a sentence | bride example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bride"
+---
+- "father of the `bride`."
+- A `bride` without a head!
+- "`bride` of frankenstein."
+- I cannot betray my `bride`.
+- Indeed i am a `bride` short.
+- Mary's a mail-order `bride`?
+- To be my `bride`, of course.
+- You may now kiss the `bride`.
+- I want to make you my `bride`.
+- With what, my asinine `bride`?
+- He dotes on that `bride` of his.
+- I directed "`bride` of the atom"!
+- I lost my hand, i lost my `bride`!
+- I ordered moe's mail-order `bride`.
+- The title is "`bride` of the atom."
+- She's not my `bride`, she's my fare.
+- We'd travel north, my `bride` and i.
+- I'm gonna make one of them my `bride`.
+- Let the `bride` feast upon her visage.
+- My passion thaws for my `bride` alone.
+- You're shooting "`bride` of the atom."
+- Even your blessed mother was a `bride`.
+- The princess `bride`, by s. morgenstern.
+- At last she arrives, my hard-won `bride`!
+- Nor will i, till my `bride` is beside me.
+- Not one person from the `bride`'s family.
+- Now where do i find your brittle `bride`?
+- Tell him "`bride`" is in pre- production.
+- You even kicked the `bride` in the chest!
+- But i did not order no mail-order `bride`!
+- Here's luck to the `bride` and bridegroom.
+- Johnny has his hand, johnny has his `bride`!
+- I am looking where i should to become a `bride`!
+- We need someone to walk the `bride` down the aisle.
+- You guys are heartless, my `bride` picked this out.
+- For you and your wedding and your beautiful `bride`.
+- We gotta postcard from my son nickie and his `bride`.
+- Didn't you just make one called "`bride` of the atom"?
+- If i were your `bride`, would the kissing ever stop...?
+- That the `bride` and groom have written their own vows.
+- You know a place he can go where he can find a `bride`?
+- "frankenstein" and "`bride` of" and "son of" and all the rest?
+- In fact, i picked up a `bride` yesterday; except she was a singer.
+- I said, what would a `bride` be doin', on her wedding... ex-cuse me?
+- You're thinking of the groom not seeing the `bride` before the wedding.
+- Anyway, it's bad luck to see too much of the `bride` before the wedding.
+- St. peter's church, and peter too, he shall not make me there a joyful `bride`!
+- You only killed the `bride`'s father - that's all - hurry, brave sir launcelot!
+- I really loved the skilful way you beat the other girls to the `bride`'s bouquet.
+- Like in "`bride` of the mutant", when you played the whole end with that torn top.
+- Hey, sigmund, you think you could rustle up the `bride` and tell her to join the party?
+- The benevolent marquise, charenton's most revered philanthropist... or satan's `bride`.
+- He said when he gets married he wants to carry his `bride` over the threshold in his arms.
+                 

@@ -1,0 +1,107 @@
+---
+title: "neighborhood in a sentence | neighborhood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "neighborhood"
+---
+- It's my `neighborhood`.
+- From the `neighborhood`.
+- From the `neighborhood`.
+- From the `neighborhood`?
+- Take the `neighborhood`.
+- Nice `neighborhood`, huh?
+- Some nice `neighborhood`.
+- This is a `neighborhood`.
+- A big `neighborhood` party?
+- I was in the `neighborhood`.
+- This is your `neighborhood`.
+- You from the `neighborhood`?
+- Patrolling the `neighborhood`.
+- There goes the `neighborhood`.
+- They're in the `neighborhood`.
+- Not in our `neighborhood`, man.
+- You live in the `neighborhood`?
+- It's...it's a bad `neighborhood`.
+- She's right in the `neighborhood`.
+- It's all good in da `neighborhood`.
+- The best in the `neighborhood`... .
+- But it's his kind of `neighborhood`.
+- Kind of a bad `neighborhood`, snake.
+- Let's move into this `neighborhood`.
+- You're from the same `neighborhood`.
+- You'll wake the whole `neighborhood`!
+- Half the damn `neighborhood` is comin'.
+- Well, it is a `neighborhood` tradition.
+- I'm in that other girl's `neighborhood`.
+- `Neighborhood`'s not what it used to be.
+- Who told you to be in my `neighborhood`?
+- Go take a walk around the `neighborhood`.
+- I see you're still in the `neighborhood`.
+- The champion flock of the `neighborhood`.
+- Is every tutsi in the `neighborhood` here?
+- Yeah, the `neighborhood`'s gonna be great.
+- The `neighborhood` has gone to hell anyway.
+- Honey, you'll wake the whole `neighborhood`!
+- I came from a `neighborhood` just like hers.
+- I was in the `neighborhood` - well, go ahead.
+- Kinda out of your `neighborhood`, aren't you?
+- This `neighborhood` ain't what it used to be.
+- It's a totally normal, average `neighborhood`!
+- I've never been in a `neighborhood` it's okay.
+- You shouldn't hang around this `neighborhood`.
+- I'm sick of niggers, it's a bad `neighborhood`.
+- It's an important job, `neighborhood` watch is.
+- You must be very popular in the `neighborhood`.
+- Hey, no problem, uh, i was in the `neighborhood`.
+- I can't deliver a kid from my own `neighborhood`.
+- I'm just going to walk around the `neighborhood`.
+- Josh says this is a really good `neighborhood`...
+- I'm telling you, this `neighborhood` is coming back.
+- We're new in the `neighborhood`, gonna be neighbors.
+- No, i'm just going to walk around the `neighborhood`.
+- Oh man, what we gotta leave ar' own `neighborhood` for?
+- What do you want to live in a black `neighborhood` for?
+- Everyone in the `neighborhood` pays him, even my father.
+- That's why i'm trying to stay clear of my `neighborhood`.
+- She's pulled herself out of a pretty rough `neighborhood`.
+- If it isn't the `neighborhood` bootlegger, al capone mcfly?
+- You got some heart, kid, showing up in this `neighborhood`.
+- Hi, i was in the `neighborhood` and thought i'd see -- oh, hi.
+- Maybe not a panther, but it's someone from the `neighborhood`.
+- We should stay in our own `neighborhood`, stay in bensonhurst.
+- You're crazy carryin' that kinda money in this `neighborhood`.
+- The only reason is that the `neighborhood`'s shi... ... crummy.
+- If you're ever in the `neighborhood`... uncle joey's little girl.
+- She says we gotta get used to being alone in this `neighborhood`.
+- Well the `neighborhood` is full of dogs, and it's not always otis.
+- Yeah sure, if i'm ever in the `neighborhood`, need to use the john.
+- This isn't exactly the safest `neighborhood` in the world, you know.
+- Couldn't we sell this and open up a new one in our own `neighborhood`?
+- No pushing in the `neighborhood`, especially not on my fucking street.
+- You don't just find these things, at least not in this `neighborhood`.
+- Another `neighborhood` -- another town -- another job -- i'm on my own.
+- If i let you go on your own, you promise to stay in the `neighborhood`?
+- So what if this is a black `neighborhood`, so what if we're a minority.
+- Now he wants double from everybody in the `neighborhood`, including papa.
+- Anything you can do to revitalize this `neighborhood` would be a blessing.
+- Well, i wanted to stop by to welcome you to the uh, to the `neighborhood`.
+- But, bishop, surely you realize -- this is a most dangerous `neighborhood`.
+- I agree... people spend a lot of hard earned money for this `neighborhood`.
+- There are so many problems in this `neighborhood` that we could help solve.
+- Aah, he's a bottlebaby, he talks to himself, the joke of the `neighborhood`.
+- Some kind of staring contest between two kids from the "old `neighborhood`?"
+- We ain't exactly in what you'd call your high traffic `neighborhood` either.
+- You can't be a friendly `neighborhood` spider-man if there's no `neighborhood`.
+- Go do your job; take a walk around the `neighborhood`... see everything is okay.
+- Isn't there anyone in the `neighborhood` who might cast an eye in her direction?
+- They want a few weapons so the `neighborhood` niggas know they mean business.
+- Plus grammoo's room's a lot bigger, and you get a view of the whole `neighborhood`.
+- They imagine this `neighborhood` to be some sort of delightful ongoing block party.
+- They say fanucci has a license from maranzalla himself to work this `neighborhood`.
+- This group of koreans in koreatown have started a `neighborhood` watch kinda thing.
+- Your honor, imagine how the children in this `neighborhood` have been made to feel.
+- I'm taking them all out to queens, as a matter of fact, right in your `neighborhood`.
+- Well, anyway, i�i guess nearly everybody in the `neighborhood` came, except the delaneys.
+- I didn't work all my life to get out of this `neighborhood` for you to move right back in!
+- Maybe in the high rent districts they discuss -- but in my `neighborhood`, they still nag.
+                 

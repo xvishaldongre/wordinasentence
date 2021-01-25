@@ -1,0 +1,107 @@
+---
+title: "lay in a sentence | lay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lay"
+---
+- This one's a `lay`-up.
+- Don't `lay` this on me!
+- I'll `lay` in a heading.
+- Mark them as they `lay`.
+- She wants to `lay` down.
+- Bugs don't `lay` traps...
+- I just need to `lay` down.
+- `Lay` off once, would you?
+- You all want to `lay` off?
+- Had to `lay` off five guys.
+- I had to `lay` eyes on you.
+- `Lay` off the bennies, leo.
+- `Lay` out his gray suit.
+- Don't `lay` any guilt on me.
+- The kind that `lay` in wait.
+- I think i need to `lay` down.
+- `Lay` off of that stuff, son.
+- `Lay` out some mixed nuts.
+- Don't you `lay` a curse on me!
+- `Lay` on that couch right now!
+- So `lay` it out, my brother...
+- You `lay` it out on the table.
+- Goddamn it, stephen, `lay` off!
+- I can't `lay` that off in time.
+- `Lay` down and die by yourself.
+- Oh, jesus, `lay` off, will you?
+- Think i'll `lay` down with him.
+- What's this "`lay` back, mack?"
+- I can't `lay` down for this one.
+- `Lay` off the textbook approach.
+- I got to `lay` some ground rules.
+- Just `lay` back and let me drive.
+- My advice to you is to `lay` low.
+- So `lay` it off to somebody else.
+- Where can i `lay` this stuff out?
+- Can you show where the body `lay`?
+- We `lay` low here until they pass.
+- You have to `lay` it on the table.
+- Come on, get up, don't `lay` there.
+- Here, `lay` down and get some rest.
+- Then they'll `lay` down their arms.
+- You need to `lay` off of that shit.
+- Guess i can't just `lay` here, then.
+- `Lay` down and don't think about it.
+- `Lay` her on the table and leave us.
+- So `lay` some bartender wisdom on me.
+- Anyway, trapper john, this is me `lay`.
+- Doyle, don't you `lay` one hand on her.
+- Just `lay` on the beach for six months.
+- Looking for a place to `lay` our heads.
+- We should `lay` low, let the army pass.
+- You told charlie to `lay` down and die.
+- I don't want to `lay` eyes on you again!
+- `Lay` there and sweated blood for hours.
+- You gonna `lay` the blame at my feet?
+- Don't `lay` your hang-ups on me, vanessa.
+- Nick, you'd better `lay` off that liquor.
+- This is no time to `lay` down on the job.
+- Your cards... `lay` them down... face up.
+- All you got to do is `lay` down an' watch.
+- I'll `lay` odds you got that bracelet.
+- Did i ever tell you about me `lay` marston?
+- Don't `lay` that jail number on me no more.
+- I'd had quiff `lay` that shit on me before!
+- I'll `lay` you five to one you won't sleep.
+- Just "`lay` back, mack"... `lay` back... god!
+- Poor bastard `lay` there till this morning.
+- I'll `lay` waste to those fools in sherabad.
+- I swear to god if you `lay` one hand on her!
+- You `lay` a finger on her and i'll kill you.
+- Your mother used to `lay` for her boss, boy.
+- I ask them to stop, to `lay` down their guns.
+- Just `lay` your head back and get comfortable.
+- The bible says two men ort not `lay` together.
+- Then why do you want me to `lay` down to them?
+- They `lay` the dead ones out in the cold room.
+- As if i was gonna `lay` a hand on my own sister.
+- But i reckon he can `lay` off doin' it tomorrow.
+- I just need a place to `lay` low for a few days.
+- If you `lay` a hand on him i'll fucking kill you!
+- Never trust a smiling man, you can `lay` to that.
+- Now i'm going to `lay` all my cards on the table.
+- You're gonna `lay` down in it and fall asleep.
+- I `lay` there for a while, then decided to get up.
+- We needed somebody who knew the `lay` of the land.
+- What i have to do is get in my bed and `lay` down.
+- `Lay` one right on the button,[6] but sock it hard.
+- Scotty, help me pick richie up, and `lay` him down.
+- You think he was going to `lay` it out at your feet?
+- I'll `lay` odds she's looking for character in a man.
+- I'd `lay` my hand on the bible and say the same thing.
+- I'd rather just `lay` there and try to catch a breeze.
+- I get the `lay` of the land, i tell *you* what to say.
+- I wish i could tell everybody that ann's a lousy `lay`.
+- + you keep trying to `lay` this whole ride on t keaton.
+- Bandit, i just thought i'd `lay` a smokey report on you.
+- I have to `lay` the phone down and pretend to be asleep.
+- Maybe your marriage should `lay` off grains for a while.
+- Those pool tables are the slabs they `lay` the stiffs on.
+- A little bit of learning and you `lay` waste to the world!
+                 

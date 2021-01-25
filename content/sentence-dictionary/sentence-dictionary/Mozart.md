@@ -1,0 +1,69 @@
+---
+title: "Mozart in a sentence | Mozart example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Mozart"
+---
+- But i so want `mozart`.
+- Did `mozart` apologize?
+- Herr `mozart` - must i?
+- He's not herr `mozart`.
+- What is this, `mozart`?
+- Was `mozart` a good man?
+- Well, tell him, `mozart`.
+- He killed `mozart`, not i.
+- My answer is no, `mozart`.
+- Then try harder, `mozart`.
+- Wolfgang amadeus `mozart`.
+- Herr `mozart` frightens me.
+- You can't be herr `mozart`!
+- `Mozart` plays shuffleboard.
+- That will do, herr `mozart`!
+- With all my heart, `mozart`.
+- You are passionate, `mozart`!
+- Aren't i right, herr `mozart`?
+- It's a miracle, herr `mozart`!
+- `Mozart`, i am a tolerant man.
+- `Mozart` - they hate my music.
+- Bring in herr `mozart`, please.
+- Strudel, this is herr `mozart`.
+- This is herr `mozart`, my dear.
+- `Mozart` is writing a new opera.
+- `Mozart` - naturally, the italians!
+- You call herr `mozart` immediately!
+- Herr `mozart`, what brings you here?
+- I'm afraid `mozart` is a lost cause.
+- Welcome to our house, herr `mozart`.
+- Well, i heard you met herr `mozart`.
+- Come, come, `mozart`; i'm interested.
+- Well, `mozart` is already rehearsing.
+- Couldn't we meet at the `mozart` cafe?
+- `Mozart`, music is not the issue here.
+- But - i'm thinking about herr `mozart`.
+- I had mr. `mozart` to keep me company.
+- May i offer you some tea, herr `mozart`?
+- Dear `mozart`, my sincere congratulations.
+- Why didn't you come to me yesterday, `mozart`?
+- You already commissioned an opera from `mozart`.
+- Herr `mozart`, may i have a word with you please.
+- Why use `mozart` to teach me lessons in humility?
+- `Mozart`, you are not the only composer in vienna.
+- You think everyone gets to hang out with `mozart`?
+- His coffin, `mozart`'s little coffin in the middle.
+- I'm sure you will find her most willing, herr `mozart`.
+- But finally, i simply could not recommend herr `mozart`.
+- It's such an honour for us to have you here, herr `mozart`.
+- When you look at the keys, you see music, you see `mozart`.
+- Christ, you're right -- gray makes jerry ford look like `mozart`.
+- Your majesty, herr `mozart` - well, what do you have for me today?
+- But, your majesty - what you think, `mozart`, is scarcely the point.
+- Beethoven, `mozart`, they looked at it and it just made sense to them.
+- I don't think you should become known in vienna as a debtor, `mozart`.
+- I think it is an interesting notion to keep `mozart` in vienna, majesty.
+- Oh, speaking of records...i bought that `mozart` trio you recommended...
+- He broke `mozart` in half when he'd finished with him, and threw him away.
+- From now on no one will be able to speak of `mozart` without thinking of me.
+- Whenever they say `mozart` with love, they'll have to say salieri with loathing.
+- I have to tell you, `mozart` is not entirely to be trusted alone with young ladies.
+- My dear `mozart`, there is no one in the world i would rather help, but now it is too late.
+                 

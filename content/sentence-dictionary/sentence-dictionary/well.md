@@ -1,0 +1,107 @@
+---
+title: "well in a sentence | well example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "well"
+---
+- As `well` as it could.
+- A `well`-rounded life.
+- Dirt... `well`... who?
+- Don't you feel `well`?
+- He is doing so `well`.
+- He's not doing `well`.
+- I didn't sleep `well`.
+- I know it `well`, sir.
+- Ikran will fly `well`.
+- I like it `well` done.
+- I'm a agent as `well`.
+- I'm not at all `well`.
+- I'm `well`, thank you.
+- It almost went `well`.
+- Just as `well`, lenny.
+- Oh, `well`, all right.
+- Oh `well`, duty calls.
+- Ooh, `well` excuse me.
+- Silk suits you `well`.
+- Sleep `well`, my love.
+- The boy in the `well`.
+- Travels `well` though.
+- Very `well`, i accept.
+- `Well`, a ball player.
+- `Well`, actually, yes.
+- `Well` all right then.
+- `Well`, bless my soul.
+- `Well`, can i ask why?
+- `Well`, come on, then.
+- "`well` done," cactus.
+- `Well`, don't lose it.
+- `Well`, don't rush it.
+- `Well`, don't worry...
+- `Well` fuck you, evan!
+- `Well`, get away then!
+- `Well` goodnight, boy.
+- `Well`, guess what?...
+- `Well` hello, officer.
+- `Well`, he's not here.
+- `Well`, hey, whatever.
+- `Well`, how did it go?
+- `Well`, how do i look?
+- `Well` how do we look?
+- `Well`, how do you do.
+- `Well` -- i could try.
+- `Well` i don't either!
+- `Well` i don't know...
+- `Well`...i don't mind.
+- `Well`, i got it, joe.
+- `Well`, i got one now.
+- `Well`, i'll be... no.
+- `Well`, i'll tell him.
+- `Well`, i'll tell you.
+- `Well`, i'm flattered.
+- `Well`, i'm impressed.
+- `Well`, i'm no doctor.
+- `Well`, i'm out, okay?
+- `Well` i never did it.
+- `Well` -- i said that.
+- `Well` is it reliable?
+- `Well` it is pathetic.
+- `Well`, it's a casino.
+- `Well`, it's a living.
+- `Well`, it's for shit.
+- `Well` it's up to you.
+- `Well`, it won't work.
+- `Well`, it worries me.
+- `Well` -- i will then.
+- `Well`, let's hope so.
+- `Well`, lisa, a woman?
+- `Well`... look at you.
+- `Well`, look er, i ...
+- `Well`, mainly vigo's.
+- `Well`... many things.
+- `Well`, maybe you are.
+- `Well`, mr. bernstein?
+- `Well` -- mr. webster!
+- `Well` not especially.
+- `Well`... not exactly.
+- `Well`, now he's dead.
+- `Well`, of course not!
+- `Well`, of course not.
+- `Well`, see you later.
+- `Well`, she was wrong.
+- `Well`, sir, i putter.
+- `Well`, stick with it.
+- `Well`, sure, i guess.
+- `Well`, take them off.
+- `Well` thank you, hun.
+- `Well` that's perfect.
+- `Well`... that's true.
+- `Well`, the freighter.
+- `Well` then, shall we?
+- `Well`... the red bra.
+- `Well`, there he sits.
+- `Well`, there you are!
+- `Well`, there you are.
+- `Well`, they're gonna.
+- `Well` think about it.
+- `Well`, this is great.
+                 

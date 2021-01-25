@@ -1,0 +1,64 @@
+---
+title: "satisfied in a sentence | satisfied example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "satisfied"
+---
+- Are you `satisfied` now?
+- He won't be `satisfied`.
+- I'm utterly `satisfied`.
+- Now, are you `satisfied`?
+- The cops are `satisfied`.
+- For you to be `satisfied`.
+- Another `satisfied` client?
+- I was... never `satisfied`.
+- The police are `satisfied`.
+- `Satisfied` with your cabin?
+- Why was she not `satisfied`?
+- Are you `satisfied`, mathieu?
+- Well, are you `satisfied` now?
+- You mean, <u>dis</u>`satisfied`.
+- We are `satisfied`, that will do.
+- You `satisfied` or you want more?
+- Another `satisfied` client's wife.
+- But the network isn't `satisfied`.
+- Some hungers can't be `satisfied`.
+- Major burns is far from `satisfied`.
+- Well, are ye `satisfied`, mr. mitchell?
+- I will search him until i am `satisfied`.
+- You know what, you are never `satisfied`.
+- I'm `satisfied` with my situation for now.
+- I was watching animal planet, `satisfied`?
+- That he was -- `satisfied` in that regard.
+- That kind of hunger ain't never `satisfied`.
+- If i'm `satisfied`, then you can have it.
+- It's late.... children are never `satisfied`.
+- Well, it's the only way i can be `satisfied`.
+- Are you more `satisfied` now sexually, austin?
+- Would you be `satisfied` if i said i shot him?
+- You told sen that you weren't `satisfied` with me.
+- I give you three murders and you aren't `satisfied`.
+- I'm `satisfied` with the evidence we have right now.
+- As much as i don't enjoy doing this, `satisfied`?
+- But for the moment, let's be `satisfied` with algiers!
+- I'm not `satisfied` till the spoon stands straight up.
+- The man from the tribune seemed perfectly `satisfied`.
+- Church is watching too, and he's still not `satisfied`.
+- Well, i'm sure she kept her word and left you `satisfied`.
+- If his grace is not `satisfied` with me, he can dismiss me.
+- I ain't at all `satisfied` with these here ways of going on.
+- Do you think he'd be `satisfied` with the two hundred dollars?
+- It's a long way between being overwhelmed and being `satisfied`.
+- They will never be `satisfied` with anything else, miss henried.
+- We both know there's no way you're `satisfied` just turning it on.
+- You won't be `satisfied` unless you're putting the company at risk!
+- Neither will i. i won't feel `satisfied` unless i got out there, sam.
+- What makes you think that this somebody will be `satisfied` with three?
+- He goes on these binges, kills a couple of thugs -- then he's `satisfied`.
+- If you're insulted, and not `satisfied`, remember there's two of us, best.
+- Maranzano and masseria ain't gonna be `satisfied` until one of 'em starts a war.
+- It would have worked if you'd been `satisfied` with just being editor and reporter.
+- Oh i see, but gloria doesn't seem to be `satisfied` with the twenty thousand dollars.
+- I would love to be `satisfied` harry powell don't think i've got that money somewhere.
+- We rule with moderate strictness and in return we are `satisfied` with moderate obedience.
+                 

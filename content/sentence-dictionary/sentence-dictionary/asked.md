@@ -1,0 +1,107 @@
+---
+title: "asked in a sentence | asked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "asked"
+---
+- He never even `asked`.
+- He's never `asked` me.
+- I `asked` about fredo?
+- I `asked` him will he?
+- I `asked` you my name.
+- Nobody `asked` you to.
+- She `asked` me not to.
+- So i went and `asked`.
+- That's what i `asked`.
+- You `asked` for death.
+- George `asked` her out!
+- He `asked` how you are.
+- I was `asked` to leave.
+- They `asked` about you.
+- You `asked` me to help.
+- You `asked` me to stay.
+- Be `asked` me if i knew.
+- I `asked` you last week.
+- I just `asked` his name.
+- They `asked` me to help.
+- They `asked` themselves.
+- They `asked` who it was.
+- You `asked` for my help.
+- You `asked` me for help.
+- No questions `asked`.
+- He `asked` me a question.
+- He `asked` you, how far?!
+- I `asked` harry about it.
+- I `asked` you a question.
+- I kind of `asked` him to.
+- I never `asked` for more.
+- That's why i `asked` you.
+- Well, nobody `asked` yuh.
+- You never `asked` before!
+- Because he `asked` you to!
+- Because i `asked` for you.
+- He `asked` her everything!
+- He `asked` where you were!
+- I `asked` for a policeman.
+- I `asked` her to dinner...
+- I `asked` him not to tell.
+- I `asked` how much it was.
+- I `asked` you to marry me.
+- I've already `asked` them.
+- She's `asked`, hasn't she?
+- That's not what i `asked`.
+- That's what it `asked` me.
+- Well he `asked` me for it!
+- You could've `asked` them.
+- You mean somebody `asked`?
+- `Asked` a lot of questions.
+- *but you never `asked` me*!
+- Dieter `asked` where i was.
+- He `asked` me to marry him.
+- He `asked` me to stay here.
+- I `asked` for it yesterday.
+- I `asked` if you loved her.
+- I `asked` you about school.
+- No one `asked` you to look.
+- Or i wouldn't have `asked`.
+- She `asked` you a question.
+- Yeah, that's why i `asked`.
+- You `asked` me not to come.
+- You `asked` to see me, sir?
+- I never `asked` for one!
+- `Asked` me to meet you here?
+- He `asked` to go home early.
+- Here's what you `asked` for.
+- I `asked` where you got him.
+- I never `asked` you to quit!
+- I shouldn't 've `asked` you.
+- It's what she `asked` for...
+- Just `asked` him a question.
+- She `asked` about my father?
+- She `asked` me to come over.
+- She `asked` me to thank you.
+- They `asked` for raven, too.
+- Why haven't you `asked` her?
+- You already `asked` me that.
+- You `asked` for shoe polish.
+- You `asked` my opinion, sir.
+- You have what i `asked` for?
+- Has anybody `asked` his wife?
+- He has not `asked` my advice.
+- He just `asked` me questions.
+- He's `asked` me to marry him.
+- I `asked` him at the funeral.
+- I `asked` you somethin', boy!
+- I never `asked` for a nickel.
+- I never `asked` what we sell.
+- I shouldn't have `asked` you.
+- Olive `asked` me to bring it.
+- Should i have not `asked` it?
+- We `asked` them to come here.
+- What if i `asked` you not to?
+- You `asked` me what i wanted.
+- You `asked` to see me, ma'am?
+- You know what she `asked` me?
+- All right, you `asked` for it.
+- And all--they `asked` me-- oh.
+                 

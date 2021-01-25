@@ -1,0 +1,107 @@
+---
+title: "those in a sentence | those example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "those"
+---
+- Check `those` corners.
+- Everybody has `those`.
+- Give me `those` tapes.
+- Gus `those` are plans.
+- I loved `those` shows!
+- It's `those` feathers.
+- Must you take `those`?
+- Pick `those` up, reno.
+- `Those` are my orders.
+- `Those` are my people.
+- `Those` aren't guards.
+- `Those` are the hoyts.
+- `Those` are the terms.
+- `Those` blood suckers.
+- `Those` cagey rascals!
+- `Those` days are over.
+- `Those` 'dirty looks'.
+- `Those` girls love me.
+- `Those` good ol' days?
+- `Those` that are left.
+- `Those` were russians?
+- `Those` were the days.
+- Who are all `those`--?
+- Who are `those` girls?
+- �and `those` and them.
+- Are `those` your words?
+- Beyond `those` 5 years.
+- Can i see `those` guns?
+- Fuck `those` spic pigs!
+- Get `those` cuff-links.
+- Hand me `those` pliars.
+- I kissed `those` girls.
+- I left `those` drugs...
+- I'll show `those` guys.
+- I'll take `those` odds.
+- I'm aiming for `those`.
+- Keep `those` wires hot.
+- Now gimme `those` keys.
+- Remember `those` words.
+- She used `those` words.
+- She used `those` words?
+- `Those` are last words.
+- `Those` are my breasts.
+- `Those` are my clothes.
+- `Those` are my friends.
+- `Those` are my letters!
+- `Those` guns are close.
+- `Those` guys are right.
+- `Those` times are over!
+- `Those` were all words.
+- `Those` were his words?
+- `Those` were the terms.
+- What are `those` cards?
+- What facts are `those`?
+- You saved `those` kids.
+- Be careful with `those`.
+- Begin `those` maneuvers.
+- Close `those` around it.
+- Don't say `those` words.
+- I love `those` cartoons.
+- I picked `those` drapes.
+- I've seen `those` leads.
+- I want `those` tomatoes.
+- Let me see `those` arms.
+- Look at `those` flowers.
+- Look at `those` numbers.
+- Never mind `those` guys.
+- One a `those` days, huh.
+- She got `those` shoes...
+- That's a lot of `those`.
+- `Those` aren't presents.
+- `Those` are reflections.
+- `Those` are the ones ...
+- `Those` fuckin' niggers.
+- `Those` guys bother you?
+- `Those` shows are funny.
+- `Those` sly dissemblers!
+- `Those` sons of bitches!
+- `Those` were your words.
+- `Those` women are happy.
+- Too hot tor `those` two?
+- We need `those` flights.
+- What killed `those` men?
+- What's in `those` files?
+- Where'd you get `those`?
+- Where's `those` glasses.
+- Whose rooms are `those`?
+- You knew `those` people.
+- All `those` like you.
+- Are any of `those` right?
+- Are `those` stories true?
+- Did `those` things leave?
+- Do you got `those` pills?
+- Get `those` away from me!
+- He had all `those` files.
+- Here, gimme `those` oars.
+- Hit `those` stairs again.
+- Hold `those`, hold `those`.
+- I am one of `those` guys.
+- I did all `those` things!
+                 

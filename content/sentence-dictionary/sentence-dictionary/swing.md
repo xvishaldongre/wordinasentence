@@ -1,0 +1,53 @@
+---
+title: "swing in a sentence | swing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swing"
+---
+- I `swing` like reggie.
+- `Swing` by her apartment.
+- Thought we'd `swing` wide.
+- But someone has to `swing`.
+- You got a beautiful `swing`.
+- You're gonna `swing` a right.
+- I hate to see any man `swing`.
+- Larry, `swing` over on eighth.
+- You want to help me `swing` it?
+- Tell merrill to `swing` away.
+- Can you `swing` that, my brother?
+- I'll `swing` the rest of the way.
+- Yeah, i guess i can `swing` that.
+- You `swing` like an impotent cow!
+- Had a great `swing` with his blade.
+- Okay, i think i could `swing` that.
+- With the porch `swing` and everything...
+- Yeah, but when you do... you'll `swing`.
+- At least he didn't `swing` with your ride.
+- Gee, look at that thing `swing`, will you?
+- `Swing` by first methodist tuesday nights.
+- Maybe it'll `swing` south like the last one.
+- I want to `swing`.... did you hear what i said?
+- That's a hell of a `swing` you got there, noel.
+- Will `swing` from the sides of the street next.
+- I'm gonna `swing` by, you're just gonna grab him.
+- Now `swing` it out a little to the right... yeah.
+- Maybe i'll `swing` around los ang gleez on the way.
+- I work graveyard, `swing` and day all by my lonesome.
+- They probably meant irving and wanted you to `swing`.
+- He's been billed, he'll be indicted and he'll `swing`.
+- Mind if i `swing` by later, wring out a tea-bag with you?
+- He'll get into the `swing` of things or i don't know writers.
+- Listen, vanessa, i'm a swinger... that's what i do, i `swing`.
+- Good, 'cause i wanna `swing` by blockbuster and get us a video.
+- Who can think of worms when your libido's in full `swing`, right?
+- Would you speak to your boss and see what you can `swing` for us?
+- Well, you want to `swing` by the chinks, watch me eat, we'll talk?
+- ♪ what is good ♪ and `swing` your foot in a circle and keep winking?
+- With a view of trees, he said, or even water... can we `swing` that?
+- If he wants someone to `swing` for the chinaman, we'll give'm mars.
+- Oh, man, if you could `swing` something there, i'd do anything for you.
+- You have until then to get him not join the latest cultural mood `swing`.
+- Step out of line, and i don't care who knows you, i'll `swing` the hammer.
+- You took a `swing` at me over some fuckin' thing, whatever it was -� forget it.
+- A batter has two tenths of a second to decide whether to `swing`-- you got me all confused.
+                 

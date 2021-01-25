@@ -1,0 +1,64 @@
+---
+title: "staring in a sentence | staring example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "staring"
+---
+- Stop `staring` at me!!
+- I noticed you `staring`.
+- Whatta you `staring` at?
+- Hell, they are `staring`.
+- I'm `staring` right at it.
+- Marcus, they're `staring`.
+- What are you `staring` at?
+- People are `staring` at us.
+- Why are you `staring` at us?
+- Alex... people are `staring`.
+- Why are you `staring` at him?
+- Uh... what are you `staring` at?
+- Why is this kid `staring` at me?
+- You were `staring` right at him.
+- Are you `staring` at me like that?
+- What are you jimmies `staring` at?
+- She wouldn't stop `staring` at you.
+- Look, they're `staring` right at us.
+- But earlier, he was `staring` up here.
+- I'm not star-- you're `staring` at me.
+- Why are you `staring` at me like that?
+- I wasn't star-- you're `staring` at me.
+- Uh, addison, why is she `staring` at us?
+- You heard her... stop `staring` at me...
+- You saw the way she was `staring` at me.
+- I feel like everyone's... `staring` at me.
+- I keep seeing him `staring` out his window.
+- What are you `staring` at, you ugly monkey?
+- God, why is everyone always `staring` at me?
+- You'll find me there `staring` back at you!!
+- You must excuse me for `staring`, mr. boone.
+- Beyond the periphery of men, `staring` at him.
+- But i've got gorignak `staring` me in the face.
+- Now what are you `staring` at, you ugly monkey?
+- People `staring` at me, sensing i was different.
+- Bellamy, you've been `staring` at that all night.
+- Must have been `staring` out the window for hours.
+- People `staring`, whispering -- this ain't permanent.
+- `Staring` three years of operational duty in the face.
+- Here - and here - we could be `staring` at zerzura.
+- I need your help, and if you keep `staring` at me like that.
+- Why's that taxi driver across the street been `staring` at us?
+- I need you, tiger.. why are you `staring` at my breasts, peter?
+- 'cause i... was walkin' along a block behind you `staring` at you?
+- Christ, i feel like a fraud, sitting here `staring` at this paper.
+- He's `staring` at that smudge... ♪ riding all alone ♪ _ shut that off.
+- That's why you've been `staring` at yourself in the mirror ok, then.
+- He started reading "atlas shrugged," `staring` at himself in the mirror.
+- I've spent many long hours in a car with your face `staring` back at me.
+- So if it ain't `staring` us in the face, it's got to be retroperitoneal.
+- Some kind of `staring` contest between two kids from the "old neighborhood?"
+- I caught a whiff of large bowel, but it ain't `staring` us in the face, right?
+- You expect me to spend the rest of the war sitting at home `staring` at a ring?
+- Look, us sitting here `staring` at that thing is not gonna bring everybody back.
+- Or are you two gonna keep `staring` at each other until they start shooting at us.
+- You keep `staring` at that watch as if your life depended on it, doctor.. good job.
+- `Staring` at a screen all day -- you miss what's going on outside in the real world.
+                 

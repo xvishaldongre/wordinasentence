@@ -1,0 +1,76 @@
+---
+title: "opera in a sentence | opera example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opera"
+---
+- A daytime soap `opera`.
+- I hate fuckin' `opera`.
+- You were at the `opera`?
+- Grand old `opera` -- what?
+- The `opera` has never paid.
+- The director of our `opera`.
+- You know i love the `opera`.
+- Are you sure it's an `opera`?
+- I mean to come to my `opera`.
+- `Opera` is here to ennoble us.
+- There's an `opera` on tonight.
+- Sire, only `opera` can do this.
+- Those `opera` people are funny.
+- How could you hate `opera`, sid?
+- Mozart is writing a new `opera`.
+- He's composing his first `opera`.
+- That's an `opera`, you ignoramus.
+- It's the best `opera` yet written.
+- We own an `opera` house, don't we?
+- I love you, and i love the `opera`.
+- What's happening about the `opera`?
+- Sire, the whole `opera` is finished.
+- "a liaison position with the `opera`."
+- Look, it's just an evening at the `opera`.
+- So i, you know, i won't go to the `opera`.
+- You know the main staircase in the `opera`?
+- Catherine, don't make an `opera` outta this.
+- Yet we hear you are making an `opera` from it.
+- He's been commissioned to write an `opera`.
+- Deeds, the `opera` is not conducted for profit.
+- I didn't like what he did with your `opera`.
+- You already commissioned an `opera` from mozart.
+- You talking about the `opera` house on the main?
+- We're going to an opening at the `opera` tonight.
+- What do you think he built that `opera` house for?
+- At the `opera`, they hiss at me when i take my box.
+- I wrote the last 10 pages of my `opera` last night.
+- Say, an `opera` in german for our national theatre.
+- He sits there all he time, doing some silly `opera`.
+- Oh, and holly met a wonderful man who loves `opera`.
+- You're not on that soap `opera` thing again, are you?
+- So all this... really was because of that soap `opera`?
+- Young man, we are going to commission an `opera` from you.
+- Did the `opera` people always come here for their meetings?
+- Hey... is betty still trying to find that soap `opera` guy?
+- Your legs just sing grand `opera` when you move, don't they?
+- It's not as though i'm rushing off to the `opera` or anything.
+- You know it's been a long time since i've been to the `opera`.
+- Deeds, the `opera` is not conducted like any ordinary business.
+- I offered her seats for the `opera`... you haven't seen her yet?
+- Marge, you know dickie has i hate `opera` tattooed on his chest.
+- `Opera` has all the drama and excitement of real life - to music!
+- That `opera` mob is about to break into the mad song from "lucia.
+- Mother always thought - she used to talk about grand `opera` for me.
+- I actually threw the entire `opera` on the fire, he made me so angry!
+- They say i've got to re-write the `opera`, but it's perfect as it is.
+- No, the `opera` starts an hour later tonight on account of the parade.
+- Uh, david called me last night, and he wants to take me to the `opera`.
+- I'd like to remind you again, this isn't an `opera` or a musical comedy.
+- The gentlemen from the `opera` are still waiting in the board room, sir.
+- Excuse me - didn't his majesty specifically forbid ballet in his `opera`?
+- One is a cello player in the `opera` and the other a street-car conductor.
+- The deal was if i came to the `opera` with you you'd leave me alone forever.
+- Wild horses wouldn't drag dickie to -- dickie was at the `opera` last night.
+- You ain't far behind... she can't be here because of a... a soap `opera`.
+- Riding to hounds - - opening of the `opera` - - inauguration balls - they do indeed.
+- We hear you're a friend of freddie's -- he has i hate `opera` tattooed on his chest.
+- They met when my mother was an `opera` singer... in luxemburg... ohh the tag is broken.
+- But my partner goes down there to the `opera` house on suck night to book the good ones.
+                 

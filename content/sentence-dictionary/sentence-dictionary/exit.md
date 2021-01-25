@@ -1,0 +1,66 @@
+---
+title: "exit in a sentence | exit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exit"
+---
+- Glenn, take the `exit`.
+- Go out the north `exit`!
+- The `exit` is not clear.
+- In 3... `exit` is secure.
+- Taking golitsyn's `exit`.
+- `Exit` visas are imminent.
+- I hate funny `exit` lines.
+- I'm headed for the `exit`.
+- It's... not an `exit`... ?
+- There's ... another `exit`?
+- We circle back to the `exit`.
+- Be quiet and get to the `exit`.
+- That way he could `exit` a hero.
+- There is no `exit` visa for him.
+- He must have made a hasty `exit`.
+- This line is not a viable `exit`.
+- Coming to the okeechobee `exit`...
+- When you `exit`, head east on 10th.
+- Nearest `exit` is franklin and erie.
+- e guy knows how to make an `exit`.
+- Would you like to see the `exit` wound?
+- You need a sixth man covering an `exit`.
+- This is my `exit` so, i -- okay -- for you.
+- He's headed towards the eastern most `exit`.
+- I think we're going to `exit` the space port.
+- I was in the middle of a melodramatic `exit`.
+- The `exit` light is on, but he can change it.
+- Look, this is us, and this is the nearest `exit`.
+- Everybody wants that, dear -- it doesn't `exit`...
+- `Exit` the quantum realm at another point in time?
+- To pay for an `exit` latch on a new fighter plane.
+- That would leave one `exit` for hundreds of people.
+- Then why the sudden `exit` without even telling me?
+- To do that, he has to have planned an `exit` point.
+- It's programmed to `exit` through the urinary tract.
+- Also... fried chicken and... gasoline... next `exit`.
+- I think maybe you guys got off the wrong `exit`, yeah?
+- Now i'm gonna defiantly `exit` on this moving walkway.
+- They went out over there: must be some kind of `exit`.
+- If it wanted a quick `exit` then it really lucked- out.
+- It'll still `exit` if they go on not knowing, won't it?
+- Every `exit` is guarded by a laser-detection system.
+- Take the getty center `exit` -- make a right onto cisco.
+- Through ways of my own i provide them with `exit` visas.
+- For the present we'll go on looking for two `exit` visas.
+- You said entrance wound in the forehead, no `exit` wound.
+- I have this whole dead man walking swan song `exit` planned.
+- Captain renault's signature is necessary on every `exit` visa.
+- In a couple of weeks you'll be looking for the nearest `exit` .
+- At the roulette table, trying to win enough for our `exit` visa.
+- He tells me he can give us an `exit` visa, but we have no money.
+- Vehicle one, `exit` your vehicles and proceed to the decontamination camp.
+- He will offer a fortune to anyone who will furnish him with an `exit` visa.
+- You go in with five, you're either leaving an alarm free or an `exit` free.
+- There's an entrance to the sub- basement in the hall off the north side `exit`.
+- `Exit`, above so thrive my soul-- i gave thee mine before thou didst request it!
+- No matter how clever he is, he still needs an `exit` visa, or i should say, two.
+- We also need to help the hurt so we can move them on our ultimate `exit` outta here.
+- There's no stairs, there's no `exit`, it has nothing to do with barb and she's missing.
+                 

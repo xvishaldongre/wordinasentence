@@ -1,0 +1,8 @@
+---
+title: "visceral in a sentence | visceral example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "visceral"
+---
+- It was different... more `visceral`.
+                 

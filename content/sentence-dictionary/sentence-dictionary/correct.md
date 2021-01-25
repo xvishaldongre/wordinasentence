@@ -1,0 +1,107 @@
+---
+title: "correct in a sentence | correct example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "correct"
+---
+- That's `correct`, sir!
+- That's `correct`, sir.
+- Yes, that's `correct`.
+- Am i `correct`, bishop?
+- `Correct`, mr. deckard?
+- Exactly `correct`, sir.
+- My mother is `correct`.
+- That is `correct`, sir.
+- Yes, that is `correct`.
+- That would be `correct`.
+- A through h is `correct`.
+- That is `correct`, major.
+- Yessir, that's `correct`.
+- `Correct` me if i'm wrong.
+- I feel it is... `correct`.
+- Is that `correct`, o'neil?
+- Sir, the list is `correct`.
+- You are married, `correct`?
+- If your theory is `correct`.
+- You're absolutely `correct`.
+- Am i `correct` on that point?
+- That is `correct`, commander.
+- That is <u>not</u> `correct`.
+- Then my theory was `correct`.
+- But you won't sign, `correct`?
+- `Correct` me if i'm wrong - we!
+- Our intelligence was `correct`.
+- [please, don't...] [`correct`!]
+- Technically, you are `correct`.
+- Yes, thomas, that is `correct`.
+- My translation is `correct`.
+- `Correct`, and so, you see, aah!
+- I'm `correct` about that, right?
+- Those proportions are `correct`.
+- Yes, that's perfectly `correct`.
+- The `correct` term is babes, sir.
+- There is no `correct` resolution.
+- To get us out of this, `correct`?
+- What does he mean, too `correct`?
+- Is that `correct`, mister harding?
+- Is this information `correct`... ?
+- Now eat with your `correct` hands.
+- God, you're anatomically `correct`!
+- The answers are actually `correct`.
+- Hey... is my flame keeper `correct`?
+- Suppose our theorizing is `correct`?
+- That is `correct`, comrade skrapinov.
+- Yes, miss ratched, this is `correct`.
+- Are you sure this report is `correct`?
+- I hope you find the figures `correct`.
+- I... then, please, which is `correct`?
+- This is the fourth, is that `correct`?
+- I intend to `correct` that at once.
+- Feel free to `correct` him if you want.
+- It seems our intel on you is `correct`.
+- It's got to be grammatically `correct`.
+- Your perception is `correct`, doctor...
+- Now you gotta learn the `correct` slang.
+- We're in negotiations, that's `correct`.
+- Mary clarence, perhaps you are `correct`.
+- No autonomic effects... that's `correct`.
+- In your opinion is his estimate `correct`?
+- My calculations were absolutely `correct`!
+- Not how i might have put it, but, `correct`.
+- The question is, will you be able `correct`.
+- `Correct` the actual list is safe at langley.
+- You have no proof that it was `correct` data.
+- You know you can `correct` your defects here.
+- It will happen again if we don't `correct` it.
+- Mr. jung, you're a convicted felon, `correct`?
+- Which means someone is piloting it, `correct`?
+- I have to see if my fan theories are `correct`.
+- No, let me `correct` that, an immature asshole.
+- We want to remain seated on them, `correct`?
+- `Correct` me if i'm wrong, but i don't think so...
+- Admiral, may i suggest that dr. mccoy is `correct`.
+- I can still hear the mother screaming -- `correct`.
+- No need to get anatomically `correct` with me, rex.
+- So we need to organize, we keep our shit `correct`!
+- A rather free translation but nonetheless `correct`.
+- Even if it's not--politically `correct` at the time.
+- But the corridor outside this door is open, `correct`?
+- If you weren't mine, you'd be someone elses, `correct`?
+- I...given the limits of your question, that's `correct`.
+- Um-m, well... that's `correct` -- outside it, not in it.
+- I... given the limits of your question, that's `correct`.
+- For birth defects and `correct` them before they are born.
+- I was never politically `correct` enough for comrade dowd.
+- Of course, you would never see the promised land `correct`.
+- The rabbit is `correct` and clearly the smartest among you.
+- For the sake of your argument, let us say that is `correct`.
+- `Correct` me if i am wrong... we are facing north, aren't we?
+- I should be very happy to obtain the `correct` price for this.
+- Where would we be if we didn't follow the `correct` procedures?
+- Caused when the `correct` symbol was touched in the right order.
+- Nobody wants any more killings; we all agree to that, `correct`?
+- Am i `correct` in my assumption, you fish-faced enemy of the people?
+- Well, perhaps sometime we... ...should love to `correct` your error.
+- That's `correct`, doc ... arrested on an assault charge five times...
+- That's `correct` -- but andrew never told me he had a heart condition.
+                 

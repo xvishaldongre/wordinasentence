@@ -1,0 +1,56 @@
+---
+title: "university in a sentence | university example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "university"
+---
+- I liked the `university`.
+- `University`'s shut down.
+- You went to `university`?
+- A doctor at the `university`.
+- We don't need the `university`.
+- The `university` cannot do this.
+- Why aren't you in a `university`?
+- So... the `university` of kentucky.
+- We met at the `university` in pisa.
+- You are at the `university`, candy?
+- Went to `university` on scholarship.
+- Are you the men from the `university`?
+- At online close-up magic `university`.
+- She's graduate of new york `university`.
+- He studied at johns hopkins `university`.
+- I got my acceptance to tokyo `university`.
+- It's just a student from the `university`.
+- The `university` must know where he lives.
+- Also `university` michigan very nice country.
+- Tell them we're working for the `university`.
+- I'm meeting a player from temple `university`.
+- `University` and 10th--want to carry my books?
+- From the `university` of pennsylvania, my p.h.d.
+- I graduated from george washington `university`.
+- You know what this could mean to the `university`?
+- I'll take her with me to the `university` tomorrow.
+- He sent me to `university` for an mba in finance.
+- They talk to me at `university` before fall of saigon.
+- Sure, i'm on my way to a party at remington `university`.
+- "harry osborne diminishes the stature of the `university`."
+- I was captain of the wrestling team at lehigh `university`.
+- In a building belonging to the `university` in the old town.
+- Plus you have bloom at the `university` of chicago... why not?
+- A paper at cornell `university` while you kill your own father.
+- A while back, beth and i -- we worked at the same `university`.
+- Well, maybe that's what they teach you in new york `university`.
+- But, you know, `university` gives out a degree, this guy's got it.
+- But he said he was obligated to lecture at johns hopkins `university`.
+- I knew the man, emil hobbes, a doctor and a professor at `university`.
+- I mean she's a junior at chicago `university`, she's twenty years old!
+- There were a series of lectures about parapsychology at my `university`.
+- You know i have lectured at the `university` of maryland in your country?
+- I was studying at the `university` of paris -- till the english invaded it.
+- You are in the emergency room of the `university` of pennsylvania hospital.
+- One of the first things they teach you at online close-up magic `university`.
+- A huge `university` where we taught everything from botany to history to literature.
+- Carl says if i lose ten pounds, he'll take me to the `university` of maryland fall mixer.
+- The files are in a sealed room and the `university` are under strict orders to stay away.
+- This is not what the `university` has in mind when it promises a liberal education, grady.
+                 

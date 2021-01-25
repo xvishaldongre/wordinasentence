@@ -1,0 +1,73 @@
+---
+title: "candy in a sentence | candy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "candy"
+---
+- Is this real, `candy`?
+- Hello, i'm `candy` gulf.
+- Boys always have `candy`.
+- You're better than `candy`.
+- `Candy`-stripe a cancer ward.
+- How about some `candy` floss?
+- I love playing `candy` crush.
+- What's your favorite `candy`?
+- `Candy`'s living room - night.
+- I got `candy` here, all right?
+- Page 22, `candy`'s big moment.
+- Them was nickel apiece `candy`.
+- Why do you eat `candy` that way?
+- Any `candy` bars, anything sweet?
+- That's just a lame-o `candy` bar.
+- Them wasn't two-for-a-cent `candy`.
+- You are at the university, `candy`?
+- Yeah, i'm still eating that `candy`.
+- Had women basically as elbow `candy`.
+- Hey, you guys have a `candy` machine?
+- Some hard `candy` and some magazines.
+- Back me up on this `candy`, am i right?
+- Enough for drinks, popcorn and `candy`!
+- Give me some of that `candy`, would you?
+- Sometimes you have to give them `candy`.
+- The giant `candy` canes are not real.
+- An-and here-here's some `candy` to unwrap.
+- Like takin' `candy` from a fuckin' baby...
+- Send her a box of `candy` from blum's, $10.
+- That `candy`--she's the nicest girl i know!
+- It'll be like taking `candy` from a stranger.
+- Those pills you used to swallow like `candy`.
+- I'm `candy`, the chick who gets killed second.
+- All i know is... and enjoy swedish fish `candy`.
+- `Candy`, is that like `candy` cane or `candy` apple?
+- Today the name is `candy`, tomorrow it's butsie.
+- Must be making room for all that halloween `candy`.
+- Would you have free `candy` for the kids, preacher?
+- You ain't been through what i been through, `candy`.
+- `Candy`, leftovers, eggos... oh, for god sakes, what?
+- Cigarettes, `candy` bars... pcp, crack... "materiel"?
+- Kid no more'n five swiped a `candy` bar the other day.
+- Is this an gritty expos� or a `candy` ass press release?
+- When i was in high school, i worked as a `candy` striper.
+- Then you're back to sorting their `candy`... and worse.
+- Tell me, are you a regular, `candy`, in this computer club?
+- You're getting married and i'm not going to `candy`-coat it.
+- Whoowe, `candy` girl, are we in an insane asylum or ain't we?
+- I'm gonna help put the razor blades in the `candy` apples.
+- I'm just gonna be out here by myself, eating all this `candy`.
+- Kept it in his locker while he was at work in a `candy` factory.
+- You could hide a golden ticket in some `candy` like willy wonka.
+- Hell no, billy, she's just a good friend, that's all... c-c-c-c-`candy`!
+- I get back in that room, you better be wearing nothing but a `candy` cane.
+- I didn't feel i had a choice desert island `candy`, if you had to pick one?
+- Well, you did break out -- manning says i'm too soft on you -- the `candy`.
+- Yeah, i guess i'll just help him hand out `candy` to the trick or treaters.
+- You won't have a friend left in this county to bring you a piece of `candy`!
+- Now to get you kids one of them eats a berry that tastes like cotton `candy`.
+- Perfect end to... all we find is `candy`-coated peanuts, popcorn and a prize.
+- We've got a playgirl, a `candy` dish, a joan crawford post card, and lipstick.
+- I think i should mention, `candy`, that harold does have his eccentric moments.
+- A little birdie whispered in my ear today... about the needle-`candy` you're chasing.
+- We want a low profile on this, that's why i got kaplan and the `candy` bars involved.
+- I mean don't you want to get dresses up in a really scary costume and get some `candy`?
+- I'm supposed to sell those `candy` bars, and if i don't, i come home without the money....
+                 

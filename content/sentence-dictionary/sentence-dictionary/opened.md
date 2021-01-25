@@ -1,0 +1,107 @@
+---
+title: "opened in a sentence | opened example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opened"
+---
+- It's been `opened`.
+- It hasn't `opened` yet?
+- I've never `opened` it.
+- The mall just `opened`.
+- They `opened` the pods.
+- You `opened` the thing?
+- You `opened` this door.
+- Deacon `opened` my eyes.
+- Haven't you `opened` it?
+- The gate, i `opened` it.
+- I haven't `opened` it yet.
+- I just `opened` the door...
+- Sir, they've `opened` fire.
+- The box... you `opened` it.
+- Why are these all `opened`?
+- I've `opened` pandora's box.
+- And so, he `opened` the doors.
+- We `opened` an exhibition.
+- They just `opened` the palace.
+- You `opened` with the english.
+- Dad's training `opened` wounds.
+- I `opened` thousands of brains.
+- They `opened` for the stones...
+- Who the hell `opened` my files!
+- We have `opened` a restaurant...
+- I thought they `opened` at seven.
+- That this be `opened` in private.
+- You have `opened` the playhouses?
+- You shouldn't have `opened` that.
+- He `opened` his first game with it.
+- Doors that should never be `opened`.
+- He's `opened` that whole sector now!
+- They don't get `opened` until eight.
+- They `opened` their eyes and talked!
+- Hey, you did it, you `opened` a door.
+- You `opened` this gate before, right?
+- Be `opened`, for an odor of sweetness.
+- Nice of him to have `opened` the bed.
+- See then his friend `opened` up on me.
+- But we never `opened` our mouths, john.
+- He'll see that the pack's been `opened`.
+- I just `opened` my mouth and it came out.
+- The box had to be `opened` to let me out.
+- You should never have `opened` that door.
+- Being with stephanie has `opened` my eyes.
+- But you shouldn't have `opened` that door.
+- The ctu's just `opened` fire on the crowd.
+- What if i told frank that you `opened` me?
+- Instead of sealing, the doors all `opened`.
+- It just `opened` up and he walked right in.
+- It is the old wound, that has been `opened`.
+- He just `opened` a portal and walked through.
+- In hawkins, this door had been `opened` once.
+- That would be the girl who `opened` the door.
+- You haven't `opened` your mouth in two weeks.
+- Must have `opened` while i was away at school.
+- The doorway to the quantum realm was `opened`.
+- The doorway to the quantum realm was `opened`.
+- We haven't `opened` this door since praimfaya.
+- Because his face `opened` up and he ate my cat.
+- The door was `opened`, so i just came right in.
+- Hadn't even `opened` the thing since cub scouts.
+- I rigged it to blow if anyone `opened` the pack.
+- Not killing you the day you `opened` the bunker?
+- She `opened` her basket and showed what she had.
+- You're very brave to do this... you `opened` it.
+- I promised him a new uniform when we re-`opened`.
+- Was he in distress when you `opened` the door?
+- I don't think i should have `opened` my big mouth.
+- I `opened` the present you got me from harrison's.
+- I `opened` this panel and a vacuum cleaner hit me.
+- The papers said the safe door was `opened`, eddie.
+- There's a present you haven't `opened` yet, ma'am.
+- Did you see what the first bank stock `opened` at ?
+- The way i figure it, doors are made to be `opened`.
+- After we `opened` fire, she knew we were at war.
+- The suspect came in shortly after the bank `opened`.
+- Well, well, he smirked when marty `opened` the door.
+- Big truck went right by before you `opened` the door.
+- They would've `opened` the doors and kline's a swine!
+- Yeah, it was `opened` - with a goddamn screwdriver!!!
+- You don't understand-- the door must not be `opened`.
+- He likes that new ihop they just `opened`, you know...
+- You should have your eyes `opened` for you, my friend.
+- ... and then i `opened` the door again but it was gone.
+- And when i `opened` my eyes, the storm had passed okay.
+- She just... `opened` up... what you mean 'all at once'?
+- You `opened` a doorway to disbelief in god's own house!
+- A cot finally `opened` up wink, wink... you crave weird.
+- How many small businesses have closed since it `opened`?
+- I even `opened` the protected files and -- working late?
+- It can only be `opened` for a few seconds or we�ll sink.
+- If you need to leave, i get that, abby `opened` the door.
+- I `opened` the gate of their pen - but they wouldn't run.
+- And pressure, for us, every time they `opened` their door.
+- These pan pizzas have `opened` up the doors to heaven?
+- Do you remember how you `opened` the door to the sphere?...
+- Now that man just entered the code and `opened` the bridge.
+- The lenape indian had much to tell once i `opened` his mouth.
+- I want you to know, when you left spectre it `opened` my eyes.
+                 

@@ -1,0 +1,107 @@
+---
+title: "meaning in a sentence | meaning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "meaning"
+---
+- Size has no `meaning`.
+- What secret `meaning`?
+- `Meaning`, to court'sy.
+- `Meaning` me, of course.
+- It has a double `meaning`.
+- Time has no `meaning` here.
+- `Meaning` time came, i left.
+- Time has no `meaning` there.
+- `Meaning` he'll need a plane.
+- `Meaning` you didn't like it.
+- The council `meaning` my dad?
+- What's the `meaning` of this?
+- I got mine, `meaning` you.
+- `Meaning` you were expendable.
+- What is the `meaning` of this?
+- I think its `meaning` is clear.
+- Vegetable `meaning` paraplegic.
+- You want to know its `meaning`?
+- I began my search for `meaning`.
+- I was `meaning` to ask you that.
+- This one has a special `meaning`.
+- That my life had no `meaning`.
+- Does that have a hidden `meaning`?
+- `Meaning` no disrespect, of course.
+- Sag `meaning` screen actor's guild.
+- `Meaning` the duck himself, i guess.
+- Men who know the `meaning` of honor.
+- It had very special `meaning` for me.
+- So full of `meaning`, fire and music!
+- That's digestive enzyme, `meaning`...
+- `Meaning` you can't even beam us back?
+- Surely i have made my `meaning` plain.
+- Doesn't know the `meaning` of the word.
+- I told you, time has no `meaning` here.
+- It was still searching for `meaning`...
+- Life has no `meaning` anymore, does it?
+- Chauncey, a name of uncertain `meaning`!
+- Been `meaning` to talk to you about that.
+- `Meaning` it's... it's a predator, right?
+- `Meaning`-- let a thousand flowers bloom.
+- My pointless life suddenly had `meaning`.
+- What is the `meaning` of that phone call?
+- I've been `meaning` to tell you something.
+- Oh, yeah, i've been `meaning` to tell you.
+- Time and space have no `meaning` out here.
+- I've been `meaning` to call you for months.
+- I've been `meaning` to come in a long time.
+- All what we've experienced has no `meaning`.
+- David, i've been `meaning` to talk with you.
+- Uh, i've been `meaning` to give this to you.
+- I don't know the `meaning` of the word guilt!
+- I've been `meaning` to ask you, mrs... ummmm.
+- I was `meaning` to pip her before i fell sick.
+- `Meaning`, if we follow the compasses' north...
+- `Meaning` no one arranges calalilies like that.
+- `Meaning` you don't run as fast as you used to.
+- `Meaning` man can do whatever the fuck it wants?
+- The quest for pussy is the `meaning` of life ...
+- And that `meaning` is what killed him... help me!
+- `Meaning`, viznick's a man who answers to no one.
+- `Meaning`, you should have told the <u>truth</u>.
+- Do you know the `meaning` of the word 'guarantee'?
+- `Meaning` we'll have to cool it for awhile, right?
+- That you know the `meaning` of the word gratitude.
+- There's something i've been `meaning` to tell you.
+- You seem to be reading all this `meaning` into it.
+- To do it, it's gonna take both of us `meaning`?
+- It conveyes `meaning`, it does not represent sound.
+- `Meaning` there may be nuclear material down there?
+- No `meaning`... no hope... and, jim, no answers...!
+- Only god knows the `meaning` of such words, my son.
+- Then we're gonna hold you to the `meaning` wait up!
+- Everything has `meaning`, if you can read the signs.
+- I don't really understand the `meaning` of the words.
+- It is the entire `meaning` and purpose of shangri-la.
+- It won't operate, `meaning`... - we're stuck in here.
+- I do hope he's all there ... if you take my `meaning`.
+- I was trying to comprehend the `meaning` of the words.
+- Does the phrase "nosy" have any `meaning` to you, lily?
+- Yeah, i have something i've been `meaning` to give you.
+- The `meaning` of the <u>film</u> <u>is</u> in that shot.
+- They don't even know the `meaning` of the word "barter".
+- Do you understand the `meaning` of the word "foreboding"?
+- But i� `meaning`, my friends aren't worthwhile, i suppose?
+- It's an archaic colloquialism, roughly `meaning`..."good".
+- `Meaning`, it looks like his victims are chosen at random.
+- `Meaning` we're never gonna get the chance to tell anyone.
+- This man suffered a severe fall, if you take my `meaning`.
+- ♪ and much more than a mom ♪ what is the `meaning` of this?
+- So -- if my life has had any `meaning`, that's the `meaning`.
+- There's something i've been `meaning` to tell you, heather.
+- Losing faith: the search for `meaning` in the age of reason.
+- There's something i've been `meaning` to ask you, stephanie.
+- What's the `meaning` of disturbing me at this hour, colonel?
+- Living by your example these years, my life has had `meaning`.
+- Why would anyone mask the true `meaning` of their message kiss?
+- It's a maker... say it not lightly... do you know its `meaning`?
+- It used to be "no, that's not my bag" -- `meaning` not my thing.
+- Somebody blew out junior's pilot light, if you get my `meaning`.
+- It must have flown here -- `meaning` it didn't land in the water.
+                 

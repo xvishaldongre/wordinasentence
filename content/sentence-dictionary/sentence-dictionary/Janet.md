@@ -1,0 +1,64 @@
+---
+title: "Janet in a sentence | Janet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Janet"
+---
+- I'm not going, `janet`.
+- Just a moment, `janet`.
+- Hey, `janet`, it's chad.
+- Yes how are you, `janet`?
+- You're linked to `janet`.
+- Let's wait awhile `janet`.
+- You're gonna kill `janet`!
+- You're gonna kill `janet`.
+- It's just a..a party `janet`.
+- It's only one night, `janet`.
+- That would rip `janet` apart!
+- That would rip `janet` apart.
+- Do you think he loves `janet`?
+- `Janet`, how is this possible?
+- You're sounding tense, `janet`.
+- I'm sorry to hear that, `janet`.
+- `Janet`'s probably asleep by now.
+- So, how long do you know `janet`?
+- Ahhh - no - stop - i mean `janet`.
+- Do you watch 'dentonvale,' `janet`?
+- What if this process kills `janet`?
+- We all love `janet`...who do we love?
+- This is my fiancee, `janet` weiss.
+- It's you we're concerned about, `janet`.
+- He... he's here... `janet`, are you okay?
+- Ok. `janet` you have phil parma -- hello?
+- Thank you, `janet`...thank you, mr. lynch.
+- Why you - what have you done with `janet`?
+- I don't remember seeing `janet` down there.
+- I'm walking towards the elevator's, `janet`.
+- This is `janet` davenport -- i'm the realtor.
+- Are you taking `janet` to the reunion tonight?
+- I told you to slow down on that wine, `janet`.
+- For god's sake keep a grip on yourself `janet`.
+- I'm `janet` majors and this is my husband brad.
+- Oh, here's one that looks good: `janet` lawton.
+- As `janet`'s parents this should be really easy.
+- This is the nerve center of operations, `janet`.
+- I've one thing to say and that's dammit, `janet`.
+- I wouldn't mind doing `janet` one or two favours.
+- I said to `janet` 'what do we know of his parents?'
+- I'm brad majors and this is my fiancee, `janet` vice.
+- Of course, mrs. majors -- `janet` -- but i'm puzzled.
+- Isn't that brad and `janet` majors sitting down front?
+- `Janet` made me give you the eye and then panic, `janet`.
+- Why don't you help `janet` freshen up before rehearsal.
+- You had the nerve to drive up with that bimbo `janet`.
+- An early start with `janet`'s debut on 'good morning denton.'
+- I don't think you're getting in the spirit of things, `janet`.
+- You're hurrying into the next room, when you bump into `janet`.
+- The older one is `janet`, she's nine, and the younger one is morgan.
+- No it wasn't `janet` -- exactly -- it was, in fact, your new sponsor.
+- `Janet` was the only one who could endure him and chose to stick it out.
+- That's what you said about `janet`, and beth, and barbara -- no, really.
+- It's no use pussyfooting around, `janet` -- we have to cut quick and deep.
+- Look i'm going to let you through, but keep it to yourself, otherwise... `janet`.
+- The oswalds are introduced by george de mohrenschildt to `janet` and bill williams.
+                 

@@ -1,0 +1,87 @@
+---
+title: "rat in a sentence | rat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rat"
+---
+- That's the idea, `rat`.
+- Ask your `rat`-fuck son!
+- Don't be a `rat`, harry.
+- He was a tear-off `rat`.
+- Whatever you say, `rat`.
+- Remember that, "a `rat`."
+- Aladdin, you street `rat`!
+- Ava was a `rat` in a maze.
+- You're a first-rate `rat`.
+- A nice little `rat`�s nest.
+- Somebody's a fuckin' `rat`.
+- Who owns the '`rat`-holes.'
+- I `rat` cecile out to mommy.
+- Hey kids, "a cop is a `rat`."
+- So who's the `rat` this time?
+- Why would i `rat` myself out?
+- Yeah, be a fuckin' lab `rat`.
+- You crawling graveyard `rat`!
+- Mike would never `rat` us out.
+- The dirty yellow `rat` bastard.
+- For all we know, he's the `rat`.
+- So don't be calling him a `rat`.
+- The business is changing, `rat`.
+- Ew, it's like some gross `rat`...
+- For all i know, you're the `rat`.
+- So the `rat`'s here now, in rome.
+- Street `rat`, get out of the way.
+- It's the best `rat` i've ever had.
+- Never let a `rat` creep up on you.
+- Now i didn't mean that, you `rat`.
+- To be a whore to that gutter `rat`?
+- You dig that `rat` out of the hole?
+- Saying i felt like a poisoned `rat`.
+- Yes, right in his office, the `rat`.
+- Have some of the `rat`�s nest caviar.
+- We think we got a `rat` in the house.
+- Yeah, he does sound like a `rat` fink.
+- How would you like to gargle `rat` jiz?
+- That guy's crazier'n a shithouse `rat`!
+- It's that `rat` bastard from pittsburgh.
+- That is how you talk to a girl, `rat`.
+- So stupid... and that `rat` is just a `rat`?
+- Don't you threaten me you little `rat` fuck.
+- They're all afraid i'm gonna `rat` them out.
+- Being stuck in this `rat`-hole when it blows.
+- I wouldn't be surprised if he was your `rat`.
+- Help me kneecap the `rat` judas who set me up.
+- Old man's crazy as a `rat` in a tin shithouse.
+- So he says, "you `rat`, you are the murderer."
+- Treated like some kind of lab `rat`, you know?
+- Who do you think you're calling a street `rat`?
+- Blade ferrets their `rat`-holes out, i map them.
+- That guy angelo would `rat` on you for a nickel!
+- You think my kids have enough to eat, you `rat`?
+- What do you want, my little `rat`-with-wings?
+- You think anyone gives a `rat`'s ass about kuwait?
+- Face it �� i'm nothing more than a lab `rat` to you.
+- He's been a `rat` since he got busted in pittsburgh.
+- No matter how much we hate the torpedoes we don't `rat`.
+- I say we grease this `rat`-fuck son of a bitch right now.
+- Believe me, word will get out that you're a pro `rat`.
+- That fuckin' idiot don't know `rat` shit from rice krispies.
+- You could sell a goddamn `rat`'s asshole for a wedding ring!
+- It's more the way we feel when a `rat` runs across the floor.
+- Dread razor shreds of `rat` puke fall on my bare arms i'm sorry.
+- Ten years, ten years i busted my ass for that fat `rat` bastard.
+- I think a `rat` died behind the wall... my susie was a good girl!
+- Now, i don't give a `rat`'s ass about you or your fuckin' family.
+- In this `rat` race, everybody's guilty till they're proved innocent!
+- Stooling is when you `rat` on your friends, on the guys you're with.
+- Say, i'm not going to hang around and be a speakeasy `rat` all my life!
+- Hankey here can't help it if he was born crazier than a shithouse `rat`!
+- Convicts, contract killers, murde... you wanna find out about rats, ask a `rat`.
+- You know, she can crack, like, top secret russian codes and... driscoll's `rat`.
+- I say the plan became null and void once we found out we got a `rat` in the house.
+- One sumatran breeding `rat`, if you don't hear from me in one hour, call the police.
+- Of course the beck's, with the... ipo's caused the `rat` population on this street.
+- Build you up a little, teach you couple little tricks'n turn y'out to stud, `rat`-stuff.
+- That was sent to protect us, i just think there's something really wrong with this `rat`.
+- Whatever disease that `rat` had clearly passed to her... headphones on, red bulls popped.
+                 

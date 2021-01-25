@@ -1,0 +1,68 @@
+---
+title: "torture in a sentence | torture example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "torture"
+---
+- `Torture` doesn't work.
+- A `torture` 500 company.
+- Just a god of `torture`.
+- So it's to be `torture`.
+- That was `torture`, too.
+- We `torture` each other.
+- We `torture` each other.
+- Why this sudden `torture`?
+- I'll `torture` it out of you.
+- It must be `torture` for them!
+- It will be your own `torture`.
+- There'll be `torture` as well.
+- Are they going to `torture` us?
+- Because i like to `torture` you.
+- Claudia, you `torture` yourself.
+- They will `torture` and kill us.
+- I don't care if you `torture` me.
+- Who said anything about `torture`?
+- You can `torture` me all you want.
+- Just called ta `torture` us did ya?
+- This is some new form of `torture`.
+- How could it `torture` us like this?
+- I think you do this to `torture` me.
+- Don't `torture` me -- do you have it?
+- Is there much more of this `torture`?
+- You think he's going to `torture` me?
+- It's real `torture` for me to be here.
+- It's not `torture` unless you fight it.
+- To capture one of us and `torture` him.
+- So you let them `torture` us for nothing.
+- I can't bear the thought of your `torture`.
+- I'm not going to `torture` <u>you</u>, ford.
+- Your heartless jesting worse than `torture`!
+- She keeps thinking up new kinds of `torture`!
+- I'm gonna `torture` you for awhile regardless.
+- I hope to god it will `torture` you to madness.
+- I don't think it's abuse, i think it's `torture`.
+- Did 'em all the same way: `torture`, strangulation.
+- The word "`torture`" does not appear in our orders.
+- I've watched you `torture` yourself you won a fight!
+- You can `torture` me if you want - now where were we?
+- He's just this guy that becky and i like to `torture`.
+- Sometimes kill the crew; other times - `torture` them.
+- Tell me, did chip `torture` animals when he was young?
+- Did you ever hear a child `torture` his parent with it?
+- I'll `torture` you so slowly you'll think it's a career!
+- Political assassinations, `torture`, titus, what is this?
+- Go ahead and shoot him or `torture` him or whatever it is you do.
+- If the alternative is more `torture`, did you include celery sticks?
+- The killer may have felt this was the just best way to `torture` him.
+- Do you have any idea what those monks charge for that medieval `torture`?
+- M'm, i don't know, sometimes i ask myself how i'd stand up under `torture`.
+- I hope you don't perform any of those dreadful `torture` experiments, nathan.
+- Besides, a confession under `torture` will never convince anyone of her guilt.
+- You've got a castle full of racks and ropes and pulleys: go and `torture` the bitch!
+- I came from your memory and your imagination and i will `torture` you no matter what.
+- Okay, how do we know they didn't shoot down one of our planes and `torture` the crew?
+- You got the fake blood splattered all over the walls, you got your `torture` tools...
+- If you look at the <u>backstory</u> -- the guy's coming back from combat and `torture`.
+- How do we account for the interest of such a charming man, an interest in `torture`?
+- This uncertainty adds an exquisite element of `torture` to the situation, don't you think?
+                 

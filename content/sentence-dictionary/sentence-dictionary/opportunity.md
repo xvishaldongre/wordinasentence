@@ -1,0 +1,107 @@
+---
+title: "opportunity in a sentence | opportunity example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opportunity"
+---
+- A golden `opportunity`.
+- More `opportunity` there?
+- What's the `opportunity`?
+- The `opportunity` was there.
+- He'd jump at the `opportunity`.
+- Hank pym is a real `opportunity`.
+- Hank pym, is a real `opportunity`.
+- It could be a great `opportunity`.
+- This isn't a career `opportunity`.
+- I just never got the `opportunity`.
+- This is a golden `opportunity` now.
+- You stumbled upon an `opportunity`.
+- Waiting for the right `opportunity`?
+- It's the `opportunity` of a lifetime.
+- To pass up the `opportunity` anymore.
+- Saw an `opportunity` in my affliction.
+- I saw the `opportunity` and got lucky.]
+- I would relish the `opportunity` third?
+- But i want the `opportunity` to believe.
+- This is the `opportunity` of a lifetime.
+- When you see your `opportunity`, grab it!
+- An incredible `opportunity` from you guys.
+- Nice time for an employment `opportunity`.
+- Then she sees her `opportunity`, and boom!
+- ...it's really a fine `opportunity` for me.
+- Now's our `opportunity` to swap war wounds.
+- We may never have this `opportunity` again.
+- I just never had an `opportunity` to use it.
+- See, in that crisis, i saw an `opportunity`.
+- "you do get the `opportunity`...you get them.
+- Your big `opportunity` is flying out of here.
+- For a man in your position...an `opportunity`.
+- You might say it was a... golden `opportunity`.
+- I'm just giving him an `opportunity` right here.
+- What this monkey didn't sniff was `opportunity`.
+- The day walker represents a unique `opportunity`.
+- Captain miller, i appreciate this `opportunity`...
+- The thing is, we've got a real `opportunity` here.
+- You are blowing a great `opportunity` here, miles.
+- You've been waiting for this kind of `opportunity`.
+- Mary clarence, i have given you every `opportunity`.
+- This is an `opportunity` which may never come again.
+- Don't you see the `opportunity` that lies before you?
+- Do you know what kind of `opportunity` you have here?
+- Susan, dr. argon is giving you an `opportunity` here.
+- You asked for the `opportunity` to present your case.
+- I'm grateful for this `opportunity` to set you straight.
+- Perhaps ol' bruce is in need of a new job `opportunity`.
+- We shoulda taken that car when we had the `opportunity`.
+- I'd appreciate an `opportunity` to discuss this with you.
+- It is the perfect `opportunity` and perhaps our only one.
+- It was an `opportunity` to back off, think things through.
+- But others at shield saw an `opportunity` in my affliction.
+- You'll give us an `opportunity` to serve you again, i hope.
+- I have not had the `opportunity` to tell you about your son.
+- It's too late... dwayne had the `opportunity`, just like us.
+- I have an `opportunity` here to teach you about consequences.
+- I was not given the `opportunity` either to accept or refuse.
+- Now i make sure that no one has the `opportunity` to test me.
+- I think this would be a marvelous `opportunity` for you, roger.
+- I think you may count yourself lucky to have this `opportunity`.
+- Few in this universe have the `opportunity` to meet their heroes.
+- I wanted to just take this final `opportunity` to visit with you.
+- Well, isn't this perhaps a good `opportunity` to... slip her one?
+- Your husband had the `opportunity` to remove you from harm's way.
+- Doesn't take a visionary to spot a golden `opportunity` like this.
+- I most likely would have, sir, had i been given the `opportunity`.
+- I want to thank you, sir, for giving me the `opportunity` to work.
+- Perfect `opportunity` for you to demonstrate your continued worth.
+- That's all anybody can ask for, an `opportunity`, a chance, a shot.
+- Or you can choose to see it for what it really is: an `opportunity`.
+- This could be a great `opportunity` to move... beyond a fire engine.
+- In my experience it is best to take the `opportunity` if it is there.
+- What, were you just sitting around waiting for the right `opportunity`?
+- I'm tired of waiting for someone else to give me an `opportunity`, luce.
+- Is this sense of `opportunity` that this expanding world brings with it.
+- Oh, you'll have ample `opportunity` -- ample -- good morning, dr. fettes.
+- Like, if nothing else, the `opportunity` to attend my classes, understand?
+- But a billboard fell on him every `opportunity` we get to weaken the enemy.
+- Sir, if an `opportunity` came along i told you, that's not going to happen.
+- That's `opportunity` -- and her fingerprints are on the nasal spray bottle.
+- But we have a spectacular `opportunity` to make the best of our relationship.
+- The irs wanted to go after him, and this deal offered them the `opportunity`.
+- Are you going to provide me with an `opportunity` to prove my love to my girl?
+- I felt this was not an impediment, but an `opportunity` to distinguish myself.
+- Damn it, john, there was an `opportunity` out here -- i had to take it -- sure.
+- How did you convince him--was it the `opportunity` to be close to truman again?
+- This is the first `opportunity` we've had of making an american author welcome.
+- ...and the `opportunity` to help my brothers and sisters in the jewish community.
+- I don't know if you realise how great an `opportunity` this is for our daughters.
+- Everything got fucked up when i killed the cops and tazinari saw an `opportunity`.
+- I squandered an `opportunity` and we still know next to nothing about their lives.
+- ...but the least i can do is afford you the `opportunity` of surviving the evening.
+- In rome, the gladiators had the `opportunity` what if the fun one isn't survivable?
+- "today you have a rare `opportunity` to make a big difference in your chosen field.
+- But as long as you're here i want to "seize" the `opportunity` to ask you a question.
+- And, i believe, we have also discovered an `opportunity` to gain a tactical advantage.
+- We've given them the `opportunity` to do a lot more ... do you understand what i mean?
+- I don't mean to burst your bubble, mantan the marvelous, but sloan is an `opportunity`.
+- It's not often one has the `opportunity` to adios the plates of a major hollywood star.
+                 

@@ -1,0 +1,54 @@
+---
+title: "anti in a sentence | anti example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "anti"
+---
+- I'm the `anti`-christ.
+- Hey, you're `anti`-male.
+- We'll be `anti`- social.
+- I'm not the `anti`-christ.
+- It's an `anti`-trust action.
+- Where's the `anti`-toxin...?
+- He's got the `anti`-war vote.
+- I'm not `anti`-establishment.
+- It's an `anti`-christian dogma!
+- Some diligent `anti`-communists.
+- You two need `anti`-depressants.
+- Self sufficient... `anti` social?
+- This is an `anti`-grounder stick.
+- I have the `anti`... give me that!
+- Ergo, you, erica, and `anti`-sciences.
+- [head of the `anti`-kidnapping division.]
+- Powered by an `anti`-matter micro reactor.
+- By the way - who gives me the `anti`-toxin?
+- Oh frank, i'm not `anti`-male, i'm `anti`- you.
+- The only thing i know is he's an `anti`-semite.
+- Well, i think you're the fucking `anti`-christ.
+- It also contained the `anti`-virus, bellerophon.
+- There is great `anti`-communist feeling in america.
+- Her whole thing is being `anti`- this and `anti`-that.
+- Maybe that's your idea of being `anti` establishment!
+- Your real trouble is that you're `anti`-intellectual.
+- A laser capable of emitting a beam of pure `anti`-matter.
+- That is a direct result of `anti`- blonde discrimination!
+- They live in the woods because they're `anti`-social, lila.
+- I think `anti`-semitism today is largely a jewish phenomenon.
+- Spas t. raikin, a leading member of an `anti`-communist group.
+- I am the commandante of the judicial `anti`- kidnapping division.]
+- `Anti`-american radicals who have killed federal officers out here!
+- Every time some group disagrees with you it's because of `anti`-semitism.
+- There's no telling what this new `anti` semitic psycho santa is capable of.
+- They used the hex chrom here, in these cooling tanks, as an `anti`-corrosive.
+- Ever since phil collins did that mtv `anti`-drug commercial i refuse everything.
+- The special hats of the special `anti`-terrorist detachment of the border patrol.
+- Only talked about killing manzetti to convince them you were an `anti`-semite.
+- We have recently requested mortars, `anti`-aircraft guns and ammunition from india.
+- Or what generates the magnetic field that holds it up, and how's your "chee-`anti`"?
+- When they went into `anti`-matter imbalance, the phasers were automatically cut off.
+- This man, this great artist has made `anti`-semitic remarks like you wouldn't believe.
+- I can do this because i've spent my whole career building `anti` communist credentials.
+- Captain, it was our `anti`-matter imbalance that created the wormhole in the first place.
+- The special `anti`-terrorist detachment of the border patrol... what do they <u>do</u>...?
+- Uh, for starters, she won't give us an alibi -- explain to me why you're so `anti`- brooke.
+                 

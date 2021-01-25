@@ -1,0 +1,107 @@
+---
+title: "keys in a sentence | keys example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "keys"
+---
+- But no one has `keys`.
+- Hand over them `keys`.
+- I took doris's `keys`.
+- Theo takes the `keys`.
+- Your `keys`, asshole!!
+- But we took the `keys`?
+- Extra apartment `keys`.
+- `Keys` in the ignition.
+- Let me have the `keys`.
+- Now gimme those `keys`.
+- You forgot your `keys`!
+- Just give me the `keys`.
+- ...`keys` for the track.
+- Oh, i fell on my `keys`.
+- Richie, take the `keys`.
+- Did you lose your `keys`?
+- Give me your `keys`, don.
+- I'll look for the `keys`.
+- I'll need the car `keys`.
+- Okay, give me the `keys`.
+- Will you hold the `keys`?
+- Your two fucking `keys`!!
+- Gimme your fuckin' `keys`.
+- Here's your `keys`, harry.
+- I have hidden your `keys`.
+- I-i don't have the `keys`.
+- John, throw me the `keys`.
+- There's only three `keys`.
+- You can carry your `keys`.
+- Give me my firebird `keys`!
+- Give me the `keys`, dignan.
+- Reese must have the `keys`.
+- Skeleton `keys` never work.
+- We have to find the `keys`.
+- I have to keep their `keys`.
+- Let me have the shop `keys`.
+- Those `keys` were put there.
+- We'd better exchange `keys`.
+- After, we'll hide the `keys`.
+- Forgot your `keys` -- thanks.
+- What if you lost your `keys`?
+- Where are the goddamn `keys`?
+- The `keys` are in the kitchen.
+- They took my `keys` yesterday.
+- Gimme the `keys` for the trunk.
+- I forgot where i put my `keys`.
+- Just hold on, i got the `keys`.
+- You got the `keys` to the shop?
+- Hey, gimme the `keys` - the `keys`!
+- Stroke those `keys`, jelly green.
+- Stroke those `keys`, jolly green.
+- This better be `keys` to a tesla.
+- Those were his `keys` nell found.
+- Good luck, since i got the `keys`.
+- Here are the `keys` to the taurus.
+- `Keys` were in it ... how'd it go?
+- Let's just say we find the `keys`.
+- Phony id's, no wallets, no `keys`.
+- <u>gimme the goddamned `keys`</u>!
+- We must be in the florida `keys` .
+- Because i can never find my `keys`.
+- The russians, they took the `keys`.
+- Where should i hide the car `keys`?
+- Can i have the `keys` to your house?
+- Except we've already got the `keys`.
+- Here are the `keys` to my apartment.
+- I'm not going to give you my `keys`.
+- So...got the `keys` to heaven, baby.
+- Grab the `keys`, ich, and get inside.
+- I need... give me the goddamn `keys`!
+- You left your `keys` in the ignition.
+- Keeping the `keys` secure is your job.
+- Walkie-talkie, big old ring of `keys`.
+- `Keys`, however, are to lock the doors.
+- `Keys` in the... left pocket, probably.
+- Where are the `keys` to the motor home?
+- Ed finds the `keys` without any trouble.
+- One bunch of `keys` on white metal ring.
+- What if i wanted to borrow those `keys`?
+- I don't think we need any `keys`, dignan.
+- Just give me a moment to get your `keys`.
+- The `keys` to his apartment are in there.
+- Throw me the `keys` and i'll pull you up.
+- How could he have left without his `keys`?
+- They're the `keys` to your grandad's flat.
+- He had access to the `keys` -- -- he won't.
+- He must have got the `keys`... off stanton.
+-  my coat -- but we should -- -- car `keys`?
+- Now all i have to do is find my car `keys`.
+- I'm sure i can get the `keys` to his office.
+- John, you have to throw the `keys` up to me.
+- My deranged mama's hid the `keys` to my car.
+- The `keys` will be in the glove compartment.
+- Here's the `keys` - yah, you don't need that.
+- We have some willing converts, but no `keys`.
+- We have to find the `keys` to the helicopter.
+- Guess he took off... you have his `keys`, right?
+- I knew there was a reason my `keys` didn't work.
+- Yeah, two men, two `keys`, like a... six months?
+- But, uh, to retrieve the `keys`, there is a vault.
+                 

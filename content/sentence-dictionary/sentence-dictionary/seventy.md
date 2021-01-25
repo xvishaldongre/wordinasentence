@@ -1,0 +1,107 @@
+---
+title: "seventy in a sentence | seventy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seventy"
+---
+- Here's `seventy` cents.
+- `Seventy` five percent.
+- We need `seventy`-five.
+- A dollar `seventy`-five.
+- `Seventy`-five per cent.
+- `Seventy` pounds a tube.
+- Can't focus... `seventy`.
+- Ya still light `seventy`.
+- Two hundred and `seventy`.
+- `Seventy`-two hours a week.
+- Divorced nineteen `seventy`.
+- `Seventy`-two miles an hour.
+- `Seventy`-two miles an hour?
+- The number's `seventy`-five.
+- Three-`seventy`-five is bid.
+- Two point one `seventy`-six.
+- About sixty, `seventy` bucks.
+- East `seventy`-fourth street.
+- It houses `seventy`-five men.
+- Married `seventy`-five years.
+- There's only `seventy`-eight.
+- Um... `seventy`... something.
+- Alert `seventy`-fifth rangers.
+- Give me that dollar `seventy`.
+- I am `seventy`-four years old.
+- Say, uh, three `seventy`-five.
+- Three-`seventy`-five, go four?
+- You pay `seventy`-seven cents.
+- I have about `seventy`-three...
+- `Seventy`-five -- `seventy`-five.
+- I suppose you're `seventy`-five.
+- Sixty, maybe `seventy` families.
+- That'd be `seventy` in new york.
+- It's just under `seventy`, right?
+- `Seventy`-one per cent said "no."
+- That would mean i keep `seventy`.
+- For twelve francs, `seventy`-five.
+- One hundred and `seventy`-two die.
+- `Seventy`-one what channels it on?
+- Is dying `seventy` miles from here.
+- Rocky, i'm `seventy`-six years old.
+- `Seventy`-five dollars, and a ride.
+- The number's <u>`seventy`-five</u>.
+- I'd say about sixty, `seventy`-tops.
+- It used to be `seventy`-seven cents.
+- About two hundred and `seventy` feet.
+- This is a `seventy`-seven ton animal.
+- Well, just the `seventy`-one percent.
+- That's a `seventy` thousand dollar car.
+- Vaughn, get the m-`seventy`-nine ready.
+- Pop, a k-whopper's worth `seventy` thou.
+- Twelve `seventy`-five from the clarence?
+- A dollar `seventy` and i'm gonna keep it!
+- I'll give you `seventy`-five bucks for it.
+- `Seventy`-six, eighty-- you look beautiful.
+- You don't, you owe me three `seventy`-nine.
+- But it will fail within `seventy`-two hours.
+- But the scoundrel owes me `seventy` thousand.
+- Grampa took up this land `seventy` years ago.
+- In louisville it was `seventy`-five per cent.
+- Sixty for small and `seventy`-five for large.
+- You mean you work `seventy`-two hours a week.
+- I guess that `seventy`-one took a lot outta you.
+- I'm `seventy`-six, was only `seventy`- three then.
+- Course half hour from now might be `seventy`-two.
+- My visual says sunny skies and `seventy` degrees.
+- A hundred and `seventy`-ninth street -- the bronx.
+- You won't even get a review till you're `seventy`.
+- A dollar `seventy`-nine for wraps-what's that shit?
+- Because i must detonate in `seventy`- five seconds.
+- When it gets to `seventy`-five below, stabilize it.
+- Which means he turned about `seventy`-two hours ago.
+- `Seventy`- five percent of your job is crowd control.
+- I'll bet there isn't one of them under `seventy`-five.
+- My father formed this company over `seventy` years ago.
+- I am `seventy`-four years old, i am not board-certified.
+- I want you off alcohol for at least `seventy`-two hours.
+- I had <u>at least</u> `seventy` more people at my funeral.
+- Gee, when you tipped one `seventy`-five you were beautiful.
+- I need `seventy`-five before they check the books tomorrow.
+- Inform him the fee is `seventy`-five large for your return.
+- She's `seventy` years old, and veddy prim and strait-laced.
+- Marty, let's go downna `seventy`-second street area tonight.
+- Tips can be anywhere from thirty dollars to `seventy` dollars.
+- You'd lose only twenty percent instead of `seventy` or eighty.
+- Then i'll need, twelve into nine hundred, `seventy`-five boxes.
+- Well, let's see now, that'll be about a dollar- `seventy`-nine.
+- Gorgeous boat, hundred-and-`seventy`- five-foot pleasure cruiser.
+- The parties are held in here when the weather dips below `seventy`.
+- Speed -- two hundred, `seventy`-five thousand kilometers per second.
+- You're gonna have to carry a mortgage sixty, `seventy` bucks a month.
+- Even if they cut my sentence in half i'll be `seventy`-three years old.
+- He's `seventy` years old and the fucking guy is going to die in prison.
+- If there's no life here, we've got just `seventy`-two hours to find it.
+- For that i get `seventy`-five per cent return on my money -- if you win.
+- Darling, i haven't seen you for three livelong days... `seventy`-two hours!
+- I just checked the colony log... directive dates six-twelve-`seventy`-nine.
+- I might be able to squeeze an extra `seventy`-five bucks out of it for you.
+- Your grace owes me `seventy` thousand frederics, which i have honorably won.
+- This is something no one has been privileged to see in almost `seventy` years.
+                 

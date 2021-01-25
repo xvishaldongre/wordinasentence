@@ -1,0 +1,77 @@
+---
+title: "drew in a sentence | drew example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drew"
+---
+- Bye-bye, nancy `drew`.
+- `Drew`, he's your dog.
+- What `drew` you there?
+- Other guy `drew` first.
+- _ - you `drew` that on.
+- Dad, look what i `drew`.
+- `Drew`, you're out of line.
+- Just the way you `drew` it.
+- The other guy `drew` first.
+- Careful there, nancy `drew`.
+- Nancy `drew`, where are you?
+- Remember zowie, `drew`'s dog?
+- I'm here for you, nancy `drew`.
+- Does `drew` tell you everything?
+- You're competitive soul, `drew`.
+- You think `drew` will go for it?
+- `Drew`... ninja star to the face.
+- That's where she `drew` the line.
+- Then, what <u>are</u> we, `drew`?!
+- We don't need to talk about `drew`.
+- You're taking this too far, `drew`.
+- Bontecou was outside, `drew` was mr.
+- I `drew` down and fired right at it.
+- Cookie `drew` me a map to greenville.
+- `Drew` is none of your damn business.
+- We tried it and now `drew` is dead.
+- But `drew`'s not going to die of aids.
+- `Drew`: what the hell is that thing?
+- Macaulay, you `drew` up wynant's will.
+- I `drew` first blood, so... - you, too?
+- [slam] - you `drew` all these yourself?
+- I think it's time you went home, `drew`.
+- Now we love `drew` and joe in verbo- ten?
+- I don't like the way `drew` spoken to you.
+- I `drew` the picture of something specific.
+- What was cookie smoking when he `drew` this?
+- And `drew` on the walls with captain america.
+- Hey, i `drew` a picture of your inauguration.
+- When i tell `drew` about it, he won't either.
+- No, the storm he `drew` was completely different.
+- That chart i `drew` up'll get you past the reefs.
+- _ he executed the grounder that `drew` us the map.
+- That's what sophia and peg `drew` -- save it, baby.
+- `Drew`, i don't remember inviting zowie in for dinner.
+- I told `drew` and the board that bill depended on you.
+- I was a little abrupt with you this afternoon, `drew`.
+- Party favors, flowers -- hi dad, hi `drew` -- you ate?
+- We `drew` the demodogs away so el could close the gate.
+- And solve the case of the missing condiment, nancy `drew`?
+- Because you `drew` a little picture of it just ice nation.
+- Clarke... hey, hey... look, i just… "my son `drew` this."
+- They `drew` a black line over me and now i'm passing it on.
+- You `drew` this big spaceship, but it wasn’t from a movie.
+- When billy is alone with a girl, after i `drew` the short straw.
+- Bill, thanks for coming over... and how're you doing today, `drew`?
+- Probably reminds you of a bad relationship, a nancy `drew` mystery.
+- It's not so much what you say about `drew`, it's what you don't say.
+- No, you draw no secrets from me, as you `drew` them from jacqueline.
+- `Drew` led me on, but i had no business telling him in the first place.
+- They buried their treasures, `drew` maps, and hid the maps in puzzle boxes.
+- I passed his name around with your buddies downtown but they `drew` a blank.
+- The same way `drew` and me brought zowie back... what are you talking about?
+- `Drew`, i know your dog died, but... get a grip, man, you're freaking me out.
+- `Drew`'s going to step aside -- it's time to put this person where he belongs.
+- Well, your daddy went to germany and `drew` on the walls with captain america.
+- `Drew` and bontecou are going to chop up the company and sell it off for parts.
+- I `drew` out my wife's savings, and if this isn't back by 5:30 i'm a ruined man!
+- Now sit and relax, get some- thing in that flat tummy of yours -- `drew`'s aboard?
+- Probably was a couple of hundred years ago when whoever `drew` the map came through here.
+- Actually it's g. ober... gerry ober, but the guys `drew` in the other o, fucking assholes.
+                 

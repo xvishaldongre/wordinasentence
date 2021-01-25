@@ -1,0 +1,52 @@
+---
+title: "ease in a sentence | ease example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ease"
+---
+- At `ease`, sinclair.
+- You don't `ease` pain.
+- To put a man at `ease`.
+- _ you don't `ease` pain.
+- Better `ease` up then, hawk.
+- Church at `ease`, lieutenant.
+- It'll set his mind at `ease`.
+- Come on, it'll `ease` the pain.
+- Let me `ease` their pain, clarke.
+- I had a plan to `ease` her into it.
+- They'll `ease` up, almost entirely.
+- What can i do to put you at `ease`?
+- Put your tiny little mind at `ease`.
+- I'll stay, if it'll `ease` your mind.
+- Alie: let me `ease` their pain, clarke.
+- That's not true...you gotta `ease` up...
+- We need to `ease` them into this new life.
+- If you'll just maybe `ease` it into second.
+- You're in civilization now, man, `ease` up.
+- Mr. lawford, stand by to `ease` the mainsheet.
+- To set his mind at `ease` about george kaplan.
+- I just wanted to put you at `ease`, that's all.
+- The mind stored in the drive uploads with `ease`.
+- Yeah, yeah, i stay at the four seas, it's `ease`.
+- You think she wants us to `ease` up on the story?
+- But only if you `ease` up on the locker room talk.
+- Like throwing gasoline on a fire... at `ease` men.
+- I ain't laid a hand on ya but to `ease` yo fever...
+- Uhh, miss devoto, these people are already at `ease`.
+- But it's something that, that puts a person at `ease`.
+- `Ease` off, john .. how the hell do i know <u>who</u>?
+- Well sir, to be a putterer, one's mind must be at `ease`.
+- There's other work to do, why don't ya `ease` off a little?
+- `Ease` off on those tapes, and let's see how much it bleeds.
+- I have a wonderful disposition, i put people right at `ease`.
+- I have it to `ease` the suffering of the children of this war.
+- The injection will `ease` the pain and swelling, mr. gardiner.
+- I do, but...maybe you ought to just `ease` up om yourself a bit.
+- It's nothing like an old school safety brief to put your mind at `ease`.
+- They's a whole lot i don't understan', but goin' away ain't gonna `ease` us.
+- Asked us to use the plant here in the building -- to `ease` the gold outflow.
+- `Ease` up on the star drag, keep the tie up, up and work hell outta that fella.
+- No doubt my children could make this appointment *for* me-- with the greatest `ease`!
+- I thought when we put him on the board of directors, he'd `ease` up on us a little bit.
+- Besides, nobody ever sent me on an eight month vacation, so `ease` up on the sad sack stuff.
+                 

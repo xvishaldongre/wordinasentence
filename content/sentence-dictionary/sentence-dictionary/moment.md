@@ -1,0 +1,107 @@
+---
+title: "moment in a sentence | moment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moment"
+---
+- I won't be a `moment`.
+- Just a `moment`, dear.
+- Let's stop a `moment`.
+- Never a dull `moment`.
+- Now just one `moment`.
+- One `moment`, my love.
+- Only for the `moment`.
+- The `moment` of truth.
+- Where is the `moment`?
+- Every `moment` we stay.
+- For the right `moment`.
+- I just need a `moment`.
+- Just a `moment`, janet.
+- Just one `moment`, sir.
+- Nothing but a `moment`.
+- Not my finest `moment`.
+- Sir, i need a `moment`.
+- The `moment` i am done.
+- The `moment` i saw you.
+- But for that `moment`...
+- Have you got a `moment`?
+- I live for the `moment`.
+- I'll just be a `moment`.
+- Just give me a `moment`.
+- Look closely a `moment`.
+- Not at the `moment`, no.
+- Of a `moment` like this.
+- A `moment` alone, please.
+- Come upstairs a `moment`.
+- He's out at the `moment`.
+- I'm busy at the `moment`.
+- Marge, i need a `moment`.
+- That next `moment`: what?
+- We'll just be a `moment`.
+- But in the final `moment`?
+- But only for the `moment`.
+- Got a `moment`, inspector?
+- Nothing, for the `moment`.
+- Tom, come here a `moment`.
+- Uh...yes, at the `moment`.
+- We'll begin in a `moment`.
+- It'll just take a `moment`.
+- It's safe for the `moment`.
+- Sit down a `moment`, billy.
+- Do you have a `moment`, sir?
+- For the `moment`, mr. grady.
+- He's not in at the `moment`.
+- Just a `moment`... if i may.
+- Just a `moment`, sweetheart.
+- This is the big `moment`...!
+- Yes, he is, just a `moment`.
+- At the `moment` it was taken.
+- At the `moment`, very little.
+- Could you give us a `moment`.
+- From the `moment` we're born.
+- I'll pick the `moment`, nick.
+- I'm ruthless at the `moment`.
+- I need a `moment` to prepare.
+- It's a `moment` without hope.
+- It was a `moment` a weakness!
+- I was made for this `moment`.
+- Just sit here for a `moment`.
+- Now, i need a `moment` alone.
+- Okay, ma'am, just a `moment`.
+- She'll be here in a `moment`.
+- Since the `moment` we landed.
+- The presence of the `moment`?
+- Carter, can i have a `moment`?
+- Just a `moment`, miss - may i?
+- Page 22, candy's big `moment`.
+- Paul, paul, a `moment` please.
+- There was a `moment` of panic.
+- At the worst possible `moment`.
+- Just give him a `moment`, okay?
+- The `moment` we dock, your a.i.
+- There's not a `moment` to lose!
+- We'll stop for just a `moment`.
+- Won't keep you a `moment`, sir.
+- You missed my shining `moment`.
+- At that `moment` -- i just knew.
+- Go on in, i won't be a `moment`.
+- Kids, please give us a `moment`.
+- Maybe... but at that `moment`...
+- No, the `moment` is well earned.
+- This is our kia sporge `moment`.
+- This is the happiest `moment`...
+- ...this'll only take a `moment`.
+- We escaped in the last `moment`.
+- Wes, anne, come here a `moment`.
+- You're gonna miss your `moment`.
+- At any `moment` they can join in.
+- Bad last `moment` - i cut it out.
+- Betsy, come over here a `moment`.
+- Could you excuse me one `moment`?
+- I can't remember at the `moment`.
+- Imagine for a `moment` that this.
+- I will be with you in a `moment`.
+- May we be serious for a `moment`?
+- Stands and pauses for a `moment`.
+- The only `moment` we really have?
+                 

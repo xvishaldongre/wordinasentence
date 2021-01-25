@@ -1,0 +1,107 @@
+---
+title: "oxygen in a sentence | oxygen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "oxygen"
+---
+- `Oxygen` gets you high.
+- By venting the `oxygen`.
+- `Oxygen` level critical.
+- `Oxygen` level restored.
+- Dangerous `oxygen` level.
+- No `oxygen` to the brain.
+- It's `oxygen` deprivation.
+- What's wrong with `oxygen`?
+- Why don't we take `oxygen`?
+- Without `oxygen`... really?
+- Airlock 5, `oxygen` venting.
+- `Oxygen` is not the problem.
+- You're usin' up my `oxygen`!
+- Before our `oxygen` runs out.
+- Go through the `oxygen` farm.
+- To boost our `oxygen` supply.
+- We're pushing `oxygen` today.
+- Let's get him on the `oxygen`.
+- [winces] `oxygen` is down 16%.
+- He could give me some `oxygen`.
+- Her `oxygen` would have run out.
+- Liquid `oxygen` canisters inside.
+- You're not using `oxygen` at all?
+- And we'll be out of `oxygen` in 4.
+- Can i have a hit off your `oxygen`?
+- We need to torch the `oxygen` farm.
+- Ah, this is it... the `oxygen` farm.
+- He's got `oxygen`, but it's iced up.
+- There's no `oxygen` at south summit.
+- Adrenaline injections, `oxygen` tent.
+- Man: look at that, the `oxygen` mask.
+- I vent the `oxygen` from the mess hall.
+- `Oxygen` will run out tomorrow morning.
+- Too much pressure, not enough `oxygen`.
+- We'll leave some tea and `oxygen` here.
+- Then we run out of food and `oxygen`.
+- They dive with a helium-`oxygen` mixture.
+- He collapsed after he ran out of `oxygen`.
+- He collapsed after we ran out of `oxygen`.
+- I kept the ark's `oxygen` crisis from you.
+- A fire burned through most of our `oxygen`.
+- I don't wanna run out of `oxygen` up there.
+- The `oxygen` level will just keep dropping.
+- The reactor melts it and releases `oxygen`.
+- All the supplemental `oxygen` is on level 5.
+- There's `oxygen` at the south summit, right?
+- An `oxygen` tank must've blown on the welder.
+- I don't want to run out of `oxygen` up there.
+- You'll give the order to cut off the `oxygen`.
+- At a pressure this low, `oxygen` becomes toxic.
+- Finn, finn, that breach lost a lot of `oxygen`.
+- No, we can't afford to lose that much `oxygen`.
+- Then... do me a favor, swinge another `oxygen`.
+- Do me a favor, spend your night on `oxygen`.
+- I think that's how it's getting `oxygen` to him.
+- My dad found a problem with the `oxygen` system.
+- You know why they have `oxygen` masks on planes?
+- I'm gonna go to the south summit to get `oxygen`.
+- Boys, there's `oxygen` at the south summit, right?
+- Her brain was getting less `oxygen` anyway... huh.
+- People just sitting there using up their `oxygen`.
+- Pump in two liters of pure `oxygen`, please henry.
+- I need someone to come back up with `oxygen`, over.
+- There's only 20 minutes of `oxygen` in maya's suit.
+- I'm going to go to the south summit to get `oxygen`.
+- To extend our `oxygen` supply unless we take action.
+- I made the right choice, everybody gets `oxygen` now.
+- Spacewalker burned 3 months of `oxygen` from the ark.
+- We torch the `oxygen` farm, we can end these jackals.
+- People are just sitting here, using up their `oxygen`.
+- To fix life support, or we'll be out of `oxygen` in 4.
+- When the heart stops the brain's deprived of `oxygen`.
+- Swimming underwater with that `oxygen` device of yours.
+- Son of a bitch tears 'em apart just to eat the `oxygen`.
+- ...and her heart stopped and she wasn't getting `oxygen`.
+- I got some sheapas coming up there with tea and `oxygen`.
+- The symptoms of `oxygen` deprivation are everywhere, hmm.
+- We wear ties and lab coats to work -- not `oxygen` tanks.
+- We've got some sherpas coming up there with tea, `oxygen`.
+- A light mixture of `oxygen`, dioxide, and sodium pentothal.
+- Getting you to the top of everest is really about `oxygen`.
+- Okay, now left at the next turn... past the `oxygen` units.
+- Tom, if you just... because of chronic `oxygen` deficiency.
+- Getting you to the top of everest was really about `oxygen`.
+- She knows she can't leave here -- she drank liquid `oxygen`.
+- When i was 10, the people here to boost `oxygen` production.
+- If you don't have `oxygen`, mate, don't come up, don't come up.
+- You work for me you use `oxygen`, otherwise you don't work for me.
+- Those corpuscles -- carrying `oxygen` -- give the stream its color.
+- To conserve our `oxygen`, we should severely restrict our activity.
+- Well, many reasons, actually... why wasn't she getting `oxygen`...?
+- You can come back and follow me, and we'll be out of `oxygen` in 4.
+- I'm willing to suffer the consequences she's almost out of `oxygen`.
+- You speak of peace the ark's got a year of `oxygen` left, maybe two.
+- That you need a bottle of `oxygen` at the bottom of the hillary step.
+- If you work for me, you use `oxygen`, otherwise you don't work for me.
+- Like it or not, this is the only `oxygen` for three billion kilometers.
+- There wasn't enough `oxygen` in those red cells to pump life into a flea.
+- "without me, joe could not take in `oxygen` to feed his red blood cells."
+- David breashears has a stash of `oxygen` at the south col that we can use.
+                 

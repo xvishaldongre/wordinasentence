@@ -1,0 +1,67 @@
+---
+title: "walks in a sentence | walks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "walks"
+---
+- This guy fucking `walks`.
+- You like to take `walks`?
+- He `walks` bad enough already.
+- "he who `walks` on all fours."
+- It's usually the moon `walks`.
+- He `walks` out on his own party.
+- Nobody `walks` around like that.
+- He rises and `walks` to the door.
+- He never `walks` away from equity.
+- The human is when she `walks` out.
+- Stands and `walks` toward the door.
+- Alex `walks` to table and undresses.
+- They grab ugarte and she `walks` in.
+- He sees his men and `walks` toward them.
+- Albert milo `walks` in from another room.
+- He `walks` away to the nose of the plane.
+- He `walks` up to her on lunch yard today.
+- Kastle `walks` theo past pairs of bowlers.
+- So this guy `walks` into a bar and says...
+- Leda `walks` by the shore, gathering shells.
+- This is the street he `walks` down every day.
+- You open the door, i walk in, he `walks` out.
+- He gets out of the car and `walks` over to him.
+- Lee `walks` over to elliot in the center aisle.
+- She `walks` over to her scooter, and mounts it.
+- Theo enters the diner and `walks` over to buzz.
+- Alm�sy smiles and `walks` on towards the others.
+- When he `walks` with a lady, he waits for her!
+- It's certainly a phenomenon in all `walks` of life.
+- Sometimes at lunch hollis takes `walks` around them.
+- Take this one night...july 22, 1964...who `walks` in?
+- The look on their faces when one `walks` into the room.
+- She `walks` in beauty... mommy and daddy love you, baby.
+- I don't know how anyone actually `walks` in these things.
+- Money talks, bullshit `walks`, whether you like it or not.
+- This crazy, creepy cat, who `walks` through walls and stuff.
+- You might even learn to enjoy these `walks` down memory lane.
+- Gonna be my job to be the guy who `walks` outta there with it.
+- He `walks` in the rain, without his hat, and talks to himself.
+- He checks in, pays, picks up the key, but never `walks` inside.
+- Whistling a happy tune, he turns and `walks` back into room #9.
+- Castor drinks, smokes and `walks` around with a 24-hour hard-on.
+- Enrique `walks` in the opposite direction-- good night, enrique.
+- Buzz `walks` over to the booth and pulls his burger away from sid.
+- On moss, as he `walks` the groggy schumann toward the gas station.
+- They don't know class if it `walks` up and grabs 'em by the balls.
+- Is everything that `walks`, crawls, flies or swims fair game to you?
+- She turns and `walks` away toward the church, slowly, her head bowed.
+- Like this crazy, creepy cat who like, `walks` through walls and stuff.
+- Sheila `walks` over as the sleazeballs' car pulls out of the driveway.
+- If she `walks` down the street like that, an army will be following her.
+- I like the symphony, `walks` in the rain, sunsets, animals and children.
+- Then he `walks` some two hundred and forty miles to the sea and makes salt.
+- No woman ever `walks` out on harold ryan, and then comes back--for anything.
+- You are <u>marrying</u> the <u>greatest</u> guy who `walks` this <u>earth</u>.
+- We were sitting in a bar waiting for the game to start and in `walks` this girl.
+- Alex `walks` away from door, then ducks into the bushes where the others are hiding.
+- Your friends like you, you get laid, everyone `walks` by, sees your stuff everywhere.
+- This white guy `walks` in about one o'clock, asks if we have a discount for alcoholics...
+- "...and behold he will come that `walks` as a man, yet is not a man- ..." mantids can mimic.
+                 

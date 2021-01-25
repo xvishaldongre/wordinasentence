@@ -1,0 +1,63 @@
+---
+title: "pro in a sentence | pro example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pro"
+---
+- I decided to go `pro`.
+- An insurance `pro`?
+- It's called `pro` bono.
+- Quid `pro` quo, doctor.
+- Then you're not a `pro`.
+- Not enough to be a `pro`.
+- I thought i was the `pro`.
+- You may be the `pro`, joe.
+- He going `pro` in the draft.
+- Target practice i'm a `pro`.
+- I'll get it fixed by a `pro`.
+- So, how's `pro`-ball, europe?
+- Thanks for everything, `pro`.
+- I'm also good enough to go `pro`.
+- ...it's kind of a `pro` bono job.
+- Natural `pro`- gression of aging.
+- I said i wasn't a `pro`, remember?
+- That's why you never went `pro`?
+- I can't be a `pro` motorball player.
+- Not while i can use final cut `pro`.
+- Himey here's a `pro`-toh-jay of mine.
+- I don't need the stinking `pro`-tour.
+- You also follow the `pro` cornhole tour?
+- To the springfield timbersports `pro`-am.
+- Louis, are you `pro`-vichy or free french?
+- `Pro` tip: going over the belt saves time.
+- You're a `pro`, now get out there and cut!
+- I'm dropping out of school and going `pro`.
+- Caught his wife in bed with some golf `pro`.
+- As chancellor `pro` tempore, it's still out there.
+- I may not be a `pro` bowler, but i'm no amateur man.
+- We check into the `pro` bowl hotel -- oh no -- _ 14.
+- You're dead without the `pro`-tour, and you know it.
+- ...this golf `pro`, but she's married to some other guy.
+- Believe me, word will get out that you're a `pro` rat.
+- He's the `pro` from dover and i'm the ghost of smokey joe.
+- If i could-- i'm an investigator with `pro`-tech security.
+- If you're right, lewis, this mason is one hell of a `pro`.
+- I wasn't disbarred, they dropped the `pro`... ...that's true.
+- It can only work with amateurs, a `pro` would have spotted it.
+- Saturday after next, i lose my amateur standing and turn `pro`.
+- Then i became a `pro` snowboarder, echo's going to be a problem.
+- Yeah, i need a list, people in military special `pro`... hello...?
+- A year-and-a-half later, we were both in hawaii for the `pro` bowl.
+- I thought you were a `pro` -- you're supposed to be a fuckin' tracker!
+- And winner of a bass `pro` shops $50 gift card, oh, let there be light.
+- The firm did some `pro` bono work for his organization a few years back.
+- Even if he were a woman, he'd have to be a big one... quid `pro` quo, doctor.
+- It's sad .. she's `pro`- bably lonely, and you're a nice guy to have around ..
+- My lady and i split two years ago in august and i'm an old `pro` at this shit.
+- Well, say, buddy, is that the usual `pro`-cedure for those group ther'py shindigs?
+- Except for this horrible girl who made me look bad in front of my civ `pro` professor.
+- He was a surgical resident playing semi-`pro` ball weekends when the eagles signed him.
+- All i wanted to prove was i weren't no bum -- that i had the stuff to make a good `pro`.
+- Please to explain, why i should agree to interview... with `pro`-zionist american media?
+- When i get better, if you're still here... in my role as chancellor `pro` tempore, - what?
+                 

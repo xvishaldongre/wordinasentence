@@ -1,0 +1,107 @@
+---
+title: "weight in a sentence | weight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weight"
+---
+- What kind of `weight`?
+- Check out the `weight`.
+- He was losing `weight`.
+- We're carrying `weight`.
+- You've lost `weight`.
+- You have put on `weight`.
+- Did you lose some `weight`?
+- Need to lose some `weight`.
+- Same `weight` i always was.
+- It's the dead `weight` drop.
+- He didn't `weight` the others.
+- I can still feel its `weight`.
+- I've noticed you lost `weight`.
+- Can you put your `weight` on it?
+- How much `weight` have you lost?
+- How much `weight` have you lost?
+- Could be the `weight` of the snow.
+- Spread your `weight`, keep moving.
+- Male, `weight` in excess of 240 kg.
+- Marge, i'm trying to lose `weight`.
+- It's solidifying taking on `weight`.
+- They're all the same: dead `weight`.
+- You don't need to lose any `weight`.
+- It's not going to hold your `weight`.
+- Okay, so i've got a `weight` problem.
+- The `weight` of the beam, oh, my god.
+- You're out of your `weight` class.
+- Be like a `weight` off your shoulders.
+- What does she `weight`, eighty pounds?
+- But she had this huge `weight` problem.
+- I've got to lose `weight`, i'm a blimp.
+- No, i don't think he's put on `weight`.
+- Now you know the `weight` of that, too.
+- He lost `weight` there and you left him?
+- It just cuts the `weight` of it in half.
+- You look like you've lost some `weight`.
+- And put on an obscene amount of `weight`.
+- I can't hold the `weight` of both of you!
+- So how much `weight` you looking to move?
+- I ain't never gonna hold my `weight` down.
+- I put on a lot of `weight` over christmas.
+- They must be worth their `weight` in gold.
+- Yeah, the `weight`'s ok. how's the `weight`?
+- How maybe i can't lose the `weight`, ever...
+- You get that `weight`-lifting set i sent you?
+- Can you feel the `weight` of its significance?
+- Must be the way their `weight` is distributed.
+- Allow your partner's `weight` to lean into you.
+- Focus on that, not the train, not its `weight`.
+- Maybe they had `weight` limits, you don't know.
+- My leg can bear my `weight`, not the both of us.
+- You'd have the good to `weight` against the bad!
+- A guy can't -- he lost all the `weight`... there.
+- I'm telling you, it's worth its `weight` in gold.
+- We've still got some dead `weight` to get rid of.
+- Oh, no, i just lost a little `weight`, that's all.
+- I'm tired with tryin' to make the `weight` anymore.
+- Sounds to me like you cut loose some dead `weight`.
+- Good, keep your `weight` off that leg, mr. gardiner.
+- I felt dustin's today, it's the same exact `weight`.
+- I'm sick of thinkin' about `weight`, `weight`, `weight`.
+- You imagine having that much `weight` on top of you?
+- Admiral - how am i going to handle all that `weight`?
+- I don't know... yeah, i know, it's a lot of `weight`.
+- I feel as if a `weight` has been lifted from my heart.
+- Geez, i feel like there's a great `weight` off my back.
+- I'm trying to watch my `weight`, and look what happens.
+- Said to me it would be worth it's `weight` in diamonds.
+- The drugs made me put on `weight` and grow facial hair.
+- It wasn't her dress or she must have lost some `weight`.
+- `Weight`, feel, mal1eability, they're all but identical.
+- Like there's this `weight` you're carrying around with you.
+- She said "none the better, you all go to hell..." `weight`!
+- By the way, the guys back home said she put on some `weight`.
+- About the responsibility now, if you shift your `weight` what?
+- His poor little head's trembling under the `weight` of it.
+- I just drank my `weight` in sunny d. and i have to go, pronto.
+- In a concentration camp, one is apt to lose a little `weight`.
+- That argument would carry a lot more `weight` - we'll get him.
+- But his `weight` with the commoners could unbalance everything.
+- As the president's science advisor you have enormous `weight`...
+- You know, the more `weight` back there, the faster the car goes.
+- Grab an oar, find a way to `weight` it down, we're gonna need it.
+- Perfect height-`weight` ratio, she's going to be a great climber.
+- You are going to be in a hurry, you don't want any dead `weight`.
+- I've been taking pills to get my `weight` down since the baby.
+- ...height and `weight` may only be estimated from partial remains.
+- But wouldn't this have more `weight` coming from the senator herself?
+- I don't think the line will take the `weight` of a man and the coins.
+- You were right, my family background in firefighting gave it `weight`.
+- I'm fighting at light heavyweight, and i still can't make the `weight`.
+- ♪ stop watching your `weight` ♪ i do believe you just named our new world.
+- Anybody who can take some of the `weight` off the old man, i'm in his corner.
+- I'm pulling out of next wednesday's tv bout 'cause i can't make the `weight`.
+- ♪ i think i could stay here for the rest of my life ♪ and he's lost `weight`.
+- You shouldn't be on your feet too much, you got `weight` you're not used too.
+- After eating the guess-your-`weight` guy, it gets better every time i tell it.
+- It was your `weight` on the line that did it-- i did what i thought was right.
+- Don't get me wrong - i feel like a `weight` is being lifted from my shoulders...
+- This thing doesn't live in a swamp to support it's body `weight` for god's sake!
+                 

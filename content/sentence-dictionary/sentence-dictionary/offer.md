@@ -1,0 +1,107 @@
+---
+title: "offer in a sentence | offer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "offer"
+---
+- Let's make an `offer`.
+- That's not an `offer`.
+- I can `offer` you that.
+- That wasn't an `offer`.
+- That's my final `offer`.
+- I appreciate the `offer`.
+- I'll make you an `offer`.
+- That's my lowest `offer`.
+- He respond to the `offer`?
+- How much they `offer` you?
+- Is that a serious `offer`?
+- I've got a better `offer`.
+- May i `offer` you a drink?
+- We `offer` ours in return.
+- What do i have to `offer`?
+- What is your last `offer`?
+- I could never `offer` this.
+- I must `offer` to the duke.
+- It's not an `offer`, major.
+- I will `offer` that report.
+- `Offer` me your confession.
+- Positively my last `offer`.
+- Tried to `offer` me a deal.
+- Can i `offer` you something.
+- He didn't `offer` you money.
+- I am to `offer` you a drink.
+- This `offer` is really real!
+- What can i `offer` you, eve?
+- Anything *better* to `offer`?
+- As i have an `offer` for you.
+- So this is what i'll `offer`.
+- What does he have to `offer`?
+- You don't `offer` friendship.
+- You haven't heard my `offer`.
+- At least they made an `offer`.
+- Can i `offer` you some coffee?
+- I'd like to `offer` you a job.
+- I'm here to `offer` you a job.
+- May i `offer` you both a ride?
+- Sometimes we can `offer` help.
+- You'll think about my `offer`?
+- Can i `offer` you a cup of tea?
+- I can `offer` you a better way.
+- Marge made me a better `offer`!
+- No... well, `offer` her a seat!
+- No... you got a better `offer`?
+- Thanks for the `offer`, adrian.
+- ...what do you have to `offer`?
+- A gentleman would `offer` water.
+- I `offer` only this, father.
+- But it's nice when they `offer`.
+- My people will `offer` you more.
+- They came to me with an `offer`.
+- You've had a better `offer`, eh?
+- But for today the `offer` stands.
+- I'm going to make him an `offer`.
+- It was a very impressive `offer`.
+- I've come to make you an `offer`.
+- I've come to `offer` my services.
+- Oh, is that an `offer`, mclntyre?
+- Well, i `offer` more, uh... look.
+- Well, that's the state's `offer`.
+- What can you possibly `offer` me?
+- Yeah, yeah... we `offer`... yeah.
+- I'm prepared to `offer` you a job.
+- I'm sure we can match any `offer`.
+- `Offer` a weapon... question mark.
+- `Offer` him the salt of penitence.
+- That is a most intriguing `offer`.
+- We're going to `offer` you a deal.
+- We would consider such an `offer`.
+- A million would've been an `offer`.
+- Can i `offer` you a ride somewhere?
+- I `offer` an escape from suffering.
+- I suggest to reconsider my `offer`.
+- Perhaps i can `offer` a suggestion.
+- We can still take the `offer`, rod.
+- You're gonna `offer` to set him up?
+- I can `offer` you god's forgiveness.
+- `Offer` to give us up somebody else.
+- Plus they `offer` me a lot of money.
+- They didn't `offer` you the job yet.
+- You should have taken their `offer`.
+- Does this `offer` include my partner?
+- I always `offer` to pay 'em in tacos.
+- I'd like to `offer` you a job, cindy.
+- It's a real good `offer` for a whore.
+- `Offer` to help and see what happens.
+- If i had some input i'd `offer` it up.
+- I'll `offer` you more than it's worth.
+- I'm waiting for your `offer`, clarice.
+- Sure, i'd like to `offer` condolences.
+- I'd like to `offer` my congratulations.
+- It's stuck, but thanks for the `offer`.
+- `Offer` them anything -- only get them.
+- There were six on `offer`, you scumbag.
+- Uh oh... can i `offer` you some coffee?
+- May i `offer` you some tea, herr mozart?
+- Our `offer` is final and more than fair.
+- We `offer` moral guidance, not hardware.
+                 

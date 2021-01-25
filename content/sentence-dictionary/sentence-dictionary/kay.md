@@ -1,0 +1,69 @@
+---
+title: "kay in a sentence | kay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kay"
+---
+- What, like on va-`kay`?
+- What's going on, `kay`?
+- You did good, `kay`-em.
+- `Kay` had all his books.
+- '`kay`, place your bets.
+- That's my family, `kay`.
+- Who's being naive, `kay`?
+- I will ride with sir `kay`.
+- `Kay`-- you know something?
+- `Kay`, you've got it wrong.
+- `Kay`...she's all right?
+- It's good to see you, `kay`.
+- O-`kay`, you're not talkin'.
+- Sir... `kay` needed a sword.
+- I am not dead yet, mr. `kay`.
+- I have a proposal, mr. `kay`.
+- Weren't expecting you, `kay`.
+- Mr. ola's just leaving, `kay`.
+- Who talked you into it, `kay`?
+- Now you just be patient, `kay`.
+- Yeah, mary-`kay`, i think i do.
+- Because that's important, `kay`.
+- `Kay`, we weren't expecting you.
+- You and `kay` were like sisters?
+- I gave the `kay`- ducer a c-note.
+- There's no snow in vegas, '`kay`?
+- Walter byrd killed `kay` connell.
+- And... `kay`-- that's... 444-eyes?
+- Just wait `kay`, he'll contact you.
+- `Kay`, you're scaring your partner.
+- This is not some card club, '`kay`?
+- O-`kay`, you guys can come swimming.
+- I'm working for my father now, `kay`.
+- Will that be good for you, mr. `kay`?
+- But i'm wearing a pound of mary `kay`.
+- Don't ask me about my business, `kay`.
+- Ooh-`kay`... my plan is just beginning.
+- Who was `kay` seeing besides randy stetz?
+- `Kay` had a miscarriage; she lost the baby.
+- '`kay`, well, could you walk faster, please.
+- Tom...tom, i'd like you to meet `kay` adams.
+- I'm sorry, `kay`... how long does this go on?
+- I'm telling you i don't trust him-- `kay`.
+- `Kay`, my father's way of doing things is over.
+- They're new to us... just knock it off, '`kay`?
+- We were only trying to help... ohhh<u>`kay`</u>.
+- `Kay` connell had a signed copy of one of your books.
+- `Kay`-em, you've saved our lives, you know that don't you?
+- Let's see... that was second gear..`kay` shifts into third.
+- One of the paperbacks we found in `kay` connell's knapsack.
+- It discusses `kay` as well; that will be the most difficult.
+- `Kay`, listen, i dunno what got into-- don't worry about it.
+- `Kay`, um... how, uh, fast does this thing actually go ... ?
+- I'll come back an' getcha in a while... '`kay`... m-m-m-mack?
+- Karen, i told you not to-- oh-`kay`... we're a few minutes away.
+- Still need to go through some of `kay` connell's school records.
+- Hey, if you're ordering lunch for mierzwiak, would you -- '`kay`.
+- '`kay`... well, you boys finish it up an' climb back into your beds.
+- Maybe it was baby supplies, `kay` starts the car, starts to pull a u-turn.
+- `Kay`, michael didn't tell me a lot; and what he did tell me, i can't repeat.
+- I'm gone on my way, my wagons are loaded, my whip's in my hand... 'k-`kay`, m-mack!
+- `Kay`, i'm sorry... little more burn on the perimeter-they weren't roasting smores here.
+                 

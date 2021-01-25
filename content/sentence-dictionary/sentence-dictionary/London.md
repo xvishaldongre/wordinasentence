@@ -1,0 +1,107 @@
+---
+title: "London in a sentence | London example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "London"
+---
+- How did i get to `london`?
+- You ever been to `london`?
+- Bring it to me in `london`.
+- `London`, cairo, beijing...
+- Welcome to `london`, major.
+- You'll hate it in `london`.
+- Maybe he did go to `london`.
+- I booked passage to `london`.
+- Or `london`, paris or vienna?
+- Say hello to `london` for me.
+- Proprietor of a `london` firm.
+- Sort of a jack `london` style?
+- ♪ werewolves of `london` ♪ no.
+- After the cold war ... `london`.
+- He's from 'lloyd's of `london`.'
+- I have to get these to `london`.
+- I've been to `london` and paris.
+- ♪ werewolves of `london` ♪ gem9.
+- You're in a hospital in `london`.
+- You won't be opening in `london`.
+- He's like a rock star in `london`.
+- I go to `london` right after that.
+- I'll see you get back to `london`.
+- I've been called back to `london`.
+- So, we won't be going to `london`?
+- So it's off to `london` for a week?
+- You wanted to come back to `london`.
+- You were supposed to be in `london`.
+- She didn't want me to go to `london`.
+- There's nearly 2 million in `london`.
+- Bombings in `london` couple years ago.
+- But...has anyone seen him in `london`?
+- Mr. jackson and ms. rosco in `london`.
+- My family got from nigeria to `london`.
+- We've got to take you back to `london`.
+- You can always come see it in `london`.
+- He knows no one in `london`, besides me.
+- `London`, england, you're on "tru talk."
+- You are not having your baby in `london`.
+- That old doctor in `london` -- he told me.
+- Why should we wait until we're in `london`?
+- You know, i saw you once there, in `london`.
+- 4, cheyenne walk, chelsea, `london`, england.
+- Yeah, well, she started all that in `london`.
+- I'd give anything to be in `london` right now.
+- Didn't you see "american werewolf in `london`?"
+- We'll get to `london` and go our separate ways.
+- But we could go to `london` and live in england.
+- Eight hours difference between here and `london`.
+- I�m french but i live in `london`... ... england.
+- We're having a baby and we're moving to `london`.
+- I saw lucy when i was in `london`, she seems okay.
+- Oh god, my grandad's flat in `london`'s been sold.
+- Based in `london`, but with international concerns.
+- I've heard good things about their `london` branch.
+- Your brother was a client with our `london` branch.
+- I'm from cape town originally first visit to `london`?
+- ♪ werewolves of `london` ♪ i knew she'd pick this one.
+- Some action in `london`, 'til it turned nickel and dime.
+- This is `london`, not the lebanon' who do you think i am?
+- I just might give you a ring when we get back to `london`.
+- An austrian, in `london`, dealing in kids and snuff videos.
+- I'm told that dress is the very latest fashion in `london`.
+- Before or after i showed in `london`, mind telling me, ethan?
+- No pirate would sail to `london`, for fear of execution dock.
+- You'll stalk the streets of `london` a creature of the night.
+- "leaving today for `london` with conway aboard s.s. manchuria.
+- There was blue beard in france -- jack the ripper in `london`.
+- Now, let's get back to `london` and find a proper hiding place.
+- Planned on going to sea, me and bob, 'til i read jack `london`.
+- I could swear i met you with ian at the emi offices in `london`.
+- I don't want them breathing down my neck while we're in `london`.
+- In `london` those radical ideas could land you in newgate prison.
+- I thought you'd be off on tour, playing `london`, paris, new york?
+- ♪ werewolves of `london` ♪ we honor those who die in the conclave.
+- I'm not one of your 'little `london` girls' who falls for the lies.
+- Much to my mother's dismay - joanna and i were in love in `london`.
+- I also put side two of `london` calling on there... all in one tape?
+- Why, if you're passionate about flowers, would you come to `london`?
+- You�re the french asshole who bumped off the `london` guys... gluck.
+- Bond, from lloyds of `london`, i just want to get two things straight.
+- Come on, mark, every cunt knows you've been saving up down in `london`.
+- I just called to ask if i could stay with him next time i�m in `london`.
+- Because i had dinner with paul owen twice in `london`...just ten days ago.
+- That enquiries to the police and `london` hospitals have borne no results.
+- The house had to go on the market to insure the loan on the `london` flat.
+- Why can't we have pot roast or stroganoff or even a little `london` broil?
+- He set up shop in `london`, and he created this myth around johnnie walker.
+- Our first responsibility is to get these artifacts safely back to `london`.
+- Well, there's a message on his answering machine saying he went to `london`.
+- The phone number of anna scott's agent in `london` and her agent in new york.
+- Two stiffs and a missing kid followed your visit to one of the `london` hotels.
+- Two weeks ago in `london` charles redder from the bronx was mugged in hyde park.
+- I was born outside `london`, the only son of a minister who was a master at harrow.
+- I can't imagine that susan hasn't hinted at the kind of life i lead in `london`.
+- I'm just in `london` for two days -- but, with your papers, it's the worse place to be.
+- Running from some poor little girl with two kids and a chanel pocketbook in - `london`?
+- You do what you have to do, but i�ve called in m. she�s en route from `london` even now.
+- I don't know if you've looked at a map, it's close to `london` but it's a city in itself.
+- A few words scribbled on a piece of paper in `london` doesn't carry a lot of value out here.
+                 

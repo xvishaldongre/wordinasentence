@@ -1,0 +1,107 @@
+---
+title: "American in a sentence | American example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "American"
+---
+- Great `american` hero.
+- Our `american` friends.
+- The `american` embassy.
+- It's the `american` way.
+- ...it's very `american`.
+- An `american` spacecraft?
+- It's `american` business.
+- It was, "buy `american`."
+- Some `american` citizens.
+- But, you're an `american`?
+- I'm an `american` officer.
+- It's the `american` dream.
+- Oh, `american`, thank you.
+- Stupid new `american` fad.
+- We're `american` soldiers.
+- A dash of `american` humor!
+- His mother's an `american`.
+- The bodyguard's `american`.
+- You bring `american` money?
+- You...you're an `american`?
+- From the `american` station.
+- Yes the `american` "people"?
+- A regular all-`american` guy?
+- He's an `american`, you know.
+- He thinks like an `american`.
+- Now, that's `american` music.
+- The `american` army is there.
+- He's in my `american` history.
+- I don't know - i'm `american`.
+- If you were a true `american`.
+- It means "i am an `american`."
+- It's an `american` spacecraft.
+- Makes us look more `american`.
+- What could be more `american`!
+- Y'all take `american` express?
+- Do you take `american` express?
+- Uh, "modern `american` poetry"?
+- You're lee's `american` friend.
+- Could i have that in `american`?
+- It's as `american` as apple pie.
+- The `american` gardens building.
+- I am not an `american`, mr. russ.
+- I should show them an `american`?
+- It's becoming the `american` way!
+- My daughter is not an `american`.
+- To the `american` cinema editors.
+- We're from scientific `american`.
+- I think it's nice he's `american`.
+- You are `american` too, of course.
+- ♪ bye bye miss `american` pie ♪ no!
+- He said he was an `american` agent.
+- He's tough, your `american` friend.
+- I'm an `american` hiding in sicily.
+- She'll make a good `american` wife.
+- Where's the nuevo `american` diner?
+- How would you think it's `american`?
+- I never touch `american` cigarettes.
+- South `american` insurgency tactics.
+- The `american` answer to everything.
+- Yeah, well you're in `american` now.
+- You burned an `american` flag today.
+- "`american` president" what'd ya see?
+- Have you ever tried `american` girls?
+- He just became an `american` citizen.
+- Right before his un-`american` thing.
+- She's as `american` as apple pie too.
+- What about an `american` named kurtz?
+- `American` journalism, not propaganda.
+- But what of the `american` expedition?
+- It's overrun with `american` tourists.
+- Say, you're an `american`, aren't you?
+- The `american` people bought that war.
+- With the whole `american` psycho vibe.
+- Sir, there's dead `american` kids here.
+- This is the `american` dream in action!
+- To help with the `american` war effort.
+- Two `american` translators were killed.
+- Not native `american` myths and legends.
+- The `american` people put me where i am.
+- They tell me you're an `american` agent.
+- I'm minnesota's `american` teen princess!
+- I said my earrings <u>are</u> `american`.
+- [italian-`american` slang for 'now, go!']
+- Some kid at the `american` express office.
+- You think it's enough to be an `american`.
+- Just another good `american` like yourself.
+- I mean, so much for being `american` heroes.
+- Not all-`american` or anything, but not bad.
+- They were japanese-`american` boys, yes sir.
+- We accept mastercard and `american` express.
+- You could host `american` bandstand in here.
+- Every `american` should see the grand canyon.
+- I�m an `american` and in america, people sue.
+- That was the start of `american` airlines.
+- Of the `american` embassy in kathmandu, nepal.
+- That is not `american` teen princess language!
+- Baby, we are living the great `american` dream!
+- Beat out `american` pasty and arlington street.
+- ♪ bye bye miss `american` pie ♪ - where's jane?
+- Didn't you see "`american` werewolf in london?"
+                 

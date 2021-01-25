@@ -1,0 +1,98 @@
+---
+title: "theory in a sentence | theory example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "theory"
+---
+- Jordan has a `theory`.
+- I got games & `theory`.
+- Checking out a `theory`.
+- Gretchen has a `theory`.
+- His `theory` came first.
+- Now to test my `theory`.
+- So what's your `theory`?
+- That proves my `theory`.
+- A well-accepted `theory`.
+- But i like that `theory`.
+- Wanna test that `theory`?
+- I just have this `theory`.
+- "nuclear winter" `theory`?
+- But i do have a `theory`...
+- That's a crackpot `theory`.
+- Well, what's your `theory`?
+- Yeah, good `theory`, harry.
+- After the big bang `theory`.
+- If your `theory` is correct.
+- That's part of the `theory`.
+- Yeah, well, it's a `theory`.
+- But what about your `theory`?
+- It beats dr. simm's `theory`.
+- It's an interesting `theory`.
+- Then my `theory` was correct.
+- Have you tested this `theory`?
+- He just told me his `theory`...
+- I'm not interested in `theory`.
+- Not in `theory` -- in practice.
+- Oh, i see... interesting `theory`.
+- `Theory` goes she may be very ill.
+- I thought that was just a `theory`.
+- Several problems with that `theory`.
+- Suspect zero is a crackpot `theory`.
+- Oh, i'm only exploring your `theory`.
+- I thought you'd maybe have a `theory`.
+- But i'm convinced the `theory` is sound.
+- I liked your alien `theory` a lot better.
+- Dr. jackson, please share our `theory` nope.
+- Yes, in `theory`, i suppose that would work.
+- Have you told lieutenant bedsoe your `theory`?
+- I got a new `theory` about all these suicides.
+- In `theory`, it could even summon the bifrost.
+- The madman `theory` wasn't so crazy after all.
+- Here i had a completely different `theory`.
+- It just goes to prove the `theory` of our state.
+- What did you think of the suspect zero `theory`?
+- If we can't get back, it's still just a `theory`.
+- I have a `theory` that there's two kinds of boys.
+- I'm going to rule out the glue-sniffing `theory`.
+- But i'll show you what's wrong with your `theory`.
+- It's -- he's got some kind of conspiracy `theory`.
+- Does koessler know about the suspect zero `theory`?
+- A police reenactment confirmed the chief's `theory`.
+- I've got a `theory` about how your people got there.
+- <u>conspiracy `theory`</u> it just went out tuesday.
+- Not just `theory` and equations-- experimental proof.
+- Your mother has a `theory` about how to educate rose.
+- You see, i have this `theory` about men with glasses.
+- I merely posed a little, academic accounting `theory`.
+- In `theory`, climate engineering is entirely feasible.
+- That your... "`theory`", ain't that what they call it?
+- What if your girl's `theory` turns out to be bullshit?
+- When i was in college, i did a semester on al `theory`.
+- Dr. grant, dr. sattler -- you've heard of chaos `theory`?
+- New wrinkle on an old `theory` for treating schizophrenia.
+- This is the first evidence that corroborates our `theory`.
+- But we have a `theory` .. did you find the knife, sergeant?
+- Oh, by the way, another pet `theory` of yours just blew up.
+- Our little `theory` from last night just got blown to shit.
+- So now we got a huge guy `theory` and serial crusher `theory`.
+- He developed his own `theory` that he called the calisto effect.
+- All except the latent homosexuality part-that's just my `theory`.
+- Let me lay a little `theory` on you-- all right, what do we know?
+- That's my own `theory` based on a mexican food called the burrito.
+- Yeah, again, in `theory`, but - - but would we get the phones back?
+- I have this `theory` about why men kill each other and break things.
+- Their `theory` is he was moonlighting as a drug dealer or something.
+- Son of a ..... did i ever tell you my `theory` on star wars as porn ?
+- Our working `theory` right now is that will... who wants an end piece?
+- We have no evidence - just a `theory` that happens to fit the facts...
+- 's just a `theory`... just 'cause i'm thinking it don't mean i like it.
+- I told him i'd found the confidential file on the suspect zero `theory`.
+- You're using this conspiracy `theory` as an excuse to avoid sex with me.
+- It's a `theory` ray and i were working on when we had to dissolve ghostbusters.
+- Yes, well, my `theory` was that she may be running because she gets attention...
+- I have this `theory` of convergence, that good things always happen with bad things.
+- So there goes your `theory` about the joes giving up shu to protect their trigger man.
+- I have a `theory` that their ability to vocalize is the key to their social intelligence.
+- Still, foolishly, perhaps, i had a `theory` that eliminates the presidential push-button.
+- Your `theory` is interesting father but i don't think we have time to go into it right now!
+                 

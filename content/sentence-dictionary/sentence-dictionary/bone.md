@@ -1,0 +1,81 @@
+---
+title: "bone in a sentence | bone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bone"
+---
+- It's `bone` dry, morty.
+- Collar `bone` is broken.
+- `Bone` marrow extraction.
+- Dislocated collar `bone`.
+- It's `bone` dry out there.
+- Very fine `bone` structure.
+- You sure worry that `bone`.
+- You could almost see `bone`.
+- Get your `bone` smooched.
+- I swear it on my very `bone`.
+- I think i've broken a `bone`.
+- Ivory, beige, `bone`, albion.
+- Brothers to the `bone`, right?
+- It was in their `bone` marrow.
+- Okay, `bone`-setter brown goes.
+- Nightblood out of `bone` marrow.
+- You share a place with t-`bone`?
+- I've never broken a `bone` since.
+- Test abby's `bone` marrow formula.
+- I can give you a `bone`, too, girl.
+- We need to get this `bone` aligned.
+- Break every damn `bone` in your body.
+- I've taped my `bone` between my legs.
+- Portions of denuded `bone` remaining.
+- I got a `bone` to pick with this part.
+- Just say we're brothers to the `bone`.
+- With no `bone` or scalp or hair present.
+- That ole chucklehead just bites my `bone`.
+- "a foul-rag-and-`bone` shop-of- the-heart."
+- Do you have a romantic `bone` in your body?
+- She has a fish `bone` caught in her throat.
+- Whale `bone` corsets for the woman who dares?
+- Looks like we're gonna have more `bone` marrow.
+- He's being treated for `bone` cancer at the v.a.
+- When the russian doctor took out the `bone` saw.
+- Yeah, but it's got to be by `bone`- setter brown.
+- I have a `bone` in my foot that still hasn't thawed.
+- She's too weak for another `bone` marrow extraction.
+- Even the spinal `bone`... sliced as smooth as butter.
+- Vada there is no chicken `bone` stuck in your throat.
+- We tried `bone` marrow transplantation 100 years ago.
+- Clarke used her `bone` marrow to make me a nightblood.
+- It's too late for virge, he already rolled his `bone`.
+- ♪ stripped to the `bone` ♪ to lead is your birthright.
+- You're like a dog with a `bone` over this movie, clay.
+- Some `bone` fragments came up in the sift this morning.
+- We'll just give basil a tinkle on the telling `bone`...
+- They took some `bone` from my hip and put it in my neck.
+- I'm a little worried about some of these `bone` fragments.
+- It's good that there was no apparent damage to the `bone`.
+- I've been frozen for thirty years, throw me a `bone` here.
+- This `bone` marrow kane, we've been through this, all right?
+- No bits of `bone`, no particles of scalp, no strands of hair?
+- Until then, promise me you won't take any more `bone` marrow.
+- Vulnerable zone is the base of the skull, the occipital `bone`.
+- You let your overseer run riot, work your slaves to the `bone`.
+- I used it to beam out most of the `bone` fragments from his brain.
+- That's the sweat of a man who hasn't an honest `bone` in his body.
+- Chicken `bone` cross take the curse off this bat and bring me hits.
+- If the rumors are true and your `bone` marrow all of them, i think.
+- You'd be suckin' the dick and going down on a mangy t-`bone` hound.
+- You must be chilled to the `bone`, standing out of doors like this.
+- Throw the prague police a `bone`, you know toss them a few suspects.
+- Did she die instantly or did she feel every torn muscle and shattered `bone`?
+- It's an eighteen wheel cement mixer that will crush every `bone` in your body.
+- The developing organism is using his life energy, digesting `bone` and tissue.
+- It's injected into the `bone` marrow cells, it causes the host's dna to mutate.
+- I'll scrimp and save and work my fingers to the `bone`... don't give it a thought.
+- Sure, white man throw us a `bone` and that's supposed to make us forget 400 years.
+- The `bone` was porous, as if the virus of the causative microbe were digesting it.
+- Well, halloween has come and gone, your `bone` marrow can get us back to the ground.
+- Curls really weren't the right look for her -- she didn't have your `bone` structure.
+- Say, i was just about ready for the major leagues when i chipped a `bone` in my elbow.
+- Why can't you call right, you `bone`- headed, pig-eared, lop-eared, pot- bellied� yes!
+                 

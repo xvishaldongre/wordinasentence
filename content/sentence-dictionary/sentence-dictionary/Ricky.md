@@ -1,0 +1,56 @@
+---
+title: "Ricky in a sentence | Ricky example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ricky"
+---
+- What about `ricky`?
+- `Ricky`'s taken care of.
+- Sure, go ahead, `ricky`.
+- You see a `ricky` slade?
+- I want `ricky` to answer.
+- `Ricky`'s not wearing one.
+- We think it's `ricky` tan.
+- Aren't we waiting for `ricky`?
+- Like in the old says, `ricky`.
+- Carter... you go after `ricky`.
+- Horrace, this is `ricky` slade.
+- `Ricky`, i'm going to miss you.
+- `Ricky` won't shut up about it.
+- Give it your best shot, `ricky`!
+- Over there -- that's `ricky` tan.
+- `Ricky` 'i lost the truck' `ricky`?
+- Show uncle `ricky` what you made.
+- This is me...this is `ricky`, jim.
+- `Ricky`, can you put on a seat belt?
+- `Ricky`, you're becoming quite human.
+- `Ricky` hendricks has to cancel today.
+- That was the name of `ricky` tan's boat.
+- Not you, `ricky`, with your standing desk.
+- `Ricky` tan was his partner for ten years.
+- `Ricky` here yet, i need to get his requests.
+- Don't count too much on my friendship, `ricky`.
+- Okay, okay, i'll be at the resta... `ricky`, i...
+- `Ricky` tan was our only bait, and now he's gone.
+- You want to help `ricky`, talk to maxie yourself.
+- `Ricky` tan mentioned a boat in hong kong harbor...
+- I occasionally box with `ricky` at the harvard club.
+- `Ricky`?...that i don't care they stole the contracts?
+- The only way he'll go with `ricky` is if you're in too.
+- `Ricky`, who knows how long we're gonna have to be here.
+- I was about to take out `ricky` tan and those bodyguards.
+- You have a mean streak in you, `ricky`, you know that...?
+- `Ricky` tan is throwing a little party on his boat tonight.
+- What are you, `ricky`, huh, what are you, bishop sheean?
+- I'm just saying, if -- i'm not gonna mention `ricky` to him.
+- Five years ago `ricky` tan bought that press on the black market.
+- You know, this place will never be the same without you, `ricky`.
+- Then, i sat there, `ricky`, twenty-two minutes by the kitchen clock.
+- As for you, `ricky`, your draw will go towards a new carpet cleaning van.
+- `Ricky`, i'd advise you not to be too interested in what happens to laszlo.
+- No, we're here for information, to find out where a man named `ricky` tan is.
+- `Ricky` tan didn't kill my father, the fu-cang long are not in south central.
+- He was on `ricky` tan's boat ordering hu li around just before `ricky` got smoked.
+- "what are you talking about `ricky`, the murders were a completely isolated incident".
+- Marky, `ricky`, danny, terry, mikey, davey, timmy, tommy, joey, robby, johnny, and brian.
+                 

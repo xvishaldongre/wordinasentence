@@ -1,0 +1,107 @@
+---
+title: "answers in a sentence | answers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "answers"
+---
+- I want some `answers`.
+- Guy `answers` the door.
+- He wants his `answers`.
+- I've got the `answers`!
+- There are no `answers`.
+- `Answers` to what, spock?
+- Are these the `answers`?!
+- Don't you want `answers`?
+- I have `answers` for you.
+- I want fuckin' `answers`!
+- Don't probe for `answers`.
+- I want straight `answers`.
+- I wrote all his `answers`.
+- Now i want some `answers`.
+- I gotta get some `answers`.
+- Woman: we want `answers`.
+- You have all the `answers`.
+- What are your `answers`?
+- But i expect some `answers`.
+- I want some `answers`, nash.
+- So you have the `answers`...
+- I'm running out of `answers`.
+- Now, i'd like some `answers`.
+- You've got all the `answers`.
+- All the `answers` are numbers.
+- They look to me for `answers`!
+- To find the `answers` we need.
+- You told me you had `answers`.
+- He will have all the `answers`.
+- I don't have all the `answers`.
+- What i need are some `answers`.
+- Always the same stale `answers`!
+- I am seeking `answers`, captain.
+- It's time to get some `answers`.
+- Well, that `answers` everything.
+- Are they providing any `answers`?
+- Five `answers` will beat it, lynn.
+- ...all you do is give me `answers`.
+- I don't have any `answers` for you.
+- The `answers` are actually correct.
+- We all know what the `answers` are.
+- You will find your `answers` there.
+- Keep those `answers` to three words.
+- This `answers` one of our questions.
+- Hey, i don't have `answers` for this.
+- The fool `answers`, "i don't know.
+- I guess that `answers` your questions.
+- We've got good `answers` to all of 'em.
+- You got any `answers` for this, dillon?
+- What's with you and the quick `answers`?
+- He had all the `answers` back in the day.
+- You can copy my `answers` if you need to.
+- You step aside in case someone `answers`.
+- I owe it to him to get some `answers`.
+- For some `answers` - they come up with us.
+- I'm just a guy looking for some `answers`.
+- You had all the `answers` back in the day.
+- I'm not going to dignify youwith `answers`.
+- I think he needs to find `answers` himself.
+- It'll give you the `answers` that you need.
+- We ask questions and measure the `answers`.
+- The army's not gonna give you any `answers`.
+- You may finally get your `answers`, gabriel.
+- If i don't get sensible `answers` they don't.
+- Still think you have all the `answers`, hank?
+- It writes out all the `answers` on your brain.
+- Well, i mean, she always `answers` her beeper.
+- Well, they needed immediate `answers`, frances.
+- When i ask questions, i like to hear `answers`.
+- Remember, we need `answers` as soon as possible.
+- I gotta farm to think about and i need `answers`.
+- I just want simple `answers` to simple questions.
+- Meaning, viznick's a man who `answers` to no one.
+- Without any of those `answers` you so longed for?
+- He's gone to check your `answers` on his computer.
+- You're asking questions that don't have `answers`.
+- Kind that will help you find the `answers`, george.
+- No meaning... no hope... and, jim, no `answers`...!
+- Jim, it's looking for <u>`answers`</u> <u>itself</u>!
+- If your `answers` are satisfactory, she won't survive.
+- I want the dreams stopped until we get some `answers`.
+- I hope that `answers` all your questions, m'sieu giron.
+- And already the public expects us to know the `answers`.
+- I would only like some precise `answers`, that's all ...
+- Not with anger and endless questions, but with `answers`.
+- Not -- you have any other `answers` besides "not really"?
+- What is it, can't you give me straight `answers` anymore!
+- That was the first and last question-- now only `answers`.
+- These people's lives may depend on the `answers` you give.
+- But <u>`answers`</u> are what we need - not more questions!
+- If i get sensible `answers` then they get to go to america.
+- None of this `answers` my question, though... why bring me?
+- I don't have all the `answers`, but goddamn it, i've got some.
+- The most certain way of obtaining all the creator's `answers`.
+- I think you're searching for `answers` in all the wrong places.
+- You think it makes you a big man if you can give the `answers`.
+- I filled 100 notebooks with possible `answers` to that question.
+- I only ask the question: does it have to have all the `answers`?
+- Well, no, but these gentlemen would like to get some `answers`...
+- But if you call my house and my mother `answers`, ask for blanche.
+                 

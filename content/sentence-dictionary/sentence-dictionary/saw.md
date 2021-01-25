@@ -1,0 +1,107 @@
+---
+title: "saw in a sentence | saw example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "saw"
+---
+- But i `saw` something.
+- I only `saw` his back.
+- I `saw` him strikeout.
+- I `saw` his dead body!
+- I `saw` it going down.
+- I `saw` it in a movie.
+- I `saw` it in the eye.
+- I `saw` that moving...
+- I `saw` the creatures.
+- I `saw` the last shot.
+- I `saw` them kill him!
+- I `saw` you on c-span.
+- I `saw` you out there.
+- I `saw` you play, man.
+- I `saw` your daughter.
+- Last time i `saw` you.
+- Michael - i `saw` him!
+- Never `saw` her again.
+- Nobody `saw` me do it.
+- `Saw` the button, huh?
+- ...then we `saw` this.
+- They `saw` him follow.
+- Yes, i `saw` the news.
+- Yes, yes, i `saw` you!
+- You `saw` him get bit.
+- You `saw` it yourself.
+- You think he `saw` us?
+- I `saw` who did it!
+- But i `saw` it another.
+- He liked what he `saw`.
+- I know what i `saw`....
+- I never `saw` his face.
+- I never `saw` the pies.
+- I `saw` german writing.
+- I `saw` her last night.
+- I `saw` him last night!
+- I `saw` him last night.
+- I `saw` it in his eyes.
+- I `saw` it on his face.
+- I `saw` it on the news.
+- I `saw` someone i knew.
+- I `saw` the commercial.
+- I `saw` this show once.
+- I `saw` you on the net.
+- I `saw` you seeing her.
+- Never `saw` him before.
+- `Saw` the sign outside.
+- `Saw` what, mr. cooper?
+- Tell me what you `saw`.
+- The minute i `saw` you.
+- The moment i `saw` you.
+- Your friend `saw` them.
+- You `saw` that article?
+- Ace `saw` vegas one way.
+- You `saw` him leave?
+- Because of what i `saw`.
+- But he `saw` you, right?
+- But i `saw` him, though.
+- But i `saw` these women.
+- But i `saw` what it was.
+- But she <u>`saw`</u> us.
+- But you `saw` them, sir.
+- Ethan, i `saw` the mole.
+- Guess who i `saw` today.
+- Hey, i `saw` that movie.
+- I almost `saw` catalina.
+- If you `saw` his face...
+- I mean, you `saw` him...
+- I merely `saw` him home.
+- I never `saw` her again.
+- I never `saw` him again.
+- I never `saw` it before.
+- I `saw` an iceberg once.
+- I `saw` a picture of it.
+- I `saw` his soul wesley.
+- I `saw` it as untouched.
+- I `saw` it in your eyes.
+- I `saw` it this morning.
+- I `saw` my father today.
+- I `saw` terrible things.
+- I `saw` that one coming.
+- I `saw` the whole story.
+- I `saw` the whole thing.
+- I `saw` your ship crash.
+- I `saw` you watching me.
+- Richard - i `saw` a fin!
+- That's not what i `saw`.
+- When we `saw` that ship.
+- Yeah i `saw` 'em around.
+- Yeah, `saw` eddie, yeah.
+- Yes, i `saw` you see me.
+- You guys never `saw` it.
+- You `saw` them in there.
+- You `saw` what happened.
+- You think they `saw` us?
+- A lot of people `saw` it.
+- Do you think he `saw` us?
+- He `saw` the accident...?
+- Honest, mom, i `saw` him.
+- I just `saw` him outside.
+                 

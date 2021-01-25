@@ -1,0 +1,107 @@
+---
+title: "pig in a sentence | pig example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pig"
+---
+- I can be a good `pig`.
+- You live like a `pig`.
+- A `pig` of a neaponitan.
+- Best we move that `pig`.
+- She thinks he's a `pig`.
+- To gut you like a `pig`.
+- What's the `pig`'s name?
+- Rudolfo, you dirty `pig`!
+- That means "crazy `pig`."
+- I'm not the `pig` you are.
+- I think it's a `pig` hair.
+- She's saying he's a `pig`.
+- How about the `pig`-lizard?
+- Meet me at the stuck `pig`.
+- My father was a true `pig`.
+- Only a `pig` would say that!
+- This year i want that `pig`.
+- Because you act like a `pig`.
+- That was `pig` latin, dingus.
+- Always - like tits on a `pig`.
+- But that place is a `pig` sty.
+- You know me: i'm a real `pig`.
+- I'm not your guinea `pig`, man.
+- Wait, the `pig` lizard is gone.
+- Give the big `pig` with the b.o.
+- Sweating like a `pig`, actually.
+- Don't you call me boy, you `pig`.
+- Can i live in the body of a `pig`?
+- `Pig` dog kinh say meet them here.
+- `Pig` woman agreed to take a test.
+- Took a `pig`-slicker to the heart.
+- You don't have to use `pig` latin!
+- You had better manners as a `pig`.
+- He'll roast like a `pig` on a spit.
+- Were you giving that `pig` signals?
+- Who are you calling a `pig`, rummy?
+- She's selling you a `pig` in a poke.
+- Really lives like a `pig` these days.
+- What do you use `pig` intestines for?
+- They got his and her `pig`-assos, son.
+- He really lives like a `pig` these days.
+- He's the one who call you a gross `pig`.
+- Only a `pig` could do a thing like that.
+- She ate a meal that would choke a `pig`!
+- But i'll tell you what to feed the `pig`.
+- Let you disgrace me, you fuckin' `pig`?
+- You crash and bleed out like a stuck `pig`.
+- That's why you should feel like a `pig`.
+- Does that not even matter to you, you `pig`?
+- Price he pays for being a scumsucking `pig`.
+- You got a retarded kid and a fat `pig` wife.
+- No... you're a `pig`... a happy-go-lucky `pig`.
+- She's a fine... uh... `pig` is what she is...
+- An earth `pig`; an ant- eating african mammal.
+- I don't think the `pig` lizard was gorignak...
+- I'm not losing my life over some greedy `pig`.
+- It's like a little `pig`'s penis or something.
+- Are you a total lying, scumsucking `pig` harry?
+- ...touch me again and i'll kill you, you `pig`.
+- I snuck out -- mapping the fucking `pig` genome.
+- This `pig` is takin' my shot -- i iz a contender.
+- Why are they still chanting for the `pig` lizard?
+- Take your filthy paws off him -you ignorant `pig`!
+- Well, what do you expect from a `pig` but a grunt.
+- At least i'm not a clouted fen- sucked hedge-`pig`.
+- Farmer loving the `pig` she leads to the slaughter.
+- _ give them a real choice, you bald american `pig`.
+- Now for security, i'll say the rest in `pig` latin.
+- So, what, you guinea `pig` sick people to find out?
+- Oh, if you weren't such a `pig`... you have no idea.
+- Sailor always liked that havana brown's `pig` pickin'.
+- The ones that found the `pig` hair in the french fries?
+- Naturally, the `pig` hates me for every tory i've saved.
+- Not bad fresh, but they don't keep worth a `pig`'s fart.
+- That puking `pig` jerses -- he won't even discuss you.
+- If the `pig` hadn't broke his leg, we could have taken him.
+- Gus gorman telling us what to do -- i'd sooner kiss a `pig`!
+- We will after bellamy lowers their defenses, my teacup `pig`.
+- Every year they get to roast the victory `pig` and we get dick.
+- They got into a terrific argument outside the `pig` 'n whistle.
+- You kind of bought yourself a `pig` in a poke, didn't you, sam?
+- When i was a little girl, we had a `pig` on the farm named jack.
+- We check it out, make sure the `pig` don't go beating on the man.
+- You're a fucking narcotics agent, that was our cocaine, you `pig`!
+- Like in episode 22 with- hey i was doing okay with the `pig` lizard.
+- Even if they don't, oh, there's a six-month waiting list to be a `pig`.
+- I don't wanna sound paranoid, or like a `pig`, but what're the chances?
+- When i get outa here i'll cut your head off and stick it on a `pig`-pole!
+- Men's room of a richfield gas station on flower, and the `pig` 'n whistle.
+- 'mm ... very nice castle, camelot ... very good `pig` country.... camelot?
+- Son, this here `pig` gotta be moved outta this pen, away from them others.
+- You were outside the `pig` 'n whistle and you had one hell of an argument.
+- What's the matter -- gonna let a little old `pig` make a coward out of you?
+- This murderous young `pig` is a prize specimen of the cowardly brutal young.
+- There's a special on the menu, today only... ... <u>roasted</u> <u>`pig`</u>.
+- Boys, show mr. valiant how we handle `pig`-headed men at the toontown station...
+- "hang a left at the first cow patty, then make a right when you see porky `pig`".
+- Sorry, ma -- but this consar-- this little `pig` -- he won't let me fix him -- jabez!
+- You know it, you can't talk for them, you're some flunky `pig` tryin' to bullshit me.
+- Why can't you call right, you bone- headed, `pig`-eared, lop-eared, pot- bellied� yes!
+                 

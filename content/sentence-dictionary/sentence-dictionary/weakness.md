@@ -1,0 +1,62 @@
+---
+title: "weakness in a sentence | weakness example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weakness"
+---
+- Indra has a `weakness`.
+- But he has a `weakness`.
+- Pride is his `weakness`.
+- So what's my `weakness`?
+- He'll know its `weakness`.
+- Everybody has a `weakness`.
+- Loyalty is your `weakness`.
+- `Weakness` is what is ugly.
+- ...if they sense `weakness`.
+- I won't tolerate `weakness`.
+- Loyalty is not a `weakness`.
+- They'll find its `weakness`.
+- I'll admit it's a `weakness`.
+- It was a moment a `weakness`!
+- I thought love was `weakness`.
+- What was your `weakness`, sir?
+- Her friends are her `weakness`.
+- Car thieves are your `weakness`.
+- I have discovered his `weakness`.
+- We can't show `weakness`, not now.
+- His `weakness` is that he knows it.
+- I guess i have a `weakness` for him.
+- Preying on you `weakness` of others.
+- You have a `weakness` for lady cops.
+- A little moment of `weakness`, right?
+- He always had a `weakness` in that area.
+- In politics, however, that is `weakness`.
+- And you chose `weakness`, people get hurt.
+- A town living in fear, love is `weakness`.
+- The difference is you exploit a `weakness`.
+- But you lost them when you showed `weakness`.
+- But i had this one terrible, fatal `weakness`.
+- Down here, `weakness` is death, fear is death.
+- I've always had a `weakness` for folk dancing.
+- That's exploiting a `weakness`, too, isn't it?
+- True, but thanks to you, we know his `weakness`.
+- Finding your `weakness` is only a matter of time.
+- He gives pleasure, but that's actually a `weakness`.
+- How dare this person take advantage of my `weakness`.
+- In all that smoke and fire, john had a moment of `weakness`.
+- Your uncle had a `weakness` for dark ones, tall and stately.
+- _ if this is your `weakness` again, then move on to training.
+- He had one <u>tiny</u>, uncharacteristic moment of `weakness`.
+- I'll admit it's formidable but everything has it's `weakness`.
+- It might give us time to search out some `weakness` in the martians.
+- I know how he likes to present himself; father's `weakness` is vanity.
+- They tell me that all the `weakness` and disorientation should pass soon.
+- Listen, casanova may be a supervillain, but he's got a `weakness`, and i'm it.
+- What you're looking for in a mark is someone who's `weakness` you can exploit.
+- Before that i served in the army but had to leave due to `weakness` of the loins.
+- I have a notorious `weakness` for hard luck cases -- that's why i work with whales.
+- It adds a taste of elegance for which i must confess a `weakness` for now and then.
+- Each of you have committed crimes against wonkru, your heart shows no sign of `weakness`.
+- I know you view that as a `weakness`, but i'm sorry -- i <u>do</u> feel fear, theirs too.
+- It has a little `weakness` for gravy, and once in a while it leans a little toward ketchup.
+                 

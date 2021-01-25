@@ -1,0 +1,107 @@
+---
+title: "spare in a sentence | spare example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spare"
+---
+- Must be a `spare` set.
+- `Spare` me the speech.
+- This the only `spare`?
+- 2.5 minutes to `spare`.
+- Got any `spare` change?
+- `Spare` me the details.
+- Can you `spare` someone?
+- I've got a `spare` room.
+- I can always `spare` you.
+- I have a `spare` bedroom.
+- We can't `spare` the men.
+- We have blood to `spare`.
+- With a full `spare` tire?
+- Everything i could `spare`.
+- How 'bout a `spare` twenty?
+- One life to `spare` us all.
+- Only if you can `spare` it.
+- `Spare` me, for god's sake.
+- There's gotta be a `spare`.
+- `Spare` me the noble speech.
+- `Spare` me the race card, oj.
+- `Spare` me the science lesson.
+- We can't `spare` the supplies.
+- Anyone we can `spare` goes out.
+- `Spare` me the diagnosis, okay?
+- We haven't got a `spare` place.
+- Good of you to `spare` the time.
+- They used to keep a `spare` key.
+- Yes, there's no time to `spare`.
+- `Spare` me the uncle tom routine.
+- You have `spare` wife here peini.
+- But let's `spare` her the details.
+- But he had a `spare` d-6, you said.
+- I had a `spare` battery in my shed.
+- Look, `spare` me the sermons, okay.
+- Oh, `spare` me, `spare` me, `spare` me!
+- `Spare` me, your hypocrisy, clarke.
+- Ah, bert, could you `spare` a moment?
+- A `spare` d-8 on the cabin floor.
+- He worked it out in his `spare` time.
+- That's something i can't `spare` you.
+- All i ask is that you `spare` my crew.
+- Could you `spare` an hour after lunch?
+- Father, have you some milk to `spare`?
+- Kin you `spare` a moment for me jabez?
+- "mister, can you `spare` us a copper?"
+- He was trying to `spare` your feelings.
+- `Spare` me your human platitudes, kirk.
+- As clarke said, we `spare` the innocent.
+- Can you `spare` some cutter, me brother?
+- Oh, `spare` us your equivocation, ryker.
+- A shot of tequila, if you can `spare` it.
+- Can you `spare` me some cutter, me brother?
+- I'm trying to `spare` you an embarrassment.
+- In his `spare` time, he loves pta meetings.
+- Out of `spare` body parts from dead g.i.'s.
+- This is what you do with your `spare` time?
+- There's a lot of `spare` time in bodega bay.
+- Well, i beg of you, please, `spare` me that.
+- You and clarke ever... 4 minutes to `spare`.
+- Your dad spent all his `spare` time in here.
+- I hope you fixed the `spare` like i asked ya.
+- If you can't `spare` the guards, all the time.
+- Oh, `spare` me the reverse psychology bullshit!
+- I've been thinking... had a lot of `spare` time.
+- I wish i could `spare` a few centuries to learn.
+- It gives me something to do with my `spare` time.
+- Third floor, `spare` bedroom, den, what have you.
+- You did miss -- `spare` me your classical answer.
+- They said send a detective if i could `spare` one.
+- Bellamy, if we can `spare` what was wrong with her?
+- If i was you, i'd `spare` myself all the hard work.
+- Maybe the d-6 was the `spare` and he had to use it.
+- On a good day i couldn't `spare` a crosswalk guard.
+- Singing on stage and painting in your `spare` time.
+- Frankly, i can't `spare` a real agent right now.
+- The `spare` is safely sitting in jerry's garage.
+- Can you... can you `spare` some cutter, me brothers?
+- I'd learn the steps and practice in my `spare` time.
+- If you fuck me on this one, i'll `spare` no expense.
+- I thought the `spare` set was in the kitchen drawer.
+- I pulled into your garage till i could get a `spare`.
+- `Spare` me mini moves, progress reports and bullshit.
+- Well we can `spare` six for security... that's right.
+- I'm having some friends over and i need a `spare` man.
+- I told you to `spare` you from what happens if you do.
+- I can see you're putting your `spare` time to good use.
+- If you weren't going for a `spare` what were you doing?
+- I will give you one hundred pounds to `spare` his life.
+- We have to `spare` this nation her trial - for treason.
+- It's an unpaid passion that you do in your `spare` time.
+- ...got a 100 on me, you... can you `spare` three hundred?
+- Tomb, shine, survey-marker `spare` part, take your choice.
+- Giving it to me will `spare` you a great deal of suffering.
+- I tried to `spare` you the pain and horror of your existence.
+- But i will `spare` the flying nun here.... you can't, convict!
+- If i could `spare` all of us the pain of fighting, no warning?
+- Morgan what else we gonna do we can't `spare` fifteen minutes?
+- Why, you chickenshit bastard -- we can't `spare` the personnel.
+- Mom, i try to `spare` you because i don't want you feeling guys.
+                 

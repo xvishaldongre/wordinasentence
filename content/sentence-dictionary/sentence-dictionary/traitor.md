@@ -1,0 +1,52 @@
+---
+title: "traitor in a sentence | traitor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "traitor"
+---
+- If he was a `traitor`.
+- Murphy, you `traitor`!
+- You are the `traitor`.
+- The man is a `traitor`!
+- I feel like a `traitor`.
+- A `traitor` to the blood.
+- Because she's a `traitor`!
+- Cillian was the `traitor`.
+- I bet you will, `traitor`.
+- Sir, arnold is a `traitor`.
+- It should be you, `traitor`!
+- Elihas starr was a `traitor`.
+- He's a `traitor` and a prime.
+- Listen, you little `traitor`.
+- You're a determined `traitor`.
+- So you're not just a `traitor`.
+- You've always been a `traitor`.
+- You're a `traitor` to your race.
+- But you're a `traitor` to our kind.
+- My people think i'm a `traitor` now.
+- I'm trying to neutralize a `traitor`.
+- A coward and a `traitor` to the blood.
+- You think we care about that `traitor`?
+- Pleading for the life of a `traitor` hi.
+- That `traitor` is the reason i told you.
+- You don't like to see a `traitor` get hurt?
+- He should've been prosecuted as a `traitor`!
+- How could i have ever loved such a `traitor`?
+- There's a `traitor` in your camp... easy, big boy.
+- Aria of electros has always been a rebel `traitor`.
+- But having a soft side hardly makes him a `traitor`.
+- She needed my blood to save the life of a `traitor`.
+- That `traitor` d'artagnan... knows about this place.
+- How much more proof that he's a `traitor` do we need?
+- Yesterday morning you called the president a `traitor`.
+- As the `traitor` who let the demon gabriel go free, look.
+- If there are 48 of us here, why did she call you a `traitor`?
+- Everything i said about you being a `traitor` and stuff... huh?
+- ♪ mommy shark, doo-doo-doo-doo-doo-doo ♪ - marge, you `traitor`!
+- I mean, i'm with you on this, conklin was a nut, but a `traitor`?
+- Finn: hey, you're the `traitor` who's been in solitary for a year.
+- Seems we have a `traitor` in our midst, commander, i have to warn her.
+- If you two wanna waste your time looking for a `traitor`, go ahead, three times.
+- You have been called by some in the community a `traitor`, a sellout, an uncle tom.
+- She's a liar, a `traitor`-- ♪ so you gotta let me know ♪ what the hell is wrong with you?
+                 

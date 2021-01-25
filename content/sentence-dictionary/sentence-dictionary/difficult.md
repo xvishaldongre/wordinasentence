@@ -1,0 +1,107 @@
+---
+title: "difficult in a sentence | difficult example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "difficult"
+---
+- It wasn't `difficult`.
+- `Difficult` ... to say.
+- It is very `difficult`.
+- It's `difficult` for me.
+- What a `difficult` woman.
+- Hebrew's very `difficult`.
+- Oh, it's very `difficult`.
+- The more `difficult` goal?
+- This is `difficult` for me.
+- How `difficult` can that be?
+- It would not be `difficult`.
+- Was that `difficult` to get?
+- What you ask is `difficult`.
+- It is a `difficult` situation.
+- It must have been `difficult`.
+- It wasn't `difficult` to spot.
+- ...very `difficult` to get in.
+- You mean it'll be `difficult`.
+- It's `difficult` for all of us.
+- Lloyd, she's being `difficult`.
+- Damned `difficult`, i'd imagine.
+- I'm sorry... was he `difficult`?
+- Like you, i find it `difficult`.
+- Oh don't be `difficult`, patrick.
+- Why are you being so `difficult`?
+- Beginnings are always `difficult`.
+- It really wasn't that `difficult`.
+- You're making my life `difficult`.
+- I know this is `difficult` for you.
+- Mm, that's got a `difficult` range.
+- Oh, `difficult`, it's so `difficult`.
+- That one is a bit more `difficult`.
+- That's `difficult` to say, general.
+- Today's been `difficult` on us all.
+- Do you find it `difficult` to adapt?
+- I know today is `difficult` for you.
+- Then four very `difficult` years.
+- That would be `difficult` to explain.
+- It's `difficult` if i... you know.
+- He has been a <u>`difficult`</u> case.
+- I imagine that'd be rather `difficult`.
+- He is a `difficult` customer, that rick.
+- I guess i make it `difficult` sometimes.
+- It's really `difficult` leave her alone!
+- Official business is `difficult` enough.
+- I understand this is `difficult`, michael.
+- Why you gotta make everything `difficult`?
+- I am finding it `difficult` to concentrate.
+- I had no idea this would be so `difficult`.
+- We're heading into a `difficult` situation.
+- He's just...kind of distant and `difficult`.
+- It must be `difficult` having lots of wives.
+- That is a very `difficult` decision to make.
+- "the naming of cats is a `difficult` matter.
+- You're putting me in a `difficult` position.
+- I'm sure it won't be `difficult` to find you.
+- Well, it's a little `difficult` to summarize.
+- That's what makes people mean and `difficult`.
+- Boys, we have to have a `difficult` discussion.
+- Fear is a very `difficult` emotion to overcome.
+- I'd like to - but it may be rather `difficult`.
+- Some choices must be made that are `difficult`.
+- Well it's not mission <i>`difficult`,</i> hunt.
+- But it is `difficult` to fill the shoes of shen.
+- But you're finding that `difficult`, aren't you?
+- An accurate number would be `difficult` to gauge.
+- Why is that so `difficult` for you to understand?
+- I suspect it's going to be a very `difficult` day.
+- It is not particularly far, but quite `difficult`.
+- People are beginning to ask `difficult` questions.
+- It's always `difficult` when someone you love dies.
+- No more than i expected not as `difficult` as this.
+- Now that's not so `difficult` to understand, is it?
+- This has been really `difficult`, this whole thing.
+- You're just making things `difficult` for yourself.
+- Ah, pleasure... that's a `difficult` word to define.
+- Negative thinking makes everything more `difficult`.
+- Do you have any idea how `difficult` that's gonna be?
+- Why does everyone want to make it `difficult` for me?
+- We know how `difficult` that can be for the swiss.
+- Armored trucks are very `difficult` to steal, anthony.
+- It's `difficult` with this falklands madness going on.
+- We have been in `difficult` places before, haven't we?
+- You have a talent for creating `difficult` situations.
+- I'm surprised the police don't make it more `difficult`.
+- I told you, the blue-eyed ones are the most `difficult`.
+- You did remarkably well under `difficult` circumstances.
+- Implementing project exodus are unimaginably `difficult`.
+- Perhaps now you realize how `difficult` we're losin' him.
+- The f-14 is one of the most `difficult` planes to master.
+- This isn't `difficult`, my agent's made dozens of copies.
+- Honey, this is `difficult`, but we've all had our moments.
+- My disguises have helped me solve many a `difficult` case.
+- A `difficult` proposition... `difficult` proposition at best.
+- I know it's `difficult` to accept, we've done all we could.
+- It's direct, anyway, which seems to be `difficult` for you.
+- It discusses kay as well; that will be the most `difficult`.
+- Miss daniels, they're so `difficult` to get, really they are.
+- This is more `difficult`- did it look like this in your mind?
+- Sir, i know it's `difficult` but try and have a good time.
+                 

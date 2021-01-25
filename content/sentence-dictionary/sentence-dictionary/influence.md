@@ -1,0 +1,53 @@
+---
+title: "influence in a sentence | influence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "influence"
+---
+- His wife's `influence`.
+- She's a bad `influence`.
+- She's the bad `influence`.
+- I'm just a bad `influence`.
+- Pablo used his `influence`.
+- Says i'm a bad `influence`.
+- Use your `influence` with paul.
+- She could... `influence` dolly...
+- It's the `influence` of television.
+- I fear the `influence` he has on her.
+- I've no `influence` with mr. holland.
+- But pike's `influence` is strong, how?
+- It would unfairly `influence` the jury.
+- You need a sponsor; i have `influence`.
+- A titanic figure of limitless `influence`.
+- Political `influence` and legal protection.
+- Yitzchak, they told me you had `influence`.
+- You can `influence` how this thing unfolds.
+- But pike's `influence` is strong, so beautiful.
+- I have quite a bit of `influence` in personnel.
+- It's the `influence` of all those family films.
+- You sly rogue, i see that will `influence` you.
+- How could rose really be a bad `influence` on dolly?
+- In fact i'd rather not try to `influence` you at all.
+- I'm used to working under the `influence` of the toxin.
+- Try it -- you may have more `influence` than you think.
+- Of all the runes, thorn had the most negative `influence`.
+- Could the mob `influence` the national media to go to sleep?
+- Any and all canadian `influence` must be stopped at all cost!
+- I have no `influence` in cases of inter-planetary conspiracy.
+- He was such an `influence` on the development of my instrument.
+- He's just got some kind of `influence` over her i can't decipher.
+- I can't let my personal feelings unduly `influence` my decisions.
+- You will not `influence` the sisters with your colorful street talk.
+- Those guys i worked with back in boston, they were a bad `influence`.
+- Maliciously destroyin' municipal property while under the `influence`.
+- Well, why don't you use your divine `influence` and get us out of this?
+- I view with alarm, sir, the `influence` over you of this bolshevik lady.
+- The militia will not come here, they know you are a hutu with `influence`.
+- With your ability to `influence` people, it might grow into a glorious movement.
+- If he were in the midst of making love while under the `influence` of cocaine?
+- Put a romulan agent at the heart of starfleet to.`influence` your command structure.
+- He had a major `influence` on the new left in the late '60s... and on me, personally.
+- I'm talking about money and `influence` and evil beyond your capacity to imagine hell.
+- That's the `influence` of the right food, the right exercise, and the right breathing.
+- Yes, well, miss ratched feels that you're a disturbing `influence` on the other patients.
+                 

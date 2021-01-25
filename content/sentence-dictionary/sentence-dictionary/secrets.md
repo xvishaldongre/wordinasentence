@@ -1,0 +1,88 @@
+---
+title: "secrets in a sentence | secrets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "secrets"
+---
+- One of your `secrets`.
+- Tell you my `secrets`.
+- It knows our `secrets`.
+- No more `secrets`, okay?
+- No `secrets`, goddammit!
+- Trade fucking `secrets`.
+- You have a lot of `secrets`.
+- Government `secrets`, perhaps.
+- There's no `secrets` here, al.
+- Did you keep `secrets` from el?
+- Lots of dirty little `secrets`.
+- Your `secrets`, your fantasies?
+- I don't have any more `secrets`.
+- Unlock the `secrets` of his dna.
+- We know all the family `secrets`.
+- You don't have `secrets` from me.
+- What happened to family `secrets`?
+- I have no `secrets` from my family.
+- Do you have any deep dark `secrets`?
+- From me the doctor has no `secrets`.
+- Just one of norman's many `secrets`.
+- 'the deepest, darkest `secrets` --'?
+- There are no `secrets` in this casino.
+- We have no `secrets` from our readers.
+- By the `secrets` it hides, from within.
+- We already know each other's `secrets`.
+- You're not the only one with `secrets`.
+- We know the `secrets` of the fire swamp.
+- You never kept any `secrets` from me?
+- Because i don't give up all my `secrets`?
+- He shouldn't be telling `secrets` in bed.
+- ♪ rhymes that keep their `secrets` ♪ stop!
+- But i'm not very good at keeping `secrets`.
+- ♪ tonight my `secrets` are revealed ♪ look.
+- Who knows the `secrets` of the human heart.
+- Whose queen believed she knew my `secrets`.
+- Joe and i have no `secrets` from each other.
+- John's a feller who likes to keep `secrets`.
+- Whatever `secrets` they hold have been lost.
+- You're both full of `secrets` like macavity.
+- By the `secrets` it hides, i think it's done.
+- I thought you didn't do adolescent `secrets`.
+- The best-hidden `secrets` are in plain sight.
+- By the `secrets` it hides, he's so hot, right?
+- Anyway, there's no `secrets` between me and jim.
+- The deepest `secrets`, the forbidden formulas...
+- A partner with `secrets` isn't much of a partner.
+- Everyone has `secrets`, it's what makes us human.
+- We're not talking about military `secrets`, john.
+- You're new here, and will soon learn many `secrets`.
+- Are we keeping `secrets` from each other, little lad?
+- You have your extracurricular `secrets`, i have mine.
+- Now ladies, the `secrets` to a great pie is the crust.
+- Sleep with me and the `secrets` of the west are yours.
+- Do you want personal insights and adolescent `secrets`?
+- He's protecting more than industrial `secrets`, alfred.
+- I mean the deeper, darkest `secrets` -- they don't matter.
+- I've always wanted a disciple worthy of wudan's `secrets`.
+- Soon, all the electrical `secrets` of heaven shall be mine.
+- Tell me some more of the `secrets` you and christian shared.
+- This is the only person who knows the `secrets` of the power.
+- J.j., steve isn't... susie likes to keep her girlish `secrets`.
+- ♪ rhymes that keep their `secrets` will ♪ i'm right behind you.
+- Then the man said: "i long to know the `secrets` of the earth."
+- Apparently they thought i was looking for `secrets` of some kind.
+- We've gotta have somebody who knows how to get `secrets` from men.
+- No, you draw no `secrets` from me, as you drew them from jacqueline.
+- `Secrets` are a virtual prerequisite in this house, don't you think?
+- The quiet riot and me are swapping trade `secrets` ... how's it going?
+- People always keep their `secrets` in their attics or in their basements.
+- Lil' cagey, y'know, don't like t'share trade `secrets`, that type'a thing.
+- By the earth, by the `secrets` it hides, you're the reason they need saving.
+- By the earth, by the `secrets` it hides, it can't pinpoint the exact location.
+- It was the klingons who had first blood while trying to possess its `secrets`.
+- If you can't share your `secrets` with your friends, what kind of friend are you?
+- The only explanation for the royal treatment is he did give them radar `secrets`.
+- Not by treating symptoms, but by diving nature's most jealously-guarded `secrets`.
+- This is a man whose `secrets` cause us to change our radar patterns in the pacific!
+- He said, "tell my little girl pearl there's to be no `secrets` between her and you."
+- When that ship comes back, by the earth, by the `secrets` it hides, i'm not going in.
+- Gentle stuff like talking, sharing thoughts and ideas, `secrets` and past experiences.
+                 

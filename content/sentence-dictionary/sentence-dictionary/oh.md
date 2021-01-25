@@ -1,0 +1,107 @@
+---
+title: "oh in a sentence | oh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "oh"
+---
+- But it's 'ok'... `oh`.
+- But `oh`, no, not you.
+- [crying] `oh`, my god.
+- Gabriel, `oh`, my god.
+- [glass shatters] `oh`!
+- I'll just... `oh`, my!
+- Mama... `oh` bullshit.
+- [metal clatters] `oh`.
+- `Oh`, actually it was.
+- `Oh`...and who is it!?
+- `Oh`, before i forget.
+- `Oh`, black and white?
+- `Oh` boy, am i pissed.
+- `Oh` boy, i'd love it.
+- `Oh`, captain's chair.
+- `Oh`, charlie's sweet.
+- `Oh`, come, man, come.
+- `Oh`, come on benny...
+- `Oh`, come on, george.
+- `Oh`... come on, guys.
+- `Oh` come on, kathryn.
+- `Oh`, come on, murphy.
+- `Oh`, come on, rachel.
+- `Oh`, come on, tootso.
+- `Oh`, crabby guy, huh?
+- `Oh`, daddy ate yours.
+- `Oh` dewey, i'm sorry.
+- `Oh`, don't be stupid.
+- `Oh`, don't go, selma.
+- `Oh`, don't you worry.
+- `Oh`, dream of dreams!
+- `Oh`, for god's sakes!
+- `Oh`, get out of here!
+- `Oh`, give me a break!
+- `Oh`, give me a break.
+- `Oh` god, he's got it!
+- `Oh`, god, he's slimy!
+- `Oh`, god... hey, sid.
+- `Oh`, god, i mistimed.
+- `Oh` god, i <u>am</u>!
+- `Oh` -- goodbye, lion.
+- `Oh`, gosh, i'm sorry.
+- `Oh`, grazie, signore!
+- `Oh` great, i ran out.
+- `Oh`, he ain't nobody.
+- `Oh`, hell, forget it.
+- `Oh`, he said rim job.
+- `Oh`, he's a sick man.
+- `Oh`, he's in austria.
+- `Oh`, he's sitting up.
+- `Oh`, how do you mean?
+- `Oh`, i can't do that.
+- `Oh` i don't think so.
+- `Oh`, i got over that.
+- `Oh`, i have no doubt.
+- `Oh`, i hope so, dear.
+- `Oh` i like her a lot.
+- `Oh`... "i love you...
+- `Oh` -- i'm all right.
+- `Oh`, i'm awful tired.
+- `Oh`, i'm not married.
+- `Oh`, i'm sorry, trip.
+- `Oh`, i think he will.
+- `Oh`, it's not so bad.
+- `Oh`, it's okay, then.
+- `Oh`, it's on my list.
+- `Oh`, it totally does.
+- `Oh`, i've got plenty.
+- `Oh`, i want this one.
+- `Oh`, jesus h. christ!
+- `Oh`, jesus, jesus....
+- `Oh`, jesus, please...
+- `Oh` jesus, stoner!...
+- `Oh`, look at you two.
+- `Oh` man, i gotta pee.
+- `Oh`, most definitely.
+- `Oh` my god, it's you!
+- `Oh` my god, jake, no.
+- `Oh` my god, you guys!
+- `Oh` my lady, my love!
+- `Oh`, my poor stomach.
+- `Oh`, no bacon for me.
+- `Oh` no, i dropped it.
+- `Oh`, nothing's wrong.
+- `Oh`, okay, i'm sorry.
+- `Oh`, one other thing.
+- `Oh`, pity feels good.
+- `Oh`, praise the lord.
+- `Oh`, screw that, man.
+- `Oh` shit, superlifer!
+- `Oh` shit, we're late.
+- `Oh`, stupid question.
+- `Oh` sure ... you bet.
+- `Oh`, sweet decadance.
+- `Oh`, that is so cool.
+- `Oh`, that'll be nice.
+- `Oh`, that's a phoney.
+- `Oh`, that's a relief.
+- `Oh` that's just fine.
+- `Oh`, that's not good.
+                 

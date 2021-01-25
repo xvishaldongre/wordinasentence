@@ -1,0 +1,107 @@
+---
+title: "ma in a sentence | ma example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ma"
+---
+- Get a firm grip, `ma`!
+- Good to see you, `ma`.
+- Hey, `ma`, look at me!
+- I can't he'p it, `ma`.
+- I can't read, `ma`'am.
+- I'd a found you, `ma`.
+- I don't know, `ma`'am.
+- `Ma`'am... - i'm fine.
+- Nee chin lie how `ma`?
+- No harm done, `ma`'am.
+- No, `ma`'am, we can't.
+- That's my `ma` and pa.
+- Twenty years, `ma` ...
+- Uh, question, `ma`'am.
+- Yes `ma`'am, i reckon.
+- Yes, sir -- `ma`'am...
+- [gasping] yes, `ma`'am.
+- Here's the woman, `ma`.
+- How do you do, `ma`'am.
+- How you and `ma` doing?
+- I believe not, `ma`'am.
+- I'd like to stay, `ma`.
+- I know you would, `ma`.
+- It's mr brown, `ma`'am.
+- La plume de `ma` tante.
+- Less than 50%, `ma`'am.
+- `Ma`'am, i just said...
+- Stop that `ma`'am crap!
+- Top of the world, `ma`!
+- Yes, `ma`'am, at first.
+- You're marvelous, `ma`.
+- All right, love ya `ma`.
+- Boy, you're funny, `ma`.
+- Can't complain, `ma`'am.
+- Federal agents, `ma`'am.
+- Gotta go now, `ma`'am...
+- I'm very sorry, `ma`'am.
+- She's twenty-nine, `ma`.
+- Your limo's ready, `ma`.
+- I am very sorry, `ma`'am.
+- I have a letter, `ma`'am.
+- I'll work on it, `ma`'am.
+- No, that's okay, `ma`'am.
+- Ophhem `ma` fuchem gaphe!
+- That was a good one `ma`.
+- Anything you say, `ma`'am.
+- How'd you come home, `ma`?
+- It's a fine spot, `ma`'am.
+- Jus' cleanin' up, `ma`'am.
+- `Ma`'am, i'm sure she was.
+- `Ma`'am the vacant office.
+- Nice to meet you, `ma`'am.
+- No `ma`'am, not this time.
+- Now don't get sassy, `ma`.
+- Well... uh... yes `ma`'am.
+- I'm not heartless, `ma`'am.
+- `Ma` didn't want it around.
+- My hands are tied, `ma`'am.
+- No, `ma`'am, i'm just fine.
+- Oh, she's coming, eh, `ma`?
+- Porter: thank you, `ma`'am.
+- Here's your ticket, `ma`'am.
+- I know who you are, `ma`'am.
+- It's been a long time, `ma`.
+- J'ai gache `ma` vie... woah.
+- `Ma`'am, i need you to sign!
+- `Ma`'am, ray dunbar's black.
+- Pardon my language, `ma`'am.
+- Poo -- tmmm anngh `ma` ritz!
+- What do you want here, `ma`?
+- Do you really think, `ma`....
+- If you'll excuse me, `ma`'am.
+- Look, `ma`, top of the world!
+- `Ma`... she's in the kitchen.
+- No need to thank me, `ma`'am.
+- Okay, `ma`'am, just a moment.
+- Pleased to meet you, `ma`'am.
+- She's gettin' prettier, `ma`.
+- What's he fixin' to do, `ma`?
+- Yeah, `ma`, i love him awful.
+- You asked to see me, `ma`'am?
+- Your husband is ill, `ma`'am.
+- Excellent, `ma`'am, excellent.
+- He has typhoid fever, `ma`'am.
+- Hm-mm... hm-mm... no, `ma`'am.
+- It's seeing-eye dogs, `ma`'am.
+- `Ma`'am, can i see your badge?
+- Since i can remember, `ma`'am.
+- Sure, `ma`, it's okay with me.
+- They was some cops here, `ma`.
+- Hello, `ma`, what's the matter?
+- I don't wanta rob you, `ma`'am.
+- `Ma`, do you know where ray is?
+- Uh, `ma`'am... - take them off!
+- Yes, `ma` -- i'm ready -- mary!
+- But it ain't runnin' away, `ma`.
+- His head--`ma`'ll take the tail.
+- I believe he is unwell, `ma`'am.
+- I'm coming home right now, `ma`.
+- `Ma`'s shore gonna like it here.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ran in a sentence | ran example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ran"
+---
+- I `ran` out of bribes.
+- It `ran` out of blood.
+- Oh great, i `ran` out.
+- `Ran` away a year ago.
+- They hit me and `ran`.
+- So they `ran` our list.
+- Till the gas `ran` out.
+- Percodan, she `ran` out.
+- She `ran` off to mexico.
+- Bravely `ran` away, away.
+- Finally `ran` out of air.
+- So i `ran`...and met you.
+- He `ran` in fear from us .
+- The loser `ran` off alone.
+- Because you `ran` after me.
+- Brave sir robin `ran` away.
+- He was hurt and `ran` away.
+- I `ran` away from you once.
+- I `ran` into complications.
+- Is that why you `ran` away?
+- Maybe he `ran` out of ammo.
+- `Ran` into a tank and died.
+- `Ran` out of juice waiting.
+- We `ran` it in every paper.
+- Why do you think she `ran`?
+- You `ran` guns to ethiopia.
+- You `ran` right through it.
+- I `ran` into her last night.
+- `Ran` out of juice, waiting.
+- He just `ran` out of bullets.
+- I `ran` the white house side.
+- Your meter just `ran` out.
+- Before i could do it he `ran`.
+- I just assumed she `ran` away.
+- I though you `ran` this joint.
+- Then i `ran` out of the house.
+- My sister `ran` away from home.
+- Seems she `ran` away after all.
+- Sidney, you `ran` fast or what?
+- The mouse `ran` down the drain.
+- We `ran` a search on relatives.
+- You `ran` to her, on the beach.
+- About the business childs `ran`?
+- I `ran` into some people i knew.
+- `Ran` his ass right out of town.
+- He said you `ran` away from home.
+- He was limping when he `ran` off.
+- I - `ran` away... why so briefly?
+- Just `ran` into a little trouble.
+- This was the cia that `ran` this?
+- We `ran` a trajectory simulation.
+- He `ran` out on me to be with you?
+- I just `ran` into her by accident.
+- I `ran` the prints from the house.
+- My father `ran` into him off duty.
+- They `ran` his name and got a hit.
+- Did you see the ad we `ran` sunday?
+- From now on, that's why they `ran`.
+- He just `ran` out into the streets.
+- I don't think that's why she `ran`.
+- In 1935 you `ran` guns to ethiopia.
+- I packed up my shit and `ran` away.
+- I `ran`, sickened at what i'd done.
+- Nix `ran` some kind of cult, right?
+- The cops think that she `ran` away.
+- You `ran` eight miles today, puppy.
+- I `ran` and `ran`, but he kept coming.
+- I `ran` him through bci...got a hit.
+- I `ran` out and bought flea collars.
+- I think it's lucky i `ran` into you.
+- Sir, i `ran` the 220 in high school.
+- Someone just `ran` out of that cave.
+- Tall her he `ran` away with a broad.
+- They just about `ran` smack into me.
+- We `ran` down that church hill info.
+- It's not rachel's fault i `ran` away.
+- Oh, my love you `ran` from me before.
+- They `ran` shit back in the eighties.
+- Well, i'll tell her i `ran` into you.
+- I `ran` away, as fast as i could...
+- Well, i `ran` right back to my parents.
+- You `ran` away because you were afraid.
+- Your dna `ran` he'll never go for that.
+- - one morning i just - `ran` away...
+- Developer `ran` out of money years back.
+- He `ran` a great risk, helping us today.
+- My only solution `ran` out of batteries.
+- Then you `ran` out of the photo session.
+- I struggled and finally `ran` out of air.
+- It happened a month after she `ran` away.
+- Just `ran` into two of your "geologists."
+- Or `ran` from one they didn't believe in.
+- `Ran` into the new college student, rona.
+- Did you see how fast he `ran` out of here?
+- He collapsed after he `ran` out of oxygen.
+- He collapsed after we `ran` out of oxygen.
+- `Ran` into a little reaper trouble myself.
+- We `ran` up against a platoon of soldiers.
+- Because our government funding "`ran` out."
+- Oh, mac `ran` up this little crowd-pleaser.
+                 

@@ -1,0 +1,63 @@
+---
+title: "goddamned in a sentence | goddamned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "goddamned"
+---
+- No `goddamned` phones.
+- That `goddamned` woman.
+- The `goddamned` bastards.
+- Well i'll be `goddamned`!
+- A `goddamned` t-rex, or what?
+- It's these `goddamned` shoes.
+- You're `goddamned` right i am.
+- `Goddamned` small town bullshit.
+- I don't have a `goddamned` idea.
+- You're too `goddamned` paranoid.
+- Don't act so `goddamned` innocent!
+- I tagged the `goddamned` stocking.
+- <u>gimme the `goddamned` keys</u>!
+- Good, now get your `goddamned` gear.
+- I cannot tell you a `goddamned` lie.
+- One of those `goddamned` car alarms.
+- Well, i'll be `goddamned`, i knew it.
+- Are you out of your `goddamned` mind?!
+- Look at that `goddamned` refrigerator.
+- It's all the `goddamned` money, ed tom.
+- It's just `goddamned` beyond everything.
+- They wouldn't hire a `goddamned` lawyer.
+- `Goddamned` ryan, fuck the little bastard.
+- I saw that `goddamned` movie twenty times.
+- Okay, so she's a very old `goddamned` liar.
+- You're `goddamned` right, i give the order.
+- Not there, you `goddamned` idiot, over there!
+- I don't want to join your `goddamned` union.
+- Whatever it is it must be `goddamned` priceless.
+- Smart, yeah, and seriously `goddamned` dangerous.
+- I don't even have insurance on my `goddamned` car.
+- She sacrificed her life for that `goddamned` stone.
+- We're practically `goddamned` royalty, ragazzo mio!!
+- What the `goddamned` hell do you think you are doing!?
+- You'll grieve the way i tell you to `goddamned` grieve.
+- It's a `goddamned` mystery to me just like it is to you.
+- It's not like he's some `goddamned` air traffic controller!
+- I only got twenty- five bucks for the whole `goddamned` thing.
+- You don't owe me a `goddamned` thing, vincent, and you know it.
+- Those flat-faced little fuckers with those ugly `goddamned` teeth?
+- If i knew what's right or wrong i'd be a `goddamned` priest, right?
+- I can hear it now, it's gonna be the `goddamned` 'phone book killer'.
+- The more things change, the more they `goddamned` well stay the same.
+- I think he's the best officer in the whole `goddamned` army, bar none.
+- The `goddamned` missile crisis united the whole country behind kennedy.
+- Do that and before you know it you'll be as happy as a `goddamned` clam.
+- Isn't she the sweetest `goddamned` girl you ever saw in your whole life?
+- Fuck private james ryan, fuck him, just fuck the `goddamned` son-of-a- bitch.
+- Organize every plane you can find and get some `goddamned` pilots to fly them.
+- While i find that fascinating, data, we really need that `goddamned` door open!
+- You're half human, haven't you got any `goddamned` feelings about <u>that</u>!!
+- It's me or nobody, and i've been on this job too `goddamned` long not to finish.
+- Your `goddamned` friend, he thinks the only reason i'm with you is for the money.
+- Besides, there's half a forest between us and them, they can't see a `goddamned` thing.
+- Cost a nice penny, too, especially that `goddamned` phone: gregor had expensive tastes.
+- Mr. jameson-- bunch of kids at your `goddamned` college say their appliances attacked them.
+                 

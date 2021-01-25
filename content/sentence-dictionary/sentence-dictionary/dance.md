@@ -1,0 +1,107 @@
+---
+title: "dance in a sentence | dance example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dance"
+---
+- That was some `dance`.
+- To ask her to `dance`.
+- You learn to `dance`??
+- Do you want to `dance`?
+- I have victory `dance`.
+- Let's have our `dance`.
+- You `dance` splendidly.
+- Behind the `dance` hall.
+- Did he `dance` with you?
+- Do people still `dance`?
+- Do you sing and `dance`?
+- It's the senior `dance`.
+- May i have this `dance`?
+- Could be a new `dance`...
+- Dine and `dance` tonight?
+- Her `dance` is of skulls.
+- I'm going to the `dance`.
+- Kimberly, it's a `dance`.
+- Who did you `dance` with?
+- Can whoopi sing or `dance`?
+- Don't `dance` me, kirkhill.
+- Go ahead, `dance` with her.
+- Her `dance` has pleased me.
+- I'll take that `dance` now.
+- I'm a song-and-`dance` man.
+- Like a... `dance` of light.
+- `Dance` club called "fever."
+- Dare i ask for this `dance`?
+- I killed a guy at a `dance`.
+- I'm always ready to `dance`.
+- I think i'd like to `dance`.
+- Learn to `dance`, my puppet.
+- Strictly dinner and `dance`.
+- This isn't just any `dance`.
+- You kids off to the `dance`?
+- Don't do a `dance` with me...
+- ♪ do you do more than `dance`?
+- Do you remember lil's `dance`?
+- May i have this `dance`, miss?
+- So tell me about this `dance`.
+- And we'll `dance` on his grave.
+- "`dance` music for old people?"
+- I'm going to be at the `dance`.
+- Just dinner and `dance`, right?
+- Valentino used to `dance` here.
+- I mean, do people still `dance`?
+- I'm going to the senior `dance`.
+- The graduation `dance` mr. hand.
+- We�re late for a `dance` lesson.
+- 'cause you can't sing or `dance`?
+- Everyone is going to the `dance`.
+- Folks can `dance` when they want.
+- Maybe he doesn't like to `dance`.
+- A `dance` instructor, a governess.
+- But i'm going to `dance` with you.
+- Kimberly, it's the senior `dance`.
+- `Dance` like a psychotic pinocchio.
+- Here's that shall make you `dance`!
+- I bought it for the square `dance`.
+- I thought maybe we could `dance`...
+- I�ll save the last `dance` for you.
+- You don't `dance`, you don't climb!
+- You in a `dance` hall or somethin'?
+- But the `dance` is in the gymnasium.
+- Come along, `dance` with kringelein.
+- Doesn't it make you want to `dance`?
+- Forget the door and `dance` with me.
+- Girl, do you still sing and `dance`?
+- Second word... sound like '`dance`'.
+- That's a kind of a big `dance` hall.
+- This was my very first slow `dance`.
+- You `dance` so beautifully together.
+- Go `dance` with your mother, jeffrey!
+- Then afterwards, they have a `dance`.
+- Hugh crain, would you care to `dance`?
+- I came up to `dance`, wadda you think?
+- I don't trust a man who don't `dance`.
+- This is a `dance` at figaro's wedding.
+- You want to `dance` with someone else?
+- You want to `dance` with someone else?
+- Ma... ma, i--i can't go to the `dance`.
+- Nobody's asked me to the `dance`...yet.
+- The unity day masquerade `dance` - hey.
+- You can spoil a perfectly nice `dance`.
+- God, that walter getz can still `dance`.
+- He's supposed to ask you to the `dance`!
+- Where'd you learn to `dance` like that?!
+- You're a warrior to be sure, to `dance`.
+- Come and `dance` with me, mr. kringelein.
+- I just sat a <u>`dance`</u> out with him.
+- I want to be a dancer, i want to `dance`.
+- Now salsa, you know how to `dance` salsa?
+- We'll `dance` around it like wild lnjuns.
+- Why should everyone `dance` the same way?
+- Would you like to `dance` with me, susan?
+- You learned to `dance` at church socials.
+- You've never been to a `dance`, have you?
+- All right, get up on that bar and `dance`.
+- Day after day, year after year... `dance`?
+- Do you mind if i `dance` over your corpse?
+                 

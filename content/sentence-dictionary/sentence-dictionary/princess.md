@@ -1,0 +1,107 @@
+---
+title: "princess in a sentence | princess example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "princess"
+---
+- Forget it, `princess`.
+- Of course, `princess`.
+- Hey, martin `princess`.
+- The `princess` is dead.
+- As you wish, `princess`.
+- I know of no `princess`.
+- You're good, `princess`.
+- Am i saving a `princess`?
+- I feel like a `princess`.
+- New about the `princess`?
+- Aw, hey there, `princess`!
+- I was with the `princess`.
+- ... the `princess` lili...
+- To capture the `princess`.
+- What about the `princess`?
+- The `princess` is here?
+- My `princess` must be safe.
+- This is on you, `princess`.
+- Until tomorrow, `princess`.
+- Do i look like a `princess`?
+- Oh, i'm... the `princess`...
+- You go after the `princess`.
+- Greetings, `princess` dyanna.
+- I am the `princess` of wales.
+- Is she fair, this `princess`?
+- Looking to you, `princess`.
+- Now, bring me the `princess`.
+- Reception for a *`princess`*!
+- Tis not fit for a `princess`.
+- Any orders for me, `princess`?
+- One is like a tall `princess`.
+- We know, don't we, `princess`?
+- What became of the `princess`?
+- No, she's an actual `princess`.
+- Our `princess` has that effect.
+- `Princess` siddmartha, hmm, no.
+- You, `princess` di and madonna?
+- ♪ heard your `princess` was hot!
+- `Princess` dyanna of alton four.
+- You're a `princess`, aren't you?
+- The baby here's a `princess`?
+- Are a handmaid to the `princess`.
+- Grounder `princess` looks pissed.
+- You're my `princess`, aren't you?
+- So where are we going, `princess`?
+- But `princess` margaret was a doll.
+- Do you accept `princess` jasmine...
+- Goffredo is the `princess`' nephew.
+- `Princess` lili, godwin's daughter.
+- Where is `princess` fire-and-music?
+- Why, `princess`, this is so sudden.
+- Yeah... having fun yet, `princess`?
+- Rich enough to impress a `princess`.
+- _ is going to fall, brave `princess`.
+- Will...will `princess` bala be there?
+- Your masseuse awaits you, `princess`.
+- Been eatin' like a `princess` all week.
+- Oh, `princess` leia, are you all right?
+- So, what's the problem now, `princess`?
+- Sybok's mother was a vulcan `princess`.
+- The `princess` has very specific needs.
+- The `princess` in love with a holy man.
+- Wealthy enough to impress a `princess`.
+- Wearing your jewels to bed, `princess`?
+- Lived the spoiled `princess` siddmartha.
+- The `princess` bride, by s. morgenstern.
+- Upon you depends this `princess`'s life.
+- A-are you saying that was the `princess`?
+- I'm minnesota's american teen `princess`!
+- I thought a `princess` could go anywhere?
+- Of aladdin, the `princess`, and the lamp.
+- She's a `princess` and you're a commoner.
+- The `princess` louisa is too ill to move.
+- Your command is my wish, `princess` lili.
+- I don't wanna keep the `princess` waiting.
+- Of course -- i'm the `princess`, aren't i?
+- Roasted `princess` with paprika and gravy!
+- She is only the <u>`princess`</u> of cool.
+- This is my niece, the `princess` elizabeth.
+- "the `princess` not affiliated with disney."
+- But you can't hid from me, little `princess`.
+- They're below, waiting for the `princess` ...
+- Your `princess` is really a winning creature.
+- Jonathan and the `princess` skipped yesterday.
+- That is not american teen `princess` language!
+- I don't have a memory and i'm not a `princess`!
+- You should tell the `princess` to get out more.
+- But until then, `princess` daphne is still mine.
+- I think we've heard enough from you, `princess`.
+- Listen, "`princess`", you can't order me around.
+- So, `princess`, have you ever danced with a hero?
+- The `princess` doesn't like me--but i don't care!
+- <u>she</u> will phone the `princess` de costa.
+- Murphy: you want to build a society, `princess`?
+- Well, i think the `princess` is dead… i'm sorry.
+- He could actually do musical harm to the `princess`!
+- Just because you become a `princess`, doesn't mean...
+- Sweet `princess`, you begin to sound most reasonable.
+- Every russian family has one.. you are the `princess`.
+- I'll do what i have to do, for `princess` lili's sake!
+                 

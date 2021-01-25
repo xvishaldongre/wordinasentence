@@ -1,0 +1,107 @@
+---
+title: "week in a sentence | week example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "week"
+---
+- A `week` ago, at most.
+- A `week` from tonight.
+- Did as of last `week`.
+- 'freak at the `week`.'
+- I don't have a `week`.
+- I start monday `week`.
+- I travel every `week`.
+- It won't run a `week`!
+- Next `week`'s episode.
+- One `week` from today.
+- Same time next `week`?
+- That one, last `week`.
+- When's that, a `week`?
+- You're a `week` early.
+- At least once a `week`.
+- Cost me a `week`'s pay.
+- I resigned last `week`!
+- It was the last `week`.
+- A day, a `week` -- when?
+- Better make it a `week`.
+- Earlier this `week`, dr.
+- Every `week` -- oh, god!
+- How much for the `week`?
+- I asked you last `week`.
+- I'm here for the `week`.
+- I prepared for a `week`.
+- It's been over a `week`.
+- It's only been a `week`.
+- No, he left last `week`.
+- One `week` at the most!?
+- That was my best `week`.
+- They been gone a `week`!
+- This is him last `week`.
+- Christmas is next `week`.
+- Here's to a great `week`.
+- I'll have it in a `week`.
+- Isn't it due next `week`?
+- I... "the `week` is long.
+- Less than a `week` to go.
+- Next `week` "east lynne."
+- Not counting this `week`.
+- One `week` to graduation.
+- See you in a `week`, roy.
+- You got salt last `week`.
+- A whole `week` in bermuda.
+- God... that's in a `week`!
+- I'm moving in next `week`.
+- I was in bed for a `week`!
+- Last `week` it was dakota.
+- Last `week` would this be?
+- No, no, no... next `week`.
+- Remember the first `week`?
+- This could be last `week`.
+- This is npr pledge `week`.
+- We'll split up the `week`.
+- We're here for the `week`.
+- What do you make a `week`?
+- Wow, first `week` of camp.
+- You been lucky all `week`.
+- The `week` before that?
+- Another `week` almost made.
+- A whole `week` in new york.
+- Has it been a whole `week`?
+- How much you make a `week`?
+- I have to go once a `week`.
+- I'll be eighty next `week`.
+- I spoke to her last `week`.
+- I will see you in a `week`.
+- Last `week`, my door broke.
+- Maybe three times a `week`.
+- Say it see you next `week`!
+- Seventy-two hours a `week`.
+- That expires in one `week`.
+- They busted me last `week`.
+- They bust you every `week`.
+- They were here last `week`.
+- Well, it's old home `week`.
+- After i saw you last `week`.
+- Found her bones last `week`.
+- He'll be back in a `week`...
+- I can come down next `week`.
+- I get five hundred a `week`.
+- I had nightmares all `week`.
+- It's for last `week`'s game.
+- I won't be here next `week`.
+- Next `week` on the simpsons.
+- Not next `week` or any `week`.
+- "the fifth one this `week`"!
+- They'll be back in a `week`.
+- This `week` is not about me.
+- Two or three times a `week`.
+- `Week` after i'm twenty-one.
+- You can start monday `week`.
+- A few hours a `week`, anyway.
+- But just try it for a `week`.
+- Except for a letter a `week`.
+- I'd say three times a `week`.
+- I'll do four shows a `week`."
+- I thought it was next `week`.
+- It's my birthday this `week`.
+                 

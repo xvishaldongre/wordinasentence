@@ -1,0 +1,80 @@
+---
+title: "spy in a sentence | spy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spy"
+---
+- The `spy` understands.
+- With `spy` satellites.
+- Yeah, i `spy` or i die.
+- You're a goddamn `spy`.
+- With some `spy` reports.
+- You're like a `spy` now.
+- Like a good azgeda `spy`.
+- It's very wicked to `spy`.
+- You're a fucking `spy`.
+- A `spy` inside their walls.
+- Hey, let's go `spy` on them.
+- Sure, we gotta have a `spy`.
+- The `spy` found us a way in?
+- Let's suppose you were a `spy`.
+- Like a super secret `spy` code.
+- What if he really is a `spy`?
+- As a `spy`, you should know that.
+- After you made eleven `spy` on us?
+- Certainly not `spy` on my husband.
+- He could be a `spy`, or something.
+- I'm no `spy` -- where do i fit in?
+- We have a `spy` inside their walls.
+- You want us to `spy` on our people?
+- You said you couldn't trust a `spy`.
+- I `spy` a bankrupt sears and roebuck.
+- She was a `spy` against the russians.
+- So what would you do about it, `spy`?
+- But their `spy`'s gonna be our `spy` too.
+- Oh, are you a `spy` for the other side?
+- The honorless `spy` - give me the code.
+- I heard the british hung him as a `spy`.
+- My `spy` network has heard no such news.
+- Think i'm a `spy` in a sailor's uniform?
+- By the way, are you sure we need a `spy`?
+- Then people bought it that he was a `spy`.
+- This piece of filth is a sangedakru `spy`.
+- You think i'm ronnie's `spy` or somethin'?
+- ♪ giddyap, let's go ♪ the `spy` did her job?
+- All you wanted to do was `spy` in our country!
+- Did your wife send you up here to `spy` on me?
+- _ - i guess girlfriends don't lie, they `spy`.
+- Let's go in the kitchen and `spy` on everyone.
+- A `spy` must carry out orders without question.
+- This feels like something out of a `spy` novel.
+- Christ, bill, she's not a `spy`, she's a hooker.
+- It is not my practice to `spy` on the president.
+- In america, this man is actually a russian `spy`.
+- The `spy` stabbed her boyfriend's sister yes, i have.
+- They use that band for the aquacade `spy`-sat uplinks.
+- It's me, artie ziff, i `spy` a closed-down toys "r" us.
+- Dude, you are the worst `spy` in history, you know that?
+- Will somebody please tell me why i read this `spy` crap.
+- A nazi rocket scientist father and a commie `spy` mother.
+- But it seems -- well, there was a `spy` in the company...
+- You gonna hassle me about the weapons and `spy` stuff too?
+- You broadcast that stupid `spy` shit all over town, whoa, whoa!
+- As ever you are the `spy` who has to see a plot wherever he looks.
+- Where did she `spy` on the russians from, here in pennsylvania??
+- He's going to make a good `spy`... that's not bad for the first day.
+- You know, it's, uh-it's very hush-hush, as we say in the `spy` game.
+- Playing `spy` games sounds like a quick way to get yourself dead.
+- If we no got a `spy` who's gonna tell the other side what we're doing?
+- I know how hard this is on you, son, a russian `spy` presence in hawkins.
+- You pimple-headed, square-toed `spy` -- do you realize what you're doing?
+- Always leaving yourself exposed, that he's a `spy` for the mind flayer now.
+- She was an azgeda `spy`, but now she's with me, from now on, bart gets all a's.
+- You media people, you think you can just go anywhere you want, `spy` on people.
+- Our `spy` satellites show "no secret terrorist camps" in the albanian hinterland.
+- Mm-hmm, and an honest `spy` is either incompetent mom, i'm so sorry i was ashamed.
+- ♪ whoo hoo hoo ♪ chancellor kane's out risking his life you're asking me to be a `spy`?
+- You're not interested in my past, you're interested in my future as some kind of `spy`.
+- Something about this 'not being a job for a wine-sniffing, skirt-chasing playboy `spy`?'
+- He spoke our lingo so they put him through `spy` school, gave him phony dogtags -- go on.
+                 

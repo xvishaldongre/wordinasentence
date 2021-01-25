@@ -1,0 +1,76 @@
+---
+title: "prom in a sentence | prom example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prom"
+---
+- Ask her to the `prom`.
+- I'm rob's `prom` date.
+- Junior `prom`... kinda.
+- `Prom` night revisited.
+- The `prom`'s coming up.
+- My `prom` was so boring.
+- The `prom` -- you going?
+- On the way to the `prom`.
+- This `prom` is a real drag.
+- `Prom` is for wenises, anyway.
+- So who you taking to the `prom`?
+- By the way, though, about `prom`?
+- She didn't even go to the `prom`.
+- We're being ejected from a `prom`!
+- Your daughters went to the `prom`.
+- I danced to it at my senior `prom`.
+- It�s welcome cocktails, not `prom`.
+- Hey kid, isn't the `prom` coming up?
+- I'm here to take mary to the `prom`.
+- What is with this school and `prom`?
+- Billy prince is asking you to `prom`.
+- Come on, it's our only senior `prom`.
+- Remember this from our junior `prom`?
+- C'mon, these are the bomb, i `prom`...
+- Letting down our hair on `prom` night?
+- You didn't wanna take me to the `prom`.
+- Billy prince is asking me to the `prom`.
+- We denominators don't even go to `prom`.
+- You're talking to the `prom` queen, eva.
+- You so do not deserve to be `prom` queen.
+- Remember when you were queen of the `prom`?
+- You look like a `prom` queen when you smile.
+- Daddy, i want to discuss the `prom` with you.
+- Take katrina the douche packer to the `prom`.
+- I can't believe we just had our senior `prom`.
+- I feel like i'm five years late for the `prom`.
+- Don't you think `prom` is just highly overrated?
+- Josie--you make a really beautiful `prom` queen.
+- The senior `prom` ... mcintire's department store.
+- Michelle, do you want to be my date for the `prom`?
+- When i was a kid i had a crush on the `prom` queen.
+- You think you ' re the only sophomore at the `prom`?
+- Well, we got the `prom` coming up, all these parties.
+- Would you please please please take me to the `prom`?
+- Go to the `prom` with me you're amazingly self-assured.
+- She just left for the `prom` with her boyfriend woogie.
+- Well, let's get your first `prom` under the belt, okay?
+- I mean, the last time i played here was, uh, the `prom`.
+- So will we get to meet this dark horse `prom` contender?
+- So, i'm thinking `prom` is basically our last big chance.
+- Some teenybopper rag says big fun wants to play a `prom`.
+- Did you hear bleek is going to `prom` with katrina de voort?
+- Are you honestly and truly going to `prom` with katrina de voort?
+- You guys--what is the one thing that could ruin my senior `prom`?
+- It's weird because "`prom`" is actually from the word "promenade".
+- Sir, if this is an alliance i'm gonna ask her ghost to the `prom`.
+- You mean that geek who played the folk music at the senior `prom`?
+- When they go to `prom`, you are going to be in their same damn limo!
+- Abby made me pump ontari's heart she saved me from a dateless `prom`.
+- Well come `prom` night, those excuses aren't going to do you much good.
+- That you would trip on your barbie heels and i'd get named `prom` queen?
+- Actually, i had a crash course from my mother the night before my `prom`.
+- Since you stood me up on `prom` night and vanished without saying a word?
+- I'll kill your family, your friends, and the bitch you took to the `prom`!
+- Southglen south competes every year for best `prom`, and usually they win.
+- I can ' t go if kat doesn't go -- listen, i want to talk to you about the `prom`.
+- I heard they were going to benihana, then the `prom`, then to vijay's parents' cabin.
+- The fog, terror train, `prom` night -- how come jamie lee curtis is in all these movies?
+- So listen, uh, i was wondering if maybe you wanted to go to the `prom` you know, with me.
+                 

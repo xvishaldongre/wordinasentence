@@ -1,0 +1,71 @@
+---
+title: "chocolate in a sentence | chocolate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chocolate"
+---
+- I'll take `chocolate`.
+- `Chocolate` it shall be.
+- Yes, a `chocolate` flop.
+- `Chocolate`... my favourite.
+- Do you have any `chocolate`?
+- One half bar of `chocolate`.
+- Get a hot mug of `chocolate`.
+- No `chocolate` in space, huh?
+- He found the `chocolate` room.
+- It's a little hot `chocolate`.
+- You mean this `chocolate` cake?
+- Fuck your hot `chocolate`, rudy.
+- I got the good `chocolate`, alvy.
+- No more `chocolate` chip cookies.
+- It's a real good `chocolate` cake.
+- Alrighty, one scoop of `chocolate`.
+- But all he had was `chocolate` milk.
+- It's half `chocolate`, half vanilla.
+- I want some hot-goddamn-`chocolate`.
+- No booze, sodas, or `chocolate` milk.
+- You have to try the `chocolate` cake.
+- I didn't pack a giant `chocolate` bar.
+- Mike, i found the `chocolate` pudding!
+- That doughnut's `chocolate` you, know.
+- You know how to make `chocolate` milk?
+- Not any more... now i like `chocolate`.
+- Honey, do you want some hot `chocolate`?
+- A little coffee, or a little `chocolate`?
+- You didn't bring any `chocolate`, did you?
+- Yes... with `chocolate`-covered pistachios.
+- There's a `chocolate` cream filled in there?
+- Alex tosses a bar of `chocolate` on the desk.
+- He was trying to eat a second `chocolate` bar.
+- I'm just gonna go get some `chocolate` pudding.
+- The `chocolate` coating makes it go down easier.
+- The `chocolate` pistachio cherry ice cream treat.
+- I mean, the only thing missing is the hot `chocolate`.
+- I made sure the boyfriend marge's giant `chocolate` bar.
+- We've had `chocolate`, vanilla, banana - let's go green.
+- Ash... didn't you write me that you don't eat `chocolate`?
+- Banana cream, pineapple cream, `chocolate` cream--and apple.
+- I'd like to try the peanut butter `chocolate` swirl, please.
+- It's still in turmoil, you `chocolate`-gobbling dream killer.
+- I-i came over to -- would you like a glass of `chocolate` milk?
+- Then there must be a whole room, made completely of `chocolate`.
+- How long until `chocolate` cake turns into i'm not afraid of you.
+- Arnie seemed to enjoy it... hey, where�s that `chocolate` cake...?
+- The only way off this planet and a side of `chocolate` cheesy bread?
+- Captain -- that was all true about the rats and `chocolate` and stuff?
+- That dumbass probably put my `chocolate` cream filled in there by mistake.
+- But i gotta say, peanut butter and `chocolate`, come on, hard to beat that.
+- Missy made the best `chocolate` chip cookies in the world--even mom said so.
+- If you get a hundred thousand for it, you buy me a box of `chocolate` creams.
+- Alright, if you really want to go down this road, well girl's like `chocolate`.
+- Are too small for either of us, it's this `chocolate` goo you eat with a spoon.
+- Take out my `chocolate` cream filled, put one of these roasted coconut roger, no.
+- Well, hello there...`chocolate`, you gonna wind up working at a school crosswalk.
+- _ yeah, i got my camera, and he says, ...and the orange sherbert and `chocolate`.
+- Let me guess: retail sales of little `chocolate` sprinkles have gone through the roof!
+- The `chocolate` and cigarettes you brought in - you lose that as you are now convicted.
+- You want three big macs, two `chocolate` shakes, two orders of fries, and an apple pie.
+- I'll take three big macs, two `chocolate` shakes, two orders of fries, and an apple pie.
+- On one mission, i had to pass up three and ended up living on rats and `chocolate` bars.
+- I wonder if there might not be a very large cup of hot `chocolate` somewhere in the area.
+                 

@@ -1,0 +1,107 @@
+---
+title: "standing in a sentence | standing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "standing"
+---
+- I'll be `standing` by.
+- Why are we `standing`?
+- She's `standing` on it.
+- We're still `standing`.
+- You're `standing` on it.
+- Red leader `standing` by.
+- Yes, aria, `standing` by.
+- I'm `standing` right here.
+- `Standing` on a tightrope.
+- What are we `standing` on?
+- We're `standing` there.
+- Are they all `standing` up?
+- `Standing` right here, man!
+- They got him `standing` by.
+- I was just `standing` there.
+- Operators are `standing` by.
+- `Standing` by, captain kirk.
+- What she's `standing` under.
+- Dr. allenby is `standing` by.
+- He was `standing` right here.
+- `Standing` next to my window.
+- I'm `standing` here, aren't i?
+- I'm `standing` most of my day.
+- Rory breaker is `standing` by.
+- Was i `standing` close to him?
+- You was just `standing` there.
+- I�m fine `standing`, thank you.
+- Why we're just `standing` here.
+- You're `standing` in horseshit.
+- Social `standing` indeterminate.
+- `Standing` by for the president.
+- The gulf stream's `standing` by.
+- We're `standing` by to evacuate.
+- But i'm `standing` over here now.
+- He's got a `standing` invitation.
+- Thank you for `standing` with us.
+- They're `standing` all around me.
+- Till he can't piss `standing` up.
+- You think i'd be `standing` here?
+- He thinks he's in good `standing`.
+- `Standing` room doesn't cost much.
+- Your camera crew is `standing` by.
+- How long you been `standing` there?
+- I'm `standing` here as real as you.
+- `Standing` right here in my office.
+- Here i am, just `standing` here.
+- He can't piss `standing` up anymore.
+- It was you who got the `standing` o.
+- I was `standing` inside a footprint.
+- There might still be one `standing`.
+- Yeah, we were just `standing` there.
+- A medical team will be `standing` by.
+- Because i was `standing` next to him.
+- I hope the block is still `standing`.
+- You do see me `standing` here, right?
+- But she's `standing` right next to you.
+- How long have you been `standing` here?
+- You're `standing` where my wife murphy!
+- From where i'm `standing`, you're a ape.
+- He would be `standing` right where i am.
+- How long have you been `standing` there?
+- I've got a jet `standing` by at choteau.
+- We got the muscle `standing` right here.
+- How'm i gonna relax `standing` on a mine!?
+- Not you, ricky, with your `standing` desk.
+- You're `standing` on my h.q., lieutenant !
+- From where you're `standing`, you're a man.
+- There used to be one `standing` over there.
+- What're you two just `standing` around for?
+- What are you two just `standing` around for?
+- But now, we're `standing` up for ourselves...
+- He appears to be ... `standing` by his horse.
+- I saw him as sure as you're `standing` there.
+- I was `standing` there, holding onto that tv.
+- Let the record show i'm just `standing` here.
+- Look you're putting me off, `standing` there!
+- The air force and infantry are `standing` by.
+- There'll be a team of surgeons `standing` by.
+- You'd still be `standing` at the venice pier.
+- I don't care what planet you're `standing` on.
+- `Standing` guard over the old castle, are you?
+- The whole police force `standing` on it's ear.
+- Two men of your `standing`, always quarreling.
+- We were `standing` right there, you were shot!
+- Besides, they're `standing` between you and me.
+- She's just `standing` around -- not doing much.
+- `Standing` by your man, even after what he did.
+- Your sparrow is `standing` on a soap box and...
+- I'm `standing` with the cast of "the godfather."
+- You're not gonna get wet `standing` here, moron!
+- You were `standing` in the middle of the street?
+- Anyone who was `standing` in the way of the land.
+- Anyway, parties are all about `standing` still ..
+- It is the gift and the under- `standing` of life.
+- Juntao's `standing` orders were to kill everyone.
+- My fleet is `standing` by and prepared to attack.
+- Theo drives away leaving sheila `standing` alone.
+- They were all `standing` around when he wrote it.
+- We're not going to find anything `standing` here.
+- If she's the one that's `standing` jaha: enough!
+                 

@@ -1,0 +1,107 @@
+---
+title: "tie in a sentence | tie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tie"
+---
+- `Tie` me a sheepshank.
+- `Tie` your lines fast?
+- He wears a brown `tie`.
+- That `tie`'s god-awful.
+- `Tie` his shoes for him.
+- `Tie` it to steve's leg.
+- `Tie` their hands, boys.
+- Buy a `tie` or something.
+- Uh, `tie` them up, rosie.
+- Did you ever `tie` him up?
+- Do you have another `tie`?
+- Where'd you get the `tie`?
+- Jacket on, `tie` in pocket.
+- To `tie` it all in to gary.
+- `Tie` this bastard, too.
+- I like you in a black `tie`.
+- Nothing to `tie` you to him.
+- Now `tie` his ass up, elroy.
+- Now, to `tie` them in a bow.
+- Then, why'd we `tie` him up?
+- Bellamy: `tie` him tighter.
+- I need the `tie` for my work.
+- Oh, i'll just undo the `tie`.
+- Shoot vader's `tie` fighter !
+- What did gordon's `tie` mean?
+- But you tend to `tie` them up.
+- Not that `tie` with that coat.
+- Sophie insists an black `tie`.
+- `Tie` them that they may watch.
+- You want a nun to `tie` you up?
+- Now copper, you `tie` palmer up.
+- This `tie` doesn't go with blue!
+- `Tie` my safety line to the sub.
+- `Tie` those two ends together.
+- You don't need to `tie` me down.
+- You need to `tie` me down first.
+- If it's too hot, open your `tie`.
+- I'll `tie` him down if i have to.
+- Knock them out, we `tie` them up.
+- `Tie` yourselves to those chairs.
+- Better `tie` your shoelaces first.
+- Cat, you `tie` onto this manifold.
+- Just a few loose ends to `tie` up.
+- Not that `tie`, on the other side.
+- She took you shopping for a `tie`?
+- `Tie` off the kites and come down!
+- Maybe `tie` it into the rosenbergs.
+- ...so you `tie` your own flies, ed.
+- 'just a few loose ends to `tie` up.'
+- The chancellor will break the `tie`.
+- `Tie` the rope so i can come across.
+- Untie these, you got to `tie` me in.
+- One pair of `tie`-dyed socks, purple.
+- Right, `tie` me in, scott, `tie` me in.
+- What are you talking about, my `tie`?
+- May i say that's a gorgeous `tie`.
+- Forget your `tie`, handsome ... frank!
+- I don't know why she bought me a `tie`!
+- Well, i must `tie` you up and claim it!
+- What do you think about this new `tie`?
+- What's my `tie` got to do with anything?
+- You're funny with that ridiculous `tie`.
+- Here, let me help you get that `tie` off.
+- I got a few loose ends to `tie` up first.
+- Now, just, just `tie` it on to something!
+- Yes, you're gettin' it all over my `tie`.
+- You sure you didn't pick up my hair `tie`?
+- He was wearing his "cornflower-blue" `tie`.
+- If you don't trust me, you can `tie` me up.
+- I'll have to go outside to `tie` onto them.
+- It's really kind of a coat and `tie` place.
+- Now tor, you're supposed to `tie` her down.
+- Palmer, you and copper `tie` everyone down.
+- Throw her in the pond `tie` weights on her.
+- Excuse me, gentlemen just look at this `tie`.
+- Weis slammed a solo shot in the 7th to `tie`.
+- Perfect way to `tie` up a... 'knotty' problem?
+- This damned `tie` ... will you help me, edgar?
+- `Tie` her up -- and leave your guns up, lance.
+- Waddaya wanna `tie` yourself down with a shop?
+- This `tie` cost more than your entire wardrobe.
+- <u>then</u> `tie` up, throw him inta th' drink.
+- So '`tie` a yellow ribbon' sounds a little flat.
+- `Tie` it to both ankles -- leave two feet slack.
+- I thought i asked you to `tie` up your watchdogs.
+- Please `tie` up isabelle to the back of the shed.
+- Just helping someone `tie` up a christmas present.
+- Either i'm going to `tie` you or mars will `tie` you.
+- So duffy, got any theories to go with that... `tie`.
+- Take'm back upstairs, but don't `tie`'m like before.
+- Yes, we do... and i can give you a `tie` and jacket.
+- Last time i sent out a `tie` only the spot came back.
+- I never noticed before - that's a cowboy `tie`.... no.
+- Just knock him out and `tie` him up 'till we get away.
+- I'm gonna `tie` you up, then we're gonna take your car.
+- I mean, you `tie` up our kid and you lock the fuckin' door?
+- Something to `tie` this claim of yours to the crime -- yes.
+- The brenners got a little dock there you could `tie` up at.
+- They require a `tie` and jacket but we have some available.
+- Honey, this `tie` has a spot on it, i can't wear this today.
+                 

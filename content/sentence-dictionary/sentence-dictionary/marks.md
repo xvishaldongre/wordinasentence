@@ -1,0 +1,67 @@
+---
+title: "marks in a sentence | marks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "marks"
+---
+- `Marks` guide our way.
+- No `marks` on her neck.
+- `Marks`, scars, i dunno.
+- A right good `marks`-man!
+- I want the money `marks`.
+- [eudoria] on your `marks`.
+- Or distinguishing `marks`?
+- There were needle `marks`.
+- I got ten `marks` for that.
+- The `marks` do not come out.
+- On your `marks`... get set go.
+- Egg `marks` the spot� i'm glad.
+- What are these, beauty `marks`?
+- I want the `marks` that you get.
+- Did `marks` close the front door?!
+- All i know is "x" `marks` the spot.
+- Each scar `marks` a kill in combat.
+- I saw the cut-`marks` on the bones.
+- Lotta scratch-`marks` on your door?
+- What are those `marks` on your arm?
+- Not the same -- no ligature `marks`.
+- We can't have `marks` on his wrists.
+- The `marks` appear, then you disappear.
+- Yes... and the bite `marks` on my ears?
+- Outdoors... needle `marks`, fresh, here.
+- What kind of `marks` have they got here?
+- Your `marks` would suggest great injury.
+- I know her age and distinguishing `marks`.
+- Come on, amigo, the world's full of `marks`.
+- On your `marks`, your lungs fill with fluid.
+- A thousand `marks` -- of course -- of course.
+- You see those little teeth `marks`, don't ya?
+- We've been attempting to hail captain `marks`.
+- It `marks` the start of a new commander's reign.
+- You're wastin' your time workin' street `marks`.
+- You can't play your friends like `marks`, hooker.
+- There's a get-together tonight at new st. `marks`.
+- Scorch `marks`... looks like they used silly putty.
+- I'm holding an unconscious at first and st. `marks`.
+- Koko, write down their names, don't just make `marks`.
+- I have over six thousand eight hundred `marks` with me.
+- Condor, i'm proceeding first with captain `marks`, over.
+- I really should be getting back to whitehall and `marks`.
+- "my niece is in a play with your son," mrs. `marks` says.
+- Same `marks` for the other four girls, in different colors.
+- That's so you won't see the fingernail `marks` on his back.
+- Now wouldn't you say those `marks` are the `marks` of a ladder?
+- Ancient runes-- look at those `marks`--just like in the movie.
+- More than fourteen thousand `marks`... were in that pocketbook.
+- I give you full `marks` for bravery --don't make yourself a fool.
+- Those `marks` remain... for the leader to bring the hunters home.
+- Even had `marks` looking us up, thinkin' they could beat the game.
+- Does she have `marks`, nick--like the ones we have, that domini had?
+- People said these shadows are like the `marks` of souls going to heaven.
+- I'm a middle- aged high-school dropout with stretch `marks` and a fat ass.
+- Today `marks` the one-year anniversary... and even if i did, i'd never tell you.
+- Well, that makes it all... `marks` of a painful past i wasn't supposed to start.
+- As far as whitehall and `marks` are concerned, you're working with bialystock, right?
+- True, but if you look sharply you can see that those `marks` are the `marks` of a ladder.
+- I've got black and blue `marks` all over my butt, and my mom's getting uptight about them.
+                 

@@ -1,0 +1,52 @@
+---
+title: "studied in a sentence | studied example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "studied"
+---
+- I `studied` some latin.
+- I've `studied` about it.
+- I `studied` the diagrams.
+- `Studied` for weaknesses.
+- I `studied` it in my youth.
+- Oh, i `studied` the guitar.
+- `Studied` acting, i assume?
+- That's why tim `studied` it.
+- Haven't you `studied` enough?
+- I `studied` it in high school.
+- I think i've `studied` enough.
+- You know hqw i `studied` that.
+- I asked you what you `studied`.
+- We `studied` all day yesterday.
+- I've `studied` up on all of it ...
+- But you `studied` psychology, right?
+- I think you've `studied` enough, nance.
+- Now, where'd you say you `studied` law?
+- Although i've `studied` them in the wild.
+- He `studied` at johns hopkins university.
+- I don't care where the polecat `studied`.
+- Have you ever `studied` organic chemistry?
+- I've `studied` the case file, have you...?
+- You've `studied` me, now i'm studying you.
+- Never really `studied` your face, like now.
+- I `studied` them well enough - where is she?
+- I have `studied` your missions extensively...
+- But you've `studied` with the old man for *years*!
+- You must have `studied` with a sideshow of freaks!
+- Have either of you guys ever `studied` quantum physics?
+- The more i `studied` his dna the more confusing it got.
+- I've `studied` drawings and photographs and seen newsreels.
+- He `studied` the torah, the talmud, the mishnah, the whole bit.
+- Tim `studied` several styles, but his favorite was jeet kune do.
+- An espresso pod machine, gabriel said jordan `studied` the texts.
+- The style of fighting that tim `studied` didn't believe in belts.
+- That's more like a... well, like a dictatorship, like we `studied`.
+- I understand the communist mind, i've `studied` it for thirty years.
+- Like her speaking in a language that she's never known or `studied`.
+- `Studied` their customs, you seem to be working miracles with these.
+- The words you're looking for weren't in the dictionary you `studied`.
+- But, you've also bested my spaniard which means you must have `studied`.
+- That a boy who `studied` the texts once you promised... clarke, slow down!
+- It would be interesting to know, young man, where and when you `studied` anatomy.
+- But if the group knows it's being `studied` as a group, you contaminate the results.
+                 

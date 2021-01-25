@@ -1,0 +1,107 @@
+---
+title: "charge in a sentence | charge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "charge"
+---
+- But, i am in `charge`.
+- I'm in `charge`, okay?
+- Is it a `charge`, sir?
+- The `charge` is clear.
+- You lost the `charge`?
+- Oh, you're in `charge`?
+- The `charge` is murder.
+- What should i `charge`?
+- Who's in `charge` here?
+- Who's in `charge` then?
+- Better make it `charge`.
+- Head nigger in `charge`?
+- Is not in `charge` here.
+- On a `charge` of heresy.
+- The `charge` is treason.
+- Who put you in `charge`?
+- Who's in `charge` here?!
+- `Charge` me with smoking?
+- He forgot to `charge` me.
+- Tank, `charge` the e.m.p.
+- They are in `charge` now.
+- They put you in `charge`?
+- You `charge` by the hour?
+- Can we `charge` admission?
+- I deny his every `charge`.
+- Are you in `charge`, roper?
+- Mccreary's in `charge` now.
+- ...nearly free of `charge`.
+- Ten seconds, full `charge`.
+- Why don't we `charge` them?
+- Go `charge` the kids' ipads.
+- Maybe you `charge` too much.
+- Pike: the `charge` is clear.
+- She's only set one `charge`.
+- Guilty on a reduced `charge`.
+- He can't change the `charge`.
+- He might even be in `charge`.
+- You are not in `charge` here.
+- I'm in `charge` today, though.
+- Will that be cash or `charge`?
+- I'll be in `charge`, of course.
+- I thought you were in `charge`.
+- It needs more time to `charge`.
+- We're not the ones in `charge`.
+- What idiot put you in `charge`?
+- Does santa claus `charge` juice?
+- I'm in `charge` of this mission!
+- I usually `charge` for hypnosis.
+- I'm in `charge` of this boat!
+- `Charge` the stone with ener- gy.
+- For that old possession `charge`?
+- When i'm in `charge`, people die.
+- Everybody knows who's in `charge`.
+- Have they put you in `charge` yet?
+- Who put these critics in `charge`?
+- Why don't you put her in `charge`?
+- You'll get a `charge` out of this.
+- You're the one in `charge`, daddy.
+- You said you had another `charge`.
+- He wants to know who's in `charge`.
+- I'm in `charge` of the conversions.
+- Wouldn't even `charge` him nothin'.
+- Did they `charge` him with anything?
+- I ought to `charge` you by the mile.
+- Now, he's in `charge` of the empire.
+- Well i do have the weapons `charge`.
+- 3.999... but i have another `charge`.
+- Adult males will `charge` hatchlings.
+- We can `charge` anything we want!
+- We can `charge` five-hundred a pound.
+- You could `charge` him what you like.
+- You didn't realize i was in `charge`.
+- And, besides, i'm the one in `charge`.
+- I'm in `charge` of this operation now.
+- It sounded as if you said no `charge`.
+- Plant them next time, draw a `charge`.
+- That puts you in `charge`, lieutenant.
+- Will be leading the `charge` tomorrow.
+- `Charge`, then get back on the streets.
+- Colonel heffner's in full `charge` now.
+- Do you think we care who's in `charge`?
+- I need to get to whoever's in `charge`.
+- In the end, isn't god in `charge` here?
+- It's not easy being in `charge`, is it?
+- Lieutenant saavik, you are in `charge`.
+- Who's in `charge` then, where is chinn?
+- What do you `charge` for company, vivian?
+- You're in `charge` of keeping this quiet.
+- He said he's in `charge`... what'd he say?
+- In that case, i suppose we can't `charge`.
+- Took a lot of heart to take that `charge`.
+- The good news is you won't `charge` me.
+- Because people die when you're in `charge`.
+- How much would you `charge` me for the lips?
+- Well, you the one in motherfuckin' `charge`.
+- Your turn to be in `charge`, have the power.
+- But i'm the one in `charge` of her sorry ass.
+- Don't worry the real men are in `charge` now.
+- I `charge` my batteries via induction plates.
+- You could wind up with a harassment `charge`.
+                 

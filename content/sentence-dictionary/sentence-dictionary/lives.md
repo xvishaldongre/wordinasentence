@@ -1,0 +1,107 @@
+---
+title: "lives in a sentence | lives example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lives"
+---
+- He `lives` in chicago.
+- He `lives` in florida.
+- How a sandman `lives`.
+- "i led two `lives`"...
+- `Lives` are ephemeral.
+- She saved our `lives`.
+- The new queen `lives`.
+- Ugly little `lives`...
+- We could save `lives`.
+- You saved our `lives`.
+- He `lives` here, right?
+- Home--where he `lives`.
+- It `lives` in the mind.
+- `Lives` have been lost.
+- No more wasted `lives`.
+- Our `lives` are simple.
+- She `lives` downstairs.
+- She `lives` near eddie?
+- The longer she `lives`.
+- We honor their `lives`.
+- I'm saving `lives` here.
+- It's where she `lives`!!
+- Sure...he `lives` there?
+- Today you saved `lives`.
+- From the man who `lives`.
+- He `lives` off your fear.
+- She `lives` in australia.
+- The `lives` of my people.
+- The `lives` of your crew?
+- He `lives` in bailey park.
+- He `lives` up in roseburg.
+- It has taken many `lives`.
+- Our `lives` are in danger.
+- Risking `lives`, for what?
+- She `lives`... lived here.
+- This is where she `lives`.
+- You know where he `lives`?
+- By taking innocent `lives`?
+- Every night of our `lives`.
+- He knows where she `lives`?
+- He `lives` with his mother.
+- It's the `lives` we didn't.
+- `Lives` downstairs from me.
+- My family `lives` in miami.
+- Of course he `lives` there.
+- Saved all our `lives`, doc.
+- Their `lives` mean nothing.
+- We just saved your `lives`.
+- Who `lives` at the airport.
+- You may take their `lives`.
+- You saved a lot of `lives`.
+- But in the movie he `lives`.
+- He `lives` in baldwin hills.
+- I made their `lives` better.
+- Innocent `lives`, we should.
+- I've got seven `lives` left.
+- Mister funboy `lives` there?
+- Nobody `lives` forever, boy.
+- She `lives` with my parents.
+- That's where philip `lives`.
+- Two `lives` saved by prayer.
+- You ruined people's `lives`.
+- Even `lives` as long as ours.
+- Not every man really `lives`.
+- Our mission: to save `lives`.
+- She won't risk their `lives`.
+- Sure i know where he `lives`.
+- This will change our `lives`.
+- We could <u>save `lives`</u>.
+- Do you know where she `lives`?
+- For the rest of their `lives`?
+- He... ummmm, `lives` here now.
+- I think that it `lives` there.
+- She `lives` two trailers down.
+- Still `lives` with his mother.
+- He `lives` down on webb avenue.
+- Jessica `lives` -- or she dies.
+- `Lives` and learns doesn't one.
+- Our `lives` are more important.
+- She `lives` out on that island!
+- Was that worth all the `lives`?
+- We don't trade `lives`, vision.
+- We make our own `lives`, madam.
+- Yeah, she `lives` in dallas ...
+- Your very `lives` depend on it.
+- Half `lives` that never go away.
+- I mean, he `lives` in southport.
+- Nobody threatens me and `lives`.
+- Not at the cost of `lives`, max.
+- There are `lives` at stake here.
+- The spirit `lives` in the blood.
+- We don't trade `lives`, captain.
+- You live your `lives`, you know.
+- You were trying to save `lives`.
+- at grounder saved our `lives`.
+- Caesar `lives` for these moments.
+- Do i know who `lives` down there?
+- Everyone's `lives` at risk today.
+- I think she `lives` down by pitt.
+- It's our `lives` now, not theirs.
+                 

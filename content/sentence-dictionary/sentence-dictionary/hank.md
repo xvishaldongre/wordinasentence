@@ -1,0 +1,66 @@
+---
+title: "hank in a sentence | hank example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hank"
+---
+- Close up shop, `hank`.
+- Where's emily, `hank`?
+- You look lost, `hank`.
+- `Hank` brought them all.
+- That's not good, `hank`.
+- What if `hank` is right?
+- Don't condescend, `hank`.
+- That's the point, `hank`.
+- What if `hank` was right?
+- Maybe you got him, `hank`.
+- Get me `hank` on the phone.
+- It's not a disguise, `hank`.
+- `Hank`, quit screwing around.
+- `Hank` <u>says</u> he's sure.
+- Only one thing to do, `hank`.
+- `Hank`, i would never do that.
+- `Hank` was a terrible partner.
+- That's not a disguise, `hank`.
+- You get nothing, `hank`, okay?
+- Apparently, neither can `hank`.
+- She wanted to kill you, `hank`.
+- A known associate of `hank` pym.
+- And he starts working for `hank`.
+- `Hank` pym is a real opportunity.
+- `Hank` pym, is a real opportunity.
+- He assumed `hank` was your husband.
+- Another casualty of `hank` pym's ego.
+- Is putting up with `hank`'s bullshit.
+- I asked `hank`, and `hank` did the rest.
+- Listen, `hank`, it's been a rough day.
+- Well, it was your life's work, `hank`.
+- `Hank` was always good with the ladies.
+- `Hank`, what's going on with this suit?
+- Now `hank`, are you sure they're coming?
+- Listen, `hank`, i'm sorry about all this.
+- `Hank` says danny's moved to new york.
+- I'd be more worried about yourself, `hank`.
+- I haven't talked to `hank` in thirty years.
+- With `hank` pym or hope van dyne, have you?
+- I doubt `hank` has ever mentioned my father.
+- I doubt `hank` have ever mentioned my father.
+- Still think you have all the answers, `hank`?
+- I haven't talked to `hank` or hope in forever.
+- You're carrying too much money on you, `hank`.
+- That should shore up that prick `hank` drexler.
+- `Hank`, call the troopers and check his story out.
+- Better get that story in, `hank`, it's getting late.
+- Until my father dare disagree with the great `hank` pym.
+- The great `hank` pym hasn't figured that one out yet?
+- Your unseen associate, that's your father, `hank` pym.
+- If you ask me, `hank`, you're playing around with dynamite.
+- Until my father dared to disagree with the great `hank` pym.
+- Listen, uh... `hank` and i think it best if you stay on shore.
+- Why, of course, `hank` -- i've always got time for a neighbor.
+- Of course, with `hank`'s tragic passing, the secret died with him.
+- Ever since `hank` pym got snapped out of existence, this is it.
+- So anyway, this guy gets out of jail and starts working for `hank`.
+- Back in the day, i was `hank`'s partner in a project called goliath.
+- But you haven't had any contact with `hank` pym or hope van dyne, have you?
+                 

@@ -1,0 +1,7 @@
+---
+title: "deform in a sentence | deform example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deform"
+---
+## Unfortunately, we have no example sentences for deform                 

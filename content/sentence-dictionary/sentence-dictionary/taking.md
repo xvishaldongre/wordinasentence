@@ -1,0 +1,107 @@
+---
+title: "taking in a sentence | taking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "taking"
+---
+- How's she `taking` it?
+- I'm `taking` a shower.
+- I'm `taking` her down.
+- I'm `taking` you back.
+- I've been `taking` it.
+- `Taking` them with us.
+- They're `taking` mine.
+- Tia's `taking` a bath.
+- We're not `taking` it.
+- We're `taking` a trip.
+- What are you `taking`?
+- It's `taking` too long.
+- `Taking` a little trip?
+- `Taking` out the trash.
+- We're `taking` plasma !
+- Where's he `taking` us?
+- Where you `taking` him?
+- Who's `taking` genesis?
+- You're not `taking` it.
+- But you are `taking` it?
+- No, no, i'm `taking` it.
+- `Taking` frink to moe's.
+- `Taking` the book along?
+- Ted, we're `taking` off!
+- We're `taking` a flight?
+- What's `taking` so long?
+- Where's she `taking` it?
+- Who is `taking` genesis?
+- You like `taking` risks.
+- You're `taking` me home!
+- `Taking` care of you.
+- I'm `taking` off my mike.
+- I'm `taking` suzy parker.
+- Just `taking` your photo.
+- Not `taking` their money.
+- People are `taking` them!
+- `Taking` bets today, red?
+- `Taking` golitsyn's exit.
+- `Taking` me for a pigeon.
+- `Taking` octavia with it.
+- `Taking` out her tonsils?
+- `Taking` you for granite?
+- Thanks for `taking` over.
+- This is `taking` forever.
+- To `taking` down the man.
+- What is `taking` so long?
+- Where're we `taking` him?
+- By `taking` away our legs.
+- He's not `taking` my baby.
+- I'm `taking` a big gamble.
+- I'm `taking` you back out.
+- `Taking` care of business.
+- `Taking` it down the hill.
+- They're all `taking` them.
+- They're `taking` them off.
+- This is `taking` too long.
+- We're `taking` care of it.
+- Where are you `taking` me?
+- Where are you `taking` us?
+- Why are you `taking` that?
+- You are `taking` the piss?
+- By `taking` innocent lives?
+- He's not `taking` the bait.
+- I'm `taking` a real gamble.
+- I'm `taking` my medication.
+- `Taking` ol' leo somewhere?
+- `Taking` the long way home.
+- What're your `taking` down?
+- Where are they `taking` us?
+- Where are you `taking` her?
+- Where are you `taking` him?
+- Why is it `taking` so long?
+- You're `taking` those sats.
+- Are you `taking` me to jail?
+- Are you `taking` them still?
+- But i'm `taking` no chances.
+- He will be `taking` me home.
+- I'm not `taking` drugs, dad.
+- I'm `taking` fire, let's go!
+- Liz is `taking` care of him.
+- `Taking` a chance like that.
+- They were `taking` you away.
+- We're just `taking` a break.
+- What if he's `taking` a nap?
+- What's `taking` her so long?
+- Where are they `taking` him?
+- You're not `taking` my baby!
+- You're `taking` me home now?
+- You `taking` any medication?
+- Now i'm `taking` it back.
+- He's `taking` up fly fishing.
+- I'm not `taking` any chances.
+- I'm not `taking` him with me.
+- It's still `taking` too long.
+- I was just `taking` a shower.
+- Just like `taking` a picture.
+- Life is about `taking` risks.
+- Maybe he started `taking` it.
+- Scooby i'm not `taking` them.
+- `Taking` your sins with them.
+                 

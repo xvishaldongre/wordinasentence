@@ -1,0 +1,107 @@
+---
+title: "bucks in a sentence | bucks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bucks"
+---
+- Bet ya twenty `bucks`.
+- Fifteen lousy `bucks`.
+- Five thousand `bucks`!
+- Five thousand `bucks`.
+- For a hundred `bucks`.
+- I lost twenty `bucks`.
+- This is fifty `bucks`.
+- Who's got two `bucks`?
+- `Bucks` a minute, beck.
+- Next game, ten `bucks`.
+- Ten `bucks` she wanted.
+- I owe you fifty `bucks`.
+- Let me have ten `bucks`?
+- That's two `bucks`, joe.
+- You owe me five `bucks`.
+- A couple hundred `bucks`?
+- A hundred `bucks` a date.
+- Fifty `bucks` a lead.
+- It's my last few `bucks`.
+- You owe me fifty `bucks`.
+- Can i borrow five `bucks`?
+- Can you use a few `bucks`?
+- Five, six hundred `bucks`.
+- Here's your fifty `bucks`.
+- You owe me twenty `bucks`.
+- Close to a million `bucks`.
+- Float me a hundred `bucks`.
+- I don't care about `bucks`.
+- Thirty-two hundred `bucks`.
+- 60 `bucks` to watch a fight?
+- It'll cost you five `bucks`.
+- Labor, five `bucks` an hour.
+- Look like a million `bucks`.
+- She's been with the `bucks`!
+- Thousand `bucks` ain't shit.
+- About sixty, seventy `bucks`.
+- How's that 700 `bucks` coming?
+- Lend me two `bucks`, will you?
+- Ya owe me twenty-five `bucks`.
+- He's gonna hand me 500 `bucks`.
+- Say ten thousand `bucks` worth.
+- Two `bucks` a buckle, perryman.
+- 40 `bucks` gets you ten minutes.
+- `Bucks` says i'm getting a gift.
+- Got you for -- 450, 500 `bucks`?
+- I got a couple thousand `bucks`.
+- It's twenty `bucks` in the bank.
+- What's the thousand `bucks` for?
+- A hundred `bucks` an hour though.
+- A hundred-seven `bucks` too much.
+- You've got five thousand `bucks`.
+- I'm thinkin' like fifteen `bucks`.
+- Supposed to be 225 `bucks` a week!
+- The `bucks` gonna stop right here.
+- This is why i get the big `bucks`.
+- Twenty `bucks`... tell her, ratso.
+- A hundred and fifty `bucks` a week.
+- That's the price: five `bucks`.
+- Here... ten, thirty, fifty `bucks`.
+- Three hundred `bucks` for a pillow?
+- He wants fifty `bucks` extra for it.
+- Say, if i had ten `bucks`, i'd quit.
+- She's got a hundred million `bucks`.
+- Fifty `bucks` ain't going to ruin me.
+- Hey, sam, bet ya two `bucks` ya lose.
+- I got five hundred and forty `bucks`.
+- I'm a rich man off of thirty `bucks`?
+- I've got fifty `bucks` to throw away.
+- Approximately fifteen hundred `bucks`.
+- 'cause he paid 60 `bucks` to watch it.
+- In a month it's worth fifteen `bucks`!
+- Let's call it a hundred-fifty `bucks`.
+- 40 `bucks`' worth of therapy coming up.
+- I got 74 `bucks` to my name, mr. masry!
+- I'll give you a hundred `bucks` for it.
+- Make a couple `bucks` for the holidays?
+- We got about forty `bucks`, sweetheart.
+- We've made ourselves a hundred `bucks`.
+- I'll give your group a thousand `bucks`.
+- You gimme the car and a hundred `bucks`.
+- Charlie, twenty-eight `bucks` is nothing.
+- His million `bucks` was never in it, man!
+- Why don't you buy it, only forty `bucks`.
+- You'll get your extra hundred `bucks`.
+- Hundred `bucks` apiece is a lot of dinero.
+- I'll give you seventy-five `bucks` for it.
+- Thirty-two hundred `bucks` for a lifetime.
+- He already owes the house thirteen `bucks`.
+- Not to take soldiers for a hundred `bucks`.
+- That's what you get the big `bucks`, right?
+- The job's gonna cost you a hundred `bucks`.
+- Come on, i got over six `bucks` on the line.
+- That's why you get the big `bucks`, captain.
+- Twenty, thirty, fifty `bucks`, <u>maybe</u>?
+- He was out five thousand `bucks`, he said....
+- Ten `bucks` says she's looking for a handout.
+- We sell 'em to you for three `bucks` a piece!
+- Anyone with fifty `bucks` could tell you that.
+- But the million `bucks` each, that's for real?
+- Hey, <u>you're</u> getting the big `bucks`....
+                 

@@ -1,0 +1,107 @@
+---
+title: "kane in a sentence | kane example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kane"
+---
+- Excuse me, mr. `kane`.
+- I'm going with `kane`.
+- `Kane`: come on, abby.
+- `Kane`: rough landing?
+- Man: is that `kane`?
+- My whole life, `kane`.
+- Octavia: wait, `kane`.
+- Stop worrying, `kane`.
+- With councilor `kane`.
+- You sound like `kane`.
+- This isn't you, `kane`.
+- And keeping `kane` in...
+- An exception for `kane`.
+- Did `kane` take a radio?
+- Going somewhere, `kane`?
+- He sure did, mr. `kane`.
+- I've got eyes on `kane`.
+- `Kane`, it's time to go.
+- `Kane`... you know that.
+- No, i don't, mr. `kane`.
+- That's fine, mr. `kane`.
+- What happened to `kane`?
+- How could `kane` do this?
+- `Kane`, stay out of this.
+- Mr. `kane` - where is he?
+- Stop studying me, `kane`.
+- You 4 with me and `kane`.
+- Get out of my way, `kane`.
+- I'm charles foster `kane`.
+- I mean, who knows, `kane`?
+- `Kane`: when you get here.
+- Is mrs. `kane` - all right.
+- It's wonderful, mr. `kane`.
+- `Kane`'s going in for pike.
+- Mr. `kane` is finishing it.
+- Of course it's you, `kane`.
+- She's worried about `kane`.
+- What about abby and `kane`?
+- And that starts with `kane`.
+- Are you tracking me, `kane`?
+- For what happened to `kane`.
+- `Kane`'s actions zombie boy?
+- `Kane`'s lobbying for votes.
+- She'll lose faith in `kane`.
+- I know the facts, mr. `kane`.
+- `Kane`: hey, anyone followed?
+- `Kane`: we don't have time.
+- Ok. you helped `kane` escape?
+- Thelonious: `kane` is right.
+- At least let me talk to `kane`.
+- Mr. `kane`, this is a surprise!
+- Pull yourself together, `kane`.
+- You call about monsieur `kane`?
+- You're crossing a line, `kane`.
+- And we send a team after `kane`.
+- So `kane` dies to be an example.
+- This is why we need you, `kane`.
+- We always have a choice, `kane`.
+- A. anyone `kane` was working with?
+- `Kane` knows what code blue means.
+- `Kane`'s blood pressure goes down.
+- That's why `kane` set up out here.
+- With `kane` to map the settlement?
+- Abby, `kane`'s kidneys have failed.
+- Any progress on the `kane` problem?
+- Clarke... stop studying me, `kane`.
+- `Kane`, lincoln, sinclair, it's ok.
+- But a morning newspaper, mr. `kane`.
+- Do you have mr. john michael `kane`?
+- `Kane` i cain -- like the bible guy?
+- The "citizen `kane`" of gore movies.
+- I don't know, something about `kane`.
+- `Kane`, on radio: rover one, come in.
+- I killed hugh `kane` and his mistress.
+- Why is `kane` so far outside the wall?
+- Why is `kane` so far outside the wall?
+- `Kane` and lincoln are waiting outside.
+- Simone's gonna want payback for `kane`.
+- Tell me who stole the medicine, `kane`.
+- Welcome, mr. `kane`, to the "enquirer."
+- You kill `kane` and all that goes away.
+- Abby, `kane`, we'll get you out of here.
+- `Kane` and abby aren't like most people.
+- `Kane` needs blood, "o" neg., right now.
+- `Kane`'s last words, aren't they, jerry?
+- You think you're better than me, `kane`?
+- Marcus `kane` to the chancellor's office.
+- That's a good idea, vinson, `kane`, stop.
+- That's the difference between us, `kane`.
+- And leave humanity in the hands of `kane`?
+- Despite what i'm told you did with `kane`.
+- Go after the people that knew `kane` well.
+- He ain't been drinking before, mr. `kane`.
+- I'm calling on people who knew mr. `kane`.
+- Mrs. `kane` liked poetry - can't say, sir.
+- You're a man of great talents, mr. `kane`.
+- ♪ in a material world... ♪ show us, `kane`.
+- `Kane`: neither was injured during landing.
+- `Kane`, we've been through this, all right?
+- That's what the note is about, mrs. `kane`.
+                 

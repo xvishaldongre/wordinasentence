@@ -1,0 +1,96 @@
+---
+title: "roof in a sentence | roof example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "roof"
+---
+- They're on the `roof`.
+- It leads onto a `roof`.
+- Don't fall off the `roof`.
+- I'll see you on the `roof`.
+- They can't go on the `roof`!
+- It's not your `roof` anymore.
+- There's someone on the `roof`.
+- On the `roof` with the barmaid.
+- Shreds the `roof` of your mouth.
+- Well, here we are on the `roof`.
+- A wounded bird was on his `roof`.
+- I'll just strap it on the `roof`.
+- That `roof` is over ten feet high.
+- The house is jammed to the `roof`.
+- Get up on your `roof` or someplace!
+- Heard you done the `roof` yourself.
+- I need you to jump on the `roof`...
+- Our numbers are through the `roof`.
+- That new `roof`, that's your doing.
+- We're not getting up on the `roof`.
+- Pool on the `roof` must have a leak.
+- That man is gonna be on that `roof`.
+- There's a shortcut across the `roof`.
+- There's two heat spots on the `roof`.
+- This man's going to jump off a `roof`.
+- We haven't seen the `roof` garden yet.
+- You and heather get up on your `roof`!
+- You think i'm going to fix the `roof`?
+- Smart bomb, falling through the `roof`.
+- He's been on the `roof` a half hour now!
+- Look at the structure of the `roof` cap.
+- Yeah i tell them don't go on the `roof`!
+- Fourteen movie theaters under one `roof`.
+- The `roof` is coming down.... hey, you....
+- Who needs to repair a leaky church `roof`.
+- In a fabulous selection of red `roof` inns.
+- I only live up there and across the `roof`.
+- When are you boys going to fix that `roof`?
+- This guy got on the `roof` in like a second.
+- I rigged it to the solar cells in the `roof`.
+- I'll see you up on the `roof` in five minutes.
+- I got a spinner on your `roof` in five minutes.
+- I'm dancing on the `roof` of the peabody hotel.
+- I want a chopper on the `roof` in three minutes.
+- He wants the entire `roof` taken off and lowered.
+- Please, paul, why do we have to go to the `roof`?
+- Too wise, in fact, to live under the same `roof`.
+- Get to the crest of the `roof` and be ready to jump.
+- If the militia comes, you must hurry up to the `roof`.
+- All right, you raise the kids -- i'll raise the `roof`.
+- Come up on the `roof` with me and i'll show 'em to you.
+- You just closed the store to play hockey on the `roof`!
+- I don't know, sonny ... on the `roof` somewhere i guess.
+- Thirty-second opening in the `roof` and a 250-foot drop.
+- That day, a pair of crows came to nest in our `roof`.
+- You want to see it better, we could go out on the `roof`.
+- The `roof` of the license-plate factory needs resurfacing.
+- "two: please don't go up to the `roof` to eat your lunch."
+- Well that record has just gone through the goddamn `roof`!
+- When are you going to find time to help me fix the `roof`?
+- So we have to wait for the faa to decide who fixes my `roof`.
+- Yeah, there's an olympic size swimming pool up on the `roof`.
+- Yeah, you're right, we'll have to check that for `roof` access.
+- Look, johnny gobs got ripped and walked off a `roof`, all right?
+- C'mon, you only beat up the `roof` when something's on your mind.
+- We need a new `roof`, the furnace is going, and there's no money.
+- It might have been that broke from 'fiddler on the `roof`,' toppy.
+- I'm talking about old satchmo nearly blew the `roof` off the joint.
+- The whole `roof` cap was fabricated with a magnesium-tungsten alloy.
+- Biocyte stock is just a week or two away from going through the `roof`.
+- So the construction guys say it'll take about a week to fix the `roof`.
+- Woman drivin' down the street spotted me with on a `roof` with my rifle.
+- She went to the `roof` to sunbathe one lunch hour -- we watched her changing.
+- That's the sky that's going to be over our `roof` every night, when we're done.
+- They don't have anything except four walls and a `roof`, and that's all we need.
+- It puts a `roof` over me and my daughter and you for as long as you want to stay.
+- I wake up at night seeing him fall from the `roof`... and try to reach out for him.
+- They probably have guards on the `roof`--and they're gonna be firing at me--not you!
+- With the cameras and the swipe cards -- it's the only one with dishes on the `roof`.
+- So you're not too different from him, or the chap on the `roof`, or tommy-baby -- mm.
+- A normal human being couldn't live under the same `roof` with her, without going nuts.
+- Let me guess: retail sales of little chocolate sprinkles have gone through the `roof`!
+- There's two ways out i figger - over the `roof`, but that's only one person, maybe two.
+- The security team is only present to preserve floor integrity, due to the `roof` access.
+- One shot: one bomb, falling though the `roof`, building coulda been made of <u>legos</u>.
+- What i want to do is give passing beggars a `roof`, some food, and a bit of human warmth.
+- I'd like to believe in fairy tales, but a guy that's fake isn't gonna jump off any `roof`.
+- You mean where we were safe, well-fed, the only friend i have is the frisbee on the `roof`.
+- Ah, but consider this, if we don't finish the `roof`, we can looks at that sky all the time.
+                 

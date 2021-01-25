@@ -1,0 +1,68 @@
+---
+title: "Carter in a sentence | Carter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Carter"
+---
+- I am herbert `carter`.
+- Good day, mr. `carter`!
+- Thank you, mr `carter`.
+- `Carter`'s here, though.
+- Signed burke, `carter` j.
+- Stay out of it, `carter`.
+- `Carter` �� bank examiner.
+- Thank you, agent `carter`.
+- This is helen `carter`.
+- Tell me the truth, `carter`.
+- `Carter`, get off that stage!
+- `Carter`, would i lie to you?
+- I'm not interested, `carter`.
+- What's landon `carter` up to?
+- `Carter`, can i have a moment?
+- Mr. `carter`, merry christmas.
+- Secret service agent `carter`.
+- `Carter` is suddenly attentive.
+- `Carter`, you don't understand.
+- `Carter`... you go after ricky.
+- Don't press your luck, `carter`.
+- Don't worry, he's with `carter`.
+- What's your point, dr. `carter`?
+- Yo, johnson... `carter`, shut up!
+- You think this is funny, `carter`?
+- That'll be all today, mr. `carter`.
+- You can and you will, mr. `carter`.
+- How would you do that, mr. `carter`?
+- It's alright to be scared, `carter`.
+- Mr. `carter`, this is mr. bernstein.
+- 'course, missed the show... `carter`.
+- I don't like that word much, `carter`.
+- I know you, detective `carter`, right?
+- Now, come right in here, mr. `carter`.
+- You come highly recommended, `carter`.
+- `Carter`...you ready to have some fun!?
+- `Carter`...here comes the rich white man.
+- I won't let you down, professor `carter`.
+- Mr. `carter`, the head butler, sits there.
+- You've been a good friend, james `carter`.
+- Detective `carter` from the haddonfield p.d.
+- Do you know what happened yesterday, `carter`?
+- `Carter`, there's something i have to tell you.
+- Directive dated 6-12-79, signed burke, `carter` j.
+- Finding the real world to your liking, mr. `carter`?
+- Well, between you and me, mr. `carter`, we're broke.
+- Don't worry about the kidnapping, `carter`, the f.b.i.
+- Escort detective `carter` to the airport -- thank you.
+- I did some checking on that `carter` stevens character.
+- Well, i'm hardly mrs. leslie `carter` �whoever she was.
+- The "chronicle" has a two-column headline, mr. `carter`.
+- I'm not criticizing, mr. `carter`, but here's what i mean.
+- General `carter`, sir, i'd like you to reconsider your choice.
+- That's one of the things i think must be changed, mr. `carter`.
+- By accident -- he wants help with his lines -- the `carter` boy.
+- You won't believe me when i tell you that dr. `carter` was right.
+- Donald, this park was not built to `carter` only to the super rich.
+- Because there are 8,650 species of birds in the world today, mr. `carter`.
+- I'm lenora `carter`, special investigator website renewal "dippindens.com."
+- You know, once, when i was a youngster, i went to see mrs. leslie `carter` in "zaza."
+- But mr. kane, i meant - it is accepted, mr. `carter`, with assurances of my deepest regard.
+                 

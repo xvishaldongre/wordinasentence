@@ -1,0 +1,64 @@
+---
+title: "blade in a sentence | blade example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blade"
+---
+- `Blade`'s razor sharp.
+- The emperor's `blade`.
+- He poisoned the `blade`.
+- Threw a turbine `blade`.
+- [`blade` unsheathed] out!
+- He's blocking my `blade`.
+- It's a hari-kari `blade`.
+- That's razor and `blade`.
+- Blood... come on, `blade`.
+- You're one of us, `blade`.
+- You're too human, `blade`.
+- `Blade`'s unique, you know.
+- How came you by this `blade`?
+- Put it back in park, `blade`.
+- I was wrong about you, `blade`.
+- `Blade` -- just get out of here.
+- `Blade` the big, bad boogie-man.
+- Will you ride the `blade` with me?
+- You're wasting your time, `blade`.
+- Had a great swing with his `blade`.
+- 'swish actor gets the gay `blade`.'
+- You got something in mind, `blade`?
+- The `blade` is no ordinary metal.
+- Cuttin' up some bitch with a `blade`.
+- What the hell are you doing, `blade`?
+- You're just sharp as a razor `blade`.
+- The `blade`, it stopped me from phasing.
+- `Blade` doesn't talk about anything much.
+- I thought you said it was just a `blade`.
+- Keeper of the legendary damascus `blade`.
+- Nomak said something to `blade` in greek.
+- Put the `blade` right down on her throat.
+- So how long have you known `blade`, anyway?
+- You've got the best of both worlds, `blade`.
+- Ain't never had no girl pull a `blade` on me.
+- `Blade` doesn't talk about the old days much.
+- Knife with the not-quite- retractable `blade`?
+- Lao motions to grange with the killing `blade`.
+- `Blade` ferrets their rat-holes out, i map them.
+- Now you're using `blade` to exact your revenge?
+- Harrison ford in `blade` runner, he drinks whiskey.
+- He needs to take the key i'm not leaving my `blade` here.
+- How could i ask anyone i didn't steal it for the `blade`.
+- Back when `blade` had me hunting down your puckered old ass.
+- Good... the slow `blade` penetrates the shield... but look down.
+- Look you better put that `blade` away and get your head straight.
+- If i could have a `blade`, then i would be please to run with you.
+- You know, if the `blade` hit your kidney, radiation won't kill us.
+- It only looks pure because blood washes so easily from its `blade`.
+- So you can get close enough to stick that `blade` clarke's not here.
+- The `blade` is at a sharp upward angle, uh... and are already desecrating.
+- We're all lined up at the guillotine, waiting for the crunch of the `blade`.
+- Surely st. michael had so fine a `blade` when he drove the serpent from heaven.
+- When you put the `blade` in my hand, you knew something big was going to happen.
+- Methought you kept a naked `blade` twixt you and any maiden chanced spend the night.
+- Imagine my surprise when `blade` turned out to be the key which would set that force free.
+- See smoke from pussy, ping pong ball from pussy, razor `blade` from pussy; bird from pussy.
+                 

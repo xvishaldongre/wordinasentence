@@ -1,0 +1,96 @@
+---
+title: "block in a sentence | block example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "block"
+---
+- It's down the `block`.
+- Knock his `block` off!
+- Drive down the `block`.
+- Oh, and the sun `block`?
+- I can `block` the ladder.
+- I'm going up the `block`.
+- Lines around the `block`.
+- The 800 `block` of maple.
+- At the end of the `block`.
+- Faithful, `block` the way.
+- Four in this `block`, sir.
+- A glorified office `block`.
+- Spin it around the `block`.
+- F 2600 `block` of lakefront.
+- You moved into this `block`?
+- He says this is their `block`.
+- We need to `block` this thing.
+- You're working daffy's `block`.
+- How do you `block` all this out?
+- It's more like a mental `block`.
+- You `block` the rearview mirror.
+- Can he skate around your `block`?
+- Forty bodies in the west `block`.
+- My car's just a half `block` down.
+- I own a brownstone on this `block`.
+- Last weekend at that `block` party.
+- I don't believe in writer's `block`.
+- Why did they `block` the door again?
+- I hope the `block` is still standing.
+- Son of a building `block`, it's woody!
+- You go down the `block` to the middle.
+- Enough to level an entire city `block`.
+- How're we gonna `block` off the street?
+- Just `block` the doors, any way you can.
+- She's using pain to `block` her memories.
+- We do not allow his kind on this `block`.
+- Don't `block` the window, sizzle chest.
+- Who are you, and why do you `block` the way?
+- Go be rain man on some other bitch's `block`.
+- Halfway down that `block`, you can't miss it.
+- I don't get it, but i guess i did `block` it.
+- Maybe you're just a chip off the old `block`.
+- You are not allowed to `block` out that fact.
+- Level five, detention `block` a-23, cell 2187.
+- No good...they might `block` off the old chip.
+- Danny slepstrini is a chip off the old `block`.
+- Well, fine... we could still look at c-`block`.
+- Who told you to walk on my side of the `block`?
+- That shit went out with new kids on the `block`.
+- There'll be a new `block` of ice in the morning.
+- The stone room's on the way to the cell `block`.
+- His nuts are on the `block` and <u>we got him</u>.
+- Sollozzo'll lose our ass going around the `block`.
+- He's dragged me into every gin mill on the `block`.
+- I got the only house on the `block` that's paid for.
+- The one who disappeared up the `block` from christie.
+- You got the east `block`, west `block`, administration.
+- Why they got to have the loudest house on the `block`!
+- People say it's the safest `block` in the east village.
+- ♪ oh come, be the first on your `block` to meet his eye!
+- Well, when i walked up the `block`, i ... well, my word!
+- You realize he's already head of his `block` association.
+- We `block` the four roads into death valley and we got him.
+- A hopeless case that has a complete `block` about 'c' minor.
+- A unit was a `block` away, and the suspect got trapped inside.
+- It's called a spinal `block`, and you can't have it yet, honey.
+- What, you missing out on the cell `block` water ballet pageant?
+- B & w may have threatened litigation... cbs is on the `block`...
+- But `block` the signal from the ground so they can't wake them up.
+- 'cause i... was walkin' along a `block` behind you staring at you?
+- Send feed-back into the control sensors in that detention `block`.
+- There's officers positioned and waiting to move in a `block` away.
+- More specifically, the ones -for memory, which it will then `block`.
+- Smokey blandings is putting on sensory overload can't `block` me out.
+- I write what i've seen; the endless procession to the chopping `block`.
+- I started walking down the `block`, but i noticed the stores were empty.
+- Another day like yesterday and half the collection will be on the `block`.
+- But as your neighbor, i'd like to kick your keester clear around the `block`.
+- I'm not talking about cell `block` d. his wife had just filed for divorce.
+- Because i want to be the first one to introduce you to a new kid on the `block`.
+- We have 30 minutes to get to the cell `block`, long enough for a defector clarke.
+- You learn to sort of `block` it out, you know, like cops fence off a crime scene.
+- Harold, you don't mind strolling around the `block` a couple hundred times, do you?
+- They imagine this neighborhood to be some sort of delightful ongoing `block` party.
+- When a man loses everything, anger has a tendency to `block` out reason for a time.
+- You and nauls got to `block` off the west side bunks, the mess hall and the kitchen.
+- At that moment, at that `block` party, she represented everything holy about a virgin.
+- I use my powers to change your country, one `block` at a time, one building at a time.
+- From the way she carried herself i could tell she'd been around the `block` a few times...
+                 

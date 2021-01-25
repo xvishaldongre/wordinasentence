@@ -1,0 +1,86 @@
+---
+title: "horses in a sentence | horses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "horses"
+---
+- Hold your `horses`, man.
+- I know `horses`, robert.
+- We kind of own `horses`.
+- We'll walk the `horses`.
+- You don't hate `horses`.
+- Get back to the `horses`.
+- I do, beautiful `horses`.
+- I've got eleven `horses`.
+- Get one of their `horses`.
+- Just get me some `horses`.
+- The one with the `horses`.
+- Were there `horses` on it?
+- We must try to get `horses`.
+- Hold your `horses`, sweetpea.
+- `Horses` are nature's triumph.
+- I'm going after those `horses`.
+- It's a full 2500 `horses` down.
+- We don't need them on `horses`.
+- What do you mean, the `horses`?
+- But we gotta get to the `horses`.
+- Some `horses` fight it real hard.
+- To take one of our fastest `horses`.
+- The rest of us are truck `horses`?
+- Hold your `horses` -- will you, olsen?
+- Less, if they don't rest the `horses`.
+- `Horses` - and sheep... a cattle ranch?
+- Besides, you reek of sweat and `horses`.
+- Looks to me like i got all the `horses`!
+- No, daniel -- they are not race `horses`.
+- We're going to raise `horses` like these.
+- What is the deal with girls and `horses`?
+- Are the `horses` stragglin' or aren't they?
+- Golly -- i'd like to see all your `horses`!
+- There's all kinds of `horses`, ain't there?
+- We would've had his ass if we had `horses`!
+- But, what if you're afraid to ride `horses`?
+- Like i said, i was thinkin' of the `horses`.
+- I know at least a dozen ways to get `horses`.
+- I've gotta five thousand men but no `horses`.
+- Maybe they have `horses` like this in russia.
+- Like i told you, half those `horses` are mine.
+- Number six is why all those `horses` went bald.
+- While the `horses` wander all over the country.
+- I'd like to look at the `horses` for the eighth.
+- If wishes were `horses` even beggars would ride.
+- They packed their stuff on `horses` and went on.
+- You ain't been around `horses` much, looks like.
+- You'll have to stay here and guard the `horses`.
+- If you know anything about `horses`, sit a minute.
+- You know, like brewery `horses` and thoroughbreds.
+- That's all right -- our men can ride your `horses`.
+- There's only enough usable parts hold your `horses`.
+- We'll have some `horses` waiting for you at the road.
+- I thought a gentleman was somebody who owned `horses`.
+- Learn to read or -- -- go back and watch the `horses`.
+- They just set there on their `horses` watchin' him die.
+- Did your king give you other wealth apart from `horses`?
+- He rides passenger and he rides `horses`, and that's it.
+- That's funny, we've got five thousand `horses` but no men.
+- Any general worth anything should have a brace of `horses`.
+- Did you ever try taking a bunch of `horses` over sonora pass?
+- If our `horses` get tired they can ride your men for a change.
+- Well, my `horses` are feeding, as you may observe, mr coghill.
+- Who the hell's betting on `horses` at breakfast time in japan?
+- Stop trying to bribe her with childishness about white `horses`.
+- Forty-one wagons, a company of redcoat infantry, `horses` at the rear.
+- My `horses` ain't hungry, they wontt eat your hay-ay-aeee... go ahead!
+- Two of the `horses` ran off, but that pinto you're riding hung around.
+- You have two great loves in your life, your `horses` and this company.
+- Smokey told me he left last night to look at some `horses` in sheriden.
+- It's forty miles, sonny...`horses` can do with some grain and a little rest.
+- Wild `horses` wouldn't drag dickie to -- dickie was at the opera last night.
+- Maybe he'll take a good look at you and stop thinking so much about his `horses`.
+- This is the worst thing that ever happened kill all the `horses`... with the cars?
+- Down there feeding `horses` and raising kids, you won't have a thing to worry about.
+- Then ordering fresh `horses`, the chevalier set off on his journey for that capital.
+- I'm not running a stage line, ma'am, and i can't take a chance on losing the `horses`.
+- Times got the girlscout page twelve, post in section two.... `horses` in mid-stream...?
+- My grandpa, used to breed `horses` on his farm so i would come over and ride all the time.
+                 

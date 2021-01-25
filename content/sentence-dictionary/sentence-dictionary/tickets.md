@@ -1,0 +1,85 @@
+---
+title: "tickets in a sentence | tickets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tickets"
+---
+- `Tickets` are all set.
+- We got free `tickets`.
+- I bought the `tickets`.
+- I'll get the `tickets`.
+- `Tickets` to malkovich?
+- Here are your `tickets`.
+- You have your `tickets`?
+- Seven parking `tickets`.
+- Fifteen `tickets`, please.
+- Got the airline `tickets`.
+- We shoulda sold `tickets`.
+- I mean, you sell `tickets`?
+- So i got regular `tickets`.
+- I bought us plane `tickets`.
+- You can have both `tickets`.
+- My dad's got season `tickets`!
+- Sure, indy -- three `tickets`!
+- I bought a couple of `tickets`.
+- It didn�t say on the `tickets`.
+- Thank simone for the `tickets`.
+- The kiss `tickets`, you nimrod!
+- Parking `tickets` for chrissake!
+- Season `tickets` to the yankees.
+- 43 unpaid parking `tickets`, sir.
+- Ma spent it all for the `tickets`.
+- Traffic `tickets` gone to warrant.
+- We already paid for the `tickets`.
+- So they don't get parking `tickets`.
+- There are no more `tickets` for you!
+- You know, fred, they sell `tickets`.
+- They sell `tickets` to an impeachment.
+- Get your `tickets` to the big top here!
+- ...got `tickets` for the knicks tonight.
+- Hasn't been any big demand for `tickets`.
+- Passports, hotel reservations, `tickets`.
+- How many `tickets` can i put you down for?
+- You have 43 unpaid parking `tickets`, sir.
+- I'll get `tickets` and a cart for the bags.
+- Listen, i cancelled the `tickets` for fabian.
+- Oh -- er -- he went out to get the `tickets`.
+- Or 100 los angeles raiders season `tickets`."
+- Maybe we can glue the `tickets` back together!
+- If we could sell `tickets`, we'd make a fortune.
+- I'm sorry, you giving out `tickets` to something?
+- It ain't easy snatching one of those e-`tickets`.
+- The gun, the money, the `tickets`, and the dying.
+- Just when you've got `tickets` to the world series.
+- ...but i have `tickets` for the theater this evening.
+- Like that business about the seven parking `tickets`?
+- In the envelope are `tickets` to the dorothy chandler.
+- We didn't have enough dough for two `tickets`, did we?
+- Now we'll get the `tickets` changed for tomorrow night.
+- I'll get the `tickets` and meet you... in the gift shop.
+- Kojak here is arresting me for unpaid parking `tickets`.
+- Step right up and get your `tickets` for the freak show.
+- Remind her we've got those theater `tickets` for tonight.
+- You, me and wu han -- you got the `tickets`, short round?
+- We just watched jam's mom torch our fuckin' kiss `tickets`!
+- ♪ 'cause that was the river ♪ get your `tickets` right here!
+- Hildy, how'd you like a couple of `tickets` for the hanging?
+- Either it's *lots* of reporters and *lots* of `tickets` or--.
+- He has a shit load of unpaid parking `tickets`... any priors ?
+- I was looking for annabelle's book, and i found your `tickets`.
+- After all they've done to...hey, these `tickets` are for moscow!
+- Oh, uh, yeah, we were, but, uh, sooze, screwed up the `tickets`.
+- Uh... are there any other `tickets` charged to the same account?
+- We'll go to the show tomorrow night--we can change the `tickets`.
+- I'm not just giving those `tickets`, baxter -- i want to swap them.
+- Mr. white, you be in this shot, handing them their plane `tickets`.
+- ...until the plan changed, when jessie's mom gave us these `tickets`.
+- Oh, records and magazines and comic books are one thing, but `tickets`?
+- God willed me to find those `tickets` because he wanted to hear from you.
+- Stealing `tickets`, switching bodies...it is <u>so</u> <u>irresponsible</u>.
+- Listen, i got `tickets` for the oilers and the rams next week in the astrodome.
+- Maybe you better start thinkin' about writin' `tickets` off a three wheel bike.
+- We find four really small kids, beat the shit outta them and steal their `tickets`.
+- No--not yet--but-- two `tickets` to berlin--first class and sleeper--night train ...
+- We sent out invitations to everyone, plane `tickets` included -- the rsvp's are amazing.
+                 

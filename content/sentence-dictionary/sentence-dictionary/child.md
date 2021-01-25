@@ -1,0 +1,107 @@
+---
+title: "child in a sentence | child example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "child"
+---
+- But you're my `child`!
+- Her `child` -- my god.
+- It must wait, `child`.
+- I was a happy `child`.
+- My `child` but not me.
+- Perfect for a `child`.
+- Thank you, my `child`!
+- What is it my `child`?
+- A `child` to his death.
+- Be a masculine `child`.
+- How about this `child`?
+- How old is the `child`?
+- I thought as a `child`.
+- It would be my `child`.
+- I write like a `child`.
+- Lafayette is a `child`!
+- The `child`'s fainting.
+- When i was a `child`...
+- An innocent `child`.
+- Genuine `child` of zion.
+- Sit with me, my `child`.
+- The `child`'s trembling.
+- There's no `child` here.
+- This girl has a `child`?
+- Willie's just a `child`.
+- All right, i'm a `child`.
+- I am no longer a `child`.
+- I understand, my `child`.
+- I was a solitary `child`.
+- My `child`, you're alive!
+- My point is, - a `child`?
+- Only he's a wild `child`.
+- Since you were a `child`?
+- You aborted our `child`?!
+- You protect your `child`.
+- This innocent `child`.
+- But that's silly, `child`.
+- Don't talk like a `child`.
+- How's your <u>`child`</u>?
+- Not to pervert my `child`.
+- That `child` is a problem.
+- The `child` comes with me.
+- Betty was a lovely `child`.
+- Don't be a `child`, icarus.
+- He's as naive as a `child`.
+- He's really just a `child`.
+- I'm not a <u>`child`</u>...
+- I won't let my `child` die.
+- Junior's a problem `child`.
+- My `child`, don't you know?
+- No, my beloved, my `child`.
+- No you mustn't, my `child`.
+- Of having a second `child`.
+- Step away from the `child`.
+- Still my beautiful `child`.
+- Take a look at the `child`.
+- To break a `child`'s heart.
+- What want ye, girl `child`?
+- Wouldn't deceive a `child`.
+- Yes... a beautiful `child`!
+- Alas, the `child` is broken.
+- An innocent `child` is dead.
+- But-but-but she's a `child`.
+- He's talking like a `child`.
+- How can they have a `child`?
+- "i was a posthumous `child`.
+- That ain't no happy `child`.
+- The `child` cannot harm you.
+- You are my `child`, gabriel!
+- You mean that happy `child`?
+- The `child` isn't coming?
+- Buddy, you're just a `child`.
+- His mother's an only `child`.
+- I carried the king's `child`!
+- I couldn't love that `child`.
+- It's how we save our `child`.
+- "kathryn is a model `child`."
+- Oh, `child`, i miss her, too.
+- The `child` of gabriel stays.
+- There was a `child` with you.
+- Those are not `child`'s tear.
+- With a `child`, and a dog...?
+- You're acting like a `child`.
+- You say you're not a `child`.
+- You will have a `child`...
+- Bah, you're a `child`, lerner.
+- Have the `child` taken to bed.
+- Hey, i'm a `child` of divorce.
+- I just want to have a `child`.
+- Tell me the spoilers, `child`.
+- We forget he's just a `child`.
+- How can a `child` grow up here?
+- I could not give up my `child`.
+- I was alone a lot as a `child`.
+- Lies in the hands of a `child`.
+- Paul is mother's first `child`.
+- They're being led by a `child`.
+- Use your blood sugar, `child`.
+- Your `child`'s science teacher?
+- He is my youngest son's `child`.
+                 

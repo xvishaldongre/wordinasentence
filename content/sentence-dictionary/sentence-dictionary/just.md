@@ -1,0 +1,107 @@
+---
+title: "just in a sentence | just example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "just"
+---
+- Ben: `just` let it go!
+- But i `just` need one.
+- Can i `just` have one?
+- Can i `just` say, wow.
+- Can't you `just` quit?
+- Colonel, `just` think.
+- Com'on, `just` say it.
+- He `just` didn't care.
+- He `just` fell asleep.
+- He `just`-- yes it is.
+- He only `just` met me.
+- He's `just` an animal.
+- He's `just` confessed.
+- He's `just` exhausted.
+- He's `just` forgotten.
+- He's only `just` dead.
+- He was `just` a patsy.
+- Honey, `just` breathe.
+- I can see `just` fine.
+- I -- `just` a scratch.
+- I `just` can't, daddy.
+- I `just` can't get it.
+- I `just` can't, james.
+- I `just` don't get it.
+- I `just` don't see it.
+- I `just` drove around.
+- I `just` fnished work.
+- I `just` got divorced.
+- I `just` got it fixed.
+- I `just` go to pieces.
+- I `just` got out here!
+- I `just` got... tired.
+- I `just` have to know.
+- I `just` hurt my back.
+- I `just` kept driving.
+- I `just` let go of it.
+- I `just` need to talk.
+- I `just` quit smoking.
+- I `just` said i would.
+- I `just` want a salad.
+- I `just` want a slice.
+- I `just` want the job.
+- I `just` want to help.
+- I `just` want to know.
+- I `just` want to live.
+- I `just` want to talk.
+- I know `just` the guy.
+- I'll `just` be damned.
+- I'll `just` let you...
+- I'll `just`... oh, my!
+- I'll `just` wait here.
+- I'm `just` fine, ally.
+- I'm `just` like you...
+- I'm `just` one person.
+- I'm `just` saying, el?
+- I'm `just` sure of it.
+- I'm sorry, i `just`...
+- Is it `just` the pump?
+- Is it `just` you or...
+- I think i `just` said.
+- I think we `just` did.
+- It is `just` a review.
+- It `just` all came up.
+- It `just` disappeared.
+- It `just` feels right.
+- It `just` slipped out.
+- It's `just` a day off.
+- It's `just` a feeling.
+- It's `just` a game...!
+- It's `just` a mistake.
+- It's `just` an excuse.
+- It's `just` a picture.
+- It's `just` a scratch.
+- It's `just` a thought.
+- It's `just` beautiful.
+- It's `just` beginning.
+- It's `just` insurance.
+- It's `just` my sister.
+- It's `just` not there.
+- It's `just` one night.
+- It's `just` scribbles.
+- It's `just` tap water.
+- It's `just` the truth.
+- It's `just` upsetting.
+- It's `just` what i do.
+- It's not `just` blood.
+- It's not `just` clubs.
+- It was `just` a dream.
+- It was `just` an idea.
+- It was `just` a thing.
+- It was `just` a voice.
+- It�s all `just` words.
+- I want to `just` talk.
+- I was `just` going to!
+- I was `just` going to.
+- I was `just` thinkin'.
+- I was `just` thinking.
+- Jonathan, `just` come.
+- Judge -- `just` a sec.
+- `Just` a confused man.
+                 

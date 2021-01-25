@@ -1,0 +1,107 @@
+---
+title: "dead in a sentence | dead example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dead"
+---
+- At least 1,500 `dead`.
+- Barnes, you're `dead`!
+- Bring out your `dead`!
+- Carson dyle is `dead`.
+- Definitely not `dead`!
+- Fred krueger's `dead`.
+- Golitsyn�s `dead` too.
+- Grimes, you're `dead`!
+- Had a `dead` man once.
+- Hell, he looks `dead`.
+- He's * already `dead`.
+- He says you're `dead`.
+- He's `dead` because...
+- He's `dead`, isn't he.
+- He's `dead`, you know.
+- He's only just `dead`.
+- I believe he's `dead`.
+- I saw his `dead` body!
+- It helps me... `dead`.
+- Jill layton is `dead`.
+- Joint's pretty `dead`.
+- Liza sutton is `dead`.
+- Maybe he's not `dead`.
+- My parents are `dead`.
+- Only he wasn't `dead`.
+- Otherwise, i'm `dead`.
+- Scott haydn is `dead`.
+- She's `dead` now, too.
+- She's not `dead` soft.
+- The day of the `dead`.
+- The old man is `dead`.
+- The one that's `dead`.
+- The patient is `dead`.
+- They're `dead` grotty.
+- They want lexa `dead`.
+- Three kids are `dead`.
+- Uh... clarke's `dead`.
+- We are fucking `dead`.
+- We'd be `dead` by now.
+- Well, now he's `dead`.
+- We're all `dead`, man.
+- When we're all `dead`?
+- You mean she's `dead`?
+- You're fucking `dead`!
+- Your father is `dead`.
+- You wanted him `dead`.
+- You were `dead` wrong.
+- 40 meters `dead` ahead.
+- All my sons are `dead`.
+- Because bond is `dead`?
+- Cooper would be `dead`.
+- `Dead` on all channels.
+- Evan shaeffer's `dead`.
+- Figured him for `dead`.
+- Gwen, my wife's `dead`.
+- He might be `dead` now.
+- He's better off `dead`.
+- He's busy being `dead`.
+- He's `dead`, all right.
+- He's `dead`, you bitch.
+- Iggy pop is not `dead`.
+- I thought i was `dead`.
+- It's a `dead` giveaway.
+- It's `dead` and buried.
+- It's just a `dead` guy.
+- Leave him, he's `dead`.
+- Mrs. wheeler is `dead`.
+- My client... is `dead`.
+- My father's `dead` too.
+- No, son, she is `dead`.
+- Nothing `dead` will go.
+- She's `dead` isn't she?
+- The city of the `dead`.
+- The city of the `dead`.
+- The city of the `dead`.
+- The comedian is `dead`.
+- The engines are `dead`.
+- The princess is `dead`.
+- They're already `dead`.
+- Who is `dead`, my lord?
+- Yaa, i'm a `dead` poet!
+- Yeah, well he's `dead`.
+- You left me for `dead`.
+- You're `dead`, wheeler!
+- You're `dead`, wheeler.
+- You're mother's `dead`.
+- Your husband is `dead`?
+- He's `dead` serious.
+- His father's `dead`.
+- And lexa will be `dead`.
+- But the saucer's `dead`.
+- `Dead` hero father rule.
+- Death mask means `dead`.
+- Don't want to be `dead`.
+- Four of ours are `dead`.
+- Frida, carlton's `dead`.
+- He says he's not `dead`.
+- He's not `dead`, ronnie.
+- How `dead` she still is?
+- I'm a `dead` man anyway.
+                 

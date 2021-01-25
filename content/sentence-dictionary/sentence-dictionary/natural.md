@@ -1,0 +1,106 @@
+---
+title: "natural in a sentence | natural example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "natural"
+---
+- That's only `natural`.
+- I got a `natural` high.
+- It's fuckin' `natural`.
+- It's only `natural`....
+- Don't act `natural`.
+- Y'all just act `natural`.
+- Benes' `natural` defenses.
+- `Natural` selection works.
+- Or: "`natural` composting."
+- Wasn't a `natural` die-off.
+- You're a `natural` at this.
+- I'm a `natural` born killer.
+- Just be `natural`, goddamit.
+- Killing's totally `natural`.
+- Looks like `natural` causes.
+- No, this is -- -- `natural`.
+- It's a `natural` inclination.
+- Oh, my god, he's a `natural`.
+- This is my `natural` element.
+- Jesus christ, he's a `natural`!
+- Women in their `natural` state.
+- Ever see `natural` born killers?
+- I have a `natural` curiosity.
+- `Natural` pro- gression of aging.
+- My `natural` pigmentation is navy.
+- You need healthy, `natural` sleep.
+- Did i say it was a `natural` death?
+- Everyone is so perfectly `natural`.
+- I wish i had your `natural` talent.
+- It's almost a `natural` inclination.
+- Letty, it's `natural` to be nervous.
+- Some people are `natural` putterers.
+- Forget that `natural` childbirth shit.
+- You're a `natural`-born revolutionary.
+- A `natural` athlete can play any sport.
+- I don't have to but i find it `natural`.
+- Intelligent, well informed, a `natural`.
+- It can be a `natural`, zesty enterprise.
+- It doesn't sound `natural` when i curse.
+- Look kind o' `natural`, don't they, fred?
+- Death, `natural` or not, prison, deported.
+- `Natural` to the line of work they was in.
+- This thing goes against all `natural` laws.
+- You're not, this is `natural` - it's shock.
+- Plays the lute, she has a `natural` ear.
+- Have you no `natural` resources of your own?
+- I think that you and i are `natural` enemies.
+- Some folks take that `natural` stuff too far.
+- Wouldn't you feel more `natural` taking a bow?
+- It doesn't know how to hunt its `natural` prey.
+- Motherhood is a very `natural` instinct for me.
+- Dixie mccoy found me, figured i was a `natural`.
+- One of the seven `natural` wonders of the world.
+- Well, to begin with, i'm not a `natural` blonde.
+- Women are so much sexier when they're `natural`.
+- `Natural` weather delivered to your door on demand.
+- Was the heart attack the result of `natural` causes?
+- We'll simply be restoring their `natural` evolution.
+- All they want to do is regulate our `natural` growth!
+- Father, if it was so trivial, so `natural`, so -- no.
+- That darkness is part of their `natural` development.
+- Look at this structure... a kind of `natural` shelter.
+- M-flat, j-sharp, v, cursive g, frank, frank `natural`.
+- Two young lovers with frightening `natural` chemistry.
+- It sounds like these boys died of `natural` causes.
+- You know nothing about feelings, `natural` or unnatural.
+- Do i want to be with you for the rest of my `natural` life?
+- If you didn't call me sourpuss, it wouldn't feel `natural`.
+- Why -- a `natural` desire to help finish the work we began!
+- But i could teach you the secret of clean, `natural` energy.
+- Excuse me, gentlemen, there's nothing `natural` about that .
+- Mary patrick, you re not a `natural` soprano, you're an alto.
+- You've had a `natural` four times in a row in a crap game.
+- Nothing, jabez -- just `natural` for a baby to cry, sometimes.
+- Oh god, he's coming over here, act `natural`, totally `natural`.
+- Take abraham lincoln, for instance�a `natural` "piggy-backer."
+- What you call discovery i call the rape of the `natural` world!
+- I acknowledge the existence of a `natural` impulse common to all.
+- My daddy taught both of us to play but emory was `natural` at it.
+- Look, why don't you and lila stay here and have your `natural` life.
+- We've found `natural` locations for the whole story-- no, we're jake.
+- Well--enjoy the `natural`, honest, unrehearsed result--surgical shock.
+- I'm curious, that's all, i have a `natural` curiosity, it's only human.
+- It's dying that isn't `natural`... because it ain't `natural`, young man.
+- It's a matter of getting used to death-- as a perfectly `natural` thing.
+- You can't just rely on `natural` ability, you've got to study and practice.
+- If not, you'll certainly see the destruction of all out `natural` resources.
+- It's only `natural` to feel a heightened sense of tragedy when a child dies.
+- Melodrama coming from you seems about as `natural` as an oral bowel movement.
+- There's no way - no `natural` way - these could've wound up in the bodies?
+- Do you think it was `natural`, or like some people are claiming, supernatural?
+- I can no more shut down my own `natural` defences that you can stop breathing.
+- It held that evolution wasn't always gradual or driven by `natural` selection.
+- Talk to reiben, he's a `natural` and works at it, he'll give you some pointers.
+- Behavior in their `natural` habitat, the impossible dream of any paleontologist.
+- Seemed the most honest way to begin life together again--`natural`, unrehearsed.
+- "half-empty" - that's what i like about you, seymour, you're a `natural` pessimist!
+- Winds are too strong to get a chopper up there, are you near any `natural` shelter?
+- It's quite `natural` that he should read books on the history of old religious societies.
+                 

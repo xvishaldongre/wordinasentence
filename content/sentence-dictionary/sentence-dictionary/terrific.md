@@ -1,0 +1,85 @@
+---
+title: "terrific in a sentence | terrific example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "terrific"
+---
+- He's `terrific`, carl.
+- Not `terrific` enough.
+- `Terrific` work today.
+- They sound `terrific`.
+- What `terrific` story?
+- Boy, that's `terrific`.
+- Hey, that's `terrific`.
+- Thinks it's `terrific`.
+- I got a `terrific` hand.
+- Norm, that's `terrific`!
+- Not too `terrific`, sir.
+- That's a `terrific` idea.
+- That's a `terrific` line.
+- Well, this is `terrific`.
+- You're really `terrific`.
+- You were `terrific`, too!
+- I think you're `terrific`.
+- Oh, but he was `terrific`.
+- That's a `terrific` story.
+- Your cornea is `terrific`.
+- A `terrific` piece of work.
+- I though it was `terrific`.
+- Oh, that's `terrific`, rob.
+- She's got a `terrific` kid.
+- You're a `terrific` artist.
+- It's going to be `terrific`.
+- This looks `terrific`, lucy.
+- Oh, honey, that's `terrific`!
+- We all had a `terrific` time.
+- Well, that's `terrific`, rob.
+- That's `terrific`... my right.
+- Why, babe - that's `terrific`!
+- You're a `terrific` assistant.
+- Thanks a lot that's `terrific`.
+- Jesus, man, you look `terrific`.
+- Why, that's `terrific`, chauncey.
+- I don't care how `terrific` it is!
+- This is a `terrific` presentation.
+- We think you did a `terrific` job.
+- I think your passion is `terrific`.
+- Sometimes she's `terrific`... oh-oh.
+- That'll be `terrific` for him, i think.
+- You've done a `terrific` job, jean- luc.
+- I think he's got a `terrific` personality.
+- Aren't they doing a `terrific` job this year?
+- `Terrific`...except...it just occurred to me.
+- This is `terrific` work, if you like rejection.
+- I'm `terrific`... come on.... no, you're not....
+- You're a `terrific` chess player mr. danvers.
+- As long as it comes naturally, that's `terrific`.
+- I've got one chapter guizot thinks is `terrific`.
+- It looks `terrific`, but is that what i really want?
+- It's all right for me, it's been `terrific`, you know?
+- It's so good to see you too, ben, you look `terrific`!
+- Thanks, but we have a `terrific` woman in on thursdays.
+- Oh, you knew i wanted this... god, it's `terrific`, god!
+- Clark personally, i think it could be a `terrific` story!
+- Mary lazarus, you're `terrific`, but... could you help us?
+- Or let me get you someone; i have `terrific` friends, wild.
+- Didn't you write that `terrific` book - 'the color of fear'?
+- He and lloyd had a `terrific` row but lloyd insisted... well.
+- This is a `terrific` entrance hall, what a welcoming feeling.
+- I've got some `terrific` news about your friend, mr. carpenter.
+- They got into a `terrific` argument outside the pig 'n whistle.
+- A...i really...think that you're a `terrific` performer... fine.
+- ...have a, i have a `terrific` problem with authority, you know.
+- It's been `terrific` spending the entire day with your "crack team".
+- You seem like a `terrific` guy, max, and i'm grateful for the job...
+- Oh-- i don't know-- thanks, mr. reiss, but-- kid, you were `terrific`.
+- This is `terrific`, and i'll tell you why: it's <u>cost effective</u>.
+- I mean, realistically, what are the odds that this is a `terrific` guy?
+- That's that's `terrific` to hear from someone so... feminine, so female.
+- I thought we'd have a really `terrific` time, and now i've... no - i'm sorry!
+- You know, not many people knew about it, but the fuhrer vas a `terrific` dancer.
+- You're really `terrific`, you know what i mean --linnea rolls over and faces him.
+- He is... you sat in that coffee shop across from school-- he looks like a `terrific` kid.
+- Especially if you'd be a really `terrific` guy and bring me a cheeseburger to go -- you do?
+- Jim--if i fling a party man like horace in the face of those angry committees-- `terrific`!
+                 

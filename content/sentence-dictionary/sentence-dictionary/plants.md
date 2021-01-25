@@ -1,0 +1,52 @@
+---
+title: "plants in a sentence | plants example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plants"
+---
+- It comes from the `plants`.
+- Many `plants` carry viruses.
+- Jungle `plants` in the arctic?
+- "trees and `plants` give us shade.
+- Last coal-powered nuclear `plants`.
+- Owns one of the `plants` in juarez.
+- Which one of you `plants` the bomb?
+- We're gonna feed it to the `plants`.
+- `Plants` always make an office cozier.
+- These `plants` don't like a lot of sun.
+- It wants the hormones in these `plants`.
+- Tony: and you're starting with `plants`.
+- Yes, gabriel, i'm talking to the `plants`.
+- Short of eradicating the infected `plants`.
+- I mean, it is for the `plants`, who is this?
+- Don't you guys tell anybody about my `plants`.
+- I mean how many `plants` were even back there?
+- I knew i shouldn't have watered those `plants`.
+- Chief, chief, space `plants` are eating everyone.
+- Two days ago, these `plants` were on life support.
+- It would have to live with animals -- and `plants`!
+- The nuclear power `plants` are you out of your mind?
+- What happened to the rest of whittlesley's `plants`?
+- Who's minds are linked, for the `plants` and for us.
+- That's because she likes `plants` better than people.
+- There are more than a dozen at-risk `plants` we fight.
+- The eclipse causes the `plants` to release a toxin wait.
+- Of course, the `plants` enrich the soil around the trees.
+- The earth will become a brave new world of only `plants`.
+- You have to learn which `plants` you can eat and which...
+- Poets have silly notions about `plants` and bodily secretions.
+- Filled with man-eating bugs and toxic `plants` still breathing.
+- Whenever you want to visit their `plants` they are open to you.
+- I've got shitty light in my place, but my `plants` don't seem to mind.
+- The anomaly has a similar effect on the `plants` here, hello, simpsons.
+- They'll keep the `plants` in secure lock up while the studies are made.
+- I don't care if i'm the last the nuclear power `plants` i just got home.
+- I have created a race of `plants` with the strength of the deadliest animals.
+- Who needs a curator of plant biology in a museum with one exhibit on `plants`?
+- He pulls alex's ear, pushes him off balance and `plants` his foot on his chest.
+- You have `plants` right here in this building, for example, that are poisonous.
+- [in english] honey, opening `plants` outside of china may not play so well here.
+- When these `plants` bud i'll probably have about six thousand dollars worth of weed.
+- He became addicted to them in south america, followed the `plants` back to the states.
+- I've salvaged a few of the healthy `plants` to use for seeds... well, who owns hawkins lab?
+                 

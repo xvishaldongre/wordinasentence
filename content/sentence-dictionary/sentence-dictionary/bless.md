@@ -1,0 +1,51 @@
+---
+title: "bless in a sentence | bless example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bless"
+---
+- Really... `bless` her!
+- Well, `bless` my soul.
+- God `bless` you, maggie.
+- Well, `bless` her heart.
+- `Bless` you -- till then.
+- Raven... god `bless` you.
+- God `bless` us, every one.
+- `Bless` you... don't worry.
+- Say... god `bless` america!
+- `Bless` you, darling darling!
+- I was downhearted `bless` you.
+- God `bless` you for helping us.
+- First, i must `bless` this house.
+- `Bless` you, thank you, thank you.
+- We will `bless` them for eternity.
+- Well, god `bless` you, mr. simpson.
+- The lord `bless` thee and keep thee?
+- `Bless` me, i thought it was a horse.
+- `Bless` me, father, for i have sinned.
+- Good god almighty, `bless` your bones.
+- I `bless` the day you came to us, son.
+- He does `bless` me, each and every day.
+- If westley wants you, `bless` you both.
+- Anna: we will, sir, and god `bless` you.
+- Isn't there a '`bless` you' in the crowd?
+- Soon, but first i must `bless` this house.
+- My very best to johnnie... `bless` his soul.
+- God `bless` you, content-addicted clickbaiters.
+- She will, mr. laloosh, she will ... god `bless` you.
+- Hey, `bless` your heart for what you're trying to do.
+- God `bless` the united states of america welcome back.
+- God `bless` you, my boy; and when i count three, fire.
+- I mean, we had a priest come in and `bless` the house.
+- `Bless` us, o lord, for this bountiful feast... - twice.
+- My tenants and my ex- husband--goddamn-`bless` his soul.
+- Your father, god `bless` him, wasn't much for traveling.
+- Rakonin, `bless` him, has given me the most amazing news!
+- God `bless` america and god `bless` each and every one of you.
+- God `bless` rod and todd and especially my wonderful mentor, a cave.
+- `Bless` the maker and his water... `bless` the coming and going of him.
+- God `bless` you and, as i like to say, so, mike, you seem like a sharp tack.
+- Oh, `bless` ye the works of the lord in the hail and the storm and the rain!
+- You should `bless` me for destroying him before he found out what you really are.
+- Happy birthday... `bless` me, doctor; and what beams you into this neck of the woods?
+                 

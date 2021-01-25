@@ -1,0 +1,107 @@
+---
+title: "woods in a sentence | woods example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "woods"
+---
+- The `woods` were dark.
+- Tiger `woods`' father.
+- Go back to the `woods`.
+- These `woods` are alive!
+- We'll sweep the `woods`.
+- Buried it in the `woods`.
+- The hostiles in the `woods`.
+- Good work today, ms. `woods`.
+- Movement in the east `woods`.
+- We should search the `woods`.
+- Aimlessly through the `woods`.
+- These are the enemy's `woods`.
+- We disappear into the `woods`.
+- What do you mean, the `woods`?
+- Who owns the `woods` up ahead?
+- Everybody, eyes on the `woods`.
+- Get ya ass up in them `woods`!"
+- Who attacked me in the `woods`.
+- Did you run through the `woods`?
+- Marcus, search the damn `woods`.
+- Now, we're going to the `woods`.
+- Our scouts patrol these `woods`.
+- What do you mean, "the `woods`"?
+- Mostly i camp out in the `woods`.
+- Returning to the western `woods`?
+- These `woods` must be the border.
+- You taking a walk in the `woods`?
+- David -- especially tiger `woods`.
+- Does the pope shit in the `woods`?
+- For everyone in the south `woods`.
+- Let's drop him in the `woods` mom!
+- Once we're in the `woods`, we win.
+- We can’t give up the west `woods`.
+- You should've died in the `woods`.
+- Clarke and finn know these `woods`.
+- How many others are in the `woods`?
+- You can't even walk in the `woods`.
+- He might just be out of the `woods`.
+- In these `woods` you are a commoner.
+- It's hard to operate in the `woods`.
+- e west `woods` are mined, bellamy.
+- Exploring the `woods` all by himself.
+- Rose is being offered to the `woods`.
+- She's in the `woods` with the others.
+- Build them a dormitory in the `woods`.
+- Last landmark i know in these `woods`.
+- There's a clan, allies of the `woods`.
+- They withdrew into these `woods` here.
+- This is for the north `woods` section!
+- When he was watching from the `woods`.
+- And is alone in the `woods` with emori.
+- Pick a rendezvous point in the `woods`.
+- That creepy cemetery up in the `woods`.
+- In the `woods` you said you had nothing.
+- I think there's something in the `woods`.
+- The one that goes into the `woods`--sure.
+- Uh, it's in the `woods` behind our house.
+- Yeah, she loves to go out in the `woods`.
+- Haven't got lost in the `woods`, have you?
+- Why don't we just cut through the `woods`?
+- Your child will die in those same `woods`.
+- I'm pretty sure i lost them in the `woods`.
+- In the `woods` watching your back, no doubt.
+- There are traitors in these `woods`, report.
+- A lenape indian lives in the western `woods`.
+- The `woods` were cold and damp from the rain.
+- Two kids were found mutilated in the `woods`.
+- Well, down here, there's nothing but `woods`.
+- He's carrying her off now through the `woods`.
+- [thunder] will didn't get lost in the `woods`.
+- We've already got 4 hostiles in these `woods`.
+- If she's still here by then, no more `woods`.
+- Once we're in the `woods`, we take the village.
+- He would not have gone into the western `woods`.
+- A woman should not be out alone in these `woods`.
+- He dragged me deeper and deeper into the `woods`.
+- I'm a null who was left out to die in the `woods`.
+- Take a team and sweep the `woods` for her friends.
+- They found me hiding in the `woods` near the camp.
+- Yesterday in the `woods`, he could've escaped, no.
+- Will lead you through the `woods` into your camp.
+- No offense, marcus, but i'm keeping the job `woods`?
+- Put me in the `woods`, let me live or die on my own.
+- And he'll kick your people out to die in the `woods`.
+- How she have that baby in the `woods` by herself?
+- So help me god, xavier, will got lost in the `woods`.
+- You paid for mail-order rats _ you're in our `woods`!
+- Stands on the edge of the `woods`, almost in a trance.
+- There ain't no possums in this `woods` tonight, daddy.
+- I mean, out there in the `woods` dustin-- ah, ah... ah!
+- I remember carrying your ass through the `woods` in it.
+- Spock - what are you doing in this neck of the `woods`?
+- We'd never make it back through these `woods` at night.
+- With madi's knowledge of the `woods`, i don't think so.
+- You've been caught stealing in the commander's `woods`.
+- We believe she's in the `woods` with a group promise me.
+- What you said about them taking me out to the `woods`...
+- According to legend, it left a hole in the `woods` indra?
+- Donovan actually said the words "good work, ms. `woods`".
+- Let's celebrate with a long hike in the `woods` tomorrow!
+                 

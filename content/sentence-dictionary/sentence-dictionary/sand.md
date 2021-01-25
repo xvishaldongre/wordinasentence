@@ -1,0 +1,72 @@
+---
+title: "sand in a sentence | sand example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sand"
+---
+- It came from the `sand`.
+- Man's older than `sand`.
+- I cannot stop the `sand`.
+- We got `sand` to protect.
+- `Sand` won't be a problem.
+- Two, the lightning `sand`.
+- Is there `sand` in my eyes?
+- Epps, is that a `sand` dune.
+- This `sand` is `sand`-colored.
+- We were lying in the `sand`.
+- Because it takes like `sand`.
+- Because it tastes like `sand`.
+- It's not organic, it's `sand`.
+- You've got `sand`, for a maid.
+- The air is filling with `sand`.
+- Where are the `sand`-cat tracks?
+- For chrissakes, it's only `sand`.
+- They call him "the `sand` spider".
+- You know, like `sand` and castles.
+- Boss, we got movement on the `sand`.
+- Goddam `sand` thing drive you crazy.
+- Are you cleaning `sand` from my ears?
+- They rub `sand` into it for traction.
+- Let's get together `sand` talk it over.
+- To this `sand`, you fbi's kicked all up.
+- All i can see is a lot of blowing `sand`!
+- There is `sand` enough for only one life.
+- I had a couple of `sand` niggers out there.
+- Rocks, `sand` -- those two men who deserted.
+- So there's no `sand` to make the water murky.
+- But you saw -- the men go under the `sand` ...
+- We are worse than `sand` in a hot dog, eh, lou?
+- He's too scared to even come down to the `sand`.
+- I steady it out, they blow us out of the `sand`!
+- Old seti's fortune's gotta be under this `sand`!
+- I will as soon as i get the `sand` out of my nose.
+- Let's go look at the `sand` pit behind your house.
+- One weapon fused for air burst at ten thou- `sand`.
+- All we gotta do is `sand` and paint the cabin, dude.
+- I'm talking about drawing a line in the `sand`, dude.
+- Lot of good you were when i was sinking in the `sand`.
+- That `sand`'s the cleanest thing in you, including me.
+- Better grab up some `sand` to take home to your family.
+- I'm saying you're about as romantic as a bag of `sand`.
+- The entire necropolis was rigged to sink into the `sand`.
+- I would have married him anyway... silicon is from `sand`.
+- They're watching for wormsign... the telltale `sand` waves.
+- Drink a few beers, wait for a fish to flop up on the `sand`.
+- Tribuus, tomorrow he dies -- i want his blood on the `sand`.
+- That was a dance we invented at the international `sand` club.
+- I'm not getting caught in a miniature `sand` trap with that guy.
+- A toast, to the international `sand` club - may it soon resurface.
+- Composition of the `sand`, ...trace elements..unique... what is it?
+- ...i gotta hand it to him, he tossed a lot of `sand` in their eyes.
+- There's something out there, you know, something under that `sand`.
+- I'm not talking about hooking some poor dogfish or `sand` shark.
+- There's a `sand` barricade up ahead; i'm going to ram this cab into it.
+- Those arabs won't be when they start chasing you around the `sand` dunes.
+- We approached a long `sand`-bank stretching down the middle of the river.
+- Than this movie's red `sand`... ok, can you take some notes for me, please?
+- The sun, the `sand`, the sea and all that nature shit can really get to you.
+- That's from when they were making eighteen thou- `sand` a week, and no taxes.
+- Non- specific mud traces of asphalt, oils, blah, blah... `sand` and... carnuba wax.
+- All i remember is him turning into a blast of `sand`,... and then i remember nothing.
+- But you just can't bury your head in the `sand` like some ostrich, goddammit, elizabeth!
+                 

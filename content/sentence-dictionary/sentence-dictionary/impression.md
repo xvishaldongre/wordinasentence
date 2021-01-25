@@ -1,0 +1,64 @@
+---
+title: "impression in a sentence | impression example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "impression"
+---
+- I get that `impression`.
+- Nice first `impression`.
+- Okay, do an `impression`.
+- Some immediate `impression`.
+- Made a big `impression` on him.
+- I kind of got that `impression`.
+- What is your `impression` of her?
+- Guess i got the wrong `impression`.
+- Must of made quite an `impression`.
+- ...but i'll make a big `impression`.
+- You make quite a first `impression`.
+- That would have made an `impression`.
+- You've made a wonderful `impression`.
+- Yes, she makes quite the `impression`.
+- I'm just trying to make an `impression`.
+- You have a way of making an `impression`.
+- That'd create the very worst `impression`.
+- I haven't made a strong enough `impression`.
+- That is merely your *`impression`*, senator.
+- Being so sick made a big `impression` on her.
+- I give the wrong `impression` sometimes and...
+- Your `impression` is very reassuring, brother.
+- I dress up when i want to make an `impression`.
+- Doesn't necessarily give the right `impression`.
+- Ma'am, your first `impression` isn't going well.
+- One gets a wrong `impression` of the new russia.
+- We've got to help lisa make a good `impression`.
+- Now you say you're sorry i got that `impression`.
+- You must have a rather strange `impression` of us.
+- I have the `impression` he never gets any exercise.
+- Now, we want to make a good `impression`, don't we?
+- Your reprimand made quite an `impression` i'm sure.
+- Cause you made such a good `impression` the first time.
+- I have the `impression` that i didn't change that much.
+- Uh... not a great first `impression`... dinner's ready.
+- We should think about making a good first `impression`.
+- It was softer'n i thought, that was my main `impression`.
+- I think that you've gotten the wrong `impression` about me.
+- If i gave you the `impression` i hated him i didn't mean to.
+- Don't you want to make a good `impression` on your first day?
+- I was under the `impression` i would be meeting juan obregon.
+- My `impression` was that he's just another blundering american.
+- Do we give the `impression` of people who are pressed for money?
+- I think it's great that i made an `impression` at all, you know.
+- I'm crazy about you, and i thought i'd made an `impression` on you.
+- You're not so so invisible, ya know... you want make an `impression`?
+- We were under the `impression` they were being held against their will.
+- Benjamin, i want to apologize to you if that's the `impression` you got.
+- I gave him the `impression` that there was a fly crawling up my mom's leg.
+- The extreme always makes an `impression`, but you're right, it was severe.
+- It would spoil the not unfavorable `impression` you make in other respects.
+- Yes �� yes, if she made that much `impression` on you, i'm sure it was jacqueline.
+- I had the `impression`...from the model... that the two planets were moving as one.
+- I guess it made an `impression` on me, that's why i was pretty sure i recognized you.
+- We could give the public the `impression` that we were doing something... charitable.
+- My parents always said you never get a second chance to make a good first `impression`.
+- Well, no...but... are you under the `impression` that now i'm in some way obligated to you?
+                 

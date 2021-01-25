@@ -1,0 +1,107 @@
+---
+title: "killer in a sentence | killer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "killer"
+---
+- Don't worry, `killer`.
+- `Killer` physics test.
+- The `killer`'s got me!
+- A `killer` of children?
+- Always a mood `killer`.
+- But i'm not a `killer`!
+- But you're no `killer`.
+- It's a career `killer`.
+- Serial `killer` killed.
+- You have `killer` legs.
+- He's not a cop `killer`.
+- It's healer to `killer`.
+- Milton's not a `killer`.
+- The `killer` called her.
+- This guy is a `killer`!!
+- What about his `killer`?
+- Are you the `killer` ben?
+- He looks like a `killer`.
+- He's a `killer`, brian...
+- The `killer` left a note.
+- Why'd call me a `killer`?
+- Are you a serial `killer`?
+- Dick low's a `killer` too.
+- Fear is the mind-`killer`.
+- He's a real lady `killer`.
+- Is there a `killer` loose?
+- Whoa... she is a `killer`.
+- A one-day pattern `killer`.
+- I'm more `killer` than him.
+- Mary, the man's a `killer`.
+- Tommy jarvis is a `killer`.
+- And a cold-blooded `killer`.
+- I'm a natural born `killer`.
+- I'm a professional `killer`.
+- I'm... not... a... `killer`.
+- Love's a `killer`, isn't it?
+- The `killer` found me dewey.
+- The `killer`'s inside there!
+- The `killer` wasn't chinese.
+- The mark of a true `killer`.
+- I'm a `killer`, nothing more.
+- I'm just a `killer` for hire.
+- `Killer`'s male, white, 40's.
+- Now by `killer`, you mean...?
+- The guy's a trained `killer`.
+- Ya gettin 150 grand `killer`.
+- You put the `killer` in jail.
+- A `killer` still on the loose.
+- All right... romance `killer`.
+- I think milton's the `killer`.
+- So you're a `killer`, are you?
+- I he thinks she's the `killer`.
+- It has a `killer` refresh rate.
+- I told you i'm a damn `killer`.
+- Our `killer` doesn't love fire!
+- Sandy, this guy is a `killer`!!
+- She could be a serial `killer`.
+- Speck's the `killer` all right.
+- The `killer`'s looking for you!
+- You're a `killer`, an assassin.
+- You're not a `killer`, octavia.
+- I can tell she's not a `killer`.
+- I'm not a cold-blooded `killer`.
+- Maybe there is a third `killer`.
+- The `killer` is still out there.
+- There's a `killer` on the loose.
+- Where's your fisherman `killer`?
+- Your `killer`'s name is chloe...
+- Find susan's `killer`, mr. white.
+- Fine words from a child `killer`.
+- I'm a mad `killer` on the loose.
+- Once a `killer`, always a `killer`.
+- * * you're not a `killer`, lenny.
+- I know only that he is a `killer`.
+- It's some psycho `killer` groupie.
+- The pathology of a serial `killer`.
+- They have a `killer` baseball team.
+- Why imitate a dead serial `killer`?
+- With this pad, the `killer` wheels?
+- Yeah, this is the monster `killer`!
+- A ghost masked `killer` stares back.
+- They hired the perfect `killer`.
+- But i am that's the `killer`, honey.
+- This morning you weren't a `killer`.
+- With a `killer` surveillance system.
+- Give me a psychotic `killer` any day.
+- I'm more a hot-blooded `killer`, huh?
+- Name the `killer` in friday the 13th.
+- No... name the `killer` in halloween.
+- That rene...lovely girl...a `killer`!
+- The `killer` has yet to strike twice.
+- The `killer` wants me out of the way.
+- You're bothering the serial `killer`.
+- A `killer` lives while a warrior dies?
+- [beat] you're the cop `killer`, right?
+- How did you know speck was a `killer`?
+- I don't want to be a `killer` anymore.
+- That's the worst `killer` of them all.
+- The `killer` knew right where she was.
+- The `killer` was trying to get to her.
+                 

@@ -1,0 +1,103 @@
+---
+title: "fortune in a sentence | fortune example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fortune"
+---
+- Better `fortune`, boy.
+- They made a `fortune`.
+- You read my `fortune`.
+- That costs a `fortune`!
+- I'll wager my `fortune`.
+- He inherited a `fortune`.
+- ...and a `fortune` teller.
+- I'll bet it's a `fortune`.
+- He's inherited a `fortune`.
+- This must cost a `fortune`!
+- I spent a `fortune` on this.
+- My `fortune`, siphoned away.
+- A box of `fortune` cookies...
+- It could make me a `fortune`.
+- It's got to cost a `fortune`.
+- It's gonna make us a `fortune`!
+- Liberal, but worth a `fortune`.
+- May `fortune` favor the foolish.
+- This must have cost a `fortune`.
+- `Fortune` and glory... oh really?
+- It's going to cost me a `fortune`!
+- Mister, you owe my dad a `fortune`.
+- I've decided on our first `fortune`!
+- My `fortune` lies in my plantations.
+- The sailor's omen of good `fortune`.
+- They pay great athletes a `fortune`.
+- I think santos or marietta `fortune`.
+- Where's that marietta pace `fortune`?
+- Even on sale that stuff's a `fortune`.
+- I can't believe it� a small `fortune`.
+- It's costing you all a small `fortune`.
+- It's costing you all a small `fortune`.
+- The whole semple `fortune` goes to you!
+- What's the best `fortune` you ever got?
+- The chopsticks and `fortune` cookies?
+- You forgot about the `fortune` teller.
+- It'd take mounths... and cost a `fortune`.
+- Simpson, mr. burns is a `fortune` 500 ceo.
+- The land alone is worth a small `fortune`.
+- Those stamps -- they're worth a `fortune`!
+- Yes -- orion -- good `fortune` -- sailors.
+- I'm afraid his car is gone, mrs. `fortune`.
+- Her <u>jewelry</u> is worth a `fortune`!
+- Man, it costs a `fortune` to heat this place.
+- This john doe movement costs you a `fortune`.
+- Without me, there's no company, no `fortune`.
+- Maybe he's smashed too many `fortune` cookies.
+- Will hide the `fortune` my mother has given me.
+- Buddha is the symbol of luck and good `fortune`.
+- If we could sell tickets, we'd make a `fortune`.
+- Old seti's `fortune`'s gotta be under this sand!
+- If they look at me they see my father's `fortune`.
+- In horoscopes and `fortune` cookies... have faith.
+- Even if you could -- it would cost a `fortune`.
+- They hope the settlement will bring you a `fortune`.
+- He's putting up the payroll out of his own `fortune`.
+- Oh, please... you get that out of a `fortune` cookie?
+- That must have cost you a `fortune` in stamps, ringo.
+- You have my word, as a gentleman of `fortune` -- aye.
+- It's just that -- i spent a `fortune` on these things!
+- Jesus, what do you think this is -- wheel of `fortune`?
+- Did you know that `fortune` cookies aren't even chinese?
+- Him, he costs you a `fortune` in breach of promise cases.
+- With you gone, we'll make a `fortune` rearming the world.
+- Not many people in this world have that kind of `fortune`.
+- ♪ oh... made a `fortune`, bought the factories fair fight.
+- It could make me a `fortune` or fill the world with monsters.
+- That's not a `fortune`... you will be rich... that's a `fortune`.
+- Their `fortune` was so tempting, their affection so conditional.
+- The usual stuff that happens when people stumble on a `fortune`.
+- Stopping him could be our ticket to fame, `fortune` -- and babes!
+- You must have a small `fortune` stashed from babysitting so much.
+- That goddam diamond stud earring that cost me a fucking `fortune`.
+- `Fortune` tellers, nuts, every crank in the country has written me.
+- If i could lay my hands on those letters, i could make a `fortune`.
+- If you can find an unsigned copy, it's worth an absolute `fortune`.
+- You're gonna get killed chasing after your damn `fortune` and glory!
+- It's what jill sobule wore fame, `fortune`, an affair with hans zimmer.
+- Not exactly a `fortune`, but i'm thinking, 'i should be coining it here.'
+- All of his old cia buddies are over there making a `fortune` off the shah.
+- He will offer a `fortune` to anyone who will furnish him with an exit visa.
+- Or we could congratulate ourselves on a marvelous stroke of good `fortune`.
+- 'the heir to the `fortune` must wear the mayfair pendant an her wedding day.'
+- She'd work for scale except i know you only respect people you pay a `fortune`.
+- This rather fantastic idea of yours to want to give away your entire `fortune`.
+- ...every meal's a banquet, every paycheck a `fortune`, every formation a parade.
+- Once the war ends, forget it, but for now it's great, you could make a `fortune`.
+- I spent a year sitting next to my grandma on the couch watching wheel of `fortune`.
+- Like if a guy spends a `fortune` on you, he's gonna feel like you owe him something.
+- During prohibition, we ran molasses up to canada and made a `fortune`; your father too.
+- So he packed his few belongings and left the farm to seek his `fortune` across the sea.
+- Be fickle, `fortune`, for then i hope that thou will not keep him long but send him back.
+- But if, when i love, i am unhappy, i will know that my empty heart was my good `fortune`.
+- I have the fame and `fortune` i've always desired and yet, - yeah, well, i'm busier here.
+- Finding that stone could've gotten you all the `fortune` and glory you were talking about.
+- The wayne foundation contributes a small `fortune` to police and crime prevention programs.
+                 

@@ -1,0 +1,107 @@
+---
+title: "use in a sentence | use example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "use"
+---
+- Don't `use` big bills!
+- I could `use` a drink.
+- May i `use` the chart?
+- Morg, `use` your head.
+- Okay we'll `use` this.
+- She's gonna `use` you.
+- They don't `use` guns.
+- They `use` your blood.
+- To `use` the bathroom.
+- `Use` my credit cards.
+- `Use` your other hand!
+- We `use` the dropship.
+- We've got to `use` it.
+- Why don't we `use` it?
+- You `use` your sleeve.
+- Aaah, what's the `use`?
+- I have to `use` it.
+- Can i `use` your phone?
+- Don't you `use` olives?
+- I can `use` your mom's.
+- I could `use` a shower.
+- I could `use` the bump.
+- I could `use` the walk.
+- I didn't `use` my name.
+- I want to `use` a bomb.
+- May i `use` your phone?
+- Might as well `use` us.
+- No `use` waiting, then.
+- `Use` 'em and lose 'em.
+- `Use` the fallen trees.
+- `Use` the fucking bomb!
+- `Use` the service gate.
+- `Use` your imagination!
+- `Use` your imagination.
+- We'll `use` smoke pots.
+- What `use` is my sword?
+- You can `use` the wand.
+- You want to `use` that?
+- A marine we could `use`.
+- Can you `use` a coaster.
+- I always `use` a rubber.
+- I can still `use` a gun.
+- I could `use` some help.
+- I could `use` the money.
+- I didn't `use` you, max.
+- I gotta `use` the phone.
+- I mean, i `use` condoms.
+- In fact, `use` my clubs.
+- It's how you `use` them.
+- I `use` her food stamps.
+- Joshua, `use` your knee.
+- Just `use` common sense.
+- Let me `use` your phone.
+- She can only `use` cash.
+- So you can `use` it now?
+- Try and `use` big words.
+- Try to `use` your radio.
+- `Use` some common sense!
+- `Use` your head, violet.
+- We both `use` that body.
+- What do you `use` on it?
+- What `use` is it to you?
+- Why can't we `use` that?
+- You could `use` a scrub.
+- You could `use` one too.
+- You may `use` my office.
+- You `use` their witness.
+- To `use` the bayonet?
+- Can i `use` the bathroom?
+- "can i `use` your phone?"
+- Come on -- it's no `use`!
+- Did you `use` protection?
+- Don't make me `use` this.
+- Don't you `use` his name.
+- For people you `use` who.
+- He won't `use` my shower.
+- I can't `use` any lights.
+- I could shore `use` some.
+- I could `use` a vacation.
+- I don't want to `use` it.
+- I suggest you `use` that.
+- It's no `use`, dr. grant.
+- ...no...no goddamn `use`.
+- Then you can be of `use`.
+- `Use` your big boy voice.
+- We `use` it for supplies.
+- What do you `use` it for?
+- You can have it to `use`.
+- You could `use` some sun.
+- You're gonna `use` a ram?
+- Can you `use` a few bucks?
+- Did mr. marsh `use` drugs?
+- Don't `use` underage kids.
+- I could sure `use` a bath.
+- I could `use` some dinner.
+- I didn't `use` low's name.
+- I'd `use` the word insane.
+- I have to `use` the phone.
+- I'll `use` the chair here.
+- In case you `use` the gas.
+                 

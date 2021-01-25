@@ -1,0 +1,53 @@
+---
+title: "creep in a sentence | creep example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "creep"
+---
+- Maybe i can `creep` up!
+- You look like a `creep`.
+- Basements `creep` me out.
+- The bearded guy, the `creep`.
+- You're with this `creep` now.
+- Maybe that little `creep` lied.
+- This ellingson security `creep`.
+- What'd that `creep` call you - ?
+- Ohh no, it makes my skin `creep`!
+- Never let a rat `creep` up on you.
+- Yeah, if the `creep` ever gets out.
+- So what do we do about this `creep`?
+- First of all, richard is not a `creep`.
+- Please don't `creep` around this house.
+- Yeah, some `creep` stole my cigarettes!
+- First you `creep` me out with homo shit.
+- Who's gonna like a `creep` like laplante?
+- You know what else the little `creep` did?
+- You fell out of the tall tower you `creep`!
+- I spent my whole life waiting for a `creep`.
+- No, some `creep` asshole trying to scare me.
+- Oh come on - the guy's going to be a `creep`.
+- That `creep` down the hall phoned the manager.
+- I hope sid pulls your voice-box out, ya `creep`!
+- Mike, you're like the `creep` at the truck stop.
+- Anyway, i'm too tired to worry about the `creep`.
+- Find out what the hell he was doing at "`creep`."
+- The ginger i knew wouldn't even look at this `creep`.
+- Carol and i saw you with that `creep`, richard, today.
+- Except when you `creep` around in your mother's -- dad.
+- [bellamy screams] this `creep` was spying on us last night.
+- Maybe he's not the pretentious `creep` everyone says he is."
+- If we stick together, maybe we can kill this `creep` for good.
+- Mr. john mitchell, the head of `creep`, says it means nothing.
+- What the hell you doin, being buddies with this `creep`, beni?
+- I've got the `creep` here, the guy who's... "a little mistake"!
+- We got a major `creep` alert and we're just going down the list.
+- I'm not judging you... you didn't sleep with the `creep` did you?
+- In many ways, that obnoxious `creep` cactus was the worst one of all.
+- I just don't get it; a `creep` secretary being scared, that's one thing.
+- Besides, as soon as your leg heals, the war ended two years ago, `creep`.
+- I don't want to get too attached to peter and then find out he's a `creep`.
+- John mitchell resigned as head of `creep` to spend more time with his family.
+- You know what that `creep` and his frogfaced footmen are calling me <u>now</u>?
+- Sharp, shiny teeth -- and they `creep` up to your bed -- tell me about them, thea.
+- The little `creep` hates it that eric actually does what the company hired him to do.
+                 

@@ -1,0 +1,107 @@
+---
+title: "new in a sentence | new example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "new"
+---
+- Back is in `new` york.
+- Blonde as a `new` mop.
+- Boy-- so what's `new`?
+- Cuz i want `new` york.
+- Happy `new` year, sir.
+- He ain't really `new`.
+- How's the `new` place?
+- How's your `new` book?
+- I have a `new` client.
+- I need a `new` pr guy.
+- Is he from `new` york?
+- It's my `new` perfume.
+- Must be the `new` one.
+- `New` orleans, huh?...
+- Simon has a `new` pet.
+- So what else is `new`?
+- The `new` queen lives.
+- There's nothing `new`.
+- This is the `new` mac.
+- Time for a `new` deal.
+- We can buy a `new` tv.
+- Your `new` chair, sir.
+- Your `new` supervisor.
+- Alita is `new` in here.
+- ...and fix it up `new`.
+- Some `new` clothes.
+- Anything `new` develop?
+- But it's my `new` tape.
+- Cranbury, `new` jersey.
+- Everything looks `new`.
+- Following `new` course.
+- Give magua `new` heart.
+- Happy `new` year, tess.
+- How's the `new` office?
+- I'm in from `new` york.
+- I'm in `new` york city.
+- I need a `new` sponsor.
+- I no gotta `new`-rosis.
+- Is that a `new` symbol?
+- Maya: happy `new` year.
+- `New` town, `new` school.
+- `New` york for a month?
+- Nope, it's `new` stuff.
+- Nothing `new`, majesty.
+- Seen the `new` playboy?
+- She had a `new` family.
+- So we make a `new` one.
+- So you are a `new` man?
+- That `new` company man.
+- The city is `new` york.
+- The `new` girl is here.
+- They got the `new` t.v.
+- To the `new` commander.
+- We have our `new` army.
+- We made a `new` friend.
+- What `new` information?
+- What's in `new` jersey?
+- You need `new` girdles.
+- You're like `new` york.
+- You want a `new` house?
+- A `new` venture of mine.
+- "but `new` struck nine."
+- "c."... "k." `new` word.
+- Fall in `new` orleans...
+- Far cry from `new` york.
+- Gonna' be good as `new`.
+- Happy: happy `new` year.
+- Happy `new` year, bitch!
+- Happy `new` year, lenny.
+- Hello, `new` west coast!
+- How's our `new` witness?
+- I found something `new`.
+- I have `new` dreams now.
+- I met him in `new` york.
+- I need me a `new` woman.
+- It's a brand `new` card.
+- It's a `new` day people.
+- Mmm, `new` friend smell.
+- `New` mexico's that way.
+- Not treating `new` ones.
+- So, what's `new` anyway?
+- Talk about `new` brooms!
+- That's `new` york, baby.
+- The `new` ones are fine.
+- This is her `new` style.
+- This is something `new`.
+- This is your `new` home.
+- This must be very `new`.
+- Where's our `new` prime?
+- Who's the `new` yardman?
+- You got any `new` intel?
+- ... and the `new` stereo.
+- Your `new` apartment?
+- Could be a `new` dance...
+- First time in `new` york?
+- Flew a run to `new` york.
+- He's on to a `new` thing.
+- I'll buy you a `new` one.
+- I prefer your `new` body.
+- It's a brave `new` world.
+                 

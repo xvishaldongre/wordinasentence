@@ -1,0 +1,82 @@
+---
+title: "bullets in a sentence | bullets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bullets"
+---
+- With more `bullets`?...
+- Nine men, six `bullets`.
+- You're out of `bullets`.
+- More `bullets` in the gun?
+- There were more `bullets`.
+- I collect silver `bullets`.
+- Jackson got both `bullets`.
+- Three `bullets` -- minimum.
+- More `bullets` in the gun...
+- He just ran out of `bullets`.
+- How many `bullets` left, kid?
+- Shield me from the `bullets`.
+- These are ich luge `bullets`.
+- `Bullets` weren't the problem.
+- I'm lousy with `bullets` here.
+- Making `bullets` on unity day.
+- I think i need silver `bullets`.
+- `Bullets` whizzing all around me.
+- Give me some `bullets` that work.
+- I didn't put the `bullets` in it.
+- You know about him and `bullets`.
+- And a third filled with `bullets`.
+- `Bullets` don't kill these things.
+- We gotta play with more `bullets`.
+- Do `bullets` really bounce off you?
+- ey’re making us waste `bullets`.
+- So many assholes, so few `bullets`.
+- He's got a gun, with real `bullets`!
+- Right, all the `bullets` we can eat.
+- Does the game use real `bullets`... ?
+- Nope, nope -- dodged a few `bullets`.
+- Then you... we... three `bullets`.
+- Got enough `bullets` to finish me off?
+- ...riddled with .38-caliber `bullets`.
+- Save your `bullets` for the grounders.
+- Should i use the last `bullets` on us?
+- The `bullets` and the fall killed him.
+- They fired tear gas, rubber `bullets`.
+- We can worry about `bullets` tomorrow.
+- `Bullets` or no `bullets`, he won't do it.
+- Sit here until you run out of `bullets`?
+- We gotta play with more `bullets`, nick.
+- Let me guess... `bullets` don't hurt you.
+- A revolver holds six `bullets`, not eight.
+- You have enough `bullets` to kill them, too.
+- Cigarettes kill more patriots than `bullets`.
+- So, don't use all your `bullets` before then.
+- You were shot -- two `bullets` -- in the back.
+- How many `bullets` can you make by first light?
+- I just want to see how much `bullets` it takes.
+- That wasn't very sporting, using real `bullets`?
+- I've been dodging `bullets` since i was fourteen.
+- Unless raven shows up to take the `bullets` for you.
+- Are you trying to tell me that i can dodge `bullets`?
+- Pumped fifty-seven `bullets` into a police informant.
+- You wasted all your `bullets` so you crawl out there.
+- Take the `bullets` out, whatever, but give him the gun.
+- I don't need `bullets`, monster... but i gotta be a threat.
+- 300 people up there won't be able to make any more `bullets`.
+- I have the silver `bullets` in case i need to protect myself.
+- I tried, but you were too busy making `bullets` for your gun.
+- The guy traded `bullets` with some old man in a liquor store.
+- "he's dead," joe said, and kept right on feeding me `bullets`.
+- Dodging `bullets` left and right from terrorist blonde beauties.
+- Elevated levels of serotonin and dopamine my `bullets` are duds.
+- Running in with ski masks and `bullets` flying ain't gonna do it.
+- Mafuckas catching `bullets` like the common cold up in this bitch.
+- ♪ the `bullets` flew like rain ♪ you'll get this back when you leave.
+- I only got two `bullets` in the mothafucka, but it's better than nothing.
+- Yes, i get extremely emotional when assholes put `bullets` in my mailbox...!
+- You sure looked funny running for those pies, `bullets` flying all around you.
+- Then you'd better fix your bayonet, because there aren't any `bullets` in the gun.
+- It's not like you like in compton where `bullets` are whizzing by your head every day.
+- You would have the court believe that these two `bullets` were fired from the same gun?
+- We just have... to hold on long enough enough `bullets` to stop all the grounders, do you?
+                 

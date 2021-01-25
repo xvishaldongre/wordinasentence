@@ -1,0 +1,96 @@
+---
+title: "prisoner in a sentence | prisoner example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prisoner"
+---
+- Kill the `prisoner`.
+- Not a `prisoner`, huh?
+- `Prisoner` in custody.
+- You are my `prisoner`.
+- She's not a `prisoner`.
+- I'm a `prisoner`, nigel!
+- The grounder `prisoner`.
+- ...we have a `prisoner`.
+- I'm a `prisoner` in them.
+- It makes you a `prisoner`.
+- One `prisoner` in custody.
+- Take the `prisoner` inside.
+- `Prisoner`'s refusing water.
+- We don't need the `prisoner`.
+- I'm letting the `prisoner` go.
+- `Prisoner` 319, face the wall.
+- I'm a `prisoner`, same as them.
+- Once the `prisoner` is secured.
+- You take me in as a `prisoner`.
+- What am i, a goddamn `prisoner`?
+- I'm a `prisoner` here, same as you.
+- `Prisoner` 319, take off the watch.
+- To turn that `prisoner` over to me.
+- This man is not a `prisoner` of war.
+- It's how long he's a `prisoner` here.
+- I'm taking my `prisoner` back to jail.
+- Then it's held `prisoner` for a while.
+- Why is the `prisoner` out of his cell?
+- Are they keeping you a `prisoner` here?
+- She sounds like a `prisoner`, taransky.
+- So i'm a `prisoner` now, just like that?
+- Tom -- he's our guest, not a `prisoner`.
+- We'll consider it a `prisoner` exchange.
+- Perhaps they wish to take you `prisoner`.
+- This `prisoner` is banished from my land.
+- Man: `prisoner` 319, take off the watch.
+- Are being held `prisoner` on that mountain.
+- You are an escaped `prisoner` of the reich.
+- I see that i'm a `prisoner` in my own house.
+- She's a `prisoner` of public television now.
+- Captain... 'this kid' is a `prisoner` of war.
+- They heard about escaped `prisoner` on radio.
+- They searched me when they took me `prisoner`.
+- From now on, only trikru guards the `prisoner`.
+- `Prisoner` discharged, whereabouts now unknown.
+- He's a `prisoner` in the mountain because of me.
+- I guess it was because i was a model `prisoner`.
+- And a man, a `prisoner` came, we can all survive.
+- I wasn't a `prisoner`, but gina at mount weather.
+- Forgive this man, this `prisoner`... your brother.
+- You held me a `prisoner` once; will you try again?
+- You look like the `prisoner` of zenda or something.
+- Maybe those prisoners can help guard our `prisoner`.
+- I'll tell ya something: it made me a model `prisoner`.
+- He is a `prisoner` of war until you can prove sabotage.
+- Help, i'm being held `prisoner` in a puzzle box factory.
+- Now, eric, you're gonna hand your `prisoner` over to us.
+- We're not talking about any ordinary `prisoner` hoffman!
+- Request permission to guard the `prisoner` tonight -- what?
+- We have a `prisoner` that claims primes can now make hosts.
+- I'm taking the grounder `prisoner` with me to guide the way.
+- I'm gonna have to ask you to turn that `prisoner` over to me.
+- Dev, a disciple `prisoner` who showed up vice presidents rule!
+- The only realty i see is that i'm a `prisoner` on my own ship.
+- You are a `prisoner` in those blocks until you hear the sound.
+- If anyone asks, we're escorting the `prisoner` back to her cell.
+- I told you our orders are to guard the stone and the `prisoner`.
+- You'll have minimal contact with the `prisoner`, do you hear me?
+- Christ, conklin, you didn't even tell me you lost the `prisoner`!
+- What the hell was that fo... looks like you're my `prisoner` now.
+- You're a `prisoner` to that again, and that isn't much of a life.
+- When you were taken `prisoner` at compiegne, did you have a horse?
+- A `prisoner` came here jericho to providence, we have a `prisoner` ah!
+- It's why you're a `prisoner` would you play a little louder, please?
+- But the message that told of his death said he had been a `prisoner`.
+- Oh, i almost don't care - get the `prisoner` back to the airlock now.
+- ♪ your scarlet lips half-saying ♪ you'll need to look like my `prisoner`.
+- Kill the girl, take gabriel `prisoner`, you can never escape what you did.
+- A `prisoner` who knows every inch of this mountain, what do you say, scuzzo?
+- Let's try to move beyond the usual `prisoner`-interrogator banter, shall we?
+- Let us assume, as common sense dictates, that the `prisoner`'s story is false.
+- Even if they are iraqis probably all they'll do is take us `prisoner` for awhile.
+- Man: `prisoner` 319... and the more he spreads, the more connected to him i feel.
+- Ever since i found that thing i've been like a `prisoner` in a terrible nightmare.
+- I want you to go around the bend and tell those gorillas their leader is my `prisoner`.
+- So is our ability to dig through your memories, you're the reason i'm a `prisoner` here.
+- Take a `prisoner`... might as well have sent them a notice to quit... come on, musketeer!
+- But unless there's a `prisoner` at this camp isn't this going to be fun, cooking together?
+- Can wipe out an entire civilization, i'm taking the grounder `prisoner` vengeance is yours.
+                 

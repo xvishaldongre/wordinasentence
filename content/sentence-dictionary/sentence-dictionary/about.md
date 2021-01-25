@@ -1,0 +1,107 @@
+---
+title: "about in a sentence | about example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "about"
+---
+- Be smart `about` this.
+- But enough `about` me.
+- But what `about` doug?
+- But what `about` gold?
+- But what `about` them?
+- But what `about` this?
+- Did he say `about` me?
+- Don't mind `about` me.
+- Fellow `about` my age.
+- Forget `about` a belt.
+- Forget `about` childs.
+- Forget `about` clarke.
+- Forget `about` me kat.
+- He bragged `about` it.
+- He knew `about` sammy.
+- He's nuts `about` you.
+- Hey, how `about` that!
+- How `about` a big mac?
+- How `about` ding dong?
+- How `about` it, harry?
+- How `about` it, jerry?
+- How `about` it, judge?
+- How `about` over here?
+- How `about` right now?
+- How `about` some ammo?
+- How `about` taxes, mr.
+- How `about` that jeep?
+- How `about` that pose?
+- How `about` the beach?
+- How `about` the booze?
+- How `about` the point?
+- How `about` we don't?!
+- How `about` you lovey?
+- How'd hear `about` it?
+- How's this `about` me?
+- I asked `about` fredo?
+- I care `about` clarke.
+- I do care `about` you!
+- I forgot `about` that.
+- I heard `about` today.
+- I know all `about` it.
+- I'll see `about` that!
+- I'll see `about` that.
+- I'll take you `about`.
+- I'll think `about` it.
+- I'm crazy `about` you!
+- I'm crazy `about` you.
+- I mean `about` althea.
+- I mean `about`... him.
+- I'm sorry `about` dev.
+- I told 'em `about` it.
+- It's `about` survival.
+- It's `about` this guy.
+- It's `about` wellness.
+- It's not `about` that!
+- It's not `about` that.
+- Just think `about` it!
+- Just think `about` it.
+- Learning `about` cuba.
+- Let's talk `about` it.
+- "mad `about` the boy."
+- Maybe `about` me, huh?
+- N'`about` ten minutes.
+- Okay, joke `about` it.
+- Questions `about` sex.
+- Shame `about` the kid.
+- She knows `about` you.
+- Sorry `about` alfonse.
+- So tell me `about` it.
+- Tell me `about` brill.
+- Tell me `about` jenny.
+- Then think `about` it.
+- These are `about` nix.
+- They care `about` you.
+- They know `about` you.
+- Think `about` a price.
+- Think `about` it, eve!
+- Think `about` it, rob.
+- Thinking `about` home?
+- Thinking `about` what?
+- This `about` rowan...?
+- This isn't `about` me.
+- This isn't `about` us.
+- We'll talk `about` it.
+- Well think `about` it.
+- Well, what `about` it?
+- Well, what `about` me?
+- Well, what `about` us?
+- What `about` a bee...?
+- What `about` de mille?
+- What `about` him, huh?
+- What `about` his suit?
+- What `about` his wife?
+- What `about` isabelle?
+- What `about` it, diz ?
+- What `about` it, mary?
+- What `about` jeremiah?
+- What `about` just now?
+- What `about` my dress?
+- What `about` my needs?
+                 

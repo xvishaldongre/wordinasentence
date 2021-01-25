@@ -1,0 +1,68 @@
+---
+title: "inspector in a sentence | inspector example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "inspector"
+---
+- Well, herr `inspector`!
+- Stand back, `inspector`.
+- Got a moment, `inspector`?
+- I'm so sorry, `inspector`.
+- Quite a night, `inspector`.
+- Get used to me, `inspector`.
+- `Inspector` rock will pay you.
+- It's only murder, `inspector`.
+- `Inspector` halloran, homicide.
+- Didn't you get her, `inspector`?
+- That is...chief `inspector` lee.
+- Which one is `inspector` halloran?
+- Who... detective `inspector` ross.
+- Four different people, `inspector`.
+- Can we skip the poetry, `inspector`?
+- I know who you are, `inspector` lee.
+- Hey, i'm talking to you, `inspector`!
+- But i must excuse myself, `inspector`.
+- Stand back `inspector`, or i'll shoot.
+- From robbery detail, `inspector` dayton.
+- The `inspector` read all that out to us.
+- `Inspector` brimmer fuck how they operate.
+- I supposed you knew her, too, `inspector`.
+- That's chief `inspector`, he got promoted.
+- That's pretty risky business, `inspector`.
+- I want to talk to the great `inspector` lee.
+- Just what would you like to know, `inspector`?
+- Thought you were going to turn in, `inspector`.
+- Anything special you're looking for, `inspector`?
+- Aurora: `inspector` grus, it's good to see you.
+- You wouldn't believe me if i told you, `inspector`.
+- Suppose i hadn't known that immigration `inspector`?
+- The chief-`inspector` thought you might need a hand.
+- They've got to be simple once in a while, `inspector`.
+- He can do anything, just like `inspector` gadget on tv.
+- Hello, `inspector`--i hear your vacation's been spoiled.
+- I'm a police `inspector` from shaan xi, gen su district.
+- But `inspector`, this girl, i wouldn't call her reliable.
+- I'm detective `inspector` mccall and this is dc mitchell.
+- Alright, alice... you'll be contacted by `inspector` rock.
+- Hey, `inspector`, i don't intend to take the rap for this.
+- `Inspector` lestrade, i need to report an attempted murder.
+- I've got a hunch you're going to win that bet, `inspector`.
+- Or am i supposed to deliver it to dear `inspector` killaine?
+- `Inspector` dave taylor - scotland yard ...can i have a word?
+- I am `inspector` edouard grandpierre of the police judiciaire.
+- Joyce, give the assistant chief `inspector` a drink, would you?
+- Please thank `inspector` goetz for taking care of me last night.
+- Signed, fbi., washington, d.c. h. cleary, `inspector` in charge."
+- You know, `inspector`, you take shit once, you take shit forever.
+- Well, let's thank god you and `inspector` goetz are on the case, then.
+- You `inspector` brimmer are not taking your duties seriously... no.
+- `Inspector`, will you confirm somebody is copying the boston strangler?
+- `Inspector` dayton, the cop from robbery detail who was looking for you.
+- Just a little warning: i've got my eye on you `inspector`, remember that.
+- It was your manner more than the wedding ring that bothered the `inspector`.
+- Like, you `inspector` brimmer are not going to be sitting in your car anymore.
+- I was just about to advise the `inspector` here not to show dr. hudson the note.
+- That guy `inspector` dayton... he's recovered a bunch of your credit cards and he wants...
+- You wouldn't even try there must be some copper in you, or you wouldn't be an `inspector`.
+- Five years ago, my father was chief `inspector` working a big international smuggling case.
+                 

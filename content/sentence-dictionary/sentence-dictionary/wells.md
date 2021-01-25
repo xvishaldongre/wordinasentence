@@ -1,0 +1,65 @@
+---
+title: "wells in a sentence | wells example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wells"
+---
+- My oil `wells` in texas?
+- Good night, miss `wells`.
+- `Wells`: there you are.
+- Jaha: good job, `wells`.
+- Murphy didn't kill `wells`!
+- `Wells` is... `wells` is dead.
+- Killed `wells` is good for us.
+- Once her job is done, `wells`?
+- So how do you explain `wells`?
+- Plenty of people hated `wells`.
+- When do i get to lathrop `wells`?
+- `Wells`: you think this is a game?
+- You were kind of rough on `wells`.
+- `Wells`, why the hell are you here?
+- Man: what you gonna do now, `wells`?
+- The grounders killed `wells`, not me.
+- `Wells`: what the hell are you doing?
+- The police know about lathrop `wells`.
+- They didn't arrest my father, `wells`.
+- It's not your ankle, `wells`, it's you.
+- They got `wells` just outside the wall.
+- Now, you don't have to like it, `wells`.
+- `Wells`: what was that about momentum?
+- Young `wells`: e stations… right now!
+- How does it look like he's doing, `wells`?
+- `Wells` is the one who turned in your dad?
+- You dad banished you, `wells`, and yet no.
+- It means the grounders didn't kill `wells`.
+- `Wells`: you came back for reinforcements.
+- `Wells`: come on, get down the field, fire.
+- Where you dropped it after you killed `wells`.
+- Kid, i'm a tv clown to so many wishing `wells`.
+- Lathrop `wells` was never anything but a bus stop.
+- If you need me, i'll be -- goodnight, miss `wells`.
+- They had readings from test `wells`, stuff like that.
+- Open the hatch, you shouldn't have come here, `wells`.
+- The closest i was able to get you was lathrop `wells`.
+- `Wells` told me everything before he... their memories.
+- Surf's up, jack, and you're digging `wells` in the snow.
+- The closest i was able to get you was lathrop `wells`...
+- We're keeping `wells` there's another way... screw this.
+- I don't want to shoot you, `wells`... you're okay, honey.
+- `Wells` is dead because you couldn't see i don't, either.
+- On the earth, but lasercom was designed you hated `wells`.
+- I'm too old for it, miss `wells`... that's for little kids.
+- Would you have given it to `wells` without testing it first?
+- It is a lovely shade of gray, man: your dad is a dick, `wells`.
+- You've led something of a charmed life haven't you mr. `wells`?
+- Clarke wouldn't let me yeah, not for `wells` or charlotte or atom.
+- You don't find it depressing that homer `wells` is picking apples?
+- She bought him a ticket for lathrop `wells` and put him on the bus.
+- I was driving back from apache `wells` when they got me on the radio.
+- "homer `wells`, born portland, maine, march 2, 1915..." he's leaving...
+- I'm dying to know what he thinks we believe they're in sanctum, `wells`!
+- This is george fox... mrs. haydn... is he on his way to lathrop `wells`?
+- What does that mean, exactly... how are you gonna explain it to `wells`?
+- We do whatever we have to we were gonna go public, anyway, when `wells`...
+- We're keeping `wells` now, you tryin' to tell me, with a straight face, cold did this?
+                 

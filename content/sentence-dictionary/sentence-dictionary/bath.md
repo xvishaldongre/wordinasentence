@@ -1,0 +1,82 @@
+---
+title: "bath in a sentence | bath example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bath"
+---
+- Tia's taking a `bath`.
+- I'm in the `bath`, mom.
+- A `bath` would be great.
+- Running my `bath` water.
+- Do not give him a `bath`.
+- Forget the bubble `bath`.
+- Marge, i'm in the `bath`.
+- I could sure use a `bath`.
+- If not, you take a `bath`.
+- I like my `bath` all right.
+- I'm going to take a `bath`.
+- Through there for a `bath`.
+- What about the acid `bath`?
+- How do you like your `bath`?
+- You mind if i take a `bath`?
+- You want to take your `bath`?
+- It'll be his `bath`-time soon.
+- Shall i draw your `bath`, sir?
+- Who lets me give her a `bath`.
+- Means we never shared a `bath`.
+- While i was still in the `bath`.
+- Except breakfast and `bath`-meal.
+- For christ's sake, have a `bath`.
+- How do you like your `bath`, sir?
+- I came down here to take a `bath`.
+- I'll be back later for his `bath`.
+- I'm looking for some `bath` oil...
+- Is it okay if i take a `bath` now?
+- Apparently missed his annual `bath`.
+- I went to a turkish `bath`, who cares?
+- Raven's ice `bath` worked on my brain.
+- Would you like a beer for your `bath`?
+- But i just want to take a `bath` and...
+- Aren't you supposed to be in the `bath`?
+- So, how about we take a `bath` together?
+- Does that mean that the `bath` is my own?
+- It is large and on the front with `bath`.
+- Julian, draw a `bath` for this young man.
+- You ever take a `bath` with a man before?
+- I'm gonna take a warm `bath` and sack out.
+- I was just getting ready to take a `bath`.
+- Says, uh, "aqueous sodium hydroxide `bath`."
+- Now what would you like -- tea ... `bath`...?
+- Now you are afraid to take a room with a `bath`?
+- ♪ choice of bar soap or `bath` gel ♪ that's the one!
+- I'm going to take a big `bath` and order a big meal.
+- I phoned some friends while you were having a `bath`.
+- You are each entitled to one capful of bubble `bath`.
+- Do i go right away or do i have time to take a `bath`?
+- Then she said no, she wanted to take a `bath` with me.
+- If ralph asks you to give him a `bath`, you know what?
+- From under the sink, and i filmed it after the ice `bath`.
+- You sleep a couple of hours, watch some tv, take a `bath`.
+- Give her a `bath` everyday, and don't let her get cold.
+- ...she's having a `bath` now... why do you want to see her?
+- When you've done that, you and i shall give the man a `bath`.
+- I've been dreaming about a hot `bath` for the last six months.
+- There's something about a nice hot `bath`, transforms a person.
+- Icarus, please, if you want me to give you a `bath` just say so.
+- There was no-one around when i finished my `bath`, so i started.
+- Didn't know -- who i was when the options he bought took a `bath`.
+- Joe planned a robbery, but he's got a blood `bath` on his hands now.
+- Heather had a fever, so she took a cold `bath`, but she's better now.
+- It's just that we may not have enough -- fine -- i'll take my `bath`.
+- Hot and cold running water -- you see, i can get a `bath` whenever i like.
+- Now, darling, soak in your beautiful pine `bath` and let gaston shave you.
+- You still after the coke that walked out of that blood `bath` in the harbor?
+- Lisa said i can't use the bubble `bath`, wonkru has no idea she has missiles.
+- ...who out of sheer terror had swallowed the `bath` towel in his mouth and suffocated.
+- I'm gonna run you a nice `bath` and it'll warm you up are making your conditions worse.
+- The powder room down here is being re-tiled, but you can use the master `bath` upstairs.
+- He's smart, powerful, successful -- i'm sorry, did that cosmic-`bath` loosen your screws?
+- Quick, she needs a sitz `bath` -- "positive" you're sure i'm not fat or "positive" i'm...
+- After seeing the blood `bath` on television, he wanted to show them how it should be done.
+- All we thought we would get out of this trip was a turkish `bath`, but... we learned better.
+                 

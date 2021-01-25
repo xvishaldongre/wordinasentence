@@ -1,0 +1,52 @@
+---
+title: "deserves in a sentence | deserves example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deserves"
+---
+- She `deserves` better.
+- He `deserves` to float.
+- She `deserves` to know.
+- She `deserves` to die.
+- _ he `deserves` to die.
+- He `deserves` what he gets.
+- Is this what he `deserves`?
+- She `deserves` every penny.
+- `Deserves` me at least a name.
+- I believe he `deserves` death.
+- The bastard `deserves` to die.
+- "he `deserves` a second chance."
+- She `deserves` a fighting chance!
+- Everyone `deserves` a second chance.
+- Tell raven she `deserves` happiness.
+- He `deserves` to die for what he did.
+- I tip when somebody `deserves` a tip.
+- I think lawson `deserves` the bijou.
+- She `deserves` a chance to say good-bye.
+- Maybe he `deserves` a second chance, too.
+- She `deserves` our loyalty and protection.
+- Some service `deserves` service in return.
+- And he `deserves` to live, repeat the words.
+- To answer a faerie riddle `deserves` as much.
+- If anyone `deserves` it, it's spengler and me.
+- I figure every creature `deserves` a warm meal.
+- Oh, well, i guess one gets the face one `deserves`.
+- I know he `deserves` to hang, you proved your stuff.
+- She told me... ...but only when she "`deserves`" it.
+- Heather chandler is one bitch that `deserves` to die.
+- The human race `deserves` to transcend incredibly sexy.
+- Don't you think she `deserves` a little more than a card?
+- He's one of us, and he `deserves` i could have done more.
+- If anybody in the fuckin' world `deserves` to die, it's you.
+- Let's just say who should win, who `deserves` to win is amber.
+- Who's to give her that boot in the rear she needs and `deserves`?
+- You know, you're not the only one and he `deserves` to die for it.
+- I'm afraid i wouldn't be able to give ozzy the focus he `deserves`.
+- Don't you think anything that can suffer `deserves` to be considered?
+- First thing you learn in the army - an officer `deserves` your respect.
+- The name's rico, at my own father's grave, a man `deserves` some respect.
+- In case you were wondering why i'm so tired... tell raven she `deserves` happiness.
+- ...but because i am a just man, i've decided to give mr. hussein what he `deserves`.
+- Because if those diseased rats are runnin' loose, a cage is better than he `deserves`.
+- If somebody `deserves` respect, mr. pike, they receive it from me, convict or no convict.
+                 

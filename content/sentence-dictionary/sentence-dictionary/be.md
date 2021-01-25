@@ -1,0 +1,107 @@
+---
+title: "be in a sentence | be example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "be"
+---
+- `Be` back in a minute.
+- `Be` careful, francie.
+- `Be` careful up there!
+- `Be` careful with him.
+- `Be` friendly like us.
+- `Be` here in a minute.
+- `Be` quiet and listen.
+- `Be` ready in an hour.
+- `Be` reasonable, jack.
+- `Be` right there, pop.
+- `Be` smart about this.
+- Blasphemy `be` damned!
+- Bryan, i'll `be` back.
+- But `be` a pal, pally.
+- But i can't `be` sure.
+- But it can `be` risky.
+- But there has to `be`.
+- But they'll `be` back.
+- Can it `be` destroyed?
+- Can it `be` that easy?
+- Can this `be` stopped?
+- Clarke will `be` fine.
+- C'mon, don't `be` shy.
+- Could `be` a lot more.
+- Could it `be` spock's?
+- Couldn't `be` happier.
+- Da pleasure `be` mine.
+- Death can `be` happy..
+- Does she want to `be`?
+- Don, i'd `be` honored.
+- Don't `be` a hero, ok?
+- Don't `be` an asshole.
+- Don't `be` frightened.
+- Don't `be` ridiculous!
+- Don't `be` ridiculous.
+- Don't `be` sad, barry.
+- Don't `be` so grouchy.
+- Don't `be` so literal.
+- Don't `be` such wimps.
+- Don�t `be` nice to me.
+- Don�t `be` ridiculous.
+- Go on, i'll `be` fine!
+- Got to `be` somewhere.
+- Guess i'll `be` going.
+- He'll `be` dealt with.
+- He'll `be` really mad.
+- He'll `be` weightless.
+- He must `be` replaced.
+- He must `be` with you.
+- He's gotta `be` a nut!
+- He should `be` caring.
+- He used to `be` a cop.
+- He won't `be` able to.
+- How bad could it `be`?
+- How can i `be` secure?
+- How can we `be` happy?
+- How can you `be` okay?
+- How can you `be` sure?
+- How much will it `be`?
+- Hudson may `be` right.
+- I bet you'd `be` good.
+- I can `be` a good pig.
+- I can `be` real stiff.
+- I can even `be` funny.
+- I cannot `be` certain.
+- I can't `be` out late.
+- I could `be` anything.
+- I could `be` mistaken.
+- I'd `be` glad to help.
+- I'd better `be` going.
+- I had to `be` the ham!
+- I'll `be` all over it.
+- I'll `be` a sonofagun.
+- I'll `be` fine, hanna.
+- I'll `be` first watch.
+- I'll `be` in tomorrow.
+- I'll `be` quick, then.
+- I’ll `be` right ba.
+- I'll `be` right there.
+- I'll `be` standing by.
+- I'll `be` switched!...
+- I'll `be` the bad guy.
+- I'll `be` there later.
+- I'll `be` unconscious.
+- I'll `be` your winger.
+- I'll just `be` damned.
+- I'll never `be` ready.
+- I must `be` destroyed.
+- I said, `be` the last.
+- Is he gonna `be` okay?
+- I should `be` at work.
+- I should `be` honored.
+- I shouldn't `be` here.
+- It can `be` different.
+- It can `be` exploited.
+- It could `be` a trick.
+- It could `be` nothing.
+- It could `be` worse...
+- It couldn't `be` done.
+- It had to `be` a trap.
+                 

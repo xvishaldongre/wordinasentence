@@ -1,0 +1,72 @@
+---
+title: "fed in a sentence | fed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fed"
+---
+- I'm `fed` up with you.
+- He's `fed` up with you.
+- You sure you `fed` her?
+- Marge, i `fed` the baby!
+- A `fed`, i shoulda known.
+- God, aren't they `fed` yet?
+- Let's get `fed`, sweetheart.
+- He gets `fed` six times a day.
+- Keep them `fed` and they behave.
+- This river's `fed` by a glacier.
+- I got up and `fed` 'em this morning.
+- I'm `fed` up with taking her orders.
+- I `fed` him and cleaned up after him!
+- I got `fed` up with all the bullshit.
+- ♪ but i'm warm and `fed` ♪ she cut me.
+- They was leasin' this one to the `fed`.
+- We can't afford to have a `fed` onto us.
+- Why would i say i `fed` her if i didn't?
+- He hasn't been `fed` in a day and a half.
+- I was `fed` up with you before we started.
+- Alright, let's set this spinnin'... a `fed`?
+- I `fed` it, and i can't get rid of -- today.
+- Don't tell me you `fed` the birds without me?
+- Then he cut his wrist and `fed` you from him.
+- It's like i just got `fed` a bowl of malarkey.
+- We were a little more curious about the `fed`.
+- You're `fed` cry baby talk shows all day long.
+- Chief, the investigator from the `fed` is here.
+- Looks like i just got `fed` a bowl of malarkey.
+- It's not like she'd `fed` ex a six carat diamond.
+- You better watch your ass with these `fed` types.
+- But i am `fed` up to the teeth with elevated things!
+- She got `fed`-ex to give her a transfer and she left.
+- The animal just `fed`, so it won't stalk us for food.
+- I'm `fed` up with sweating for people who aren't there.
+- My boys... my boys... you seem to have been well `fed`.
+- Goddamnit i am getting so `fed` up with these re-writes.
+- There was somethin' about a `fed` being in the building.
+- My guess... you'll get `fed` to the forest... newspapers?
+- They brought me to their camp, cleaned me up, `fed` me...
+- I would have liked to have been a `fed` myself but my c.p.
+- I `fed` you enough of that stuff to send a horse to heaven.
+- No, i'm not... who do you think `fed` him that information?
+- They got this `fed` looking around and the girl just split.
+- We `fed` him into known offenders, and he came up cherries.
+- Matthew has been `fed` wiring money to his personal account.
+- I `fed` my horse an apple, and i found but, really, not necessary.
+- It is `fed` and tended by drone workers, defended by the warriors.
+- Well, `fed` or hungry, pulleine wants them in position immediately.
+- When we're in the country, if he doesn't hunt he doesn't get `fed`.
+- How many times, did you hear me say i was `fed` up on politics and--?
+- Maybe you're `fed` up, maybe you want to be by yourself -- who knows.
+- They coulda danced a jig on it an' `fed` it to goats -- don't matter.
+- Well, i don't like it i'm not scared ... and i'm `fed` up -- to here!
+- Deeds tied up traffic while he `fed` a bagful of doughnuts to a horse.
+- She hooked up with `fed` mcgar, they've done a couple a jobs together.
+- Uh, sir... all i need, some twink from the `fed` poking around right now.
+- She'll be cared for, `fed`, bathed, the ark needs unity now more than ever.
+- I used to fight with my family all the time... just got `fed` up and ran away.
+- Whoever takes out a flagged book has their library records `fed` to the f.b.i.
+- I'll have you know i'm `fed` up with both the young lady and her qualities!
+- I mean, maybe `fed`-ex would tell me where she moved -- ed, do you want my advice?
+- Now you have to go to your cell, and i to dicker with jerses... you'll be `fed` well.
+- We were saved from starvation by the lupi-loopo indians, who `fed` us a strange blue soup.
+- You mean where we were safe, well-`fed`, the only friend i have is the frisbee on the roof.
+                 

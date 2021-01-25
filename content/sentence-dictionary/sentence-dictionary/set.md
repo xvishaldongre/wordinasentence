@@ -1,0 +1,107 @@
+---
+title: "set in a sentence | set example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "set"
+---
+- Can you `set` that up?
+- I `set` up a purchase.
+- Miller `set` monty up.
+- Must be a spare `set`.
+- My mother `set` it up.
+- No press on the `set`!
+- `Set` phasers to stun.
+- The `set`-up is wrong.
+- Tickets are all `set`.
+- You're all `set`, sir.
+- You... - `set` you up.
+- Christ, `set` her free.
+- I'll `set` john on you!
+- I'm not being `set` up.
+- It can't `set` a clock.
+- It's practically `set`.
+- `Set` course for morag.
+- Some example you `set`.
+- This `set` is terrible.
+- And, charlie� all `set`.
+- Hello, duffy, get `set`!
+- He `set` me down gently!
+- I can sell my box `set`.
+- Is the trial date `set`?
+- Let's `set` the meeting.
+- Let's `set` up the tent.
+- Nobody `set` anybody up.
+- `Set` up the right mood.
+- This is your desk `set`.
+- Truth'll `set` you free.
+- We'll `set` it straight.
+- We `set` down on lv-426.
+- Why did you `set` me up?
+- All `set` for extinction.
+- Auto-shop, you all `set`?
+- He `set` up the business.
+- I knew it was a `set`-up!
+- I `set` it for wednesday.
+- It was a wonderful `set`.
+- The date's not `set` yet.
+- Then you'll be all `set`.
+- They've closed the `set`.
+- This could be a `set`-up.
+- Well, everything's `set`.
+- We were fuckin' `set` up!
+- Wonkru is `set` to march.
+- You `set` up the line-up.
+- You think i `set` you up?
+- You told me i'd be `set`.
+- Are the coordinates `set`?
+- He knew it was a `set` up.
+- I don't know... all `set`.
+- I'll `set` the detonators.
+- I'll take the whole `set`.
+- Let me `set` you straight.
+- Then let's `set` the date.
+- To recover the mind `set`.
+- We'd be `set` up for life!
+- We `set` the bomb and fly.
+- And get something `set` up.
+- But the agency `set` it up.
+- Do i `set` the goddam hook?
+- Everything is all `set` up.
+- For what... to `set` me up?
+- I think everything's `set`.
+- I've `set` this up for you.
+- Or `set` the house on fire.
+- `Set` it to receive a file.
+- `Set` one side for bel air.
+- So you `set` up boundaries.
+- We'll `set` him up somehow.
+- We're all `set` at kennedy.
+- What's beynon got `set` up?
+- What's the timer `set` for?
+- You `set` up the fake body.
+- The room's all `set` up.
+- You're all `set`, monty.
+- Do you think he `set` me up?
+- Guy, `set` up the perimeter.
+- He's helping us `set` it up.
+- His band is playing a `set`.
+- I agreed to `set` them free.
+- I helped them `set` that up.
+- No press, no press on `set`!
+- On your mark, get `set`, go.
+- Or you must `set` them free.
+- She's only `set` one charge.
+- Shut up and `set` the table.
+- The table was `set` for one.
+- Why would they `set` you up?
+- You `set` right there, karl.
+- You were `set` up, lonnegan.
+- ...and `set` out on the road.
+- He's the one who `set` me up.
+- I'm here to `set` you free...
+- It'll `set` his mind at ease.
+- Just play one `set` of downs.
+- Sure, jerry, we're all `set`.
+- That's right, i `set` you up.
+- There is no fuckin' `set` up!
+                 

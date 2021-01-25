@@ -1,0 +1,51 @@
+---
+title: "safer in a sentence | safer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "safer"
+---
+- Sure, they're `safer`.
+- Be `safer` for us both.
+- I feel `safer` already.
+- It'd be `safer` with you.
+- It might be `safer` for you.
+- Then you're `safer` in here.
+- I feel `safer` with him here.
+- `Safer` than leaving her here.
+- I felt a lot `safer` having it.
+- Somehow i feel `safer` in here.
+- [thud] you'll be `safer` there.
+- Clarke, it's `safer` on our side.
+- It's `safer` if we stay together.
+- No, i think i will, it's `safer`.
+- It's `safer` to teach you english!
+- It's much `safer` in there, sweety.
+- We'll be much `safer` in the cockpit.
+- Besides, it'll be `safer` where it is.
+- I'd be `safer` sleeping with that snake.
+- It just felt `safer` that way, you know?
+- You'd be a lot `safer` if i weren't around.
+- Besides, the gold'll be `safer` where it is.
+- Don't you think you'd be `safer` here with us?
+- I would feel `safer` with a chicken drumstick.
+- Any place has to be `safer` for us than chicago.
+- I love the way you just made me feel `safer`.
+- That she would be `safer` wherever octavia wasn't.
+- Wouldn't you feel `safer` with security on the job?
+- Where would we be `safer` than behind these walls?
+- It's much `safer` now, thanks to you, my darling decoy.
+- What makes you think you'll be any `safer` around here?
+- He thinks it's `safer` for you to stay here for a while.
+- You take it, hang on to it, it'll make you feel `safer`.
+- Wouldn't this whole thing be a little `safer` in the daytime?
+- But they feel a lot `safer` living over the border in el paso.
+- Is there any place `safer` than under the nose of governor yu?
+- Like i said, it'll be a hell of a lot `safer` there than here.
+- Nowadays, traveling with rekall is `safer` than getting on a rocket.
+- I'11 feel `safer` without a job if a man like mr. kint is behind bars.
+- Not only am i better in the sack than an amateur, i'm probably `safer`.
+- The sooner you get out of oz altogether, the `safer` you'll sleep, my dear.
+- It means he feels `safer` about your "guesses" than most other peoples facts.
+- The truth is, the queen would be `safer` doing her duty and returning south to her public.
+- You are `safer` in here with us than wandering around a mexican border town all night long.
+                 

@@ -1,0 +1,107 @@
+---
+title: "shoot in a sentence | shoot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shoot"
+---
+- I'll `shoot` you, ben.
+- Just don't `shoot` me.
+- `Shoot` at the driver.
+- `Shoot` it in the eye!
+- So you can `shoot` me?
+- They point, i `shoot`.
+- They're gonna `shoot`!
+- When do movie `shoot`?
+- Why don't you `shoot`?
+- But i will `shoot` him.
+- Don't `shoot` yourself.
+- I can `shoot` a pistol!
+- Not if i `shoot` first!
+- `Shoot` me, we all die.
+- `Shoot` straight ahead.
+- We'll just `shoot` him.
+- Why did he `shoot` her?
+- Answer and i'll `shoot`!
+- Don't say `shoot`, okay.
+- Go ahead and `shoot` me.
+- He wanted to `shoot` me.
+- I'm ok. just `shoot` me.
+- I `shoot` straight pool.
+- `Shoot` 'em in the face.
+- `Shoot` him in the head.
+- `Shoot` to kill, i said.
+- Tell him not to `shoot`.
+- "you can't `shoot` 'em!"
+- You going to `shoot` me?
+- You gonna `shoot` a kid?
+- You're gonna `shoot` me!
+- You're gonna `shoot` me?
+- You're gonna `shoot` me!
+- You `shoot` like a girl.
+- You `shoot` on my order.
+- Corn gonna `shoot` at me?
+- Don't `shoot` at the van.
+- I don't `shoot` polaroid.
+- I may have to `shoot` it.
+- Now she wants to `shoot`.
+- Please, don't `shoot` me.
+- `Shoot` a pregnant woman?
+- `Shoot` pool, fast eddie.
+- `Shoot` the whole dollar.
+- `Shoot` through the desk.
+- Then `shoot` him already.
+- Then who *do* we `shoot`?
+- You didn't `shoot` at me.
+- Yet you don't `shoot`.
+- Don't make me `shoot` you.
+- I ain't gonna `shoot` her.
+- I'm not gonna `shoot` you.
+- I saw them `shoot` at her.
+- Let's `shoot` this fucker!
+- Louise, `shoot` the radio.
+- `Shoot` it with the laser!
+- Where did you `shoot` her?
+- Why didn't he `shoot` you?
+- Why not `shoot` everybody.
+- You think i'd `shoot` you?
+- Did you `shoot` the rapids?
+- Don't `shoot` him any more!
+- He didn't `shoot` it, ross.
+- He's liable to `shoot` you.
+- He was going to `shoot` me!
+- I wanted to `shoot` myself.
+- Look, i didn't `shoot` him!
+- Oh just `shoot` us already.
+- Orders are `shoot` to kill.
+- To learn to `shoot` cannon?
+- Why would he `shoot` at us?
+- You didn't have to `shoot`!
+- You name it, we `shoot` it.
+- You see me `shoot` anybody?
+- What, you'll `shoot` me?
+- Did you `shoot` their boots?
+- I don't want to `shoot` you.
+- Just, uh, point and `shoot`.
+- Long enough to `shoot` back.
+- Put it down or i'll `shoot`.
+- So you can `shoot` a pistol?
+- Tell 'em to `shoot` to kill.
+- They'll `shoot` you, animal!
+- Well, why'd you `shoot` him?
+- What'd you `shoot` her with?
+- When i miss you can `shoot`.
+- You don't `shoot` squirrels.
+- You're gonna `shoot` me now?
+- Be careful where you `shoot`.
+- Don't tempt me, i'll `shoot`!
+- He's gonna <u>`shoot`</u> me?
+- I didn't mean to `shoot` him.
+- I'll kill you if you `shoot`.
+- I'm going to `shoot` you now.
+- Okay, hold on, don't `shoot`.
+- She didn't `shoot` us, right?
+- `Shoot` vader's tie fighter !
+- They won't `shoot` civilians.
+- Who am i supposed to `shoot`?
+- Why -- to `shoot`, of course.
+                 

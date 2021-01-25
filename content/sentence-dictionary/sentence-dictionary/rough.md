@@ -1,0 +1,107 @@
+---
+title: "rough in a sentence | rough example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rough"
+---
+- I have a `rough` idea.
+- It is kind of `rough`.
+- Kane: `rough` landing?
+- Not so `rough`, honey.
+- Pretty `rough` so far.
+- That's pretty `rough`.
+- Diamond in the `rough`.
+- It's a `rough` landing.
+- Like the `rough` stuff?
+- Not as `rough` as some.
+- Not much `rough` stuff.
+- They've got it `rough`.
+- I know ... it's `rough`.
+- They had a `rough` life.
+- A diamond in the `rough`.
+- It's a `rough` plan, guy!
+- They play pretty `rough`.
+- Sounds like a `rough` one.
+- Another `rough` night, huh?
+- Sounds like a `rough` time.
+- The diamond in the `rough`.
+- Well, a `rough` estimate...
+- Boy, that was a `rough` one.
+- It was really `rough` going!
+- It isn't always this `rough`?
+- He's a diamond in the `rough`.
+- I know how `rough` life can be.
+- These people play very `rough`.
+- You're in a `rough` spot, okay?
+- Actually, it is kind of `rough`.
+- I mean is it `rough` or cottony?
+- Just give me a `rough` estimate.
+- Still, it must be kinda `rough`.
+- You can't be so `rough` with me.
+- Did he ever get `rough` with you?
+- Did they give you a `rough` time?
+- I didn't mean to be that `rough`.
+- This one got a little `rough`.
+- I don't want to get `rough`, do i?
+- I heard you had it pretty `rough`.
+- I know you have had a `rough` day.
+- It can get very `rough` out there.
+- Look like you had a `rough` night.
+- Scott, you sound a little `rough`.
+- Well, don't be so `rough` with it.
+- You were kind of `rough` on wells.
+- Being a cop will be `rough` on her.
+- It's lonely, it's `rough` at first.
+- Making things real `rough` for hal.
+- Must've been a `rough` couple years.
+- The first fun's bound to be `rough`.
+- This is a `rough` part of the world.
+- Did you have to be so `rough` on her?
+- Diamond in the `rough` does not exist.
+- I've got to play it `rough` with them.
+- Listen, hank, it's been a `rough` day.
+- Please... look, you've had it `rough`.
+- Oh, you're just having a `rough` patch.
+- You gonna get `rough` now, threaten me?
+- You know, if it gets `rough`, so be it.
+- You like it this way -- `rough` and hard.
+- I think we got off to a `rough` start, god!
+- You had a `rough` couple years, that's all.
+- It's just a work in progress, kinda `rough`.
+- You bring me the `rough` but never a diamond.
+- Be kind of `rough` on him if there's no blood.
+- It's a `rough` translation from the moldavian.
+- Look, senator--let me give you a `rough` idea.
+- Don't go out if it's `rough` or any- thing, huh?
+- He said maybe you were a diamond in the `rough`.
+- I don't care if you're putting from the `rough`.
+- I must tell you, she's running a little `rough`.
+- Now, you've had a `rough` go, i'll give you that.
+- `Rough` uncut stones they get from the syndicate.
+- He got a little `rough` with arlene the other day.
+- Now cut that out, girls-none of that `rough` talk.
+- Things may get `rough` with the move we're trying.
+- Gave me a couple of `rough` nights, i'll tell you .
+- If that's somethin' you into... she like it `rough`?
+- I mean, you handle some pretty `rough` traffic, huh?
+- Mr. buckley thinks you treated him a little `rough`.
+- She's going through a really `rough` time right now.
+- <u>that</u> might be a <u>little</u> <u>`rough`</u>!
+- After a `rough` fight, ya' nothin' but a large wound.
+- It's the `rough`-cut, the other side's new commercial.
+- It would be very `rough`, carol, if you weren't along.
+- You fuck with her `rough`, and you got me to fuck wit.
+- They'll be pretty `rough` with you....with your record.
+- But my wife, my parents, it's been very `rough` on them.
+- You said yourself the stuff that's there now is `rough`.
+- All girls enjoy a little `rough` trade from time to time.
+- I know it's been `rough`, a grounder hit her on the head.
+- She's pulled herself out of a pretty `rough` neighborhood.
+- We'll give 'em a <u>`rough`</u> <u>reception</u>, won't we?
+- This may be a little `rough` - you'd better let us go alone.
+- When the going got too `rough`, i pulled up stakes and quit.
+- I know it's `rough` mentally, but everything's taken care of.
+- Though i guess who it'll really be `rough` on is your husband.
+- The next couple of days is gonna be `rough`, but we'll make it.
+- That's cause will kennison only wrote a `rough` treatment of it.
+                 

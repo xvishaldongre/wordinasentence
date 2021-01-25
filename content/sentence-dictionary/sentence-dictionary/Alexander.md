@@ -1,0 +1,52 @@
+---
+title: "Alexander in a sentence | Alexander example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Alexander"
+---
+- It's by pope `alexander`.
+- `Alexander` de large, sir.
+- Good morning, `alexander`.
+- I just fired bob `alexander`.
+- `Alexander` and i are friends.
+- Mr. `alexander` stares at him.
+- You're exhausting `alexander`.
+- Has `alexander` agreed to this?
+- I'm `alexander` p. lovett, sir.
+- Orion's belt... `alexander`...?
+- What's your advice, `alexander`?
+- I'm going to end it, `alexander`.
+- Captain `alexander` hamilton, sir!
+- Where do you place `alexander`?
+- Will `alexander` be joining us soon?
+- In particular `alexander` walker, did.
+- Now don't get excited, mr. `alexander`.
+- `Alexander`, i know you're trying to help.
+- All right, who's our `alexander` hamilton?
+- I'm here, you're here, `alexander`'s here.
+- Mara, will you look after `alexander` tonight?
+- Want to go up to your office, mr. `alexander`?
+- I made miss - miss `alexander` send you the note.
+- Make it `alexander`'s, i like the toy department.
+- We can't change the day and the night, `alexander`.
+- The story about him and miss `alexander`, mrs. kane.
+- Christine mccafferty: `alexander`'s one of my heroes.
+- `Alexander` and quellek look down at the blood, horrified.
+- It can't all be like this... and who are you, `alexander`?
+- Mr. `alexander` becomes frenzied as the speech progresses.
+- His younger son `alexander` is also brought into the business.
+- So it's goodbye `alexander` dyle -- welcome home peter joshua.
+- Then it's time to change that -- this is out life, `alexander`.
+- I should hope not... ... `alexander`... make them read my books.
+- Do you think `alexander` has any chance to succeed as a mediator?
+- Take him away from here -- mara -- `alexander`, take my son away.
+- `Alexander` dyle was interested in clearing up his brother's death.
+- And, what a great pleasure it is, indeed, to meet you, `alexander`.
+- M `alexander` sort ov) by grabtnar' s h~mmer, we ove to te ono 'tale.
+- If you'd just let me talk to you for a little while, miss `alexander`.
+- It was john walker's son `alexander` that really took the brand global.
+- `Alexander`, yours is a world of brocade and velvet, not tooth and claw.
+- My name is lovett - `alexander`, p. good morning� i say, good morning, lovey.
+- It's always the tiger for you, `alexander`, haven't you learned that by now?...
+- `Alexander`, are you trying to tell me that i might be assassinated if i don't agree?
+                 

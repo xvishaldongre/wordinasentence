@@ -1,0 +1,100 @@
+---
+title: "secretary in a sentence | secretary example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "secretary"
+---
+- Your `secretary`, huh!
+- I became a `secretary`.
+- `Secretary`: excuse me.
+- Where's my `secretary`?
+- I'm a legal `secretary`.
+- Your `secretary` phoned.
+- She's not my `secretary`.
+- Do you need a `secretary`?
+- Mr. sheldrake's `secretary`.
+- So you're grant's `secretary`?
+- His `secretary` just confirmed.
+- I'm his social `secretary` now.
+- My mother's a real `secretary`.
+- My `secretary` took the message.
+- With mr. white's new `secretary`.
+- Keep in touch with my `secretary`.
+- I didn�t requisition a `secretary`.
+- Just a mixup with your `secretary`.
+- My friends call me mr. `secretary`.
+- My `secretary` has all the details.
+- No hitches at all, mr. `secretary`.
+- Well, assistant to his `secretary`.
+- Get out of our way, mr. `secretary`.
+- I'm the doctor's social `secretary`.
+- Your father's executive `secretary`.
+- I told my `secretary` to call mother.
+- My `secretary` saw you with that boy.
+- Say you�re my `secretary`, all right?
+- This used to be my `secretary`'s room.
+- You see, i'm not really a `secretary`.
+- I just got a call from the `secretary`.
+- I just got a call from the `secretary`.
+- I still have an office and `secretary`.
+- Wel-l-l, it seems he has a `secretary`.
+- Tell your `secretary` everything's fine.
+- Why, is there a new foreign `secretary`?
+- No doubt about it--it's that `secretary`.
+- Carrying out our mission, mr. `secretary`.
+- `Secretary` to a leader of little squirts.
+- Some kinda legal `secretary` of something.
+- You're the `secretary` of war, aren't you?
+- And: rene gave me a job as his `secretary`.
+- As `secretary` you can hire anyone you like.
+- Just you wait until i'm foreign `secretary`.
+- Call my `secretary`, she'll set something up.
+- Oh, yes - i just made you `secretary` of war.
+- I'll call your `secretary` about reservations.
+- I'm a paleontologist, not a foreign `secretary`.
+- Sam the sleazebag, this is jazz, my `secretary`.
+- My `secretary`'ll send you a letter of agreement.
+- Audrey, how long have you been his... `secretary`?
+- How long were you mr marsh's personal `secretary`?
+- They think you're the `secretary` of the treasury.
+- It perfectly describes the new foreign `secretary`.
+- I'm sorry -- my `secretary` must have gone to lunch.
+- I've got just the job for you -- `secretary` of war.
+- What would you do if you were my <u>`secretary`</u>?
+- I'm miss wilson - mrs. schuyler's social `secretary`.
+- Where do you get off pretending to be my `secretary`?
+- I got the definitive word from cuthbert's `secretary`.
+- Col., the `secretary` of defense is on the line for you.
+- Miss olsen i'm miss olsen -- mr. sheldrake's `secretary`.
+- I -- i may be wrong, but i suspect the `secretary` of war.
+- It's what you give to your `secretary` instead of a raise.
+- Okay, i'm only a `secretary`, oaky, but it pays the bills.
+- Colonel, the `secretary` of defense is on the line for you.
+- No hell, some `secretary` in new york just hands it to you.
+- A <u>`secretary`</u> -- ... where did curiosity get the cat?
+- You know my `secretary` -- miss olsen -- well -- i guess so.
+- Somewhat like the lonesome `secretary` syndrome, i'd suppose.
+- My `secretary` is a great admirer of your methods, mr. kaplan.
+- The `secretary` of labor is going to be indicted on wednesday.
+- They have a man they call the `secretary`, but he isn't at all.
+- Especially to our `secretary` of state -- that cretin rogers ...
+- My `secretary` said you wanted to discuss a business proposition.
+- We've been hailing the groznyy for the last hour, mr. `secretary`.
+- Your daughter is ill. miss wollsten -� my `secretary`, she'd know.
+- Forgive me, but you don't strike me as the social `secretary` type.
+- You see, barton, i'm not just bill's `secretary` � bill and i are...
+- Mister `secretary` - if they link up with those others near fresno...
+- When your `secretary` called, she made no mention of her coming, too.
+- With all due respect, mr. `secretary`, we were not firing on the ship.
+- Gentlemen, i give you robert conway - england's new foreign `secretary`.
+- I just don't get it; a creep `secretary` being scared, that's one thing.
+- He's a `secretary`, always <u>was</u> a `secretary`, always <u>will</u> be.
+- You were father's `secretary` -� i never thought - - your father loved me.
+- He didn't get to be under `secretary` of the air force by being neighborly.
+- When i called his office, his `secretary` said they thought i had cancelled.
+- You said: 'that was the young lady who was my `secretary` in manchester'.
+- But i got a little tired of sleeping in antiques, so i gave it to my `secretary`.
+- I just left for a minute... if you're some glorified `secretary` or what, come on!
+- They've appointed george here as executive `secretary` to take his father's place.
+- I just wanted to see if my `secretary` called to confirm your appointment tomorrow.
+                 

@@ -1,0 +1,62 @@
+---
+title: "con in a sentence | con example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "con"
+---
+- Sammy was a `con` man.
+- Don't `con` me, maxine.
+- That dam is a `con` job.
+- I knew i could `con` you.
+- Mr. sulu, take the `con`.
+- Did you just now `con` me?
+- God, wake up, it's a `con`!
+- Prima non l'aveva `con` se.
+- Who're you trying to `con`?
+- A real high-class `con` man.
+- But you played the big `con`.
+- Don't try to `con` me, amado.
+- Against a `con` indian's word.
+- He was a `con` man, wasn't he?
+- They took some of the `con`...
+- Who are you trying to `con`...?
+- Roy, you're a short-`con` operator.
+- You finish the reading for e-`con`?
+- You played the big `con` since then.
+- So she begins to `con` him, you know?
+- Como lo va a matar `con` un picahielo.
+- This can't be right -- `con`- science.
+- Whole garrison from `con` cuong is out.
+- Just give me the `con`-... ...the river.
+- Nobody's easier to `con` than a `con` man.
+- No, you are going to comic-`con` with me.
+- But we've got to try to `con`- tact somebody.
+- So you want to know how to play the big `con`.
+- You're a `con` man, and you blew it like a pimp.
+- What was it you said about playing the big `con`?
+- Gondorff, you gonna teach me the big `con` or not?
+- Just a used-up `con` with arthritis in both hands.
+- Did you ever study anything wasn't part of some `con`?
+- Fourth beat of the first measure - c. `con`-fu-ta-tis.
+- Second beat of the first measure - a. `con`-fu-ta-tis.
+- If you hadn't taught me `con`, i wouldn't know nothin'.
+- Who the fuck are you tryin' to `con` me into some deal?
+- According to your statement you are a short-`con` operator.
+- There's word he's gonna run a `con` on the north side here.
+- One night's work and you're free like no ex-`con`'s ever been.
+- Um, we have... kumiko, we are changing the comic-`con` costumes.
+- You gotta keep lonnegan's `con`, even after you spent his money.
+- Some `con` doing mandatory life doesn't like macaroni and cheese.
+- E difficile... il signor ripley... dormiva all'aperto, `con` un...
+- It's nothin' compared to what you could be makin' on the big `con`.
+- My world famous, famous world arroz `con` pollo will be ready very soon.
+- He could have gone quietly but he played the hard-ass `con` till the end.
+- In this case, you might say i want to know how not to play the big `con`.
+- The diploma is my `con`- ference of degree in latin from trinity college.
+- A gambler, `con`-artist ... all- around scoundrel ... ... your kind of guy.
+- But you... why start writing to some guy -- some `con` -- you don't even know?
+- He's a `con` man--crooked as a tree--and i was part of the racket--helped him!
+- Uh-huh... uh-huh... yeah, it's going through -- same thing with playing a `con`.
+- I was sent by his majesty of spain to inverness as a `con`- sultant on matters of metal.
+- I've paid the rent, the `con`-ed and the phone bill, so you don't have to worry about them.
+                 

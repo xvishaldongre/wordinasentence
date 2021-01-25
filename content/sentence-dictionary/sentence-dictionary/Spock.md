@@ -1,0 +1,82 @@
+---
+title: "Spock in a sentence | Spock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Spock"
+---
+- Could it be `spock`'s?
+- `Spock`, this is kirk.
+- Damage report, `spock`?
+- Well done, mr. `spock`.
+- `Spock`, it's me, bones!
+- `Spock`, we're on leave.
+- Admiral, this is `spock`.
+- Answers to what, `spock`?
+- But we have `spock` alive!
+- `Spock`: condition report!
+- `Spock`'s looking for us...
+- `Spock`, you have the conn.
+- What do you think, `spock`?
+- `Spock`, i'm really tired...
+- What will happen to `spock`?
+- You saved the ship, `spock`.
+- Beam up `spock` and dr. mccoy.
+- It will be hardest on `spock`.
+- `Spock`... kirk to enterprise.
+- ... `spock`... ... or the one.
+- Cloud composition, mr. `spock`?
+- Mr. `spock`, the ship is yours.
+- Mr. `spock`, your computations?
+- `Spock`... the booster rockets.
+- They will be again, `spock`.
+- `Spock`, that was actually funny.
+- Let's go... `spock`'s burial robe.
+- `Spock`, you want to know something?
+- I know this has been painful, `spock`.
+- `Spock`... did braking thrusters fire?
+- `Spock`, i thought i was going to die.
+- Ten seconds.... transmit, mr. `spock`!
+- Do <u>not</u> return scan, mr. `spock`!
+- What are we searching for, mr. `spock`?
+- You got us to the right place, `spock`.
+- This business about `spock` and mccoy...
+- Impact in fifteen seconds... mr. `spock`?
+- <u>you?</u> `spock`, that's extraordinary.
+- Captain, what have i done - damnit, `spock`.
+- Is that the logical thing to do, `spock`...?
+- `Spock`... what have you done to my friends?
+- What you have done is -- what about `spock`?
+- I'm aware of mister `spock`'s qualifications.
+- `Spock`, you will accompany me to the bridge?
+- `Spock`... admiral, if we were to assume these.
+- `Spock`, start your computations for time warp.
+- Mr. chekov, i ordered `spock`'s quarters sealed!
+- `Spock`, what in the hell are you doing out here!
+- Damn... mr. `spock`, see to the safety of all hands.
+- Maybe he's right here... in the human heart `spock`?
+- `Spock`: those cadets of yours -- how good are they?
+- Captain sulu... on assignment... anyone seen `spock`?
+- Mr. `spock`, rura penthe's deep in klingon territory.
+- Mr. `spock`, what would v'ger need to fulfill itself?
+- `Spock` trusted you -- and you denied him his future!
+- `Spock` - what are you doing in this neck of the woods?
+- Mr. `spock`, where the hell is the power you promised me?
+- But at the rate things are going now... and `spock` with it.
+- `Spock`, could the humpback's answer to this call be simulated?
+- This is uss reliant -- something `spock` was trying to tell me.
+- If there was so much at stake -- `spock` would have found a way!
+- It's as i said, mr. `spock`: inventory still registers every torpedo.
+- Goddam it, `spock`, you're talking about the end of every life on earth!
+- Uh....that's an "s." that's a little vague, `spock` - i am here, captain.
+- 'it was the best of times, it was the worst of times...' message, `spock`?
+- `Spock`, it would appear that you've been given a second chance to join me.
+- They you're talking about a dreadful new engine of destruction, mr. `spock`.
+- Pity they're retiring us just as i was starting to understand you, `spock`...
+- Captain `spock` and i will attempt to trace these whale songs to their source.
+- In code to starfleet... captain's `spock`'s tube located intact on genesis surface.
+- However, if you surrender now- `spock`, you've developed a sense of humor after all.
+- Full sensor scan, mr. `spock`; they can't expect us <u>not</u> to look them over now!
+- Even assuming you're correct, mr. `spock`, why would they fire on their own president?
+- Yes, yes, `spock`... because... the needs of the one outweighed the needs of the many.
+- An energy reading from 'c" deck -- from inside mr. `spock`'s quarters... mr. chekov -- ?
+                 

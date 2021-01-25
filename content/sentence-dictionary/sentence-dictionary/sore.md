@@ -1,0 +1,57 @@
+---
+title: "sore in a sentence | sore example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sore"
+---
+- Don't get `sore`, joe.
+- Couple `sore` knuckles.
+- Don't get `sore` at me.
+- I have a `sore` throat.
+- I'm not a `sore` loser.
+- A sight for `sore` eyes!
+- Don't be a `sore` loser.
+- You're not `sore` at me?
+- But my leg is very `sore`.
+- My leg is not very `sore`.
+- Wadda you so `sore` about?
+- Hard-tack is pretty `sore`.
+- I told you he was a `sore`.
+- Hey, he's not `sore`, is he?
+- Oh, still `sore` about this.
+- Something's made you `sore`.
+- You ain't got to get `sore`.
+- It is quite a `sore` spot.
+- It's a `sore` spot between us.
+- Am i suppose to be this `sore`?
+- Waddaya getting so `sore` about?
+- We stick out like `sore` thumbs.
+- Yes, you're `sore` at the world.
+- ], and jason had a `sore` throat.
+- He sticks out like a `sore` thumb.
+- I'd stick out like a `sore` thumb.
+- I don't blame you for being `sore`.
+- What is it, a `sore` throat or what?
+- Yeah, but it's got everybody `sore`.
+- Charlie's upstairs as `sore` as a pup.
+- I've never been this `sore` in my life.
+- Hey, i don't blame you for bein' `sore`.
+- I can feel my butt getting `sore` already.
+- It's feeling better, but it's still very `sore`.
+- Hey, joe, don't get `sore` about this or anything.
+- She's `sore` hurt, jack, tis true, but not dead yet.
+- What makes me `sore` is how they behave towards you.
+- I could give it some thought, ben, but my leg is very `sore`.
+- Not remembering one fever... or a cold... or a `sore` throat.
+- By golly, i'm surely glad to see that you're not really `sore`.
+- Normally dressed, you are a `sore` thumb, and you endanger us all.
+- No, thank the lord, but she be `sore` envenomed by the spider's bite.
+- Mr. charles - she did - that's why he got `sore` at her and killed her.
+- Does a conscience still burn somewhere inside your `sore` mind, deborah?
+- When i don't practice, my timing gets off, my thumbs get stiff and `sore`.
+- These dwarves be `sore` grouches... pay no heed to their spiteful grumbling.
+- Oh no you can't, the old man'd be `sore` as hell if i let you get mixed up in this.
+- Listen edie, don't get `sore` now� but i think we're getting in love with each other.
+- When i got the wedding invitation i knew you weren't `sore` at me anymore, godfather.
+- I wish someone would tell be about me... we're never deeply angry, we just get `sore`.
+                 

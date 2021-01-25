@@ -1,0 +1,60 @@
+---
+title: "pretending in a sentence | pretending example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pretending"
+---
+- `Pretending` to like me?
+- Are you `pretending` yet?
+- He got tired of `pretending`.
+- I'm not `pretending` anything!
+- What d'you mean, `pretending`?
+- Rogers isn't even `pretending`.
+- Stop `pretending` like you care!
+- They're...`pretending` to dress.
+- Everybody's `pretending`, truman.
+- He keeps `pretending` he can talk.
+- They're `pretending` it's process.
+- He's been `pretending` to help you.
+- Clarke, i've been `pretending`, too.
+- I thought maybe he was `pretending`.
+- `Pretending` like everything's okay.
+- Let's have a minimum of `pretending`.
+- `Pretending` is just a waste of time.
+- Same with me, `pretending` i was you.
+- Deb, we're `pretending` to be hookers.
+- For the person i'm `pretending` to be.
+- There's no use `pretending` otherwise.
+- He's been `pretending` the entire time.
+- `Pretending` to be a fucking millionaire!
+- Don't get anything except by `pretending`.
+- I got enough people `pretending` to sweep.
+- But whether she's `pretending` to like you.
+- No, you're frightened, you're `pretending`.
+- So you were just `pretending` to be an asshole.
+- `Pretending` there isn't a problem won't fix it.
+- Your probably best off `pretending` you�re asleep.
+- Remember, you're a cop `pretending` to be a deviant.
+- Well...yeah-- is he `pretending` to be the abductor?
+- Where do you get off `pretending` to be my secretary?
+- For the record, ava's not `pretending` to like you.
+- Oh, so it's back to `pretending` we're human again, is it?
+- Here's little tommy `pretending` to be walter cronkite.
+- He feels so guilty about `pretending` war, more dead friends.
+- ♪ circus clowning ♪ `pretending` to be my lawyer, probably moe.
+- If `pretending` she's a werewolf helps, then more power to her.
+- I stopped `pretending` and started liking it with him for real.
+- When did `pretending` to be bored become a sign of superiority?
+- He told me he was only `pretending` to be a thief to see the city.
+- ...i have to start `pretending` i've no desire to make love to her.
+- I lived for a year with a man who was `pretending` to be my father.
+- Okay, so he's a freak who thinks he's sane `pretending` to be a freak.
+- I don't see how we can get out of that by `pretending` it didn't happen!
+- If you try that at msu this saturday, i'm `pretending` i don't know you.
+- The funny thing -- i'm not `pretending` to be somebody else and you are.
+- They'll say he's just `pretending` to be catatonic and he's completely sane.
+- For all his `pretending` to be a tough guy, he's really got the soul of a poet.
+- What could be gained by withholding anything from them; by `pretending` to ignorance?
+- And these agents were trying to shoot us-- you're `pretending` like everything is okay.
+- I can't sit here and trust everything's going to work out just by `pretending` it will.
+                 

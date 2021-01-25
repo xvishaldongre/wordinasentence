@@ -1,0 +1,104 @@
+---
+title: "flying in a sentence | flying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "flying"
+---
+- I'm `flying` this ship.
+- He's `flying` to sicily.
+- I am `flying` out today.
+- Is the pelican `flying`?
+- Who's `flying` the ship?
+- Our `flying` ant crashed.
+- It's almost like `flying`.
+- She's `flying` starships !
+- Beats `flying`, doesn't it?
+- Roger that, `flying` right.
+- She's `flying` to new york.
+- Underwater `flying` objects.
+- I'm not real big on `flying`.
+- I see, a `flying` carpet, huh?
+- It's perfect `flying` weather.
+- The nocturnal `flying` mammal?
+- Unidentified `flying` objects.
+- All right...we're still `flying`.
+- We'll call it the `flying` donut!
+- Who's `flying` the fucking plane?
+- We can get the `flying` branzinos.
+- I was `flying`...my responsibility.
+- Thank you for `flying` air pandora.
+- Then...this is a '`flying` saucer?'
+- I'm `flying` blind here god damn it!
+- I saw eight geese `flying` in a "v".
+- What kind of plane are you `flying`?
+- So my letter brought ya `flying`, eh?
+- That's called `flying` over the hump.
+- You can both go take a `flying` jump.
+- What `flying` experience have you had?
+- You'll be `flying` multi-engines here.
+- They have a fleet of `flying` monsters.
+- She comes to us in the `flying` machine.
+- Go in the direction the bird is `flying`.
+- Why don't you keep your mind on `flying`.
+- First we're `flying` -- now we're sinking!
+- You did the `flying`, i'll do the talking!
+- You said, "apples aren't exactly `flying`."
+- You've been giving him a *`flying`* lesson!
+- All these ideas `flying` in from everywhere.
+- He's supposed to be `flying` in from europe.
+- It's wonderful.... how do you like `flying`?
+- If i'm `flying` solo, she'll be the only one.
+- There might be some debris `flying` your way.
+- Your big opportunity is `flying` out of here.
+- What are you giving me with the `flying` fish?
+- You've been `flying` yourself into the ground.
+- He told me to take a `flying` fuck at the moon.
+- If you're `flying` upside down... yeah, cougar?
+- One time i was `flying` supplies up the amazon.
+- ... `flying` gracefully... over the rice fields.
+- My heart was `flying` out of my chest with love.
+- With emori `flying`, this is the survivor's move.
+- A patio chair comes `flying` through a glass door.
+- `Flying` around with all the other little fairies.
+- I'm `flying` there, right now, unless you stop me.
+- You've got enough fuel left for two hours `flying`.
+- Pals: get on the <u>phone</u>... r'they `flying` it?
+- Those `flying` fish -- they are not leaping for joy.
+- Did you know this was once yeltsin's `flying` dascha?
+- What do you say to `flying` out and giving me a hand?
+- He said he saw a crop duster `flying` around the place.
+- `Flying` over mountains can give you some nasty surprises.
+- Yeah, she must do all the `flying` around when i'm asleep.
+- We've been `flying` over his estate for the past two hours.
+- When they're `flying` on muscle there's no way to catch up.
+- I'm `flying` in some guys from your unit in vietnam tomorrow.
+- Tough to manipulate someone who doesn't give a `flying` fuck.
+- But i will spare the `flying` nun here.... you can't, convict!
+- So those brave men are `flying` blind and running out of fuel.
+- I don't know where we'll wind up--but the flag'll be `flying`--!
+- That's cause we're not the only thing `flying` around out there.
+- Running in with ski masks and bullets `flying` ain't gonna do it.
+- If they're not `flying` we have a damn good chance of getting them.
+- In 1985 you were `flying` for twa and got busted for carrying drugs.
+- That this man didn't die from an explosion, or from `flying` debris.
+- I'm gonna be `flying` by in about five minutes with smokey on my tail.
+- I asked the same of your husband and he succeeded with `flying` colors.
+- But i don't know if i should be `flying` or playing vegas in these suits.
+- I just hear it so much at church - it kinda came `flying` out of my head.
+- Been `flying` so many scientists out here -- can't keep everyone straight.
+- I'm `flying` back out to pennsylvania friday; i'll fill them in on things.
+- We've arranged for a private airplane to take us `flying` over isla sorna.
+- It's an entirely different kind of `flying`...<u>all</u> <u>together</u>!!!
+- This is the last chance i have -- i'm `flying` back to paris this afternoon.
+- You'll be up to your armpits in meatballs, i'm `flying` them in from sweden.
+- You sure looked funny running for those pies, bullets `flying` all around you.
+- All on captain worthington's orders-- the captain was still `flying` the plane.
+- To harrison ford, who is `flying` himself, by the way, they all think i'm crazy.
+- We're `flying` over pigs, we're `flying` over <u>sheep</u>... how was your flight?
+- So, here i am, four layovers, twenty-seven hours `flying` and one donkey ride later.
+- The young girl in the movie tears off running, screaming, `flying` through the room.
+- But castro's on alert and we're `flying` attack planes over their sites, on the deck.
+- Then suddenly a knight on a white horse with his bright colors `flying` would ride up.
+- Well, i'm hearin' the swede's been dispatched, he's `flying` so -- how are we on time...?
+- The question's just been where to draw it bird `flying` south-you think he sees that line?
+                 

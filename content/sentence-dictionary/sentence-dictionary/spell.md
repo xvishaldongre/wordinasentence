@@ -1,0 +1,72 @@
+---
+title: "spell in a sentence | spell example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spell"
+---
+- Could you `spell` that?
+- What does that `spell`?
+- Because i can't `spell`.
+- Cast your `spell`, oona.
+- Cast a protection `spell`.
+- Quite a `spell`, i reckon.
+- He had you under a `spell`.
+- This is a `spell`, this is!
+- Do i have to `spell` it out?
+- How do you `spell` it again?
+- I'll `spell` it out for you.
+- Can't even `spell` "results".
+- How'd you `spell` that again?
+- I'm under some magic `spell`?
+- How do you `spell` conscience?
+- Let me `spell` it out for you.
+- You're gonna ruin the `spell`.
+- You want me to `spell` it out?
+- Come on in, and sing a `spell`.
+- He cast his `spell` on you too!
+- You will come under my `spell`!
+- I didn't know you could `spell`.
+- Look, you got to `spell` it out.
+- How do you `spell` her last name?
+- I can't write and i can't `spell`.
+- We are in the `spell` of the horn!
+- You sure that's how you `spell` it?
+- Do i have to `spell` it out for you?
+- Are you going to put a `spell` on me?
+- Let me `spell` it out for you, james.
+- P-a-r-a-s-o... how do you `spell` it?
+- You want me to `spell` it out for you?
+- Just be sure you `spell` my name right.
+- Well, for one thing, you can't `spell`.
+- I've protected this camp with a `spell`.
+- Liz, do i have to `spell` it out for you?
+- I can type up a storm, but i can't `spell`.
+- It's a simple `spell` but quite unbreakable.
+- Thy love read by rote and could not `spell`.
+- You can't `spell` "america" without "erica."
+- Do you `spell` buljanoff with one or two f's?
+- I was gonna write a book but i can't `spell`.
+- I'll stay if tom knows how to `spell` gaddafi.
+- God, we haven't caught up in a `spell`, have we?
+- I'd `spell` it out for you -- only i can't `spell`.
+- Do i need to `spell` it out for you, mr. garrison?
+- He told me a magic `spell` that would make you come.
+- I could put a `spell` on you - and make you say yes.
+- ♪ could break that satan's `spell` ♪ merry christmas.
+- But then i must have had a dizzy `spell`, and fainted!
+- You been on the farm for quite a `spell`, haven't you?
+- You'll find removing a dead man's `spell` troublesome.
+- Those dots `spell` out a message in the morse code.
+- I will `spell`: charlie hotel india mary echo romeo alpha.
+- Can you tell me how you `spell`... penrhyndeudraeth, north wales.
+- I don't want to `spell` my name, i want you to give me this jeep!
+- Maybe not, but it will give you can't `spell` greed without reed.
+- You're good at riddles... find the ring and the `spell` is broken.
+- The things a that `spell` san francisco to me are disappearing fast.
+- He doesn't even know how to `spell` `lady' let alone treat me like one.
+- Maybe i should rest up for a `spell`, i'm not as young as i used to be.
+- ♪ ooh, we're sharing some grits ♪ that's not how you `spell` "results".
+- So back off or i'll have you in court quicker than you can `spell` sexual harassment.
+- Well i...i did get offered one place but i just wanted to be off by myself a `spell`.
+- Not a scar remains... we're talking about a `spell`; harder to repair than sword-work.
+                 

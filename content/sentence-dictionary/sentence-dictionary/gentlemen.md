@@ -1,0 +1,107 @@
+---
+title: "gentlemen in a sentence | gentlemen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gentlemen"
+---
+- Bad news, `gentlemen`.
+- `Gentlemen`, the past.
+- Good day, `gentlemen`.
+- On, lusty `gentlemen`.
+- This way, `gentlemen`.
+- All clear, `gentlemen`.
+- All right, `gentlemen`!
+- All right, `gentlemen`.
+- A southern `gentlemen`.
+- Excuse me, `gentlemen`.
+- Good news, `gentlemen`.
+- I'm sorry, `gentlemen`.
+- Thank you, `gentlemen`.
+- Come on in, `gentlemen`.
+- Forgive me, `gentlemen`.
+- `Gentlemen` of the press!
+- Have a heart `gentlemen`.
+- Thank you, `gentlemen`...
+- Good evening, `gentlemen`.
+- Good morning, `gentlemen`.
+- Good morning, `gentlemen`.
+- `Gentlemen`, i have a plan.
+- It isn't done, `gentlemen`!
+- Oh, no, `gentlemen`, please.
+- One more thing, `gentlemen`.
+- Have a good day, `gentlemen`.
+- It's very simple `gentlemen`.
+- Ladies and `gentlemen`, ally.
+- `Gentlemen` of the "enquirer"!
+- It won't be long, `gentlemen`.
+- Whatever you say, `gentlemen`.
+- You'll excuse me, `gentlemen`.
+- You'll excuse me, `gentlemen`?
+- `Gentlemen`, the film is yours.
+- Good to be aboard, `gentlemen`.
+- Can i--uh--help you `gentlemen`?
+- Is there a problem, `gentlemen`?
+- Tell me about ohio, `gentlemen`.
+- This is impressive, `gentlemen`.
+- Will you excuse me, `gentlemen`?
+- You `gentlemen` care for a drink?
+- An historical moment, `gentlemen`.
+- Don't look so gloomy, `gentlemen`.
+- `Gentlemen`, i will not hear this.
+- `Gentlemen`, you have two choices.
+- What can i do for you `gentlemen`?
+- `Gentlemen`, i wish you a good day.
+- `Gentlemen`, the prosecution rests.
+- What do you `gentlemen` make of it?
+- `Gentlemen`, see this amiable youth!
+- Okay ladies and `gentlemen` or both.
+- These `gentlemen` are from salzburg.
+- Except most of us aren't `gentlemen`.
+- Good evening, ladies and `gentlemen`.
+- Just like proper english `gentlemen`.
+- What's left you `gentlemen` can have.
+- Beck weathers, ladies and `gentlemen`.
+- First door on your right, `gentlemen`.
+- [mrs. lane] `gentlemen`, welcome home.
+- Say, schulz -- aufstehen, `gentlemen`!
+- Step right up, ladies and `gentlemen`!
+- Step right up, ladies and `gentlemen`.
+- You may resume your work, `gentlemen`.
+- Did i interrupt something, `gentlemen`?
+- Eureka ammunition company, `gentlemen`.
+- Those are his exact words, `gentlemen`.
+- Well, `gentlemen`, are we going to war?
+- You look a proper `gentlemen` for once.
+- A quiet little chat between `gentlemen`.
+- Are you `gentlemen` all through with me?
+- Change of plans, ladies and `gentlemen`.
+- There are no `gentlemen` on the tribune.
+- You `gentlemen` going to stay for lunch?
+- Ladies and `gentlemen`, the fence is hot.
+- Now `gentlemen`, i'm going back to sleep.
+- Oh, will you come in please, `gentlemen`?
+- That's triangular diplomacy, `gentlemen`.
+- Alright, `gentlemen`, i'm gonna leave you.
+- Ladies and `gentlemen`, the amazing place!
+- Are the `gentlemen` going to stay - or not?
+- Ladies and `gentlemen`, you know the drill.
+- The idea here, `gentlemen`, is not revenge.
+- You are on pandora, ladies and `gentlemen`.
+- All right `gentlemen`, let's get down to it.
+- Anything you need, `gentlemen`, let me know.
+- `Gentlemen`... may the wind be at our backs.
+- `Gentlemen`, our way of life has taken root.
+- Time we got underway ourselves, `gentlemen`.
+- Well, `gentlemen`, how about my proposition?
+- Excuse me, `gentlemen` just look at this tie.
+- I'll take the bank -- all right, `gentlemen`.
+- Ladies and `gentlemen`, the perfect meatloaf!
+- Now why don't you let these `gentlemen` pass?
+- You `gentlemen` feel you have to do this now?
+- All right, `gentlemen`, i will find it myself.
+- In fact, i'm totally "relaxed..." `gentlemen`.
+- Thank you, ladies and `gentlemen`, you may go.
+- Well, `gentlemen`... how about a little lunch?
+- Yes, well ... `gentlemen`, i promised my wife.
+- Indeed... may i offer you `gentlemen` anything?
+                 

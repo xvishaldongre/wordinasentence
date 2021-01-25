@@ -1,0 +1,107 @@
+---
+title: "gas in a sentence | gas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gas"
+---
+- The pedal for `gas`...
+- Give it a little `gas`.
+- How 'bout `gas`, tommy?
+- It's a corrosive `gas`.
+- This car runs on `gas`.
+- Till the `gas` ran out.
+- Underground `gas` vein.
+- It's not the `gas`, dad!
+- That was `gas`, sweetie.
+- They're gonna `gas` him.
+- You guys could be `gas`.
+- We can't be out of `gas`!
+- We're out of `gas`, doug.
+- You paying for the `gas`?
+- Your own `gas` cooker?
+- Can i help pump the `gas`?
+- In case you use the `gas`.
+- Is this about `gas` money?
+- Little more `gas`... yeah!
+- Nerve `gas` the whole nest?
+- ♪ i really love you ♪ `gas`.
+- It's not about `gas` money!!
+- Let's just siphon the `gas`.
+- Maybe they run out of `gas`.
+- Oil, `gas`, cattle, farmin'.
+- Hit ain't got no `gas` in it.
+- No `gas`... hey, that's good.
+- I've got a `gas` powered jeep.
+- The `gas` is never a good sign.
+- Is there a `gas` station nearby?
+- I want to let the `gas` run out.
+- Pull over at that `gas` station.
+- She's like a newborn with `gas`.
+- They stopped at a `gas` station.
+- Don't tell me it's not the `gas`!
+- Hide it behind the `gas` station.
+- Six weeks he'll be sucking `gas`.
+- Morning... say, you got any `gas`?
+- Thirty-eight cents worth of `gas`.
+- Hey, can you reach the `gas` pedal?
+- It emits a cloud of sleeping `gas`.
+- Put on the mask, turn on the `gas`.
+- There was a leak in the `gas` line.
+- If i didn't use the `gas` and where?
+- I smell `gas`... do you smell `gas`...
+- Put on the masks, turn on the `gas`.
+- We're the `gas`, they're the brakes.
+- Bottles of `gas` at the south summit.
+- Chemco's been developing nerve `gas`?
+- Gives me a little for `gas` and food.
+- I'll drive them out with `gas` first.
+- I'll take some laughing `gas`, ma'am.
+- It's no good without the argon `gas`.
+- The room is filled with poison `gas`.
+- David boyd is a big sack of hot `gas`.
+- They fired tear `gas`, rubber bullets.
+- Your mother thought she smelled `gas`.
+- Knockout `gas`, mount weather's finest.
+- We shut off the `gas` in her bed- room.
+- He'll come back - with or without `gas`.
+- It's poison `gas`, this is the antidote.
+- Shit, we really need to find some `gas`.
+- The `gas` tank's going to go any second!
+- You'll go straight to the `gas` chamber.
+- I saw your car over at the `gas` station.
+- Look -- there's a `gas` station up ahead.
+- We can't pump poison `gas` all over them!
+- The `gas`, it seems, was just a detonator.
+- I almost forgot `gas` for the baby machine.
+- I dropped my notebook at the `gas` station.
+- It's just the xenon `gas` making you dizzy.
+- Twenty-two makes it a `gas` chamber bounce.
+- We're going to have to stop for `gas` soon.
+- He said he'd be at the `gas` station at six.
+- Next `gas` station either he leaves or i do!
+- Have you got enough `gas` to get home, marty?
+- I'll even sell you some `gas` if you need it.
+- It's been leaking `gas` since the fire fight.
+- There was a way to harvest that noble `gas`?"
+- A sleep-inducing `gas` will be that's not true.
+- Listen to this, some `gas` company in colorado.
+- We stopped for `gas` at this place called capt.
+- It beats pumping `gas`, beats making hamburgers.
+- It's just some `gas` making our heads all fuzzy.
+- No heat, no `gas`--sis, this is some nifty idea!
+- Thirty-five percent pure methane `gas` in there.
+- Too much fin and hump, you know, gives me `gas`.
+- Did you run a check on the `gas` like i told you?
+- It could breathe in air and exhale cyanide `gas`.
+- The shell emits no waste, no `gas`, no radiation.
+- I don't want to get shot for running out of `gas`.
+- That should be enough for `gas` from here to there.
+- He'll trade the krauts for a six-burner `gas` range.
+- I can tell you how much `gas` they're using monthly.
+- The right pedal is `gas`, the other one's the brake.
+- Well, you have your choice: pills, injection, `gas`.
+- All i'm asking is enough `gas` to get me to new york.
+- Can you do any neat tricks to prove you're not `gas`?
+- Commander, if one of their weapons hits that `gas`...
+- If you go in, you can't use tear `gas` or flashbangs.
+                 

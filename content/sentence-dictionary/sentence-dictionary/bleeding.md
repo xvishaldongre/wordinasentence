@@ -1,0 +1,89 @@
+---
+title: "bleeding in a sentence | bleeding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bleeding"
+---
+- El, you're `bleeding`.
+- Is my nose `bleeding`?
+- That slows `bleeding`.
+- Hey, you're `bleeding`.
+- You're `bleeding`, man.
+- Barb, you're `bleeding`.
+- Hey - you're `bleeding`.
+- The wound is `bleeding`!
+- You're still `bleeding`.
+- Your hand is `bleeding`.
+- Dad, you're `bleeding`...
+- Terry, you're `bleeding`.
+- Clarke, you're `bleeding`.
+- That bitch was `bleeding`.
+- You're hand is `bleeding`.
+- Too `bleeding` true, 'n' it.
+- Your `bleeding` has stopped.
+- `Bleeding` on a country road.
+- Yeah, i think i'm `bleeding`.
+- Anya, you're still `bleeding`.
+- They're `bleeding` my friends.
+- It's still `bleeding` a little.
+- You're `bleeding`, but not bad.
+- You’re `bleeding` internally.
+- They'll keep `bleeding` through.
+- They're already `bleeding` them.
+- You want to stop the `bleeding`.
+- ...grow claws... `bleeding` warts.
+- I am not `bleeding` anyone... dry.
+- You were `bleeding` inside, honey.
+- I'm all right... you're `bleeding`.
+- You're `bleeding` pretty bad there.
+- You lilly-livered `bleeding` hearts!
+- What if we can slow the `bleeding`?
+- You're `bleeding` all over your self.
+- Lincoln, you must stop the `bleeding`.
+- You were `bleeding` all over the place!
+- I need something to stop the `bleeding`.
+- Tell me what-- peter, you're `bleeding`.
+- He hits the boards and starts `bleeding`.
+- If they're not `bleeding` they're pmsing.
+- Manray better not be `bleeding` to death.
+- We need medicine to slow the `bleeding`.
+- Have you tried `bleeding` him with leeches?
+- No visible signs of swelling or `bleeding`.
+- Your lip's stopped `bleeding`, too, george.
+- I'm an orderly, not a `bleeding` psychiatrist!
+- She had some `bleeding` but it's under control.
+- If i don't stop the `bleeding`, she's gonna die.
+- I've seen `bleeding` sharks try to eat themselves!
+- We can't just walk him out tied up and `bleeding`.
+- You fucking `bleeding` heart, you kill or you die.
+- As long as the `bleeding` isn't heavy, it's normal.
+- Don't tell me we have another `bleeding` heart here.
+- She had no hair and she was `bleeding` from her nose.
+- Better than you `bleeding` all over my car upholstery.
+- We have a dead woman `bleeding` all over the bathroom.
+- No, first, we need to stop the `bleeding`, but you're not.
+- But this `bleeding` heart puppy love act is over the top...
+- Out shopping -- you're `bleeding`, dad -- where's your mom?
+- We find the artery in the brain and close the `bleeding`...
+- Hey, your mouth's `bleeding`; are you sure you're all right?
+- I want the motherfucker so bad i'm getting a `bleeding` ulcer.
+- I'm `bleeding`... my god it won't stop, i can't get it to stop.
+- Unless you stop `bleeding` you should have your spleen removed.
+- Then, last night, the deer... - hmm, it was `bleeding`, too.
+- Me friend's lying in the middle of the road `bleeding` to death.
+- He's had an internal hemorrhage, he's `bleeding` to death inside.
+- Right now your big friend at the diplomat is `bleeding` fast, martin.
+- What, you think you're in charge here, he's got abdominal `bleeding`.
+- I'm a little worried about the... ...about how much `bleeding` is okay.
+- From what we know about the half-life of hythylodium, you're `bleeding`.
+- Jr. his face is cut and `bleeding` and his straitjacket torn and filthy.
+- If by some miracle, there’s no internal `bleeding`, stop with the hair.
+- They locked you up, dumped you down here clarke: the `bleeding`'s stopped.
+- Hell, the arabs and the japanese are `bleeding` the shit out of our gold ..
+- I don't know how you got the cut to your head, but you died `bleeding` from it.
+- Sending men up there is `bleeding` heart crapola from three thousand miles away.
+- 3 teams departed arkadia at 0800 hours at should stop the external `bleeding`.
+- I'm `bleeding`, bill, i'm <u>`bleeding`</u>... yeah, but they never made a movie here.
+- They get together with the jews and the catholics and elect an irish `bleeding` heart.
+- The gauze should keep the `bleeding` under control on the last survivable land on earth.
+                 

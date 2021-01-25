@@ -1,0 +1,107 @@
+---
+title: "brown in a sentence | brown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brown"
+---
+- Bob � charlie `brown`.
+- `Brown`, jackie `brown`.
+- Where is mrs. `brown`?
+- George sanford `brown`.
+- He wears a `brown` tie.
+- I'm sorry, mr. `brown`.
+- It's mr `brown`, ma'am.
+- White and `brown` ones.
+- This kid, hosea `brown`?
+- What about john `brown`?
+- `Brown`'s peak, mckinley.
+- I hate the `brown` stuff.
+- I made some `brown` betty.
+- Professor `brown` grinned.
+- Are my eyes really `brown`?
+- What `brown` hands you have.
+- Hair `brown`, eyes pale blue.
+- He wears a dirty `brown` hat.
+- Mr. `brown` stays in the car.
+- This is my good john `brown`.
+- A man in a `brown` bowler hat?
+- He was supporting `brown`.
+- Mr `brown`, sir -- hey, barney.
+- Okay, bone-setter `brown` goes.
+- Okay, so it was jackie `brown`.
+- See the leaves are all `brown`.
+- Sorta `brown`, blonde, i guess.
+- Now they attack `brown` too.
+- Little girls in `brown` beanies.
+- Put a little `brown` sugar on it.
+- It's those big `brown` bambi eyes.
+- She's got kind of like `brown` hair.
+- What a surprise... ...is he `brown`?
+- Mr `brown` is unable to attend today.
+- No, where's mr. `brown` and mr. blue?
+- What's his specialty, `brown`-nosing?
+- Some `brown`, or, uh, rust, coloration.
+- Your hair is still chestnut `brown`.
+- Anyone see an ugly `brown` van up there?
+- Than the entire rebooted murphy `brown`.
+- Cbs was sued by `brown` & williamson?
+- Anyone see an ugly `brown` van out there?
+- `Brown`'s dead, we don't know about blue.
+- Some of the `brown` stuff is still there.
+- But i'm on `brown` rice and mineral water.
+- You know how much i hate the `brown` word!
+- `Brown` didn't have anything to do with it.
+- I don't remember her as having `brown` eyes.
+- Mrs. `brown`'ll be along for it in a minute.
+- Not red like in horror movies, but `brown`!!
+- The way i see it, `brown` here looks guilty.
+- We're expecting `brown` this afternoon, ma'am.
+- You're a better man than i am, charlie `brown`.
+- How about that `brown` sugar meat loaf you make?
+- I want two eggs poached, hash `brown` well-done.
+- Do max cherry and jackie `brown` know each other?
+- With those big `brown` eyes, hey, twelve o'clock.
+- Yeah, but it's got to be by bone- setter `brown`.
+- Your book and your `brown` sweater and your hair.
+- Guess you forgot to `brown`-nose the right people.
+- How the hell do i know about `brown` & williamson?
+- Like where'd you work before `brown` & williamson?
+- Sir henry, mr `brown` is standing in the courtyard.
+- How did `brown` & williamson know i spoke to you...?
+- What, asian male 18 to 30, black hair, `brown` eyes?
+- Blue, side door with `brown`, you know, primer paint.
+- Don't you want to listen to `brown`'s victory speech?
+- Sailor always liked that havana `brown`'s pig pickin'.
+- From-the-movie-mary-`brown`, trailer park bible psycho?
+- Now `brown`, here, is in charge of the vaults, isn't he?
+- You want to sue wyant wheeler hellerman tetlow and `brown`?
+- Are we talking... are we talking `brown` & williamson, here?
+- I should really put a james `brown` in there -- that's five.
+- By letting us go, you can improve black and `brown` relations.
+- Mama... `brown`'s responsibilities are onerous enough already.
+- Sometimes -- i feel that `brown` is all i have left of albert.
+- Turns around and juliet presents her with a `brown` paper bag.
+- Adam, i'd like to introduce you to my associate -- mr. `brown`.
+- Me and mr. orange jumped in the car and mr. `brown` floored it.
+- Take a hit out of that little `brown` bottle in my shaving kit.
+- It'd be so embarrassing his name's wally `brown` .... great guy.
+- Mr. `brown`, mr. white, mr. blonde, mr. blue, mr. orange, and mr.
+- Hey, you saw that `brown` bitch point a gun at me last night, man.
+- Mr.wallace `brown` is in the executive building on the second floor.
+- "it was big 'n `brown` 'n kept goin' an' goin' as far you could see."
+- Do we know which of the fifty-seven buildings wally `brown` is in?
+- You girls have seen a `brown` bag with a white stripe and my initials?
+- I've got more connects than you have, lieutenant... `brown` downtown...
+- There hasn't been any smoking `brown` on the street in -- it's nothing.
+- You: striking redhead with yellow dress, pearl necklace, `brown` shoes.
+- I made a couple of lunches for you and put them in `brown` paper bags ...
+- Agent ray nicolet, jackie `brown`, ordell robbie money exchange trial run.
+- I'm gonna get you a nice pink dress that'll go with your `brown` eyes.
+- Cause all of a sudden you got no one you can fucking `brown` nose anymore.
+- They are demanding the dismissal of john `brown` on grounds of drunkeness.
+- On march 24, thomas sandefur, ceo of `brown` & williamson had you fired.
+- We are all of us subject to forces beyond our control, mr `brown`, even you.
+- Professor `brown` tested the tarp, noting in satisfaction that it was secure.
+- This rotten bastard tipped off the cops and got mr. `brown` and mr. blue killed.
+- I know - here i am always a `brown` man, there you would be always a white woman.
+                 

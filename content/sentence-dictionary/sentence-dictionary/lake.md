@@ -1,0 +1,107 @@
+---
+title: "lake in a sentence | lake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lake"
+---
+- Up the `lake`, agaway.
+- Salt `lake` city, utah.
+- The lady of the `lake`.
+- We live next to a `lake`.
+- What is with this `lake`?
+- Maybe that `lake` seaweed?
+- 'salt `lake` city, please.
+- As an unmuddied `lake`, sir.
+- Threw us into the `lake`.
+- As an unmuddied `lake`, fred.
+- A 9,000-hectacre `lake`, honey.
+- It came from across the `lake`.
+- Welcome to camp crystal `lake`.
+- All they get is veronica `lake`.
+- I did...i put her in the `lake`.
+- So they rolled it into a `lake`.
+- I got one on me at `lake` lanier.
+- The portal rises from the `lake`.
+- We can cut her off at the `lake`.
+- It's a long detour to dead `lake`.
+- It's really <u>his</u> `lake` now.
+- Suppose `lake` michigan overflows?
+- Dumping a guy into a frozen `lake`?
+- Lynn bracken is my veronica `lake`.
+- We're supposed to go to the `lake`.
+- What else is near jordan `lake`?
+- Danny khan drowns in `lake` michigan.
+- They wanted to call it `lake` placid.
+- You look better than veronica `lake`.
+- I'd like you to check out this `lake`.
+- Did you have an accident in the `lake`?
+- He could name every fish in the `lake`.
+- Just some rich anglo out on the `lake`.
+- We had lunch at that inn on the `lake`.
+- About four years ago...at crystal `lake`.
+- But springwood's not like crystal `lake`.
+- Fort and `lake` george are downhill of it.
+- The `lake` was dead calm until up he came.
+- And this ugly duckling conduct swan `lake`.
+- Crystal `lake`...where the nightmare began.
+- They made the `lake` a hundred years later.
+- They wind comes howling in from the `lake`.
+- We're at the `lake` now, heading due north.
+- And the one under the `lake` leads to bardo.
+- He had you cut to look like veronica `lake`?
+- The terrain around that `lake` is poisonous.
+- Fine, fuck, i got it... `lake` tahoe, nevada.
+- Siwash `lake` is between nebraska and canada.
+- The driver will... 'salt `lake` city, please.
+- The cowgirls have possession of siwash `lake`.
+- You said she was going to drive into a `lake`.
+- After that, it'll be at the bottom of a `lake`!
+- But i went to high school in white bear `lake`.
+- "camp crystal `lake` has a full drama program."
+- You have no idea how he arrived in this `lake`?
+- There's blood all over the floor, like a `lake`.
+- Same one as shot charlie pepper in `lake` county?
+- Charms the fish right out of the `lake`, she does.
+- I'm positive he's heading back to the `lake` area.
+- It's on the `lake` right in the middle of seattle.
+- Probably just row on out to the middle of a `lake`.
+- The octopus is supposed to live in a <u>`lake`</u>!
+- You take the car from there, get out to the `lake`.
+- The man who stopped the british on `lake` champlain!
+- We can save half a day by crossing the stone `lake`.
+- I am sir lancelot of the `lake`, from across the sea.
+- Isabella was supposed to crash her van into a `lake`.
+- Is the veronica `lake` look-alike one of your whores?
+- Oh, i'm almost back - i'm driving around moose `lake`.
+- I can use johnnie's car, dump it in `lake` michigan ...
+- If it cleared the ridge, it's probably near the `lake`.
+- He's from there - edge of `lake` ontario right, soldier?
+- More like the pile up and the van going into the `lake`.
+- They'll want to take a ride to the `lake` or whatever.
+- Then what's the premonition of the `lake` supposed to mean?
+- They're all in southeast hawkins, right near jordan `lake`.
+- You wouldn't be taking the train to salt `lake`, would you?
+- Banister was running his camp north of `lake` pontchartrain.
+- Beat zach taylor and a thousand troops at `lake` okeechobee.
+- You find something... get rid of it, throw it in the `lake`.
+- We're seeing how many e-scooters at the bottom of the `lake`.
+- Ww... uh... you investigating those murders out at the `lake`?
+- You didn't, by any chance, lead him to the `lake` blindfolded?
+- You mean about the cubans getting trained north of the `lake`?
+- Rita hayworth at the morgue and now veronica `lake` with white.
+- She said she'd driven to golden gate park and sat by the `lake`.
+- Through this `lake` another calf passes by on its way to die.
+- Then he says, 'geez, i'm goin' crazy out there at the `lake`.'
+- No matter what you call it, it's still camp crystal `lake` to him.
+- But general webb will not send their soldiers across the salt `lake`.
+- Whatever you say... you know, i think i left something by the `lake`.
+- Go back to whatever toluca `lake` drunk tank boundaries have been set.
+- Police want to keep it quiet, if the press gets word... `lake` monster.
+- He never learned how either and he's still at the bottom of this `lake`.
+- The `lake` was shrinking - - if they died together, they lived together.
+- When you get to salt `lake` city, ask the driver, 'las vegas, please'...
+- Well now honey, that ring is at the bottom of a pretty durned big `lake`.
+- If he's <u>here</u>... then he must think that's what's in this `lake`.
+- Officers in toluca `lake` just found an affluent couple...completely gutted.
+- But feed one little cow to a crocodile... nobody <u>lives</u> on this `lake`.
+                 

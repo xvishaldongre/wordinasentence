@@ -1,0 +1,107 @@
+---
+title: "class in a sentence | class example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "class"
+---
+- `Class` of eighty-six!
+- Regula is `class` "d'.
+- Show a little `class`.
+- Special needs `class`.
+- You weren't in `class`.
+- `Class` is over already.
+- Goodbye, gifted `class`.
+- I'm third in my `class`.
+- `Class` one quarantine...
+- He's not in this `class`.
+- I haven't got no `class`.
+- President of his `class`.
+- So, `class` is dismissed.
+- This kid from my `class`.
+- We start our own `class`?
+- What's your next `class`?
+- This is a `class` act!
+- He's betrayed the `class`.
+- He's in my acting `class`.
+- I've got to teach `class`.
+- Why aren't you in `class`?
+- You took my `class` in la.
+- This `class` officer...
+- Or the `class` before that!
+- Top quarter of the `class`.
+- You guys doing gym `class`?
+- A real high-`class` con man.
+- She's in my biology `class`.
+- How many of our `class` left?
+- No, you're not in my `class`.
+- He was talking in our `class`.
+- I'm in your `class` at school.
+- Oh, i'm in her acting `class`.
+- Speak up in donovan's `class`.
+- Hawaiian air, business `class`.
+- I gotta get to english `class`.
+- Our newest `class` of level 9s.
+- We could ask her after `class`.
+- Will he be in my `class` today?
+- His brother was in your `class`.
+- I'm registered for this `class`.
+- It'll be a first `class`-ticket.
+- Senior `class` fund-raising gig.
+- ...she's got `class`, and poise.
+- Sure i'll speak to your `class`.
+- The only colored kid in `class`.
+- This is a `class` ride, johnson.
+- We coulda got two third-`class`!
+- You have taken business `class`?
+- You showed up warner in `class`?
+- `Class` schedule, map, book list.
+- I'll make it part of the `class`.
+- I'm not a gold-`class` passenger.
+- I'm vice-president of my `class`.
+- Maybe i'll get her in my `class`.
+- Please continue with the `class`.
+- Why weren't you in `class` today?
+- You and lloyd chose the `class`!?
+- You got `class` and you're smart.
+- You mean i'm not in your `class`?
+- `Class`, please study on your own.
+- He's not enrolled in this `class`.
+- Hey, what `class` do we have next?
+- How'd you do in chemistry `class`?
+- I have to finish this for `class`.
+- It is a `class` d-12 bird of prey.
+- The `class` was rather elementary.
+- What `class` did you say that was?
+- You mean, i'm in a gifted `class`?
+- You're stepping way up in `class`.
+- About world-`class` dinner service.
+- Low `class` of people there, snoop.
+- Oh, jenny was in my acting `class`.
+- You'll read it in `class` tomorrow.
+- I better get back to my `class`, ok?
+- I've signed up for a ballet `class`.
+- Said he'd been acting up in `class`.
+- But this is `class` kid, all the way.
+- Harry osborn-- absolutely no `class`.
+- Have you ever known such low `class`?
+- I'm in your applied theories `class`.
+- Like, a year ago, in spanish `class`.
+- On your own time, outside of `class`.
+- We're supposed to meet after `class`.
+- You're out of your weight `class`.
+- `Class` isn't somethin' you buy, punk.
+- Every `class` has its surprises, pyro.
+- Isn't this a wonderful piece, `class`?
+- The third floor are low `class` rooms.
+- What `class` sub does your nephew run?
+- What's this acting `class` guy's name?
+- Yeah, i guess money don't buy `class`.
+- You haven't attended a single `class`.
+- He's the best candidate in our `class`!
+- I can't believe you flew first `class`.
+- I don't know, just like uppity `class`.
+- I'll send you to montana first `class`.
+- My next `class` isn't till nine-thirty.
+- So i guess we're not doing the `class`.
+- So -- uh -- how was your first `class`?
+                 

@@ -1,0 +1,107 @@
+---
+title: "gets in a sentence | gets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gets"
+---
+- Ashby `gets` the itch.
+- Everybody `gets` them.
+- He `gets` too excited.
+- It `gets` worse there.
+- Never `gets` old, sir.
+- 'rabbit `gets` conked.
+- The kid `gets` killed.
+- Winner `gets` a comic.
+- And nobody `gets` hurt.
+- `Gets` me excited, too.
+- `Gets` them every time.
+- He `gets` into his car.
+- It `gets` cold so fast.
+- Nobody `gets` near you.
+- No one `gets` near him.
+- Oxygen `gets` you high.
+- The shit `gets` wacked.
+- Who `gets` humperdinck?
+- Who `gets` in your way.
+- You know how he `gets`.
+- You know how it `gets`.
+- It `gets` cold at night.
+- No one `gets` in or out.
+- The stronger she `gets`.
+- This story `gets` filed.
+- Whatever `gets` you off.
+- Who `gets` them to move?
+- You know what `gets` me?
+- Each of us `gets` a belt.
+- Every parolee `gets` one.
+- He `gets` to be the hero.
+- I hope she `gets` better.
+- I'm as good as it `gets`.
+- Tell me it `gets` better.
+- Theo `gets` into the car.
+- The story `gets` hairier.
+- What `gets` into you all?
+- Who `gets` the privilege?
+- You know what `gets` old?
+- He `gets` crazy sometimes.
+- He `gets` his jollies off.
+- It `gets` carried forward.
+- It `gets` in on the ninth.
+- One of you `gets` to live.
+- Paira ninas `gets` a jack.
+- She `gets` a hero's death.
+- Superman `gets` mail here?
+- This `gets` me to sanctum.
+- To see who `gets` the a.i.
+- It `gets` me depressed.
+- At last, someone `gets` it.
+- Gabriel `gets` the details.
+- He deserves what he `gets`.
+- I... homer `gets` his, too.
+- It never `gets` any easier.
+- Nothing ever `gets` better!
+- Something `gets` destroyed.
+- So no one else `gets` hurt.
+- Who `gets` it, the company?
+- Here, "town `gets` top cop."
+- I'll see that she `gets` it.
+- Jimi `gets` paid either way.
+- He `gets` to go to zalem.
+- Evan `gets` to be robin hood.
+- God, it `gets` me every time.
+- He `gets` it from his doctor.
+- He `gets` right to the point.
+- He `gets` to fight every day.
+- It `gets` me through the day.
+- It's the lie that `gets` you.
+- Junior `gets` up and follows.
+- Kill him when he `gets` down.
+- See how far that `gets` you."
+- That club shit `gets` boring.
+- Well, you know how he `gets`.
+- Everything just `gets` soaked.
+- `Gets` along better than ever.
+- `Gets` on the subway and dies.
+- He `gets` as much as he wants.
+- He `gets` fed six times a day.
+- He `gets` it, but he's pissed.
+- He `gets` like that sometimes.
+- He `gets` you and you're dead.
+- He still `gets` air sick, huh?
+- If any of it `gets` damaged...
+- I hope homer `gets` here soon.
+- It's warm then it `gets` cold.
+- Just in case this `gets` ugly.
+- Nobody `gets` past elmer here.
+- Then the alarm `gets` tripped.
+- You'll see that he `gets` out?
+- Because my mom `gets` the bill.
+- But-but who `gets` sir winston?
+- `Gets` you where you live, huh?
+- He `gets` shot by the old lady.
+- It `gets` so you don't mind it.
+- It `gets` things back together.
+- King-five-four `gets` an eight.
+- No worse than it `gets` for me.
+- Seniority `gets` the day shift.
+                 

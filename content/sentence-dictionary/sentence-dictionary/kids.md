@@ -1,0 +1,107 @@
+---
+title: "kids in a sentence | kids example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kids"
+---
+- Do you see the `kids`?
+- For the school `kids`.
+- I swear on the `kids`.
+- Join the other `kids`.
+- So my `kids` get sick.
+- They're `kids` mostly.
+- They were just `kids`.
+- Three `kids` are dead.
+- What about the `kids`?
+- You have `kids`, jack?
+- You know what, `kids`?
+- Your `kids` never cry.
+- Do you have any `kids`?
+- Fuckin' `kids` at home!
+- Get in, `kids`, get in.
+- No, it's great, `kids`.
+- She's good with `kids`.
+- The `kids` are in here!
+- They like you - `kids`.
+- This is a `kids`' game.
+- Three `kids`, army pay.
+- You saved those `kids`.
+- All the `kids` drink it.
+- It's not for `kids`.
+- C'mon, `kids`, let's go.
+- Coulda hurt some `kids`.
+- Did he raise the `kids`?
+- How old are your `kids`?
+- I got a wife and `kids`.
+- I got two little `kids`.
+- I made the `kids` do it.
+- I will- be good, `kids`.
+- `Kids` in the apartment.
+- `Kids`, pack his things.
+- Most `kids` do, i guess.
+- Say hello to the `kids`.
+- The `kids` are sleeping.
+- You brought your `kids`?
+- You `kids` are up early.
+- ...you know, for `kids`!
+- All these `kids` do that.
+- The other two `kids`.
+- Aren't the `kids` asleep?
+- Get married, have `kids`.
+- God, we were just `kids`.
+- He loves the `kids`, too.
+- How are they with `kids`?
+- I got a couple of `kids`.
+- I got six `kids` to feed!
+- I will find those `kids`.
+- I wish i had your `kids`.
+- `Kids` think it's normal.
+- Like when we were `kids`.
+- No, it was great, `kids`.
+- Not since we were `kids`.
+- Oh, and they take `kids`.
+- Our `kids` are in danger!
+- Protect the other `kids`.
+- See you two `kids` later!
+- '...the `kids` have camp.
+- The `kids` liquid assets.
+- There are `kids` in here.
+- There's `kids` next door!
+- This going to the `kids`.
+- This is why i had `kids`.
+- Took his `kids` with her.
+- Two small `kids` at home.
+- But i did have two `kids`.
+- Don't use underage `kids`.
+- Everything's fine, `kids`!
+- For the `kids` protection.
+- Get ready for fun, `kids`.
+- How's mama and the `kids`?
+- I hate your `kids`, frank.
+- I have two `kids` at camp.
+- It's one thing for `kids`.
+- Just stiffed those `kids`.
+- `Kids` like joint custody.
+- Nobody's got clean `kids`.
+- Oh soph, joe loves `kids`.
+- Tell 'em about the `kids`.
+- Tell him about the `kids`.
+- They're great with `kids`.
+- This is pop music, `kids`.
+- Try what other `kids` did.
+- What'll i tell the `kids`?
+- _ and `kids` in his dreams.
+- Talkin' to your `kids`.
+- Consider grace, the `kids`.
+- Get your `kids` outta here!
+- Is this about those `kids`?
+- Joe thinks he needs `kids`.
+- Look at those `kids` there.
+- Loretta, never have `kids`.
+- Must be nice having `kids`.
+- My `kids` had good medical.
+- Obviously the three `kids`.
+- Oh, my god, married `kids`?
+- Their `kids` was born here.
+- They look like good `kids`.
+                 

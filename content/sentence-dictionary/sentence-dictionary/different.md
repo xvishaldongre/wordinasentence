@@ -1,0 +1,107 @@
+---
+title: "different in a sentence | different example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "different"
+---
+- But it is `different`.
+- Do i seem `different`?
+- It can be `different`.
+- It sounds `different`.
+- It tastes `different`.
+- We're all `different`.
+- You sound `different`.
+- But we was `different`.
+- But you're `different`.
+- Echo is no `different`.
+- He's a `different` boy.
+- I was just `different`.
+- Things are `different`.
+- This boy's `different`.
+- This is no `different`.
+- This one's `different`.
+- Three `different` guys?
+- Uh, `different` things.
+- You do act `different`.
+- I'm `different` now.
+- But she was `different`.
+- But this is `different`.
+- 'cause it's `different`.
+- He feels no `different`.
+- It's `different` for us.
+- It was `different` then.
+- That was -- `different`.
+- They're all `different`.
+- Why, that's `different`!
+- You look... `different`.
+- You look so `different`.
+- Your hair's `different`.
+- You seem... `different`.
+- You taste `different`...
+- But now it's `different`.
+- `Different` worlds, jack.
+- Following is `different`.
+- He's a `different` story.
+- How are they `different`?
+- I'm `different` from you.
+- It's a `different` skill.
+- It's a `different` world.
+- No, no, it's `different`.
+- Now it's all `different`.
+- This one was `different`.
+- This time is `different`.
+- You're very `different`.
+- A `different` direction...
+- Am i walking `different`?!
+- How is it any `different`?
+- I should look `different`.
+- It's `different` with men.
+- Josie, you're `different`.
+- Look, this is `different`.
+- There's `different` kinds!
+- They were `different` men.
+- This is a `different` one.
+- We got `different` habits.
+- We're a `different` world.
+- Yah, that was `different`.
+- Your hair was `different`.
+- Things are `different`.
+- But it's a `different` m.o.
+- `Different` man: i knew it.
+- `Different` man: i'm out.
+- Everything was `different`.
+- From two `different` times.
+- From two `different` times.
+- How many `different` girls?
+- In radio we're `different`.
+- I think you're `different`.
+- I took a `different` route.
+- It's `different` this time.
+- Like something `different`.
+- Like you're so `different`?
+- That's a `different` dress.
+- That's a `different` story.
+- They're `different`, daddy.
+- This is a `different` word.
+- This shot's no `different`.
+- This time it's `different`.
+- This was a `different` kid.
+- Abby, these are `different`.
+- Are very `different` things.
+- But for `different` reasons.
+- But times are `different`...
+- Calvin, this is `different`!
+- He will be odd, `different`.
+- How is this any `different`?
+- I did... feel `different`...
+- I knew you were `different`.
+- It must be `different`, huh?
+- It's `different` every time.
+- It's two `different` things.
+- No, it's `different`, honey.
+- No, this one is `different`.
+- Of some `different` weirdos.
+- Oh, that's very `different`.
+- Several `different` factors.
+- That's why it's `different`.
+                 

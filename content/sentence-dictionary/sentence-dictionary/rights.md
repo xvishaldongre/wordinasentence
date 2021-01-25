@@ -1,0 +1,76 @@
+---
+title: "rights in a sentence | rights example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rights"
+---
+- Fight for your `rights`.
+- Sell the movie `rights`.
+- ♪ who owns the `rights`?
+- All people have `rights`!
+- Biller `rights`, you know?
+- We have some `rights` here.
+- What about my movie `rights`?
+- Oh, you got `rights` and lefts!
+- We've got him dead to `rights`.
+- Worker's `rights` in argentina.
+- You violated my civil `rights`!
+- I'm the press, i have `rights`!!
+- Like we don't have `rights` too?
+- Nobody has any `rights` over me.
+- We would be within our `rights`.
+- Exercising my visitation `rights`.
+- I have not read you your `rights`.
+- I'm just going to get my `rights`.
+- You got the pigs dead to `rights`.
+- No, gale, i don't have any `rights`.
+- Then no exclusive `rights`, nothing.
+- Mr. motley, we have `rights`, here...
+- If there's a civil `rights` violation.
+- Your `rights` will be fully protected.
+- I give you the boys `rights` association.
+- Your civil `rights` have been overridden!
+- Those sons-a-bitches control the `rights`.
+- That means she's within her legal `rights`.
+- Therefore, he has no `rights` under ape law.
+- Workers have to stand up for their `rights`.
+- Understanding the following `rights`... jesus.
+- But that the `rights` of the many are conserved.
+- With a little of the bill of `rights` thrown in...
+- Do you know how much killer gets for movie `rights`?
+- ♪ i didn't fight for equal `rights` ♪ you have a deal.
+- The commander normally has first publication `rights`.
+- A month ago, he bought the movie `rights` to this book.
+- Read me my `rights` and arrest me and i'll go downtown.
+- We won't suspend the civil `rights` of the good people.
+- Bellamy... you can't be an activist for women's `rights`.
+- I'm invoking `rights` - this man is represented by counsel.
+- But i moved down south to work in the civil `rights` movement.
+- If i can get conjugal `rights`, will you visit me at sing sing?
+- Is it true the `rights` to "doctor zhivago" are in arbitration?
+- While i get foreign distribution `rights` in venezuela nothing.
+- There is a new civil `rights` initiative he wants to talk about.
+- I've got my `rights`, damn you, and i'm going to the authorities!
+- The great white father, and world's champion of women's `rights`.
+- These are people who don't worry about reading you your `rights`.
+- When did anyone on that paper give a damn about workers `rights`?
+- Your friends in the so-called "boys `rights` association" _ look.
+- He's gotta cap all three of us before they even read our `rights`.
+- I'm no lawyer, but i do believe that's a violation of my `rights`.
+- Now, mr. corleone, you have been advised as to your legal `rights`.
+- So there's no problem -- i can have the `rights`, the negative too?
+- The civil `rights` movement was running a voter registration drive.
+- Now, have you been read your `rights` and are you aware of the charges?
+- Would you agree, for the record, that i have not been read my `rights`?
+- Just a month ago he bought the movie `rights` to this book, a best seller.
+- You think i don't understand points and royalties and ancilliary `rights`?
+- The franchise `rights` alone will make us wealthy beyond your wildest dreams.
+- But because of his condition, he doesn't have the capacity to waive those `rights`.
+- If you're for real, you're looking at a million credits for viewing `rights` alone.
+- The left and `rights` are marked with an "l" and an "r," so you can't get it wrong.
+- Because if you were fighting for women's `rights`, if it's that or be wiped out, maybe.
+- You talk about giving them their `rights` as though you could make a present of liberty.
+- I call 'em constitution and bill of `rights`, the most dependable pair for long journeys.
+- Yeah, somebody broke in and stole the samples, one of those animal `rights` groups, right?
+- He files suit, says he has no choice in what they serve and it violates his civil `rights`.
+                 

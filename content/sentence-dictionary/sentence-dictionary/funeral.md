@@ -1,0 +1,107 @@
+---
+title: "funeral in a sentence | funeral example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "funeral"
+---
+- How was the `funeral`?
+- I mean, the `funeral`?
+- No, not his `funeral`.
+- That's your `funeral`.
+- It was a nice `funeral`.
+- To go to that `funeral`.
+- Was it a nice `funeral`?
+- Your mother's `funeral`.
+- I'm going to a `funeral`.
+- We went to the `funeral`.
+- Play this at my `funeral`!
+- The `funeral`'s on friday.
+- His `funeral` - imagine it!
+- Or at the `funeral` parlor.
+- Paulsen's `funeral` parlor.
+- Stand-by for the `funeral`.
+- I asked him at the `funeral`.
+- You mean about his `funeral`?
+- I came back for the `funeral`.
+- I come to grandma's `funeral`.
+- He works at the `funeral` home.
+- Unless you go to his `funeral`.
+- She's here for will's `funeral`.
+- Who's going to raid a `funeral`?
+- I find you, it is your `funeral`.
+- Must've read about the `funeral`.
+- Well, i saw you at the `funeral`.
+- Simplifies `funeral` arrangements.
+- Your parents came to my `funeral`.
+- Had a `funeral` for the damn thing.
+- I come to the old lady's `funeral`.
+- I met you at my father�s `funeral`.
+- I missed you at the `funeral` home.
+- It's a big and busy `funeral` home.
+- It's your `funeral`, anne schuyler!
+- You're about to attend a `funeral`.
+- He doesn't want me at the `funeral`.
+- I'm not taking you to this `funeral`.
+- I saw you on t.v... at his `funeral`.
+- The `funeral` leftovers were so good.
+- What time did we go to the `funeral`?
+- D'you have to leave for the `funeral`?
+- I am coming to my mother's `funeral`!!
+- You should have gone to the `funeral`.
+- You took him to the `funeral`, i hear.
+- At the `funeral` tomorrow, just behave.
+- Mom wants you to come to the `funeral`.
+- After the `funeral` i just had to leave.
+- Why're we treating yours like a `funeral`?
+- Don't want to be late for my own `funeral`.
+- It's not a meteor shower, it's a `funeral`.
+- Can we make an ice run before the `funeral`?
+- Leandra's `funeral` is so on my vision board.
+- _ oh, you're going to a `funeral`, all right.
+- We're on our way to a `funeral` for crissake.
+- You had a sling on your arm at the `funeral`!
+- We haven't left the house since the `funeral`.
+- Well, homeboy, looks like he's at a `funeral`.
+- Rafe and i were the only ones at the `funeral`.
+- The rest of us are having a `funeral` for will!
+- What kind of flowers ya want at your `funeral`?
+- There has never been a `funeral` for his father.
+- Yeah, don't want to be late for my own `funeral`.
+- I came by the house every day after the `funeral`.
+- I mean, we had a `funeral` for him and everything.
+- This is not a beauty parlor, it's a `funeral` parlor.
+- Dr. kidell had a picture in his file of the `funeral`.
+- I'm sorry i couldn't go with you to missy's `funeral`.
+- I tried to tell you at the `funeral` but you rode off.
+- If you want to rest, there's time before the `funeral`.
+- I'm sorry but i'm not sticking around for the `funeral`.
+- I'll tell your mother not to expect you at the `funeral`.
+- I had <u>at least</u> seventy more people at my `funeral`.
+- What color flowers you want me to bring to your `funeral`?
+- I said that to leslie, once, at her `funeral`, remember?...
+- You get us chased out of a `funeral` by violating a corpse.
+- I've been really busy with this whole `funeral` thing and...
+- Suppose i slip them a few bucks � for the `funeral` expenses.
+- I didn't wish to be shot down on thee way to our own `funeral`.
+- Go ahead, it's your `funeral`... are you sure i can borrow this?
+- ♪ good times and bum times ♪ we have to deal with the `funeral`!
+- We had a `funeral` that went on for five days--for the cockroach!
+- I thought you just said you played hockey and went to a `funeral`.
+- I didn't cry at my grandpa's `funeral`, like making the kids lunch.
+- We just had a `funeral`, isn't that what it means in england as well?
+- Washington's asked me to attend the `funeral` as a matter of protocol.
+- Do you have an answer for me, jesus, joyce, it was his `funeral` today.
+- Hey dwayne why don't you introduce him to your `funeral` parlor cousin?
+- I've been up all night - and i would .like to rest before the `funeral`.
+- In the middle of the night -- those flowers make me think of a `funeral`.
+- I've always had a rather elaborate `funeral` in mind, with particular hymns.
+- Just wait till we tell will that jennifer hayes was crying at his `funeral`.
+- I asked him how far he'd gotten at the `funeral`, and what was it he said...?
+- Just burning them up, no proper `funeral`, it's like condemning them to hell.
+- In time, you will drop dead, and i will come to your `funeral` in a red dress.
+- When the devil died, they wanted his bandleader to conduct the `funeral` march.
+- It's festival seating, so... scalping to a `funeral`, you're a pretty sleazy guy.
+- Now jeannie's got a husband and son in jail and a mother in the `funeral` parlor.
+- So we've just come from tommy's `funeral` and you're telling me about a skag deal?
+- I heard you been puttin' it to albert sellers that works over at the `funeral` home.
+                 

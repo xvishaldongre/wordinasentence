@@ -1,0 +1,107 @@
+---
+title: "p in a sentence | p example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "p"
+---
+- I can't he'`p` it, ma.
+- `P`.m. a.m -- or `p`.m.?
+- Problem a `p`'seption.
+- A company called `p`.k.
+- Do you know what c.`p`.
+- I'm with the l.a.`p`.d.
+- Solomon `p`. eddie m.d.
+- Give us back our `p`.a.!
+- If you don't, l.a.`p`.d.
+- Replaying to your e.`p`.
+- He'`p` al with the truck.
+- Never hochi in the `p`.i.
+- Tank, charge the e.m.`p`.
+- The one with the v.`p`.l.
+- Time in terms of m.`p`.h.
+- What about magnum `p`.i.?
+- Young guy with l.a.`p`.d.
+- Check with palmdale `p`.d.
+- Now i have to add, "`p`.s.
+- What kind of junior `p`.i.
+- What's that, like a `p`.o.
+- Time of death, 10:13 `p`.m.
+- Why doesn't palmdale `p`.d.
+- ...by squads to the a.`p`.c.
+- Last year toby was in a.`p`.
+- Not to he'`p` me out anyway.
+- They've accused the e.`p`.a.
+- This guy could be l.a.`p`.d.
+- Ever hear of j.`p`. clarkson?
+- It's from one of those `p`.o.
+- The address of the n.e.`p`.h.
+- Your mom was pretty `p`.o.'d.
+- Neither are you, magnum `p`.i.
+- `P`-`p`-`p`-please, i'm not armed.
+- Toni blake from langley `p`.d.
+- You're completely `p`-whipped.
+- I'm alexander `p`. lovett, sir.
+- I'm the king of 4:00 `p`.m. tv.
+- It's 8:00 `p`.m. christmas eve!
+- Number one, locate the `p`.i.x.
+- "`p`" for salt, "s" for pepper.
+- We have orion `p`-11 as clear !
+- Well, you `p`-puked on his feet.
+- It's three `p`.m., july 4th 1997.
+- Look, i will <u>send</u> a `p`.a.
+- So, max pelcher, how's the `p`.i.
+- You're fuckin' a right, no `p`.c.
+- Does red pepper go under r or `p`?
+- Me and henry and... man, on `p`.a.
+- We got a call from berkeley `p`.d.
+- Anything rated higher than a `p`.c.
+- But what do the 'b' and '`p`' mean?
+- If c.n.n., or hell, if the e.`p`.a.
+- Picking you up, 7:00 `p`.m. friday.
+- The transmitter was on the a.`p`.c.
+- Application, psych-tests: m.m.`p`.i.
+- But `p`'raps you got an even chance.
+- Sir, whitman's good, woman on `p`.a.
+- `P`-a-r-a-s-o... how do you spell it?
+- Think we should call the local `p`.d.
+- You should complain to the s.`p`.c.a.
+- When he said, "gott ist tot"... `p`.s.
+- How does it feel to have the l.a.`p`.d.
+- You do until six `p`.m. you heard them.
+- `P`-`p`-probably the wife of an astronaut.
+- And the border patrol, and the r.c.m.`p`.
+- Hudson, see if you can get their c.`p`.u.
+- I'm sorry, let me explain, the r.c.m.`p`.
+- ...phase-plasma pulse rifles, r.`p`.g.'s.
+- This picture-- bought and `p`-`p`-paid for.
+- My brother... jim feingold, v.`p`., e.d.a.
+- `P`.m. turnaround, let's climb this thing.
+- These are... `p`-`p`-`p`-pick this lobster up.
+- A `p`-penny saved is worth two in the bush.
+- Hudson: (on radio) sir, we got the c.`p`.u.
+- That kind of behavior will get you a `p`.a.
+- That's k-r-y-`p`... where do you hail from?
+- Detective carter from the haddonfield `p`.d.
+- I'm just one guy with a shitty little `p`.i.
+- I ought to belt you one, j.`p`. you'll work.
+- ...that we could salvage out of the a.`p`.c.
+- You're no longer working with the l.a.`p`.d.
+- All i'm saying is i'm gonna be royally `p`.o.
+- You mean, who's going to play the mean m.`p`.
+- `P` is for the perseverance of the saints.
+- If you plead to possession and tell l.a.`p`.d.
+- Put out a `p`.b.s.... or whatever it's called.
+- The 'b's for beluga, the '`p`' for petrossian.
+- We're going back to `p` to capture that brain.
+- What do you want me to do, put out an a.`p`.b.
+- Ah, i didn't say seven <u>`p`</u>.m., now did i?
+- From the university of pennsylvania, my `p`.h.d.
+- I always said, he was a <u>`p`'lice</u> officer.
+- Mrs. lefferts, i'm officer white with the l.a.`p`.d.
+- That's not a problem, that's not a `p`- can i go in?
+- I told you already: jennifer jenzen, executive v.`p`.
+- Wait, wait, the hot chick was alex `p`. keaton's mom?
+- Allow me to introduce myself, mark kincaid, l.a.`p`.d.
+- I'll bring you a nice little lunch � la `p`�re mathieu.
+- We only work down here for a hobby, j.`p`. condolences.
+                 

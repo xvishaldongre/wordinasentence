@@ -1,0 +1,107 @@
+---
+title: "music in a sentence | music example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "music"
+---
+- But with your `music`.
+- Listen to the `music`.
+- Turn down the `music`.
+- What fire and `music`?
+- How about some `music`?
+- I did like the `music`.
+- There ain't no `music`.
+- You're keen on `music`?
+- Ah yes, a `music` lover.
+- Do you have any `music`?
+- Is that all the `music`?
+- Like in `music`, a beat?
+- I can dig this `music`...
+- Just the `music` lessons.
+- Man, that `music` is hot.
+- "`music` for old people."
+- `Music` is so expressive.
+- Must be the `music` room.
+- Is why i got into `music`.
+- [`music` playing] - erica.
+- No-one should own `music`.
+- Not a big `music` fan, eh?
+- That is christmas `music`.
+- This is pop `music`, kids.
+- Want to hear some `music`?
+- I'll play you some `music`.
+- [`music` stops] get off me!
+- Not everyone likes `music`.
+- You know classical `music`?
+- I don't follow `music` much.
+- I know -- it's that `music`.
+- In the folk `music` section.
+- Now let's have some `music`.
+- Turn up the fucking `music`!
+- What passion in the `music`!
+- Beethoven just wrote `music`.
+- Do you have `music` up there?
+- How about the `music` notice?
+- Now, that's american `music`.
+- That's the beauty of `music`.
+- Turn that jungle `music` off.
+- What do you need `music` for?
+- You guys are playing `music`?
+- I can hear `music` behind you.
+- Mozart - they hate my `music`.
+- [`music`] my friends, my home?
+- But the `music`, she is inside.
+- "dance `music` for old people?"
+- Hey, you want a `music` player?
+- Then..then what's that `music`?
+- There's soft `music`-- good-by!
+- What kinda `music` do you like?
+- I don't follow `music` too much.
+- Something's making that `music`.
+- Then could we have some `music`?
+- Time to face the `music`, kiddo.
+- Well, this explains the `music`.
+- He should turn that `music` down.
+- How 'bout some christmas `music`?
+- Is me `music` not to your liking?
+- Maybe it'll shut the `music` off.
+- Sounds, voices, `music`, humming.
+- This angry `music` all by itself.
+- What kind of `music` do you like?
+- What `music` do you like, harold?
+- And turn that fucking `music` off!
+- Did you hear that strange `music`?
+- Golly, ma -- consarn that `music`!
+- He's setting that play to `music`?
+- I can see it the `music` pans out.
+- Put on some `music` will you babe?
+- The `music` relaxes the prisoners.
+- What did you think of the `music`?
+- Yor dad picking the `music` again?
+- As a public school `music` teacher.
+- Did you hear that strange `music`??
+- I'm not big on `music`, ordinarily.
+- [`music` playing] how much further?
+- The `music` right there at the end.
+- Um...okay... move with the `music`.
+- Where is princess fire-and-`music`?
+- You didn't hear any `music` at all?
+- All this time, now feel the `music`.
+- But i assure you, my `music` is not.
+- Cukor was too cheap to hire `music`.
+- Don't you hear that strange `music`?
+- Edwin von der nuell, `music` critic.
+- How well are you trained in `music`?
+- Or we can follow the creepy `music`.
+- ♪ the day the `music` died ♪ hit it.
+- Can you please turn down the `music`?
+- God's `music`, my mother used to say.
+- He looked at a piano and saw `music`.
+- [`music` playing] will, what's wrong?
+- [`music` stops] i found out from ned.
+- So full of meaning, fire and `music`!
+- Twenty minutes of continuous `music`.
+- You used to call it "heaven `music`."
+- Suddenly in that silence, `music`.
+- Let's make a little `music`, colorada.
+                 

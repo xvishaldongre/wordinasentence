@@ -1,0 +1,107 @@
+---
+title: "miles in a sentence | miles example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "miles"
+---
+- Jesus christ, `miles`.
+- Relax, `miles`, jesus.
+- You're `miles` massey!
+- It's a hundred `miles`.
+- You busted me, `miles`.
+- About five `miles` back.
+- It's your move, `miles`.
+- `Miles` -- why so angry?
+- Over 100 square `miles`.
+- Please, `miles`, please.
+- 37 `miles` to my destiny.
+- Be happy for me, `miles`.
+- He could be `miles` away.
+- Is 70 `miles` per hour.
+- It's 50 `miles` to polis.
+- How's it hanging, `miles`?
+- "ten `miles` to big rock."
+- They orbit 426 `miles` up.
+- Three thousand `miles`?...
+- Don't threaten me, `miles`.
+- Good for a hundred `miles`.
+- It's not a hundred `miles`.
+- Less than two `miles` away.
+- `Miles` outside of belarus.
+- Over three hundred `miles`.
+- About forty `miles` an hour.
+- I was talking about `miles`.
+- Maybe you're right, `miles`.
+- Ninety-five `miles` an hour.
+- See you over there, `miles`.
+- Seventy-two `miles` an hour.
+- Seventy-two `miles` an hour?
+- We've come a lot of `miles`.
+- Call them every five `miles`.
+- Feeling lucky today, `miles`.
+- I am going 5 `miles` an hour!
+- I smelt it four `miles` away.
+- That's your problem, `miles`.
+- What's on your mind, `miles`?
+- A thousand `miles` off course.
+- Eighty-eight `miles` per hour!
+- Four `miles` away, i smelt it.
+- It only has two `miles` on it.
+- Um, yeah, thirty `miles` east.
+- Why did you marry me, `miles`?
+- 96 `miles` an hour, 98, 97, 97.
+- But `miles` ahead of peter pan.
+- Goddamn, `miles`, she is nasty.
+- His 'job' is 3000 `miles` away.
+- I'm worried about you, `miles`.
+- I traveled 250 million `miles`.
+- It's not like i'm `miles` away.
+- That is true, isn't it `miles`?
+- They can sense it `miles` away.
+- Through three `miles` of water?
+- Well, good to see you, `miles`.
+- Everybody knows freddie `miles`.
+- I don't feel victorious `miles`.
+- I'd stay away from her, `miles`.
+- I want to... what is it `miles`?
+- Los angeles is 100 `miles` away.
+- "twenty `miles` to bigger rock."
+- `Miles` to go before i sleep.
+- Couple more `miles` up this road.
+- Oh, my god -- it's `miles` davis.
+- What is it you're after, `miles`?
+- About 250 million of your `miles`.
+- About sixty `miles` north of here.
+- I'm going to hang up now, `miles`.
+- It's all about stillness, `miles`.
+- This is thousands of `miles` away!
+- Four, five million `miles` of road.
+- Is dying seventy `miles` from here.
+- It's about forty `miles` from here.
+- Sixty `miles` off, heading in fast.
+- 'start-up not 50 `miles` from here.
+- Ten `miles` back on the texas side.
+- There's not a port for 800 `miles`.
+- They'll see the flames for `miles`.
+- You have a very nice home, `miles`.
+- You ran eight `miles` today, puppy.
+- You're a wonderful writer, `miles`.
+- About two hundred and fifty `miles`.
+- Have you ever been married, `miles`?
+- It's 150 `miles` across that desert.
+- Japan is four thousand `miles` away.
+- Maybe four thousand `miles` an hour.
+- `Miles`, i gotta tell you something.
+- That's a thousand `miles` from here.
+- We think in `miles`, not kilometers.
+- So what are you up to today, `miles`?
+- Then what do you want to do, `miles`?
+- It's only about two `miles` from here.
+- This is `miles` from the battle lines.
+- We're celebrating `miles`'s book deal.
+- So how many `miles` do you think it is?
+- The next shortest path adds 50 `miles`.
+- Well, i've flown seven million `miles`.
+- Azgeda stretches for a thousand `miles`.
+- I was promised ice cream 50 `miles` ago.
+                 

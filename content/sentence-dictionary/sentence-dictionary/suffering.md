@@ -1,0 +1,62 @@
+---
+title: "suffering in a sentence | suffering example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suffering"
+---
+- But she is `suffering`!
+- People are `suffering`.
+- Madi's `suffering`, too.
+- This is `suffering`, man.
+- Let the `suffering` begin.
+- All that `suffering` can end.
+- I'm not `suffering`, you know.
+- It's a waste of good `suffering`.
+- And inflict `suffering` on others.
+- You may think this is `suffering`.
+- I offer an escape from `suffering`.
+- What are the causes of `suffering`?
+- Would be `suffering` this very day.
+- On the cross `suffering` needlessly.
+- On the cross `suffering` needlessly.
+- After `suffering` a terrible illness.
+- Here, there will be no more `suffering`.
+- They're in pain ... they're `suffering`.
+- L.a. is `suffering` from a wacko epidemic.
+- You're just `suffering` from lack of sleep.
+- Is `suffering` from complete loss of memory.
+- You're horrible it's not `suffering` anymore.
+- You've worked hard alie: so much `suffering`.
+- We're all `suffering` the same symptoms, frank.
+- As doctors, it's our job to relieve `suffering`.
+- He was `suffering` from severe arterial disease.
+- The causes of `suffering` arise from true sources.
+- From others `suffering` from post-traumatic stress.
+- The people who i grew up with `suffering` this much.
+- But they do not know that your `suffering` will be worse.
+- What's the point if all there is is pain and `suffering`?
+- Who's responsible for his pain and `suffering` this time?
+- Giving it to me will spare you a great deal of `suffering`.
+- Without `suffering`, jeffery, you will never gain wisdom.
+- Somebody must be `suffering` somewhere, you're being so nice.
+- I have it to ease the `suffering` of the children of this war.
+- Andies only simulate `suffering` -- if they're programmed for it.
+- People were `suffering` in afganistan, and we didn't do anything.
+- True `suffering` arises from contaminated actions and afflictions.
+- The doctor seems to think he's `suffering` from some rare disorder.
+- He is `suffering` from acute melancholia, together with a guilt complex.
+- I saw you in the theatre, your `suffering`, your sympathy for that girl.
+- These sedatives will alleviate your `suffering` during these final hours.
+- There's so much pain and `suffering` in the world, hey, get... get off of me!
+- Which bothers you most: that he exploits `suffering` or that he came on to me?
+- But trick us again, child, and your `suffering` will be legendary even in hell.
+- It would be a mercy to spare her the `suffering` she causes herself and others.
+- You know goddamn well what i've been doing--i've been sitting here `suffering`.
+- Are you `suffering` from a chemical imbalance or is it just an attitude problem.
+- That's because they're `suffering`... `suffering` is beautiful, i want to be beautiful.
+- You're just `suffering` from delusions that are unfortunately part of your condition.
+- Because people who are `suffering` from aural hallucinations hear voices in both ears.
+- [sobs] until there is no more pain, no more `suffering`, but that was only half power.
+- All the people working with us are really doing it 'cause they hate to see `suffering`.
+- You may be `suffering` from a loathsome disease which the american people could do without.
+                 

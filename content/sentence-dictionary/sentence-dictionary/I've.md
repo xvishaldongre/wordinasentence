@@ -1,0 +1,107 @@
+---
+title: "I've in a sentence | I've example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "I've"
+---
+- But `i've` got school.
+- But...`i've` seen you.
+- I think `i've` got it.
+- `I've` already chosen.
+- `I've` already run it.
+- `I've` always known...
+- `I've` always worn it.
+- `I've` been a bad boy.
+- `I've` been all right.
+- `I've` been disavowed.
+- `I've` been faking it.
+- `I've` been in hiding.
+- `I've` been negligent.
+- `I've` been saving it!
+- `I've` been saving it.
+- `I've` been so lonely.
+- `I've` been taking it.
+- `I've` fallen in love.
+- `I've` felt it myself.
+- `I've` got a backpack.
+- `I've` got a contract.
+- `I've` got a headache.
+- `I've` got a surprise.
+- `I've` got everything!
+- `I've` got everything.
+- `I've` got it blocked.
+- `I've` got it, elaine!
+- `I've` got my face on.
+- `I've` got my own car.
+- `I've` got no allergy.
+- `I've` got some money.
+- `I've` got to get out!
+- `I've` got to go, dad.
+- `I've` got to go, now.
+- `I've` got to move on.
+- `I've` got to see him.
+- `I've` got to see you.
+- `I've` got two of him!
+- `I've` got work to do.
+- `I've` got you, becca.
+- `I've` had my moments.
+- `I've` had to do this.
+- `I've` heard of sugai.
+- `I've` heard the name.
+- `I've` killed someone!
+- `I've` lost a brother.
+- `I've` lost my napkin.
+- `I've` made a mistake.
+- `I've` made the scene.
+- `I've` met you before.
+- `I've` never seen him.
+- `I've` never seen one.
+- `I've` plenty of room.
+- `I've` questioned him.
+- `I've` read your work.
+- `I've` said i'm sorry.
+- `I've` seen him do it!
+- `I've` seen it before.
+- `I've` seen it happen.
+- `I've` seen that done.
+- `I've` seen that play.
+- `I've` seen them, too.
+- `I've` seen the omega.
+- ...`i've` seen things.
+- `I've` seen your face.
+- `I've` still got mine.
+- `I've` stopped caring.
+- `I've` struck my blow.
+- `I've` worked with it.
+- Just what `i've` read.
+- Look who `i've` found!
+- Oh, `i've` got plenty.
+- See, `i've` got bills.
+- That's all `i've` got.
+- What a day `i've` had.
+- What a day `i've` had!
+- With what `i've` done.
+- Yeah, `i've` had that.
+- Yeah, `i've` seen him.
+- After what `i've` done.
+- But `i've` been honest.
+- Everything `i've` done.
+- God, `i've` missed you.
+- Here's what `i've` got.
+- I think `i've` had one.
+- `I've` already done it.
+- `I've` already lost it.
+- `I've` already seen it.
+- `I've` been back twice.
+- `I've` been down there.
+- `I've` been everything.
+- `I've` been hogging it.
+- `I've` been humming it.
+- `I've` been hypnotized?
+- `I've` been on the job.
+- `I've` been over there.
+- `I've` been railroaded.
+- `I've` been so selfish.
+- `I've` been thinking...
+- `I've` been to chicago.
+                 

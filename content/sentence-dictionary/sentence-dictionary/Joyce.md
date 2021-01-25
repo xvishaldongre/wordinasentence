@@ -1,0 +1,69 @@
+---
+title: "Joyce in a sentence | Joyce example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Joyce"
+---
+- I'm all ears, `joyce`.
+- Jesus christ, `joyce`.
+- `Joyce` is very upset.
+- `Joyce`, listen to me.
+- `Joyce`, please, drive!
+- Me, too, `joyce`, okay?
+- Flo, it's `joyce` again.
+- My name's `joyce` byers.
+- Cynthia, this is `joyce`.
+- `Joyce` says she's timid.
+- `Joyce` was screwing del.
+- _ - glass houses, `joyce`.
+- I'm here to help, `joyce`.
+- I need your help, `joyce`.
+- What-- - `joyce`... `joyce`!
+- You need me here, `joyce`.
+- Hey, `joyce`, how ya doing?
+- I get to date `joyce` byers.
+- I like your friend, `joyce`.
+- `Joyce`, you can talk to me.
+- I watched 'em do it, `joyce`.
+- Milt `joyce`, owner-operator.
+- Oh, hey, karen, it's `joyce`.
+- It was a kid's drawing, `joyce`.
+- `Joyce`, will doesn't look well.
+- These are new symptoms, `joyce`.
+- You've outdone yourself, `joyce`.
+- Uh... - `joyce`, what is going on?
+- You haven't seen `joyce`, have you?
+- I mean, i am gonna lose it, `joyce`.
+- `Joyce`-- - just ring me up, donald.
+- `Joyce`, what are you talking about?
+- `Joyce`, `joyce`... - move, move, move!
+- It's been exactly one minute, `joyce`.
+- `Joyce`, i wasn't expecting you today.
+- Two... `joyce`... they're all about you.
+- Jim hopper, `joyce` byers, you're invaders.
+- They took from me, too, - `joyce`, come on!
+- Who the fuck are you, dr. `joyce` brothers?
+- `Joyce` byers can't find her son this morning.
+- I mean, that would be too much, right, `joyce`?
+- ♪ that would be too much, wouldn't it, `joyce`?
+- ♪ life's the same ♪ `joyce`, this is hawkins, okay?
+- Reading me dostoyevsky and `joyce` when i was four.
+- He's been spending too much time with `joyce` byers.
+- Given the information you had at the time, - `joyce`.
+- If we're gonna survive this, - `joyce`, wait a second.
+- `Joyce` byers has called eight times already this morning.
+- `Joyce`, you're not going back there... come on, let's go.
+- Look `joyce`, i need your key to the files, not advice, okay?
+- `Joyce`, give the assistant chief inspector a drink, would you?
+- Maybe i should work on that girl `joyce`, she speaks the language.
+- There was a... we're trying to have our daily conversation `joyce`?
+- Yeah, jim hopper, he came here with some woman named `joyce` byers?
+- Do you have an answer for me, jesus, `joyce`, it was his funeral today.
+- `Joyce`, 99 out of 100 times, kid goes missing, picasso is there, luca.
+- You're gonna let me and `joyce` byers go... we have to talk about kaylee.
+- ♪ oh, feel our bodies grow ♪ i went to the morgue last night, `joyce`.
+- You're the tallest thing i ever... - where we kidnapped you... - `joyce`, please!
+- `Joyce`, did you hear the part where he said the place was like ♪ i've let you in ♪ yeah.
+- I questioned `joyce` about all this... you better handle what's in this garbage can first.
+- Planet beta... `joyce`, you just told me... and your bad driving record is a big, big plus.
+                 

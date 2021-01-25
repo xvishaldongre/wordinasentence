@@ -1,0 +1,107 @@
+---
+title: "familiar in a sentence | familiar example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "familiar"
+---
+- It sounded `familiar`.
+- Seems very `familiar`.
+- That name's `familiar`.
+- That sounds `familiar`.
+- No, he ain't `familiar`.
+- See anything `familiar`?
+- I look vaguely `familiar`.
+- It looks `familiar` to me.
+- Are you `familiar` with it?
+- Does that sound `familiar`?
+- This is all too `familiar`.
+- You look `familiar`, fella.
+- But he does seem `familiar`?
+- Definitely looks `familiar`.
+- Does anyone look `familiar`?
+- Your face is very `familiar`.
+- Looks `familiar`, doesn't she?
+- These look kind of `familiar`.
+- God, that sounds so `familiar`.
+- Keep going... looks `familiar`?
+- Something scary but `familiar`.
+- Are you `familiar` with magnets?
+- I knew your name was `familiar`.
+- Are you `familiar` with fema?
+- Are you `familiar` with "heaven?"
+- Are you `familiar` with kirshner?
+- Does this look `familiar` to you?
+- You look mighty `familiar` to me.
+- You look really `familiar` to me.
+- Are you `familiar` with that ship?
+- But some of these look `familiar`.
+- I regret it is not too `familiar`.
+- That one i'm real `familiar` with.
+- Why does this sound so `familiar`?
+- How come you don't took `familiar`?
+- You `familiar` with the marsh case?
+- But your voice sounds so `familiar`.
+- This looks `familiar`... a la votre.
+- Your voice -- it's so `familiar` ...
+- I knew that voice sounded `familiar`.
+- You know, you look really `familiar`.
+- I'm `familiar` with your work, doctor.
+- I'm sorry, i'm not `familiar` with it.
+- I wonder if you're `familiar` with it.
+- You just seem really `familiar` to me.
+- You `familiar` with the legend of nian?
+- Are you `familiar` with the usa network?
+- Why does that name not sound `familiar`?
+- Nice try, but i am `familiar` no worries.
+- Or memory flashes that aren't `familiar`?
+- They were `familiar` when i painted them.
+- I guess i thought the name was `familiar`.
+- They're already `familiar` with the process.
+- This one looks `familiar`, but i don't know.
+- I know you're `familiar` with minstrel shows.
+- I'm already `familiar` with taylor's opinion.
+- Seems she was pretty `familiar` with 'ol del.
+- Ah, yes, the institute, i'm `familiar` with it.
+- Are you `familiar` with the mimeograph machine?
+- But the photo on his license looked `familiar`.
+- You seem to be `familiar` with the stab movies.
+- Jason will return to the area that's `familiar`.
+- Their faces are `familiar`--but not to each other.
+- You are `familiar` with how these things are done.
+- You're also `familiar` with how last week he died?
+- So when you sleepwalk, you go somewhere `familiar`?
+- I don't think i'm quite `familiar` with that phrase.
+- The omega 13... why does that sound so `familiar`?...
+- Are you `familiar` with the hanta virus, agent mulder?
+- I'm `familiar` with a lot of breeders in the mid-west.
+- There's something very `familiar` about this painting.
+- You must be `familiar` with my favorite poem by yeats?
+- Does the name maureen prescott sound `familiar` to you?
+- ... sorry 'bout that, but you do look `familiar` to me.
+- You `familiar` with a condition known as absolute zero?
+- I'm `familiar` with how a formal negotiation is handled.
+- He's frightened, exhausted -- and the mask is `familiar`.
+- It's good for me - i know them, i'm `familiar` with them.
+- Mortality's actually a great thing to be `familiar` with.
+- Think... do any of these kids look `familiar` in any way?
+- That `familiar` of theirs who claimed he was with the nih?
+- When she said it, there was something `familiar`...but no.
+- You look `familiar` ... have i ever threatened you before?
+- She has a way of shutting me out that seems very `familiar`.
+- Surely you are `familiar` with this practice, mary clarence.
+- In the flesh, perhaps you are `familiar` i can still hear it!
+- We've been tracking him for a while now -- he's a `familiar`.
+- I'm `familiar` with appropriate behavior at a military parley.
+- I can't quite explain it, but everything is somehow `familiar`.
+- Cyberspace, mr. case... a realm i believe you're `familiar` with.
+- You're `familiar` with this report and its conclusion, am i right?
+- I'm pretty `familiar` with the school and i've never seen that "x".
+- It's a privilege to meet you, sir, i'm `familiar` with all your work.
+- For some reason, and don't ask me why, that theater looked `familiar`.
+- I can't recognize the face, but the butt does look vaguely `familiar`.
+- Oh, laugh if you will, but i happen to be `familiar` with your record.
+- One of your kiddos got up in the middle of the night, look `familiar`?
+- Perhaps you're not yet `familiar` with my husband, and his unusual case.
+- With all due respect, madame, all france is `familiar` with your husband.
+- Well can you tell me if the woman in this picture looks `familiar` to you.
+                 

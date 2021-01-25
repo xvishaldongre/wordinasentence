@@ -1,0 +1,107 @@
+---
+title: "seem in a sentence | seem example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seem"
+---
+- Do i `seem` different?
+- I `seem` nervous, huh?
+- Sad hours `seem` long.
+- You don't `seem` fine.
+- You `seem` very upset.
+- He didn't `seem` to be.
+- It doesn't `seem` fair.
+- No... you `seem` tense.
+- That don't `seem` fair.
+- You `seem` like you do.
+- You `seem` sad, spooky.
+- How do we `seem` to you?
+- How real does it `seem`?
+- It doesn't `seem` right.
+- That don't `seem` right.
+- You `seem` a little off.
+- You `seem`... different.
+- You `seem` disappointed.
+- You `seem`... disturbed.
+- Do i `seem` stressed out?
+- If i `seem` vague, grand.
+- It doesn't `seem` normal.
+- They `seem` pretty happy.
+- You `seem` pretty amused.
+- You `seem` so... hopeful.
+- You `seem` uncomfortable.
+- You `seem` very athletic.
+- Boy, you `seem`... taller.
+- Don't `seem` so bad to me.
+- She didn't `seem` herself.
+- They don't `seem` to mind.
+- They still `seem` nervous.
+- Well, you `seem` fine now.
+- You don't `seem` bothered.
+- You don't `seem` to upset?
+- You `seem` like a brother.
+- You `seem` like a thinker.
+- But other people `seem` to.
+- Did it `seem` short to you?
+- Doesn't it `seem` so crazy?
+- Does that `seem` honorable?
+- It didn't `seem` that long.
+- It doesn't `seem` very far.
+- It just don't `seem` right.
+- It would `seem` so, master.
+- That doesn't `seem` so bad.
+- You don't `seem` very sure.
+- You `seem` a decent fellow.
+- But he does `seem` familiar?
+- Don't `seem` right, somehow!
+- They didn't `seem` too good.
+- They `seem` friendly enough.
+- You `seem` like a smart guy.
+- But he does `seem` very nice.
+- But you don't `seem` excited.
+- Does it `seem` like i'm sure?
+- He doesn't `seem` so to me...
+- It doesn't `seem` long to me.
+- People `seem` to like my cat.
+- They `seem` to like the idea.
+- You don't `seem` hairy to me.
+- You guys `seem` pretty tight.
+- "ay me, sad hours `seem` long.
+- Does that `seem` fishy to you?
+- You don't `seem` like a daddy.
+- You don't `seem` very excited.
+- You `seem` a little...nervous.
+- He did `seem` a little strange.
+- I `seem` to remember it myself.
+- That would `seem` to decide it.
+- They `seem` to like each other.
+- They `seem` to like each other.
+- You don't `seem` like the type.
+- You don't `seem` to understand.
+- You `seem` like a noble leader.
+- You `seem` pretty sure of that.
+- You `seem` surprised to see me.
+- Did she `seem` a trifle distant?
+- I can't `seem` to find the nest.
+- I haven't `seem` him for a year?
+- I `seem` to have dropped my key.
+- I `seem` to have lost the knack.
+- Lovely sound- they `seem` happy.
+- Oh, they `seem` all right to me.
+- Right now, it doesn't `seem` so.
+- Things are not what they `seem`.
+- You don't `seem` all that proud.
+- You `seem` very sure about that.
+- But you always `seem` so certain.
+- Can't `seem` to escape you today.
+- Didn't `seem` worried about them.
+- He doesn't `seem` to be swimming.
+- I did shave... do i `seem` hairy?
+- I `seem` to be in trouble, beefy.
+- I `seem` to have touched a nerve.
+- It doesn't `seem` to be too long.
+- People `seem` to like my service.
+- She didn't `seem` that impressed.
+- She doesn't `seem` to understand.
+- That doesn't `seem` so bad to me.
+                 

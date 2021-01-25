@@ -1,0 +1,76 @@
+---
+title: "spending in a sentence | spending example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spending"
+---
+- I'm `spending` my money.
+- I like `spending` time with you.
+- Spend the rest of my life `spending`.
+- This is how you're `spending` my time?
+- He's not `spending` the summer in tahoe.
+- `Spending` every weekend polishing brass.
+- Where you've been `spending` your nights?
+- Will you be `spending` more than a night?
+- Depends on who you are `spending` it with.
+- I can't imagine `spending` money on towels.
+- I'm used to `spending` a lot of time alone.
+- I can't keep `spending` your father's money.
+- '`spending` time on her favorite issue...' oh.
+- Wouldn't think of `spending` some of it on me.
+- I'm `spending` romantic time with my girlfriend.
+- `Spending` the day catching poor people stealing.
+- About `spending` so much time working in the water?
+- They're `spending` entirely too much time together.
+- Did you tell him he's `spending` the summer with me?
+- He's been `spending` too much time with joyce byers.
+- Maybe you feel like `spending` a few months in jail.
+- Meanwhile, here's fifty dollars for `spending` money.
+- Did you tell him he was `spending` the summer with me?
+- You see, i hadn't planned on `spending` much time here.
+- You're just `spending` time with my son all right, then.
+- By worrying about you `spending` money on foolish things?
+- So, is jeffrey really `spending` the night at your house?
+- We're `spending` all this time together... what the fuck!
+- I hear you've been `spending` a lot of time in the sprawl.
+- I think you've been `spending` too much time with spengler.
+- I guess if you're `spending` time together, what's the harm?
+- I've noticed how much time you've been `spending` with bart.
+- Oh, honey, i'm so glad we're `spending` our vacation at home.
+- He's not `spending` the entire summer with another kid in tahoe.
+- Max, as i was saying, maybe we should go easy on the `spending`.
+- I didn't fancy `spending` my golden years as merely "the friend."
+- Kyle started `spending` more and more time at the spread eagle...
+- I ain't `spending` a month in the hole so you can take a joy ride.
+- 'course they cost a little more than i should really be `spending`.
+- So it looks like we're going to be `spending` the weekend together.
+- That was able to start `spending` money on the good things in life.
+- I don't want nobody in there, nobody `spending` good money in sal's.
+- It's been terrific `spending` the entire day with your "crack team".
+- He loves it so much, he wouldn't think of `spending` any of it on me.
+- I'm sure it'll be better than `spending` the next six months in jail.
+- Plus fifteen percent tip to make up for me `spending` the night alone.
+- Particularly after `spending` a half hour in cold storage this morning.
+- I don't want any one of you `spending` time with tracey abernathy alone.
+- Somebody's out there `spending` 900 million dollars a year on phone sex.
+- You know--kids `spending` so much time up there ... is it holding hands?
+- In fact, i think you should definitely plan on `spending` the night here.
+- The sooner we get under way, the sooner we are to `spending` what's ours.
+- Mrs. lampert, i really hadn't planned on `spending` the entire night here.
+- I, however, will be `spending` my time why do we have an antenna on an hdtv?
+- So, i've been `spending` a lot of time listening to that weird cd you made me.
+- It must be horrible `spending` every day play it cool, marge, like only you can.
+- It's nice you've been `spending` so much time with me, but... you don't move soon.
+- My husband, my home wait a minute, the part you liked was `spending` time with me?
+- People talk about `spending` their lives together, how many of them really get to?
+- She wasn't maybe upset about the fact that you were `spending` time with this boy?
+- Better than `spending` my life crawling through windows in the middle of the night.
+- Of course i do -- i never knew what money really meant till i started `spending` it.
+- Keep women separate from guns, money and business ... women are for `spending` money.
+- You can call your husband or your attorney, but sam is `spending` the summer with me.
+- Then she said, 'since we're going to be `spending` so much time together--' uh huh.
+- `Spending` a lifetime alone with someone you love i mean, i'm just your bartender, right?
+- The important thing is that once again, 'cause i'm not `spending` my time on her anymore.
+- You expect me to be grateful for `spending` the rest of my life looking over my shoulder.
+- `Spending` extra time in orbit to find this place that's where the rich people live, right?
+                 

@@ -1,0 +1,7 @@
+---
+title: "cruxes in a sentence | cruxes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cruxes"
+---
+## Unfortunately, we have no example sentences for cruxes                 

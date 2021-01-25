@@ -1,0 +1,52 @@
+---
+title: "sacred in a sentence | sacred example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sacred"
+---
+- Hey, i'm a `sacred` vessel.
+- Seeds of the `sacred` tree.
+- A promise is a `sacred` oath.
+- `Sacred`, close relationship.
+- You're going to `sacred` heart.
+- For a writer nothing's `sacred`.
+- Not here in this `sacred` space.
+- `Sacred` and occult scotch tape.
+- I'll show you something `sacred`.
+- Set forth in the `sacred` scrolls.
+- You're `sacred` of 'em, aren't ya?
+- At the `sacred` hill of our fathers.
+- Wambli is a rare and `sacred` creature.
+- When were the `sacred` scrolls written?
+- Here it comes again ... the `sacred` job...
+- I recognize the `sacred` symbol, yes, heda.
+- We must do this `sacred` thing, mary robert.
+- A single mother, that's a `sacred` thing, man.
+- Nathan's memory lives on in our `sacred` union.
+- No `sacred` chickens nowhere, so far as i know.
+- Aybetraya ramunam it's their most `sacred` place.
+- It was probably brought here from a `sacred` river.
+- Now that horror has invaded these `sacred` walls.
+- But why would the maharajah take this `sacred` stone?
+- Now you're here, arresting me at a `sacred` place.
+- Will be to achieve one `sacred` goal... earth, clarke.
+- Read the `sacred` incantations contained inside it.
+- But i thought she was -- this house is `sacred` to him.
+- I've set back the `sacred` cause of reform, is that it?
+- It's gonna land on some `sacred` fern for christ's sake.
+- I recognize the `sacred` symbol, - raven... - i'm trying.
+- That is very close, a very `sacred` religious relationship.
+- We all took a `sacred` oath, and swore ourselves to secrecy!
+- It is the `sacred` place that matters, charles -- not the size.
+- They've got the `sacred` stones that indy was searching for.
+- Those trees were `sacred` to omaticaya in a way you can't imagine.
+- Have you refrained from entering the `sacred` precincts of my room?
+- To do that he gave him five `sacred` stones that had magical powers.
+- That shall be as `sacred` as the separation between church and state.
+- It's a `sacred` stone in a shine that's supposed to protect a village.
+- For what it's worth now, harold ryan, the clown, gives his `sacred` word.
+- One… on this `sacred` day, in unison... _ do you see it or don’t you?
+- See jack and debbie expose their lust in the `sacred` halls of the vatican!
+- Jasper, you're never gonna move past this i just meant this palace is `sacred` to them.
+- Because if he is a missing link, it means the `sacred` scrolls aren't worth their parchment.
+                 

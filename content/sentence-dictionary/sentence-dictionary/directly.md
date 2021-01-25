@@ -1,0 +1,70 @@
+---
+title: "directly in a sentence | directly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "directly"
+---
+- Not `directly` anyhow ...
+- `Directly`, mr. president.
+- Listen to you, "`directly`".
+- Don't look `directly` at him.
+- The song is `directly` ahead.
+- I'll head `directly` to moe's.
+- Beam them `directly` to sickbay.
+- May as well go there `directly`.
+- Then i was `directly` above him.
+- Its pain spoke `directly` to him.
+- Go `directly` back to your quarters.
+- You can come `directly` to my study.
+- I need to access your cpu, `directly`.
+- Dave, can i just ask you this `directly`?
+- Why don't you just call brill `directly`.
+- The washed money goes `directly` to maxie.
+- It is heading `directly` toward the surface.
+- The hydrofarm should be `directly` above us.
+- But he hates me, so he won't deal `directly`.
+- Helen -- the killer `directly` contacted you.
+- And comes `directly` home to be with his kids.
+- Anderton downloaded it `directly` from agatha.
+- I could paint your portrait, `directly` on you.
+- It's the longest, and `directly` into the wind.
+- I don't `directly` tell your mother anything bad.
+- He's addressed this letter `directly` to you, has he?
+- If you were `directly` above him, how did you see him?
+- Well, i want you to go to bed `directly` after dinner.
+- We're almost done piping in `directly` to the olympia.
+- When the ramp comes down, go `directly` into the base.
+- But, captain, we're firing `directly` on your position.
+- Oh, so you're asking `directly` for something you want.
+- Maybe mike shouldn't get mixed up in this so `directly`.
+- Then to whom do you report `directly` regarding genesis?
+- You have to find out by yourself or from john `directly`.
+- Numbers four and twelve `directly` into the nervous system?
+- Maybe we shouldn't get mike mixed up in this too `directly`.
+- We dealt `directly` with the representative of the grand duchess.
+- I say that this filth is `directly` related to this vandalism.
+- Gentlemen, we are `directly` above the source of the transmission.
+- We're to see him `directly` where he will register you on the spot.
+- But whatever you're fighting about, you're talking to me `directly`?
+- Officer taylor accessed my cpu `directly` to open the airlock doors.
+- Broadneck and the others don't like to deal with patients `directly`.
+- I know no way to mince it in love, but `directly` to say "i love you".
+- Colson's too smart to get `directly` involved with something like that.
+- Huh, i doubt it... friedman only deals `directly` with select customers.
+- Don't look nobody `directly` in the eye, but you don't look away, either.
+- I'll proceed `directly` to the intravenous injection of hard drugs, please.
+- And, miss mitchell�i think from now on you'd better work `directly` with me.
+- No, american is a blessed title `directly` sent from god's soul to your mind.
+- The jewish worker's salary, you pay it `directly` to the ss, not to the worker.
+- Why does neri report `directly` to you, rather than through me or a caporegime?
+- Why does v'ger travel to the third planet of the solar system `directly` ahead?
+- Also we want you to inform michael corleone that we can deal `directly` with him.
+- It runs `directly` from the geothermal generator, so power shouldn't be a problem.
+- My feet have never been on anything that wasn't `directly` attached to the ground.
+- Tracks your location to the inch and works `directly` with--you know... oh my god.
+- I don't know -- well, i think i can help a little more if i talk to him `directly`.
+- Lindenmeyer developed neural connectors that tap `directly` into the nervous system.
+- Plug the signal `directly` into the circuitry at this... ... point here, captain.
+- Yes... we can go forward on this course, but it means going `directly` through the heart.
+- You're saying the fact that you're gay had something `directly` to do with your promotions?
+                 

@@ -1,0 +1,8 @@
+---
+title: "rustling in a sentence | rustling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rustling"
+---
+- [`rustling`] we need a good doctor.
+                 

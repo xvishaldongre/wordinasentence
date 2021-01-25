@@ -1,0 +1,57 @@
+---
+title: "presence in a sentence | presence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "presence"
+---
+- In hitler's `presence`.
+- We felt his `presence`.
+- I can feel his `presence`.
+- I feel his evil `presence`.
+- The `presence` of the moment?
+- Ok, so we have a...`presence`.
+- Honored us with her `presence`.
+- We're honored by your `presence`.
+- Your very `presence` irritates me!
+- Dracula requires <u>`presence`</u>.
+- We don't wish your `presence` here.
+- Willard reporting his `presence`, sir.
+- Prince ali, your `presence` is requested.
+- From the baleful `presence` of his father.
+- Heda requires your `presence`, flamekeeper.
+- I do not stand by in the `presence` of evil.
+- I've arranged for a large police `presence`.
+- Now, honor us with your `presence` at dinner.
+- I've never felt a `presence` that strong before.
+- I am so very humbled to stand in your `presence`...
+- Don't show your fear in the `presence` of the tiger.
+- I could see if i detect the `presence` of something.
+- Well, it seems we're in the `presence` of greatness.
+- And, nicky being nicky, he made his `presence` known.
+- He requests your `presence`, once again, as part of...
+- If he can feel your `presence`, then leave this place.
+- I would prefer you not use that word in my `presence`.
+- Does v'ger object to the `presence` of the two carbon units?
+- Our `presence` has got to be one hundred percent antiseptic.
+- Enterprise should not require the `presence` of carbon units.
+- In so many ways ... and yet it is your `presence` they crave.
+- A reaction to their `presence`, to the... unnaturalness of it.
+- Right now, <i>your</i> `presence` is creating more of a threat.
+- You will always know when you are in the `presence` of another.
+- This huge police `presence` tonight isn't necessary, lieutenant.
+- She requests the `presence` of your- self and the young princess.
+- I feel his `presence`, so strong... don't crank the gain any more.
+- I wanta throw the heater to announce my `presence` with authority.
+- But a `presence` in your house is not something to be taken lightly.
+- I know how hard this is on you, son, a russian spy `presence` in hawkins.
+- They didn't let their `presence` be known until after mr. blonde went off.
+- "deputy dewey filled the room with his dim-witted barney fifish `presence`."
+- The man encouraged the colonials to desert in this very room, in my `presence`.
+- Work on becoming aware of the force... learn to feel its `presence` within you.
+- But he ain't seen my heat-- "to announce your fucking `presence` with authority"?
+- I should like to discuss some matters arising from your `presence` on french soil.
+- But how did you know i would have the `presence` of mind to pull my weapon when i did?
+- I've never actually seen simone up close, touched her, been in her physical `presence`.
+- I'd like to say, frankly and off the record, that i resent the bureau's `presence` here.
+- My mother's gr... ...overcome by the events around her, the `presence` of a high-powered...
+                 

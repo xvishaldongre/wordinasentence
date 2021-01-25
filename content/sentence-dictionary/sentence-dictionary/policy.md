@@ -1,0 +1,85 @@
+---
+title: "policy in a sentence | policy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "policy"
+---
+- I don't make `policy`.
+- I have a `policy`, aig.
+- `Policy` man in queens.
+- Screw company `policy`.
+- A wise foreign `policy`.
+- We'll make the `policy`.
+- It's hospital `policy`...
+- What is your `policy`?
+- Let my `policy` expire?
+- It's been a sound `policy`.
+- I know it's `policy`, but...
+- It's a comprehensive `policy`.
+- My troops don't make `policy`.
+- Where's my insurance `policy`?
+- Look at the `policy` i gave him!
+- And practice in swedish `policy`.
+- The cia has no `policy`, mr. helms.
+- What's the matter with my `policy`?
+- It is certainly not cia `policy`.
+- On my staff, foreign `policy` whiz ...
+- Yeah, company `policy` is a real drag.
+- Or, actually, its official non-`policy`.
+- They do have an excellent lgbt `policy`.
+- But we can't let anger drive our `policy`.
+- I don't need `em creating `policy` for me.
+- I'm given...hold on, i'm given a `policy`.
+- Our `policy` of being open with the aliens.
+- We'll begin a `policy` of evening sedation.
+- With our `policy` banks up there in harlem.
+- Because you're abusing our company `policy`.
+- What's commission on a $100,000.00 `policy`?
+- It's always been our `policy` - that's right.
+- There was a five-mil `policy` on both of 'em.
+- What is your `policy` for treating addiction?
+- Actually, it's more of a `policy` than a rule.
+- ...it was taken by one of my `policy` holders.
+- My sisters abuse piper's free sample `policy`.
+- What the hell is he but an insurance `policy`?
+- Those 17 superstars are our insurance `policy`.
+- You're a fucking dead man-- insurance `policy`.
+- Del's life insurance `policy` -- are you with me?
+- What would be his first payment on that `policy`?
+- We just signed a new insurance `policy` in nevada.
+- If we prove the forgery we can cancel the `policy`.
+- This new `policy` will be for our people to accept.
+- I'm going to cash in my life insurance `policy`.
+- Our only `policy` assumes the plane is on the ground.
+- Anyway, i'm surprised alan got the `policy` so easily.
+- You said you had an insurance `policy` out on your wife.
+- Ever since, my `policy` is: act first and worry later.
+- It's been `policy` for years to have a synthetic on board.
+- Joe, the insurance `policy` won't help your wife and kids.
+- He says you've got money comin' to you from del's `policy`.
+- Adam had a five hundred dollar term life insurance `policy`.
+- Our state has a zero tolerance `policy` for underage drinking.
+- I thought british `policy` is 'make the world... england', sir.
+- My company has taken out a very large insurance `policy` on me.
+- We don't reveal the names of our guests as a matter of `policy`.
+- I mean -- i don't know what their `policy` is -- but -- that's fine.
+- This book is a 16th century `policy` report for the king of austria.
+- But it has never been the `policy` of this government to accept that.
+- It's airline `policy` not to imply ownership in the event of a dildo.
+- I just can't let a whole `policy` get dominated by our sentimentality.
+- I've been there... this new `policy` will be for our people to accept.
+- My people have a strict `policy` of non-interference with other cultures.
+- I know, but -- what you did was dangerous and completely outside `policy`.
+- Remember when i went to italy and canceled the `policy` on the new stadium.
+- Well, don, i peeked in here, even though i know it's against floor `policy`.
+- Don't make me send you another memo about my `policy` on inter-office dating.
+- `Policy`'s made here the same way as in the civilized world: at the ballot box.
+- He usually stays a day to check on his `policy` operations, and then flies back.
+- You must have to be in some kind of perfect health to get that kind of `policy`.
+- I'm sorry, mister mcmurphy, but you must have a majority to change ward `policy`.
+- I never would have thought you capable of such blatant disregard of store `policy`.
+- Yeah... jack, come on, there is an official department `policy` about cop killings.
+- Sure our foreign `policy` is important, but there are more pressing problems at hand.
+- You have no papers, no cards, no driver's license, no 4-f card, no insurance `policy` .
+- But i should think the situation in spain, alone, would give your `policy` a minus balance.
+                 

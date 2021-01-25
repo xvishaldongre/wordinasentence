@@ -1,0 +1,107 @@
+---
+title: "la in a sentence | la example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "la"
+---
+- Still in `la`-`la` land.
+- `La` plume de ma tante.
+- Now, mister `la` forge.
+- Pas avant `la` matin�e.
+- Hasta `la` vista, boone.
+- The one in `la`, i mean.
+- You're from `la`, right?
+- Aren't we all `la`-de-da.
+- Dejen `la` maricada pues!
+- "hasta `la` vista, baby"?
+- No puedo ver `la` orilla!
+- We're at the forum, `la`.
+- The marquis de `la` tours.
+- You took my class in `la`.
+- It was "`la` belle aurore."
+- You started `la` resistance?
+- I'm here for `la` resistance.
+- Who and what is shangri-`la`?
+- 1322 last year in `la` county.
+- But do it in `la` and new york!
+- I read about you in `la` style.
+- The religion of `la` hermanidad.
+- Why don't you come down to `la`?
+- Goodbye, m'sieu `la`-- oh, yes ...
+- Sha `la` `la` `la` that ain't no crime.
+- You work that out with `la` senora.
+- C'est une vedette � `la` t�l�vision.
+- This looks familiar... a `la` votre.
+- Maybe she wanted a free trip to `la`.
+- Do you know the marquis de `la` tours?
+- Mr. ortega... what is "`la` compania"?
+- I don't know why they sent you to `la`.
+- What is your rank within `la` compania?
+- [i am the president of `la` hermanidad.]
+- `La` forge is completing the diagnostic.
+- I have the same idea about shangri- `la`.
+- In fact, shangri-`la` is father perrault.
+- This is your first visit to `la` `la` land.
+- `La` de da da... you're happy, aren't you?
+- `La` hire, i'm warning you -- don't swear!
+- We brought you here that's our `la`-z-boy.
+- Para que el sur del sabor de `la` frontera.
+- Au revoir jusqu'à `la` prochaine fois, wait.
+- `La` petite m�a l�air assez bien foutue, non?
+- They called him "`la` picadura"--"the sting."
+- Il peut te faire travailler � `la` t�l�vision.
+- Nous allons vous faire traverser `la` rivière.
+- So everyone is serenely happy in shangri-`la`?
+- ♪ contre nous de `la` tyrannie ♪ are you serious?
+- Shangri-`la` will keep her youthful indefinitely.
+- Tastes like the back of a fucking `la` schoolbus.
+- Well... oh, well... `la`-de-da, `la`-de- da, `la`-`la`.
+- They call it le coeur de `la` mer, the -- diamond.
+- We got a five hour drive back to `la` ahead of us.
+- And rinfrescante come `la` brezza del lago di como.
+- No, he's playing don quixote in man of `la` mancha.
+- Even more importantly he is part of `la` hermanidad.
+- I don't have the strength to fight off `la` mamma...
+- [and one of the founding members of `la` hermanidad.]
+- But i used to take her class at the `la` sports club.
+- It is the entire meaning and purpose of shangri-`la`.
+- `La` creme de `la` creme... how did you obtain release?
+- Do you mean to tell me you want to leave shangri-`la`?
+- I'll bring you a nice little lunch � `la` p�re mathieu.
+- I made you my speciality--scrambled eggs a `la` wilkes.
+- In return for which, shangri-`la` has much to give you.
+- I was in `la` before, but i'll come back to that later.
+- We started `la` resistance to save terrance and phillip!
+- `La`'s finest are on it, so light 'em if you got 'em.
+- Sha `la` `la` `la` that ain't no crime - that ain't no crime.
+- When the plane lands at shangri-`la` and wakes us all up.
+- ♪ allons enfants de `la` patrie ♪ what have you found out?
+- Years ago, in `la`, i turned a trick on sunset and western.
+- From `la` rosette, only the greatest pastry chef in america.
+- Mr. ortega, what is shu kai kim's rank within `la` compania?
+- We better get you back to the ship `la` forge to enterprise.
+- Have you heard of a french film called �`la` collectionoose�?
+- The best for the last -- le chef- d'oeuvre de `la` collection.
+- ...des petites fraises des bois... de `la` cr�me de bretagne...
+- Do you know what will happen to her if she leaves shangri-`la`?
+- George, debemos hablarle al patron, es `la` unica manera, mano.
+- He can't kill us in `la` cause that leads to too many questions.
+- I'm sorry, but i just can't see you veggin' out in `la`-`la` land.
+- Listen, don't let them fool you with all their grand `la`-de-da.
+- As for me, if an audition comes along, hell, `la`'s two hours away.
+- I got the hedges to do here, then another lawn out by `la` cienega.
+- Just as i'm sure there's a wish for shangri-`la` in everyone's heart.
+- Oh, `la`... my heart intends no more than that you love me as i do you.
+- We�re almost done here... mommy needs five more minutes in `la` `la` land.
+- <u>`la` vita nuova</u>?-- you have a recent scar on the back of your hand.
+- He built shangri-`la`, taught our natives, and began our collection of art.
+- I pictured a fat lady with an apron, not - i don't know - `la` femme nikita.
+- Oh no, no, just the reg'`la` side - not out the other side his face, though.
+- Perhaps because you've always been a part of shangri-`la` without knowing it.
+- "sweet transvestite" sha `la` `la` `la` that ain't no crime - that ain't no crime.
+- Wrote down details of conway's story about shangri-`la` which i am forwarding.
+- The `la` guardia flight�s canceled but i got you out of kennedy on united at nine.
+- Because, my son, i am placing in your hands the future and destiny of shangri-`la`.
+- Kept talking about shangri- `la`, telling a fantastic story about a place in tibet.
+- No es `la` verdad--[that isn't true--] you think you're doing these people a favor?
+                 

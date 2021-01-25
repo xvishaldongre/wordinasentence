@@ -1,0 +1,66 @@
+---
+title: "world's in a sentence | world's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "world's"
+---
+- The `world's` castaways.
+- The `world's` about to end.
+- The `world's` going to end.
+- The `world's` full of pests.
+- The `world's` getting weird.
+- I broke the `world's` record.
+- But now the `world's` gone soft.
+- The `world's` first time traveler!
+- I'm the `world's` greatest grandma.
+- The `world's` southern most reaches.
+- I was the `world's` sweetest ingenue.
+- You hacked the `world's` cell phones?
+- The `world's` full of people like you.
+- You're the `world's` greatest grandma.
+- You are the `world's` greatest grandma.
+- I feel like the `world's` biggest idiot.
+- The whole `world's` a jungle, huh, mayo?
+- `world's` gonna end in ten minutes anyway.
+- Come on, amigo, the `world's` full of marks.
+- He has the `world's` most recognizable face.
+- It's one of the `world's` greatest creatures.
+- The `world's` gettin' worse, i think, sailor.
+- Uh--*i'll* tell ya--`world's` series--a pass!
+- Not even you can plug all the `world's` leaks.
+- Seems like the whole `world's` gotten younger.
+- Good luck, austin, the `world's` depending on you.
+- "craig schwartz - the `world's` greatest puppeteer!"
+- And the `world's` most feared terrorist in the other.
+- Actually, i have no idea what the `world's` record is.
+- Oh, no, no, i was the `world's` second test-tube baby.
+- She's not the `world's` greatest flyer, let me tell you.
+- You have got to be the `world's` most naive human being.
+- If the `world's` going to end, it shouldn't matter a bit.
+- You are still, by the `world's` standards, a youngish man.
+- The history of the `world's` future is on the tv right now.
+- The `world's` funnest game with the `world's` meanest people.
+- I'm so touched you think i'm the `world's` greatest grandma.
+- Everyone in the `world's` got a right to enjoy these animals.
+- How we only seem to hang out when the `world's` about to end?
+- The `world's` most decorated experts can not figure that out.
+- He's on the `world's` longest ego trip, let him take it alone.
+- ...the whole `world's` out to get you... ...they're sending me.
+- Also, now everyone knows you're the `world's` biggest hypocrite.
+- It's a souvenir from the 1964 `world's` fair at flushing meadow.
+- The great white father, and `world's` champion of women's rights.
+- The whole `world's` about to blow up and you're reading dickens?!
+- We've put together the `world's` largest database on the titanic.
+- You see, shemp has just become the `world's` first time traveller.
+- It's the `world's` smallest violin, playing just for the waitresses.
+- Well forgive me if i don't think of you as the `world's` safest bet.
+- I hear a mob: unemployed, drunkards, vagabonds... the `world's` dregs.
+- Probably the `world's` largest <u>reader's</u> <u>digest</u> collection!
+- Or reed, the `world's` dumbest smart guy worth less than a postage stamp.
+- I'm being controlled by the `world's` greatest puppeteer, craig schwartz...
+- All this ] time i thought you were restructuring ] the `world's` economy. ]
+- According to the guinness book, you passed the `world's` record several whacks ago.
+- Some of the `world's` happiest marriage have started 'under the gun' you might say.
+- They have the `world's` most famous sculptures all in these giant plaster replicas.
+- The `world's` under attack by the legions of the undead and you're going to a mixer?
+                 

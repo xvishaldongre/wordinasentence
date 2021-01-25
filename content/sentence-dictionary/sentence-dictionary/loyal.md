@@ -1,0 +1,51 @@
+---
+title: "loyal in a sentence | loyal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "loyal"
+---
+- He's `loyal` to the end.
+- I am `loyal` to my sultan.
+- That i know she's `loyal`.
+- The `loyal` civil servant.
+- Except you, the `loyal` one.
+- 'at's my `loyal` little woman.
+- Kind and `loyal` and generous.
+- I've always been `loyal` to you.
+- I bet you have `loyal` customers.
+- Think you could be `loyal` to us?
+- You call yourself a `loyal` subject?
+- He was `loyal`, that's not a mistake.
+- Supportive, `loyal` wife in the world.
+- But the boss knows i always been `loyal`.
+- I'm `loyal` to things that make me happy.
+- I thought you were supposed to be `loyal`.
+- More of us are `loyal` to you than to her.
+- She's `loyal` and efficient- night an' day.
+- A group a guys `loyal` to the hardline school.
+- `Loyal`, cooperative, resourceful c. c. baxter.
+- As a man, i know you to be both `loyal` and just.
+- Throw anyone not `loyal` to us the hell was that?
+- The men he's `loyal` to know their way around dallas.
+- You always did come through -- our `loyal` watch dog.
+- Jack gave hisself up for the sake of his `loyal` crew.
+- My son's `loyal` wife returns, unkilled by the heathen.
+- A hard and `loyal` -- you were gonna ask me weren't you?
+- From now on i am your `loyal` subject ... your highness.
+- How could you be `loyal` to someone well, i'd be happy to.
+- He was `loyal`, went all the way for you... that's no bull.
+- Wow, you're a seriously `loyal` piece of outerwear, aren't you?
+- However, i'm certain that our core audience will remain `loyal`.
+- They were trikru, `loyal` to her, we don't need to talk about it.
+- Shaw, you're gonna say that you're still `loyal` you've got 5 minutes.
+- Jean... me dear, `loyal` jean... why do you want to oppose the will of god?
+- Why be king if there is no one you can call `loyal` subject but an eager boy?
+- Let me just say this: austin was the most `loyal` and caring friend i ever had.
+- If they're `loyal`, if they prove themselves, then their masters will turn them.
+- Jeanne, this is -- in fact -- my `loyal` friend and finest archer, jean d'aulon.
+- What you're asking me to do... is impossible... the crew is `loyal` to ru'afo...
+- ... as always, majesty... my dear `loyal` tremoille, i know i can count on you...
+- I have been a good worker, a good and `loyal` worker for you, you fucking asshole.
+- For all your incompetence i was beginning to think you were at least `loyal` to me.
+- I know that you're `loyal` to octavia, _ this jo juice is really getting me tonight.
+                 

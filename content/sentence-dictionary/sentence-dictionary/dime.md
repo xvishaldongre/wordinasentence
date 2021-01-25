@@ -1,0 +1,55 @@
+---
+title: "dime in a sentence | dime example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dime"
+---
+- I gotta drop a `dime`.
+- Nobody makes a `dime`.
+- We didn't make a `dime`.
+- Hey, give rocky a `dime`.
+- That's a `dime`, martini.
+- ♪ you can keep the `dime`.
+- Can't make a `dime` on 'em.
+- She's at the five and `dime`.
+- You won't even lose a `dime`.
+- One little `dime` you don't need.
+- Only a `dime` in the hotel lobby.
+- Oh, maybe nickel and `dime` stuff.
+- One thin `dime` for a cup of coffee.
+- The guy's a five and `dime` grifter.
+- Well, i'll give you the `dime` tour.
+- I never made a `dime` from public office!
+- You can't get no loaf a bread for a `dime`.
+- A `dime`, terry, a `dime` for a cup of coffee?
+- She'd have sold that thing for a `dime` bag.
+- But we should run by the park and get a `dime`.
+- ...and you don't have to put up a `dime`, roger.
+- You wouldn't risk the `dime` to call the police.
+- I'll give the enemy no quarter -- not a `dime`...
+- That's a lot of money when you don't have a `dime`.
+- Do you think they'd put up a `dime` if you got raped?
+- How does it reflect on him if we nickel and `dime` it?
+- Now it's been three weeks and you ain't paid a `dime`.
+- He won't take a `dime` less than three hundred dollars.
+- It cost me $800 and a `dime` bag just to have it fixed.
+- Some action in london, 'til it turned nickel and `dime`.
+- I'd give you a `dime` and you'd promise never to grow up.
+- You borrowed money from her and never paid a `dime` back!
+- You may get me now, but your life won't be worth a `dime`.
+- So why dive through the glass for a nickel and `dime` bust?
+- $1200 an acre, that's what i paid ole, won't take a `dime` less.
+- You put a `dime` in him, you got to let the whole song play out.
+- Any kid who drops an extra `dime` is gonna be talkin' to moliari.
+- I wish i hadn't blown every `dime` i ever made into this stinkbomb.
+- Sorry, buddy, i'm clean outta change... can you borrow me a `dime`?
+- Jeez, you know, i can remember hustling an old man for a `dime` a game.
+- Ends like this and you won't be able to spend a `dime` of that blood money.
+- When you spread help too thin, you , you just nickel and `dime` the situation.
+- You start out after murderers and come back with three-for-a-`dime` bootleggers.
+- Whatever kind of nickel-and-`dime` shit you did before, this is more than just me.
+- He's my silent partner and he knows if i get fucked up, i won't drop `dime` on him.
+- Now, sweetie, y'all wouldn't go believing one of them silly `dime` novels, would you?
+- I shore would like to do that, ma'am, but the fack is, we ain't got but a `dime` for it.
+- Two patrolmen at twenty apiece and a `dime` for the watch commander at hollywood station.
+                 

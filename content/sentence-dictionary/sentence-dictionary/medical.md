@@ -1,0 +1,107 @@
+---
+title: "medical in a sentence | medical example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "medical"
+---
+- `Medical` gift tokens.
+- For `medical` supplies.
+- What `medical` records?
+- He needs `medical` help!
+- `Medical`, i don't know.
+- Ouskejon took `medical`.
+- That's a `medical` fact.
+- Get him to `medical` now!
+- He's a `medical` student.
+- `Medical` is overwhelmed.
+- We need you in `medical`.
+- County `medical` examiner.
+- A `medical` hellhole sally.
+- My kids had good `medical`.
+- We need `medical` equipment.
+- You are a `medical` miracle.
+- It's a common `medical` term.
+- Need `medical` attention, eh?
+- Peters, `medical` technician.
+- We can get `medical` records.
+- Check them and call `medical`.
+- Level one `medical` emergency.
+- She needs `medical` attention.
+- They need a `medical` officer.
+- We gotta get her to `medical`.
+- Is that your `medical` opinion?
+- Ok. let's get him to `medical`.
+- To `medical` first, dr. franko?
+- We got to get you to `medical`.
+- It has `medical` supplies in it.
+- I checked the `medical` database.
+- `Medical`, two guards down, look.
+- No, jackson can handle `medical`.
+- Then how about `medical` records?
+- We need to get her into `medical`.
+- We're a `medical` firm, aren't we?
+- I�ve scheduled a `medical` for you.
+- What's the *`medical`* explanation?
+- We got to get him to `medical` stat.
+- We'll get you to `medical` quarters.
+- We need supplies and `medical` help.
+- A `medical` team will be standing by.
+- A real `medical` center for abby.
+- Lincoln, you need to go to `medical`.
+- I'm by way of being a `medical` myself.
+- I've got `medical` supplies to deliver.
+- The `medical` bill are 61 thousand now.
+- We got clothing and `medical` supplies.
+- Are there `medical` facilities on yavin?
+- Into some sort of `medical` abomination.
+- I'm dr. hoffman, `medical` administrator.
+- They go to the `medical` records section.
+- I have a `medical` emergency to deal with.
+- Ok, can you patch me through to `medical`?
+- What about in terms of `medical` expenses?
+- So i have to protect my `medical` coverage.
+- Two `medical` kits.. one camera... one tx9.
+- But is frederick, then...a `medical` doctor?
+- I didn't see any `medical` records in there.
+- One, pod one, this is ark station `medical`.
+- She has a background in `medical` forensics.
+- Sir, only patients are allowed in `medical`.
+- They didn't look like `medical` files to me.
+- I'm in serious violation of `medical` ethics.
+- They'll know what to do for him in `medical`.
+- I think your the one who needs `medical` help.
+- Make a `medical` discovery -- get very wasted.
+- They don't teach you that at `medical` school.
+- Without `medical` attention, i'm gonna die.
+- I know one of them went on to `medical` school.
+- This is ridiculous, i need `medical` attention!
+- Dr. griffin cleared mr. murphy out of `medical`.
+- I dabble in pharmaceuticals, `medical` research.
+- Pod one, pod one, this is ark station `medical`.
+- That your `medical` expertise is still required.
+- We need a stretcher to carry him up to `medical`.
+- He's the head of our little `medical` clinic here.
+- Victor's `medical` facility... we're in quarantine.
+- What do you want with those two `medical` officers?
+- Doctor mccoy, what is your current `medical` status?
+- Sienna said it's a place let's get you to `medical`.
+- Recovery is psychological as much as it is `medical`.
+- This is dr. michaels, chief of the `medical` section.
+- He wanted me to write for his great `medical` charity.
+- Is one of the great `medical` curiosities of all time.
+- Let's talk like two `medical` men i can make you rich.
+- ♪ all is calm ♪ i'll take care of `medical` yes, magnit.
+- I granted her access to our `medical` library, go where?
+- They baffled `medical` science, they were in a magazine.
+- Yes, this was victor's... the baron's `medical` library.
+- I should be in `medical`, not packing first-aid supplies.
+- What about our `medical` coverage; what about our health?
+- I haven't seen dr. hobbes since i was in `medical` school.
+- The one up front doubles as an emergency `medical` center.
+- ... but it won't cover annabelle daniels's `medical` bills.
+- Fortunately his position is more ceremonial then `medical`.
+- If you have specific `medical` needs, inform the infirmary.
+- It's not just your `medical` expertise that'll be required.
+- You will be transferred to the ludovico `medical` facility.
+- Obviously, we'll compensate you for your `medical` expenses.
+                 

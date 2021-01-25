@@ -1,0 +1,7 @@
+---
+title: "congeal in a sentence | congeal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "congeal"
+---
+## Unfortunately, we have no example sentences for congeal                 

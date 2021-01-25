@@ -1,0 +1,107 @@
+---
+title: "tight in a sentence | tight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tight"
+---
+- I run a `tight` house.
+- It's right and `tight`.
+- It's `tight` as a drum.
+- Let's just sit `tight`.
+- Sleep `tight`, sweetie.
+- That jacket is `tight`.
+- Hold on `tight`, abby.
+- She's in a `tight` spot.
+- A little too `tight`, eh?
+- Don't hold me so `tight`.
+- But it's gonna be `tight`.
+- Everybody hold on `tight`.
+- Hold `tight` and push hard.
+- I feel `tight` -- but good.
+- But keep the circle `tight`.
+- They were wedged in `tight`.
+- We're on a `tight` timeline.
+- You just sit `tight`, jason.
+- How `tight` are these shafts?
+- It's really on there `tight`.
+- Make sure the knot's `tight`.
+- Sit `tight`, and don't panic.
+- The security is very `tight`.
+- `Tight` with the dallas cops.
+- Well, it is a little `tight`.
+- You guys seem pretty `tight`.
+- Your security is air `tight`.
+- You tuck her in real `tight`?
+- Don't let 'im get you `tight`.
+- I hear he runs a `tight` ship.
+- Okay, pull it in `tight` here.
+- You just sit `tight`, old man.
+- You're holding me too `tight`.
+- I'm partial to the `tight` end.
+- Start `tight` and then go wide.
+- `Tight` formation on my command.
+- You're wound too `tight`, mills.
+- I thought you and i were `tight`.
+- Soul of honor--on a `tight`-rope.
+- The base is to be sealed `tight`.
+- They just want us to sit `tight`.
+- You think this is a `tight` spot?
+- You `tight` with j. edgar hoover?
+- You `tight` with the d.a., trash?
+- All we've gotta do is sit `tight`.
+- Maxie says he runs a `tight` ship.
+- Quit trying to hold on so `tight`.
+- How was that for a `tight` squeeze?
+- It's a little bit `tight` in there.
+- Mantan, way too short, too `tight`.
+- Do you think ackland'll sit `tight`?
+- Everybody stay `tight` and in sight.
+- He's pretty `tight` with his family.
+- It's supposed to be a little `tight`.
+- I want this mission high and `tight`.
+- You're getting real `tight` with them.
+- Bill, let's close her up, dog, `tight`.
+- Just grab my waist and hold on `tight`.
+- It'll be `tight`, but we should make it.
+- A little `tight`, but we'll make it work.
+- Priests keep pretty `tight` mouthed then?
+- We like the new guy in his `tight` jeans.
+- Ain't no way, man, security's too `tight`.
+- Okay, sweetie, night, night, sleep `tight`.
+- Or do i need skin-`tight` vinyl and a whip?
+- Short round, come on, grab onto me `tight`!
+- What's the matter, the trigger too `tight`?
+- We're a long way out... bring us in `tight`.
+- You've got a really `tight` team around you.
+- All right -- john, just sit `tight` will you?
+- Avery said she was `tight` with his daughter.
+- Butchy's just getting `tight` in his old age.
+- Long as you hand off the bag, you're `tight`.
+- See you in the morning light... sleep `tight`.
+- That comes from not holdin' you `tight` *enough.
+- You just sit `tight`, and i'll set everything up.
+- It's gotten me out of quite a few `tight` spots...
+- The in-between one, not too `tight`, not too lose.
+- `Tight` as a nun's asshole but qood concentration.
+- Oww... did you have to make these things so `tight`?
+- I still claim i was `tight` the night i proposed.
+- You sure run a `tight`-assed ship 'round here, don't ya!
+- Besides, those jeans are so `tight` i can see your penis.
+- But don't you think... ah, the skirt is a little `tight`?
+- Now that you're here we can shut this thing down `tight`.
+- ♪ and if you could hold me `tight` ♪ i don't scare easily.
+- As you can see, security's pretty `tight` in this section.
+- His ass is so `tight` when he farts only dogs can hear it.
+- I think we should sit `tight` and wait for reinforcements.
+- Ok, we sit `tight` until the old man can give us the lead.
+- No, hold me `tight`, so we can transport together, quickly!
+- Oh, look at those shoes, tied so `tight` with loops so even.
+- Sleep `tight`, rest easy - and come out fighting... why not?
+- Get into a `tight` spot, you'll be out of range at forty yards.
+- Goodnight pearl, sleep `tight`; and don't let the bedbugs bite.
+- None, there's nothing else, you know how `tight` the market is.
+- Conklin had these guys wound so `tight` they were bound to snap.
+- What was all that stuff about enlarged holes and `tight` cracks?
+- I guess a real `tight` girdle help when you're playin' a lunatic.
+- Young supple breasts, a `tight` firm ass and an uncharted pootie.
+                 

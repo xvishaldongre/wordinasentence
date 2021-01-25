@@ -1,0 +1,97 @@
+---
+title: "cave in a sentence | cave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cave"
+---
+- Okay.up to the `cave`.
+- The `cave` of wonders.
+- The god of the `cave`.
+- There was a `cave`-in.
+- Guys, there's a `cave`.
+- Outside, in the `cave`.
+- They lived in a `cave`.
+- There's a `cave` nearby.
+- On top of `cave` systems.
+- She hid it in the `cave`.
+- The beings in the `cave`.
+- Even a `cave`... garage...
+- I see the `cave` entrance.
+- From the `cave` of wonders.
+- That's where the `cave` is.
+- Clarke, this isn't a `cave`.
+- Is this the `cave` of ascent?
+- I've got friends in the `cave`.
+- Made it to a `cave` down there.
+- We're gonna die in this `cave`.
+- You never got back to the `cave`?
+- You wanted to know about a `cave`?
+- It means you're out of that `cave`.
+- This is no `cave` ... we're doomed.
+- We can make it to the north `cave`.
+- He was with josephine in the `cave`.
+- No weapons were found in the `cave`.
+- Someone just ran out of that `cave`.
+- How shall we find this `cave`, o tim?
+- I should `cave` your fucking head in.
+- Stop talking and look for the `cave`.
+- Take off and meet me at eagle `cave`.
+- The polar bear was inside his `cave`.
+- Those weird flowers in the `cave`?
+- The collar is geotagged to the `cave`.
+- What terrible thing in `cave` springs?
+- A `cave` or something with such a flow?
+- Go back to whatever `cave` you lived in.
+- Where is this `cave` he's talking about?
+- All 3 of us are gonna die in this `cave`.
+- `Cave`'s not big enough to fit your head.
+- I'm afraid they found the `cave`, sir.
+- Now, the `cave` is just on the other side.
+- Or you may never escape this `cave` alive.
+- There's a `cave` on the way to the anomaly.
+- Tonight we return once again to the `cave`.
+- Come on, i don't see you living in a `cave`!
+- I wish for you to get us out of this `cave`.
+- Ohhh, it's so dark, it's like a dank `cave`.
+- So bad when you locked me up in that `cave`.
+- What gave you the idea to paint on that `cave`?
+- We'll come find you and bring you to the `cave`.
+- You used one to get out of the `cave`, remember?
+- All the others are in a `cave` not far from here.
+- I was going to my `cave` to find my power animal.
+- He was chained up in that `cave` people could die.
+- Living in a `cave`, underground, until it mutates.
+- They feed their dead to some `cave` beast, anyway.
+- I suppose dr. murnau didn't die in a `cave`-in.
+- Beautiful, do you dare enter the `cave` of horrors?
+- When are you going to show me what's in the `cave`?
+- I’m betting that there’s more of it in his `cave`.
+- But it took us this long to get here from the `cave`.
+- Like, what if he was a `cave` man, and now he's dead?
+- The knights retreat | into the darkness of the `cave`.
+- [growling] your friends should be at the `cave` by now.
+- Runs against my nature to hole up in a `cave` and wait.
+- He knows of a `cave` ... a `cave` which no man has entered.
+- He spoke of the beings in the `cave`, of their ascension.
+- I've been stuck in one place, in a `cave`, you might say.
+- So we find our own `cave` system, mr. szyslak, we know you.
+- The shepherd survived 3 months in this `cave`, what happened?
+- Did i know that coal mine was going to have another `cave`-in?
+- Malachi, i'm living like a wildcat in a `cave` in those hills.
+- You've got to stop them here or our whole line will `cave`-in!
+- We're only about a quarter-mile from `cave` entrance number five.
+- You handled yourself well in the `cave` what are you talking about?
+- God bless rod and todd and especially my wonderful mentor, a `cave`.
+- There will come a time again, soon, i'm guessing he's `cave` hopping.
+- Do you remember the night i fell into that `cave` and the bat chased me?
+- Hey, rose, did you hear about that terrible thing down in `cave` springs?
+- You must have read about it in the papers -- there was a terrible `cave`-in.
+- Maybe it's just for the `cave`-in on lonnegan's face when we put in the sting.
+- I hereby declare this the charles dalton `cave` for passionate experimentation.
+- Now you been prancin' aroun' the `cave` like yer ass was glass fer long enough!
+- If it were up to me, i would have chosen our `cave`, but... hey, how's it going?
+- I'm assuming the `cave`-in begins with the threat of litigation from big tobacco.
+- Like you two honeys, if you decide to accept my offer of a lease on siwash `cave`.
+- That night in the `cave` -- that wasn't wine they gave me to drink... it was blood!
+- What're you gonna do, walk into the `cave` carryin' those tubes on feather pillows?
+                 

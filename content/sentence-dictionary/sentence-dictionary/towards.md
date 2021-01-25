@@ -1,0 +1,55 @@
+---
+title: "towards in a sentence | towards example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "towards"
+---
+- `Towards` the anomaly.
+- It stomps `towards` you.
+- Head `towards` union station.
+- It's crawling `towards` you...
+- I'll work around `towards` you.
+- Double back `towards` the river.
+- We head west `towards` that rise.
+- We're going `towards` that thing?
+- Walking `towards` a nuclear weapon.
+- Bellamy's heading `towards` you now.
+- We feint `towards` it but we wait...
+- She's walking back `towards` the door.
+- Buzz gestures `towards` the front door.
+- Now, who can point me `towards`, uh, push.
+- He's headed `towards` the eastern most exit.
+- I'm walking `towards` the elevator's, janet.
+- `Towards` your mother onto your art teacher.
+- They meant no act of aggression `towards` us.
+- But i kept getting dragged back `towards` you.
+- Show them they must strive `towards` the light.
+- They've made no act of aggression `towards` us.
+- Alm�sy smiles and walks on `towards` the others.
+- I'm walking `towards` a light... is anyone there?
+- Brad has deep feelings of hostility `towards` you.
+- Hey, guys, why are you headed `towards` the sound?
+- Theo moves `towards` buzz in a threatening manner.
+- ...and then lift them up and `towards` the ceiling.
+- Sid gets up and jerks his thumb `towards` the door.
+- Welcome to josh.0, double back `towards` the river.
+- What makes me sore is how they behave `towards` you.
+- But we're headed straight `towards` that asteroid belt.
+- If you're heading `towards` her room, you won't find her.
+- Boy, maggie, you're carrying a lot of anger `towards` mom.
+- | | the animation monster starts lumbering `towards` them.
+- Dear duncan, my affection is as `towards` a closest friend.
+- Ruby takes off `towards` the cineplex... are you all right?
+- They've gone to the canyon, we should go `towards` the pch.
+- It's like, it sucks everything `towards` it and destroys it.
+- Bearing us down `towards` the sea it may still do us some good.
+- For the first time, a benevolent psychopathology beckons `towards` us.
+- As for you, ricky, your draw will go `towards` a new carpet cleaning van.
+- I'm telling you, this is your step `towards` getting a shot at the title.
+- They have a french onion soup that is, it took him `towards` the anomaly.
+- Buzz sees the two sleazeballs park their car and walk `towards` the diner.
+- Sid and breeze push him `towards` the van as the crowd's murmur increases.
+- ♪ oh, oh, oh ♪ hey... - `towards` the centers of-- " - tetrahedrons.
+- I know, master, but... a seeding spends its entire life reaching `towards` heaven.
+- May not find anything, but at least we'll know we're heading `towards` saudi arabia.
+                 

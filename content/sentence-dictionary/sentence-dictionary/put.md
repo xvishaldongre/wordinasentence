@@ -1,0 +1,107 @@
+---
+title: "put in a sentence | put example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "put"
+---
+- Did you `put` that on?
+- I know, i `put` it up.
+- I `put` some decaf on.
+- It was a `put`-up job?
+- Now `put` up my dukes.
+- People `put` money in.
+- `Put` him behind bars!
+- `Put` it all on jesus?
+- `Put` it down, i said!
+- `Put` it down, walter.
+- `Put` it in the cases.
+- `Put` it- `put` it down.
+- `Put` it through tacs.
+- `Put` me down for two.
+- `Put` me on the board.
+- `Put` that away, slug!
+- `Put` that phone down!
+- `Put` that stuff back!
+- `Put` the man back on.
+- `Put` the plates down.
+- `Put` your clothes on!
+- Really `put` together.
+- Somebody `put` me out!
+- We `put` out the word.
+- You'd `put` on prince.
+- Alright, `put` this on.
+- Away `put` your weapon.
+- Did you `put` it there?
+- Don't `put` me back in!
+- I can `put` up with it.
+- I'll `put` in a toilet.
+- Just `put` it in there.
+- Just `put` on the taps.
+- Let me `put` it on you.
+- Let's `put` it on film.
+- Now `put` down the gun.
+- Now `put` the gun down.
+- `Put` a unit out there.
+- `Put` down lex luthor !
+- `Put` her in someplace!
+- `Put` her on her knees.
+- `Put` her on the phone.
+- `Put` him in the truck.
+- `Put` him on the cross.
+- `Put` him on the table.
+- `Put` it in the carton.
+- `Put` it in your mouth!
+- `Put` it in your mouth.
+- `Put` it in your pants.
+- `Put` it on the ground.
+- `Put` it on the screen.
+- `Put` it over the tree.
+- `Put` on two more guys.
+- `Put` the bill on this.
+- `Put` your legs inside.
+- `Put` your seatbelt on.
+- Someone `put` it on me.
+- Stay `put`, goddamn it!
+- That's how he `put` it.
+- To `put` a man at ease.
+- We must `put` him back.
+- We `put` them to sleep.
+- Where do i `put` this!?
+- You all `put` together?
+- You `put` it very well.
+- You `put` us in danger.
+- Can `put` me on my back.
+- Could you `put` carl on?
+- He `put` me in a corner.
+- I had to `put` him down.
+- I mean `put` clothes on.
+- I `put` it on your desk.
+- I `put` that dress away.
+- I `put` things together.
+- Just `put` the gun down.
+- Just `put` your mask on.
+- Now `put` them together.
+- `Put` down your weapons!
+- `Put` down your weapons.
+- `Put` food on the table?
+- `Put` him in a cage now!
+- `Put` in colleen's disc.
+- `Put` it in your pocket.
+- `Put` me down, you lout!
+- `Put` them on the table.
+- `Put` this in your cage.
+- `Put` your arm in there.
+- `Put` your weapons down.
+- Should i `put` one back?
+- So `put` the knife down.
+- Tell him to `put` the...
+- To `put` me out of my...
+- Where do i `put` ashore?
+- Where shall we `put` it?
+- Who `put` you in charge?
+- You can `put` them away.
+- You gonna `put` it away?
+- `Put` it on expenses?
+- Don't `put` yourself out.
+- Evelyn, `put` her to bed.
+                 

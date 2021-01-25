@@ -1,0 +1,66 @@
+---
+title: "tent in a sentence | tent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tent"
+---
+- Get him in the `tent`.
+- This is my `tent`, ok?
+- You forgot the `tent`?
+- To major burns' `tent`.
+- Let's set up the `tent`.
+- I like the `tent` better.
+- Layla, search the `tent`.
+- Now get out of my `tent`.
+- I have a `tent` to myself.
+- Kip hurries to his `tent`.
+- Go back to your war `tent`.
+- Let's get that `tent` down!
+- Their `tent` was near here.
+- I think i forgot the `tent`.
+- No, it's still in my `tent`.
+- Or a decent fricking `tent`?
+- You already have the `tent`?
+- I left it in the `tent`, sir.
+- I'm sorry i forgot the `tent`.
+- To live in a `tent`, would you?
+- The comm's `tent` down the back.
+- They even gave us a bigger `tent`.
+- You called to him from the `tent`.
+- I'd still see 'em inside the `tent`.
+- Why did you forget the `tent` check?
+- Adrenaline injections, oxygen `tent`.
+- We got new chest-cutter in our `tent`.
+- We could hide you in a `tent`, like el.
+- Somebody throw a `tent` over this circus.
+- She left her pack, and her `tent` is in it.
+- You shouldn't go into another man's `tent`.
+- How's granma since we got her in the `tent`?
+- It's a little decoration for the mess `tent`.
+- They're putting up their `tent` in the garden.
+- Must be painlees pole day in the shower `tent`.
+- Not like these trapeze-sucking `tent`-fluffers.
+- You can't play around with these `tent` people.
+- Just dropped her petals and folded her `tent`...
+- What did you think you were doing in his `tent`?
+- Yeah, we got the westbury covered like a `tent`.
+- I heard some grunt rolled a grenade in his `tent`.
+- You've got no right - you're in a `tent`, darling.
+- And i'll be waiting for you in the penthouse `tent`.
+- You take that plate inside the `tent` an' you eat it.
+- Hotel for my parents, the `tent`, the band, the judge...
+- That's what the clowns here drink before the `tent` opens.
+- We should construct thorn fences around every `tent` area.
+- If one night i didn't come to the `tent`, what would you do?
+- That kid belongs under a circus `tent`, not flippin' burgers.
+- It's a place where religious people-- what's a revival `tent`?
+- Well, it ain't no pup `tent` in the garage, you know what i mean?
+- Much more befitting of a commander and chief than your field `tent`.
+- Guy with a rental car and hundred dollar sneakers sleeps in a `tent`?
+- Well you give me the model number of the `tent` i can order you the poles.
+- Downtown garage rooftop -- next </b> ziering and green approach a large `tent`.
+- Earlier he had some problems, he's in an oxygen `tent` just now... is he all right?
+- The whole `tent` is on the clock to figure out whatever it is you were given up there.
+- About that chest-cutter... major burns will be out of your `tent` in twenty-four hours.
+- I know this isn't the time to ask, but- that is precisely my plan- but back in my `tent`.
+                 

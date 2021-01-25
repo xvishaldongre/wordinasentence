@@ -1,0 +1,107 @@
+---
+title: "bridge in a sentence | bridge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bridge"
+---
+- It's not the `bridge`.
+- I was on the `bridge`.
+- Target their `bridge`.
+- The `bridge` of death?
+- The brooklyn `bridge`.
+- There's your `bridge`.
+- What is this `bridge`?
+- You have the `bridge`.
+- You have the `bridge`.
+- Admiral on the `bridge`!
+- Because of the `bridge`?
+- He's up on the `bridge`!
+- I'll be at the `bridge`.
+- Meet us on the `bridge`.
+- The `bridge` is closing!
+- The `bridge` will close.
+- The `bridge` won't wait!
+- They're on the `bridge`.
+- I'll be on the `bridge`.'
+- It operates the `bridge`.
+- The `bridge` is this way.
+- The `bridge` is too deep.
+- A `bridge` between worlds.
+- Find the rainbow `bridge`?
+- Levitt, open the `bridge`.
+- The `bridge` is coming up!
+- `Bridge` to captain picard.
+- Make a `bridge` out of her.
+- _ take him to the `bridge`.
+- Come, john- to the `bridge`.
+- Get back up on the `bridge`.
+- I should be on the `bridge`.
+- We've lost `bridge` control!
+- `Bridge` closes in 5 minutes.
+- People come to play `bridge`.
+- This `bridge` cannot be held.
+- Under the manhattan `bridge`.
+- `Bridge`, cancel rescue teams.
+- Could i see the `bridge` site?
+- Hear about the `bridge` again.
+- I'll meet you at the `bridge`.
+- I'll meet you on the `bridge`.
+- I'll take you to the `bridge`.
+- To retaliate for the `bridge`?
+- Clear the `bridge`, captain...?
+- Here comes the `bridge` chorus.
+- Here's the `bridge`-- fuck that!
+- He will take me to the `bridge`.
+- We'll take care of the `bridge`.
+- You have `bridge` here saturday?
+- You said they used the `bridge`.
+- Go the the adams street `bridge`.
+- Maybe you went over the `bridge`.
+- There was nobody on the `bridge`.
+- You have the `bridge`, commander.
+- A lot of water under the `bridge`.
+- `Bridge` washed out�around dawson.
+- If he crosses the `bridge`, it is.
+- It's a `bridge`, a transit system.
+- Seek you the `bridge` of death ...
+- The `bridge` is yours, lieutenant.
+- You can meet them at the `bridge`.
+- I feel the same about the `bridge`.
+- That's it, `bridge`- we're all out!
+- They're about to take the `bridge`.
+- You're at the `bridge`, ms. peters.
+- I am the `bridge` to the �bermensch!
+- I can get to the `bridge` from here.
+- I'll be late for the `bridge` club.
+- I peed under the manhattan `bridge`.
+- Main engineering... or the `bridge`.
+- Well, it's water under the `bridge`.
+- When i was coming over the `bridge`.
+- Admiral on the `bridge` -- try again.
+- Get dressed and come to the `bridge`.
+- That means they control the `bridge`.
+- Why open the `bridge` and not use it?
+- But the `bridge` has been pulled down!
+- To suit up before the `bridge` closes.
+- What is the condition of the `bridge`?
+- Will you accompany me to the `bridge`?
+- You could always try suicide `bridge`.
+- Counselor troi, report to the `bridge`.
+- We can open the `bridge` ourselves, ok?
+- Ahh, slow... why the open hand `bridge`?
+- Crossed the bay `bridge` and here i was.
+- What do you say to a rubber of `bridge`?
+- Yeah, the deed to the brooklyn `bridge`.
+- Build the `bridge` over the tsavo river.
+- I was instructed to come to the `bridge`.
+- About two hundred yards from the `bridge`.
+- Let's go down and across the old `bridge`.
+- Likes a little game of `bridge` and poker.
+- That's what you projected on the `bridge`.
+- Whatever was on that `bridge` wasn't weir.
+- Forget the `bridge`, the shuttle's waiting!
+- Want to explain to me where's the `bridge`?
+- When you're finished, come to the `bridge`.
+- He'll shit if he knew we crossed a `bridge`.
+- It'll pull her across the `bridge` remotely.
+                 

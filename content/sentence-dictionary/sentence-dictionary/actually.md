@@ -1,0 +1,107 @@
+---
+title: "actually in a sentence | actually example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "actually"
+---
+- Great one, `actually`.
+- It's fine, `actually`.
+- Not quite, `actually`.
+- Oh, `actually` it was.
+- Well, `actually`, yes.
+- Yeah, `actually` i do.
+- You `actually` did it.
+- About half, `actually`.
+- `Actually`, it was two.
+- `Actually`, sir-- look.
+- `Actually`, they don't.
+- `Actually`, you didn't.
+- No, i `actually` don't.
+- That's `actually` shit.
+- Well, `actually` hydra.
+- Yeah, `actually`, i do.
+- `Actually`, i...i don't.
+- `Actually`, i meant you.
+- `Actually`, mr. rieper .
+- `Actually`, my grandpap.
+- `Actually`, really good.
+- `Actually`, someone did.
+- He was `actually` there?
+- I hate them, `actually`.
+- Kinda, `actually`, yeah.
+- So have i, `actually`...
+- The guy is `actually`...
+- They `actually` pay you?
+- Uh, `actually`... yes...
+- Yeah, `actually`, i did.
+- `Actually` happens to us.
+- `Actually`, i am, though.
+- `Actually`, i'm innocent.
+- `Actually`, i totally am.
+- `Actually`, it was three.
+- `Actually` there is word.
+- `Actually`, you may have.
+- I'm too busy, `actually`.
+- I said, "not `actually`."
+- Kind of cozy, `actually`.
+- Neither do i, `actually`.
+- No, it `actually` hadn't.
+- No, i wasn't, `actually`.
+- To cleveland, `actually`.
+- `Actually` he said "glad."
+- `Actually`, i volunteered.
+- `Actually`, i was married.
+- Although, `actually` i am.
+- I `actually` date you?
+- I'm mortified, `actually`.
+- It's a riddle, `actually`.
+- Lasik surgeon, `actually`.
+- Right on 7 1/2 `actually`.
+- Uh, `actually`, it's cold.
+- You `actually` said that?!
+- You can `actually` see us?
+- `Actually` i have to split.
+- `Actually`, i just met her.
+- `Actually`, i'm already in.
+- `Actually`, i'm his father.
+- `Actually`, i've been here.
+- `Actually`, we haven't met.
+- He's `actually` a good guy.
+- I `actually` know this one.
+- I'd rather move `actually`.
+- It's `actually` kinda nice.
+- No, it was `actually` hers.
+- They `actually` apologized.
+- We `actually` sang a chord!
+- We didn't `actually` speak.
+- Well, oh... `actually`, no.
+- We've never `actually` met.
+- `Actually`, he sounded nice.
+- `Actually`, he took the car.
+- `Actually`, i can go faster.
+- `Actually`, i'm free sunday.
+- `Actually`, i said it might.
+- `Actually`, it is a shotgun.
+- `Actually` it's a nightmare.
+- `Actually`, i've decided ...
+- `Actually`, that's not true.
+- `Actually`, they disgust me.
+- And, `actually`, a buddhist.
+- A tax write-off, `actually`.
+- Camp know where, `actually`.
+- For a long time, `actually`.
+- He is `actually` hungry now.
+- I do, `actually`; very much.
+- I just got that, `actually`.
+- I remember, too, `actually`.
+- I was an indian, `actually`.
+- Jasper's `actually` smiling.
+- No, `actually` i feel worse.
+- She's my sister, `actually`.
+- They're not `actually` fans?
+- What did you `actually` see?
+- You `actually` believe that?
+- `Actually`, i don't think so.
+- `Actually`, it isn't for you.
+- `Actually`, it's funny you...
+                 

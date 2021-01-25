@@ -1,0 +1,107 @@
+---
+title: "hat in a sentence | hat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hat"
+---
+- Give me back my `hat`!
+- It's old `hat` for us.
+- But where's your `hat`?
+- `Hat` was this morning.
+- His `hat` an his badge.
+- It's this stupid `hat`.
+- What an adorable `hat`.
+- Get your `hat` and coat.
+- Get your `hat`, senator.
+- I got dibs on his `hat`!
+- 'cept for maybe my `hat`.
+- He had an orange `hat` on.
+- Just like i did the `hat`.
+- ♪ outta they little `hat`?
+- I surely do miss that `hat`.
+- My `hat` is off to you, sir.
+- No, that is not a big `hat`.
+- They let you pass the `hat`.
+- Where's your coat and `hat`?
+- But -- the `hat` looked good.
+- Could ya take off that `hat`.
+- He wears a dirty brown `hat`.
+- My `hat`'s off to you, hildy!
+- A man in a brown bowler `hat`?
+- I think i'll see `hat` action.
+- Tell me the `hat` looked good!
+- Do you have to wear that `hat`?
+- We take off our `hat` and coat.
+- Oh, you know, i forgot my `hat`.
+- I gotta go home and get my `hat`.
+- The `hat` business is in trouble.
+- This `hat` isn't even adjustable.
+- Honestly, it's a little old `hat`.
+- How are things at the `hat` store?
+- They made me put my `hat` back on.
+- Why do you always wear that `hat`?
+- You're talking through your `hat`.
+- He is the great one... `hat`-trick?
+- I gotta tip my `hat` to you people!
+- No, i'm all bowler `hat`, remember?
+- Sit in a booth, pull my `hat` down.
+- Where's your `hat` and your gloves?
+- Would you remove your `hat` please?
+- You tossed my `hat` out the window.
+- "i sleep in your `hat`" makes me cry.
+- It's a `hat`, comrade, a woman's `hat`.
+- Marco... she wore a `hat`... breathe.
+- Neurostuff meets rabbit from a `hat`.
+- Real pretty, blonde hair, blue `hat`?
+- You're talking through your `hat` now.
+- That's why i wear a fifty dollar `hat`.
+- Ear-nose-throat meets rabbit-from-`hat`.
+- I'll take your `hat` into the cloak room.
+- Nor did i come here to pick up his `hat`.
+- Don't you take your `hat` off in elevators?
+- I'll throw in this genuine captain's `hat`.
+- I told you i had company pick up the `hat`.
+- That was the `hat` i was wearing i'm sorry.
+- Well, here's your `hat`, what's your hurry?
+- I usually wear a big `hat` and dark glasses.
+- Soon as i start the car... and fix my `hat`.
+- Well, at least i can wash this filthy `hat`.
+- You exist because of me, go crap in your `hat`.
+- A very interesting man hiding in medicine `hat`.
+- What did i do, pull it out of the fuckin' `hat`?
+- He takes his `hat` off when he's with a lady.
+- My `hat`'s off to anyone who can make a go of it.
+- Then buckle their necks as you would thine `hat`.
+- The rest of us have to pick names out of a `hat`.
+- Was a two hundred dollar `hat`, i hadda kill you.
+- Leave a tip in every `hat`-check room in town?
+- Why don't you take off your `hat` and stay awhile?
+- I'll get my other `hat` and coat and go over there.
+- Well, a `hat`... tell me... what else did you have?
+- Should i wear my ten gallon `hat` and my six shooters?
+- What do you want to do, hock your furs, and that `hat`?
+- I think there's only two hundred dollars under my `hat`.
+- You ever see pictures of him, the way he wore his `hat`?
+- Couldn't dig one out of your `hat` some place, could you?
+- Ain't got a `hat`� listen, man�i'll tell you what i'll do.
+- The pain in the ass who cries wolf at the drop of a `hat`.
+- Well, first i should like to take off my `hat` and jacket.
+- I had to help my folks and then i couldn't find my `hat` ...
+- He walks in the rain, without his `hat`, and talks to himself.
+- It's a roman holiday for every paper `hat` editor in new york.
+- Well, he has a straw `hat`-- what's he got that i haven't got?
+- If she insisted, i had to drive her home for her goddamn `hat`.
+- You probably expect me to be wearing a trench coat and a `hat`.
+- I looked everywhere, honey, but all i could find was your `hat`.
+- Always kept his `hat` on his head so as to be ready to do battle.
+- Dev, we put an insulator between the mast and capacity top `hat`.
+- Does he get his `hat` out of his pocket at just the right moment?
+- Pretty soon there won't be one place in brooklyn i can hang my `hat`.
+- You can't put a mountie `hat` in your... we had davy crockett hats...
+- Pretty soon, there won't be one place in brooklyn i can hang my `hat`.
+- Look at them, philby, all alike, everyone in an identical bowler `hat`.
+- N'they brought back, his `hat`, his <u>badge</u>, an his <u>timeclock</u>.
+- Well, because you picked that place out of a `hat`, my brother's dead now.
+- What did you do -- did you pick my name out of a `hat` or... or... a list?
+- You're so twitterpated you don't even see the miner's `hat` and the pickax.
+                 

@@ -1,0 +1,97 @@
+---
+title: "pills in a sentence | pills example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pills"
+---
+- I want my `pills` now!
+- Then take the `pills`.
+- Do you have any `pills`?
+- I took sleeping `pills`.
+- Do you got those `pills`?
+- I'll give up the `pills`.
+- What `pills` did you take?
+- I didn't take your `pills`.
+- It's not because of `pills`.
+- He needs his `pills`, please.
+- Now give me the damn `pills`!
+- It's the bitterest of `pills`.
+- I took the `pills` an hour ago.
+- Just `pills` made out of water.
+- Sally, so i took a few `pills`.
+- Very dangerous things, `pills`.
+- Ever try forty sleeping `pills`?
+- I've left those `pills` for you.
+- Should've took the damn `pills`.
+- I've gotta give her some `pills`.
+- First, you get rid of the `pills`.
+- Why did you take sleeping `pills`?
+- Charles boyer, 1978, `pills` again.
+- I don't need `pills`... just sleep.
+- I want to stop taking those `pills`.
+- Took one too many `pills` this time.
+- You want your `pills`, which planet?
+- Aren't you going to take the `pills`?
+- Because i took some sleeping `pills`.
+- Cause i don't take acme dumb `pills`.
+- He could use `pills` back in america!
+- How many `pills` were in that bottle?
+- Jean seberg, `pills` of course, 1979.
+- No sleeping `pills`, no razor blades.
+- They gave me `pills` to make me sleep.
+- By the way, he's off his happy `pills`.
+- Pier angeli, 1971 or '72, also `pills`.
+- So how are you doing with those `pills`?
+- Everett sioane -- he was good -- `pills`.
+- I saw the eligius logo on abby's `pills`.
+- My `pills`... you heard what i said, dil?
+- You need to knock off the `pills`, clair.
+- Because you've replaced `pills` with this.
+- I started taking the `pills` after a.l.i.e.
+- It's the ridiculous `pills` they prescribe.
+- `Pills`... you know how i feel about `pills`.
+- Treadstone had those `pills`... treadstone.
+- I got flagged for my blood pressure `pills`.
+- She had a card here for her migraine `pills`.
+- Those `pills` you used to swallow like candy.
+- What if -- because he takes sleeping `pills`.
+- Did you all take stupid `pills` this morning?!
+- I caught him flushing `pills` down the toilet.
+- I wish you hadn't given abby back those `pills`.
+- The next morning i started taking these `pills`.
+- You took all those sleeping `pills` -- remember?
+- "hate," i am using the word "hate" about `pills`.
+- I take a handful of `pills` to get away from you.
+- Dorothy dandridge, she took `pills` in, like, 1965.
+- Tell me, did he ever tell anyone about the `pills`?
+- I'm here because you took too many sleeping `pills`.
+- Then why don't you start taking the goddamn `pills`?
+- Well, you have your choice: `pills`, injection, gas.
+- Help wash down all them `pills` they'll be giving you.
+- Margaret sullavan, `pills`, lupe velez, a lot of `pills`.
+- Stan covered up the `pills` and i had it out with norman.
+- Because those `pills` you're taking are for a lot of pain.
+- He takes three sleeping `pills` every night at ten o'clock.
+- How, if he is truly benevolent... mccreary took my `pills`.
+- I don't like taking `pills` when i don't know what they are.
+- They give me `pills`, you know, to keep me... even... and...
+- That roller coaster car pops more `pills` than all of ward 3.
+- I'm taking `pills` and having injections -- it won't last long.
+- I've been taking `pills` to get my weight down since the baby.
+- You won't pick up a gun, but blowing people up, i need my `pills`.
+- Perhaps we should get you uphill before the `pills` knock you cold.
+- Probably about the time you gave me the codeine `pills` last night.
+- She took `pills` and she killed herself in our house to destroy me!
+- I'll come by your place, right after...drink, take `pills`... love you.
+- Alan ladd, '64, more `pills`, carole landis, `pills` again, i forget when.
+- Engaged in the manufacture and distribution of ... `pills` and so forth.
+- My old lady swallowed a bottle of `pills` one day while i was at school.
+- A protest movement dedicated to solving this is about me giving abby `pills`.
+- Isn't it bad enough you're drinkin' too much, you're takin' all my `pills` too?
+- ♪ jumble boogie, doo-doo-doo, doo-doo-doo ♪ then we can talk about your `pills`.
+- ♪ there's a handsome man in texas ♪ and promise me you'll stop taking the `pills`.
+- We're getting too close ... cates, what's the matter, you been takin' dumb `pills`?
+- That's how but that's the one with tv people i lost more men to `pills` than war.
+- ...or in a car...when it's dark...something with the headlights... ...`pills`, right?
+- I handled enough of those red `pills` to put everybody in new jersey asleep for the winter.
+                 

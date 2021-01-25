@@ -1,0 +1,85 @@
+---
+title: "telephone in a sentence | telephone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "telephone"
+---
+- The `telephone` rings.
+- Got a `telephone` book?
+- `Telephone` the police.
+- He's on the `telephone`.
+- Let's find a `telephone`.
+- That was the `telephone`.
+- `Telephone`'s in the hall.
+- Can i use your `telephone`?
+- May i use your `telephone`?
+- The `telephone` is ringing.
+- They'll have a `telephone`.
+- They may have a `telephone`.
+- We spoke on the `telephone`.
+- Too important for `telephone`.
+- Have you tried the `telephone`?
+- If she has a `telephone` number?
+- She hears me on the `telephone`.
+- Where's the nearest `telephone`?
+- Wet paint and no `telephone` yet.
+- You left your `telephone` number?
+- I need to make a `telephone` call.
+- What am i, a `telephone` operator?
+- Come on, let's get to a `telephone`.
+- I never got those `telephone` calls.
+- Madame is wanted on the `telephone`.
+- I don't even have a `telephone` there.
+- All right, then, go ahead, `telephone`.
+- The "enquirer" is without a `telephone`.
+- Mrs. wilson from the `telephone` company.
+- Madame pomponi is on the `telephone`, sir.
+- Maybe they have a `telephone` i might use.
+- This is my address and `telephone` number.
+- I'm going to put a lock on the `telephone`.
+- How is he gonna hurt you on the `telephone`?
+- Let's forget that the `telephone` ever rang.
+- That's a good idea - `telephone` the police.
+- You know, i'd be lost without a `telephone`.
+- Do not discuss anything over the `telephone`.
+- You can have a `telephone` when we've talked.
+- He hasn't answered his `telephone` in two days.
+- Mr. gardiner, i have a `telephone` call for you.
+- Nothing connects them, but a `telephone` number.
+- Please hurry up - just get him on the `telephone`.
+- Should i give you my `telephone` number in venice?
+- Can i please use your `telephone` for an ambulance?
+- I also own some american `telephone` and ibm stock.
+- I was going to `telephone` but.... hello, macaulay.
+- Now look, i'm picking up this ordinary `telephone`.
+- Yes, the `telephone`, but if it's for me, i'm not in.
+- Ed works with the bell `telephone` switching division.
+- Okay now, er, huey, so what's your `telephone` number?
+- The number for this `telephone` is in your cell phone.
+- You must be joking, keep him away from the `telephone`.
+- Ask not for whom the `telephone` rings ... mrs. peel -- ?
+- Hasn't been a `telephone` in this house in over 60 years.
+- Through the `telephone` line terminal, that ain't nothin'.
+- When i have to call my lawyer, they bring me a `telephone`.
+- Mrs. hinkle, did you ever receive obscene `telephone` calls?
+- I overheard a `telephone` conversation with mercier, the jeweler.
+- If it isn't, why don't we call washington on your `telephone`?
+- He sits on bed, thinks, then takes `telephone` slowly, decisively.
+- A `telephone`, some broad to say "good morning," nothing...nothing...
+- I was on the `telephone` to amsterdam today, they think you're scared.
+- There is a `telephone` in the public house about a mile down the road.
+- He will take your `telephone` and address books, your appointment books.
+- [`telephone` rings] or zero in the buddhist calendar... don't pick them.
+- What i need to do is make a `telephone` call to straighten everything out.
+- Dial o-o-o on the `telephone` if you change your mind about the drink, sir.
+- Count d'algout, there have been several `telephone`... good evening, monsieur.
+- Here, look, i'm calling the old bill right now" -- picking up the `telephone`.
+- Can i have a `telephone` number, area code first on where we can call you back?
+- You don't think about what you're doing and you'll run into a `telephone` pole.
+- You lousy bastard you have the nerve to give your whores my `telephone` number.
+- Moss then straps himself back in and brean continues talking on the `telephone`.
+- But she's on the `telephone`� what do you mean by coming in here when i'm playing?
+- Feel free to use the `telephone`, and please let me know if you have any discomfort.
+- But i�ve seen the boy and made `telephone` contact with the man leon bought him from.
+- In one of his letters he asked you to `telephone` - a good friend of his called joseph.
+                 

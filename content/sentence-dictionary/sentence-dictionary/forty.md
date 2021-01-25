@@ -1,0 +1,107 @@
+---
+title: "forty in a sentence | forty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "forty"
+---
+- `Forty` million beats.
+- It says `forty`- nine.
+- Not from `forty` feet.
+- Thirty, `forty` maybe.
+- Eight `forty`-two, sir.
+- `Forty`-eight, i guess.
+- `Forty`-five all total.
+- Here's `forty` dollars.
+- Over `forty` years now.
+- `Forty`-nine point four.
+- Sixty- `forty`, at best.
+- `Forty` god damn percent?
+- `Forty` thousand dollars?
+- Oh, i'd say `forty`-five.
+- Twelve `forty` a.m. here.
+- Eleven `forty`-two, sharp.
+- `Forty`-two minutes ahead.
+- Killed `forty` two people.
+- Only `forty` minutes late.
+- Thirty to `forty` minutes.
+- About `forty`-five dollars.
+- Bring me `forty`-five back.
+- 'mary rooney, `forty`-nine.
+- On average `forty` million.
+- What about one `forty`-two.
+- What if i gave you `forty`?
+- About `forty` miles an hour.
+- Custom- built.`forty` knots.
+- For more than `forty` years.
+- `Forty` dollars -- was $250.
+- ...`forty` thousand dollars!
+- I'm `forty`-three years old.
+- Not for about `forty` years.
+- `Forty`-eight hours, old man.
+- It is now five `forty`-three.
+- I've got `forty`-eight hours.
+- I wrote `forty` operas alone.
+- Maybe `forty`, fifty million.
+- ♪ with his `forty` fakirs oh!
+- A hundred-`forty`-five really.
+- Keep only `forty`-percent?
+- December seventh, `forty`-one.
+- `Forty`-two-hundred, i figure.
+- That's a dollar `forty`-seven.
+- We'll know in `forty` seconds.
+- Beats `forty` hours on a plane.
+- `Forty`-six yoyodyne employees.
+- One-`forty`-eighth of a second.
+- She looks thirty-five, `forty`.
+- You said `forty`-seven minutes.
+- [13] we don't need `forty` cars.
+- Ever try `forty` sleeping pills?
+- I guess it is eight `forty`-two.
+- She moved here in '`forty`-nine.
+- They're asking `forty` thousand.
+- Thirty minutes, `forty` minutes!
+- `Forty` bodies in the west block.
+- That was `forty`, fifty thousand.
+- You're `forty`-four years of age.
+- With the `forty` thousand dollars?
+- Because he's not `forty` feet tall.
+- It's about `forty` miles from here.
+- I waited for `forty`- five minutes.
+- Maybe `forty`, maybe not that much.
+- We were married `forty`-five years.
+- God help us all when you're `forty`.
+- You could have stopped `forty` cars.
+- About thirty-five, `forty` years old?
+- Dad must've had `forty` pounds on me.
+- I got five hundred and `forty` bucks.
+- Maybe `forty` minutes of screen time.
+- Twenty, `forty`, sixty, eighty, nine.
+- There's another `forty` million there.
+- Who gets the measles at `forty`-three?
+- That was back in july of `forty`-seven.
+- We got about `forty` bucks, sweetheart.
+- Everyone of the `forty`-seven would die.
+- Fifty six minutes, `forty` five seconds.
+- `Forty`-two million in adjusted dollars.
+- `Forty`-two was a lean year around here.
+- Hicks: sixty rounds left on "b. `forty`.
+- I'd say about thirty to `forty` minutes.
+- January seventh... nineteen `forty`-two.
+- Scene `forty`-two of "good for nothing".
+- Approximately `forty`-seven minutes, sir.
+- Why don't you buy it, only `forty` bucks.
+- No, my old man got a place, `forty` acres.
+- The combination is three-ten-`forty`-four.
+- Three months ago, i was `forty` years old.
+- I want my hundred and `forty`-five dollars.
+- There's a plane for moscow at five-`forty`.
+- Twenty, `forty`, sixty, eighty, a thousand.
+- Marriage has added `forty` years to my life.
+- `Forty`-five minutes later i reply, "not bad.
+- I mean, where is my `forty` acres and a mule?
+- Until then--the dollar `forty` stays with me.
+- Jeez, ray, fourth and `forty`, throw the bomb.
+- Our last sighting was `forty`-eight hours ago.
+- Send him `forty`-five bucks and blow the rest.
+- The time in montana is oh-eight-`forty`- five.
+                 

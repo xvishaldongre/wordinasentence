@@ -1,0 +1,107 @@
+---
+title: "became in a sentence | became example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "became"
+---
+- `Became` mister nobody.
+- `Became` what they are.
+- He `became` a big hero.
+- I `became` a secretary.
+- I `became` involved too.
+- He `became` a bitter man.
+- So you `became` the hero.
+- Why i `became` a murderer?
+- I `became` the schmuck.
+- So i `became` a wax expert.
+- They `became` other things.
+- I `became` a sort of mascot.
+- Tomorrow `became` yesterday.
+- Stephanie `became` my mother.
+- He `became` dizzy, that's all.
+- He `became` obsessed with her.
+- What `became` of the princess?
+- You just `became` a statistic!
+- But what `became` of your lamb?
+- It just kinda `became` a habit.
+- Somehow it `became` hereditary.
+- Instead i `became` the fear.
+- Is that why you `became` a nazi?
+- And she `became` very, very sick.
+- Apparently, he `became`... ill...
+- You just `became` a legend maker.
+- And, she `became` very, very sick.
+- In a word, nathan, i `became` you.
+- So you `became` a girl scout, huh?
+- `Became` a sort of joke between us.
+- I'm sorry that i `became` so upset.
+- Low `became` increasingly paranoid.
+- I `became` batman to fight the fear.
+- Rollo's the reason i `became` a cop.
+- That's why many of us `became` nuns.
+- We `became` two more sleepy indians.
+- He just `became` an american citizen.
+- I `became` the face behind the glass.
+- That's why i `became` an electrician.
+- But i just `became` a private citizen.
+- I `became` a false god all over again.
+- Is that why you `became` a journalist?
+- Since my little girl `became` a mom...
+- Twenty years later i `became` the son.
+- But then she `became` more comfortable.
+- Each job i took `became` more depraved.
+- Eugene, at 3:07, this `became` federal.
+- It `became` part of the ottoman empire.
+- Before it `became` a star in the movies?
+- I went yuppie and you `became` a hippie...
+- I guess i `became` the thing i feared most.
+- They think i `became` batman to fight crime.
+- Back before... before it `became` what it is.
+- Our little girl `became` one with the primes.
+- The two `became` different from either alone.
+- When i told you why i `became` an astronomer?
+- After he died, he `became` ...something worse.
+- Roberts and i eventually `became` friends.
+- Holding the rest of you `became` a moot point.
+- At that point it `became` every man for himself.
+- Being this dandy-esque figure `became` accepted.
+- Isn't it about time you `became` something else?
+- He `became` very...i don't know, very threatened.
+- So, the little boy `became` a fearsome bandit.
+- So he `became` a terrorist to kill his own people.
+- My father's wife also `became` the mother of a son.
+- They want to know who made us, what `became` of him.
+- Together they `became` lethal, together they killed.
+- What did you do before you `became` a bounty hunter?
+- He started as a worker -- then he `became` a soldier!
+- I `became` a bounty hunter because of cunts like you.
+- Once you left, she `became` a whole different person.
+- Well, a couple of years ago, sloth `became` a virtue.
+- Don't you think it's about time it `became` important?
+- Townsend believed, just as god `became` man in christ.
+- Gallager -- i bought a suit and `became` a businessman.
+- Then junior blew a fuse and i `became` their last hope.
+- Everything she knew or ever `became` was because of him.
+- I then `became` infatuated with these -- my "odorifics."
+- Well, it looks like this just `became` a shotgun wedding.
+- The more i reached out to, it, the fuller it `became`.
+- But they didn't move in till mr. blonde `became` a madman.
+- But when i was holding the shotgun, it all `became` clear.
+- Cause baby, you just `became` the strongest weapon we got.
+- He ceased to be anakin skywalker and `became` darth vader.
+- Christ, my past `became` nostalgia and no one even asked me.
+- Finally, i `became` one of the most iniquitous men yes, sir.
+- Just for a moment, i heard, saw, felt-- i `became` creation.
+- So things shifted a little bit then, `became` more eclectic.
+- But one man took pity on me: the man who `became` my viceroy.
+- But when i `became` a man i put away childish things... yeah?
+- It `became` something that actually divided brazil even more.
+- In time magua `became` blood-brother to mohawk to become free.
+- When i heard he loved chess i `became` obsessed with the game.
+- Then -- i `became` famous and whoever is famous is alone...
+- I spent three years at fuller seminary before i `became` a cop.
+- One of my disciple's took the crystal and `became` a sith lord.
+- Do you want know the real reason why i `became` a bounty hunter?
+- Harry `became` a football star �� made second team all american.
+- Since benjamin `became` ill we have our own hospital downstairs.
+                 

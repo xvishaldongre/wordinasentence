@@ -1,0 +1,107 @@
+---
+title: "deal in a sentence | deal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deal"
+---
+- I got a better `deal`.
+- I got the real `deal`!
+- It's a package `deal`.
+- It's not a big `deal`.
+- I wanna make a `deal`.
+- Sweet `deal` you have.
+- That's a sweet `deal`.
+- Then the `deal`'s off.
+- Then we have a `deal`.
+- They gave me a `deal`.
+- This is a done `deal`.
+- Time for a new `deal`.
+- What kind of a `deal`?
+- What's the big `deal`?
+- I can `deal` with that.
+- I can `deal` with this.
+- I got a `deal` for you.
+- I learn a great `deal`.
+- I'll make you a `deal`.
+- I remember that `deal`.
+- It could kill a `deal`.
+- I will `deal` with him.
+- Let's `deal` with that.
+- Our `deal` still holds?
+- That wasn't our `deal`.
+- That wasn't the `deal`.
+- Then here's the `deal`.
+- There isn't any `deal`.
+- This wasn't the `deal`!
+- Wasn't that the `deal`?
+- What's the `deal` here?
+- [whirring] what `deal`?
+- You can `deal` with me.
+- About the <u>`deal`</u>.
+- Big `deal` paper hanger!
+- Chicks get a raw `deal`.
+- Couldn't `deal` with it.
+- I want to make a `deal`.
+- Okay, here's the `deal`.
+- We have a `deal` or not?
+- Come on, go on... `deal`.
+- Forget the `deal`, jimmy.
+- He might make our `deal`.
+- Here's the `deal`, tubby.
+- I guess we have a `deal`.
+- I only `deal` with facts.
+- It helped a great `deal`.
+- It's my `deal` here, see?
+- Now we had a `deal` here!
+- So here's the new `deal`.
+- So what's the big `deal`.
+- * this is a drug `deal`?!
+- We could lose the `deal`!
+- ...what's the big `deal`?
+- Yeah, some `deal` i made.
+- You got a `deal`, mister.
+- Cut some kind of a `deal`.
+- He gave me a great `deal`.
+- He's offerin you a `deal`?
+- I `deal` in divorce cases.
+- I `deal` with my own shit.
+- I-i will `deal` the cards.
+- I know what the `deal` is.
+- I made a `deal` with josh.
+- I thought we had a `deal`.
+- I thought we had a `deal`?
+- It's no big `deal`, betty.
+- It's no big `deal`, chase.
+- It's no big `deal`, right?
+- It was part of the `deal`.
+- My `deal` is with rosanna.
+- _ okay, here's the `deal`.
+- On one condition-- `deal`.
+- So let's `deal` with that.
+- Some `deal` you did there!
+- So what's the `deal`, huh?
+- So what's the `deal`, now?
+- That's part of the `deal`.
+- We'll `deal` with it then.
+- Well, it was a big `deal`.
+- I can't `deal` with it.
+- I only `deal` with you?
+- You don't `deal` drugs?
+- Coulda cut a better `deal`!
+- Do we have a `deal` or not?
+- I'd have taken that `deal`.
+- I got a new `deal` for you.
+- I'll `deal` with her later.
+- I'll `deal` with you later.
+- Is it a `deal` or isn't it?
+- It's not that big a `deal`.
+- Keeping our `deal` is, too.
+- Max made a `deal` with you?
+- Maybe we can make a `deal`.
+- Mom, it's not a big `deal`.
+- My life is not some `deal`.
+- Ok, i'll make you a `deal`.
+- She wants to make a `deal`.
+- That's some fucking `deal`.
+- There is no fucking `deal`.
+                 

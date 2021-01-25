@@ -1,0 +1,61 @@
+---
+title: "life's in a sentence | life's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "life's"
+---
+- Well, `life's` not fair.
+- My `life's` an open book.
+- That was my `life's` work!
+- That was my `life's` work.
+- For `life's` ultimate drama.
+- `life's` funny... oh, my god.
+- `life's` one great big movie.
+- Charenton is my `life's` work.
+- Everybody's `life's` got static.
+- One of `life's` small pleasures.
+- What you'd call my `life's` work.
+- Oh, like your `life's` any better?
+- Vivian, `life's` not a fairy tale.
+- `life's` pretty cheap to that type.
+- It's one of `life's` real cruelties.
+- ♪ `life's` the same ♪ to get to you.
+- Pal, my whole `life's` an emergency.
+- This is my whole `life's` happiness.
+- `life's` too short, know what i mean?
+- So your `life's` not over yet, right?
+- I think your `life's` about to change.
+- Well, it was your `life's` work, hank.
+- There's always risk -- `life's` a risk.
+- My `life's` rushing in front of my eyes.
+- Other than my `life's` savings, that is.
+- That's my bankroll, my `life's` savings.
+- This is what your `life's` worth, bruno.
+- Cause here's a lesson: `life's` not fair.
+- `life's` swell if you don't try too hard.
+- `life's` too slippery for books, clarice.
+- That was her `life's` blood on the stage.
+- `life's` not like you saw it in the movies.
+- "my tonsils won't burn� as `life's` corners i .
+- So you genuinely believe my `life's` in danger?
+- `life's` looking pretty damn good at the moment.
+- It's why i came here, sort of a `life's` pursuit.
+- `life's` just been a little hard on you, sweetie.
+- `life's` work, criticisms, political aspirations.
+- "you think `life's` beautiful, don't you, jessica?
+- ♪ `life's` the same ♪ joyce, this is hawkins, okay?
+- To hear them ringing means your `life's` at an end.
+- I myself am often surprised at `life's` little quirks.
+- I've got a bad feeling these murders are his `life's` work.
+- ♪ `life's` the same ♪ our first candidate is dubya spuckler.
+- You can't make it your `life's` work looking for jacqueline. )
+- I don't know what her sorrow is, but her `life's` an empty one.
+- Problem is, his fantasy `life's` a lot better than his real one.
+- If your `life's` so good up there gena, what are you doing down here?
+- All that other mess i just file into the "`life's` too short" category.
+- My `life's` a little boring... you're not an unmysterious thang yourself.
+- Christ, everybody thinks `life's` a holiday or somethin' when you got a badge.
+- `life's` tough enough without causing yourself disappointment -- that'd be something.
+- Don't ever let anyone tell you his `life's` story if it is of a weary life full of sadness.
+- Every person who chooses the service of god as their `life's` work has something in common.
+                 

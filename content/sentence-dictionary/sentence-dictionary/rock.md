@@ -1,0 +1,107 @@
+---
+title: "rock in a sentence | rock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rock"
+---
+- Come on, let's `rock`.
+- Let's `rock` 'n' roll.
+- So i'm a `rock` hound.
+- We're off this `rock`.
+- We took to the `rock`.
+- I... found that `rock`.
+- I like `rock` and roll.
+- Next to it is a `rock`.
+- Yeah, `rock` particles.
+- You know `rock`-n-roll?
+- Cleaning a `rock`, otis?
+- Man, you were my `rock`.
+- Maybe that small `rock`.
+- `Rock` stars everywhere.
+- Uh... you were my `rock`.
+- Used to be like a `rock`.
+- "ten miles to big `rock`."
+- A *`rock`*, the barbershop.
+- Josie, you `rock` my world.
+- Yo, `rock`, gimme a dollar.
+- You're pawning the `rock`?!
+- You... `rock`... you don't.
+- Fossilized, `rock` hard.
+- C'mon let's `rock` an' roll.
+- Having a pint in the `rock`.
+- I gotta go to little `rock`.
+- I'm ready to `rock`, angelo.
+- Mr. `rock` and... no prob...
+- Well, let's `rock` and roll.
+- Carlos had some great `rock`.
+- Hey, `rock` -- what happened?
+- I just want to be a `rock`...
+- It's a country-`rock` ballad.
+- It's called a `rock` blanket.
+- Like the `rock` of gibraltar.
+- That's the `rock` star thing.
+- You know he got "the `rock`".
+- You're a fuckin' `rock` star.
+- A `rock` tied around its neck.
+- Inspector `rock` will pay you.
+- The fire is solid as a `rock`.
+- Cut `rock`, you forgot to duck.
+- Didn't want to `rock` the boat.
+- Did you go to a `rock` concert?
+- Having two pints in the `rock`.
+- That needle sank like a `rock`.
+- I will not crawl under a `rock`.
+- "twenty miles to bigger `rock`."
+- You must be one with the `rock`.
+- Didn't you feel the house `rock`?
+- This `rock`'s starting to freeze!
+- Wrap it around that `rock` twice.
+- Yeah, fell down and hit a `rock`.
+- He's like a `rock` star in london.
+- I just stubbed my toe on a `rock`.
+- We can take her out to red `rock`.
+- How come there's no `rock` 'n roll?
+- You're ready to `rock` and roll.
+- Now i'm gonna buy it on this `rock`.
+- Essentially, a great `rock` in space.
+- We still have to get to solid `rock`.
+- Look at us, two `rock` 'n' roll dicks.
+- Simple simon on the `rock`, go caller.
+- They say the evidence is `rock` solid.
+- ♪ to `rock` the night away ♪ hey, kid.
+- What about that `rock` island bastard?
+- When she came to the bar, sans `rock`.
+- Buddy's got a thing against ya, `rock`.
+- `Rock` for an ill-timed vietnam war ad.
+- Yeah, ya kinda remind me of the `rock`.
+- You planning to `rock` the boat at all?
+- Got caught on a `rock` as i was falling.
+- It uses sound waves to pulverize `rock`.
+- Listen, `rock`, you're a very lucky guy.
+- But they can't move through solid `rock`.
+- Ladder 20 was on the `rock` for training.
+- Seven dollars in any `rock`-and-gem shop.
+- What cha say, benny -- meet 'the `rock`.'
+- I believe in you, me, and `rock` and roll.
+- I crawled out from under the first `rock`.
+- You look like a `rock` star without a job.
+- I woke up the audience -- like punk `rock`!
+- Next stop: the 2:45 to detroit `rock` city!
+- Reliant could be hiding behind that `rock`.
+- She was as well known as the castle `rock`.
+- We've come all this way for a `rock` wall?!
+- I'm going to have a piece of the `rock`!
+- But we're between a `rock` and a hard place.
+- Now i'm gonna buy it on this fuckin' `rock`.
+- Well... this `rock` rotates every two hours.
+- We should have left this `rock` an hour ago!
+- I wonder if you might get me a `rock` hammer.
+- My ma told me to head south past that `rock`.
+- No.... and you never heard of `rock` 'n roll?
+- `Rock` & roll hall of fame with no pearl jam!
+- She fucks fighters and `rock` and roll stars.
+- I accidentally watched a 30 `rock` by mistake.
+- `Rock` music died in 1970, that's what i think.
+- Bitches want the `rock` they be a freak for you.
+- I'm soaked and i hit myself against that `rock`.
+                 

@@ -1,0 +1,70 @@
+---
+title: "student in a sentence | student example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "student"
+---
+- He's a good `student`.
+- A `student` had a crisis.
+- He's a medical `student`.
+- You're not a c `student`.
+- She's a nursing `student`.
+- You're a good `student`.
+- When you were his `student`?
+- Lazy... but a good `student`.
+- You were a `student` also.
+- Oh, um -- he's a new `student`.
+- Richardson is a fine `student`.
+- Are you not a good `student`?
+- Oh, he was such a great `student`.
+- Ah, this must be our new `student`.
+- She's a foreign exchange `student`.
+- She's an honor `student` at parker.
+- Was he a law `student` at the time?
+- That woman was a `student` of yours?
+- I'm a `student` of history, remember?
+- I try to be a `student`, dr. pilcher.
+- You look a little old for a `student`.
+- Any `student` of black magic can do it.
+- So much for raven's star `student`, huh?
+- What do you think of your `student` now?
+- Good gift for a college `student`... hmm.
+- He came on to every attractive `student`.
+- Ran into the new college `student`, rona.
+- You'll be the handsomest `student` there.
+- You're just a foreign exchange `student`.
+- It's just a `student` from the university.
+- So now you're asking for a `student` visa?
+- How about richard grayson, college `student`?
+- I was a good `student`, but i never finished.
+- That's not what `student` government's about.
+- This is a school... that's a `student`'s work.
+- An expired community college `student` id card.
+- In england, i was a poor `student` but i -- oh!
+- Seeing a `student` like you take root and bloom.
+- That's not what's his name...the grad `student`?
+- [music playing] you have been our star `student`.
+- Wasn't this ellsberg a `student` of yours at harvard?
+- Each one of you will be responsible for one `student`.
+- "teacher-`student` relations: how close is too close?"
+- That's not what i'm sayi-- so you fucked a `student`?!
+- I'm trying to find the name of a `student` who works here.
+- About this kid, this `student` of yours -- leer -- james leer.
+- Okay, but whatever you did -- the entire `student` body thanks you.
+- Once warner sees me as a serious law `student`, he'll want me back.
+- You were an excellent `student`, before all that clarinet nonsense.
+- Will was an exceptional `student` and a wonderful friend to all of us.
+- It seems to me i did read something about that incident as a `student`.
+- Charlie, couple of courses isn't enough to get you `student` deferred...
+- When the `student` has learned well, the teacher is no longer necessary.
+- It's your worst `student`, peter foley -- how do you grade me now, doctor?
+- If he thinks a `student` has talent, he'll take 'em on for next to nothing.
+- But he was singularly the most brilliant `student` i ever had in a classroom.
+- I met a dashing young grad `student` after a recital one night... she got it.
+- I went all the way back to his high school race for `student` body president.
+- I just want to know what's under that sheet... how is our little `student` doing?
+- There was a young `student`, exceptionally gifted, possessing of great intelligence.
+- It was either a feature on you or the new four-color ink pens at the `student` store.
+- Jud, do you remember the name of the `student` that died on louis's first day at work?
+- Ma'am, i know you were once well, the first ten million went to pay off `student` loans.
+                 

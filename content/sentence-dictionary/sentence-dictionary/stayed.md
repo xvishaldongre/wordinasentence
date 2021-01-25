@@ -1,0 +1,107 @@
+---
+title: "stayed in a sentence | stayed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stayed"
+---
+- I'm glad you `stayed`.
+- She `stayed` out late.
+- I should have `stayed`!
+- You `stayed` after all.
+- He `stayed` a long time.
+- I `stayed` at a friend's.
+- I `stayed` in my homeland.
+- She just `stayed` with us.
+- Joan collins `stayed` here.
+- She `stayed` in the car?...
+- Should have `stayed` a girl.
+- So they `stayed` in florida?
+- Alan `stayed` awake, at least.
+- I don't know why you `stayed`.
+- I shoulda `stayed` on the bus.
+- You could've `stayed` at home.
+- Cathy lee crosby `stayed` here.
+- I'm glad you've `stayed` clean.
+- I'm sure he just `stayed` over.
+- I'm glad he `stayed` here today.
+- We `stayed` in the santo pietro?
+- He said he `stayed` with maurice.
+- He `stayed` mostly in the shadows.
+- Don't worry, charlie `stayed` true.
+- I loved you when you `stayed` away.
+- We `stayed` in this gorgeous villa.
+- You `stayed` here again last night?
+- Do you think i should have `stayed`?
+- The land has `stayed` in the family.
+- At least i've `stayed` true to myself.
+- If i `stayed`, i wouldn't be starting!
+- Should've `stayed` down there, clarke.
+- He said he `stayed` here last november.
+- I `stayed` in her room last night, man.
+- I would have `stayed` there if i could.
+- Yeah, i've `stayed` in the organization.
+- I should have `stayed` in bed last night.
+- Jasper would understand why you `stayed`.
+- Because i `stayed` out all night one time.
+- I would have `stayed` anyway, dr. maxwell.
+- If we `stayed`, we could make a difference.
+- So i built another ... and that `stayed` up.
+- Don't you think maybe i should have `stayed`?
+- I should've `stayed` there, fought with them.
+- I `stayed` in bed till i heard him drive off.
+- She `stayed` in the cab, what's she gonna do?
+- Two or three years ago i would have `stayed`.
+- You should have `stayed` in bed this morning.
+- Rick `stayed` later after school with kristen.
+- We should have `stayed` and finished them off.
+- Yeah, we all `stayed` at the four seasons, man.
+- If he'd `stayed`, he would have been killed.
+- In thirty years he never `stayed` out all night.
+- He was very ill, i `stayed` with him for a while.
+- Even if they `stayed` in the car, the grid is huge.
+- You ever, you ever `stayed` in one of those places?
+- My sister jenny was sick and `stayed` home that day.
+- So instead, i `stayed` here, waiting for my comeback.
+- Think it'd be best if you `stayed` put while we talk.
+- You `stayed` there five times in the past six months.
+- I'm beginning to think we should have `stayed` in bed.
+- On august 11th, you `stayed` at the statler in boston.
+- She `stayed` at the four seasons last night with pony?
+- So people `stayed` together for that feeling of love...
+- We `stayed` up all night building castle byers... heda!
+- There was a time when i thought you might have `stayed`.
+- When i came upstairs, you `stayed` to finish your drink.
+- Why have you `stayed` so completely out of the limelight?
+- Looks like they've `stayed` inside since the snow started.
+- `Stayed` all day in that room thinking every noise was you.
+- If i'd `stayed` down there, maybe this wouldn't've happened.
+- That fucking fan `stayed` on the floor for about half a year.
+- This room looks like the manson family `stayed` here a month.
+- Then it started raining, but we `stayed` out there anyway.
+- But it looked so pretty i got off and `stayed` for a few days.
+- In the same night your uprising `stayed` my execution, come on!
+- You `stayed` stuck to that bitch's ass and you wouldn't let go.
+- I am sorry, but we `stayed` to save our friends, she was scared.
+- We `stayed` a little longer than expected with mr and mrs grant.
+- I'll bet you `stayed` up all night analyzing that dog you bought.
+- We've had four presidents who `stayed` here, lots of movie stars.
+- If i was gonna talk to myself, i coulda just `stayed` in the lamp.
+- You know, what if we `stayed` home [cheering continues] - aquaman.
+- If you `stayed` a crook, do you think you'd live to be my ripe age?
+- I `stayed` with you this far, and you didn't drop me, so i owe you.
+- I had the measles once -- and she `stayed` right by me every minute.
+- Well, they say here that when you went on a case, you `stayed` on it.
+- You just got off the train and `stayed` without knowing anyone there?
+- She'd never lived alone -- my grandfather died -- i `stayed` with her.
+- They buried their dead and for a long time their dead `stayed` buried.
+- You came in as yorgi's girlfriend and you `stayed` because it was fun.
+- You might have lived a longer life if you'd `stayed` where you belong.
+- So, i `stayed` in the ring, and that way i made sure everybody knew it.
+- Can you tell me who's trailer it was... and who `stayed` in the trailer?
+- He's only `stayed` alive this long because he's a good orderly and medic.
+- From a studio point of view, it would be better if simone `stayed` single.
+- If ye'd wanted a bloody cadillac ya should'a `stayed` in the bloody states!
+- Do you have any idea what you'd have to look forward to if you `stayed` here?
+- No, i `stayed` up all night trying to figure out how to protect my best friend.
+- Assuming you have `stayed` the entire night - and you're still alive, of course.
+                 

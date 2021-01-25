@@ -1,0 +1,63 @@
+---
+title: "puts in a sentence | puts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "puts"
+---
+- `Puts` money in machine.
+- Who `puts` mayo on a hot dog?
+- It `puts` me at such a distance.
+- She `puts` a knee into my groin.
+- `Puts` our entire agenda at risk.
+- This `puts` me in a peculiar hole.
+- I guess that `puts` me in my place.
+- Yes... that `puts` us right here...
+- I hate to think where that `puts` me.
+- Such showboating `puts` lives at risk.
+- That `puts` you in charge, lieutenant.
+- Who `puts` the plates on the top rack?
+- But he `puts` his mouth to her ears ...
+- `Puts` us in the middle of a sandstorm.
+- He `puts` his arm round alex's shoulder.
+- It `puts` me right back up on top again.
+- Now, she `puts` her heart into her work.
+- He `puts` food on your table and on mine!
+- That `puts` her at the head of the class.
+- On this floor, which `puts` him about here.
+- He goes over and `puts` his arm around buzz.
+- ♪ par for the course ♪ `puts` lives at risk.
+- Don't matter who camp 12 `puts` on the mound.
+- Otherwise he just `puts` `em right out there.
+- She `puts` a ken head earring in her right ear.
+- It `puts` everything in perspective, doesn't it.
+- Gee, that sure `puts` my problems in perspective.
+- Loving someone who `puts` their own life at risk.
+- That `puts` us pretty far away from paradise city.
+- Sighs as honora `puts` the frying pan on the stove.
+- But it's something that, that `puts` a person at ease.
+- Yeah, nobody `puts` 'em away like old what's-his-name.
+- How about jim -- it `puts` him in a sort of tough spot.
+- A man goes into the booth, `puts` the money in the slot.
+- He then `puts` in deposits into his girlfriends account.
+- Disappears the moment he `puts` me in front of that stone.
+- That `puts` me and the other new york families against you.
+- By the way, who `puts` the plates on the top rack, okay?
+- He `puts` his hands on me again i'll bury a slug in his ear.
+- You need someone `puts` her in the car, and you've got nothing.
+- He comes very close to her -- `puts` an arm behind her to the wall.
+- It paralyzes him... `puts` him into a coma... then keeps him alive.
+- Sometimes my father `puts` me in his lap and lets me steer the jeep.
+- It usually don't kill but it `puts` ya under fer a good night's sleep.
+- He `puts` his hand in your shirt and squeezes your tit till it's purple.
+- I don't know how she `puts` up with this damn speech impediment of mine.
+- Apollo creed says he'll let you stay three rounds before he `puts` you away.
+- He has to be hung like a horse, and that's why wilma `puts` up with his b.s.
+- He `puts` human life at risk and-- <u>no</u>, <u>i</u> <u>did</u> <u>not</u>.
+- He `puts` on a pair of dark 7-eleven shades, flips up his collar and skulks away.
+- It `puts` a roof over me and my daughter and you for as long as you want to stay.
+- Once you put the hotels on board walk and park place he `puts` a shoe in your way.
+- A ufo lands in back of your house and `puts` something in your dad and mom's necks.
+- When somebody really `puts` forth an effort, they deserve a little something extra.
+- Why in the h... linda, how come you don't see that sunny `puts` his shoes on right?
+- No matter how many times i leave the toilet seat up, she forgets and `puts` it down.
+                 

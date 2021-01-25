@@ -1,0 +1,107 @@
+---
+title: "funny in a sentence | funny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "funny"
+---
+- Buff is `funny`, okay?
+- But wasn't it `funny`?
+- `Funny` you never met.
+- I can even be `funny`.
+- Is he a `funny` uncle?
+- No one's that `funny`.
+- Oh yeah, real `funny`.
+- Said i looked `funny`.
+- That's `funny`, adele.
+- That's really `funny`.
+- Wouldn't be `funny`...
+- A bloody `funny` thing!
+- Because it was `funny`.
+- Hah hah you're `funny`.
+- He thinks it's `funny`.
+- I'm so fuckin' `funny`.
+- I'm the `funny` man!...
+- It's `funny`, isn't it?
+- It's `funny`, you knew.
+- It's not `funny`, doug.
+- It was kind of `funny`.
+- It wasn't that `funny`.
+- Looks a little `funny`.
+- Luck's a `funny` thing.
+- That is so not `funny`.
+- That's kind of `funny`.
+- What's so damn `funny`?
+- You are so not `funny`.
+- You know, it's `funny`.
+- Youse `funny`, or what?
+- Boy, you're `funny`, ma.
+- Don't be `funny`, chief.
+- `Funny` twist, isn't it?
+- I say something `funny`?
+- It's `funny`, all right.
+- It's `funny`, i suppose.
+- It's not `funny` at all.
+- People here are `funny`.
+- Something `funny`, levi?
+- This isn't `funny`, man.
+- Those shows are `funny`.
+- Very `funny`, smart ass.
+- Well, what's so `funny`?
+- Were you always `funny`?
+- You're a `funny` fellow.
+- You're not even `funny`.
+- 137 very fucking `funny`.
+- The `funny` thing is.
+- But it's not `funny` now.
+- `Funny` coincidence, huh?
+- `Funny` thing about that.
+- `Funny` time to say this.
+- Hey, no `funny` business.
+- I do, she's real `funny`.
+- I have a `funny` feeling.
+- I thought it was `funny`.
+- Martin, it's not `funny`!
+- Okay, that's not `funny`.
+- Only when it was `funny`.
+- Reads the `funny` papers.
+- That's `funny`--so was i.
+- That's very `funny`, sir.
+- That wasn't `funny`, man.
+- This isn't `funny`, okay?
+- This is the `funny` part.
+- Well, justice is `funny`.
+- Will thinks it's `funny`.
+- You're not being `funny`.
+- Because it was so `funny`!
+- Fans are `funny` that way.
+- `Funny` thing about bingy.
+- I hate `funny` exit lines.
+- I think... what's `funny`?
+- It's `funny` to look back.
+- Life is `funny`, isn't it.
+- So it wasn't `funny`, huh?
+- That's `funny`, mr. whale.
+- That's `funny` -- so am i.
+- That's very `funny`, buzz.
+- What's `funny` about that?
+- What's so fucking `funny`?
+- What's that `funny` smell?
+- You'll be walking `funny`.
+- You think this is `funny`?
+- Smell a little `funny`.
+- `Funny` couple, ain't they?
+- `Funny` stuff, `funny` stuff.
+- I don't think it's `funny`.
+- Oh, is this `funny` to you?
+- Really, this isn't `funny`.
+- Tell me a joke `funny` man.
+- That is so goddamn `funny`.
+- That's `funny` - i like it.
+- This makes me feel `funny`.
+- Very `funny`... sure it is.
+- Well, it's the `funny` man.
+- What's not `funny`, thelma!
+- What the hell's so `funny`?
+- Yeah, well, that's `funny`.
+- Do you think that's `funny`?
+                 

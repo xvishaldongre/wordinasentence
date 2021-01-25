@@ -1,0 +1,107 @@
+---
+title: "arm in a sentence | arm example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "arm"
+---
+- I can't move my `arm`.
+- Lucas, look, my `arm`.
+- No, an `arm`, he said.
+- They twisted my `arm`.
+- Your `arm`'s movement.
+- How much for the `arm`?
+- Sheila grabs his `arm`.
+- Sorry about your `arm`.
+- Wanna `arm` wrestle...?
+- Can you move your `arm`?
+- I need to see her `arm`.
+- Oh, i'll get that `arm`.
+- Oww, the `arm`, the `arm`!
+- Put your `arm` in there.
+- This... was in my `arm`.
+- He took my fucking `arm`!
+- I think i broke my `arm`.
+- Man: hold out your `arm`.
+- Hold out your right `arm`.
+- I lost my `arm` years ago.
+- Nobody twisted your `arm`.
+- The juju bites your `arm`.
+- We need a shot inna `arm`!
+- I'm sorry about your `arm`.
+- "my `arm`'s getting tired?"
+- Okay, bomb, `arm` yourself.
+- Put her `arm` on the table.
+- What happened to his `arm`?
+- You got a live `arm` there.
+- He was missing an `arm`.
+- I was hurt under your `arm`.
+- Machine pistol in the `arm`?
+- What happened to your `arm`?
+- Which `arm` did the honking?
+- All it takes is a long `arm`.
+- Get the numbers on his `arm`.
+- Just scratched my `arm`, why?
+- Look what it did to my `arm`.
+- That wristband on your `arm`?
+- They're crawling up my `arm`.
+- They wouldn't `arm` together.
+- But no short-`arm` inspection.
+- He has the codes on his `arm`.
+- Place your `arm` on the table.
+- Sure i can't twist your `arm`?
+- What i do now is strong-`arm`.
+- That beynon's got a long `arm`.
+- We need to get your `arm` free.
+- You shot me right in the `arm`!
+- You put an `arm` around her.
+- He said... take his right `arm`.
+- What did he say about the `arm`?
+- What should i do with the `arm`?
+- The tiny hairs on your `arm`.
+- Your `arm` will be fine, too.
+- "dummy 6" keeps losing his `arm`.
+- It appears to be... ... an `arm`.
+- There is a man's `arm` in my bed.
+- What happened to your `arm`, roy?
+- You don't have to twist my `arm`.
+- Do something about that `arm`.
+- A psychotic child broke his `arm`!
+- I see doubt oozing out your `arm`.
+- So where's this infamous `arm` now?
+- The park dude was missing an `arm`.
+- What are those marks on your `arm`?
+- I couldn't life my `arm` to sign it.
+- You gonna climb that with one `arm`?
+- I can hear him straight off my `arm`.
+- ...that boy damn near broke my `arm`.
+- Theo rushes buzz and grabs his `arm`.
+- Can you re-`arm` the bombs for impact?
+- They had to put two pins in his `arm`.
+- Your `arm`, you can't... you go first.
+- Your whole `arm` on the table, miriam.
+- He has a birth mark on his right `arm`.
+- Here, practice on your `arm` like this.
+- I don't want him twisting my `arm` off.
+- It's too heavy to wield with one `arm`.
+- Merrill -- i'm sorry i hurt your `arm`.
+- Walk out there and twist her `arm` off?
+- You could pick that scab on your `arm`.
+- Come here, might as well fix that `arm`.
+- He puts his `arm` round alex's shoulder.
+- I'll tell you what happened to my `arm`.
+- I'm gonna get my `arm` fixed out of this.
+- Simply did not want her `arm` lopped off!
+- That's why we're only breaking one `arm`.
+- With the `arm` that he didn't hack off...
+- You got a sheet the length of my `arm`...
+- You knew the `arm` slash was not "zorro."
+- The test of a soldier is not in his `arm`.
+- Would'a chopped my `arm` off if you asked.
+- Your `arm` speaks louder than your tongue.
+- Look, i'm just not wearing this `arm` band.
+- Lothar, can you `arm` the bombs for impact?
+- The small one underneath your right `arm`.
+- Broke his `arm` cause he was late on a debt.
+- He goes over and puts his `arm` around buzz.
+- I thought they were going to break my `arm`.
+                 

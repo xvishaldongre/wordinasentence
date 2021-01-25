@@ -1,0 +1,107 @@
+---
+title: "died in a sentence | died example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "died"
+---
+- Boys... `died` a hero.
+- Madeleine `died` here.
+- Nick `died` for me....
+- She `died` in my arms.
+- They tried and `died`.
+- You might have `died`.
+- All but one man `died`?
+- A lot of people `died`.
+- Everyone i knew `died`.
+- "he `died` a rich man."
+- Maybe i `died` already.
+- She `died`, why not me?
+- You mean nobody `died`?
+- You mean... she `died`?
+- Your mom `died` a hero.
+- Your victim has `died`.
+- Anya `died` in the fire.
+- [beat] she `died` young.
+- Eddie and tinker `died`.
+- Has she `died` of grief?
+- He `died` as he lived...
+- He `died` in stalingrad.
+- He `died` that day, too.
+- He `died` two years ago.
+- It `died` for your sins.
+- It's what he `died` for.
+- I've `died` a few times.
+- Lots must a `died`, too.
+- Two agents `died` today.
+- But i thought she `died`.
+- Did you know mama `died`?
+- He `died`... ... in 1972.
+- Isn't it time you `died`?
+- None of us `died`, right?
+- Six people `died`, right?
+- Something `died` in here!
+- Something `died` in here.
+- You know who else `died`?
+- They `died` like this?
+- David `died` most bravely.
+- He `died` a long time ago.
+- He `died` in the bathroom.
+- He `died` three weeks ago.
+- Her horse has just `died`.
+- My daddy `died` in prison.
+- My dreams `died` long ago.
+- Not since your dad `died`.
+- She `died` two days later.
+- That you just `died`, pal.
+- Yeah, and then she `died`.
+- And 35 of my people `died`.
+- Did you cry when he `died`?
+- He `died` at anothers hand.
+- He `died` couple years ago.
+- Is that the one who `died`?
+- Marcus aurelius has `died`.
+- People i love `died` today.
+- Ran into a tank and `died`.
+- She `died` a long time ago.
+- She `died` in the hospital.
+- They `died` so we can live.
+- Aww, the little bird `died`.
+- Ever since the day i `died`.
+- I don't know how you `died`.
+- My daughter `died` long ago.
+- She `died` a few years back.
+- She `died` giving you to me.
+- She `died` when i was eight.
+- Winston up and `died` on us.
+- A lot of people `died` today.
+- He `died` a couple years ago.
+- People `died` for this, lexa.
+- She `died` in a car accident.
+- She `died` of a broken heart.
+- Smells like something `died`.
+- Smells like something `died`.
+- The night sister paul `died`.
+- Disciples `died` at your hand.
+- Four men just `died` in there!
+- He knew my husband who `died`.
+- He should have `died` in here.
+- How many `died` on flight 180?
+- I `died` enough for one night.
+- I would die the way he `died`.
+- My sister `died` in a convent.
+- She `died` the following year.
+- So it `died` when it come out?
+- That guy, the one that `died`.
+- That's how he `died` you know.
+- Agents who `died` in the field.
+- She was the one who `died`.
+- Apparently, your sister `died`.
+- Because i `died` in episode 31!
+- He `died` of a massive rupture.
+- I know how chase really `died`.
+- Kings `died` and kingdoms fell.
+- My mother `died` in childbirth.
+- Parents `died` when she was 13.
+- She could've `died` back there.
+- Since mom `died`... four years?
+                 

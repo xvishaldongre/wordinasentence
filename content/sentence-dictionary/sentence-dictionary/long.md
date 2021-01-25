@@ -1,0 +1,107 @@
+---
+title: "long in a sentence | long example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "long"
+---
+- As `long` as i'm here.
+- As `long` as it takes.
+- Could go a `long` way.
+- Don't take too `long`.
+- How `long` ago was it?
+- How `long` do we have?
+- How `long` do we have?
+- How `long` do we wait?
+- How `long` have i got?
+- How `long` is a while?
+- How `long` was i gone?
+- How `long` with ellen?
+- I take a `long` lunch.
+- It never lasts `long`.
+- It's 350 pages `long`.
+- It took a `long` time.
+- `Long` live theramini.
+- `Long` wait for a bus?
+- Sad hours seem `long`.
+- Shouldn't take `long`.
+- ...take a `long` view.
+- That's a `long` story.
+- That was a `long` one.
+- The list is so `long`.
+- Yeah, `long` time ago.
+- A `long`, `long`, `long`...
+- A `long` way from home.
+- Are you staying `long`?
+- As `long` as i have to.
+- Babylon, `long` island.
+- But he has `long` hair!
+- But it won't be `long`.
+- Don't be `long`, ellen.
+- Has he been out `long`?
+- He's come a `long` way.
+- How `long` can he last?
+- How `long` did it take?
+- How `long` do you live?
+- How `long` has it been?
+- How `long` i been here?
+- How `long` were you...?
+- How `long` were you in?
+- How `long` will i live?
+- How `long` will you be?
+- How `long` you staying?
+- I'm `long` past saving.
+- It's a `long` ways yet.
+- It's been a `long` day.
+- It's come a `long` way.
+- It's taking too `long`.
+- It was a `long` trip...
+- It won't be `long` now.
+- It�s been a `long` day.
+- I waited for so `long`.
+- I won't be that `long`.
+- `Long` as charlie says.
+- `Long` you for another?
+- Maybe it's `long` gone.
+- Never is a `long` time.
+- So `long`, delinquents!
+- So `long`, young fella.
+- So why the `long` face?
+- That's gone `long` ago.
+- That won't last `long`.
+- This gonna take `long`?
+- This won't last `long`.
+- This won't take `long`.
+- Took you `long` enough.
+- Won't take them `long`.
+- A `long`, `long` time ago.
+- As `long` as we have to.
+- Aw, it's a `long` story!
+- A year is a `long` time.
+- Been a `long` time, bob.
+- But how -- how `long`--?
+- But how `long` is a day?
+- But that's `long` since.
+- But that was `long` ago.
+- He stayed a `long` time.
+- How `long` ago was that?
+- How `long` can you last?
+- How `long` can you stay?
+- How `long` does he have?
+- How `long` does it last?
+- How `long` does it take?
+- How `long` is the aisle?
+- How `long` until launch?
+- How `long` was i asleep?
+- How `long` will it take?
+- How `long` will that be?
+- How `long` you had this?
+- In a really `long` time.
+- It can't be that `long`.
+- It's a `long` story, bo.
+- It's been a `long` time.
+- It's been `long` enough.
+- It's `long`... how `long`?
+- It's not a `long` drive.
+- Maybe that's too `long`.
+- Not for `long`, richard.
+                 

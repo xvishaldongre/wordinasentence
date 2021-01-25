@@ -1,0 +1,7 @@
+---
+title: "warranting in a sentence | warranting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "warranting"
+---
+## Unfortunately, we have no example sentences for warranting                 

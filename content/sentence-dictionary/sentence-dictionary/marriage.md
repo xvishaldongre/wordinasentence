@@ -1,0 +1,107 @@
+---
+title: "marriage in a sentence | marriage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "marriage"
+---
+- How's your `marriage`?
+- My `marriage` is fine.
+- The `marriage` is off.
+- What of our `marriage`?
+- No, your `marriage` bed.
+- Your `marriage` to anne!
+- A `marriage` certificate?
+- I'm ready for `marriage`.
+- `Marriage` is happy news.
+- Oh, my `marriage` to anne.
+- That's `marriage` for you.
+- My `marriage` is the worst.
+- Of a `marriage` in turmoil.
+- The lady from my `marriage`.
+- I'm not ready for `marriage`.
+- The `marriage` already ended.
+- I want out of this `marriage`.
+- The sweet fruits of `marriage`.
+- What says he of our `marriage`?
+- You aren't `marriage` material.
+- You're not `marriage` material.
+- The `marriage` ended in divorce.
+- What's the deal with `marriage`?
+- Like a `marriage` made in heaven?
+- They don't believe in `marriage`.
+- I give that `marriage` six months.
+- I'm not against `marriage` per se.
+- Out of respect for our `marriage`.
+- Standard for a mayfair `marriage`.
+- Who gives this girl in `marriage`?
+- An unhappy `marriage`, for example.
+- Are you proposing `marriage` to me?
+- I was talking about our `marriage`.
+- No, the `marriage` isn't a fiction.
+- Our `marriage`... it just got sick.
+- Probably had an unhappy `marriage`.
+- My `marriage` was one long headache.
+- Westley had no money for `marriage`.
+- `Marriage`, does that get easier?
+- Communication is bad for a `marriage`.
+- How's the `marriage` part working out?
+- No one can profit from the `marriage`.
+- No wonder your `marriage` didn't last.
+- Rick, `marriage` will be good for you.
+- This `marriage` was never consummated.
+- The `marriage` - is that a fiction?
+- I know a thing or two about `marriage`.
+- Listen, i ain't a `marriage` counselor.
+- She was tryin' to save your `marriage`.
+- We don't think `marriage` is important.
+- But for a woman `marriage` is surrender.
+- I mention `marriage`, all of a sudden...
+- Is the `marriage` off then, miz wharvey?
+- `Marriage` can really complicate things.
+- Now, forget about `marriage` for a while.
+- Wait - don't tell me: unhappy `marriage`?
+- You walked out on a five year `marriage`.
+- Delay this `marriage` for a month, a week.
+- How is your wife, fredo...your `marriage`?
+- It's about our `marriage` for fuck's sake.
+- Why did you keep your `marriage` a secret?
+- I thought you had a pretty good `marriage`.
+- Looks like 'rest home' for this `marriage`.
+- Sold in `marriage` and half way to america.
+- Sometimes i forget our `marriage` birthday.
+- Turned out to be a lot like our `marriage`.
+- We started going to a `marriage` counselor.
+- `Marriage` has added forty years to my life.
+- No matter what it did to our `marriage` -- ?
+- No, the `marriage`'ll take place as planned.
+- Ohm i would have been... one `marriage` ago.
+- What're you, a fucking `marriage` counselor?
+- You should have been a `marriage` counselor.
+- Did our `marriage` ever mean anything to you?
+- Lampert's the name on the `marriage` license.
+- You're still trying to -- `marriage` license!
+- I mean, i ain't a `marriage` counselor-- yeah.
+- He was talking to me and leon about `marriage`.
+- I'm tellin' you, boy, keep away from `marriage`.
+- Plus, it ended my `marriage` -- sure i loved it!
+- It would be a bad habit to bring to a `marriage`.
+- Our `marriage` is a business just as surely as...
+- Our `marriage` is just a memory implant -- agghh!
+- Shall i tell my sisters that we oppose `marriage`?
+- There's an intelligent way to approach `marriage`.
+- You can run from `marriage`, but not your parents.
+- I had to quit; recapping was ruining my `marriage`.
+- Prior to your `marriage`, what was your profession?
+- For once in this `marriage`, you did the wrong thing.
+- My hunch is she's just torn up an unhappy `marriage`.
+- Take no further steps toward `marriage` until we meet.
+- This is just a nasty little `marriage` of convenience.
+- Wait here -- you want to know my idea of a `marriage`?
+- You don't know squat about the dynamics of `marriage`.
+- Not even our closest friends knew about our `marriage`.
+- I was grilling ann about your `marriage` this afternoon.
+- Maybe your `marriage` should lay off grains for a while.
+- She's far too busy with the `marriage` guidance council.
+- After nine years of `marriage`, we were closer than ever.
+- Who the hell carries their `marriage` certificate around?
+                 

@@ -1,0 +1,107 @@
+---
+title: "dare in a sentence | dare example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dare"
+---
+- I'm refusing a `dare`.
+- Molly, truth or `dare`?
+- Don ' t you even `dare`.
+- Don't you <u>`dare`</u>.
+- I triple-dog-`dare` you.
+- And, `dare` i say, pwned?
+- How `dare` you accuse us?
+- You don't `dare` kill it.
+- Andrew -- how `dare` you!!
+- Don't you `dare` touch me!
+- Hey, tess, truth or `dare`?
+- `Dare` i ask for this dance?
+- Don't you `dare` say a word.
+- You're looking for a `dare`.
+- `Dare` say you can be taught.
+- Don't you `dare` smartass me!
+- How `dare` you say that, zev?
+- But don't you `dare` say that.
+- Don't you `dare` patronize me!
+- How `dare` you try to test me?
+- I wouldn't `dare` answer that.
+- Don't you `dare`, i'll be back!
+- How `dare` you say you love me.
+- Bart, you have to take a `dare`.
+- That i don't `dare` repeat here.
+- Hey, how about that for a `dare`?
+- How `dare` you put him in a cage!
+- No one will `dare` harm you again.
+- You `dare` call me a supervillain?
+- How `dare` you bring a panicky lie.
+- It's libelous; you wouldn't `dare`.
+- Scared of a little truth or `dare`?
+- Hey, heda, don't you `dare` give up.
+- Don't you `dare` to be civil with me!
+- How `dare` you speak to me like that?
+- That's why i... oh, don't you `dare`.
+- Don't you `dare` ask me that question.
+- Whatever you do, don't `dare` drop it.
+- Oh, it's that kid who refused a `dare`.
+- How `dare` you stop me doing god's will!
+- How `dare` you write on that blackboard!
+- No one will `dare` retaliate against us.
+- Can't help it... ahh... don't you `dare`.
+- Don't you `dare` forget... december 30th.
+- Grampa, dad says i have to take a `dare`.
+- How `dare` you talk to me in this manner?
+- How `dare` you tell me to run my affairs!
+- Why did someone `dare` you to have homer?
+- I thought we were playing truth or `dare`.
+- `Dare` i ask the fate of it previous owner?
+- I `dare` him to move that desk out of here.
+- Layla, i'm... - don't you `dare` apologize.
+- You won't `dare` to interfere with me here.
+- Don't you `dare` give me a letter grade.
+- Lily-- and you-- don't you `dare` lie to me!
+- I `dare` you dudes to find a curlier scenario.
+- She wouldn't `dare` get up there on the stage.
+- You `dare` to challenge the power of darkness?
+- Don't you `dare` talk about my mother that way!
+- How `dare` you tell me what god tells me to do!
+- Zack, i `dare` you not to fall in love with me.
+- Don't you <u>`dare`</u> talk to others about me.
+- I didn't think she'd `dare` come back to peking!
+- Use it, and no one will `dare` oppose you again.
+- How `dare` you call him "dad" in front of al.
+- How `dare` you bring this to me on ascension day?
+- They probably don't think anyone would `dare` try.
+- You wouldn't `dare` to do any such thing on daisy.
+- Beautiful, do you `dare` enter the cave of horrors?
+- Don't you `dare`, you'll never hear from him again.
+- Do you think they would `dare` do anything like that?
+- How `dare` this person take advantage of my weakness.
+- I wanted it that day too, but didn't `dare` tell you.
+- No one would `dare` to move against you now you rest.
+- I've got all as and- don't you `dare` talk back to me!
+- Love yourself, and -- you `dare` criticize my father?!
+- Ontari: how `dare` you bring skaikru game over, man!
+- Try looking into that place where you `dare` not look.
+- Don't you `dare` tell me that wasn't a proper kiss!
+- Until my father `dare` disagree with the great hank pym.
+- How is it a mortal `dare` dictate to the faerie folk?
+- But don't you `dare` undermine what i'm trying to do here.
+- How fucking `dare` you cast skye davidson in that part?
+- I can't think of one person to whom i `dare` recommend him.
+- This wretched girl -- how `dare` she speak to us like that?
+- How `dare` you -- do not lecture me about treaty violations.
+- I tell you he hasn't and he wouldn't `dare` use it if he had.
+- Eight days from tonight, exactly one a.m. be there if you `dare`.
+- As long as you're around, i'm sure the sun wouldn't `dare` go out.
+- No one's taking anything -- how `dare` you take that away from me.
+- It's just that my movie is so- how `dare` you talk to me like that!
+- She doesn't `dare` passing before the open door again to join leon.
+- We're your parents, so don't you `dare` talk to me disrespectfully.
+- How `dare` you bring skaikru then he had a fund-raiser for equipment.
+- [door opens] you know, this whole helpful guide act, i `dare` you not to.
+- You wouldn't `dare` spoil the only thing what do you think's gonna happen?
+- What i saw the other night, i didn't `dare` believe, betsy -- you know why.
+- Don't you <u>`dare`</u> say that .. <u>i believe you</u> .. no .. not now ..
+- I'm only interested... how `dare` you think i'm in a position to be pressured...
+- Wear your uniform and every decoration, and let them despise you, if they `dare`.
+                 

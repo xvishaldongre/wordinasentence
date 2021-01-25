@@ -1,0 +1,97 @@
+---
+title: "aware in a sentence | aware example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "aware"
+---
+- I'm not `aware` of it.
+- Trust me, i'm `aware`.
+- We're `aware` of that.
+- No, i wasn't `aware`...
+- Are you `aware` of that?
+- Are you `aware` of this?
+- Not that i'm `aware` of.
+- I'm `aware` of that, sir.
+- I'm very `aware` of that.
+- I'm well `aware` of that.
+- Yes, i'm `aware` of that.
+- You just weren't `aware`.
+- No, is regan `aware` of it?
+- He's not even `aware` of it.
+- Yes, i'm well `aware` of that.
+- We're `aware` of your position.
+- He knows you're `aware` of that.
+- At least, none that i'm `aware` of.
+- Oh, she's `aware` of you all right.
+- Just so you nerds are `aware`, addy?
+- I'm `aware` of the geneva convention.
+- The precogs aren't even `aware` of us.
+- Are you `aware` of last night's events?
+- I wasn't `aware` that we needed saving.
+- Why wasn't i made `aware` of this bill?
+- I've been `aware` of that for some time.
+- I am `aware` of dr. argon's frustrations.
+- I'm well `aware` of this asinine article.
+- We are `aware` of your rates, mr lombard.
+- It looks like you were `aware` of someone.
+- I'm `aware` of my responsibilities, mister.
+- I�m well `aware` of your stake in this, 007.
+- You're `aware` of when the music is playing.
+- I'm also `aware` that we just lost our pilot.
+- I'm `aware` of mister spock's qualifications.
+- I'm beginning to... be `aware` of that, john.
+- I wasn't `aware` there was any law against it.
+- Is there something i should be made `aware` of?
+- Are the police `aware` you dated the victim?
+- I hate to do this with a psychopath i'm `aware`.
+- Were you `aware` of mr. marsh's heart condition?
+- You are `aware` of the penalties for perjury...?
+- Only you would know i would be `aware` of it.
+- I am `aware` of it, but it is beauty's privilege.
+- I am well `aware` of your talents, miss grayston.
+- I'm `aware` clarke has merged with the other a.i.
+- I'm `aware` clarke has merged with the other a.i.
+- Starfleet, are you `aware` of our currant status?
+- Was he `aware` of the importance of this occasion?
+- I am `aware` of what a condition red alert implies.
+- Ann, in life one has to be `aware` of hidden agendas.
+- Oh, sailor you're so `aware` of what goes on with me?
+- Lieutenant, the admiral is `aware` of the regulations.
+- Only a handful of people are `aware` of its existence.
+- We have become `aware` of these concepts only recently.
+- Were you `aware` that his brother was killed in a fall.
+- I believe he wasn't `aware` that he was ingesting cocaine.
+- Are you `aware` of the pride there is in what you're saying?
+- She's a woman who is very much `aware` of her own sexuality.
+- It becomes self-`aware` at 2:14 a.m. eastern time, august 29.
+- Oh, i'm well `aware` of what the government did, i assure you.
+- Your wife is `aware` of or has evidence of your activities?
+- If it is unfortunate, i do not care, for i am not `aware` of it.
+- Are they `aware` of your not so positive portrayal of greek life?
+- As i said, we weren't `aware` of aids, then, or how it is spread.
+- I'm also `aware` our leverage - children i work with usually are.
+- You're `aware` that this woman was party to the so-called exorcism.
+- I wonder if you're `aware` of the trust you endanger, jean-luc picard.
+- I wasn't `aware` there were any newcomers at the rank of detective yet.
+- Now, have you been read your rights and are you `aware` of the charges?
+- Sir, were you `aware` at any time of the use of alcohol among the crew.
+- I simply want you to be `aware` of this because you'll be happier for it.
+- That, if, we have been `aware` of... would have saved everyone on the plane.
+- Do you think i haven't noticed ... do you think i wasn't `aware` of the drift?
+- I'm `aware` of that, but i don't think he's in any condition to make requests.
+- I'm `aware` that i don't look so great, but i thought you'd be glad to see me.
+- She was too old to remarry, she had no passions or ambitions i was `aware` of.
+- Work on becoming `aware` of the force... learn to feel its presence within you.
+- You were `aware`, when you worked with maria torres, that she had aids, correct?
+- Well, constable... are you `aware`... to be honest, you are not what we expected.
+- Besides, i know i can give something now that i wasn't remotely `aware` of before.
+- I am sure that you are `aware` of the horrible allegations against jim cunningham.
+- Look, i don�t think you�re fully `aware` of what you�re playing with here, mister.
+- You're making too much out of it...i'll bet you were the only one `aware` of it...
+- But you are `aware`, he served in your civil air patrol unit when he was a teenager.
+- So you are `aware` of the difference between a lesion and a bruise, is that correct?
+- She used to pose nude for me... and i thought or assumed my father was `aware` of it.
+- I'm well `aware` of how pleasant the weather is in rome at the present time thank you.
+- We've been `aware` of some very serious vampire activity in this town for a long time.
+- If, as you say, they've done this many times they'd be well `aware` of the implications.
+                 

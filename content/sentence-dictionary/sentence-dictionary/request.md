@@ -1,0 +1,71 @@
+---
+title: "request in a sentence | request example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "request"
+---
+- This isn't a `request`.
+- Did you `request` this case?
+- I presume on your `request`.
+- En route, `request` bravo 410.
+- Is that the queen's `request`?
+- You think this is a `request`.
+- `Request` emergency assistance.
+- Are you neglecting my `request`?
+- What an extraordinary `request`!
+- At the `request` of the commander.
+- Not as a condition -- a `request`.
+- I was undiplomatic in my `request`.
+- Let us say that it is my `request`.
+- I came down at the queen's `request`.
+- It's the patient's `request`, doctor.
+- Oh, probably just a picture `request`.
+- `Request`; life support systems check.
+- Sir, i'd like to `request` a furlough.
+- Oh, that's nice... ...at her `request`.
+- I `request` to be relieved of my duties.
+- I made no `request` to go out riding today.
+- It's michael's `request`...for your safety.
+- `Request` you direct us to the coordinates.
+- I think that's a pretty reasonable `request`.
+- Mustang, this is maverick, `request` a flyby.
+- I am disinclined to acquiesce to your `request`.
+- `Request` permission to beam aboard immediately.
+- `Request` permission to take the hood off, tommy.
+- Hey, doesn't the rabbit even get a last `request`?
+- Has turned down my `request` for relief on the debts.
+- You know what i mean is that a `request` or a command?
+- At the cereal bar, you can `request` nothing but prizes.
+- He heard lady guenevere's `request` and he said nothing.
+- Sir, i wish to reconsider my `request` to drop out, sir.
+- Our first `request` is that you allow us to build a road.
+- Did i `request` thee, maker, from my clay to mould me man?
+- On the day of the murders what did the defendant `request`?
+- `Request` permission to guard the prisoner tonight -- what?
+- Sounds like heavy artillery... `request` removal, mr. grant.
+- It was a matter of forming the `request` in the proper terms.
+- `Request` computer study of soil samples for geological aging.
+- Papa said only to comply with any `request` you might make of me.
+- This is tom hagen; i'm calling for don corleone, at his `request`.
+- Colonel, i didn't `request` this transfer because you're my father.
+- Explain precisely what has taken place, and `request` instructions.
+- No sicilian can refuse any `request` on his daughter's wedding day.
+- `Request` security procedure and access to project genesis summary.
+- The nature of a `request` for information, along with the response.
+- The president would support a reasonable `request` for an increase.
+- Your honor, i would `request` a direct answer to a direct question.
+- ... can i just say 'no' to your kind `request` and leave it at that?
+- I'll `request` the scientists from pacific-tech to monitor the drop.
+- You must believe me when i tell you that he made no `request` of me!
+- Look, elaine, i... `request`; comprehensive electrical systems check.
+- Perhaps i could write the state senate and `request` funds from them.
+- Tell the captain that i am disinclined to acquiesce to his `request`.
+- Captain it would be impossible to turn down such a gracious `request`.
+- We did a little digging on jim trudell at sergeant zydowski's `request`.
+- The high court of israel turned down his `request` to live as a 'returned jew.'
+- Exit, above so thrive my soul-- i gave thee mine before thou didst `request` it!
+- It's going to have to do for now, considering that it's my car that's up for `request`.
+- Because they know that no sicilian will refuse a `request` on his daughter's wedding day.
+- Will `request` one at twenty-five thousand based on your prior record and risk of flight.
+- `Request`; self-analysis of rok hardware and software systems regarding behavioral changes.
+                 

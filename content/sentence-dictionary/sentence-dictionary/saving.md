@@ -1,0 +1,107 @@
+---
+title: "saving in a sentence | saving example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "saving"
+---
+- I've been `saving` it!
+- I've been `saving` it.
+- I was `saving` myself.
+- Canada is `saving` us!!
+- I'm long past `saving`.
+- Me, `saving` your life.
+- Thanks for `saving` me.
+- I'm `saving` lives here.
+- You don't want `saving`.
+- Am i `saving` a princess?
+- `Saving` our asses again.
+- What are you `saving` for?
+- While he was `saving` you?
+- You're `saving` this town.
+- Hey, we were `saving` that!
+- There's no `saving` it now.
+- I'm `saving` them for later.
+- `Saving` the treats for bob?
+- While you were `saving` her?
+- You're bent on `saving` her.
+- You'll go on `saving` me?
+- For `saving` your life, abby.
+- I am `saving` the human race.
+- `Saving` them some paperwork.
+- I wasn�t `saving` you from him.
+- `Saving` people is not our job.
+- She's `saving` herself for you.
+- Thank you for `saving` my life.
+- `Saving` a lady in distress, eh?
+- Who you `saving` the dishes for?
+- Your junior life-`saving` buddy?
+- Doing what, `saving` our friends?
+- Have you tried not `saving` it?
+- He'd been `saving` to buy a farm.
+- I'm `saving` us from both of you!
+- I was `saving` you from yourself.
+- `Saving` it for the sunday times.
+- Thank you for `saving` our lives.
+- You think that he's `saving` you.
+- I'm `saving` them for a rainy day.
+- And `saving` everyone, why is that?
+- By the way, thanks for `saving` me.
+- For `saving` the people that i love.
+- `Saving` yourself for the main event.
+- You're the one we need `saving` from.
+- You're the reason they need `saving`.
+- I wasn't aware that we needed `saving`.
+- You'd be `saving` the life of a friend.
+- Guess she thinks raven's worth `saving`.
+- I'm not mad at you for `saving` my life.
+- It means she's `saving` them for clarke.
+- Because i'm `saving` the man that i love.
+- I am `saving` you... you have to go back.
+- But i've got a couple things i'm `saving`.
+- Nevertheless, i thank you for `saving` us.
+- It's the model you've been `saving` up for.
+- Oh, he-man, thank you for `saving` my life.
+- Taking down commies, `saving` your friends.
+- You just care about `saving` your own skin.
+- Killing the jujus, and `saving` the khuisar.
+- `Saving` the human race by migrating - what?
+- That shit's `saving` your life, you asshole!
+- Fuckin' guy's been `saving` your ass, albert.
+- How do you justify `saving` people like that?
+- I don't... forgive me for `saving` your life.
+- If we have any hope of `saving` those people.
+- It's on me... for `saving` my ass back there.
+- `Saving` them from a lifetime of enslavement.
+- Well, i want to thank you for `saving` my life.
+- From `saving` bellamy's life from those oh, god.
+- _ has tried to keep us from `saving` our friends.
+- Just `saving` the tax-payers the cost of a trial.
+- Tall guy, not that good-looking, needed `saving`.
+- The number of people we're `saving` today is 814.
+- That's the only thing `saving` your sorry ass.
+- If he had no idea, why did the jews need `saving`?
+- I just wanted to thank you for `saving` my people.
+- You don't give a damn about `saving` lives at all!
+- You know, i always thought i'm `saving` christmas.
+- You think he's `saving` you, but he's killing you.
+- He probably thinks he's `saving` you from something.
+- I wanted to thank you, woody, for `saving` my flock.
+- Thanks for `saving` me from a fate worse than death.
+- Cooperation is our only chance of `saving` ourselves.
+- About `saving` people's lives, so, it was you, johnny.
+- For `saving` your life and nursing you back to health.
+- Maybe you mistyped the name when you were `saving` it.
+- You know, at least clarke was `saving` her own people.
+- Is that the going rate for `saving` the woman you love?
+- Dr. goodall, i can't thank you enough for `saving` lolo.
+- That's all the gratitude i get for `saving` your hide.
+- [kiss] this thing and get on with `saving` the human race.
+- You tried to steal all those memories you're now `saving`.
+- Now, i was in the habit of `saving` my newspaper till then.
+- [sniffs] why you don't care about `saving` your people now.
+- Thanks again for `saving` the wandering minstrel boy, here.
+- There will be no `saving` her from the prisons of alderaan.
+- Word on the street was he was `saving` up for an operation.
+- * i mean, it's not like he's `saving` the world or anything.
+- So, after `saving` wilbur, can i talk to you for a second?
+                 

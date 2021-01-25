@@ -1,0 +1,52 @@
+---
+title: "owned in a sentence | owned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "owned"
+---
+- Didn't know she `owned` one.
+- In eight years i `owned` it.
+- Now, i `owned` it completely.
+- He `owned` the water department?
+- Jeez, i've never `owned` anything.
+- You haven't `owned` up to anything!
+- Unless we are now `owned` by disney.
+- Privately `owned` by ... ... and now?
+- He `owned` the estate they lived on ...
+- I think the house is `owned` by the car.
+- You didn't tell me you `owned` a saloon.
+- I think she sent everything i ever `owned`.
+- Because you `owned` a boat for five minutes.
+- It was the only thing we `owned` of any value.
+- So it can be completely `owned` by the family.
+- He `owned` the entire water supply for the city?
+- I thought you said cross `owned` the department.
+- I've `owned` that little sucker for a long time.
+- Was i leaning against his car like i `owned` it?
+- Your fathered `owned` the entire "heaven" empire.
+- Even when i `owned` you in '66 you never had luck.
+- "you talk about the people as if you `owned` them.
+- Besides, i've never `owned` a roman general before.
+- Him and his family `owned` these islands 'round here.
+- I thought a gentleman was somebody who `owned` horses.
+- It's a nice place `owned` by an old couple named wyatt.
+- Land that happens to be `owned` by lex luthor enterprises.
+- Or hundred knives you've probably `owned` in your lifetime?
+- It's not as if the person you took it from really `owned` it.
+- That's the name of the slave- master who `owned` your family.
+- Cable `owned` a plot of woodland -- he'd go there on weekends.
+- Do you remember emilio digiorgio, `owned` the tavern in abruzzi?
+- Rafe's folks had a crop dusting business, `owned` their own planes.
+- Gus, webco, the webster industrial complex, is a family-`owned` cartel.
+- You know, ma'am, you remind me of a pearl-handled pistol i once `owned`.
+- Lastly, all privately `owned` radios are to be immediately impounded.
+- Avariciousness, envy, the desire to possess something `owned` by another.
+- It's `owned` by this like very rich ptitsa who lives there with her cats.
+- Everybody knows the whole chicken distribution network is `owned` by the klan.
+- The guy who `owned` the house before me had these heavy screen s put over them.
+- The hospital is `owned` by the archdioceses of... whose side are you arguing...?
+- Fella `owned` this place back then, dix dwyer, he let slip to louis that i played.
+- The hospital is `owned` by the archdioceses of ... whose side are you arguing ...?
+- Updating the condition of all bureau- `owned` vehicles in the southwest sector, sir.
+- A small minority thought that england was really theirs, they had made it, they `owned` it.
+                 

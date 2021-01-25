@@ -1,0 +1,80 @@
+---
+title: "federal in a sentence | federal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "federal"
+---
+- Gondorff is `federal`.
+- It's a `federal` bank.
+- `Federal` agents, ma'am.
+- That makes it `federal`.
+- `Federal` posseman's fee.
+- You are a `federal` agent.
+- `Federal` express for 'zavitz'.
+- That guy was a `federal` agent.
+- We assaulted a `federal` agent.
+- Why not the `federal` building?
+- `Federal` bureau of investigation.
+- Got a sheaf of `federal` warrants.
+- Young lady, i'm a `federal` agent.
+- Eugene, at 3:07, this became `federal`.
+- I'm gonna sign up for `federal` service.
+- `Federal` bureau of investigation, ma'am.
+- I worked homicide before i went `federal`.
+- Area rep for the `federal` assistance plan.
+- You'll get `federal` protection after that.
+- Impersonating a `federal` agent is a felony.
+- The `federal` building was too well guarded.
+- The operative word here would be "`federal`".
+- The whole goddamn `federal` government, bill!
+- I'm a `federal` marshal and you're under arrest.
+- I mean i got `federal` price controls on my oil.
+- I'm warning you -- it'll be a `federal` offense.
+- Not the young `federal` agent who wants your job.
+- See for yourself, `federal` agent, u.s. treasury.
+- A lot of my friends are doing `federal` service...
+- Carl is doing his `federal` and he isn't inferior.
+- Select uplink for `federal` communications office.
+- You were in lompoc usp, the `federal` penitentiary.
+- Come on, raymond, i'm a `federal` officer, i'm armed.
+- Probably safe in the hands of the `federal` government.
+- Agent little weasel, `federal` bura of your imagination.
+- He's got a dry cleaning business out on `federal` highway.
+- I have to catch `federal` express within about five minutes.
+- Is there anyway we can seduce this owl into `federal` court?
+- He's ranked number thirty-two in the `federal` prison system.
+- I've been thinking about applying for `federal` service, too.
+- What the `federal` emergency management agency's real power is?
+- Call in a <u>judge</u>, call in a `federal` <u>judge</u>, and...
+- I'm a `federal` marshal and you're under arrest, both of you guys.
+- Have `federal` agents jump out of the bushes with court orders?
+- Anti-american radicals who have killed `federal` officers out here!
+- The `federal` agent kinda half hinted ordell might of done beaumont.
+- Well, if you must know, bank teller at first `federal` of manhattan.
+- This man wearing the jacket identified himself as an `federal` agent?
+- Johnny, people get hurt... people get killed in the `federal` service.
+- Not cole's uncle but probably the sheriff's uncle in `federal` prison.
+- I hate you for coming here--like a `federal` marshal in a western film.
+- I want them to have `federal` protection under the paper's sponsorship.
+- We can go `federal` on your ass right now: ongoing criminal conspiracy.
+- We were sworn in on the constitution to protect `federal` matters, ray.
+- 'cause if he busted you, you'd play hell bonding out of `federal` court.
+- You mentioned a guy from l.a.p.d., but you didn't mention the `federal`.
+- But the threat was called in for the `federal` building across the street.
+- He uses you to get a line on ordell, make a case, then take him `federal`.
+- The `federal` bureau of investigation is not based on personal preference.
+- But, no, these guys show anyway, and commit murder upon `federal` officers.
+- The people on that list are being subpoenaed tomorrow by a `federal` judge.
+- ...has been tentatively identified as an employee of the `federal` government.
+- I want to be in a `federal` institution, away from chilton - and i want a view.
+- Your behavior is not funny and is wasting the time of the `federal` government.
+- Tell me, why in the world would someone like you ever become a `federal` marshall?
+- `Federal` bureau of investigation, special agent chet desmond and agent sam stanley.
+- This is a `federal` offense, i got kidnapping, armed robbery, they're gonna bury me!
+- I'll make it up to you -- we watched his father get dragged away by `federal` agents.
+- After i start work at first `federal` bank of manhattan, i'll be keeping you in style.
+- An indian reservation is within the jurisdiction of the `federal` bureau of intimidation.
+- I think treasury personnel are the most superstitious people in the `federal` government.
+- Last fall, i drove you from the palm beach county jail to the `federal` courthouse, twice.
+- They put the bomb in the building across the street because it did have `federal` offices.
+                 

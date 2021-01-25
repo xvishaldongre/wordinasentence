@@ -1,0 +1,93 @@
+---
+title: "quarter in a sentence | quarter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "quarter"
+---
+- At a `quarter` to five.
+- Give me next `quarter`.
+- You owe me a `quarter`.
+- First `quarter` revenue?
+- Have a `quarter`, chief.
+- About a `quarter` to one.
+- A `quarter` of a century?
+- It's a `quarter` to nine!
+- It's `quarter` to eleven.
+- `Quarter`-mile, that way.
+- It's a `quarter` past ten.
+- It's your lucky `quarter`.
+- Top `quarter` of the class.
+- Uh, third `quarter` take...
+- It doesn't need a `quarter`.
+- Here's your `quarter`, brett.
+- `Quarter` and search by twos.
+- Was one fifty last `quarter`.
+- He comes around the `quarter`.
+- It's a `quarter` past two now.
+- Now, that's worth a `quarter`.
+- First `quarter`, like the coin.
+- It's only a `quarter` of twelve.
+- That's a `quarter` of a century.
+- A `quarter` of a million dollars.
+- I sprint the last `quarter` mile.
+- It'll be ready at a `quarter` of.
+- Put me down for a `quarter` deck.
+- You gotta `quarter` for the juke?
+- I need... do you have a `quarter`?
+- You see the three-`quarter` socket?
+- Start checking around the `quarter`.
+- You got nuked in the last `quarter`.
+- Every day i gave him a `quarter`.
+- The champion of the french `quarter`.
+- Guy's looking for a `quarter`'s worth.
+- Helmsman, one-`quarter` impulse power.
+- He'll be running at the `quarter` pole.
+- You were a beat and a `quarter` behind.
+- I'm hoping to live in the old `quarter`.
+- Fuuuuuck a `quarter` of a million, jimmy.
+- You guys just earned your first `quarter`.
+- I'll give you another `quarter` to shut up.
+- Mr. reiss-- i need a `quarter`-- okay, kid.
+- A `quarter` to seven, will that be all right?
+- You can always enroll for the winter `quarter`.
+- Fool, you're thirty cents away from a `quarter`.
+- I just axed him for a `quarter` for the jukebox.
+- One `quarter` pound of all-american beef, nancy.
+- That means we got the cowboys without `quarter`.
+- If i'm not there by `quarter` of, i'm not coming.
+- I just asked him for a `quarter` for the jukebox.
+- I'll give the enemy no `quarter` -- not a dime...
+- It's `quarter` to 10... leaving, now go to sleep.
+- There must be a `quarter`-million out there, edgar.
+- You'll be lucky to clear a hundred and a `quarter`.
+- Which is why we bid out a `quarter` of our projects.
+- How 'bout a backward hex with a three-`quarter` twist...?
+- It's ok. and they can smell it from a `quarter` mile away.
+- You do not run out on your moth... you owe me a `quarter`.
+- He went out at ten to one and came in at `quarter` to five.
+- Sometimes it got up to a `quarter` maybe-- --off the record.
+- One more direct hit on the back `quarter` and we're done for.
+- Take us forward, thrusters only, one `quarter` impulse power.
+- I heard this `quarter` his profits are gonna be supernumerary.
+- There sure ain't nothin' here worth no `quarter` of a million.
+- I'll bet you a `quarter` that eyewash stuff was nonprescription.
+- We're only about a `quarter`-mile from cave entrance number five.
+- Just acquired us a `quarter`-interest in the game at the oriental.
+- I didn't want to find out i wasn't for her in the fourth `quarter`.
+- The proceeds this `quarter` will be supernumerary due to the -- okay.
+- Yeah, i uh, have a buyer who's looking for about a `quarter`'s worth.
+- About a `quarter` of a mile on either side of willet creek--" well--no.
+- Lieutenant, one `quarter` impulse power... aft thrusters - saavik, sir.
+- Aft thrusters ahead one `quarter`, port and starboard at station keeping.
+- I'll bet you another `quarter` he hasn't said anything to mr. haller.
+- If i loved you a `quarter` of an hour ago, now i should love you even more.
+- Hey, you're a good `quarter`-horse, kid, but you can't go a route of ground.
+- But stay within a `quarter` mile...i've got a three-mile radius on the monitor.
+- ...and she doesn't always - she could at least lose half a pound or a `quarter`.
+- Clay shaw's done so much for the city with all that restoration in the `quarter`.
+- It still doesn't make sense, but it isn't worth any `quarter` of a million either.
+- Mr. bartholomew -- if i had a `quarter` of a million dollars, believe me, i'd know it.
+- Which will be the second you walk in the door you want a `quarter` for the binoculars?
+- A tipoff in the right `quarter` to take his fingerprints and-- you leave the kid alone.
+- The wind is `quarter` from astern ... by the time we're underway, we'll never catch them.
+                 

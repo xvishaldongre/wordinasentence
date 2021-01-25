@@ -1,0 +1,94 @@
+---
+title: "prepare in a sentence | prepare example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prepare"
+---
+- `Prepare` to move out!
+- `Prepare` to roll out.
+- Then let us `prepare`.
+- I'll `prepare` the body.
+- `Prepare` for departure.
+- `Prepare` for warp speed.
+- Have the doctors `prepare`.
+- Please `prepare` carefully.
+- I need a moment to `prepare`.
+- `Prepare` to leave spacedock.
+- To `prepare` for your return.
+- `Prepare` for crushing defeat.
+- You should `prepare` yourself.
+- All craft `prepare` to retreat.
+- I only wanted to `prepare` you.
+- `Prepare` for a bitter harvest.
+- To `prepare` i'd be more ready.
+- `Prepare` for crushing defeat.
+- '`prepare` for miniaturization'...
+- `Prepare` these as battering-rams!
+- I had them `prepare` your favorite.
+- `Prepare` a sedative, just in case.
+- We'll `prepare` a welcome for them.
+- `Prepare` for a change in lifestyle.
+- We need to `prepare` for succession.
+- Lock on target and `prepare` to fire.
+- `Prepare` for the boning of your life.
+- `Prepare` for a site-to-site transport.
+- "begin to `prepare` for the inevitable."
+- `Prepare` to receive the act of penance.
+- Marge, `prepare` a congratulations kebab.
+- We must `prepare` for the coming of gozer.
+- Now, `prepare` to be a little disappointed.
+- How long will it take you to `prepare` this?
+- Worf, `prepare` a spread of photon torpedoes.
+- Is to `prepare` kids for the jobs of tomorrow.
+- You can have your servants `prepare` a dinner.
+- We're doing everything we can to `prepare` here.
+- Geordi... `prepare` the shuttle- bay for arrivals.
+- He sends me ahead of time to `prepare` the ground.
+- That's why i told jester to `prepare` your papers.
+- Who taught her son to fight...organize, `prepare`.
+- Load torpedo bays, `prepare` to fire on my command.
+- Mathesar, i need you to `prepare` pods for my crew.
+- Anne, `prepare` yourself for the treat of your life.
+- `Prepare` to transport the 'hostages' to the ship...
+- Rodger young, `prepare` to receice outgoing fire...!
+- The next time i saw my parents, `prepare` to advance.
+- We have to `prepare` you for an audience with sophie.
+- All craft, `prepare` to jump to hyperspace on my mark.
+- The formula is simple, but it takes time to `prepare`.
+- `Prepare` a tear harness for the female... stop, please!
+- `Prepare` for a crick in the neck in sixteen years time.
+- Didn't you `prepare` it with the celery before my lecture?
+- Oh, going subatomic isn't something you can `prepare` for.
+- Please `prepare` to deliver genesis to us upon our arrival.
+- `Prepare` the ship for departure at oh-seven-hundred hours.
+- Uhura, send to commander, reliant: `prepare` to be boarded.
+- Well, going subatomic isn't something you can `prepare` for.
+- You need to `prepare` your bodies for the thin air up there.
+- How long did you and mr. treves `prepare` for this interview?
+- Aye, sir worf, `prepare` a full phaser spread, zero elevation.
+- Escort her to quarters and have monk `prepare` a tranquilizer.
+- That you didn't `prepare` for by doing your pre-combat checks.
+- Blind him again, and `prepare` <u>him and her</u> for the pigs!
+- You'd think with all this time to `prepare`, i'd be more ready.
+- `Prepare` for first stage shut-down and separation on my mark...
+- They settle into their positions, and `prepare` to fire and die.
+- Let's `prepare` the guns, ammo and whatever else we can scare up.
+- Now, david, i want you to `prepare` yourself; your friend is dead.
+- `Prepare` them for college, and the rest will take care of itself.
+- We can hope for the best, but i have to `prepare` for retaliation.
+- We can hope for the best, but we have to `prepare` for retaliation.
+- As we `prepare` to give our brothers and sister to the sea, hey, hey.
+- It's late, i'm afraid it's time for my patients to `prepare` for bed.
+- You will distract the bat and bird while i `prepare` to freeze gotham.
+- Well, you `prepare` to hear from a guy for when we got back to earth orbit.
+- Staff sargeant detailed me to `prepare` firewood for the break- fast cooking.
+- Folks, i've just been told to shut down the hole and `prepare` to move the rig.
+- I suggest you study the disks ripley has been kind enough to `prepare` for you.
+- I'm afraid we have to `prepare` for the possibility is as dead as the wasteland.
+- If you'll excuse me, i've got a jack vincennes press conference to `prepare` for.
+- `Prepare` to enter the atmosphere... we'll use the ionospheric boundary to shake him...
+- ... meanwhile, i'd like to `prepare` you for a colonoscopy, so we can take a look inside.
+- <i></i> i tried to `prepare` myself, but i didn't know he would be like, like <u>this</u>.
+- I like..i `prepare` number one dessert.. special for you and pussy.. at least i won lunch.
+- We need you to `prepare` a detailed briefing on the ship's systems for the salvage crew...
+                 

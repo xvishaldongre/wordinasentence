@@ -1,0 +1,61 @@
+---
+title: "ordinary in a sentence | ordinary example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ordinary"
+---
+- Extra `ordinary`, yes.
+- It's very... `ordinary`.
+- He's an `ordinary` person.
+- But just `ordinary` people.
+- He's not an `ordinary` man.
+- If only she was `ordinary`.
+- It's not an `ordinary` look.
+- `Ordinary` matter, like ours?
+- She's an `ordinary` roommate.
+- This is no `ordinary` arrest.
+- It's a very `ordinary` matter.
+- They're not `ordinary` crooks.
+- This is no `ordinary` weather.
+- He's no `ordinary` marshal.
+- I can kill an `ordinary` person.
+- I don't think they're `ordinary`.
+- Oh, nothing out of the `ordinary`.
+- You look pretty `ordinary` to me...
+- An `ordinary` name and a fancy name.
+- The blade is no `ordinary` metal.
+- Lee oswald was no `ordinary` soldier.
+- All right, then, an `ordinary` matter.
+- I can kill a hundred `ordinary` people.
+- Nothing out of the `ordinary`.... good.
+- "all you'll have are `ordinary` stories.
+- No - most `ordinary` guy in the world, me.
+- Seemed pretty god damned `ordinary` to me.
+- I'm just your `ordinary` small businessman.
+- Have no idea what `ordinary` people thought.
+- No, it's just an `ordinary` rabbit isn't it.
+- That noise don't come from no `ordinary` bird.
+- Fella could get used to a life this `ordinary`.
+- I'm looking for anything out of the `ordinary`.
+- I want to make an `ordinary` thing out of guns.
+- Dan's just an `ordinary` guy, but he talks to me.
+- Now look, i'm picking up this `ordinary` telephone.
+- Is that what you believed `ordinary` people thought?
+- That was made out of the metal of `ordinary` things.
+- Take an `ordinary` man and turn him into an assassin.
+- The case is hardly one for an `ordinary` jury -- i do!
+- We're not talking about any `ordinary` prisoner hoffman!
+- I assure you i feel a very `ordinary` man at this moment.
+- `Ordinary` people get blacklisted for leftist affiliations!
+- I don't think that was any `ordinary` army taxi... mmmnnn...?
+- You think you're superior, but you're quite an `ordinary` man.
+- Deeds, the opera is not conducted like any `ordinary` business.
+- Working the net isn't that different from `ordinary` undercover work.
+- Jerry, i talked to you about the habits of an `ordinary` wild leopard.
+- "sophie's choice", "`ordinary` people", "kramer vs. kramer", "gandhi".
+- I don't think mr. sheldon likes for things to be out of the `ordinary`.
+- At this point the worst thing i could do is anything out of the `ordinary`.
+- I'll tell you what scares me -- stumbling through life, like an `ordinary` jerk.
+- Because, that means that we're dealing with an `ordinary`, flesh and blood killer.
+- But no `ordinary` criminal would have the extensive military and medical expertise you do.
+                 

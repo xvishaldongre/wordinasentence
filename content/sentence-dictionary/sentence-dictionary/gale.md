@@ -1,0 +1,56 @@
+---
+title: "gale in a sentence | gale example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gale"
+---
+- Being `gale` weathers.
+- `Gale` he's got dewey!
+- Hi, `gale`, any leads?
+- All right, mrs. `gale`.
+- Please, call me `gale`.
+- The body of joan `gale`!
+- Jesus `gale` what happened?
+- What about `gale` weathers?
+- You know the story, `gale`.
+- Sid doesn't need you `gale`.
+- God damn you `gale` weathers!
+- About the `gale` girl, i mean.
+- You know the joan `gale` girl?
+- I'm dorothy `gale` from kansas.
+- `Gale` weathers would find a way.
+- I'm not gonna let them get `gale`!
+- `Gale`, your engine's still running.
+- No, `gale`, i don't have any rights.
+- You'll find joan `gale` in that box.
+- How many books have you sold, `gale`?
+- Do you really mean it this time `gale`?
+- It's not right, `gale`... bodybuilding!
+- This has nothing to do with you `gale`.
+- We're gonna feature `gale`'s cast more.
+- What's your favorite scary movie `gale`?
+- I never should have gone along with `gale`.
+- `Gale` it's that complex yet shallow quality.
+- What's wrong with just being `gale` weathers?
+- No, wait... no, `gale`, i'm just getting started.
+- That was all `gale` and dollar signs and ratings.
+- I want to see the original pictures of joan `gale`.
+- Listen, `gale`, i know you're emotionally involved.
+- Created by that little tabloid twit `gale` weathers.
+- Now, `gale`, you were so instrumental in my freedom.
+- `Gale` -- amen boy scout, now answer the fucking door!
+- You're supposed to be on top of this, `gale`, don't...
+- I know that, john... `gale`... you're a very nice person.
+- This kind of satire is a high wire act in a `gale` storm.
+- Also `gale`'s onto something, digging into his background.
+- I guess `gale`'s going to be pissed she missed her exclusive.
+- Brace yourself, `gale`, all of this is actually not about you.
+- `Gale`, i don't know what i'm doing from one moment to the next.
+- `Gale`, i know this is a bad time and all but what if we try it out again.
+- No, `gale`, you are not a hardbitten, cynical hard-ass, you just think you are.
+- `Gale` shoulda aired that bit first, she's the one who found this clown laplante!
+- Hey, mattie, dig into the morgue and send up all the art you have on joan `gale`.
+- I go to the police station and do my job, and you go back to being `gale` weathers.
+- As long as we have `gale` and there's no mystery guy, we're the center of the story.
+- Up all night in the rain, in stormy `gale` force wind, tornado and fucking earthquakes.
+                 

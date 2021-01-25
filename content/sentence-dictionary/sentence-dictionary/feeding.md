@@ -1,0 +1,51 @@
+---
+title: "feeding in a sentence | feeding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feeding"
+---
+- `Feeding` on that deer.
+- It was `feeding` there.
+- It's her `feeding` ground.
+- Kurt's been `feeding` him.
+- Why are you `feeding` him?
+- I'm just `feeding` the cats.
+- You may see things -- `feeding`.
+- So you're still breast-`feeding`?
+- Either that or `feeding` the worms.
+- Because they're `feeding` each other.
+- Domino is `feeding` her pet goldfish.
+- The hydrofarm is barely `feeding` us.
+- Blue-haired woman is `feeding` a baby.
+- | | hector | he was `feeding` it bread.
+- Only `feeding` the disease, eh, martin?
+- Ooo, whatcha been `feeding` that thing?
+- Even when this farm stopped `feeding` us.
+- _ the hydrofarm is barely `feeding` us now.
+- He's been `feeding` me information on dmitri.
+- So you got all the tunnels `feeding` in here.
+- When i saw it, it was `feeding` on that deer.
+- How did you feel `feeding` doughnuts to a horse?
+- Luther, continue `feeding` the gps her position.
+- Speaking of `feeding` things, what about dinner?
+- We don't know that -- will you keep `feeding` me?
+- Murphy says that del kept `feeding` the fire, - hyah!
+- They're just disgusting, jealous, bottom-`feeding` swine.
+- Did you ever think of `feeding` doughnuts to human beings!
+- Lilly's making billions `feeding` prozac to depressed dogs.
+- The purpose for `feeding` is to keep the beasts on our side.
+- "he's dead," joe said, and kept right on `feeding` me bullets.
+- I guess they'll want `feeding` and all, out here all day long.
+- Sally, please don't tell sophia that i'm not breast `feeding`.
+- Well, my horses are `feeding`, as you may observe, mr coghill.
+- Then i've just been `feeding` everyone, putting everyone to bed.
+- We're not help- ing her any, `feeding` her lies and more lies.
+- So maybe the care and `feeding` of my nerve-endings is my business.
+- Hey tyrone, you figure `feeding` our children is gonna make the man jumpy?
+- Small as it is you won't be able to continue `feeding` it for very long.
+- * `feeding` you a line of crap about john g. * being some local drug dealer.
+- The hydrofarm is barely `feeding` us now, oh, we're not here to make friends.
+- You come in here and you start `feeding` into her hallucinations hey, don’t move.
+- Down there `feeding` horses and raising kids, you won't have a thing to worry about.
+- What're you talking about -- jesus, mike, somebody's been `feeding` you a line of crap.
+                 

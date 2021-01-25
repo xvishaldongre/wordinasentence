@@ -1,0 +1,107 @@
+---
+title: "discuss in a sentence | discuss example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "discuss"
+---
+- He won't `discuss` it.
+- We don't `discuss` it.
+- What shall we `discuss`?
+- We'll `discuss` it later.
+- I won't even `discuss` it.
+- We have much to `discuss`.
+- We'll `discuss` this later.
+- We got nothing to `discuss`.
+- We have things to `discuss`.
+- I don't want to `discuss` it.
+- I want to `discuss` business.
+- We have nothing to `discuss`.
+- We should `discuss` the plan.
+- And we are gonna `discuss` it.
+- Did she `discuss` it with you?
+- I don't wan to `discuss` work.
+- There is nothing to `discuss`.
+- Let's `discuss` betty mayfield.
+- Then we can `discuss` my heart.
+- There's no time to `discuss` it!
+- We'll `discuss` it on the plane.
+- We should at least `discuss` it.
+- You can't `discuss`, we said.
+- I refuse to `discuss` it further.
+- I wish to `discuss` your brother.
+- Please don't, don't `discuss` ...
+- I can't `discuss` another patient.
+- Let us not `discuss` this further.
+- Look, can we `discuss` this later?
+- We've got some things to `discuss`.
+- You want to `discuss` symbols here?
+- I'm not permitted to `discuss` this.
+- Let's `discuss` it when i'm unbound.
+- We are here to `discuss` our merger.
+- We can `discuss` the plans in lhasa.
+- Can we -- uh -- `discuss` this later?
+- Of course, there's that to `discuss`.
+- Then we can `discuss` reconciliation.
+- You and me have nothing to `discuss`.
+- I don't have time to `discuss` it now.
+- I just thought we should `discuss` it.
+- To `discuss` building them a compound.
+- I'm sure you'll have much to `discuss`.
+- We'll `discuss` that in the board room.
+- Could we `discuss` that some other time?
+- Why don't we `discuss` that after class.
+- Yeah, let's not `discuss` that too much.
+- One thing we need to `discuss` is timing.
+- We don't `discuss` business at the table.
+- You may `discuss` my predicament, doctor.
+- A gentleman does not `discuss` his health.
+- I don't want to `discuss` my tomb, per se.
+- We haven't anything to `discuss` with you.
+- I never `discuss` love on an empty stomach.
+- You and i can `discuss` it on the walk home.
+- I do not wish to `discuss` this with you.
+- Daddy, i want to `discuss` the prom with you.
+- Do not `discuss` anything over the telephone.
+- Is what you want something you can `discuss`?
+- He refuses to `discuss` it in any serious way.
+- Maybe we should `discuss` this somewhere else.
+- How do i `discuss` operations over an open line?
+- I have something i'd like to `discuss` with you.
+- I'll `discuss` what's on my mind when i want to.
+- I wish i had more time to `discuss` this matter.
+- But never `discuss` the family business with him.
+- If you didn't `discuss` my condition with marcus.
+- I'm not going to `discuss` this with you anymore.
+- There are a few other points we should `discuss`.
+- We can `discuss` all this some other time, susan.
+- We've got plenty of time to `discuss` that later.
+- What makes you think i'd `discuss` that with you?
+- Jeff -- wives don't nag anymore -- they `discuss`.
+- The lady and i have private business to `discuss`.
+- I am not presently disposed to `discuss` that, sir.
+- Next week we'll meet and `discuss` further details.
+- There's something we need to `discuss`, little one.
+- We'll sit down and we'll `discuss` the whole thing.
+- Which is why i want to `discuss` your private life.
+- I read passionately, and i like to `discuss` things.
+- Oh, yah, but there's not a heckuva lot to `discuss`.
+- You wanna go downtown and `discuss` this officially?
+- I can't `discuss` -- -- no, we need to handle it now.
+- So, let's `discuss` how we're gonna do this... thing.
+- I'm here to `discuss` a matter of some unpleasantness.
+- I need to `discuss` the fate of the last mountain man.
+- I need to `discuss` the fate of the last mountain man.
+- That no one else has the airtime to fill to `discuss`.
+- That, you have to `discuss` with cbs business affairs.
+- You know, i like to talk film; `discuss` the critique.
+- We'll `discuss` him when you come back from california.
+- We�re not here to `discuss` your lack of a social life.
+- I'll `discuss` it with him right now... good-bye, chief.
+- I'll have to `discuss` that with my minister of finance.
+- Mr. fettes and i have professional matters to `discuss`.
+- And-and maybe, um...maybe we could `discuss` it sometime.
+- I'd appreciate an opportunity to `discuss` this with you.
+- I'll read your report, i'll `discuss` it with the others.
+- I'm afraid we've got some things to `discuss` here, jeff.
+- That puking pig jerses -- he won't even `discuss` you.
+                 

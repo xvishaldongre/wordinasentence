@@ -1,0 +1,85 @@
+---
+title: "excellent in a sentence | excellent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "excellent"
+---
+- `Excellent` work, joe.
+- An `excellent` quality.
+- `Excellent` work, puff.
+- In `excellent` condition.
+- This food is `excellent`.
+- He did an `excellent` job.
+- I'm an `excellent` lawyer.
+- No, don't say `excellent`.
+- The sets were `excellent`.
+- The wine - `excellent`.
+- That's an `excellent` idea!
+- That's an `excellent` idea.
+- That's an `excellent` plan.
+- That was truly `excellent`.
+- Yes -- an `excellent` idea.
+- Your cornea is `excellent`.
+- "no, don't say `excellent`."
+- It looks `excellent` on tape.
+- My blood work is `excellent`.
+- Well, i'll be -- `excellent`.
+- You have `excellent` english.
+- `Excellent` and a good length.
+- `Excellent`, ma'am, `excellent`.
+- I have an `excellent` teacher.
+- Anna is an `excellent` swimmer.
+- Well put, chauncey `excellent`!
+- An `excellent` question, doctor.
+- `Excellent` detective work, sir.
+- `Excellent` work, dr. nebbleman.
+- In town, in `excellent` condition.
+- `Excellent` performance, my friend.
+- I thought the play was `excellent`.
+- My men are `excellent` marksmen.
+- `Excellent`, alright, this is great.
+- I have `excellent` long-term memory.
+- Well, sir, i'm an `excellent` filer.
+- He makes an `excellent` omelette.
+- Bill and ted's `excellent` adventure.
+- Truly, you are an `excellent` mentor.
+- What makes you an `excellent` lawyer?
+- No, but we're making `excellent` time.
+- Well, they're all `excellent` reasons.
+- Your timing is `excellent`, mr. scott.
+- Oh, you were `excellent` tonight, pony.
+- I have had many `excellent` meals there.
+- I'm sorry - - i'm sorry - - `excellent`.
+- They do have an `excellent` lgbt policy.
+- What an `excellent` day for an exorcism.
+- You were an `excellent` teacher, george.
+- But remember shallow valley, `excellent`.
+- Then she should be an `excellent` dancer.
+- `Excellent` food too -- you should try it.
+- In training, they taught that `excellent`.
+- An `excellent` beginning let him be�a duke.
+- `Excellent`, but that's where peter come in.
+- Ned�i know�i know the speech is `excellent`.
+- We've got an `excellent` police jazz band.
+- I think you'd make an `excellent` big brother.
+- Hey, she's still a smart ass, `excellent` sign.
+- Schools are `excellent`, gives luna the kill code.
+- And, you seem in `excellent` health, your highness.
+- I'm not partial to desserts, but this is `excellent`.
+- `Excellent` notion- i used the same device myself once.
+- "kathryn is going to make an `excellent` wife one day."
+- I know where you can find an `excellent` editor-in-chief.
+- We file 'em all here, alphabetically -- hey, `excellent`.
+- It appears he missed an `excellent` chance to keep his mouth shut.
+- The duck is `excellent` and pairs nicely with the highliner pinot.
+- You were an `excellent` student, before all that clarinet nonsense.
+- I had a good man -- an `excellent` man on the rue ponthieu, but h.q.
+- I was an `excellent` wife, a partner, a lover, a hostess and a friend.
+- It's amazing what `excellent` en- largements you can make from the negative.
+- Christ, they're asking for reparations... that would be an `excellent` start.
+- These places control us, and bitch about their teachers `excellent` question.
+- You have made such `excellent` use of it; i should think you will hate to leave it.
+- Could have been drunk a little sooner, but `excellent`...good character...what is it?
+- You�re an `excellent` father, but you feel guilty about the time you spend away from home.
+- I wonder, some time, would you pose for one of my sculptors who does very `excellent` work?
+                 

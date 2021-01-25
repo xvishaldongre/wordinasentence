@@ -1,0 +1,93 @@
+---
+title: "national in a sentence | national example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "national"
+---
+- What `national` tv...?
+- It's `national` security.
+- `National` cash register?
+- On `national` television.
+- The `national` spotlight.
+- Not `national` geographic.
+- I'll see you at `national`.
+- I work for `national` paper.
+- Max sayer -- `national` echo.
+- This is the `national` anthem.
+- How is this `national` security?
+- I'm a `national` merit finalist.
+- `National` marksman competition.
+- They're both `national` treasures.
+- 'hadda call in the `national` guard.
+- The city `national` on san vincente.
+- It's all over the `national` news now.
+- It's on `national` television, barnett.
+- Maine `national` and new england first.
+- Business aviation, `national`, one hour.
+- But what we need is `national` coverage.
+- I'm with the `national` security agency.
+- It was a `national` emergency - retired.
+- An essay contest... a `national` contest.
+- I was protecting the `national` security.
+- Hell, <u>`national`</u> <u>geographic</u>.
+- Mortgage department, first `national` bank.
+- They're forgetting the `national` interest.
+- Is this `national` security stuff boring you?
+- The `national` guard is on duty at the gates.
+- Getting your name in the `national` geographic.
+- You've heard of the `national` security agency?
+- The `national` safety council would be appalled.
+- They said it was a matter of `national` security.
+- You could sit and read the `national` geographic.
+- Say, an opera in german for our `national` theatre.
+- Shit, he'll probably call out the `national` guard.
+- During wartime the `national` suicide rate goes down.
+- We applied for a `national` historical plaque for it.
+- Andy usually just sends those to the `national` media.
+- Looks more like the readers of the `national` enquirer.
+- We sent a mission to the chinese `national` conference.
+- Why shouldn't i work for the `national` security agency?
+- You're a czech `national` and you're a russian `national`.
+- You were the head of the `national` intelligence agency!
+- Close to where the `national` cancer institute is located.
+- Could the mob influence the `national` media to go to sleep?
+- It's in the `national` park and it is forbidden to go there.
+- What are you, since when do you read the "`national` review"?
+- Two days ago a bulgarian `national` was murdered the same way.
+- All classified as secret on the grounds of `national` security.
+- "`national` security priority restricted and controlled secret."
+- A tape from the surveillance camera at the first `national` bank.
+- The proceeds were going to the `national` endowment for the arts.
+- We're being asked to cooperate in a matter of `national` security.
+- Let's just say that i'm putting sanity back on the `national` menu.
+- `National` geographic isn't exactly the hub of artistic inspiration.
+- Not for somebody who hit a man with his ball on `national` television.
+- Okay, we're looking for anything on the hawkins `national` laboratory.
+- There is classified information pertaining to our `national` security.
+- I'd be back on park avenue; i could support the whole `national` guard!
+- I don't think either metropolitan or `national` should cover the story.
+- I tracked it down in the library's catalogue of `national` yellow pages.
+- I've been nominated for membership in the `national` geographic society.
+- You've become a significant threat to the `national` security structure.
+- 'are you or are you not part of a plot to weaken our `national` defense?'
+- The `national` flower of albania, something..... now is it some festival?
+- Dr. arroway, let me first say -- michael kitz, `national` security advisor.
+- I think you didn't get that lot in the navy, doing your `national` service.
+- Like one of those "`national` geographic" specials with the topless chicks?
+- Valedictorian, `national` merit scholar todd's brother is jeffrey anderson.
+- I'm not a commander, there is no `national` space exploration administration.
+- Once the amendment passes, we go `national`, there's gonna be nowhere to run.
+- Do you really think that subject is quite appropriate for a `national` theatre?
+- If i found jimmy hoffa on `national` tv, i'd still have to retire in two years.
+- Last week an agency field officer went to make a buy from a russian `national`.
+- It's only the ellsberg thing, and if that comes out, it's "`national` security."
+- It's pretty odd when a man sports a hard-on that large on `national` television.
+- The bad news is the `national` guard has just asked me to resign after 18 years.
+- If he's escaped we'd have the `national` guard, cops'd be crawling through sewers.
+- Well how would you like his rotten carcass dug up and drug all over `national` tv?
+- Buffy, i'm gonna tell jeffrey you were playing with another man's hebrew `national`.
+- Sir, the speaker of the house attacked this administration on `national` television.
+- I know, and next to that is the police, hospital, fire, and probably `national` guard.
+- The w.c. fields fan club newsletter... oh my god, the `national` psoriasis foundation!
+- Your sending this message all over the world may well be a breach of `national` security.
+                 

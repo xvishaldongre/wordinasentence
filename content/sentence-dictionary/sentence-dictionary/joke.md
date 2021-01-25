@@ -1,0 +1,107 @@
+---
+title: "joke in a sentence | joke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "joke"
+---
+- I mean, it's a `joke`!
+- No, it's not a `joke`.
+- No `joke`, lieutenant.
+- Okay, `joke` about it.
+- That's a silly `joke`.
+- The report's a `joke`.
+- He's a `joke` a minute.
+- It was a `joke`, idiot.
+- Okay, is this a `joke`?
+- That's a `joke`, right?
+- You're making a `joke`.
+- A `joke` among my peers.
+- Don't `joke` about that.
+- It's a practical `joke`.
+- Only it wasn't a `joke`.
+- This is a `joke`, right?
+- You can't take a `joke`?
+- Can't take a `joke`, man?
+- Is this a fuckin' `joke`?
+- Is this a kind of `joke`?
+- It's just a cruel `joke`.
+- It's no `joke`, you know?
+- It was all just a `joke`.
+- Tell me this is a `joke`.
+- Tell us this is a `joke`.
+- Come on, this is a `joke`!
+- I'm like a `joke` to them.
+- Is it some sort of `joke`?
+- It's only a `joke`, mummy.
+- You think that's a `joke`?
+- By the end he was a `joke`.
+- I never `joke` about money.
+- Tell me a `joke` funny man.
+- That last guy was a `joke`.
+- This is not a `joke`, john!
+- What do you want, a `joke`?
+- I'm sorry, is that a `joke`?
+- Is this some kind of `joke`?
+- It's a little johnny `joke`.
+- It turns out, i am a `joke`.
+- It was just a stupid `joke`.
+- Don't even `joke` about that!
+- It's not a `joke`, all right?
+- This is a `joke` to you, huh?
+- This whole thing is a `joke`!
+- You weren't playing a `joke`?
+- Is that your idea of a `joke`?
+- Is this a fucking `joke` here?
+- Is this some kind of a `joke`?
+- It ain't no `joke` being poor.
+- What is this, a `joke`, right?
+- Don't make this a `joke`, rafe.
+- I do not `joke` in my proposal.
+- This isn't some kind of `joke`.
+- Would that constitute a `joke`?
+- You think this is all a `joke`?
+- He has his own idea of a `joke`.
+- I'll tell you that `joke` again.
+- No, i don't think it's a `joke`.
+- She must have her little `joke`.
+- Smile like i just made a `joke`.
+- I never get tired of that `joke`.
+- It's somebody's idea of a `joke`.
+- Don't `joke` around, little buddy.
+- Excuse me, what is that, a `joke`?
+- He's playing a stupid `joke`, sir.
+- Is it the old groucho marx `joke`?
+- Just a little `joke`, miss farmer.
+- Just... it was, just a bad `joke`.
+- Tell me a funny story or a `joke`.
+- Watch out for him, he's no `joke`.
+- What is this, some kind of `joke`?
+- You know it wasn't a `joke`, theo.
+- Became a sort of `joke` between us.
+- Because we didn't... what a `joke`.
+- See, that's what makes it a `joke`.
+- The avatar program is a bad `joke`.
+- You think this is a fucking `joke`?
+- A bad `joke`--but better than tears.
+- If this is a `joke`, it's not funny.
+- This is a `joke` in very poor taste.
+- Twelve years in prison is no `joke`.
+- What is this, a `joke` or something?
+- ...yes -- wanna hear a dirty `joke`?
+- Fuck 'em if they can't take a `joke`.
+- I didn't mean to make a `joke` of it.
+- If they can't take a `joke`, "f" 'em.
+- I never `joke` about business, raven.
+- That's not something to `joke` about.
+- That was a `joke` taylor, lighten up!
+- That was his `joke`, but he meant it.
+- You guys wanna hear a `joke` i heard?
+- You scorpios can never take a `joke`.
+- If this is a `joke`, i'm not laughing.
+- I think what you did was... no `joke`.
+- This better not be some freddy `joke`.
+- You can tell me a damn `joke` already.
+- Oh for pete's sake, it's only a `joke`.
+- You're a fucking `joke`, you know that?
+- But i have a `joke` for you before i go.
+                 

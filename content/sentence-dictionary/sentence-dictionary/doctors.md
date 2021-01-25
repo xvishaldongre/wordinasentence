@@ -1,0 +1,107 @@
+---
+title: "doctors in a sentence | doctors example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doctors"
+---
+- `Doctors` and lawyers.
+- Her `doctors` ... why?
+- And call the `doctors`.
+- Battling head `doctors`.
+- Her `doctors` killed her.
+- Have the `doctors` prepare.
+- He never goes to `doctors`.
+- Her `doctors` murdered her.
+- I know all about `doctors`.
+- Please ... we are `doctors`.
+- Uh -- to kill the `doctors`?
+- Her `doctors` murdered her. )
+- What are the `doctors` saying?
+- I've seen the best `doctors`--!
+- Maybe you know other `doctors`?
+- Yeah, well, you know `doctors`.
+- I would have switched `doctors`!
+- _ - so what'd the `doctors` say?
+- The `doctors` were not negligent.
+- What did your `doctors` do to me?
+- We're used to it - like `doctors`.
+- Do you know who her `doctors` were?
+- But did she have the best `doctors`?
+- I don't care what the `doctors` say.
+- Hey... `doctors` take forever, always.
+- He's got some good `doctors` out there.
+- The `doctors` had your billing address.
+- They need `doctors` in new orleans too.
+- You must see the `doctors` immediately.
+- Before the `doctors` let anyone see her.
+- `Doctors` are practically never at home.
+- `Doctors`, people who have to touch you.
+- `Doctors` are like goddam auto mechanics.
+- I'm sorry, but we have no `doctors` here.
+- He plays a violin in a `doctors`' quartet.
+- Johnny, the `doctors` explained -- i know.
+- Our `doctors` are seen by appointment only.
+- There are a lot of dog `doctors` out there.
+- They've got patients posing as `doctors`...
+- He's good... and i'm an expert on `doctors`.
+- `Doctors`, there's a situation on the ground.
+- `Doctors` thought she'd come home a week ago.
+- `Doctors` and nurses can only do so much, alma.
+- The `doctors` are taking care of him right now.
+- As `doctors`, it's our job to relieve suffering.
+- `Doctors` that are people can't cure everything.
+- Their sons are lawyers and `doctors` and rabbis.
+- Using the same `doctors` is not common practice.
+- He's trying to get `doctors` to wash their hands.
+- Both `doctors` are on the wrong side of that door.
+- He's a doctor, buster--`doctors` smell like ether.
+- I used to be afraid of `doctors` but not any more.
+- I was waiting for the `doctors` to run some tests.
+- My `doctors` didn't want a settlement at any price.
+- Scottie -- have you talked to the `doctors` at all?
+- [speaking grounder language] you mean the `doctors`?
+- `Doctors` and nurses all confirm that she miscarried.
+- The prison board and the `doctors` who examined them.
+- I don't mind -- patients have visitors, not `doctors`.
+- G... or is it like the `doctors` say, all in your head?
+- Did you ever hear of such `doctors` and such a disciple?
+- I see... well, those `doctors` are real miracle workers.
+- You know these `doctors` could have settled out of court.
+- The `doctors` say it isn't possible to go deeper and live.
+- To combat bed-wetting, `doctors` recommend whew, poor kid.
+- ♪ you know, the `doctors` all say it's a coping mechanism.
+- But why take the chance, when there must be other `doctors`?
+- `Doctors`, if you please - - i have to insist we get moving.
+- Maybe i was sick of `doctors` telling me what i couldn't do.
+- Musicians, morticians, `doctors`, lawyers, butchers, clerks.
+- She's the only nurse who isn't testifying for the `doctors`.
+- His left arm was so mangled, the `doctors` had to cut it off.
+- Those `doctors` started on an overhaul and don't want to quit.
+- Alfred, i know you're sick -- i can get you the best `doctors`.
+- The `doctors` told me it was pneumonia, but i knew what it was.
+- Fire engines, pulmotors, `doctors`, cops, coroners-- who's dead?
+- She's protecting the `doctors` she'd be up there on the stand...
+- The `doctors` say the machines should keep him going a long time.
+- Would now be a good time to tell you that i don't like `doctors`?
+- They've got a couple of `doctors` who saw this man in the hospital.
+- Well, you know those police department `doctors`: no sense of style.
+- `Doctors` spiriting hooded figures about are liable to cause comment.
+- Where she goes and what she does, before i got involved with `doctors`.
+- Her behaviour was the main thing the `doctors`' report used against you.
+- I got the nurses for fifty grand a piece and the `doctors` for a hundred.
+- Heard on the radio how `doctors` is usin' leeches again, just in old times.
+- She's been sedated for a few hours and the `doctors` are still running tests.
+- Since when do sprawl `doctors` know more about nerve rehab than the japanese?
+- `Doctors` should be the first ones to admit utter ignorance about some things.
+- He says your `doctors`, towler and marx, put my girl in the hospital for life.
+- All the ship's `doctors` is golfing, and i couldn't find nobody to look at this.
+- You told me that goebbels got to your `doctors` first, that you were tricked?
+- Christ, eighty-eight `doctors` and all you can tell me is all of your bullshit...
+- I'm a coward -- the `doctors` said to do everything the same as long as possible.
+- 250,000 doesn't come close to what this family's gonna have to spend on `doctors`.
+- So why are you h... hi... did you know there are `doctors` who come to your house?
+- The `doctors` say if i keep taking care of myself i can live to be a very old man.
+- We will "burke" them, you mean we would sell the bodies to the `doctors` together?
+- I didn't know until we got here, they're our farmers, our `doctors`, our engineers.
+- She's been to all kinds of `doctors` in the city and they've said different things.
+                 

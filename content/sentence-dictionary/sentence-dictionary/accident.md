@@ -1,0 +1,107 @@
+---
+title: "accident in a sentence | accident example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "accident"
+---
+- That was a `accident`.
+- There's no `accident`.
+- Totally by `accident`.
+- He wants an `accident`.
+- I had a car `accident`.
+- Micheal, by `accident`.
+- That was no `accident`.
+- Was i in an `accident`?
+- Had a little `accident`.
+- It was a bus `accident`.
+- It was no `accident`....
+- Terrible car `accident`.
+- There was an `accident`.
+- What kind of `accident`?
+- A fucking car `accident`.
+- No way by `accident`.
+- But it was an `accident`.
+- He saw the `accident`...?
+- It was not an `accident`.
+- Just a little `accident`.
+- Yeah, go-cart `accident`.
+- An `accident` at the mill?
+- It's a machine `accident`.
+- It was just an `accident`.
+- Now, it was an `accident`!
+- Wasn't that an `accident`?
+- You were in an `accident`?
+- A car ... a car `accident`.
+- Got in a little `accident`.
+- Have you had an `accident`?
+- Jody, it was an `accident`.
+- Maybe since the `accident`.
+- There's been an `accident`.
+- This an `accident`, walter?
+- Well, it was an `accident`.
+- Right before the `accident`.
+- Before the actual `accident`?
+- From a motorcycle `accident`.
+- I heard it was an `accident`.
+- Must have been an `accident`.
+- She died in a car `accident`.
+- That it wasn't an `accident`.
+- Was someone in an `accident`?
+- You saw it was an `accident`.
+- That it was all an `accident`.
+- They were in a car `accident`.
+- What does he mean, `accident`?
+- You've got to be-- `accident`.
+- How do i square the `accident`?
+- I thought it was an `accident`.
+- Such an unfortunate `accident`.
+- That's some `accident`, hombre.
+- They know it was an `accident`.
+- A hunting `accident` is perfect.
+- Dude, i'm--it was an `accident`!
+- I'm sorry, it was an `accident`.
+- I was in an `accident` once too.
+- Maybe it was just an `accident`.
+- She thinks it was an `accident`.
+- Where's the fucking `accident`?!
+- You said that was an `accident`.
+- Did he die in an auto `accident`?
+- I remember one time-- `accident`.
+- It could have been an `accident`.
+- I think i just had an `accident`.
+- They're calling it an `accident`.
+- You were in a serious `accident`.
+- Her parents died in an `accident`.
+- I just ran into her by `accident`.
+- I told you that was an `accident`!
+- We almost had an `accident` today.
+- Well, i got into it by `accident`.
+- You know that `accident` up there?
+- Any back pain since the `accident`?
+- I'm afraid there was an `accident`.
+- It may not have been an `accident`.
+- I've been in a horrible `accident`.
+- There's been an `accident`, truman.
+- There's been a terrible `accident`.
+- Yeah it was all just an `accident`.
+- Are you sure this was an `accident`?
+- He makes it look like an `accident`.
+- It could have been an `accident`....
+- It was no fucking `accident`, frank.
+- Whatever happened was an `accident`.
+- You don't know it was an `accident`.
+- Before my `accident`, you understand?
+- Did i ever talk about the `accident`?
+- The police said it was an `accident`.
+- You know... purely an `accident`, um.
+- A waking dream was a happy `accident`.
+- I think there was some big `accident`.
+- That you came upon carl by `accident`.
+- There's going to be a huge `accident`!
+- This is before the `accident`, nicole.
+- We'll make it look like an `accident`.
+- Did you have an `accident` in the lake?
+- Everyone says this is a big `accident`?
+- It appears your ship had an `accident`.
+- It's because of the `accident`, nicole.
+                 

@@ -1,0 +1,107 @@
+---
+title: "bob in a sentence | bob example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bob"
+---
+- `Bob` was a grown man.
+- `Bob` � charlie brown.
+- Hello, `bob`, it's me.
+- How's `bob` the brain?
+- I do blame you, `bob`.
+- Just handle it, `bob`!
+- Just this once, `bob`.
+- Let him finish, `bob`.
+- This is `bob` tuckett.
+- Travis and `bob` head.
+- And `bob`'s your uncle.
+- `Bob`'s your uncle.
+- `Bob` and i'll -- what?
+- `Bob` newby, superhero.
+- `Bob`, where you going?
+- Charlie, this is `bob`.
+- Do try to sleep, `bob`.
+- I can't do that, `bob`.
+- Not a whole lot, `bob`.
+- Read six crises, `bob`.
+- You're paranoid, `bob`.
+- Been a long time, `bob`.
+- But it was `bob`'s idea.
+- I'm your brother, `bob`.
+- It wasn't `bob`'s fault.
+- Just like it took `bob`.
+- Keep it together, `bob`.
+- Very interesting, `bob`.
+- Were you adopted, `bob`?
+- You can go first, `bob`.
+- `Bob` will be very happy.
+- Don't believe him, `bob`.
+- Give 'em the horn, `bob`.
+- Remember what `bob` said?
+- Silent `bob`, am i lying?
+- That's big of you, `bob`.
+- This is important, `bob`.
+- We still got billy `bob`.
+- We've got nothing, `bob`.
+- I can't believe it, `bob`.
+- Just do what i say, `bob`.
+- So you say - go on, `bob`.
+- You're a `bob`'s girl now.
+- `Bob`, andy needs to relax.
+- `Bob`, i've got nightmares.
+- `Bob`, that makes no sense.
+- Just get in the car, `bob`.
+- Take him to the car, `bob`.
+- The guy's in a coma, `bob`.
+- We don't have rooms, `bob`.
+- What's on your mind, `bob`?
+- `Bob`'d love to talk to you.
+- `Bob`, do you remember mary?
+- `Bob`, rip up some bandages.
+- `Bob`, the guy had a stroke!
+- Don't worry about it, `bob`.
+- How's the job coming, `bob`?
+- I mean, jesus christ, `bob`.
+- It belongs to `bob`'s uncle.
+- It wasn't your fault, `bob`.
+- No sir-e-`bob`, i don't die.
+- Saving the treats for `bob`?
+- You stay out of this, `bob`.
+- `Bob` and rick are in denver.
+- Dooler, you know `bob` sugar.
+- Fancy seeing you here, `bob`.
+- Hey, nice outfit billy `bob`.
+- I just fired `bob` alexander.
+- It's no place for you, `bob`.
+- Okay, `bob`, can you hear us?
+- The guy's a boy scout, `bob`.
+- Then express yourself, `bob`.
+- `Bob`... what... we need help.
+- `Bob`, will you please listen?
+- As soon as she wakes up, `bob`.
+- `Bob`... it's tearing me apart.
+- `Bob`... overflowing with love.
+- `Bob` went to help his brother.
+- Captain `bob`'s steering wheel?
+- How much more can i `bob` here?
+- I don't know what to do, `bob`.
+- I heard that one myself, `bob`.
+- Oh george, this is `bob` zmuda.
+- Will you get in the car, `bob`?
+- `Bob`... what in god's name... ?
+- `Bob`, where's that coming from!
+- How you holding up there, `bob`?
+- It's `bob`'s, the day manager's.
+- This party is for you and `bob`.
+- We'll name him `bob` number one.
+- What are you running for, `bob`?
+- You can't just name a guy `bob`.
+- `Bob` barrenger is staying he...?
+- `Bob` doesn't have any character.
+- Boys, this here is english `bob`.
+- Isn't she being defensive, `bob`?
+- Radioshack, `bob` newby speaking.
+- Refill my drink, will you, `bob`?
+- Remember, `bob` newby, superhero.
+- Well, we'll see you later, `bob`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "getting in a sentence | getting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "getting"
+---
+- Duffy's `getting` old!
+- I'm `getting` dressed.
+- I'm `getting` garbage.
+- I'm `getting` him out.
+- I'm `getting` it back.
+- I'm `getting` married.
+- I'm `getting` nowhere.
+- I'm `getting` out now.
+- I'm `getting` over it.
+- Is it `getting` worse?
+- It's `getting` colder.
+- It's `getting` inside.
+- It was `getting` dark.
+- I was `getting` to it.
+- She's `getting` worse.
+- We're `getting` close.
+- We're `getting` close.
+- We're `getting` there.
+- `Getting` stranger.
+- Are you `getting` this?
+- `Getting` pearl to bed.
+- I ain't `getting` shit.
+- I'm `getting` a doctor!
+- I'm `getting` confused.
+- I'm `getting` divorced.
+- I'm `getting` the door.
+- It's `getting` shorter.
+- Just `getting` started.
+- Just of `getting` hurt.
+- They're `getting` hard.
+- This is `getting` sick.
+- Time's `getting` short.
+- We're just `getting`...
+- You `getting` all this?
+- You `getting` the idea?
+- Albert is `getting` fat.
+- It's `getting` dark.
+- Are you `getting` tired?
+- For `getting` a divorce?
+- `Getting` her own ideas.
+- `Getting` high, i guess.
+- _ `getting` him started.
+- `Getting` rid of my hub!
+- He was `getting` better.
+- He was `getting` pissed.
+- How're you `getting` on?
+- How you `getting` along?
+- I'm `getting` a divorce.
+- I'm `getting` emotional.
+- I'm `getting` pneumonia.
+- I'm `getting` that tape.
+- I must be `getting` old.
+- It's `getting` stronger.
+- I was `getting` excited.
+- I was `getting` to that!
+- I was `getting` worried.
+- My hair's `getting` wet!
+- Not `getting` an answer?
+- Storm's `getting` worse.
+- They're `getting` rowdy.
+- We're all `getting` old.
+- We're `getting` close...
+- We're `getting` him now.
+- We're `getting` married.
+- We're `getting` middled.
+- We're `getting` screwed.
+- We're `getting` whacked.
+- We're not `getting` out.
+- Why are we `getting` up?
+- You `getting` cold feet?
+- You're `getting` warmer!
+- You're `getting` warmer.
+- I'm not `getting` it.
+- Are we `getting` married?
+- But i'm `getting` warmer.
+- He's `getting` her drunk.
+- He's `getting` impatient.
+- How are we `getting` out?
+- I feel it `getting` cold.
+- I like `getting` shot at.
+- I'm `getting` a good job.
+- I'm `getting` experience.
+- I'm `getting` used to it.
+- Is he `getting` any help?
+- Is it `getting` you down?
+- I think i'm `getting` it.
+- It's `getting` cold, sal.
+- It's `getting` political.
+- I was `getting` hot dogs.
+- No, it's `getting` worse.
+- See, you're `getting` it.
+- They're `getting` bigger.
+- They're `getting` weaker.
+- United in `getting` some.
+- We're `getting` divorced.
+- We're `getting` hammered!
+- You `getting` a headache?
+- You're `getting` married.
+- You're `getting` obvious.
+- You're `getting` too fat.
+                 

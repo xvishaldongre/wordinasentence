@@ -1,0 +1,107 @@
+---
+title: "lines in a sentence | lines example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lines"
+---
+- Tie your `lines` fast?
+- Frances... two `lines`!
+- Let's open the `lines`.
+- You learn your `lines`?
+- Smithers, power `lines`!
+- The army supply `lines`.
+- I can't remember `lines`.
+- `Lines` around the block.
+- These black `lines`, see?
+- You know your `lines`...?
+- I hate funny exit `lines`.
+- The `lines` are all wrong.
+- She's learning her `lines`.
+- All their `lines` were busy.
+- Apes don't drop `lines`.
+- Harass their supply `lines`.
+- The people's supply `lines`.
+- We lived near power `lines`.
+- I can't remember the `lines`!
+- Pipe `lines` stop pipin' oil.
+- You draw `lines` with pencil!
+- You know those power `lines`?
+- The food `lines` took forever.
+- Well what power `lines`, will?
+- You stole all my best `lines`.
+- But they're real short `lines`.
+- He's cut all the phone `lines`.
+- No, but between the `lines`, eh?
+- You draw in `lines` with pencil.
+- Too many `lines` have been drawn.
+- Who's writing this guy's `lines`?
+- I have to check the upper `lines`.
+- Okay, so the `lines` aren't roads.
+- Those really weird, short `lines`.
+- How many `lines` of code are there?
+- Just to test out the phone `lines`.
+- She can barely get the `lines` out.
+- Then shut down the pipe `lines`.
+- You remembered all your `lines`.
+- But it doesn't match carl's `lines`.
+- I just felt like doing those `lines`.
+- I tracked him over two state `lines`.
+- Yes-- nice `lines`-- i'll say she is!
+- He was blowin' his `lines`, all right.
+- Most niggers die on the front `lines`.
+- This is miles from the battle `lines`.
+- Why does the poet write these `lines`?
+- Always wanted to see the upper `lines`.
+- Guess some people forgot their `lines`.
+- How would you do those `lines` of mine?
+- `Lines` up with the map and the photos.
+- What's the point with hooks and `lines`?
+- One of the corniest `lines` i ever heard.
+- There are some `lines` you can't uncross.
+- What'd you give him all the `lines` for??
+- Funny, i was thinking along those `lines`.
+- Neddy, you're coloring inside the `lines`.
+- It had three `lines` painted across it?
+- Christ, can't you read between the `lines`!
+- Green lights and white `lines` all the way.
+- Just to test out the phone `lines` and all.
+- There are no `lines`, there's some problem.
+- I mean `lines`, ducky, can you handle `lines`?
+- `Lines` of communication between the cliques.
+- Nuts, the `lines` must still be disconnected.
+- You must have 20,000 `lines` of code there...
+- But our leading man can't remember his `lines`.
+- Oh, that's nice... we'll need some new `lines`.
+- The communication `lines` are behind this wall.
+- I tried calling, but the phone `lines` are down.
+- Um hmm... umhmm great, so let's run the `lines`.
+- They found out why he can't remember his `lines`.
+- Probably the `lines` were hit during the fighting.
+- When do you think the phone `lines`'ll be back up?
+- Fifty other `lines` to get into a girl's pants.
+- Centurions report enemy scouts probing our `lines`.
+- If we don't start reading between the `lines` here!
+- Would you like me to take you through your `lines`?
+- Your `lines` are in the script, but you can ad lib.
+- Anyone know how to release the `lines` on this crate?
+- I also know your `lines` of credit are over-extended.
+- Tell 'em about the mayor and the unemployment `lines`.
+- The town power `lines` are supposed to be real shitty.
+- Bill- the air `lines` have clocks, even if you haven't!
+- Imagine your `lines` high- lighted with a felt tip pen.
+- The `lines` represent the three levels of the universe.
+- Hey, how 'bout this -- what if i don't have any `lines`?
+- I <u>know</u> my `lines`... whyn't you learn your `lines`?
+- Once the roads are open, the `lines`'ll be up in no time.
+- Yeah, yeah, yeah, and we've got two `lines` and a circle.
+- Foreign devil ... behave... eh, don't take out me `lines`.
+- ♪ hallelujah, hallelu ♪ one eye, scars like `lines` on a map.
+- I was thinking more along the `lines` of being a river pirate.
+- By accident -- he wants help with his `lines` -- the carter boy.
+- It's more along the `lines` of a dinner in celebration of my birthday.
+- ...member of the group, was left behind what were, then, enemy `lines`.
+- I think we should shut down the communication `lines` inside the habitat.
+- So there were two of these explosive charges placed on the power `lines`.
+- What, you don't really think they left with their clothes on the `lines`?
+- A sensuous voice is reading a few poetic `lines` about courtship and love.
+                 

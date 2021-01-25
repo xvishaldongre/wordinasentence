@@ -1,0 +1,107 @@
+---
+title: "simple in a sentence | simple example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "simple"
+---
+- It's a `simple` story.
+- It's a `simple` thing.
+- They're very `simple`.
+- Ah, dear `simple` otis.
+- He thinks i'm `simple`.
+- I have `simple` tastes.
+- It's not that `simple`.
+- It's pure and `simple`.
+- Our lives are `simple`.
+- Rather `simple` really.
+- Such a `simple` matter.
+- It's a `simple` subject.
+- It's basic and `simple`.
+- It's just that `simple`.
+- It's `simple`, you know.
+- Life can be so `simple`.
+- Look it's very `simple`.
+- Love is not so `simple`.
+- Problem's very `simple`.
+- Then it's very `simple`.
+- A `simple` reason, mccoy.
+- Everything's so `simple`.
+- I stated a `simple` fact.
+- It's a `simple` question.
+- It's as `simple` as that.
+- It's as `simple` as that?
+- It's incredibly `simple`.
+- It's very `simple`, otis.
+- They were `simple` songs.
+- Your mission is `simple`.
+- It's deceptively `simple`.
+- It was just that `simple`.
+- Looks `simple` to operate.
+- Now, it's `simple` enough.
+- That's a `simple` subject.
+- But it isn't that `simple`.
+- But it's not that `simple`.
+- I guess it's `simple`, huh?
+- It's quite `simple` really.
+- It's such a `simple` thing.
+- Just a `simple` woodcarver.
+- `Simple`-- and i'm helping.
+- That is `simple`, isn't it?
+- Bring me something `simple`.
+- It can’t be that `simple`.
+- It may not be that `simple`.
+- It's pretty `simple`, nancy.
+- It's quite `simple`, really.
+- People aren't that `simple`.
+- `Simple` logic will suffice.
+- Yeah, it's a `simple` piece.
+- It's not quite that `simple`.
+- It's really quite `simple`...
+- It's very `simple` gentlemen.
+- `Simple` inebriation, is all.
+- There is a very `simple` way.
+- You think it's `simple`, huh?
+- A series of `simple` gestures.
+- A `simple` exchange of favors.
+- Contained in one `simple` key.
+- I'd like a `simple` yes or no.
+- If only it were that `simple`.
+- I must've gone money `simple`.
+- Please, one `simple` question.
+- Sailor... as `simple` as that.
+- `Simple` question, lieutenant.
+- That's it, plain and `simple`.
+- We'll make this very `simple`.
+- In it, a `simple` oil lamp.
+- The answer was so `simple`.
+- Kitesurfing's a `simple` sport.
+- `Simple`-icity is more like it.
+- That's the `simple` part, dude.
+- That's very `simple` to answer.
+- That was just `simple` revenge.
+- ...-to a `simple` thing like...
+- Well, life isn't that `simple`.
+- In the old days it was `simple`.
+- That's the `simple` truth of it.
+- Very `simple`, the xk101 rocket.
+- You make it sound so `simple`...
+- A `simple` shave, please, martin.
+- A `simple`, unstoppable lifeform.
+- I just asked a `simple` question.
+- I just wish it was that `simple`.
+- It was `simple`, whatever it was.
+- They're just `simple` tests, nan.
+- Tit for tat--as `simple` as that.
+- Well, i think it's very `simple`.
+- A `simple` theological discussion.
+- Don't play `simple` with me, jake.
+- Has anything been `simple` so far?
+- It's not `simple` anymore, connie.
+- Now, remember -- keep it `simple`.
+- So `simple` to say, so hard to do.
+- There's nothing `simple` about it.
+- You'll tell them a `simple` story.
+- You make it all sound so `simple`.
+- A `simple` story for `simple` people.
+- Can you follow `simple` directions?
+                 

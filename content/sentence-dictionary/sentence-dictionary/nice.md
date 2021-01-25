@@ -1,0 +1,107 @@
+---
+title: "nice in a sentence | nice example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nice"
+---
+- Don�t be `nice` to me.
+- Er, very `nice` harry.
+- Gosh, you look `nice`.
+- Have a `nice` holiday.
+- Here's a `nice` place.
+- He's got a `nice` dog.
+- He was a `nice` guard.
+- He was a `nice` horse.
+- How `nice` to see you.
+- It wasn't very `nice`.
+- I want... so `nice`...
+- `Nice` and gooey, too.
+- `Nice` boat, taransky.
+- `Nice` food, isn't it?
+- `Nice` isn't the word.
+- `Nice` of you to come.
+- '`nice` sweater mark'?
+- `Nice` to feel needed.
+- `Nice` to have a fire.
+- `Nice` to have metcha.
+- Oh, that'll be `nice`.
+- One that looks `nice`.
+- Or some `nice` lesbos.
+- Really `nice` to hear.
+- She's so `nice`, brad.
+- She sure sings `nice`.
+- That's a `nice` shirt.
+- That's `nice` to know.
+- That was `nice` of me.
+- These are `nice` guys.
+- They're `nice` people!
+- This is really `nice`.
+- Told you i was `nice`.
+- Too bad, `nice` place.
+- Well, you look `nice`.
+- Yes, that'd be `nice`.
+- You look `nice` today.
+- A girl would be `nice`.
+- He's really `nice`.
+- How `nice` for eve.
+- But it's a `nice` idea.
+- Coffee might be `nice`.
+- Could you... be `nice`.
+- Got some `nice` things.
+- He must be very `nice`.
+- He's a very `nice` man.
+- He's just being `nice`.
+- He's such a `nice` guy.
+- Hey, be fuckin' `nice`.
+- I know a `nice` island.
+- It's `nice` down there.
+- It's `nice` to hear it.
+- It's `nice` to see you.
+- `Nice` boonies, seeger.
+- `Nice` drinkin' liquor.
+- `Nice` girl - no ghost.
+- `Nice` guy but a loser.
+- `Nice` machine, auggie.
+- `Nice` signal, dickwad!
+- `Nice` to meet you all.
+- `Nice` to see you, dad.
+- `Nice` to see you, too.
+- See, isn't this `nice`?
+- Such a `nice` face too.
+- That isn't very `nice`.
+- That's a `nice` teapot.
+- That's `nice` and ripe.
+- That was `nice` of you.
+- This is a `nice` place.
+- Um, it's `nice`, right?
+- Very `nice` restaurant.
+- Well, id'n that `nice`.
+- You're a `nice` fellow.
+- A `nice`, bright yellow!
+- But he was a `nice` guy.
+- But they're `nice` hips.
+- Calla lilies are `nice`.
+- Four, `nice`, deep ones.
+- Have a `nice` christmas.
+- He is a very `nice` man.
+- He's...he's very `nice`.
+- How `nice` for you both.
+- I deserve `nice` things.
+- I hear he's very `nice`.
+- I think it looks `nice`.
+- It's been `nice` so far.
+- It's `nice` to meet you.
+- It's really `nice` work.
+- It's too `nice` a night.
+- It's too `nice` outside.
+- It's very `nice` of you.
+- It was a `nice` funeral.
+- `Nice` college boy, huh?
+- `Nice` day lead the way.
+- `Nice` family, are they?
+- `Nice` first impression.
+- `Nice` guys finish last.
+- `Nice` job on that wood.
+- `Nice` meeting you, son.
+- `Nice` talk, sugarmouth.
+                 

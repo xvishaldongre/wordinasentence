@@ -1,0 +1,107 @@
+---
+title: "for in a sentence | for example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "for"
+---
+- A story `for` a movie.
+- Bail, `for` chrissake!
+- But paid `for` by moe.
+- 'cept `for` one thing.
+- Chicks are `for` fags.
+- C'mere `for` a second.
+- Do it `for` the paper.
+- Don't vouch `for` him.
+- Do something `for` me.
+- Double `for` overtime.
+- Easy enough `for` you.
+- Easy `for` you to say.
+- Eggs he asks me `for`.
+- Enough food `for` 100?
+- Except `for` approval.
+- `For` a consideration.
+- `For` a hundred bucks.
+- `For` an introduction.
+- `For` a "widdle" baby.
+- `For` bernie laplante!
+- `For` cryin' out loud!
+- `For` god's sake, why?
+- `For` going to school?
+- `For` good luck honey.
+- `For` infinity stones.
+- `For` limited periods.
+- `For` my own learning.
+- `For` old time's sake.
+- `For` old time's sake?
+- `For` old times' sake.
+- `For` rape and murder.
+- `For` sexual purposes?
+- `For` that, i'm sorry.
+- `For` the certificate.
+- `For` the housekeeper!
+- `For` the love of god.
+- `For` the movie sound.
+- `For` the school kids.
+- `For` the turing test?
+- `For` the whole night?
+- `For` us, it is cheap.
+- `For` what it's worth.
+- `For` your confession?
+- `For` your own safety.
+- Go `for` the knockout.
+- Go `for` the knockout.
+- Good enough `for` you.
+- Half `for` doing what?
+- Haven't `for` a while.
+- He's praying `for` me.
+- He's stable `for` now.
+- He's working `for` us.
+- He was ready `for` it.
+- He will come `for` me.
+- He works `for` colson.
+- How awkward `for` you.
+- I ask `for` fieldwork.
+- I care `for` you, too.
+- I did `for` my people.
+- I don't push `for` me.
+- I go `for` this stuff.
+- I have come `for` him.
+- I joined up `for` her.
+- I left that `for` you.
+- I live `for` a living.
+- I'll coming `for` you.
+- I'll get 'em `for` ye.
+- I'll get if `for` you.
+- I'll get it `for` you.
+- I'm asking `for` real.
+- I'm going `for` a bag.
+- I'm here `for` movies.
+- I'm late `for` work...
+- I'm looking `for` him.
+- I'm looking `for` sid.
+- I'm looking `for` tod.
+- I'm paying `for` this.
+- I'm too old `for` him.
+- I'm too old `for` you.
+- I must go `for` a pee.
+- I need you `for` this.
+- Is short `for` 'ergo'.
+- I stand `for` honesty!
+- Is this bad `for` him?
+- I think so, `for` now.
+- It'll do it `for` you.
+- It's a gift `for` him.
+- It's bad `for` morale.
+- It's `for` asthmatics.
+- It's `for` exercising.
+- It's `for` my brudder.
+- It's `for` their sake.
+- It's not to die `for`.
+- It's old hat `for` us.
+- It's perfect `for` us.
+- It's time `for` games!
+- I was born `for` this.
+- I was made `for` this.
+- I went `for` the head.
+- I work `for` patchett.
+                 

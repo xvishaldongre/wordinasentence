@@ -1,0 +1,107 @@
+---
+title: "property in a sentence | property example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "property"
+---
+- Get off my `property`!
+- Get off my `property`.
+- A man isn't `property`!
+- Yes on your `property`?
+- He's private `property`.
+- It's private `property`.
+- Private `property`, bub.
+- They're town `property`.
+- I'm valuable `property`.
+- By coveting my `property`.
+- I'm not on your `property`!
+- This is private `property`.
+- It's personal `property`...!
+- Nyah still on the `property`?
+- "personal `property` to ana."
+- But this is public `property`.
+- The `property` is worth sixty.
+- This is my private `property`.
+- To planning before `property`.
+- They're still on the `property`.
+- Look, get down off my `property`.
+- Somebody wants acme's `property`.
+- The guy just sold the `property`.
+- They have stolen state `property`.
+- They needed `property`, some land.
+- Delinquent `property` tax notice...
+- Maybe he owns `property` somewhere.
+- Land deeds, transfers of `property`.
+- She must still be on the `property`.
+- So was the radio private `property`.
+- Still want your `property` back, mr.
+- That's government `property`, major.
+- Shitheads ... defacing my `property`.
+- He always was after acme's `property`.
+- This is private `property`, my friend.
+- Look, look, just get off my `property`.
+- Sign here for your valuable `property`.
+- It's the president's personal `property`!
+- Nobody tells me how to run my `property`.
+- Did you and dad have any other `property`?
+- They came on the `property`... she's okay.
+- Think again, that's government `property`.
+- She's not `property`, john, she's a person.
+- For coming onto my `property`... with a gun.
+- Get off my `property` or i'll call the cops.
+- Hey, don't tell us about private `property`.
+- Yengeese major give all `property` to magua.
+- That's just for the `property`, mind you.
+- Chargeures, `property` and casualty insurance.
+- Every possible `property` that color can have.
+- That air is the `property` of this restaurant.
+- Disrespecting your `property`... not necessary.
+- I fear for the women and the `property` values.
+- Jd is his dad, and owns the whole `property`?
+- As long as i'm not trespassing on your `property`.
+- It was right up on the pg&e `property` over there.
+- They suddenly start buying up all this `property`.
+- We'll just start by impounding the post `property`.
+- Does yengeese major have `property` across salt sea?
+- The guy's got all this easily negotiable `property`.
+- To tell you that we're interested in the `property`.
+- Well now, i don't believe assa `property` scription.
+- Stop calling it the `property`, you sound ridiculous.
+- You also have an interest in the securing `property`?
+- These people don't know the value of their `property`!
+- That means officer friendly here is someone's `property`.
+- Also, my face is the intellectual `property` you're a doctor!
+- The mille collines is a very important `property` for sabena.
+- Anything you write will be the `property` of capitol pictures.
+- He's messed with our `property`, he's coming around the house.
+- Maybe i'm not such a high-class piece of `property` right now.
+- But they wouldn't buy my `property` unless acme would sell his.
+- Mccay had the company buy the `property` and they pay the bills.
+- The guy probably prevented <u>millions</u> in `property` damage.
+- But if i drop this, you get me on destruction of `property` too."
+- ...but we will cover whatever the damages are to your `property`.
+- Business must be good if he can afford to buy up useless `property`.
+- I hardly see how family gossip is germane to showing the `property`.
+- I own the `property`, my mother owns the `property`, i put her into it.
+- Not to fight for the right of the people to own their own `property`?
+- Maliciously destroyin' municipal `property` while under the influence.
+- A lady has some `property` next to a pg&e plant that pg&e wants to buy.
+- ...i have to give you this <u>ticket</u> for damage to city `property`.
+- But you have a piece of `property` that still belongs to this newspaper.
+- I'm accused of using some government wagons to ship personal `property`.
+- One day, she was three months gone with child, so a woman of `property`?
+- Indra, tell your people to stand down he raised my `property` taxes, jim.
+- You put your `property` on the market, i believe you said september 7.
+- I want this to be a marriage based on love, trust and community `property`.
+- John, as a lawyer, you should know that those tapes are private `property`.
+- Keep my kids away from his `property` -- who the hell does he think he is?
+- We have the ability to change the color, odor, and physical `property` of cocaine.
+- Christine's dad -- he's been talking about bringing me into his `property` business.
+- Cops didn't understand about the pigeons, the damage they do to personal `property`.
+- I want to buy the `property`, and i'm prepared to offer six-thousand dollars for it.
+- Yeah, i'm crimes against persons and `property` now, also sex crimes and child abuse.
+- He condemns rich tories to death and then 'appropriates' their `property` for himself.
+- It's `property`, look you, and the only way i have found of keeping a little about me.
+- My lawyer said it would give me a better claim on the house in the `property` settlement.
+- The only real difficulty comes in changing over the ownership of `property` i've aquired.
+                 

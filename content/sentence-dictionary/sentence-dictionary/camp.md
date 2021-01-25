@@ -1,0 +1,107 @@
+---
+title: "camp in a sentence | camp example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "camp"
+---
+- I was on a `camp` out.
+- Report to base `camp`.
+- `Camp` four's that way!
+- `Camp` you is that way.
+- Can you see the `camp`?
+- Search base `camp` now.
+- Welcome to base `camp`!
+- Welcome to base `camp`.
+- Everyone in this `camp`.
+- Search base `camp`, now.
+- Copy, base `camp` to rob.
+- Rob, this is base `camp`.
+- '...the kids have `camp`.
+- To take us to his `camp`.
+- We should stop at `camp`.
+- You know, at band `camp`?
+- Gabriel santiago's `camp`.
+- I have two kids at `camp`.
+- It came from the `camp`.
+- No one leaves this `camp`.
+- Wow, first week of `camp`.
+- Girls go to science `camp`?
+- I'm going down to `camp` 1.
+- Otan's with jaha at `camp`.
+- Out of this `camp` by then.
+- You mean `camp` sixty-nine.
+- You ride me back to `camp`?
+- Anna will be away at `camp`.
+- `Camp` know where, actually.
+- How did you find the `camp`?
+- I figure we ought to `camp`.
+- Why'd he come in our `camp`.
+- ... at base `camp` this year.
+- I'm at base `camp` right now.
+- I'm going down to `camp` one.
+- This summer at church `camp`?
+- He walked himself into `camp`.
+- Right in the hostile's `camp`.
+- Sent to concentration `camp`."
+- They all left `camp` together.
+- Two days, we'd have to `camp`.
+- We have to get back to `camp`.
+- We're close to the `camp` now.
+- Why aren't you back at `camp`?
+- Base `camp`, do you copy, over.
+- Base `camp`, do you copy, over?
+- Did not make it back to `camp`.
+- ere’s a tunnel to your `camp`.
+- I found it outside your `camp`.
+- We have traitors in our `camp`.
+- Welcome to `camp` crystal lake.
+- You may be in a hostile `camp`.
+- Base-`camp` talk is now offline.
+- Clarke, i've checked the `camp`.
+- On bringing guns back to `camp`.
+- The enemy is not in this `camp`.
+- He was in a concentration `camp`?
+- Mostly i `camp` out in the woods.
+- No contact with anyone in `camp`.
+- No, you're needed here at `camp`.
+- Teams at base `camp` this season.
+- Teams at base `camp` this season.
+- They never made it into `camp` 4.
+- Uh, i'm at base `camp` right now.
+- We thought that `camp` was empty.
+- Wetting my bunk at summer `camp`.
+- Call in to base `camp` by transat.
+- Drops you outside the `camp` wall.
+- Guy cotter to everest base `camp`.
+- I got to get him down to `camp` 1.
+- I thought he was at summer `camp`!
+- I told you to stay back at `camp`.
+- `Camp` jaha, this is mount weather.
+- Gonna keep guns around `camp`, hmm.
+- Gotta be from the norwegian `camp`.
+- Guy calling to everest base `camp`.
+- How can you be useful in my `camp`?
+- Less than a mile outside of `camp`.
+- People in `camp` were losing focus.
+- That was me at the grounder `camp`.
+- How long were you in the `camp` for?
+- My sister doesn't leave this `camp`.
+- They never made it into `camp` four.
+- We've got to get him back to `camp`.
+- You've been in this `camp` too long.
+- If it isn't the mayor of base `camp`!
+- If it isn't the mayor of base `camp`.
+- So, there's a murderer in the `camp`?
+- The kids'll be back from `camp` soon.
+- You should be in their `camp` by now.
+- But no guns are leaving this `camp`!
+- Either at your `camp` or from the ark.
+- I don't know, he's in a prison `camp`.
+- I go up to this `camp` two months ago.
+- I had to beg her to get me into `camp`.
+- Is the rest of the `camp` back in line?
+- Nobody really changes at summer `camp`.
+- Shit, too bad we in base `camp` anyway.
+- To `camp` 4. so i know you can make it.
+- We built the `camp` here because of it.
+                 

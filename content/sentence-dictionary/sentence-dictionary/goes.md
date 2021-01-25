@@ -1,0 +1,107 @@
+---
+title: "goes in a sentence | goes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "goes"
+---
+- Elizabeth `goes` free!
+- Everybody `goes` home!
+- Everybody `goes` home.
+- It `goes` beyond that.
+- It really `goes` fast.
+- Ruff, ruff, he `goes`.
+- The crowd `goes` wild.
+- Then the heart `goes`.
+- There `goes` my model.
+- It still `goes` on.
+- Everybody `goes` there.
+- He comes and he `goes`.
+- He `goes` out and buys.
+- Here's how this `goes`.
+- How `goes` it, darlin'?
+- I know how that `goes`.
+- I know where he `goes`.
+- It `goes` to court now.
+- It `goes` with the job.
+- Something `goes` wrong.
+- Steady as she `goes`...
+- That face `goes` there.
+- That `goes` everywhere.
+- There `goes` the power.
+- There `goes` your ride.
+- What `goes` down there?
+- Where your hand `goes`.
+- You know how it `goes`.
+- And see where it `goes`.
+- It `goes` the other way.
+- It `goes` with the turf.
+- Jessica `goes` back now.
+- Just `goes` to show you.
+- Let's see how it `goes`.
+- Loser `goes` home alone!
+- So he `goes`, "fuck it."
+- That face, `goes` there.
+- That `goes` for you too!
+- The count `goes` to 2 2.
+- There `goes` our wheels.
+- We'll see how it `goes`.
+- What if it `goes` south?
+- 10 to one, she `goes` in.
+- Mine `goes` with you.
+- He `goes` on long enough.
+- He `goes` out with girls.
+- How `goes` the roll call?
+- I know where this `goes`.
+- It's as far as it `goes`!
+- Nobody ever `goes` there.
+- Oh, that `goes` way back.
+- Play "as time `goes` by."
+- Ring the gong, he `goes`.
+- So then he `goes` to nyu!
+- That `goes` for everyone.
+- That's not how it `goes`.
+- That's the way it `goes`.
+- The crowd `goes` wild!
+- The crowd `goes` wild.
+- Ed, everything `goes` off.
+- `Goes` back in their lamp.
+- `Goes` with the territory.
+- It `goes` from henry viii.
+- Never `goes` out of style.
+- Or kip `goes` in that box.
+- Pop `goes` another bubble!
+- Same `goes` double for me.
+- That `goes` double for me.
+- Then the wall `goes` down.
+- A little `goes` a long way.
+- The light `goes` out...
+- Before the sun `goes` down.
+- Changing the way it `goes`?
+- He never `goes` to doctors.
+- Mr. sweeney, how `goes` it?
+- That `goes` for all of you.
+- That's as far as it `goes`.
+- That's how it `goes`, okay?
+- But this is where it `goes`.
+- Eh, we'll see how it `goes`.
+- Gillis' voice he `goes` out.
+- I go where the truck `goes`!
+- It `goes` further back, sid.
+- Jason: it `goes` pretty far.
+- Nobody `goes` there anymore.
+- Not unless my sister `goes`.
+- The cosmic ballet `goes` on.
+- Then something `goes` wrong.
+- There he `goes` right there.
+- You know who `goes` to jail?
+- He `goes` to college with me!
+- Isn't that the way it `goes`?
+- It `goes` in a trust account.
+- It just kind of `goes` thump.
+- No one `goes` anywhere alone.
+- Shit happens, life `goes` on.
+- That plane `goes` to miami...
+- That�s not the way it `goes`.
+- Then what `goes` on in there?
+- The party `goes` underground.
+                 

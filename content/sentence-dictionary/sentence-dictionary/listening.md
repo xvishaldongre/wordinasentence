@@ -1,0 +1,107 @@
+---
+title: "listening in a sentence | listening example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "listening"
+---
+- `Listening` for raven?
+- `Listening` to angels?
+- You `listening` to me?
+- We're both `listening`.
+- You're not `listening`.
+- I feel like `listening`.
+- Is he `listening` to me?
+- Keep `listening`, buddy.
+- No, but i'm `listening`.
+- No, no, i'm `listening`.
+- Okay, we're `listening`.
+- Weren't you `listening`?
+- You weren't `listening`!
+- You weren't `listening`.
+- Are you even `listening`?
+- I am `listening`, my son.
+- I'm not even `listening`.
+- They are `listening` now.
+- Are you `listening` to me?
+- I'm here, i'm `listening`.
+- I was `listening`, kitten.
+- Thank you for `listening`.
+- Well, i'm `listening` now.
+- No, c'mon, i'm `listening`.
+- They are `listening` to me.
+- Were you `listening` to me?
+- We were simply `listening`.
+- Aren't you `listening`, man?
+- Are you `listening` to this?
+- But he wasn�t `listening`...
+- He might be `listening` now.
+- It's been `listening` to us.
+- Start by `listening` to her.
+- What are you `listening` to?
+- Why am i `listening` to you?
+- You�re not even `listening`.
+- Haven't you been `listening`?
+- I am not `listening`, father.
+- Talk, daddy, i'm `listening`.
+- What were you `listening` to?
+- You're not `listening` to me!
+- You're not `listening` to me.
+- You're not `listening` to me!
+- You're still not `listening`!
+- I'm `listening` to you-- - no!
+- No we're, are you `listening`?
+- Well, stop `listening` to him.
+- You're `listening` to hebrews.
+- Are you `listening` to me, huh?
+- I'm not `listening` to hebrews.
+- I'm through `listening` to you!
+- Mom, are you `listening` to me?
+- We're `listening` to the enemy.
+- You're `listening` to milhouse!
+- You're not `listening`, mother.
+- No one is `listening` to me!
+- Dana, are you `listening` to me?
+- Now walk... are you `listening`?
+- Well, thank you for `listening`.
+- Are we `listening` to lionel now?
+- Wait a....you're not `listening`!
+- Why is no one `listening` to me??
+- Yeah, right... who's `listening`?
+- You don't know who's `listening`.
+- You don't seem to be `listening`.
+- Are you `listening` to me, lennon?
+- Don't i look like i'm `listening`?
+- Sick of `listening` to you simper.
+- Yes, i understand i'm `listening`.
+- You've been `listening` to rumors.
+- I'm `listening` avidly, fellow.
+- Emerson, i know you're `listening`.
+- What chu `listening` to rumors for?
+- Are you `listening`, you batman you?
+- I'm sick of `listening` to you talk.
+- Marty, you haven't been `listening`.
+- Why are you `listening` to this man?
+- Yes, mrs. brewster, i'm `listening`.
+- I learned it from `listening` to you!
+- Have you been `listening` to anything?
+- * `listening` to dana gould's podcast.
+- I am, becca, are you `listening` to me?
+- I guess we should stop `listening` now.
+- `Listening` to my heart, aren't you...?
+- They are `listening`, i like this spot.
+- You haven't been `listening`, have you?
+- You're `listening` to a hole in the sky.
+- You're not `listening` -- that's for me.
+- Alpha station, you better be `listening`.
+- Are you `listening` to a word i'm saying?
+- I'm not `listening` to that skrish again.
+- I'm the one you should be `listening` to!
+- ...let me...are you `listening` to me...?
+- They're not gonna be `listening` forever.
+- What are you `listening` to, chicken ass?
+- Why would i start `listening` to you now?
+- You're `listening` to a chorus of angels.
+- I just believe they're `listening` to you.
+- I've been `listening` to the transmission.
+- I was `listening` -- did you listen to me?
+                 

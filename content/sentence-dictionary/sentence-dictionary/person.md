@@ -1,0 +1,107 @@
+---
+title: "person in a sentence | person example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "person"
+---
+- A truly good `person`.
+- He's a swell `person`.
+- I'm just one `person`.
+- I'm not that `person`.
+- I'm the same `person`!
+- Like a `person` would.
+- What kind of `person`?
+- What sort of `person`?
+- As a sane `person`.
+- Better `person` than i.
+- He's a little `person`.
+- You are a bad `person`.
+- A confused old `person`.
+- Are you a good `person`?
+- I'm a horrible `person`.
+- I'm-i'm my own `person`.
+- The `person` is unknown.
+- To meet you in `person`.
+- With the right `person`.
+- You are a good `person`.
+- He's not a well `person`.
+- I'm not a happy `person`.
+- Might've been a `person`.
+- No-- a `person` is smart.
+- Now i'm a whole `person`!
+- You're a caring `person`.
+- She's a good `person`.
+- But in `person` this time.
+- He's an ordinary `person`.
+- I like that in a `person`.
+- I'm a terrible `person`...
+- I'm growing as a `person`.
+- Jack oberfeld in `person`.
+- Knowing who a `person` is.
+- That `person` could be me.
+- You're just this `person`.
+- More like a small `person`.
+- She's a wonderful `person`.
+- What kind of `person` am i?
+- You're a peculiar `person`.
+- You're a rational `person`.
+- You're a thinking `person`.
+- She is her own `person`.
+- I admire that in a `person`.
+- I am a trustworthy `person`.
+- I never met such a `person`.
+- Makes a `person` feel cheap.
+- Well, there is one `person`.
+- All you need is one `person`.
+- A real live `person`, please?
+- 'cause you're not a `person`.
+- I need to talk to a `person`.
+- Like an object or a `person`?
+- Norman cay is not a `person`.
+- Show me one perfect `person`.
+- Who was that `person` mother?
+- You know i'm a good `person`.
+- You wanna fuck that `person`.
+- Because i am a moral `person`.
+- By you telling me in `person`?
+- I had to tell you in `person`.
+- I'm a `person`, for chrissake.
+- I'm a very dangerous `person`.
+- I'm not even a field `person`.
+- I'm not that kind of `person`.
+- No one `person` is cloverleaf.
+- Selina kyle...lovely `person`.
+- Simone is not a real `person`.
+- There isn't any such `person`.
+- To let the other `person` die.
+- What kind of `person` is that?
+- Couple hundred on his `person`.
+- Does this `person` have a name?
+- Howard is a beautiful `person`.
+- I know i'm shorter in `person`.
+- It's easy with a deaf `person`.
+- It's written in first `person`.
+- What's a `person` worth to you.
+- At least i'm a growing `person`.
+- First `person` who hits it wins.
+- I can kill an ordinary `person`.
+- I was a different `person` then.
+- She's like a different `person`.
+- Such a `person` is hochmutsnarr.
+- Tell me that's a crazy `person`.
+- To choose to be a good `person`.
+- "to watch another `person` die."
+- What kind of a `person` are you?
+- You're a real likeable `person`.
+- You're the only `person` i know.
+- You sound like a crazy `person`.
+- I'm the thinnest `person` i know.
+- I thought you knew this `person`.
+- No sky `person` leaves this room.
+- The president is a nice `person`.
+- You're the only `person` guns up.
+- Deep down i'm a good `person`?
+- Belinda's a very jealous `person`.
+- I'm the only `person` you've told?
+- It is not mr. demille in `person`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "we're in a sentence | we're example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "we're"
+---
+- Bellamy, `we're` here.
+- Boiler, `we're` alive.
+- Both if `we're` lucky.
+- Cole, `we're` outlaws.
+- Come on, `we're` late.
+- Come on, `we're` next.
+- He knows `we're` here.
+- Hell, `we're` farmers.
+- Hey, `we're` flexible.
+- I'm sure `we're` okay.
+- It's ok. `we're` safe.
+- Jones: `we're` here!
+- Like `we're` a couple.
+- Looks like `we're` it.
+- No, `we're` all right.
+- Now `we're` in for it.
+- Oh shit, `we're` late.
+- Okay, `we're` back in.
+- Ok. `we're` safe here.
+- One `we're` producing.
+- Sir, `we're` not done.
+- Tell him `we're` busy.
+- The guy `we're` doing?
+- `we're` all dead, man.
+- `we're` all different.
+- `we're` all gonna die!
+- `we're` all gonna die.
+- `we're` all like that.
+- `we're` all pink mist.
+- `we're` aware of that.
+- `we're` back in paris.
+- `we're` coming, honey.
+- `we're` coming in hot!
+- `we're` damaged goods.
+- `we're` finished here.
+- `we're` from pakistan.
+- `we're` fugitives now.
+- `we're` getting close.
+- `we're` getting close.
+- `we're` getting there.
+- `we're` going back in.
+- `we're` going on ebay?
+- `we're` going to lose.
+- `we're` gonna be okay.
+- `we're` gonna be rich!
+- `we're` gonna do this.
+- `we're` gonna go home.
+- `we're` gonna make it.
+- `we're` grateful, ted.
+- `we're` here to party!
+- `we're` in a grey van.
+- `we're` in eligius iv.
+- `we're` in good shape.
+- `we're` in guidebooks.
+- `we're` in hyperspace.
+- `we're` in the desert.
+- `we're` in the future.
+- `we're` in washington!
+- `we're` its next meal.
+- `we're` like 7-eleven.
+- `we're` looking at it.
+- `we're` neighbors now.
+- `we're` never settled.
+- `we're` not canceling.
+- `we're` not dangerous.
+- `we're` not gonna die.
+- `we're` not prisoners.
+- `we're` not taking it.
+- `we're` not there yet.
+- `we're` off this rock.
+- `we're` on backup air.
+- `we're` on in 3 weeks.
+- `we're` on it bigtime.
+- `we're` on the street.
+- `we're` out of vietri.
+- `we're` ready for you.
+- `we're` still buddies?
+- `we're` still leaving.
+- `we're` still married.
+- `we're` still rolling.
+- `we're` still running.
+- `we're` still working.
+- `we're` taking a trip.
+- `we're` the 13th clan.
+- `we're` the good guys.
+- `we're` the leftovers.
+- `we're` working here!!
+- `we're` working on it.
+- `we're` your friends."
+- When `we're` all dead?
+- Ya say `we're` acrost?
+- Alright, `we're` going.
+- If `we're` unlucky?
+- `we're` good at it.
+- And `we're` good to go.
+- `we're` on our way!
+- `we're` very close.
+- But now `we're` square.
+- But `we're` passengers.
+- Good, `we're` all here?
+                 

@@ -1,0 +1,66 @@
+---
+title: "trusted in a sentence | trusted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trusted"
+---
+- Nsa `trusted` networks.
+- She never `trusted` me!
+- People who `trusted` me.
+- `Trusted` to run it all.
+- He's not to be `trusted`.
+- I've never `trusted` him.
+- I `trusted` my ex, mel, too.
+- Only if he can be `trusted`.
+- She is not to be `trusted`.
+- Too corrupt to be `trusted`.
+- Only family can be `trusted`.
+- Mookie is not to be `trusted`.
+- You never really `trusted` me.
+- No moulan yan can be `trusted`.
+- Yeah, well, bleek `trusted` me.
+- If you `trusted` me, you'd know.
+- <u>i `trusted` you</u>, riddick.
+- If you had just `trusted` me, i...
+- And to see if you can be `trusted`.
+- People in masks cannot be `trusted`.
+- Oh, now you think i can be `trusted`.
+- To become our most `trusted` soldier.
+- He, them, they're not to be `trusted`.
+- Mr. christian `trusted` me implicitly.
+- We've `trusted` you with our daughter.
+- Was lost because we `trusted` a grounder.
+- I don't trust anybody and i `trusted` you!
+- Jafar, you were my most `trusted` advisor!
+- Like i ain't never `trusted` nobody before.
+- You feel comfortable and `trusted` and open.
+- Been a long time since anyone's `trusted` me.
+- He did business...but he never `trusted` him.
+- I felt like such a fool to have `trusted` you.
+- The bottom line is, he cannot be `trusted`.
+- She did like you, she helped and `trusted` you!
+- You should have `trusted` me like i `trusted` you.
+- That's why i `trusted` you to find the soul stone.
+- You `trusted` him... you were just getting square.
+- Spock `trusted` you -- and you denied him his future!
+- And `trusted` i guess you're pretty proud of yourself.
+- I guess as much as anyone, i loved him and `trusted` him.
+- What's the matter with you, spooky, my most `trusted` comrade?
+- You're concerned that maybe i can't be `trusted` with a secret.
+- I `trusted` thelonious to talk to your father bellamy will, too.
+- He says the cookie monster is not to be `trusted` -- a trickster.
+- I'm afraid hildy'd feel ashamed to think she hadn't `trusted` you.
+- Goddamn, i `trusted` that some part of you wanted to rejoin the human race.
+- When our ship returns tonight, she's leader of trikru and a `trusted` ally.
+- Call it my woman's intuition if you will, but i've never `trusted` neatness.
+- Well, you know him, he's a friend of yours, do you think he can be `trusted`?
+- But he's always `trusted` me an wants more than anything to believe he still can.
+- I have to tell you, mozart is not entirely to be `trusted` alone with young ladies.
+- So, someone who can be `trusted` has to occupy him and keep him out of trouble-- no?
+- Criminals are used to having people not trust them, as you are not `trusted` by me.
+- My gut's telling me khruschev's turning to a `trusted` old friend to carry his message.
+- It was a <u>dame</u> who `trusted` you for the money when no one else in town would.
+- Let's let me be your most `trusted` friend, the one that gets to say awful things to you.
+- Before you even showed up, he said you were maxie's 'token goons', and not to be `trusted`.
+- You're a man who can be `trusted`, who can be counted on, and who can't betray his friends.
+                 

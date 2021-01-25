@@ -1,0 +1,80 @@
+---
+title: "angel in a sentence | angel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "angel"
+---
+- Here i am, my `angel`.
+- The `angel` of verdun.
+- An `angel` from heaven.
+- Daddy's little `angel`.
+- Fuck this `angel` shit.
+- You look like an `angel`.
+- Aren't i a little `angel`?
+- I'm your guardian `angel`.
+- The exterminating `angel`.
+- You're an `angel`, auggie.
+- It's up to you now, `angel`!
+- "the `angel` of flight 104!"
+- She has the face of an `angel`.
+- This is the home of an `angel`.
+- I thought... you was an `angel`.
+- What do you think of my `angel`?
+- You think i'm the white `angel`?
+- Goodbye, my `angel` ... my `angel`!
+- It makes you look like an `angel`.
+- The `angel`... the `angel` of death.
+- Which would make you half `angel`.
+- I've taken pity on you, my `angel`.
+- That man's a black `angel`, sailor.
+- Ross -- you are an absolute `angel`.
+- Sort of a fallen `angel`, aren't you?
+- So tell me ... am i still an `angel`?
+- What are you dreaming, little `angel`?
+- That's why i'm an `angel` second class.
+- You're the voice of an `angel`, johnny.
+- I told you �� i'm your guardian `angel`.
+- Some of them have real `angel` potential.
+- Might as well ask can an `angel` feel love.
+- She speaks: o, speak again, bright `angel`!
+- Well, `angel` funders want too much equity.
+- You know that film you made called `angel`?
+- Good night `angel`... well, that all depends.
+- That `angel` of mercy, he ain't a she, is he?
+- You're more than a priest; you're an `angel`!
+- It's like a pirate had a baby with an `angel`.
+- I didn't say "`angel`," that's a little strong.
+- Please find our adored `angel`, we miss her so.
+- If i play like an `angel`, why don't you listen?
+- In a place that came to be known as `angel` grove.
+- That god had put an `angel` on earth just for you.
+- ♪ no `angel` born in hell ♪ is it what's happening?
+- She has the face of an `angel`... she was an `angel`.
+- You wouldn't know how it felt to be her `angel`.
+- An `angel`, when she was having one of her headaches.
+- So me and groot will go with the pirate `angel` here.
+- I seen the `angel` of death ned, an' i seen the river.
+- An `angel` is like you, kate, and you are like an `angel`.
+- But the girl was always here, like some guardian `angel`.
+- Well, you look about like the kind of an `angel` i'd get.
+- You should think of me as liza sutton's guardian `angel`.
+- I'll get them before "touched by an `angel`," don't worry.
+- I mean i was no `angel` when we met but people change doc.
+- You know, you look like an `angel`, louis, an overgrown cherub.
+- But then came an `angel` who whispered these words what a shame!
+- Don't do it and we're going to see if your `angel` here can fly.
+- Some sort of `angel` visiting me from one of my drunk fantasies?
+- I tell ya, there's an `angel` of mercy standing out there, turkle.
+- Yes, sorry - he's here to make sure that you are alright `angel`...
+- Who will care for me my love, my dark `angel`, when you are gone?
+- Figured i was dead, there, when i seen that `angel` comin' toward me.
+- Those little `angel` makers you've been slingin' at least you get to have fun.
+- When you saw your king for the first time, was there an `angel` over his head?
+- It's that fellow there �� he says he's an `angel` �� he's tried to hypnotize me.
+- Our little `angel`'s father has accepted the new headmaster position at oakwood.
+- Every time you hear a bell ring, it means that some `angel`'s just got his wings.
+- Her body rests in capel's monument, and her immortal part with the `angel`'s lives.
+- I thought the only way to turn bart into a little `angel` what do you say, big guy?
+- Beats getting paid in twenties by slimedogs selling `angel` dust to high school seniors.
+- Now, wouldn't you pray for twenty bucks, a bottle booze an' a piece of that `angel` cake?
+                 

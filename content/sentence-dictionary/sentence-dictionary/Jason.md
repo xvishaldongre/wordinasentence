@@ -1,0 +1,107 @@
+---
+title: "Jason in a sentence | Jason example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jason"
+---
+- `Jason`: this is sick.
+- Okay, so... `jason`...
+- `Jason`: did i do that?
+- `Jason`: hold on, okay?
+- `Jason`: i'll go first.
+- `Jason`: what the hell?
+- We're leaving, `jason`.
+- Zoey: come on, `jason`.
+- Fred's no good, `jason`.
+- His name's `jason` dean.
+- `Jason` bourne happened.
+- `Jason`: i'm burning up.
+- `Jason`... let me think.
+- `Jason`: super friendly.
+- This is `jason`'s fault!
+- Where were you, `jason`?
+- `Jason`: ray, it's `jason`.
+- `Jason` voorhees is dead.
+- Okay, `jason`, your move.
+- This is curious, `jason`.
+- This is `jason` voorhees.
+- Time out....`jason` dean.
+- Wait... `jason`, here!...
+- How 'bout freddy, `jason`?
+- `Jason`.. can you hear me?
+- Drugs... then `jason` came.
+- `Jason`: come on, hurry up.
+- `Jason`: get off the floor.
+- `Jason`: it's getting warm.
+- `Jason`'s here in new york.
+- My name is `jason` nesmith.
+- No, `jason`, that's a wrap!
+- `Jason`: it goes pretty far.
+- `Jason`: mike, where you at?
+- `Jason`, please...who is he?
+- `Jason`'s not in his coffin!
+- No, not at all, mr. `jason`.
+- We have to go home, `jason`.
+- You just sit tight, `jason`.
+- `Jason`: good one, gamer boy.
+- `Jason`: okay, you know what?
+- `Jason`, what does that mean?
+- His name was `jason` voorhees.
+- Is `jason` priestly available?
+- `Jason`: did he say "rudolph"?
+- `Jason`: i'm sorry, all right?
+- But it's a small room, `jason`.
+- Listen to your father, `jason`.
+- Don't make me tell you, `jason`.
+- `Jason`: get away from the edge.
+- `Jason`: higher, higher, higher.
+- More macaroons, please, `jason`.
+- We're doing episode 31, `jason`?
+- We~re oetting hammered, `jason`.
+- ], and `jason` had a sore throat.
+- Ben: `jason`, what are you doing?
+- But you have never liked `jason`.
+- I gotta show you `jason`'s grave.
+- `Jason`: this is a waste of time.
+- `Jason`: guys, just hang on, okay?
+- `Jason`: what is he talking about?
+- `Jason`: what the hell's going on?
+- You're not `jason` bourne, though.
+- Zoey: `jason`'s right there, okay?
+- [cracking, rumbling] `jason`: whoa!
+- Did da -- `jason` get good grades?
+- I did... `jason`, i swear, i did...
+- `Jason`: your heart rate's too low.
+- They were killed by `jason` bourne.
+- I thought `jason` was only a legend?
+- It's terribly sweet of you, `jason`.
+- `Jason`: hey, false alarm, everybody.
+- `Jason`: maybe the handle's in there.
+- If you threw yourself- hello, `jason`.
+- `Jason`, i'm going back to highcliffe.
+- `Jason`: no, that doesn't work either.
+- `Jason`, what have you gotten us into?
+- Then i'd say it's bedtime for `jason`.
+- But you should make her laugh, `jason`.
+- `Jason`: hey, what are you three doing?
+- `Jason` seemed to have the right stuff.
+- `Jason`, are we doing episode 31 or not?
+- `Jason` didn't show up until the sequel.
+- <u>there never was a `jason` bourne</u>.
+- So... why can't `jason` get a fair trial?
+- I know something of your history, `jason`.
+- `Jason`: how many floors is this building?
+- `Jason`, please, tell me what's happening!
+- `Jason`: what don't you people understand?
+- [dial-up tone screeches] `jason`: oh, shit!
+- `Jason`: what do you mean, he fell through?
+- The buzz is that `jason` might be on board.
+- `Jason`: come on, the floor's going to drop.
+- `Jason`: man, what the hell did you just do?
+- I have to go out to `jason`'s house tomorrow.
+- `Jason`: are you going to come today or what?
+- `Jason`: so, his evil lab has a waiting room?
+- `Jason`: we don't even know the first way out.
+- Yes, i'm...i'm looking for mr. `jason` bourne.
+- Everyone thinks they know `jason`'s life story.
+                 

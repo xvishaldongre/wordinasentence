@@ -1,0 +1,61 @@
+---
+title: "frozen in a sentence | frozen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "frozen"
+---
+- `Frozen` to the touch?
+- My mouph is `frozen`.
+- The rings are `frozen`.
+- It won't go, it's `frozen`!
+- All 14 cameras are `frozen`.
+- I liked you better `frozen`.
+- She's `frozen` in - trust me.
+- To get some `frozen` poultry.
+- Can i have a `frozen` daiquiri?
+- Dumping a guy into a `frozen` lake?
+- I have to see the `frozen` charles!
+- It gets `frozen` this time of year.
+- Of ice coming from my `frozen` soul.
+- What is ... this `frozen` moment?
+- My tongue is `frozen` to your zipper.
+- Those targeting mirrors are `frozen`.
+- Don't sit there like a `frozen` robin!
+- I'd be `frozen` between pity and fear.
+- I can't feel my hands, they're `frozen`.
+- So that's why he was `frozen` like that?
+- His paws are `frozen` and he cannot walk.
+- Let's get those all-beef `frozen` patties!
+- He was partially `frozen` for thirty years.
+- You're not, cause you eat `frozen` meatballs?
+- My hands are `frozen`, congratulations, gavin.
+- A lot's happened since you were `frozen`, austin.
+- When you're `frozen`, you're legally dead, right?
+- I put a `frozen` dinner in the oven, a manhandler.
+- When i came up for air the pond was `frozen` over.
+- Your mom was half `frozen` to death when i got here.
+- You've been cryogenically `frozen` for thirty years.
+- It could have been `frozen` along with everything else.
+- You're abandoning us in the middle of a `frozen` river?
+- She jumped from the top of a tower into a `frozen` moat!
+- You better get it done in under 60 `frozen`, cold `frozen`?
+- I've been `frozen` for thirty years, throw me a bone here.
+- Why, as of this date, am i `frozen` out of the column...
+- `Frozen`, they're six-thirty a dozen in the three pound box.
+- Making the world a `frozen` hell is beyond me modest powers.
+- Unless i return the alicorn, the earth will be `frozen` forever.
+- Once you have `frozen` mankind, my mutants will overrun the globe.
+- You never said anything about a wife, `frozen` or otherwise- fine.
+- After you have `frozen`, your icy tomb will plummet back to gotham.
+- Because, don't get into it ... why so coy about the word "`frozen`"?
+- Our radios were blocked by residual radiation my screen is `frozen`!
+- Yeah, they have these banks, you know, where they keep them `frozen`.
+- But, until this `frozen` moment, i didn't even know what the phrase meant.
+- Since you were `frozen`, they've been placed on the endangered species list.
+- 'bout the entire twenty years lost while being `frozen` in forty-eight hours.
+- They shot him with arrows made of `frozen` snakes hands where i can see them.
+- What can you tell me, young man, about the various flavors of "`frozen` yogurt"?
+- Like i said, i'd still be up on that mountain, `frozen` solid, it wasn't for you.
+- No man could possess that kind of strength after being `frozen` for twenty years.
+- You'll be here... the two of you... eternally `frozen`... `frozen`... beautiful.
+                 

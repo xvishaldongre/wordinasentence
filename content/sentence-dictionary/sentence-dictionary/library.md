@@ -1,0 +1,69 @@
+---
+title: "library in a sentence | library example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "library"
+---
+- `Library` of congress.
+- Through the `library`?
+- Still in the `library`.
+- I gotta hit the `library`.
+- I looked in the `library`.
+- Save it for the `library`.
+- Six `library` guards, raw?
+- In the new `library` there.
+- Is anyone in the `library`?
+- I have been at the `library`.
+- Went to the public `library`.
+- I was at the public `library`.
+- Philadelphia public `library`.
+- The shawshank prison `library`.
+- They shot him in his `library`.
+- I'll be at the public `library`.
+- You turn in your `library` card?
+- Will you step into the `library`?
+- How about expanding the `library`.
+- But you're always at the `library`.
+- This cell is like a huge `library`.
+- What were you doing in a `library`?
+- Maybe i'll see you at the `library`.
+- The librarian... or the `library`...?
+- This is the only `library` i know of.
+- I teach `library` science over at usc.
+- That doesn't look much like a `library`.
+- My parents are laid out in the `library`.
+- I checked out your stuff at the `library`.
+- I just remembered... she's at the `library`.
+- This was my grandfather's private `library`.
+- I gotta get to the `library` before it closes.
+- I brought you something ... from the `library`.
+- I log on at the `library` so i can't be traced.
+- Oh, i'll probably end up down at the `library`.
+- Order chinese for us and meet me the `library`?
+- Where is my grandfather's private `library`?
+- Maybe i'll get a job in the prison `library`.
+- You used an old `library` shot for the background.
+- I found a `library` and the books were very useful.
+- Probably couldn't get a `library` card if he tried.
+- We're not talking about a trip to the `library` here.
+- Get it in the stacks at the `library` of congress, now.
+- I granted her access to our medical `library`, go where?
+- Please help me to understand i met her at the `library`.
+- Well, it's like they say, philadelphia public `library`.
+- Yes, this was victor's... the baron's medical `library`.
+- She made me read every book in ferndell hall's `library`.
+- The last time i saw your father we were in the `library`.
+- A sophomoric prank in the `library` and punitive measures.
+- I am the fifth avenue public `library` informational kiosk.
+- Let's just say i spent a lot of time in the prison `library`.
+- Sir, this is not a lending `library`, it's the hall of records.
+- 's been hooked into the `library` system, keeping accurate records.
+- I tracked it down in the `library`'s catalogue of national yellow pages.
+- Of course a tape can get misplaced in a `library` the size of sense/net's.
+- ...the state has allocated the enclosed funds for your `library` project."
+- Well, there was a public and a private `library` -- he said so in his will.
+- Just because the bastard has a `library` card, it doesn't make him einstein.
+- They just let me have my own study-time, my own reading time in the `library`.
+- Whoever takes out a flagged book has their `library` records fed to the f.b.i.
+- The last time i saw my mom, she was waving out the window of a `library` in texas.
+                 

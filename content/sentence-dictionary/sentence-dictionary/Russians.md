@@ -1,0 +1,57 @@
+---
+title: "Russians in a sentence | Russians example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Russians"
+---
+- Those were `russians`?
+- Wait, what `russians`?
+- The goddamn `russians`!
+- Are the `russians` here?
+- What about the `russians`?
+- You one of them `russians`?
+- `Russians` exploded an a-bomb.
+- The `russians` would claim me.
+- Yeah, totally evil `russians`.
+- You think the `russians` know?
+- Vietnamese are like `russians`.
+- Do `russians` never think of life?
+- The `russians`, they took the keys.
+- She was a spy against the `russians`.
+- It has been started by the `russians`!
+- How does she know about the `russians`?
+- Staying one step ahead of the `russians`?
+- To relay with the `russians`' radio tower.
+- Backup in case the `russians` get physical.
+- ♪ that as you saw me go ♪ - the `russians`!
+- But... well, i think we found your `russians`.
+- The `russians` will only make trouble for him.
+- He spreads it like the `russians` are in jersey.
+- They knew the "`russians`" were undercover feeb?
+- There are going to be fewer but better `russians`.
+- Hell, kennedy's pissed cuba away to the `russians`.
+- We think these `russians` want to do harm to our country.
+- But before she can, the `russians` find them, take them...
+- By offering cuba to the `russians` as a consolation prize?
+- Uh, trying to save the world from `russians` and monsters.
+- Allowing the `russians` and chinese to push the enemy back.
+- On the `russians` massing the fire and we... - you hesitated.
+- The `russians` appear to be trying to reopen it, what's wrong?
+- How do you know these `russians` are up to no good anyways?
+- I ended the war, i got salt i with the `russians`, i opened china!
+- Where did she spy on the `russians` from, here in pennsylvania??
+- But he never writes, speaks, or does any propaganda for the `russians`.
+- I know that sounds insane, but the `russians` have infiltrated hawkins!
+- Mr. kennedy made a verbal promise to the `russians` not to invade cuba.
+- Because you didn't realize `russians` use an entirely different alphabet.
+- ♪ yeah, i'm great, now that i know that `russians` can't design elevators!
+- One of these days the `russians` are going to show up unannounced at my gate.
+- That there were evil `russians` beneath our feet, not much to report, really.
+- Powers hinted that oswald could've given the `russians` enough data to hit it.
+- Are you sympathetic to the former czaristic government -- the white `russians`?
+- The slavs have been fighting the germans and the `russians` for a thousand years.
+- ♪ they'll be happy to know ♪ yeah, which is how we found out about the `russians`.
+- Besides, if you're a hitter, you're either working for the `russians` or the italians.
+- Just cause you `russians` ain't commies anymore, don't think money can buy everything...
+- As if dealing with the `russians` wasn't hard enough, we gotta worry about our own house.
+                 

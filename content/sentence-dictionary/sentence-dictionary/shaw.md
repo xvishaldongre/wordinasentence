@@ -1,0 +1,71 @@
+---
+title: "shaw in a sentence | shaw example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shaw"
+---
+- Our friend clay `shaw`.
+- `Shaw`'s failsafe code.
+- Thank you... mr. `shaw`.
+- What happened to `shaw`?
+- Clay `shaw` is important.
+- `Shaw`, get out of there.
+- That fuckin' clay `shaw`.
+- He showed me `shaw`'s body.
+- `Shaw`'s our toehold, bill.
+- Clay bertrand is clay `shaw`?
+- Hey, you see raven or `shaw`?
+- You gotta get back to `shaw`?
+- How about that beacon, `shaw`?
+- Mccreary has raven and `shaw`.
+- `Shaw` was tortured... - what?
+- Clay `shaw` is blackmailing you?
+- How are those instruments, `shaw`?
+- I'm sorry i turned you in, `shaw`.
+- None of us is here without `shaw`.
+- You and `shaw` make a good couple.
+- `Shaw`, get me those damn missiles.
+- Those are our men up there, `shaw`.
+- We're not doing this again, `shaw`.
+- Bill, any more on oswald and `shaw`?
+- `Shaw` just saved your life, murphy.
+- Sergeant `shaw` was shot by an arrow.
+- For mccreary and his army, for `shaw`.
+- Mr. `shaw`, can you identify this man?
+- _ well, level 11... well done, `shaw`.
+- You're ruining this man `shaw`'s life!
+- After we roll up abby, we go for `shaw`.
+- `Shaw` denies he knows ferrie or oswald.
+- `Shaw`, oswald, the cubans - all agency.
+- `Shaw`, what the hell is taking so long?
+- I told you i was going to talk to `shaw`.
+- I'm interviewing clay `shaw` this morning.
+- It's a place called `shaw`'s siesta motel.
+- Uh, let me put it to you like this, `shaw`.
+- Did we involve you, dave, or did clay `shaw`?
+- Then gimme buddy `shaw` -- he's ranked fifth.
+- Killing every member of the crew except `shaw`.
+- Mr. `shaw`, did you ever meet lee harvey oswald?
+- `Shaw` probably has lotsa enemies to choose from.
+- `Shaw`'s an "untouchable", man - highest clearance.
+- Thank you, but for the record, it has to be `shaw`.
+- `Shaw`'s been planning to beat your game for months.
+- Yeah, mom, tell us why you're do what he says, `shaw`.
+- One of our people, `shaw`, was the pilot on eligius iv.
+- All you gotta do is place a bet for me at `shaw`'s place.
+- But it's tough, boss - no one wants to talk about `shaw`.
+- `Shaw`'s conscience can get in the way of his duties, look out!
+- Grab your socks and pull... clay bertrand is clay `shaw`... who?
+- Once healed, we will find `shaw`, it's crazy, but... - stressful.
+- According to `shaw`, this place and he was a great parent, i assume.
+- If you help me out, i'll pay ya back the money you owe `shaw`, myself.
+- `Shaw`, you're gonna say that you're still loyal you've got 5 minutes.
+- Teléfono ocho-ocho-ocho ocho-ocho... collar looks good on you, `shaw`.
+- So for those reasons, you're going to trial against clay `shaw`, chief?
+- You think the grounders are just gonna sit around `shaw` told you all this?
+- Clay `shaw`'s done so much for the city with all that restoration in the quarter.
+- `Shaw`'s fighting in south america -- why not postpone the bout until july fourth?
+- This is the beginning of a beautiful... tell him we got the people who took `shaw`.
+- Mr. `shaw`, have you ever been a contract agent with the central intelligence agency?
+- And now diyoza's starting to question my loyalty, `shaw`, what the hell are you doing?
+                 

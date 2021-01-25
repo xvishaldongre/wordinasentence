@@ -1,0 +1,74 @@
+---
+title: "whom in a sentence | whom example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whom"
+---
+- `Whom` did they choose?
+- For `whom` and for what?
+- Negotiating with `whom`?
+- `Whom` would you call?
+- For `whom` the bell tolls.
+- I'm a push-over for `whom`?
+- `Whom` should we "interrogate?"
+- For `whom` else have you worked?
+- I wonder `whom` you're thinking of.
+- `Whom` you've seen twice in a year?
+- Have you not a man `whom` you value?
+- `Whom` do you think i should believe?
+- Of `whom` you so obviously disapprove.
+- Both of `whom` were in bed with dmitri.
+- How can you care what i do with `whom`?
+- A man `whom` he, personally, recommends.
+- `Whom` have i been harboring in my house?
+- I could value only someone `whom` i loved.
+- Several of `whom` may be in place already.
+- The man for `whom` faking it was invented.
+- Ok. ♪ no king to `whom` i've kneeled ♪ huh.
+- Someone for `whom` death would be a blessing.
+- `Whom` are you calling--in the dead of night?
+- Susan's patient is `whom` we are talking about.
+- And all i can do to stop it by `whom` if not god?
+- ♪ there is none to `whom` i yield ♪ i'm gonna pee.
+- I'm pretty particular about `whom` my wife marries.
+- Did you tell her `whom` you built that body for?
+- Could not betray the girl to `whom` i was betrothed.
+- `Whom` do you mean- i told you, there is no way out.
+- I'm in love with a woman `whom` i don't want to leave.
+- Be so good as to tell me with `whom` you think you are?
+- Is it a great man `whom` gray can order to his bidding?
+- Then to `whom` do you report directly regarding genesis?
+- Ask not for `whom` the telephone rings ... mrs. peel -- ?
+- I think it only said where -- but i can't -- with `whom`?
+- Your investors, `whom` i represent, are deeply concerned.
+- I can't think of one person to `whom` i dare recommend him.
+- Now, the money question... to `whom` does that stain belong?
+- To `whom` it was connected, but we don't have time for this.
+- Now i see only an empty shell `whom` others call a 'success.'
+- Well, i hope you're not going to dictate `whom` i can talk to.
+- Daddy... executed for treason to `whom` i've dedicated my life.
+- You got a deal... let's forget who said what to `whom`... yeah.
+- Though frankly, at times i was unsure of who was leading `whom`.
+- The high lama is the only one from `whom` any information can come.
+- Those `whom` god has joined in marriage, not even i can put asunder.
+- I don't care `whom` she's married to� �as long as i can get her back.
+- ♪ praise god from `whom` all blessings flow ♪ why can't we just leave?
+- You have three younger sisters, two of `whom` suffer from consumption.
+- One minute you're our little boy, of `whom` we could not be more proud.
+- Let those `whom` you trust, your father, help settle what's best for you.
+- There's a good wrestler, and a bad wrestler `whom` he confronts at the end.
+- These good ladies, for `whom` i intervened once, will honor me with a meal.
+- It is the hearts of two good men `whom` i have had the honor of calling son.
+- The guy never saw his kids, one of `whom`, i think, ended up in an asylum-- who?
+- But i have seen half-witted field hands -- `whom` the other peasants call zombies.
+- Captain pierce, you have a seriously wounded patient for `whom` you are responsible.
+- But to be free to live my own life, to choose `whom` i love... that is true happiness.
+- He's only a man from `whom` i buy what i need when i need it -- the rest is forgotten.
+- Me and those two witnesses `whom` your lawyers have been looking for all over chicago.
+- If i had a man waiting for me for half an hour and `whom` i hadn't seen for a month ...
+- It goes "perhaps there is someone in this world to `whom` i could send all these lines"?
+- Then you listened as if someone else had written you play - `whom` did you have in mind?
+- Isn't it max, not chip, `whom` you want to see immersed up to his eyeballs in raw sewage?
+- It has been said, you may have enemies `whom` you hate, but not enemies `whom` you despise.
+- So you know we put the case before the arbitration panel, none of `whom` had any expertise.
+                 

@@ -1,0 +1,107 @@
+---
+title: "dream in a sentence | dream example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dream"
+---
+- `Dream` on, desperado.
+- I know it's a `dream`.
+- In her `dream` circle.
+- It's only his `dream`.
+- It was just a `dream`.
+- It was like a `dream`.
+- Life is not a `dream`.
+- Oh, `dream` of dreams!
+- She's in your `dream`.
+- That wasn't a `dream`.
+- This is not a `dream`!
+- Alice, it's no `dream`.
+- Did you have a `dream`?
+- Handles like a `dream`.
+- I had an awful `dream`.
+- Is it the same `dream`?
+- It'll make you `dream`.
+- It was a `dream`, star.
+- It was daddy's `dream`.
+- Just had a bad `dream`.
+- Wouldn't `dream` of it.
+- `Dream` come true, hunh?
+- I had a strange `dream`.
+- I had the `dream` again.
+- Is this another `dream`?
+- It's all been a `dream`.
+- It was just a `dream`...
+- Or was it all a `dream`?
+- Runs like a `dream` now.
+- Shit, this is a `dream`.
+- That ended that `dream`.
+- The night of my `dream`.
+- Yes, you have a `dream`.
+- You're a stupid `dream`.
+- Aaron was in the `dream`.
+- Am i artifact or `dream`?
+- Because in the `dream`...
+- But this isn't a `dream`.
+- I had a `dream` about it.
+- It's a `dream` come true.
+- It's a `dream` of beauty.
+- I wouldn't `dream` of it.
+- "man, this is a `dream`."
+- This is a `dream`, sarah.
+- We all have that `dream`.
+- What'd you `dream` about?
+- You're chasing a `dream`.
+- Do you `dream` much, will?
+- I `dream` of battlefields.
+- I `dream` of death mostly.
+- It's just i don't `dream`.
+- It's the american `dream`.
+- It's the puppet's `dream`.
+- It was just in my `dream`.
+- Just had a little `dream`.
+- Such a terrible `dream`...
+- The guy is a pipe `dream`.
+- What do you `dream` about?
+- It's a `dream` suppressant.
+- I was having a bad `dream`.
+- I was there in the `dream`.
+- Like a `dream` upon waking.
+- Miller `dream` on, private.
+- Of course, a scary `dream`.
+- That's your `dream`, homes.
+- This is like a bad `dream`.
+- This is your `dream`, reed.
+- What does he `dream` about?
+- What was the `dream` about?
+- You just had a bad `dream`.
+- You've never had a `dream`?
+- A midsummer night's `dream`.
+- Because it's a pipe `dream`.
+- But it won't let me `dream`.
+- Do you think it's a `dream`?
+- I call it my shower `dream`.
+- I `dream` about needlepoint.
+- I had such an awful `dream`.
+- I'm having the best `dream`.
+- I'm in the `dream` business.
+- It wasn't a `dream`, was it.
+- Maybe it was just a `dream`.
+- Mr. hypnos, i saw a `dream`.
+- Remember, this is a `dream`.
+- She robbed me of my `dream`.
+- That's your `dream` in life.
+- This magazine is my `dream`.
+- What a `dream` i was having.
+- What if shari's the `dream`?
+- Wouldn't `dream` of it, sir.
+- You `dream` about dead guys?
+- You know what my `dream` is?
+- You see, it's not a `dream`.
+- Are you having a bad `dream`?
+- At last... is this a `dream`?
+- Hmm... are you a `dream` too?
+- So what do you `dream` about?
+- This is like my `dream` room!
+- What happened to our `dream`?
+- A `dream` tilled with spirits.
+                 

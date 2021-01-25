@@ -1,0 +1,73 @@
+---
+title: "solve in a sentence | solve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "solve"
+---
+- To `solve` overpopulation.
+- To `solve` overpopulation.
+- The kind you never `solve`.
+- Can you `solve` that problem!
+- `Solve` the crime, of course.
+- Someone's gonna `solve` that?
+- Hollywood can `solve` anything.
+- That'll `solve` all our problems.
+- I just want to `solve` this thing.
+- Killing her won't `solve` anything.
+- Not much time to `solve` the crime.
+- Let's `solve` this 5-minute problem.
+- And it's up to us kids to `solve` it.
+- You're gonna `solve` the mystery?
+- But that doesn't `solve` the problem.
+- This is one problem you can't `solve`.
+- Then blame you if you can't `solve` it.
+- To `solve` all your food storage problems.
+- The colonies, they have problems to `solve`.
+- You always think you can `solve` everything.
+- We don't need you to `solve` our prob... luke.
+- I din't `solve` it, i didn't '<u>`solve` it</u>'.
+- `Solve` the freakin' crime, be told who did it.
+- Unscramble the words to `solve` a funny riddle.
+- You think that's going to `solve` our problems?
+- To set yourself a puzzle you won't ever `solve`.
+- How do you propose to `solve` this minor problem?
+- I can't `solve` your problems, sir, only you can.
+- My public expects me to `solve` the mystery, bob.
+- I think i know what's going to help you `solve` it.
+- Smithers, `solve` this if you don't want another kick.
+- Also, anyone else smart enough to `solve` this "aaron."
+- He never met a problem he couldn't `solve` with a belt.
+- Now let's `solve` this thing before eddie flemming does.
+- And `solve` the case of the missing condiment, nancy drew?
+- My disguises have helped me `solve` many a difficult case.
+- But i'm not the mystery you're trying to `solve` right now.
+- I can help you `solve` the case, i can tell you who did it.
+- If they could only `solve` it, everything would be okay.
+- You came back here to `solve` the puzzle -- i was bored.
+- I can `solve` my problems without recourse to a veternarian.
+- To find your clothes, just `solve` this series of clues: huh?
+- But chief wiggum vows he will `solve` this pickle of a puzzle.
+- You start to `solve` murder mysteries and break up crap games.
+- It was the only way to `solve` certain problems -- protomatter.
+- So we just go eat with him and that's gonna `solve` everything?
+- And, in return i will help you `solve` the greatest riddle of all.
+- It was an early attempt to `solve` the problems of global warming.
+- Danny: you're not going to `solve` anything by sitting on your ass.
+- My old man, he never met a problem he couldn't `solve` with a belt.
+- Solved by the one person who could `solve` it: so why bring him here?
+- Yeah, we're trying to `solve` the great mystery of the female species.
+- I'll give you one hour to `solve` the case... until the kids are in bed.
+- Suppose they decide to just step in and `solve` all our problems for us.
+- I hope you `solve` the case and i know you will, because you're the best.
+- For more than a few days, if we find dart, maybe we can `solve` this thing.
+- There are so many problems in this neighborhood that we could help `solve`.
+- You can `solve` the mystery of the stone, aw, honey, i'm just as bad as you.
+- The night's still young... you can `solve` this case and start on another one.
+- There's someone here who wants to talk to you... did you `solve` your problems?
+- Now don't give me a killing-max- won't-`solve`-anything speech, because it will.
+- He won't `solve` your case, but who cares, you'll be dead in a couple days anyway.
+- Another thing, albert, when the next murder happens you will help me `solve` it.
+- The ingenuity of crowds will `solve` it for us by tomorrow, that is not who i am.
+- He's fine now, but i'm telling you, that means we have 5 years to `solve` this problem.
+- I feel they're out to <u>get</u> me... you want me to `solve` all your problems tonight...?
+                 

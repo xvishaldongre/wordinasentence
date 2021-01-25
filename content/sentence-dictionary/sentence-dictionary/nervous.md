@@ -1,0 +1,107 @@
+---
+title: "nervous in a sentence | nervous example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nervous"
+---
+- I'm kind of `nervous`.
+- I seem `nervous`, huh?
+- It makes me `nervous`!
+- You make me `nervous`!
+- You make me `nervous`.
+- You're just `nervous`.
+- Are you `nervous` jack?
+- It makes you `nervous`?
+- I�m a little `nervous`.
+- Not `nervous`, are you?
+- Now don't be `nervous`.
+- They're `nervous`, too.
+- You're `nervous` again.
+- Do i make you `nervous`?
+- Fletch, i got `nervous`.
+- God, i was so `nervous`.
+- I think i got `nervous`.
+- Now don't get `nervous`.
+- They're `nervous`, sire.
+- Flight got you `nervous`?
+- I'm ok. we get `nervous`.
+- Not that i was `nervous`.
+- Well, i wasn't `nervous`.
+- Why are you so `nervous`?
+- I'm just -- i'm `nervous`.
+- I'm not so `nervous` then.
+- `Nervous` about something.
+- They still seem `nervous`.
+- We're naturally `nervous`.
+- Why should i be `nervous`?
+- But i'm a little `nervous`.
+- Don't be `nervous`, maggie.
+- I'm a little bit `nervous`.
+- I might make him `nervous`.
+- They were acting `nervous`.
+- Well, i am a bit `nervous`.
+- You're makin' me `nervous`.
+- I was `nervous`, that's all!
+- Questions make me `nervous`.
+- Having a `nervous` breakdown.
+- It makes me not be `nervous`.
+- They said you'd be `nervous`.
+- You don't want him `nervous`.
+- You feel good, not `nervous`?
+- You said: i was so `nervous`.
+- You have a `nervous` tick.
+- Guess i'm a wee bit `nervous`.
+- I mean, you make me `nervous`.
+- Oh god, i'm fucking `nervous`.
+- What are they `nervous` about?
+- You seem a little...`nervous`.
+- Do i make you `nervous`, corky?
+- Look, i'm a very `nervous` man.
+- Sorry, this makes me `nervous`.
+- The country makes me `nervous`.
+- These `nervous` spells you get.
+- They make my workers `nervous`.
+- Whenever i get `nervous` i eat.
+- I'm making <u>you</u> `nervous`.
+- Sit down, you make me `nervous`!
+- To me he seems rather `nervous`.
+- With the wrong `nervous` system.
+- You're `nervous` around me, huh?
+- Boy, i was so `nervous` that i...
+- High-pressure `nervous` syndrome.
+- I'm `nervous`--my old man's here.
+- I <u>have</u> made you `nervous`.
+- No, thanks, i'm `nervous` enough.
+- Psychiatrists make you `nervous`?
+- She's just `nervous` and worried.
+- Truth is, i'm a little `nervous`.
+- What, `nervous` i'm going to win?
+- Yeah, well, do i sound `nervous`?
+- I'm sorry, i'm a little `nervous`.
+- N-no... are you `nervous`, walter?
+- That affects our `nervous` system.
+- Was it like a `nervous` breakdown?
+- You're making the women `nervous`.
+- Along raven's own `nervous` system.
+- He makes you `nervous`, not me.
+- Authority still makes me `nervous`.
+- Complete `nervous` system shutdown.
+- I get `nervous`, that's all i know.
+- Shut up, you `nervous` little punk.
+- They're `nervous` about everything.
+- Come on, we're making her `nervous`.
+- Just a little `nervous`, that's all.
+- Letty, it's natural to be `nervous`.
+- You seem to be a bit `nervous`, sir.
+- I don't get `nervous` like i used to.
+- I'm a little `nervous`, so... uh-huh.
+- Why on earth should you be `nervous`?
+- Yeah, you're making us all `nervous`.
+- You don't have to be `nervous`, will.
+- He's got that `nervous` talking thing.
+- I could tell when they were `nervous`.
+- I'm getting `nervous`, really `nervous`.
+- It said you had a `nervous` breakdown.
+- So `nervous` about seeing your mother.
+- So what'll you do if i feel `nervous`?
+                 

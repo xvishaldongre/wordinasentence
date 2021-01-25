@@ -1,0 +1,107 @@
+---
+title: "that in a sentence | that example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "that"
+---
+- A toupee `that` flies?
+- Aw, isn't `that` cute?
+- Before `that` happens?
+- Bellamy is all `that`.
+- Better cut `that` out.
+- Brian told you `that`?
+- Bring me `that` paper.
+- But i can't do `that`.
+- But maybe `that`'s it.
+- But not `that` singer.
+- But `that` isn't true.
+- But `that`'s cheating!
+- But `that`'s not true.
+- But `that`'s not true!
+- But `that`'s the jail!
+- But `that`'s tomorrow.
+- But `that`'s too soon!
+- Call 'em `that`, yeah.
+- Can anybody do `that`?
+- Cancel `that`, dieter.
+- Cancel `that` meeting.
+- Can i count on `that`?
+- Can i have `that` one?
+- Can it be `that` easy?
+- Can -- `that`'s right.
+- Can't say `that` i do.
+- Can't you stop `that`?
+- Can you handle `that`?
+- Can you set `that` up?
+- Carl, `that`'s insane.
+- Clarke, is `that` you?
+- Connor, is `that` you?
+- Damn, `that` was fast.
+- David, what is `that`?
+- Did i tell you `that`?
+- Did it go like `that`?
+- Didn't you say `that`?
+- Did you put `that` on?
+- Does `that` say xanax?
+- Does `that` scare you?
+- Does `that` upset you?
+- Does `that` worry you?
+- Do not tell me `that`!
+- _ don't answer `that`.
+- Don't bring `that` up.
+- Don't call him `that`.
+- Don't do `that` again!
+- Don't do `that`, okay?
+- Don't do `that` to me!
+- Don't even try `that`.
+- Don't ever say `that`.
+- Don't feed `that` dog.
+- Don’t ﬁre `that`'s it?
+- Don't open `that` now.
+- Don't say `that` name.
+- Don't say `that` word.
+- Don't sell `that` out.
+- Don't you know `that`?
+- Don't you like `that`?
+- Don't you see `that`?!
+- Don't you want `that`?
+- Do you believe `that`?
+- Do you realize `that`?
+- Dude, `that` was lame.
+- Duh... `that`'s quick.
+- Enough of `that` crap.
+- Everyone knows `that`.
+- For `that`, i'm sorry.
+- Fuck `that` shit, man.
+- Gee, `that`'s too bad.
+- German, is `that` you?
+- Good luck with `that`.
+- Got `that` desert yet.
+- Gregor, is `that` you?
+- Guys, `that`'s enough.
+- Have a suck on `that`.
+- He'll stop `that` war.
+- He loves `that` thing.
+- He promised me `that`.
+- He really said `that`?
+- He's more than `that`.
+- He understands `that`.
+- He wouldn't do `that`.
+- Hey, how about `that`!
+- Hey, `that`'s whacked!
+- Hey, you smell `that`?
+- Him dying like `that`.
+- Holster `that` weapon.
+- How about `that` jeep?
+- How about `that` pose?
+- How can you do `that`?
+- How did you do `that`?
+- How did you do `that`?
+- How does `that` sound?
+- How do we know `that`?
+- How do ya know `that`?
+- How'd you know `that`?
+- How is `that` justice?
+- How's `that` possible?
+- How's `that`, sheriff?
+                 

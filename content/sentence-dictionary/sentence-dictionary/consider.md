@@ -1,0 +1,107 @@
+---
+title: "consider in a sentence | consider example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "consider"
+---
+- `Consider` him packed.
+- `Consider` me a guide.
+- `Consider` the buddha.
+- At least `consider` it.
+- `Consider` it gone away.
+- Then `consider` it done.
+- `Consider` me ungrateful.
+- I `consider` them linked.
+- I said i'd `consider` it.
+- Will you `consider` that?
+- `Consider` it a convincer.
+- `Consider` yourself lucky.
+- `Consider` grace, the kids.
+- `Consider` it how you like.
+- He said he'd `consider` it.
+- I'd `consider` it an honor.
+- `Consider` him a part of me.
+- `Consider` it a parting gift.
+- `Consider` my interest piqued.
+- I `consider` it "asshole tax."
+- You `consider` your life easy.
+- `Consider` yourself controlled.
+- No problem, `consider` it done.
+- `Consider` it a dress rehearsal.
+- `Consider` him part of your crew.
+- `Consider` my service is engaged.
+- `Consider` yourself my assistant.
+- How could you even `consider` it?
+- `Consider` his emotional response.
+- I wouldn't `consider` anyone else.
+- The don will `consider` this over.
+- We would `consider` such an offer.
+- `Consider` it a quarantined planet.
+- I `consider` experience experience.
+- I'd `consider` it a personal favor.
+- Do you `consider` that a compliment?
+- We now `consider` the matter closed.
+- `Consider` it your musical education.
+- If you `consider` failure experience.
+- They beg you to `consider` the future.
+- We didn't `consider` the consequences.
+- He's going to `consider` me for he job?
+- You might want to `consider` canceling.
+- Blind faith is what i `consider` heresy!
+- `Consider`, before you laugh and say no.
+- I don't `consider` you the enemy, ellie.
+- I've your fellow patients to `consider`.
+- So can we `consider` you a regular, sir?
+- We'll `consider` it a prisoner exchange.
+- We'll have to re-`consider` our options.
+- Well, sir, `consider` the possibilities.
+- `Consider` giving prince anders a chance.
+- I `consider` it less my failure than his.
+- Best is willing to `consider` you as such.
+- Do you think i `consider` this recreation?
+- I want you to `consider` becoming my heir.
+- We made a girl want to `consider` suicide.
+- You may `consider` the charges dropped.
+- If i was her i'd `consider` that an insult.
+- `Consider` yourself crippled -- financially.
+- I propose we `consider` a hostile take over.
+- Let me have them, and i might `consider` it.
+- And then maybe i'll `consider` fixing the tv.
+- But it's a possibility we need to `consider`.
+- Like marcus said... we need to `consider` it.
+- No, but many `consider` my training valuable.
+- You ever `consider` having a close encounter?
+- But did you ever `consider` it might be a trap?
+- Then i will `consider` it a declaration of war.
+- They all `consider` me just as one of the boys.
+- Does that mean you'd `consider` it in two weeks?
+- They `consider` this to be the airport hospital.
+- Do you actually `consider` youself a married man?
+- Oh, the chronicle would `consider` it dirt cheap.
+- Perhaps you should `consider` hiring an attorney.
+- `Consider` this time to work out your differences.
+- I `consider` that to be your business -- not mine.
+- For our purposes, you may `consider` me your judge.
+- I `consider` myself lucky they didn't throw things.
+- This time, look around and `consider` your options.
+- Would you `consider` hiring her at the power plant?
+- I beg you to `consider` my terms for your surrender.
+- I just hope you don't `consider` her a close friend.
+- But you have to `consider` all possibilities, sandro.
+- They do `consider` this a violation of his probation.
+- [beep] but i think she'll be willing to `consider` it.
+- I `consider` myself something of an amateur policeman.
+- It's `consider` a virtue in some corners of the world.
+- Deception isn't something i personally `consider` sexy.
+- Do you think they would even `consider` that a mistake?
+- I `consider` you family now, vincent, i need your help.
+- I don't `consider` uncontrollable toxic waste progress!
+- I might `consider` it if you introduce me to miss vale.
+- Perhaps you should `consider` actually answering an ad.
+- The first is my problem, the second i `consider` yours.
+- Will they `consider` this a violation of his probation?
+- But as a scientist i have to `consider` that possibility.
+- Now, bomb, `consider` this next question, very carefully.
+- Well, in that case, maybe you should `consider` let's go.
+- If i were to end up here, i'd `consider` myself lucky.
+                 

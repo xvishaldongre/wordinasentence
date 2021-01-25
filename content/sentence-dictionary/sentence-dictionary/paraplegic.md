@@ -1,0 +1,8 @@
+---
+title: "paraplegic in a sentence | paraplegic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "paraplegic"
+---
+- Vegetable meaning `paraplegic`.
+                 

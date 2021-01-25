@@ -1,0 +1,54 @@
+---
+title: "cooper in a sentence | cooper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cooper"
+---
+- `Cooper` would be dead.
+- Saw what, mr. `cooper`?
+- Smith and `cooper` are dead.
+- `Cooper`, check on the worms.
+- `Cooper` heads down the hall.
+- `Cooper`, the floor is yours.
+- `Cooper`, give him your sword.
+- `Cooper`'s worse than octavia.
+- I was thinking alice `cooper`.
+- You're miz `cooper`, i take it.
+- That means top-secret, `cooper`.
+- How's your own boy, miz `cooper`?
+- So what was `cooper` doing there?
+- Let me tell you something `cooper`!
+- Not if she thought it was `cooper`.
+- You are a good woman, miz `cooper`!
+- S. `cooper` trust, in san francisco?
+- Got a good buy in soap, miz `cooper`.
+- Our monster would be gary `cooper`.
+- It's in the can, `cooper` can wrap th...
+- Gary `cooper`, james stewart, henry fonda?
+- Indra, would `cooper` do something - here.
+- `Cooper`, shoot anyone who tries to defect.
+- What `cooper` learned to help save my people.
+- `Cooper`, meet the long lost phillip jeffries.
+- I still haven't heard what's in this `cooper`?
+- `Cooper` already gave me and easy on the leash.
+- `Cooper`... no but you didn't defend him either!
+- He's in there... what about `cooper`--where is he?
+- Did you ever hear of the s. `cooper` trust robbery?
+- Miller, smith, `cooper`, any of you in the airlock?
+- You're under arrest for the murder of kara `cooper`.
+- `Cooper`, choose one of the elite guards to deliver it.
+- `Cooper`, back the fill off i don't have enough shadow...
+- That was gary `cooper`, shithead... nein, dies ein ist mein.
+- `Cooper`, the ooze of mumbo jumbo is rising up above our heads.
+- This is `cooper`, what the hell do you do on this ship, anyway?
+- Yes, it's a great big psychedelic circus ride, isn't it, `cooper`?
+- `Cooper` would never push that button, i won't be single in heaven.
+- You're a lot like my father, `cooper`... you think with your heart.
+- What are you going to do, `cooper`, throw yourself on a bunsen burner?
+- `Cooper`'s farm log says, this section which houses our medical facility.
+- While `cooper`, madi, and i soften the battlefield, i can hear the pumps.
+- I'm pretty sure that mr. `cooper` retired in the '70s, so... we might be okay.
+- Dressed up like a million dollar trouper trying hard to look like gary `cooper`.
+- I can cool it down a little bit, baby, mr. `cooper` caught us that time, remember?
+- Take centre to canal, up the bowery, `cooper` and third, left on 41st, come around on park.
+                 

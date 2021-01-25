@@ -1,0 +1,61 @@
+---
+title: "shoulder in a sentence | shoulder example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shoulder"
+---
+- How's your `shoulder`?
+- It's just your `shoulder`.
+- What about your `shoulder`?
+- I took it in the `shoulder`.
+- Need a `shoulder` to cry on?
+- `Shoulder` that burden alone.
+- Ah he dislocated his `shoulder`.
+- Just a `shoulder` to cry on deal.
+- Say, mary, how is your `shoulder`?
+- What's wrong with your `shoulder`?
+- I gotta pains in my `shoulder` too.
+- I been getting a pain in my `shoulder`.
+- Target's dead ahead, `shoulder` height.
+- Your sister's givin' me the `shoulder`.
+- He puts his arm round alex's `shoulder`.
+- Kastle turns and yells over his `shoulder`.
+- Take your hand off my `shoulder` right now.
+- I couldn't... hayes lays a hand his `shoulder`.
+- All of a sudden, you're the `shoulder` to cry on?
+- Her `shoulder` never fully healed - just like you.
+- I don't need to have it tattooed on my `shoulder`.
+- I have been looking over my `shoulder` ever since.
+- He can barely walk, and my `shoulder`'s killing me.
+- Did you know you have a wet spot on your `shoulder`?
+- I need you to pull your vehicle onto the `shoulder`!
+- I feel this fat white glove tap me on the `shoulder`.
+- He's got a parrot on his `shoulder`, buries treasure...
+- That'd be up on your `shoulder`, maybe your lower back.
+- For my show and tell, so i just hold it on my `shoulder`?
+- Yes, they can photograph the epaulets on your `shoulder`.
+- If you rest the baby on your `shoulder`, she'll stop crying.
+- You've been shot in the `shoulder` ... whatever you say, man.
+- I've got some very unpleasant folks looking over my `shoulder`.
+- You'll charge extra if i include a hand or a bit of `shoulder`.
+- They've got no right, sending someone to sit on your `shoulder`.
+- Everybody else saw me as a loser with a big chip on his `shoulder`.
+- You didn't like anyone looking over your `shoulder` -- why was that?
+- Anyway, he moved too quick and i just got him through the `shoulder`.
+- I'll teach you to ride it as soon as we... now, head on my `shoulder`.
+- Mason was actually slinging it over his `shoulder`... for cottonmouth.
+- Oh, i lost one of your `shoulder` pads -- how was your evening anyway?
+- Always remember, you keep it tight to your `shoulder`, you absorb the kick.
+- Wanting people to pay attention, you can't just tap them on the `shoulder`.
+- We've been losing them at with my head on your `shoulder` it ate my shorts!
+- It goes near the `shoulder` here, with two electrodes connected to the heart.
+- Would you have leaned over rembrant's `shoulder` and told him to paint faster?
+- I am starving, lady agatha -- starving for a white `shoulder` -- are you hungry?
+- No `shoulder` straps, no back straps, but does everything a brassiere should do.
+- Your `shoulder` was dislocated pretty badly, but i finally popped it back in there.
+- Because no one was standing over my `shoulder` bothering me - "that's too much glue.
+- You want me to cry on your `shoulder` and tell you that everything's all better now?
+- When she cries--she's either hungry or she's tired--rock her on your left `shoulder`.
+- You expect me to be grateful for spending the rest of my life looking over my `shoulder`.
+- He knew about us, he knew about my `shoulder`, he knew exactly where to hurt me... ...what?
+                 

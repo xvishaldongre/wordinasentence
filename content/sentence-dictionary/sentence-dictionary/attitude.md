@@ -1,0 +1,101 @@
+---
+title: "attitude in a sentence | attitude example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attitude"
+---
+- That's the `attitude`.
+- That's the `attitude`.
+- Your `attitude` sucks.
+- I like your `attitude`.
+- Oh, i like its `attitude`.
+- Maybe it's your `attitude`.
+- That's a strange `attitude`.
+- With a jacked-up `attitude`.
+- Well, i -- `attitude`, kafka.
+- Your `attitude` sucks anyway.
+- A democrat with an `attitude`!
+- Man, you got a bad `attitude`.
+- That's a good `attitude`, kip.
+- Yeah, he got a bad `attitude`.
+- Your `attitude` toward anglos.
+- It's more like your `attitude`.
+- Watch the `attitude`, shitbird.
+- By the dmv for a bad `attitude`.
+- I like your "can do" `attitude`.
+- What gets me is your `attitude`.
+- You got like a funny `attitude`.
+- You've got a negative `attitude`.
+- Don't be giving me `attitude`, lee.
+- My grandmother had more `attitude`.
+- Go in there and lick his `attitude`.
+- The poem is really about `attitude`.
+- You don't have a winning `attitude`.
+- I'm getting tired of your `attitude`.
+- Yeah, with that `attitude`, they are.
+- You can see it in his whole `attitude`!
+- And the `attitude` doesn't last for long.
+- I don't like this threatening `attitude`.
+- It's `attitude`...how you carry yourself.
+- Dammit, kevin, what's with the `attitude`?
+- I won't get my wings with that `attitude`.
+- It's not the altitude, it's the `attitude`.
+- Whenever you lose, you get this `attitude`.
+- `Attitude` and experience get you through...
+- She's got a bit of an `attitude`, that girl.
+- Without your help, i.... selfish `attitude`?
+- They hurt me every day with their `attitude`.
+- You came in there with this `attitude`... sure.
+- You know, her `attitude` nearly drove me crazy.
+- This `attitude`'s not gonna help him any, is it?
+- Not now, i'm busy why you have an `attitude` for?
+- That's no reason for you to take this `attitude`.
+- I don't think i like that guy's `attitude` at all.
+- That `poor me' `attitude` doesn't suit you trevor.
+- What about your `attitude`...where's your job...eh?
+- A friend's plea set against his mother's `attitude`.
+- Now mother, your `attitude` is perfectly ridiculous.
+- You guys have to -- kevin, it was just a -- `attitude`?
+- I like you, but i don't like the way your `attitude` is.
+- Starting now i want you to have a new `attitude` with me.
+- Keep up with that `attitude`, and you won't have a future.
+- No, i won't... susie, i like this new `attitude` of yours.
+- Some kind of fairy `attitude` i've unconsciously adopted?!
+- Some people think you have an `attitude` problem, beckett.
+- That lousy `attitude` that got us here in the first place.
+- With your `attitude`, you're not going to get in anywhere.
+- You got the right `attitude`, anyway, look, we gotta talk.
+- All i can say is, that's one helluva `attitude`, mr. mcfly.
+- It also seems like a problem with the men's `attitude`, sir.
+- You really know how to send a guy out with a great `attitude`.
+- But let me tell you, man, i don't like your `attitude` already.
+- This is going to do terrible things to my `attitude`, you know.
+- Oh, you're right, beckett, you don't have an `attitude` problem.
+- You don't stall that bad `attitude`, no one's gonna recruit you.
+- Lookin' doubtful there, big guy, but ten out of ten for `attitude`.
+- The `attitude`, damone, is only good until you meet the right girl.
+- I didn't like his `attitude`... struttin around with a cane and shit.
+- It's that kind of selfish `attitude` that... you better believe i can.
+- Considering the company you're in, that's a pretty arrogant `attitude`.
+- I don't understand this luddite `attitude`, especially from a scientist.
+- If you wish to survive you need to cultivate a strong mental `attitude`.
+- "`attitude` adjustment issues" -- what the fuck is that supposed to mean?
+- That a man's `attitude` determines to a large extent how his life will be.
+- When you are the cruelest and the coolest... then you have the `attitude`.
+- When you start with that `attitude`... it's like i don't know who you are.
+- The clinic's where they send the real hard-cases for `attitude` adjustment.
+- I don't like your possessive `attitude`, nor your hints of secret knowledge.
+- Oh -- oh, you bring me some of that snotty `attitude`, becky -- bring it on.
+- With your `attitude`, private, i'm surprised you want to stay in the service.
+- The `attitude` dictates that you don't care if she comes, stays, lays or prays.
+- Are you suffering from a chemical imbalance or is it just an `attitude` problem.
+- How can you come in here with this `attitude`, you being little chang's godfather?
+- To counter these, the subject has to switch to a diametrically opposed `attitude`.
+- If you hadn't started boffing that weasel with an `attitude`, you wouldn't be here.
+- I'm not gonna get anywhere punching a clock just so my wife doesn't get an `attitude`.
+- A man's `attitude` ... a man's `attitude` goes some ways toward how a man's life will be.
+- No, no, it's your energy or your `attitude` or the way you carry yourself or... my tits?
+- He's got a little `attitude` problem, being that he's dead and all, but he'll come around.
+- I will never get tired of hurting you, eddie, so you might want to change your `attitude`.
+- That's were two lines cross -- forming an x. oh, an tv a minute and already an `attitude`.
+                 

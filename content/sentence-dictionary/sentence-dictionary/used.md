@@ -1,0 +1,107 @@
+---
+title: "used in a sentence | used example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "used"
+---
+- At least, i `used` to.
+- Did he `used` to ... ?
+- He `used` to be a cop.
+- I'll get `used` to it.
+- I'm so `used` to carl.
+- It never `used` to be.
+- I `used` to live here.
+- I `used` to play ball.
+- I `used` to tan great.
+- Like you `used` to be?
+- We `used` to share it.
+- You `used` my savings!
+- A man i `used` to know.
+- Get `used` to it, babe.
+- Get `used` to the word.
+- He'll get `used` to it.
+- He's `used` to silence.
+- I'm not `used` to that.
+- It can still be `used`.
+- I `used` an accelerant.
+- I `used` real hot dogs.
+- I `used` to be a nurse.
+- Kirsty `used` to smoke?
+- She `used` those words.
+- She `used` those words?
+- This `used` to be mine.
+- Who `used` to say that?
+- You `used` me as bait?!
+- You `used` to be a cop.
+- As the ex `used` to say.
+- I `used` to do it a lot.
+- I `used` to like yogurt.
+- I `used` to tell myself.
+- Not `used` to hard work.
+- `Used` to be my partner.
+- We `used` to be friends.
+- We `used` to be married.
+- Where he `used` to live.
+- You'll get `used` to it.
+- You `used` to eat it up.
+- You `used` to love life.
+- Are `used` to this smell?
+- As much as you `used` to?
+- He `used` to love losers.
+- How they `used` to do it.
+- I got it and i `used` it.
+- I guess i'm `used` to it.
+- I'm getting `used` to it.
+- I `used` to believe that.
+- I `used` to drive a taxi.
+- I `used` to have nothing.
+- I `used` to like it here.
+- I `used` to work for him.
+- Like we always `used` to.
+- She `used` daddy's razor.
+- She `used` to call me mr.
+- She `used` us, all of us!
+- `Used` to be like a rock.
+- *`used`* to be your land.
+- Well, there `used` to be!
+- Y-you `used` to-- oh, no!
+- But, you get `used` to'em.
+- He `used` to run the nasa.
+- I didn't `used` to be bad.
+- It's `used` in witchcraft.
+- I <u>never</u> `used` you.
+- I `used` to be an actress.
+- I `used` to do gymnastics.
+- I `used` to play it alone.
+- I `used` whatever it took.
+- Or at least, he `used` to.
+- [that he `used` policemen.
+- That's what i'm `used` to.
+- `Used` to be smart enough.
+- We `used` to fly together.
+- You `used` the wrong test.
+- You `used` to have ideals.
+- He `used` the stones again.
+- He `used` to work with you.
+- He `used` your exact words.
+- I ain't `used` to 'em, sir.
+- I could get `used` to this.
+- I'll just get `used` to it.
+- I'm getting `used` to this.
+- I `used` some of your soap.
+- I `used` the surgical mesh.
+- I `used` to, but i stopped.
+- I `used` to think about it.
+- I `used` to work in a bank.
+- I've seen 'em `used` on tv.
+- Least it `used` to be true.
+- Like a `used` car salesman.
+- Not as much as i `used` to.
+- Pablo `used` his influence.
+- She got `used` to the idea.
+- That always `used` to work.
+- `Used` to filmore, `used` to.
+- Versus owning a `used` car.
+- We `used` to, every summer.
+- We `used` to have *dozens*!
+                 

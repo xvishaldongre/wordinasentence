@@ -1,0 +1,98 @@
+---
+title: "covered in a sentence | covered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "covered"
+---
+- But i `covered` it up.
+- Just keep me `covered`.
+- I got my side `covered`.
+- It `covered` everything.
+- It's not even `covered`.
+- Snow `covered` fortress.
+- They `covered` 'em over.
+- Things get `covered` up.
+- I got security `covered`.
+- Everybody was `covered`!!!
+- Herb `covered` it for you.
+- I got the woman `covered`.
+- Is the hospital `covered`?
+- I think we `covered` this.
+- I've `covered` everything.
+- Well, i'm fully `covered`.
+- He `covered` the video lens.
+- It's <u>`covered`</u>, okay?
+- Keep their feet `covered` up.
+- You -- `covered` in my vomit.
+- Naked girl, `covered` in napalm.
+- Nah, just `covered` with batshit!
+- She was all `covered` with worms.
+- I'm `covered` in his filthy blood!
+- You got `covered` in its blood.
+- Haven't i `covered` some territory?
+- Scattered, smothered and `covered`.
+- There's one symbol still `covered`.
+- Gotcha `covered`, don't nobody move.
+- It's pretty much all been `covered`.
+- The town was `covered` with seagulls.
+- I `covered` it with a 2-page synopsis.
+- Is that `covered` in your constitution?
+- That's why she keeps her body `covered`.
+- Too bad, it would've `covered` your ass.
+- If you see 'em, keep your mouth `covered`.
+- One is `covered`, one might be accessible.
+- We're `covered` on legal with that, right?
+- Yeah, but that could've been `covered` up.
+- Eight words back in '72 -- "i `covered` up.
+- They said it's not `covered` under my plan.
+- Was the show `covered` by every department?
+- Yes... with chocolate-`covered` pistachios.
+- Don't need to, the krauts go that `covered`.
+- Don't tell me you haven't got her `covered`.
+- Believe me, this is well-`covered` territory.
+- I think she `covered` you with the parasites.
+- Every square inch `covered`, plus all my guys.
+- The dentist tells me i'm not `covered` for caps.
+- They had every entrance to the border `covered`.
+- We've `covered` it from the news end, of course.
+- Yeah, we got the westbury `covered` like a tent.
+- The bottoms of your feet are `covered` with salt.
+- But seriously, that's all `covered` in orientation.
+- I used to work in insurance, we were well `covered`.
+- "hansel shoved the blood-`covered` witch into the oven.
+- The lions were totally `covered` in this guy's blood...
+- The planet's surface is `covered` with borg technology.
+- Lives could be lost -- i think they have that `covered`.
+- Just by asking, you best keep this `covered`... two beds.
+- Stan `covered` up the pills and i had it out with norman.
+- It won't look too pretty when it's all `covered` with ants.
+- So we got crosses `covered`, moving right along, what else?
+- You were always so confident you had `covered` your tracks.
+- I thought i had our sailing `covered` up-- --and here it is.
+- There were a party of settlers in the `covered` wagon times.
+- I'm `covered` in very expensive egyptian mud -- hardly naked.
+- He `covered` his tracks, but if you look deep enough, it's ok.
+- So you don't believe anymore that the company `covered` it up?
+- That wasn't just a story you `covered` -- it was a revolution!
+- Where they saw you standing over the body `covered` in his blood.
+- "then their father `covered` them with kisses and they were safe."
+- Did you know what you were hiding when you `covered` for that girl?
+- I've `covered` almost the entire seaboard and parts of eastern ohio.
+- `Covered` in leather.... and now.... a lot of what happened is jagged.
+- It was `covered` with mr. fasil's fingerprints, but none of his blood.
+- The islands are `covered` with trees, filled with blossoms and fruits.
+- I'd rather die `covered` in blood, than an old man, lying in my own piss.
+- Isn't `covered` by insurance anymore, prithee keep shooting, goodman lou.
+- Well, sometimes they're not completely `covered` but... they don't freeze.
+- We're coordinating with palmdale p.d.. we'll have your sorry ass `covered`.
+- I recommend her majesty uses the `covered` carriage with a full horse guard.
+- It was a little girl-- one more word about the dark year, keep it `covered`.
+- We got here, you fell asleep on the couch and i `covered` you up and came to bed.
+- He `covered` his tracks far too well, and i think it's obvious he's not coming back.
+- If he made it back, this place would have been `covered` with police in a few hours.
+- I sure hope you `covered` the mouthpiece with a handkerchief and used a funny voice!
+- Find a nice little snow `covered` chalet, warm little woman, crackling fire-- who cares?
+- ... you should have seen your father, standing there all `covered` with spaghetti sauce.
+- But, sir, you're `covered` -- no one here gave orders to break into the damned watergate.
+- I must have `covered` it with my hand, without realizing it, that's the only explanation...
+                 

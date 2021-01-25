@@ -1,0 +1,51 @@
+---
+title: "horror in a sentence | horror example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "horror"
+---
+- The blood is `horror`.
+- I don't like `horror` comics.
+- I don't like `horror` movies!
+- I mean, for a `horror` movie.
+- We'll sweep out the `horror`.
+- So i don't know about `horror`.
+- It's just like a `horror` movie.
+- Why all the time `horror` stories?
+- The `horror` movies were behind me.
+- The `horror` pictures were trifles.
+- Don't look at me with such `horror`.
+- He's the ultimate master of `horror`.
+- I thought he'd stopped doing `horror`.
+- Six straight hours of `horror` movies.
+- The eternal lord of `horror`, cthulhu.
+- This is standard `horror` movie stuff.
+- To reflect the `horror` in bart's eyes.
+- I make `horror` films, that's what i do.
+- "a perfect night for mystery and `horror`.
+- Can we talk about the `horror` movies now?
+- Not red like in `horror` movies, but brown!!
+- Dario argento is the ultimate master of `horror`.
+- Our zone-boy's performing out of a `horror` show.
+- Jamie lee was always the virgin in `horror` movies.
+- They don't want the classic `horror` films anymore.
+- Is it an art film, a `horror` show, a hygiene flick?
+- The pure `horror`, it both repels and attracts them.
+- Now that `horror` has invaded these sacred walls.
+- But it's the `horror` movies you'll be remembered for.
+- "home by `horror` haunted... _ my people are innocent.
+- She's a confirmed ghost story and `horror` film addict.
+- I tried to spare you the pain and `horror` of your existence.
+- Oh, the things i've done for that hollow-boned `horror` show!
+- So i have made this convent an oasis, a retreat from `horror`.
+- Are you gonna stand around and let 'em fill us full of `horror`?
+- Yeah, harry, you look like you belong in one of your `horror` movies.
+- His name is mark and he's into old `horror` movies and he plays guitar.
+- "on this home by `horror` haunted... make sure she doesn't start a war.
+- I read her postings on the `horror` movie chat boards and fell hopelessly.
+- With the murders and all, it's like right out of a `horror` movie or something.
+- I was reading this `horror` comic and i guess i go a little carried away... sam!
+- Because i've seen enough `horror` movies to know masked weirdos are never friendly.
+- I... now that you have a child, is it possible you've decided `horror` is bad for children?
+- Society nods its head at any `horror` the american teenager can think to bring upon itself.
+                 

@@ -1,0 +1,107 @@
+---
+title: "village in a sentence | village example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "village"
+---
+- Back to the `village`.
+- `Village` ghetto land.
+- Where's the `village`?
+- Go back to the `village`.
+- She was at the `village`.
+- There's a `village` here.
+- He massacred my `village`.
+- Santa's `village`, please.
+- Selectman of the `village`?
+- Someone from the `village`.
+- Which way to the `village`?
+- And we took their `village`.
+- Little `village` down seven.
+- `Village` life starts early.
+- _ a statue near my `village`.
+- Going back to your `village`.
+- In a `village` called domremy.
+- We'll go to santa's `village`.
+- Do you know the east `village`?
+- There's rumor in the `village`.
+- I'll just go into the `village`.
+- Their `village` was defenseless.
+- We must return to our `village`.
+- Burned a `village` to the ground.
+- Skaikru attacked their `village`.
+- You brought me to your `village`?
+- 250 people died in that `village`.
+- Artsy little `village` down seven.
+- Sir, there's a grounder `village`.
+- Do not bring it into our `village`.
+- For what happened at the `village`.
+- You were with him at the `village`.
+- Another innocent grounder `village`.
+- But the `village` will be fortified.
+- Nice place in the `village`, though.
+- Nice place in the `village`, though.
+- Massacred another grounder `village`?
+- She prefers the `village` dispensary.
+- We went to meet the `village` priest.
+- What's the location of the `village`?
+- This `village` is a sanctuary of life.
+- 2... 250 people died in that `village`.
+- The `village` people rotted your brain.
+- This is nainsukh -- from the `village`.
+- The name of the `village` was mhravitch.
+- Finn wasn't the only one at the `village`.
+- That was gr... an assassin in a `village`?
+- I've been kidnapped by the `village` idiot.
+- It is pankot palace that kills my `village`.
+- My `village` was slaughtered by your people.
+- Yeah -- it's santa's magic fucking `village`.
+- When we were living in greenwich `village`...?
+- You sure they went together to that `village`?
+- Once we're in the woods, we take the `village`.
+- Back in my `village` we catch a lot of hedgehogs.
+- Especially after what finn did to this `village`.
+- That `village` you're pointing at is kinda hairy.
+- The `village` where we take our prisoners of war.
+- It could be days before we reach luna's `village`.
+- Will you ride to the `village` with me, mr. stone?
+- But it could stand for "`village`"... or the world.
+- Income `village` is the place to hook up with hump.
+- Mount weather will wipe out their entire `village`.
+- Yes, well -- we're looking for a new `village` now.
+- Yeah -- fishing `village` -- helicopters over there.
+- Some `village` in the mountains -- alethera, i think.
+- But there is a piano teacher in the `village` -- here.
+- No one in the `village` has ever seen anything like it.
+- People say it's the safest block in the east `village`.
+- Just one drop, and i can power up this entire `village`.
+- Octavia should be at the `village` by now, and the girl?
+- My buyer has just made a killing in condos in the `village`.
+- They came from palace and took sivalinga from out `village`.
+- We'll get as close to the `village` as we can i own a tesla.
+- At midnight we crept out of the forest and into the `village`.
+- Nah, east `village` poseur was grosser than the dude in the park.
+- The way i heard it, you stole one of them from a small `village`.
+- Now you live in a small `village` miles away from all you knew.
+- You mean magical like the rock that was stolen from that `village`?
+- I'll be all right... you go back to the `village` and light the fire.
+- A lush english `village` transformed overnight into african scrubland?
+- It's a sacred stone in a shine that's supposed to protect a `village`.
+- Sweep the `village` door to door, i do not take orders from you anymore!
+- There's meant to be lace in the next `village` - the boys are taking me.
+- Fresh air, trees... just like you were upset when we took your `village`.
+- The question is -- why would someone want to create one of our `village`?
+- You come in here, burn my `village`, kill my family and try to rape me...
+- The sticks left their mark... magua's `village` and lodges were burnt.
+- If you like, i will come with you tomorrow to the `village` when you leave.
+- I'm going to run pipes all through the `village`� oh my, isn't that pretty!
+- We're taking him back to the `village` you know, if you didn't, i'd be dead.
+- It's gonna take more than the kids enough grounders saw him at the `village`.
+- I think the `village` of east proctor is hiding some dark and terrible secret.
+- Yes -- it was the tower again... and the bell, and the old spanish `village`...
+- When i was gone the people from her `village` came to my home seeking vengeance.
+- Yeah, i haven't figured out the plot yet, but it's laid in a siberian `village`.
+- The police are fond of bringing their victims to the outskirts of this `village`.
+- And, yes, i was different then, he went from `village` to `village`, here they come.
+- There's a program on it which opens the back door sweep the `village` and the woods.
+- Octavia should be at the `village` by now, your son has a chance to be well-adjusted.
+                 

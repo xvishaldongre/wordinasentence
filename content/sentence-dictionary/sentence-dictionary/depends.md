@@ -1,0 +1,107 @@
+---
+title: "depends in a sentence | depends example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "depends"
+---
+- `Depends` on the mind.
+- `Depends` which house.
+- On this all `depends`.
+- That `depends` on you.
+- `Depends` on the quote.
+- `Depends` on the state.
+- `Depends` on the topic.
+- `Depends` one which one.
+- `Depends` who it's from.
+- Well that all `depends`.
+- `Depends` on big brother.
+- `Depends` on the freezer.
+- It `depends` on ettore...
+- No, `depends` on nothing.
+- Welt...it `depends`, why?
+- `Depends` on how you feel.
+- `Depends` on the question.
+- `Depends` on the varietal.
+- That all `depends` on you.
+- That `depends` on the man.
+- That `depends` on the tip.
+- `Depends` what he told you.
+- I don't know, it `depends`.
+- It `depends` on the quality.
+- `Depends` how you look at it.
+- Our universe `depends` on it!
+- `Depends` what train i get on.
+- In this rom-com, it `depends`.
+- `Depends` on the woman i marry.
+- `Depends` on what i'm studying.
+- `Depends` what you mean by got.
+- `Depends` on how good you drive.
+- `Depends` on what you call love.
+- `Depends` on what you're seeing.
+- `Depends` what number you write.
+- It `depends` where you sit zozo.
+- That `depends` on what they see.
+- That `depends` upon your motive.
+- The whole movie `depends` on it.
+- `Depends` on how things work out.
+- `Depends` on what i'd give up on.
+- `Depends` on what you believe in.
+- That `depends` on who "they" were.
+- 'cause your partner `depends` on it.
+- `Depends` how bad she wanted it out.
+- * `depends` on if he's here in town.
+- Your job and my job `depends` on it.
+- `Depends` on where you want to go....
+- Well, that `depends`... for how long?
+- `Depends` if my date wants to stop by.
+- That `depends` what you�re looking at.
+- Well, i suppose that `depends` on you.
+- That `depends` on how mother's feeling.
+- Yeah, well, it `depends` on the artist.
+- It all `depends` on what you're used to.
+- It `depends` on what way you want to go.
+- It `depends` to a certain extent on him.
+- Upon you `depends` this princess's life.
+- I guess it `depends` on your perspective.
+- It `depends` on how big a news day it is.
+- Just remember, your life `depends` on us.
+- The fate of our universe `depends` on it.
+- `Depends` on who you are spending it with.
+- It `depends` on the condition of the ship.
+- No, it all `depends` on what offers i get.
+- Well that `depends` on how you look at it.
+- `Depends` how you define 'new'... oh, yeah.
+- `Depends` on what you're trying to blow up.
+- I guess it `depends` on what you give up on.
+- That `depends`... and you, what do you like?
+- That `depends` on your definition of ghosts.
+- That `depends` who writes the history books.
+- The security of this nation `depends` on it.
+- Good night angel... well, that all `depends`.
+- That `depends` on your definition of "alive."
+- Everything `depends` on the manchester merger.
+- I can't, because the universe `depends` on it.
+- I mean really, deeply angry... that `depends`.
+- `Depends` if you're relying on her coming back.
+- Then again, it `depends` on what you call living.
+- That `depends` on your definition of "going rogue."
+- An old car like this, it `depends` on the condition.
+- ♪ how much my heart `depends` ♪ now wake up!
+- Your mother's life `depends` on it, octavia... come.
+- `Depends` on what it is -- a donald duck or joan or arc.
+- `Depends` on which end of the telescope you look through.
+- I'm gonna make him think his grey matter `depends` on it.
+- Well it all `depends` on how much money you want to spend.
+- I mean, `depends` on -- would you have shot if it was a man?
+- My operation `depends` on specifications that do not change.
+- `Depends` on how much shielding is between us and the reactor.
+- My whole career `depends` on me never quite getting to the finish.
+- Well, it all `depends`, leonard... would you pose for me for free?
+- I don't know -- it `depends` on whether or not they've already eaten.
+- That `depends` on how many people we fuck with between here and the door.
+- I figure that `depends` a mite on how you get it and how you spend it, son.
+- All `depends` on whether you want the russian or the gaelic language version.
+- I don't want to get blood our survival `depends` on us sharing your knowledge...
+- Our survival `depends` on having a leader it takes time, but it does get easier.
+- ... but it `depends` on what i'm doing to the music, dick ... oh yeah, he's good.
+                 

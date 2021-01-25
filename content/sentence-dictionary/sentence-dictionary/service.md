@@ -1,0 +1,107 @@
+---
+title: "service in a sentence | service example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "service"
+---
+- I'm at your `service`.
+- It is a car `service`.
+- I want some `service`!
+- That's room `service`.
+- At your `service`, sir.
+- A very small `service`.
+- Use the `service` gate.
+- Room `service` speaking.
+- To finish the `service`.
+- Valet `service`, please.
+- Are you in the `service`?
+- A secret `service` agent.
+- At your `service`, count.
+- Can i be of any `service`?
+- I like the `service` here.
+- Not even in the `service`.
+- Room `service` sent it up.
+- Went out before `service`.
+- Where is escort `service`?
+- Do you have room `service`?
+- How can we be of `service`?
+- Room `service`...hi, sarah.
+- What is the `service`, sir?
+- Can we order room `service`?
+- I `service` video equipment.
+- You owe the don a `service`.
+- How about a little `service`?
+- It's like a public `service`.
+- It was a community `service`.
+- Thank you for your `service`.
+- Secret `service` agent carter.
+- Which branch of the `service`?
+- Are you a secret `service` man?
+- Can we get some `service` here?
+- Kaylee prime at your `service`.
+- This is an expensive `service`.
+- This isn't an escort `service`?
+- A signal `service` to the state.
+- I'll use the `service` entrance.
+- Phone, room `service`, mini-bar.
+- A knight in the king's `service`.
+- Consider my `service` is engaged.
+- It's the french secret `service`.
+- People seem to like my `service`.
+- The rest of the secret `service`?
+- To be of `service` and assisting.
+- ...were you in the `service`, ed?
+- You've done me a great `service`.
+- Can i be of `service`, miss price?
+- Can i get a little `service` here?
+- Now, you owe your don a `service`.
+- You goin' to the escort `service`?
+- About world-class dinner `service`.
+- Did you join the `service` as well?
+- All part of the `service` we render.
+- How do you `service` foreigners.
+- Buried her at a "private" `service`.
+- Pleased to be of `service` any time.
+- They look like the secret `service`.
+- Would you go in... "room `service`!"
+- Anything i can do to be of `service`.
+- Fourteen years of public `service`...
+- I am at your `service`, mr. cosgrove.
+- I'm a british secret `service` agent.
+- I'm merely trying to be of `service`.
+- Start planning my memorial `service`?
+- Are you ready to do me this `service`?
+- Christopher marlowe at your `service`.
+- Come on, there's a `service` elevator.
+- It's aterm of `service`, not a career.
+- Secret `service` calls 'em superbills.
+- I am luke starkiller at your `service`.
+- There was someone in the `service` bay.
+- I'm gonna sign up for federal `service`.
+- Our reward is being of `service` to you.
+- The `service` in this hotel is terrible!
+- They interfered with hospital `service`.
+- This is dr. smith's answering `service`.
+- Last one down springs for room `service`.
+- Yeah... only the room `service` is lousy.
+- It interfered with the hospital `service`.
+- Jorge, don jaime's son, at your `service`.
+- Some `service` deserves `service` in return.
+- We're not running a dating `service` here.
+- Hey, the postal `service` is very reliable.
+- Then it is some `service` you desire of us.
+- C'mon, man... shhh... hello, room `service`?
+- I'll call upon you to do a `service` for me.
+- Just ring linen `service` and ask for alice.
+- Phil's one of the nurses from the `service`?
+- You allowed nothing for limousine `service`.
+- You think he's unfit for military `service`?
+- He thanks you for your bravery and `service`.
+- If i can ever do you a `service` let me know.
+- Live on room `service` the rest of our lives.
+- Okay, the `service`'ll go about another hour.
+- ...performing all manner of public `service`.
+- You're going out of `service` in two seconds.
+- Berger, norwegian, and at your `service`, sir.
+- The secret `service` is really out to get him.
+                 

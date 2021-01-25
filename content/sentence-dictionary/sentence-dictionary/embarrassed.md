@@ -1,0 +1,58 @@
+---
+title: "embarrassed in a sentence | embarrassed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "embarrassed"
+---
+- I'm too `embarrassed`.
+- Now i'm `embarrassed`.
+- Don't be `embarrassed`.
+- I feel so `embarrassed`.
+- I'm `embarrassed` by it.
+- I'm a little `embarrassed`.
+- You `embarrassed` me, erin.
+- I will not be `embarrassed`!
+- No, but i `embarrassed` you.
+- I `embarrassed` you, and i...
+- I'm not `embarrassed` of you.
+- You were so `embarrassed`.
+- Don't be `embarrassed`, bruce.
+- Don't be `embarrassed`, madame.
+- She's `embarrassed` to tell me.
+- She was always so `embarrassed`.
+- I'm so `embarrassed` i could die!
+- She's `embarrassed` by all of us.
+- Don't feel `embarrassed` about it.
+- Now i'm `embarrassed` to tell you.
+- I've never been that `embarrassed`.
+- Pretty `embarrassed`, to be honest.
+- You don't have to be `embarrassed`.
+- Don't be `embarrassed` by the answer.
+- You needn't be `embarrassed`, madame.
+- Now i'm `embarrassed` that i say this.
+- I hate for people to die `embarrassed`.
+- It's just... now i am truly `embarrassed`.
+- Probably `embarrassed` by all the attention.
+- You shouldn't be `embarrassed` by the truth.
+- No, don't open it yet -- i'll be `embarrassed`.
+- Are you `embarrassed` by these things that you see?
+- How could she be so `embarrassed` of her own family?
+- I heard king charles was... financially `embarrassed`.
+- But i'm `embarrassed` to have it in my viewing history.
+- Well, i don't think he's really been `embarrassed` by it.
+- I'm `embarrassed` to have -- whoa, whoa, what are you doing?
+- I'm just `embarrassed` that i like when they say those things.
+- Other than feeling slightly `embarrassed`, i'm perfectly fine.
+- That's ok, dr. thurman, it's nothing to be `embarrassed` about.
+- The fuckin' trooper was so `embarrassed` he didn't do anything.
+- If he says no, he's too `embarrassed`, then you know he's a wus.
+- Dad-- otis payne was never `embarrassed` about a thing in his life.
+- I thought for a moment i was the only `embarrassed` one in the room.
+- It's the first time a picture made me `embarrassed` to own anything.
+- Oh, hannah, she's-she's just `embarrassed` in front of you, that's all.
+- You're so `embarrassed` of your fucking self that you gotta put me down.
+- The only thing that scares me is being `embarrassed` in front of my friends.
+- I see and they were too `embarrassed` to talk about it, because they felt so silly.
+- Hey, can we not stand here and argue in front of everybody, 'cause i get `embarrassed`.
+- You know, i'd be `embarrassed` if i let my wheels go the way you've done with this job.
+                 

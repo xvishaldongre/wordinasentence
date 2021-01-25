@@ -1,0 +1,8 @@
+---
+title: "hearing's in a sentence | hearing's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hearing's"
+---
+- The `hearing's` tomorrow.
+                 

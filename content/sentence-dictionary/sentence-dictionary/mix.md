@@ -1,0 +1,55 @@
+---
+title: "mix in a sentence | mix example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mix"
+---
+- He's part of the `mix`.
+- Can you `mix` a martini?
+- That was just a `mix` up.
+- Did you `mix` this martini?
+- Don't `mix` your metaphors.
+- It was a `mix`-up, i guess.
+- "do not `mix` with alcohol"?
+- I don't `mix` with the boys.
+- ♪ `mix` and a-mingle... ♪ - no.
+- Don't `mix` very well with beer.
+- ...'bout ready to `mix` it up...?
+- Now wait, there's been a `mix`-up.
+- Wait, there must be some `mix`-up.
+- You don't have to `mix` up in this.
+- Please... - banana, and trail `mix`.
+- Why doesn't he just `mix` and match?
+- Yah, well, that was a `mix`-up, then.
+- Maybe it's this `mix` tape i made you.
+- That's where i shot manhattan `mix` up.
+- For me, i think such a `mix` is crucial.
+- I told you i didn't want to `mix` in it.
+- They can `mix` us up some new gunpowder.
+- For some, politics and religion can `mix`.
+- This is from "josh's blair witch `mix`," man!
+- We'll `mix` it back in when we make the soap.
+- I think there must have been a little `mix` up.
+- No one wants to `mix` it up with those hombres.
+- That's a potent `mix`, gives me the goosebumps.
+- You're sucking too much nitrogen in your `mix`.
+- Hey, sourpuss, why don't you `mix` them a drink?
+- This looks like another one of your `mix` tapes.
+- But he will also `mix` lies with the truth to attack us.
+- The black and white chemicals `mix`, forming a toxic cloud.
+- You settle right back, now, and i'll `mix` you your coffee.
+- Can you believe in our little `mix` you're the good roommate.
+- <u>you</u>, i'd be afraid to turn my back to `mix` the colors.
+- And you bring john "never won a title" stockton into the `mix`?!
+- They blend together like the metals we `mix` to make a good sword.
+- You'll call lowenthal tomorrow and find out it was just a `mix`-up.
+- How many doses can we get out of her uh, i made you a new `mix` tape.
+- `Mix` them to get the distinctive product to give to their customers.
+- Tear off those clothes, all right, you can keep the `mix` if you want.
+- When hedda says "i'm coming" you `mix` a lot of martinis and you pray.
+- I expect you won't want to `mix` with the others-- not our type of people.
+- Romans like to `mix` their metaphors: laughter with their executions, you know?
+- To give it that little extra zip, i `mix` in some spam with the ground beef.
+- Betty's making some pineapple kabobs ... oh, no thanks ... want some bridge `mix`?
+- `Mix` up your laundry list and your grocery list, you'll be eating your underwear.
+                 

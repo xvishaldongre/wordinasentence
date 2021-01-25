@@ -1,0 +1,52 @@
+---
+title: "turkey in a sentence | turkey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "turkey"
+---
+- You're not a `turkey`.
+- You wanna talk `turkey`?
+- `Turkey`'s are real smart.
+- I love christmas in `turkey`.
+- Tomorrow he'll be in `turkey`.
+- `Turkey` bacon does not count.
+- I've gotta `turkey` in the oven.
+- I didn't want no `turkey` anyway.
+- Right down to my socks, `turkey`.
+- He got killed at a `turkey` shoot.
+- She's home -- stuffing a `turkey`.
+- `Turkey`, stuffing, the whole bit.
+- Just taste that christmas `turkey`.
+- You'll have to settle for `turkey`.
+- There is no fair in `turkey`, billy.
+- Pass the yams and carve the `turkey`.
+- I don't even like `turkey` sandwiches.
+- I mean, it was like a `turkey` baster.
+- My brother-in-law deep-fried a `turkey`.
+- I'm 'bout four miles ahead of you, `turkey`.
+- I can probably get us to `turkey` or georgia.
+- Our yeast paste into the shape of a `turkey`.
+- I don't want any more wild `turkey`, either.
+- A `turkey` is one of the dumbest birds on earth.
+- Because you like it on your `turkey` sandwiches.
+- Meat loaf, `turkey` quesadillas, or salad nicoise.
+- Smarter than most people think... `turkey` mostly.
+- Yeah... there's no straight lawyers in `turkey`...
+- Then let's not name the thanksgiving `turkey`, okay?
+- I'm gone... long gone like a `turkey` through the corn.
+- When kennedy gets to the kill zone, it's a `turkey` shoot.
+- Two weeks cold `turkey` waiting for bail got my head together...
+- Istanbul, `turkey`, you're on with master videographer, christof.
+- I sent a team out to the dam, pass the yams and carve the `turkey`.
+- Dave, you are as full of shit as a christmas `turkey` and you know it.
+- They use it on heroin addicts, make 'em go cold-`turkey` in one night.
+- Successfully carves `turkey` roll holding eating utensils...with feet."
+- I think the man who wrote it has actually been to `turkey`, which helps.
+- This is `turkey`, man... ) it's a fucking accident here if you're innocent.
+- Most likely the same hungarians that sate all but wiped out back in `turkey`.
+- They want us to take our missiles out of `turkey` along with the no invasion pledge.
+- If i hand out 5,000 flyers, i get all the `turkey` shreds put it here, no weak spots.
+- This hungarian tells me the whole bunch was pulling stumps for `turkey` the next' day.
+- ...ma's havin' a `turkey` for dinner tomorrow and... might at least have left me my pants!
+- He never used to care about money -- we were poor as job's `turkey`, but none of us minded.
+                 

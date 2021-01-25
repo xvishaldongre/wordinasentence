@@ -1,0 +1,81 @@
+---
+title: "poison in a sentence | poison example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "poison"
+---
+- The smoke is `poison`!
+- He drinks the `poison`.
+- It'll `poison` the water.
+- You think it was `poison`?
+- She didn't `poison` anyone.
+- We thought it was `poison`.
+- This guy is `poison`, faith.
+- That shit is `poison`, frank.
+- `Poison` never agrees with me.
+- Tell us what `poison` you used!
+- Where did you get the `poison`?
+- It's a `poison` arrow tree frog.
+- If you `poison` us, do we not die?
+- I like touching you--`poison` ivy.
+- I'm betting her lips are `poison`.
+- `Poison` to anyone who gets close.
+- The `poison` wasn't in the bottle.
+- That, my friend, is `poison` sumac.
+- I know, `poison` needles in my shins.
+- The room is filled with `poison` gas.
+- They could `poison` half the country.
+- Well, i guess you pick your `poison`.
+- Name your `poison` and i'll supply it.
+- Putting all that `poison` in your hair.
+- 's `poison` pill virus through the web.
+- It's `poison` gas, this is the antidote.
+- The most lethal `poison` in the universe.
+- We can't pump `poison` gas all over them!
+- By keeping it inside you, like a `poison`.
+- The `poison` will kill you in ten minutes.
+- She used purple yin... purple yin `poison`.
+- Happily some `poison` yet doth hang on them.
+- In one minute, they're about to `poison` us.
+- Someone should slip her some `poison` sumac.
+- So they could transport that green `poison`?
+- Don't pull away or you'll feel that `poison`.
+- If you tried to `poison` her, i need to know.
+- Nor will addison dewitt and his `poison` pen!
+- There's a `poison` in the upper classes, bob.
+- If it was left up to me, i would `poison` him.
+- The desire for vengeance... can be a `poison`.
+- In three minutes, they're going to `poison` us.
+- Someone should put `poison` in her epsom salts.
+- He's had no `poison`-pen complaints lodged at all.
+- It's the same `poison` she used to kill my master.
+- Don't `poison` your mind with that ghetto paranoia.
+- I have `poison` on me, they won't get me alive either!
+- We can't pump `poison` gas down into the cooling unit!
+- I very seriously doubt it's something as boring as `poison`.
+- Came out here after dark and doused your field with `poison`?
+- Who knows what `poison` those escaped prisoners are spreading.
+- Even now that `poison` is seeping into every lobe of your mind.
+- `Poison` made the demon gabriel believe he could walk on water.
+- So i've heard-- he was afraid i was going to `poison` somebody.
+- You get to the morning and the `poison` leaks away, doesn't it?
+- Yes i have - so bad i wouldn't `poison` your mind by telling you.
+- I'm not sure, but it didn't involve getting blinded with `poison`.
+- Yet you spoil her lands, `poison` her oceans, blacken her skies.
+- Why not just use a scope and a `poison` dart and snipe him from a hill?
+- You're sure going to be `poison` to that junior leaguer[4] from now on!
+- Your `poison`'s not gonna make it into the veins of any kids this time.
+- When she swallows the stones, she swallows the `poison` berries too.
+- I was gonna put out `poison`, but i was afraid somebody's cat would eat it.
+- The jews are...a `poison` in the human well.... danny, what about the jews?
+- I won't shoot a cadogan, "hawkins rodents prefer `poison`: nutjob tells all."
+- It has worked -- you've given everything away -- i know where the `poison` is.
+- Or are you going to ask this female to kiss me again and `poison` me to death?
+- Now i really feel guilty complaining about you shooting me up with your `poison`.
+- Could be some kind of venom, or `poison`... that tube must be depositing it in him.
+- Worse `poison` to men's souls, than these poor compounds that thou mayest not sell.
+- It's like everybody got an anonymous `poison`-pen letter or some -- do you smell smoke?
+- You see, george, you were not there to stop gower from putting that `poison` into the .
+- I will not touch the white man's `poison`: his drugs, his liquor, his carrion, his women.
+- You'd have to be stupid to have a `poison` around this long that's what got monroe killed.
+                 

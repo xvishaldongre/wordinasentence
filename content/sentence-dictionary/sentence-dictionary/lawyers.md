@@ -1,0 +1,58 @@
+---
+title: "lawyers in a sentence | lawyers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lawyers"
+---
+- Doctors and `lawyers`.
+- Had me thirteen `lawyers`.
+- I don't care for `lawyers`.
+- Are you one of my `lawyers`?
+- You'll hear from my `lawyers`.
+- Did the justice `lawyers` sign off?
+- Unless the `lawyers` kill me first.
+- This building was full of `lawyers`.
+- I'll have my `lawyers` shut you down.
+- Their `lawyers` go -- what's a demur?
+- The `lawyers` are finally killing me.
+- I leave the theories to you `lawyers`.
+- `Lawyers` and judges who can help you.
+- These are my `lawyers` - all harvard men.
+- I mean, lot's of folks have got `lawyers`.
+- No... you know any good criminal `lawyers`?
+- Sounds like you've known a lot of `lawyers`.
+- Oh, `lawyers` are so complicated-don't do that.
+- They're all bent bent as hairpins... `lawyers`?
+- Their sons are `lawyers` and doctors and rabbis.
+- Ask anyone: our `lawyers`, our attorneys, anyone.
+- A consortium of court street `lawyers` and judges.
+- We have `lawyers` that were crossbred with wolves.
+- Yeah... there's no straight `lawyers` in turkey...
+- Kurt thought, if it was just `lawyers` -- bullshit.
+- That's all they are interested in -- those `lawyers`!
+- How many `lawyers` did you go to, before you called me?
+- All the `lawyers` in the world aren't going to help you!
+- We don't have to give assurances as if we were `lawyers`.
+- _ but now i got two new hotshot `lawyers` working my case.
+- So, our `lawyers` had a talk with the committee's `lawyers`.
+- Musicians, morticians, doctors, `lawyers`, butchers, clerks.
+- I can have my `lawyers` take that deed away from you like that.
+- We have common foes, chauncey - kid `lawyers` and our physician!
+- Dick, we could've had our own goddamn `lawyers` handle this deal.
+- We are farmers here, not `lawyers` or bankers, or even constables.
+- Comrade buljanoff... we didn't want to get mixed up with `lawyers`.
+- I never intended -- your `lawyers` feel it's the ... "smoking gun."
+- Coming in waving her `lawyers` and her money at me � so goddam smug.
+- Today the businessman is at the mercy of kid-`lawyers` from the sec.
+- Most people in this town whose kids were on the bus have got `lawyers`.
+- She has been locked in for the last two days with `lawyers` and law books!
+- If i let you go, there'll be ten more `lawyers` to take your place tomorrow.
+- I hear you're meeting with the studio `lawyers` to get out of your contract.
+- But segretti was talking to these other `lawyers` a year before the break- in.
+- David, grobleski & davis - my dear rawlston - it's a letter from her `lawyers`.
+- I mean, the firm's got other `lawyers`, but the magazine's got only one of you.
+- What do you call a thousand `lawyers` chained together at the bottom of the ocean?
+- Me and those two witnesses whom your `lawyers` have been looking for all over chicago.
+- Do other `lawyers` at the firm keep pictures of their spouses or fiances on their desks?
+- You'd meet doctors, `lawyers` -- nothing wrong with them necessarily if they're divorced.
+                 

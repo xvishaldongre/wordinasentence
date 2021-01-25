@@ -1,0 +1,86 @@
+---
+title: "nancy in a sentence | nancy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nancy"
+---
+- Bye-bye, `nancy` drew.
+- `Nancy`, what is this?
+- Yes, tell us, `nancy`.
+- Karen, where's `nancy`?
+- Mike, it's me, `nancy`.
+- `Nancy`, where are you?
+- `Nancy`, take that back.
+- `Nancy`, this isn't you.
+- `Nancy` when did it stop?
+- That's my sister `nancy`.
+- Or... go to hell, `nancy`.
+- Please don't die, `nancy`.
+- `Nancy` will check you out.
+- Careful there, `nancy` drew.
+- It's pretty simple, `nancy`.
+- `Nancy` drew, where are you?
+- Uh... `nancy`... - shall we?
+- You're being naive, `nancy`!
+- Hi, it's, um... it's `nancy`.
+- Only family allowed, `nancy`.
+- You must be here for `nancy`.
+- `Nancy`, maybe, but the chief?
+- I'm here for you, `nancy` drew.
+- `Nancy`, what-- - what do i do?
+- No, it's not bullshit, `nancy`.
+- Don't do that to miss `nancy`...
+- Oh, god, it's you -- ...`nancy`?
+- I'm not like `nancy` wheeler.
+- Hi, uh, ms. holland, it's `nancy`.
+- While he and `nancy` are screwing.
+- Are you still in love with `nancy`?
+- Come on, `nancy`, let's just leave.
+- You are beautiful, `nancy` wheeler.
+- `Nancy`, don't fall asleep in there.
+- But that's just not reality, `nancy`!
+- `Nancy` went bonkers from this thing.
+- Well, `nancy`, i'm paula... remember?
+- We were very-- `nancy`'s pretty good.
+- You risked your life... and `nancy`'s.
+- If you want mercy, `nancy`'s different.
+- I know we disagree... `nancy` driscoll.
+- You know, they're real things, `nancy`.
+- Ok. - barb, you're not-- - hey, `nancy`.
+- Follow my voice, `nancy`, i'm right here!
+- I, uh, didn't realize `nancy` had a sister.
+- All right, `nancy`, how'd you track me down?
+- And `nancy`, she'll be like your new sister.
+- `Nancy` have any severe childhood illnesses?
+- Rigged up some kind of machine `nancy`, wait!
+- But it was you that gave `nancy` her strength.
+- Clarke said she wouldn't have made it `nancy`.
+- `Nancy` said they'd had a fight, rod and tina.
+- That `nancy`'s turning you into a little pussy!
+- Did courtney love play `nancy` in syd and `nancy`?
+- One quarter pound of all-american beef, `nancy`.
+- I kind of lost touch with him after `nancy` got sick.
+- I'm sorry, that damn conference-- since `nancy` died.
+- No signs of pathology in `nancy`'s eeg or pulse rate.
+- I'm genuinely happy that you found some peace, `nancy`.
+- We go to sleep, we don't age, oh, `nancy`, how are you?
+- And solve the case of the missing condiment, `nancy` drew?
+- Hi, yes, um, this is `nancy` wheeler from the hawkins post.
+- But give `nancy` a break, encourage her to go to art school.
+- Whether or not you're willing to play `nancy` one last time.
+- Maybe 'cause tommy h. would've made fun of me or... `nancy`, wait!
+- `Nancy`, will you please have her call me as soon as you find her?
+- Probably reminds you of a bad relationship, a `nancy` drew mystery.
+- But if you promise me a wedding according to my traditions, `nancy`!
+- Didn't wanna lose more toys, you shouldn't have stolen from `nancy`.
+- No, but it's not like `nancy`'s coming to watch over mike, you know?
+- You played `nancy`, after all, the first to humiliate and defeat him.
+- The last of your kind to stand before us... becca... `nancy` and jonathan.
+- ♪ he's alive, someone quick call channel 5 ♪ `nancy`, what's taking so long?
+- He'd pop his `nancy`-belt if his old jacket somehow, i don't know, got her back.
+- I was thinking, "`nancy` wheeler, the general anesthetic will take effect shortly.
+- We put the grounders down and keep them down `nancy`, please tell me you're joking.
+- Remember in the diary - `nancy` said that she kept finding herself in a boiler room?
+- The rate has slowed, - figure out what's wrong with it... - whoa, `nancy`, slow down.
+- Maybe it only happens when you're sleeping - that's the way it was with `nancy`, wasn't it?
+                 

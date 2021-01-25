@@ -1,0 +1,107 @@
+---
+title: "battle in a sentence | battle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "battle"
+---
+- More fun win `battle`?
+- Smells like a `battle`.
+- I was in a huge `battle`.
+- To be killed in `battle`?
+- As it matters in `battle`?
+- Are we going into `battle`?
+- That requires no `battle`."
+- You're with us in `battle`.
+- We have a `battle` to do, ok?
+- How long can a `battle` go on?
+- Run away from a fake `battle`?
+- We're the first into `battle`!
+- `Battle` is the great redeemer.
+- It's `battle` i want, not talk.
+- I won't get into that `battle`.
+- That's not a `battle` going on.
+- ...and a body built for `battle`.
+- We all have `battle` scars, finn.
+- All right- let's go into `battle`.
+- There is no avoiding the `battle`.
+- In `battle`, it gets people killed.
+- That's why we'll win this `battle`.
+- It's a legitimate `battle` strategy.
+- What do you expect after a `battle`?
+- This is miles from the `battle` lines.
+- We're going into `battle`, little one.
+- You can't do `battle` with that thing.
+- You do that, that's half the `battle`.
+- Page after page of `battle` strategies.
+- Plans don't last very long in `battle`.
+- Wonkru know you have my `battle` plans.
+- I put up a stiff `battle` for that seat.
+- It's gonna be my 20th `battle` tomorrow.
+- I wouldn't want to face you in `battle`.
+- They've started the `battle` without me!
+- This ship is from the `battle` of zalem.
+- You'll miss the `battle` of the century!
+- Just know that we're going into `battle`.
+- You were at the `battle` of the mountain.
+- I can never eat the night before `battle`.
+- My `battle` plan called for the use - hey.
+- My father flew in the `battle` of britain.
+- You're the hero of the `battle` of corphon.
+- It means she lost the `battle`, not the war.
+- You gotta learn when to do `battle`, farmer.
+- They <u>are</u> `battle`-tested, aren't they?
+- Anyway the `battle`'s over and the war is won.
+- Narcissus: hero of the `battle` of the danube.
+- How could you send a little girl into `battle`?
+- Every `battle` plan is perfect someone's coming.
+- That's... you remember the `battle` of haroquin?
+- Those she's lost till after the `battle` is won.
+- Acceptable losses in a `battle` to save the planet.
+- I'm not sure hard `battle` can get out of this one.
+- Be a shame to win the `battle` only to lose the war.
+- Her synaptic drive was probably damaged in `battle`.
+- In that case, i challenge you to a `battle` of wits.
+- I've been in `battle` with every kind of man there is.
+- We abandoned skaikru in the `battle` for the mountain.
+- That did not look like a girl with 3 kills in `battle`.
+- And the `battle` begins, thank you, thank you, thank you.
+- There's no time for `battle`, no point to `battle` anymore.
+- Oh no... this is a `battle` of nerves between john and me.
+- To lift the kill order on you, let's jump into a `battle`.
+- What you're doing is as brave as going to `battle`, semet.
+- What you're doing is as brave as going to `battle`, semet.
+- Fleet's pulling the `battle` group back to safe distance...
+- He'll fight a purely defensive `battle` and he'll win that.
+- My future husband died in `battle` against the sutherlands.
+- You lost the `battle` but you have a chance to win the war.
+- He had to `battle` his studio to get her in the first place.
+- Most of europe, the middle east and asia are `battle` ready.
+- The great `battle` that is to come will be recorded love me.
+- He shows up for a `battle` of wits with a mental butter knife.
+- Your back, it would seem perhaps you were injured in `battle`?
+- Clarke, sometimes, you have to concede a `battle` to win a war.
+- I promise to rest if you promise... to go back to the `battle`.
+- I want to give you your freedom, after this `battle` is fought.
+- Always kept his hat on his head so as to be ready to do `battle`.
+- I have so far done `battle` with a woman and a child and a violin.
+- The moment you returned from the `battle` your options were clear.
+- The one thing he may have forgotten in the course of `battle`: me.
+- But there was a lot of firing earlier... that's no `battle`, kid...
+- I'm afraid he has been rather upset by the outcome of the `battle`.
+- We dwarves be not fighters; still we are with you in this `battle`.
+- But more importantly conor macleod, will be your `battle` against time.
+- Fromberge is on the `battle` line, and raoul -- i fear i know our king.
+- You must only let the red rage take hold of you in the thick of `battle`.
+- You'd be initiating a financial `battle` you'd ultimately lose, mr. harris.
+- Do you think that the government is winning the `battle` against terrorists?
+- If it succeeds, then any `battle` will be decidedly brief ... and one-sided.
+- One day, while in `battle`, he was killed by the sword of li mu bai's enemy.
+- The ones responsible for what happened to your brother that was in `battle`.
+- When a roman general knew a `battle` was lost, he'd throw himself on his sword.
+- Take <u>this</u>... for this shall be my gage, and you can take it into `battle`.
+- I've marched back into `battle`, i was with the queen's army heading toward polis.
+- The white man sending the black man into `battle`... now go kiss your daddy, quick.
+- You know that in `battle` things can... it'll be almost impossible to get them out.
+- Roughneck patrol to `battle` group... roughneck patrol to `battle` group... all bands.
+- I went berserk in every `battle` i ever fought for king harald... you went berserk...
+                 

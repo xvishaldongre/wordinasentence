@@ -1,0 +1,107 @@
+---
+title: "my in a sentence | my example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "my"
+---
+- Attack on `my` orders!
+- Because it's `my` job.
+- Benny was `my` friend.
+- ♪ breathe ♪ `my` wife.
+- !</b> suck `my` balls.
+- But he's `my` brother.
+- But, i have `my` ways.
+- But it was `my` fault.
+- But `my` life is good.
+- But `my` name is adam.
+- But `my` name's not...
+- Butterflies, `my` ass.
+- But you're `my` child!
+- By pulling `my` hair?!
+- Charley's `my` friend.
+- Clarke: on `my` way.
+- [crying] oh, `my` god.
+- Did i do `my` part ok?
+- Did you get `my` card?
+- Did you get `my` note?
+- Diego is `my` brother.
+- Diego is `my` partner.
+- Don't litter `my` cab!
+- Don't take `my` daddy!
+- Don't waste `my` time.
+- Do you like `my` body?
+- Do you like `my` tomb?
+- Drop us at `my` place.
+- Exactly `my` thinking.
+- Feel it in `my` bones.
+- Fellow about `my` age.
+- Fictions, `my` friend.
+- Football is `my` life.
+- For `my` own learning.
+- From `my` own fishery.
+- Gabriel, oh, `my` god.
+- Get off `my` property!
+- Get off `my` property.
+- Get out of `my` hotel.
+- Get out of `my` house!
+- Get out of `my` house.
+- Get out of `my` sight.
+- Get out of `my` way.
+- Give me back `my` hat!
+- Give me back `my` son!
+- God of `my` ancestors.
+- Goin' to see `my` kid.
+- Goodbye, `my` darling.
+- Good night, `my` love.
+- Got plans of `my` own.
+- Hand of god, `my` ass.
+- He is here, `my` lord.
+- Her child -- `my` god.
+- Here i am, `my` angel.
+- He's `my` best friend.
+- He's `my` friend, too.
+- He's `my` subordinate!
+- He's not `my` husband!
+- How are you, `my` man.
+- I always get `my` man.
+- I asked you `my` name.
+- I can't find `my` pod.
+- I can't move `my` arm.
+- I could lose `my` job.
+- I did for `my` people.
+- I did `my` time, okay?
+- I dig `my` own graves.
+- If i change `my` mind.
+- I finished `my` story.
+- I forgot `my` glasses.
+- I found `my` stowaway.
+- If you pull `my` cart.
+- I give you `my` heart.
+- I got `my` ass kicked.
+- I got `my` mind right.
+- I got `my` own fences.
+- I got `my` pry bar in!
+- I had `my` mouth full.
+- I hate `my` interests!
+- I have left `my` wife.
+- I have lost `my` gift.
+- I have `my` eyes open.
+- I-i chew `my` crosses.
+- I just hurt `my` back.
+- I killed `my` brother!
+- I led with `my` right.
+- I like it on `my` own.
+- I'll eat in `my` room.
+- I'll fix `my` lasagna.
+- I'll get `my` clothes.
+- I'll just... oh, `my`!
+- ♪ i'll lose `my` grip.
+- I'll prove `my` story!
+- I'll tell `my` people.
+- I love you, `my` king.
+- I make `my` own rules.
+- I'm honing `my` craft.
+- I'm in `my` underwear.
+- I'm in over `my` head.
+- I missed `my` therapy.
+                 

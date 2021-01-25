@@ -1,0 +1,60 @@
+---
+title: "salt in a sentence | salt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "salt"
+---
+- May i have the `salt`?
+- `Salt` lake city, utah.
+- Pressurized `salt` acid.
+- The `salt` is separated.
+- I'm talking about `salt`.
+- Start pouring the `salt`.
+- Then we just need `salt`.
+- You got `salt` last week.
+- '`salt` lake city, please.
+- These are `salt` mandalas.
+- `Salt`'s good for you, ted.
+- `Salt` the ham water, boys.
+- He's the `salt` of the earth.
+- Receive the `salt` of wisdom.
+- "p" for `salt`, "s" for pepper.
+- Is there... `salt`... and pepper.
+- Offer him the `salt` of penitence.
+- Debbie `salt`, stringer-- newsweek.
+- Hey, go easy on the `salt`, will ya?
+- That's for cleaning off road `salt`.
+- `Salt` sticks to the bottom of his feet.
+- They can suck a `salt` grain off a beach.
+- Too busy grieving i got the `salt` shaker.
+- Mulwray had `salt` water in his goddam lungs!
+- The driver will... '`salt` lake city, please.
+- Well, where are we gonna get that much `salt`?
+- At least, those of us who are worth our `salt`.
+- Lifeguard poured `salt` on it and it dropped off.
+- The bottoms of your feet are covered with `salt`.
+- Usually ann has some serious `salt` action going.
+- Could we `salt` them, or smoke them, do you think?
+- Avoid `salt`, sugar, starches, caffeine, alcohol...
+- Does yengeese major have property across `salt` sea?
+- He drank so much the kidneys were taking out `salt`.
+- Dad, i think you need a little more `salt` in your diet.
+- The coroner's report proves he was killed in `salt` water.
+- Filled with `salt` water, so you can float around in there.
+- I hate wax lips and red ants and pretzels without `salt`...
+- You wouldn't be taking the train to `salt` lake, would you?
+- I love you... mrs. teasdale, you're the `salt` of the earth.
+- Oh, any engineer worth his `salt` knows to plan for failure.
+- I ended the war, i got `salt` i with the russians, i opened china!
+- But general webb will not send their soldiers across the `salt` lake.
+- ...the coroner's report showed mulwray had `salt` water in his lungs.
+- We'll put in a great nugget of butter, plenty of pepper and `salt`...
+- I'd like to introduce you to mr. gekko, and his lawyer, mr. `salt`.
+- When you get to `salt` lake city, ask the driver, 'las vegas, please'...
+- Then he walks some two hundred and forty miles to the sea and makes `salt`.
+- Latest weather report shows everything socked in from `salt` lake to lincoln.
+- He understood how most people don't want their sugar and `salt` in the same jar.
+- You know, we have a saying back home: "either the `salt` is rotten or the meat."
+- Is it necessary to say of the sea that it is `salt`, that the stars are far, that...
+- I thought when you saw how perfect we look together, for those `salt` and pepper shakers.
+                 

@@ -1,0 +1,76 @@
+---
+title: "lower in a sentence | lower example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lower"
+---
+- In the `lower` region.
+- `Lower` your right hand.
+- Kitchen and `lower` house.
+- Will it `lower` the curve?
+- You're `lower` than a dog!
+- `Lower`--down into my neck.
+- On the `lower` east side...
+- We're on the `lower` level.
+- Four to the `lower` east side.
+- I told you to take us `lower`.
+- We have to `lower` the shield.
+- It's in a `lower` social scale.
+- He had no half his `lower` body.
+- Not on any of the `lower` levels.
+- You can't get `lower` than that...
+- Your honor must `lower` his voice.
+- It seems like we're getting `lower`.
+- It's ok. at a `lower` concentration.
+- Raymond, raymond, `lower` your voice!
+- It's all `lower`-brain-stem- activity.
+- The moon sinks `lower` into the hills!
+- You need to `lower` the pressure more.
+- `Lower` brain function is still intact.
+- I don't want anything `lower` than i am.
+- I couldn't `lower` the shield if i tried.
+- I will not `lower` myself to their level.
+- We're in the `lower` level, it's flooding!
+- You can land in one of the `lower` fields.
+- The man you seek is `lower` than a serpent.
+- Find something to `lower` it into the water.
+- Man: the outer door is on the `lower` level.
+- Your best shot is going to be to get `lower`.
+- Your best shot is gonna be to get `lower`.
+- `Lower` the fuckin music--i can't hear nothin.
+- What is that in the `lower` right hand corner?
+- We'll `lower` it out of the window with pulleys.
+- I'm gonna `lower` you to the chimney, okay jamie?
+- Go to him, you `lower` the shield, we do the rest.
+- Do you feel better having someone `lower` than you?
+- If he doesn't `lower` his gun i'll fucking kill her.
+- Tell your men to `lower` their weapons we're, uh, ow!
+- They knew we'd `lower` the shield to let them back in.
+- That'd be up on your shoulder, maybe your `lower` back.
+- But i do know it's hell of a lot `lower` than anyone else.
+- The truck... the truck has severed most of her `lower` half.
+- They blew up a container on the `lower` level no, you're not.
+- `Lower` your shields and allow me to transport you to my ship.
+- Both our children have done things i'll take the `lower` level.
+- Nothing worse than `lower`-class boors with upper-class morals.
+- Higher, `lower`, faster, harder, small circles, do the alphabet.
+- "phillippe has been removed to the bastille, to the `lower` dungeon.
+- This is the first year my earnings are `lower` than the year before.
+- Perhaps you'd be more comfortable at one of our `lower` stakes tables.
+- To `lower` their defenses, turn off the acid fog, i'd say it's working.
+- Just hold out your hand a little `lower` so he can get the smell of you.
+- You know, animals and `lower` life forms often anticipate major disasters.
+- It's actually connected to the `lower` brain function... and what about us?
+- We'd better seal off the `lower` maintenance level; at least trap it there.
+- No doubt she's worried that she would `lower` the standard of your offspring.
+- Sir, please `lower` your voice-- sir, this is a mortuary, not a rental house.
+- Now we `lower` our eyes with becoming modesty as we receive heartfelt thanks."
+- Well, i see they already to `lower` our carbon... handsome skaikru flamekeeper.
+- The dream of sanctum is already dead, oh, save that language for the `lower` 48.
+- Grosse pointe is now officially the new sister city to `lower` hutt, new zealand.
+- Truth is, besides the headache i've come down with a little `lower` intestinal havoc.
+- But we have to `lower` the anchors so we don't drift any further... what do you mean???
+- Even if we could cut around the hatch, which we can't, we'd have to `lower` somebody down.
+- Orson -- we can't get the fucking camera any fucking `lower` so find another fucking shot!
+- When we were up there, i could have opened a backdoor first we need to `lower` the shield.
+                 

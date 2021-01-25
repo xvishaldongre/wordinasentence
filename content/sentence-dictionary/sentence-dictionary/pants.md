@@ -1,0 +1,107 @@
+---
+title: "pants in a sentence | pants example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pants"
+---
+- Take off your `pants`.
+- Where are his `pants`?
+- Pull your `pants` down.
+- Put it in your `pants`.
+- Where are your `pants`?
+- Can i have your `pants`?
+- Don't cream your `pants`.
+- He's pissing his `pants`.
+- I blame tony pee-`pants`!
+- I'm gonna wet my `pants`.
+- Somebody peed my `pants`.
+- Where's my baggy `pants`?
+- You have no `pants`, sir.
+- They'll wet their `pants`.
+- He's seat of the `pants`...
+- Only the one in my `pants`.
+- You mean piss your `pants`?
+- I'm not wearing his `pants`.
+- Jake... take off my `pants`.
+- Parachute `pants`, activate.
+- Put your hand in my `pants`.
+- Tessa... gimme your `pants`!
+- Through your `pants` pocket?
+- "i'm gonna go in my `pants`."
+- Is a spoiler for her `pants`.
+- I made the polar bear `pants`.
+- The shit back home is `pants`.
+- What happened to your `pants`?
+- Did you got through my `pants`?
+- You have blood on your `pants`.
+- You need help with the `pants`?
+- You're gonna shit your `pants`!
+- Does he wear `pants` this color?
+- I'm wearing your `pants`, steve.
+- Where did you get those `pants`?
+- Fellas, i'm gonna put on `pants`.
+- I owe you a big one, hot `pants`.
+- What'd you do, piss your `pants`?
+- You can pull your `pants` up now.
+- It came with two pairs of `pants`.
+- Stokes is pullin' ah `pants` down.
+- Roger's `pants` are sunrise orange.
+- So we just had to get those `pants`.
+- Ya let 'im in ya `pants`, didn't ya!
+- Come on in, i'll get some `pants` on.
+- Either i just pissed my `pants` or...
+- More like pure `pants`-wetting panic.
+- Pull your motherfucking `pants` down.
+- This is bigger than tony pee-`pants`.
+- In his short `pants` on the davenport.
+- Is trying to get in my `pants`, right?
+- Um, so you have anything with `pants`?
+- That�s when he peed in his `pants`?
+- What do you want me to do, hot `pants`?
+- Besides, it beats the `pants` off bingo.
+- Cut his `pants` up the leg to the groin.
+- Heard he had you shitting your `pants`.
+- Reason why he's pullin' ah `pants` down.
+- So tony pee-`pants` starts ignoring kat.
+- I can clown the `pants` off these losers.
+- I'll be down in a "i-crapped-my-`pants`."
+- Over there wets his `pants` for fighters.
+- Would you like me to take my `pants` off?
+- I like the freedom of not wearing `pants`.
+- Now hows aboot you get those `pants` down!
+- Did you take anything out of those `pants`?
+- I swear, i didn't wear `pants` for a month.
+- He's dying to get in your `pants`, you know.
+- They wouldn't even let me put my `pants` on.
+- With her aerial silks and those yoga `pants`.
+- All right -- only he needn't dirty my `pants`!
+- Imagine that - holding the ends of my `pants`!
+- So tell me, tell me, i'm peeing in my `pants`.
+- This is all so -- by the seat of your `pants`.
+- I don't know, but just give me my `pants`, boy!
+- If he hadn't pissed his `pants`, we woulda won.
+- I'll give you your `pants` back please help us.
+- [`pants`] no, your face is totally unmemorable!
+- But they put their `pants` on one leg at a time.
+- Or pee in their `pants` when they see the ocean!
+- You won't want to attempt to get into my `pants`.
+- When was the last time you, uh, peed your `pants`?
+- Fifty other lines to get into a girl's `pants`.
+- Oh, come on, anyone in this joint pee your `pants`?
+- Caught in an alien whore house with my `pants` down.
+- I don't want anybody holding the ends of my `pants`.
+- You're just a kid in a jacket and a pair of `pants`.
+- Might i suggest tucking your `pants` into your socks?
+- The whole time i was out there, give me your `pants`.
+- We'll spend an hour with "nymphos without `pants`"...
+- She blames tony pee-`pants` pinterello for everything.
+- Better than being caught with your `pants` down, right?
+- The key, yeah, the key's in my `pants` in the bathroom.
+- Hey, mare, do i have a rip in the back of these `pants`?
+- I tried to take my `pants` off over my head... ...my ear.
+- Ya pulled down ya `pants` an' let him have it, didn't ya!!
+- Well, mr. smarty-`pants` detective, your logic is specious.
+- Hildy, you've got the whole city by the seat of the `pants`!
+- I have your new leading lady... ... right here in my `pants`.
+- The jacket and the pair of `pants` came with the body i took.
+                 

@@ -1,0 +1,52 @@
+---
+title: "sticks in a sentence | sticks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sticks"
+---
+- To kill with `sticks`.
+- But it `sticks` in mine.
+- If he `sticks` to the program.
+- I used two `sticks` of butter.
+- Six, six, six, pick up `sticks`.
+- Nothing `sticks` to slime, emily.
+- He `sticks` out like a sore thumb.
+- Nothing like eating fish `sticks`.
+- They got `sticks` with wire loops.
+- Your belly-button `sticks` out!
+- It `sticks` out, so i can't lock it.
+- `Sticks` out like a spider in a web.
+- What brings you out to the `sticks`?
+- Everything * fades, nothing `sticks`.
+- I can't help it it `sticks` in my mind.
+- They have these little `sticks`, vince.
+- The only snacks are celery `sticks`.
+- Salt `sticks` to the bottom of his feet.
+- The licking of the deodorant `sticks`.
+- Did these `sticks` make a whistling sound?
+- Two `sticks` have the power of four `sticks`.
+- Was just a garbage bag full of glow `sticks`.
+- But it didn't stick, like nothing ever `sticks`.
+- Four `sticks` have the power of sixteen, and so on.
+- You're a couple o' `sticks` shy in your column, ann.
+- Mr. parker, i'm supposed to give you your fish `sticks`.
+- That fuckin' bartender `sticks` a weed up my ass, too.
+- He `sticks` his toes in the water again, we'll cut 'em off.
+- So we've got guns, kitchen knives, pipes, fire and `sticks`.
+- The sedative in the tranq-`sticks` should last up to 3 hours.
+- I'm only seeing this little bit that `sticks` above the water.
+- Are you kids ready to turn this thing you like celery `sticks`.
+- That game where a bunch of paddies whack `sticks` at each other?
+- We're trying to get rid of joy-`sticks` altogether ... sign me up.
+- If the alternative is more torture, did you include celery `sticks`?
+- Armor up -- sick-`sticks` and concussion guns -- this is gonna be close.
+- What are you gonna do with a half-dozen guns and a few `sticks` of nitro?
+- The `sticks` left their mark... magua's village and lodges were burnt.
+- He smiles as you pay for your cancer `sticks` and says, "have a nice day."
+- All of us.... bang `sticks` are like yelling at it.... get the bang `sticks`.
+- Shit, we are so deep in the `sticks` we could walk for hours and find zero.
+- With a decisive gesture terry takes the hook and `sticks` it through his belt.
+- He `sticks` me in this broke-down amusement park, with a buncha animals to run it.
+- If he can raise public opinion against us--if any *part* of this `sticks`-- sure!
+- You think a guy like that comes this close to getting fingered and `sticks` his head out?
+                 

@@ -1,0 +1,92 @@
+---
+title: "Lloyd in a sentence | Lloyd example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lloyd"
+---
+- Good - thanks `lloyd`!
+- Iceman, power `lloyd`.
+- `Lloyd`, listen to me.
+- `Lloyd`, she's my mom.
+- We trust you, `lloyd`.
+- Start the tape, `lloyd`.
+- Hey `lloyd`, how ya doin'?
+- `Lloyd`, i love you, okay?
+- You're some catch `lloyd`.
+- You take the cake `lloyd`.
+- Anyway - `lloyd` christmas.
+- I spoke with `lloyd` daitz.
+- Is this because of `lloyd`?
+- `Lloyd`, i'm not twentyish.
+- `Lloyd`, where've you been?
+- You're a good kid, `lloyd`.
+- `Lloyd`, what are you doing?
+- `Lloyd` dobler, i've got you.
+- `Lloyd` loves me, i love him!
+- `Lloyd` was such a gentleman.
+- It's good to be back, `lloyd`.
+- `Lloyd`, she's being difficult.
+- He's from '`lloyd`'s of london.'
+- `Lloyd`, may i see you a minute?
+- She was never a suspect `lloyd`.
+- Things could be better, `lloyd`.
+- You're a great teacher, `lloyd`.
+- Oh hey `lloyd`, why are you here?
+- You and `lloyd` chose the class!?
+- `Lloyd`, did you ask your parents?
+- I wouldn't get my hopes up `lloyd`.
+- Are you talking about jamie `lloyd`?
+- You are such a great person `lloyd`.
+- You can do that, can't you, `lloyd`?
+- `Lloyd` and i have talked about this.
+- `Lloyd`, honey, just come home, okay?
+- Off stage or on... remember, `lloyd`.
+- Okay then... `lloyd` dobler, 555-1342.
+- `Lloyd`, be careful... five-fifty-five.
+- You've got to tell `lloyd` it's for me.
+- Don't make this like a counsel, `lloyd`.
+- `Lloyd`, why do you have to be like this?
+- Oh `lloyd`, you gotta taste my mom's pie!
+- Are you going to england with her `lloyd`?
+- `Lloyd`, honey, be a playwright with guts.
+- John, they sound jamie `lloyd` this morning!
+- `Lloyd`'s really the one teaching the class.
+- Nothing that i can't handle though, `lloyd`.
+- Donna said even `lloyd` called the other day.
+- The setting wasn't romantic, but `lloyd` was.
+- `Lloyd`, send her flowers, write her a letter.
+- Okay `lloyd`, you tell me how she killed them.
+- Well, there's `lloyd` garroway in san francisco.
+- Bill didn't say - but `lloyd` was beside himself.
+- Well `lloyd`, i admire you for not hitching a ride.
+- Everyone `lloyd` and i chose for the class is special.
+- `Lloyd`, let's not start putting things on this level.
+- You know `lloyd`, the real treasure is our friendship.
+- You want me to tell `lloyd` i think you should play it.
+- Okay, um, so it's `lloyd` and... uh... uh... let's go out.
+- He and `lloyd` had a terrific row but `lloyd` insisted... well.
+- If you were diane court, would you honestly fall for `lloyd`?
+- `Lloyd` may leave karen, but he will not leave karen for you.
+- `Lloyd` must be expecting a record run in new haven... `lloyd`.
+- `Lloyd`, what i'm saying is we may already have what we want.
+- `Lloyd`, we shared the most intimate thing two people can share.
+- `Lloyd`, you have to understand her family is being ripped apart.
+- But not all of it - not that `lloyd` and i are going to be married.
+- I'm the kind of man likes to know who's buying their drinks, `lloyd`.
+- I told her that i had spoken to `lloyd` - and that he was interested.
+- Uh ... you don't know when you'll be wanting us back, do you, `lloyd`?
+- Probity--you know, no one ever said anything iffy about `lloyd` garroway.
+- Sam, she died with him in that explosion after the -- it was jamie `lloyd`.
+- Of all the star ridden, presumptuous, hysterical- `lloyd`, what happened...?
+- "dear diane, i'll always be there for you, all the love in my heart, `lloyd`."
+- `Lloyd`, everybody in that party put something down on their record except you.
+- I know nothing about `lloyd` and his loves - i leave those to louisa may alcott.
+- "you can't know the horrible disappointment i feel..." i'm incarcerated, `lloyd`!
+- `Lloyd`, when we were in principal collins's office, did you see any kind of chest?
+- I just never think of `lloyd` as anywhere but indoors and anything but sitting down.
+- You're an inspiration `lloyd`; you should go on the seven hundred club or something.
+- Hey, i know this is a strange thing to say, but maybe diane court really likes `lloyd`.
+- I'll tour a year with this one, anything - only you do understand - don't you, `lloyd`?
+- I would imagine that only death or destruction could keep her- addison... `lloyd` and i.
+- Right now at least one girl is dead and jamie `lloyd` is in there fighting for her life.
+                 

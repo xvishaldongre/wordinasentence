@@ -1,0 +1,107 @@
+---
+title: "tree in a sentence | tree example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tree"
+---
+- Let's go, `tree` crew!
+- What about the `tree`?
+- Denfield to oak `tree`.
+- Put it over the `tree`.
+- It's dr. satan's `tree`.
+- `Tree`, good to see you.
+- Amy, not that old `tree`!
+- And the `tree` was happy.
+- That `tree`'s no mailbox.
+- It's ahead, by the `tree`.
+- To the `tree` of the dead.
+- Watch out for that `tree`.
+- I drove my car up a `tree`.
+- I mean, i can see a `tree`.
+- Seeds of the sacred `tree`.
+- I'm not hiding up no `tree`.
+- Movement on the `tree` line!
+- Some guy's car hit a `tree`.
+- That is one big damn `tree`.
+- Elevate lance, in the `tree`.
+- Just behind the `tree` ridge.
+- Well, farewell little `tree`.
+- A pine `tree` in death valley?
+- I burned the christmas `tree`.
+- She's out of her `tree`, nick.
+- Yeah, that's old, in a `tree`.
+- In that birch `tree` is a nest.
+- Our love is like an old `tree`.
+- The maple `tree` and the buick.
+- Yeah, the `tree` makes it nice.
+- It's a poison arrow `tree` frog.
+- `Tree`, help me find the handle!
+- Because you are also `tree` crew.
+- Cut down a `tree` with a herring?
+- Dragons be deaf as `tree` stumps.
+- He has that sign with the `tree`.
+- You'll be hiding behind a `tree`.
+- She is straight out of her `tree`.
+- Something came up, og `tree` crew.
+- The choices were him, or a `tree`.
+- Wait, what happened to the `tree`?
+- You ever see a palm `tree`, homer?
+- Your choices were him or a `tree`.
+- You see i have to plant my `tree`.
+- It's going to be a `tree`, i think.
+- Send oona up above the `tree` tops.
+- You mustn't play under this `tree`.
+- He fell out of the old beech `tree`.
+- Remember your failure at the `tree`!
+- She's right there, under the `tree`.
+- We can light our own `tree` at home.
+- You see, a `tree` is a living thing.
+- Of our beloved oak `tree`, old susie.
+- "the relighting of the `tree`" thing?
+- Will you take the `tree` down for me?
+- Got all the presents under the `tree`.
+- Hey, put your back against the `tree`.
+- Now the jade `tree`, tag tuckerbag?
+- But you're barking up the wrong `tree`.
+- Right in line with that burning `tree`.
+- You handcuffed a civilian to a `tree`?!
+- Everyone in this town loves that `tree`!
+- "go back to your banana `tree`, nigger."
+- You're wall to wall and `tree` top tall.
+- Don't do her no good to go into a `tree`.
+- I wouldn't cut that `tree` if i were you.
+- Who the hell planted a `tree` on my ship?
+- Climb up that `tree` and get a better view!
+- Rorschach, wechsler, house-`tree`-person...
+- The ultimate `tree` house of my own design.
+- Uh, well, i... - terminate dialogue `tree`.
+- You have 24 hours to build my `tree` house.
+- ♪ hangin' with the frink ♪ the bodhi `tree`.
+- Her parents found her hanging from a `tree`.
+- It's just like coming out of a `tree` house.
+- Nightly she sings on yon pomegranate `tree`.
+- You're barking up the wrong `tree`, hartman.
+- By the way, this is a friend of mine, `tree`.
+- It's strongest at the `tree` of souls, right?
+- Mike: i climbed up to the top of that `tree`.
+- ...to string and put on the christmas `tree`?
+- A bolt of lightning blew up cottonwood `tree`.
+- They ain't drops--i picked 'em off the `tree`!
+- I don't see you rushing home to trim the `tree`.
+- I'm probably just talking to a `tree` right now.
+- Merle is under his `tree`... beside the terrace.
+- There was an elm `tree` outside the window then.
+- I'm a strong `tree` with branches for many birds.
+- They're fly bitten savages that live in a `tree`.
+- This isn't the pine `tree` inn on route 81, jack.
+- You get your first palm `tree` in south carolina.
+- A wave of radioactive fire taller than any `tree`.
+- Disaster, disaster lurks behind every palm `tree`.
+- I remember when you were the tender of the `tree`.
+- `Tree` toxins, mass hysteria, to make life better.
+- Visit your special `tree` when you were out there?
+- Don't you see her?...right there, under the `tree`.
+- Now who would hang someone from a persimmon `tree`?
+- Okay, that was one time... - look under the `tree`.
+- At least i haven't been barking up the wrong `tree`.
+                 

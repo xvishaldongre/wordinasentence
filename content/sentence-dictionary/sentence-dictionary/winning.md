@@ -1,0 +1,63 @@
+---
+title: "winning in a sentence | winning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "winning"
+---
+- Is `winning` this war.
+- Red sox are `winning`.
+- Who's `winning`, mama?
+- I'm `winning` every bet!
+- You're `winning` anyway.
+- It's not about `winning`.
+- They're always `winning`.
+- `Winning` isn't everything.
+- The criminals are `winning`.
+- You ready to keep `winning`?
+- What do you get for `winning`?
+- `Winning` the war by yourself.
+- So, it's not a `winning` record.
+- Sure sounds like he's `winning`.
+- Well, i'm addicted to `winning`.
+- Come on, auntie, you're `winning`.
+- We're gonna be the `winning` side.
+- Never fuck with a `winning` streak.
+- You are within an ace of `winning`.
+- Did you see the `winning` run score?
+- You don't have a `winning` attitude.
+- I love `winning`, crash, you hear me?
+- I thought the red sox were `winning`.
+- There's no `winning` and losing here.
+- That's like `winning` the sweepstakes.
+- `Winning` personality, heaps of charm?
+- My award `winning` expos� changed all that.
+- They don't have your `winning` personality.
+- Your princess is really a `winning` creature.
+- If you win a bet, you can't keep `winning` it ..
+- My car bumper has never held a `winning` sticker.
+- A prize-`winning` novelist with no musical talent.
+- You can just think of it as `winning` the lottery.
+- The `winning` side would have paid you much better.
+- Congratulations on history's longest `winning` streak.
+- Yeah, i can see to it your `winning` streak continues.
+- A thing like this... who could even think of `winning`?
+- But i sure do love that `winning` horse of mine, though.
+- You were this close to `winning` the three-legged chase.
+- I'm gonna love `winning` this championship in your house.
+- From `winning` my fifth grade spelling bee to the present.
+- I want to congratulate you on `winning` the amazing place.
+- Now, lisa, to `winning` the last war mankind will ever wage.
+- The shepherd teaches us that `winning` the last war or what?
+- You have the same chance of `winning` whether you play or not.
+- Your father was oliver lane, a pulitzer prize-`winning` author.
+- `Winning` that ticket was the best thing that ever happened to me.
+- What with you and whistler's ma - i think i've got a `winning` team.
+- I'm sorry, but i sleep better when i know i'm with the `winning` side.
+- You said if you didn't have a `winning` record -- it's not losing record.
+- Sean, do you have any idea what the odds are against `winning` the lottery?
+- Do you think that the government is `winning` the battle against terrorists?
+- You go to school dances with someone that, you know... end up with us `winning`?
+- You have no choice in this, don't think about `winning`, think about staying alive.
+- I've been telling myself it's the award `winning` journal article i'm going to write.
+- You said if you didn't have a `winning` record after eleven fights, you'd talk to max.
+                 

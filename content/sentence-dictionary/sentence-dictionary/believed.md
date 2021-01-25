@@ -1,0 +1,107 @@
+---
+title: "believed in a sentence | believed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "believed"
+---
+- You `believed` in her.
+- And i still `believed`.
+- She `believed` you?
+- You `believed` him.
+- You `believed` him?
+- I `believed` her, pete.
+- I wish i `believed` it.
+- I almost `believed` him.
+- Because he `believed` me.
+- He really `believed` that.
+- I've always `believed` that.
+- I never <u>`believed`</u> it.
+- Would you have `believed` me?
+- You `believed` that story.
+- I thought you `believed` in me!
+- So you `believed` the bartender.
+- A lot of people `believed` in nix.
+- I'm sure he `believed` every word.
+- You think he really `believed` it?
+- The thing is, i `believed` you.
+- She no longer `believed` in god.
+- If they `believed` in god in hawaii.
+- Nobody `believed` i wasn't in on it.
+- I acted stupid and they `believed` me.
+- I `believed` that it was all about me.
+- We needed to know what you `believed`.
+- We never `believed` that in my family!
+- I never `believed` you were a murderer.
+- Your grandfather sure `believed` in it.
+- Till today, i haven't `believed` a word.
+- Oh, hell, no, she never `believed` in me.
+- Elsa never really `believed` in the grail.
+- I told them i `believed` you... get on it.
+- Not if she knew she wouldn't be `believed`.
+- Of course nobody `believed` ray and claude.
+- Tellin' her whole story...i `believed` her.
+- Whose queen `believed` she knew my secrets.
+- But i never actually `believed` i was a god.
+- He told me he loved me and i `believed` him.
+- Marty `believed` in me and i believe in him.
+- Frank asked me if i `believed` in time travel.
+- My brother `believed`, as you do, those morons.
+- And i wasn't really sure if i `believed` in god.
+- He told you black was a curse, you `believed` him.
+- She was willing to die for what she `believed` in.
+- Eduardo `believed` it was a sign, i know that look.
+- I `believed` her: the dumper was not tom grunemann.
+- Maybe nobody else `believed` you, but i always did.
+- Why should i believe a man who never `believed` me?
+- You `believed` it because you wanted to believe it.
+- I `believed` that son-of-a- bitch... what the fuck!?
+- I shoulda saved him 'cause he <u>`believed`</u> you?
+- Is that what you `believed` ordinary people thought?
+- I only led her into believing i `believed` she was...
+- Townsend `believed`, just as god became man in christ.
+- Because we `believed` we could make an impact out here.
+- He never would have `believed` a woman like you existed.
+- I `believed` in you... you are bound by an oath, father.
+- It's why they `believed` it when you took them all away.
+- You `believed` him when he told you he had done that.
+- I just listened... and `believed` everything they told me.
+- It's a perversion of everything bekka pramheda `believed`.
+- You've never `believed` a word i told you about mr. august.
+- He told you you were a black heathen and you `believed` him.
+- I `believed` your stories so much longer than i should have.
+- As usual no one `believed` me... don't be so modest, ben.
+- If he's to be `believed`, it's a most, uh, unique expedition.
+- You always `believed` in me, louis, even in the darkest days.
+- You don't believe me - all this time you never `believed` me.
+- He `believed` the key to self-knowledge was emotion, not logic.
+- The people of your planet once `believed` their world was flat.
+- This is another world, tom - i never would have `believed` it...
+- When you said you'd name her as an accessory she `believed` you.
+- You can go tell the others i `believed` your lies where are they?
+- I `believed` you, i thought * you deserved the chance for revenge.
+- He `believed` it all went back to one night, when as a little girl.
+- If i told you, all my life, i `believed` in the scientific meth-od.
+- Magua's wife `believed` he was dead and became the wife of another.
+- When you said compromise was possible i `believed` it was probable.
+- Always confident your wife actually `believed` your fervent denials?
+- I `believed` jason bourne had suffered a severe traumatic breakdown.
+- Uh huh... and, supposing i `believed` that, what could i do about it?
+- Well, what would you do if you `believed` everything i just told you?
+- That you're not... she always `believed` that you'd come home one day.
+- Would you have `believed` that i should read such news in a newspaper?
+- Bellamy's dead because he `believed` that crap, aw, what am i gonna do?
+- It's a fact, i can build anything... ... but she never `believed` that.
+- I never in a million years would have `believed` it if i hadn't seen it.
+- Major, blodreina... as i `believed` that you were doing the right thing.
+- Morpheus did what he did because he `believed` that i'm something i'm not.
+- You remember, john, in '48 -- no one `believed` alger hiss was a communist.
+- If you `believed`, you wouldn't be walking around with a handgun in your belt.
+- About the promise of our future, she always `believed` that you were out there.
+- Honey, i just want you to know when i `believed` in people, they took him away.
+- I `believed` his story, but i was afraid the other children wouldn't... oh... .
+- I don't want to know -- my name is -- you're the one who's not to be `believed`.
+- I once `believed` that i would never the entire college fund, $670.42, was gone.
+- If you'd gone on about how much you liked it, i'm not sure i'd have `believed` you.
+- If you told me two years ago we'd be living here, i would never have `believed` it.
+- I mean, we've always `believed` we can think anything we want without consequences.
+                 

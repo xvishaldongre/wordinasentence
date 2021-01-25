@@ -1,0 +1,55 @@
+---
+title: "firing in a sentence | firing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "firing"
+---
+- `Firing` all directions.
+- Are you `firing` me, jim?
+- We were `firing` over it.
+- `Firing` photon torpedoes.
+- `Firing` them after a day.
+- `Firing` squad, definitely.
+- Maybe the `firing` pin's off.
+- Well, i do the `firing`, too.
+- But i'm `firing` the thrusters.
+- He's `firing` through his cloak.
+- Because i'll be `firing` at them.
+- Can you fight fire with `firing`?
+- Is there a `firing` range around?
+- Echo's `firing` live rounds again.
+- Friday, what are they `firing` at?
+- Or it might be the `firing` squad!
+- We kept `firing` - zat-tat-tat-tat!
+- We can't have any `firing` in there.
+- The shooter will be `firing` blindly.
+- `Firing` on a ship means attacking the ship.
+- Sir, this is not like `firing` any employee.
+- `Firing` you, mr. helms, wouldn't do any good.
+- `Firing` would only've given away our position.
+- You ain't a `firing` squad, you piece of shit!!
+- Inhibiting certain neural pathways from `firing`.
+- They're `firing` even more people than they said.
+- `Firing` lead into another man's flesh isn't brave.
+- `Firing` the cold gas thrusters it was your spaceship.
+- Parts of your brain now seem to be `firing` at random.
+- But, captain, we're `firing` directly on your position.
+- Like `firing` andrew beckett taught <u>him</u> a lesson?
+- Van cleve already called me - he's `firing` the quintet.
+- No, but he heard `firing`, just east, less that a kilometer.
+- Too bad we won't be able to see what we're `firing` ours at.
+- It's on the far side of the planet...`firing` at the surface.
+- But there was a lot of `firing` earlier... that's no battle, kid...
+- I don't know, ellie -- `firing` me is going to be very tough on you.
+- The `firing` pin's busted - the - don't waste time talking about that.
+- To a biblical spoof of a crazed father `firing` a gun at his only son.
+- With all due respect, mr. secretary, we were not `firing` on the ship.
+- `Firing` shotguns in griffith park from a late-model purple mercury coupe.
+- If not, `firing` will only give away our position to hostiles in the area.
+- David, don't... you can't be seriously considering `firing` nuclear weapons?
+- Unless we can disable his cloak we're just going to be `firing` in the dark.
+- He says there you have a choice... you can die by hanging or by `firing` squad.
+- You're trying to feel less guilty about `firing` someone with three kids to feed.
+- Target... captain, they're `firing` at a nuclear missile silo... in central montana.
+- They probably have guards on the roof--and they're gonna be `firing` at me--not you!
+                 

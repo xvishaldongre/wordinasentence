@@ -1,0 +1,107 @@
+---
+title: "attack in a sentence | attack example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attack"
+---
+- `Attack` on my orders!
+- It's a heart `attack`.
+- Preparing to `attack`.
+- We are under `attack`!
+- We `attack` as a team.
+- So when do we `attack`?
+- Stand by for `attack`!!
+- He had a heart `attack`.
+- So she doesn't `attack`.
+- But they didn't `attack`.
+- She has a heart `attack`.
+- We under `attack` or not?
+- Why did they `attack` us?
+- You had a heart `attack`?
+- But there was an `attack`.
+- But why `attack` an agent?
+- Nobody could `attack` you.
+- There will be no `attack`?
+- We are not under `attack`.
+- We shall `attack` at once.
+- For a retaliatory `attack`.
+- Sir, are we under `attack`?
+- The `attack` is at sundown.
+- I'm having a panic `attack`.
+- They're going to `attack`...
+- We had to stop the `attack`.
+- Why not just `attack` court?
+- `Attack` -- `attack` -- `attack`!
+- Invaders `attack` the coasts.
+- It's an enemy sneak `attack`.
+- They `attack` at first light.
+- They re not my `attack` dogs.
+- What's your plan of `attack`?
+- You going to `attack` me too.
+- If they `attack` you... maybe.
+- Someone tried to `attack` you.
+- Stop the `attack`, stop a war.
+- The ship is under `attack`...!
+- What does this virus `attack`?
+- Why don 't the zulus `attack`?
+- Okay, i `attack` with my flail.
+- She had a minor heart `attack`.
+- Starting now, we `attack` them.
+- The grounders `attack` at dawn.
+- Under `attack` for all we know.
+- Who gave the order to `attack`?
+- You `attack` the enemy head on!
+- Now they `attack` brown too.
+- I know how to stop the `attack`.
+- I want to be in on the `attack`.
+- No, i'm having a heart `attack`.
+- Not to `attack`, but to contain.
+- Once it's down, we can `attack`.
+- Why the hell would you `attack`?
+- You're going to `attack` them?!!!
+- For the `attack` on mount weather.
+- Heart `attack`, maybe an aneurysm.
+- You're not gonna have an `attack`.
+- One of which survived the `attack`.
+- The borg will undoubtedly `attack`.
+- We'll avenge the `attack` together.
+- His reaction to the latest `attack`.
+- I think i'm having a panic `attack`.
+- I tried to investigate the `attack`.
+- That was heart `attack` time, karla.
+- This man is having a heart `attack`.
+- You gave me a heart `attack`, marty.
+- It's a pretty massive heart `attack`.
+- She's having a panic `attack`, indra.
+- Suppose it was a cataleptic `attack`?
+- The `attack` on new york, that's him.
+- What the hell is `attack` plan alpha?
+- You were under `attack` by grounders.
+- And mine the field before we `attack`.
+- Commence `attack` on pleasure station.
+- I nearly had a fucking heart `attack`.
+- It decoded as - wing `attack`, plan-r.
+- My friend's having an asthma `attack`.
+- My mother would have a heart `attack`.
+- Serious as a heart `attack` my friend.
+- You'll get a heart `attack` like that.
+- All groups assume `attack` coordinates.
+- Dad had a heart `attack`, two days ago.
+- How do we respond to personal `attack`?
+- I thought i was gonna have an `attack`.
+- My `attack` had nothing to do with him.
+- My sister died in that museum `attack`.
+- Or one huge `attack` of group hysteria.
+- The `attack` is psychological , damien.
+- They're planning some kind of `attack`.
+- What happened in there was an `attack`.
+- Preparing an `attack`, which we are not.
+- Soon as i get over the heart `attack`...
+- We told sheriff cobb about the `attack`.
+- Could have a heart `attack` or something.
+- Hold off the `attack` as long as you can.
+- It's the ultimate tarmac unpack `attack`.
+- It won't `attack` unless it's threatened.
+- This place can't handle another `attack`.
+- He's having a heart `attack` or something.
+                 

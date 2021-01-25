@@ -1,0 +1,107 @@
+---
+title: "throat in a sentence | throat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "throat"
+---
+- I have a sore `throat`.
+- The one in my `throat`.
+- It stuck in my `throat`.
+- Cut his fucking `throat`.
+- How's our `throat` today?
+- I can slit your `throat`.
+- I will slit her `throat`.
+- I'm gonna cut my `throat`!
+- I slashed my own `throat`.
+- I will slit your `throat`.
+- My `throat`'s fucking raw!
+- I want to cut his `throat`.
+- Somebody slit his `throat`.
+- Ear, nose and `throat` man,.
+- He's cutting our `throat`...
+- Now put it to your `throat`.
+- Hey, bad `throat`, huh j-man?
+- I'll cut his fucking `throat`.
+- It'd stick in my `throat`, mom.
+- Anything else from mr. `throat`?
+- I was just clearing my `throat`.
+- Love at first knife to `throat`.
+- My heart's in my `throat`, here.
+- The proof had his `throat` slit.
+- ], and jason had a sore `throat`.
+- I'll slit your master's `throat`.
+- Lie, and i'll slit your `throat`.
+- Well, don't jump down my `throat`.
+- Might end up cutting your `throat`.
+- Somebody tried to slit my `throat`.
+- It comes back to tear your `throat`.
+- What is it, a sore `throat` or what?
+- So paxton mccreary slit his `throat`.
+- The name of the game is cut-`throat`.
+- Well, some of his `throat` was there.
+- Say the name, or i slit your `throat`.
+- A devil has the people by the `throat`.
+- Ear-nose-`throat` meets rabbit-from-hat.
+- Hadley's got him by the `throat`, right?
+- Crazy old fool damn near cut my `throat`!
+- Put the blade right down on her `throat`.
+- Abby, he had a knife to his `throat`, aah!
+- I'm going to wrap it around your `throat`!
+- Only make sure you got the right `throat`.
+- I don't know, he... or i slit his `throat`.
+- She has a fish bone caught in her `throat`.
+- Maybe that's where i'm gonna cut your `throat`.
+- He eats all right -- his `throat` ain't scarred.
+- The `throat`, the mouth... its vulnerable spots.
+- Well, i don't... how about to slit his `throat`?
+- I can practically taste the water in my `throat`.
+- Why didn't you let me go for the `throat`, monty.
+- But now our home is dying, i can slit your `throat`.
+- I was a little worried about the line of my `throat`.
+- No way i could hold a knife to tyler's `throat`, man!
+- Tell heywood i'm sorry i put a knife to his `throat`.
+- Vada there is no chicken bone stuck in your `throat`.
+- A cruddy lung, smoking through a hole in your `throat`.
+- Uh... [clears `throat`] let's try this a different way.
+- Closer and closer �- until they bite into your `throat`!
+- If a man is holding a dagger to your `throat`, minister?
+- Neither one of you can wait to slit the others `throat`.
+- She had an insect deliberately inserted in her `throat`.
+- After this, i'll throw a burger down your `throat`, okay?
+- Cut his mother's `throat` if it'd get him a couple votes.
+- Drop it or i'll slit your mother's `throat` in her sleep.
+- I should tear your tongue through your `throat` for that.
+- I should've put that spray paint right down your `throat`.
+- [clears `throat`] then i had to find out who she really was.
+- Not remembering one fever... or a cold... or a sore `throat`.
+- It's ok. aunty o. i slit a man's `throat` and watched him die.
+- I will melt that gold and pour it down your `throat`, old man!
+- She's gonna hunt you down, one by one, and slit your `throat`.
+- I'll cut your fucking tits off and shove 'em down your `throat`.
+- Hobbs was trying to cut his eleven- year-old daughter's `throat`.
+- The purpose being i intend to shove it down the son'a's `throat`.
+- Do exactly as i say, or i'll put this arrow through your `throat`.
+- His `throat` began to flutter there like there was a wind blowing.
+- Cut your own `throat`, you're ner- vous about it, tend to hesitate.
+- I cannot shed blood in her house but i will cut your `throat` anon.
+- They ask me for some whisky and start forcing it down his `throat`.
+- As long as he keeps his `throat` clear, he is able to get some rest.
+- John mbege... sliced `throat`, [ship's horn blasts] so what do we do?
+- The story of how you slashed your own `throat` you should rest, clarke.
+- We know that he was wounded in the `throat` at the time of his capture.
+- With a knife to your `throat`, you told your mom it likes it like this.
+- Fella named barone turned up just this mornin', `throat` cut ear to ear.
+- Four hundred and fifty and i'll cut your `throat` if you try any tricks!
+- ...it must have laid something inside his `throat`, some sort of embryo.
+- Perimortal: victim was alive at the time, there's blood on his `throat`.
+- You thought right... now take your hands from around my `throat`, nigga.
+- ...well, if you're not going to slit my `throat`, why'd you come up here?
+- You spend enough time down a man's `throat`, you get to know his tonsils.
+- I've often talked a little voodoo to get medicine down a patient's `throat`.
+- Must have been screaming real loud when the killer chain-sawed his `throat`.
+- This hand... it... it slashed doctor layton's `throat`... and the deputy.
+- Lucky you didn't have your mouth open or it would have gone down your `throat`.
+- It's what they install in your `throat` when `throat` cancer takes your voice box.
+- That hitcher was just about to cut your `throat` when you stopped to take a leak.
+- Who could eat with him settin' there makin' that goddamn racket with his `throat`.
+                 

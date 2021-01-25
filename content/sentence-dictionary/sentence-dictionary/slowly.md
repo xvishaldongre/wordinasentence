@@ -1,0 +1,63 @@
+---
+title: "slowly in a sentence | slowly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slowly"
+---
+- Just take it `slowly`.
+- You kill people `slowly`.
+- I wore her down, `slowly`.
+- `Slowly`... in waltz time.
+- Hablar `slowly`, por favor.
+- I'm stopping it - `slowly`.
+- Eat shit and die `slowly`...
+- Then you can speak `slowly`.
+- Walk `slowly` to the podium.
+- I'm gonna lift you up `slowly`.
+- Tell that man to drive `slowly`.
+- But change always comes `slowly`.
+- Turn `slowly` and let's walk away.
+- Back, i suppose, `slowly` as i can.
+- Let's just say, god works too `slowly`.
+- Put it back on and take it off `slowly`.
+- `Slowly`, your gang becomes your family.
+- Like being ripped inside out... `slowly`.
+- Just get up `slowly` like everything's cool.
+- Lets pay this bill and get up very `slowly`.
+- Please move `slowly`, you're rocking the boat.
+- He's going to take his foot off `slowly`, david.
+- Hold it and let it out `slowly` on a count of 3.
+- I'm alive... general, hang on... drink `slowly`.
+- You can die `slowly` cut into a thousand pieces.
+- Put down the bat and approach the sign, `slowly`.
+- She laughs and backs up `slowly` toward the door.
+- `Slowly`, incredibly `slowly`, but you're learning.
+- Pieces of the puzzle is `slowly` being put together.
+- You wouldn't drive `slowly`, so you don't get a tip.
+- Fortunately such news comes very `slowly` where i live.
+- The days pass very `slowly` and i hope to see you soon.
+- I'll torture you so `slowly` you'll think it's a career!
+- We have to lead them `slowly` into the twentieth century.
+- Her ball moves so `slowly` it barely tips over the first pin.
+- Ok. ♪ `slowly` losing sight of the real thing ♪ come with me.
+- Sidney looks at him long and hard, a smile `slowly` appearing.
+- Take a deep breath, let it out `slowly` and tell me who you are.
+- Changes must be made `slowly`, as you, yourself, judge necessary.
+- He sits on bed, thinks, then takes telephone `slowly`, decisively.
+- At first it started off `slowly` -- but the rhythm built and built.
+- 'he turned `slowly`, `slowly` in the lava...' was how you described it.
+- Just a minute, mrs. lampert -- you'd better give that to me `slowly`.
+- Okay, so let's start by `slowly` putting the bomb down on the ground.
+- She turns and walks away toward the church, `slowly`, her head bowed.
+- They're dissolving, case... `slowly`, but they're definitely dissolving.
+- The four stand `slowly` and enter through the doors, which close behind them.
+- Life `slowly` seems to return to her, and her breathing becomes more peaceful.
+- His eyes swivel `slowly` from nikolas to the patient and back to nikolas again.
+- A conspiracy like this-- the rope has to tighten `slowly` around everyone's neck.
+- ♪ `slowly` slip back inside of my mind ♪ i know how to kill her once and for all.
+- I'm in close with these guys, it isn't easy, but `slowly` they're opening up to me.
+- `Slowly` but surely, ultraviolet rays would pour in, increasing the risk of skin cancer.
+- Then, `slowly`, we learned that fighting is no solution -- that aggression leads to chaos.
+- The people who didn't eat die `slowly`, what we've done is gonna get us out of this prison.
+- Are you saying somebody threw these things in with our guy, and they `slowly` ate him alive?
+                 

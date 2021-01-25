@@ -1,0 +1,83 @@
+---
+title: "uniform in a sentence | uniform example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "uniform"
+---
+- Is that your `uniform`?
+- Where's your `uniform`?
+- Your `uniform`'s ready.
+- Are you wearing a `uniform`?
+- You haven't got a `uniform`?
+- Oh, make that `uniform` blue.
+- The `uniform` and everything!
+- He didn't have a `uniform` on.
+- `Uniform` doesn't change that.
+- You've got to have a `uniform`.
+- I can't wear a `uniform` anymore.
+- They all wear the same `uniform`.
+- Isn't that an officer's `uniform`?
+- 'make sure you wear the `uniform`'?
+- You're not in `uniform`... private.
+- Would you like to don your `uniform`?
+- I seem to have misplaced my `uniform`.
+- His `uniform` in the press photographs.
+- I told you the `uniform` wouldn't help.
+- Leave your `uniform` in the locker room!
+- Think i'm a spy in a sailor's `uniform`?
+- Well, well, well - got your `uniform`, eh?
+- My goodness, you ought to have a `uniform`.
+- On your `uniform` is gonna be in your head.
+- Put on the guard's `uniform` and take this.
+- Wearing a black bra, under my `uniform`.
+- But you took off your captain kidd `uniform`.
+- I mean...from the `uniform` you were wearing.
+- "look at that nice grounder in his `uniform`."
+- You either need a new `uniform` or a new neck.
+- You look awful good in that `uniform`, though.
+- I should've told you i wouldn't be in `uniform`.
+- I promised him a new `uniform` when we re-opened.
+- Not only go to it but go to it in full `uniform`!
+- How about you explain where he got that `uniform`?
+- I keep thinking that's a fire department `uniform`.
+- It makes me nervous just seeing him in a `uniform`.
+- Only you weren't in that `uniform`... hello, grant.
+- In the ark, the `uniform` meant something different.
+- In the ark, the `uniform` meant something different.
+- They need the money for my band `uniform` at school.
+- Do you have trouble with your boobs in the `uniform`?
+- We do not wish to do harm to our brothers in `uniform`.
+- Always happy to do something for our girls in `uniform`.
+- There were actually walking dead...in `uniform`...with guns.
+- You assumed who i was, because i was wearing this `uniform`.
+- You're still wearing the `uniform` of the coldstream guards!
+- It's fabric from the `uniform` of an army officer of guilder.
+- Just 'cause you went to catholic school and wore a `uniform`.
+- He's always been a hothead -- what did he do to the `uniform`?!
+- I'll have to let the gardener go for lending you his `uniform`.
+- Got a little surprise... what're you doing out of `uniform`, sid?
+- Yeah, well... you know, i never saw you in your `uniform` before.
+- ♪ do-do-do-do-do-do-do... ♪ a problem with that, with a `uniform`!
+- Must i remind you that he is wearing a costume, not a `uniform`?...
+- Dude in `uniform` get in your face, you do not shoot your mouth off.
+- If i did, get them to wrap it up, and change back into my `uniform`.
+- Just because i wear a `uniform` -- that doesn't make me a girl scout.
+- Oh, you are very welcome... lord knows how i love a man in `uniform`.
+- He's always been a hothead -- <u>what</u> did he do to the `uniform`?!
+- 'course, i <u>was</u> wearing ladies' undergarments under my `uniform`.
+- He's a colored man in chauffeur's `uniform` carrying a basket of fruit.
+- There's a bill up in congress to give us a `uniform` law of bankruptcy.
+- They'll make you any kind of `uniform`, any kind of sweatsuit you want.
+- We are located in an apparently `uniform` space with no visible limits.
+- It's a gay cruise line, but i'll be, like, wearing a `uniform` and stuff.
+- Remember those two `uniform` cops who been giving us such a hard time... ?
+- You give someone a fucking `uniform` and... did you hear how he talked to us?
+- I'm sorry, i just decided to stay in the suit -- get out of that damn `uniform`.
+- So i put this back on 'cause could put this on faster than i could my `uniform`.
+- Wear your `uniform` and every decoration, and let them despise you, if they dare.
+- She looked so damn adorable in a cop's `uniform`... puttin' on a big, tough act...
+- So, tell me, fellow war-monger...do you think princess bala likes men in `uniform`?
+- Wearing a `uniform` doesn't bestow an automatic monopoly on courage, <u>commander</u>!
+- It showed a girl trying on a sailor's `uniform` while saying, "gee, i wish i were a man!
+- His unshaven, disheveled appearance looks totally out of place in his security `uniform`.
+                 

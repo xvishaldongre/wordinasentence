@@ -1,0 +1,107 @@
+---
+title: "hurt in a sentence | hurt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hurt"
+---
+- But nobody was `hurt`.
+- Did anyone get `hurt`?
+- Doesn't `hurt` to ask.
+- Don't `hurt` the face!
+- Don't `hurt` yourself.
+- Gonna `hurt` somebody.
+- He wasn't even `hurt`.
+- I just `hurt` my back.
+- It didn't `hurt` much.
+- That can't `hurt` him!
+- That fellow `hurt` me.
+- They bloody `hurt` me.
+- They can't `hurt` you.
+- They might `hurt` you.
+- They never `hurt` you.
+- They won't get `hurt`.
+- Were you badly `hurt`?
+- Why doesn't it `hurt`?
+- Why do my eyes `hurt`?
+- Wouldn't `hurt` a fly.
+- Would they `hurt` her?
+- You'd `hurt` me badly?
+- You didn't get `hurt`?
+- You `hurt` me, george.
+- I don't get `hurt`.
+- I have been `hurt`.
+- And nobody gets `hurt`.
+- And that really `hurt`.
+- Did she `hurt` herself?
+- Don't `hurt` my camera!
+- He wouldn't `hurt` you.
+- Hey, did he `hurt` you?
+- I `hurt` you, didn't i?
+- I said, are you `hurt`?
+- It didn't `hurt` a bit.
+- It won't `hurt` at all.
+- Just of getting `hurt`.
+- Nothing can `hurt` you.
+- Of course i was `hurt`.
+- Oh, you've been `hurt`!
+- Please don't `hurt` me.
+- Please don't `hurt` me?
+- She's terribly `hurt` .
+- That just `hurt` a lot.
+- What if you get `hurt`?
+- When you say it `hurt`.
+- You `hurt` my feelings.
+- You `hurt` the bad men?
+- You'll only get `hurt`.
+- You made me `hurt` him!
+- How he's `hurt` you.
+- You were not `hurt`?
+- Be careful, that `hurt`.
+- Betadyne doesn't `hurt`.
+- Clarke... you're `hurt`.
+- Coulda `hurt` some kids.
+- Crosses `hurt` vampires.
+- Did you `hurt` yourself?
+- Don't `hurt` him, genie.
+- He can't `hurt` anybody.
+- He never `hurt` anybody.
+- He's going to `hurt` me!
+- I got `hurt` really bad.
+- I like to `hurt` people?
+- It can't `hurt` you now.
+- It didn't `hurt` at all.
+- It's going to `hurt` us!
+- I've been `hurt` before.
+- I want you to `hurt` me.
+- Of course i was `hurt`.
+- Oh, laz... he `hurt` me.
+- Please don't `hurt` her.
+- Please don't `hurt` him.
+- Praying wouldn't `hurt`.
+- Tell me i'll get `hurt`.
+- That `hurt` my feelings.
+- The soldiers `hurt` you?
+- They want to `hurt` you?
+- Whoo... that `hurt` you?
+- Why did they `hurt` you?
+- You `hurt` his feelings.
+- You wanted to `hurt` me.
+- You will not `hurt` him?
+- ...brian `hurt` his foot.
+- But this is gonna `hurt`.
+- Come on, it can't `hurt`.
+- Did they `hurt` you, son?
+- Doesn't your foot `hurt`?
+- I don't want them `hurt`.
+- I'm not gonna `hurt` him!
+- I'm not gonna `hurt` you.
+- I think i've been `hurt`.
+- Kkinsa, crutch is `hurt`!
+- Nix can't `hurt` you now.
+- Nobody has to get `hurt`!
+- Nobody has to get `hurt`.
+- No, she could get `hurt`.
+- Octavia: jasper's `hurt`.
+- Oh -- does it `hurt` you?
+- Oh-h-h... was she `hurt`?
+                 

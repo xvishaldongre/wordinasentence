@@ -1,0 +1,107 @@
+---
+title: "guy in a sentence | guy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guy"
+---
+- But he�s a good `guy`.
+- Even the camera `guy`.
+- Except the bomb `guy`.
+- Give the `guy` a shot.
+- Go ahead, tough `guy`.
+- `Guy` might scare you.
+- `Guy`, send them boys.
+- Hey, come here, `guy`.
+- I know just the `guy`.
+- I'll be the bad `guy`.
+- I'll brain that `guy`!
+- I mean, a great `guy`.
+- I need a new pr `guy`.
+- It means he's a `guy`.
+- It's about this `guy`.
+- It's a `guy` you know.
+- Just some young `guy`.
+- Oh, crabby `guy`, huh?
+- One `guy` chasing you.
+- So you paid the `guy`?
+- Stuck with what `guy`?
+- That `guy`'s sad, man.
+- That time stone `guy`.
+- The `guy` had no legs.
+- The `guy` in the mask?
+- The `guy`'s an animal.
+- The `guy` we're doing?
+- The wall street `guy`?
+- What about this `guy`?
+- Bankrolling this `guy`?
+- But we know this `guy`.
+- Carefully, tough `guy`.
+- Don't worry, big `guy`.
+- `Guy` answers the door.
+- `Guy`'s six weeks over.
+- He's a wonderful `guy`.
+- He's such a nice `guy`.
+- Him as the other `guy`.
+- How am i the bad `guy`?
+- I'm just another `guy`.
+- I'm not a sports `guy`.
+- I'm sick of that `guy`.
+- I net a `guy` in a bar.
+- I talked to this `guy`.
+- It's a `guy` in a cage.
+- It's just a dead `guy`.
+- I wanna see that `guy`!
+- Nice `guy` but a loser.
+- No, you're not a `guy`.
+- Oh, yeah, tough `guy`?!
+- Or do you want a `guy`?
+- Other `guy` drew first.
+- Our son's a good `guy`!
+- People love that `guy`.
+- That `guy` is a cabbie.
+- That `guy`'s a wacko...
+- That `guy` who beat me?
+- That's the "big `guy`".
+- That's the same `guy`!!
+- The big `guy` likes it.
+- The `guy` on the phone.
+- The `guy` with one eye?
+- They'll find the `guy`.
+- This `guy` bonking you?
+- This `guy` is big time.
+- This `guy` is fearless.
+- This `guy`'s a fighter.
+- Were you a disco `guy`?
+- What's with that `guy`?
+- A `guy` named scagnetti.
+- Andy, who is that `guy`?
+- Are you the `guy` on yv?
+- But he was a nice `guy`.
+- Did you see that `guy`?!
+- Good to hear you, `guy`.
+- `Guy` named wade beemer.
+- `Guy`'s going for $2500.
+- Help me with this `guy`.
+- Here you are, big `guy`.
+- He's a very scary `guy`.
+- He's just a lucky `guy`.
+- He took a `guy` hunting.
+- I can't stop this `guy`.
+- I don't blame the `guy`.
+- I got you, little `guy`.
+- I hardly knew the `guy`.
+- I mean a stand up `guy`.
+- I might love this `guy`.
+- It's not the same `guy`.
+- Look at that bald `guy`.
+- So what'd this `guy` do?
+- Stacy, he's not a `guy`.
+- That time stone `guy`...
+- The `guy` from downtown.
+- The `guy` in the turban.
+- The `guy` is actually...
+- The `guy` is super cool!
+- The `guy`'s a choir boy.
+- There's this `guy`, see.
+- Think this is our `guy`?
+                 

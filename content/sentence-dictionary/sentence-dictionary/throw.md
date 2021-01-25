@@ -1,0 +1,107 @@
+---
+title: "throw in a sentence | throw example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "throw"
+---
+- Do we `throw` it back?
+- I hadda go `throw` up.
+- I'll `throw` this out.
+- People `throw` stones.
+- `Throw` down a ladder!
+- `Throw` your fists up.
+- Don't `throw` that out.
+- Don't `throw` the flag.
+- Make me `throw` it out?
+- `Throw` him out, frank.
+- `Throw` pillows, letty.
+- `Throw` what you wanta.
+- You and morgan `throw`?
+- You'll `throw` him out.
+- Don't `throw` that away.
+- I'm going to `throw` up.
+- Lucky `throw`, fire boy.
+- `Throw` that in, too.
+- C'mon, `throw` in a buck.
+- I always `throw` that in.
+- I'll `throw` that in too.
+- Make 'em `throw` strikes.
+- `Throw` it down the hall.
+- `Throw` it in the basket.
+- `Throw` the third switch!
+- Why `throw` away a night?
+- I `throw` up all the time.
+- John, `throw` me the keys.
+- `Throw` her to the wolves.
+- `Throw` out all this junk.
+- `Throw` the second switch!
+- `Throw` your gun down now!
+- `Throw` your teeth at 'em?
+- We should `throw` a party.
+- You `throw` quite a party.
+- Go get it, `throw` it down.
+- I didn't `throw` it at her.
+- I'll `throw` you in prison.
+- If i eat it i'll `throw` up.
+- I'm gonna `throw` up, frank.
+- "mac, `throw` the grenades!"
+- Don't you `throw` up on boat?
+- I'm going to `throw` you out.
+- `Throw` my liver to the dogs!
+- Tim, go `throw` up somewhere.
+- You should `throw` them away.
+- I didn't `throw` him, he fell.
+- I used to `throw` the javelin.
+- Just `throw` me the ball, diz.
+- You want to `throw` that away?
+- Just `throw` some money around.
+- `Throw` it up or i'll kill her.
+- `Throw` your weapon, detective!
+- We have to `throw` the calf in.
+- We'll `throw` him in the trunk.
+- We'll `throw` the book at them.
+- We `throw` away the whole head.
+- Then `throw` him in the can.
+- I think i'm going to `throw` up.
+- Just `throw` me the goddamn gun.
+- Kids, `throw` her to the wolves.
+- Oh god, i'm going to `throw` up.
+- `Throw` that money in the river!
+- .. to `throw` out of the window.
+- You ever see mah boy `throw` up?
+- He's only tiny, `throw` him back.
+- How do you `throw` all that away?
+- Look... don't `throw` that on me.
+- People `throw` up in the streets.
+- `Throw` it down into the streets!
+- You sure `throw` a helluva party.
+- Pinback, `throw` me the chart log.
+- Reach for it and `throw` it to me.
+- Then i'll `throw` up a little bit.
+- "`throw` the grenades," i shouted.
+- You got a right to `throw` me out.
+- You mean, like to `throw` 'em off?
+- Ann'd `throw` me out on my keister!
+- Don't `throw` away your future bud!
+- He recognises you, `throw` him off.
+- It's enough to make you `throw` up!
+- `Throw` that torch away, young man.
+- Will you `throw` that away, please?
+- Deb, i want to `throw` you a shower.
+- Do this and you `throw` it all away.
+- I'd `throw` everything away for you.
+- I'll `throw` it in for another $125.
+- I'm going to `throw` in my trap now.
+- I was about to `throw` in the towel.
+- They should `throw` his ass in jail.
+- You `throw` down with the carpenter?
+- An even five i `throw` in the jacket.
+- Don't `throw` charley vidal up to me!
+- I used to `throw` trash for the city.
+- I've got fifty bucks to `throw` away.
+- Lets `throw` another log on the fire.
+- Wait a minute, who didn't `throw` in?
+- When i say so, `throw` down the rope.
+- You better not `throw` up on my ship.
+- You manage to `throw` me off balance.
+                 

@@ -1,0 +1,76 @@
+---
+title: "Cole in a sentence | Cole example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Cole"
+---
+- `Cole`, we're outlaws.
+- I'm going now, `cole`.
+- `Cole` lost his temper.
+- `Cole` said she was 17.
+- You see ghosts, `cole`?
+- Thomas jefferson `cole`.
+- What happened to `cole`?
+- The name is cyrus `cole`.
+- `Cole`, i'm marrying rick.
+- `Cole`, that's very wrong.
+- `Cole`, we've got to talk.
+- `Cole`, you're scaring me.
+- `Cole`, it'll be all right.
+- Hands off your hip, `cole`.
+- `Cole`, he didn't mean that.
+- Does `cole` know about this?
+- Somebody named gordon `cole`.
+- You saw that on t.v., `cole`?
+- Oh, god, `cole`, where are we?
+- You don't deserve `cole` porter.
+- Does this bother you, mr. `cole`?
+- Where should i look then, `cole`?
+- It's regional bureau chief `cole`.
+- Combs gave it to reilly and `cole`.
+- My name is thomas jefferson `cole`.
+- You were great in the play, `cole`.
+- `Cole`, this was a legal courthouse.
+- `Cole`, what the hell are you doing?
+- You could be as wonderful as `cole`.
+- Think real careful now, `cole`... no.
+- We're going to think about it, `cole`.
+- Uh, i didn't hear the... wake up, `cole`.
+- Yeh, and what does `cole` say about that?
+- So, `cole`, you been practicing your game?
+- We'll get to the spider later, mr. `cole`.
+- `Cole`, i don't want you to give up on her.
+- It is someone by the name or gordon `cole`.
+- `Cole` and munoz are going in the back door.
+- `Cole` drags debbie into one of the theaters.
+- My brother `cole` dated a european girl once.
+- `Cole`, next time i won't be late for you.
+- `Cole` younger's going to make everybody rich!
+- I don't think that's the way it works, `cole`.
+- You said we weren't "real," `cole`... no, sir!
+- You tell `cole` younger where and when to ride?
+- Tell `cole` i wanta see him when he gets in.
+- `Cole`, when was the last time you had a lobotomy?
+- I can't believe this is a coincidence, mr. `cole`.
+- `Cole`, did you or did you not record that message?
+- Councilors `cole`, kaplan, muir, and fuji are dead.
+- Shit, principal `cole`, you ain't gonna believe what else.
+- Everybody in the county knows it was you who rescued `cole`.
+- The war... ernie `cole` here just got himself elected mayor.
+- You don't want to jeopardize that reduction, do you, `cole`?
+- All this -- -- `cole` slaw, guacamole -- this is some picnic!
+- `Cole`, i'm sorry, i... you know how that makes me feel, deb?
+- Gordon `cole`... look, norma, i'm in the middle of a rehearsal.
+- I bet good housekeeping would go gaga over the `cole` slaw piece.
+- I'm upset too, zee, but jesse and `cole` know what they're doing.
+- I'm well connected, roy, `cole` introduced me to a lot of people.
+- Do you honestly think `cole`'s practice of word association works?
+- Right, agent `cole` told me he'd call and let you know to expect me.
+- Who would you call, mr. `cole`, who would straighten everything out?
+- Not `cole`'s uncle but probably the sheriff's uncle in federal prison.
+- I was always jealous web mimms got to go off and fight with you and `cole`.
+- You know, when you dumped me for that wimp, i thought, `cole`, she'll be back.
+- `Cole`, i want to get to the farm, make sure little jim and the girls are okay.
+- I work at an insurance place and at penny's, so `cole` can go to that good school.
+- God wants the two of you to be together, and sure enough... `cole`, listen to me...
+                 

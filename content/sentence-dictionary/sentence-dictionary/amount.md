@@ -1,0 +1,68 @@
+---
+title: "amount in a sentence | amount example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "amount"
+---
+- Only the `amount` matters.
+- He may `amount` to something.
+- Over that `amount` of time, mm.
+- Perhaps a small `amount` of money.
+- How did you settle on the `amount`?
+- The `amount` will be fifty million.
+- The price is now the whole `amount`.
+- Ah, had the perfect `amount` of foam.
+- Each one in the `amount` of $100,000.
+- Questions can `amount` to revelations.
+- All the same, you must name an `amount`.
+- But i expect a certain `amount` of pain.
+- The `amount` now is two hundred million.
+- And put on an obscene `amount` of weight.
+- He'll never `amount` to a thing, trust me.
+- Said i'd never `amount` to anything, but...
+- They put up the least `amount` of struggle.
+- You're never going to `amount` to anything.
+- It's a tremendous `amount` of work -- moving.
+- Would take a massive `amount` of power to run.
+- About cocaine... and the `amount` you're doing.
+- They said we wouldn't `amount` to anything.
+- There's a certain `amount` of information there.
+- I guarantee he will accept that `amount` from me.
+- Just name any reasonable `amount` and it's yours.
+- That triple the `amount` of stuff is going through.
+- Well, there's a good `amount` of agreement on that.
+- Killing jake mckenna's got to `amount` to something.
+- "no `amount` of money ever bought a second of time."
+- Pocketed a fair `amount` of change while doing it.
+- That's a fair `amount` of abscesses, isn't it, doctor?
+- All i'm asking for is a normal `amount` of perspective.
+- The `amount` is absurd -- and, at least twice too much.
+- They knew i had that money, they even knew the `amount`.
+- The nile, as we know, carries a certain `amount` of clay.
+- We are reading an enormous `amount` of neutron radiation.
+- [actual `amount` taken from craps tables before the skim.]
+- You might want to think real hard about the `amount`, too.
+- He knows it and we feel the `amount` is more than adequate.
+- I told them ordell's changed the `amount` he's bringing in.
+- How do you know they're taking the right `amount` of change?
+- Well, you know i'm not going to show him the whole `amount`.
+- That we've been working on for a stupid `amount` of time, no.
+- Because it struck me how neatly 'three' went into the `amount`.
+- I'd give twice this `amount` to take a piss without it hurting.
+- I plan to have a stroke from the `amount` of msg that's in this food.
+- Yah, restructurin' the `amount` of retards they had workin' for them.
+- You think braking and shutting down in that `amount` of time is easy?
+- Everybody, listen up: we've had a tremendous `amount` of movement lately.
+- Was just the right `amount` of time and everything will be nietzsche keen.
+- An enormous `amount` of money changed hands to get control of this project.
+- The `amount` of coke we got on you means capital punishment in some states.
+- I can't yet vouch for the `amount`, unless you want me to sit here and count.
+- So it might be nice if you conducted yourself with a certain `amount` of decency.
+- The very next day, the very next day, ed, i get blackmailed for the same `amount`.
+- Any person who spends a significant `amount` of time with me finds me... disagreeable.
+- The normal `amount` of build up in your arteries has been aggravated by over exertion.
+- Don't expect me to love you - you're talking an incredible `amount` of nonsense, susan.
+- Anyway, we can take a small `amount` of the most valuable stuff with us on the lifeboat.
+- A microscopic `amount` could kill every living thing on this ship in a matter of seconds.
+- Well, there was uh, a little dissent about the `amount` of the bonus-- why should i worry?
+                 

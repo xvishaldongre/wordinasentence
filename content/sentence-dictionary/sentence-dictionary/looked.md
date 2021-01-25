@@ -1,0 +1,107 @@
+---
+title: "looked in a sentence | looked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "looked"
+---
+- But i `looked` at him.
+- I `looked` everywhere.
+- I `looked` in his car.
+- Said i `looked` funny.
+- You `looked` like you.
+- Have you even `looked`?
+- He `looked` frightened.
+- He `looked` pretty bad.
+- It all `looked` normal.
+- `Looked` like meredith.
+- Of them `looked` fishy.
+- She `looked` good then.
+- She `looked` so pretty.
+- She `looked` very cool.
+- Ya `looked` through it?
+- You `looked` beautiful.
+- He `looked` so helpless.
+- I `looked` up your file.
+- I think i `looked` away.
+- Wait, she just `looked`.
+- He `looked` up to me.
+- But the car `looked` bad.
+- But you `looked` so cute.
+- Have you `looked` inside?
+- I've `looked` everywhere.
+- Men `looked` up to him...
+- Oh, i've `looked` around.
+- You `looked` at the dogs.
+- You `looked` better dead.
+- Have you `looked` outside?
+- He `looked` too shaken-up.
+- I `looked` in the library.
+- Jasper `looked` up to you.
+- You `looked` like you did?
+- You `looked` so, so... ah!
+- He `looked` old, didn't he?
+- I thought it `looked` cool.
+- `Looked` at with your eyes.
+- The kid `looked` desperate.
+- You `looked` great tonight.
+- He `looked`... 'booty time.'
+- I always `looked` after you.
+- I `looked` all over for you.
+- I `looked` it up on the net.
+- I `looked` up to you, uncle.
+- You `looked` so comfortable.
+- But -- the hat `looked` good.
+- He `looked` like clark gable.
+- He `looked` like such a dope.
+- I've been `looked` at before.
+- That `looked` rather painful.
+- We `looked` all over for you.
+- Everyone else `looked` stupid.
+- I must have `looked` horrible.
+- No mam -- i `looked` all over.
+- Tell me the hat `looked` good!
+- They all `looked` alike to me.
+- Has he `looked` through it yet?
+- Have you really `looked` at me?
+- He say what they `looked` like?
+- I `looked` like an italian man!
+- It `looked` like a fuckin' gun!
+- `Looked` exactly like this one.
+- `Looked` like the marlboro man.
+- `Looked` right instead of left.
+- Nathan, you've `looked` better.
+- She always `looked` out for me.
+- She `looked` at least eighteen.
+- She never even `looked` at you.
+- That they `looked` like demons.
+- The two of them `looked` fishy.
+- You know who she `looked` like?
+- You would have `looked` better.
+- You haven't `looked` for me?
+- He `looked` a little like a kid.
+- I never `looked` at it that way.
+- It `looked` like an arrow wound.
+- It `looked` very... interesting.
+- I told him you `looked` like me.
+- She hasn't `looked` at you once.
+- She `looked` at me so strangely.
+- You just `looked` as if you did.
+- You `looked` right at her, baby.
+- I don't know, i haven't `looked`.
+- If they've `looked` at the video.
+- I haven't `looked` at myself yet.
+- I mean, i've `looked` everywhere.
+- I saw the way he `looked` at you.
+- `Looked` like an interview to me.
+- `Looked` like two pieces of rope.
+- People said she `looked` like me.
+- Yeah, she said we `looked` queer.
+- You better have that `looked` at.
+- You `looked` like a wreck trevor.
+- Er, i knew you `looked` different.
+- Everything just `looked` so small.
+- He just `looked` right through me.
+- `Looked` like a giant parking lot.
+- Oh, how i `looked` for you, elena!
+- You could have `looked` in my car.
+                 

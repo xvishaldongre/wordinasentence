@@ -1,0 +1,107 @@
+---
+title: "copy in a sentence | copy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "copy"
+---
+- `Copy`, air force one.
+- Dustin, do you `copy`?
+- Dusty-bun, you `copy`?
+- I'll find some `copy`.
+- Jake, jake you `copy`?
+- Sorry - didn't `copy`.
+- The ogdenville `copy`!
+- `Copy` out from here...
+- Hey, chief, you `copy`?
+- I got the first `copy`.
+- I'll send you a `copy`.
+- Jessie, jessie, `copy`?
+- Bandit i, do you `copy`?
+- Because i kept a `copy`.
+- I have a `copy` for you.
+- Sterling, do you `copy`?
+- `Copy`, base camp to rob.
+- `Copy`, get out of there.
+- He's trying to `copy` me.
+- That was the only `copy`?
+- Utah, you `copy` bruddah?
+- You just read the `copy`.
+- Bald eagle, do you `copy`?
+- Of which we hold a `copy`.
+- Thumbelina, do you `copy`?
+- "abuse" the `copy` machine.
+- Captain miller, you `copy`?
+- Man, on radio: `copy` that.
+- `Copy`, pressing the target.
+- Harold, do you `copy`, over.
+- Harold, do you `copy`, over?
+- Maybe my best `copy` editor.
+- Mike, harold, do you `copy`?
+- Scoops troop, do you `copy`?
+- There's a `copy` on my desk.
+- You're a great `copy` editor.
+- See threepio... do you `copy`?
+- Sure, sure, i got your `copy`.
+- Base camp, do you `copy`, over.
+- Base camp, do you `copy`, over?
+- Griswold family, do you `copy`?
+- We'll have to pick up a `copy`.
+- `Copy` that, continuing forward.
+- `Copy` that, shifting frequency.
+- Oh, i couldn't `copy` your work.
+- The best ones always `copy` mac.
+- Getting me my `copy` by five.
+- First i need a `copy` of the key.
+- Harry left a `copy` at the house.
+- I got you a `copy` of the script.
+- But you `copy` my work every week.
+- Do you have a `copy` of the album.
+- Hopefully the `copy`'s not a mess.
+- Iris made me a `copy` of the tape.
+- We `copy` you loud and clear, rob.
+- Extra ketchup, large fry, i `copy`.
+- Grounders don't say, "`copy` that."
+- It's in your `copy` of hemispheres.
+- I wouldn't do it again, `copy` that.
+- Let me have the hard `copy`, please.
+- Mountain madness, how do you `copy`?
+- Please, let me have the hard `copy`.
+- He had a `copy` of my original plans.
+- I know this is the only `copy`, paul.
+- You must have gotten the last `copy`.
+- Oh, we `copy` you loud and clear, rob.
+- Scoops troop, i repeat, do you `copy`?
+- We got to make another `copy` of this.
+- But you've got to be better `copy` that.
+- It's too big a file to `copy` to a disk.
+- Anyway, i brought a `copy` of the script.
+- I'll carry a `copy` of one of your books.
+- Yeah, problem was, i had the only `copy`.
+- You can `copy` my answers if you need to.
+- Have a `copy` of that sent to me, will ya?
+- I might know where you could get a `copy`.
+- Think you're gonna find peace `copy` that.
+- If you've woken me this early, `copy` that.
+- I'll rip a `copy` for you before you leave.
+- `Copy` dragon, we are starting our bomb run.
+- I gave him a `copy` of the disc you gave me.
+- Let me get you a new `copy` of the proposal.
+- Mrs. connell found this `copy` in the house.
+- Rob to base, rob to base, how `copy`, helen?
+- This is all figured at three cents a `copy`.
+- Did you `copy` these gravestones right, adam?
+- I have a `copy` of this in my office at home.
+- Kinda like, uh, i don't know, do you `copy`?!
+- That's not what i'm... hey, chief, you `copy`?
+- There's more... a `copy` of a tape they found.
+- You were the `copy`, you were the counterfeit.
+- Well, could you just make a `copy` of the disc?
+- You don't get paid to abuse the `copy` machine.
+- I do have a `copy` of the manuscript in the car.
+- The one i left for you at the club was a `copy`.
+- I must've left the original in the `copy` machine.
+- A `copy` of this paper is before you, mr. appleton.
+- Can you make a `copy` we can show on our computers?
+- I laid some bread on him and he let me `copy` them.
+- Negative `copy` on that, pham, check your frequency.
+                 

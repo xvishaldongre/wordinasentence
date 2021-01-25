@@ -1,0 +1,65 @@
+---
+title: "solid in a sentence | solid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "solid"
+---
+- It's, uh, `solid` oak.
+- Keep a `solid` stance.
+- Shit, that is `solid`.
+- That's a `solid` name.
+- Our first `solid` lead.
+- That's `solid` protein.
+- Rose, you did me `solid`.
+- Are you `solid` with that?
+- You're `solid` on that?
+- `Solid`, `solid` novelty act.
+- The fire is `solid` as a rock.
+- These doors are `solid` steel.
+- These rooms are `solid` stone.
+- "need" is a good, `solid` word.
+- This convent is locked `solid`.
+- Eating `solid` breakfasts, utah?
+- `Solid` little jobs, aren't they?
+- `Solid` and genuine is not boring.
+- The mountains are `solid` granite.
+- But it can form `solid` metal shapes.
+- My last `solid` food was an ice cube.
+- We still have to get to `solid` rock.
+- It's really `solid` this time of year.
+- That jail looked pretty `solid` to me.
+- They say the evidence is rock `solid`.
+- We couldn't be on more `solid` ground.
+- We're in for three weeks `solid`, jack.
+- You have a `solid` future with my team.
+- Highly unstable in its non-`solid` form.
+- My scepter awaits; how `solid` it grows!
+- Sal, just this once, do me that `solid`.
+- `Solid` cores of shielded selenium .325.
+- `Solid` things, like rocks, can hurt it!
+- But they can't move through `solid` rock.
+- I have ideas now--and `solid` information.
+- How's it feel being a `solid` citizen again?
+- I've really got to -- looks very `solid`, lilly.
+- Plus the victims weren't random `solid` citizens.
+- Two hundred twenty two kilograms of `solid` gold.
+- C, if you do someone a `solid`, don't be a yutz.
+- At 4:30 today he barked for a `solid` fifteen minutes.
+- What's a good word -- a `solid` word for "need" -- shh!
+- God, mark, just do me a `solid` and stay with your wife.
+- ...and right in the middle of a chop, i...i rusted `solid`.
+- Its branches are supposed to be made of gold, `solid` gold.
+- The air's laced with type two ozone, it reads as a `solid`.
+- He's been playing with his computer all night for a `solid` week.
+- It's called "`solid`"... nice to find someone you can count on, win.
+- A `solid` b, which is laudable, given the situation and time constraints.
+- `Solid` rocket fuel at twenty-five thousand kilograms... get a tricorder.
+- Like i said, i'd still be up on that mountain, frozen `solid`, it wasn't for you.
+- She froze into the ice pack, which moved further north, where it froze in `solid`.
+- I would've liked it if you waited until the two of you were on more `solid` ground.
+- Say 6 g's, but if i get the permit it'll be as `solid` as the empire state building.
+- You do `solid` on that i might have something else for you, something real important.
+- The boards are `solid` oak planks, and the floor is reinforced by a steel grid beneath.
+- I can't... mr. mcallister, we have worked together on sga for three `solid` years and...
+- Yes -- the merger must go through -- but i am used to making my deals on a `solid` basis.
+                 

@@ -1,0 +1,96 @@
+---
+title: "research in a sentence | research example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "research"
+---
+- But not the `research`.
+- He's a `research` doctor.
+- Let's do some `research`.
+- You done your `research`.
+- `Research` can get boring.
+- It's a `research` facility.
+- I'm very good at `research`.
+- This is `research`, damn it!
+- You've done your `research`.
+- I do my `research`, luis.
+- Along with all his `research`.
+- Nothing wrong with `research`.
+- You've done you're `research`.
+- The road `research` laboratory?
+- What about `research` articles?
+- It took six months of `research`.
+- My `research` grant came through.
+- This is cia-sanctioned `research`.
+- A flaw in your `research`, my dear.
+- Mostly `research` in endocrinology.
+- There are no holes in my `research`.
+- The diedre mayfair `research` clinic.
+- I have to do some `research` tomorrow.
+- He was engaged in top secret `research`.
+- I'm a psychologist, but i do `research`.
+- My `research` was focused on an antitoxin.
+- Because i also want to see your `research`.
+- So i dug it, and i did a lot of `research`.
+- U.s. `research` laboratory/corridor - night.
+- We have to... you want some `research`, flu?
+- Well, for the sake of scientific `research`.
+- There's going to be major `research` up here.
+- This is the philosophical `research` society.
+- Your photographs and my `research`, together.
+- I mean -- he even scares the `research` teams.
+- "plum island animal disease `research` center."
+- Here's where a little `research` comes in handy.
+- I dabble in pharmaceuticals, medical `research`.
+- Oh right, right you're on that `research` grant.
+- Sounds as if someone's hijacked your `research`.
+- Your `research` laboratory is most impressive...
+- Me, i'm still a snoop, i gotta do `research`.
+- I mean, you gave your `research` to a think tank.
+- U.s. `research` laboratory/long's office - night.
+- One of the 14 `research` outposts for all mankind!
+- She wanted to see the file on sid, for `research`.
+- You've been doing some `research` in the archives.
+- Just think what my `research` can do for education.
+- There's a `research` lib- rary on the fourth floor.
+- That song did not come up in my `research`, captain.
+- All right, i'll work on it, i'll, do some `research`.
+- We're engaged in immensely important `research` here.
+- My father tried to continue his `research` on his own.
+- That was very interesting `research` george was doing!
+- Freeze's `research` says he cured a case like alfred's.
+- We're going to do us some real `research`.... holy shit!
+- Fortunately my `research` into plastics came in handy ...
+- But maybe, someday, with more `research`- can he save her?
+- Without your `research`, i could never have come this far.
+- I could be your `research` assistant, like i was in austin.
+- Victor, we can't do anything until the `research` is ready.
+- `Research` shows pre-toddlers learn best ♪ doodily ♪ - yaah!
+- U.s. army `research` laboratory/guard gate - jerome - night.
+- Jah -- you endorse his product -- he endorses your `research`.
+- U.s. `research` laboratory/storage area/freezer vault - night.
+- I'd have to `research` it, study his routines, his security....
+- We're doing all the hard `research` and designing the equipment.
+- She's been doing ground-breaking `research` on pattern nightmares.
+- The money you make for people creates science and `research` jobs.
+- I suggest you commit to the training, the nature of your `research`.
+- The morons who write the books should do a little `research` *here*.
+- We'll call your dad, he's a neurosurgeon -- what kind of `research`?
+- I think you both know my director of genetic `research`, susan storm.
+- I've done the `research`, i've contacted the vendors, the deal is set.
+- My organisation's been tracking your `research` since year two of mit.
+- I'm thinking of taking up a new job with the road `research` laboratory.
+- Eighteen minutes, and your company catches up on ten years of `research`.
+- Alex, i'm very flattered that you've gone out and done all this `research`.
+- He was a `research` engineer at the tuscarora laboratories in pennsylvania.
+- Designed for piscatorial `research` -- the spawning habits of deep sea fish.
+- Now let's see ... eton, cambridge ... `research` into robotics and plastics.
+- Suddenly you're into pure `research` and you... you're what, a parasitologist?
+- I thought he was a medical photographer, doing some sort of accident `research`.
+- I like doing `research` on certain "nocturnal activities" -- yeah -- and nothing else.
+- In all of my `research`, i've never read of this curse actually having been performed.
+- She was assisting a chemist there -- i forget his name -- doing `research`, experiments.
+- We're just going to have to spend a little time filling in the holes in your `research`.
+- We could - i've decided not to open a practice here i want to set up a `research` clinic.
+- Indicates no -- did he voice to you grievance or discontent with his `research` work here?
+                 

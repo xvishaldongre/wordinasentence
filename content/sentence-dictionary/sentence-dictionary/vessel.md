@@ -1,0 +1,55 @@
+---
+title: "vessel in a sentence | vessel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "vessel"
+---
+- What type of `vessel`?
+- It's the same `vessel`?
+- Don't harm the `vessel`!
+- Surrender your `vessel`!
+- Hey, i'm a sacred `vessel`.
+- Commander, klingon `vessel`.
+- Passenger `vessel` "chimera."
+- Your `vessel` is carbon-based.
+- Your `vessel` did destroy u.s.s.
+- The `vessel` can be anything.
+- A group of minds from a space `vessel`?
+- I'm han solo, captain of this `vessel`.
+- Klingon `vessel` now entering quadrant.
+- Not in a sealed `vessel` like an artery.
+- So you have the `vessel` and the portal.
+- For an instant... a scout class `vessel`.
+- He orders you to surrender this `vessel`.
+- Is v'ger the captain of the alien `vessel`?
+- I am tied to the passenger `vessel` chimera.
+- Tell me how best to obliterate this `vessel`?
+- A ship arrives carrying this perfect `vessel`.
+- Navigation control tried to hail the `vessel`.
+- He will be the `vessel` for the spirit of vigo.
+- This is the asgardian refugee `vessel` statesman.
+- Do you know the name of the captain of this `vessel`?
+- I'm chartering this `vessel`,engelhorn - how many days?
+- I have little interest in your quaint `vessel`, captain.
+- In what way is the life form in your `vessel` different?
+- He laughed so hard he practically burst a blood `vessel`.
+- They'll detect you upon re-entry in an emergency `vessel`!
+- What is the `vessel` name, registry, and present position?
+- I understand, but we must protect the `vessel` at all costs.
+- Isn't also true that his `vessel` went down off of nantucket?
+- There's a large `vessel` out about ten miles to the north-west.
+- The `vessel` chimera was registered to the dobbins kirk line, halifax.
+- As close as we can make out, it appears to be a corellian gypsy `vessel`...
+- No `vessel` could generate a powerfield of this magnitude... mr. decker... ?
+- Ship's log, interplanetary colonization `vessel` this is dottie, our newest.
+- Salvage fees on a `vessel` like this could come in around four million bucks.
+- A salvage claim to a `vessel`'s cargo's as valid as a claim to the `vessel` itself.
+- I say again, our records indicate the passenger `vessel` chimera was lost at sea.
+- They're positioning their military to blow the alien `vessel` right out of the sky.
+- They are positioning their military to blow the alien `vessel` right out of the sky.
+- He'd die pretty quick, either a heart storm or a ruptured blood `vessel` in the brain.
+- I'm afraid that no physical harm must come to him as long as he inhabits the `vessel`.
+- Captain, i do not believe there <u>is</u> a crew -- or that this is a `vessel` as such.
+- One day she was sighted off the coast of portugal by a merchant `vessel`, the dei gratia.
+- Alert transporter room -- enterprise to reliant: you are ordered to surrender your `vessel`.
+                 

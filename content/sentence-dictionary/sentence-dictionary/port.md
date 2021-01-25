@@ -1,0 +1,56 @@
+---
+title: "port in a sentence | port example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "port"
+---
+- Good boy, `port` hole.
+- `Port` thrusters, sir.
+- Get them back to `port`!
+- That `port` right there.
+- Turn them back to `port`.
+- `Port` battery, ready sir!
+- A girl in every `port`, huh?
+- Bring her to `port` a little.
+- Full axis rotation to `port`!
+- Don't exceed `port` speed.
+- Out the northern sally-`port`.
+- Tommy, 270 degree turn to `port`!
+- There's not a `port` for 800 miles.
+- Home `port` is newport, rhode island.
+- Minor buckling on the `port` nacelle.
+- Make your own run on the exhaust `port`.
+- It seems to be a redundant memory `port`.
+- Turn the kids day-sailing back to `port`.
+- A three-second burn to `port`, on my mark.
+- Sporadic energy readings `port` side, aft.
+- What's your business in `port` royal, 'mr.
+- We'll bear off to `port` and run down wind.
+- I can get that right here in `port` angeles.
+- An extra memory `port`, a hidden transponder.
+- I think we're going to exit the space `port`.
+- On my boat, relaxing with a glass of `port`!!
+- Then we have to find a safe `port` around here.
+- Which is the `port` and which is the starboard?
+- I don't see a control panel, or an access `port`.
+- Target borg ship alpha four, `port` side battery.
+- We are bound for `port` royal, not isla de muerta.
+- Why didn't you turn hard to `port` as the wind hit?
+- ...comes off third cleat from the stern, `port` side.
+- He'd let you off at the nearest `port`, that's for sure.
+- Well, it's not 'fat sam's', but... any `port` in a storm.
+- I'm on my way over to this officer school in `port` ranier.
+- Vernon can s'`port` 'em and buy 'em lessons on the clarinet!
+- We'll have to re-route through the `port` conduit to the apu.
+- I heard the same sound at ladysmith, at nukden, `port` arthur.
+- Well they should, filthy beggars, they go from `port` to `port`.
+- You wouldn't believe the losers we got over in `port` angeles.
+- They found him dead in his own cab down by the `port` authority.
+- We have achieved surprise, but their carriers are not in `port`.
+- Use the bathroom, because the `port`-a potties on the field are gross.
+- Aft thrusters ahead one quarter, `port` and starboard at station keeping.
+- I have come to negotiate the cessation of hostilities against `port` royal.
+- Elizabeth, we will be landing in `port` royal soon, and beginning our new lives.
+- It's possible the extra memory `port` is interfering with the engram processing.
+- I've pulled out my - uh wooden shoe and starfleet is screaming for us to return to `port`.
+                 

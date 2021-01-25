@@ -1,0 +1,107 @@
+---
+title: "during in a sentence | during example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "during"
+---
+- `During` the execution.
+- `During` the power cuts.
+- Was this `during` betty?
+- `During` the road test...
+- Especially `during` a war.
+- I'm not myself `during` it.
+- `During` a bout of pneumonia.
+- Not `during` business hours .
+- Black market `during` the war.
+- `During` the farpoint mission.
+- Everything was `during` betty.
+- If what's `during` league play?
+- It came up `during` the meeting.
+- `During` my meditation training...
+- `During` one of those two seconds.
+- I saved his life `during` the war.
+- They burned off `during` re-entry.
+- They cut out `during` the pageant.
+- People say crazy shit `during` sex.
+- You did that `during` the conclave.
+- `During` delivery her heart stopped.
+- How did she hide it `during` the day?
+- Where you gonna be `during` all this?
+- Who committed murder `during` a test.
+- `During` one of the earliest red suns.
+- `During` the afternoon i read a novel.
+- How would you know sh... `during` sex.
+- I kept them safe `during` the bombing.
+- Especially `during` the moulting season.
+- He wasn't friendly `during` the filming?
+- He fell `during` a race and got trampled.
+- One, injuries sustained `during` landing.
+- They were created `during` a dictatorship.
+- Kane: neither was injured `during` landing.
+- You know what happens `during` the red sun?
+- But imagine the things he'd say `during` sex.
+- Did you come home `during` the day last week?
+- `During` the test, i sense every part of you.
+- I forgive you for talking `during` the movie.
+- The stone markers guide you `during` the day.
+- What else do you think about `during` school?
+- `During` a campaign every speech is important.
+- `During` the dark years, you ever feel cursed?
+- Nobody stops to take a leak `during` a murder.
+- `During` that whole scene i just drank in bars.
+- For letting me visit you `during` office hours.
+- I believe you won decorations `during` the war.
+- I think about... fucking a lot `during` school.
+- Kept the human race alive `during` the ice age.
+- My mother's family went there `during` the war.
+- Unless he makes a move `during` seventh period.
+- You and charlie lifting skirts `during` recess.
+- You'll be linked `during` the entire operation.
+- He's caught in leningrad `during` the siege.
+- Call me `during` the week if you get the chance.
+- Her mind latched onto it `during` the procedure.
+- ... in case i get frightened `during` the night?
+- It looks rundown, but it's safe `during` the day.
+- My biggest turn-off is cell phones `during` sex."
+- Buried the two kids who died `during` the landing.
+- I miss you when i close my eyes `during` a sneeze.
+- Probably the lines were hit `during` the fighting.
+- Something `during` the fight triggered the memory.
+- C'mon, ray, everyone hates the army `during` basic.
+- `During` foreplay, i sing the theme song to myself.
+- He was exposed to the seaweed `during` the red sun.
+- I'll get you up front with him `during` the flight.
+- I suggest you call `during` banking hours tomorrow.
+- Subject: marachuk, john l. died `during` procedure.
+- That's where it was `during` denning's last report.
+- 1... kept the human race alive `during` the ice age.
+- The chalice used by christ `during` the last supper.
+- `During` wartime the national suicide rate goes down.
+- In fact, `during` our christmas count, we recorded...
+- They were to come and check on it `during` the night.
+- It must have been jarred loose `during` the whirlpool.
+- After what the monkey did `during` that birthday party.
+- `During` the trial, you did all those stories about me.
+- Maybe daniel and kaylee prime ♪ `during` march madness?
+- Did any difficulties of any kind arise `during` the trip?
+- I was privileged to enjoy his company `during` that time.
+- "subject marachek, john j., died `during` the procedure."
+- `During` this whole mess, i've tried to be supportive.
+- He was the orderly, `during` dr. lechter's stay in prison.
+- I'd have killed for this `during` my time on the mountain.
+- None of the other bedrooms are heated `during` the winter.
+- No wonder they want me to stand by `during` the operation.
+- That's fine `during` the day, but at night he's all alone.
+- We could have torn ourselves apart `during` the dark year.
+- I also see that you were posted stateside `during` the war.
+- I didn't want to bother you `during` your racquetball game.
+- I'm afraid to even go out `during` down-time... oh, tron...
+- [5] `during` this george has been looking around - he rises.
+- `During` the day, visitors prefer to be outside, au naturel.
+- Eddie, you didn't see how he acted `during` the job, we did.
+- I remember those things you'd write `during` honors english.
+- Copper thinks they swallowed pieces of it `during` the fight.
+- It's daylight, `during` business hours, dealing with a crowd.
+- `During` the day you can chew the band with china if you want.
+- `During` the middle ages people were executed at every corner.
+                 

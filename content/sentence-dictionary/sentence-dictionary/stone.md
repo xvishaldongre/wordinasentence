@@ -1,0 +1,107 @@
+---
+title: "stone in a sentence | stone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stone"
+---
+- `Stone`, paint, words.
+- That time `stone` guy.
+- Not an equinox `stone`.
+- The `stone`'s this way.
+- To nourish the `stone`.
+- A pin, neighbor `stone`!
+- He hates oliver `stone`.
+- I'm not made of `stone`.
+- Is it the `stone` again?
+- It's the `stone`, emori!
+- `Stone` room's this way.
+- That's the `stone` room.
+- That time `stone` guy...
+- The last sankara `stone`.
+- The `stone` is on vormir.
+- The `stone`'s down there.
+- He turned off the `stone`.
+- I'm strictly into `stone`.
+- It's like the `stone` age.
+- It would move a `stone`. "
+- Oh come, neighbor `stone`.
+- The `stone` is down there.
+- ...this man `stone` crazy.
+- Two bugs with one `stone`.
+- Where is the soul `stone`?
+- You're wrong, mr. `stone`.
+- He's stubborn as a `stone`.
+- I need to find the `stone`.
+- `Stone` is their spokesman.
+- A man's not made of `stone`.
+- To protect the time `stone`.
+- Was the `stone` very smooth?
+- We're almost to the `stone`.
+- Where's that `stone`, raven?
+- But my name's daniel `stone`.
+- There was a `stone` on earth.
+- We couldn't find the `stone`.
+- One `stone` isn't six, nebula.
+- Or am i `stone`-cold tripping?
+- Thanos finds the soul `stone`.
+- Thanos will have that `stone`.
+- These rooms are solid `stone`.
+- The time `stone`'s been taken.
+- Use the philosopher's `stone`!
+- We know how the `stone` works.
+- Get that `stone` and come back.
+- He's found an infinity `stone`.
+- I never found the soul `stone`.
+- Under the `stone` in the floor.
+- We call it the anomaly `stone`.
+- And i will give you the `stone`.
+- But it's not written in `stone`.
+- He doesn't have the `stone` yet.
+- Just a minute, neighbor `stone`.
+- No `stone` may be left unturned.
+- Sold to mr. `stone`, second row.
+- Take that `stone` and come back.
+- The `stone` demands a sacrifice.
+- They're doing the `stone` today.
+- We've got to get to the `stone`.
+- As barren of love as `stone`.
+- Charge the `stone` with ener- gy.
+- I have never seen such a `stone`.
+- I wrote the `stone` codes inside.
+- Raven, murphy, find that `stone`!
+- The fact is we have this `stone`.
+- We have to get the `stone` first.
+- No, i want to protect the `stone`.
+- Ronan's located the power `stone`.
+- `Stone`'s a disinformation flunky.
+- The `stone`'s 200 meters this way.
+- Transcendence through the `stone`?
+- With it, the `stone` can find you.
+- Give up the `stone`, and she lives.
+- He came back with the soul `stone`.
+- He said the `stone` delivered them.
+- Someone called it a `stone` before.
+- That won't help the `stone` bruise.
+- The `stone` had better be up there.
+- Waiting for us in the `stone` room.
+- We need to destroy the `stone` now.
+- You can't get blood from a `stone`.
+- Buried under a `stone` in the floor.
+- He turned that monster into `stone`!
+- I'll send it to oliver `stone` then.
+- It was on the wall near the `stone`.
+- The aether, first, is not a `stone`.
+- There's one very good `stone` in it.
+- Two stones uptown, one `stone` down.
+- And to all who seek the soul `stone`.
+- Attorney of record for jabez `stone`.
+- Oh, now you want to find the `stone`?
+- Someone's called it a `stone` before.
+- Two stones uptown, one `stone`, down.
+- You've got a smart man, mrs. `stone`.
+- Jarvis, ultron, tony, me, the `stone`.
+- .... miser stevens' soul, mr. `stone`.
+- The aether, firstly, is not a `stone`.
+- These are `stone` spheres i ever knew.
+- What the `stone` was warning me about.
+                 

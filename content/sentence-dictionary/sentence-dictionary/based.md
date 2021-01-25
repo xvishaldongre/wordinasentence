@@ -1,0 +1,66 @@
+---
+title: "based in a sentence | based example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "based"
+---
+- She's `based` on sally.
+- `Based` on a true story.
+- `Based` on my stupid smile.
+- It's a silicon-`based` device.
+- Your vessel is carbon-`based`.
+- All this work is `based` on it.
+- `Based` on my pornography profile?
+- "land-`based` maritime specialties."
+- The character that's `based` on sally.
+- It's obviously `based` on elliot and me.
+- ♪ it was `based` on 5-year calculations.
+- You all set up theories `based` on what?
+- Give me risk analysis `based` on this data.
+- Once this was a relationship `based` on love.
+- We share `based` on need, just like back home.
+- All of my books are `based` on fact, or legend.
+- ...or films you must see or... `based` on what?
+- Maybe their whole technology is `based` on that.
+- The character that's `based` on sally in the book.
+- `Based` in london, but with international concerns.
+- Save the universe is `based` on back to the future?
+- You selected me `based` on my search engine inputs.
+- `Based`, i am told, on your recommendation, admiral.
+- Her mood will be `based` on the signals we are giving.
+- It's `based` on the life of doctor martin luther king.
+- Maybe it's `based` on something as simple as instinct.
+- I came to this country to escape food-`based` violence.
+- That's where all the big publishing houses are `based`.
+- `Based` on the depth of that print, pressure releases...
+- I dunno, probably right up there, `based` on her resume.
+- They're made by americans, `based` on a japanese recipe.
+- Kind of `based` on personal experience, but only loosely.
+- That's not a foundation on which friendships are `based`.
+- `Based` on these results, if we get this photo right, yeah.
+- `Based` on what we know of him, that would seem inevitable.
+- It's a combined data stream `based` on all three previsions.
+- Keep absolutely still - - it's vision's `based` on movement!
+- I'm afraid he has expectations `based` on his own experiences.
+- So this is a play `based` on a youtube octavia called you hope.
+- All my people are businessmen; their loyalty is `based` on that.
+- I wanted... about the importance of technology-`based` learning?
+- And a first-time director, but show business is `based` on risks.
+- Then you're saying there's no negligence, `based` on my question?
+- That's my own theory `based` on a mexican food called the burrito.
+- Please don't be so quick to judge us `based` only on our whiteness.
+- Yes, i believe they are `based` mainly on navajo and apache motifs.
+- And you cross-referenced that analysis with a points-`based` system?
+- Cataloging them `based` on the frequency of the sound, will, you here?
+- It's love parade -- and what do you mean '`based` on what you've read'?
+- You know, it's probably electrical, `based` on the speed of the reaction.
+- The federal bureau of investigation is not `based` on personal preference.
+- I want this to be a marriage `based` on love, trust and community property.
+- I'd come to the realization that everything i'd `based` my life on was false.
+- What you're experiencing is a free-form delusion `based` on our memory tapes.
+- `Based` on science, technology, you crossed the border into trikru land, whoa!
+- They are projections materializing from our minds, `based` on a given individual.
+- If we could set up some kind of foundation... `based` on that mutual respect...
+- Will request one at twenty-five thousand `based` on your prior record and risk of flight.
+- Towler and marx `based` their treatment of deborah ann kaye on this chart that you signed .
+                 

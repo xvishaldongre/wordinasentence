@@ -1,0 +1,107 @@
+---
+title: "legs in a sentence | legs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "legs"
+---
+- Deploy landing `legs`.
+- I'm sorry, and `legs`.
+- `Legs`, butt and hair.
+- One had better `legs`.
+- The guy had no `legs`.
+- All except my `legs`...
+- Don't want weak `legs`.
+- Feel her strong `legs`.
+- I can't feel my `legs`.
+- Put your `legs` inside.
+- You have killer `legs`.
+- Landing `legs` deployed.
+- Maisy blue `legs` place?
+- ..you won't have `legs`.
+- I can’t feel my `legs`.
+- Shave our `legs`, stupid.
+- The `legs` must be goin'.
+- By taking away our `legs`.
+- Her `legs` are in the way.
+- `Legs` giving you trouble?
+- Turns the `legs` to jelly.
+- A doll's `legs` catch fire.
+- Are your `legs` working...?
+- But it only has six `legs`.
+- God, you have great `legs`.
+- Ok, put your `legs` inside.
+- Jesus, my `legs` are asleep.
+- Your `legs` don't look broke.
+- You're playing with my `legs`.
+- But it's not just those `legs`.
+- I can't feel my `legs` no more.
+- Need to get your `legs` strong.
+- Your `legs` are getting better.
+- Do me good to stretch my `legs`.
+- He needs his `legs` for dancing.
+- I can feel the heat on my `legs`.
+- Lock your `legs` around my waist.
+- Nelson eddy, then `legs` diamond.
+- Something wrong with your `legs`?
+- You never could feel your `legs`.
+- In zero g i didn't need my `legs`.
+- Until i realized i have no `legs`.
+- Every man betake him to his `legs`.
+- Life support is on its last `legs`.
+- Take to your `legs`, low irish dog.
+- I'm gonna break your fucking `legs`.
+- The hydrofarm is on its last `legs`.
+- You built her a pair of fast `legs`.
+- Can you use your `legs` and stand up?
+- I've taped my bone between my `legs`.
+- Use the `legs` and drive through 'im.
+- But you don't need your `legs` to fly.
+- Your `legs` back when you rotate home.
+- If a soldier loses his `legs` in a war.
+- I like how you don't shave your `legs`.
+- We'll come up right between his `legs`.
+- They found prints at blue `legs`' place.
+- We are talking about evil on two `legs`.
+- I'm just getting my sea `legs`, you know.
+- Maybe i'll pull your arms and `legs` off.
+- But wasn't on her last `legs` or anythin'.
+- And if you can, put your `legs` even wider.
+- Two `legs`, nice rack... what do you think?
+- The first thing they'd do is break my `legs`.
+- Always lift with your `legs`... did i stutter?
+- By the way, you're gonna get your `legs` back.
+- I don't care if both of my `legs` was cut off!
+- I mean, have you ever seen a gymnast's `legs`?
+- I make good by tomorrow or get my `legs` broken?
+- I told you... you don't need your `legs` to fly.
+- That is vomit accidentally born with two `legs`.
+- Why would anyone wanna take your arm and `legs`?
+- The two of 'em used my `legs` for a wishbone.
+- ♪ drink until my `legs` are jell-o ♪ - different.
+- Her `legs` pulled apart in a kind of sexual pose.
+- Hips are simply a function of `legs`, aren't they?
+- It's more like the `legs` or the butt or the hair.
+- That means they're not gonna stop until my `legs`!
+- Alex brings his stick down smartly on dim's `legs`.
+- I'm sure your `legs` are quite as handsome as mine.
+- Yeah, between a bookie and a pair of broken `legs`.
+- But i think weak `legs` ain't bad sometimes, y'know.
+- If i lose my car it's like having my `legs` out off.
+- Very well; but a man who yields takes to his `legs`.
+- Wait a sec - what the hell is that between her `legs`?
+- They...they snapped my `legs` to fit... fit me in here.
+- I can't feel my `legs`... no, no, you're...lookin' good.
+- Look, that's the vertical torso, three `legs`, two arms.
+- On his bed, doubled over himself with his `legs` on top.
+- They tore my `legs` off, and they threw them over there!
+- You know, to make the `legs` move -- what octopus motor?
+- I'm going to stretch my `legs` i was all out of dynamite!
+- I'd swear my `legs` had been cut off or... wait a second...
+- They chopped off his `legs`, and they chopped off his toes.
+- Buddy, she was sick in her mind and between her `legs`, too.
+- For one thing, your `legs` are shorter than everyone else's.
+- I'm not shaving my `legs` or pits this summer, i've decided.
+- Your `legs` just sing grand opera when you move, don't they?
+- But what i'm most proud of is the work i did on those `legs`.
+- A drug dealer shot to death and a woman with her `legs` broken.
+                 

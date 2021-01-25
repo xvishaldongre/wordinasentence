@@ -1,0 +1,107 @@
+---
+title: "pieces in a sentence | pieces example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pieces"
+---
+- I just go to `pieces`.
+- You're shot to `pieces`!
+- Short `pieces`, you know.
+- Are just `pieces` of metal.
+- Cut them folks to `pieces`.
+- Let's hack her to `pieces`.
+- `Pieces` floating in space.
+- So i just went to `pieces`.
+- You boys carryin' `pieces`?
+- I guess... reese's `pieces`.
+- One of the `pieces` was him.
+- We can put the `pieces` back.
+- He was cut into `pieces`, too.
+- They were performance `pieces`.
+- They could hack him to `pieces`?
+- Damn thing's falling to `pieces`.
+- Go start picking up the `pieces`.
+- I'll blow this board to `pieces`.
+- Looked like two `pieces` of rope.
+- Rattle- trap `pieces` of garbage.
+- All we do is pick up the `pieces`.
+- Why hand it out to us in `pieces`?
+- World governments are in `pieces`.
+- But not all of the `pieces` look old.
+- Let them tear each other to `pieces`.
+- Set up some `pieces` on the big board?
+- They had all the `pieces` they needed.
+- You're gonna be two `pieces` of toast.
+- But it says that all the `pieces` fit in.
+- I got a best friend in there in `pieces`.
+- It might save some of the `pieces`, jeff.
+- My heart would break into 1,000 `pieces`.
+- Try not to get your ass shot to `pieces`.
+- You can't tell me which `pieces` to move.
+- And then bust those `pieces` up, and then .
+- The vibrations could shake her to `pieces`.
+- As i let her rip lestat's heart to `pieces`!
+- Do you want to see me taken away in `pieces`?
+- He smashes the mirrors and uses the `pieces`.
+- We have only bits and `pieces` of information.
+- But it says that all the `pieces` fit together.
+- First you strategically position your `pieces`.
+- I don't really know much but bits and `pieces`.
+- It would be in seven `pieces`, were you a jedi.
+- Looks like you're the one might go to `pieces`.
+- But you said the bodies were ripped to `pieces`?
+- I don't really know much but bits and `pieces` .
+- You can die slowly cut into a thousand `pieces`.
+- I don't have all the `pieces` yet, but i'm close.
+- Seems like his brain just fell apart in `pieces`.
+- I wonder how they put all those `pieces` together?
+- I swallowed that company and shit out the `pieces`.
+- You already almost got your head blown to `pieces`.
+- You're sitting here trying to pick up the `pieces`.
+- I'll have the 4 `pieces` you asked for any time now.
+- `Pieces` of the puzzle is slowly being put together.
+- You can make fifty thousand on these `pieces` alone!
+- A fine thing - to go to `pieces` at a time like this!
+- I'm gonna bust you into a million `pieces` and then .
+- Sometimes the `pieces` are worth more than the whole.
+- A lot of shrapnel came out - i saved you the `pieces`.
+- Those little `pieces` of paper with your picture on it?
+- Why, you - you� look here - he may dash us to `pieces`!
+- Call me, if you'd like to see some of my other `pieces`.
+- By the time i arrived, both little boys were in `pieces`.
+- Now, keep it up, and i'm gonna smash that thing to `pieces`.
+- A very fine collection of very old `pieces`, don't you think?
+- Copper thinks they swallowed `pieces` of it during the fight.
+- The ship's in `pieces` and we've less than a skeleton aboard.
+- They were symbols -- carved out of stone or `pieces` of wood.
+- Tore him up good and spat out little, refined `pieces` of him.
+- It was one of the most beautiful `pieces` of music i ever heard.
+- Some of the `pieces` in your collection here are very impressive.
+- When we will all scratch each other to `pieces` just to be heard?
+- I've got a couple of spare `pieces` stashed under the floorboards.
+- Couple of cold `pieces` that had been hanging around a year or two.
+- The fishing club that old lady mentioned, the `pieces` off the flag.
+- We might do business on a board, and i'll carve the `pieces` myself.
+- It's always bad and it's never anything but bits and `pieces` anyway!
+- He might of hacked his family to `pieces` with a hatchet or somethin'.
+- I'm gonna fuckin' kill every last one of you godless `pieces` of shit!
+- It was my dear mother-in-law's, part of a dinner set of fifty `pieces`.
+- President kennedy threatened to smash the cia into a thousand `pieces`.
+- Got some artifacts, couple `pieces` one of your men out at the base made.
+- But, why would there be so many `pieces` in his stomach if it were nothing?
+- Someone had cut them and chipped off rotten `pieces` far back in his mouth.
+- It wouldn't be a bad way to get you back into writing feature `pieces` again.
+- Glass found in ignition room is in small, thin `pieces`, indicating explosion.
+- My wife, madeleine, has several `pieces` of jewelry that belonged to carlotta.
+- No... yeah, they ripped him to `pieces` while his family watched from the car.
+- Did you see that about the guy who chopped up his wife into a million `pieces`?
+- So i place the `pieces` of the puzzle together in a way that makes sense to me.
+- But without you and me, sis the world'd fall to `pieces` vena cava who's the raver?
+- Once a few more `pieces` fall into place, i'll drive to you and give you an update.
+- I'll have my cloak back in a matter of minutes and your poor ship is shot to `pieces`.
+- Why, if our scarecrow back in kansas could do that, the crows'd be scared to `pieces`!
+- With that kind of attention, i could roll a 73. it gets broke into a hundred `pieces`.
+- You mean i'm going to get diced into cubes and sorted up there in a thousand `pieces`?
+- Well we have got about a hundred thousand pretty `pieces` of paper with the queen on it.
+- Don't grab a measly chance like this to save a few `pieces`--other men could--but not you.
+                 

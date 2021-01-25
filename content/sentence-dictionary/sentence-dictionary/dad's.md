@@ -1,0 +1,95 @@
+---
+title: "dad's in a sentence | dad's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dad's"
+---
+- `dad's` home, already?
+- `dad's` is over there.
+- My `dad's` down there!
+- `dad's` knee was going.
+- Maybe my `dad's` right.
+- My `dad's` still there.
+- Yeah, my `dad's` great.
+- You sold `dad's` ranch!
+- Gee, your `dad's` smart.
+- Her `dad's` out of town.
+- My `dad's` a lobsterman.
+- My `dad's` a watchmaker.
+- It's `dad's` grail diary.
+- My `dad's` an optometrist.
+- My `dad's` told me before.
+- Hey, that's `dad's` throne!
+- It was your `dad's` recipe.
+- `dad's` all the time moving.
+- `dad's` dead because of you.
+- Uh...my `dad's` the manager.
+- You faked my `dad's` murder.
+- Behind some of `dad's` stuff.
+- My `dad's` a grade-a asshole.
+- My `dad's` father was korean.
+- My `dad's` in the other room.
+- Your `dad's` looking for you!
+- `dad's` crazy coaching worked.
+- `dad's` got jungle fever, mom.
+- Johnny, my `dad's` home today.
+- My `dad's` got season tickets!
+- `dad's` fixin' something again.
+- `dad's` training opened wounds.
+- My `dad's` gonna love that one.
+- To move out of mom and `dad's`?
+- When'll `dad's` skiff be ready?
+- You like your `dad's` paintings?
+- Ain't nobody stole `dad's` skiff.
+- My `dad's` been engaged 20 times.
+- They say your `dad's` 'round town.
+- Well, `dad's` snapped up the idea.
+- From my `dad's` side of the family.
+- And `dad's` bathing suit drawstring.
+- He's an old colleague of my `dad's`.
+- My `dad's` company is relocating him.
+- My leg is touching milhouse's `dad's`.
+- No, i mean, my `dad's`... - an asshole.
+- She works part-time at my `dad's` store.
+- Well, i don't care if `dad's` your hero.
+- So, like, your `dad's` a big deal, right?
+- Your `dad's` really gonna build his house?
+- Your `dad's`, uh, gonna stay here tonight.
+- My `dad's` gonna flip for this scrap metal.
+- My `dad's` in hell, and he's falling apart.
+- It was on my `dad's` list of "things to do."
+- Her `dad's` genetic condition finally got her.
+- What do you think my `dad's` gonna do for you?
+- Fifteen months of my `dad's` life, right there.
+- But i couldn't take the look on my `dad's` face.
+- [pounding] mom, what was `dad's` favorite color?
+- I figured you'd want to go through `dad's` stuff.
+- You could come on by my `dad's` place, drop 'em off.
+- You're `dad's` a doctor, too -- your `dad's` a doctor.
+- He's an old colleague of my `dad's`, from s.h.i.e.l.d.
+- My `dad's` got this thing about drinking in the house.
+- Maybe your `dad's` training wasn't worthless after all.
+- But you wield it like a kid who's found his `dad's` gun.
+- Yeah, hey how far do you think we are from your `dad's`?
+- I feel like i need you `dad's` permission just to kiss you.
+- My `dad's` the mayor.... you're betting what you already got.
+- I got way too many of them... you're selling `dad's` boat?
+- Unlike most of the others, you question mom and `dad's` rules.
+- Your `dad's` one of the only nice people in this fucking town.
+- My `dad's` the exclusive ketchup distributor well done, cillian.
+- Yeah... hey, i saw you at your `dad's` dealership the other day.
+- You can't hate yourself just because your `dad's` a twisted freak.
+- It's my `dad's` he hides it under some old tv guides in his closet.
+- Well, where are you -- no, mom, i've turned it into `dad's` office.
+- Now, her `dad's` real wealthy - what kind of trouble are you in, jerry?
+- Okay... you have to come to my `dad's` lobster pound and see one, then.
+- What do you think, marge... a little cinquecento with my `dad's` money?
+- When `dad's` popping aspiring like popcorn, it's avoid-all-contact-day.
+- `dad's` an acquired taste, lis, no, but it's a liquid, classic portland.
+- You know, my `dad's` done some work for kaminski... yeah, well -- oh yeah!
+- `dad's` like doing his up with people routine, mom hasn't been saying much.
+- My `dad's` gonna let me use the boat and my charm is gonna let me use my rod.
+- Oh these moments do try me... -- what he would do to your `dad's` department?
+- `dad's` fishing trip, grandma's knee operation, grandma's birthday... ah, beautiful.
+- I keep a couple of my `dad's` porno books hidden in my desk for emergency reference.
+                 

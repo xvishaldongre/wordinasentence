@@ -1,0 +1,107 @@
+---
+title: "wear in a sentence | wear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wear"
+---
+- He has to `wear` them.
+- `Wear` my own clothes.
+- You can't `wear` that!
+- You have to `wear` it.
+- But you `wear` it well.
+- I'll `wear` it for you.
+- I won't even `wear` it.
+- Does she `wear` glasses?
+- I don't `wear` a toupee.
+- I still `wear` the belt.
+- So what should i `wear`?
+- What is that you `wear`?
+- What size do you `wear`?
+- They `wear` masks, eddie.
+- Which one shall i `wear`?
+- Why do you `wear` a mask?
+- You don't `wear` garters!
+- But don't `wear` my stuff.
+- He didn't `wear` bifocals.
+- I won't `wear` your stuff.
+- `Wear` something fabulous.
+- What am i going to `wear`?
+- You `wear` them now... no?
+- Don't `wear` a mask, eddie.
+- Don't `wear` the beige one.
+- I `wear` a size eight, too.
+- Or else you'll `wear` pink.
+- Why do you `wear` the mask?
+- Do we get to `wear` a crown?
+- If the shoe fits, `wear` it.
+- That's why they `wear` them.
+- `Wear` it until you love it.
+- `Wear` something intriguing.
+- Why do you `wear` that coat?
+- You really `wear` that suit.
+- Ah, `wear` whatever you want.
+- I must `wear` it bravely.
+- I can't `wear` these clothes!
+- I'd like something to `wear`.
+- I shall `wear` it in my hair!
+- I `wear` his body as my host.
+- That's why i `wear` briefs...
+- What size shoe do you `wear`?
+- You ever `wear` one of these?
+- I want mine to `wear` glasses.
+- I `wear` it because i want to.
+- Would you `wear` those things?
+- You think i just `wear` this?!
+- But i'm sorry, i `wear` size 8.
+- Don't `wear` that outfit again.
+- Do you have to `wear` that hat?
+- He used to `wear` an eye-patch.
+- I mean, we should `wear` suits.
+- I think you should `wear` that.
+- I `wear` this ] all year round.
+- I will not `wear` them tonight.
+- We all deserve to `wear` white.
+- `Wear` a coat of domestic mink.
+- `Wear` the belly before you go.
+- And have him watch me `wear` it.
+- You `wear` all of this pads.
+- But i will never `wear` garters!
+- Does he `wear` pants this color?
+- Do they have to `wear` uniforms?
+- I only `wear` ties for funerals.
+- Rule one: always `wear` make-up.
+- Yes, you'll `wear` pink or else.
+- I can't `wear` anything under it.
+- I can't `wear` a uniform anymore.
+- I like to `wear` women's clothes.
+- I told you, i can't `wear` those.
+- Never got to `wear` one of those.
+- Then i can `wear` men's clothing.
+- They all `wear` the same uniform.
+- You can `wear` them in your hair.
+- You `wear` them of course, silly.
+- A dress you `wear` in the evening.
+- `Wear` a crown and everything.
+- At the holiest time of the `wear`.
+- I never saw you `wear` one before.
+- I `wear` it to keep the flies off.
+- Mom never wears anything i `wear`.
+- Now i see why you all `wear` guns.
+- That's a wig you `wear`, isn't it?
+- Wait till the mai-tais `wear` off.
+- What do you `wear` in the morning?
+- Why do you always `wear` that hat?
+- I don't get guys who `wear` boxers.
+- 'make sure you `wear` the uniform'?
+- Oh, i won't have to `wear` pajamas?
+- Well, then, `wear` it on your head.
+- I can `wear` it when we go home.
+- He hates to have to `wear` uniforms.
+- He wanted me to `wear` them tonight.
+- I actually have to `wear` a bra now.
+- I used to `wear` this to the garden.
+- Look at what they gave me to `wear`.
+- This is what i'd `wear` on our date.
+- We can't `wear` these suits forever.
+- You ain't man enough to `wear` them!
+                 

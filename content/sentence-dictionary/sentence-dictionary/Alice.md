@@ -1,0 +1,57 @@
+---
+title: "Alice in a sentence | Alice example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Alice"
+---
+- `Alice`, it's no dream.
+- It's `alice`, ain't it?
+- `Alice` tried to warn us.
+- `Alice` got married again.
+- `Alice`, i... you got him.
+- I'm sure i don't, `alice`.
+- You do good work, `alice`.
+- `Alice` said it would help.
+- Her name's `alice` for sure.
+- I was thinking `alice` cooper.
+- I... daddy... daddy... `alice`!
+- I wish you'd tell `alice` that.
+- Is this "`alice` in wonderland"?
+- `Alice`, you think you can leave?
+- 'cause i "owed so much" to `alice`.
+- I used to really love that `alice`.
+- You think skipper and `alice` do it?
+- `Alice` would be absolutely tear-ass.
+- `Alice`, this is jack, marcie and ned.
+- Earth to `alice`... t-t-thanks `alice`...
+- It can be dangerous... my god, `alice`.
+- `Alice` an' silky gave them... free ones.
+- I never did get any sense out of `alice`.
+- Not `alice`-sit-by-the-fires like yourself.
+- Just ring linen service and ask for `alice`.
+- They seemed sure it was either `alice` or lois.
+- Why do you think i made that statue of `alice`?!
+- Now this strawberry `alice` person, tell me again.
+- `Alice`, see if bill has cleaned out the boathouse.
+- He told me about a job... how'd it happen, `alice`?
+- `Alice` and silky, they'll give you one... if you want.
+- `Alice` and i depend on you and respect you immensely...
+- Hell, `alice`, they ain't loafers nor tramps nor bad men.
+- `Alice`... hey joey, how `bout a cocoa, double whip cream.
+- Alright, `alice`... you'll be contacted by inspector rock.
+- I can't explain this, `alice`, but i'm not so sure it did.
+- Just ask for `alice` and say you want a game of billiards.
+- `Alice` lascelles: there's an amazing alchemy that happens.
+- He's taking `alice` with him -- pretty good dive yvonne.
+- Arnie, i feel like `alice` stepping through the looking glass.
+- I bet `alice` threw out all my crap after i'd been gone a week.
+- But what they done, they... whippin' ain't a little thing, `alice`.
+- Lewis carroll, who wrote `alice` in wonderland, plays shuffleboard.
+- It's not what happens here `alice`, it's what they take away with them.
+- But in my heart i know that `alice`..." you left my party to send e-mail?
+- In your present condition, `alice`, we're worried about your ability -- and ours.
+- Walk in there and find whatever there is to find--before `alice` can cover it up.
+- He's got two chices.either it's the bowling alley from hell or `alice` in murderland.
+- You may not care a lot about this place, `alice`, but i mean to make it my whole life.
+- I can hear the `alice`-sit-by- the-fires now: "we discovered it in the amazon rain forest.
+                 

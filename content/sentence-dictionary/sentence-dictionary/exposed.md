@@ -1,0 +1,52 @@
+---
+title: "exposed in a sentence | exposed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exposed"
+---
+- Have been `exposed` to.
+- I want to be `exposed`.
+- Tristan's been `exposed`.
+- Look, i loved "`exposed`!"
+- But this should be `exposed`.
+- Edward, his jugular's `exposed`.
+- See all the mysteries `exposed`?
+- He was afraid of being `exposed`.
+- Together we've `exposed` the truth.
+- If they're `exposed`, they'll recover.
+- I don't want the archdiocese `exposed`.
+- Now he's gone, i feel totally `exposed`.
+- They `exposed` her to radiation on purpose.
+- Has it been `exposed` to any sun before now?
+- And `exposed` for what they did to their own, oh!
+- I'm out of the "`exposed`" business, remember?
+- But she's been `exposed` to the underside of life.
+- Maybe we've already been `exposed` i'll cooperate.
+- He was `exposed` to the seaweed during the red sun.
+- Big deal, i was `exposed` as a liar on the internet.
+- Home of the `exposed` brick wall and the houseplant.
+- She means they `exposed` her to radiation on purpose.
+- But marylin, without this, you're completely `exposed`.
+- Perhaps barbara was `exposed` to some dangerous toxins.
+- So now that your soft li'l underbelly is all `exposed`.
+- [shouting] the problem was solved, sorry, "`exposed`."
+- Without it, that party is `exposed` -- a sitting duck.
+- She was `exposed` to, but a week ago... what's the matter?
+- So he hacked the tips off and sharpened the `exposed` bones.
+- Well, no one could accuse you of being over-`exposed`, simone.
+- I'm about to launch a brand new magazine called "`exposed`!"
+- I know it's embarrassing... but who were you `exposed` to, dear?
+- He diverted attention, `exposed` ryuji's trap.. we'll let you go.
+- It says here you `exposed` yourself to a group of freshmen girls.
+- Bulletholes in `exposed` stomach badly concealed with body make-up.
+- Sammy's wife came to me and - you `exposed` him for what he was: a fraud.
+- Have you been `exposed` to a loud noise recently, or did you have a virus?
+- She hasn't been as...`exposed` to...to things...as some of the rest of us.
+- Always leaving yourself `exposed`, that he's a spy for the mind flayer now.
+- Where george washington's horse `exposed` benedict arnold's horse that's right.
+- But if it was carrying something...there's a chance you could have been `exposed`.
+- An area that has been `exposed` to dozens of nuclear tests over the last thirty years.
+- 'these are really just children,' he said, 'but they've been `exposed` to a lot already.
+- Go to war if you want to, ontari'll be `exposed` as a fraud, we have to start evacuating.
+- Leaving only her hand `exposed` to the temporal flare, i started thinking about dirt bikes.
+                 

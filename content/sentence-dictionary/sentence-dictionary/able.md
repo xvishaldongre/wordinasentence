@@ -1,0 +1,107 @@
+---
+title: "able in a sentence | able example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "able"
+---
+- He won't be `able` to.
+- You weren't `able` to.
+- You oughta be `able` to.
+- Being `able` to get away!
+- I might not be `able` to.
+- Will i be `able` to walk?
+- She may be `able` to help.
+- I won't be `able` to stand.
+- To be `able` to touch them.
+- We won't be `able` to hide.
+- Will you be `able` to wait?
+- Won't be `able` to see her.
+- Won't he be `able` to tell?
+- `Able` to get a transmitter.
+- They won't be `able` to tell.
+- You won't be `able` to do it.
+- I might be `able` to save you.
+- Soon you'll be `able` to walk.
+- They'll be `able` to track it.
+- This guy is un-be-liev-`able`!
+- But she must be `able` to move.
+- I'd be `able` to see something.
+- I'd love to be `able` to sleep.
+- Then you'll be `able` to sleep.
+- We won't be `able` to save you.
+- Will i still be `able` to play?
+- Be `able` to tell your children.
+- But would you be `able` to rest?
+- I leave it in your `able` hands.
+- I'll never be `able` to do that.
+- I'm `able` to enjoy people more.
+- Richard will never be `able` to.
+- When will he be `able` to write?
+- They won't be `able` to tell?
+- He'll barely be `able` to sit up.
+- I have to be `able` to trust you.
+- I was `able` to enjoy life again.
+- I was barely `able` to reach her.
+- I won't be `able` to fit in, i...
+- They might be `able` to help you.
+- You won't be `able` to miss them.
+- And i won't be `able` to help you.
+- I won't be `able` to sleep anyway.
+- We'll never be `able` to stop her.
+- We might be `able` to go that way.
+- Will i be `able` to play the harp?
+- Will we be `able` to talk to them?
+- You've got to be `able` to fix me!
+- 's people will be `able` to see us.
+- Are you going to be `able` to sleep?
+- If he was `able`, what would he say.
+- It's good to be `able` to hear that.
+- I want to be `able` to see us, nick.
+- Say, you might be `able` to help me.
+- That's why it's a make- `able` deal.
+- Thought you might be `able` to help.
+- Viktor won't be `able` to take that.
+- We need to be `able` to do our jobs.
+- We're `able` to surprise each other.
+- Lisa will be `able` to save face.
+- Grounders won't be `able` to see you.
+- He'd be `able` to deal with this one.
+- He's a good lad -- bright and `able`.
+- He was obviously `able` to handle it.
+- I'd like to be `able` to read across.
+- I might be `able` to accommodate you.
+- I might be `able` to find a backdoor.
+- I might be `able` to take two of you.
+- I'm not sure i'll be `able` to...i...
+- I was `able` to do her a small favor.
+- I won't be `able` to talk for awhile.
+- She should be `able` to keep the leg.
+- She won't be `able` to bear children.
+- That they never used to be `able` to.
+- We're not gonna be `able` to pump it!
+- Will you be `able` to handle that...?
+- And... then you'll be `able` to sleep.
+- He was never `able` to reproduce them.
+- Hey ... you'll be `able` to do it now.
+- I'll never be `able` to win this shit.
+- I want to just be `able` to trust you.
+- I won't be `able` to help you anymore.
+- I won't be `able` to help you anymore.
+- I wouldn't be `able` to show you this.
+- No one's been `able` to escape it yet.
+- Of course, he won't be `able` to come.
+- Or something will be `able` to see us.
+- Why should only men be `able` to spit.
+- You should be `able` to hear the pump.
+- You were `able` to arrange everything?
+- I have not been `able` to face him yet.
+- I haven't been `able` to reach him yet.
+- I mean, was i `able` to... satisfy you?
+- I was `able` to finish my dissertation.
+- She'd never be `able` to hold on to it.
+- The more of us will be `able` to fight.
+- We might be `able` to find a back door.
+- We won't be `able` to get out of there.
+- You have to be `able` to see that deep.
+- I'd never be `able` to talk her into it.
+                 

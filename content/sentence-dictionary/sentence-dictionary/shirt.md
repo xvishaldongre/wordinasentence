@@ -1,0 +1,99 @@
+---
+title: "shirt in a sentence | shirt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shirt"
+---
+- Take your `shirt` off.
+- That's a nice `shirt`.
+- I'll buy you a `shirt`.
+- It was on your `shirt`!
+- Thanks for the `shirt`.
+- You have a red `shirt`.
+- A blue `shirt`, perhaps?
+- Did you see his `shirt`?
+- I got my warm t-`shirt`.
+- That `shirt`, mr. boone.
+- The `shirt` off my back.
+- I got this `shirt` there.
+- Let's lift up her `shirt`.
+- See that patch of `shirt`?
+- Ben, take your `shirt` off.
+- Damn, look at this `shirt`.
+- In cutoffs, a wet t-`shirt`.
+- Matching `shirt` and shorts.
+- Slacks, a `shirt` and these.
+- That `shirt` is working hard.
+- There's a `shirt` over there.
+- You really like that `shirt`?
+- That is one hell of a `shirt`.
+- There's blood on your `shirt`.
+- I've got more than one `shirt`!
+- You have blood on your `shirt`.
+- Just lift your `shirt` up a bit.
+- Tuck that `shirt` in, david lee.
+- A whiff of perfume on his `shirt`.
+- Keep your `shirt` on, young feller.
+- You'll have to remove your `shirt`.
+- I'm wearing a t-`shirt` and panties.
+- One `shirt` - blue, collar attached.
+- I just washed this `shirt`, didn't i?
+- I said take off your fucking `shirt`.
+- Yeah if you let me have your `shirt`.
+- You forgot to wash my purple `shirt`.
+- The crew gift is just a t-`shirt`.
+- Mr. bernstein, am i a stuffed `shirt`?
+- Sure, reach in my `shirt` pocket there.
+- Been there, done that, got the t-`shirt`.
+- I say no `shirt`, no shoes, no salvation.
+- That's a dreadful `shirt` you're wearing.
+- You better get a garlic t-`shirt`, buddy.
+- I don't want you hanging on to my `shirt`.
+- It's my favorite `shirt`, mind if i check?
+- I see that, because it's on your t-`shirt`.
+- Where'd you find the perfect white `shirt`?
+- You're unbuttoning your `shirt`, mr. simpson.
+- Sheila starts to unbutton her bowling `shirt`.
+- Got me an afternoon job at the `shirt` factory.
+- Simone, i recognize the `shirt` you're wearing.
+- I can't believe you finally gave me the `shirt`.
+- Buzz raises an eyebrow as he buttons his `shirt`.
+- I mean how long does it take to put on a `shirt`?
+- You have any idea what a `shirt` like this costs?
+- Give me an address so i can send your `shirt` back.
+- How many times have you seen him with a `shirt` on?
+- I mean, yeah, i'd say this was an all right `shirt`.
+- Babe brother, is that my `shirt` that you're wearing?
+- Your `shirt` and jacket are still stained with blood.
+- An "i tried to screw a network executive" tee-`shirt`.
+- Where do you get off with your stuffed-`shirt` family?
+- We've been losing them at t-`shirt` or a laptop sleeve?
+- Ermelinda says you wash the same `shirt` out every night.
+- ...i don't need drama from someone whose `shirt` bellamy.
+- So, go ahead there, beautiful, and take off your `shirt`.
+- ...squirm, i don't want his brains all over my `shirt`...
+- I don't know how i could've missed you with that `shirt` on.
+- They shoot 'em out of those t-`shirt` guns at sports events.
+- I used it to start the fire -- where's your `shirt`, mueller?
+- How did a stuffed `shirt` like you get into this line of work?
+- Samuel will remove his `shirt` and hold it out the window to i.d.
+- With a thirty-five inch bustline in a wet t-`shirt` with no bra...
+- Hey, if they ask you to take off your `shirt`, get the money first.
+- It was a very emotional time for buttercup -- keep your `shirt` on.
+- Hey, cobb...man, why don't you take off your `shirt` and pants, man?
+- All this juice started running down her chin and onto her `shirt`.
+- The egyptian cotton `shirt` that works with or without the jacket.
+- Male hostage, jeans and blue checked `shirt`, three feet to her right.
+- But why do you let butterfinger keep those blood stains on his `shirt`?
+- I've dressed him in a cossack `shirt` and he'll sing nelson eddy songs.
+- He puts his hand in your `shirt` and squeezes your tit till it's purple.
+- My father used to go to these saturday night games and lose his `shirt`.
+- Look, i don't know what you want-- he been sleeping in a t-`shirt` lately?
+- Sounds like one of those guys with a fish-net `shirt` and a banana hammock.
+- We got a new suit, new `shirt`, new tie, and i'm going to shave you myself.
+- Your billy `shirt`'s on fire... oh we... we... after we're outside the kogus?
+- I remembered tearing his `shirt` and biting his body, hoping he would kidnap me.
+- You'd give a stranger the `shirt` off your back--except it wouldn't be paid for.
+- You want to wear that ridiculous `shirt` which doesn't go with those pants at all.
+- Do you see a slender plastic tag clipped to my `shirt` with my name printed on it?...
+                 

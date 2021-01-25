@@ -1,0 +1,63 @@
+---
+title: "treatment in a sentence | treatment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "treatment"
+---
+- No special `treatment`.
+- What's the `treatment`?
+- Is this the `treatment`?
+- That's with `treatment`.
+- But he needs `treatment`.
+- What kind of `treatment`?
+- This boy needs `treatment`.
+- How much for the `treatment`?
+- Better get on that `treatment`.
+- The standard `treatment` sucks.
+- We got a `treatment` on it yet?
+- What's the standard `treatment`?
+- You need `treatment`, mrs. peel.
+- You can get your `treatment` now.
+- She gave me the blood `treatment`.
+- I don't have the blood `treatment`!
+- Standard `treatment` isn't working.
+- Doc says i got one more `treatment`.
+- ...maybe we should do a `treatment`.
+- We're not skipping this `treatment`.
+- Bart, it's time for your add `treatment`.
+- I'm not used to that kind of `treatment`.
+- She ain't used to this kinda `treatment`.
+- Nan-- is there a non-standard `treatment`?
+- They haven't even pretended to offer `treatment`.
+- You ready for the last `treatment` oh, i feel it!
+- I recommend you send brad to them for `treatment`!
+- What exactly is the `treatment` here going to be then?
+- Because the standard `treatment` sucks compared to you.
+- I want to know who is responsible for this `treatment`.
+- He really will get the best `treatment` here, mrs. byers.
+- How about putting me in for this new `treatment`, father?
+- Yu laik joroum kom sangedakru, the marrow `treatment` works.
+- Clinics, half-way houses, `treatment` centers, detox units...
+- I noticed you were giving me the silent `treatment` at lunch.
+- Insulin shock `treatment` is an extreme measure, mr. holland.
+- Because women act on emotion the marrow `treatment`, it worked.
+- But let me remind you that this `treatment` is... experimental.
+- I need to go over the `treatment` schedule did you find octavia?
+- That's cause will kennison only wrote a rough `treatment` of it.
+- Of a threat to human survival, you got the same `treatment` i did.
+- I want the `treatment` plant licenses to be top priority right now.
+- Have you been receiving medical `treatment` for any serious illness?
+- He's still in decon, but he'll need `treatment` he says he needs me.
+- You could try emergency room personnel, `treatment` for bite wounds.
+- Take an interest in your `treatment` and don't dwell on your resentments.
+- But here at the hotel dieu we favor an... aggressive... course of `treatment`.
+- In a few minutes, you'll meeting dr. brodsky and we'll begin your `treatment`.
+- It's this double-standard, the separate quarters, the deferential `treatment`.
+- The only explanation for the royal `treatment` is he did give them radar secrets.
+- I like the smell of my hair `treatment` - the pleasing odor is half the point.
+- He's been in and out of... look, i know he's almost through with `treatment` here.
+- It's ok. they'd be pretty shit traps, i'm still working on a `treatment`, he's gone.
+- It was part of the `treatment` i intended...i didn't know what the effects would be...
+- Is it true that you've refused `treatment` the truth is... you're fine until you're not.
+- Towler and marx based their `treatment` of deborah ann kaye on this chart that you signed .
+                 

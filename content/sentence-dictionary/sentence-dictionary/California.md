@@ -1,0 +1,107 @@
+---
+title: "California in a sentence | California example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "California"
+---
+- She's in `california`.
+- We go to `california`.
+- How about `california`?
+- Welcome to `california`!
+- `California` this summer.
+- Some guy in `california`.
+- Head out for `california`.
+- I'm `california` dreamin'.
+- I'm going to `california`.
+- Los angeles, `california`.
+- Yes, a `california` plate.
+- `California`, here we come!
+- Right back to `california`.
+- Sherman oaks, `california`.
+- You choose `california`?
+- Come with me to `california`.
+- He's got `california` plates.
+- How far is it to `california`?
+- The `california` racquet club?
+- Huntington beach, `california`.
+- I can't go out to `california`.
+- I never go out to `california`.
+- You're walking to `california`?
+- There's schools in `california`.
+- When am i going to `california`?
+- What's she doing in `california`?
+- Are we goin' to `california` true?
+- But i'd dig goin' to `california`.
+- `California`... darrell's a moron.
+- She's just here from `california`.
+- Are you a resident of `california`?
+- Have you ever been to `california`?
+- The beach of pacifica, `california`.
+- You know, it's a `california` thing.
+- I'll take you as far as `california`.
+- I'm in `california` most of the time.
+- Time i was convicted in `california`?
+- We're going to `california` together.
+- Now who is the person in `california`?
+- We're goin' to `california`, ain't we?
+- We live in `california`, not minnesota!
+- We live in `california`, not minnesota.
+- Are we going back to `california` daddy?
+- That's what we're doing in `california`.
+- Awright then, let's *go* to `california`.
+- Ever'body leavin', goin' to `california`.
+- I don't think `california` is bad at all.
+- I'm going to `california` with my brother.
+- We make the drop, go home to `california`.
+- I want you to come to `california` with me.
+- This is `california`, anything is possible.
+- You are in `california` for what reason?
+- No, we got pressure from `california` state.
+- They got parks in texas, ohio, `california`.
+- We're gonna call it `california` sinsemilla.
+- Anyway, `california`'s loaded with galleries.
+- Hollywood, `california`, you're on "tru talk."
+- My godson comes all the way from `california`.
+- Pacifica, `california` -- it's a coastal city.
+- We have stores all over southern `california`.
+- You're another one of these `california` boys.
+- Most of `california` would have been destroyed.
+- Get me that `california` retirement money, baby!
+- ...as mr. george kaplan of berkeley, `california`.
+- Dewight mcclusky of the `california` prison board.
+- Pacifica, `california`... that's a long ways away.
+- I didn't know you guys were living in `california`.
+- To don dibusco productions, burbank, `california`."
+- You've just described all of southern `california`.
+- An oasis of civilization in the `california` desert.
+- In twenty-five minutes in the `california` ballroom.
+- So, i hear the tart from `california` shot heyworth.
+- Now i'm in `california`, 'cause you asked me to come.
+- But as soon as i graduate... `california`, here i come!
+- Come all the way from england to clean up `california`.
+- I mean `california` almost threw up right in the ocean.
+- There's a big, comfy `california` king over in bedding.
+- We'll discuss him when you come back from `california`.
+- Old boy from `california` says, "boy this water's cold."
+- What'll it be like in `california`, sailor, do you think?
+- He came all the way from `california` to be at the wedding.
+- He escaped to `california` and got picked up in long beach.
+- After today, the `california` raisins aren't gonna hire you.
+- Don't want any bad word of mouth about `california` charlie.
+- Yeah, me and jake will be heading out for `california` soon.
+- He came all the way from `california` to come to the wedding.
+- You don't take me to `california`, but you take your bitch wife?
+- It was the poorest lemon ranch in `california`, i can assure you.
+- `California`, i'm going to hollywood to live with the brady bunch.
+- I don't know anything -- i've been in `california` for four years.
+- Think about `california` -- and how things might be handled there.
+- Let's just go to `california` now, right now, before it's too late.
+- It was the poorest lemon ranch in `california`, i can tell you that.
+- She went to `california`, to los angeles... she wanted to start over.
+- You came all the way out here to tell me you're going to `california`?
+- Don't it ever scare you it won't be nice in `california` like we think?
+- Then you can go to some nice warm place, and i don't mean `california`.
+- I went to `california` because that was about as far away as i could get.
+- We supply, for example, most of the egg farmers in southern `california`.
+- According to `california` law we have a constitutional right to bear arms.
+                 

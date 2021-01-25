@@ -1,0 +1,55 @@
+---
+title: "jew in a sentence | jew example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jew"
+---
+- Yeah, yeah, the `jew`.
+- Sue me, you `jew` fuck!
+- Dumb `jew` motherfucker.
+- That a `jew` compliment?
+- We raised you as a `jew`.
+- You want to kill a `jew`.
+- I'm a `jew` in show business.
+- What was the `jew`-boy's name?
+- But the `jew` doesn't have soil.
+- Always shoot a `jew` in the head.
+- I was a `jew` in a previous life.
+- No, not did you eat, but `jew` eat?
+- So what `jew` would you kill first?
+- What is your idea of being a `jew`?
+- Oh, it's all right, beats `jew` york.
+- He muttered under his breath, "`jew`."
+- The real `jew` is a wanderer, a nomad.
+- Shostakovich identified with the `jew`.
+- What's between you and that `jew` woman?
+- I'll sue you and your fucking `jew` paper.
+- Does that mean the `jew` is the better lover?
+- Me, i'm proud to be a `jew`, i got no problem.
+- But no filthy `jew` will ever be a brother to me.
+- He asked me again about you and the `jew`'s wife.
+- Female... because the `jew` is essentially female.
+- For the `jew`, his jewishness dominates everything.
+- Give it to a `jew` congressman in another district.
+- They come to `jew` york city and they buy up things.
+- You give your loyalty to a `jew` over your own blood.
+- I was a catholic, `jew`, scientologist, sufi, buddhist.
+- Get this through your head, you `jew` motherfucker, you.
+- When i'm ready, i'll say the words, 'go see the `jew`.'
+- I don't even know a `jew` who'd have the balls to say that.
+- I love that old `jew`, but he's gonna kill himself worrying.
+- These fuckers hear the word "`jew`" and they start sweating.
+- Well, uh... you're what grammy hall would call a real `jew`.
+- You know the joke: a `jew`'s shipwrecked on a desert island.
+- Whatever my ideas are of being a `jew` is not going to help you.
+- A `jew`'s gotta let his heart tell him when ta give his presents.
+- Listen, old pal, there's a `jew`-boy musician i want you to help.
+- A `jew`, a shaman, and a herbalist are telling you the same thing?
+- I mean, i know he's a crazy `jew` fuck and everything, but... yeah.
+- Hey, sammy, tell this `jew` motherfucker over here to pay that marker.
+- So, fine, it's not that the `jew`, the jews own the media and the banks.
+- Frankie... the little guy, he wouldn't be fuckin' the `jew`'s wife, would he?
+- The high court of israel turned down his request to live as a 'returned `jew`.'
+- Listen to this: 'the `jew` composer schonberg is admired by the jewish international.'
+- Really, who but a `jew` would want to kill ilio manzetti simply because he was jewish?
+                 

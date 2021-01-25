@@ -1,0 +1,82 @@
+---
+title: "supplies in a sentence | supplies example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supplies"
+---
+- Got to get `supplies`.
+- For medical `supplies`.
+- Where are my `supplies`?
+- Who `supplies` the sons?
+- We use it for `supplies`.
+- For `supplies`, you drive.
+- Did you get the `supplies`?
+- He is gathering `supplies`.
+- Ah... restaurant `supplies`.
+- I think frank `supplies` him.
+- The things i did, `supplies`?
+- What'd you do for `supplies`?
+- By eating our food `supplies`.
+- We can't spare the `supplies`.
+- We need triage `supplies` now!
+- And gather emergency `supplies`.
+- It has medical `supplies` in it.
+- I have found you some `supplies`.
+- I have to pick up the `supplies`.
+- When he comes in for "`supplies`."
+- "art's `supplies`" is for ex- cons.
+- Art `supplies` in the bunker, finn.
+- We need `supplies` and medical help.
+- Soon's we get some `supplies` aboard.
+- How are we gonna get those `supplies`?
+- If she's here, she'll need `supplies`.
+- Between gifts and household `supplies`.
+- I've got medical `supplies` to deliver.
+- We got clothing and medical `supplies`.
+- That's all our food `supplies` in there!
+- Have a hot shower, stock up on `supplies`.
+- Have you... have you arranged our `supplies`?
+- You must locate those `supplies` immediately.
+- `Supplies` are limited, how would you do that?
+- One time i was flying `supplies` up the amazon.
+- [scoffs] how are we gonna get those `supplies`?
+- We're running out of beer and other `supplies`.
+- In that event, we won't need so many `supplies`.
+- Weapons and `supplies` to the northern perimeter?
+- It's pesticides, cleaning `supplies`, diesel fuel.
+- Thanks to the `supplies` your brother found, pike!
+- But if we take their money and `supplies`... not yet.
+- But we need `supplies` and i've got to stay with him.
+- Didn't you say you needed some `supplies` to do this?
+- Meet me at the hospital after the `supplies` come in.
+- Why not just go to... nome for `supplies` and a wife?
+- If we give you our `supplies`, we'll all die out here.
+- Most of the `supplies` before the last bombs went off.
+- And `supplies` in the cart, he will if we open the door.
+- You were gonna load up on `supplies` and just disappear.
+- I should be in medical, not packing first-aid `supplies`.
+- As long as she brings food and `supplies`, she'll be welcome.
+- Bought them over at blackburn's `supplies` just last tuesday.
+- On the way to a dirt airstrip somewhere, we'd drop `supplies`.
+- You could just tell when the `supplies` were booby trapped?
+- Because we’re doing exactly what they what kind of `supplies`?
+- We don't have the medical `supplies` does that buy us more time?
+- To the pan of the `supplies` boxes -- we can cut back at the end.
+- We're dispatching shuttles with medical personnel and `supplies`.
+- With light clothing and no `supplies`, this is nobody's territory.
+- Arrows and spears, axes, swords, kane: theft of medical `supplies`.
+- They've all had some `supplies` go missing, all in the past few days.
+- I expect any time now a ship load of `supplies`... you must be very rich.
+- My father worked hard too like an elephant pushing electrical `supplies`.
+- Maybe it was baby `supplies`, kay starts the car, starts to pull a u-turn.
+- Helping me buy enough food and `supplies` to fill several large trucks.
+- "art's `supplies`" is founded on trust, mister -- i did five years in attica.
+- Clarke... for exceeding the maximum medical `supplies` allowed for a patient.
+- ...and his church group have volunteered to help us bring the `supplies` down.
+- Now i got enough air and `supplies` to make another complete orbit in the pod!
+- You and frank get the tents, thermal clothing, and medical `supplies` together.
+- I have taken care of everything, including medical `supplies` and blood storage.
+- If we don't get to their camp soon, we won't be able to tape the `supplies` coming in.
+- Marge, i'm leaving the show how long do you think we'll last without those `supplies`?
+- In addition to `supplies`, [door opens] the natblidas have begun the purification ritual.
+                 

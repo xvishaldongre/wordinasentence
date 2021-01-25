@@ -1,0 +1,58 @@
+---
+title: "madam in a sentence | madam example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "madam"
+---
+- Good morning, `madam`.
+- My apologies, `madam`.
+- `Madam` has slept well?
+- There you are, `madam`.
+- But, `madam`, you know me.
+- `Madam` grusinskaya's car.
+- Now `madam` will sleep.
+- Come, `madam`, are you mad?
+- In the bag, `madam` president.
+- It will be all right, `madam`.
+- None of your business, `madam`.
+- We make our own lives, `madam`.
+- Are you referring to me, `madam`?
+- Oh, come, `madam` -- please come.
+- Faithfulness he talked of, `madam`.
+- `Madam` will dress now, it is late.
+- A very polite hello to you, `madam`.
+- Come along, oh, `madam`, come along.
+- You, `madam`, are a heartless wench.
+- I just came from the school, `madam`.
+- Let me be the judge of that, `madam`.
+- `Madam` is cancelling the engagement.
+- Please do not be frightened, `madam`.
+- May i help you, `madam` ... you and i.
+- Ah, oui -- the car is here for `madam`.
+- `Madam`, in happy time what day is that?
+- Yes, `madam` suzette knows all about it.
+- `Madam` grusinskaya's car is to be brought.
+- `Madam`, your mother craves a word with you.
+- `Madam` grusinskaya's car is not to be brought.
+- No -- `madam` grusinskaya's car is to be brought.
+- Between you and me, `madam`, today the number two.
+- A most perceptive choice, `madam`, if i may say so.
+- What has happened, `madam`, to annoy your ladyship?
+- No -- `madam` grusinskaya's car is not to be brought.
+- `Madam` has chosen a funny time for such a funny joke.
+- I'm sorry, `madam`, we don't accept gratuities in the uk.
+- `Madam`, it is mr. meierheim -- he is waiting downstairs.
+- Now, i'm sorry, `madam` chancellor, one last kiss, my love.
+- `Madam` te is certainly spoiling us with these wedding gifts.
+- It may need some slight alterations, but it is `madam`'s size.
+- Pardon me, `madam` - but what am i to say to the newspapermen?
+- Don't worry, `madam`, she can't infect your dear little kiddies.
+- `Madam` grusinskaya -- at once -- mr. preysing -- one sixty-four.
+- `Madam` senator... this is an internal document of the u.s. navy.
+- `Madam` ... cut to woman turning, half in flirtatious conversation.
+- I can't dance tonight -- `madam` grusinskaya's car is to be brought.
+- But not many people walk away from double pneumonia, `madam`, not many.
+- Sir te, can you find some excuse to invite `madam` yu and her daughter?
+- "i come, anon--but if thou meanest not well, i do beseech thee--" "`madam`!"
+- But i think once you stop hearin' sir and `madam` the rest is soon to follow.
+                 

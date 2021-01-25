@@ -1,0 +1,107 @@
+---
+title: "river in a sentence | river example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "river"
+---
+- We was by the `river`?
+- I'll go to the `river`.
+- We meet at the `river`.
+- ey’re at the `river`.
+- Somewheres down `river`!
+- They're `river` pirates.
+- Feed on the `river` moss.
+- He thinks of the `river`!
+- Saddle `river`, new york!
+- The `river`'s a boundary.
+- Did you go to the `river`?
+- I can do "swanee `river`."
+- ...i'm across the `river`.
+- `River` oaks, brook farms.
+- Dinner at the `river` cafe.
+- I had them on `river` glen.
+- I'm going over the `river`.
+- Right here in `river` city.
+- Take the `river` road back.
+- The little walking `river`.
+- He was found in the `river`.
+- Or maybe crossing a `river`!
+- Where does the `river` lead?
+- ♪ that was the `river` ♪ okay?
+- He sent me up the `river` once.
+- Saddle `river`'s in new jersey.
+- Words will flow like a `river`.
+- You go set down by the `river`.
+- Barclay hotel on `river` street.
+- Double back towards the `river`.
+- This `river`'s fed by a glacier.
+- Throw that money in the `river`!
+- We ain't goin' down the `river`.
+- Across the `river` into zululand.
+- Denial is not a `river` in egypt.
+- Last building before the `river`.
+- On the other side of the `river`.
+- We were attacked -- down `river`.
+- Hope you like little `river` band.
+- They dam that `river` on the 21st.
+- East `river` drive and 73rd street.
+- This `river` ends at a hydro dam...
+- Well, he drove it into the `river`.
+- We will get you across the `river`.
+- I usually take lunch by the `river`.
+- ♪ lot of widows on the good `river`.
+- No wonder you jumped in the `river`.
+- It's not in the `river`, is it harry?
+- Are you sure this is the `river` road?
+- De-nail ain't just a `river` in egypt.
+- He's on the other side of the `river`.
+- How far's the `river` from here, mose?
+- I had to toss the list in the `river`.
+- I'll be taking an ohio `river` cruise.
+- You threw my briefcase in the `river`.
+- One of them sodoms on the ohio `river`.
+- Comes in different parts of the `river`.
+- Have you been out to the `river` lately?
+- I'll take the north side of the `river`.
+- I never want to leave the `river` again.
+- Just give me the con-... ...the `river`.
+- Nixon lives in saddle `river`, new york.
+- All prints washed off by the `river`.
+- Build the bridge over the tsavo `river`.
+- All that paper that went into the `river`.
+- Now they'll sell you down the `river`.
+- ♪ but that was the `river` ♪ jump through.
+- Then it's blue `river` land for everybody.
+- There's not supposed to be a `river` here.
+- You're in the hospital across the `river`.
+- I suppose that's your wagon in the `river`.
+- There's a dry `river` bed fifteen miles east.
+- They just pulled him out of the east `river`.
+- You came up my `river` -- in that small boat.
+- A `river` of dirty money running through here.
+- You want to go down or stay along the `river`?
+- His kid was found in the bottom of the `river`.
+- They're the ones gonna get us into the `river`.
+- Throw that basket in the `river` and drown him!
+- You're talkin' yourself right into the `river`.
+- Ben never told you he throwed it in the `river`?
+- He owns a big industrial complex on the `river`.
+- I think this `river` wants to take us home fast.
+- To purify the waters of our life-giving `river`.
+- Clay and me have a place on the toulomne `river`.
+- I got to get into the nung `river`, here or here.
+- They'll help us get to the bottom of the `river`.
+- We're gonna have some help to get in the `river`.
+- East above the `river` heading for the eagle pass?
+- Get in there now or i'll bury you in this `river`.
+- Boy, i thought you were about to cross the `river`.
+- I must wend my way down `river` on the lord's work.
+- It was probably brought here from a sacred `river`.
+- Just fixed our position on that `river` back there.
+- Welcome to josh.0, double back towards the `river`.
+- What happens to your apartment on the east `river`?
+- Down there, through those trees, follow the `river`.
+- Seven homes along the black `river` so far... where?
+- Ten months we've been fishin' this `river` together.
+- The cat is in the bag and the bag is in the `river`.
+                 

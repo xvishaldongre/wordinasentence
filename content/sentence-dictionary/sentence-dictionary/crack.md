@@ -1,0 +1,94 @@
+---
+title: "crack in a sentence | crack example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crack"
+---
+- So how do we `crack` it?
+- You `crack` the pattern?
+- Will you `crack` my neck?
+- I'm not going to `crack` up.
+- Dude, you `crack` me up, man.
+- Give me another `crack` at it.
+- He can't find a `crack` in it.
+- There's a remote in my `crack`.
+- An elephant couldn't `crack` it.
+- Can you `crack` its ice pattern?
+- May take a `crack` at rickshaws.
+- Donna, you are such a `crack` up.
+- Working from the `crack` of dawn.
+- That silberman just `crack` me up.
+- Don't `crack` wise to me, flatfoot.
+- Now what kind of a `crack` is that?
+- Get another `crack` at him tomorrow.
+- What happens if you `crack` the neck?
+- You're a tough nut to `crack`, dylan.
+- I'd like to take a `crack` at that guy.
+- Is that a `crack` about our singing...?
+- My husband gets up the `crack` of dawn.
+- Now for that twentieth `crack`� yes.
+- Just let me have a first `crack` at her.
+- What's that `crack` supposed to mean?
+- ♪ well, i thought it was a `crack` house.
+- What is it with `crack` and transsexuals?
+- Then why'd they bother to `crack` the safe?
+- Strung out on `crack`, four months pregnant.
+- I am sorry about that `crack` on the jaw.
+- I don't know enough to `crack` it on this end.
+- I felt a rib `crack` but i never made a sound.
+- That `crack` is burning a hole in your pocket.
+- They dropped the charges... did chloe `crack`?
+- You know that `crack` i made about your...butt?
+- That's the fourteenth `crack` you've made to me.
+- Thought i'd let you have first `crack`... later.
+- When he does, you can `crack` him in the head...
+- [kids clamoring] i just couldn't `crack` that one.
+- You intend to `crack` my eardrums with your voice?
+- `Crack` me back of the head like some stinkin' bull.
+- I'd love to, but i really need to `crack` the books.
+- That poor boy's a `crack` dealer from alphabet city.
+- ♪ alors on danse ♪ but even they couldn't `crack` it.
+- Cigarettes, candy bars... pcp, `crack`... "materiel"?
+- Sooner or later i knew you'd `crack` this thing, max.
+- For once, o., but he spun out into dead man's `crack`.
+- Meanwhile i got some `crack` left, you wanna get high?
+- Remember what i told you about that twentieth `crack`?
+- Somebody ought to `crack` that guy with a baseball bat.
+- Mr. lipnik, i � ah, hell, let bart take a `crack` at it.
+- You mended a `crack` in the wallpaper with your diploma.
+- Getting high on your own supply like some `crack` dealer.
+- I forgot how great it was to `crack` the spine of a book.
+- "this is patrick..." "...and this is patrick on `crack`."
+- I always thought i'd have a `crack` at this chair one day.
+- [`crack`] the last 70 of which he's been trying to kill me.
+- They always come around telling me what a `crack` up you are.
+- So the way you see it, two `crack` heads burned themselves up?
+- He's got such a thick head, i'd like to `crack` it open myself.
+- You have cracked a man's skull and that `crack` has not healed.
+- You'll do shit work, scan, `crack` copyrights, whatever i want.
+- Jumble sale on in watford, they'll be up at the `crack` of dawn.
+- Save that hustle talk to them field ballers you sell `crack` to.
+- He'll have a tough time thinking up a wise-`crack` for this one .
+- He's a tough cookie to `crack`, but... what we're doing now, bob!
+- If we don't `crack` that, then we might as well hey, what's this?
+- It's probably gonna take a super genius to `crack` it, but... hmm.
+- Or `crack` your mouth, so i can put it to its one pleasurable use!
+- But i'd like to take a `crack` at that stiff- necked, horse dollar.
+- I know, i liked her better when she was an alcoholic `crack` addict!
+- It's been terrific spending the entire day with your "`crack` team".
+- ♪ oh, you're my best friend ♪ will be once i `crack` the encryption.
+- I just want to be able to rub epps' face in it when i `crack` this thing.
+- Nobody in town has seen it, so i'm givin' you first `crack` at my talents.
+- The most powerful critic in america gets his first `crack` at nicky rogan.
+- Waiting for me to `crack` that little gnome over the noggin with a bottle.
+- If you don't talk to me, johns'll take another `crack` at it -- at your skull.
+- There's no way we could generate enough positive energy to `crack` that shell.
+- You know, she can `crack`, like, top secret russian codes and... driscoll's rat.
+- You wanna pop some `crack` dealer pissed you off, that's your problem, not mine.
+- Listen chief, we could stand around arguing all day, but i gotta case to `crack`.
+- They don't know how to `crack` these secret chat rooms -- i'll relay this to ciiac.
+- But eventually, it will `crack` and his alpha pattern will change from this to this.
+- He locked himself in his room and refused to talk except through a `crack` in the door.
+- You need to find out what pike is up to your father's butt `crack` this case wide open.
+- Were you on this religious kick back home, or did you start to `crack` up here on the post?
+                 

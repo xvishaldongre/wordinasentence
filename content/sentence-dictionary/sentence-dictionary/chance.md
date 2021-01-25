@@ -1,0 +1,107 @@
+---
+title: "chance in a sentence | chance example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chance"
+---
+- C'mon, not a `chance`.
+- ... evening, `chance`.
+- I gave you a `chance`.
+- Is there any `chance`?
+- It's my last `chance`.
+- It's my only `chance`!
+- Just gimme a `chance`.
+- This is your `chance`!
+- This is your `chance`.
+- Why take the `chance`?
+- "a `chance` to escape."
+- Is our second `chance`.
+- It's our only `chance`.
+- It's the only `chance`!
+- Please - - `chance` it.
+- We may have a `chance`.
+- A `chance` to be a hero.
+- `Chance` we got to take.
+- ... goodbye, `chance`...
+- It's my second `chance`.
+- It's your only `chance`.
+- I've missed my `chance`.
+- Our `chance` to do what?
+- She has no `chance` now.
+- Want to take a `chance`?
+- When you get a `chance`.
+- You may have a `chance`.
+- Give me a `chance`, baby.
+- It'll give us a `chance`.
+- Last `chance`, charlatan.
+- Pretty big `chance`, huh?
+- So this is your `chance`.
+- The `chance` to find out.
+- Will you `chance` a miss?
+- You've had your `chance`.
+- But why take the `chance`?
+- Give him another `chance`.
+- He didn't have a `chance`.
+- It'll be my last `chance`.
+- It's a `chance`, isn't it?
+- Just give me one `chance`.
+- Not cody, by any `chance`?
+- Then this is our `chance`.
+- This is our best `chance`.
+- We don't stand a `chance`.
+- Whoa - give me a `chance`!
+- But it is worth a `chance`.
+- Can't i have that `chance`?
+- Can we `chance` moving him?
+- Can you take that `chance`?
+- I am giving her a `chance`.
+- I can't take that `chance`.
+- I'm `chance`, the gardener.
+- I wouldn't have a `chance`.
+- Just give me that `chance`.
+- One `chance` here, eduardo.
+- Sure, i'll take a `chance`.
+- This is your last `chance`.
+- We can't take the `chance`.
+- Why even take the `chance`?
+- You don't stand a `chance`.
+- Alone i may have a `chance`.
+- `Chance`, this is ms. hayes.
+- Eden never stood a `chance`.
+- Give you a `chance` to rest.
+- In this there is a `chance`.
+- I was giving you a `chance`.
+- Not a `chance`--i'm through.
+- Taking a `chance` like that.
+- That way you got a `chance`.
+- We can't take that `chance`.
+- You won't have the `chance`.
+- He didn't give me a `chance`.
+- I am--it's our only `chance`.
+- I can't be left the `chance`.
+- I can't take that `chance`...
+- [man 1] this is our `chance`!
+- We have to take the `chance`.
+- Why should i take a `chance`?
+- You get a `chance` to use it?
+- You had your `chance`, james.
+- You may be our only `chance`.
+- You're taking a big `chance`.
+- A `chance` to meet the legend.
+- But this is a second `chance`.
+- Give her a `chance`, will you?
+- He has one hell of a `chance`.
+- Is it worth taking a `chance`?
+- I think you've got a `chance`.
+- It's a second `chance`, kiddo.
+- Lincoln might have a `chance`.
+- Not much `chance` of that now.
+- Now's your `chance`, starling.
+- She didn't give me a `chance`.
+- So you have one last `chance`.
+- You had your `chance`, gorman.
+- You'll never get the `chance`.
+- You never got the `chance`?
+- Are the best `chance` he's got.
+- I'll have to take the `chance`.
+                 

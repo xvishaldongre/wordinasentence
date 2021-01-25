@@ -1,0 +1,107 @@
+---
+title: "perfect in a sentence | perfect example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "perfect"
+---
+- ...isn't it `perfect`!
+- It's `perfect` for us.
+- Like you're `perfect`.
+- `Perfect` for a child.
+- Then you're `perfect`.
+- Well that's `perfect`.
+- You've been `perfect`.
+- Honey, she's `perfect`.
+- In `perfect` condition.
+- Is your life `perfect`?
+- Its a `perfect` scheme.
+- It�s `perfect`, sidney.
+- She's `perfect` for me.
+- Word `perfect` i'd say.
+- It's a `perfect` ending.
+- She has `perfect` teeth.
+- She's `perfect` for you.
+- "tessa's `perfect` day."
+- That was just `perfect`.
+- The stars are `perfect`.
+- The system is `perfect`.
+- Washington is `perfect`.
+- We're `perfect` targets.
+- What's my `perfect` day?
+- You're all so `perfect`.
+- I ain't always `perfect`.
+- I have the `perfect` one.
+- I know i'm not `perfect`.
+- It makes `perfect` sense.
+- It's `perfect`, isn't it?
+- It was a `perfect` start.
+- It was `perfect`, george.
+- No one's `perfect`, kate.
+- Now's the `perfect` time.
+- `Perfect`, mr. president.
+- Practice makes `perfect`.
+- She's `perfect`, `perfect`.
+- Snowflakes are `perfect`.
+- No girl is that `perfect`.
+- Now is the `perfect` time.
+- `Perfect` for the mission.
+- `Perfect`, she's using it.
+- She was already `perfect`.
+- That's a `perfect` excuse.
+- Well - nobody's `perfect`.
+- What we had was `perfect`.
+- Wow, kev...it's `perfect`.
+- You're a `perfect` target.
+- Your hair... is `perfect`.
+- Her tits are `perfect`.
+- He'd be `perfect` as jesus!
+- He sounds almost `perfect`.
+- This is the `perfect` time.
+- Well, you're `perfect` now.
+- Why ruin a `perfect` night.
+- You got a `perfect` record.
+- But my design was `perfect`!
+- But you're `perfect` for it.
+- He's `perfect` for the role.
+- I call that a `perfect` day.
+- It-it makes `perfect` sense.
+- It was a `perfect` delivery.
+- Manners not quite `perfect`.
+- No plan is `perfect`, lenny.
+- This here's `perfect` tommy.
+- Well, yes, that's `perfect`.
+- Each egg has to be `perfect`.
+- Even your anger is `perfect`.
+- In my eyes, you're `perfect`.
+- I think she's just `perfect`.
+- She's `perfect` for this gig.
+- Show me one `perfect` person.
+- You're `perfect` for me, too.
+- You told me i'd be `perfect`!
+- It's `perfect` flying weather.
+- A damn near `perfect` drug.
+- No, it was the `perfect` level.
+- No, this is the `perfect` time.
+- `Perfect` for a swim, isn't it?
+- Ridin' the wall just `perfect`.
+- That part is `perfect` for him.
+- That's just `perfect` isn't it?
+- That's why you're so `perfect`.
+- A hunting accident is `perfect`.
+- Gillette's `perfect`... why?
+- Freddie's the `perfect` example.
+- He doesn't have to be `perfect`.
+- It's `perfect` the line is busy?
+- No, you've done a `perfect` job.
+- Or have `perfect` table manners.
+- Pretty good -- that's `perfect`!
+- This place is `perfect` for you.
+- You just made a `perfect` score.
+- You're in `perfect` health, jim.
+- Admittedly, not a `perfect` plan.
+- She's so damned... `perfect`.
+- Here, the third shot's `perfect`.
+- I can't rewrite what's `perfect`.
+- I want it in `perfect` condition.
+- My leaving makes `perfect` sense.
+                 

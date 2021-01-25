@@ -1,0 +1,107 @@
+---
+title: "heads in a sentence | heads example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heads"
+---
+- `Heads` up, disciples.
+- Gonna grow two `heads`?
+- We're over our `heads`.
+- Aah ... sheeps' `heads`!
+- By the shrunken `heads`.
+- Hey, queens, `heads` up!
+- Baby's got two `heads`!!!
+- But...we bury the `heads`.
+- Kastle `heads` for his car.
+- They went over our `heads`?
+- Found a penny -- `heads` up.
+- Management were pin `heads`.
+- They're `heads` of families!
+- Congress and cabinet `heads`.
+- Cooper `heads` down the hall.
+- All right, forget the `heads`.
+- Cut their goddamn `heads` off.
+- I've got `heads` here, norman.
+- Without our `heads` exploding.
+- All fashionably without `heads`.
+- I keep getting hit with `heads`!
+- I need to give you a `heads` up.
+- It'd make their `heads` explode.
+- We're going to bury the `heads`.
+- I wouldn't put in so many `heads`.
+- The `heads` were not found at all.
+- He could get into people's `heads`.
+- The `heads` were not found severed.
+- He's got more `heads` than he needs.
+- I like it when they cut `heads` off.
+- All the `heads` of the five families.
+- We need out fucking `heads` examined.
+- How could they all lose their `heads`.
+- With the `heads` of the five families.
+- Did you ever eat fish `heads` and rice?
+- Looking for a place to lay our `heads`.
+- Like collecting shrunken indian `heads`...
+- Now all we have to do is keep our `heads`.
+- Besides, six `heads`'ll be better than one.
+- You could make their `heads` bleed, though.
+- Did those two muscle `heads` shake you down?
+- Some people think it's all in their `heads`.
+- You'll have separate beds, separate `heads`.
+- Just riviera trying to fuck with our `heads`.
+- Not the other studio `heads`-- it's too late.
+- We'll give you a `heads` up before we launch.
+- Everyone will nod their `heads` and say, "see?
+- One false move and i'll blow your `heads` off!
+- We just lost our `heads` and acted like a mob.
+- I got some handloads here ready to cut `heads`.
+- I like the one with the dragon's `heads` a lot.
+- Cuttin' the `heads` off parkin' meters, captain.
+- `Heads` i go -- tails i stay to write the story.
+- Is it true they're all midgets with big `heads`?
+- It's just some gas making our `heads` all fuzzy.
+- I'll toss you for her--`heads` she plays with me.
+- I mean, all this... could just be in our `heads`.
+- I was trying to get inside their `heads`, y'know?
+- Put your hands on your `heads`, and step forward.
+- If we keep our `heads`, we can win this thing.
+- Lucas cuts off its seven `heads`, - i feel normal.
+- Maybe i seem less likely to rip their `heads` off.
+- That they'll start touching us inside our `heads`.
+- It's either `heads` or tails, and you have to say.
+- But the black one's filled up with too many `heads`...
+- If i see them on the street, i'll break their `heads`.
+- Just seamless flesh across the front of their `heads`.
+- We just gotta keep our `heads` and we'll figure it out.
+- She's got a degree in screwing with peoples' `heads`.
+- He... he tries to take the `heads`... they will not pass.
+- If you need as many warriors as possible, goats' `heads`.
+- We've got six more `heads` and that means six more hours.
+- People walk around with masks and things on their `heads`.
+- Somebody starts a silly rumor, and they lose their `heads`.
+- May my mother grow two `heads` if i'm not telling the truth.
+- Tell us where the `heads` are, maybe they'll go easy on you.
+- No, no... take the `heads` and the weapons to the rendezvous.
+- All the sharks have had laser beams attached to their `heads`.
+- I mean it's not like anybody's holding a gun to their `heads`.
+- So the way you see it, two crack `heads` burned themselves up?
+- Used to cut motherfuckers `heads` off and sit them on the bar.
+- Cooper, the ooze of mumbo jumbo is rising up above our `heads`.
+- Just statements from john doe and we can blast our `heads` off.
+- The 3 `heads` of our fallen primes, they're headed down 7th.
+- Call me irish, but i don't believe in cooler `heads` prevailing.
+- Those guys are walking around with their `heads` up their asses.
+- Like these two fuckin' balloon-`heads` over here [eddy and jerry].
+- Listening to the talking `heads` and reading vonnegut or something.
+- Bob barrenger, fella, <u>cameraman</u>... who got their `heads` cut?
+- Speaking of tappy `heads`, we ought to have an old fashion fish fry.
+- Their asses are here, but their fuckin' `heads` are still in sicily.
+- Maybe you can get through to those thick `heads` in starfleet that...
+- Supper getting cold, cos you two are out there `heads` under hoods ...
+- I sent these two looking for him, they come back shaking their `heads`.
+- We keep their `heads` pretty well stocked with dopamine and endorphins.
+- We used to put bedsheets on our `heads`, you know, like we were ghosts.
+- When she's on her way over to the apartment you give me the `heads` up.
+- You be cool now and i'll introduce you 'round to some of the '`heads`'.
+- We've been down here for two weeks banging our `heads` against the wall.
+- When you flip it there's a fifty-fifty chance it'll be `heads` or tails.
+                 

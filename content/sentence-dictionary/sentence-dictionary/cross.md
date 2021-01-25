@@ -1,0 +1,107 @@
+---
+title: "cross in a sentence | cross example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cross"
+---
+- Do you have a `cross`?
+- Now ed, are we `cross`?
+- Put him on the `cross`.
+- We need to `cross` now!
+- Don't `cross` the beams.
+- I've `cross`-matched it.
+- They `cross` themselves.
+- We need to `cross` here.
+- Julian `cross`' daughter.
+- Just the `cross` streets.
+- Let's `cross` over first.
+- You're a `cross`-dresser.
+- Don't `cross` the streams!
+- Find it... and `cross` it!
+- That's my `cross` to bear.
+- Gives holy `cross` the win.
+- Right '`cross` the freeway.
+- What's an official `cross`?
+- Climb down off your `cross`.
+- Don't `cross` words with me.
+- Good afternoon, mr. `cross`.
+- See the `cross` of the lord.
+- Elsa, don't `cross` the seal.
+- Sco 1202 `cross` wired a 904.
+- I don't drive `cross` country.
+- Is on the `cross` as we speak.
+- Jesus christ on the `cross`...
+- Please surrender your `cross`.
+- They waited for us to `cross`.
+- We'll `cross` the next meadow.
+- Do you wish to `cross`-examine?
+- Especially '`cross` the street.
+- Hey, don't `cross` the streams.
+- I hope our paths `cross` again.
+- We'll be in touch, mr. `cross`.
+- `Cross` my heart and hope to die.
+- Itwas one ofthe first to `cross`.
+- Just get him in the `cross`-hairs.
+- Like the red `cross` or something?
+- The abe henry double-`cross` test.
+- Then `cross`-check against zavitz.
+- I see "hot `cross` buns," but okay.
+- At low tide, we can `cross` on foot.
+- Be glad we don't have to `cross` it.
+- Bend them straight and `cross` them.
+- I feel sad about karen `cross`, too.
+- I'm -- selectman of `cross` corners!
+- Johana `cross`, pleased to meet you.
+- Now, you can't double-`cross` me!...
+- On the `cross` suffering needlessly.
+- On the `cross` suffering needlessly.
+- The `cross` is a symbol of holiness.
+- Yes, adulation is a `cross` to bear.
+- He's satan hiding behind the `cross`!
+- It was time for our paths to `cross`.
+- Well a lot of things `cross` my mind.
+- Why did the chicken `cross` the road?
+- A mark `cross` overnight case, anyway.
+- You can't double-`cross` me like that.
+- Don't `cross` me... what are you doing?
+- I knew you'd double-`cross` me, luthor.
+- I used to come here with karen `cross`.
+- The navy `cross`... what "all females"?
+- Maybe the guy works for the red `cross`.
+- We're not safe until we `cross` the sea.
+- Why didn't you `cross` at the crosswalk?
+- Wide `cross`-section of men to evaluate.
+- Your father is julian `cross`, isn't he?
+- Looks like it's your `cross` to bear now.
+- `Cross` him off... now the six looks good.
+- I'd like to find a quiet place to `cross`.
+- Barry's not sitting `cross`-legged anymore.
+- I hope i'm not being `cross`-examined here.
+- I'm going to see a man called julian `cross`.
+- I couldn't even have ruth `cross` examine her.
+- Once we `cross` that border, we're on our own.
+- The hittites are trying to `cross` the border.
+- Have you got your checkbook handy, mr. `cross`?
+- I'd like you to look at something, mr. `cross`.
+- Julian `cross` worked for the water department?
+- We're all keeping our fingers `cross` for doug.
+- You risk your life when you `cross` the street.
+- I thought you said `cross` owned the department.
+- `Cross` was looking for her all over the country.
+- And risk your life to `cross` the beach from hell?
+- Jesus christ on the `cross`, i said i'm listening.
+- So far you've let it `cross` the heart of america.
+- You `cross` the street, leave her on the sidewalk.
+- You must be very careful as you `cross` the patio.
+- As holy `cross` goes on an unanswered 20-point run.
+- Boy, i thought you were about to `cross` the river.
+- But they `cross` over benjamin black star's prints.
+- He wouldn't try a `cross` until he's got the money.
+- In my day, it was simply called the double `cross`.
+- We're waiting for the light to `cross` the highway.
+- Anyone who attempts to `cross` the blockade, please!
+- It seems to me the man is preparing his own `cross`.
+- To `cross`-examine... to... to... what does it mean?
+- You'll be `cross`-trained on all of them eventually.
+- Happened to `cross` paths with "that redfield woman."
+                 

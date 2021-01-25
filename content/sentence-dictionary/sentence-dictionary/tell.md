@@ -1,0 +1,107 @@
+---
+title: "tell in a sentence | tell example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tell"
+---
+- Can i `tell` you more?
+- Can you `tell` me why?
+- Did i `tell` you that?
+- Didn't tom `tell` you?
+- Didn't you `tell` her?
+- Did you `tell` walter?
+- Do not `tell` me that!
+- Don't gotta `tell` me.
+- Don't `tell` me, john.
+- Goddamn it, `tell` me.
+- Going to `tell` ellie?
+- He said not to `tell`.
+- He said to `tell` you.
+- I cannot `tell` a lie.
+- I can `tell` you that.
+- I can `tell` you this.
+- I can't really `tell`.
+- I can't `tell` a soul.
+- I couldn't `tell` you.
+- I'll `tell` him, remo.
+- I'll `tell` my people.
+- I'll `tell` you later.
+- I'll `tell` you, then.
+- I'll `tell` you where!
+- I'll `tell` you yours.
+- I tried to `tell` you.
+- I was gonna `tell` ya.
+- I wouldn't `tell` you.
+- Just `tell` me, jimmy!
+- Just `tell` the truth.
+- Let me `tell` you why.
+- Let's go `tell` paula!
+- No one will `tell` me.
+- No, you can `tell` me.
+- Okay, i'll `tell` her.
+- Only time will `tell`.
+- She didn't `tell` you.
+- Should we `tell` them?
+- Shut up and `tell` me.
+- So do as i `tell` you.
+- So `tell` me about it.
+- So, `tell` me, doctor.
+- Suppose you `tell` me?
+- `Tell` her i'm eating.
+- `Tell` him i love him.
+- `Tell` him i'm coming!
+- `Tell` him i sent you.
+- `Tell` him to sod off.
+- `Tell` him we'll meet.
+- `Tell` him we're busy.
+- `Tell` it to the jews.
+- `Tell` me about brill.
+- `Tell` me about jenny.
+- `Tell` me she's lying.
+- `Tell` me, sweetheart.
+- `Tell` me what it was.
+- `Tell` me who you are.
+- `Tell` me you'll call.
+- `Tell` me you love me.
+- `Tell` mommy i called.
+- `Tell` tatum to hurry.
+- `Tell` that to muskie.
+- `Tell` them the truth.
+- `Tell` you my secrets.
+- `Tell` you what to do.
+- The hell i `tell` you?
+- They didn't `tell` me.
+- Victor, `tell` me why!
+- Wait, don't `tell` me.
+- Well, i'll `tell` him.
+- Well, i'll `tell` you.
+- What can i `tell` you.
+- What can i `tell` you?
+- What did i `tell` you.
+- What did i `tell` you?
+- What do i `tell` them?
+- What do we `tell` 'em?
+- What'd you `tell` him?
+- What'll i `tell` fran?
+- What'll we `tell` 'em?
+- Why did he `tell` you?
+- Why must i `tell` you?
+- Why not `tell` me now?
+- Yes, `tell` us, nancy.
+- You didn't `tell` her!
+- You didn't `tell` her?
+- You don't `tell` them.
+- You had to `tell` him.
+- You have to `tell` me.
+- You should `tell` him.
+- You `tell` him, price.
+- You `tell` me my life?
+- Alright, now `tell` me.
+- `Tell` all of them.
+- `Tell` them i quit.
+- Better `tell` the boss.
+- But `tell` him i would.
+- Did he `tell` you that?
+- Didn't they `tell` you?
+- Did you `tell` anybody?
+                 

@@ -1,0 +1,64 @@
+---
+title: "trash in a sentence | trash example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trash"
+---
+- They're euro- `trash`.
+- What's wrong, `trash`?
+- Taking out the `trash`.
+- It's `trash` now, like mine.
+- Maybe pick up their `trash`?
+- What kinda `trash` talk is that?
+- You threw it in a `trash` barrel?
+- You tight with the d.a., `trash`?
+- Even with gutter `trash` like you.
+- Have so many white `trash` idiots?
+- The mess hall has a `trash` chute.
+- What were you doing in my `trash`?
+- You're just poor white `trash`!
+- We'll take the `trash` chute again.
+- So how did one end up in my `trash`?
+- I used to throw `trash` for the city.
+- Saddle up, boys, that's our `trash` !
+- They check the `trash`, believe me.
+- Look in the `trash` around their hands.
+- Surfer, grunge, hip- hop, euro `trash`?
+- What you want to watch this `trash` for?
+- I would hardly say you look like `trash`.
+- Oh for chrissakes... "white `trash` betty."
+- Uh, ralph lost his retainer in the `trash`.
+- So put your plans of my room in the `trash`.
+- You mean that apocalyptic `trash` you write?
+- By the way, i left some `trash` in your locker.
+- He was white `trash`, they come at two a penny.
+- I'm richer than all this new hollywood `trash`.
+- The city added an extra weekday `trash` pick-up.
+- The `trash` of each one flows down to one below.
+- We're gonna shoot your precious `trash` can mom.
+- Well, i don't notice us hustling `trash`, either.
+- You're just another piece of `trash` in the ocean.
+- You can play anyone in the trailer `trash` spectrum.
+- They gave you `trash` helmets so you couldn't get out.
+- I don't see how that `trash` could possibly concern me.
+- My friends buy me clothes, so i don't look like `trash`.
+- "but i'm gonna go `trash` an airport with captain america.
+- Watching the bitch `trash` my car doesn't count as a date.
+- All i know's that `trash` killed a man with his bare hands.
+- Honey -- i can't find those large- size hefty `trash` bags!
+- That's when i said to myself, - and he was in your `trash`?
+- You're gonna shoot me for standing on your fucking `trash` can?
+- Maybe you could just adios the dishes and empty the `trash`.
+- Well, this magazine was found in your `trash` just last night...
+- The trendy paper lamps, the euro-`trash` shelving unit, am i right?
+- Just because i'm not a vanderbilt, all of a sudden i'm white `trash`?
+- `Trash` the office, make off with the books ... "industrial espionage."
+- Your friends stealing food, going through `trash` behind a supermarket?
+- They're pulling out our children's brains and filling them with `trash`!
+- ...uh, drifting around like the `trash` you are, or were you here workin'?
+- Wasn't that a lot easier than squealing tires and knocking over `trash` cans?
+- T-there wasn't a reason to purposely hurt me -- and you're just poor white `trash`!
+- If you can think of a better reason to `trash` a bathroom, i'd sure like to hear it!
+- Please...this solves nothing...please.... oh, `trash` baby, you're gonna regret this.
+- We're gonna `trash` this guy's life and i keep asking myself if it's really necessary.
+                 

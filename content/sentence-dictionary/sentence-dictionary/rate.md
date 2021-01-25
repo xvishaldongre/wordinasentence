@@ -1,0 +1,107 @@
+---
+title: "rate in a sentence | rate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rate"
+---
+- First `rate`, ain't it?
+- Al diavolo `rate` clock.
+- A steady `rate` all day.
+- We need a higher `rate`.
+- I'll pay our going `rate`.
+- Increase his heart `rate`.
+- You `rate` right up there.
+- You're a first-`rate` rat.
+- Address `rate` of reaction.
+- Her heart `rate` is way up.
+- I don't `rate` that at all.
+- My heart `rate`'s sky high.
+- What's their growth `rate`?
+- Your heart `rate`'s too low.
+- I object to a cut-`rate` one.
+- How would you `rate` this one?
+- Mike, we need a higher `rate`.
+- It has a killer refresh `rate`.
+- What's the `rate` for the swede?
+- You've got to `rate` to get that!
+- You've lived a first-`rate` life.
+- That's the going `rate`, isn't it?
+- Your frame `rate` is unacceptable.
+- Jason: your heart `rate`'s too low.
+- The `rate` is one-thousand dollars.
+- You `rate` very high in sanitation.
+- Heart `rate` and breathing... normal.
+- At this `rate` of increase, i'm sorry.
+- You won't keep growing at this `rate`.
+- How do you `rate` all those privileges?
+- They deserve <u>first-</u> `rate` care.
+- I don't know how i `rate` that, gallagher.
+- We have to increase ontari's heart `rate`.
+- The success `rate`'s a little dodgy, though.
+- Because at this `rate`, that's what's coming.
+- I work at a minimum `rate` of $750.00 a week.
+- At this `rate`, you'll put me out of business.
+- First `rate` hotel, fifty yards up the street.
+- Mom, your heart `rate`'s weak - we lost comms.
+- Skynet begins to learn, at a geometric `rate`.
+- We'll never get there in time, at this `rate`.
+- Well, you've thorough about it, at any `rate`.
+- We are still experiencing a 3% rejection `rate`.
+- What was that about the ss, the `rate`, the ... ?
+- He went away this mornin' when the `rate` dropped.
+- If you miss, listen, you have a first-`rate` mind.
+- Velocity is the time `rate` of change of position.
+- ...you pick the option with the applicable `rate`.
+- Here's the number of my dentist, he's first `rate`.
+- During wartime the national suicide `rate` goes down.
+- Jason: the right heart `rate` could open a door, ben.
+- No signs of pathology in nancy's eeg or pulse `rate`.
+- The `rate` of organic reactions is generally..." shit.
+- I let you have them at cut-`rate` price for 45 minutes.
+- Is that the going `rate` for saving the woman you love?
+- We'll match your `rate` just prior to your... accident.
+- Nine, nine and three quarters -- that's our prime `rate`.
+- Julio took marge i was barely able to grab my `rate` clock.
+- But at the `rate` things are going now... and spock with it.
+- The life forms grew later -- at a wildly accelerated `rate`.
+- Well, at any `rate`, i would like to say goodbye to the girl.
+- At this `rate`, when the grounders get here, what have i done?
+- At this `rate` she doesn't think you'll get school certificate.
+- The `rate` is a dollar per line, a dollar and a half bold face.
+- At any `rate`, i don't believe good work is possible without it.
+- Bruce, at the `rate` you're going, you can't even save yourself.
+- Every year, the death `rate` lags further behind the birth `rate`.
+- How do you expect to get to new york at the `rate` you're going?
+- Let's not screw it up with some shit-ass, third-`rate` burglary.
+- Your motivity `rate` checked out a little slower than last time.
+- My regular daily `rate` -- $200, whether we catch him or not.
+- I can't be sure but the `rate` of decay seems to be accelerating.
+- I've heard over the years you're quite a first-`rate` pilot, dave.
+- The `rate` this is spreading, he'll be lost by the end of the day.
+- "compared to the `rate` of inorganic reactions, doing this a while?
+- I don't imagine the answer's on those second-`rate` shoes, clarice.
+- Now, see, that's funny to me we have to increase ontari's heart `rate`.
+- They wouldn't have torn this country apart over a third-`rate` burglary.
+- They still have the lowest `rate` of cancer of anywhere in the world.
+- You have quite a success `rate` when it comes to traumatized -- yeah.
+- I do have a fabulous `rate` on a cruise ship departing for fiji tomorrow.
+- To be undone by a third-`rate` burglary is a fate of biblical proportions.
+- Apollo, how would you `rate` this last british challenger, henry wilcoxson?
+- At the `rate` he started, he's probably passed two state lines by this time.
+- At any `rate`, it was my darling fiancee's beauty rituals which made us late.
+- Every bit as tough -- and we have a 60 percent drop-out `rate` among the men.
+- Now for a word from our late, beloved mapple founder, a steady `rate` all day.
+- At the `rate` he's going, he'll have a story finished by the end of the summer.
+- The dauntless a first- `rate` ship-of-line, and with it, you can rule the seas.
+- Heart `rate`'s a little high due to anxiety, but otherwise she's nicely relaxed.
+- How many years do you get in this state for giving second-`rate` care to minors?
+- I am the man who might save your life -- give you a bit more life at any `rate`.
+- At the `rate` you two are going, we'll have to leave the country to save our faces.
+- Or holiday -- depending if he's got the brains to get the going `rate` on betrayal.
+- The `rate` has slowed, - figure out what's wrong with it... - whoa, nancy, slow down.
+- Hey, you... everybody in line at the new yorker has to know our `rate` of intercourse?
+- If i activate them now, captain, we will be propelled upward at an unbelievable `rate`.
+- It should be once the crime `rate` like he would ever spend a weekend in santa barbara.
+- I can hardly walk... outside of his time warp he's aging at a vastly acellerated `rate`!
+- There's no swedish hitman of any renown, much less one with a million dollar day `rate`.
+                 

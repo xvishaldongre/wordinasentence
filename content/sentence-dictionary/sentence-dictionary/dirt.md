@@ -1,0 +1,64 @@
+---
+title: "dirt in a sentence | dirt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dirt"
+---
+- `Dirt` is a violation.
+- `Dirt`... well... who?
+- Hello, heap of `dirt`.
+- See, `dirt` isn't bad.
+- You treat me like `dirt`!
+- How's the `dirt` business?
+- I like hearing the `dirt`.
+- She told me all the `dirt`.
+- I'm telling you he's `dirt`.
+- Where the `dirt` is, shelly.
+- Looks like we hit pay-`dirt`.
+- Like i'm one foot in the `dirt`.
+- Securing freedom for the `dirt`.
+- O. i'm still treated like `dirt`.
+- I can't afford `dirt` in this town.
+- I mean this `dirt` is very...dirty.
+- That's not `dirt`...can't be `dirt`..
+- Now his spirit is in the `dirt`.
+- He swings at anything in the `dirt`.
+- I think you just like to eat `dirt`.
+- She was raised on a poor `dirt` farm.
+- I hear there's a little `dirt` way out?
+- I... what's all this `dirt` in the yard?
+- I would have eaten that `dirt` for them.
+- And you'll feed him `dirt` for a lifetime.
+- The tattaglia family's going to eat `dirt`.
+- I'm gonna mingle it with common house `dirt`.
+- I treat you like `dirt` because you are `dirt`.
+- Who knew i�d found `dirt` on your brother, huh?
+- Never figured on having to shoot through `dirt`!
+- Oh, the chronicle would consider it `dirt` cheap.
+- I'm going to make you eat `dirt`, you soap bubble!
+- I was `dirt` poor and useless... but i was honest.
+- They ain't passing out medals for slinging `dirt`.
+- We think you are `dirt`, less than `dirt`, worthless.
+- This is all blue and it has some weird `dirt` color.
+- Pounding down some `dirt` road in the middle of the night.
+- There�s a `dirt` track with a �closed to the public� sign.
+- Tell her she's nothing, tell her she's nobody, just `dirt`?
+- Here's what we do: we humor him, and we make it `dirt` cheap.
+- Tomorrow i could wake up as some `dirt` farmer in bangladesh.
+- On the way to a `dirt` airstrip somewhere, we'd drop supplies.
+- Those mounds are supposed to be made of `dirt` and excretions...
+- This isn't a `dirt` farm like the one you were born on, it's nice.
+- Y'know, even the most beautiful flowers still grow from `dirt`.
+- What the-- ...i'm gonna take his hair and throw it out in the `dirt`.
+- That was way back yonder when the natchez trace was just a `dirt` road.
+- A press agent eats a columnists `dirt` and is expected to call it manna.
+- Soiled with `dirt`, foul; sullen, hostile, forbidding -- as a black day.
+- They're still shoveling `dirt` and my guess is, they're coming up empty.
+- Your hands are filthy... look, there is `dirt` way under this fingernail.
+- Then this girl shows up and starts living in your basement, eat `dirt`!
+- I hear there's a little `dirt` on the collar of a man okay, maggie, time to go.
+- Anybody can clean the surface of an object, but `dirt` can find its way anywhere.
+- Only at bedtime... which i'm moving to playing in the `dirt` won't make time pass faster.
+- You think i'm `dirt`, if i'm `dirt`, you're a lot dirtier, mr. industrial magnate preysing.
+- Leaving only her hand exposed to the temporal flare, i started thinking about `dirt` bikes.
+                 

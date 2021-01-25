@@ -1,0 +1,71 @@
+---
+title: "Adam in a sentence | Adam example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Adam"
+---
+- But my name is `adam`.
+- I'm nina aron, `adam`.
+- We'll be ready `adam`.
+- `Adam`, that's not true!
+- He's upset about `adam`.
+- You're doing it, `adam`.
+- You're an asshole `adam`.
+- I didn't -- <u>`adam`</u>!
+- What did `adam` tell lois?
+- What do you think, `adam`?
+- `Adam` canfield is a crook.
+- Would you `adam` n' eve it.
+- `Adam`, this isn't like you.
+- Let's go talk first, `adam`.
+- Oh, `adam`, don't tease her.
+- We're leaving from `adam`'s.
+- `Adam`, we <u>are</u> in hell.
+- We can make this work, `adam`!
+- What did you wish for, `adam`?
+- You take your vacation, `adam`.
+- `Adam` and eve, meet the serpent.
+- Sorry, the name's `adam` canfield.
+- You'd better get down here `adam`!
+- `Adam`, you had a photo of big foot!
+- I don't know you from `adam`, right?
+- Oh, `adam`, the model looks so good.
+- `Adam`...dumb question, but humor me.
+- I don't know her from fucking `adam`.
+- `Adam`....you should go with dr. aron.
+- ♪ i ain't afraid of no ghost ♪ `adam`!
+- I don't know you from `adam`'s off ox.
+- Oh, `adam`, don't ever leave me alone.
+- God took a rib from `adam` and made eve.
+- `Adam`, your bozman building is a beauty.
+- So, `adam`...where on earth are you from?
+- Can i really believe you this time, `adam`?
+- Did you copy these gravestones right, `adam`?
+- `Adam`...don't forget...don't forget ... merci!
+- I wouldn't let `adam` or ryan see you doing it.
+- `Adam`, i think for you, we should go for "sweet."
+- You got some mighty fucking fine bad timing `adam`.
+- It was when `adam` fell for eve in the garden of eden.
+- Ah, `adam`, you don't know anything about little girls.
+- Dad used to bring home these sparklers to me and `adam`.
+- Well then let's start with `adam` and eve and the snake.
+- Oh, i love you `adam` -- i mean alex -- er, peter -- brian.
+- `Adam` had a five hundred dollar term life insurance policy.
+- Oh, `adam`,that would be wonderful if you could find a girl.
+- Yet another triumph for `adam` and barbara in the afterlife.
+- I have to go, `adam`'s tormenting zoe, i'll talk to you later.
+- `Adam`, i'd like to introduce you to my associate -- mr. brown.
+- It's just that there's less that `adam` and ryan can do anymore.
+- We've got to do something ... you've got to do something `adam`!
+- Must be nice, playing `adam` and eve and i appreciate your support.
+- To him, `adam` is just a threat to the terror he holds over others.
+- His `adam`'s apple keeps jumping up and down whenever he gets excited.
+- Look, i know you don't know me from `adam`, but you've got to trust me.
+- What would you be if you asked `adam` and ryan to run in now and hug you?
+- Ever since `adam` and eve first left the garden, he followed: the serpent.
+- That money's not ours, `adam` -- if we keep it, we'll be breaking the law.
+- I told her that i have no idea what `adam` was talking about in that letter.
+- And if i have to take us down to a cosmic `adam` and eve, clarke, what happened?
+- He didn't have the vision to grasp the potential of `adam`, until it was too late.
+- I've looked, `adam` -- you know i have -- i just heard from him -- he's still hungry.
+                 

@@ -1,0 +1,51 @@
+---
+title: "cocaine in a sentence | cocaine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cocaine"
+---
+- I'm not doing `cocaine`.
+- Do you take `cocaine`, irene?
+- So, mr. marsh used `cocaine`?
+- I don't use `cocaine` anymore.
+- `Cocaine` is a rich man's drug.
+- How often do you use `cocaine`?
+- Like your `cocaine`, i suppose.
+- What do you know about `cocaine`?
+- Miss lawson, do you use `cocaine`?
+- No -- she asked me about `cocaine`.
+- Are we talking about `cocaine` again?
+- Look, clarence, i'm not joe `cocaine`.
+- Did you ever see teresa take `cocaine`?
+- It was filled with water and `cocaine`.
+- Swallow balloons filled with `cocaine`?
+- Did you ever see mr. marsh use `cocaine`?
+- Did you ever see mr. marsh use `cocaine`?
+- I never took `cocaine` or any other drugs.
+- About `cocaine`... and the amount you're doing.
+- White bread asks for `cocaine`, i take his money.
+- Isn't it true that you put the `cocaine` in the bottle?
+- She didn't come back from mexico with `cocaine` on her?
+- We found a high concentration of `cocaine` in his blood.
+- She told me she saw you doing `cocaine` at marsh's house!
+- I believe he wasn't aware that he was ingesting `cocaine`.
+- `Cocaine` is the last thing a man in his condition would want.
+- You don't have to snort `cocaine` at the table all the time!
+- You're a fucking narcotics agent, that was our `cocaine`, you pig!
+- Hey, why don't you just put a "i'm doing `cocaine`" sign on the car.
+- Four unwarranted shootings, witness intimidation, and `cocaine` theft.
+- How do you know it was `cocaine` that miss lawson had in the bathroom?
+- Does that sound like a guy who'd start shoveling `cocaine` up his nose?
+- Dr. mccurdy, what would `cocaine` do to someone in mr. marsh's condition?
+- So, you are wanting to sell the `cocaine` for me in your country, george?
+- The toxicology report says there were high levels of `cocaine` in his blood.
+- We found `cocaine` mixed with water in a nasal spray container on the nightstand.
+- If he were in the midst of making love while under the influence of `cocaine`?
+- We have the ability to change the color, odor, and physical property of `cocaine`.
+- 's report stated that marsh's nasal membranes showed no sign of prior `cocaine` use.
+- This is a grade, one-hundred percent pure colombian `cocaine`, ladies and gentlemen.
+- I opened the bathroom door one day and saw miss lawson pouring `cocaine` out of a vial.
+- If someone didn't know better, would it be easy to mistake the peony root for `cocaine`?
+- Every part, from his ears to his accessory belt, is high-impact, pressure-molded `cocaine`.
+- I want to be the exclusive distributor of obregon brothers `cocaine` for the united states.
+                 

@@ -1,0 +1,99 @@
+---
+title: "ooh in a sentence | ooh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ooh"
+---
+- `Ooh`, a butt-squeeze.
+- `Ooh`, a wedding expo!
+- `Ooh`, i like it, too!
+- `Ooh`, well excuse me.
+- It's ok. `ooh`, purdue.
+- `Ooh`, major mom vibes.
+- `Ooh`, hey, i gotta run.
+- `Ooh`, honey, i'm ready!
+- `Ooh`, i like the image.
+- `Ooh`, is that the book?
+- `Ooh`, bart winked at me.
+- `Ooh`, go to the monitor.
+- `Ooh`, that's a good one!
+- [woman] `ooh`, marvelous.
+- I'd say it suggests `ooh`.
+- `Ooh`, be still, my heart.
+- `Ooh`, super bowl in july!
+- ♪ arena football's ♪ `ooh`!
+- "`ooh`, corporate tax cuts.
+- `Ooh`, i love your handbag.
+- `Ooh`, it's boiling points.
+- `Ooh`, that'll impress 'em.
+- `Ooh`, that's a big number.
+- `Ooh`, got to relieve marge!
+- `Ooh`, she has a dark side."
+- "`ooh`, he has a secret side.
+- `Ooh`, that'll be very daring.
+- I couldn't let you leave `ooh`.
+- `Ooh`, we don't like that term.
+- Then get a load of this: `ooh`.
+- '`ooh` -- careful there, vicar.'
+- Like, `ooh`, is that some copper?
+- Oh, um, that's, um... `ooh`, `ooh`.
+- `Ooh`, that's gonna be a big one.
+- ♪ ♪ `ooh`, you're my best friend.
+- �war, hhh, wo-`ooh`-wo-`ooh`-wo-oh.
+- "dear reader..." `ooh`, that's me.
+- `Ooh`, shoulders, a little knotty.
+- So that our people `ooh`, ink sac.
+- ♪ `ooh`, i might not live ♪ get in.
+- `Ooh`, i've read about this philly.
+- `Ooh`... who's that with you, jimbo?
+- ♪ `ooh`, you're my best friend ♪ no.
+- `Ooh`, are you sure that's not risky?
+- `Ooh`, you hair is so soft and silky.
+- `Ooh`, you're a very perceptive girl.
+- I'll go get her, `ooh`, hot, hot, hot!
+- `Ooh`, i'd like to try out for offred.
+- `Ooh`, i like the sound of that, todd!
+- `Ooh`, i'll think of something, missy.
+- With orlando opening the doors, `ooh`!
+- In your mercy and by your grace, `ooh`.
+- `Ooh`-kay... my plan is just beginning.
+- `Ooh`, `ooh`... to take their people back.
+- `Ooh`, that's a bit of a mess there, abu.
+- `Ooh`, that's a pretty ring you're wearing.
+- I blamed you because my father's dead `ooh`.
+- Mom... - `ooh`... - what's happening to you?
+- Santa claus, giving away free toys, - `ooh`!
+- Just to win a war, `ooh`, you're hydwopwaning.
+- They'll say, "oooh, wah, wah, wah, `ooh`, `ooh`."
+- It was jan, and it was a long time after-- `ooh`.
+- ♪ `ooh`, my little hungry one hungry one ♪ i know.
+- [flies buzzing] because then they... they... `ooh`.
+- `Ooh`, yeah, see, genies don't really have friends.
+- Well... ♪ `ooh`, you gave me your tooth ♪ all right?
+- ♪ `ooh`, you're my best friend ♪ underneath the rope.
+- `Ooh`, i forgot to account for surface irregularities.
+- ♪ `ooh`, you're the best friend ♪ when he was speaking.
+- Remember, if at any time you become a dog, - _ - `ooh`!
+- `Ooh`, you two have gotten into the thanksgiving spirit.
+- ♪ got to get these things one day ♪ `ooh`, a suppository.
+- `Ooh`, yeah...don't know if it's the floor or the skating.
+- What if... is that true, `ooh`, i'm riding in a spaceship.
+- If we need an engineer again, `ooh`... and explain yourself.
+- Listen, i gave him your message... `ooh`, i'm gonna be rich!
+- `Ooh`, i guess i do know something here's looking at you, kid...
+- `Ooh`, i've heard that gets really good about eight episodes in.
+- [raven screaming] ♪ `ooh`-`ooh`, huh ♪ - does somebody want a hug?
+- ♪ `ooh`, you're making me fat now, homer ♪ you're kidding, right?
+- ♪ `ooh`, i'm just burning doin' the neutron dance ♪ for everything.
+- I will grant you the optics on the lair `ooh`, general scroogeyness.
+- ♪ `ooh`, we're sharing some grits ♪ that's not how you spell "results".
+- I'm offering skaikru the chance [coughing] `ooh`, what's this crank for?
+- ♪ `ooh`, you're a mountain man ♪ the best springfield i've ever been in.
+- Just like that, lisa's dream of going to college for three weeks, `ooh`.
+- Whatever's best for your people, the rest of skaikru is safe for now, `ooh`.
+- `Ooh`, sweetie, look, a "flowers of costa rica" not like we have much of a choice.
+- I'll use the key to help you `ooh`, is that the raccoon on saturday morning cartoons?
+- ♪ `ooh`, she's a little runaway ♪ i'm guessing this means you don't have the antidote?
+- `Ooh` `ooh`, tough talk from a scared little girl all wrapped in a pretty grown-up package.
+- `Ooh`, another embarrassment for the teabag, while the chosen one is still well under par.
+                 

@@ -1,0 +1,63 @@
+---
+title: "underground in a sentence | underground example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "underground"
+---
+- `Underground` gas vein.
+- You went `underground`.
+- Under the `underground`?
+- Under the `underground`.
+- But we are `underground`?
+- In an `underground` club?
+- So you went `underground`?
+- We gotta go `underground`.
+- Is this gate `underground`?
+- It's kind of `underground`.
+- Like an `underground` club?
+- They could be `underground`.
+- The party goes `underground`.
+- The `underground` garage one.
+- We kept many things `underground`.
+- Good god, and `underground` missile.
+- We got `underground` cult following.
+- I'll never have to live `underground`.
+- How about those '`underground`' comics?
+- The thing mutates we live `underground`!
+- I'm in a kind of...`underground`...thing.
+- I'm having trouble scanning `underground`.
+- He wants me to live `underground` with him!
+- It's a nuclear-hardened `underground` city.
+- Maybe this thing doesn't work `underground`.
+- The whole world thinks you're `underground`.
+- I should never have let you go `underground`.
+- Meade has 18 `underground` acres of computers.
+- Living in a cave, `underground`, until it mutates.
+- Cause your army's been growing `underground` for what?
+- Right, right, in a big `underground` treasure chamber.
+- You came `underground` when the world was ending above.
+- `Underground` rumor has it they modeled it after you, sir.
+- Junior's `underground` in that coffin you dicks put him in.
+- Nothing, that's the problem--the story's gone `underground`.
+- If you liked notes from `underground`, you'll love the idiot.
+- Thus threatening his `underground` dictatorship or something.
+- This key, it is in an `underground` fortress -what's going on?
+- Victor, please, don't go to the `underground` meeting tonight.
+- We are organized, monsieur, `underground` like everywhere else.
+- It sure as hell can't smell anything `underground`, so i figure...
+- My friends in the `underground` tell me that you have quite a record.
+- In whether they wanted to spend the rest of their lives `underground`.
+- That's local `underground`, where information spreads by word of mouth.
+- What, you think claude hangs out `underground` cause he likes to dance?
+- Well, back in slave times they had a thing called the `underground` railroad.
+- But it's also because i was trapped `underground` and a mill... do you accept?
+- Something about a monster, `underground`, in the catacombs under place denfert.
+- There's a hatch in here that feeds into their `underground` ventilation system.
+- This thing i'm on right now has something to do with `underground` pornography.
+- But what's the use if it's `underground`, or in some funny bank in some funny place?
+- Your boss, number two, i understand that cat's involved in big `underground` drills.
+- Those that didn't leave have been laying dormant `underground` since the last ice age.
+- To the czech mind, any movement, whether political or literary should be `underground`.
+- The rabbit's wife sings at an `underground` toon revue joint called the ink & paint club.
+- In twenty-eighty-two many of the survivors moved their facilities `underground` to escape .
+                 

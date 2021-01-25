@@ -1,0 +1,7 @@
+---
+title: "tinkles in a sentence | tinkles example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tinkles"
+---
+## Unfortunately, we have no example sentences for tinkles                 

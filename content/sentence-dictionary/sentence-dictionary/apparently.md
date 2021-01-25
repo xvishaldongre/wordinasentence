@@ -1,0 +1,107 @@
+---
+title: "apparently in a sentence | apparently example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apparently"
+---
+- `Apparently` it's huge.
+- `Apparently` i did, air.
+- `Apparently` he likes you.
+- Get married, `apparently`.
+- `Apparently` it didn't help.
+- `Apparently` i can disappear.
+- So is my house, `apparently`.
+- `Apparently`, neither can hank.
+- `Apparently`, your sister died.
+- It is `apparently` not working.
+- `Apparently` he has the letters.
+- `Apparently`, he became... ill...
+- `Apparently` he was crazy jealous.
+- `Apparently` she doesn't trust me.
+- `Apparently`, he's there right now.
+- `Apparently` just before her death.
+- That, `apparently`, is the problem.
+- `Apparently`, jake's message clarke.
+- `Apparently` missed his annual bath.
+- `Apparently`, she saw an alien once.
+- `Apparently` they strayed off course.
+- `Apparently`, he was killed instantly.
+- `Apparently` my opinion wasn't needed.
+- `Apparently`, this project is--unique.
+- `Apparently` she was very disappointed.
+- Ha ha... she's very nice, `apparently`.
+- `Apparently`, the chancellor thinks aah!
+- `Apparently` the hostility was all hers.
+- Bell... and `apparently`, so did my mom.
+- `Apparently`, they've seen all our films.
+- It's `apparently` all the rage right now.
+- Who `apparently` spent 5 years with them.
+- `Apparently`, he asked for clarke by name.
+- `Apparently` it's worked with some people.
+- `Apparently`, sir, he's decorated himself.
+- `Apparently` he would so things to her.
+- Fact one: you're a math whiz, `apparently`.
+- `Apparently` one of his claims was relevant.
+- `Apparently` you have a thing for air ducts.
+- Divorce is a very serious sin, `apparently`.
+- You've `apparently` never used your blinkers.
+- `Apparently` dead or alive, nothing's changed.
+- `Apparently` your friend has gone into mexico.
+- Which, `apparently`, you want to remind me of.
+- Waking people she shouldn't have, `apparently`.
+- `Apparently` this doctor was unable to cure you.
+- `Apparently` i'm not as dumb as you thought i am.
+- `Apparently` they brought a couple hookers along.
+- `Apparently` you're to report for further review.
+- `Apparently` he's genuinely interested in science.
+- `Apparently` they were having an affair for years.
+- Oh, `apparently`, people with blood like mine wow.
+- A girl who had `apparently` become his secret love.
+- `Apparently`, the lanterns float, so build weapons.
+- That blue bastard has `apparently` left the planet.
+- `Apparently` he's been ducking him for like a month.
+- `Apparently` it was their fourth attempt at the dnc.
+- Something you `apparently` don't know anything about.
+- `Apparently` you can control this malkovich fellow now.
+- `Apparently` he put two cops in the hospital last night.
+- No... `apparently` they can't tell us what happened yet.
+- `Apparently` the first mrs. delaney was a bit of a stiff.
+- Well, `apparently`, this new self-driving car company aw.
+- `Apparently`, drexl had a big toe stuck in shit like that.
+- `Apparently` pretty high, we just got a new ceo last week.
+- There was `apparently` a fisticuffs with some prostitutes.
+- `Apparently` you think of me only as the leader of a cause.
+- `Apparently`, denver wanted to deal with him instead of you.
+- `Apparently`, the poor sucker got mistaken for george kaplan.
+- Well, `apparently` it was a big mistake to try talking to you.
+- It was `apparently` directed to their wing on air- borne alert.
+- `Apparently` i'm not as cynical about earth's people as you are.
+- `Apparently`, the fallout has created....a subspecies of mutants.
+- `Apparently` they thought i was looking for secrets of some kind.
+- You `apparently` think i'm the dumbest motherfucker in the world!
+- I tried to call, but `apparently` there's something wrong... sara.
+- `Apparently` another company has a similar product in r&d right now.
+- He's `apparently` fallen out of favor with the klingon high command.
+- Well `apparently` lady e was married to this real piece of dog shit.
+- Yeah, but then new evidence came in that `apparently` cleared homer.
+- `Apparently`, some of the less athletic types go nuts for this stuff.
+- Yeah `apparently` it details the exploits of a publisher like myself.
+- Your directive `apparently` doesn't include spying on other cultures.
+- We are located in an `apparently` uniform space with no visible limits.
+- `Apparently` i'm the last to know... kelly van ryan... talk to me artie.
+- `Apparently`, this whole thing's built were you trying to take this off?
+- But life in the brewery was `apparently` not as dull as you pictured it.
+- You accuse people of murder without trial -- `apparently` without irony.
+- But, `apparently` he comes here every year, always follows the same route.
+- `Apparently`, the only performance that'll satisfy you is when i play dead.
+- `Apparently` we're neighbors - my house is two blocks from yours in montreal.
+- `Apparently`, mr. wheeler felt they were too... "ethnic" is the word she used.
+- `Apparently`, some of the girls at school were... [slam] what is wrong, homer?
+- `Apparently` i've overlooked this one piece of it, and i'd like to remedy that.
+- `Apparently` they're refusing to acknowledge signal to return to spacedock, sir.
+- `Apparently`, he sent madame le floch there last year, and she gave birth to twins.
+- `Apparently` he was using some campaign cash that was laundered for us through mexico.
+- `Apparently` taking uzis away from sixth graders isn't as popular as we thought it'd be.
+- That transcendence, whatever that means, `apparently`, clarke had some kind of breakdown.
+- `Apparently` mr. longdale has something he feels he simply must say before you and i speak.
+                 

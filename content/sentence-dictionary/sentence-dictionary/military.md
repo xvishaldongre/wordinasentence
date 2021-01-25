@@ -1,0 +1,106 @@
+---
+title: "military in a sentence | military example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "military"
+---
+- Any `military` victims?
+- A `military` spacecraft?
+- It's a `military` hotel.
+- `Military` targets only.
+- `Military` marching bands.
+- Was it a `military` crash?
+- That's two `military` guys.
+- It's a `military` procedure.
+- Went into the `military` early.
+- Congress cuts, `military` bleeds.
+- He works in a `military` hospital.
+- And a possible `military` alliance.
+- Hunt reported to my `military` aide.
+- A few things about `military` action.
+- I'm not a `military` objective, reese.
+- `Military` installation, garden state.
+- I do so like the `military`, don't you?
+- Oh, so you've had `military` experience?
+- Oh, those are just `military` exercises.
+- But, you do come from a `military` family?
+- Don't you have a kid in `military` school?
+- Eisenhower's `military` industrial complex.
+- Get those `military` servos i've asked for.
+- He was probably in `military` intelligence.
+- He's probably `military`, maybe ex-`military`?
+- That's `military` intelligence... oh, carl !
+- You think he's unfit for `military` service?
+- We've worked up several `military` scenarios.
+- Was a `military` base built within a mountain.
+- He has a brilliant `military` record, i'm sure.
+- Organize a `military` escort to crystal mountain.
+- We're not talking about `military` secrets, john.
+- I was sent as a `military` surgeon to south africa.
+- Major william cage, united states `military` media.
+- That's standard `military` packaging for plastique.
+- We try to remember we're a `military` organization.
+- Why aren't you guys working with the us `military`?
+- Cia and the `military` fucked us on the bay of pigs.
+- I thought we were waiting for your `military` backup.
+- We can't get `military` personnel out for a civilian.
+- I judge `military` matters, captain winthrop, not you.
+- `Military` aide: sir, we tracked the broadcast signal.
+- You're under `military` arrest, it's not gonna happen.
+- I know a guy on the inside with the `military`... what?
+- Would it be possible to use it for `military` purposes?
+- General, i am an officer in the united states `military`.
+- Scientists are always pawns of the `military` -- mistake?
+- The `military` guys are going ape, and they're not alone.
+- They've got morpheus in a `military`-controlled building.
+- You're not one of those guys from the `military`, are you?
+- They're going to be pressing for a `military` solution soon.
+- On repressing their own people or handling the us `military`.
+- I'm familiar with appropriate behavior at a `military` parley.
+- I sent telegrams, i guess the `military` traffic held them up.
+- A covert `military` operation riddled with civilian... ...noon.
+- Now, what could he have to do with a `military` scientist, huh?
+- Tank, i need a pilot program for a `military` m-109 helicopter.
+- According to `military` intelligence, it'll be random and light.
+- Yeah, but killian built that think tank on `military` contracts.
+- List of people in all `military` special programs.... left behind.
+- So then she could teach me how to be this great `military` leader.
+- Yeah, i need a list, people in `military` special pro... hello...?
+- ...our original sponsor had no stomach for `military` applications.
+- The voice you're about to hear belongs to china's `military` chief.
+- There must be something under the ground here....maybe....`military`.
+- Not unless you could get me into the `military` academy at anchorhead.
+- Says to me that he don't want nothin' to do with no `military` career.
+- There was supposed to be 13. a `military` base built within a mountain.
+- The voice you're about to hear belongs to the chinese `military` chief.
+- I appreciate your assistance, m. but this is now a `military` operation.
+- I know, i know... come on, mother, that's just the `military` mentality.
+- I've seen that it's inhabited by tribes fiercer than egypt's `military`.
+- We might be capturing some `military` programs soon... that interest you?
+- If it's no `military` secret, how can a sub run on a microscopic particle?
+- The same government who ruined our backyard and bankrupted our `military`.
+- We have to have air strikes on their `military` and entertainment centers.
+- Yeah, well he just turned up in new jersey at the `military` command post.
+- He's 31, no priors, and he's been working for the `military` for ten years.
+- I'm trying to cut the `military` budget for the first time in thirty years.
+- Some, `military`... special program, oklahoma somewhere... where is he now?
+- Your station won't have any easier time contacting the `military` than i did.
+- A man was being arrested by the `military` police; probably an urban guerrilla.
+- ...got promoted to two stars, but he was never `military`, you know, always cia.
+- Sexual politics, racism, the environment, the `military` industrial... like what?
+- They're positioning their `military` to blow the alien vessel right out of the sky.
+- They are positioning their `military` to blow the alien vessel right out of the sky.
+- We're linked to a network of `military` and civilian satellites and ground stations.
+- There's got to be some mistake here -- a four hundred year old `military` spacecraft?
+- But the man is guilty of sedition and subject to `military` justice and beyond pardon.
+- `Military` special programs... <u>programs</u>... no, i am not shouting at you, i'm...
+- This operation is under `military` jurisdiction and hicks is next in chain of command.
+- I expect that upon completion of my `military` service i will be joinin' said ministry.
+- I can tell you that we're not in the `military` and that we intend no harm to the whales.
+- In three years cyberdyne will become the largest supplier of `military` computer systems.
+- Munro is expecting him to be the good soldier in defense of british `military` interests.
+- When we were young men in the `military`, your father and i were recruited for a project.
+- But no ordinary criminal would have the extensive `military` and medical expertise you do.
+- Where you were contracted by the u.s. army to hunt down elite iraqi `military` commanders.
+- Starfleet intelligence was only able to provide a partial account of his `military` record.
+                 

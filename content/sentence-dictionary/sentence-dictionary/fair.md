@@ -1,0 +1,107 @@
+---
+title: "fair in a sentence | fair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fair"
+---
+- Is that `fair` enough?
+- It's not `fair` to us.
+- It wouldn't be `fair`.
+- Tis a `fair` question.
+- It doesn't seem `fair`.
+- It's not `fair`, buddy.
+- That don't seem `fair`.
+- She's `fair` i love.
+- I'm trying to be `fair`.
+- It's not `fair` on them.
+- It's only `fair` that...
+- That wouldn't be `fair`.
+- Turnabout's `fair` play.
+- Well, life's not `fair`.
+- You are `fair` and just.
+- A firm, `fair` signature.
+- I do not think it `fair`.
+- Jonah, this isn't `fair`.
+- Life isn't always `fair`.
+- No `fair`, i'm not armed.
+- So young and so `fair`...
+- Went to the state `fair`.
+- What say you, `fair` one?
+- Doesn't look quite `fair`.
+- In `fair` weather no less.
+- It ain't half `fair`, man!
+- It ain't half `fair`, man.
+- Play `fair` with them, ed.
+- So i'll get a `fair` shot?
+- Sounds like a `fair` swap.
+- Wait, this isn't `fair`...
+- You've been `fair` too.
+- `Fair` enough for the shit.
+- He's hard, but he's `fair`.
+- I think that's very `fair`.
+- Look... hey, `fair` enough.
+- Will she be dark or `fair`?
+- Be `fair`, mister president.
+- But father, it's not `fair`.
+- County `fair` or state `fair`?
+- I ask you -- is that `fair`?
+- Subscribe to vaniety `fair`.
+- That's `fair` enough, jabez.
+- This isn't `fair`, you know.
+- All's `fair` in love and w...
+- `Fair` warning and last call.
+- Is she `fair`, this princess?
+- It sure isn't the fun-`fair`.
+- It wouldn't be `fair` to her.
+- Do they pay them `fair` wages?
+- I bought it `fair` and square.
+- Think me `fair`, do you, jack?
+- Well, who says life is `fair`?
+- You're not being `fair` to me.
+- You're not bein' quite `fair`.
+- I can explain... `fair` enough.
+- I don't think it's `fair`, man.
+- Sweet little town, `fair` oaks.
+- Well, that ain't `fair` to her.
+- In a `fair` fight, i'd kill you.
+- No, but it makes a `fair` fight.
+- The severance package is `fair`.
+- We got to give it a `fair` shot.
+- What's there to be `fair` about?
+- All's `fair` in love and war?
+- Lewis won the science `fair`.
+- It wouldn't be `fair` to the dog.
+- Oh, you know, `fair` to middling.
+- Seemed like a `fair` bonus to me.
+- I haven't been very `fair` to you.
+- It's not `fair` to let him suffer.
+- I want to be `fair`-minded, nicky.
+- I want to be poisonous but `fair`.
+- Your honor, that's not `fair` -- !
+- How can you be `fair` with animals?
+- I hate this place; it isn't `fair`.
+- It wouldn't be `fair` to elizabeth.
+- Seems only `fair`, don't you think?
+- The disappointed look isn't `fair`.
+- What if we paid you a `fair` price?
+- Your `fair` smile be thanks enough.
+- All is `fair` in "heaven," ted-baby.
+- How do you like our `fair` city?
+- But i'd say you've been very `fair`.
+- I haven't been being `fair` to carl.
+- I've never been given a `fair` shot.
+- Leo, goddammit... this isn't `fair`!
+- There is no `fair` in turkey, billy.
+- Yes, that's eminently `fair` of you.
+- "his play is always `fair` and just."
+- How's that for fucking savoir `fair`!
+- I'll take my chances he'll be `fair`.
+- We all expect the world to be `fair`.
+- I don't think you're being `fair`, sir.
+- I just don't think you're being `fair`.
+- Now he's got them to cancel the `fair`.
+- It isn't `fair`... good luck, david.
+- `Fair` enough, i'll take it to my place.
+- Gee -- that `fair` -- all right, daniel.
+- It's not `fair` to bargain with you now.
+                 

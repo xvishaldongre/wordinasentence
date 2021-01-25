@@ -1,0 +1,56 @@
+---
+title: "mental in a sentence | mental example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mental"
+---
+- The `mental` hospital.
+- Don't get `mental`, man.
+- In the `mental` hospital.
+- Take some `mental` notes.
+- My wife is a `mental` case.
+- This is a `mental` decision.
+- I'm sorry... a `mental` case?
+- It's all `mental` masturbation.
+- `Mental` illness is heriditary.
+- It's more like a `mental` block.
+- Are you going completely `mental`?
+- He's in a `mental` institution....
+- I'm here from a `mental` hospital.
+- You belong in a `mental` hospital.
+- Have you ever had any `mental` illness?
+- You never mentioned his `mental` state.
+- Some is `mental`... look for a ph scale.
+- Is it a physical thing, or a `mental` thing?
+- They put him through severe `mental` stress.
+- I ain't interested in his `mental` condition.
+- Nobody knows about your `mental` retardation.
+- Paul, cancel your `mental` appointments, baby.
+- Try to build a `mental` picture of the script.
+- Look, we can put you in a `mental` institution.
+- We've noticed your people's `mental` discipline.
+- Scavenging at the mall for the `mental` patients.
+- Supposedly, he was born in a `mental` institution.
+- Physical, `mental` prowess you've never dreamed of.
+- He didn't know you had been in a `mental` institution.
+- The other is in a private `mental` hospital in denver.
+- I just had a `mental` picture of... what's wrong with you?
+- At st. thomas, it's called the institute for `mental` therapy.
+- Cabbie had no criminal record, no history of `mental` illness.
+- He shows up for a battle of wits with a `mental` butter knife.
+- Is it true that your mother resides in a `mental` institution?
+- Kind of an exploration of the `mental` psyche of its mythology.
+- We used the distinctive cover as a sort of `mental` flash card.
+- Not even from some `mental` illness, as the prosecution asserts?
+- I've never encountered a species with such `mental` discipline...
+- Since we learned about `mental` illness, paranoia, schizophrenia.
+- I know you're playing `mental` games with me, you have one minute.
+- If you wish to survive you need to cultivate a strong `mental` attitude.
+- It said you killed the guy in minnesota and were in a `mental` hospital.
+- Suffered a complete `mental` breakdown, during - get this - during an exorcism.
+- Dentonvile will run forever now that his interest has embraced `mental` hygiene.
+- So we kill someone famous and if we are caught, we are sent to `mental` hospital.
+- Mickey and mallory were deemed competent in a `mental` examination before their trial.
+- ...so we kill someone famous and if we are caught, we are sent to `mental` hospital...
+- You know lounds's enlightened me on one thing: your confinement in the `mental` hospital.
+                 

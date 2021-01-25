@@ -1,0 +1,107 @@
+---
+title: "Marcus in a sentence | Marcus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Marcus"
+---
+- But `marcus` denied it?
+- Call donovan, `marcus`.
+- Read `marcus` aurelius.
+- How about you, `marcus`?
+- I want to save `marcus`.
+- `Marcus`, oh, thank god.
+- Where's `marcus` now?
+- Do you believe, `marcus`?
+- `Marcus`, open your eyes.
+- She's no whore, `marcus`.
+- What happens to `marcus`?
+- `Marcus`, `marcus`, wake up.
+- `Marcus`, they're staring.
+- `Marcus` aurelius has died.
+- Just take me home, `marcus`.
+- `Marcus`... - guys, come on.
+- `Marcus`... not quite right.
+- My partner's `marcus` welby.
+- Thanks to `marcus` aurelius.
+- You remember dr. `marcus`...
+- `Marcus`, get hold of sallah.
+- `Marcus`, what are you doing?
+- `Marcus` would agree with me.
+- `Marcus` has 10 minutes, tops.
+- Would that `marcus` had lived.
+- Dr. `marcus`, it's your planet.
+- God will forgive you, `marcus`.
+- `Marcus`, let me stop the pain.
+- You're going out with `marcus`.
+- `Marcus`, search the damn woods.
+- `Marcus`, you shouldn't be here.
+- I'm josephine sarah `marcus`.
+- `Marcus` is the diplomat, not me.
+- They tried to kill her, `marcus`.
+- It's just that `marcus` trusts me.
+- It's `marcus`, love, only for you.
+- `Marcus`, there's something wrong.
+- Please, `marcus`, i'm begging you.
+- Well, does `marcus` have an alibi?
+- What happened to `marcus`, sallah?
+- You took away my choice, `marcus`.
+- Don't put `marcus` with the others.
+- And `marcus` is prepped for surgery.
+- ♪ ah-hoo ♪ `marcus`, `marcus`, wake up.
+- As a fellow guardsman... `marcus`, no!
+- I had to put `marcus` on twelve young.
+- Thank you, `marcus` of the sky people.
+- Even you can't be that naive, `marcus`.
+- I'm sorry about the election, `marcus`.
+- I'm sorry, `marcus`, but that's a fact.
+- `Marcus`, i'm afraid we're out of time.
+- `Marcus`, i... we've got two survivors.
+- `Marcus` said you had another headache.
+- Your mother's inspired today, `marcus`.
+- Let me tell you how this ends, `marcus`.
+- How's the ransom account going, `marcus`?
+- If i leave the inner door open, `marcus`?
+- I helped them create a host for `marcus`.
+- `Marcus` -- i've seen this window before.
+- `Marcus` kane to the chancellor's office.
+- This is not how our story ends, `marcus`.
+- You weren't elected chancellor, `marcus`.
+- I couldn't see past getting `marcus` back.
+- And `marcus` was the only one i never have.
+- [beep] `marcus`, you don't need redemption.
+- By keeping essential medicine from `marcus`.
+- Like `marcus` said... we need to consider it.
+- `Marcus`, he could be leading you into a trap.
+- Raven, if we don't do this, `marcus` dies, too.
+- `Marcus` kane, a couple of decades on ice, what?
+- If you didn't discuss my condition with `marcus`.
+- Indra, meet `marcus` kane, and what have we here?
+- We've got to get to `marcus` before the nazis do!
+- Ok. you didn't make that decision alone, `marcus`.
+- `Marcus` is taking him and the mother to maternity.
+- : `marcus` kane, report to the chancellor's office.
+- `Marcus`...you'll write something better next time!
+- `Marcus` -- you remember what the grail tablet said.
+- No offense, `marcus`, but i'm keeping the job woods?
+- I was afraid to go to `marcus` bottom because of him.
+- `Marcus`, we really need to get you to the stretcher.
+- You and me... we stood by blodreina `marcus`, please.
+- All we need now is the second coming of `marcus` kane.
+- If everyone's gonna make it, so... `marcus` is the key.
+- Instead of paying them more, `marcus`, can you hear me?
+- I show them how to make nightblood, they save `marcus`.
+- You know `marcus` -- he got lost once in his own museum!
+- I'm more of a mounds guy, i don't have customers, `marcus`.
+- Dad asked him to wipe one of the prisoners, `marcus`, please.
+- Just not the version of history we like she was shot, `marcus`.
+- Now report to the senate, master galen: what is `marcus`' state?
+- I also agreed with what you said today about `marcus`'s story.
+- Only 12 doughnuts for three cops... well, there's no way `marcus`.
+- But as i haven't got any spit... care to wet your whistle, `marcus`?
+- Do you expect `marcus` to be well enough by morning for an audience?
+- On his death bed i promised `marcus` i would complete our work here.
+- There's a war council meeting happening tonight, they save `marcus`.
+- Uncle `marcus` needs to eat, too, hmm, that isn't gonna work, dingus.
+- Where's dr. `marcus` -- <u>we were still there</u>, you dumb bastard!
+- Carol `marcus` -- it might help my analysis if i knew what genesis was.
+                 

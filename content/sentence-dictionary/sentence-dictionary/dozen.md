@@ -1,0 +1,86 @@
+---
+title: "dozen in a sentence | dozen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dozen"
+---
+- He's seen a `dozen` now.
+- Another `dozen` out back.
+- One `dozen` bolt cutters!
+- Just the `dozen` hairnets!
+- This `dozen` is for mickey.
+- I'll take a `dozen` of them.
+- A `dozen` panels are missing.
+- Must be halfa `dozen` newmeat.
+- I buy my shirts by the `dozen`.
+- I've killed you a `dozen` times.
+- "one fryer and two-`dozen` eggs?"
+- You've done that a `dozen` times.
+- We have about a `dozen` survivors.
+- Bankrolls half a `dozen` charities.
+- Counted at least a `dozen` runners.
+- A `dozen` liners leaving the harbor.
+- We've been over this a `dozen` times.
+- He could have killed me a `dozen` times.
+- I could give you a `dozen` good reasons.
+- He said he has to find a perfect `dozen`.
+- Here, i'll take a `dozen` of those things.
+- It was half-full -- about a `dozen` or so.
+- I had to kill a `dozen` cubans to get them.
+- Happens a `dozen` times a day at the office.
+- Probably half a `dozen` traffic convictions.
+- We sell a `dozen` a day in this price range.
+- I know at least a `dozen` ways to get horses.
+- I need a `dozen` volunteers for a week's work.
+- I signed a `dozen` a those aggi-culture bills!
+- You passed up a `dozen` chances to arrest her.
+- I've shown more patience than a `dozen` saints!
+- Gotta admit, you guys are - two in four `dozen`.
+- There must be two `dozen` windows on that thing.
+- Tomorrow i bet you sell a half-`dozen` policies.
+- I thought you said there'd only be a `dozen` eggs.
+- We've run it through the computer a `dozen` times.
+- Whadda you gonna do with one `dozen` bolt cutters?
+- We had about a `dozen` wets come over just upriver.
+- She has sent half-a-`dozen` letters to you in dublin.
+- I've got about a half `dozen`...i'm going to tag them.
+- There are more than a `dozen` at-risk plants we fight.
+- Now i must reboot and type a `dozen` fucking passwords.
+- They moved here from the city about a `dozen` years ago.
+- Yeah, just like the half `dozen` guys you screwed today.
+- We have a `dozen` concussive just hanging out in my yard?
+- I'm sure there's a `dozen` teachers better than this clown.
+- Frozen, they're six-thirty a `dozen` in the three pound box.
+- We told at least a `dozen` others, where am i gonna go, kane?
+- You could've bought a `dozen` farms with the money we've stolen.
+- We got eggs, water balloons, and a `dozen` rolls of toilet paper.
+- I have at least two `dozen` gambling and bookmaking pinches on me.
+- Enough to go around...i'd say about a `dozen` apiece...mount 'em up!
+- There's a `dozen` hardcore believers i just wanted to say... come on.
+- You broke a `dozen` training rules back there -- before i lost count.
+- Maurice and a `dozen` other guys coulda bled you till you had nothing.
+- You've come along a `dozen` times, stephen, give your brother a chance.
+- That night he went out half a `dozen` times with the metal suitcase.
+- Lord cornwallis knows more about war than i could in a `dozen` lifetimes.
+- What are you gonna do with a half-`dozen` guns and a few sticks of nitro?
+- ...while carruthers and a `dozen` others lie dying, you debate semantics.
+- You got twelve- turkeys, two `dozen` pork roasts and twenty legs of lamb.
+- Like we don't have enough to worry about in a `dozen` dirtwater countries.
+- I'd walk home with a `dozen` terry malloys if i thought they could help me.
+- Over the years we�re talking about a `dozen` or so execution-type killings.
+- Colonel richards here has had a `dozen` agents on these cases for over a year.
+- I'll get eyescanned a `dozen` times before i get within ten miles of precrime.
+- Nicky was questioned in two `dozen` murders, but they always had to let him go.
+- She will probably appear with a `dozen` excuses and you will forgive her anyway.
+- I could get you a `dozen` assignments tomorrow... fashion, portraits -- for what?
+- This here is ratso rizzo and i... few `dozen` cooties won't kill me, don't guess.
+- Christ, there's almost a `dozen` domestic disturbance complaints on these two.
+- A `dozen` press agents working overtime can do terrible things to the human spirit.
+- No biggie, we've been through it a `dozen` times, i just jab you with the glucogen.
+- Oh, mom �� i'm chairman of the eats committee and we only need a couple of `dozen`.
+- He ran half a `dozen` men's clubs in baltimore before he skipped town on a bad debt.
+- While you're at it, i'll take ten `dozen` of those puppies with the springy heads.
+- We have already captured a `dozen` incendiaries, convicts, released just two days ago.
+- Well, come on, that's half a `dozen` armed men... you're not going to use it, are you?
+- Do you realize that a creature like this could lay as many as a `dozen` eggs at a time!
+                 

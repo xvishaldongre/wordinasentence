@@ -1,0 +1,65 @@
+---
+title: "landed in a sentence | landed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "landed"
+---
+- Bald eagle has `landed`.
+- She `landed` on her feet.
+- Final target has `landed`.
+- You `landed` on candyland!
+- `Landed` on the moon in '69.
+- We `landed` with a thousand.
+- Since the moment we `landed`.
+- It must have soft `landed`...!
+- The space shuttle has `landed`!
+- Well... we `landed` in the snow.
+- Oh, i haven't `landed` on it yet.
+- Right where we `landed` our boat.
+- They just `landed` in the desert.
+- We `landed` with that number, too.
+- Maybe -- it `landed` in the bushes.
+- We never should have `landed` here.
+- We've been at war since we `landed`.
+- When the plane `landed` he was dead.
+- Your ship `landed` in our territory.
+- Lindbergh had just `landed` in paris.
+- This is close to where they `landed`.
+- This is close to where they `landed`.
+- Flopping around like a `landed` trout.
+- We want to know why they all `landed`.
+- "it just `landed` on the wrong planet."
+- We been watchin' you since you `landed`.
+- We `landed` in someone else's home, yum.
+- And four times that many since we `landed`.
+- For our lives since the moment we `landed`.
+- All 13 of us had the blood when we `landed`.
+- He claimed to know where the money `landed`.
+- What `landed` you this job, pushing "pamcakes"?
+- Does it look to you like anything `landed` here?
+- My uncle george `landed` on the beach at normandy.
+- A jet engine fell on my house... `landed` on my bed.
+- If we had `landed`, we all would have been awakened.
+- That ship just `landed` here -- crashed like we did.
+- We know they've `landed`, but communicatons are down.
+- Goodbye please take us to the beach where we `landed`.
+- We know they've `landed`, but communications are down.
+- The walls have ears, we `landed` with that number, too.
+- You wouldn't have `landed` a punch if i didn't let you.
+- I `landed` here and i've never had a day of regret since.
+- Yes, but after we `landed` in their valley, make you fly.
+- The mexican police would arrest you as soon as it `landed`.
+- Lincoln, i don't know what happened between you two, has `landed`.
+- When i first `landed` on the earth, i think i know how to stop him.
+- A small rebel force has penetrated the shield and `landed` on endor.
+- But since you're the one that `landed` in jail what's that make you?
+- If something `landed` there, there would be a big scar in the ground.
+- I `landed` in paris and fell in love before i could claim my baggage.
+- It was always there to greet us with outstretched arms when we `landed`.
+- Could be--or a rotten branch or a mountain lion could have `landed` on it.
+- Everyone, i have two enormously sad things since we `landed` on the ground.
+- The only chunk that ever `landed` on earth disappeared a couple of years ago.
+- Then i used one when a grenade `landed` in my foxhole in sicily, it was a dud.
+- Because he's spent every single minute since we `landed` i'm not doing this with you.
+- Sensors-- camera in the-- he pulled back his arms and blam, i `landed` right on the floor.
+                 

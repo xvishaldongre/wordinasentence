@@ -1,0 +1,73 @@
+---
+title: "technology in a sentence | technology example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "technology"
+---
+- This is urm `technology`.
+- This is lost `technology`.
+- The `technology` is brand new.
+- Our `technology`, our medicine.
+- `Technology` in the wilderness.
+- Reagan's star wars `technology`?
+- `Technology`, apparatus, method.
+- It's nano�`technology`, isn't it?
+- I'm not 'out to get' `technology`.
+- Is offering advanced `technology`.
+- To pursue careers in `technology`.
+- We traffic in stolen `technology`.
+- Who understand `technology` again.
+- A `technology` that self destructs.
+- Of autonomous vehicle `technology`.
+- Falls instead by their `technology`.
+- Relax, let `technology` do the work.
+- Let my people look at the `technology`.
+- Dna `technology` has not been my friend.
+- Hibernation `technology` is proprietary.
+- We survive because we have `technology`.
+- He traffics in black market `technology`.
+- There's only so much `technology` can do.
+- Searching for it in scavenged `technology`.
+- Well, `technology` is changing so fast, no.
+- The `technology` that clarke carries, listen.
+- `Technology` in the wilderness; not too pretty.
+- Maybe their whole `technology` is based on that.
+- All this `technology` and what good has it done?!
+- That's right, none of that unreliable `technology`.
+- It's the adapted `technology` of the berserker body.
+- These buses are bursting with american `technology`.
+- You dance rings around me with your new `technology`.
+- The planet's surface is covered with borg `technology`.
+- I'm gonna take your `technology`, and i'm gonna break you.
+- It's a classic case of `technology` in search of an artist.
+- Thanks to the miracle of nsa grid-`technology` ... -- ooops!
+- These are the latest word in android replicant `technology`.
+- You have to remember these people have rejected `technology`.
+- Using some sort of machine or... or experimental `technology`.
+- Gus, it seems we are talking state-of-the-art `technology` here.
+- I wanted... about the importance of `technology`-based learning?
+- God creates man, man creates `technology`, `technology` creates god.
+- What about the reshaping of the human body by modern `technology`?
+- With the `technology` you have here, maya says he's in quarantine.
+- But it's all urm's `technology` so small should've been left alone.
+- With all this `technology` you don't even have to show up for work.
+- This is the newest `technology` approved for general implementation.
+- Mobile `technology` is the new fix for these niggaz, i'm tellin' you.
+- He's adapted his freezing `technology` to reverse mcgregor's syndrome.
+- All the `technology` behind all of these black site prisons is zhang's.
+- Even on earth `technology` has always aspired to a condition of nature.
+- The more `technology` we buy into, the easier it is keeping tabs on us.
+- There's extensive use of this `technology`, know as "ammonia chemistry."
+- Ultimately their motives may be as incomprehensible as their `technology`.
+- That the `technology` was developed for the feds, to replace the body wire.
+- We got the use of all sorts of `technology` from all sorts of other planets.
+- All i want is a hug from my mommy searching for it in scavenged `technology`.
+- Based on science, `technology`, you crossed the border into trikru land, whoa!
+- If you're out there... that their sleek, disruptive `technology` put you here.
+- The necessary `technology` to bond this type of metal has never been invented.
+- The problem must lie in the interface between starfleet and borg `technology`.
+- ... we're prisoners, mr. gardiner - we're prisoners of tubes and `technology`.
+- We have the planet and they have the `technology` -- a `technology` we can't duplicate.
+- Just... to beat them, we'll need our `technology` it's a cockroach playing the violin.
+- The new `technology` permits us to do exciting things with interactive erotic software.
+                 

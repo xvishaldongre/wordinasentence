@@ -1,0 +1,66 @@
+---
+title: "kelly in a sentence | kelly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kelly"
+---
+- Yes, it does, `kelly`.
+- Even `kelly` thinks so.
+- How you doing, `kelly`?
+- I have to find `kelly`!
+- `Kelly`, get over here.
+- `Kelly`'s next, gloria.
+- That's murder, `kelly`.
+- `Kelly` wouldn't do that.
+- Disciple `kelly`, the door.
+- I need you on this `kelly`.
+- The other girl, `kelly`.
+- Got a paper of kurt `kelly`'s.
+- I don't even like "`kelly`'s."
+- `Kelly`, meet my friend paden.
+- Ahhh, ahhh... balance, `kelly`.
+- Listen, `kelly` skipped school.
+- No, `kelly`, i don't want to...
+- What if i tranq him `kelly`?
+- You can't stay, `kelly`, that's it.
+- I leave my room, and there's `kelly`.
+- I've been a cop for a while, `kelly`.
+- Listen, `kelly`, i'm counting on you.
+- That's `kelly`, my so-called partner.
+- The man who does stuck me with `kelly`.
+- He didn't have to kill himself, `kelly`.
+- I have friends now... you, `kelly`, sam.
+- They're convinced `kelly` whacked suzie.
+- It's a ketch `kelly` and i had chartered.
+- His name is `kelly` and he's a police dog.
+- `Kelly`, get to work on those new uniforms.
+- The guy was history when he killed `kelly`.
+- `Kelly` was supposed to be framed, not killed.
+- I gotta go meet `kelly` for a drink downstairs.
+- `Kelly`, could you look after sean for a while?
+- `Kelly` is designing new uniforms for next week.
+- I'll tell you why we're not going to "`kelly`'s."
+- Principal `kelly`'s about to make an announcement.
+- Marty, that's louise `kelly`, inna back seat there.
+- But it's not like `kelly` can't take care of herself.
+- You're saying that `kelly` was raped by sam lombardo.
+- You don't want `kelly` to be next, then take my advice.
+- Dr. juttson, please take `kelly` back to camp right away.
+- Well, she out did herself today... let's hit "`kelly`'s."
+- A dress, elegant but sexy, something grace `kelly` would wear.
+- `Kelly`, i want you to close and lock all the downstairs windows.
+- It started <u>before</u> you, `kelly`, i never would've-- <u>you</u>?
+- Suzie's poor, but why would `kelly` have to steal from her own mother?
+- I told `kelly` van ryan she was under arrest for conspiracy and murder.
+- Apparently i'm the last to know... `kelly` van ryan... talk to me artie.
+- But this hurt... like, he was built... you know... that's okay, `kelly`.
+- You really think sam and `kelly` are gonna give you a third of the money?
+- This time john wayne does not walk off into the sunset with grace `kelly`.
+- It's where `kelly` van ryan went when her morn fished her out of the swamp.
+- But what if they find out... god, they'd put you in the gas chamber... `kelly`...
+- Camus' facel vega, or nathaniel nest's station wagon, grace `kelly`'s rover 3500.
+- How do you think mr. `kelly` would react to a son with a limp wrist with a pulse?
+- We had a missing persons on `kelly` van ryan for two weeks... maybe a year ago...
+- Dan `kelly`, in the district attorney's office, will probably help us out, quietly.
+- Morgan, i'm not goin' to "`kelly`'s roast beef" just cause you like the take-out girl.
+                 

@@ -1,0 +1,107 @@
+---
+title: "picture in a sentence | picture example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "picture"
+---
+- Get a quick `picture`.
+- I hate that `picture`.
+- It's just a `picture`.
+- Let's get a `picture`.
+- Look at the `picture`.
+- `Picture`, mr. saavik.
+- Pretty as a `picture`.
+- She wants a `picture`.
+-  he's got my `picture`!
+- I got a `picture` here.
+- It's a space `picture`.
+- Lisa, take a `picture`.
+- `Picture`'s a phoney...
+- She's in the `picture`.
+- Take the `picture` out.
+- The `picture` was fine!
+- Don't take my `picture`!
+- Get the `picture`, lois?
+- He uh, sold a `picture`.
+- I saw a `picture` of it.
+- It's just a b `picture`.
+- That `picture` of yours.
+- You took this `picture`?
+- Can i have the `picture`?
+- Did they get a `picture`?
+- I don't want a `picture`.
+- I have no next `picture`.
+- I saw a `picture` of you.
+- Isn't that her `picture`?
+- Uh, wrong `picture` tony.
+- Can i take your `picture`?
+- I have her `picture` here.
+- `Picture`... an acrobat...
+- `Picture` 'ball of fire.'"
+- So don't show a `picture`.
+- That was a fine `picture`!
+- We'll need your `picture`.
+- You tore up her `picture`.
+- Did you see that `picture`?
+- Here's the after `picture`.
+- Is this a `picture` of him?
+- It's a goddamn b `picture`!
+- Look at a `picture` for me.
+- The `picture` looks blurry.
+- We got a `picture`, though.
+- What happened to `picture`?
+- When you took my `picture`.
+- Where's the `picture` gone?
+- You don't need a `picture`.
+- How'd you get the `picture`?
+- I'm chasing `picture` books.
+- That's the before `picture`.
+- The first `picture` is this.
+- The jimmy stewart `picture`?
+- This is <u>my</u> `picture`.
+- Alright, i get the `picture`.
+- Did you get a good `picture`?
+- How do you have my `picture`?
+- It's only one `picture` deal.
+- I want some `picture` frames.
+- Just like taking a `picture`.
+- `Picture`-phone, fax, beeper.
+- Why can't i show a `picture`?
+- Wish i had a `picture` of it.
+- Anyway, you get the `picture`.
+- Course, not in that `picture`.
+- Let me get the `picture` here.
+- Let me show you his `picture`.
+- What's this... this `picture`?
+- You can tell by the `picture`.
+- Did you know the `picture` hey.
+- Got some nice `picture` frames.
+- I come from a `picture` family.
+- I had my son's `picture` in it.
+- It's not even a good `picture`.
+- Here's the `picture` of my wife.
+- I'd like to take your `picture`.
+- I found a `picture` of his wife.
+- I just found a `picture` of you.
+- Isn't this a fabulous `picture`?
+- It's not a very clear `picture`.
+- It's the frame on the `picture`.
+- I've seen this `picture` before.
+- Not a single `picture` of artie.
+- Peter-- you took this `picture`?
+-  where did you get my `picture`?
+- You don't see the big `picture`.
+- Guy paints a beautiful `picture`.
+- I hate having my `picture` taken.
+- It's a `picture` of the creature.
+- A doctored `picture` in the paper.
+- David produced her last `picture`.
+- Get a good `picture` in your mind.
+- I do see the damn "big `picture`."
+- It's a beautiful `picture` of her.
+- Take a `picture`, it lasts longer.
+- That is a `picture`, nothing more.
+- That's a `picture` of me in japan.
+- We'll make our greatest `picture`.
+- What a `picture` -- and what else?
+                 

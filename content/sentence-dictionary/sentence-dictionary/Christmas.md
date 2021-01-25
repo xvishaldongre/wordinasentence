@@ -1,0 +1,107 @@
+---
+title: "Christmas in a sentence | Christmas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Christmas"
+---
+- Merry `christmas` eve.
+- Uh, merry `christmas`.
+- You're my `christmas`.
+- But not at `christmas`.
+- `Christmas` came early.
+- `Christmas` day came...
+- What about `christmas`?
+- Have a nice `christmas`.
+- Merry `christmas`, jack.
+- Merry `christmas`, rudy.
+- But it's `christmas` now.
+- `Christmas` is next week.
+- Fuckin' `christmas`, man.
+- How was your `christmas`?
+- Merry `christmas`, buddy.
+- Merry `christmas`, irena.
+- Merry `christmas`, trish.
+- That was for `christmas`.
+- This is like `christmas`.
+- He's stealing `christmas`!
+- On my `christmas` sweater.
+- That is `christmas` music.
+- Uh... - merry `christmas`.
+- Almost a `christmas` scene.
+- Anyway - lloyd `christmas`.
+- It's a `christmas` present.
+- It's `christmas` eve, jack.
+- Merry `christmas`, sheriff.
+- Merry `christmas`, the end.
+- Merry `christmas`, you two.
+- Screw it, it's `christmas`.
+- Sent me a `christmas` card.
+- A heavy `christmas` present.
+- But `christmas` is for kids.
+- December before `christmas`?
+- One more day to `christmas`.
+- How was your `christmas`?
+- I closed my `christmas` club.
+- I love `christmas` in turkey.
+- [sniffles] merry `christmas`!
+- The smart tv for `christmas`.
+- I burned the `christmas` tree.
+- _ - merry `christmas`, father!
+- Mr. carter, merry `christmas`.
+- Save `christmas` for everyone.
+- This `christmas` is about you.
+- But tonight is `christmas` eve!
+- It's 8:00 p.m. `christmas` eve!
+- It's so crowded at `christmas`.
+- To make it a great `christmas`.
+- What'd you get for `christmas`?
+- A merry `christmas` to you, amy.
+- 'cause that gave us `christmas`.
+- Did you have a nice `christmas`?
+- Fuckin, `christmas` on the outs.
+- Here's your `christmas` present.
+- It's asta's `christmas` present.
+- It's name's a `christmas` carol.
+- Listen-- merry `christmas`, son.
+- Merry `christmas`, mr. campbell.
+- We had it done last `christmas`.
+- We open ours on `christmas` eve.
+- How 'bout some `christmas` music?
+- I guess i'll see you `christmas`.
+- Maybe at `christmas`, new year's.
+- What do you want for `christmas`?
+- Are those my `christmas` presents?
+- I keep getting it for `christmas`.
+- Kinda early for `christmas`, bugs.
+- One of 'ems a book on `christmas`.
+- It's the friday before `christmas`.
+- Just taste that `christmas` turkey.
+- Your threshold `christmas` caroler.
+- I brought you a `christmas` present.
+- I remember you from `christmas` eve.
+- Is that another `christmas` present?
+- My wife gave me one for `christmas`.
+- Oh, i'll be back before `christmas`.
+- So, you two have a good `christmas`?
+- What's your `christmas` wish, jonah?
+- Which means `christmas` is starting.
+- What do you want for `christmas`?
+- But it won't be `christmas` tomorrow.
+- Jews don't celebrate `christmas`, tom.
+- Not till `christmas`, i don't suppose.
+- They say it'll be over by `christmas`.
+- Alright, i'm worried about `christmas`.
+- If it's not home, it's not `christmas`.
+- The `christmas` eve of destruction -- !
+- Did `christmas` come early this year...?
+- Will always loved `christmas`, you know.
+- I'm just doing some `christmas` shopping.
+- I put on a lot of weight over `christmas`.
+- We still gonna spend `christmas` together?
+- A fellow santa could not steal `christmas`.
+- I wish you could enjoy `christmas` with us.
+- Maybe `christmas`, thanksgiving, that's it.
+- Merry `christmas` yourself, <u>officer</u>.
+- They want to publish it on `christmas` day.
+- Why, it's just my `christmas` list, is all.
+                 

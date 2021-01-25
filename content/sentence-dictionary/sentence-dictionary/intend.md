@@ -1,0 +1,83 @@
+---
+title: "intend in a sentence | intend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "intend"
+---
+- I `intend` to explain.
+- I don't `intend` to be.
+- I `intend` to find out.
+- I certainly `intend` to.
+- I `intend` to, believe me.
+- We `intend` to use them!
+- Did you `intend` to kill him?
+- How long do you `intend` -- ?
+- I don't `intend` to let them.
+- I `intend` to hold you to it.
+- Now i `intend` to have it back.
+- One i `intend` to put to sleep.
+- I didn�t `intend` it that way...
+- I `intend` to finish it for him.
+- That's what i `intend` to do.
+- Do you `intend` to stay up there?
+- How do you `intend` to disappear?
+- Do you `intend` to marry, my lord?
+- I said i don't `intend` to fire her.
+- What is it you `intend` to do to me?
+- Do you `intend` to cooperate with us?
+- I didn't `intend` to sleep all night!
+- Thanks, but i don't `intend` to stay.
+- That's exactly what i `intend` to do.
+- But i don't `intend` to take any more.
+- I don't `intend` to fire her, darlin'.
+- I `intend` to correct that at once.
+- We `intend` not to let it happen again.
+- What exactly do they `intend` to do?
+- You `intend` "sorting this out" tonight?
+- I `intend` to take her away from him.
+- I `intend` to report it the way it is.
+- I still `intend` leaving paris -- tonight.
+- Do you `intend` to stay here for some time?
+- I do not `intend` to be kept waiting again.
+- I `intend` to keep you alive, your majesty.
+- You talk as though you `intend` on staying.
+- I `intend` to be there when she's ready.
+- I didn't `intend` to treat you like a child.
+- Lila, you don't `intend` to hurt us, do you?
+- I `intend` to be there following that meeting.
+- I don't `intend` to be alone with these people.
+- Do you `intend` to enlist without my permission?
+- I'm going to bed and i `intend` to lock my door.
+- But you can be damn sure i `intend` to finish it.
+- I `intend` to make a great deal of money off you.
+- I `intend` to tell him exactly what has happened.
+- You `intend` to crack my eardrums with your voice?
+- That's a warning i `intend` to take very seriously.
+- Now just how do you `intend` to support your family?
+- So... you do `intend` to fix the place up after all?
+- Everybody loves me and i `intend` to keep it that way.
+- "i `intend` to speak of forms they would've tortured him.
+- Hey, inspector, i don't `intend` to take the rap for this.
+- I read the book, i woke him up and i `intend` to stop him.
+- Yes, i have the letters, but i `intend` using them myself.
+- Now for my next violation i `intend` to steal something.
+- My creator did not `intend` for me to experience these things.
+- Frankly, dear, we wondered what you `intend` to do with our baby?
+- Now you listen to me, rose -- i don't `intend` to mock you, dear.
+- The purpose being i `intend` to shove it down the son'a's throat.
+- How <i>do</i> you `intend` to explain his twenty- two year absence?
+- Some day i `intend` to build an experimental laboratory down there.
+- No client has ever seen my face, and i `intend` to keep it that way.
+- The precogs don't see what you `intend` to do, only what you will do.
+- I did not `intend` that payment to hunt or anyone else be made ...
+- ...and i don't `intend` to disappoint them all by getting myself killed.
+- I -- we hope you `intend` to join us in the struggle for home rule, mr. gandhi.
+- I will not support it, but i do not `intend` to take advantage of their danger.
+- Indeed, miss dorothy, i `intend` to have his blood as sure as my name's roderick.
+- I don't `intend` to add my contribution to your childish jealousies and suspicions.
+- They `intend` to cooperate every way possible in bringing these fugitives to justice.
+- But surely, professor, you don't `intend` we disregard the more... philosophical works.
+- Of course i `intend` to change my jacket this evening before the fish and goose soiree.
+- I can tell you that we're not in the military and that we `intend` no harm to the whales.
+- We certainly hope this means that you `intend` to be fully forthcoming with this committee?
+                 

@@ -1,0 +1,107 @@
+---
+title: "video in a sentence | video example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "video"
+---
+- We have it on `video`!
+- This is `video` log 12.
+- `Video` games after!
+- Did you get the `video`?
+- So's the `video` camera.
+- Interesting `video` tape.
+- I saw your `video` thing.
+- The old `video` store.
+- They have the `video`.
+- Go open the `video` store.
+- We put together a `video`.
+- A terrible `video` got out.
+- Do you have a `video`, too?
+- That `video` with the girl.
+- To the `video` shop, tommy?
+- Do you own a `video` camera?
+- He covered the `video` lens.
+- I service `video` equipment.
+- We talked about the `video`.
+- You work in a `video` store!
+- At least gimme `video` poker.
+- To the fucking `video` store?
+- Hah fluck, great `video`, huh?
+- I saw that `video` on youtube.
+- On for a `video` fest tonight?
+- Girls don't play `video` games.
+- Of kids playing a `video` game?
+- But mom, the `video`'s not over.
+- Hey, you said you did a `video`?
+- I even have `video` strip poker.
+- Can you still play `video` games?
+- If they've looked at the `video`.
+- I work in a shitty `video` store.
+- `Video`... infrared... the works.
+- You're making a `video`, so, what?
+- Any subject... except `video` games.
+- You going to lock the `video` store?
+- You won one `video` game tournament.
+- I work in a shitty `video` store.
+- I have to work on my `video` project!
+- I'm getting ready to watch a `video`.
+- Naked girls, wild sex, `video` games.
+- Excuse me, this is my `video` log here.
+- I just say whatever to the `video` log?
+- The `video` we sell here at the circus.
+- This is a tv show, not a music `video`.
+- I'm going to big choice `video` instead.
+- A thousand dollars to play `video` games?
+- You drive, i'll handle the `video`, okay?
+- I saw a `video` of him preaching on earth.
+- You were hoping to get it on home `video`?
+- I need your passcode to upload the `video`.
+- Why don't you go back to the `video` store?
+- I know exactly what to do with this `video`.
+- I will do anything for your wedding `video`.
+- Randal graves-scourge of the `video` renter.
+- There was this cloud and i `video` taped it.
+- Didn't i see you this morning on the `video`?
+- I don't know anything about making a `video`.
+- They're going to make you play `video` games.
+- They're basically like real-life `video` games.
+- By producing slick `video` appeals to the judge.
+- Okay, look, she's trying to `video` chat me now.
+- We got nothing... no audio, no `video`, ok. ahh.
+- Football, chess, maybe even a silly `video` game.
+- Annabelle, how's your `video` rep... what is this?
+- By using a `video` directed by guillermo del toro.
+- Only the cops got the whole thing on `video` tape.
+- With the greatest viral `video` of all time, sure.
+- You've been working in that `video` shop too long.
+- Annabelle's `video` report has been switched again.
+- Have some snausage water as you watch this `video`.
+- I could do without the people in the `video` store.
+- This is anne napolitano, the owner of `video` spot.
+- Which means the `video` store is ostensibly closed.
+- Ah, you boys are leaving me for `video` games anyway.
+- I think i might have a `video` or two of your mother.
+- You know, i should, um, make a `video` of this place.
+- Oh, didn't anyone show you the indoctrination `video`?
+- Your `video`-character can respond as fast as you can.
+- Meanwhile those other guys have their own `video` games!
+- The `video` of milos and tamina - i told you to erase it.
+- Unless you're out renting videos at other `video` stores.
+- I'11 pipe the guide to every `video` screen in the gallery.
+- So every punter in edinburgh is jerking off to our `video`?
+- I hear ray charles is going to head up the `video` division.
+- Would be to show you a `video` of the stunt what's the plan?
+- I think the `video` store's open for another couple of hours.
+- Dad got a new `video` camera and we're all gonna be in a movie.
+- Good, 'cause i wanna swing by blockbuster and get us a `video`.
+- I want to go to a good `video` store so i can rent a good movie.
+- My name is ray and my friend bucky and i design `video` systems.
+- You're gonna be a `video` store clerk for the rest of your life?
+- A bank of `video` monitors -- hey, this is perfect for you...
+- We can stop by the `video` store on the way back, this isn't news.
+- No apartment, no special stores with western food and `video` tapes.
+- He died for that belief, so you can connect the `video` ins and outs.
+- Oh it's no problem, i'm just... looking at your music `video` awards.
+- They record everything their `video` surveillance takes in... no need.
+- You know what would be cool is, like, to do a music `video`, you know?
+                 

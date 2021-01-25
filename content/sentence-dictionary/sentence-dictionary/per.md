@@ -1,0 +1,95 @@
+---
+title: "per in a sentence | per example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "per"
+---
+- Two bags `per` flight.
+- As `per` our discussion.
+- Seventy-five `per` cent.
+- Soo -- pah doo -- `per`.
+- Sta calmo, `per` favore.
+- Five-thousand `per` kilo.
+- Is 70 miles `per` hour.
+- The usual ten `per` cent?
+- What was your `per`-diem?
+- Eight mirvs `per` missile.
+- My twenty-five `per` cent.
+- It's not the ten `per` cent.
+- One drink minimum `per` show.
+- Eighty-eight miles `per` hour!
+- That money is your `per` diem.
+- As `per` mother's instructions.
+- 2.4 blocks `per` game, lifetime.
+- E un onore `per` mo eccezionale.
+- It's not "invisibility" `per` se.
+- Seventy-one `per` cent said "no."
+- We're up eight cents `per` share.
+- 3 grams `per` milliliter to start.
+- I'm not against marriage `per` se.
+- A dollar sixty `per` share you said.
+- Four chicken lumpettes `per` person.
+- Yeah... a hundred `per` cent cotton.
+- So remember, only 3 seeds `per` hole.
+- Tidy little premium `per` annum, that.
+- But, three `per` ki was ok for openers.
+- It's about 50 thousand `per` plaintiff.
+- Padrino will pay ten-thousand `per` kilo.
+- Well, this isn't really a party `per` se.
+- I don't want to discuss my tomb, `per` se.
+- One toy `per` kid is doing something nice.
+- What did ole jurgensen pay you `per` acre?
+- Fifty `per` cent to a so-called duchess!...
+- Waal, what was the `per`-screen average...?
+- Zipping through my inheritance `per` usual?
+- In louisville it was seventy-five `per` cent.
+- Oh, perfect -- a 75 `per` cent family affair.
+- What are we giving ninety `per`...for nothing.
+- Budget only calls for three drinks `per` extra.
+- I'd say my game is about twenty `per` cent off.
+- I mean, like, `per`... perfect in your own way.
+- Ten to the fourth dynes `per` square centimeter.
+- Doing his homework in the morning as `per` usual.
+- Doing his homework in the morning, as `per` usual.
+- Sharks can detect blood in one part `per` million.
+- We're 98 `per` cent certain mitchell was murdered.
+- Say, honey, you look a million `per` cent better.
+- That means we gotta average ninety- four miles `per`.
+- That's for the hundred bucks worth of pay-`per`-view.
+- That's over fifty-thousand dollars profit `per` kilo.
+- It's a magnificent set -- and only $33.50 `per` volume.
+- Twenty `per` cent of that is yours if ya stick with us.
+- One kid `per` family, that way you don't lose your room.
+- Well i guess that'd be our ten-foot backyard `per`-gola.
+- So if you'll just write me a check for my ten `per` cent.
+- Which practically means, ninety `per` cent of the voters.
+- Grandfather left him twenty `per` cent of a tobacco company.
+- I didn't know that .. <u>one hundred fucking `per` cent</u>!
+- Non e questo il luogo `per` le vostre conversazioni private!
+- I must've had thirty regulars salivating at 4.99 `per` minute.
+- I receive 30 `per` cent just for finance and legal protection.
+- The rate is a dollar `per` line, a dollar and a half bold face.
+- Time-warner has a 40 `per` cent stake in gary's set-top device.
+- Average price of $47 a share and $4 `per` contract for the call.
+- You know how much money the average jizz-mopper make `per` hour?
+- It's not really anyone `per` se, it's more of separate groupings.
+- Rising profits...strong balance sheets, good earnings `per` share.
+- I can live with thaaaa -- get ready to smile, five guys `per` girl.
+- Speed -- two hundred, seventy-five thousand kilometers `per` second.
+- A final conclave... one champion `per` clan, you'll break before i die.
+- Sixty three pounds consumed `per` capita, up from twenty seven in 1960.
+- For that i get seventy-five `per` cent return on my money -- if you win.
+- I wanted the pay-`per`-view operator i will lose it, i will just lose it!
+- Hawkmeister, we got you clothes, great hotel, and a 250,000 lira `per` diem.
+- I am capable of exceeding forty-seven meters `per` second... because you're it.
+- I have a certain function to `per`- form, and that seems to take all of my time.
+- It's $2.99 `per` minute for the first half hour and $1.99 `per` minute after that.
+- Florida has more rich chicks `per` square yard than any resort spot in the world.
+- There's a one-drink minimum `per` show, i hope you saw the sign when you came in.
+- Anyone who beats fifty `per`... ...ah, fuck this... will you please wait a second.
+- My importing methods are as safe as these things can be, about five `per` cent loss.
+- Over forty-one thousand vehicles `per` day, twenty-two thousand pedestrians on foot.
+- I understand you're seeking a roommate, as `per` your advertisement in the village voice.
+- He wanted you to know the legal limit for hexavalent chromium, is .05 parts `per` million.
+- Our quota for native contingencies: one rifle to ten men and only five rounds `per` rifle.
+                 

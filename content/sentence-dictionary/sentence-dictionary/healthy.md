@@ -1,0 +1,65 @@
+---
+title: "healthy in a sentence | healthy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "healthy"
+---
+- That is not `healthy`.
+- You look `healthy` to me.
+- Abby says she's `healthy`.
+- Well, just stay `healthy`.
+- I want to be more `healthy`.
+- You are perfectly `healthy`.
+- Well, maybe not as `healthy`.
+- The garden is a `healthy` one.
+- You look pretty `healthy` to me.
+- It's not `healthy` with it closed.
+- We need you `healthy` and relaxed.
+- You need `healthy`, natural sleep.
+- No, i-i've been perfectly `healthy`.
+- Well, he's young and he's `healthy`.
+- You're becoming `healthy` that's all.
+- How is that `healthy` for a performer?
+- I've got to keep you `healthy`, jimmy.
+- Take anyone `healthy` enough with you.
+- Some people don't think it's `healthy`.
+- Looks like a `healthy` non-mutant to me.
+- A normal, `healthy` teenage girl's brain.
+- That's not always a `healthy` way to be...
+- When i get out of here, i will be `healthy`.
+- She's perfectly `healthy`, don't give her ideas.
+- You're being a fanatic and that ain't `healthy`.
+- First things first, we have to get you `healthy`.
+- My stepmom is forcing me to eat really `healthy`.
+- She has always had a very `healthy` sense of humor.
+- That's good, i've never seen anything so `healthy`.
+- You are a `healthy` woman... you hold a steady job.
+- If i was `healthy`, i could take that away from you.
+- But i appreciate your `healthy` cynicism in the manner.
+- I must be `healthy`, then, because i'm scared to death.
+- Sounds like a `healthy` way to deal with your problems.
+- You think it's `healthy` to obsessively collect things?
+- But you are not `healthy`, and if you try i'll kill you.
+- It's a challenge, staying `healthy` in a town like this.
+- Why, i was just expressing a `healthy` sexual curiosity.
+- If anything, doing things i love kept me `healthy` longer.
+- Too many smart people in one room -- it's not `healthy`...
+- There's no need for a claim, the garden is a `healthy` one.
+- "war is not `healthy` for children and other living things."
+- If you find a `healthy` young woman, bring her back with you.
+- I'll probably die of pneumonia tomorrow and this is `healthy`.
+- If he knows where we are, now, that's the `healthy` way to grieve.
+- It's not `healthy`, kafka -- not for you and not for your workmates.
+- But maybe it's not so `healthy` being so close, you know, to a school.
+- "`healthy`, educated couple seeking infant to join our family of five.
+- You must eat -- and you must get `healthy` -- and you must forget him.
+- You, a supposedly `healthy` woman, do not detest him for his cowardice?
+- Like any normal `healthy` boy, bart has been the focus mmm, old card stock.
+- A beautiful young woman, and you a reasonably `healthy` specimen of manhood.
+- Double is ridiculous but we can assure you a `healthy` profit on your shares.
+- If the spirit of the commander will not protect us, and that's very `healthy`, but...
+- It'll revitalize the immune system, and people with aids will become `healthy` again.
+- That i'm just you average `healthy` totally fucked-up cop and let me get out of here?
+- The prince and the count always insist on everyone being `healthy` before they're broken.
+- I've salvaged a few of the `healthy` plants to use for seeds... well, who owns hawkins lab?
+                 

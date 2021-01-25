@@ -1,0 +1,107 @@
+---
+title: "magic in a sentence | magic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "magic"
+---
+- It's not `magic`, dad.
+- His hands were `magic`.
+- Science is not `magic`.
+- This is ogre's `magic`.
+- You must learn `magic`.
+- Just <u>like</u> `magic`.
+- This is a `magic` carpet.
+- Waste `magic` on revenge?
+- That's the `magic` number.
+- A magician *makes* `magic`.
+- Oh, this is a `magic` lamp.
+- He just appeared as `magic`.
+- Everything you do is `magic`.
+- I'm under some `magic` spell?
+- I think your name is `magic`.
+- The `magic` word is "please."
+- Want to see my `magic` trick?
+- Exxence of `magic` and sorcery!
+- That's how genie `magic` works.
+- The days of `magic` are ending.
+- Who gets the, uh, `magic` wand?
+- Your `magic` is in your brains!
+- Your `magic`�s already working.
+- I'd sooner die than use `magic`!
+- I went up to the `magic` castle.
+- Like `magic`, now you're famous.
+- There's no `magic` in the world.
+- Ahh.. `magic`... how do you that.
+- No `magic`, just grace and speed.
+- Think of it as a kind of `magic`.
+- Like, `magic` tricks or something?
+- "the healing `magic` of crystals."
+- There is no such thing as `magic`.
+- We're talking about space `magic`.
+- What's wrong with a `magic` trick?
+- Is indistinguishable from `magic`."
+- Their `magic` was in their muscles.
+- And the `magic` hammers and whatnot.
+- Well, i have a `magic` to match his!
+- We're talking about space `magic`.
+- At online close-up `magic` university.
+- What "`magic`" have you brought, erik?
+- Any student of black `magic` can do it.
+- For all the dark `magic` protecting it.
+- Because you didn't say the `magic` word.
+- '... is indistinguishable from `magic`.'
+- `Magic` who the hell wants to see life?!
+- Flesh is a trap and `magic` sets us free.
+- I assume you have the `magic` cd- rom?
+- What is the `magic` word, mr. venkman?
+- Yet, some would call this toy `magic`.
+- Don't give me your black `magic` bullshit!
+- Hah, some guys say i have `magic` fingers.
+- To slay the dragon, use the `magic` sword.
+- And, harry, he's the one who likes `magic`?
+- When i was, it was movie `magic`, love.
+- So halfdan the black's using `magic`, is he?
+- I should say something in this about `magic`.
+- It be `magic`, jack... powerful ogre's `magic`.
+- Yeah -- it's santa's `magic` fucking village.
+- I mean, genie `magic` is really just a facade.
+- I told you -- so swann was performing `magic`.
+- You gotta get me to the `magic` castle at four.
+- I'm going to be number thirty-two, like `magic`.
+- I tell them it's `magic`... bad show last night?
+- We decided to bring some `magic` into your life.
+- With dancers, an elephant, and a `magic` carpet.
+- You just show up like `magic` with that picture?
+- Bobby's got the `magic`, like a goddamn rock star.
+- Means it's got something kind of `magic` about it.
+- You are young... can it truly be used for `magic`?
+- We learned some `magic`... are you <u>real</u> mad?
+- He told me a `magic` spell that would make you come.
+- How'd you like to win a `magic` 96.7 quicky getaway?
+- Not too long ago, i'd have thought this was `magic`.
+- Can we use your `magic` lasso to kidnap gene hackman?
+- True `magic` which even you will not be able to deny.
+- It's a `magic` word and i never want you to forget it.
+- Woodly the `magic` root you gave me--i had it analyzed.
+- You weren't there, so you can't understand the `magic`.
+- There is no `magic`, father... my mother had no `magic`...
+- Then when `magic` retired, i tried calling you again.
+- From time to time, even i have uttered the `magic` words.
+- I'm the `magic` man, the santa claus of the subconscious.
+- Every `magic` secret known to man's locked up in that room.
+- In fact, i want you to ad lib, that's the `magic` i'm after.
+- All i've ever wanted was to do `magic`, real `magic`, like you!
+- Every time a fruit meets a booze, a `magic` vacation is born.
+- I sometimes think you've got some of your mother's `magic`...
+- Delusion... a kind of `magic` which works against the magician.
+- Don't you have a `magic` trick or something to make this easier?
+- It was a `magic` place for me... that's where my heaven will be.
+- Can you use your `magic` to get our men into the fortress, raziel?
+- I can't wiggle my nose or say a `magic` word and make him go away.
+- So she thought: why not secretly bring `magic` into others' lives?
+- To learn `magic`, first you must make your own philosopher's stone!
+- Watch... you'll enjoy this... it's like `magic`... where have you been?
+- You wanta be a tragic woman figure wallowing in the bullshit of `magic`?
+- That's butterfield... that would have kept you out of the `magic` circle.
+- A draft in the fall when the house is hot is a `magic` carpet for bacteria.
+                 

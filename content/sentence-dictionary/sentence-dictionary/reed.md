@@ -1,0 +1,53 @@
+---
+title: "reed in a sentence | reed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reed"
+---
+- `Reed`'s always right.
+- <u>where is `reed`</u>?
+- `Reed`, we're at a party.
+- This is your dream, `reed`.
+- `Reed`'s <u>always</u> right.
+- You didn't marry donna `reed`.
+- `Reed` just gave us fifty grand.
+- Applications and patents, `reed`.
+- But we're the focus, right `reed`?
+- `Reed`, we're running out of time.
+- Just give `reed` a little more time.
+- Mr. `reed`, please, for mr. brandon.
+- Mr. `reed` stepped out, mr. brandon.
+- They love `reed` and his inquisition!
+- Mr. `reed` would like you to call him.
+- My friend `reed`'s working on a cure...
+- Same old `reed`, the hopeless optimist.
+- Surprised i agreed to `reed`'s proposal?
+- Your portable `reed` organ....the piano.
+- But <u>we're</u> the focus, right `reed`?
+- Is that where she got the ring, mrs. `reed`?
+- `Reed` said it'd be weeks till -- to help you.
+- My friend `reed`'s working on a cure...i think.
+- I spent two days at your walter `reed` hospital.
+- `Reed`, what if we got these gifts for a reason?
+- I didn't know mr. `reed` had been married before.
+- I did, `reed`... but i wanted you to be that man.
+- I should have done more, run more tests -- `reed`.
+- I did, `reed`...but i wanted <u>you</u> to be that man.
+- `Reed`, what if we got these gifts for a <u>reason</u>?
+- Got more leaf mold now than we'll ever need, mr. `reed`.
+- I think it was a little more complicated than -- `reed`.
+- Life hasn't changed that much for `reed`, sue and johnny.
+- Everything all right down there at the school, mr. `reed`?
+- She adores the woody sweetness of a fresh baritone `reed`.
+- Sir, i'm sure he wouldn't put himself -- `reed`'s disaster.
+- Good thing it ain't workin... `reed`, what are we doing here?
+- Maybe not, but it will give you can't spell greed without `reed`.
+- If `reed`'s right, then this little trip will double our stock offering.
+- Please don't make this personal -- then why is `reed` dragging his feet?
+- To a situation) really, mr. `reed`, there isn't anything to worry about.
+- Or `reed`, the world's dumbest smart guy worth less than a postage stamp.
+- That scum joseph `reed`... they're calling him the 'king of pennsylvania'.
+- She's got a good thing with victor -- `reed`, i'm not talking about debbie.
+- I thought i was done waiting for `reed`... we're all in this together now, ben.
+- Get joseph `reed`, and the pigs in congress, the speculators, who've grown fat off the war!
+                 

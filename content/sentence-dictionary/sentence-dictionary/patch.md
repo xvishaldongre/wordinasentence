@@ -1,0 +1,61 @@
+---
+title: "patch in a sentence | patch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "patch"
+---
+- `Patch` him through....
+- Pat-`patch` her through.
+- `Patch` her through, yeah?
+- `Patch` me through to him.
+- See that `patch` of shirt?
+- Can you `patch` jan through?
+- We just got to `patch` you in.
+- He used to wear an eye-`patch`.
+- Now he's wearing an eye-`patch`!
+- That's off-limits, soul `patch`!
+- What's with the `patch`, anyway?
+- `Patch` in the hailing frequency.
+- But i can't get my `patch` to hold.
+- `Patch` me through to the bomb squad.
+- Check to see if he's got a `patch` kit.
+- Oh, you're just having a rough `patch`.
+- Then i want you out of the briar `patch`.
+- Ok, can you `patch` me through to medical?
+- No more advice on how to `patch` things up.
+- He came to ask you to `patch` up the breach.
+- I need a `patch` of the white house asap.
+- An hour to, `patch` in and align the antenna.
+- A `patch` of desert in the middle of nowhere.
+- Can you `patch` me a temporary loop on dcmgs?
+- A-yeah, i'm a regular benedict cabbage-`patch`.
+- So they can `patch` me up and put me in a cage?
+- `Patch` me through to the big bird, will...?
+- They can `patch` you in through the switchboard.
+- I wanna `patch` in from... get your links set up!
+- No no, no more advice on how to `patch` it up tom.
+- You guys just `patch` me up and send me on my way?
+- Just save me a little `patch` and i'll do it later.
+- There's still a `patch` of blood there on the road.
+- You could've used a `patch`, but it's too late now.
+- Some sitcom that takes place on a watermelon `patch`?
+- Your mother wasn't one to get chased off her `patch`.
+- I jumped in a `patch` of fog, and nobody could see me.
+- Uhura, `patch` me in -- admiral, they're reducing speed.
+- The pacific garbage `patch` grew to 600,000 square miles.
+- There are metaphasic particles all over the briar `patch`.
+- `Patch` her in to me when they're finished raven's on the case.
+- Shit, still gotta check out the hull, `patch` the wings -- wha'?
+- The manifold can't handle full impulse in the `patch`, commander.
+- To perform the ascension ritual, you see that `patch` over there?
+- Oh, won't you reconsider... let him `patch` up his own breeches...
+- ...take a portable terminal, go out there and `patch` in manually.
+- When i was growing up we had a strawberry `patch` in our backyard.
+- Your "briar `patch`" turned out to be more hospitable than i expected.
+- Captain rob is seven feet tall, wears an eye `patch`, got a hook for a hand...
+- That big nose of yours been goin' over me like a sheep in a vegetable `patch`.
+- That could have gone right through the hull -- taken <u>weeks</u> to `patch` it.
+- Besides, they don't want to live in the middle of the briar `patch`... who would?
+- I hope we `patch` things up but know that if we don't, i wish you both the very best...
+- I'm not the one trying to `patch` things up with my ex, sneaking around behind your back!
+                 

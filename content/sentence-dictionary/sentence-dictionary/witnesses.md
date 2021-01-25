@@ -1,0 +1,53 @@
+---
+title: "witnesses in a sentence | witnesses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "witnesses"
+---
+- There were `witnesses`?
+- What about `witnesses`?
+- A lot of `witnesses` here.
+- We're the `witnesses`.
+- No `witnesses` of any kind?
+- Still -- those `witnesses`.
+- I don't like no `witnesses`.
+- A whole crowd of `witnesses`.
+- No... -- `witnesses` to what?
+- There were never `witnesses`.
+- Keeping our `witnesses` alive.
+- And shumway said no `witnesses`.
+- Leave no `witnesses`, am i right?
+- There were never any `witnesses`.
+- `Witnesses` saw a dropship launch.
+- Do you have any `witnesses`, major?
+- Two `witnesses` saw him brought in.
+- You're crazy -- no more `witnesses`.
+- That's what the `witnesses` told him.
+- We have two `witnesses` to the crime.
+- How could there have been `witnesses`?
+- We need to find more `witnesses`, lou.
+- But there were `witnesses`, saw us redeemed!
+- Do you have any `witnesses` or fingerprints?
+- Come on, there must be `witnesses` somewhere.
+- There were no `witnesses`, no escaped lunatic.
+- `Witnesses` confirmed you weren't the shooter.
+- No, just the...there's no `witnesses`, right...?
+- It just occurred to me, that she has no `witnesses`.
+- Then you don't wish to call any `witnesses`, mr. dowd?
+- Why are our `witnesses` being bought off and murdered?
+- I have `witnesses` that can put the two of you together.
+- It was a fair fight and there were plenty of `witnesses`.
+- You boys know anything about any garage - or any `witnesses`?
+- `Witnesses` say some wacko went judge hunting with a late model.
+- Tick- tock, tick-tock, how long till your `witnesses` fly the coop?
+- But, they all got that "`witnesses` for the prosecution" look to me.
+- He's already killed all your `witnesses`, now he's coming after you!
+- But for some high-profile `witnesses`, like yourself, any name will do.
+- `Witnesses` said you were there, but i notice you didn't file a report.
+- My `witnesses` -- correction -- my exhibits are on display in the amphitheater.
+- You can tell j. edgar that i was at a party and i got fifteen fuckin' `witnesses`.
+- Me and those two `witnesses` whom your lawyers have been looking for all over chicago.
+- Remote `witnesses` are hooked in... red ball -- double homicide: one male, one female.
+- `Witnesses` described kaplan's assailant as an attractive blonde in her late twenties.
+- We're gonna keep him waiting while i get acquainted with his case and with the `witnesses`.
+                 

@@ -1,0 +1,7 @@
+---
+title: "tendentiousness in a sentence | tendentiousness example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tendentiousness"
+---
+## Unfortunately, we have no example sentences for tendentiousness                 

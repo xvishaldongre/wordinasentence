@@ -1,0 +1,107 @@
+---
+title: "single in a sentence | single example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "single"
+---
+- I got a `single` room.
+- With a `single` rule...
+- But why `single` me out?
+- Is your status `single`?
+- Is that `single`- spaced?
+- And still end up `single`.
+- Without a `single` quiver.
+- You are a `single` mother.
+- Nobody does that `single`-o.
+- Without a `single` fatality.
+- It's a `single` white female.
+- Not even a `single` lifetime.
+- I'm a `single`, successful guy.
+- He does that every `single` day.
+- Her ya go, buddy, `single`-malt.
+- I'd like a `single` for tonight.
+- I guess that's why i'm `single`.
+- I never even got to be `single`.
+- Not a `single` picture of artie.
+- Then you're as `single` as i am.
+- You want a `single` or a double?
+- A `single` room or a double room?
+- I couldn't find a `single` track.
+- We'll need every `single` day.
+- Guess i'm not a `single` type guy.
+- I was raised by a `single` mother.
+- Line on `single` action... 3 to 2.
+- You can be `single` and not alone.
+- A `single` chromosome separates us.
+- Because i'm the one who's `single`.
+- It's a `single` malt, glenmorangie.
+- This is `single`-wall construction!
+- This... is the number one `single`?
+- I still have that `single` shot.
+- Girls like mary don't stay `single`.
+- First, `single` mothers don't "date."
+- Oh... not one `single` host was born.
+- No <u>`single`</u> ant matters, right?
+- We're a world with no `single` leader.
+- You haven't attended a `single` class.
+- And she doesn't have a `single` regret.
+- Four passenger, `single` engine cessna.
+- I guess this is why i'm still `single`.
+- We are a world with no `single` leader.
+- Not a `single` lady has been snared.
+- A `single` soul dwelling in two bodies.'
+- `Single` action second, fasanella third.
+- He never would have made a `single` mark.
+- He's working on the `single` print index.
+- `Single` shots doesn't mean a fire fight.
+- And gave life to every `single` one of you.
+- How the hell'd you manage to stay `single`?
+- Yeah... without losing a `single` follower.
+- You ever been strangled by a `single` hand?
+- You won't take a `single` endorsement deal.
+- As you see, it was true every `single` time.
+- Huggie bear isn't in every `single` episode.
+- I don't believe a `single` word you've said.
+- I don't know if there's any `single` reason.
+- Can i buy this otis redding `single` off you?
+- A `single` mother, that's a sacred thing, man.
+- Every `single` member of your clan he's right.
+- The workplace has been full of `single` women.
+- This is one big house for one `single` person.
+- You won't miss a thing about being `single`...
+- It can be ruined in a `single` careless moment.
+- 'cause if he were `single`, he'd be cleaning up.
+- I'll give you every `single` card i've got left!
+- I mean, what if the `single` isn't done in time?
+- It's a `single` sequence repeated over and over.
+- It unifies the entire world on a `single` level.
+- What do you know about dating a `single` mother?
+- You said there are advantages to being `single`.
+- 300 soldiers and not a `single` gun between them.
+- You have to think of this as a `single` organism.
+- It's just there's so much to do in a `single` day.
+- And i've won her back every `single` freaking time.
+- Just, i mean, well, you're here every `single` day.
+- Never paid that kind of dough for a `single` horse.
+- ♪ no one heard a `single` word you said ♪ - do you?
+- You're young, you're `single`, you're successful...
+- Could you possibly try not to hit every `single` one!
+- From sending `single` malts to boxes that don't open.
+- I'm a total fraud who can't make a `single` decision.
+- I've never heard my father say a `single` true thing.
+- He slaughtered hundreds of termites `single`-handedly!
+- It's amazing how not a `single` one of them can skate.
+- "never confuse a `single` defeat with a final defeat."
+- Of a `single` individual, then... that's a good thing.
+- What's the `single` most important aspect of your job?
+- In `single` combat, everything we need to stop a.l.i.e.
+- Not as `single`-minded as the others, not as sybaritic.
+- You almost `single`-handedly derailed her whole career.
+- But the truth is, i'm a `single` woman in a man's world.
+- Do you think i could have the room for a `single` night?
+- Twenty-five percent, and not one `single` farthing more.
+- Every `single` one of those pictures is somebody italian.
+- Gently melting over a `single` slice of triangular dough.
+- This is the `single` most important discovery in history.
+- Not a `single` farm's been sold to the railroad since.
+                 

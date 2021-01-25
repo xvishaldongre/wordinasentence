@@ -1,0 +1,107 @@
+---
+title: "save in a sentence | save example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "save"
+---
+- But i can `save` them.
+- Did someone `save` me?
+- I couldn't `save` him.
+- I have to `save` them.
+- I tried to `save` her.
+- I tried to `save` him!
+- I want to `save` them.
+- `Save` her for what?
+- `Save` my spot, ready?
+- `Save` that for later.
+- To `save` your people.
+- We could `save` lives.
+- We have to `save` you!
+- You `save` your money.
+- Can we `save` anywhere?
+- Help `save` your voice.
+- I couldn't `save` them.
+- I couldn't `save` tris.
+- I'll `save` you a seat.
+- I tried to `save` hope.
+- Now go `save` us all...
+- `Save` it for the jury.
+- To `save` a few cattle?
+- Yes, he will `save` us.
+- You `save` your father!
+- Hey, `save` your energy.
+- I can `save` all of you.
+- I have to `save` eugene!
+- I'm gonna `save` carmen.
+- I want to `save` marcus.
+- Mike, you can `save` us.
+- Now let me `save` yours.
+- `Save` himself that way.
+- `Save` it for the enemy.
+- `Save` it for your wife.
+- `Save` yourself, taylor.
+- Steven... `save` your...
+- We'll `save` you anyway.
+- We've got to `save` her!
+- You must `save` the day.
+- But i have to `save` him.
+- _ but you can `save` her.
+- But you can't `save` her.
+- Go now, `save` the other.
+- I did that to `save` you.
+- I have to `save` bellamy.
+- I know how to `save` her.
+- I'm trying to `save` you!
+- I'm trying to `save` you.
+- `Save` some for tomorrow.
+- `Save` this one for last.
+- To `save` their own skin.
+- Um, `save` me a seat, ok?
+- `Save` myself instead.
+- And we `save` them anyway.
+- Can you `save` him or not?
+- I came here to `save` you.
+- I came to `save` your ass.
+- I wanted to `save` geordi.
+- I want to `save` your son.
+- I will `save` us, not her.
+- Louis, i can't `save` her.
+- `Save` it for the library.
+- `Save` my son, d'artagnan.
+- `Save` us some time... no.
+- The truth will `save` you.
+- We must try to `save` han.
+- You could `save` us, mike.
+- You did `save` my life,mr.
+- Yes, he will `save` me.
+- Clarke, can you `save` him?
+- He did just `save` my life.
+- I can `save` you much pain.
+- I didn't `save` that woman.
+- I had to `save` our people.
+- I had to `save` you, vicki.
+- It could `save` the voyage.
+- I was trying to `save` you.
+- Never could `save` a thing.
+- We'll `save` them for seed.
+- What if i could `save` one?
+- What it takes to `save` us.
+- You can't `save` everybody.
+- You must `save` yourselves.
+- He did just `save` them all.
+- He just tried to `save` him!
+- I couldn't `save` him, bell.
+- I just wanted to `save` ava.
+- I just want to... `save` it.
+- I'll `save` you the trouble.
+- I'm trying to `save` us all.
+- I... you did `save` my life!
+- Okay, `save` your batteries!
+- `Save` it for the grounders.
+- `Save` that for the tribune.
+- `Save` your voice, reverend.
+- She was trying to `save` us.
+- The one you couldn't `save`.
+- This is how we `save` raven.
+- To pay the bills and `save`.
+                 

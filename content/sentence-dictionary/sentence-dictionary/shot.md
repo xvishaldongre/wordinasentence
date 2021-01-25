@@ -1,0 +1,107 @@
+---
+title: "shot in a sentence | shot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shot"
+---
+- Food's `shot` to hell.
+- Give the guy a `shot`.
+- Her oil pan is `shot`.
+- He `shot` another one.
+- I'll give it a `shot`.
+- I saw the last `shot`.
+- It was worth a `shot`.
+- Just a fuckin' `shot`.
+- Monty's in the `shot`.
+- No-no, i-i `shot` him.
+- Now he's in my `shot`.
+- Pretty `shot` anyways.
+- Probably `shot` a few.
+- Take your best `shot`.
+- The brakes are `shot`.
+- They `shot` my father.
+- Who fuckin' `shot` me?
+- You're a lousy `shot`.
+- All i want is a `shot`.
+- Are we being `shot` at?
+- He's been `shot` a lot.
+- I'm a damn good `shot`.
+- I'm all `shot` to hell.
+- I'm sorry i `shot` you.
+- I'm sorry i `shot` you.
+- I `shot` it in the eye!
+- Little bitch `shot` me.
+- Louise, you `shot` him.
+- Mine `shot` a bean bag.
+- Our best `shot` is now.
+- Pretty terrible `shot`.
+- `Shot` him in the head.
+- The boy who was `shot`.
+- They... they `shot` me.
+- Turbine rotor's `shot`.
+- Was your father `shot`?
+- Well... a `shot` at it.
+- We still have a `shot`.
+- Who fuckin' `shot` me!?
+- You `shot` the leopard.
+- Give him a clean `shot`.
+- Harold `shot` every one.
+- He only `shot` you once.
+- I `shot` at one of them.
+- I `shot` the chancellor.
+- `Shot` of vodka, please.
+- `Shot` once in the head.
+- `Shot` one -- the guard.
+- Smooth move, hot-`shot`.
+- That was a cheap `shot`!
+- Then she `shot` herself.
+- They got `shot` a telex.
+- They `shot` him, walter!
+- They `shot` us all, kid.
+- Yeah, but it was `shot`.
+- You mean you got `shot`?
+- You're `shot` to pieces!
+- You said ... one `shot`.
+- Beautiful `shot`, felson.
+- But i haven't `shot` him.
+- Chancellor's been `shot`.
+- Everybody's a big `shot`.
+- I got `shot` in the back.
+- I know about that `shot`.
+- I like getting `shot` at.
+- I missed my first `shot`.
+- I `shot` the man, clarke.
+- I... think i'm... `shot`.
+- I will give her a `shot`.
+- Never even `shot` at one.
+- Omar'll get a `shot` off.
+- Or i can lose the `shot`.
+- `Shot` him in cold blood.
+- That's right, big `shot`.
+- That's right, hot `shot`!
+- That where he was `shot`?
+- The president was `shot`.
+- Your pancreas was `shot`.
+- You were the long `shot`.
+- I `shot` my mouth off.
+- Give it a `shot`, come on.
+- He `shot` chancellor jaha.
+- I thought burt `shot` you.
+- It's worth another `shot`.
+- I've rarely `shot` anyone.
+- Let me get a `shot` of it.
+- Nikki... she `shot` first.
+- Not by the longest `shot`.
+- So i'll get a fair `shot`?
+- The fucker `shot` himself.
+- The guy who `shot` reagan.
+- This, this was our `shot`.
+- We need a `shot` inna arm!
+- You just `shot` a balloon.
+- You lookin' to get `shot`?
+- You're ruining the `shot`.
+- You think jack `shot` him?
+- You want the title `shot`?
+- Ah, your new head `shot`...
+- Bottom hose was `shot` too.
+                 

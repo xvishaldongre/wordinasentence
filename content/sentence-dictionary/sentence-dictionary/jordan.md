@@ -1,0 +1,73 @@
+---
+title: "jordan in a sentence | jordan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jordan"
+---
+- `Jordan` has a theory.
+- Boy or girl... `jordan`.
+- This is jasper `jordan`.
+- Where is `jordan` anyway?
+- But she's happy, `jordan`.
+- Good to see you, `jordan`.
+- `Jordan`, hey... - delilah?
+- Meet `jordan` jasper green.
+- Not gonna happen, `jordan`.
+- It isn't the time, `jordan`.
+- We just put `jordan` in cryo.
+- `Jordan` told them everything.
+- `Jordan`, you're staying, too.
+- There's only `jordan` here now.
+- What about danford to `jordan`?
+- `Jordan` is doing great, though.
+- My friend `jordan` likes to talk.
+- That's not what i want, `jordan`.
+- `Jordan`... come back, camera fish!
+- `Jordan`, hope, don't let them die.
+- `Jordan`... where did you get this?
+- What else is near `jordan` lake?
+- `Jordan` tried to tell us the truth.
+- I'm `jordan`, monty and harper's son.
+- J... `jordan`, niylah, hold the room.
+- This is fuckin michael `jordan`, man!
+- Big symbols make big targets, `jordan`.
+- `Jordan`, there's an anomaly here, too.
+- If `jordan` wins, dehaven wins in spades.
+- `Jordan`, they won't see you as a threat.
+- They've lost faith in `jordan`, holy shit!
+- They will not want you there, `jordan`.
+- Bellamy blake, john murphy, `jordan` green.
+- C'mon, `jordan`, keep your head in the game.
+- They put a spear into jasper `jordan`'s chest.
+- Well, fuck you, too, and fuck michael `jordan`.
+- Look, you seem to get on just fine with `jordan`.
+- Ok. niylah, gabriel, `jordan`, you stay here, no.
+- Your friend `jordan` saved the life of priya vii.
+- Hey, `jordan`... not getting speared by grounders.
+- ♪ giving it up, oh ♪ you were right about `jordan`.
+- You detonated a bomb in a public meeting, `jordan`?
+- `Jordan`, we're guests here, and we need their help.
+- ♪ dream a dream ♪ `jordan`, the truth got priya killed.
+- Another favor... get me banking info on `jordan` kalfus.
+- Same look she had in her eyes when she stabbed `jordan`.
+- "yes, `jordan` -- i'll wait for you no matter how long."
+- So who stands to gain if `jordan` flames out in a big way?
+- They're all in southeast hawkins, right near `jordan` lake.
+- ♪ one of the gang ♪ you're looking at the michael `jordan` you.
+- Maybe we'll get that someday... `jordan`'s idea is worth a shot.
+- Someone needs to stay behind and look after miller and `jordan`.
+- An espresso pod machine, gabriel said `jordan` studied the texts.
+- I don't feel like doing an option paper on the rest of my life, `jordan`.
+- Bellamy... that... that's before i got the recipe right, `jordan`... rrgh!
+- Nellie lutcher -- louis `jordan` -- i've never even heard of these people.
+- Don't ask me to predict how i'll feel then, `jordan`, because i don't know.
+- `Jordan`... you know, right up until you said that -- i thought i did know.
+- But-- take the airport subway, but change at `jordan` station for kowloon tong.
+- `Jordan` claims it's a test, not a war, i'm sorry to hear about your son's arrest.
+- See, when two married people don't love each other anymore... `jordan`... come on.
+- Well, before you crawl off to die, `jordan`, give me five minutes of good headwork.
+- I once promised you a fast ticket, `jordan`, and i always meant to make good on that.
+- And overthrow their false gods actually, i think `jordan` was just about to tell us one.
+- He's tripping the light fantastic with tammy `jordan` at 2245 maravilla, hollywood hills.
+- If anyone does anything that wasn't agreed upon, clarke, raven, miller, niylah, `jordan`.
+                 

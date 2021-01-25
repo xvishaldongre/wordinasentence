@@ -1,0 +1,107 @@
+---
+title: "take in a sentence | take example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "take"
+---
+- Don't `take` anything.
+- Don't `take` my daddy!
+- Don't `take` them off.
+- Don't `take` too long.
+- Dora, `take` her spot.
+- Emori, `take` a break.
+- Everybody `take` five.
+- Frank, `take` it easy.
+- Give or `take` a year.
+-  go -- `take` the van!
+- Gotta `take` a second.
+- He can't `take` us in.
+- He couldn't `take` it.
+- He'll `take` his time.
+- Hey, `take` your time.
+- Hey, wait `take` this.
+- I gotta `take` a leak.
+- I gotta `take` a piss.
+- I have to `take` this.
+- I'll go `take` a look.
+- I'll `take` a burglar!
+- I'll `take` chocolate.
+- I'll `take` them both.
+- I'll `take` you about.
+- I'll `take` you later.
+- I'll `take` your word.
+- I'll `take` you there.
+- I'll `take` you to it.
+- I mean `take` it easy.
+- I `take` a long lunch.
+- I `take` five hundred.
+- I `take` the pictures.
+- It don't `take` three.
+- It'll `take` a minute.
+- It would `take` hours.
+- It would `take` years.
+- Just `take` it, scott.
+- Just `take` it slowly.
+- Just `take` the money.
+- Lemme `take` you home.
+- Let him `take` it all.
+- Let me `take` you out.
+- Look at him `take` it!
+- Must you `take` those?
+- Okay -- `take` a seat.
+- Shouldn't `take` long.
+- So i can `take` a nap.
+- Sure `take` after him.
+- ...`take` a long view.
+- `Take` a look at this.
+- `Take` a look, harold.
+- `Take` a walk with me.
+- `Take` care of my son.
+- `Take` care, you hear?
+- `Take` 'em downstairs.
+- `Take` him over to g2.
+- `Take` him to the zoo?
+- `Take` it easy, bongo.
+- `Take` it,easy, boy...
+- `Take` it easy, clark.
+- `Take` it easy, dodge.
+- `Take` it easy, folks.
+- `Take` it easy, jamal.
+- `Take` it easy, jimmy.
+- `Take` it easy, scott.
+- `Take` it or leave it.
+- `Take` it to a lawyer!
+- `Take` me back, craig.
+- `Take` my word for it.
+- `Take` off his helmet.
+- `Take` off the blades.
+- `Take` off your pants.
+- `Take` that, blue boy.
+- `Take` the damn water.
+- `Take` them away, too!
+- `Take` them into town.
+- `Take` them to church.
+- `Take` the next right.
+- `Take` the rover back.
+- `Take` the test again.
+- `Take` the van and go.
+- `Take` this to baines.
+- `Take` your best shot.
+- `Take` your boots off.
+- `Take` your shirt off.
+- `Take` your time, jer.
+- That will `take` time.
+- Then `take` the pills.
+- To `take` your throne.
+- To `take` you to jail?
+- Try to `take` it easy.
+- Vasquez, `take` point.
+- Vee `take` your money!
+- Want to `take` a look?
+- Want to `take` a walk?
+- We do not `take` tips.
+- We don't `take` hints.
+- We don't `take` risks.
+- We'll `take` my truck.
+- Well, `take` them off.
+                 

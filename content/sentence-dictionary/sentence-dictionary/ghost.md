@@ -1,0 +1,103 @@
+---
+title: "ghost in a sentence | ghost example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ghost"
+---
+- Nice girl - no `ghost`.
+- This is a `ghost` town.
+- But he's a good `ghost`.
+- A `ghost` in the machine.
+- It's like a `ghost` town.
+- Like a... like a `ghost`!
+- To a `ghost` i must fade!
+- Daddy the friendly `ghost`.
+- `Ghost` apple, to be exact.
+- `Ghost` knows where we are.
+- He thought it was a `ghost`.
+- If they `ghost`, we're dead.
+- The `ghost` can be barefoot.
+- I need the helmet to `ghost`.
+- It's that darn `ghost` again!
+- Oh, he hates `ghost` stories.
+- Well, maybe it's his `ghost`.
+- A spook, a spectre, a `ghost`.
+- Just like a `ghost` ship, huh?
+- So -- you've laid the `ghost`.
+- It's just an old `ghost` story.
+- There it is, the `ghost` trail.
+- We lucky our `ghost` is a baby.
+- Three, we have to fight `ghost`.
+- What, like some kind of `ghost`?
+- Did you bring back "`ghost` dad"?
+- Oh my god, the `ghost` has buddy!
+- The green underwater `ghost`'s...
+- I tell you, i feel like a `ghost`.
+- Trying to measure up to a `ghost`.
+- I've seen a `ghost`... are you mad?
+- I wouldn't live in it as a `ghost`.
+- Nonsense -- german `ghost` stories!
+- A `ghost` masked killer stares back.
+- Listen, the `ghost` is too powerful.
+- That's all the `ghost` anyone needs.
+- You look like you've seen a `ghost`.
+- A `ghost` gives dan aykroyd oral sex.
+- ♪ i ain't afraid of no `ghost` ♪ adam!
+- ♪ i ain't afraid of no `ghost` ♪ what?
+- The fog was the `ghost` of the sea.
+- ♪ i ain't afraid of no `ghost` ♪ you...
+- Noah's ark and the holy `ghost`, crazy?
+- That we've created ourselves a `ghost`?
+- Because there's a `ghost` threatening us.
+- Three, we're gonna have to fight `ghost`.
+- Except that he can't heave out his `ghost`.
+- She told me you were a `ghost` in her life.
+- Though i notice he tried to `ghost` my ass.
+- Two, we have to kick out foster and `ghost`.
+- Sometimes i think he's pretty much a `ghost`.
+- `Ghost` a steppin' razor... a place to tap in.
+- That's why i took this job -- `ghost` writing!
+- You go out there, `ghost` or not, it's a risk.
+- ♪ i ain't afraid of no `ghost` ♪ don't you see?
+- Am i to wander the earth forever like a `ghost`?
+- 'cause i got some serious `ghost` problems here!
+- I'm on the fucking `ghost` train right now, man.
+- Oh, you know... drink beer, tell `ghost` stories.
+- Are we hoping the `ghost` is going to have to pee?
+- A `ghost` mask, a cellular phone -- not much there.
+- Then you are him and one with the holy `ghost`.
+- You look as if you've seen a `ghost`... not at all.
+- Me and my friends... you see there was this `ghost`.
+- Healing particles secured for our new `ghost` friend.
+- Some say that's fidalgo's `ghost` we're all gonna die.
+- She's a confirmed `ghost` story and horror film addict.
+- That `ghost` mask is sold at both kroger's and walmart.
+- Can i just say, i thought '`ghost`' was a wonderful film.
+- Looks like we just lost our last chance `ghost` mode now!
+- He's the pro from dover and i'm the `ghost` of smokey joe.
+- Spengler, are you serious about actually catching a `ghost`?
+- Uh, guys... a motor to make it look like i caught a `ghost`.
+- But if she won't fly to my aid, then into a `ghost` i must fade.
+- Is your poppa a `ghost` -- or do you converse with god almighty?
+- Looks more like the `ghost` of the old south, but we'll try her.
+- Every time i give my heart to a woman, or an animal or a `ghost`.
+- Sir, if this is an alliance i'm gonna ask her `ghost` to the prom.
+- It's just as if i've seen a `ghost` today... history repeats itself.
+- You've probably never shaken hands with a `ghost` before, am i right?
+- Was that you i heard milling around last night, or was that a `ghost`?
+- Like me, like bain, you're a `ghost`, you're not part of the real world.
+- I own a-- it's all set up... `ghost` phones and fax, all the usual stuff.
+- Can i get a status report, cause i got some serious `ghost` problems here!
+- That `ghost` guy came and took my friend's baby and we got to get it back.
+- Don't get me wrong, it's nice to be thankful, but it's like a `ghost` ship.
+- My 90 year old grandfather thinks '`ghost` in the computer - silicon dragon.'
+- I felt like the `ghost` and you humps aren't worthy to swill his backwash.
+- She turns behind her to see the `ghost` face coming at her again...knife raised.
+- The second you left there, we started getting calls to the * `ghost` numbers.
+- If i had seen a `ghost` at your age, i would have been frightened out of my wits.
+- This janitor get on that drop ship all ground teams, `ghost` and wait for orders.
+- Or, would you remake our laws now that magistrate philipse has given up the `ghost`?
+- They're gone-- and me, i'm just an 'ol graveyard `ghost`--that's all in the world i am.
+- Well, no -- i'm sure he was friendly -- to demi moore -- who acted with him in '`ghost`.'
+- You won't accept this now, but i'm probably saving your life my `ghost` right now, are you?
+                 

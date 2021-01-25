@@ -1,0 +1,58 @@
+---
+title: "breaks in a sentence | breaks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "breaks"
+---
+- No one `breaks` in here.
+- Alex `breaks` away again.
+- Oh, it `breaks` the heart.
+- That's the `breaks` i get.
+- Who am i to give `breaks`!
+- Them's the `breaks`, right?
+- All hell `breaks` loose.
+- Everything `breaks` at once.
+- What if a pod `breaks` down?
+- Well, those are the `breaks`.
+- 1945: peace `breaks` out d'oh!
+- `Breaks` down into heavy sobs.
+- I gave you the `breaks`, didn't i?
+- ...and then she just `breaks` down.
+- ♪ the heart, it `breaks` me... ♪ oh.
+- It always `breaks` in the same place.
+- They stick mostly to certain `breaks`.
+- Guy with a routine goes and `breaks` it?
+- He kisses her again, then `breaks` away.
+- Associating with them `breaks` your deal.
+- The tax `breaks` they so desperately need.
+- What light through yonder window `breaks`?
+- Associating with them `breaks` your deal.
+- That `breaks` my confidentiality stipulation.
+- What happens when all hell `breaks` loose?
+- He'll get some of us, but that's the `breaks`.
+- When hell `breaks` loose, it `breaks` loose fast.
+- If anyone `breaks` into your house, you can hide.
+- Supposing one of those cables `breaks` under tow.
+- Then, suddenly, she `breaks` into a broken run.
+- The women get all the `breaks` at these conferences.
+- ♪ but i can make it there ♪ so it `breaks` your fall.
+- But somewhere down the chain, something `breaks` down.
+- Alex `breaks` away but the tramp toddles alongside him.
+- Who the fuck `breaks` in through the neighbor's house?!
+- It's not like it's gonna matter if she `breaks` something!
+- I don't see how we can find the rebels before she `breaks`.
+- The restraint is to protect you in case he `breaks` through.
+- Windshield that `breaks` into a thousand glass razor blades.
+- No one `breaks` the deal, no one had anything to worry about.
+- The day after someone with her same name `breaks` our top score.
+- Back on earth, when something `breaks`, you don't fix it, you replace it.
+- But when something bad happens, something really bad -- the wall `breaks`.
+- ♪ if he `breaks` his neck ♪ but, no matter what i do, someone always does.
+- I was on my way to you when my car `breaks` down in the middle of nowhere.
+- Hey man, it's the neighbor's house, who `breaks` in through the neighbor's house?!
+- Some kid at school teases me and the same day a plague `breaks` out in bangladesh.
+- "during heat episodes of 2000 kelvin or higher, trych `breaks` down and dissipates.
+- "the world `breaks` everyone, and afterwards many are strong in the broken places."
+- We got to get it out before the story `breaks`, so we aren't quote, responding to it.
+- I was doing the lambada with her and the guy freaks, he `breaks` my arm, tries to kill me.
+                 

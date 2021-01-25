@@ -1,0 +1,107 @@
+---
+title: "that's in a sentence | that's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "that's"
+---
+- But maybe `that's` it.
+- But `that's` cheating!
+- But `that's` not true.
+- But `that's` not true!
+- But `that's` the jail!
+- But `that's` tomorrow.
+- But `that's` too soon!
+- Can -- `that's` right.
+- Carl, `that's` insane.
+- Don’t ﬁre `that's` it?
+- Duh... `that's` quick.
+- Gee, `that's` too bad.
+- Guys, `that's` enough.
+- Hey, `that's` whacked!
+- I don't, `that's` all.
+- I dunno, `that's` all.
+- If `that's` all right.
+- If `that's` your word.
+- I guess `that's` a no.
+- I need... `that's` it.
+- I swear, `that's` all.
+- Judy, `that's` stupid.
+- Look, `that's` enough.
+- Man, `that's` far out!
+- Maybe *`that's`* love.
+- None of `that's` true.
+- None of `that's` true?
+- No, no, `that's` fine.
+- No, `that's` ignorant.
+- No, `that's` my point.
+- No, `that's` not true.
+- Now, `that's` my girl.
+- Now `that's` my point.
+- Now `that's` romantic.
+- Now `that's` teamwork.
+- Now `that's` too much!
+- Oh, `that's` a phoney.
+- Oh, `that's` a relief.
+- Oh `that's` just fine.
+- Oh, `that's` not good.
+- Oh, `that's` not mine.
+- Oh, `that's` terrible.
+- Okay, `that's` a five.
+- Okay, `that's` enough.
+- Right, `that's` right.
+- So, what, `that's` it?
+- Thanks... `that's` ...
+- `that's` a 1992 byron.
+- `that's` a better one.
+- `that's` a book, baby.
+- `that's` a bozo no-no.
+- `that's` a compliment.
+- `that's` a cow, harry.
+- `that's` a cute trick.
+- `that's` a day's work.
+- `that's` a fine chick.
+- `that's` a good color.
+- `that's` a good point.
+- `that's` a good punch.
+- `that's` a good story.
+- `that's` a good thing.
+- `that's` a good thing?
+- `that's` a great idea!
+- `that's` a great idea.
+- `that's` a great line.
+- `that's` agreed, okay?
+- `that's` a known fact.
+- `that's` all bullshit.
+- `that's` all finished.
+- `that's` all, for now.
+- `that's` all he needs.
+- `that's` all he wants!
+- `that's` all i needed.
+- `that's` all i've got.
+- `that's` all i want...
+- `that's` all i wanted.
+- ...`that's` all right.
+- `that's` all there is.
+- `that's` all they are.
+- `that's` all they get?
+- `that's` a long story.
+- `that's` a lotta crap.
+- `that's` alright, man.
+- `that's` always tough.
+- `that's` an easy call.
+- `that's` a nice shirt.
+- `that's` an intrusion.
+- `that's` a palindrome.
+- `that's` a silly joke.
+- `that's` a solid name.
+- `that's` a sweet deal.
+- `that's` a train, son.
+- `that's` a true story.
+- `that's` because i am.
+- `that's`' bobby seale.
+- `that's` chicken feed.
+- `that's` close enough.
+- `that's` cold calling.
+- `that's` common sense.
+- `that's` cool with me.
+                 

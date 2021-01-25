@@ -1,0 +1,60 @@
+---
+title: "foolish in a sentence | foolish example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "foolish"
+---
+- I was being `foolish`?
+- You're being `foolish`!
+- Feel a little `foolish`?
+- You are being `foolish`.
+- That was `foolish` of me.
+- I thought i was `foolish`.
+- Besides i'd look `foolish`.
+- I don't look too `foolish`?
+- Let's be `foolish` tonight.
+- Oh, of all the `foolish`...
+- Do i sound `foolish` to you?
+- I am a `foolish` little thing.
+- If you ask me, it's `foolish`.
+- May fortune favor the `foolish`.
+- That was a `foolish` thing to do.
+- You are going to feel so `foolish`.
+- What `foolish` little lambs you are.
+- Because it seemed stupid and `foolish`.
+- Yes, of course, it was `foolish` of me.
+- I don't want to make men look `foolish`.
+- That was a `foolish` act, but it was brave.
+- I've heard some `foolish` things in my life.
+- They're hard workin' boys that was `foolish`.
+- I just want to show you how `foolish` you are.
+- You know nothing of power, you `foolish` girl.
+- ... and the '`foolish`' emotions which drive us?
+- Tell them how `foolish` it is, paul -- tell them!
+- No matter who we may be `foolish` enough to elect.
+- My point is, i don't want to do anything `foolish`.
+- The `foolish` man left it sitting on his windowsill.
+- A middle-aged lady, very `foolish` and very generous.
+- Don't do anything `foolish` -- i'm alarmed about you.
+- I was drunk and i was `foolish` enough to answer her.
+- By worrying about you spending money on `foolish` things?
+- It is `foolish` if it is just to save the life of an old man.
+- My elders were `foolish` enough to dismiss them as wives tales.
+- You think this is just about money, about us looking `foolish`?
+- It would be `foolish` for the rebel forces to come out of hiding.
+- I guess i was `foolish` enough to think that would be enough for you.
+- He's got a lot of `foolish` notions - about saving a lady in distress.
+- What you've done is make the entire physics department look `foolish`.
+- That could be a serious accusation, rand, if it weren't a `foolish` one.
+- You look at me as though i had said something `foolish`... what do i say?
+- Lieutenant lathe, i confess i am beginning to feel a bit `foolish` myself.
+- Doyle -- are you interested in solving a case, or making me look `foolish`?
+- Please, miss kubelik, you got to promise me you won't do anything `foolish`.
+- Any one who is not afraid is bound to do something `foolish`, and bound to die.
+- Sir, i'll not see any of my men killed or wounded in this `foolish` enterprise.
+- Jimmy, you're very young--and a `foolish` decision now could wreck your whole life.
+- Lisa, ignorant men and `foolish` women sometimes do we are many, but we move as one.
+- I have better things to do this week than answer the `foolish` questions of some flatfoot.
+- Forgive me, but it was superstition ...`foolish`, childish wishes...that started, all this.
+- Personally i think it's `foolish` for them to be sending fresh kids out on a job like this.
+                 

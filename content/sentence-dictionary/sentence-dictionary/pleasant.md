@@ -1,0 +1,56 @@
+---
+title: "pleasant in a sentence | pleasant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pleasant"
+---
+- What a `pleasant` hobby.
+- A `pleasant` journey, sir.
+- Have a `pleasant` evening.
+- Have a `pleasant` journey!
+- You're `pleasant` tonight.
+- Have a `pleasant` vacation?
+- ...such a `pleasant` sound.
+- What a `pleasant` surprise.
+- She seems `pleasant` enough.
+- Are you always this `pleasant`?
+- Did you have a `pleasant` trip?
+- It's a very `pleasant` room, ben.
+- But... and it won't be `pleasant`.
+- Did you have a `pleasant` day today?
+- I don't expect you to be `pleasant`.
+- That is a much more `pleasant` word.
+- I haven't been `pleasant` this weekend.
+- We'll i'll give you some `pleasant` news.
+- I certainly can't say it's `pleasant`.
+- It might be `pleasant` for a couple of days.
+- This is all very `pleasant` but why are here?
+- I was noticing how... `pleasant` the evening is.
+- Not at all, just a `pleasant` way to have lunch.
+- I have something far more `pleasant` awaiting me.
+- Chamberlain, arrange a `pleasant` welcome for him.
+- For most people it's a rather `pleasant` experience.
+- What's that `pleasant` smell coming from, your skin?
+- I was just tryin'�you know�to make things `pleasant`.
+- Thank you for the dinner and a very `pleasant` evening.
+- Honey what a `pleasant` surprise, sorry to keep you waiting.
+- They make the workplace `pleasant`, did you find the ledger?
+- He was tall, thin, `pleasant`, and had a moustache like mine.
+- We prefer to keep these proceedings as "`pleasant`" as possible.
+- But you're going to tell us anyway... what a `pleasant` surprise.
+- It wouldn't make a `pleasant` evening, if that's what you're after.
+- Merely to welcome you to casablanca and wish you a `pleasant` stay.
+- How could we go back to the wars with such `pleasant` company here..
+- A `pleasant` smile perhaps a kiss; i would not fail to give her this.
+- I am sorry that we could not meet under more `pleasant` circumstances.
+- If you start out depressed, everything's kind of a `pleasant` surprise.
+- No, you see, i'm -- well, -- i'm -- it's `pleasant` down that way, too.
+- But if he is alive and i kill him... not very `pleasant` in here, is it?
+- Why don't we all do our little private parts to make it a `pleasant` one?
+- This love-in-an-attic isn't my idea of a way to spend a `pleasant` afternoon.
+- I'm well aware of how `pleasant` the weather is in rome at the present time thank you.
+- We know you too well... come to think of it, i haven't been very `pleasant` for weeks.
+- My brother and i were on our way to the city of light, i'm generally a `pleasant` person.
+- I sometimes enjoy puttering around myself, such a `pleasant` way to forget one's troubles.
+- I suppose you know this isn't going to be `pleasant` for either of us, especially for you.
+                 

@@ -1,0 +1,57 @@
+---
+title: "suspicious in a sentence | suspicious example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suspicious"
+---
+- Why are you so `suspicious`?
+- Did anyone look `suspicious`?
+- Now, you're too `suspicious`.
+- It makes us look `suspicious`.
+- Acting in a `suspicious` manner.
+- What was `suspicious` about him?
+- You're even `suspicious` of him.
+- You're right to be `suspicious`.
+- My parents are growing `suspicious`!
+- `Suspicious`, after all these years?
+- Tara, you're always so `suspicious`.
+- You've been `suspicious` for a while.
+- Hana turns, startled and `suspicious`.
+- She's getting `suspicious`, i know it.
+- That's not too `suspicious`, is it?...
+- Says you were jealous and `suspicious`.
+- Oh, lisa, you're always so `suspicious`.
+- You have to be `suspicious` of everyone.
+- Bellamy, on radio: anything `suspicious`?
+- This whole thing seems very `suspicious`.
+- Does that look at all `suspicious` to you?
+- I'm `suspicious` of men who want to marry.
+- Must one, then, be constantly `suspicious`?
+- The others are getting `suspicious` of you.
+- `Suspicious` bastards got them all locked up.
+- It says the neighbors are getting `suspicious`.
+- She has reason to be `suspicious`..doesn't she?
+- A bit on the `suspicious` side, don't you think?
+- If you keep avoiding him he'll get `suspicious`.
+- Hegarty: i'm slightly `suspicious` of those things.
+- You were the one who was always `suspicious` of her!
+- If anything `suspicious` should happen to me, aw.
+- It's more `suspicious` if i sit around doing nothing.
+- The desk clerk seemed to be a little bit `suspicious`.
+- There've been no more incidents, nothing `suspicious`.
+- Wouldn't it be less `suspicious` if we weren't skulking?
+- Because everything that man's done has been `suspicious`.
+- I guess larry's got me totally `suspicious` of that place.
+- I'm just saying here, i'm, like, the least `suspicious` one.
+- Which i always do when we fight, it's `suspicious` if i don't.
+- Suggestive, even borderline `suspicious`, but hardly conclusive.
+- If we stay too long at one source ... people become `suspicious`.
+- I've seen a lot of `suspicious`-looking people around here today.
+- How long can you keep lecktor out without him getting `suspicious`?
+- Now that you mention it there was somebody who looked `suspicious`.
+- Have you seen anything or anyone `suspicious` around here in the last few days?
+- No, you can't do that--they'll get `suspicious`-- i'm going to call the police.
+- Otherwise we'll be forced to destroy every `suspicious` system... what a waste...
+- When she started getting `suspicious` about me was when they stopped using it on me.
+- I must have been there fifty times, it's never been locked; they're not `suspicious`.
+                 

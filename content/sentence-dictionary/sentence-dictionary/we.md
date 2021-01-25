@@ -1,0 +1,107 @@
+---
+title: "we in a sentence | we example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "we"
+---
+- Before `we` get there.
+- Bellamy, `we`'re here.
+- Bell, what do `we` do?
+- Boiler, `we`'re alive.
+- Booze `we` don't need.
+- Both if `we`'re lucky.
+- But now eat `we` must.
+- But `we` are warriors.
+- But `we` can erase it.
+- But `we` can erase it.
+- But `we` civilized it.
+- But `we` did see this.
+- But `we` did want you.
+- But what `we` believe.
+- Can `we` go there now?
+- Can `we` help the man?
+- Can `we` make out now?
+- Can `we` make popcorn?
+- Clarke, `we` need him.
+- Cole, `we`'re outlaws.
+- Come on, `we`'re late.
+- Come on, `we`'re next.
+- Could `we` try it now?
+- Did `we` get them all?
+- Did `we` lose anybody?
+- Did `we` win the game?
+- Do `we` have a future?
+- Do `we` have a garden?
+- Do `we` have a visual?
+- Do `we` throw it back?
+- Eddie, where are `we`?
+- El, el, `we` found it.
+- Have `we` obligations?
+- He knows `we`'re here.
+- Hell, `we`'re farmers.
+- Here's what `we` know.
+- Here `we` are, harold.
+- Hey, `we`'re flexible.
+- Holy sh... shall `we`?
+- How about `we` don't?!
+- How can `we` be happy?
+- How can `we` fix this?
+- How can `we` help him.
+- How can `we` stop him?
+- How did `we` get here?
+- How do `we` bypass it?
+- How do `we` decode it?
+- How do `we` get there?
+- How do `we` know that?
+- How do `we` warn them?
+- How long do `we` have?
+- How long do `we` have?
+- How long do `we` wait?
+- How many did `we` win?
+- How many `we` talking?
+- How much can `we` get?
+- How much do `we` need?
+- I bet `we` can fix it.
+- If `we` can make that.
+- _ if `we` don't fight.
+- If `we` had the parts.
+- If `we` work together.
+- I guess `we` woke him.
+- I hope `we` don't die.
+- I hope `we` will, too.
+- I'm sure `we`'re okay.
+- I say `we` call it in.
+- I say `we` fill it up.
+- I say `we` got a boat.
+- I say `we` go tonight.
+- I say `we` leave here.
+- Is how `we` do better.
+- I think `we` both can.
+- I think `we` can help.
+- I think `we` found it.
+- I think `we` just did.
+- I think `we` lost 'em.
+- I thought `we` agreed.
+- It's okay.. `we` lost.
+- It's ok. `we`'re safe.
+- It's the way `we` are.
+- It this all `we` have?
+- I... what can `we` do?
+- Jones: `we`'re here!
+- Keaton, `we` gotta go.
+- Kurtzweil, `we` think.
+- Laura said `we` could.
+- Like `we`'re a couple.
+- Looks like `we`'re it.
+- Look, `we` gotta talk.
+- Low-level, `we` think.
+- Maggie, are `we` good?
+- May `we` meet again.
+- _ may `we` meet again.
+- May `we` meet again.
+- Mind if `we` sit down?
+- Mom, neither are `we`.
+- Mr. black, shall `we`?
+- Murdock, here `we` go.
+- Nell, what do `we` do?
+                 

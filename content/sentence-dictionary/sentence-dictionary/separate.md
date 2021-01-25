@@ -1,0 +1,57 @@
+---
+title: "separate in a sentence | separate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "separate"
+---
+- We need to `separate`.
+- That is a `separate` issue.
+- We went our `separate` ways.
+- Don't let them `separate` us.
+- We go our `separate` ways.
+- `Separate` bathrooms, darling.
+- `Separate` everything but cars.
+- We need to `separate` our minds.
+- I thought we had `separate` rooms.
+- There are no `separate` clans here.
+- Have him put it on a `separate` line.
+- I thought we all had `separate` rooms.
+- Look at them `separate` the dye packs.
+- We had to `separate` you and mr. green.
+- You can't `separate` us from our child.
+- The art buys are in a `separate` ledger.
+- Politics and art must be kept `separate`.
+- That's a `separate` event at the marriott.
+- Night is part of day; `separate`, but equal.
+- On `separate` schools or anything like that.
+- You'll have `separate` beds, `separate` heads.
+- Dr. frankenstein always kept that `separate`.
+- We're not even two `separate` people anymore.
+- Time, distance, nothing could `separate` them.
+- We'll get to london and go our `separate` ways.
+- Not even tragedy, can `separate` us from his love.
+- We try to keep the children and adults `separate`.
+- ...and not have to go off in `separate` directions.
+- Why are we in `separate`--you know, `separate` rooms?
+- It's our job to `separate` the yolks from the whites.
+- I still don't see why we have to have `separate` rooms.
+- Sal, tom, the boss says he'll come in a `separate` car.
+- Y'know, if we didn't live in `separate` worlds and... yeah.
+- Trying to keep the minds `separate` so the body doesn't die.
+- Miz lampert, ma'am... we will `separate` -- you look over there.
+- First it was `separate` rooms -- now we're trying it with cities.
+- It's not really anyone per se, it's more of `separate` groupings.
+- You sink your `separate` self and become one with the universal self.
+- I prefer keeping my professional life `separate` from my personal life.
+- Is there an ornithological reason for keeping them in `separate` cages?
+- Ann and i have kept to our `separate` bedrooms for the last three years.
+- Use the foredecks as a lifeboat, `separate` it from the rest of the ship.
+- `Separate` the character module from the neural net... how do you kill it?
+- But there's an invisible wall, a fabric that kinda keeps things `separate`.
+- It's this double-standard, the `separate` quarters, the deferential treatment.
+- I mean, do you think the deuterium mass might `separate` from the atomic trigger?
+- Let's see what these two love birds say once they're sitting in `separate` cages.
+- Keep women `separate` from guns, money and business ... women are for spending money.
+- Anyway, we became more and more `separate` ...more and more isolated from one another.
+- Isolated completely, a quantum system would revert back to `separate` states of matter.
+                 

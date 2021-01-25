@@ -1,0 +1,107 @@
+---
+title: "Abby in a sentence | Abby example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Abby"
+---
+- Hey, `abby` needs you.
+- Kane: come on, `abby`.
+- What the hell, `abby`?
+- `Abby`: and the others?
+- `Abby`, it's a miracle.
+- `Abby`: ok, how deep?
+- `Abby`, please... yeah?
+- I'm sorry about `abby`.
+- I promised him, `abby`.
+- Listen, `abby`, please.
+- Motel... `abby`-- sign.
+- Was this `abby`'s idea?
+- You didn't kill `abby`.
+- `Abby`, `abby`, it's nyko.
+- `Abby`, just... octavia.
+- `Abby`-- okay, see ya...
+- `Abby`, this is madness!
+- `Abby`, we have to stop.
+- `Abby`... you all right?
+- Hold on tight, `abby`.
+- She's dangerous, `abby`.
+- `Abby`: all 100 of you.
+- `Abby`, don't fight them.
+- `Abby`... give the order.
+- `Abby`, stay with murphy.
+- Just spit it out, `abby`.
+- Where the hell is `abby`?
+- Why are you here, `abby`?
+- `Abby` says she's healthy.
+- `Abby`: she's stabilizing.
+- `Abby`, they'll float you.
+- `Abby`, what have we done?
+- Better take him to `abby`.
+- Better take him to `abby`.
+- Raven, honey, it's `abby`.
+- Take off the suit, `abby`.
+- To get dr. `abby` griffin.
+- What do you say, `abby`?
+- You weren't there, `abby`.
+- `Abby` on speaker: hello?
+- `Abby`: that's all right.
+- `Abby`: we don't know that.
+- `Abby`, we're wasting time.
+- He cares about you, `abby`.
+- It's from `abby` for danae.
+- That's `abby`'s department.
+- What about `abby` and kane?
+- `Abby`, please do something.
+- `Abby`, these are different.
+- Are you all right, `abby`?
+- It's not your fault, `abby`.
+- Woman: `abby`, what's wrong?
+- You're almost there, `abby`.
+- `Abby`... go, go, go, go, go!
+- `Abby`: he's come a long way.
+- `Abby`... nou blodreina nowe!
+- `Abby`... what have you done?
+- For saving your life, `abby`.
+- He blames himself for `abby`.
+- It's good to see you, `abby`.
+- That's not clarke and `abby`.
+- `Abby`, i'm sure clarke is ok.
+- `Abby`, there's no more algae.
+- `Abby`, you shouldn't be here.
+- I'm worried about `abby`, too.
+- Same way `abby` did to clarke.
+- You have to warn them, `abby`.
+- `Abby`, i'm trying to tell you.
+- `Abby`: ok. that's all right.
+- If not for `abby`, then for me.
+- I'm tracking everybody, `abby`.
+- It would have destroyed `abby`.
+- `Abby`: nice and slow, clarke.
+- `Abby`, we have to do something.
+- And turned in by `abby` herself.
+- [beep] what do you want, `abby`?
+- Does `abby` know you took these?
+- I... then why did i help `abby`?
+- There's always a choice, `abby`.
+- I'm not here to kill you, `abby`.
+- This doesn't concern you, `abby`.
+- Those are serious crimes, `abby`.
+- `Abby`, `abby`, we've got a problem.
+- `Abby`, `abby`, we've got a problem.
+- `Abby`, look at plasma osmolarity.
+- `Abby`: two dead kids, dark tiles.
+- Clarke doesn’t hate you, `abby`.
+- Test `abby`'s bone marrow formula.
+- The same way `abby` did to clarke.
+- We can't just let him die, `abby`.
+- `Abby`, kane's kidneys have failed.
+- `Abby`, what aren't you telling me?
+- Can i talk to `abby` alone, please?
+- Clarke, `abby`, what are you doing?
+- How much blood did you use, `abby`?
+- Jackson: `abby`, we have to stop.
+- `Abby`: jackson, use the wristbands.
+- `Abby`, you need to move faster, ok?
+- `Abby`, you need to move faster, ok?
+- `Abby`... you said just a few years.
+                 

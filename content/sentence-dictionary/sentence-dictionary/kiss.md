@@ -1,0 +1,107 @@
+---
+title: "kiss in a sentence | kiss example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kiss"
+---
+- Joe, may i `kiss` you?
+- Just give me a `kiss`.
+- `Kiss` me on the lips.
+- Only if you `kiss` me.
+- You can `kiss` me now.
+- A `kiss` for each page.
+- But he sure can `kiss`.
+- I will `kiss` thy lips.
+- `Kiss` me, mr. hillyer!
+- You `kiss` by the book.
+- You may `kiss` my hand.
+- Give a `kiss` to edward.
+- I never `kiss` and tell.
+- `Kiss` a woman in italy.
+- `Kiss` me once for luck!
+- Now you gotta `kiss` me!
+- That counts as a `kiss`.
+- When we met... a `kiss`.
+- Babe, i could `kiss` you!
+- Did he try to `kiss` you?
+- Give me a goodbye `kiss`.
+- It's the `kiss` of death.
+- That was my first `kiss`.
+- Then, you `kiss` his ass.
+- When was my first `kiss`?
+- How did you see us `kiss`?
+- If you call that a `kiss`.
+- Let's `kiss` and make up."
+- Yes... a `kiss`... salute!
+- Are you going to `kiss` me?
+- Do i get to `kiss` her too?
+- Fuck you and `kiss` my ass.
+- ...give a `kiss` to edward.
+- ...i'm going to `kiss` you.
+- I want to `kiss` you there.
+- I would like to `kiss` you.
+- `Kiss` me you semitic stud!
+- `Kiss` the 85 thou goodbye?
+- You look like a wet `kiss`.
+- All i did was `kiss` a girl.
+- Here's a `kiss` for you.
+- I'll `kiss` you and hug you.
+- I think we gotta `kiss` now.
+- `Kiss` me and i'll tell you.
+- `Kiss` the back of my knees.
+- Lately `kiss` my ass lately.
+- Maybe we should just `kiss`.
+- Or `kiss` me in the puncher.
+- Our salute will be a `kiss`.
+- Tell me and i'll `kiss` you.
+- A `kiss` under the misteltoe.
+- A `kiss` under the mistletoe.
+- He's the ultimate `kiss` ass.
+- I'll `kiss` the baby for you.
+- Thus..... with a `kiss`......
+- You come to hug... to `kiss`.
+- You may now `kiss` the bride.
+- You wouldn't `kiss` him, huh?
+- All i did was `kiss` the girl.
+- Dela, `kiss` my big black ass.
+- Give me a `kiss`, my dear boy.
+- I ever made you `kiss` a fish.
+- `Kiss` your mom 'night for me.
+- So that's when you `kiss` her?
+- Sra-i'm-sick - `kiss` my arse!
+- To that, i say, "`kiss`-`kiss`."
+- You can `kiss` my ass, really.
+- And `kiss` under the bleachers.
+- Don't i usually `kiss` my wife?
+- I think she's gonna `kiss` him.
+- Sick - `kiss` i'm - my `kiss` my!
+- The `kiss` tickets, you nimrod!
+- You like to `kiss` her goodbye.
+- First the `kiss` then the touch.
+- I don't want to `kiss` you here.
+- I just wanna `kiss`, that's all.
+- [slam] and my people, `kiss` me.
+- You can `kiss` them if you want.
+- But that was not a proper `kiss`.
+- It's a `kiss`... goodbye... what?
+- It was a platonic `kiss`, father.
+- It was when i went to `kiss` her.
+- No, it doesn't... just `kiss` me.
+- So let's `kiss` and make up, hon.
+- Will you ... would you `kiss` me?
+- Aren't you allowed to `kiss` back?
+- "but damn if i want to `kiss` you!
+- I always loved the way you `kiss`.
+- I'd just as soon `kiss` a wookiee.
+- I `kiss` your hand, don tommasino.
+- No...i was hoping to get a `kiss`.
+- Their first `kiss` was their last.
+- * why can't i get just one `kiss`?
+- You never saw us `kiss` like that?
+- But damn, if i want to `kiss` you!"
+- Can i give you a `kiss` good night?
+- Can i `kiss` you on the cheek, too?
+- `Kiss` your ass goodbye, reinhardt.
+- Maybe if i `kiss` him i'll feel it.
+- Your lips are soft when you `kiss`.
+                 

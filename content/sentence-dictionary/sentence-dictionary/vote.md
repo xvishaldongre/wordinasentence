@@ -1,0 +1,85 @@
+---
+title: "vote in a sentence | vote example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "vote"
+---
+- "every `vote` counts."
+- I don't have a `vote`.
+- We all get one `vote`.
+- I only have one `vote`.
+- I `vote` for the motel.
+- The `vote` wasn't close.
+- I `vote` for the hammock.
+- The `vote` is in an hour.
+- To `vote` on the culling.
+- I move that we `vote` now.
+- [man 2] `vote` for change!
+- I'd `vote` for outer space.
+- You don't `vote` for kings.
+- What if i changed my `vote`?
+- A `vote` is before the group.
+- He's got the anti-war `vote`.
+- Uh... you don't get a `vote`.
+- Well, i didn't `vote` for you.
+- And his `vote` proved decisive.
+- How does the chancellor `vote`?
+- Not after the `vote` next week.
+- Shall we `vote` him in, stella?
+- Hell, let's give eddie a `vote`.
+- You haven't even got the `vote`.
+- Julius caesar never took no `vote`.
+- The council `vote`'s in 30 minutes.
+- This `vote` of no confidence fails.
+- [crowd cheering] `vote` for all men!
+- Thanks for the `vote` of confidence.
+- I call for a `vote` of no confidence.
+- The last `vote` you cast was for quisp.
+- What i want is a `vote` on it right now!
+- Your `vote` of confidence is overwhelming.
+- Thanks for the `vote` of confidence, frank.
+- Everybody i know is going to `vote` for you.
+- I ask again, how does the chancellor `vote`?
+- I `vote` we go back to the slaughtered lamb.
+- Oh, the things i'll do for one extra `vote`.
+- Don't let it lose us the right-wing `vote` ...
+- Dr. hendricks, every `vote` was accounted for.
+- Now, friends `vote`... family and money votes.
+- Because every dollar that we spend is a `vote`.
+- Did we `vote` in the end for german or italian?
+- And--nine times out of ten, they `vote` it down.
+- Make... that's right, the price is their `vote`.
+- I believe this can be settled by a simple `vote`.
+- If you still feel this way, `vote` your shares...
+- I'm proposing a re-`vote` on watchin' the ballgame!
+- After all, i'm the one who got the women the `vote`.
+- I'm here with the... alright, let's take a `vote`...
+- This is an important event and i want a `vote` on it!
+- Kiss your ass with precision if there's a `vote` in it.
+- And if you disagree, convene a `vote` and take my place.
+- ♪ it's leaving your body now ♪ to `vote` on the culling.
+- Senior council member: how does the chancellor `vote`?
+- Without the blood alterations, i move that we `vote` now.
+- I assume you're being so delightful because of the `vote`?
+- The matter before us requires a 4-`vote` majority to pass.
+- Every `vote` was there when you sac down it happens, larry.
+- I was 7 when the first of to `vote` for you have a right to know.
+- We gave him a `vote` of confidence, we gave him a million dollars.
+- A `vote` in favor is to `vote` to cull 209 citizens of the ark enough.
+- It goes over to the house of representatives for debate and a `vote`.
+- But if that ain't the consensus view, hell, let's put her to a `vote`!
+- ♪ yo, jebediah survived the pox ♪ your people did not `vote` for kane.
+- A `vote` in favor is to `vote` to cull 209 citizens of the ark yes, i do.
+- Hell, it was mercedes over there who swung the deciding `vote` for him.
+- I tell everybody that comes in this cab that they should `vote` for you.
+- I'm telling ya jack, that's what happens when you let the niggers `vote`.
+- If i held a `vote` i think airstrike would beat blockade by a `vote` or two.
+- If this was a voting situation, then the `vote` would have been unanimous.
+- The colored `vote` happens to be very important to the mayor of this town.
+- Which would force our delegates in philadelphia to `vote` for independence.
+- A membership that, i am certain, will `vote` in a rational and pious manner.
+- Finally, if the bill is alive after all this vivisection, it comes to a `vote`.
+- Oh you know, bosnia, the importance of the right to `vote`... hey--that coffee?
+- It'd do you birds some good just to get a little exercise lifting your arms to `vote`!
+- By the power of safety scissors, a unanimous `vote` of the ambassadors dozens of times.
+                 

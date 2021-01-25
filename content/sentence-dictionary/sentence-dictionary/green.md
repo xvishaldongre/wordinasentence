@@ -1,0 +1,107 @@
+---
+title: "green in a sentence | green example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "green"
+---
+- Le fanu's `green` tea.
+- More red than `green`.
+- Systems in the `green`.
+- You're lookin' `green`.
+- You're still a `green`.
+- It makes a good `green`.
+- System's in the `green`.
+- Dr. `green`... all right.
+- Go back to `green` point.
+- Hey, look, a `green` one.
+- That's some long `green`.
+- There's no `green` there.
+- `Green` light, roger that.
+- It's in a `green` mustang?
+- The `green` destiny sword?
+- Dr. `green` has to see you!
+- Just a small `green` salad.
+- Meet jordan jasper `green`.
+- We hit every `green` light.
+- Don't pull the `green` wire.
+- The `green` destiny is mine.
+- "`green` hornet" board games.
+- I'm pulling the `green` wire.
+- Is she all `green` and furry?
+- Ok. red light, `green` light.
+- The costumes, `green` screen.
+- Living with you `green` beans.
+- The `green`-and-whites saw us.
+- I'll look `green` at breakfast.
+- Let's see if you bleed `green`.
+- Two `green` enabling buttons...
+- But i don't get a `green` light.
+- `Green` committed to a thousand.
+- I've laid out your `green` coat.
+- Speaking of `green`, how's eden?
+- The minivan and the `green` suv.
+- Check, all bomb circuits `green`.
+- I am tom `green`, i am tom `green`.
+- Is he wearing a `green` cardigan?
+- Stroke those keys, jelly `green`.
+- Stroke those keys, jolly `green`.
+- The `green` underwater ghost's...
+- They call me `green` jack, ma'am.
+- ♪ all that's left to do ♪ `green`.
+- `Green` berets, out of fort bragg.
+- `Green` water and the white rabbit.
+- In the only `green` place on earth?
+- I saw two `green` eyes in the dark.
+- It's got a `green` dot on its back.
+- Okay, happiness is a `green` light.
+- Pull anything but the `green` wire.
+- The sleeping prisoners are `green`.
+- Until you `green`-light this movie.
+- We're giving you the `green` light.
+- You know, the `green` cardigan guy.
+- As monty would say, `green` is good.
+- What's the `green` stuff poking out?
+- I'll take the one inna `green` dress.
+- Mm-hmmm... you look a little `green`.
+- You see the lever on the `green` box?
+- Be it fit for your wife, `green` jack?
+- I mean, mr. `green` was so nice to me.
+- You don't deserve the `green` destiny.
+- `Green` light on the hull, it's intact.
+- He calls this one `green`'s `green` goop.
+- The `green` capsules in the top drawer.
+- We had to separate you and mr. `green`.
+- Well, he doesn't have his `green` card.
+- Oh, screw you, you big, `green` asshole!
+- You ain't happy about the `green` light?
+- Everything `green` on my boards, skipper.
+- It looks pretty `green` for this climate.
+- Man: bio readouts are all in the `green`.
+- Not me... red light, `green` light, jos�?
+- You're looking a wee bit `green`, thomas.
+- Ever heard of a cub with a `green` flower?
+- `Green` hair, and a piercing on your bean.
+- Bellamy blake, john murphy, jordan `green`.
+- Fuck you.... `green` dot -- shotgun powder.
+- `Green` lights and white lines all the way.
+- * memento - `green` revisions 10-4-99 115a.
+- Like the coffee maker says, it's so `green`.
+- So they could transport that `green` poison?
+- He steps in, smash, over the `green` monster.
+- Red menace, yellow fever, `green` revolution.
+- Without the `green` destiny, you are nothing.
+- I think we can all agree that `green` is good.
+- I was trying to get that smelly `green` thing.
+- The barrack chief gave them the `green` light.
+- Well, we're in pursuit of a `green` mustang...
+- We use the kind in the `green` and yellow box.
+- We were just talking about vitamin s. `green`.
+- Where's the funky ball with the `green` light?
+- Why didn't moe `green` meet us at the airport?
+- Why is the `green` destiny in your possession?
+- You so `green` you couldn't stomp a baby duck.
+- Greetings, my lady, the `green` wood is honored.
+- Jack... `green` jack, you mustn't flatter me so.
+- Don't you get lonely in that little `green` room?
+- For me, the tiny `green` plastic war never ended.
+                 

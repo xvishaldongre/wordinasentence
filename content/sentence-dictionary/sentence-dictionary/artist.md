@@ -1,0 +1,82 @@
+---
+title: "artist in a sentence | artist example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "artist"
+---
+- I'm an `artist`, alura.
+- I'm an <u>`artist`</u>!
+- He was a great `artist`.
+- You're a great `artist`?
+- You're an `artist`, too.
+- I'm a comic strip `artist`!
+- Is your father an `artist`?
+- You're a terrific `artist`.
+- You sound like an `artist`.
+- Ana, you're a scam `artist`.
+- I'm not here as an `artist`!
+- Including best new `artist`.
+- I'm paralyzed as an `artist`.
+- Jean, you're a real `artist`.
+- Uh, i'm an `artist`, i guess.
+- Y'know, i'm an `artist`, too.
+- Whoever did this is an `artist`.
+- Yeah, i'm an `artist`, goddamit !
+- The man was an important `artist`.
+- Those are the hands of an `artist`.
+- A man can be an `artist` in anything.
+- I am an `artist` and i believe in art.
+- Yeah, well, it depends on the `artist`.
+- Columbia recording `artist` john legend.
+- Of the `artist` who created this tattoo.
+- He's a great conductor, a gifted `artist`.
+- I -- i -- they are... you're a gifted `artist`.
+- So i guess that means i'm an `artist` after all.
+- You're a bullshit `artist`, that's what you are.
+- The `artist`, to be vital, must be a soldier too.
+- Because you can't compromise an `artist`'s vision!
+- Goddammit, i expect to be treated like and `artist`.
+- I'm only trying to... an `artist` of your caliber...
+- ...not only an `artist`, but an instrument of change.
+- I got an `artist` working on a computer composite now.
+- Maybe we should start with a portrait of the `artist`.
+- Soft and wet, by the `artist` formerly known as prince.
+- The add just said &quot;makeup `artist`&quot; deceased.
+- Even an amateur `artist` needs a subject to inspire him.
+- If you were an `artist` you could have created something!
+- You're an `artist`, wladek, you keep people's spirits up.
+- All that is comes through the eye of the `artist`... sure!
+- It's a classic case of technology in search of an `artist`.
+- It seems as though you might have modeled for the `artist`.
+- I suppose if you're a struggling `artist` you need a patron.
+- We were told you know a hustle `artist` named johnny hooker.
+- You've been called a graffiti `artist` and i wanna know why.
+- Okay barton, you're the `artist`, i'm just the ten percenter.
+- A great `artist` will have great privileges in a russian zone.
+- That's all right ida ... it's just that he's such an `artist`.
+- That's true of any leading `artist` in any country in the world.
+- I tell you this because, as an `artist`, i think you'll understand.
+- I know that you are an `artist` and i am sure you are very religious.
+- Claire: as an interpretive `artist` to a creative `artist`: stay with me.
+- The exact man i've wanted you to meet is my `artist` the watercolorist.
+- Those files contain the details of every working `artist` in this country.
+- A gambler, con-`artist` ... all- around scoundrel ... ... your kind of guy.
+- Because of the craftsmanship, the expertise, and the `artist`'s loving hand.
+- I would as soon destroy a stained glass window as an `artist` like yourself.
+- It's kind of silly, actually, me going out with an `artist` in new york city.
+- She said she could tell i was a great `artist` � she could see it in my eyes.
+- So more like a tight rope walker who secretly wants to be a trapeze `artist`.
+- Hey, i'm a performer, an `artist`, i even unlocked the "skin unlocking" badge.
+- I'm making an exception because i respect you as an `artist` and as a dresser.
+- The rumour is hinkel kept a file on every `artist` working in the third reich.
+- Hasn't this 'incident' as you call it, jump started your career as an `artist`?
+- Okay, okay... we get a "personal consultation" with a make-up `artist` -- eeeh!
+- I told you boys i'm no escape `artist`, but for the first time, i like the odds.
+- My papa taught me one thing: don't never bullshit a west indian bullshit `artist`.
+- 'you may show the dent at the top of the `artist`'s buttocks -- but neither cheek.
+- In the event of a stunt person being used, the `artist` must have full consultation.'
+- This man, this great `artist` has made anti-semitic remarks like you wouldn't believe.
+- I don't know what it is, whether i should be an `artist`, or, i don't know... a dancer.
+- So i can spend the rest of my life guessing what it would be like to be a real `artist`?
+- That's all you've been waiting for, an `artist` with integrity, with a vision, who can see.
+                 

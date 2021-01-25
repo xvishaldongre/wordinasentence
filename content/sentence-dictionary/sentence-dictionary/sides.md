@@ -1,0 +1,63 @@
+---
+title: "sides in a sentence | sides example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sides"
+---
+- A coin's got two `sides`.
+- They see out the `sides`.
+- There are no more `sides`.
+- Two `sides` to every coin.
+- But both `sides` end up happy.
+- There's two `sides` to every story.
+- I've only just realized two `sides`?
+- Both `sides` would take heavy losses.
+- Guys don't wanna be choosin' `sides`.
+- Lives have been lost on both `sides`.
+- He's got you walled in on all `sides`.
+- Pete... '`sides`, car's right outside.
+- Both `sides` of the street, i'm afraid.
+- Always playing both `sides` of the fence.
+- Face it, lee, she's playing both `sides`.
+- '`sides`, you've worshipped me for years.
+- Sounds like it's coming from all `sides`.
+- And i've been on both `sides` of that one.
+- Everybody's flipping `sides` all the time.
+- I had my name on the `sides` of buildings.
+- Like i said, i don't want to take `sides`.
+- You're playing both `sides` of the street.
+- If you choose `sides` against us, still do.
+- Our great mother does not take `sides` jake.
+- They say it hit both `sides` of his brain...
+- It's called getting both `sides` of the story.
+- Will swing from the `sides` of the street next.
+- I know it's been like there's two `sides` to me.
+- How do both `sides` overcome ingrained prejudice?
+- '`sides`, the room was getting too crowded for me.
+- No, i -- you taking `sides` against me, now, frank?
+- Now everybody's switching `sides` like it's the wwf.
+- They're building them on both `sides` of the ravine.
+- You don't think -- worked both `sides` of the fence.
+- '`sides`, i be known' some heavy stuff about you now.
+- Oh, i see, you write both `sides` of the conversation?
+- I guess there's more than two `sides` - was he in love?
+- The thorn in both our `sides`, the fly in our ointment.
+- Watch all `sides` of the tavern in case they come back.
+- I'm afraid there's too much bitterness... on both `sides`.
+- It's sealed on both `sides`, so you'd have pressurization.
+- What kind of triangle has three `sides` of different lengths.
+- With defensible terrain on as many `sides` of us as possible.
+- Don't you feel there are different `sides` to every personality?
+- He developed evidence you were working both `sides` of the fence.
+- If you make enemies on both `sides` of the border, you'll end up dead.
+- That's a great story, they came at me from all `sides`, hundreds of 'em.
+- But if he ever chooses `sides` against the clan again, he burned the bible.
+- Different `sides` of your personality might come to life, speak out, act out.
+- We'll share everything we've learned how are we on different `sides` of this?
+- In dudley there were more `sides` of the tracks than any american can imagine.
+- He found out that hauser switched `sides`,-so he turned him into somebody else.
+- '`sides`, they tagged the rhinos for the migration project, so they're protected.
+- There are two `sides` to every personality, all right--the reality...and the lie.
+- I thought, and correct me if i'm wrong, but weren't you trying to play both `sides` ?
+- My dear caulaincourt, agreements can endure only when they allow both `sides` to live.
+                 

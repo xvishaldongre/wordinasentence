@@ -1,0 +1,107 @@
+---
+title: "alive in a sentence | alive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "alive"
+---
+- Boiler, we're `alive`.
+- Bring it back `alive`.
+- But i'm still `alive`.
+- If he's still `alive`.
+- I knew he was `alive`.
+- My kisses are `alive`.
+- Oh yeah, he's `alive`.
+- She's been `alive`...?
+- She's still `alive`...
+- They ate them `alive`!
+- Thy juliet is `alive`.
+- Weir can't be `alive`.
+- We know he is `alive`.
+- You're barely `alive`.
+- Your mother's `alive`.
+- Your sons are `alive`.
+- After all, i'm `alive`.
+- `Alive`, thanks to you.
+- At least she's `alive`!
+- At least she's `alive`.
+- [beat] but i'm `alive`.
+- Bucky... is... `alive`!
+- Clarke: he's `alive`.
+- Grateful to be `alive`.
+- He `alive` to see this?
+- I'm keeping us `alive`.
+- Is kurtz still `alive`?
+- Like they were `alive`.
+- She's `alive`, sweetie.
+- They're still `alive` !
+- You gotta stay `alive`.
+- You... you are `alive`.
+- All `alive` you say?
+- But he needs me `alive`.
+- But she's still `alive`.
+- He's `alive`... for now.
+- I'm glad you're `alive`.
+- I will keep you `alive`.
+- These woods are `alive`!
+- They are `alive`, sayer.
+- They burned her `alive`.
+- Why is he still `alive`?
+- You said he was `alive`!
+- 42 of us got out `alive`.
+- Are your parents `alive`?
+- He's still `alive`, edna!
+- His dad is still `alive`.
+- If he is `alive` or dead.
+- Imagine--she was `alive`.
+- I needed to feel `alive`.
+- It was `alive` wasn't it?
+- Lestat, she's `alive`!!!!
+- My child, you're `alive`!
+- Someone `alive` on earth.
+- That one's still `alive`.
+- This man's still `alive`.
+- You're... you're `alive`.
+- You weren't even `alive`!
+- But they're `alive`, what?
+- But we have spock `alive`!
+- Clarke... they're `alive`.
+- Energized, more `alive`...
+- Grandma was still `alive`.
+- He could still be `alive`.
+- How are you still `alive`?
+- I feel impeccably `alive`.
+- I never felt more `alive`.
+- Is he... he's `alive`.
+- It means clarke's `alive`.
+- I want that shark `alive`.
+- My father's still `alive`.
+- Of course they're `alive`.
+- See if he's still `alive`.
+- So why am i still `alive`?
+- Than keeping them `alive`.
+- The guys are `alive`, sir.
+- We're being baked `alive`.
+- We're lucky to be `alive`.
+- 300 of my warriors `alive`.
+- At least she'll be `alive`.
+- Fear will keep you `alive`.
+- Found him `alive` and well.
+- I'm so glad you're `alive`.
+- I think he's still `alive`.
+- It was `alive` and kicking.
+- I was the only one `alive`.
+- Leo fast elk... is `alive`.
+- Not as long as i'm `alive`.
+- To remind us we're `alive`.
+- Which has kept him `alive`.
+- You're `alive`, aren't you?
+- Zorin will eat him `alive`!
+- Are you even really `alive`?
+- Could they still be `alive`?
+- I didn't say he was `alive`.
+- _ - is he... - he's `alive`.
+- Is looseleaf harper `alive`?
+- She's still `alive`, i hope.
+- Then we'll need him `alive`.
+- We need to keep him `alive`.
+                 

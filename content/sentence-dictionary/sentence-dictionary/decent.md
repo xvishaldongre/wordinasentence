@@ -1,0 +1,84 @@
+---
+title: "decent in a sentence | decent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "decent"
+---
+- It's a `decent` batch.
+- We try to be `decent`.
+- Fine, one `decent` idea.
+- Honest, `decent` people.
+- One tall, `decent` body.
+- I'm a `decent` republican.
+- We did the `decent` thing.
+- It's a pretty `decent` one.
+- Who wants to be `decent`?..
+- You seem a `decent` fellow.
+- Mighty `decent` of you, pal.
+- Or a `decent` fricking tent?
+- You're a `decent` man, howard.
+- You did the only `decent` thing.
+- Care to wait a `decent` interval?
+- He's a very `decent` man, harold.
+- Thank god for the `decent` people.
+- It's the only `decent` thing to do.
+- You can be a pretty `decent` bitch.
+- He just lacked a `decent` incentive.
+- Make a `decent` life someplace else.
+- How do you know if a guy is `decent`?
+- It was the only `decent` thing to do.
+- To make a `decent` life for yourself.
+- At least he can afford a `decent` gift.
+- ...but try getting a `decent` hair jelly.
+- No, don't you get all `decent` on me now.
+- Oh, don't you get all `decent` on me now.
+- This war's put an end to `decent` things.
+- First `decent` idea you've had in a month.
+- Did you give him enough for a `decent` meal?
+- Haven't had a `decent` bust this whole month.
+- He's a `decent` fellow, the president, isn't he?
+- Let's go to rector's and get something `decent`.
+- She ain't been treated `decent` for a long time.
+- You've got `decent` taste in slasher movies, mark.
+- 33 years old and i don't even have a `decent` watch.
+- This should be it... first `decent` idea you've had.
+- Secretive too, traveled all over, but a `decent` man.
+- I've heard all of you, in the shower --you're `decent`.
+- Gentlemen are supposed to believe in something `decent`.
+- I'm sure you're quite willing to be `decent` about this.
+- It is like you to think that -- clean, `decent` thinking.
+- I guess any guy could be `decent`--if you were interested.
+- It's the way any `decent` man would feel in your position.
+- Maybe even the worst of us is capable of one `decent` act.
+- Push you around so it's hard to get any `decent` work done.
+- What i have in mind is massage--a perfectly `decent` massage.
+- `Decent` men with loving families go home every day after work.
+- Why didn't you just sleep with them, like any `decent` person?!
+- ... just wanna be a good mom, a nice person, a `decent` citizen.
+- I would be awfully glad to oblige, you've been so `decent` to me.
+- `Decent` guy, still got a couple operational quarries up in roane.
+- Our patients are `decent`, non-violent people with a real problem.
+- But you really should consider staying on, you make a `decent` agent.
+- I'm always here for you, and you can't even take `decent` care of me.
+- It's underwear, so if you lose your clothes you'll still be `decent`.
+- You know where i can get a `decent` cup of coffee this time of night?
+- Okay, you did some wrong things, but inside you're a good, `decent` man.
+- Being a `decent` loving friend i went to the files and made a copy for you.
+- You're offering me ten grand in cash but you can't afford a `decent` place.
+- Besides, they tell me there isn't a `decent` restaurant on the whole island.
+- But if he says yes and goes to get you tampons, well then he's a `decent` guy.
+- She's nice, she's `decent`, she's the kind of girl you'd like to marry, right?
+- Theo, i want you to know, you're probably the most `decent` man i've ever met.
+- Can you imagine being halfway `decent` to the customers at least some of the time?
+- Number of times a `decent` job's been cocked up ... friends and <u>colleagues</u>.
+- A `decent` meal every once in a while wouldn't hurt either, this road food is crap.
+- But some asshole sent a lot of money to give jason and his mother a `decent` burial.
+- Well, i wouldn't go so far as to call him nice, but he's treated me pretty `decent`.
+- According to the geneva convention, dead prisoners are to be given a `decent` burial.
+- It's probably one of the few `decent` things that's ever happened in this hellish place.
+- Most of the `decent` pirates in town won't sail with you -- seem to think you're a jinx.
+- So you can move into a halfway `decent` place without scagnetti thinkin "what the fuck."
+- They had to wait and save their money before they even ought to think of a `decent` home.
+- Who are you, you schmucks, you can't even make a `decent` swastika.... give me the paint.
+- I'm a proper citizen, i'm a `decent` man, i don't do anything that isn't `decent` or proper.
+                 

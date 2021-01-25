@@ -1,0 +1,65 @@
+---
+title: "sales in a sentence | sales example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sales"
+---
+- What, as a `sales` rep?
+- Your `sales` suck, don.
+- He's just a `sales` rep.
+- No state `sales` tax!
+- That was my `sales` pitch.
+- Who now works `sales`, no!
+- `Sales`, mr. mcgill, `sales`!
+- We got a `sales` convention.
+- You don't ax your `sales` force.
+- He's a `sales` rep for chrissakes.
+- I'm the executive `sales` manager.
+- So, i'm handling the `sales` part.
+- This place needs a `sales` manager.
+- His record `sales` have gone way up.
+- I think you should stick to `sales`.
+- I want you to... forget about `sales`.
+- I was all morning in a `sales` meeting.
+- He's a `sales` rep for a computer company.
+- I was a `sales` associate, at e.f. hutton.
+- Basically james, this is our uk `sales` team.
+- ♪ comic book `sales` is a very fragile field.
+- Profit from major `sales` push -- minus ?347.
+- The book `sales` alone will be worth millions.
+- Now you're gonna hit me with the `sales` pitch.
+- That's why your `sales` are always below quota.
+- The `sales` lady said they're the latest thing.
+- Western `sales` manager for kingby electronics.
+- You go to tobacco... tobacco is a `sales` culture.
+- You made three `sales` to your roaches back there.
+- You can see it from, you know, the `sales` figures.
+- Mind if i ask what kind of `sales` you did last year?
+- I am the new regional `sales` rep for all of logan square.
+- ...`sales` promotion, "you lose, then we fire your..." no.
+- My `sales` pitch strongly implied that wouldn't happen.
+- I'm coming in here with the `sales`, i'll pay you tomorrow.
+- Yeah, i know you do... you know, i came up through `sales`.
+- I mean `sales` has always been a feeder for m and a, always...
+- Land `sales` out of escrow are always recorded within the week.
+- My name's marge gunderson - naw, i... executive `sales` manager.
+- This was on his `sales` route, so he was through here all the time.
+- Now i find out in between bake `sales`, my mother was anais nin!
+- I'm going to give you twenty percent of my `sales`... twenty percent.
+- Well, maxine thinks she can get you a `sales` job at computer station.
+- Analyze the videos, track `sales` of the bleach, go through his records.
+- ♪ a `sales` pitch for the circus in your mind ♪ breathable air... check.
+- ...i was the number one junior `sales` associate at e.f. hutton in 1988.
+- I mean, just from a `sales` point of view, the book just came out, right?
+- First of all, basement `sales` like tonight aren't gonna last much longer.
+- How can you delude yours... abso... only the beginning... what `sales`...?
+- I was told that it would affect `sales`, so i should mind my own business.
+- Really put the whole idea of "church bake `sales`" in perspective... uh-huh.
+- Well, your no-frills, fumbling `sales` pitch your life has been spared, hey.
+- Between your book `sales` and this tv thing, there's going to be no living with you.
+- He's going to have a "`sales`" contest...you know what our `sales` contest used to be?
+- Let me guess: retail `sales` of little chocolate sprinkles have gone through the roof!
+- The one that would do anything for his baby sister through some kind of `sales` pitch.
+- I'm starting my own company -- video `sales` -- just as soon as i get enough seed money.
+- If this is some `sales` pitch i'm not buying -- i've been trying to get someone -- anyone.
+                 

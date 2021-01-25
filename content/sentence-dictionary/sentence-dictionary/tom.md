@@ -1,0 +1,107 @@
+---
+title: "tom in a sentence | tom example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tom"
+---
+- Didn't `tom` tell you?
+- Has `tom` come in yet?
+- Isn't it great, `tom`?
+- No `tom`, just listen.
+- Why, thank you, `tom`.
+- Did you speak to `tom`?
+- I know `tom` grunemann.
+- My brother `tom` hagen.
+- My lawyer, `tom` hagen.
+- `Tom` underhill here...
+- `Tom`, you mustn't -- !
+- `Tom`, you startled me!
+- Ain't that right, `tom`?
+- Give me a reason, `tom`.
+- Hello, i'm `tom` ripley.
+- How's your drink, `tom`?
+- I don't think so, `tom`.
+- My brother, `tom` hagen.
+- My name's `tom` grunick.
+- Or `tom` and peter even.
+- That `tom` sure is cute.
+- `Tom`, i don't love you.
+- `Tom`, this is our case.
+- `Tom`, what do i do now?
+- `Tom`, you're all heart.
+- Try an' tell 'em, `tom`.
+- You look ghastly, `tom`.
+- Ed `tom`, i'll be polite.
+- It's not worth it, `tom`.
+- She's my daughter, `tom`.
+- Some peeping-`tom` prick.
+- This is our money, `tom`!
+- `Tom` and cynthia kruger.
+- We're crackin' up, `tom`.
+- What do you think, `tom`?
+- Yes, `tom` ripley's here.
+- Here it comes, poor `tom`.
+- He's a good man, `tom` is.
+- It's good business, `tom`.
+- Oh, `tom`, that was awful.
+- `Tom`, come here a moment.
+- `Tom`'ll take care of you.
+- You bust outa jail, `tom`?
+- I think `tom` was on drugs.
+- Jesus, `tom`, do they work?
+- `Tom` didn't ask for proof.
+- `Tom`, quit fucking around.
+- `Tom`... well, kit... sure.
+- `Tom` took care of them.
+- C'mon, `tom`, pick up a job.
+- He'll have you -- and `tom`.
+- I'm surprised at you, `tom`.
+- That fella come by... `tom`.
+- These are hard times, `tom`.
+- `Tom` isn't, i can tell you.
+- `Tom` -- sorry, what was it?
+- You gotta keep clear, `tom`.
+- Hardly anyone calls me `tom`.
+- I don't like violence, `tom`.
+- I don't understan' it, `tom`.
+- Let's break something, `tom`.
+- Our mission is coffee, `tom`.
+- `Tom`, i need to talk to you.
+- Well, if it ain't `tom` joad.
+- All right, `tom` -- it's true.
+- Don't you want to walk, `tom`?
+- I don't believe `tom`'s alive.
+- Oh, `tom`, hello, how are you?
+- The cure's not working, `tom`.
+- The iceman.... `tom` kazansky.
+- `Tom` prinze, tanked as usual.
+- `Tom`, you're the consigliere.
+- Can we show him pilgrim, `tom`?
+- I think i'm going crazy, `tom`.
+- I think `tom` grunemann's dead.
+- The adventures of `tom` sawyer.
+- `Tom`, where are the band-aids?
+- You and jack and `tom` sanders.
+- One call to `tom` at the post...
+- `Tom` said he'd take care of it.
+- Well, `tom`, you're consigliere.
+- You know my lawyer, `tom` hagen.
+- I don't think that was `tom`.
+- Dickie greenleaf... `tom` ripley.
+- I am `tom` green, i am `tom` green.
+- Oh, `tom`, show this gentleman...
+- Spare me the uncle `tom` routine.
+- `Tom` was staying at the goldoni.
+- You were hired to look for `tom`.
+- Have you talked to `tom` about it?
+- I see you studying so hard, `tom`.
+- I was just bringing this to `tom`.
+- Mrs. christian, `tom` welles here.
+- `Tom`, let's spend the night here.
+- An illustrator called `tom` browne.
+- Did i know you at princeton, `tom`?
+- How much did you say it was, `tom`?
+- The `tom` waits album is rain dogs.
+- `Tom`, can you get me off the hook?
+- `Tom`, don't mess around, let's go.
+                 

@@ -1,0 +1,67 @@
+---
+title: "fully in a sentence | fully example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fully"
+---
+- He was `fully` sedated!
+- Well, i'm `fully` covered.
+- I `fully` support that.
+- Kat was `fully` clothed.
+- Must be... - `fully` sighted.
+- You've been `fully` debriefed.
+- It still hasn't grown `fully` in.
+- They're not `fully` developed.
+- You have not been `fully` trained.
+- A `fully` functioning time-space gps.
+- The key is a `fully` developed brain.
+- When is the sidewalk `fully` dressed?
+- Yours was `fully` illustrated, honey.
+- Is `fully` grown for you to come back.
+- They `fully` mature on the flight out.
+- Your rights will be `fully` protected.
+- How long before you're `fully` on line?
+- Soon they will be `fully` domesticated.
+- I'm `fully` amenable to that discussion.
+- Your kill order must be `fully` enforced.
+- Is your confidence in me `fully` restored?
+- Using a word they don't `fully` understand.
+- Foliage in `fully` developed state of growth.
+- It's a `fully` realized cannabis resort and spa.
+- Using a word that they don't `fully` understand.
+- Was `fully` stocked, you know, being thoughtful.
+- We haven't `fully` identified the anomalies yet.
+- You'll be `fully` automated by the time we dock.
+- The ozone must be `fully` depleted on planet ted.
+- Her shoulder never `fully` healed - just like you.
+- As mark twain `fully` understood satire is the way.
+- He's `fully` capable of walking out of this hospital.
+- When he does, he'll be `fully` grown, or close to it.
+- But he also wrote -- i can quote it `fully`, mrs. redi.
+- The art world doesn't `fully` appreciate my talent yet.
+- First ever depiction of a `fully` nude triple impalement.
+- There's no one in fact, who's `fully` rated on this design.
+- Bung in your coins, come out with a .44 magnum, `fully`-loaded.
+- To `fully` understand that, and to live that... that is my project.
+- Or are you `fully` convinced that we too won't understand each other?
+- It allows the user to be `fully` alert and mobile while he's dreaming.
+- "if the president moves to deploy the b-2 before it is `fully` tested."
+- She long ago `fully` recovered, but the disease did irreparable damage.
+- It's not `fully` proofed, but if you're okay with a few typos... well...
+- My antenna is up, it is `fully` extended, and i am picking up...what is it?
+- Everything's spring-loaded, even if the power's out it's `fully` functional.
+- Also, we have to make sure that the lab is `fully` grown for you to come back.
+- I see the perimeter defense system is still `fully` intact... at least i tried.
+- Sir, the exodus ship is `fully` charged, what if i don't want to live together?
+- Of our souls, which i am trying to `fully` understand the problem... the problem.
+- Look, i don�t think you�re `fully` aware of what you�re playing with here, mister.
+- Mrs. brovlofski, the v-chip hasn't been `fully` tested yet, it could be dangerous.
+- It is an up-at-dawn pride-swallowing seige that i will never `fully` tell you about!
+- I want the berlin police `fully` briefed and -- -- get this out to all the agencies.
+- Very generous 800,000 dollars `fully` covers the production budget and a little more.
+- Zlat, make sure the secret service boys care- `fully` search his seven body orifices.
+- Imhotep will fear them until he is `fully` regenerated, and then he will fear nothing.
+- Well, the wise man was right - if you remember that, you can't help but live life `fully`.
+- This is the good part; when you're `fully` ordained, he'll come when you call him, too.
+- We certainly hope this means that you intend to be `fully` forthcoming with this committee?
+                 

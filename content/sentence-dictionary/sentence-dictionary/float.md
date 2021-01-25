@@ -1,0 +1,52 @@
+---
+title: "float in a sentence | float example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "float"
+---
+- He deserves to `float`.
+- I'll `float` you, nygel!
+- I say, `float` them all.
+- We have to `float` more.
+- To `float` me on the ark?
+- Turn that `float` around.
+- You can `float` yourself.
+- Abby, they'll `float` you.
+- They'll `float` you, jake.
+- `Float` me a hundred bucks.
+- Go `float` yourself, nygel.
+- My lantern wouldn't `float`.
+- They got a swimming `float`.
+- Go `float` yourself, murderer.
+- They... `float`, occasionally.
+- I thought i was about to `float`.
+- Let's get you a root beer `float`.
+- Root beer `float` that sounds good.
+- Nobody just lets a ship `float` away.
+- And if not, he can go `float` himself.
+- Okay, i designed the `float`, you know.
+- Oh, yeah, from this `float`, i'm going in.
+- What, are they gonna `float` me for looking?
+- Wow, we built a whole `float` in one afternoon.
+- Apparently, the lanterns `float`, so build weapons.
+- I'll be right back with something to `float` it in.
+- In a poster right by your desk, or you can `float`.
+- Build him a `float` for the thanksgiving day parade!
+- You're so full of shit you're going to `float` away!
+- He said to `float` away to happy land on the bubbles.
+- But, as much as i hate to say it, `float` you, sinclair.
+- Filled with salt water, so you can `float` around in there.
+- Well, i kinda just blurted it out over a root beer `float`.
+- I told you how stupid it was to `float` the lippman article!
+- They shoulda thought of that when they let her `float` away.
+- When the final `float` has safely cleared the route, - well?
+- There's only a small `float` out there, so you should grab it.
+- How about a `float` of george washington crossing the delaware?
+- If you stare at that stella too long, the colors just seem to `float`.
+- Otherwise, go `float` yourself slate gray... did callie tell you that?
+- Who only escaped death in this arena because man: i say we `float` him.
+- To `float` in a dream that keeps a .promise half-hidden in its shadows.-.?
+- Because you were raised in space, what, are they gonna `float` me for looking?
+- Now open the damn door so we can `float` [scoffs] now you sound like my mother.
+- You need something with a high enough frequency band go `float` yourself, monty.
+                 

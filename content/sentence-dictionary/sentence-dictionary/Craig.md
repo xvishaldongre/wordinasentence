@@ -1,0 +1,69 @@
+---
+title: "Craig in a sentence | Craig example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Craig"
+---
+- `Craig` is in trouble.
+- Suga, this is `craig`.
+- Take me back, `craig`.
+- Thanks a lot, `craig`.
+- `Craig`, get your stuff.
+- Don't crowd me, `craig`.
+- `Craig` mcdermott called.
+- Why'd you do it, `craig`?
+- Nice to meet you, `craig`.
+- Now listen to me, `craig`.
+- Where did `craig` move to?
+- Hi, are you `craig`'s wife?
+- I have to go back, `craig`.
+- It's quite a thrill, `craig`.
+- I'd love to meet her, `craig`.
+- You're not a monster, `craig`.
+- I hope `craig` got a good idea.
+- That's fuckin' poetic, `craig`.
+- "`craig` schwartz is fantastic!"
+- What about `craig`'s destiny?
+- Well where's `craig` and day-day?
+- `Craig`, darling are you in there?
+- `Craig`, remember what i told you.
+- `Craig`, what are you doing to me?
+- It's `craig` in there, i can tell.
+- Roach, this is my cousin, `craig`.
+- Hey, `craig`, nice smokin' wit'cha.
+- Big bitches need love, too, `craig`.
+- But now we've lost access to `craig`.
+- `Craig`, what the hell are you doing?
+- He's playing lieutenant dick `craig`.
+- `Craig`, what the hell wrong with you?
+- Well, `craig`, you're welcome anytime.
+- Do a puppet show for me, `craig` honey.
+- Drop everything, `craig` is in trouble.
+- `Craig`, everyone can't be derek mantini.
+- `Craig` stole maxine from me, dr. lester.
+- `Craig`, i just don't find you attractive.
+- I'd like for us to stay together, `craig`.
+- Man, i don't think i can do this, `craig`.
+- Mr. malkovich, my name is `craig` schwartz.
+- You've got to tell `craig` what's going on.
+- `Craig`'s had me locked up in the apartment.
+- `Craig`, i want you to meet my old lady, suga.
+- Actually, my name is `craig` schwartz, dr. lester.
+- "`craig` schwartz - the world's greatest puppeteer!"
+- `Craig`, you ain't the only lightweight around here.
+- Hey... murphy: hey... get back on that oar, `craig`.
+- I'm `craig` schwartz, just starting out at lestercorp.
+- We gotta figure out a way to get `craig` out of there.
+- 'cause you been unemployed for a long time now, `craig`.
+- `Craig` and karla, damn that sound pretty good together.
+- You know there's nothing to steal from my mom and `craig`.
+- "if only `craig` schwartz had always been inside malkovich!"
+- Don't stand in the way of my actualization as a man, `craig`.
+- Yeah, you gotta have a little money to live out here, `craig`.
+- Charles foster `craig` doesn't have the knives-out poetry i need.
+- My child, i don't think its a great mystery what `craig`'s up to.
+- Please have a seat, mr. juarez... no, uh, my name is `craig` schwartz.
+- I'm being controlled by the world's greatest puppeteer, `craig` schwartz...
+- Maybe this is what you've always been, `craig`, you just never faced it before.
+- Please, `craig`, please step aside and allow us to have what is rightfully ours.
+                 

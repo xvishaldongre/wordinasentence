@@ -1,0 +1,107 @@
+---
+title: "wondering in a sentence | wondering example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wondering"
+---
+- I was just `wondering`.
+- I'm just `wondering` if...
+- Sir, i was `wondering` ...
+- Dr. frock, i was `wondering`.
+- `Wondering` if they're human!
+- Just `wondering` about the.. .
+- That's what i was `wondering`.
+- I was `wondering`...man oh man.
+- I've been `wondering` something.
+- I was `wondering` what that was.
+- You're `wondering` why i held it.
+- I was `wondering` when you'd call.
+- I was just `wondering`, that's all.
+- She's `wondering` what's happening.
+- I was `wondering` about my earrings.
+- I am `wondering`, though, okay, fine.
+- I can't help `wondering`... why here?
+- I was `wondering` when you'd walk by.
+- I've been `wondering` when you'd come.
+- I was `wondering` if sofie was around?
+- I was `wondering` if you might help me.
+- I was `wondering` which here you meant.
+- You're `wondering` why i circled yours.
+- If you're `wondering` about the firearm.
+- I'm `wondering` why you keep his things.
+- I was `wondering`, is your husband here?
+- Ava's gonna be `wondering` where you are.
+- I was `wondering` if i could talk to you?
+- Bet you're `wondering` why i never called.
+- What i been `wondering` is where's he been.
+- I'm `wondering` if she's not brain affected.
+- I was just `wondering` how the phone worked.
+- Just `wondering` if everything is all right.
+- We were `wondering` if you had time to talk?
+- Hey, believe me, nobody is `wondering`, baby.
+- I was just `wondering` what's taking so long.
+- I was `wondering` whether you'd come at all..
+- I was just `wondering` - no, i - i unnerstand.
+- I was `wondering`... do you have dinner plans?
+- Um, i was just `wondering`, uh, is barb there?
+- Yeah and i'm `wondering`, how did it go wrong?
+- Yeah, i was `wondering` why he should do that.
+- I'm just `wondering` if they have a bar or not.
+- I was just `wondering` if anyone knew his name.
+- I was sort of `wondering` what you looked like.
+- I was `wondering` if i could ask a small favor?
+- Was `wondering` if you could hook a brother up?
+- Yes, and we're `wondering` about your products.
+- You're `wondering` just how much i really know.
+- I'm just `wondering` where it will take me next.
+- I'm `wondering` why the hell he hasn't shown up.
+- I was `wondering` if you'd finished considering?
+- I was actually `wondering` about... well, my cut.
+- So, i really like ya, and i was `wondering`, yes!
+- That's like `wondering` if your mom and dad do it.
+- That's right, they're `wondering`, who's this guy?
+- I just `wondering` where you've been all this time.
+- I'm guessing you're `wondering` where your men are.
+- I was `wondering`, calvin, why set the locks at all.
+- Nothing, i was just `wondering` what you were doing.
+- You're so... so goddamn useless... just `wondering`.
+- I was `wondering`...if...if i could have a... no.
+- Anyway, i was `wondering` if i could borrow your car.
+- I'm just `wondering` -- hypotheticals -- no thinking.
+- I'm `wondering` if the murderer will ever kill again.
+- I'm `wondering` if you're watching me on the cameras.
+- I've been `wondering` maybe jack shot him on purpose.
+- I was `wondering` if i could ask you a few questions.
+- I was `wondering`�is the documentary almost finished?
+- That's what i was `wondering`, why would you do that?
+- When you get to a certain age, you start `wondering`.
+- Yes but, we were `wondering`- it's a television show.
+- I was `wondering` if i could be of any assistance?
+- Even my own wife, chief, who's `wondering` where i am?
+- ...i'm `wondering`... you seem pretty sure of yourself.
+- I was just `wondering` since we already have the dress.
+- I was `wondering`, perhaps you'd like to go meet henry.
+- You're `wondering` why the scimitar is so well armed.
+- I was just `wondering`... nick... you're going hunting...
+- I was `wondering` where you got that glow of good health.
+- In case you're `wondering`, i like women, not little boys.
+- I was just `wondering` what makes dames like you so dizzy.
+- I was just `wondering` what your plans were for next year?
+- I was `wondering`, if you're not doing anything tonight...
+- Those big red eyes have me `wondering` about your loyalty.
+- You know, actually, i've been `wondering` about something.
+- Come on, o'donnell, everyone's `wondering` what's going on.
+- I'm still `wondering` about your names -- rand and holland.
+- I'm suddenly `wondering` if this girl's not the difference.
+- Well, general -- i was `wondering`, why are you doing this?
+- Well, juno, your parents must be `wondering` where you are.
+- I'm lying here, `wondering` if something horrible happened...
+- I was just `wondering`, if there is anything wrong with vada.
+- I was `wondering`, how are you planning to beat the security?
+- We were `wondering` if we should leave some things to chance.
+- I'm `wondering` if another woman is the answer we really need.
+- We were `wondering`, would your family what choice do we have?
+- You were `wondering` if i was wearing anything under my skirt.
+- I was just `wondering` where my english house guest had got to.
+- Probably sitting around `wondering` what we're doing right now.
+                 

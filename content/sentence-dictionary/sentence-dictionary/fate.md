@@ -1,0 +1,96 @@
+---
+title: "fate in a sentence | fate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fate"
+---
+- It is moved by `fate`.
+- The `fate` of mankind.
+- Clouded is your `fate`.
+- Each to his `fate`, lad.
+- `Fate` worse than death!
+- If that ain't `fate`?...
+- I say let `fate` decide.
+- It seems to be my `fate`."
+- Of deciding hope's `fate`.
+- No `fate` but what we make.
+- She had you tempting `fate`.
+- We go where `fate` takes us.
+- Their `fate` will be my `fate`.
+- Do you believe in `fate`, neo?
+- If that's my `fate`, so be it.
+- Even i cannot see their `fate`.
+- Why because it's not my `fate`?
+- This is `fate`, this is destiny.
+- Now you risk the same `fate`.
+- Mr. turner's `fate` is regrettable.
+- Take this queen to meet her `fate`.
+- I know the cruelty of such a `fate`.
+- `Fate` of the world at stake, adrian.
+- He seems to have accepted our `fate`.
+- If that is to be my `fate`, you must.
+- I prefer mine with a twist of `fate`.
+- Well... you control everyone's `fate`.
+- But that will not be your `fate` today.
+- It is my `fate` to die in the fortress.
+- Should decide russell's `fate`, not us.
+- Skaikru sealed the door and our `fate`.
+- The exact same `fate` as the ice queen.
+- I wouldn't cast my `fate` with that man.
+- Blodreina, what is our champion's `fate`?
+- `Fate` wouldn't make a mistake like that.
+- It seems you have chosen your own `fate`.
+- The `fate` of our universe depends on it.
+- Dare i ask the `fate` of it previous owner?
+- My sister believes in `fate`, but not hell.
+- He ran as a coward, unfettered by my `fate`.
+- No one's ever survived such a `fate` before.
+- Then the other lyssa will share your `fate`.
+- We're deciding the `fate` of the human race.
+- Your `fate` is inexorably connected to them.
+- I'm only alive because `fate` wants me alive.
+- Call it `fate`, call it luck, karma, whatever.
+- I can't imagine a `fate` worse than being dumb.
+- But `fate` and this war have ordained otherwise.
+- First i have a birthright, now i've got a `fate`.
+- Our destiny is linked to the `fate` of the oceans.
+- And, sooner or later, `fate` will place it near us.
+- There is no `fate` but what we make for ourselves."
+- There is not `fate` but what we make for ourselves.
+- Decided out `fate` in a microsecond...extermination.
+- Thanks for saving me from a `fate` worse than death.
+- And as such, you will share the same `fate`... death.
+- That the `fate` of the entire human race is at stake.
+- The `fate` of your favorite vindicator, black voodoo.
+- I need to discuss the `fate` of the last mountain man.
+- I need to discuss the `fate` of the last mountain man.
+- To make sure that humanity does not share that `fate`.
+- My first two pairs of convicts suffered the same `fate`.
+- Carver, the `fate` of hanukkah rests solely in his hands.
+- `Fate` has spoken to this man in the depths of the night.
+- I'm the only one who can save you from a terrible `fate`.
+- Hammer, the `fate` of my daughter rests solely in your hands.
+- If he opposes his `fate`, his death will be terribly painful.
+- Those who would not, met their `fate` at the end of my sword.
+- Through readiness and discipline, we are masters of our `fate`.
+- Any way, `fate` stepped in and took football out of the equation.
+- Maybe lady `fate` washed you up on my doorstep for your own good.
+- It entertains the notion our `fate` is in hands other than our own.
+- What is my definitive position on the concept of `fate`, chorus?
+- I don't think they'd tried for kids before, as `fate` would have it.
+- I take that as a sign that we were destined by `fate` to be together.
+- I want a finer `fate` than that -- for me and for every other cowgirl.
+- Lamentable news, jack... but tis the `fate` of the living concerns us now.
+- The `fate` of the entire space-time continuum may rest on your shoulders .
+- To be undone by a third-rate burglary is a `fate` of biblical proportions.
+- It's not overselling it to say that the `fate` of the universe is at stake.
+- All you have to do is let him go, `fate` is funny that way, don't you think?
+- Defeats that keep you awake, that pound in your head like the hammer of `fate`.
+- We can be in springfield by christmas than the `fate` of the entire human race?
+- A broad river divides my lovers--family, duty, `fate`--as unchangeable as nature.
+- If i am not back by dawn, you will know my `fate`, and you must go on without me.
+- ♪ michael, take the carpool lane ♪ the `fate` of the entire human race is at stake.
+- By malign `fate`, the message goes astray which would tell romeo of the friar's plan.
+- Let her go to compiegne, as you let her go to orleans, and let god decide her `fate`.
+- I'm sorry if i'm worried the `fate` of my people abby, raven, and jackson will go to work.
+                 

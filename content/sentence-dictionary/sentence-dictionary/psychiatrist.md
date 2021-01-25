@@ -1,0 +1,53 @@
+---
+title: "psychiatrist in a sentence | psychiatrist example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "psychiatrist"
+---
+- Like a `psychiatrist`?
+- I'm your `psychiatrist`.
+- Are you a `psychiatrist`?
+- No... like a `psychiatrist`.
+- The delinquent `psychiatrist`.
+- You're a trained `psychiatrist`.
+- I don't need a `psychiatrist`!
+- But who is judd, a `psychiatrist`.
+- You don't think a `psychiatrist`-?
+- Homer took me to a "`psychiatrist`".
+- Your daughter- not a `psychiatrist`!
+- How's a `psychiatrist` gonna find him?
+- I'm a therapist, not a `psychiatrist`.
+- Maybe you should see a `psychiatrist`.
+- A `psychiatrist` by the name of loomis.
+- Did you just say, "your `psychiatrist`"?
+- The `psychiatrist` - dr. hannibal lecter.
+- I think i'm being chased by a `psychiatrist`.
+- My `psychiatrist` knew what i was capable of.
+- That woman is...was...your... `psychiatrist`?
+- If we want to hire a `psychiatrist` for agnes.
+- I'm an orderly, not a bleeding `psychiatrist`!
+- I think we should take him to a `psychiatrist`.
+- There should be a `psychiatrist` present, anyway.
+- You know if the boy ever talked to a `psychiatrist`?
+- Sorry, daniel, i'm a physicist, not a `psychiatrist`.
+- You've been seeing a `psychiatrist` for fifteen years.
+- Do you think i should take her to see a `psychiatrist`?
+- ...i don't know if you can fire a `psychiatrist`, exactly.
+- I think it's time we started looking for a `psychiatrist`.
+- Jesus, i'd like to book him into a `psychiatrist`'s office.
+- I never approved that break-in at ellsberg's `psychiatrist`.
+- My `psychiatrist` didn't insist that i stay on my medication.
+- He is a goddamn `psychiatrist`--of *course* he wants to "help"!
+- Her `psychiatrist`... said... she needs security now... stability...
+- Yes i could, i could see her as a `psychiatrist`... could you see her?
+- ...he sent me to a `psychiatrist` to see if he could calm me down some.
+- I said, marty, how come you're anal and i gotta go to the `psychiatrist`?
+- Five inmates, eight guards and one `psychiatrist` all in one year's time...
+- I know how hard that must have been for you, the delinquent `psychiatrist`.
+- Why don't we forget my goddamn `psychiatrist` and deal with the task at hand.
+- You want a number for a `psychiatrist`, i can get you one, that's not a problem.
+- Dr. bloom asked me to send a copy of 'the `psychiatrist` and the law' to someone.
+- `Psychiatrist` said i was the healthiest person he'd ever met, so marty fired him.
+- So i went to this `psychiatrist` who explained to me i was a woman in a man's body.
+- I went to a psychologist, `psychiatrist`, herbalist, nutritionist, a shaman, and a psychic.
+                 

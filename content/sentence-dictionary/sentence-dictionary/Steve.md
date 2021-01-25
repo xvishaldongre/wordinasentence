@@ -1,0 +1,107 @@
+---
+title: "Steve in a sentence | Steve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Steve"
+---
+- He's no `steve` young.
+- Kick his ass, `steve`!
+- `Steve`, pull him out.
+- `Steve`... "trust me."
+- Still... king `steve`.
+- That's right, `steve`.
+- The hell with `steve`.
+- I'm `steve` harrington.
+- King `steve`, everyone.
+- `Steve` called for you.
+- `Steve` scared 'em off?
+- Uh, `steve` harrington?
+- What the hell, `steve`?
+- Aw, `steve` has a heart.
+- Probably `steve` rogers.
+- `Steve`'s her daddy now.
+- They know that, `steve`.
+- Tie it to `steve`'s leg.
+- Give me a break, `steve`.
+- Have i lost you, `steve`?
+- `Steve`, are you drugged?
+- `Steve`, can you hear me?
+- Yes, you will... `steve`?
+- But we don't love `steve`.
+- `Steve`, stop it please...
+- But but what about `steve`?
+- Come on, `steve`, let's go!
+- Honora pats `steve`'s hand.
+- `Steve`... what's going on?
+- This is gonna work `steve`.
+- `Steve`, what are you doing?
+- This is gonna work, `steve`.
+- `Steve` arnold... see, david?
+- Why are you winking, `steve`?
+- `Steve`... - drop your weapon.
+- `Steve`'ll be back in an hour.
+- `Steve`'s going to explain it.
+- Have to drop you here, `steve`.
+- `Steve`, can you taste the air?
+- I'm wearing your pants, `steve`.
+- Sorry, `steve`, maybe next time.
+- So, that's... - `steve`'s house.
+- `Steve`, you're upset, i get it.
+- Why are you hesitating, `steve`?
+- So is `steve` your boyfriend now?
+- `Steve` was all right for awhile.
+- Also `steve`'s in a very bad mood.
+- Before she dumped him for `steve`.
+- He reminds me of `steve` in a way.
+- `Steve`, just shut up and push me!
+- You and `steve` were just talking?
+- Do you think j.j. likes `steve`...?
+- I didn't flee the conclave `steve`!
+- I thought it was 'cause of `steve`.
+- `Steve` slutes, and he's not a boy.
+- Have you been... `steve`, watch out!
+- I'm sorry about `steve`, not myself.
+- I thought `steve` had talked to you?
+- It's reaching out to you... `steve`!
+- `Steve`, what's going on down there?
+- You're an idiot, `steve` harrington.
+- `Steve` seemed to put up with warren.
+- Is that your kind of reading, `steve`?
+- It means, `steve`, we could be heroes.
+- 'cause you wanna hang out with `steve`.
+- His name wouldn't be `steve`, would it?
+- For `steve`'s sake, i'm glad, not yours.
+- If treatments using their blood `steve`?
+- Meet me and `steve` at the old junkyard.
+- What if sidney killed casey and `steve`?
+- You know what, give me a break, `steve`.
+- Board of education `steve` who likes you?
+- Get `steve` back his job...please... how?
+- King `steve`, they used to call you, huh?
+- Why would sidney want to be with `steve`?
+- I went back to `steve`'s... - suit up.
+- `Steve` couldn't get arrested as an actor.
+- `Steve` said you were thinking of leaving.
+- They call me `steve`, but i prefer shenge.
+- It's... with `steve` "the hair" harrington.
+- Replaces the baton, gives `steve` the case.
+- `Steve` said for you to start on the boats.
+- `Steve`... you're in the malahide institute.
+- We liberated berlin, major `steve`, not you.
+- Why are you listening to the music, `steve`?
+- Her and `steve` kendall were pinned at birth.
+- I wish you and `steve` could like each other.
+- `Steve` is emptying his pockets on the bench.
+- Why do you think i'm with `steve` harrington?
+- Jumping from table to chair to bed... `steve`.
+- `Steve` how do you think i realized i love you?
+- Uh, tell scott bakula, `steve` ballmer i can't.
+- Don't let them take me, `steve` -- what's wrong?
+- Well, he's more than just a bandleader, `steve`.
+- Although we've repaired our home, - hey, `steve`.
+- Remember at `steve`'s, when barb cut herself?
+- Because no girl would ever blow off king `steve`.
+- `Steve`... - just to look after you a little bit.
+- `Steve`, my brother isn't as bad as he's painted.
+- `Steve` -- you don't know what it is to be sorry.
+                 

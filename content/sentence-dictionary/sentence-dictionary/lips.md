@@ -1,0 +1,77 @@
+---
+title: "lips in a sentence | lips example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lips"
+---
+- Kiss me on the `lips`.
+- `Lips` still for sale?
+- Now watch my `lips`...
+- I will kiss thy `lips`.
+- Oh, thomas, her `lips`!
+- Alright, read my `lips`.
+- I don't like his `lips`.
+- They cause...red `lips`.
+- Does a chicken have `lips`?
+- These `lips` can be murder.
+- Your `lips` look delicious.
+- Balls resting on his `lips`.
+- Your `lips`, they didn't move.
+- You better fix your `lips`.
+- He's kissing her on the `lips`.
+- Don't go reading my `lips`, man.
+- From your `lips`, to god's ears.
+- Can you feel my `lips`, my loins?
+- I'm betting her `lips` are poison.
+- I can still taste you on my `lips`.
+- Your `lips` are soft when you kiss.
+- 'cause your `lips` is getting black.
+- Read my `lips`: zimmermann or nothing.
+- But my `lips` were hungry - too hungry.
+- The only thing i can feel are my `lips`.
+- What are you... that's it, prick `lips`.
+- You ever see some silicon-fucking-`lips`?
+- What of my `lips`, will you soil them too?
+- Catch it on your `lips`, and give me yours!
+- She kisses him, very softly, on the `lips`.
+- They give you hips, `lips`, and fingertips.
+- But rubber `lips` are immune to your charms.
+- How much would you charge me for the `lips`?
+- Squiggle hand is just past the kissy `lips`.
+- The way your eyes fix on my eyes and `lips`.
+- Have not saints `lips`, and holy palmers too?
+- Watch my `lips` .. <u>don't get into it</u> ..
+- Tell it to me in there and my `lips` are sealed.
+- Then have my `lips` the sin that they have took.
+- These `lips` are wet and ready to get frostbite.
+- Thus from my `lips`, by yours, my sin is purged.
+- "�have not saints `lips`, and holy palmers too?"
+- Ay, pilgrim, `lips` that they must use in prayer.
+- "ay pilgrim, `lips` that they must use in prayer."
+- I guess that's why you go for hot `lips` houlihan.
+- "then have my `lips` the sin that they have took."
+- "thus from my `lips`, by thine, my sin is purg'd."
+- The brackets are holding up your `lips` at the edges.
+- Sigurd's sword... his feet shall never cross my `lips`.
+- When slim canfield's `lips` are sealed, they're sealed.
+- Am i going mad or did the word "think" escape your `lips`?
+- I had to kiss this guy named marc wander on the `lips`?
+- I hate wax `lips` and red ants and pretzels without salt...
+- I think lipstick looks fake, no-ones `lips` are that color.
+- You're bound to pound the quivering `lips` of my venus mound!
+- Only when our `lips` are silent, can our prayers truly be heard.
+- The more danger you and your family are in... all tongue, no `lips`.
+- ♪ your scarlet `lips` half-saying ♪ you'll need to look like my prisoner.
+- If you're deaf, read my `lips`...i don't need a psycho following me today.
+- It certainly isn't henry's fault hot `lips` houlihan doesn't like her name.
+- They're just drooling to get their `lips` around some genuine cuban cigars.
+- 'will graham: you will learn from my own `lips` how much you have to dread.
+- My `lips` may give a message better of christmas love than e'en this letter.
+- That is the most heartless statement i ever heard pass between human `lips`.
+- Do i have to put my hand on your body or kiss your pretty `lips` to prove it?
+- I love his `lips`, he got a great smile and he got- how does he look up close?
+- Like that finnish stuff, orange vodka -- put your `lips` around this one, bill.
+- Does maranzano have to kiss you on the `lips` before you'll take his goddamn money?
+- Watch my `lips`, coz you're not gonna believe this - <u>this</u> is a rare occurrence.
+- He rejects her, so she demands his head on a golden tray, kissing his cold, dead `lips`.
+                 

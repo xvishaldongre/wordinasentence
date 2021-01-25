@@ -1,0 +1,107 @@
+---
+title: "sent in a sentence | sent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sent"
+---
+- But he `sent` you all.
+- I know who `sent` you.
+- Tell him i `sent` you.
+- We `sent` someone out.
+- You `sent` a telegram.
+- Had a hooker `sent` up.
+- He `sent` you after me.
+- I'm `sent` out there...
+- Who `sent` the flowers?
+- You `sent` for me, sir?
+- You `sent` for me, sir?
+- He `sent` you to me?
+- He `sent` me to chicago.
+- He `sent` me to find ya.
+- I `sent` for the police.
+- `Sent` to retrieve them.
+- Tell her i `sent` you.
+- Who `sent` you, thorpey?
+- A fan `sent` them to you.
+- Clarence `sent` a letter?
+- Colonel munro `sent` him.
+- I'll have it `sent` over.
+- My mother `sent` that in.
+- They've all `sent` gifts.
+- Who `sent` you to greece?
+- Your family `sent` cards.
+- e commander `sent` you?
+- I `sent` her on an errand.
+- I `sent` her to the party.
+- I `sent` you a memo on it.
+- It `sent` me back in time!
+- Room service `sent` it up.
+- That's why she `sent` her.
+- They `sent` us to tell ya.
+- Well somebody `sent` them.
+- Well -- you `sent` for me.
+- We `sent` for the militia.
+- We would've `sent` others.
+- You thought i `sent` them?
+- I have `sent` this to base.
+- I `sent` for you, didn't i?
+- I `sent` three men to webb!
+- `Sent` me a christmas card.
+- So he says you `sent` them?
+- They `sent` everybody home.
+- We `sent` for the carriage.
+- We `sent` them down to die.
+- Who do you think `sent` me?
+- You'll be `sent` a message.
+- You never `sent` the ships.
+- She `sent` no word down?
+- I believe you `sent` for me.
+- I'm going to be `sent` away.
+- I `sent` the message to max.
+- Marek gebczynski `sent` him.
+- `Sent` to the city hospital.
+- Someone `sent` that message.
+- Tell 'em spencer `sent` you.
+- That's why i `sent` for you.
+- The others are being `sent`.
+- They `sent` me there to die.
+- Yeah, i `sent` you pictures.
+- Yes, gregor, they `sent` me.
+- And `sent` 'em off to school.
+- Have you `sent` for a doctor?
+- He `sent` me a birthday card.
+- I already `sent` 'em a check.
+- If he `sent` you to his home.
+- I `sent` him to make the buy.
+- My wife `sent` me here, myra.
+- Others have been `sent` here.
+- We `sent` him home hours ago.
+- We `sent` them down to die.
+- We were `sent` down together.
+- You `sent` them to that ship.
+- He `sent` liddy to talk to me.
+- Just tell 'em fred `sent` you.
+- My mother `sent` you a letter?
+- `Sent` to concentration camp."
+- She says you `sent` her on it.
+- That was `sent` to protect us.
+- That will be `sent` after him.
+- They're `sent` from wisconsin.
+- We `sent` them down to live...
+- "whether tempter `sent`, come.
+- You `sent` me in to him naked.
+- Before we `sent` the kids down.
+- He `sent` me the cutest e-mail.
+- He `sent` me up the river once.
+- I `sent` it to myself in paris.
+- ... is that i `sent` them here.
+- That's why they `sent` me here.
+- Were you `sent` by lord dunois?
+- You `sent` out all the signals!
+- You `sent` that one last time.
+- Bert, the cop, `sent` this over.
+- Has he `sent` the challenge yet?
+- He `sent` him to wudan mountain.
+- Instead, they `sent` a murderer.
+- I `sent` a letter to doug today.
+                 

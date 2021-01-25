@@ -1,0 +1,98 @@
+---
+title: "Simone in a sentence | Simone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Simone"
+---
+- What i do to `simone`?
+- Yes, call me `simone`.
+- Good morning, `simone`.
+- Is that you, `simone`?!
+- `Simone`, are you there?
+- Was that `simone`'s idea?
+- There's only one `simone`.
+- But that's `simone`'s part.
+- Do what you do to `simone`.
+- That's `simone`'s favorite.
+- It's always `simone`'s idea.
+- And `simone` brings you back.
+- Do you have `simone`'s check?
+- I can't compete with `simone`.
+- Is miss `simone` coming today?
+- Is `simone` back to earth yet?
+- `Simone` is not a real person.
+- `Simone` can thank you herself.
+- Thank `simone` for the tickets.
+- But this `simone` woman is good.
+- I'll tell `simone` you liked it.
+- She thinks you're with `simone`.
+- Right, the one `simone` gives me.
+- You deserve better than `simone`.
+- My god, are you alright, `simone`?
+- To become one with `simone` prime.
+- `Simone`'s not coming over, elaine.
+- It was entirely `simone`'s decision.
+- `Simone` does not control my destiny.
+- I would rather have you than `simone`.
+- Took to the machine shop for `simone`.
+- `Simone`'s gonna want payback for kane.
+- He took the credit for `simone` tonight.
+- What's really behind this `simone` woman?
+- If anyone asks about `simone` -- okay, dad.
+- Josephine and `simone` were intrigued - uh!
+- Are you and `simone`... ... getting married?
+- If the filmmakers are happy, `simone`'s happy.
+- No one's denying that you discovered `simone`.
+- Tell me not to do this, and i won't, `simone`.
+- Do you have any idea what this means, `simone`?
+- `Simone`, i recognize the shirt you're wearing.
+- We are all upset with what's happened, `simone`.
+- You don't have to protect my feelings, `simone`.
+- But aren't you supposed to meet up with `simone`?
+- I still haven't received `simone`'s script notes.
+- Whatever talent `simone` has comes from me -- me!
+- Don't you wonder where i'm really hiding `simone`?
+- `Simone`, if we kill their leader, please come in.
+- You'd cosmetically alter `simone` to look like me?
+- If we don't arm them, `simone`, what are you doing?
+- I just came out to support my good friend, `simone`.
+- `Simone` and i'll make the switch at robinson's/may.
+- `Simone` left these here, it was a rebellious phase.
+- Whenever i compliment `simone`, you take the credit.
+- Lainey, there's no evidence that `simone` isn't real.
+- To stop `simone` from burning me at the stake, - god.
+- I don't believe you've ever once asked to meet `simone`.
+- `Simone` isn't like any other actress you've ever known.
+- Well, i can't wait to meet `simone`... what's her last name?
+- Is there anything better one of them already killed `simone`.
+- We have the only independent footage of `simone` in existence.
+- Well, no one could accuse you of being over-exposed, `simone`.
+- If i know `simone`, she'll let them choose who dies themselves.
+- Lainey, you know `simone` and i don't have a real relationship.
+- `Simone` would rather go up in flames than give up her privacy.
+- Viktor, clyde simply has to get close to `simone` in this scene!
+- As a matter of fact, i ran into `simone` on the lot the other day.
+- I want you to know, `simone` appreciates you all working for scale.
+- Today, my beloved `simone` has been murdered, too, like i love you.
+- I thought you said there were 9 novitiates `simone` left these here.
+- I've been thinking of incorporating something like that in `simone`.
+- I want to thank you for convincing `simone` to sign with the studio.
+- So `simone` goes to the dress department with her robinson's/may bag.
+- `Simone` is thin air, pixels, molded by me from a mathematical equation.
+- From a studio point of view, it would be better if `simone` stayed single.
+- `Simone` and i have loved you as we loved your parents it's behind me now.
+- I can almost forgive him for killing `simone` -- but denying her existence.
+- So, of course, you couldn't kill `simone` because there never was a `simone`.
+- A young woman fitting `simone`'s description dropped her off five years ago.
+- I don't know if you know this, `simone`, but viktor and i were married once.
+- I know how to flush out this `simone` -- a tell-all story from her childhood.
+- No reflections on nicola but `simone` and i -- we were just so right together.
+- `Simone` predicted that the bloodletting would deepen oh, good, the cat's done.
+- ...compton with a fifty-six-year- old petty thief -- woman named `simone` hawkins.
+- I was thinking -- what about you and... "`simone`" moving back in with me and lainey?
+- I've never actually seen `simone` up close, touched her, been in her physical presence.
+- `Simone` peeks out, waits for my man louis here to give her a signal nobody's watchin'.
+- Unless you show me `simone` live and in person i show these pictures to the authorities.
+- Both the russian and chinese are threatening `simone`... how long can they live like this?
+- Maybe if it came from `simone`, if `simone` spoke to mom -- she could straighten things out.
+                 

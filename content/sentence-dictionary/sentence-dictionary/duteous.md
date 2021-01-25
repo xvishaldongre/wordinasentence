@@ -1,0 +1,7 @@
+---
+title: "duteous in a sentence | duteous example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "duteous"
+---
+## Unfortunately, we have no example sentences for duteous                 

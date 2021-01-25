@@ -1,0 +1,107 @@
+---
+title: "book in a sentence | book example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "book"
+---
+- Even `book` the dates.
+- Here's an open `book`.
+- How's your new `book`?
+- It was in your `book`.
+- Let's `book`, charlie.
+- That's a `book`, baby.
+- The shepherd's `book`.
+- Where's my day `book`?
+- Who wrote this `book`?
+- Give me my `book` back!
+- Got a telephone `book`?
+- I have a `book` report.
+- I'm opening the `book`.
+- I remember that `book`!
+- It's an address `book`!
+- No without that `book`.
+- You kiss by the `book`.
+- You look plain, `book`.
+- You went by the `book`?
+- Hey, i love that `book`.
+- His name is john `book`.
+- It's all in this `book`.
+- It's my favorite `book`.
+- It's this damned `book`.
+- Ooh, is that the `book`?
+- She looks at the `book`.
+- Taking the `book` along?
+- That's a `book` of love.
+- There's a `book` inside.
+- They gave us the `book`.
+- They're gonna `book` us.
+- You wrote that `book`...
+- 30% discount from `book`.
+- Is this about the `book`?
+- Is this a kissing `book`?
+- It's a children's `book`.
+- My life's an open `book`.
+- The `book` without pages.
+- What does the `book` say?
+- Yeah, i read your `book`.
+- But i need becca's `book`.
+- C'mon, i read your `book`.
+- Hey, it's your `book` now.
+- I'd have read your `book`.
+- I know the `book`, saavik.
+- I'm neutral in her `book`.
+- I see you read the `book`.
+- Is your `book` going well?
+- It's a young man's `book`.
+- Rich, comic `book` freaks.
+- Sorry, it's my `book` now.
+- That's a very good `book`.
+- The `book` is in my hands.
+- Till you sell your `book`.
+- We must finish the `book`.
+- You read the `book` again?
+- But not a `book` like this.
+- Didn't you hear me, `book`?
+- It's only a b-b-b-`book`...
+- Just grab a history `book`.
+- Like... like a real `book`.
+- So what `book` did you buy?
+- Whadja clear on the `book`?
+- What about your own `book`?
+- Yeah ... a bloomin' `book`!
+- Your `book` was good, sean.
+- You should read the `book`.
+- And remain comic `book` guy.
+- I bet you could do a `book`.
+- I own a comic `book` museum.
+- It's from my science `book`.
+- Just a `book` on composting.
+- Okay, i'll finish my `book`.
+- She reads 'em like a `book`.
+- So how's your `book` coming?
+- That and a geography `book`.
+- That `book` wasn't canadian!
+- That's a white man's `book`.
+- That's from my quote `book`.
+- Through, through his `book`.
+- What's your favorite `book`?
+- You didn't read that `book`.
+- This is a special `book`.
+- You'll write your `book`.
+- By the `book`, he's a sadist.
+- Close the fucking law `book`!
+- Did you even read the `book`?
+- Dufresne, here's your `book`.
+- I'd like to `book` a massage.
+- I forgot my chemistry `book`.
+- It was in a `book` at school.
+- I've been reading the `book`.
+- Keep your eyes on the `book`.
+- Look at this his-tory `book`.
+- The `book` is yours not mine.
+- This the `book` your writing?
+- Went in for lincoln's `book`.
+- What's the blue `book` price?
+- What's your new `book` about?
+- You came back for the `book`?
+                 

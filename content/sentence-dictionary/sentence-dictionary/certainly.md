@@ -1,0 +1,107 @@
+---
+title: "certainly in a sentence | certainly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "certainly"
+---
+- `Certainly`, mr. duke!
+- `Certainly` not to me.
+- `Certainly`, of birds.
+- I `certainly` did not.
+- I `certainly` hope so.
+- I `certainly` was not!
+- I most `certainly` do.
+- It's `certainly` huge.
+- Why `certainly`, baby.
+- Why, `certainly`, sir.
+- `Certainly` pretty.
+- `Certainly`, mr. jones!
+- I `certainly` hope not.
+- It most `certainly` is.
+- [13] i `certainly` will.
+- `Certainly`... aye, sir.
+- `Certainly`, mr. kaplan.
+- `Certainly` not monkeys.
+- I `certainly` intend to.
+- Why, `certainly` he can.
+- Yes, he `certainly` did.
+- You most `certainly` do.
+- `Certainly` a nomination.
+- `Certainly` not some kid.
+- He `certainly` is polite.
+- Well, q `certainly` will.
+- You `certainly` will not.
+- `Certainly` not from them.
+- `Certainly` would, joseph.
+- Oh, `certainly`, sergeant.
+- Why, there `certainly` is.
+- Yes, you `certainly` will.
+- You `certainly` look good.
+- You `certainly` traded up.
+- `Certainly`, herr director!
+- `Certainly`, herr director.
+- `Certainly`, if you insist.
+- `Certainly` it's important.
+- It `certainly` is, officer.
+- I've `certainly` been busy.
+- You-- `certainly` not mine.
+- `Certainly`, major mandrake.
+- It most `certainly` was not.
+- No, but i `certainly` shall.
+- That's `certainly` possible.
+- Yes, it most `certainly` is!
+- [attendant] `certainly`, sir.
+- But they're `certainly` dead.
+- `Certainly`, mister mcmurphy.
+- I `certainly` can't ask them.
+- It `certainly` fucked you up.
+- It's `certainly`... dramatic.
+- Will almost `certainly` fail.
+- It `certainly` beats this.
+- Dr. zaius -- `certainly`, sir.
+- He `certainly` -- hic -- does!
+- He's `certainly` good-natured.
+- I `certainly` didn't mean you.
+- Well, it `certainly` says you.
+- You `certainly` look the part.
+- `Certainly`, my son, `certainly`.
+- I `certainly` am, mr. taransky.
+- `Certainly`, glad to be of help.
+- Well, that `certainly` won't do.
+- Yes, sir -- it `certainly` does!
+- But you're `certainly` not happy.
+- `Certainly` not at my happy home.
+- `Certainly` took you long enough.
+- I am `certainly` glad to hear it.
+- It's `certainly` not good enough.
+- Not him, and `certainly` not you.
+- She `certainly` doesn't need you.
+- Well i'm `certainly` not, either.
+- You `certainly` have not, 655321.
+- You could `certainly` lighten up.
+- _ `certainly` not from level twos.
+- `Certainly` not; it's unprintable.
+- `Certainly` not spy on my husband.
+- He `certainly` drives like a jerk.
+- He `certainly` has something, sir.
+- It's `certainly` not intellectual.
+- Oh yes, and `certainly` _we_ will!
+- Oh, yes, father `certainly` would.
+- Well, i've `certainly` enjoyed it.
+- It's `certainly` not an avenue.
+- I `certainly` wouldn't forget that.
+- Well, you're...`certainly` welcome!
+- `Certainly` a new experience for me.
+- `Certainly` quicker than you�d like.
+- I can `certainly` understand that...
+- I `certainly` hope you -- thank you.
+- We `certainly` don't have any leads.
+- Well we `certainly` can't stay here.
+- You `certainly` delivered the goods.
+- It is `certainly` not cia policy.
+- He `certainly` has your number, alan.
+- I `certainly` didn't know -- get out.
+- I remember mary `certainly`, senator.
+- Well we `certainly` know that's true.
+- I'll `certainly` take a look at these.
+                 

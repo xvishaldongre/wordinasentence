@@ -1,0 +1,89 @@
+---
+title: "barely in a sentence | barely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "barely"
+---
+- You can `barely` walk.
+- You're `barely` alive.
+- You `barely` know them.
+- You can `barely` stand.
+- He's `barely` mentioned.
+- I can `barely` hear you.
+- I can `barely` see them.
+- It�s `barely` a scratch.
+- Mine `barely` even fits.
+- We `barely` even talked.
+- I `barely` made it today.
+- She's `barely` breathing.
+- I could `barely` function.
+- `Barely` has time to react.
+- I `barely` lasted 30 hours.
+- They `barely` talk anymore.
+- Dad `barely` knows we exist.
+- I can just `barely` see him.
+- [lestrade] `barely` past 20.
+- We `barely` know each other.
+- I've `barely` begun, brother.
+- Because you can `barely` walk.
+- I `barely` touched that bitch!
+- That i used to know, `barely`.
+- The five men -- `barely`, yes.
+- Jesus, it's `barely` a warm-up!
+- Just `barely` possible - - yes.
+- Now, you'll `barely` feel this.
+- I `barely` remember my own life.
+- But they can `barely` look at me.
+- He'll `barely` be able to sit up.
+- I was `barely` able to reach her.
+- Could `barely` finish the session.
+- Says 41, but he `barely` looks 30.
+- She can `barely` get the lines out.
+- `Barely` finding our way through it.
+- Emori, emori, you can `barely` walk.
+- Even i can `barely` read all my work.
+- Still, we've `barely` started... and?
+- The hydrofarm is `barely` feeding us.
+- `Barely` living, from the looks of it.
+- We're `barely` receiving transmission.
+- `Barely` know what's going on with you.
+- He `barely` remembers to take a shower.
+- I can `barely` do this in broad daylight.
+- _ the hydrofarm is `barely` feeding us now.
+- We `barely` have enough for ourselves here.
+- You can `barely` wait until it�s light out.
+- As it is, she'll `barely` make the theater...
+- He `barely` knows him -- sir, may i go first??
+- I `barely` managed to scrape up a bit for you.
+- People will `barely` be able to comprehend it.
+- That thing `barely` makes it down the driveway.
+- We just `barely` got cleaned up in time to open.
+- He can `barely` walk, and my shoulder's killing me.
+- I can `barely` take it when my clients are in pain.
+- Said you looked so bad, he `barely` recognized you.
+- We moved around so much i `barely` knew my teachers.
+- The toilets in coach are `barely` ventilated closets.
+- A cop died today and the other is `barely` holding on.
+- Have you saved patients as "`barely`" alive as he was?
+- The chamber and the suit are `barely` helping anymore.
+- The games master wants us to think we `barely` made it.
+- With only six minutes left, we'll just `barely` make it.
+- Can `barely` produce enough... and you'll understand why.
+- Guy can `barely` hold a drink in his hand, he's so scared.
+- Julio took marge i was `barely` able to grab my rate clock.
+- Her ball moves so slowly it `barely` tips over the first pin.
+- I've `barely` seen you for the last three weeks and now this?
+- When they found her, she was `barely` alive...and with child.
+- He could `barely` hold the bat... big billy winked at isaac...
+- His girlfriend who i `barely` know was completely hysterical...
+- But i didn't see the accident and i `barely` knew daniel zavitz.
+- I feel like we've `barely` spent any time together since we got here.
+- Maybe we shouldn't be talking about this just now, with you `barely` home.
+- Oh, folks, we `barely` left the dock, but it looks like we have some company!
+- The hydrofarm is `barely` feeding us now, oh, we're not here to make friends.
+- Wasn't on any of the maps... we could `barely` see it through the underbrush.
+- I mean, what was he doing up on the tower with a girl who could `barely` climb?
+- But he doesn't age like we do -- think dog years: he's `barely` out of his teens.
+- Grace `barely` made it to her bed and i didn't have the energy to take my clothes off.
+- He can `barely` pick up an escort girl, let alone...what was it you said he did to her?
+                 

@@ -1,0 +1,8 @@
+---
+title: "tonsil in a sentence | tonsil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tonsil"
+---
+- Hey, hey, aren't you afraid you'll burn out a `tonsil`?
+                 

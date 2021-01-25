@@ -1,0 +1,102 @@
+---
+title: "Vegas in a sentence | Vegas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Vegas"
+---
+- I now live in `vegas`.
+- How'd ya do in `vegas`?
+- I'm at the las `vegas`.
+- Let's drive to `vegas`!
+- Welcome to las `vegas`.
+- We're going to `vegas`!
+- We're going to `vegas`.
+- Ace saw `vegas` one way.
+- I love las `vegas`, man.
+- I'm not going to `vegas`.
+- What happened in `vegas`?
+- He was with me in `vegas`.
+- I saw him in `vegas` once.
+- A great town, that `vegas`.
+- He's a `vegas` entertainer.
+- I was thinking las `vegas`.
+- Nothing happened in `vegas`.
+- We're the guys from `vegas`.
+- A lot of comics play `vegas`.
+- I can't go back to `vegas`...
+- I'm at a payphone in `vegas`.
+- How'd he know i was in `vegas`?
+- Las `vegas` contracts, d'amour.
+- `Vegas` is too crass for betty.
+- Their las `vegas` concubines.
+- I have to make a stop in `vegas`.
+- The guy took off for las `vegas`.
+- There's no snow in `vegas`, 'kay?
+- Uh, huh huh, this is las `vegas`?
+- You're supposed to be in `vegas`.
+- We can make `vegas` in four hours.
+- You left `vegas` with four- fifty?
+- I can make `vegas` in 3 and change.
+- Look, i can sell my car in `vegas`.
+- Are you two heading for las `vegas`?
+- He's gonna be our lawyer in `vegas`.
+- Las `vegas` -- she's here somewhere.
+- This car will take me to las `vegas`.
+- I'm putting you on a plane to `vegas`.
+- `Vegas` has been my town for 30 years.
+- He's going to be our lawyer in `vegas`.
+- Nothing, my sister's back from `vegas`.
+- I want to know what happened in `vegas`.
+- `Vegas`... don't you talk about my mama.
+- Enough to light las `vegas` for how long?
+- Do they have lots of sluts in las `vegas`?
+- We got a big meeting in `vegas` coming up.
+- You wanted `vegas` press, i gave it to you.
+- I thought you'd be halfway to `vegas` by now.
+- ...nicky was dreamin' his own kind of `vegas`.
+- Tell dad we're getting married in las `vegas`.
+- Operator, how do i get las `vegas` information?
+- You wanted `vegas` quality, i brought it to you.
+- So what the hell makes you think she's in `vegas`?
+- Between here and `vegas` we get a lot of customers.
+- For guys like me, las `vegas` washes away your sins.
+- I thought you would be on your way to `vegas` by now.
+- She says there's gonna be tons of sluts in las `vegas`!
+- I mean, if i can't work in `vegas`, where am i gonna go?
+- The cigarette girl in new `vegas` was an undercover cop.
+- We think it makes `vegas` look like the corner crap game.
+- Why don't his parents ever take him to `vegas` with them?
+- Let's face it, what the fuck are you doing in las `vegas`?
+- One vinyl recording album: tom jones, live at las `vegas`.
+- Sweetheart... you're gonna be situated just right in `vegas`.
+- Take your family and your mistress and move them to las `vegas`.
+- He says she's so famous now, maybe `vegas` will give odds on her.
+- You don't come in here, talk to an owner in las `vegas` like that.
+- I'm putting you on a plane to `vegas`--and i want you to stay there.
+- Yeah, i saw her about six months ago at a convention in las `vegas`.
+- But, not even in `vegas` are you gonna get close to this kind of cash.
+- I've got to make a stop in `vegas`, then i'm heading to santa barbara.
+- The corleone family controls two major hotels in `vegas`; one in reno.
+- All the food in `vegas` is terrible so the place doesn't really matter.
+- We have to transport mr. israel to las `vegas`, time is of the essence.
+- You don't just casually walk out of a `vegas` casino with a dead woman.
+- When you get to salt lake city, ask the driver, 'las `vegas`, please'...
+- But i don't know if i should be flying or playing `vegas` in these suits.
+- That kid's name was moe greene, and the city he invented was las `vegas`.
+- You don't come to las `vegas` and talk to a man like moe greene like that!
+- `Vegas` security lockdown -- [flash forward] night my armored car business.
+- Alf stares out through the windshield at the glow of `vegas` in the distance.
+- The truth is we're going to `vegas` to croak a scag baron named savage henry.
+- `Vegas` security lockdown -- night </b> taryn is now scrawling notes on a pad.
+- If you're so scared of 'em why'd you take their money to `vegas` to begin with?
+- I got buyers in dallas, houston and `vegas` who are ready to snap this stuff up.
+- Not some `vegas` burly-q pyrotechnics, but a real play that requires actual acting.
+- There's a company in las `vegas` called virtucon that we think may be linked to dr.
+- As a matter of fact, i was once a rehearsal pianist for a las `vegas` musical revue.
+- The las `vegas` police department has offered to make a generous financial donation.
+- If he didn't want to go through the roadblock, is there any other way to get to `vegas`?
+- Desert road -- day </b> the crew rides in the back of the wanderer's truck toward `vegas`.
+- I mean, that's what worried me, 'cause it turns out nicky was about to be sent to `vegas`.
+- Is it true that you own a controlling interest in three of the major hotels in las `vegas`?
+- `Vegas` security lockdown -- night </b> domino stares at taryn as she returns to the table.
+                 

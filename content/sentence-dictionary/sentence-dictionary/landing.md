@@ -1,0 +1,63 @@
+---
+title: "landing in a sentence | landing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "landing"
+---
+- Deploy `landing` legs.
+- Kane: rough `landing`?
+- It's a rough `landing`.
+- `Landing` legs deployed.
+- Is that `landing` for you?
+- Grissom to `landing` party.
+- Gordo's `landing` right now.
+- Just like `landing` a plane.
+- Vertical `landing` successful.
+- `Landing` pad for a helicopter?
+- Set down on the `landing` grid.
+- How could they make a `landing`?
+- I'll be `landing` in 90 minutes.
+- Not far from the `landing` site.
+- What kind of `landing` was that?!
+- I'm still working on my `landing`.
+- What's emergency `landing` plan b?
+- Hurt yourself on the `landing`, huh?
+- `Landing` zone is extremely hostile.
+- `Landing` on the lawn in an autogyro.
+- There's an idiot in the `landing` zone.
+- There's an idiot on the `landing` zone.
+- Acting as `landing` roets, last time?
+- From outer space `landing` all around us.
+- One, injuries sustained during `landing`.
+- The expression is "`landing` the fish."
+- Kane: neither was injured during `landing`.
+- You looked oddly at me, back on the `landing`.
+- Are due to the `landing`, not radiation levels.
+- Hello, herman, it was a happy `landing`, i see.
+- Curled up on the `landing` like love locked out!
+- Sinclair: whi brings us to stage 3… `landing`.
+- Which way is it to the `landing` field from here?
+- Buried the two kids who died during the `landing`.
+- That is if the radio wasn't fried in the `landing`.
+- Of the `landing` sites have gone total comms blackout.
+- Chewie, check the manual release on the `landing` claws.
+- Do you know how to get to the `landing` field from here?
+- Well -- there are several ways to reduce `landing` speed.
+- I'm going out on the lawn and arrange for `landing` space.
+- To fly across the ring, stick the `landing`, they're here.
+- Vastly more rich than anything we've found since `landing`.
+- I've had one successful `landing` in a ship face the ground.
+- Only problem is talking to you on your way to the `landing` strip.
+- It's not `landing` for me that the hero doesn't - oh, just take it.
+- This `landing` is captain's discretion and i'm the one who's out on a limb.
+- I didn't see the moon `landing` or the fall of the berlin wall, then let's go.
+- Then our first target will be the initial `landing` place outside los angeles.
+- During the `landing`...when things were at their worst...owens was at his best.
+- Those are the flaps, that's the thrust, this must turn on the `landing` lights.
+- Elizabeth, we will be `landing` in port royal soon, and beginning our new lives.
+- She don't put in at cresap's `landing` no more, but she still blows as she passes.
+- I was there for her birthday about four years ago and it was like lipton `landing`.
+- I'm dead within minutes of `landing` along with every other soldier you are sending.
+- The main entrance to the control bunker's on the far side of that `landing` platform.
+- There's not much chance, but the bounty hunter's ship is on the east `landing` platform.
+                 

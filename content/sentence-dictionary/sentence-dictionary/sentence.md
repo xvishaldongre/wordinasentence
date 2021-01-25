@@ -1,0 +1,62 @@
+---
+title: "sentence in a sentence | sentence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sentence"
+---
+- Finish the `sentence`.
+- It's a good `sentence`.
+- It's a death `sentence`.
+- Suspended the `sentence`.
+- I make a nice-a `sentence`.
+- Years of a life `sentence`.
+- Years of a life `sentence`?
+- It's not a death `sentence`.
+- And suspend their `sentence`.
+- This isn't a death `sentence`.
+- We've got our first `sentence`.
+- Please complete this `sentence`.
+- I hereby `sentence` you to death.
+- What is this, a death `sentence`?
+- You can't even read a `sentence`!
+- I will render my `sentence` tomorrow.
+- No way, busters use it in a `sentence`.
+- You didn't let me finish my `sentence`.
+- Cut your `sentence` in half, maybe more.
+- For the official end of your `sentence`!
+- How much time's left of your `sentence`?
+- _ a 20-year-`sentence` here on a weekend.
+- Hell of a way to avoid a prison `sentence`.
+- You make it sound like a prison `sentence`.
+- If very bad, maybe twenty month `sentence`...
+- By the way, add a life term to my `sentence`."
+- The `sentence` that started "there are three."
+- Describe in a `sentence` how you feel about me.
+- At least 20 minutes ago, finish that `sentence`.
+- No, but would you think, from that one `sentence`.
+- All you've done is put a death `sentence` on meeka.
+- I'll be back later for the official end of your `sentence`.
+- Last chance to get out of this without a prison `sentence`.
+- May i ask what the rest of that `sentence` was going to be?
+- Well, not forever--lemme think ... five year `sentence` ...
+- And if the grounders come, i hereby `sentence` you to death.
+- We've been notified that they rejected the `sentence`... and?
+- In every `sentence`, she mentioned a lord or a person of quality.
+- Even if they cut my `sentence` in half i'll be seventy-three years old.
+- I had two weeks left on my `sentence`... damnit, i just hadda bust out!
+- They step outta line again, we'll shorten up that `sentence` real fast.
+- You are asking me to pass a `sentence` of life or death on my own wife.
+- They'll reduce my `sentence` and then there's time off for good behavior.
+- `Sentence` to begin immediately at the orchard valley correctional facility.
+- Any `sentence` that starts with "at church camp" ain't leading to the big "o."
+- Don't let your eyes go from the beginning of the `sentence` to the end like that.
+- Try to punch one word or phrase in every `sentence` -- punch one idea a story.
+- I'm his number-one fan...i've got all his books, every `sentence` he ever put down.
+- He couldn't get through a `sentence` without all these big words; about why we kill.
+- It meant a minimum `sentence` of 10 years hard labor at the charlestown state prison.
+- I am forced to order you to begin serving a `sentence` of 180 days in the county jail.
+- I do have eighteen criminals under `sentence` of death, but i hold no prisoners-of-war.
+- That's the second `sentence` you've started with "i" - what're you going to do, charlie?
+- You represent the united states government... never end a `sentence` with a preposition.
+- You know, you take the "60 minutes" out of that `sentence`, nobody returns your phone call.
+                 

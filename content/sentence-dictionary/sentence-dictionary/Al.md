@@ -1,0 +1,107 @@
+---
+title: "Al in a sentence | Al example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Al"
+---
+- Crema `al` mascarpone.
+- What time is it, `al`?
+- Your friend, big `al`?
+- `Al` you know too much.
+- I don't think so, `al`.
+- Take 'er on down, `al`.
+- `Al` diavolo rate clock.
+- What about big `al`?
+- Awright, `al`, letta go!
+- Get a goddamn job, `al`.
+- I'11 have to pass, `al`.
+- They're all yours, `al`.
+- What do you think, `al`?
+- Are you building an `al`?
+- But, `al`, it's the bunk!
+- Don't fuck with me, `al`!
+- He'p `al` with the truck.
+- Her `al` is beyond doubt.
+- See if you can open `al`.
+- So, where's "weird `al`"?
+- We know what it is, `al`.
+- `Al` wants to talk to you!
+- Are you pissed about `al`?
+- Do you even remember `al`?
+- We got it down cold, `al`.
+- I don't know...to get `al`.
+- Let's go see `al` chambers.
+- That was `al` on the phone.
+- I told you, my name is `al`.
+- ♪ with `al` bundy ♪ the dog!
+- But `al` is your husband now!
+- Can we call you "weird `al`"?
+- Can we get around this, `al`?
+- Didn't `al` believe my story?
+- Thanks a million, uncle `al`!
+- An `al` doesn't need a gender.
+- There's no secrets here, `al`.
+- You better get over to `al`'s.
+- Alm�sy asks `al` auf in arabic.
+- He's gonna reprogram your `al`.
+- I am, sir...sergeant `al` powell.
+- "victory at sea," `al` ... henry.
+- You know who i see for `al` roxy?
+- Screw the pem...what about `al`...
+- This is mine, `al` -- all mine ...
+- What do i look like, `al` cowlins?
+- Yeah, like `al` capone on tax day.
+- You've got the public upset, `al`.
+- Honest like `al` capone on tax day.
+- Marlon and `al`.... you can let go.
+- Uncle `al`, what if it's not a guy?
+- What's the mandatory on that, `al`?
+- `Al` here lost his boy 10 years back.
+- `Al`, are you doing anything in there?
+- `Al` least a contingency for wardrobe.
+- I'll get square with whoever did `al`.
+- What's going on at owen's, uncle `al`?
+- They have funny names: marlon and `al`.
+- What are we going to do about it, `al`?
+- Big `al` gets whacked mid-egg foo young.
+- The little man in my... ...head... `al`?
+- What'd he say, how's he know about `al`?
+- Speak to this lad, `al`, ... to mr. falco.
+- Because pasta should be eaten "`al` dente".
+- Come on... we sure big `al` threw him to us?
+- This is somebody's personal tax -- try `al`.
+- `Al`, as far as you're concerned, i'm the don.
+- `Al` malone wanted him out at the fawcett farm.
+- I now the captain meant no person- `al` insult.
+- I went pretty good for a while, didn't i, `al`?
+- Now, if that isn't true `al`, what the fuck is?
+- I mean, you're listed in there with `al` capone.
+- Last night, `al` calls this bookie to settle up.
+- How dare you call him "dad" in front of `al`.
+- ... they smelled the blood on me this time, `al`.
+- Uncle `al`- holy-jumped-up-baldheaded-jesus-christ!
+- `Al` least when she decides to move, stubborn beast.
+- You're all doing an incredible job, sue, `al`, numa.
+- `Al`, you leave my heart alone... down to your heart.
+- You and `al` were - and that's why you threw him out.
+- When i was in college, i did a semester on `al` theory.
+- You're not gonna believe this... where are you,...`al`?
+- You can't admit, even to yourself, that it's gone, `al`.
+- Getting an `al` to read and duplicate facial expressions.
+- Or i could maybe do an `al` pacino movie, play a hard-on.
+- So a hot robot who clouds your ability to judge her `al`?
+- Well, i don't think you can get more common than me, `al`.
+- If it isn't the neighborhood bootlegger, `al` capone mcfly?
+- Sir, you can't just-- pasen `al`-furgon v larguense de aqui!
+- `Al`--he's a-hankerin' an' a- jibbitin' to go off on his own.
+- I like it that you always know how to say things, uncle `al`.
+- George, debemos hablarle `al` patron, es la unica manera, mano.
+- Then he took an ax, and chopped one man's feet off... `al` capone!
+- You've heard of the pem114... what are you doing in my head, `al`?
+- The only story here is how this guy made a monkey out of you, `al`.
+- Goddammit, `al`-look at me and stop crying like some kind of faggot.
+- My uncle `al` took off the regular muffler and put on a cherry bomb.
+- ... y'know `al`, if hoover was alive none of this would've happened.
+- `Al` ain't a-goin' away, an' you gonna *tell* him he ain't a-goin' away.
+- Remember, `al`... we'll be at the ritz-carlton in boston tomorrow night!
+                 

@@ -1,0 +1,63 @@
+---
+title: "pee in a sentence | pee example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pee"
+---
+- I must go for a `pee`.
+- Oh man, i gotta `pee`.
+- Stopped only to `pee`.
+- Just don't `pee` in it.
+- Only for `pee` or poop.
+- To `pee` or not to `pee`!
+- Yes i do have to `pee`!
+- Even nuns have to `pee`.
+- You don't have to `pee`.
+- I blame tony `pee`-pants!
+- Maybe they have to `pee`.
+- Hi, there my `pee` and em.
+- I didn't have to `pee` then.
+- No, no jokes, i gotta `pee`.
+- I sold the `pee`-wee herman doll!!
+- At fifteen em-`pee`-aitch i roll out!
+- This is bigger than tony `pee`-pants.
+- It's a gamer abbreviation for "a `pee`."
+- So tony `pee`-pants starts ignoring kat.
+- This one's as weak as cricket `pee`-`pee`.
+- He must be on his way to `pee` out a fire.
+- And in real life you actually have to `pee`.
+- I... and over here is his final `pee` stain.
+- What if she has to `pee` when she's working?
+- You pay for that `pee` stick when you're done!
+- Being pregnant makes you `pee` like seabiscuit.
+- Or `pee` in their pants when they see the ocean!
+- Are we hoping the ghost is going to have to `pee`?
+- ♪ there is none to whom i yield ♪ i'm gonna `pee`.
+- Oh, come on, anyone in this joint `pee` your pants?
+- What suggestions have you, my `pee` and em, to make?
+- We didn't have no tv up at `pee` dee, baby, you know?
+- My brother tee `pee`'s room is flooded with water.
+- She blames tony `pee`-pants pinterello for everything.
+- Up at `pee` dee, i couldn't remember any of my dreams.
+- We don't stop till we hit the carwash, not even to `pee`.
+- At `pee` dee, all you think about is the future, you know?
+- ♪ i can't be fired 'cause they don't test my `pee` ♪ please.
+- This probably isn't the bet time, but i really have to `pee`.
+- I really did miss your mind while i was out at `pee` dee, honey.
+- How did you even generate enough `pee` for three pregnancy tests?
+- I mean his wife goes out and owes money and they `pee` on my rug.
+- I wouldn't mind doin' something else, but i do really have to `pee`.
+- What gives, o my `pee` and em, what makes you think you are welcome?
+- There�s a reason i always tell that tony `pee`-pants story, you know.
+- Sorry, em, i wanted it to be like... a big surprise for you and `pee`.
+- ♪ cool, let's `pee` in the creek ♪ i should've strapped it to the a-strut.
+- Look, you know how you're having a dream, and in the dream you gotta `pee`.
+- Michael green, who was also eight, asked if he could watch me take a `pee`.
+- You don't have enough, you can't `pee` in the tall weeds with the big dogs.
+- Soon as that piece of filth got out of `pee` dee, i knew there'd be trouble.
+- You mean, did you personally come and `pee` on my-- did i urinate on your rug?
+- Now you go put some `pee`-`pee` in a cup for dr. innis and i'll be feeling okay, too.
+- This whole fucking thing--i could be sitting here with just `pee`-stains on my rug.
+- My little girls got in a fight over tony `pee`-pants and they haven�t made up since.
+- I finally filled up enough virtual `pee` bottles for the first time in my life, not you.
+                 

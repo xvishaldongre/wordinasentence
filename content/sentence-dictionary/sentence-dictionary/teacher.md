@@ -1,0 +1,107 @@
+---
+title: "teacher in a sentence | teacher example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "teacher"
+---
+- My `teacher` got sick.
+- He was our `teacher`...
+- I had a good `teacher`.
+- Who was your `teacher`?
+- You're a `teacher`, eh?
+- You're a `teacher` now?
+- You're a good `teacher`.
+- Your `teacher` is a fox!
+- I want to be a `teacher`.
+- She's a school `teacher`.
+- I am a `teacher` of sorts.
+- `Teacher`, hawkins middle.
+- And i know that, `teacher`.
+- I was your first `teacher`.
+- Well, i'm a good `teacher`.
+- Hey look, it's our `teacher`.
+- I have an excellent `teacher`.
+- Oh, listen to `teacher`'s pet.
+- That young school `teacher`...
+- You call your `teacher` david?
+- You weren't my only `teacher`.
+- Not according to his `teacher`.
+- Your child's science `teacher`?
+- You're a great `teacher`, lloyd.
+- Eh - formerly a school-`teacher`.
+- I had a `teacher` like that once.
+- I hated my third grade `teacher`.
+- You were sleeping like `teacher`.
+- I have a cousin who's a `teacher`.
+- As a public school music `teacher`.
+- Well, maybe you had a bad `teacher`.
+- We're losing our favorite `teacher`.
+- Don't go arguing with your `teacher`.
+- I think you'll make a good `teacher`.
+- I'm a middle-school english `teacher`.
+- I'm a `teacher` -- not a practitioner.
+- Have you been seeing another `teacher`?
+- His `teacher` brought him in to see me.
+- She <u>is</u> my third grade `teacher`!
+- A mentor is a special kind of `teacher`.
+- She looks like my third grade `teacher`.
+- You were an excellent `teacher`, george.
+- We'll see what your `teacher` has to say.
+- Being that i'm just the `teacher` and all.
+- He was a science `teacher` at denton high.
+- Is he a banker, a `teacher` or a gardener?
+- What should i do about my doubt, `teacher`?
+- Towards your mother onto your art `teacher`.
+- We must remember that life is the `teacher`.
+- [gasping] you're pretty mean for a `teacher`.
+- He was a `teacher` , kind of a know it all...
+- `Teacher`, `teacher`, my sister's but we can't.
+- Here's a title: an apple for the `teacher`.
+- I don't wanna talk to a `teacher`, it's summer!
+- Sheldrake likes that angle about the `teacher`.
+- I can't stop thinking about that poor `teacher`.
+- Then it gets the police, and your `teacher` too.
+- I shouldn't say that, because i'm your `teacher`.
+- Looks real bad if the `teacher`'s late for class.
+- Sometimes you feel like a kindergarten `teacher`.
+- Your `teacher` said, "you're too late, truman.
+- You can't marry a `teacher`, it's against the law.
+- Bastard nailed the vice- principal and a `teacher`.
+- I'm embalming my high school `teacher`, don't sing.
+- I've never done as a `teacher` before: actually try.
+- But there is a piano `teacher` in the village -- here.
+- "`teacher`-student relations: how close is too close?"
+- A place like this needs at least one `teacher` like me.
+- I just don't think that you've had the right `teacher`.
+- Miss johnson is a `teacher`, and... who's miss johnson?
+- Mrs. sutphin, i'm paul stubbins, chip's math `teacher`.
+- You're intelligent jack... man....you're a `teacher`...
+- He has the `teacher` i would have chosen for myself.
+- God, i would love to think i'm an interesting `teacher`.
+- It appears that cecile has fallen for her music `teacher`.
+- You know and i know that hobbes was a lousy `teacher`, eh?
+- My mentor was an amazing `teacher` named benton mandlebaum.
+- I'm getting a `teacher`'s pet rep. you're famous around here.
+- My mother is a piano `teacher` and my father was a conductor.
+- My third grade `teacher` at the convent shot better than that.
+- That's where annie hayworth lives, she's the school `teacher`.
+- Your priest, your postman, your `teacher`, the world at large.
+- Now, that piece of fabric that the `teacher` found by the pipe.
+- She only wants to do it because her sweetie pie's the `teacher`.
+- Paul you know what my english literature `teacher` said about you?
+- I checked with the school board, she's not an accredited `teacher`.
+- You said you hated your `teacher` yesterday and he was murdered too.
+- Then he tells me my second grade `teacher` was called miss polio.
+- He was recently suspended from school for insulting his gym `teacher`.
+- I don't care what you say about david, he's a perfectly fine `teacher`!
+- Remember that stupid hippie art `teacher` who failed me sophomore year?
+- Then they'd know that we found someplace he was a `teacher` on the ark.
+- Well, actually, it was the name of my drama `teacher` - louis sunshine.
+- Well, my mother was the only good `teacher` the colored school ever had.
+- When the student has learned well, the `teacher` is no longer necessary.
+- As a `teacher` on a training mission, i am content to command a starship.
+- It's comforting to know that america's children have you for a `teacher`.
+- Because you yelled at them like it was a parent-`teacher` conference, i...
+- I think there's something going on between cecile and her music `teacher`.
+- The girl was my cousin and the man who abducted her was a `teacher` i'd had.
+                 

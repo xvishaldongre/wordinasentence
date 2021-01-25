@@ -1,0 +1,80 @@
+---
+title: "drag in a sentence | drag example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drag"
+---
+- I'm not a `drag` queen.
+- You were a `drag` queen.
+- Hey, is this a `drag` bar?
+- It's a `drag` coming home.
+- Let's not `drag` this out.
+- They're all `drag` queens.
+- Jerusalem is a real `drag`.
+- Saw 'em `drag` you off too.
+- This prom is a real `drag`.
+- Well don't `drag` your ass.
+- Did you `drag` me in here too?
+- We'll really `drag` it out.
+- Why don't i just `drag` you off?
+- Then why'd you `drag` me into it?
+- We can `drag` the body behind us.
+- This is going to be a real `drag`.
+- Why would a cat `drag` me anywhere?
+- `Drag` queens can be very beautiful.
+- I can't `drag` you further into this.
+- Don't `drag` me into your lonely song.
+- Well, listen to this: `drag` your ass.
+- Yeah, company policy is a real `drag`.
+- Do you `drag` him into your little room?
+- Draw and `drag` the sequoia widow-maker.
+- Has `drag` city records, i know, i know.
+- I don't want to `drag` you down with me.
+- They `drag` alex to a low water through.
+- Newmeat looks like a poker player, `drag`.
+- So, are you a... you're a `drag` queen now?
+- Imagine not wanting to `drag` him into this.
+- You don't understand a thing, do you, `drag`?
+- I'm not letting homer `drag` me down this time.
+- We could, i don't know, `drag` a car behind it!
+- You'd `drag` me off my deathbed if it suited you.
+- But you will not `drag` this company down with you!
+- I've been trying to `drag` it out of her for years.
+- Damn shame you have to `drag` your girlfriend along.
+- I don't want to `drag` this out too long for jeremy.
+- We couldn't `drag` that boat down hill on ice with it.
+- Boy, you're getting to be a real `drag`, you know that?
+- You won't be able to `drag` anything from her that way.
+- I can't imagine why i'd allow you to `drag` me down here.
+- You used to `drag` it around behind you... sherlock said.
+- To springfield's hottest `drag` club, told you to do that.
+- We didn't `drag` him through miles of woods quint... fine?
+- You should have told us this was a `drag` tubberware party.
+- But you don't want other producers to know that's you in `drag`.
+- Go in there, snatch her by the hair, and `drag` her big ass out.
+- We'll have to carry the cells...`drag` them...whatever it takes.
+- Why don't you just `drag` me off if you want to marry me so much?
+- We need to `drag` a lot of heavy stuff in front of the door -- okay.
+- If we don't sever the hull completely she'll `drag` us down with her.
+- `Drag`'s been chain-ganging so long he's got a nose like a bloodhound.
+- I'm going to `drag` him out and force him to tell us what his game is.
+- But the drowning man will always try and `drag` somebody down with him.
+- Come on brenna, your ass is already in a sling, don't `drag` me into it.
+- You really want to let that man `drag` you up annapuma on your honeymoon?
+- Into thinking you're a `drag` queen, when you're really i'm not a chemist.
+- He doesn't like how it went down with the red `drag` -- welshman, whatever.
+- Don't `drag` my ass into this -- i know what 'strapped' means, motherfucker.
+- Wild horses wouldn't `drag` dickie to -- dickie was at the opera last night.
+- But we got half the bering sea and the whole alaskan gulf to `drag` her over.
+- You `drag` that coconut around for your health, or do you know how to use it?
+- He even tried to `drag` me into the gentlemen's -- i had him out this morning.
+- Ease up on the star `drag`, keep the tie up, up and work hell outta that fella.
+- If we go for custody, depositions, psychiatric evaluations, it could `drag` on.
+- Stu and i made a pact that when our time came - we wouldn't let it `drag` out.
+- If he leaves, i will follow him up there and i will `drag` him home by his nose ring.
+- This doesn't make any sense; you are going to `drag` that poor boy out in the cold air.
+- Three more hours... yeah, bein' a hard-ass all the time is a real `drag`, but it works.
+- I know it's a `drag` -- but you can't find a hotel room in town -- not on new year's eve.
+- The hell you aren't, you're comin' with me if i have to `drag` you every inch of the way.
+- We were forced to tie him to my best stallion and `drag` him around the barn a few times.
+                 

@@ -1,0 +1,106 @@
+---
+title: "prince in a sentence | prince example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prince"
+---
+- He's a `prince` freak.
+- You'd put on `prince`.
+- Including the `prince`.
+- So, who's `prince` ali?
+- "must marry a `prince`."
+- The `prince` of darkness.
+- There is no `prince` ali.
+- Welcome, `prince` anders.
+- Aladdin, warrior `prince`!
+- I see `prince`, of course.
+- The dark `prince` is here.
+- More than `prince` of cats.
+- Okay, a `prince`, a `prince`.
+- What about `prince` ali?
+- I sort of am a `prince` now.
+- ♪ make way for `prince` ali!
+- Or the `prince` of darkness.
+- But he's actually a `prince`.
+- `Prince` charles is a faggot!
+- He tried to kill `prince` ali.
+- The merchant `prince` of lust.
+- Why is `prince` ali still here?
+- But she has to marry a `prince`.
+- He was once a `prince` of egypt.
+- Hey, can you make me a `prince`?
+- My son roan, `prince` of azgeda.
+- Someday your `prince` will come.
+- Keep a close eye on `prince` ali.
+- Now, `prince` ali, he has jewels.
+- `Prince` ali got you to the door.
+- You say ... you're a `prince`.
+- Lock `prince` roan of azgeda away.
+- Like a true `prince`... a champion!
+-  90. who kills `prince` humperdinck?
+- I could just... make you a `prince`.
+- I see the `prince` of wales is here.
+- The ark thinks the `prince` is dead.
+- This is my place on `prince` street.
+- Billy `prince` is asking you to prom.
+- He's with the `prince` in the castle.
+- `Prince` albert is at windsor, ma'am.
+- You are the `prince` of the darkness.
+- Goodnight sweet `prince`, parting is .
+- A handsome `prince` wants to marry you.
+- I told you she has to marry a `prince`.
+- The `prince` left him only that choice.
+- Billy `prince` is asking me to the prom.
+- My name is `prince` mubutu from nigeria.
+- Another `prince` more interested in baba.
+- Consider giving `prince` anders a chance.
+- Jafar told me of `prince` ali's ambition.
+- `Prince` ali, your presence is requested.
+- Evil, `prince` charles did have an affair.
+- One day a pauper, the next day, a `prince`.
+- Oh, rajah, let's not eat the `prince` today.
+- A `prince` from a kingdom that doesn't exist.
+- I convinced her that i really was a `prince`.
+- Yes, `prince` mishkin, what can we do for you?
+- I made you look like a `prince` on the outside.
+- `Prince` albert, my husband, had typhoid fever.
+- `Prince` albert was going to build a bench here.
+- This is `prince` imhotep, high priest of osiris.
+- `Prince` ali, you invited yourself into our city.
+- Get you set up like the fuckin' `prince` of wales.
+- I don't know what has happened to `prince` joseph.
+- I think i finally got the hang of being a `prince`.
+- There's a lot of gray area in "make me a `prince`".
+- As i live and breathe and wear spats ... the `prince`.
+- In the name of elric, `prince` of elves, demon begone.
+- It's a self-portrait of `prince` vigo, the carpathian.
+- What foreign `prince` can care for our people as i do?
+- Yeah ... nice ... nice ... ... like `prince` charming.
+- A meeting with the `prince` of turbingen is impossible.
+- I was born to do more than marry some useless `prince`.
+- Soft and wet, by the artist formerly known as `prince`.
+- It's just another `prince` coming to court the princess.
+- The `prince` does not like to be touched by other humans.
+- Two is the `prince` who kneels before her on one knee.
+- Cheer up, you lost your `prince`, but dinner's on the way.
+- She's got a great average, but she's looking for a `prince`.
+- Tell `prince` ali, the way to her heart is through her mind.
+- There are no `prince` charmings, there are no glass slippers.
+- Well, you didn't get your `prince`, and there goes your diamond.
+- A hundred years ago austria was run by a `prince` named metternich.
+- Only the `prince`, the count, and i know how to get in and out.
+- Once upon a time there was a `prince`, who was being driven around...
+- Ever since `prince` humperdinck fired him, his confidence is shattered.
+- Make sure the `prince` doesn't leave this room until i come and get him.
+- You're sort of made to feel like you're the `prince` of the kingdom, ya know?
+- Welcome farm station's own monty green well, if it isn't the `prince` of azgeda.
+- Then that would be eating and drinking i'd live like a `prince` without thinking.
+- `Prince` charles is so ugly they pay him two million bucks a year to stay indoors.
+- You have already done everything which is necessary for the honor of your `prince`.
+- I tell you, one year under my tutelage and i could make you the `prince` of thieves.
+- No matter where you take me ... there's no greater hunter than `prince` humperdinck.
+- Oh, that's easy -- i'm going to latch onto a good-looking, incredibly rich `prince`.
+- You don't die a `prince`, he's a fraud, but he does have knowledge you'd all be heroes.
+- The `prince` and the count always insist on everyone being healthy before they're broken.
+- When he heard, the `prince` of wales threw the bust from the window of the royal gallery.
+                 

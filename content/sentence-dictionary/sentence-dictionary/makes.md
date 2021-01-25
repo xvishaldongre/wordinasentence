@@ -1,0 +1,107 @@
+---
+title: "makes in a sentence | makes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "makes"
+---
+- It `makes` life spicy.
+- It `makes` me fidgety.
+- It `makes` me nervous!
+- `Makes` no difference.
+- `Makes` no sense, roy.
+- `Makes` them stronger.
+- `Makes` you feel good?
+- Nobody `makes` a dime.
+- No-- it `makes` sense.
+- Nothing `makes` sense.
+- That `makes` a change.
+- That `makes` it worse.
+- That `makes` no sense.
+- This `makes` no sense.
+- Who `makes` all these?
+- Who `makes` you happy?
+- Wine `makes` me crazy.
+- It `makes` me fear her.
+- It `makes` me so horny.
+- It `makes` sense to me.
+- It `makes` us human ...
+- It `makes` you nervous?
+- It's `makes` it easier.
+- `Makes` you think, huh?
+- Nell, it `makes` sense.
+- She `makes` me stretch!
+- That `makes` two of us.
+- That `makes` us square.
+- What `makes` sammy run?
+- What `makes` you crazy?
+- Hit `makes` me sad, too.
+- It `makes` a good green.
+- It `makes` sense, right?
+- `Makes` 'em feel better.
+- `Makes` me look slimmer.
+- That `makes` it federal.
+- That `makes` one a star.
+- What `makes` a criminal?
+- Almost `makes` you worse.
+- He just `makes` me laugh.
+- It `makes` me very angry.
+- It `makes` perfect sense.
+- It `makes` them feel bad.
+- `Makes` me question that?
+- Practice `makes` perfect.
+- She `makes` felt wallets.
+- That `makes` total sense.
+- That `makes` you a story.
+- Then it `makes` me crazy.
+- Then it `makes` me crazy.
+- This guy `makes` fifteen?
+- What `makes` you so sure?
+- While he `makes` the run.
+- It `makes` a lot of sense.
+- It `makes` me feel better.
+- It `makes` you a prisoner.
+- It still `makes` me laugh.
+- `Makes` me sad it was her.
+- Nothing `makes` any sense.
+- Probably `makes` it worse.
+- That hardly `makes` sense.
+- That `makes` a good story.
+- That `makes` it unanimous.
+- What `makes` you say that?
+- What `makes` you think so!
+- What `makes` you think so?
+- What `makes` you trust me?
+- When he `makes` that call.
+- With you it `makes` sense.
+- Yeah, `makes` total sense.
+- Your mind `makes` it real.
+- A magician *`makes`* magic.
+- This `makes` you "sad"?
+- Bob, that `makes` no sense.
+- Everybody `makes` mistakes.
+- I guess that `makes` sense.
+- I hope he `makes` me proud.
+- It `makes` everything move.
+- It `makes` me a bootlegger.
+- It `makes` me want to puke.
+- It `makes` no sense at all.
+- It `makes` you suggestible.
+- `Makes` all the difference.
+- `Makes` me feel like a kid.
+- `Makes` the shot more real.
+- Money `makes` money, vicki.
+- That `makes` him dangerous.
+- That `makes` no difference.
+- This heat `makes` me tired.
+- This `makes` me feel funny.
+- Whatever `makes` you happy.
+- What `makes` sense, is all.
+- What `makes` that official?
+- A case that `makes` careers.
+- I mean, who `makes` the cut?
+- It-it `makes` perfect sense.
+- It `makes` me more than mad.
+- It `makes` no logical sense!
+- It `makes` things go faster.
+- `Makes` a person feel cheap.
+                 

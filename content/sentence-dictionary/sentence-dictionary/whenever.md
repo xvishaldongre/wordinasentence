@@ -1,0 +1,104 @@
+---
+title: "whenever in a sentence | whenever example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whenever"
+---
+- `Whenever` you want it.
+- `Whenever` he was close.
+- `Whenever` you're ready.
+- `Whenever` you want them.
+- Dip in `whenever` you want.
+- `Whenever` the hell we want.
+- `Whenever` you feel like it.
+- I can quit `whenever` i want.
+- `Whenever`... all right, look.
+- You can stay until `whenever`.
+- `Whenever` he's got an edge on.
+- `Whenever` i get nervous i eat.
+- She's there `whenever` i call her!
+- `Whenever` your're ready, captain.
+- Will you come `whenever` i ring it?
+- Call me `whenever` you want to talk.
+- Off the air, on the air, `whenever`.
+- Just `whenever` you take a notion to.
+- ...you can leave `whenever` you want.
+- They can kill us `whenever` they want.
+- So `whenever` we want... you'll love it.
+- Uh, yes...i mean...`whenever` necessary.
+- `Whenever` i look for dickie i find you.
+- `Whenever` you want and search the place.
+- Come over to my house `whenever` you want.
+- Drops by the club `whenever` he's in town.
+- Dry fire it `whenever` you get the chance.
+- `Whenever` it stops, we're there, waiting.
+- You call `whenever` it feels right to you.
+- `Whenever` you lose, you get this attitude.
+- `Whenever` i have a few minutes after lunch.
+- Last week or `whenever` it was, in west palm.
+- `Whenever` he touches me, i just can't relax.
+- I get an alert `whenever` anyone's getting rich.
+- `Whenever` i am in here and you hear me typing, yes.
+- `Whenever` i compliment simone, you take the credit.
+- `Whenever` i try to help anyone it all turns to shit.
+- A hired valet who robs me `whenever` he has the power.
+- So, `whenever` you feel like dying, feel free to visit.
+- But, `whenever` it's just the two of us, i don't know...
+- Just head out for the horizon `whenever` i feel like it.
+- `Whenever` i see the dc logo, i immediately fall asleep.
+- You'd always go sit in a plane `whenever` you were upset.
+- I figured, `whenever` you decided to go, you'd be all set.
+- I mean since `whenever`... you mean... since this morning?
+- Of course `whenever` i meet a guy, i'm wearing no make-up.
+- It sends a shock `whenever` it senses a drop in blood flow.
+- Of course...`whenever` you feel like it just help yourself.
+- Tell the truth, `whenever` i'm here, i can't wait to leave.
+- `Whenever` that commercial comes on... why didn't you call?
+- `Whenever` you do something makes the news, he sends it on.
+- Why, she lights up like a firefly `whenever` you're around.
+- But `whenever` we have a moment alone, your beeper goes off.
+- I can talk to my girlfriend `whenever` and wherever i choose.
+- Letting you pull me into bed `whenever` the spirit moved you.
+- He always sings "mother machree" `whenever` he's got good news.
+- `Whenever` i get near the water, i see this young boy drowning.
+- `Whenever` you want to visit their plants they are open to you.
+- ...they gave dude a beeper, so `whenever` these guys call-- yeah.
+- Meetings and travel...`whenever` they come here, i handle details.
+- `Whenever` i can't get to sleep i ask him to tell me about his day.
+- His adam's apple keeps jumping up and down `whenever` he gets excited.
+- Take the luminal to sleep, or `whenever` you feel an attack coming on.
+- He probably had that same look `whenever` he killed his brother, right?
+- It is nice to talk to someone from that time, `whenever` who was close?
+- Your wife will meet you there, so we can leave `whenever` you're ready.
+- Yet somehow `whenever` i'm with you, to young italian-american students.
+- You fuck me `whenever` you want... you don't call... tell me who she is.
+- She played with me and always came to be with me `whenever` i needed her.
+- Hot and cold running water -- you see, i can get a bath `whenever` i like.
+- As it was a year ago, or six months ago, `whenever` you were here to see it.
+- You people can't just show up here, `whenever` you want and search the place.
+- `Whenever` i went outside, i saw fuckin' planes take off drownin' out my show.
+- Oh anywhere - `whenever` i needed to - do you know how easy it is to take them?
+- She's lost a lot of blood, - _ - `whenever` there's trouble, the amazing place!
+- `Whenever` a door was closed, you could be sure they were making sex behind it!
+- `Whenever` you come in here and interrupt me, you're breaking my concentration.
+- `Whenever` they say mozart with love, they'll have to say salieri with loathing.
+- For the record, `whenever` you hear me sliding out of control, i'm never alright.
+- Most guys would kill just to have someone do this with them `whenever` they like.
+- My father used to say that `whenever` you saw one, it was a soul going to heaven.
+- We're past the outer marker, we can engage the ion drive `whenever` you're ready.
+- `Whenever` something broke he would open it up, tinker with it and it would work.
+- `Whenever` you ask me something why do you always say "let me ask you something?"
+- `Whenever` somebody dies i consider it such a waste that i didn't know him better.
+- Where i come from the voodoo priests used it `whenever` they needed a mickey finn.
+- `Whenever` a patient croaks on him it's either god's will or somebody else's fault.
+- `Whenever` you see someone who's really messed up, especially amputees and retards.
+- `Whenever` george tells someone how steadfast i am, he always makes me sound boring.
+- `Whenever` we got local merch, we'd usually send it to palm spring or arizona... la.
+- `Whenever` you go back to school, isn't everything supposed to look so much smaller?
+- Mary, `whenever` it's possible, tax- deductible or not, i want to see deductible you.
+- Well, `whenever` i run across a funny name, i always like to poke around for a rhyme.
+- I used to come down to new york `whenever` he sang at the capitol and scream my head off.
+- Because blackie carson books the park and `whenever` we've needed a gig he's come through.
+- How many innocent lives have you sacrificed, `whenever` she uses her powers, she gets weak.
+- I can shtop `whenever` i want... is this an act -- or are you addicted to causing trouble??
+                 

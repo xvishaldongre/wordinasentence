@@ -1,0 +1,88 @@
+---
+title: "recall in a sentence | recall example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "recall"
+---
+- `Recall` what mistake?
+- When, as i `recall`...
+- 259-7881, if i `recall`.
+- Not that i can `recall`.
+- In a fire, as i `recall`.
+- At least i don't `recall`.
+- I don't `recall` his name.
+- Of course i `recall` rose.
+- Yes, you do `recall`, right?
+- He has almost total `recall`.
+- You mean you don't `recall`??
+- I don't `recall` inviting you.
+- It's "ope - `recall` mistake."
+- "ope," that's the `recall` code.
+- As i `recall` we split the check.
+- He was a bit proud as i `recall`.
+- No one has that kind of `recall`.
+- That's right, sir, i `recall` it.
+- Thirty acknowledged the `recall`.
+- Have you tried the `recall` again?
+- Can you `recall` no melody of mine?
+- She didn't die, if you `recall`!
+- Then there's no chance for `recall`?
+- No, not that i `recall`, i was asleep.
+- We were not speaking, if you `recall`.
+- As i `recall`, you've robbed it before.
+- I don't `recall` any other obligations.
+- I don't `recall` ever seeing it before.
+- You `recall`, did it say dead or alive?
+- Don�t you `recall` convincing me he had?
+- I don't `recall` asking your permission.
+- It's the last secular music we `recall`.
+- As i `recall`, you were on your way home.
+- In an hour, he could have total `recall`.
+- You `recall` if charley wade was a mason?
+- As i `recall`, you're the sick fucker.
+- I `recall` distinctly the detonation order.
+- I don't `recall` siberia being this warm, steed.
+- As i `recall` you took the test three times yourself.
+- I'm sorry, but i don't seem to `recall` the occasion.
+- As i `recall`, you're the one who said there is no we.
+- As i `recall`, i opposed your enlistment in starfleet...
+- I can't `recall`, did you have a prescription for those?
+- I don't `recall` authorizing you to have a personal life.
+- Ah, let's `recall` the ponies' latest adventure, shall we?
+- But sir - do you `recall` my instructions to you, starling?
+- By the way, you `recall` the number of the locker you used?
+- No, the problem, as i `recall`, was the lack of blocking...
+- Deeds, do you `recall` forcibly ejecting people from your home?
+- I `recall` that feeling, from the days when i had such a thing.
+- Do your `recall` the words of saint peter, in ecciesiastes 1:27?
+- I don't `recall` any sketches of this passing across my desk ...
+- Topanga canyon has a hell of a lot of potholes if i `recall`.
+- I vaguely `recall` a large, angry man, and someone called norton.
+- They came to america seeking other kinds of cheese, as i `recall`.
+- General, now that you've done that, i beg you to `recall` the wing.
+- I was thinkin' i had an uncle who was a fine man, you `recall` him?
+- Now i said i had something for you, as i believe you will `recall`.
+- Of course, the motto, the motto -- do you `recall` the school motto?
+- You may `recall` what german guarantees have been worth in the past.
+- I'm sorry, i don't `recall` meeting anyone who fits that description.
+- You `recall` how i spoke of the push you feel and how i make it less?
+- You wouldn�t `recall` if the brothers-in-law left together, would you?
+- I do `recall` it was after an affair of the heart had gone sour on him.
+- I haven�t been able to `recall` a single moment of that day...until now.
+- It was <u>free</u>--i `recall` that was the chief selling point for you.
+- `Recall` the time we was sittin' one night behind the confederate soldier?
+- As i `recall`, the town of resurrection is about two kilometers east of here.
+- I don't `recall` saying i didn't want a million bucks... that's close enough.
+- Ian, if we `recall` the boat now, we've made two invasive landings in one day.
+- Once a file's been sent to the caste, is it possible to `recall` it for review?
+- The key -- the key -- the clue -- what does this man `recall` on his death bed?
+- As i `recall`, they outlawed compression firearms in the district ten years ago.
+- It's been a long time ... frowns) 'though i do i `recall` you as a man with style.
+- Just ask if they can `recall` recommending my services to anyone in the recent past.
+- Yet all you wanted me to do oh, also, you've made me `recall` wonderful moments mmm.
+- Can you `recall` any particular incident that relates to mr. kramer's care of his child?
+- I distinctly `recall` fastening it with all four bolts -- yes...slowed down agreat deal.
+- I don't `recall` his hat, but i've seen pictures of him lying dead, shot by texas rangers.
+- No, i think it means, "`recall` period mistake," and the ope is probably the crm-114 code.
+- Well, sir, it looks like one aircraft, the "leper colony", failed to receive the `recall`.
+                 

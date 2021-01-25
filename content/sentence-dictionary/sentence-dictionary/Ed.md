@@ -1,0 +1,107 @@
+---
+title: "Ed in a sentence | Ed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ed"
+---
+- Hi, this is `ed` wood.
+- No roger from op/`ed`?
+- Welcome to work, `ed`.
+- Now `ed`, are we cross?
+- Are you in special `ed`?
+- Do you get to meet `ed`?
+- Wait- `ed` a good while.
+- Don't fuck with me, `ed`.
+- `Ed`, i want confessions.
+- `Ed` tom, i'll be polite.
+- She's `ed`'s girl friend.
+- You and roger in op/`ed`.
+- But: enter `ed` dillinger.
+- `Ed`, everything goes off.
+- `Ed`, who is daniel davis?
+- If `ed` ever found out....
+- *outside* of eugene, `ed`.
+- Play fair with them, `ed`.
+- `Ed`... do you have to ask?
+- `Ed`, i'm so happy for you.
+- I've called `ed` concannon.
+- Ok. ...how you today, `ed`?
+- You missed somethin', `ed`.
+- `Ed`, how're you holding up?
+- Ku-urt, i ne-`ed` an orgasm.
+- Yeah-- ...you're `ed` crane?
+- You get to be on `ed` tv.
+- `Ed`, can i see you a second.
+- `Ed`, it was only one review.
+- You're my only problem, `ed`.
+- `Ed` masry to see kurt potter.
+- He doesn't work like us, `ed`.
+- I don't know what to do, `ed`.
+- I ki`ed` the hornet’s nest.
+- "is she good enough for `ed`?"
+- They too use the toilet, `ed`.
+- You be-cape-`ed` gob-smashers!
+- But this thing goes deep, `ed`.
+- `Ed`, i have some news for you.
+- `Ed`, i urge you to reconsider.
+- What's on your wish list, `ed`?
+- You john-wilkes-booth-`ed` him.
+- `Ed`, the landlord called again.
+- `Ed`, the landlord doesn't care.
+- `Ed`, this isn't the real world!
+- Here's `ed`'s home phone number.
+- I'll wait... `ed`, i'm so proud!
+- I'm here with `ed` over at taxi.
+- "is shari good enough for `ed`?"
+- Thanks for helping us out, `ed`.
+- This is why the big lobby, `ed`.
+- But `ed`, we're not even married.
+- This is what family is for, `ed`!
+- ...were you in the service, `ed`?
+- `Ed`, it's just one man's opinion!
+- I helped him cook the books, `ed`.
+- You're pissing me off again, `ed`.
+- I bet you do a great `ed` sullivan.
+- It's `ed`, if that's what you mean.
+- [muﬄed voices continue] good.
+- ...so you tie your own flies, `ed`.
+- Where's `ed` kranepool's autograph?
+- `Ed` tv is an over-inflated balloon.
+- I'm gonna need that hand back, `ed`.
+- I yes-and-`ed` myself into a career.
+- Listen...don't you worry about `ed`.
+- Oh, now don't get all jealous, `ed`.
+- These guys are very dangerous, `ed`.
+- Without being interest-`ed` in them.
+- `Ed` knew what they were immediately.
+- `Ed`, visions are worth fighting for.
+- Sometimes knowledge is a curse, `ed`.
+- That's my <u>work</u> in there, `ed`.
+- Hey `ed`, shouldn't we do another take?
+- If ray would steal this girl from `ed`.
+- It's all the goddamned money, `ed` tom.
+- `Ed` finds the keys without any trouble.
+- `Ed`, this spaghetti sauce is delicious.
+- I've been working with `ed` exley on it.
+- `Ed`, your observations have been astute.
+- What oil i sautéed these vegetables in?
+- `Ed`, i got the lugosi lookalikes outside.
+- `Ed` parks the el camino next to the curb.
+- `Ed`, you're gonna miss your own premiere.
+- I think something's fucking connect- `ed`.
+- They're just people like you and me, `ed`.
+- `Ed`, you said you were getting permission.
+- I used to be pi`ed` ﬁrst for everything.
+- So where is `ed` with all the bright ideas?
+- They work- `ed` over "jennifer" for months?
+- Well, `ed`, that's ... not really possible.
+- We're picking up `ed` tv for another month!
+- Do you know what `ed` gein said about women?
+- I'll radio `ed`, tell him you're continuing.
+- Then further as the violence intensiﬁed.
+- You don't know me, but my name is `ed` wood.
+- `Ed`, have you ever heard of venture capital?
+- `Ed`, look, uh... you're not getting the job.
+- I bust- `ed` the clock on fucken jennifer.
+- [muﬄed shouting] i need you to understand.
+                 

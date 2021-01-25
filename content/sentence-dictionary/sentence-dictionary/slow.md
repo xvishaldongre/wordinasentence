@@ -1,0 +1,107 @@
+---
+title: "slow in a sentence | slow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slow"
+---
+- Girl's like it `slow`.
+- Hey, hey, `slow` down.
+- I'll talk real `slow`.
+- It was a `slow` night.
+- Little `slow` tonight.
+- We should `slow` down.
+- It's going `slow`, sir.
+- Okay, i'll `slow` down.
+- Ok, `slow` down louise.
+- `Slow` down, `slow` down.
+- We're going too `slow`.
+- You should `slow` down.
+- Now we can do it `slow`.
+- Oh, `slow` down, cowboy.
+- This is the `slow` fuse.
+- Clarke, just `slow` down.
+- Deep and `slow`, big guy.
+- I started `slow`, though.
+- She needs to `slow` down.
+- Then we `slow` them down.
+- You better `slow` down!!!
+- Clarke: `slow` down, roan.
+- He's going to `slow` down.
+- I'll just `slow` you down.
+- I told you to `slow` down.
+- Keep us `slow` and steady.
+- You'd just `slow` me down.
+- Jus' take it `slow`, buddy.
+- Move `slow` and move quiet.
+- `Slow` down there, honey...
+- I got off to a `slow` start.
+- Okay, tiger, take it `slow`.
+- Raven... raven, `slow` down.
+- `Slow` down there, rain man.
+- They `slow` everything down.
+- Don't let me `slow` you down.
+- Hey, `slow` it down, big boy.
+- I guess i'm a `slow` learner.
+- I've just got to move `slow`.
+- Just `slow` it down a little!
+- Oh, hey, clarke, `slow` down.
+- Okay, let's just `slow` down.
+- `Slow` circle of the complex.
+- `Slow` down, take a breath...
+- Well, you know, she's `slow`.
+- You may wanna `slow` it down.
+- Is this `slow` enough for you?
+- Plissken, `slow` down the sub.
+- Wait a minute, `slow` down!...
+- Who's going to `slow` me down?
+- Could you `slow` down a little?
+- Let's wait for some `slow` one.
+- Ok. starvation is `slow`, kara.
+- The cold must `slow` them down.
+- Abby: nice and `slow`, clarke.
+- Boy's just a bit `slow`, is all.
+- I don't want to `slow` you down.
+- Well, bitch you move too `slow`.
+- Hey, don't jump back so `slow`...
+- It's been `slow` -- any progress?
+- See what the `slow` lane is like.
+- You'd only `slow` me down anyway.
+- I just need to go a little `slow`.
+- I promise i won't `slow` you down.
+- Look -- shark digestion is `slow`.
+- Coffee for me, i gotta `slow` down.
+- Let's take it nice and `slow` jake.
+- Quietly, `slow` down, whoa -- what?
+- Victor, wait, `slow` down a second.
+- You could use a long, `slow` screw.
+- You're not going to `slow` us down!
+- A little `slow`, but she'll be fine.
+- I'm not ulo and i won't `slow` down.
+- It's going to be `slow` from now on.
+- Just think `slow` and think smart...
+- Pulse, `slow`, very little pressure.
+- The b-9 is like a `slow` child, sir.
+- This was my very first `slow` dance.
+- What are we, in `slow` motion here?!
+- I'm gonna start `slow`... at the top.
+- `Slow` down, ken, you sound frazzled.
+- We approach `slow`, no hostile moves.
+- What if we can `slow` the bleeding?
+- Your leg's just gonna `slow` us down.
+- But my ways were too `slow` for him...
+- `Slow` down...`slow` down... lenox hill.
+- You better not `slow` us down, denham!
+- Give me a `slow` circle of the complex.
+- I'm gettin' too `slow` for this racket.
+- Like i said... it was a `slow` night...
+- Lucas, if you can hear us, `slow` down.
+- Ahh, `slow`... why the open hand bridge?
+- `Slow` it, you'll burn your mouth again.
+- So we're gonna have to take this `slow`.
+- A `slow` tuesday night just about hotter.
+- Hell, officer, i told her to `slow` down.
+- It's walkin' pretty `slow` at this point.
+- Moving `slow`, but straight toward elsie.
+- You don't have to stop, just `slow` down.
+- I got my hair done... the girl was `slow`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "fucking in a sentence | fucking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fucking"
+---
+- He's a `fucking` liar.
+- He's `fucking` insane.
+- He's `fucking` loaded.
+- Ho's a `fucking` pimp!
+- I'm `fucking` blessed.
+- I'm `fucking` serious.
+- I'm no `fucking` good.
+- I'm not `fucking` you.
+- In a `fucking` seance?
+- I was `fucking` crazy.
+- Like i `fucking` care?
+- Not a `fucking` thing.
+- Pretty `fucking` good.
+- Quit `fucking` around.
+- This is `fucking` bad.
+- We are `fucking` dead.
+- We gotta `fucking` go!
+- What `fucking` switch?
+- Whoopie `fucking` doo.
+- Yes, you `fucking` do.
+- You `fucking` asshole!
+- You `fucking` asshole.
+- You `fucking` bastard!
+- You `fucking` bastard.
+- You `fucking` fuckers!
+- You `fucking` jerkoff!
+- You `fucking` shut up!
+- You're `fucking` dead!
+- You're `fucking` late.
+- A `fucking` wheelchair?
+- Are you `fucking` nuts?
+- Derek `fucking` foreal.
+- `Fucking` amazing, huh?
+- `Fucking` a, my friend.
+- He's `fucking` with us.
+- I'd `fucking` kill you.
+- I don't `fucking` know.
+- I `fucking` don't know.
+- I `fucking` hate raoul.
+- I'll `fucking` gut you!
+- I'm `fucking` catholic.
+- It is a `fucking` game.
+- It's a `fucking` farce.
+- It's a `fucking` shame.
+- It's my `fucking` life.
+- It's the `fucking` lab!
+- It was `fucking` great.
+- Jesus `fucking` christ!
+- Jesus `fucking` christ.
+- Nobody `fucking` cares!
+- Not one `fucking` time!
+- That `fucking` bastard!
+- That's `fucking` great!
+- The `fucking` contract!
+- These `fucking` photos.
+- They `fucking` hate us!
+- Use the `fucking` bomb!
+- Who's `fucking` around?
+- You `fucking` derelict.
+- You `fucking` promised.
+- You `fucking` see that!
+- You're a `fucking` nut.
+- You're `fucking` black!
+- You're `fucking` messy.
+- You're `fucking` me up.
+- A `fucking` goldbricker.
+- All this `fucking` time!
+- The `fucking` money!
+- Bloody `fucking` hell...
+- Find that `fucking` kid.
+- `Fucking` redneck whore!
+- Fuck you `fucking` guys!
+- Gimme a `fucking` break.
+- He's a `fucking` psycho.
+- In `fucking` ugly shoes.
+- It isn't `fucking` moss.
+- It's the `fucking` heat.
+- Million `fucking` clams.
+- Or some `fucking` thing.
+- Piece of `fucking` cake.
+- Stop your `fucking` car!
+- That was `fucking` deep.
+- This is `fucking` crazy.
+- This is sport-`fucking`.
+- Trade `fucking` secrets.
+- What you `fucking` want?
+- You `fucking` ass-holes.
+- You `fucking` bastard...
+- You `fucking` hit a cop?
+- You're `fucking` psycho.
+- 137 very `fucking` funny.
+- A `fucking` car accident.
+- Always `fucking` sarcasm.
+- Are you `fucking` nuts!!!
+- Bit `fucking` late, like.
+- Close the `fucking` door!
+- Cut his `fucking` throat.
+- Doing your `fucking` job.
+- Don't `fucking` humor us.
+- Do you `fucking` hear me!
+                 

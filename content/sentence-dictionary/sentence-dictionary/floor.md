@@ -1,0 +1,107 @@
+---
+title: "floor in a sentence | floor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "floor"
+---
+- Is the `floor` secure?
+- Is the `floor` secure?
+- On the fourth `floor`.
+- The `floor`'s on fire!
+- `Floor` probably leaks.
+- Lisa counts as `floor`.
+- The man on the `floor`?
+- Thirtieth `floor`, sir.
+- Except the 10th `floor`!
+- The `floor` looks clean.
+- This `floor`'s freezing.
+- Why was the `floor` wet?
+- You'd better `floor` it.
+- First `floor`, northwest.
+- Hey, get off the `floor`!
+- I put you on the `floor`.
+- I saw him on the `floor`.
+- The `floor`'s disgusting.
+- It's on the tenth `floor`.
+- Mike, get off the `floor`.
+- Seal off the 50th `floor`!
+- <u>get on the `floor`</u>!
+- We're on the 50th `floor`.
+- Zoey, get off the `floor`.
+- Get on the fuckin' `floor`!
+- I found it on your `floor`.
+- Jason: get off the `floor`.
+- Second `floor` girls' john!
+- Tore up from the `floor` up?
+- What's on the third `floor`?
+- Where are you, what `floor`?
+- Cooper, the `floor` is yours.
+- Dump your gun on the `floor`.
+- I got my foot on the `floor`.
+- It had a hole in the `floor`.
+- Lie face down on the `floor`.
+- That's on the second `floor`.
+- Why is this `floor` so short?
+- His blood... on the `floor`...
+- Just passing the 80th `floor`.
+- Keep both feet on the `floor`.
+- Man, this `floor` is freezing!
+- Weddings are one `floor` down.
+- Drops 'em right to the `floor`.
+- He makes me sit on the `floor`.
+- So how long to pop the `floor`?
+- Under the stone in the `floor`.
+- What `floor` you going to, pal?
+- You look terrif on the `floor`!
+- You look terrif on the `floor`.
+- In the walls, under the `floor`.
+- It's the girl under the `floor`.
+- ...pit bosses, `floor` managers.
+- The one up on the third `floor`?
+- They wiped the `floor` with him.
+- All your weapons, on the `floor`!
+- Dorothy vallens, seventh `floor`.
+- Mr. baxter -- nineteenth `floor`.
+- She lives on the seventh `floor`.
+- Up here on the fifteenth `floor`.
+- Up here on the fifteenth `floor`?
+- What is this `floor` made out of?
+- Bagel crumbs all over the `floor`.
+- He lives on the whole top `floor`.
+- It's eating a hole in the `floor`!
+- My office is on the third `floor`!
+- Right on the second `floor` there.
+- What are you doing on the `floor`?
+- Shut up and get on the `floor`</u>!
+- The `floor` has a nice shine to it.
+- There's stuff all over the `floor`!
+- Buried under a stone in the `floor`.
+- A spare d-8 on the cabin `floor`.
+- He's recovering on the third `floor`.
+- I don't know why the `floor` was wet!
+- In a `floor` safe in the living room.
+- Sixth `floor` too high for you, fink?
+- That `floor` has got to be very hard.
+- They just move from `floor` to `floor`.
+- The third `floor` are low class rooms.
+- I'll pull you up to the fourth `floor`.
+- Not on the same `floor` with valentino!
+- We're going in from the ground `floor`.
+- Who was the man on the kitchen `floor`.
+- By the way, i found this on the `floor`.
+- Can you manage a table near the `floor`?
+- Hallway - fiftieth `floor` you're lying.
+- I saw you through the `floor`, didn't i?
+- There's still a big spot on the `floor`.
+- We killed a man for nothing but `floor`.
+- Why is my blood decorating your `floor`?
+- You mind punching a hole in the `floor`?
+- And shatter against the hardwood `floor`.
+- Frida goes back to scrubbing the `floor`.
+- Is her mother still lying on the `floor`?
+- What are you doing on the fourth `floor`?
+- I'm going to put you on the third `floor`.
+- It's a marble `floor`, we can clean it up.
+- The `floor` plans will be a piece of cake.
+- I'm having the `floor` fixed, who was that?
+                 

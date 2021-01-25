@@ -1,0 +1,107 @@
+---
+title: "vacation in a sentence | vacation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "vacation"
+---
+- You need a `vacation`.
+- How was the `vacation`?
+- I'm just on `vacation`.
+- His "`vacation` friend."
+- Some sort of `vacation`.
+- This is some `vacation`.
+- We'll take a `vacation`.
+- What kind of `vacation`?
+- I could use a `vacation`.
+- Have a pleasant `vacation`?
+- Tell him i'm on `vacation`.
+- Why did we `vacation` here?
+- The rest of this `vacation`.
+- We should take a `vacation`.
+- I'm not going on `vacation` !
+- Maybe i'm just on `vacation`.
+- It's a `vacation`, sugar bear.
+- We just got a free `vacation`.
+- I heard you were on `vacation`!
+- You're on `vacation`, remember?
+- You take your `vacation`, adam.
+- Ah, the multi-family `vacation`.
+- Can i have a month's `vacation`?
+- I could use a little `vacation`.
+- My `vacation` is over in a week.
+- I'm supposed to be on `vacation`.
+- Maybe it's time for a `vacation`.
+- Is this my `vacation` or isn't it?
+- Think of the `vacation` potential!
+- You're going to go on `vacation` !
+- It's our first `vacation` together.
+- Jerry's on `vacation` 'till monday.
+- He thinks it's a `vacation` for you.
+- I have `vacation` time coming to me.
+- Well, it really wasn't a `vacation`.
+- Wouldn't be a `vacation` if you did.
+- But you deserve the `vacation`, lois.
+- Name your `vacation` spot, goodspeed.
+- Wouldn't be on `vacation` if you did.
+- You and frank ever take a `vacation`?
+- He could let you have your `vacation`.
+- Maybe you both just need a `vacation`.
+- I'd saved my money and `vacation` time.
+- They're letting me have this `vacation`.
+- I'll take you on a `vacation` afterwards!
+- I'm taking a couple of weeks' `vacation`.
+- My friend is on `vacation`, from america.
+- That's why i can never take a `vacation`.
+- I'm on `vacation`, and i want some mu-shu.
+- It's not a `vacation`, it's private school.
+- Now, i'd like to get on with my `vacation`.
+- In your `vacation` here at pleasure station.
+- Unless this ain't for going on `vacation`...
+- For all those `vacation` days you got coming.
+- I'll tell everybody you're on your `vacation`.
+- We'll have a nice romantic, quiet, `vacation`.
+- What happened was, i'm on `vacation`, alone...
+- How would you like to take a little `vacation`?
+- I thought this was supposed to be a `vacation`.
+- Tell them i'm on a `vacation`, a business trip.
+- `Vacation`'s over - starting right after dinner.
+- Our deal was for a month's `vacation` - with pay.
+- My wife and i are just taking a little `vacation`.
+- Our end-of-multi-family-`vacation` gift to you all.
+- After the show we should take a nice long `vacation`.
+- I could see having some kind of `vacation` place.
+- Twice a year i gotta have a six month `vacation`.
+- We've got to go home and rest up from our `vacation`.
+- A real `vacation`, this time, for as long as you want.
+- Hey, you don't need all this just to go on `vacation`.
+- Just because i'm happy doesn't mean i'm on `vacation`.
+- Same `vacation` hotel; same hospital, different times.
+- Then you take a long `vacation` and we catch the hell.
+- This multi-family `vacation` will be worth every penny.
+- Hello, inspector--i hear your `vacation`'s been spoiled.
+- Is that why you cut short your `vacation` and came back?
+- I thought i was on my `vacation`... what's it all about?
+- It's just like being a tourist on an endless `vacation`.
+- Let me suggest that you take a `vacation` from yourself.
+- So maybe it's time we took a `vacation` from each other.
+- You better ace it...you sacrificed our whole `vacation`.
+- You never took a fucking `vacation` in your life, harry.
+- You don't need coffee, mr. fazeli; you need a `vacation`.
+- You know, health insurance, dental plan, paid `vacation`.
+- What if we take mom on a florida `vacation` for christmas?
+- You take a little `vacation`, relax and rest for a change.
+- Next time i get a `vacation` i'll spend it at headquarters.
+- That ain't a plan, that's a `vacation` for two in the hole.
+- You'll give yourself a heart attack and ruin my `vacation`.
+- Yes, a bracelet's been lost, but i'm still on my `vacation`.
+- Every time a fruit meets a booze, a magic `vacation` is born.
+- Oh, honey, i'm so glad we're spending our `vacation` at home.
+- Which must be a nice `vacation` for his balls... look at him.
+- So what was the first week of spring `vacation` withdrawl like?
+- Even after a little `vacation`, they hassled him at the airport.
+- Teddy fraiser and his crew went on `vacation` in chicago for it.
+- There was a lot of dull stuff -- `vacation` schedules, the like.
+- Of course, i keep forgetting, for you this <u>is</u> a `vacation`.
+- On their super-exclusive multi-family `vacation` they killed them.
+- She says he's been on `vacation` in montana for the last ten days.
+                 

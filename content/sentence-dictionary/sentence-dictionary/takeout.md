@@ -1,0 +1,8 @@
+---
+title: "takeout in a sentence | takeout example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "takeout"
+---
+- Overpriced nice apartment and chinese `takeout`.
+                 

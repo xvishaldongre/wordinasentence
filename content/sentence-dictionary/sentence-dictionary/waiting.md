@@ -1,0 +1,107 @@
+---
+title: "waiting in a sentence | waiting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "waiting"
+---
+- Right there `waiting`.
+- We'll be `waiting`.
+- Catherine is `waiting`.
+- Come on, i'm `waiting`!
+- He's `waiting` for you.
+- He will be `waiting`...
+- I don't like `waiting`.
+- I don't mind `waiting`.
+- I have a car `waiting`.
+- I'm tired of `waiting`.
+- I'm `waiting` for them.
+- No use `waiting`, then.
+- Our family's `waiting`.
+- The board is `waiting`.
+- `Waiting` for the bus.
+- We're `waiting` on you.
+- What are you `waiting`?
+- I have guests `waiting`.
+- Mr. kastle is `waiting`.
+- My patient is `waiting`.
+- `Waiting` for dna tests.
+- We're `waiting`, hubert.
+- Were you `waiting` long?
+- You have been `waiting`.
+- I'll <u>be</u> `waiting`.
+- I'm `waiting` for a lady.
+- Our guests are `waiting`.
+- They're `waiting` for us!
+- What are we `waiting` on?
+- What's she `waiting` for?
+- Who are we `waiting` for?
+- Would you mind `waiting`?
+- And they're not `waiting`!
+- Have i kept you `waiting`?
+- He's `waiting` for me now.
+- I'll be `waiting` on deck.
+- I was `waiting` for you...
+- Someone `waiting` for you?
+- We were `waiting` for you.
+- What are we `waiting` for?
+- What're you `waiting` for?
+- Who are you `waiting` for?
+- Bellamy's `waiting`, larry!
+- Bryant's `waiting` for you.
+- I'm not `waiting` 48 hours.
+- I'm still `waiting` for it.
+- I'm `waiting` for him here.
+- I'm `waiting` for my daddy.
+- I'm `waiting` for my lunch.
+- I'm `waiting` for the bump.
+- I'm `waiting` for the girl.
+- I'm `waiting` on cassandra.
+- It's the `waiting` for you.
+- Monty, i've been `waiting`.
+- Octavia's `waiting` for me.
+- Ran out of juice `waiting`.
+- She's `waiting` in the lab.
+- They'll be there `waiting`.
+- They're `waiting` for finn.
+- `Waiting` for instructions.
+- We're `waiting` on carmine.
+- What are you `waiting` for?
+- What're they `waiting` for?
+- What're you `waiting` for?!
+- You'll be `waiting` for me?
+- Your parents are `waiting`.
+- He's been `waiting` for you.
+- How long you been `waiting`?
+- I'm `waiting` for the phone.
+- I've been `waiting` forever.
+- I've been `waiting` for you.
+- I've got a client `waiting`.
+- Just `waiting` for a friend.
+- Ran out of juice, `waiting`.
+- Sorry to keep you `waiting`.
+- The ambush `waiting` for us.
+- The beds are kept `waiting`.
+- The car's `waiting` outside.
+- The chancellor is `waiting`.
+- The gang's `waiting` for us.
+- They're next door `waiting`.
+- They're ready and `waiting`.
+- We're all `waiting` for you.
+- What are they `waiting` for?
+- All right, plane's `waiting`.
+- Aren't i worth `waiting` for?
+- But they're `waiting` for me.
+- Have you been `waiting` long?
+- I've been `waiting` for ages.
+- I wasn't `waiting` for a bus.
+- Just `waiting` for you, tubs.
+- Like it was `waiting` for me.
+- Thanks for `waiting`, jackie.
+- The family will be `waiting`.
+- The money is there `waiting`.
+- The team's already `waiting`.
+- You weren't `waiting` for me.
+- Aren't we `waiting` for ricky?
+- He was `waiting` for you, sir.
+- I'm just `waiting` and seeing.
+                 

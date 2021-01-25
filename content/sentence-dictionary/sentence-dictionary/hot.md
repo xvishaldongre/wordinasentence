@@ -1,0 +1,107 @@
+---
+title: "hot in a sentence | hot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hot"
+---
+- Godspeed, `hot` woman.
+- God, you are so `hot`.
+- `Hot` as hell in here.
+- `Hot`, burning kisses.
+- Let's get a `hot` dog.
+- No, i'm too `hot` now.
+- Scratch one `hot` dog.
+- They're `hot` or moms.
+- They're so very `hot`.
+- We're coming in `hot`!
+- Where's the `hot` ass?
+- Who wants a `hot` dog?
+- Your `hot`-ass temper.
+- You were plenty `hot`.
+- Your head is `hot`.
+- A <u>`hot`</u> cartoon.
+- Gonna be le `hot` shit.
+- He says he's too `hot`.
+- He's not a "`hot` rod".
+- He's tired, he's `hot`.
+- `Hot` rods of the gods.
+- How `hot` is this babe?
+- It is so `hot` in here.
+- I used real `hot` dogs.
+- Keep those wires `hot`.
+- Never seen it so `hot`.
+- That pie was too `hot`.
+- These ladies are `hot`.
+- Boy, it's `hot` in here.
+- Boys upstairs get `hot`.
+- He was `hot`, wasn't he?
+- I have to `hot`-wire it.
+- I'm a piping `hot` mess.
+- Smooth move, `hot`-shot.
+- This is one `hot` pizza!
+- Too `hot` tor those two?
+- Aren't you `hot` in that?
+- Everybody, weapons `hot`.
+- It's all `hot` and stuff.
+- I was getting `hot` dogs.
+- Man, that music is `hot`.
+- Not on this `hot` muther.
+- Okay, get in `hot` water.
+- That's right, `hot` shot!
+- That toby's a `hot` head.
+- This case just got `hot`.
+- Well, that's a `hot` one.
+- Who's the `hot` mess now?
+- Will it get `hot` enough?
+- Damn it�s `hot` in here...
+- Do ve call you `hot` dogs?
+- Hey where's the `hot` pad?
+- It's gonna be `hot` today.
+- I've got your `hot` wings.
+- Sticking with `hot` water.
+- The reactor's still `hot`.
+- You're red `hot`, damn it.
+- Are they blowing `hot` air?
+- Del was one `hot` salesman.
+- Do you have any `hot` soup?
+- He could be somebody `hot`.
+- I'm red `hot`, i'm blazin'!
+- Is there any `hot` mustard?
+- It's getting `hot` in here.
+- Just really `hot` upstairs.
+- Man i'm getting so `hot`!!!
+- No fuckin' `hot` water man.
+- Roger, cs-40's going `hot`.
+- She's really kind of `hot`.
+- Two don't come in so `hot`.
+- Why is it so `hot` in here?
+- Completely `hot` for me.
+- Freezy, i'm feeling...`hot`.
+- Give me back that `hot` dog.
+- `Hot` coffee or iced coffee?
+- It made me so `hot` for you.
+- It's not that `hot` anymore.
+- Too `hot` in the lighthouse?
+- What's so `hot` 'round town?
+- You must try our `hot` glug.
+- Doesn't matter if he's `hot`.
+- Get a `hot` mug of chocolate.
+- Not bad, `hot` shot, not bad.
+- No way, she ain't that `hot`.
+- So, thanks for the `hot` tip.
+- Then you have some `hot` tea?
+- Who puts mayo on a `hot` dog?
+- Wow your body's really `hot`.
+- Because they're feeling `hot`.
+- Don't use all the `hot` water!
+- It is awfully `hot` down here.
+- It's a little `hot` chocolate.
+- So you're `hot` on this stock?
+- That was a really `hot` house!
+- We're way too `hot` right now.
+- What about power, `hot` water?
+- When you're `hot`, you're `hot`.
+- Damn, she musta `hot` wired it.
+- He's working on a `hot` scoop !
+- I told you i was `hot` tonight.
+                 

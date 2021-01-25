@@ -1,0 +1,85 @@
+---
+title: "basement in a sentence | basement example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "basement"
+---
+- Emori, the `basement`.
+- Get in the `basement`.
+- Get to the `basement`.
+- Yeah, `basement` bingo.
+- Just the sub-`basement`.
+- Oh, just the `basement`.
+- Start in the `basement`.
+- The sub-`basement`, huh?
+- Meet me in the `basement`.
+- They're in the `basement`.
+- Get out of your `basement`!!
+- Why is he in the `basement`?
+- How big is the sub-`basement`?
+- Makin' wine in the `basement`.
+- There's a tv in the `basement`.
+- Open a casino in the `basement`.
+- We have to go in the `basement`.
+- Their sub-`basement` was flooded!
+- You could stay in our `basement`.
+- Who was the man in the `basement`?
+- Attic, garage, `basement`, nothing.
+- Studio makes 'em in the `basement`.
+- Get everyone down in the `basement`.
+- Tony has got them in his `basement`.
+- A small, cramped `basement` apartment.
+- Maybe you want to go to the `basement`?
+- They keep him chained in the `basement`.
+- I was in the `basement` fixing the pipes.
+- In the `basement` over at janey and jim's.
+- Breakers are in the `basement`, maybe we do.
+- So, who's going into the `basement` with me?
+- We'll build you a darkroom in the `basement`.
+- The group blundering around in the `basement`.
+- The one who was the first to see my `basement`.
+- That's why she makes me sleep in the `basement`.
+- You miss me kicking your butt in the `basement`?
+- You remember...the one we madein the `basement`.
+- I need you to find something in the `basement`...
+- Make paintings in the `basement` of your gallery?
+- Bud white, what brings you down to the `basement`?
+- Well, the old card catalogue is in the `basement`.
+- It's in the `basement`, about a hundred yards long.
+- Uh... `basement` i think... where you comin' from?!
+- She makes me sleep in the `basement` of my own house.
+- I'm going down to the `basement` to get my happy diary.
+- It's just... did he... what happened in the `basement`?
+- One keg of beast for the `basement`, then, truck's dry.
+- Why didn't he use it to go through the `basement` door?
+- How about we settle this like we were in the `basement`?
+- So what were you doing in the williams' `basement` anyway?
+- You know, in the `basement`, i always took it easy on you.
+- At the laugh `basement` in tampa... into our friends again.
+- Right through the kitchen you'll see the `basement` stairs.
+- They give `basement` apartments letters instead of numbers.
+- Tiny was sleeping in the `basement` where the fire started.
+- Now wait a minute -- there's probably one in the `basement`.
+- All the weirdness in this house took place in the `basement`.
+- If you're so smart, why are you here with me in this `basement`?
+- Some russian girl with a shaved head was hiding in his `basement`.
+- The art's in the `basement`, you're going to get a privileged peek.
+- The `basement` -- but, believe me, you don't want to go down there.
+- All i know is, they said to send you and the body to the `basement`.
+- I saw him burning on the `basement` stairs, he never reached the top.
+- * lemme take you down in the `basement` and show you what you've become.
+- First of all, `basement` sales like tonight aren't gonna last much longer.
+- Then this girl shows up and starts living in your `basement`, eat dirt!
+- Lives in the `basement`, smells like a sponge... just a guy i hang out with.
+- The guy in the `basement` doesn't matter, anyway, just another lonely heart.
+- Dead in the `basement` at the building where my people got hit the first time.
+- There's an entrance to the sub- `basement` in the hall off the north side exit.
+- When you live in the `basement` of the school, you breathe in a lot of chalk dust.
+- We're on our way through to the `basement` - i promise we won't keep her very long.
+- Before i forget, your father has papers in the `basement` i'd like you to go through.
+- Charles pike of farm station, my parents can get you an actual bed for the `basement`.
+- While you were getting captured upstairs, i was shredding documents in the `basement`.
+- [keep it hid till we get her] down in the `basement`-- there is a secret vault [there].
+- Would any of you be interested in knowing exactly why i ended up here in the `basement`?
+- We were just gonna sit in my `basement` all day ♪ seasick ♪ - the flares, light them all.
+                 

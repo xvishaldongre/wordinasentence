@@ -1,0 +1,101 @@
+---
+title: "mood in a sentence | mood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mood"
+---
+- I'm in a pissy `mood`.
+- I'm not in the `mood`.
+- Still in a bad `mood`?
+- Always a `mood` killer.
+- I get in a good `mood`.
+- I'm in my party `mood`.
+- Are you in a bad `mood`?
+- I'm in a killing `mood`.
+- I'm in no `mood` for it.
+- Let's offset his `mood`.
+- Set up the right `mood`.
+- The `mood` is not right.
+- We're not in the `mood`.
+- I'm not in a game `mood`.
+- I'm in a very ugly `mood`.
+- She's not in a bad `mood`.
+- Not in the `mood`, i guess.
+- You're in a playful `mood`.
+- He's always in a bad `mood`.
+- Suddenly his `mood` changes.
+- Hey, you are in a bad `mood`.
+- I'm in no `mood` for dancing.
+- I'm in no `mood` for trouble!
+- I'm in a fucking great `mood`.
+- This isn't just a `mood` ring.
+- Are you in a `mood` today baby?
+- Claire's in a weird `mood` too.
+- I'm not in the `mood`, all right?
+- They weren't in a smiling `mood`.
+- You're not in a very good `mood`.
+- Also steve's in a very bad `mood`.
+- And i was in a celebratin' `mood`.
+- Besides, i'm not much in the `mood`.
+- I thought you were in a good `mood`.
+- You sure know how to spoil a `mood`.
+- I'm not in the `mood` right now, ray.
+- Get you right in the `mood`--yes--yes.
+- Kind of trouble i'm in the `mood` for.
+- You're in a good `mood` today, george.
+- In the best `mood` we've ever seen her.
+- We're just not in the `mood` right now.
+- I am not in the `mood` to see once more.
+- You guys are never in the `mood` anymore.
+- Alright, alright, i'm in a bad `mood`, okay?
+- When we're, uh, we're getting in the `mood`.
+- How does that get you in the `mood` with stu?
+- I hope you'll excuse my temporary bad `mood`?
+- I'm in no `mood` to have a lewd conversation.
+- I'm not in the `mood` for dining and dancing.
+- When it's over, that `mood` has been altered.
+- It's a `mood` ring, it tells what `mood` i'm in.
+- I've been in a very... strange `mood` all day.
+- Somebody's in a vengeful smiting `mood` today.
+- Well, i'm certainly in the `mood` for a party.
+- Oh, madi, i'm really not in the `mood` to argue.
+- I'm just not in the `mood` for company right now.
+- I'm not in the `mood` for native american wisdom.
+- Not in the `mood`... not in the `mood`, i'm afraid.
+- However, you did seem to finally get the "`mood`".
+- Should we rent or are we in a buying `mood`, dear?
+- To get me in a `mood` to sell -- double what i paid.
+- What's in your head to put you in such a fine `mood`?
+- Her `mood` will be based on the signals we are giving.
+- It's just getting hard to go to work in a good `mood`.
+- Thou art as hot a jack in thy `mood` as any in verona.
+- She must have been in a good `mood` when she said that.
+- You can't do that... listen to the `mood` of the crowd.
+- Ya always in a bad `mood` -- ya caught me in a bad `mood`.
+- Just some `mood`-slime residue in and around the bathtub.
+- Grant, no -- i'm sorry, i'm just -- i'm not in the `mood`.
+- I wasn't in the `mood` to have sex with anyone last night.
+- Leon's in a bad `mood`, don't get excited, he's all right.
+- `Mood`'s a thing for cattle and love play... not fighting.
+- Only if you're not in the `mood` carl emerson, - wormholes.
+- I was...i was not in the `mood` to listen to this thing now.
+- I'm really not in the `mood` for one of your practical jokes.
+- I'm not in the `mood` to see a four-hour documentary on nazis.
+- I'm still in a great `mood` after reading that free usa today.
+- Relax, boys-- peter, i'm in no `mood` to hear childish prattle!
+- Just trying to set the `mood` for the mission--get the "feeling."
+- I don't care what kind of `mood` you're in at the start of that song.
+- It's only black when you're around 'cause you put me in a bad `mood`.
+- I think i'm having a mid-life crisis... you're in quite a `mood` today.
+- I'm not in the `mood` for one of your stupid, fucked-up plans right now.
+- You have until then to get him not join the latest cultural `mood` swing.
+- You mean getting drunk and calling victoria didn't put you in the `mood`?
+- You certainly will if you go to trial -- a jury in this kind of ugly `mood`.
+- Blitzy, handsy, what happens when we're trapped in here he's in a good `mood`.
+- You in a `mood`, susie, to run over to milgrim's later and buy a few new frocks?
+- How hard is it just to decide to be in a good `mood`, and then be in a good `mood`?
+- But sometimes before, to relax and get in the `mood`, i think about grant goodeve.
+- Well, if you're ever in the `mood` for a history lesson, i'm your teacher, understand?
+- It takes so long to detect them� �because their `mood` changes so often and so quickly.
+- You merely feel you must put yourself in a romantic `mood` to add to your exhilaration.
+                 

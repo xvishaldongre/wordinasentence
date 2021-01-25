@@ -1,0 +1,107 @@
+---
+title: "few in a sentence | few example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "few"
+---
+- Ask a `few` questions.
+- It's in a `few` weeks.
+- I wrote a `few` pages.
+- Not for a `few` years.
+- Not many, but a `few`.
+- Probably shot a `few`.
+- We have a `few` dol...
+- A `few` of us survived.
+- A `few` things came up.
+- `Few` can carry it off.
+- `Few` have survived it.
+- I have a `few` errands.
+- It's only a `few` quid.
+- I've got a `few` ideas.
+- Just a `few` questions?
+- Just for a `few` hours.
+- Just for a `few` weeks.
+- Making a `few` friends?
+- May be a `few` minutes.
+- To save a `few` cattle?
+- With a `few` of my own.
+- You had a `few` drinks.
+- For the past `few` days.
+- I got a `few` days left!
+- I'll be a `few` minutes.
+- It's been a `few` years.
+- I've died a `few` times.
+- I visited a `few` times.
+- Like ... a `few` blanks?
+- Sort a `few` things out.
+- String a `few` together.
+- 10-4, in a `few` minutes.
+- Answer a `few` questions?
+- But i have a `few` terms.
+- I only had a `few` hours.
+- It's my last `few` bucks.
+- Just a `few` minutes ago.
+- Just for a `few` minutes.
+- Just for a `few` minutes?
+- Not long... a `few` days.
+- Only a `few` hours later.
+- Picked up a `few` things.
+- Suffer a `few` more days.
+- You need a `few` dollars.
+- Can you use a `few` bucks?
+- He's made a `few` changes.
+- I just had a `few` drinks.
+- Just a `few` more minutes.
+- Made a `few` quid, did ya?
+- Now i know a `few` things.
+- The last `few` days, um...
+- We leave in a `few` hours.
+- We went out a `few` times.
+- A `few` thousand, at least.
+- Disappear for a `few` days.
+- First `few` days are weird.
+- It'll just be a `few` days.
+- I want a `few` night shots.
+- Just for a `few` days, sam.
+- Maybe a `few` times i have.
+- Oh, i have a `few` in mind.
+- So i'll see you in a `few`.
+- There's a `few` of us left.
+- Wears off in a `few` hours.
+- Well, maybe a `few` things.
+- We only have a `few` hours.
+- A `few` minutes, maybe more.
+- Answering a `few` questions?
+- Here, take a `few` of these.
+- I brought a `few` of my own.
+- I have played a `few` times.
+- I'm giving him a `few` feet.
+- I'm leaving in a `few` days.
+- I've been to a `few` -- yes.
+- I've learned a `few` things.
+- Just a `few` of us, hangin'.
+- See you in a `few` minutes.
+- She died a `few` years back.
+- ... the good of the `few`...
+- These weren't a `few` birds.
+- Up until a `few` years back.
+- We talked for a `few` hours.
+- A `few` hours a week, anyway.
+- A `few` years older, perhaps.
+- I had a `few` pressing debts.
+- I went to a `few` bars first.
+- Let him take a `few` teeth...
+- The needs of the `few`... ...
+- Two men, a `few` blocks away.
+- We got a `few` hours to kill.
+- We have a `few` more minutes.
+- We only have a `few` minutes.
+- You'll be ok in a `few` days.
+- Been dead within a `few` days.
+- I'm working on a `few` things.
+- Indra taught me a `few` words.
+- It'll just be a `few` minutes.
+- Maybe i did do a `few` people.
+- Oh, and a `few` trick animals.
+- Oh, just give it a `few` days.
+                 

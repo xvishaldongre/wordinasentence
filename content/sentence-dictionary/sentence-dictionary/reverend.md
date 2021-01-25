@@ -1,0 +1,59 @@
+---
+title: "reverend in a sentence | reverend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reverend"
+---
+- Thank you, `reverend`.
+- `Reverend` edwards?
+- It's a shame, `reverend`.
+- Has the `reverend` called?
+- You and `reverend` mother.
+- I know you did, `reverend`.
+- Nothing for the `reverend`.
+- Save your voice, `reverend`.
+- Is that a blessing, `reverend`?
+- `Reverend` mother -- thank-you.
+- I'm counting on you, `reverend`.
+- What about me, `reverend` mother?
+- It's marvelous, `reverend` mother.
+- `Reverend` lovejoy hello, friend-o.
+- That's what `reverend` mother said.
+- Is captain clayton here, `reverend`?
+- Three cheers for `reverend` lovejoy.
+- That's mighty brave of you, `reverend`.
+- `Reverend` mother could he be the one?...
+- Young man, i am facetiming the `reverend`.
+- The `reverend` mother said it could save him.
+- You askin' as a `reverend` or a captain, sam?
+- This an invite to a necktie party, `reverend`?
+- The `reverend` mother moves her face up to his.
+- Did `reverend` mother like, kidnap your parents?
+- `Reverend`, you're very concerned with the bible.
+- Boys, we're gonna have a talk with the `reverend`.
+- `Reverend` mother, i just wanted to congratulate you.
+- But, `reverend` mother -- everyone loves our new style.
+- Paul, this is the `reverend` mother gaius helen mohiam.
+- `Reverend` mother it is very dangerous... very painful.
+- So did you, `reverend`... you fit a lot of descriptions.
+- `Reverend` lovejoy is experiencing some vocal difficulties.
+- `Reverend` mother says you need experience, right, in life.
+- Seems to me, `reverend`, you' more concerned 'bout your good.
+- Your small convent is in danger of closing, `reverend` mother.
+- I can't wait to tell `reverend` mother about all my experiences.
+- `Reverend`, like the pharaoh's army in the red sea, you hurt me.
+- Please... -- `reverend` mother jessica, you know it must be done.
+- My father sent uncas & i to `reverend` wheelock's school when i was ten.
+- `Reverend` dyer, this is kimberly's somewhat butch maid of honor... come on.
+- `Reverend` jackson pete sayer of dumon county, please to make your aquanauts.
+- `Reverend` chickenwing called last night and said he wouldn't be able to attend.
+- I could also ask how long you've known `reverend`, you come to dinner at my house!
+- I tried to explain that to `reverend` mother, but -- i don't know if she understood.
+- Slave labor... `reverend` harry wong, a preacher had the flophouse fronting for them.
+- There are thirty five listed in the `reverend` wong's roster... triad, chinese mafia.
+- This was the `reverend` porter's wife, you have her looking like a two dollar hooker.
+- `Reverend` harper thinks more cross corners folk oughter be in church, sabbath morning.
+- I want to take my final vows, i would do it tomorrow, but `reverend` mother won't let me!
+- You been stoopin' so long, `reverend`, you don't even know how to stand straight no more.
+- I am dr. smith's brother -- `reverend` smith -- and i am supposed to perform the ceremony.
+                 

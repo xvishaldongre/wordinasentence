@@ -1,0 +1,80 @@
+---
+title: "several in a sentence | several example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "several"
+---
+- I have `several` jobs.
+- There's been `several`.
+- Yes -- `several` times.
+- `Several` voices: yeah.
+- You should buy `several`.
+- I knocked `several` times.
+- `Several` different factors.
+- You used her `several` times.
+- There are `several` varieties.
+- Sounds like you have `several`.
+- This will take `several` hours.
+- Within the next `several` hours.
+- The "high" lasts `several` hours.
+- He made the point `several` times.
+- You've slept with `several` women.
+- `Several` problems with that theory.
+- Well, there's `several` ways to go .
+- We... we would try `several` things.
+- We have `several` hundred in the area.
+- Threatened him `several` times since.
+- Andrews enters and knocks `several` times.
+- Oh, i think we're going to have `several`.
+- `Several` of whom may be in place already.
+- We both should've died `several` times over.
+- Anywhere from two weeks, to `several` months.
+- It has occurred to me on `several` occasions.
+- We've got `several` italian cars on the list.
+- We've worked up `several` military scenarios.
+- How do you know i've been with `several` women?
+- I have `several` thousand questions to ask you.
+- We haven't seen an anastasia in `several` days!
+- We took `several` photographs, there's no need.
+- `Several` possession charges, but nothing major.
+- Yes, it's been `several` hours since we've eaten.
+- ... you mentioned the "bay of pigs" `several` times.
+- But i met with him `several` times as vice president.
+- Maureen turns to `several` people who begin to react.
+- `Several` large reserve bids have been placed on them.
+- Well, mr. stephens is representing `several` families.
+- Well -- there are `several` ways to reduce landing speed.
+- I'm embedding you with `several` hundred thousand who are.
+- We've got `several` small radiation sources, leaks probably.
+- So hot you gotta put `several` condoms on to dull the senses.
+- There is no doubt about it, we're lost... `several`, i think.
+- I'll probably be the director of `several` worthwhile charities.
+- Tim studied `several` styles, but his favorite was jeet kune do.
+- Under mounting pressure, `several` high-ranking members come on.
+- It would have taken `several` months for the change to take place.
+- You don't remember assaulting a police officer...`several` officers?
+- It was my specialty, sir, i trained `several` thousand over the years.
+- `Several` indiscriminates and one primary who we've id'd as robert dean.
+- They exchanged fire with the pinkerton guards, killing `several` of them.
+- "i've accepted the `several` different actors and we can still be friends.
+- ...we actually, we were unaware for `several` days that this had happened.
+- Helping me buy enough food and supplies to fill `several` large trucks.
+- `Several` people have agreed to let me represent them in a negligence suit.
+- Well, surprise, surprise, i've been on the payroll for `several` years now.
+- As a matter of fact, i've already had `several` phone calls on that article.
+- He went out `several` time last night, in the rain carrying his sample case.
+- The embryo, the second form, hosts in the victim's body for `several` hours.
+- This sword was taken `several` days ago from your son by some of my soldiers.
+- Count d'algout, there have been `several` telephone... good evening, monsieur.
+- My wife, madeleine, has `several` pieces of jewelry that belonged to carlotta.
+- I think i killed `several` women i was having mindless sex with behind her back.
+- Just `several` days ago, the thought of anna being dead would have made me sick.
+- According to the guinness book, you passed the world's record `several` whacks ago.
+- Sir, commander worf and i have been working on `several` tactical plans to safely...
+- It was a deadly virus spread by field mice in the southwest u.s. `several` years ago.
+- I'm weighing `several` offers at the present time... ...so... is he your boyfriend now?
+- "all at once am i--`several` stories high-- knowing i'm--on the street-- where you live."
+- I have selected you, to return with me - along with `several` other specimens, for study.
+- It all started `several` months ago with a peasant sparrow up in the hills, a malcontent.
+- Now your mother tells me she is arranging `several` dates for you with some young ladies.
+                 

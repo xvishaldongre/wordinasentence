@@ -1,0 +1,72 @@
+---
+title: "snake in a sentence | snake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "snake"
+---
+- I got an idea, `snake`.
+- A `snake`-eye glare.
+- I swear to god, `snake`.
+- See you in hell, `snake`.
+- Anything for you, `snake`.
+- I couldn't help it, `snake`.
+- His grandfather was a `snake`.
+- Run, `snake`...they're coming.
+- You don't understand, `snake`.
+- It makes him mean as a `snake`.
+- Luthor, you poisonous `snake` .
+- Without the `snake`, of course.
+- You seen my `snake`-skin shoes?
+- A wizened, cold-hearted `snake`.
+- Hey, what's going down, `snake`?
+- Say, you need anything, `snake`?
+- If it was a `snake`, it'd bit me!
+- You ain't doin' so good, `snake`.
+- You let that `snake` in the door.
+- I wouldn't be doin' that, `snake`.
+- One lonely, terrifying sea `snake`.
+- Kind of a bad neighborhood, `snake`.
+- Mean as a `snake` when it mattered .
+- You never heard of `snake` plissken?
+- He's a `snake`, he got... `snake` eyes.
+- He's the man with the juice, `snake`.
+- You know you can't trust the `snake`.
+- Better'n a lion farm or a `snake` pit.
+- It's a brand new day for you, `snake`.
+- I'd be safer sleeping with that `snake`.
+- That `snake` was a pretty nasty customer.
+- The wise `snake` coils before he strikes.
+- Even the best of `snake` charmers get bit.
+- Things changin' fast around here, `snake`.
+- Since the `snake` that ate three pool balls.
+- You'll never catch up with him now, `snake`.
+- A `snake` charmer, what the fuck d'you think.
+- Unlike the `snake` behind you, four-fifty.
+- I was called away on urgent business, `snake`.
+- Man, i'd love to have your autograph, `snake`.
+- Oh, man... you didn't have to hit me, `snake`.
+- The others said it looked like a giant `snake`.
+- Too many people know where you're going, `snake`.
+- A `snake` thing like that couldn't move too quick.
+- Do i get dragged off screaming to the `snake` pit?
+- Hey, co. you wanna meet jake the one- eyed `snake`?
+- Like we're gonna `snake` a girl away from the pope.
+- Your hearing aid, it's buzzing at me like a `snake`.
+- We call it kepa-she, means hideous `snake` in chinese.
+- You know, it's like a `snake` swallowing its own tail.
+- You're gonna have to learn to respect the law, `snake`.
+- Well then let's start with adam and eve and the `snake`.
+- Okay, i want you to lift your hand -- and pet the `snake`.
+- `Snake`, nobody who comes into beverly hills gets out alive.
+- C'mon, `snake` - it's l.a. everything's phony, you know that.
+- You think i'd be working here if i could afford a real `snake`?
+- Ever see him use a bull `snake` on the mules like other wranglers?
+- Anyway, i did what i always do when i get one... you mean the `snake`?
+- I didn't know if i wanted to handle her -- i already got a `snake` act.
+- Time just stands still here like a `snake` sunnin' itself in the road...
+- I never knew there were `snake` charmers in texas... all right, calloway.
+- Try your tricks on me and i'll turn myself back into a `snake` and bite you.
+- The woman who wears the `snake` will dream of you, and your gift will return.
+- You're caught, and now you're trying to `snake` out of doing what you wanted to do.
+- And a `snake`-eye glare, arnold was able to totally psyche out any confidence ferigno had.
+                 

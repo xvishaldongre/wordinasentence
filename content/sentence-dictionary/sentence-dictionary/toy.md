@@ -1,0 +1,59 @@
+---
+title: "toy in a sentence | toy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "toy"
+---
+- I want to buy a `toy`.
+- `Toy` wit' this will ya.
+- I'm going to buy a `toy`.
+- You think this is a `toy`?
+- A little `toy` i play with.
+- Don't `toy` with me, doctor.
+- Wait, how did you get a `toy`?
+- I'm not just some `toy` for you.
+- I'm still andy's favorite `toy`.
+- What is that shiny little `toy`?
+- We want you to model for a `toy`.
+- Don't `toy` with floris, schwartz.
+- A stupid little insignificant `toy`.
+- You know, one of those `toy` things.
+- It's time for krusty's `toy` trample!
+- He toyed with you, you `toy` with him.
+- Some kid's banging `toy` cars together.
+- We'll just have to take away his `toy`.
+- <u>i'm sick of this `toy` town shit</u>.
+- Nice `toy`, but i have to say, - oh, hey.
+- The data that you copied with your `toy`.
+- Yet, some would call this `toy` magic.
+- One `toy` per kid is doing something nice.
+- Right now like i stole her favorite `toy`.
+- Well that's what you see at a `toy` store?
+- Boy, this `toy` modeling is a great racket.
+- A helpless `toy`...it's...it's trapped, buzz!
+- My little `toy` doesn't want to play anymore?
+- Okay... well, honey, just grab some other `toy`!
+- Whether he wants to kill us she got her a `toy`.
+- Grampa, you got an e-mail from the `toy` company.
+- Make it alexander's, i like the `toy` department.
+- Why would being a `toy` model and went to heaven.
+- You can bring one `toy`... can i bring some toys?
+- You'd think they've never seen a new `toy` before.
+- We'll be okay once she realizes i'm not a new `toy`.
+- I worked very, very hard and i think i deserve a `toy`.
+- Because i don't like the way you `toy` with human lives?
+- Being a `toy` is a lot better than being a space ranger.
+- But she doesn't want to share her `toy` with anyone else...
+- My guess: either a broken `toy` or a puzzle missing a piece.
+- They're too expensive a `toy` for two children to play with.
+- Or maybe you'd like to sink your `toy` into somebody's skull.
+- Any other `toy` would give up his moving parts just to be you.
+- Last...you remember bill here, from the bazoom `toy` company?
+- Look, we're all very impressed with andy's new `toy` -- laser-envy.
+- He switched me off like a little `toy` he was finished playing with.
+- Is it because your husband would rather play with his `toy` train oh...
+- She's an adult, educational `toy` made in sweden for children over fifty.
+- With the `toy` train in the window the council doesn't want anyone to know.
+- As long as you realize i'm not just some man-`toy` you can show off like a trophy.
+- I used to play cops and robbers but y-- ...my mom wouldn't let me have a `toy` gun.
+                 

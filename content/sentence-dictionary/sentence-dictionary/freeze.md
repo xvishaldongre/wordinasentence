@@ -1,0 +1,59 @@
+---
+title: "freeze in a sentence | freeze example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "freeze"
+---
+- Your pipes'll `freeze`.
+- Don't `freeze` up on me.
+- `Freeze` it, right there!
+- Am i to `freeze` to death?
+- Maybe a deep `freeze` too.
+- You'll `freeze` out there.
+- Hundred dollar `freeze`-out.
+- Jesus, don't `freeze` on me.
+- This place is a deep `freeze`.
+- Did the driver really `freeze`?
+- `Freeze` could have killed you.
+- Just let him `freeze` out there.
+- That's what `freeze`'s wife had.
+- Then i go after `freeze` and ivy.
+- This rock's starting to `freeze`!
+- We're going to `freeze` to death.
+- "`freeze`, kid, hands in the air."
+- It's supposed to `freeze` tonight.
+- My hands are starting to `freeze`.
+- People are gonna `freeze` to death.
+- I'm gonna `freeze` to death out here.
+- Their blood will `freeze` in my hands.
+- You think `freeze` will take the bait?
+- Good god, eve - you'll `freeze` out here.
+- He'll have to come for us -- or `freeze`.
+- When'd the last person `freeze` to death?
+- You could `freeze` ice on his wife's ass.
+- I'm living on `freeze` dried limas and ham.
+- Everything's gonna `freeze`, the big `freeze`.
+- I took particular care not to `freeze` them.
+- Who wouldn't `freeze` in those circumstances?
+- If that means `freeze` my balls off, no thanks.
+- The germans will `freeze` to death, please god.
+- Planes use o-rings...which `freeze` in tap water.
+- But the truth is, we'll `freeze` before we starve.
+- Hope it don't `freeze` out our baseball game today!
+- We get wet, we `freeze` to death in a couple hours.
+- Before the captain and doctor mccoy `freeze` to death.
+- `Freeze`'s research says he cured a case like alfred's.
+- We're sorry... you want to `freeze` to death all winter?
+- `Freeze` has turned the new telescope into a freezing gun.
+- But we'll `freeze` - it's below zero - we'll catch pneumonia.
+- If we're on that face when night falls, we'll `freeze` there.
+- They had a hiring `freeze`, one of those last min- ute things.
+- You just let some poor bastard `freeze` to death, wouldn't you?
+- You will distract the bat and bird while i prepare to `freeze` gotham.
+- After that it's up to you to get us off the surface before we `freeze`.
+- Well, sometimes they're not completely covered but... they don't `freeze`.
+- I think the best thing to do with broussard is to just `freeze` him as he is.
+- You're loosing your cool we have eleven minutes to stop `freeze` and thaw the city.
+- I dreamed of running up to a door, kicking it in, pulling my gun and yelling '`freeze`!'
+- If we call him now, he might `freeze` up and we could lose the best shot we've ever had.
+                 

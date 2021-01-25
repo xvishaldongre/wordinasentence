@@ -1,0 +1,107 @@
+---
+title: "blue in a sentence | blue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blue"
+---
+- ...babe the `blue` ox?
+- Barks a `blue` streak.
+- `Blue` eyes, yes, sir.
+- Pabst `blue` ribbon!!!
+- Take that, `blue` boy.
+- It's `blue` ... ...
+- Mine was cobalt `blue`.
+- You a `blue`-moon fool.
+- A `blue` shirt, perhaps?
+- Blond hair, `blue` eyes.
+- `Blue`'ll git him, boss.
+- Fuck `blue` chip stocks!
+- I'd call it grey-`blue`.
+- It's called `blue` ruin.
+- Maisy `blue` legs place?
+- My wife had `blue` eyes.
+- Take the `blue` corsica.
+- ...with a `blue` ribbon.
+- `Blue` ... sir august...?
+- `Blue` soup all the time.
+- Maybe you'll turn `blue`.
+- Pink and `blue` receipts.
+- The "bolians" are `blue`.
+- They're so `blue` collar.
+- This is "king of `blue`"!
+- `Blue` eyes give you away.
+- He was a true-`blue` hero.
+- It's really really `blue`.
+- Mr. blonde and mr. `blue`?
+- No more navy `blue` suits.
+- Put on your `blue` suit...
+- To a smoking `blue` giant?
+- Two `blue`, and a red one.
+- What about the `blue` one?
+- `Blue` moon... `blue` moon...
+- Do you like `blue` ... red?
+- Especially when i'm `blue`.
+- Too much `blue` in crimson.
+- I say we go with big `blue`.
+- Feeling a bit `blue`, are we?
+- Hair brown, eyes pale `blue`.
+- It has drunk the `blue` soup.
+- Oh, make that uniform `blue`.
+- What's the `blue` book price?
+- What's this `blue` stuff, eh?
+- Who's them `blue` men yonder?
+- Island of the `blue` dolphins.
+- I've never seen sea so `blue`.
+- One jacket - `blue` pinstripe.
+- I took the `blue` corsica, del.
+- I've heard of `blue` lou boyle.
+- Look, the sky is `blue`... row!
+- Put some cerulean `blue` there.
+- Frank loved `blue`, `blue` velvet.
+- Have you seen my `blue` spatula?
+- I hate snails and `blue` cheese.
+- This tie doesn't go with `blue`!
+- You know what code `blue` means?
+- Zoey: `blue` stripe, that's ten.
+- All right, bring it down, `blue`.
+- Columbus sailed the ocean `blue`.
+- I don't like `blue`-haired women.
+- The sky was `blue`, erik... once.
+- They got some `blue` dye, though.
+- Fucked-up bowman's turning `blue`.
+- I believe it's mickey `blue` eyes.
+- Kane knows what code `blue` means.
+- Look at them ugly suckers, `blue`.
+- Red, maybe a deep midnight `blue`.
+- It's been `blue` skies all day.
+- `Blue` book it's worth 16 at least.
+- Floating through a dark `blue` sky.
+- Kind of a...robin egg `blue` color?
+- Never stopped drinking `blue` soup.
+- Not according to the men in `blue`.
+- Then he'll be back at `blue` balls?
+- What's that shade of `blue` called?
+- How's business at the `blue` parrot?
+- I'm right behind you, `blue` leader.
+- One shirt - `blue`, collar attached.
+- Well, i'll be a `blue`-nosed gopher.
+- No, where's mr. brown and mr. `blue`?
+- Real pretty, blonde hair, `blue` hat?
+- `Blue`-haired woman is feeding a baby.
+- Guy just pulls up out of the `blue`...
+- You know, those little `blue` barrels.
+- A `blue` one, ok. and it's still there.
+- "`blue` book non-disclosure agreement."
+- He black alright, he just ain't `blue`.
+- Nobody saw what happened to mr. `blue`?
+- The germans wore gray, you wore `blue`.
+- The van ryan family created `blue` bay.
+- They just jumped you out of the `blue`?
+- `Blue` five, does that glare bother you?
+- Oh, mother will give us the `blue` room.
+- They found prints at `blue` legs' place.
+- Brown's dead, we don't know about `blue`.
+- He told me to play `blue`-face with buzz.
+- One pair of trousers - `blue` pinstriped.
+- When `blue` and yellow meet in the west."
+                 

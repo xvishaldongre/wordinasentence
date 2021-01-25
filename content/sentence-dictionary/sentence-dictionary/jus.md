@@ -1,0 +1,55 @@
+---
+title: "jus in a sentence | jus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jus"
+---
+- `Jus`' like i'd tell you.
+- `Jus`' sassy, that's all.
+- `Jus`' cleanin' up, ma'am.
+- We `jus`' fuckin' with ya.
+- `Jus`' from around the way.
+- `Jus`' take it slow, buddy.
+- This here's `jus`' a part of it.
+- You `jus`' asking to be handled!
+- Maybe that's `jus`' what he done.
+- She's `jus`' wore out, that's all.
+- Maybe i can `jus`' fin' out sump'n.
+- It's `jus`' till we get some distance.
+- Without him i `jus`' don't wanta live.
+- `Jus` some girlie things for the squad.
+- It's `jus`' stuff i been thinkin' about.
+- I still love you, "`jus` drein `jus` daun."
+- It was `jus` sitting there gathering dust.
+- Oh, n'`jus` what in hell you crying 'bout?
+- I `jus` got off the phone with james kross.
+- Buff, please, would you `jus` fuck off, okay?
+- `Jus`' think about the nice things out there.
+- Somethin' bad has happened - i `jus` know it.
+- Tom, i `jus`' don't feel like nothin' a tall.
+- He'd `jus`' say it wasn't none a his business.
+- I'm `jus`' gonna set awhile an' then go to bed.
+- You an' me's goin' together--`jus`' you an' me.
+- They all depen' on me `jus`' thinkin' about that.
+- It sure is hell `jus`' tryin' to get enough to eat.
+- I'm `jus`' sick and tar'd a my folks tryin' to bust up.
+- We `jus`' stoppin' a minute-- save your strength, lady.
+- How my suppose to handle a dog someone `jus`' let loose?
+- They'll get two an' a half, `jus`' the minute we're gone.
+- You know, i `jus`' can't remember when i felt so good before!
+- `Jus` when my baby's out on some texas road with a killer.
+- This here ol' man `jus`' lived a life an' `jus`' died out of it.
+- `Jus`' playin' the game, sucker... what kind of crap is that???
+- `Jus`' send 'em the coupon an' you're a radio expert--nice clean work.
+- We're a-goin' to that dance an' we're a-goin' to `jus`' set an' watch.
+- You wouldn't think `jus`' reachin' up an' pickin'd get you in the back.
+- But `jus`' the minute they ain't strike- breakin' they won't get no five!
+- I'm not givin' it up `jus`' yet... security's locking down the elevators.
+- I'll `jus`' walk on down to the pacific, and from there i'll... improvise.
+- But i wouldn't pray for `jus`' a ol' man that's dead, because he's awright.
+- `Jus`' keep doin' y'damage girl, keep these mafuckas off my as-- i don't know!
+- `Jus`' remember, this is more rescuin' shit than rampagin' shit... what are you shootin'?
+- Think ma's gonna starve that baby `jus`' cause a bunch a fellas is yellin' outside a gate?
+- There's millions o' bees out there `jus`' waitin' fer' a general ta lead 'em on ta vict'ry!
+- Are you aimin' to tell me that the fellas that run this camp is `jus`' fellas--campin' here?
+                 

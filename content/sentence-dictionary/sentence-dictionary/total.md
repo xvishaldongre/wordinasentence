@@ -1,0 +1,107 @@
+---
+title: "total in a sentence | total example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "total"
+---
+- It's `total` nonsense.
+- Five `total` to launch.
+- Forty-five all `total`.
+- I'm a `total` idiot.
+- That's `total` bullshit.
+- He's a `total` asshole...
+- That makes `total` sense.
+- That's a `total` stretch.
+- He's a `total` mediocrity.
+- It's a `total` power suit.
+- Sighs: `total` brain lock.
+- That's just a `total` lie.
+- Yeah, makes `total` sense.
+- It's a `total` fire hazard.
+- I've been a `total` zombie.
+- `Total` lack of compassion.
+- You're `total` cq, bateman.
+- He gives me a `total` boner!
+- Translation: a `total` geek.
+- Yeah, she's a `total` loser.
+- He has almost `total` recall.
+- I'm a `total` fucking maniac.
+- You'll `total` the whole car.
+- A `total` fucking mystery.
+- It has to be `total`, deckard.
+- I was being a `total` asshole.
+- That's `total` utter bullshit.
+- Alvy, you're a `total` paranoid.
+- The guy was a `total` fruitcake.
+- This is a `total` catastrastroke.
+- Because it is evil.. `total` evil.
+- I'm sure she's not a `total` loss.
+- `Total`, eight billion and change.
+- Did it achieve `total` heavy-ocity?
+- You just fucked a `total` stranger?
+- I'm a complete and `total` shithead!
+- That we're not `total` neanderthals.
+- My only companion a `total` stranger.
+- Well, i mean it's not a `total` loss.
+- I look like a `total` wanker, don�t i?
+- So caesar, what did it `total` out at?
+- This letter writer is a `total` wacko.
+- 6, 5... - i mean, i was a `total` dick.
+- He makes you feel like a `total` idiot.
+- It's time for `total` truth between us.
+- The guy's a `total` stranger, remember?
+- But laurie kennedy is a `total` hardbody.
+- In an hour, he could have `total` recall.
+- Since you're a `total` replacement cyborg.
+- Talk about segretti-- `total` manipulation.
+- Yeah, i'm having `total` deja vu right now.
+- God, you must think |i'm a `total` nuisance.
+- She was a `total` machine last night too.
+- We become the sum `total` of our choices.
+- This is a `total` get-out-of- jail-free card.
+- I could be a `total` klepto, for all you know.
+- I told you - my manager was a `total` asshole!
+- Are you a `total` lying, scumsucking pig harry?
+- `Total` exhaustion can be spiritually fabulous.
+- You're a `total` mystery to me - but i love you.
+- He has `total` immunity and his story checks out.
+- He's a turnip, on `total` life-support ... go on.
+- Twenty- nine cent hotdogs... `total` control now.
+- I had to promise them you were not a `total` fool.
+- This person and i are a thing of the `total` past.
+- But you hate joey he was, like, a `total` babe why?
+- Look around... the whole planet's in `total` chaos.
+- He's a `total` dick, anyway... do you understand me?
+- Last time, i was here a grand `total` of three days.
+- More ships keep arriving, fifteen in `total` so far.
+- We did one point seven million in `total` revenue...
+- You and rod will have my `total` personal attention.
+- I'm a `total` fraud who can't make a single decision.
+- Of the landing sites have gone `total` comms blackout.
+- This time it will be complete and `total` annihilation.
+- Even donovan was impressed, and he's a `total` hard-ass.
+- As if... as if he was the problem, which is `total` bull.
+- Ever since you got a little sap, you're a `total` d-hole.
+- Sometimes, your `total` obliviousness just blows my mind.
+- So what you're saying, this guy's a `total` wacko, right?
+- That's because you' re not a `total` moron like they are.
+- You'll be a `total` outcast where the hell have you been?
+- Fear is the little death that brings `total` obliteration.
+- I'd call that a `total` failure to reach mission objective.
+- If they don't this place is gonna turn into a `total` stain.
+- I've gotta get past the mains, which are a `total` melt-down.
+- Miss rustokov refuses to let `total` strangers drive her car.
+- Because you'll freak out and act like a `total` psycho about it.
+- You'll have `total` solitude so you can concentrate on your work.
+- How is someone raised beneath the floor not a `total` basket case?
+- I'm old enough to tell when people are acting like `total` a-holes!
+- I'm projecting `total` systems failure in a little under four hours.
+- `Total` system failure, - but if she's out of the way... - game over.
+- I need my shoes in `total` focus right here and also joe back there--!
+- You and i are, probably for the first time ever, in `total` agreement.
+- You show me your sensitive side, then you turn into a `total` asshole!
+- The 1000 c infrared sensitive film must be handled in `total` darkness.
+- We got a `total` of forty-five spent 12-gauge remington shotgun shells.
+- You may be a `total` ass half the time, so, i decided to play the part.
+- As a matter of fact, today i have taken steps to insure `total` disaster.
+                 

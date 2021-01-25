@@ -1,0 +1,107 @@
+---
+title: "forever in a sentence | forever example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "forever"
+---
+- Burning one `forever`?
+- He'll fight `forever`.
+- So much for `forever`.
+- Stay in him `forever`?
+- This is not `forever`.
+- In our case, `forever`.
+- Over `forever` without.
+- A break means `forever`.
+- Can't do this `forever`.
+- I'll hate you `forever`.
+- I'll love you `forever`.
+- It's `forever` you know.
+- Nothing lasts `forever`.
+- They can last `forever`.
+- You will live `forever`.
+- Are we to wait `forever`?
+- It can't go on `forever`.
+- I've known him `forever`.
+- This is taking `forever`.
+- You can't hide `forever`.
+- You have lived `forever`.
+- I mean, this is `forever`.
+- Inside this box `forever`.
+- It doesn't last `forever`.
+- Newspapers last `forever`.
+- Not, "eternity `forever`"?
+- I'll regret this `forever`.
+- We'd be `forever` indebted!
+- We won't be here `forever`.
+- He will fight you `forever`.
+- In heaven now and `forever`.
+- I've been waiting `forever`.
+- I want to keep it `forever`.
+- Nobody lives `forever`, boy.
+- Those checks take `forever`.
+- Yeah, i've had it `forever`.
+- Are in it together `forever`.
+- But it hasn't been `forever`.
+- Lock them all away `forever`.
+- Sure, i can't last `forever`.
+- The name will live `forever`.
+- Alie: you will live `forever`.
+- Are you gonna play `forever`?!
+- Live `forever`, never get old.
+- The food lines took `forever`.
+- Then i'm going away `forever`.
+- We'll be stuck here `forever`.
+- You wanted to go on `forever`.
+- It's seemed like `forever`.
+- God, i've wanted you `forever`.
+- It's not going to be `forever`.
+- It took me `forever` to decide.
+- I will treasure this `forever`.
+- That cage won't hold `forever`.
+- Your primes are gone `forever`.
+- `Forever` bothering individuals?
+- Haven't we waited `forever`... ?
+- I want you to be mine `forever`.
+- She’s gonna hate me `forever`.
+- Then i'll be with him `forever`.
+- They can hold us here `forever`.
+- They can't ignore me `forever`.
+- Think you can love me `forever`?
+- Took her `forever` to find them.
+- To send me to therapy `forever`?
+- You cannot hide `forever`, luke.
+- You'll live like this `forever`.
+- But her mind will live `forever`.
+- I call it... the `forever` clock.
+- I have waited `forever` for this.
+- Our minds will be gone `forever`.
+- Taiwanese took `forever` as well.
+- But i can't wait around `forever`.
+- But my shit is `forever` together.
+- "`forever` bothering individuals"?
+- I could be trapped here `forever`!
+- That money wouldn't last `forever`.
+- Trapped in the same town `forever`.
+- You two will be together `forever`.
+- It was sweet, but it took `forever`.
+- Man i haven't seen her in `forever`.
+- Nothing is `forever` in the theater.
+- We can't wear these suits `forever`.
+- You feel like you'll live `forever`.
+- Been in the business since `forever`.
+- But you don't make it work `forever`.
+- Enough to make me love you `forever`.
+- How can we just erase them `forever`?
+- I can't keep him locked up `forever`.
+- I feel like i've known you `forever`.
+- Hey... doctors take `forever`, always.
+- I can't sit on this balcony `forever`.
+- It's for love and happiness `forever`.
+- Murder human beings to live `forever`.
+- She's been friends with jen `forever`.
+- Through me, you will live `forever`...
+- We can't keep him locked up `forever`.
+- And once i finish, it's over `forever`.
+- May they be remembered `forever`, stop!
+- Once you vowed to cherish me `forever`.
+                 

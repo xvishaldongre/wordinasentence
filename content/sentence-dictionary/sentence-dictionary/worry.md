@@ -1,0 +1,107 @@
+---
+title: "worry in a sentence | worry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "worry"
+---
+- Does that `worry` you?
+- Don't `worry` darlin'.
+- Don't `worry`, fellas.
+- Don't `worry`, george.
+- Don't `worry`, killer.
+- Don't `worry`, krusty.
+- Don't `worry`, murphy.
+- Don't `worry`, willow.
+- Hardly a `worry`, sir.
+- How can i not `worry`?
+- I will, don't `worry`.
+- Oh, don't you `worry`.
+- Well, don't `worry`...
+- Why would his `worry`?
+- Yeah i `worry`, a lot.
+- You `worry` about you.
+- But don't `worry`, man.
+- Doesn't it `worry` you?
+- Don't `worry` about it.
+- Don't `worry` about me.
+- Don't `worry`, big guy.
+- Don't `worry` 'bout me.
+- Don't `worry`, my love.
+- Don't `worry`, spicoli.
+- Don't `worry` sunshine.
+- Don�t `worry` about it.
+- I wouldn't `worry` doc.
+- Not for you to `worry`.
+- `Worry` about yourself.
+- You should not `worry`.
+- You needn't `worry`.
+- Don't `worry` about him.
+- Don't `worry`, i'm gone.
+- Don't `worry` it's okay!
+- Don't `worry`, jennifer.
+- Don't `worry` with what.
+- Hey, don't `worry`, kid.
+- Hey, don't `worry`, rob.
+- I'll `worry` about luca.
+- I'll `worry` about that.
+- I'm starting to `worry`.
+- I won't...don't `worry`.
+- Yeah, but don't `worry`.
+- Do not `worry`, holiness.
+- Don't let it `worry` you.
+- Don't `worry` about suzi.
+- Don't `worry` about that.
+- Don't `worry` about them.
+- Don't `worry`, four eyes.
+- Don't `worry`, i'm a cop.
+- Don't `worry`, pootchkie.
+- Don't `worry` so... wait.
+- He don't have to `worry`.
+- I do `worry` about susan.
+- I'd `worry` about sefton.
+- Leave that `worry` to me.
+- Nothing to `worry` about.
+- Nothin' to `worry` about.
+- Or my children's `worry`.
+- Yeah, don't `worry`, rob.
+- Did you `worry` about him?
+- Don't `worry` about him...
+- ...don't `worry` about it.
+- Don't `worry` about paley.
+- Don't `worry` about tracy.
+- Don't `worry` -- i'm fine.
+- Don't `worry`, thelonious.
+- I'm `worry` to bother you.
+- Let me `worry` about luca.
+- Let me `worry` about that.
+- Let us `worry` about that.
+- So don't `worry` about me.
+- Soon young, don't `worry`.
+- You don't have to `worry`.
+- You don't need to `worry`.
+- Bless you... don't `worry`.
+- Don't `worry` about caesar.
+- Don't `worry` about jaeger.
+- Don't `worry` about juliet.
+- Don't `worry` about moonan.
+- Don't `worry` about paulie.
+- Don't `worry`, i'll desire.
+- Don't `worry`, i'm leaving.
+- Don't `worry`, little baby.
+- Don't `worry`, mr. dickson.
+- Don't you `worry`, bellamy.
+- Don't you `worry`, captain.
+- Don't you `worry` really...
+- Hey, ripley, don't `worry`.
+- I'll `worry` about customs.
+- I'll `worry` about russell.
+- Oh, don't `worry` about it.
+- Tell mother not to `worry`.
+- You sure `worry` that bone.
+- You `worry` about your end.
+- Don't `worry` about a thing.
+- Don't `worry` about it, bob.
+- Don't `worry` about it, man.
+- Don't `worry` about it, pal.
+- Don't `worry`, i'll get him.
+                 

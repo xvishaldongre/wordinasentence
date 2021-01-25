@@ -1,0 +1,7 @@
+---
+title: "needful in a sentence | needful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "needful"
+---
+## Unfortunately, we have no example sentences for needful                 

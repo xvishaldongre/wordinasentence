@@ -1,0 +1,54 @@
+---
+title: "passage in a sentence | passage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "passage"
+---
+- Take the hidden `passage`.
+- And i seek safe `passage`."
+- Take the western `passage`.
+- I chose the wrong `passage`.
+- I booked `passage` to london.
+- Safe `passage` to the valley.
+- The `passage` to the barn?
+- Turn off the intake `passage`.
+- I'm going down a `passage` way.
+- In exchange for safe `passage`.
+- Safe `passage` on your travels.
+- Safe `passage` on your travels...
+- May his `passage` cleanse the world.
+- That's why we need a safe `passage`.
+- Only there is the `passage` possible.
+- They'll never make a `passage` north.
+- Why should we give you safe `passage`?
+- He escaped through the secret `passage`.
+- I could be induced to arrange a `passage`.
+- I guess i should assign you this `passage`.
+- Who would like to read the first `passage`?
+- I want to get `passage` booked on the queen.
+- Plus, it's a time-honored rite of `passage`.
+- If you gave us safe `passage` back to america.
+- There must be a `passage` to that other ocean.
+- Think of it as a rite of `passage` to manhood.
+- You give me undisturbed `passage` - i'm sorry.
+- I worked `passage` from england as a cabin boy.
+- Safe `passage` on your travels he's a grounder.
+- Put the net in the water by the intake `passage`.
+- Mary clarence, please assign a biblical `passage`.
+- You know, i recognize that `passage` in your book.
+- We can assume he's back in the water intake `passage`.
+- The net would have to be secured by the intake `passage`.
+- Safe `passage` on your travels, clarke, clarke, i need you.
+- Because even with that thing on... you've read the `passage`.
+- You need the wisdom that comes only with the `passage` of time.
+- [jaha chuckles] what `passage` do we have in our books about it?
+- Your husband possessed a ticket of `passage` on the 'maranguape.'
+- When you get to ostia, use this -- bribe `passage` to africa or spain.
+- The membrane in his nasal `passage` didn't show any sign of long time usage.
+- We sailed from archangel a month ago, seeking a `passage` to the north pole.
+- These rites carry great weight with us because they denote the `passage` of time.
+- Emerson: i've heard what they call you now-- why should we give you safe `passage`?
+- Beyond this `passage` lie the catacombs of paris: the exclusive domain of the dead."
+- If we want to live in peace... you can thank her yourself what about the secret `passage`?
+- Safe `passage` on your travels given the time differential, so he doesn't crawl over to me.
+                 

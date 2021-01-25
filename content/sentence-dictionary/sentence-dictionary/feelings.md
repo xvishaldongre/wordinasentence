@@ -1,0 +1,107 @@
+---
+title: "feelings in a sentence | feelings example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feelings"
+---
+- My `feelings` exactly.
+- I know your `feelings`.
+- No hard `feelings`, eh?
+- You hurt my `feelings`.
+- Hurting your `feelings`?
+- No hard `feelings`, huh?
+- That hurt my `feelings`.
+- You hurt his `feelings`.
+- I got `feelings` for you.
+- No hard `feelings`, okay?
+- What about my `feelings`?
+- A girl has her `feelings`.
+- How can i have `feelings`?
+- I have `feelings` for you.
+- "to share our `feelings`."
+- What are their `feelings`?
+- Where are your `feelings`?
+- You don't have `feelings`.
+- Hurt `feelings` department.
+- I got `feelings`, you know.
+- We all have our `feelings`.
+- Besides, no hard `feelings`.
+- I have hurt your `feelings`.
+- I've told you my `feelings`.
+- Like it hurts my `feelings`.
+- Dad, do my `feelings` matter?
+- You're hurting my `feelings`.
+- Come back, no hard `feelings`.
+- Don't you have any `feelings`?
+- I have followed my `feelings`.
+- I haven't any hard `feelings`.
+- They got `feelings`, you know?
+- Be sensitive to her `feelings`.
+- Search your `feelings`, father.
+- ...to sharing our `feelings`...
+- You have no `feelings` to hurt.
+- I want your `feelings` about it.
+- Everyone cater to his `feelings`.
+- What about my fucking `feelings`?
+- You trying to hurt my `feelings`?
+- All right, i hurt your `feelings`.
+- Because your `feelings` define you.
+- "hey, teach, no hard `feelings` ...
+- I don't wanna hurt your `feelings`.
+- What say we ... no hard `feelings`?
+- You think about a man's `feelings`.
+- And for my `feelings` in particular!
+- A soul is what gives you `feelings`.
+- I always listen to my `feelings`....
+- I'm sorry if i hurt your `feelings`.
+- Your `feelings` for them are strong.
+- All i have is my personal `feelings`.
+- Bury your `feelings` deep down, luke.
+- I didn't want to hurt his `feelings`.
+- I used to have those `feelings`, too.
+- Worried about my `feelings`, are you?
+- Don't you think i have any `feelings`?
+- There's no hard `feelings`, mr denham!
+- You have no `feelings` for your niece?
+- Ever since then - numb - no `feelings`.
+- He was trying to spare your `feelings`.
+- Then you have on of those '`feelings`.'
+- Nobody understood i had `feelings` too."
+- Now, i am sensing conflicted `feelings`.
+- But you'd need `feelings` for that, so...
+- It would really have hurt her `feelings`.
+- Suppose she is -- i have `feelings`, too!
+- Do you, do you share any of my `feelings`?
+- Your `feelings` have now betrayed her, too.
+- Don't let personal `feelings` make it worse.
+- If only i'd paid attention to my `feelings`.
+- I hope you're ready to face your `feelings`.
+- I think i just really hurt ray's `feelings`.
+- Our `feelings` for each other grew stronger.
+- We were just trying to hurt your `feelings`.
+- Why does your show generate such `feelings`?
+- You listen to the `feelings`, not the words.
+- Possible `feelings` of inadequacy as a chimp.
+- Tonight my `feelings` spread to someone else.
+- But it's up to you to reawaken his `feelings`.
+- I never knew she had these kind of `feelings`.
+- We all have patriotic `feelings` of some kind.
+- I can't keep my `feelings` bottled up like you.
+- I'm just glad there aren't any hard `feelings`.
+- No hard `feelings` about anything at all today.
+- They don't arrest people for having `feelings`.
+- With `feelings`, there's nothing to understand.
+- They have very mixed `feelings` about women.
+- Did you ever... do you have `feelings` for anna?
+- I'll go work out my `feelings` on the gun range.
+- Nobody can murder someone with their `feelings`.
+- You don't have to protect my `feelings`, simone.
+- Believe me, i know your `feelings` on the matter.
+- It sounds like you still have `feelings` for him.
+- Jessica calm yourself/ where are my `feelings`...
+- Brad has deep `feelings` of hostility towards you.
+- Why not eat your `feelings` with a cheer-up kebab?
+- He understands and accepts my `feelings` for you...
+- You know, my `feelings` haven't dissolved yet, lou.
+- I was taking my `feelings` about octavia out on you.
+                 

@@ -1,0 +1,107 @@
+---
+title: "looking in a sentence | looking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "looking"
+---
+- Everyone is `looking`.
+- I'm `looking` for him.
+- I'm `looking` for sid.
+- I'm `looking` for tod.
+- Is he `looking` at us?
+- Just `looking` around.
+- `Looking` for someone.
+- `Looking` for someone?
+- `Looking` good, billy.
+- Silly `looking` bunch.
+- We're `looking` at it.
+- You're `looking` good.
+- You're `looking` well.
+- Boy you `looking` good.
+- Cheery `looking` bunch.
+- Don't bother `looking`.
+- I'm `looking` for them.
+- I'm `looking` for work.
+- I'm the best `looking`.
+- I'm tired of `looking`.
+- `Looking` for shrapnel.
+- No, you `looking` good.
+- The good-`looking` one.
+- This is `looking` good!
+- This is `looking` good.
+- We were just `looking`.
+- What am i `looking` at?
+- What you `looking` for?
+- You `looking` for this?
+- Ben was `looking` at me.
+- He's `looking` for heat.
+- How we `looking`, bruce?
+- I better keep `looking`.
+- I'm `looking` for a man.
+- I was `looking` for you.
+- `Looking` for the chief.
+- `Looking` forward to it.
+- No, i'm still `looking`.
+- They could be `looking`.
+- They're `looking` at us.
+- They're `looking` to me.
+- We're `looking` for him.
+- What am i `looking` for?
+- What's he `looking` for?
+- When nobody's `looking`.
+- Who's `looking` for you?
+- You are `looking` at me.
+- You're `looking` at him.
+- You're `looking` for?
+- Are you `looking` for it?
+- How is it `looking`, mac?
+- I came `looking` for you.
+- I hate `looking` at that!
+- I'm `looking` for a girl.
+- I went `looking` for you.
+- `Looking` bad at the pta?
+- `Looking` for the stones.
+- `Looking` good out there.
+- `Looking` him in the eye.
+- They're `looking` peaked.
+- We are `looking` for you.
+- We're `looking` for dart.
+- We're `looking` for mike.
+- We're `looking` for slim.
+- What're we `looking` for?
+- Why am i `looking` at me?
+- You're `looking` for him.
+- Are you `looking` for her?
+- How much we `looking` for?
+- I'll be `looking` for you.
+- I'm just `looking` at you.
+- I'm `looking` for a favor.
+- I'm `looking` for charley.
+- I'm `looking` for maurice.
+- I'm `looking` for someone.
+- I was `looking` for maude.
+- I was `looking` for priya.
+- I was `looking` for you...
+- Just keep `looking` at me.
+- `Looking` for crash davis.
+- `Looking` for goat hooves.
+- `Looking` for her friends.
+- `Looking` for the fossils.
+- `Looking` up at the stars.
+- Lucy is `looking` for you.
+- Very purposeful `looking`.
+- Vicky's `looking` for you.
+- Weber's `looking` for you.
+- Well, just keep `looking`.
+- We're `looking` for wrong.
+- Were you `looking` for it?
+- What are we `looking` for?
+- What are you `looking` at?
+- What're you `looking` for?
+- What was he `looking` for?
+- Wh what am i `looking` at?
+- You came `looking` for me.
+- You're `looking` for life?
+- You're out `looking` here?
+- You were `looking` for us?
+                 

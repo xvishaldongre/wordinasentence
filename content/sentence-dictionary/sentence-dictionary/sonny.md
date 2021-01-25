@@ -1,0 +1,107 @@
+---
+title: "sonny in a sentence | sonny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sonny"
+---
+- I don't know, `sonny`.
+- `Sonny`-boy, one word?
+- `Sonny`, you in there?
+- Don't rush me, `sonny`.
+- [man] back up, `sonny`.
+- `Sonny`, be reasonable!
+- `Sonny`, i gotta go...!
+- Wait a minute, `sonny`.
+- I blame myself, `sonny`.
+- It's only us and `sonny`.
+- `Sonny`, it was my fault.
+- That's all over, `sonny`.
+- You just talk to `sonny`.
+- Hey, `sonny` - you did it!
+- I don't need them, `sonny`.
+- It's not personal, `sonny`.
+- `Sonny`, what's the matter?
+- Thank you, `sonny`, really.
+- What's the matter, `sonny`?
+- You blamed him for `sonny`.
+- That `sonny`'s runnin' wild.
+- So you gotta talk to `sonny`.
+- Here's your document, `sonny`.
+- `Sonny` don't be bullshittin'.
+- You'll make the deal, `sonny`.
+- You're news, `sonny` ... yeah!
+- You should warn them, `sonny`.
+- Be careful with those, `sonny`.
+- `Sonny` - here's your document.
+- Well, my name is `sonny` burch.
+- `Sonny`, tell rico i'm so sorry.
+- The things that you do, `sonny`.
+- You can't hide from me, `sonny`.
+- What about you, `sonny` go-along?
+- `Sonny`, jesus, it's not like you.
+- `Sonny`, please don't do anything.
+- They shot `sonny` on the causeway.
+- I'm sorry, `sonny`... on the phone.
+- I thought `sonny` was the good guy.
+- I want you to talk `sonny` into it.
+- `Sonny` was hot for my deal, right?
+- Look what i did to them, `sonny`...!
+- `Sonny`, i'm gettin' real bad vibes.
+- This really pissed him off, `sonny`.
+- You wanted to let `sonny` handle it.
+- I, this guy here, he's `sonny` chiba.
+- I don't know what they learn, `sonny`.
+- Jesus christ, he's my father, `sonny`.
+- Maybe we ought to call it off, `sonny`.
+- `Sonny` was hot for my deal, wasn't he?
+- I know what you think it means, `sonny`.
+- But we just saw the r. `sonny` kicks ass.
+- `Sonny`, you're really into one mess now.
+- After the hospital thing, `sonny` got mad.
+- `Sonny` burnett...this is my partner, rico.
+- I guess that's what love is -- huh, `sonny`?
+- I hated his father, and i hate `sonny`, too.
+- You fingered `sonny` for the barzini people.
+- Does `sonny` kick ass or does `sonny` kick ass?
+- I can't survive in prison, `sonny`... shit...
+- If your father dies...make the deal, `sonny`.
+- You and `sonny`...are in the dangerous place.
+- A clean slate, a new leaf... what now, `sonny`?
+- I'm going to go back, `sonny`, to the hospital.
+- Sollozzo might not even be in the car, `sonny`.
+- Aren't you a little too young for that, `sonny`?
+- `Sonny`, we ought to hear what they have to say.
+- You take care of `sonny` and the other two kids.
+- It's a pleasure doing business with you, `sonny`.
+- Even `sonny` won't be able to call off luca brasi.
+- It was a pleasure doing business with you, `sonny`.
+- Listen, `sonny` ... can i call you `sonny` for short?
+- That's why i can talk to you, as an equal, `sonny`.
+- All the five families would come after you, `sonny`.
+- I'm here to talk to you, `sonny`, not ... like what?
+- I'd like just some sign i can trust you too, `sonny`.
+- `Sonny` will come after you with everything he's got.
+- But even `sonny` won't be able to call off luca brasi.
+- `Sonny`, true love is the greatest thing in the world.
+- The audience is interested in you, `sonny` ... not me.
+- I hope you're not a hothead like your brother, `sonny`.
+- Thanks very much, `sonny`-- all the ex-vice-presidents.
+- What if carlo had been paid to help get `sonny` killed?
+- I don't know, `sonny` ... on the roof somewhere i guess.
+- It is because `sonny` can deliver what no one else can."
+- `Sonny`...`sonny`--jesus christ, i'm down at the hospital.
+- `Sonny` comes there and looks at me and just says: 'wow!'
+- It's not your fault there's no money... let's go, `sonny`.
+- My god, `sonny` - you oughtta see - alla brooklyn is here!
+- Even shooting your father was business, not personal, `sonny`.
+- I mean, i hope you're not a hot-head like your brother `sonny`.
+- So now it's up to you to make the peace between me and `sonny`.
+- You gotta get `sonny` rollins or led zeppelin iv, on that shit.
+- `Sonny`, would you please just tell them... please... all right.
+- Those busts up there--all around the wall--who are they, `sonny`?
+- We're at a stalemate `sonny`, your war is costing us a lot of money.
+- You know, `sonny`, tom, i'd like to talk to you, maybe after dinner.
+- So you go on and stamp your forms, `sonny`, and stop wasting my time.
+- `Sonny`, get our informers to find out where the meeting will be held.
+- Tell her she's got to go back... you got yourself a <u>wife</u>, `sonny`!
+                 

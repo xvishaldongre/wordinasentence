@@ -1,0 +1,7 @@
+---
+title: "equines in a sentence | equines example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "equines"
+---
+## Unfortunately, we have no example sentences for equines                 

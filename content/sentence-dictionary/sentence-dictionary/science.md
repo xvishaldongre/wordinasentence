@@ -1,0 +1,107 @@
+---
+title: "science in a sentence | science example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "science"
+---
+- Give me the `science`.
+- `Science` is not magic.
+- It's `science`- fiction.
+- You call that `science`?
+- I like `science` fiction.
+- Come, come, miss `science`.
+- Girls go to `science` camp?
+- This is `science`, not art.
+- I have a `science` question.
+- It's from my `science` book.
+- Then let's do the `science`.
+- The `science` of psychiatry.
+- `Science` thinks there isn't.
+- Spare me the `science` lesson.
+- What if it's beyond `science`?
+- Hey boss, it's not a `science`.
+- That's `science` fiction stuff!
+- Your child's `science` teacher?
+- Anything for `science`, i guess.
+- Ok. let's do the `science`, mmm.
+- Why they call it `science` hill?
+- Lewis won the `science` fair.
+- But he's also a man of `science`.
+- I don't want a `science` lecture.
+- Sorry hon, this is for `science`.
+- It is roet `science`, actually.
+- It's what pays for your `science`.
+- Little town called `science` hill.
+- Bunch a limp dick `science` majors.
+- My new fourth grade `science` book.
+- On trust, in the name of `science`!
+- Can your `science` prevent all that?
+- It's not an exact `science`, wesley.
+- I'm majoring in behavioral `science`.
+- I saw inside of the `science` center.
+- But life isn't a `science` experiment.
+- I always had a distaste for `science`.
+- I teach library `science` over at usc.
+- This can't be right -- con- `science`.
+- Wishful thinking isn't good `science`.
+- Good `science` is good observation.
+- My dear, `science` is a cruel mistress.
+- Only her `science` can save the future.
+- The traffic guy, on the `science` beat.
+- This is a `science` excursion corporal.
+- Barb... barb, it's not rocket `science`.
+- Do you have something against `science`?
+- If you want `science`, call your father.
+- You walk like on of her `science` pukes.
+- He was a `science` teacher at denton high.
+- It doesn't have much to do with `science`.
+- It is not enough to have men of `science`.
+- So...how's the world of serious `science`?
+- This isn't one of your `science` projects.
+- And other forms of `science` investigation.
+- I ask you what is the purpose of `science`?
+- Jesus, tommy, it ain't `science`, you know.
+- We did `science`, - diddly-doodly, brother.
+- You've made a `science` out of coincidence.
+- About the `science` of why they don't exist.
+- You're a man of `science`; i'm a man of god.
+- Are you doing some kind of `science` project?
+- He's teaching environmental `science`, grant.
+- Interior design is a <u>`science`</u>, delia!
+- ♪ i've got `science` ♪ - you gonna drop that?
+- Oh, these are all my `science` fair trophies.
+- `Science` is the quest for divine perfection.
+- Some nerdy `science` shit to make me do that.
+- You never got an a in `science` in your life!
+- I got a c. how'd you do on the `science` test?
+- Only if you got <u>above</u> a c on `science`.
+- You read a lot of `science` fiction didn't you?
+- I'm not sure the `science` really supports that.
+- I read that... in, uh... er, `science` magazine.
+- Is that the question of compassion or `science`?
+- I used to teach shop and eighth grade `science`.
+- Now goddamit-- this is `science`-fiction robert!
+- Psychology isn't a `science`, it's superstition.
+- Apparently he's genuinely interested in `science`.
+- We're all down at the math and `science` building.
+- Tell you where your little `science` experiment is.
+- The `science` textbooks acknowledge climate change.
+- You can't run away from the planet, miss `science`.
+- Forensic ballistics isn't an exact `science`, is it?
+- Lots of these `science` guys never leave that place.
+- Sir -- animal husbandry is `science`, dr. hartdegen.
+- A man just died, you're hitting on me with `science`.
+- And, you know it isn't rocket `science`, this script.
+- If `science` is simply a means, what then is the end?
+- It isn't faith that makes good `science`, mr. klaatu.
+- Only two weeks until your `science` projects are due.
+- Our exec and `science` officer... 'commander' decker?
+- Who are you who are so wise in the ways of `science`?
+- I'm afraid you'll have to double as `science` officer.
+- In `science`, the letter of fact is the letter of law.
+- There is no contradiction between faith and `science`.
+- "we" being the behavioral `science` unit, at quantico.
+- I've always thought of myself... as a man of `science`.
+- That's why `science` doesn't make any damn sense to me.
+- The cornerstone of the modern `science` of criminology.
+                 

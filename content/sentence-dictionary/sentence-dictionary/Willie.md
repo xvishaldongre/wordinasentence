@@ -1,0 +1,56 @@
+---
+title: "Willie in a sentence | Willie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Willie"
+---
+- Don't listen, `willie`.
+- Have you seen `willie`?
+- Are you happy, `willie`?
+- Clay bertrand, `willie`?
+- `Willie`, open the door!
+- `Willie`'s just a child.
+- What d'you say, `willie`?
+- Been working for `willie`.
+- Is it coming out `willie`?
+- From groundskeeper `willie`.
+- Tip top, `willie`...tip top.
+- `Willie`, shut up and listen!
+- Hey, `willie`, how's it going?
+- Make yourself heard, `willie`!
+- `Willie`, give him the stakes.
+- I've been working for `willie`.
+- When are we gonna warn `willie`?
+- Why do we have to warn `willie`?
+- This'll go good in `willie`'s stew.
+- Fucking `willie` nelson look-a-like?
+- No one's trying to buy you, `willie`.
+- Kenny at anzio and `willie` at normandy.
+- What happened to the two clays, `willie`?
+- What happened to 'em after that, `willie`?
+- Alright `willie`, i think i got everything.
+- "wee `willie` winkie runs through the town.
+- "wee `willie` winkie runs though the street."
+- Hey, `willie`, what was claude's plan, anyway?
+- Uh, listen -- `willie` -- i got a better idea.
+- Hey, `willie` -- i think you better get out now.
+- Thanks for helping us free that whale, `willie`.
+- I'm going to have a little -- word with `willie`.
+- Does that bring back memories of `willie` o'keefe?
+- That's a long story... what are you in for, `willie`?
+- I just wanted to know who named ya sweet dick `willie`?
+- When `willie` turned 13, it was time to work in the mines.
+- No -- don't you see -- crawling -- you're dreaming, `willie`.
+- ♪ i am a pool-shootin' boy my name is `willie` mccoy ♪ newman.
+- Because there's no way in hell i can leave - `willie` whatever?
+- You want to know how much i got tied up in deposits with `willie`?
+- `Willie`, he doesn't know you are here, just sort something out, ok.
+- Come on, pal, come on `willie`, come on, old shoe... we have no home.
+- `Willie`, are you willing to repeat your statements under sodium pentothal?
+- Yes sir... aw, loosen up, bowman... hey, `willie`, i got one served up for you.
+- Joe 'little knife' pisani; `willie` bufalino, maybe, mr. maranzalla himself, c'mon!
+- Ok. look `willie`, it's plank outside asking for you, he says it's in our interest.
+- That's `willie`, there's poker face, radio, cookie, goldmouth, biscuit, jangle leg.
+- Anything else unusual about him you'd be able to describe in a court of law, `willie`?
+- You know, `willie`, i'll bet he's mad because they were eating his friends for dinner.
+                 

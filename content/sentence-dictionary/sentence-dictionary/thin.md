@@ -1,0 +1,78 @@
+---
+title: "thin in a sentence | thin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thin"
+---
+- The soil looks `thin`.
+- I am spread too `thin`.
+- `Thin` walls, remember?
+- Vanish into `thin` air?
+- Soil's `thin`, all right.
+- Vanished into `thin` air.
+- A little `thin`, but good.
+- I'm already on `thin` ice.
+- Pretty `thin`, i work out.
+- `Thin` man extraordinaire!
+- Not too fat- not too `thin`.
+- You're skating on `thin` ice.
+- Because the air is too `thin`.
+- I know that's pretty `thin`...
+- I'll see where they're `thin`.
+- I don't know, sounds `thin` to me.
+- The walls here are just so `thin`.
+- Doesn't just pop out of `thin` air.
+- One `thin` dime for a cup of coffee.
+- Rose, my patience is wearing `thin`.
+- Mine is wearing `thin`, young man!
+- She didn't pull that out of `thin` air.
+- The `thin`... the girl with small eyes.
+- Of course long, `thin` and filtered.
+- But ours are `thin`, with ropey muscles.
+- The budget's stretched `thin` as it is.
+- Not only that, you look `thin` and tired.
+- You can never be too early or too `thin`.
+- You startin' a fan club or some- `thin`'?
+- It's heavy for such a `thin` piece of metal!
+- Agnes... look at the statues, they're `thin`.
+- You're hanging by a very `thin` thread, dude.
+- The others didn't just vanish into `thin` air.
+- I need your help and i `thin` you can use mine.
+- Your muscles are `thin` and sadly underutilized.
+- Martin...i want you to know some- `thin`'... how?
+- She didn't just up and disappear into `thin` air!
+- You're `thin`, i'm about forty pounds overweight.
+- It was the nicest `thin` i've done in a long time.
+- The yater -- the clear one with the `thin` stringer.
+- Put a note on my desk in the morning: "think `thin`."
+- But he says that even `thin` rambo couldn't get there.
+- The only `thin` that ever bothers me is their jibberish.
+- I'm saying no, i'm saying after a while it'd wear `thin`.
+- You're gonna want to look `thin` in your coffin, - no way.
+- Dark or fair, tall or short, fat or `thin`, tough or tender?
+- You need to prepare your bodies for the `thin` air up there.
+- He was tall, `thin`, pleasant, and had a moustache like mine.
+- Ice is too `thin` -- you can see the water moving underneath.
+- This is not a `thin` trail, gentlemen, it is a very wide one.
+- Eight years you guys were together-- through thick and `thin`.
+- Slower... 'blonde, `thin`', yes... did they say she had style?
+- You know, blonde, `thin`, whatever... how'd they describe her?
+- I'll teach you to insult a `thin`-skinned hollywood narcissist.
+- It flies off toward the `thin` membrane that encloses the city.
+- Think about what you're going to say, ed; we are on `thin` ice.
+- A three-thousand ton frigate doesn't just vanish into `thin` air.
+- You came from level 3, i'm holding onto a `thin` rope here, psst.
+- He was tall, and `thin`, and like a shadow, his face was just a blur.
+- I don't care where you're from you just can't disappear into `thin` air.
+- Simone is `thin` air, pixels, molded by me from a mathematical equation.
+- [door opens] shout-out to my crew, hedgehog, `thin` mint, and white malik.
+- First it was big and round, then it was flat, then it was long and `thin`.
+- You're skating on `thin` ice already, young man, so i wouldn't push my luck.
+- Yeah, but they can't a helicopter up that high because the air is too `thin`.
+- Glass found in ignition room is in small, `thin` pieces, indicating explosion.
+- When you spread help too `thin`, you , you just nickel and dime the situation.
+- You look `thin` by the way, i've mentally undressed you, i can see your ribcage.
+- I come to you as a last resort -- and i confess that my patience is wearing `thin`.
+- It always amazes me, lil, how you can whip up a hot, hearty meal out of `thin` air.
+- After the battle of san francisco, look, i don't want your `thin` mints, all right, kid?
+                 

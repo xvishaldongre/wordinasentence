@@ -1,0 +1,107 @@
+---
+title: "cold in a sentence | cold example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cold"
+---
+- I can feel the `cold`.
+- It is dark and `cold`.
+- It's gonna get `cold`.
+- Ohio is `cold` ground.
+- So `cold` and distant.
+- That's `cold` calling.
+- The `cold` war's over.
+- You <i>are</i> `cold`.
+- It was so...`cold`.
+- Ice `cold` still water.
+- It gets `cold` so fast.
+- It's so goddamn `cold`.
+- Oh, she's got a `cold`.
+- The `cold` war is over.
+- To keep out the `cold`.
+- I get `cold`, wyatt.
+- (childishly) i'm `cold`.
+- Hinckley `cold` storage.
+- I'm showing deep `cold`.
+- It gets `cold` at night.
+- It's 'pose to be `cold`.
+- It's so bitterly `cold`.
+- Kill me in `cold` blood?
+- That's some `cold` shit.
+- These'll keep it `cold`.
+- Wait, did he say `cold`?
+- Yeah, it's a `cold` one.
+- You getting `cold` feet?
+- You look kind of `cold`.
+- It is `cold` in here.
+- Ben: shit, that's `cold`.
+- `Cold` war's over, jerry.
+- I am jack's `cold` sweat.
+- I feel it getting `cold`.
+- I know you `cold`, brian.
+- It's getting `cold`, sal.
+- Shot him in `cold` blood.
+- What was `cold` about it?
+- Can't you see he's `cold`?
+- I got an awful bad `cold`.
+- Now that is `cold`, lenny.
+- They're very `cold`, josh.
+- This water's `cold` again.
+- Uh, actually, it's `cold`.
+- We got it down `cold`, al.
+- You mean one `cold` drink?
+- You've got `cold` feet.
+- In the freezing `cold`, no?
+- It is very `cold` in space.
+- Oh, your hands feel `cold`.
+- Please, come in, so `cold`.
+- They're `cold`, lying eyes.
+- Well - it's `cold`, margie.
+- Your food's getting `cold`.
+- And a `cold`-blooded killer.
+- ♪ baby, it's `cold` outside.
+- Don't care for `cold` steel?
+- I can't move, i'm so `cold`.
+- I have it `cold`, confirmed.
+- It's as `cold` as they come.
+- It's `cold` out here, susie.
+- That was `cold`... oh i see.
+- That was <u>real</u> `cold`.
+- Think i'm catching a `cold`.
+- This place is really `cold`.
+- C'mon, man, it's `cold`, man.
+- It's getting dark and `cold`.
+- Let's get out of this `cold`.
+- She's just scared and `cold`.
+- Supposed to be `cold`, right?
+- That was pretty `cold`, dude.
+- These are really `cold`, huh?
+- Well, you had it down `cold`.
+- You be as `cold` as you want.
+- I'm `cold` and i'm frightened.
+- I'm just saying it was `cold`.
+- It's warm then it gets `cold`.
+- Or am i stone-`cold` tripping?
+- That stuff's two hours `cold`.
+- The driver got knocked `cold`.
+- You're a `cold` piece of work.
+- Ben: oh, my god, that's `cold`.
+- I thought the story was `cold`.
+- ...it's `cold` outside, paulie.
+- It's `cold` out, too, isn't it?
+- It's the `cold` that saved you.
+- No, no, a touch of `cold` only.
+- The `cold` must slow them down.
+- Well, i needed a `cold` shower.
+- What's hinckley `cold` storage?
+- After the `cold` war ... london.
+- A wizened, `cold`-hearted snake.
+- But it gets `cold` in winter....
+- But you're `cold` and shivering.
+- God, i hate `cold` crime scenes!
+- God, that's a `cold` and a half.
+- He gets `cold` in this hospital.
+- I'd like an ice-`cold` heineken.
+- I guess it gets `cold` at night.
+- I'm not a `cold`-blooded killer.
+                 

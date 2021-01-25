@@ -1,0 +1,107 @@
+---
+title: "held in a sentence | held example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "held"
+---
+- You `held` back stern.
+- He `held` that over me.
+- I `held` it in my hand.
+- `Held` together by wire.
+- He's `held` on this far.
+- His body `held` it open.
+- She `held` up very well.
+- He `held` her and he wept.
+- I've only `held` you back.
+- You `held` sway over them.
+- Then he `held` my hand.
+- My brace would have `held`.
+- She `held` that against you?
+- Always `held` something back.
+- Have really `held` you under?
+- I even `held` one in my hand.
+- Long as my ammo `held` out...
+- Not `held`, just slowed down.
+- This bridge cannot be `held`.
+- Carl `held` it <u>for</u> 'em.
+- I could have `held` on to you!
+- I never `held` it until today.
+- I won't be `held` responsible.
+- Well, i `held` it like an egg.
+- I think we'd know if `held` left.
+- I've `held` that axe up for ages.
+- You're wondering why i `held` it.
+- �� as long as my feet `held` out.
+- But it has also `held` us captive.
+- `Held` him hostage for three days.
+- I got `held` back in school again.
+- I thought `held` sort himself out.
+- Muffler `held` on with baling wire.
+- Still to be `held` in philadelphia?
+- You ever `held` another job before?
+- You `held` on as long as you could.
+- You `held` onto this all that time?
+- He needs to be comforted and `held`!
+- Should've `held` out for more money.
+- I just `held` up the same two movies.
+- Like you'd get if it was hand `held`.
+- Then it's `held` prisoner for a while.
+- When the two of you `held` each other.
+- An exorcism was just `held` for birdson.
+- But, ninotchka, i `held` you in my arms.
+- Everyone else is `held` back in reserve.
+- I got `held` up at a wedding in tai koo.
+- I thought maybe `held` gotten over that.
+- Are being `held` prisoner on that mountain.
+- If she `held` on any longer she could have.
+- I've always `held` you in the highest regard.
+- Ought to be `held` accountable if you ask me.
+- Here's the sofa where they `held` me down.
+- I forgot how good it felt to be `held` by you.
+- I meant to, but something always `held` me up.
+- Mueller went after him but we `held` him back.
+- The man `held` oppenheimer's chair at princeton.
+- My car bumper has never `held` a winning sticker.
+- But my heart's `held` fast here... "turn you out?"
+- I knew `held` like it and i figured ... maybe not.
+- You `held` me a prisoner once; will you try again?
+- You think i don't know you `held` out on the d.a.?
+- I'd forgotten how good it felt to be `held` by you.
+- You expect cornwallis to be `held` here by militia?
+- Be the longest short-arm inspection you ever `held`!
+- One: families that have `held` wealth for centuries.
+- I will not be `held` responsible for these revisions.
+- Usually `held` ride with her, but this time he didn't.
+- Help, i'm being `held` prisoner in a puzzle box factory.
+- This thing is `held` together by string and chewing gum.
+- Your money is being `held` by a kid named larry sellers.
+- I've never `held` this much money in my hand all at once.
+- I `held` the truck then minutes, it's not that big a deal.
+- You `held` back the one man most important to my business.
+- Claude rode over there to see if `held` lost track of time.
+- Get our informers to find out where it's going to be `held`.
+- Last night, mr. chang, i `held` a sort of a self- inventory.
+- The killer `held` a bucket under him, and then kept serving.
+- `Held` never understand what we're trying to accomplish here.
+- You knew from the start that lecter `held` the key to this...
+- I sent telegrams, i guess the military traffic `held` them up.
+- Monday afternoon a sailboat race will be `held` at the cesspool.
+- Someone `held` up a coffee shop, panicked and killed six people.
+- Your detention is being `held` in our new facility, the r.o.c.c.
+- ♪ and you know that you once `held` the key ♪ all right, move it.
+- Sorry, captain, being `held` by you isn't enough to get me excited.
+- The parties are `held` in here when the weather dips below seventy.
+- I `held` it up to... did you use the sword that you `held` in your hand?
+- I'll wager that war `held` other attractions quite apart from nursing.
+- Like i just `held` them far away from me, and they did the same to me.
+- Right now my guess is he�s either on the run, `held` captive, or dead.
+- Sonny, get our informers to find out where the meeting will be `held`.
+- It `held` things up twenty minutes while the judge ran out to watch it.
+- I've `held` my tongue, because i appreciate i shouldn't have said that.
+- We were under the impression they were being `held` against their will.
+- Election `held` tomorra, that sonofabitch stokes would win it in a walk!
+- Even sollozzo's people don't know where the meeting's going to be `held`.
+- If i `held` a vote i think airstrike would beat blockade by a vote or two.
+- His european confederation is `held` together by some very slender threads.
+- In the still...still of the ni-ight...i `held` you...`held` you so ti-ight...
+                 

@@ -1,0 +1,107 @@
+---
+title: "named in a sentence | named example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "named"
+---
+- She `named` her sarah.
+- ..."a boy `named` sue".
+- Fella `named` beaumont.
+- Man `named` turk baker?
+- A guy `named` scagnetti.
+- All `named` lightbourne.
+- Guy `named` wade beemer.
+- Somebody `named` hershe.
+- Got a wife `named` angie.
+- I `named` it when i was 3.
+- Somebody `named` leo crow.
+- About someone `named` maya.
+- A guy `named` gordon liddy.
+- A paratrooper `named` ryan.
+- To be `named` after a city?
+- Twas he `named` it mjolnir.
+- We `named` the dog indiana.
+- It is `named` sleepy hollow.
+- I was `named` for queen nia.
+- My axe is `named` roosevelt.
+- You know a gal `named` maya?
+- A guy `named` david brewster.
+- Are all of you `named` jones?
+- Somebody `named` gordon cole.
+- What, you `named` it already?
+- You know a guy `named` merle?
+- I got an uncle `named` harlan!
+- Nobody's `named` this one yet.
+- No suspects have been `named`.
+- Your guitar is `named` kimber?
+- Did i kill a guy `named` benito?
+- He `named` me after zeus's wife.
+- He `named` the school i went to.
+- Because i had it `named` for you.
+- Belongs to a feller `named` moss.
+- By an evil hunter `named` cassia.
+- The alpha's a kid `named` rooney.
+- High- roller dude `named` strader.
+- How did you-- a guy `named` brill.
+- No record of anyone `named` mofet.
+- There's no one `named` frank here.
+- I don't know anyone `named` thomas.
+- I never met anybody `named` oswald.
+- Mommy and daddy `named` you julius.
+- `Named` after wittgenstein's notes.
+- White girl `named` melanie ralston.
+- Anyone `named` <u>shoe</u> schumann?
+- Figures it's `named` after a canine.
+- He works for a guy `named` patchett.
+- Is this with a girl `named` kristen?
+- Married a gal `named` -- fuck lucky.
+- Then come forward and be so `named`.
+- He's after someone `named` skywalker.
+- It's what you and rosanna `named` me.
+- No, there�s no one here `named` kate.
+- We hired a man `named` murray bauman.
+- What about an american `named` kurtz?
+- For this greek cat `named` ari onasis.
+- I also know a therapist `named` chung.
+- Looking for a bloke `named` valentine.
+- She `named` them after virtues i lack.
+- Who the hell do you think `named` you?
+- Commander powell would have `named` it.
+- Go in and ask for a man `named` dmitri.
+- He's with a man `named` ben hildebrand.
+- You ever heard of a badge `named` wade?
+- A guy `named` jefferson�and lincoln.
+- Did gordon show you a woman `named` lil?
+- Gino travels with a big man `named` roy.
+- I was working with a boy `named` eugene.
+- Lecter has already `named` buffalo bill.
+- That's what the papers have `named` you.
+- You `named` the kid after yourself, huh?
+- Check out a guy `named` eladio del valle.
+- I'm dealing with two guys `named` cheech!
+- It's an edna `named` after zed's ex wife.
+- `Named` for the danakil alps in ethiopia.
+- Used to be a guy `named` mac-- something.
+- I had a date with a girl `named` veronica.
+- I went to school with a guy `named` price.
+- One exotic son of a bitch `named` riviera.
+- Someone `named` hockley, i should imagine.
+- That was a little girl `named` mary hatch.
+- We `named` him after your eccentric uncle.
+- Yes, but i can't love a man `named` wally.
+- You ever know a fella `named` eladio cruz?
+- You remember an ex-cop `named` buzz meeks?
+- Certain friends of yours were `named` also.
+- `Named` archangel de jesus montoya-londono.
+- You know a religious guy `named` john paul?
+- A man `named` tim ma-... who's your suspect?
+- Sangedakru is expecting a girl `named` echo.
+- You ever hear of a man `named` fred krueger?
+- I had a family dog growing up `named` amanda.
+- A fellow `named` brandon has a penthouse here.
+- You and your wife, `named`.... come on in.
+- I've been surveilling the one `named` miranda.
+- She's got a great dog `named` for danny ainge.
+- 'spose to kill this fool `named` buddy israel.
+- You know a dealer `named` ruby deemer, verbal?
+                 

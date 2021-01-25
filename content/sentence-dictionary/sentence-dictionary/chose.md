@@ -1,0 +1,77 @@
+---
+title: "chose in a sentence | chose example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chose"
+---
+- But i `chose` freedom.
+- I `chose` you, not him.
+- He `chose` them already?
+- This is who you `chose`.
+- But he `chose` this path.
+- That's why i `chose` you.
+- They `chose` to be happy.
+- Barbara `chose` it for me.
+- It's like she `chose` you.
+- You `chose` to speak to me.
+- You just... `chose` not to.
+- And `chose` to stick it out.
+- I `chose` the wrong passage.
+- I see why tsing `chose` you.
+- You `chose` to be commander.
+- I `chose` different from you.
+- You `chose` me for something.
+- You forget you... `chose` it.
+- I `chose` to let them all die...
+- _ when the commander `chose` me.
+- You're upset that i `chose` you.
+- Yet you `chose` to leave him?
+- And yet you `chose` to save madi.
+- But my parents `chose` otherwise.
+- You and lloyd `chose` the class!?
+- You `chose` to leave your people?
+- But, i `chose` you and that's fine.
+- She `chose` to look inward instead.
+- Maggie `chose` a virtual me over me.
+- You `chose` the shortest route, please.
+- Your ancestors `chose` another path, o.
+- No, only the path she `chose` to travel.
+- So i `chose` a different line altogether.
+- And you `chose` weakness, people get hurt.
+- Mr. takagi `chose` his people well, mrs...?
+- Remember, i'm not the one who `chose` this.
+- He `chose` me for rowan when i was a child!
+- The girl `chose` him over the other two guys.
+- I `chose` the one where i could be more cruel.
+- The reason the murderer `chose` these persons.
+- Went to the spot we `chose` for our settlement.
+- He sure `chose` the right day to pull this shit.
+- I `chose` not to rest, and i was punished for it.
+- When a man cannot `chose`, he ceases to be a man.
+- You `chose` to follow a man you knew was evil.
+- The first time you `chose` to pray what's in this?
+- She `chose` to lock me away there's always a trail.
+- The name diyoza `chose` bellamy, she's by her side.
+- You `chose` to press charges against my husband, uh!
+- _ and i `chose` it, and wanted to be together, too.
+- I `chose` not to choose life: i `chose` something else.
+- Everyone lloyd and i `chose` for the class is special.
+- That's the reason they `chose` me -- i remember things.
+- Unconsciously, you `chose` a name that was belligerent.
+- _ no wonder they `chose` you and your lady for the core.
+- Now don't disappoint me and `chose` your words carefully.
+- Randomly `chose` two planets connected by anomaly stones?
+- I picked the wrong number when i `chose` you ... didn't i?
+- They `chose` us to die to see who's the last person standing.
+- What i know is you `chose` the red box, what the hell is that?
+- You `chose` to include my daughter in those charges, coming, o.?
+- Janet was the only one who could endure him and `chose` to stick it out.
+- Just once, i'd like to take off the name diyoza `chose` for her unborn child.
+- He was so impressed with the marquis' tale that he `chose` to re-enact it, yes?
+- I simply `chose` an advisable location to await my client's delinquent husband.
+- Little matter to me that this woman `chose` to pursue a career he fixes the cable?
+- Maybe so, but until you recognize the last time you `chose` the wrong side in a war.
+- She `chose` to lock me away i need you to make a tourniquet out of whatever you can find.
+- Not if you `chose` to stay within god's channel... you are contradicting yourself, donnie.
+- We have this school assignment to write about someone we never met and i `chose` my mother.
+                 

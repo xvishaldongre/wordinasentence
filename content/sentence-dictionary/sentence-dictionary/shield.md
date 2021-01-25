@@ -1,0 +1,84 @@
+---
+title: "shield in a sentence | shield example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shield"
+---
+- Get that `shield` down.
+- Get behind the `shield`!
+- Talent is no holy `shield`.
+- We're outside the `shield`.
+- Get this man a `shield`.
+- The energy `shield` is down.
+- `Shield` me from the bullets.
+- Radiation `shield`, you think?
+- We have to lower the `shield`.
+- He won't get past the `shield`.
+- That means the `shield`'s down.
+- _ everyone put your `shield` up.
+- I am his `shield` and his sword.
+- Full power on the front `shield`.
+- Han will have that `shield` down.
+- They were colleagues at `shield`.
+- The `shield` doors must be closed.
+- We have to get that `shield` down.
+- In building our radiation `shield`.
+- So we take down the `shield` first.
+- _ how to build a radiation `shield`.
+- Getting outside the `shield` is easy.
+- Raven builds us a radiation `shield`.
+- They're outside the beaming `shield`.
+- It is my sword and my `shield`, macey.
+- I know how to get outside the `shield`.
+- When `shield` collapsed, i took ava in.
+- You use 'em like some sort of `shield`.
+- You won't survive outside the `shield`.
+- I couldn't lower the `shield` if i tried.
+- The sled as a `shield`.... do what i say.
+- To get me through the radiation `shield`.
+- Triangulate fire on any `shield` impacts.
+- I am his `shield` and his sword i was right.
+- I won't have time to take the `shield` down.
+- Sir, we've lost the rear deflector `shield`.
+- We'll meet at the `shield` generator at 0300.
+- It seems to me that keyser sate is a `shield`.
+- What, now you're afraid to leave the `shield`?
+- Have everyone not holding a `shield` man a bow.
+- He is like the baddest asian `shield` they got.
+- Clarke gets the `shield` down "who played batman.
+- And the `shield` will prevent more from coming in.
+- Go to him, you lower the `shield`, we do the rest.
+- It should be good for hours -- `shield` your eyes!
+- She'll bring the `shield` down for the rest of us.
+- At present, he's surrounded by a magnetic `shield`.
+- Her friends found out and got her past the `shield`.
+- He's resetting his `shield` harmonics... make it so.
+- Taken by them beyond the `shield`, give me the keys.
+- Everyone we care about, just one outside the `shield`.
+- The radiation `shield` has kept us safe for 200 years.
+- They knew we'd lower the `shield` to let them back in.
+- And, after that, i'll decide if you keep your `shield`.
+- He can walk it right through the `shield` and deploy it.
+- Prying open the subassembly, you took down the `shield`?
+- Scan for `shield` impacts and stand by photon torpedoes.
+- Or you fail to take down the eye, the radiation `shield`.
+- But others at `shield` saw an opportunity in my affliction.
+- Which means the `shield` needs to be down before it starts.
+- Casper lindley, knight of the blue `shield`, at your disposal.
+- They'll know everything we need to build a radiation `shield`.
+- His `shield`... the inscription on sir richard's `shield`...?
+- Good... the slow blade penetrates the `shield`... but look down.
+- Than using a massacre as a distraction to get the `shield` down.
+- That's the second time the `shield`'s been breached in two days.
+- Sanctum was colonized by a team from earth heat `shield`... good.
+- The power is out, the `shield` is down, what have you got to lose?
+- Do you promise to `shield` him against the wickedness of the world?
+- A small rebel force has penetrated the `shield` and landed on endor.
+- If we don't get the `shield` down, they kill the hosts, it's too soon.
+- They got through the `shield` moving east you got yourself a mechanic.
+- Sir, if we fire a tachyon burst, it may force him to reset his `shield` harmonics.
+- Elias: ♪ i'm walking in this cloud ♪ escort this woman past the `shield` right now.
+- He's the guard who lowered the `shield` papa, sweet papa, may i sit on santa's lap?
+- They think they have some invisible `shield` thing going, like an optical illusion.
+- When we were up there, i could have opened a backdoor first we need to lower the `shield`.
+                 

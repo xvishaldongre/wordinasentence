@@ -1,0 +1,79 @@
+---
+title: "museum in a sentence | museum example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "museum"
+---
+- He's a `museum` piece.
+- You are this `museum`.
+- The `museum` is in debt.
+- We all love the `museum`.
+- In the field `museum` once.
+- I own a comic book `museum`.
+- It's igor at the wax `museum`!
+- Milo -- it's for the `museum`.
+- Invitations: the `museum` gala.
+- Got lost in his own `museum`, huh?
+- Some `museum` director disappeared.
+- There is no `museum` in iskenderun.
+- Are we all `museum` bigots in maine?
+- He's done some work with our `museum`.
+- My sister died in that `museum` attack.
+- Oh yeah, murder `museum`... sounds fun.
+- The `museum`'s divided into five cells.
+- There's a little `museum` here in town.
+- You said you had plans of the `museum`.
+- When it got to the `museum`, it hatched.
+- It's all flowing toward the `museum`.
+- Ouch.. let's go to the carnegie `museum`.
+- The `museum` ain't going to teach itself.
+- Where did you get those from, a `museum`?
+- Sure, i like my leopards up at the `museum`.
+- John made quite a study of the whole `museum`.
+- They oughtta hang you in a `museum` somewhere.
+- That's how he got from the boat to the `museum`!
+- Where is the film crew from the british `museum`?
+- I've read about the `museum`'s financial troubles.
+- There's some kind of animal loose in the `museum`.
+- It's still there, the cannon, outside the `museum`.
+- A `museum` in new york sent us some additional back up.
+- The `museum` at walston lane does well enough, and why?
+- It's only on exhibit at the queen's `museum` this month.
+- You know marcus -- he got lost once in his own `museum`!
+- The way he'd take me to the science `museum` once a year.
+- This means there must be an animal loose in the `museum`!
+- It's such a treat to go through a `museum` with frederick.
+- `Museum` huh, haven't been there since my husband left me.
+- Or forget the `museum` -- maybe they should just hang you.
+- How come this is the only locked door around this `museum`?
+- The batcomputer tracks him heading for the gotham `museum`.
+- Captain spaulding's `museum` of madmen and monsters... cool.
+- It's the site of their new `museum` and we're taking it over.
+- There were crates from this `museum` in the hold of the boat.
+- Get ready for this... there's a `museum` of murder and mayhem.
+- Besides, i think the director of the `museum` is expecting you.
+- My father is the british `museum`'s most respected archeologist!
+- The wonder house comma as the natives called the lahore `museum`.
+- But as cuthbert so tactfully put it, the `museum` needs new blood.
+- Every valuable object in the `museum` carries a small electronic chip.
+- Zammito got to a few key security guards at the metropolitan `museum`.
+- I thought you were going to stay in the `museum` and round up the thugs.
+- It's been preserved exactly as it was a hundred years ago as a `museum`.
+- Only about five percent of the `museum` collection is actually on display.
+- You said john whittlesley made a study of your blueprints of the `museum`.
+- Even if you could get into the `museum`, the mask bas its own security system.
+- It's a syndicated show out of.. you guys are from the british `museum`, right?
+- Jim, there's a little hokey-pokey wax `museum` opening up down on 14th street.
+- Who needs a curator of plant biology in a `museum` with one exhibit on plants?
+- She'll take you to the `museum`, maybe to a movie if you play your cards right.
+- Your contributions to the `museum` over the years have been extremely generous.
+- You have to meet with `museum` security so we can make a decision about tonight.
+- I had no idea the `museum` had a complete collection of piranesi's forum sketches.
+- Didn't mom mention there was something...something at the `museum` of broadcasting?
+- The `museum` * financing fell out, so i thought * your clients might be interested.
+- Well, now that you've had your history lesson, i think i'll get on to the `museum`.
+- You know, the place where you gave the bad guys the codex.... the mayflower `museum`.
+- I've had an automatic tracer on this number ever since he tracked you to the `museum`.
+- But there's really not much to do here and they might need some back-up at the `museum`.
+- At the `museum` today i could have sworn that terrible painting of vigo looked right at me.
+                 

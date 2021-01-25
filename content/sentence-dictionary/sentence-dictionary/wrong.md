@@ -1,0 +1,107 @@
+---
+title: "wrong in a sentence | wrong example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wrong"
+---
+- But maybe i'm `wrong`.
+- But they were `wrong`.
+- Echo, this is `wrong`.
+- Everything is `wrong`.
+- Going the `wrong` way.
+- I guess i was `wrong`.
+- I know, i was `wrong`.
+- I might do it `wrong`.
+- It was `wrong`, henry!
+- Ned is `wrong` for it.
+- Oh, nothing's `wrong`.
+- Raven, what's `wrong`?
+- _ something's `wrong`.
+- Something was `wrong`.
+- Sorry, `wrong` answer!
+- Terry, what's `wrong`?
+- That's what's `wrong`.
+- The set-up is `wrong`.
+- They were all `wrong`.
+- This couch is `wrong`.
+- This is `wrong`, alan!
+- Well, she was `wrong`.
+- Well you were `wrong`!
+- What could go `wrong`?
+- What did i do `wrong`?
+- What's `wrong`, chief?
+- What's `wrong`, danny?
+- What's `wrong`, ellen?
+- What's `wrong`, honey?
+- What's `wrong`, jimmy?
+- What's `wrong`, monty?
+- What's `wrong`, moses?
+- What's `wrong`, trash?
+- You read that `wrong`.
+- You're `wrong`, frank.
+- You've got it `wrong`.
+- You were dead `wrong`.
+- Alright, i was `wrong`.
+- But i could be `wrong`.
+- Doctor, what's `wrong`?
+- I did nothing `wrong`.
+- ...if they're `wrong`?!
+- I think that's `wrong`.
+- Jasper, what's `wrong`?
+- Jim -- what's `wrong`?!
+- Johnny, what's `wrong`?
+- Krusty, what's `wrong`?
+- Miller, what's `wrong`?
+- Niylah, what's `wrong`?
+- No...no you're `wrong`.
+- Nowt `wrong` with them.
+- One of them is `wrong`.
+- Something goes `wrong`.
+- Something went `wrong`.
+- Stop me if i'm `wrong`.
+- Tell me if i'm `wrong`.
+- Tell me what's `wrong`.
+- That's the `wrong` one.
+- That's the `wrong` way!
+- Then prove her `wrong`.
+- What did i do `wrong`?!
+- What if you're `wrong`?
+- What's `wrong`, doctor?
+- What's `wrong`, juliet?
+- What's `wrong`, kittle?
+- What's `wrong`, mother?
+- What's `wrong`, nathan?
+- What's `wrong`, norman?
+- What's `wrong`, scully?
+- What's `wrong` with it?
+- What's `wrong` with it?
+- What's `wrong` with me?
+- What's `wrong` with us?
+- What... what's `wrong`?
+- `Wrong` on both counts.
+- You got it all `wrong`.
+- You're not far `wrong`.
+- You're `wrong`, george.
+- You're `wrong`, wesley.
+- You were `wrong`, suze.
+- She's never `wrong`.
+- That's just `wrong`.
+- As usual you're `wrong`.
+- Bellamy, what's `wrong`?
+- But if you're `wrong`...
+- But i'm usually `wrong`.
+- But maybe i was `wrong`.
+- Couple of `wrong` turns.
+- Even when she's `wrong`?
+- How could it be `wrong`?
+- I see that it's `wrong`!
+- I wanna be `wrong` here.
+- I was `wrong` about you.
+- Man, i was ever `wrong`.
+- Maybe i was `wrong`, ok?
+- Nothing `wrong` with us!
+- Nuthin' `wrong` with it.
+- Obviously i was `wrong`!
+- Patrick, what's `wrong`?
+- Something feels `wrong`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "blame in a sentence | blame example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blame"
+---
+- But don't `blame` him.
+- Hey, don't `blame` me!
+- I do `blame` you, bob.
+- I don't `blame` you...
+- She won't `blame` you.
+- To `blame`... ...-ple.
+- Who could `blame` her?
+- Who could `blame` him?
+- You always `blame` me.
+- Don't `blame` yourself.
+- The army is to `blame`.
+- They don't `blame` you.
+- Well, don't `blame` me.
+- You can't `blame` them.
+- I don't `blame` him!
+- Can you `blame` them?...
+- Don't `blame` her, rafe.
+- Don't `blame` me for it.
+- Ethan takes the `blame`.
+- I `blame` myself, sonny.
+- I don't `blame` the guy.
+- I don't `blame` you man.
+- Just do not `blame` her!
+- Not that i `blame` them.
+- I `blame` tony pee-pants!
+- No one would `blame` you.
+- She's the one to `blame`.
+- You want to `blame` beth.
+- Does she `blame` it on me?
+- I `blame` myself for that.
+- I can't say i `blame` you.
+- I don't `blame` you, earl.
+- I don't `blame` you, niki.
+- There's no one to `blame`.
+- I can't say i `blame` them.
+- No one's gonna `blame` you.
+- Can't `blame` me for trying.
+- I mean, can you `blame` her?
+- I mean, who can `blame` him?
+- Who do you `blame` for that?
+- Who they gonna `blame` then?
+- `Blame` it on my big brother.
+- `Blame` the damn post office.
+- I `blame` you for everything.
+- I don't `blame` you for that.
+- There's no one to `blame`.
+- Beside, how can i `blame` you?
+- `Blame` the nigger, then, huh?
+- Don't `blame` yourself trevor.
+- I'll have to take the `blame`!
+- Look, vi, i don't `blame` you.
+- You `blame` me for everything!
+- Don't `blame` yourself, deputy.
+- It isn't a question of `blame`.
+- I wouldn't `blame` you, either.
+- They `blame` me for everything.
+- Wouldn't `blame` him if he was.
+- Yeah, well i don't `blame` him.
+- You `blame` everything on kids.
+- You cannot `blame` me for this.
+- Believe me, i don't `blame` you.
+- But i don't `blame` you, truman.
+- But you can hardly `blame` them.
+- Don't `blame` me, `blame` heather.
+- I can't `blame` anything on hal.
+- Well, who can `blame` them, sir?
+- Because i'd be to `blame`, right?
+- Beside, i can hardly `blame` you.
+- I know where the `blame` belongs.
+- I'm prepared to take the `blame`.
+- They'll `blame` us for this, too.
+- Will, you can't `blame` yourself.
+- Yes... and i'm to `blame` for it.
+- You want to `blame` someone else.
+- I didn't come here to `blame` you.
+- I wouldn't `blame` you if you did.
+- No one would `blame` me if i left!
+- Because i was partially to `blame`.
+- I don't `blame` you for being sore.
+- She wasn't to `blame`, mr. dickson.
+- You cant `blame` her for that, hon.
+- I can't `blame` the ocean--it's you.
+- It's your fault - you're to `blame`.
+- Then `blame` the one who made her...
+- They `blame` you for the compromise.
+- Blow up a building and `blame` a nut.
+- I don't `blame` them for being angry.
+- Well you can't `blame` them in a way.
+- I don't `blame` them for betraying me.
+- I don't `blame` you for getting angry.
+- Do you `blame` yourself for helping me?
+- I don't `blame` you for doubting, abby.
+- Place the `blame` where it belongs, no.
+- Then `blame` you if you can't solve it.
+- They'll `blame` the bloody housekeeper.
+- Hey, i don't `blame` you for bein' sore.
+- I'm the one who has to take the `blame`.
+- You have no one to `blame` but yourself.
+- I can't `blame` you that it happened.
+- You gonna lay the `blame` at my feet?
+                 

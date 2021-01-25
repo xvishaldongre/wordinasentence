@@ -1,0 +1,54 @@
+---
+title: "imagination in a sentence | imagination example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "imagination"
+---
+- `Imagination`, my butt.
+- Use your `imagination`!
+- Use your `imagination`.
+- Just your `imagination`.
+- That dazzling `imagination`.
+- It's your `imagination`, kid.
+- Roki has a vivid `imagination`.
+- What an `imagination` you have!
+- You lack `imagination`, fergus.
+- ...a figment of my `imagination`.
+- My `imagination` isn't that good.
+- You have an active `imagination`.
+- Bart has to use his `imagination`.
+- You have a fertile `imagination`.
+- Did conrad draw on his `imagination`?
+- I had `imagination`, cleverness, joy.
+- Well, it shows `imagination`, anyhow.
+- I told you i had a vivid `imagination`.
+- Or else use your fucking `imagination`.
+- She's a figment of my own `imagination`.
+- I'm just a figment of your `imagination`.
+- Oh - draw on my `imagination`, i suppose.
+- `Imagination` wants to fill in the blanks.
+- The man said just to use my `imagination`.
+- They came out of somebody's `imagination`.
+- That's no excuse for a morbid `imagination`.
+- The thick brow, so lacking in `imagination`.
+- I feel that wasn't just my `imagination`.
+- Deeds is drawing on his warped `imagination`!
+- You do have a vivid `imagination`, mr lombard.
+- As if the organ of the `imagination` has dried up.
+- It stunts the mind and shrivels the `imagination`.
+- Nobody can say you don't have a vivid `imagination`.
+- [man] now, you gotta use your `imagination` here, okay?
+- Agent little weasel, federal bura of your `imagination`.
+- They have no theater, no `imagination` these scientists.
+- Those which stir the `imagination` as well as the intellect.
+- You didn't come to me because you have a rich `imagination`.
+- I must concetrate my `imagination`...to creat a new...reality!
+- Even the space cowboy can't... you gotta use your `imagination`.
+- Is it my `imagination` or are you just going through the motions?
+- Somehow it was different in my `imagination` when i thought about it.
+- I feel like it was a failure of the `imagination` on our part naming you jonah.
+- I -- i didn't really pay much attention-- bobby has such an active `imagination`.
+- It takes a little `imagination`, but, uh... no chance that thing'll drive, right?
+- You're a fucking figment of my `imagination`... you're psychogenic fugue state...
+- I came from your memory and your `imagination` and i will torture you no matter what.
+                 

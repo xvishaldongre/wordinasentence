@@ -1,0 +1,107 @@
+---
+title: "country in a sentence | country example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "country"
+---
+- I like you, `country`.
+- In the same `country`.
+- It's a `country` club.
+- It's a free `country`!
+- It's a free `country`.
+- Just name a `country`.
+- `Country` fa' fa' away.
+- Finland is a `country`.
+- In your home `country`?
+- I revere this `country`.
+- Welcome to my `country`.
+- Cincinnati `country` day.
+- Do it for your `country`.
+- It's the `country`, john.
+- The `country` would stop.
+- This here's my `country`.
+- I fought for my `country`.
+- New to the `country`, kid?
+- "the `country` is at war."
+- The `country`'s loving it.
+- He's leaving the `country`.
+- I'll move to the `country`.
+- It's a beautiful `country`.
+- My `country` needs justice.
+- My lady's `country` cousin.
+- This `country` does it all.
+- Tibet is a great `country`.
+- It's a nice, safe `country`.
+- Mexico is a large `country`.
+- Whole `country`'s fucked up.
+- Your `country` and your job.
+- Bleeding on a `country` road.
+- But this `country` is better.
+- Gods `country`, promise land.
+- Have you lost your `country`?
+- It's a `country`-rock ballad.
+- See the `country` you served.
+- The `country` across the sea.
+- The whole `country`, in fact.
+- Don't you love your `country`?
+- Half the `country`'s doing it!
+- I always liked `country` boys.
+- I don't drive cross `country`.
+- The `country` boy's about due.
+- You'll be up in the `country`?
+- You were out of the `country`.
+- In my `country`, i am a magico.
+- In our time - in our `country`?
+- It went all over the `country`.
+- I will not betray my `country`.
+- The `country` makes me nervous.
+- This is my `country`, you know.
+- Top brain man in the `country`.
+- You've done for this `country`.
+- Is why i left the old `country`.
+- It's a free `country`, isn't it?
+- It's, uh... beautiful `country`.
+- My `country` asked for the best.
+- This is "god's `country`," john.
+- What's this `country` coming to?
+- You come from another `country`.
+- I'll have to leave the `country`!
+- I told him it wasn't a `country`.
+- This `country` is hard on people.
+- We gotta get outta the `country`!
+- Do i get a `country`-western name?
+- I once lived in a `country` house.
+- Look -- i come from one `country`.
+- Not exactly a big ocean `country`.
+- ...you've done for this `country`.
+- He usually isn't in this `country`.
+- Now, let's say the whole `country`.
+- That is why i am in your `country`.
+- Very beautiful `country` up here...
+- Whole `country` or just hereabouts?
+- Will he show mercy to my `country`?
+- Before coming here, in my `country`.
+- I got a hunch he fled the `country`.
+- I refuse to drive in this `country`.
+- It's a pretty part of the `country`.
+- It's happening across the `country`!
+- Not for strangers; for my `country`.
+- This `country` trained me to kill...
+- Wonderful `country`, wonderful golf.
+- Faggot, y'know, hated this `country`.
+- It is my job to protect my `country`.
+- Know how he gets it in the `country`?
+- My loyalty was never to my `country`.
+- Nothing about serving your `country`?
+- They could poison half the `country`.
+- We'll be out of the `country` friday.
+- Can you fall in love with a `country`?
+- Outa the `country`, so no little jets.
+- That's what made this `country` great.
+- What did he ever do for his `country`?
+- Ask what you can do for your `country`.
+- Biggest man in the `country`, isn't he?
+- Did you say you were a "`country` boy?"
+- I told him to get out of the `country`.
+- Kids are what's ruining this `country`.
+                 

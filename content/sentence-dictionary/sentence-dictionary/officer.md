@@ -1,0 +1,107 @@
+---
+title: "officer in a sentence | officer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "officer"
+---
+- I'm a bendu `officer`.
+- In my eyes, `officer`.
+- Well hello, `officer`.
+- I'm a police `officer`.
+- Security `officer`, eh?
+- Are you `officer` 412/l?
+- Tell 'em `officer` down.
+- `Officer`, i can explain.
+- Deputy resource `officer`.
+- Good afternoon, `officer`.
+- I'm an american `officer`.
+- I'm not a bendu `officer`.
+- The next plane, `officer`.
+- You follow this `officer`.
+- You're a police `officer`.
+- This class `officer`...
+- I am a starfleet `officer`.
+- It certainly is, `officer`.
+- `Officer`: friend of yours?
+- How is `officer` stuart?
+- Anything you say, `officer`.
+- Here, `officer`, take me in.
+- Thank you, `officer` ripley.
+- What's your name, `officer`?
+- Who's your parole `officer`?
+- He killed a police `officer`.
+- `Officer` all sleep now, yes?
+- Sir, i'm a british `officer`.
+- What were we doing `officer`?
+- And deputy resource `officer`.
+- ... he's an amazing `officer`.
+- I shine the `officer`'s shoes.
+- Thanks `officer` park...vance.
+- Thank you, `officer` fuckmeat.
+- They need a medical `officer`.
+- What's the problem, `officer`?
+- What's the trouble, `officer`?
+- I'm the local police `officer`.
+- Not with an `officer`, no, sir.
+- That's right, a loan `officer`.
+- Well, i'm an `officer`... okay?
+- He assaulted a police `officer`.
+- Well, `officer` -- do your duty.
+- I didn't kill `officer` harrison.
+- Who's your commanding `officer` ?
+- But white is a valuable `officer`.
+- He knew the immigration `officer`.
+- Isn't that an `officer`'s uniform?
+- `Officer`: --will you let us know?
+- Who's the investigating `officer`?
+- You're different, `officer` white.
+- Chief content `officer` of netflix.
+- Gee, `officer`, they went that way.
+- `Officer` hector sanchez, sergeant.
+- The `officer` is writing this down.
+- What do you want, <u>`officer`</u>?
+- Helluva man -- remarkable `officer`.
+- `Officer`: all right, everyone, 360.
+- They sure ain't `officer` cufflinks.
+- You are `officer` richard rottovich.
+- Even had an `officer`, just like you.
+- It's special `officer` tannen to you.
+- Those sure ain't `officer` cufflinks.
+- Walt waldowski, the dental `officer`.
+- An `officer` of the law, just like us.
+- Hey, i'm a police `officer`, remember?
+- I'm going to level with you `officer`.
+- It was nice to meet you `officer` jim.
+- There are degrees of truth, `officer`.
+- You're `officer` of the watch, george.
+- You're still a police `officer`, jeff.
+- `Officer` pappas, i'm glad you're here.
+- These sure ain't `officer`'s cufflinks.
+- You know why i'm such a good `officer`?
+- He was a very promising young `officer`.
+- `Officer`, i know what you're gonna say.
+- Youngest `officer` promoted to sergeant.
+- You're a good `officer`, major mandrake.
+- Duty `officer` so note in the ship's log.
+- Hell, `officer`, i told her to slow down.
+- License as a commercial flight `officer`.
+- But all the decision of that `officer` ...
+- The pleasure's all yours, `officer` gates.
+- What happened to your leg there `officer`?
+- I've got a parole `officer` waiting for me.
+- Merry christmas yourself, <u>`officer`</u>.
+- `Officer` taylor, how are you this evening?
+- Eh, `officer`, you might turn off the radio.
+- `Officer`, i killed those people last night.
+- Well, your boy assaulted a police `officer`.
+- Actually... you did your homework, `officer`.
+- Lieutenant wickwire is your senior `officer`.
+- This time next year i'll be a loan `officer`.
+- You wanna disrespect an `officer` of the law?
+- This would be `officer` walter sobozinski.
+- Good morning, sir, i'm chief `officer` barnes.
+- The radio contact said one `officer` had died.
+- You sound like my fucking probation `officer`.
+- There's a bajoran band at the `officer`'s mess.
+- Tomorrow i'll talk to your probation `officer`.
+                 

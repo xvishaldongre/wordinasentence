@@ -1,0 +1,102 @@
+---
+title: "cream in a sentence | cream example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cream"
+---
+- Ready for ice `cream`?
+- Who's my `cream` puff?
+- I... and... ice `cream`.
+- Ice `cream` truck - day.
+- Where's the ice `cream`?
+- You buy the ice `cream`.
+- So is my ice `cream`.
+- `Cream` of the crop, huh?
+- Don't `cream` your pants.
+- I don't have any `cream`.
+- Ice `cream`'s not workin'.
+- You take `cream` or sugar?
+- Now we get ice `cream`.
+- Can we get some ice `cream`?
+- Everybody loves ice `cream`.
+- Ice `cream` truck/box - day.
+- Ice `cream` truck/cab - day.
+- Maybe even some ice `cream`.
+- No harvey's bristol `cream`?
+- Can we get ice `cream` after?
+- Do you like ice `cream`, doc?
+- Ice `cream` truck/cab - dawn.
+- It's better than ice `cream`.
+- ...the ice `cream` for money!
+- And, uh... ice... ice `cream`.
+- I brought you some ice `cream`.
+- Should we stop for ice-`cream`?
+- You are a goddamn `cream` puff!
+- You like that ice `cream`, huh?
+- You ready for some ice `cream`?
+- You wanna get some ice `cream`?
+- You look like melted ice `cream`.
+- You guys know what ice `cream` is.
+- ♪ `cream` cheese but no lox ♪ now...
+- Well, the `cream` of society awaits.
+- How did you know i loved ice `cream`?
+- You gave him ice `cream`, didn't you?
+- I was just getting to the ice `cream`.
+- Bring some ice `cream`, i'm burning up.
+- The ice `cream` or mel gibson's bottom?
+- I had some licorice ice `cream` earlier.
+- I was promised ice `cream` 50 miles ago.
+- I really wanted some ice `cream` too.
+- Too much cake and ice `cream`, i suppose.
+- Free ice `cream` i don't like most people.
+- You're not gonna stay for the ice `cream`?
+- Andy's ice `cream` factory/stairwell - day.
+- He was slipping her a little extra `cream`.
+- There's a chocolate `cream` filled in there?
+- The sooner the teachers can get ice `cream`.
+- I call him the boy with the ice `cream` face!
+- You want a toasted bagel with `cream` cheese?
+- Andy's ice `cream` factory/andy's office - day.
+- Sugar and `cream` for goetz; i take mine black.
+- The chocolate pistachio cherry ice `cream` treat.
+- Who drove the ice `cream`... you did help a little.
+- There's a razor and shaving `cream` in the bathroom.
+- Used to say, the `cream` of america: rich and thick.
+- So we want your best girls, the `cream` of your crop.
+- There was a wide-brimmed `cream` fedora... of course.
+- You like a little coffee with your `cream` and sugar?
+- I am making headway on a cure, - extra whipped `cream`.
+- Wendy... how would you like to go get some ice `cream`?
+- I was thinking either the peach moire or `cream` damask.
+- Sat down with a pretty girl and had an ice `cream` soda.
+- We'll have so much ice `cream`, we'll never stop puking.
+- Alice... hey joey, how `bout a cocoa, double whip `cream`.
+- Cut me off a hunk a that banana `cream`, and a cuppa java.
+- See, they put shaving `cream` all over that mailbox there.
+- You start talking to them about puppy dogs and ice `cream`.
+- Banana `cream`, pineapple `cream`, chocolate `cream`--and apple.
+- Isn't this better than haagen-dazs butter pecan ice `cream`?
+- Now, if you were a flavor of ice `cream`, what would you be?
+- Pappas, that other guy was unloading ice `cream` into a freezer.
+- `Cream` cheese mixed with granulated sugar and suffused with rum.
+- I recommend... applying the `cream` while the skin is still damp.
+- I'd have gotten you some `cream` but it meant buying a whole pint.
+- Come on, it's your turn to sling ice `cream`, my turn to translate.
+- And i would be happily slinging ice `cream` with some other schmuck.
+- We've got real strawberries growing outside, we've got real `cream`.
+- He'll be here in a little while, he's takin' me to get an ice `cream`.
+- We're never gonna find help, and your ice `cream` buddies are screwed.
+- Dude, she's eight years old, just get her some ice `cream` or something.
+- That dumbass probably put my chocolate `cream` filled in there by mistake.
+- I don't know if you have russian ice `cream` or if that's considered gelato.
+- Babe... but a couple of kids who scoop ice `cream` for a living - wait, what?
+- How about this afternoon i pick you up from school and we go get ice `cream`?
+- Back in prison, guy like you, place like that, you were ice `cream` for freaks.
+- We sold so much ice `cream`, they had to get a second shipment in from michigan.
+- Take out my chocolate `cream` filled, put one of these roasted coconut roger, no.
+- You use evyan skin `cream`, and sometimes you wear l'air du temps, but not today.
+- You're like a pork chop dolloped with heavy `cream` -- the abbe's sending me away.
+- Nothing will happen to them well, he wasn't much fun, so we went out for ice `cream`.
+- And, in the meantime, sling ice `cream`, if you get stopped, you show them my work orders.
+- Hasn't he got enough problems, or didn't you notice that's not `cream` soda on his breath?
+                 

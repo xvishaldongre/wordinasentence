@@ -1,0 +1,8 @@
+---
+title: "Dickinson's in a sentence | Dickinson's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Dickinson's"
+---
+- That's thelma `dickinson's` husband.
+                 

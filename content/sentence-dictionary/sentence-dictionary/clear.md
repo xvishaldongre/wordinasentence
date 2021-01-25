@@ -1,0 +1,107 @@
+---
+title: "clear in a sentence | clear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "clear"
+---
+- I gave `clear` orders.
+- I made myself `clear`.
+- It was all `clear` ...
+- Kip's not `clear` yet.
+- Let the smoke `clear`.
+- Loud and `clear`, doc.
+- Loud and `clear`, kid.
+- The charge is `clear`.
+- All `clear`, gentlemen.
+- It's `clear` back here.
+- Make sure it's `clear`.
+- My thinking is `clear`.
+- Rotted `clear` through.
+- The oncoming's `clear`.
+- The town looks `clear`.
+- They were real `clear`!
+- We have to `clear` out.
+- You sure we're `clear`?
+- Is that totally `clear`?
+- Sector d is all `clear`.
+- The exit is not `clear`.
+- The map is very `clear`.
+- Uh, so am i all `clear`?
+- All right, we're `clear`.
+- All will be made `clear`.
+- `Clear` him off the road.
+- Do i make myself `clear`?
+- It's awfully `clear` now.
+- Maybe on a `clear` night.
+- Now everything's `clear`.
+- Oh, it's all `clear` now.
+- Sounds perfectly `clear`.
+- That's perfectly `clear`.
+- Ellie, `clear` your place.
+- Fire, or `clear` out, ice.
+- How `clear` is manchester?
+- Loud and `clear`, shepard.
+- Okay, sugar - all `clear`.
+- They'll `clear` all right.
+- This `clear` moon's house?
+- You *got* to keep `clear`.
+- You're `clear` to come up.
+- Are you `clear` about that?
+- `Clear`, come on, let's go.
+- `Clear` enough, moneypenny.
+- Everything will be `clear`.
+- Have i made myself `clear`?
+- Just `clear` out, will you?
+- My family's in the `clear`.
+- Nothing is `clear` anymore.
+- She made that real `clear`.
+- That sounds `clear` to you?
+- Whadja `clear` on the book?
+- What's less `clear` is why.
+- You made that very `clear`.
+- But the message was `clear`.
+- `Clear` and open on my mark.
+- Do i make myself... `clear`?
+- I hear you loud and `clear`.
+- I'm getting `clear` of this.
+- I'm getting you `clear` too.
+- Lungs are `clear`, no fever.
+- Pike: the charge is `clear`.
+- Six to `clear` the roadwork.
+- Tell me when you're `clear`.
+- The need to know is `clear`.
+- They are `clear`, my master.
+- We just stay `clear` of him.
+- We need to `clear` the area.
+- You gotta keep `clear`, tom.
+- You said it was all `clear`.
+- We gotta be `clear` here.
+- [beep] left corridor `clear`.
+- Here, let's `clear` the path.
+- I can stay `clear` that long.
+- I hear that loud and `clear`.
+- I hope i made myself `clear`.
+- It was there, `clear` as day.
+- Keep this whole area `clear`.
+- Let me get one thing `clear`.
+- Maybe i wasn't being `clear`.
+- That radiation still `clear`?
+- They really `clear` the mind.
+- `Clear` logan-5 and francis-7.
+- `Clear` my relationship karma.
+- Dock signals `clear`, captain.
+- Let's get really `clear` here.
+- Secondary containment `clear`.
+- That should `clear` things up.
+- The exodus charter is `clear`.
+- Always made that `clear` to me.
+- We get `clear` of the king.
+- `Clear` the bridge, captain...?
+- He's `clear` of the horse, ned.
+- I'm still not `clear` on chaos.
+- I open the door, i get `clear`.
+- I think its meaning is `clear`.
+- I think it's perfectly `clear`.
+- This `clear` layer in glycerin.
+- We have orion p-11 as `clear` !
+                 

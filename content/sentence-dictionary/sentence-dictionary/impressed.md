@@ -1,0 +1,74 @@
+---
+title: "impressed in a sentence | impressed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "impressed"
+---
+- Well, i'm `impressed`.
+- Aren't you `impressed`?
+- Hugh, i'm `impressed`..
+- I'm really `impressed`.
+- Cause i was `impressed`.
+- I'm `impressed`, pierce.
+- Really, i'm `impressed`.
+- I was fairly `impressed`.
+- Not `impressed`, are you?
+- I'm `impressed`, anderton.
+- Well, i'm not `impressed`.
+- But are you -- `impressed`?
+- I was `impressed` at first.
+- Don't be `impressed` by him.
+- I'm `impressed`, mr. chekov.
+- I'm `impressed` you can sew.
+- I must say, i am `impressed`.
+- The judge was very `impressed`.
+- What `impressed` you about him?
+- I'm actually kind of `impressed`.
+- She didn't seem that `impressed`.
+- You were `impressed` with something.
+- Come on, you know you're `impressed`.
+- I can also pretend to be `impressed`.
+- So you've `impressed` all the others.
+- The boys walk up to him, `impressed`.
+- Well, i have to say, i'm `impressed`.
+- Are you `impressed` with our anastasia?
+- Don't be too `impressed` with yourself.
+- Was extremely `impressed` by my father.
+- You're `impressed` with her, aren't you?
+- Excuse me, andy... we are all `impressed`.
+- I must say i'm `impressed`, jasper, murphy?
+- You're too easily `impressed` with yourself.
+- So they were really `impressed` with you at work.
+- There's a qualification to you being `impressed`?
+- I was just so `impressed` with your wrestling moves.
+- Not `impressed` exactly -- but a break in the clouds.
+- I see i'm not the only one `impressed` by your courage.
+- Even donovan was `impressed`, and he's a total hard-ass.
+- I have been greatly `impressed` by your accomplishments.
+- Sugai's not going to be `impressed` with your gun, nick.
+- I'm sure that was the only thing he was `impressed` with.
+- It's obvious this fellow williams is `impressed` with you.
+- Daddy hasn't been `impressed` with anything i've ever done.
+- I am equally `impressed` with your knowledge of the market.
+- I was `impressed` with what you said in english class today.
+- What if-- hey, if you live another week i'll be `impressed`.
+- Well i just want you to be `impressed` with what i <u>do</u>.
+- Harvard won't be `impressed` that you aced "history of lycra".
+- If you're going to openly be a bitch.... color me `impressed`.
+- I'm `impressed`, jasper, the grounders attacked mount weather.
+- I am most `impressed` with your punishment of wife beaters.
+- Rick, that is the first time i have ever seen you so `impressed`.
+- No conscripts, no `impressed` recruits, just professional killers.
+- George was so `impressed` he hired him when he divorced his second.
+- Look, we're all very `impressed` with andy's new toy -- laser-envy.
+- I'm `impressed` that you took the initiative to go there and get it.
+- Well, i, my most unabominable snowman, have been `impressed` by you.
+- Besides; i am most `impressed` with your performance in this -- crises.
+- Besides... you've already `impressed` everyone you need to, haven't you?
+- And as your chancellor, it is my hope that you see this `impressed` noise.
+- He was so `impressed` with the marquis' tale that he chose to re-enact it, yes?
+- If you're as `impressed` to see me as i am to see you, you're very `impressed` indeed.
+- You seem to believe that because you happened to predict this, we should be `impressed`.
+- He taught you how to dress and talk and think and i am very `impressed` with the results.
+- I'm `impressed`: i don't think evelyn's ever said those words to anything with genitalia.
+                 

@@ -1,0 +1,107 @@
+---
+title: "saved in a sentence | saved example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "saved"
+---
+- Delmar's been `saved`!
+- I `saved` some people.
+- She `saved` our lives.
+- We `saved` you a room.
+- You `saved` our lives.
+- You `saved` us, right?
+- A, i `saved` you first.
+- Bembry `saved` my life.
+- You `saved` me, scully.
+- You `saved` those kids.
+- You've `saved` nothing.
+- Bellamy, you `saved` me.
+- He `saved` indra's life.
+- He `saved` mrs. halpern?
+- I could've `saved` them.
+- `Saved` your life again.
+- `Saved` you the trouble.
+- Today you `saved` lives.
+- You have `saved` us all.
+- He `saved` my life, dick.
+- How much you got `saved`?
+- I `saved` their universe.
+- Ray, you `saved` my life.
+- The fish `saved` my life.
+- The tide `saved` me, mom.
+- I could have `saved` them.
+- I `saved` your life, peck.
+- I've `saved` ya life, gal.
+- `Saved` the best for last.
+- You `saved` my son's life?
+- Because he `saved` my life.
+- Clarke, you `saved` us all.
+- I think he `saved` my life.
+- `Saved` all our lives, doc.
+- `Saved` your... whaaaaaaat?
+- She just `saved` your life.
+- That thing `saved` my life.
+- We just `saved` your lives.
+- Who just `saved` the world.
+- Who just `saved` the world.
+- Who `saved` the human race.
+- You `saved` a lot of lives.
+- You `saved` my life, dulli.
+- You `saved` tristan's life.
+- You -- you `saved` my life!
+- I could have `saved` my mom.
+- In fact, he `saved` my life.
+- `Saved` the land from dying.
+- `Saved` your ass again jack.
+- Two lives `saved` by prayer.
+- You `saved` my life, archie.
+- You `saved` the ship, spock.
+- You `saved` the whole party.
+- But not before he `saved` us.
+- He just `saved` fifty people.
+- He `saved`... interrogate me.
+- He `saved` my life and yours.
+- I think he `saved` your life.
+- You `saved` me so many times.
+- A toddler you `saved` my life.
+- It's these men who `saved` us.
+- `Saved` you last night's, too.
+- She `saved` everyone here, uh!
+- She `saved` your life, parker.
+- So he `saved` your life, then?
+- They might have `saved` her...
+- They `saved` your life, right?
+- You know, you `saved` my life.
+- Your sister `saved` your life.
+- He `saved` your life out there.
+- It's the cold that `saved` you.
+- Jasper `saved` your life, maya.
+- Oh... my father `saved` us all.
+- That `saved` you from the pyre.
+- They `saved` your ass, convict.
+- You have `saved` my life today.
+- You `saved` me, you understand?
+- Blodreina `saved` my life, good.
+- Finn: lincoln `saved` my life.
+- You `saved` my life, monkeybone.
+- You've been `saved`, hallelujah!
+- at grounder `saved` our lives.
+- He `saved` a guy's life one time.
+- In my opinion he `saved` my army.
+- I think you've `saved` the earth.
+- I was `saved` at the last minute.
+- So, you `saved` money on my desk?
+- This place just `saved` his life.
+- We save those who can be `saved`.
+- You `saved` me from this fanatic.
+- You- you have `saved` our people.
+- I `saved` his life during the war.
+- I `saved` your life is what i did!
+- I would've `saved` your life, too.
+- Oh, lisa, sweetie, you `saved` me.
+- The police could have `saved` her.
+- Turns to cast, i `saved` the play.
+- We just `saved` a little baby boy.
+- We `saved` madi, gaia, and diyoza.
+- Who just `saved` your magical ass?
+                 

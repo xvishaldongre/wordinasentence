@@ -1,0 +1,98 @@
+---
+title: "awake in a sentence | awake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "awake"
+---
+- Doctor, he is `awake`.
+- Is jody still `awake`?
+- The forest is `awake`.
+- I need to stay `awake`.
+- Jesse, are you `awake`?
+- Keep her `awake`, okay?
+- Glad to see you `awake`.
+- Keep each other `awake`.
+- Keep me `awake`, willya?
+- Son ... are you `awake`?
+- He was `awake` all night.
+- I'll try to stay `awake`.
+- I'm the only one `awake`.
+- Keep her `awake` somehow.
+- Stay `awake`, stay `awake`.
+- Call me when he's `awake`.
+- I'll try and stay `awake`.
+- Uh, bellamy she's `awake`.
+- Are you reasonably `awake`?
+- Glad to see you're `awake`.
+- What are you doing `awake`?
+- Hey, you guys still `awake`?
+- To be `awake` is to be alive.
+- Alan stayed `awake`, at least.
+- Blast it, i'm already `awake`!
+- He sure loves to stay `awake`.
+- How long have you been `awake`?
+- Oh, i'm fine, i'm wide `awake`.
+- Are you saying nobody's `awake`?
+- Half of us `awake` at all times.
+- When will the doctor be `awake`?
+- I've been `awake` for seven days.
+- No, we know that you're `awake`...
+- Ah, alex boy, `awake` at last, yes?
+- I want to <u>scare him `awake`</u>.
+- Thought i was the only one `awake`.
+- I'll send for you once he's `awake`.
+- I need something to keep me `awake`.
+- I was `awake` and he was in my room.
+- She's `awake` but she hasn't spoken.
+- Sorry, didn't know you were `awake`.
+- Are you with me...are you `awake`...?
+- To see them when he was `awake`, too.
+- Are you with me... are you `awake`...?
+- Are they dangerous when they're `awake`?
+- She was here ... you look `awake` to me.
+- If you're `awake`, that means i found it.
+- I have a few "`awake`" magazines for you.
+- ♪ we need you now ♪ are you guys `awake`?
+- I hope our noise did not keep you `awake`.
+- I don't remember ever feelin' this `awake`.
+- Maybe, but you'd be `awake` the whole time.
+- So what are you doing `awake` at this time?
+- Because it's not safe for you to be `awake`.
+- It's a zapper, it might help me stay `awake`.
+- Only when i'm `awake`... you busy after work?
+- No, you're `awake`, bill, and i'm dead serious.
+- He doesn't have to be `awake` to be on his feet.
+- But if i were you, i'd leave our guest is `awake`.
+- Um, well... can't you just force yourself `awake`?
+- Almasy checks to see if katharine is still `awake`.
+- Yes, because someone was always keeping me `awake`.
+- She don't seem the type to keep you `awake` praying.
+- I sleep like a baby for an hour then i'm wide `awake`.
+- It was a dream, you're `awake`, you're all right, now.
+- I've been `awake` for too long -- three or four nights.
+- ...when tonight they'll probably be keeping us `awake`.
+- ♪ i lie `awake` and watch it all ♪ lucas, what's going on?
+- He's `awake`, he's in the airlock, he's not wearing a suit.
+- We've got to keep her `awake` for the next couple of hours.
+- Were murdered by grounders, how many more of you are `awake`?
+- I'm going to check on her, and then i'm going to stay `awake`.
+- I just can't figure out how he's getting in when i'm `awake`...
+- On the morrow i'll be `awake` enough to see if dreams come true.
+- There's another passenger `awake`, a mechanic named jim preston.
+- Yeah, yeah, i was `awake` anyway so i figured� they got it made.
+- I have five children are gonna be `awake` in another hour and ...
+- So now you've seen him... what's the difference `awake` or asleep?
+- What you do with her after i'm gone doesn't keep me `awake` nights.
+- I'm a very light sleeper, traffic noise keeps me wide `awake` all night.
+- My mother says in this really low, but very `awake` kind of voice "what?"
+- You probably were half `awake` and saw me get nicked by that picture glass.
+- We better hope the trees get her ♪ i lie `awake` and watch it all ♪ so do we.
+- Krueger has to use my dreams, but he got to dan and greta while i was `awake`.
+- Defeats that keep you `awake`, that pound in your head like the hammer of fate.
+- I'm afraid to go to sleep, i'm afraid to stay `awake` - i'm ruining your party.
+- Or you can get those guns off us ♪ i lie `awake` and watch it all ♪ _ find will?
+- I love you, slay your demons when you're `awake`, as long as i see you again.
+- You ever have the feeling that you're not sure if you're `awake` or still dreaming?
+- You're lousy with a spear, oh, what, staying `awake` for 72 hours, so, we've got...
+- I don't know where he got the razor...but he cut off his own eyelids to stay `awake`.
+                 

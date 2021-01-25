@@ -1,0 +1,107 @@
+---
+title: "thirty in a sentence | thirty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thirty"
+---
+- I lost `thirty` there.
+- Make it four�`thirty`.
+- Seven `thirty`-five ..
+- `Thirty` five dollars.
+- `Thirty`, forty maybe.
+- `Thirty` meters or so.
+- About `thirty` minutes.
+- About `thirty` seconds.
+- A hundred an' `thirty`.
+- :i'm `thirty`-seven ...
+- It's only ten-`thirty`.
+- It's only two-`thirty`.
+- Should be one-`thirty`.
+- `Thirty` is base price.
+- You owe `thirty` grand.
+- Eleven `thirty` - jesus!
+- It�s ten `thirty`, jack.
+- Probably worth `thirty`.
+- That's `thirty` percent.
+- `Thirty` feet, at least.
+- `Thirty`-two and change.
+- In `thirty`-five minutes.
+- Is it gone four-`thirty`?
+- It's almost six `thirty`.
+- It's `thirty`-five cents.
+- Make it `thirty` minutes.
+- Nine-`thirty`, ten maybe.
+- That was at ten-`thirty`.
+- `Thirty` minutes maximum.
+- `Thirty` minutes or less.
+- `Thirty` seconds to drop!
+- `Thirty` years of misery.
+- Twenty or `thirty` grand.
+- You got `thirty` minutes.
+- `Thirty` to forty minutes.
+- Vacant for `thirty` years.
+- You have `thirty` seconds.
+- It must be twelve-`thirty`.
+- It's about eleven `thirty`.
+- It's three-`thirty`, grady.
+- Less than `thirty` minutes.
+- `Thirty`-one linked dishes.
+- `Thirty`-thousand, i think.
+- `Thirty`-two hundred bucks.
+- ...at twenty-`thirty` hours.
+- Darlene, it's five-`thirty`.
+- I'm `thirty`-five years old.
+- Maybe `thirty` more minutes.
+- Quantum is up `thirty`-five.
+- Something like `thirty`-six.
+- Something like `thirty`-six?
+- `Thirty`-five thousand, sir.
+- `Thirty`-two minutes left...
+- Twenty, maybe `thirty` feet.
+- Western an' `thirty`-fourth.
+- Angelo, it's eleven `thirty`.
+- Eight-`thirty` in the chapel.
+- Four-`thirty` in the morning?
+- He's `thirty`-five years old.
+- I'm `thirty`-eight years old!
+- I'm `thirty`-seven years old.
+- It's almost eleven- `thirty`!
+- `Thirty` one's and two ten's?
+- You don't look `thirty`-five.
+- About - `thirty`-four seconds.
+- About `thirty` million to one.
+- I get `thirty` dollars a week.
+- No fewer than `thirty` people.
+- She left `thirty` minutes ago.
+- `Thirty`-five, still straight.
+- `Thirty` seconds till contact.
+- `Thirty`-thousand, that's all.
+- Twelve `thirty`-six a.m. here.
+- Um, yeah, `thirty` miles east.
+- But it's ten-`thirty` at night.
+- Disappeared `thirty` years ago.
+- Man, it's already ten `thirty`.
+- She looks `thirty`-five, forty.
+- Somewhere around nine-`thirty`.
+- That gives you... one `thirty`.
+- The ticket is `thirty` dollars.
+- You got about `thirty` seconds.
+- Anyway, glenn was like `thirty`.
+- At least he wasn't `thirty`-six.
+- I'd just drawn `thirty` to life.
+- ...i'd say around nine-`thirty`.
+- I have a date at eight-`thirty`.
+- I have been here `thirty` years.
+- I've got a date at six `thirty`.
+- That'll be `thirty`-eight cents.
+- `Thirty` minutes, forty minutes!
+- `Thirty`-seven now, but... - mr.
+- `Thirty`-two outta what, twenty?
+- An apprentice for `thirty` years.
+- Can you be there by two-`thirty`?
+- Here's `thirty` thousand dollars.
+- How old is otis anyhow, `thirty`?
+- I'd say about `thirty` feet, sir.
+- I'll be back in `thirty` minutes.
+- I'll put you in one `thirty`-one.
+                 

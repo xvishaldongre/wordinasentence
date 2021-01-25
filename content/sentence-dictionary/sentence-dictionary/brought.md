@@ -1,0 +1,107 @@
+---
+title: "brought in a sentence | brought example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brought"
+---
+- I `brought` him along.
+- I `brought` something.
+- I `brought` some wine.
+- It `brought` no peace.
+- We `brought` him here.
+- You `brought` flowers.
+- You `brought` me back.
+- `Brought` who with him?
+- `Brought` you munchies.
+- Bud `brought` it to me.
+- What `brought` this on?
+- Who `brought` you here?
+- You `brought` the girl!
+- Hank `brought` them all.
+- I `brought` sheila in...
+- I `brought` them myself.
+- I `brought` you flowers.
+- So i `brought` her here.
+- Sorry i `brought` it up.
+- That `brought` you here?
+- They `brought` her back.
+- What `brought` you back?
+- You `brought` the money?
+- You `brought` your kids?
+- `Brought` you up a chevy.
+- Forget i `brought` it up.
+- Have him `brought` to me.
+- He was not `brought` out.
+- I `brought` it for tommy.
+- I `brought` it from home.
+- I `brought` your clothes.
+- Nobody `brought` us here.
+- Shoulda `brought` my gun.
+- So i `brought` us dinner.
+- That i be `brought` here?
+- They `brought` a message.
+- Who `brought` me in here?
+- Why was i `brought` here?
+- `Brought` what on myself?!
+- I `brought` you a present.
+- I `brought` you back here.
+- I `brought` you something.
+- I `brought` you that, too.
+- Mother `brought` you here.
+- No charges were `brought`.
+- She `brought` me my meals.
+- Someone `brought` us here.
+- Suzanne `brought` me here.
+- What `brought` them there?
+- He could be `brought` back.
+- I `brought` you some water.
+- Lucky i `brought` my drums.
+- No one `brought` them here!
+- That it `brought` bad luck?
+- We `brought` back a friend.
+- What `brought` all this on?
+- Who `brought` that in here?
+- `Brought` me along too fast.
+- I `brought` a few of my own.
+- I `brought` him food, water.
+- I `brought` you a casserole.
+- I `brought` you haagen dazs.
+- I `brought` you some movies.
+- I `brought` you up here, dr.
+- That's why you `brought` me?
+- They `brought` the car here?
+- You `brought` the reapers?
+- Your love `brought` me back.
+- Come on, you `brought` it up.
+- I `brought` you chinese soup.
+- I `brought` you some letters.
+- I have `brought` you trouble.
+- Relax, we `brought` the cash.
+- She `brought` back the worms.
+- She `brought` me my fan mail.
+- She `brought` the devil here.
+- You only `brought` one ball?!
+- He `brought` the bad man here?
+- Hey, i `brought` some friends.
+- I `brought` some manischewitz.
+- I `brought` the girl remember?
+- Is that why you `brought` him?
+- We `brought` it straight here.
+- Well, i've `brought` you here.
+- Well, i've not `brought` them.
+- We should a `brought` wieners.
+- You should have `brought` him.
+- You've `brought` me the sword?
+- Why wasn't he `brought` in?
+- Hugo `brought` her right to us.
+- I `brought` his body back down.
+- I `brought` johana to meet you.
+- I `brought` you some ice cream.
+- In fact, i `brought` you proof.
+- I've `brought` you some things.
+- Why have you `brought` me here?
+- Yes, that's why i `brought` it.
+- You `brought` the cameras here!
+- You `brought` this on yourself.
+- You're the one `brought` it up.
+                 

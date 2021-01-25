@@ -1,0 +1,107 @@
+---
+title: "crap in a sentence | crap example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crap"
+---
+- Enough of that `crap`.
+- That's a lotta `crap`.
+- What a load of `crap`.
+- Cut the general `crap`.
+- It's a piece of `crap`.
+- Stop that ma'am `crap`!
+- What a piece of `crap`.
+- You can cut the `crap`.
+- Really look like `crap`.
+- Too old for that `crap`.
+- The guy's full of `crap`.
+- Don't give me that `crap`.
+- Everything i do is `crap`!
+- Get this `crap` out of me.
+- Same old `crap`, you know?
+- Talking a bunch of `crap`.
+- Then let's cut the `crap`.
+- Cut the `crap` and read it.
+- Let's cut the "sir" `crap`.
+- None of this demons `crap`.
+- `Crap` news, it sounds like.
+- I'm not some piece a `crap`.
+- I've never seen such `crap`.
+- Let's cut the `crap`, larry!
+- Turn this `crap` off, clyde.
+- Do you listen to this `crap`?
+- I can't read any more `crap`.
+- I don't need all this `crap`.
+- No, this isn't hippie `crap`.
+- Sounds like `crap`, admit it.
+- Why don't you cut the `crap`?
+- Yeah, but i feel like `crap`.
+- How can you watch this `crap`?
+- Oh boy oh god oh `crap` oh no.
+- Who wrote this piece of `crap`?
+- Believe in this religious `crap`.
+- Of this `crap` school, a mystery!
+- They're nasty and full of `crap`.
+- To melt the `crap` in your lungs.
+- You know how `crap` i am at this.
+- You look like `crap`, by the way.
+- God, you look like `crap`, george.
+- What's this `crap` supposed to be?
+- You see the `crap` piled up on it?
+- I thought you said you were `crap`.
+- My equipment doesn't `crap` out....
+- You're better than all this `crap`.
+- Aw, it ain't `crap`... it's... cute.
+- He was beating the `crap` out of me!
+- I bought all of your penguin `crap`.
+- Just stop all this `crap` right now.
+- What was all that benevolent `crap`?
+- Yeah, heh heh, enough'a this `crap`.
+- What is it, howard, the usual `crap`?
+- You ought to take up `crap` shooting.
+- I never hurt nobody... cut the `crap`.
+- Tire's fucking gone `crap` on us, man.
+- Ya like ta scared the `crap` outta me.
+- Yeah, yeah, the hell with that `crap`!
+- Are you actually believing this `crap`?
+- I got depressed, seeing all the `crap`.
+- I just don't like the anonymous `crap`.
+- I'm so sorry for all the `crap` i said.
+- I told you not to read all that `crap`!
+- It's just ail that `crap` he spins out.
+- All kinds of `crap` comes with that.
+- And for all we know, that's `crap`, too.
+- Cut the `crap`, x, i saw you down there.
+- Maybe some of us don't need this `crap`!
+- Right now, yeah - you're talking `crap`.
+- I'm sorry, i got hot at the `crap` table.
+- None of that faggot metric `crap` for me.
+- Now you show up with line of this `crap`?
+- Does brumby get a kick out of that `crap`?
+- I've had it with `crap` around this house.
+- They're so fascinated by their own `crap`.
+- To tell the faithful we're full of `crap`.
+- Why is everybody giving me `crap` tonight?
+- Not some `crap` about getting to do monroe!
+- Oh don't give me any of that racist `crap`.
+- What are you putting that `crap` on me for?
+- What was that `crap` with the standpipe?
+- Don't give me that `crap` you little weenie.
+- Sure....as for the `crap`, i've got an idea.
+- Then what about this washington post `crap`?
+- Cut the 'bill' `crap` out -- you sonofabitch.
+- We've got `crap`, `crap`, `crap` or `crap` kissing?
+- Do me a favor, don't give me a bunch of `crap`.
+- They got cameras and alla that `crap` in there.
+- You exist because of me, go `crap` in your hat.
+- It's tough going with the `crap` they make today.
+- Make a difference in the world, `crap` like that.
+- The `crap` they sell in these little restaurants.
+- Remember the `crap` they taught you in boy scouts.
+- So don't give me any of that sentient life `crap`.
+- And this is where you sweep up the elephant `crap`.
+- Doug's right, there's too much `crap` in this town.
+- I can't believe i've been listening to this `crap`.
+- It's so quaint... it's so primal... it's so `crap`.
+- Maranzano'll never know the `crap` that you forget.
+                 

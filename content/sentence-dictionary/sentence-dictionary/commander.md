@@ -1,0 +1,107 @@
+---
+title: "commander in a sentence | commander example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "commander"
+---
+- `Commander` no longer.
+- Yes, sir, `commander`.
+- So was the `commander`.
+- Thank you, `commander`.
+- To the new `commander`.
+- Well done, `commander`.
+- But i'm the `commander`!
+- Good night, `commander`.
+- We need our `commander`.
+- Where's the `commander`?
+- You got me, `commander`.
+- 14. the next `commander`?
+- A `commander` from power.
+- `Commander`, we made it.'
+- Protect your `commander`!
+- The `commander` did that.
+- With the new `commander`?
+- A red-blooded `commander`.
+- `Commander`... leave me.
+- `Commander`, what is this?
+- e `commander` sent you?
+- From the last `commander`.
+- Good evening, `commander`.
+- Is she a `commander`, too?
+- It wasn't the `commander`.
+- You amaze me, `commander`.
+- You said "the `commander`.
+- `Commander`, not like this.
+- `Commander` powell is dead.
+- `Commander` powell made it!
+- We need a real `commander`.
+- A new `commander` has risen.
+- `Commander`, klingon vessel.
+- Take the wheel, `commander`.
+- The `commander` is not here.
+- They wanted the `commander`.
+- You chose to be `commander`.
+- _ you heard the `commander`.
+- You killed your `commander`.
+- Where is the `commander`?
+- Our `commander` is out there.
+- That is correct, `commander`.
+- That's an order, `commander`.
+- `Commander`, we are receiving.
+- She was the first `commander`.
+- Swallow this one, `commander`.
+- The `commander` was my second.
+- Wanheda, `commander` of death.
+- Wanheda, `commander` of death.
+- We leave with the `commander`.
+- `Commander`, as i was saying...
+- `Commander` riker... who is it?
+- I don't want to be `commander`.
+- Just... you're the `commander`?
+- Let me talk to the `commander`.
+- The `commander`'s army is, too.
+- The `commander` thinks you did.
+- This `commander` was different.
+- We need a true `commander` now.
+- Your `commander`'s made a deal.
+- Because there is no `commander`.
+- But the `commander` is merciful.
+- `Commander`'s decision is final.
+- `Commander`'s message was clear.
+- Good, and `commander` skywalker?
+- I'm not the `commander` anymore.
+- I'm sorry i'm late, `commander`.
+- Please notify `commander` riker.
+- Sheidheda, the dark `commander`.
+- We have to warn the `commander`.
+- _ when the `commander` chose me.
+- You have my answer, `commander`.
+- `Commander`... we have a problem.
+- I underestimated the `commander`.
+- I want an ice nation `commander`.
+- Or just the `commander` of death?
+- Remove your weapons, `commander`.
+- The `commander` is ready to talk.
+- To be `commander` is to be alone.
+- You have the bridge, `commander`.
+- A `commander` from the ice nation?
+- At the request of the `commander`.
+- `Commander`, do you have a camera?
+- Except the `commander`'s chambers.
+- Except the `commander`'s chambers.
+- How can we thank you, `commander`.
+- I'm gonna talk to the `commander`.
+- I thought she was the `commander`.
+- It is what the `commander` wanted.
+- The `commander`'s looking for you.
+- _ what is it, `commander` shumway.
+- You wanted to see me, `commander`?
+- You wanted to see me, `commander`?
+- Goes back to the first `commander`.
+- I spent time with your `commander`.
+- It's the spirit of the `commander`.
+- It won't come to that, `commander`.
+- You're not the `commander` anymore.
+- Clarke: you killed your `commander`.
+- I swore loyalty to this `commander`.
+                 

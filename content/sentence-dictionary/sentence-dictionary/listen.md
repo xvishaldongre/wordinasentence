@@ -1,0 +1,107 @@
+---
+title: "listen in a sentence | listen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "listen"
+---
+- Be quiet and `listen`.
+- Billy, `listen` to me.
+- Don't `listen` to her.
+- Don't `listen` to him.
+-  everyone `listen` up.
+- God, `listen` to this!
+- Grace, `listen` to me.
+- He said he'd `listen`.
+- Hey, `listen`, `listen`.
+- Hey, `listen` to me.
+- Hey, `listen` to this.
+- He�ll `listen` to you.
+- Joyce, `listen` to me.
+- Just `listen` to them!
+- `Listen` to his heart.
+- `Listen` to me, bobby.
+- `Listen` to me, garry.
+- `Listen` to me, julie.
+- `Listen` to me, peter.
+- `Listen` to the music.
+- `Listen` to the water.
+- `Listen` to this part.
+- `Listen` to your body.
+- `Listen` up, jiggaboo!
+- `Listen`, you need me.
+- Lloyd, `listen` to me.
+- Man, `listen` to that.
+- Maybe she'll `listen`.
+- No, no, just `listen`.
+- No -- please `listen`!
+- No tom, just `listen`.
+- Now `listen`, swana...
+- Okay, `listen`-- yeah?
+- Please `listen` to me!
+- Please `listen` to me.
+- Raven, `listen` to me.
+- Right, beck, `listen`.
+- Robin, `listen` to me.
+- Rose, please `listen`.
+- Sybok, `listen` to me.
+- You wouldn't `listen`!
+- Amanda, `listen` to me.
+- But you won't `listen`.
+- Callie, `listen` to me.
+- Claire, `listen` to me.
+- Claire: `listen` to me.
+- Clarke, `listen` to me!
+- Clarke, `listen` to me.
+- Clarke, `listen` to me.
+- Did you `listen` to me?
+- Don't `listen` to them.
+- Don't `listen`, willie.
+- Guys, `listen` to this.
+- I just didn't `listen`.
+- I'll come and `listen`.
+- I mean, `listen` to me.
+- I want you to `listen`.
+- Joe, `listen`� get out!
+- `Listen`, abby, please.
+- `Listen`, it is a clue.
+- `Listen` to andy, sean.
+- `Listen` to me, clarke.
+- `Listen` to me, hooker.
+- `Listen` to me -- john.
+- `Listen` to me, johnny.
+- `Listen` to me, pappas.
+- `Listen`, what is this?
+- `Listen`, young lady...
+- `Listen`, you're right.
+- Now `listen` carefully.
+- Now you `listen` to me.
+- Ontari, `listen` to me.
+- O, o, `listen` to me.
+- She'll `listen` to you.
+- Well, `listen` to this.
+- You `listen` carefully!
+- `Listen`, good work.
+- Brendan, `listen` to me.
+- _ but i didn't `listen`.
+- But you didn't `listen`.
+- Darling, `listen` to me.
+- Eve, `listen` carefully.
+- He won't `listen` to me.
+- Hey, `listen` to this...
+- I just want to `listen`.
+- I `listen` on the radio.
+- I `listen` to classical.
+- I mean `listen` to this.
+- Just `listen` to me, ok?
+- `Listen`... hi, it's me.
+- `Listen`, i wanted to...
+- `Listen`, nick -- great.
+- `Listen` to her singing.
+- `Listen` to me, anthony.
+- `Listen` to me, fella...
+- `Listen` to me, patrick.
+- `Listen` to this, louis.
+- `Listen` to what i said.
+- `Listen` to your mother.
+- `Listen` very carefully.
+                 

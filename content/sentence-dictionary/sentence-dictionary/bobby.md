@@ -1,0 +1,107 @@
+---
+title: "bobby in a sentence | bobby example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bobby"
+---
+- `Bobby`, `bobby`, `bobby`.
+- I don't know, `bobby`.
+- Listen to me, `bobby`.
+- That's' `bobby` seale.
+- Were you with `bobby`?
+- You here with `bobby`?
+- You're `bobby`, right?
+- That's enough, `bobby`.
+- You should ask `bobby`.
+- Do you love me, `bobby`?
+- Good afternoon, `bobby`.
+- That'd be fine, `bobby`.
+- The <u>mob</u>, `bobby`!
+- `Bobby`'s party chairman.
+- `Bobby`, we're launching.
+- What's `bobby` gonna say?
+- Who killed `bobby` vomit?
+- `Bobby` too, i hear...
+- `Bobby` -- i have an idea.
+- `Bobby`'ll take you there.
+- `Bobby`-- put david on it.
+- We can't do that, `bobby`.
+- You have `bobby`'s number?
+- `Bobby`, rhymes with hobby.
+- Hey, `bobby`, turn that up.
+- `Bobby` didn't kill anybody.
+- `Bobby`, don't say anything.
+- `Bobby` judge is a good boy.
+- `Bobby` laid his own tracks.
+- `Bobby` peru grab you now...
+- I want a consensus, `bobby`.
+- Thanks, `bobby`, 'bout done.
+- `Bobby` didn't give you this?
+- `Bobby`, this is a plumb gig.
+- He wanted <u>me</u>, `bobby`.
+- Dick, you should call `bobby`.
+- I ain't fuckin' sure, `bobby`.
+- Jack and `bobby` are good men.
+- `Bobby`-- it's me, robert dean.
+- Little `bobby`... just a kid...
+- `Bobby`, your shoes are soaking!
+- I want to say with you, `bobby`.
+- You hung out with `bobby` vomit.
+- `Bobby` -- have you a flashlight?
+- You heard that `bobby` vomit o.d.
+- `Bobby`'s out .. what's the hurry?
+- Did she kill `bobby` vasquez, too?
+- Sorry to hear about `bobby` vomit.
+- Why don't you explain it, `bobby`.
+- `Bobby`... we can do it right here.
+- Not a very good one, but-- `bobby`!
+- `Bobby`, you've been dreaming again.
+- Detective flemming - `bobby` korfin.
+- I don't <u>have</u> a life, `bobby`.
+- `Bobby` peru prob'ly killed the most.
+- .."i love how she sees them, `bobby`.
+- `Bobby`... ssshhhh... you killed mike.
+- `Bobby`, you're in way over your head.
+- I don't want to go to mexico, `bobby`!
+- You don't work there anymore, `bobby`.
+- It's not like he's a young man, `bobby`.
+- They killed-- `bobby`-- it's the nsa.
+- That's where they stick indians, `bobby`.
+- He's saying, what are you saying, `bobby`?
+- I don't know, mom; i've never met `bobby`.
+- We'll miss you very much -- `bobby` and i.
+- What did `bobby` vasquez used to call you?
+- Mr. gardiner... you take care too, `bobby`.
+- `Bobby` and johnny were such good friends...
+- `Bobby`-- my stuff's all over her apartment.
+- Like that `bobby` lynn dexter... well, sure.
+- Okay, ray... `bobby`, don't talk like that...
+- Get out of town, `bobby`, as quick as you can.
+- Tell that to `bobby` ... and his wife and kid.
+- You don't believe in anything do you, `bobby`?
+- You just set `bobby` seale up to be kidnapped.
+- You up to somethin' with `bobby` peru, sailor?
+- We'll finish it tomorrow... goodnight, `bobby`.
+- `Bobby`'s going to sleep in my room tonight.
+- I don't know what i'm going to do about `bobby`.
+- Two strikes, `bobby`, and this last one was big.
+- After what `bobby` told us, that's enough for me.
+- Because `bobby` is a loser, you said so yourself.
+- I understand `bobby` beans came to see you today.
+- `Bobby`'s got the magic, like a goddamn rock star.
+- Did `bobby` give you that or is there someone new?
+- I got news for you, `bobby`, he don't give a shit.
+- I'm not... `bobby` i'm gonna need some more stuff.
+- I think `bobby` was arranging something for you...
+- `Bobby`, i love jessica like she's my own daughter.
+- `Bobby` -- who's the greatest man in america today?
+- How would you know if `bobby` didn't give her that?
+- Well... it's possible they think my name's `bobby`.
+- You got six months to donate to the party, `bobby`?
+- And, as for you, `bobby`, you just moved up a notch.
+- I've already gotten the birds and bees from `bobby`.
+- `Bobby` and i have had enough excitement for tonight.
+- I had a little kittycat once, that `bobby` give me...
+- `Bobby`, i had to tell him that to get his guard down.
+- `Bobby`'s the only person i know who isn't -- jittery.
+                 

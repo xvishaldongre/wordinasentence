@@ -1,0 +1,64 @@
+---
+title: "assholes in a sentence | assholes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "assholes"
+---
+- `Assholes` and elbows!
+- They're all `assholes`.
+- You're both `assholes`.
+- Look at these `assholes`!
+- They're `assholes`, okay?
+- Your phony fbi `assholes`.
+- Don't call my men `assholes`.
+- Those fucking mob `assholes`.
+- We're all `assholes`, bernie?
+- You guys are such `assholes`.
+- Naw, them dudes is `assholes`.
+- He was like, "hey, `assholes`."
+- Broken hearts are for `assholes`.
+- Other fuckin' `assholes` like me.
+- I didn't mean they were `assholes`.
+- So many `assholes`, so few bullets.
+- Cause of fuckin' `assholes` like you.
+- The supermarket's full of `assholes`.
+- Those `assholes` that killed barb...
+- He knew how to deal with the `assholes`.
+- I'm not gonna be one of those `assholes`.
+- Incredible how lucky some `assholes` get.
+- We get a lot of `assholes` in here, marty.
+- We scare people into not being `assholes`.
+- Yeah, yeah, those `assholes` gave us jobs.
+- I don't think you're like those `assholes`.
+- Dig this you `assholes` and dig it good!
+- God, how can you stand all these `assholes`?
+- I'm gonna rip'em all brand new `assholes`... !
+- Immunity was just to deal with you `assholes`.
+- It's always the `assholes` that pass the tests.
+- You want those `assholes`, you want top dollar.
+- I'm not leaving you alone with these `assholes`.
+- Look at those `assholes`, they're asking for it!
+- These `assholes` get excited and start lining up.
+- They don't know their forks from their `assholes`!
+- Excuses are like `assholes`, taylor - everybody got one.
+- All three of you were being a bunch of little `assholes`!
+- Sure as hell have met a few `assholes` like that, though.
+- Idiots and `assholes` and ] sadists that must be defeated.
+- C'mon, you think you're dealing with a bunch of `assholes`?
+- Both of you two `assholes` knock it the fuck off and calm down!
+- I have dealt with `assholes` like this i am so sorry, mr. clarke.
+- The `assholes` come over here, they think it's gonna be the same.
+- Those `assholes` are supposed to be <u>fixing</u> the goddamn road!
+- Let the goddamn yuppie mormon affirmative action `assholes` handle it.
+- All those `assholes` make are unwatchable movies from unreadable books.
+- These `assholes`, they come over here, they know all the answers, right?
+- We're about ready to go here, so let's get rid of these other `assholes`.
+- Yes, i get extremely emotional when `assholes` put bullets in my mailbox...!
+- Round up your `assholes` and move 'em up front, we're getting chopped to shit.
+- You say, 'well, i'm glad you `assholes` stopped by, so i can set you straight.'
+- You get around one of these `assholes` and you turn into a fucking three-year-old.
+- You `assholes` didn't bring me here to give me this for 20 years of dedicated service.
+- Some `assholes` on the elevator... are these bitches on a permanent smoke break or what?
+- Actually it's g. ober... gerry ober, but the guys drew in the other o, fucking `assholes`.
+- No one wants those fuckin' `assholes` behind their walls, dealin' with 'em day in, day out.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ray in a sentence | ray example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ray"
+---
+- Go catch jimmy, `ray`.
+- Has `ray` come in yet?
+- How's it going, `ray`?
+- I can smell it, `ray`.
+- `Ray` didn't trust me.
+- [`ray` whispers] okay.
+- Red deer table, `ray`.
+- That's `ray` williams.
+- You mean `ray` dunbar?
+- No, that's `ray`, here.
+- `Ray` check his wallet.
+- [`ray`] hey, my friend.
+- `Ray`... no way, cooch.
+- `Ray`'s special recipe.
+- `Ray`'s with the f.b.i.
+- That's five mil, `ray`.
+- You know, with `ray`...
+- Did `ray` tell you that?
+- Do not lie to us, `ray`.
+- Don't you get it, `ray`?
+- Get off this `ray`, now.
+- Our own `ray` gallagher.
+- [`ray` on radio] status.
+- Sorry i woke you, `ray`.
+- You had a choice, `ray`.
+- His name is `ray` caroll.
+- Jason: `ray`, it's jason.
+- `Ray`, we're just friend.
+- `Ray`, you saved my life.
+- Sugar `ray` hits me here.
+- Whatever you want, `ray`.
+- What would you say `ray`?
+- [woman] excuse me, `ray`.
+- But we're not in el `ray`.
+- Do you remember us, `ray`?
+- I saw `ray` the other day.
+- Jimmy didn't do it, `ray`.
+- `Ray` -- something's here.
+- Were you hopped up, `ray`?
+- Are you a christian, `ray`?
+- Come on, `ray`, time to go!
+- Don't go to the bar, `ray`.
+- Here's a news flash, `ray`.
+- I know how you feel, `ray`.
+- John: gimme a cuesta-`ray`.
+- Means 'for example', `ray`.
+- `Ray`, we got the shotguns.
+- `Ray`...what are you doing?
+- You wanna stay in el `ray`?
+- I need you behind me, `ray`.
+- Ma'am, `ray` dunbar's black.
+- `Ray`, this is my life here.
+- `Ray` wanted to have dinner.
+- This place is a maze, `ray`.
+- Yeah, what did we do, `ray`?
+- Jim lingk, d. `ray` morton...
+- `Ray`, don't let go now, man.
+- `Ray`, have you got a second?
+- [`ray`] hey, where you going?
+- [`ray`] sounds good, abigail.
+- Why don't you wake up, `ray`?
+- You can't go in there, `ray`!
+- I didn't do this thing, `ray`.
+- I'm looking for `ray` breslin.
+- Me and `ray` gibson out there.
+- `Ray`, start the tour program.
+- Shari, `ray` feels -- hi, mom.
+- What the hell happened, `ray`?
+- Would you look at that, `ray`.
+- Ah, you're full of shit, `ray`!
+- I'm coming, `ray`...what a day!
+- Ma, do you know where `ray` is?
+- `Ray` fell asleep at the wheel.
+- `Ray`, i was ready to kill you.
+- Why'd you ask for a cop, `ray`?
+- You'd better fix this, `ray`!!!
+- I'm sixty-five years old, `ray`.
+- Oh, i forgot my x-`ray` glasses.
+- `Ray`: what time do you have...?
+- That's good goddamn work, `ray`.
+- You'll never regret this, `ray`.
+- [jules] hey, `ray`, look at this.
+- Let me show you something, `ray`.
+- Alright, `ray`, you've got a deal.
+- Have a good time at school, `ray`.
+- `Ray`, uh... `ray`... little weasel.
+- That's your name, isn't it, `ray`?
+- What are you talking about, `ray`?
+- Why'nt you an' `ray` come on over.
+- Yeah, but what about me and `ray`?
+- Hey, `ray`... that's right, fellas.
+- I killed bob `ray` lemon, didn't i?
+- I miss `ray`...i tried to call him.
+- `Ray`, come an-- good-bye, brother!
+- `Ray`, how come we missed the sign?
+- That was the same thing `ray` said.
+- You're an easy man to track, `ray`.
+- People would hire a has-been, `ray`?
+- What am i gonna do out there, `ray`?
+- What does that say about you, `ray`?
+                 

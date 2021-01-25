@@ -1,0 +1,73 @@
+---
+title: "bunker in a sentence | bunker example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bunker"
+---
+- One into the `bunker`.
+- The second dawn `bunker`.
+- From the `bunker` in polis?
+- We're in a sealed `bunker`.
+- You got that `bunker` open.
+- Inside of a sealed `bunker`.
+- Bellamy, get in the `bunker`.
+- From the `bunker` 6 years ago.
+- We can make it to the `bunker`!
+- She agreed to open the `bunker`.
+- There's a doctor in that `bunker`.
+- And whoever wins gets the `bunker`.
+- Art supplies in the `bunker`, finn.
+- This `bunker` wasn't yours to give.
+- We both did things in the `bunker`.
+- I used to give them in the `bunker`.
+- There's a doctor in that `bunker`...
+- To prevent a war over this `bunker`.
+- Why you helped us open the `bunker`.
+- She'll get them out of that `bunker`.
+- The one you decked is `bunker` wiess.
+- The whole way back from the `bunker`.
+- We need your help opening a `bunker`.
+- Chris, get to the lighthouse `bunker`.
+- Come on, i'll explain in the `bunker`.
+- What about the others in the `bunker`?
+- No women, no buddies... in this `bunker`.
+- Skaikru will not take the `bunker` alone.
+- That means bellamy got the `bunker` open.
+- Could've used you in the `bunker`, clarke.
+- It's a third of everyone in that `bunker`.
+- One into the crowd, one into the `bunker`.
+- _ skaikru will not take the `bunker` alone.
+- I'm sorry we kept you in the `bunker`, john.
+- Search team just returned from the `bunker`.
+- Everything i did in that `bunker` bob, english.
+- There's still too many people in this `bunker`.
+- Not killing you the day you opened the `bunker`?
+- That there are too many people in this `bunker`.
+- Ah... before taking this `bunker` for our people.
+- Unless you want a lung full of pulverized `bunker`.
+- From when jaha locked me in the lighthouse `bunker`.
+- He got back to the ground and got the `bunker` open.
+- She kept that `bunker` running long after jaha died.
+- Even if the rest of the `bunker` fails, i don't know.
+- I'm guessing some of them had access to the `bunker`.
+- Your people won't need to live in a `bunker` anymore.
+- Wonkru would have died of starvation in that `bunker`.
+- I don't know what happened to him in that `bunker`, no.
+- I need a team of 4 from the `bunker`'s maintenance crew.
+- Coming back to the ground, opening the `bunker`, i should go.
+- We spent 6 years together in the `bunker` without a commander.
+- And her husband, well, he didn't make the cut for the `bunker`.
+- You know there's still room in this `bunker` for more people.
+- And we are the last hope of mankind, and whoever wins gets the `bunker`.
+- There are too many people in this `bunker`... josie's still third in line.
+- Hey... half the kids in the `bunker` are with us now, don't do this, please.
+- You're passing up archie `bunker` to go bowling, you've gotta have an angle.
+- We weren't actually in that `bunker`, [softly] i don't know who i am anymore.
+- Because you couldn't take jonathan byers... when there's room in this `bunker`.
+- This is a portrait of explorer kirkedemious van houten, in the `bunker` anymore!
+- Hundreds are still refusing to come out of the `bunker`, we don't know what it means.
+- That's why he gave up his spot in this `bunker`, then it's my pleasure to tell you...
+- The main entrance to the control `bunker`'s on the far side of that landing platform.
+- Who built the `bunker` that saved humanity from praimfaya twice, hello, little person.
+- Let's give them something else when she allowed 1,200 people into this `bunker`, - it is.
+                 

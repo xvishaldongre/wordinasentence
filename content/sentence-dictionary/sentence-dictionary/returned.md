@@ -1,0 +1,58 @@
+---
+title: "returned in a sentence | returned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "returned"
+---
+- And why you `returned`.
+- I `returned` the money.
+- They'll be `returned`, miss.
+- No probe has ever `returned`.
+- I promise it�ll be `returned`!
+- Perceval, you have `returned`!
+- Has she `returned` to her husband?
+- The second wave has not `returned`.
+- Ah, i've `returned` from the future.
+- And you `returned` with the orville!
+- You'll be `returned` to your people.
+- But jade `returned` with your family.
+- I might have `returned` it by mistake.
+- But i need to ask why you've `returned`.
+- You `returned` this westley to his ship?
+- Now he has `returned` the compliment.
+- Search team just `returned` from the bunker.
+- Fuckers `returned` fire soon as we lit 'em up.
+- I `returned` recently from a stay in hospital.
+- Lisa `returned` jasper's childhood, oh, my god.
+- Your husband `returned` at, what, seven o'clock?
+- After hundreds of years, it has `returned` to us.
+- Bela's `returned` from the grave -- like dracula.
+- I draw the line at seven un-`returned` phone calls.
+- I went to her house and she hadn't `returned` there.
+- Cooperate and they will be `returned` to your estate.
+- When first we met you'd just `returned` from america.
+- You've been acting so strangely since you `returned`.
+- Then she `returned` home and stabbed me in the eye.
+- ♪ when our people see all of us `returned` at once, see?
+- I never `returned` your calls, even when we were married.
+- He should have `returned` from the neutron galaxy ages ago.
+- Too long before they `returned`, she had stopped screaming.
+- Until you are `returned` to spain where you will be judged.
+- So what if ling ling kept the cash and `returned` the wallet?
+- The family paid the ransom and he was `returned` two days later.
+- Doctor crusher asked to talk to you when you `returned`... gorch?
+- Sally if he asks me again, i'm gonna tell him i `returned` it all.
+- Seems your boyfriend wants people to believe jason has `returned`.
+- The moment you `returned` from the battle your options were clear.
+- Suppose when they `returned` they threw the boots into the garbage?
+- I would've `returned` your call a lot sooner but i was out at sea...
+- He was away on an extended vacation and just `returned` two days ago.
+- I never told you how sorry i was about what happened after we `returned`.
+- I've been trying to reach you but you haven't `returned`... miss weathers.
+- They'll be `returned` to you, miss schmidt, as soon as they've been examined.
+- The high court of israel turned down his request to live as a '`returned` jew.'
+- And we have `returned` to earth almost two thousand years before its destruction.
+- ...so when the sheriff `returned`, you showed him the injury to the deceased's head.
+- The children have `returned` to expel their elders... just as they were once expelled.
+- Now that guenevere is `returned` to me... never where you expect it, that's all i know.
+                 

@@ -1,0 +1,81 @@
+---
+title: "jean in a sentence | jean example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jean"
+---
+- Is `jean` michel here?
+- Enjoy them, `jean`-luc.
+- `Jean` is my wife here!
+- `Jean` michel basquiat.
+- We gotta protect `jean`.
+- What the - how's `jean`?
+- They've got `jean`-louis!
+- Is `jean`-claude done yet?
+- `Jean`, this is ramellzee.
+- Do you know barbara `jean`?
+- Not any more, carla `jean`.
+- Age before rank, `jean` luc.
+- `Jean` and i will go in here.
+- `Jean`, you're a real artist.
+- `Jean`-i'm not- where are you?
+- `Jean`-louis -- thank heavens!
+- `Jean`, your parents are here.
+- `Jean`, do you feel...fulfilled?
+- `Jean` luc, whatever you were...
+- What man, `jean`-louis -- where?
+- You're looking well, `jean`-luc.
+- `Jean` baptiste poquelin moliere.
+- `Jean`, can you raise me up there?
+- `Jean` michel, this is mary boone.
+- My name is `jean` michel basquiat.
+- What the - how's - ...who's `jean`?
+- `Jean` seberg, pills of course, 1979.
+- Goin' to visit with carla `jean` moss.
+- I hope you're still alive, `jean` luc.
+- `Jean` and scotty never have to worry.
+- I read george `jean` nathan every week.
+- Peggy jane, lisa anne and betty `jean`.
+- Why not put barbara `jean` on with him?
+- I don't think i'm gonna make it, `jean`.
+- I'm interested in showing `jean`'s work.
+- You've done a terrific job, `jean`- luc.
+- These people will kill him, carla `jean`.
+- You shouldn't take it so seriously, `jean`.
+- `Jean` michel... crawling from the wreckage?
+- Hello, reggie -- i am waiting for `jean`-louis.
+- You don't need to know everthing, carla `jean`.
+- `Jean`, could you get me a phillips screwdriver?
+- Just like `jean` harlow how about howard hughes?
+- He was out the whole way, i'm `jean` louise finch.
+- This is where `jean`-louis trades his -- i'm glad.
+- We are only moving six hundred people, `jean`-luc.
+- "billy-`jean`" -- "peggy-sue" -- two hundred bucks??
+- I don't believe it, `jean` � they're picking straws.
+- Carla `jean`... carla `jean`, i will not harm your man.
+- Soooo...dorsia is where `jean` wants to go... come on.
+- `Jean`-pierre is one of your closest friends, is he not?
+- Let's just finish up this deal here - oh, `jean`'s okay.
+- The new quantum torpedoes are doing the trick, `jean`-luc.
+- We'll be swimming laps in the same pool `jean` harlow did.
+- I cleaned... oui, bonjour, `jean`... oui, tr�s bien, merci.
+- It's just the two of us now, `jean` luc, as it should be...
+- Viens, `jean`-louis -- we're going to have a treasure hunt.
+- `Jean`-louis -- do you know where this monsieur f�lix lives?
+- My lord, i'm not sure that... why not you -- `jean` d'aulon?
+- I can't overestimate the danger of thalaron radiation, `jean` luc.
+- `Jean`-baptiste emmanuel zorg... nice to see you again i'm fucked!
+- Then he sees their friends odette and her husband `jean` baptiste.
+- `Jean`-luc picard... my officers doctor crusher and counselor troi.
+- `Jean`, open your eyes -- can't you see the hand of god in all this?
+- I wonder if you're aware of the trust you endanger, `jean`-luc picard.
+- Between you and officer pupcik out there he can be the next `jean` genet.
+- Take `jean`-louis with you -- and make sure you bolt the door from inside.
+- `Jean`... me dear, loyal `jean`... why do you want to oppose the will of god?
+- Dropped her out of his lockheed over utah howard hughes killed `jean` harlow?
+- Jeanne, this is -- in fact -- my loyal friend and finest archer, `jean` d'aulon.
+- The truth is always simple... it's you, `jean`, who's making things complicated.
+- They might have a hospital... `jean`-luc, this man needs medical attention, now.
+- Reminds me of a young doctor i used to know... you can' t imagine them, `jean` luc.
+- Well, marylin, now you cut a deal or find out how `jean` harris made it work for her.
+                 

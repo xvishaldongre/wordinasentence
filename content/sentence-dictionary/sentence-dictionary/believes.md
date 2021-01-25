@@ -1,0 +1,75 @@
+---
+title: "believes in a sentence | believes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "believes"
+---
+- But he `believes` in it.
+- Thea `believes` it, too!
+- The dog `believes` in me.
+- That's what she `believes`.
+- I believe he `believes` him.
+- My husband `believes` in you.
+- No one `believes` the guilty.
+- No one `believes` in werewolves.
+- She `believes` he's still inside.
+- That's what everybody `believes`?
+- Morpheus `believes` he is the one.
+- It `believes` it's the master race.
+- Someone who `believes` in miracles.
+- When i speak, no one `believes` me.
+- Barnes `believes` in what he's doing.
+- I don't care if anyone `believes` me!
+- And anyone who `believes` in him dead.
+- Just remember julia `believes` in you.
+- But i'm the only one who `believes` her.
+- Nobody `believes` it can happen to them.
+- No matter, my son, he `believes` in you.
+- `Believes` in the divinity of the primes.
+- No one `believes` kurtzweil or his books.
+- You're the one who `believes` in nothing.
+- My sister `believes` in fate, but not hell.
+- And he really `believes` he's doing octavia.
+- Let's laugh at everything a man `believes` in.
+- If one `believes` in good one `believes` in evil.
+- Major arnold `believes` he has a moral duty, too.
+- One `believes` -� it's like any other religion...
+- He `believes` he has our communications protocols.
+- Let's just say he `believes` he can walk on water.
+- Most of wonkru `believes` the time you mean gumby.
+- And he really `believes` he's doing the right thing.
+- Is he a man who `believes` only what others believe?
+- He really `believes` jason's still alive, doesn't he?
+- That's okay, as long as he `believes` it was johnnie.
+- Not everyone `believes` in the divinity of the primes.
+- The deputy director here, he `believes` in tough love.
+- If one `believes` in god, one must believe in the devil.
+- You betrayed the one person who still `believes` in you.
+- I have to share my room until he `believes` in god again.
+- So save the sanctimonious shit for someone who `believes`.
+- The shepherd `believes` in transcendence and peace, right?
+- At the core he's a man who `believes` in doing what's right.
+- He'll get restless because he `believes` nothing is forever.
+- Sir te `believes` it's a ploy cast suspicion on governor yu.
+- He has so many realities, dickie, and he `believes` them all.
+- Then v'ger `believes` the creator to be a <u>machine</u> too.
+- I think philip `believes` all that stuff with the tarot cards.
+- Only way we're truly safe is if he `believes` he's goin' free.
+- Sir, this candidate `believes` he'll make a good officer, sir!
+- Don't give me that look, dallas - j.j. `believes` in fair play.
+- I don't know why everyone `believes` that, but that isn't true.
+- That good old man `believes` in food as you believe in karl marx.
+- As soon as all the rods are down, he `believes` he can walk on water.
+- I mean, it was so nice talking to him, and he really `believes` in me.
+- It's like some weird make-believe story that the whole world `believes`.
+- V'ger `believes` carbon-units interfere with the creator in the same manner.
+- Look, ray more or less `believes` my story, and he more or less doesn't care.
+- The woman at my dry cleaners `believes` there's no such thing as coincidence.
+- Be the man who `believes` in those words, i mean, your projections are the best.
+- He `believes` it so blindly that he's going to sacrifice his life to save yours.
+- He `believes` in the future -- i said shut the fuck up -- he's a good soldier, jude.
+- Say the president `believes` it's going to open up the whole bay of pigs thing again.
+- .. what you gotta worry about is what citrine `believes` .. you believe me, don't you?
+- Our project leader `believes` that tomb to be located within the city of venice, italy.
+- Morpheus `believes` in you, neo and no one, not you or even me can convince him otherwise.
+                 

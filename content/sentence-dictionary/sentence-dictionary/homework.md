@@ -1,0 +1,55 @@
+---
+title: "homework in a sentence | homework example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "homework"
+---
+- Doing your `homework`.
+- Well, i got `homework`.
+- I've done my `homework`.
+- The man's got `homework`.
+- Did you do your `homework`?
+- I was doing my `homework`...
+- How much `homework` is there?
+- I've been doing my `homework`.
+- Is this your `homework`, larry?
+- Marty... got a lot of `homework`?
+- The girl had done her `homework`.
+- Have you finished your `homework`?
+- I see you've done your `homework`.
+- You guys got the latin `homework`?
+- I'm gonna... tear up my `homework`.
+- Finch, you got the latin `homework`?
+- Maybe i better start our `homework`.
+- Haven't we been doing our `homework`.
+- We know that this is your `homework`.
+- Bart's actually doing math `homework`.
+- Until you finished all your `homework`.
+- Yeah, i had to get catch-up `homework`.
+- You've done your `homework`, mrs. south.
+- He has his `homework` to keep him occupied.
+- We know it's his fucking `homework`, walter!
+- Actually... you did your `homework`, officer.
+- We came over to help you with math `homework`!
+- We know that this is your `homework`, larry.
+- Doing his `homework` in the morning as per usual.
+- Yes, mom -- have you done your `homework`, honey?
+- Doing his `homework` in the morning, as per usual.
+- I respect a kid who does his `homework` in a taxi.
+- Look, man, did you-- is this your `homework`, larry?
+- No television, forget the `homework`, no phone calls.
+- I had to do my `homework` on them when i worked there.
+- Mr. bender doesn't bother to check `homework` past april.
+- You remember the... noooo... you didn't do your `homework`?
+- Well, i'm supposed to watch schindler's list for `homework`.
+- He does his `homework` and gets some experience meeting people.
+- If it's okay with you i'm going to bobby's to do my `homework`.
+- Oh my g-d, this is like asking me for help with your `homework`.
+- Wow, someone's been actually doing her geometry `homework` for once!
+- Hiya dad ~ i'll need you upstairs for `homework` in about .... oh, 20 minutes.
+- If you are going to bully me like this, major, you had better do your `homework`.
+- I've got to admit, that was a damn sight better than "the dog ate my `homework`".
+- Tell him you did your `homework` and you thought the stock was a sound investment.
+- Well...i should have done a little `homework`, getting all the sizes, and what not.
+- Seriously, cassandra, there's a lot cooler things you could be doing than your `homework`.
+                 

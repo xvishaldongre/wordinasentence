@@ -1,0 +1,75 @@
+---
+title: "monsieur in a sentence | monsieur example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "monsieur"
+---
+- C'est bon, `monsieur`.
+- My regrets, `monsieur`.
+- Who's `monsieur` philipe?
+- Bonjour `monsieur` philipe.
+- Goodnight, `monsieur` rick.
+- Your breakfast, `monsieur`.
+- Bonjour `monsieur`... louis.
+- Do you know him, `monsieur`?
+- `Monsieur` laszlo, is it not?
+- `Monsieur` foot-in- the-mouth.
+- I am so upset, `monsieur` rick.
+- You call about `monsieur` kane?
+- Voila `monsieur` david warfield.
+- Au contraire, `monsieur`, i have.
+- `Monsieur`, mesdames, bon appetit.
+- You don't know `monsieur` philipe?
+- Good day, mademoiselle, `monsieur`.
+- It shall not happen again, `monsieur`.
+- We might as well be frank, `monsieur`.
+- But do something, `monsieur` cornillon!
+- I brought the money, `monsieur` blaine.
+- You want to know -- yes, `monsieur`.
+- I loved my doggie very much, `monsieur`.
+- Are you trying to provoke me, `monsieur`?
+- I can't imagine `monsieur` monet blushing.
+- Oh, things are very bad there, `monsieur`.
+- You know how you sound, `monsieur` blaine?
+- I just want a word with `monsieur` mercier.
+- `Monsieur` andy, disapproves of my coiffure?
+- Is there anything i can do for you, `monsieur`?
+- `Monsieur` rick, may i get you a cup of coffee?
+- She *plays*, `monsieur`, like a very nice girl.
+- Please don't expect much more of us, `monsieur`.
+- Please, `monsieur`, it is a little game we play.
+- `Monsieur` blaine, i don't know how to thank you.
+- No, `monsieur` varlac, my warrant is only for you.
+- You have heard your answer, `monsieur` le marquis.
+- `Monsieur` blaine, i wonder if i could talk to you?
+- You know, `monsieur` mercier, this is all non-sense.
+- `Monsieur` rick, what kind of man is captain renault?
+- C'est bien, vous vous promenez bien matin, `monsieur`!
+- Grant us a moment alone, won't you, `monsieur` prouix?
+- I don't seek popularity or renown, `monsieur` delben�.
+- `Monsieur` le marquis, i am a soldier, not a diplomat.
+- `Monsieur` blaine, i don't ask you to explain anything.
+- My friend `monsieur` philipe is a friend of florentino.
+- Do you know how i define "idealism," `monsieur` delben�?
+- I hope you haven't closed this deal, `monsieur` mercier.
+- Yes, colonel `monsieur` xavier, the minister of finance.
+- Look, `monsieur`, play the piano, is not about the fingers.
+- Jean-louis -- do you know where this `monsieur` f�lix lives?
+- I recognize you from the news photographs, `monsieur` laszlo.
+- We are organized, `monsieur`, underground like everywhere else.
+- It would not be worth my life to do anything for `monsieur` laszlo.
+- You may save your philosophy for the magistrate, `monsieur` varlac.
+- Now, `monsieur`, you have no right... don't make it difficult for me.
+- `Monsieur` rick, i -- yes, well, everybody in casablanca has problems.
+- I observe that you in one respect are a very fortunate man, `monsieur`.
+- `Monsieur` masse says he'd like another manuscript, quick as you please.
+- Aerobics with housewives... `monsieur` andy can <u>smell</u> your coiffure.
+- By the way, `monsieur`, last night you evinced an interest in signor ugarte.
+- I am looking for `monsieur` george varlac who resides in the rue de frelicot.
+- Count d'algout, there have been several telephone... good evening, `monsieur`.
+- Excuse me, `monsieur` rick, but a gentleman inside has won twenty thousand francs.
+- If the truth be told i probably know "niggers" better than you, `monsieur` delacroix.
+- If you wish to put things on that basis, then i will say good day to you, `monsieur`.
+- I entered here, `monsieur`, at a bad moment for you; it seems that you love this lady.
+- I sold `monsieur` guizot the idea of publishing your memoirs in the gazette parisienne.
+                 

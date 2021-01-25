@@ -1,0 +1,107 @@
+---
+title: "proud in a sentence | proud example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "proud"
+---
+- I am so `proud` of us.
+- I'm so `proud` of her.
+- I'm so `proud` of you.
+- So `proud` of you, too.
+- You must be so `proud`.
+- Dad would be so `proud`.
+- Don't be `proud`, james.
+- I'm `proud` of who i am.
+- I'm `proud` of you, bud.
+- I'm `proud` of you, lad.
+- I'm `proud` of you, sam.
+- I'm `proud` of you, too.
+- I'm `proud` to have him.
+- I'm very `proud` of him.
+- I will make you `proud`.
+- Won't mother be `proud`.
+- You `proud` of yourself?
+- I'm `proud` of this play.
+- Puff, i'm `proud` of you!
+- We're all `proud` of you.
+- You must be very `proud`.
+- Be `proud` of those wings.
+- Don't you feel `proud`...?
+- I'm `proud` of you, buddy.
+- I'm really `proud` of you.
+- I'm so `proud` of you all.
+- "`proud`... to be... an...
+- ♪ `proud` to work for him!
+- So `proud` of his peaches.
+- Your mom would be `proud`.
+- You should all be `proud`.
+- Ah, you must be so `proud`.
+- I hope he makes me `proud`.
+- I'll make you very `proud`.
+- I'm just so `proud` of you.
+- I'm `proud` of you, murphy.
+- I'm so `proud` of you, bud.
+- I'm so very `proud` of you.
+- Ok. well...make us `proud`.
+- She'd be so `proud` of you.
+- She must be `proud` of you.
+- Are you `proud` of me, bill?
+- Dev would be `proud` of you.
+- Doesn't it make you `proud`?
+- I'm `proud` of her for that.
+- I'm `proud` of you, vincent.
+- I'm so `proud` of you, baby.
+- I'm so `proud` of you, madi.
+- Just be `proud` it happened.
+- So, i think they're `proud`.
+- You've done delilah `proud`.
+- You... should be `proud`.
+- Hey, i'm `proud` of you, kid.
+- _ i'm `proud` of both of you.
+- I wanted to make you `proud`.
+- `Proud` to know you, trapper.
+- You must be a `proud` father.
+- Your father would be `proud`.
+- Damn, i'm `proud` of you, boy.
+- I'm not `proud` of what i did.
+- I'm so `proud` of you, yasuko.
+- Your father is `proud` of you.
+- And...well...i'm `proud` of us.
+- Hell, i, i'm not `proud` of it.
+- I used to be so `proud` of him.
+- Nixon's wife is `proud` of him.
+- You'd have been `proud` of her.
+- Your mother will be so `proud`.
+- He's got a lot to be `proud` of.
+- He's really `proud` of his work.
+- Hope you're `proud` of yourself.
+- I'll wait... ed, i'm so `proud`!
+- No, i'm not `proud` of myself...
+- `Proud` of me for getting fired?
+- `Proud`, priggish and competent.
+- That must have made you `proud`.
+- You don't seem all that `proud`.
+- You must have been very `proud`.
+- Your mother would be so `proud`.
+- Dammit, i'm `proud` to be an ant.
+- Da vinci would be `proud` of you.
+- Do you think i'm `proud` of this?
+- He's too `proud` to beg for help.
+- He was a bit `proud` as i recall.
+- My husband is a `proud` man, sir.
+- We will be `proud` to assist you!
+- She's so `proud` of her boyfriend.
+- That must make you very `proud`...
+- That's something to be `proud` of.
+- Do you think i'm `proud` of myself?
+- I'm really `proud` of you, frances.
+- Oh, she's quite `proud` of herself.
+- We're all so `proud` of you, jesse.
+- And `proud`, and utterly ridiculous.
+- He's `proud` of his accomplishments.
+- I'll do my best to make you `proud`.
+- I'm happy because i'm `proud` of us.
+- I'm sure you're very `proud` of max.
+- Your mother would be `proud`, monty.
+- I'm `proud` to have you in my school!
+                 

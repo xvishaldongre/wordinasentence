@@ -1,0 +1,107 @@
+---
+title: "nature in a sentence | nature example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nature"
+---
+- It's in your `nature`.
+- It's not our `nature`.
+- All `nature` is living.
+- It's all human `nature`.
+- Not by `nature`, anyhow.
+- Things of that `nature`?
+- To be one with `nature`.
+- You're a `nature` lover.
+- He's a force of `nature`.
+- It's against my `nature`.
+- `Nature` ... ... power ...
+- Anyway, uh, `nature` calls.
+- I mean the `nature` of you.
+- One of the laws of `nature`.
+- The `nature` of the business.
+- Horses are `nature`'s triumph.
+- Sidney, i know human `nature`.
+- Illusory `nature` of existence!
+- It's in your `nature` to steal.
+- You've got a generous `nature`.
+- By `nature` or nurture, or both.
+- Because of the `nature` of murder.
+- For that is the `nature` of family.
+- What do you know about my `nature`?
+- Man against `nature`, right travers.
+- Now what's wrong with `nature`, huh?
+- As the man said, it's in my `nature`.
+- Do what it is in your `nature` to do.
+- It's only `nature`, rose, that's all.
+- Some people are very shy by `nature`.
+- Stand aside, sam, `nature`'s callin'.
+- State the `nature` of your emergency.
+- Are you by `nature` a sadistic person?
+- It�s by `nature` an impermanent thing.
+- `Nature` made him then broke the mold.
+- `Nature` selected them for extinction.
+- Sounds like a freak of `nature` to me.
+- What was the `nature` of the argument?
+- It is human `nature` to need vengeance.
+- It's just the wildest show in `nature`.
+- `Nature` can be wonderful and terrible.
+- It's not like it's `nature` or anything.
+- I would say you're very shy by `nature`.
+- The `nature` of it's in there somewhere.
+- Well, dawn, i'm an optimist by `nature`.
+- You going to take me on a `nature` walk?
+- Could these wormholes appear in `nature`?
+- What does he do--of an athletic `nature`?
+- You should glory in your animal `nature`.
+- Of the `nature` of mrs. holland's illness.
+- One of `nature`'s symbiotic relationships.
+- The scorpion does what is in his `nature`.
+- You ought to let him get to know `nature`.
+- Now you've broken the laws of `nature`!
+- Was it just your criminal `nature` or what?
+- You mean the `nature` of this conversation?
+- A chance for mother `nature` to start again.
+- But what if he doesn't -- it's his `nature`.
+- She understands the `nature` of "the beast."
+- You mistook my taciturn `nature` for fealty.
+- 'atsa sign i got me an affectionate `nature`.
+- It is in your `nature` to destroy yourselves.
+- It talks about our sinful `nature`, you know?
+- Nothing but the very worst in man's `nature`!
+- That's the `nature` of all progress, william.
+- What is the `nature` of your interest in joe?
+- Filling in mother `nature`'s blind spots ... ?
+- I've seen it in `nature`, i've seen it in men.
+- That it's not in your `nature` to let me go.
+- It is nothing of a sexual `nature` i assure you.
+- ...of a much more brutal, cold-blooded `nature`.
+- Strap you down and pump the `nature` out of you?
+- Let 'em die on the streets, as `nature` intended.
+- Tyrell, you are an unstoppable force of `nature`.
+- We shall penetrate into the recesses of `nature`.
+- Can i say something of a personal `nature` to you?
+- Now, what's the `nature` of this venture of yours?
+- First, because i don't think it's in your `nature`.
+- Look, i'm not a confrontational person by `nature`.
+- I mean aside from the one's that `nature` gave you ?
+- Is not in your `nature`, so i'm gonna show you mwah!
+- I want the process to become second `nature` to you.
+- Baron couer de noir is a blight 'gainst all `nature`.
+- This "... of what i call god and fools can `nature`."
+- You know that i feel similarly to you about `nature`.
+- He says a woman in trousers is a sin against `nature`.
+- `Nature` and truth are the very enemies of playacting.
+- This is a banana eating a monkey, `nature` in reverse.
+- Runs against my `nature` to hole up in a cave and wait.
+- And, i don't believe you can ever change human `nature`.
+- I need to ask you questions of a psychological `nature`.
+- I know the darkness and cruelty of `nature`, sweetie pie.
+- The emperor will show you the true `nature` of the force.
+- What exactly is the `nature` of your mission, mr. klaatu?
+- I've always been proud of the way `nature` singled me out.
+- They live according to `nature`, in a never ending summer.
+- What was the `nature` of your relationship with dr. paley.
+- `Nature`'s going to bury you like she buries everyone else.
+- When will the heart be aweary of beating, and `nature` die?
+- Your hands, your eyes, your `nature`, are the same as mine.
+                 

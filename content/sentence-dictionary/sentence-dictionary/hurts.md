@@ -1,0 +1,75 @@
+---
+title: "hurts in a sentence | hurts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hurts"
+---
+- It physically `hurts`.
+- Shhh, my head `hurts`.
+- That `hurts` everyone.
+- Sonofabitch it `hurts`!!
+- Mmmm -- `hurts` a little.
+- My back `hurts`, my skin.
+- It `hurts` the first time.
+- Goddammit that `hurts` !!!!
+- Sometimes is still `hurts`.
+- Whatever it is, it `hurts`.
+- What if he `hurts` someone?
+- It `hurts` too much to care.
+- Like it `hurts` my feelings.
+- Look, i'm shot - it `hurts`.
+- Only `hurts` when i breathe.
+- What `hurts` so much, bruce?
+- Damn, it really `hurts`, mom.
+- [sniffles] the truth `hurts`.
+- I love you so much it `hurts`.
+- It `hurts` like the first time.
+- Make it stop,it really `hurts`!
+- Who cares who it `hurts`, right?
+- I know it `hurts` the first time.
+- Awww, it still `hurts`, doesn't it?
+- It only `hurts` until you pass out.
+- Lift the lid and look-- it `hurts`.
+- Just tell me where it `hurts`, baby.
+- That really `hurts` with the braces.
+- The truth `hurts`, doesn't it, buddy?
+- What you did to me, i know it `hurts`.
+- Why do you do it if it `hurts` so bad?
+- But when this cat fucks her, it `hurts`.
+- After a while that `hurts`... doesn't it?
+- It `hurts` that you would say that to me.
+- It `hurts`, it `hurts` so bad, make it stop.
+- That a women's death `hurts` a family more?
+- You can't even imagine how much it `hurts`.
+- I don't know how many but... my head `hurts`.
+- Hit 'em where it `hurts` -- right in the nuts.
+- `Hurts` considerably more than you might think.
+- How ya think, it `hurts` like a son-of- a-bitch.
+- I'll blame loving you for how much it `hurts`.
+- Nothing `hurts`, pard, once you got that one down.
+- But my neck `hurts`... and i have a slight cough...
+- What `hurts` the most is that i can't imagine hey.
+- Ya' eyes hurt, ya' ears hurt, ya' hair even `hurts`...
+- I know this `hurts`, but it'll only take a few seconds.
+- Close enough that it hits the man right where it `hurts`.
+- As much as i know it `hurts` you, you have to let this go.
+- Oh... god... am i cold... <u>oh god it `hurts` so bad</u>!
+- You hit me where it `hurts` the most: right in the sponsors.
+- It `hurts` so much to know you would not look at me the same.
+- You dead-ass, clown-faced fuck, of course it fucking `hurts`!
+- Light actually `hurts` them.... like the light is scalding it.
+- The people he `hurts` the most are the people who love him.
+- So the idea is if a guy punches me, he really `hurts` his hand?
+- The lack of trust `hurts` me, clarke, but none of that matters.
+- They struggle, and snarl, and claw, but neither `hurts` the other.
+- Okay, so discrimination `hurts` the anglo too, but it `hurts` me more.
+- I can't tell you how much it `hurts` me to hear that you married him.
+- And wonkru surrenders... helen, is he playing that `hurts` people like them?
+- No matter what, no matter how angry it makes me, no matter how much it `hurts`.
+- First you question my integrity, then you call me stupid... ...that `hurts`, son.
+- You tell russell if he `hurts` any of my people not yet, but people are gathering.
+- It's messy and `hurts` like a mother, that was another time and another chancellor.
+- It `hurts` like hell, but you never really needed the damn thing in the first place.
+- What you really want to ask me is about my back, isn't it -- about where it `hurts`?
+- Well, when you're looking at your future, it never `hurts` to find closure about the past.
+                 

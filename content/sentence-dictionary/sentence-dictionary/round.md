@@ -1,0 +1,107 @@
+---
+title: "round in a sentence | round example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "round"
+---
+- Now we play `round` 2.
+- One `round` trip each.
+- One `round`-trip each.
+- Ready for `round` two?
+- You beat `round` 1.
+- I hate `round` numbers.
+- Cut `round` him for now.
+- See ya '`round` maynard.
+- One way, or `round` trip?
+- People seen him '`round`.
+- `Round` of golf saturday?
+- When's your next `round`?
+- For one `round`-trip each.
+- He won't last one `round`.
+- Not the other way `round`.
+- Step on it, short `round`!
+- When could i look `round`?
+- Bring the car `round` back.
+- Halfway '`round` the world.
+- That's just `round` one.
+- Sixteen minute `round` trip.
+- They don' want him '`round`.
+- What's so hot '`round` town?
+- Yeah, another `round` thing.
+- Yes, you've circled `round`.
+- Bartender, another `round`...
+- It's just `round` the corner.
+- Fifty's a nice `round` number.
+- First `round`'s on me tonight.
+- You got a chisel `round` here?
+- All the way `round` here, fiji.
+- Columbus proved it was `round`.
+- Got taken in the first `round`.
+- He's working `round` the clock.
+- I wear this ] all year `round`.
+- Not from '`round` here, are ya?
+- You got a `round` figure on it?
+- All right, let's `round` 'em up.
+- How come you stay '`round` here?
+- Dat dress will cast ya `round`...
+- Kind of `round`, like so... gold.
+- Money makes the world go `round`.
+- `Round` the corner fudge is made.
+- `Round` the world in eighty days.
+- The doctor will be `round` later.
+- Lashings of apologies all `round`.
+- Should be the other way `round`...
+- They say your dad's '`round` town.
+- My little `round` friends, too.
+- I want you at it `round` the clock.
+- You'll have `round`-the clock care.
+- Children of gabriel, gather `round`.
+- For what makes the world go `round`.
+- Give me a `round` figure, mr. scott.
+- I... or is it the other way `round`?
+- You've been going `round`-the-clock?
+- As `round` and rare as golden apples!
+- Can you `round` up a few of the boys?
+- I can't have nobody `round` my place.
+- Something to `round` out your salary.
+- Why's his britches `round` his knees?
+- You've been running `round` too much.
+- Standard light armor-piercing `round`.
+- Wander `round` lugging your suitcases?
+- We'll drive `round` again, week or so.
+- Women're always followin' me '`round`.
+- Did you handle the `round`, mr. wigand?
+- The tramp crowd `round` alex, shouting.
+- Things go `round` 'n `round`, don't they?
+- You can't switch '`round` jobs, anyway.
+- He gets a `round` trip ticket to heaven.
+- He puts his arm `round` alex's shoulder.
+- Take these `round` now, will you please?
+- The point is, you only go '`round` once.
+- Fabri, get us another `round`, would you.
+- Looks like a damn graveyard `round` here.
+- Would you... maybe call `round` sometime?
+- The moon is too `round` of face, methinks.
+- There's a bunch a us '`round` somewhere...
+- I thought eighty was a good `round` number.
+- Short `round`, come on, grab onto me tight!
+- The airport... no, look out, short `round`!
+- There's another coming '`round` the corner.
+- We've got enough for one `round`-trip each.
+- Your honor� over at that big `round` table.
+- He don't sound like he's from '`round` here.
+- Hey, that's what makes the world go `round`.
+- That's the second `round` i've lost tonight.
+- We've got enough for one `round` trip, each.
+- Better we eat him than the other way `round`.
+- It didn't have a face... next `round`'s on me.
+- `Round` up who you can and put them on standby.
+- Harry invited smithy `round` for an explanation.
+- Oh, it's got `round` that you're a heavy punter.
+- Wait for me for when i get `round` to the front.
+- We're only joking.....it is your `round` though!
+- ♪ i got my ticket for the long way '`round` ♪ oh.
+- When you gonna come `round` and see my new place?
+- How about the odds of me buying the first `round`?
+- On a `round`-the-clock regimen of skin thickeners.
+                 

@@ -1,0 +1,52 @@
+---
+title: "lifetime in a sentence | lifetime example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lifetime"
+---
+- It's a `lifetime`'s work.
+- That was a `lifetime` ago.
+- Seems like a `lifetime` ago.
+- Not even a single `lifetime`.
+- 2.4 blocks per game, `lifetime`.
+- Can take a `lifetime` to pull off.
+- Than i have in an entire `lifetime`.
+- It's the opportunity of a `lifetime`.
+- That's honor enough for a `lifetime`.
+- A `lifetime` of violence will do that.
+- It was the experience of a `lifetime`.
+- A `lifetime`'s worth of disappointment.
+- I'm going to have her for a `lifetime`.
+- This is the opportunity of a `lifetime`.
+- Try and live a `lifetime` before friday.
+- And you'll feed him dirt for a `lifetime`.
+- I've waited half a `lifetime` to say this.
+- Thirty-two hundred bucks for a `lifetime`.
+- That takes hard work -- a `lifetime` of it.
+- A `lifetime` ago, i, too, sought the stones.
+- It lays down quite a barrage in a `lifetime`.
+- `Lifetime` supply of pantyhose, or some shit.
+- Saving them from a `lifetime` of enslavement.
+- Might go his whole `lifetime` and never get one.
+- Was an instant of purity worth a `lifetime` lie?
+- It's too involved; a `lifetime` of non- involvement.
+- But a moment of love, is that not worth a `lifetime`?
+- True genius is rarely rewarded within its `lifetime`.
+- After that, just a `lifetime` of wearing retainers.
+- I guess you got enough today to last a `lifetime`, huh?
+- Only once in a `lifetime` do you stare history in the face.
+- Or hundred knives you've probably owned in your `lifetime`?
+- That's not the same thing as a `lifetime` of petty crime...
+- It will take a long time, ninotchka... at least a `lifetime`.
+- That's a helluva way to describe the bargain of a `lifetime`.
+- The answer to the confusion and bewilderment of a `lifetime`.
+- It's going to change drastically, and probably in your `lifetime`.
+- I've been humiliated enough already to last a `lifetime`, thank you.
+- You just said an instant of purity was preferrable to a `lifetime` lie.
+- Say, listen�i've devoted a whole `lifetime` trying to tame that wildcat.
+- Those are impurities imbedded in the lung after a `lifetime` of 'civilization.'
+- For most girls seeing the bolshoi ballet would be the experience of a `lifetime`.
+- I don't think my skin is tough enough to survive a `lifetime` of you and your brush.
+- It's pure evil to make a captain walk the plank of his own ship, twice in one `lifetime`.
+- Spending a `lifetime` alone with someone you love i mean, i'm just your bartender, right?
+                 

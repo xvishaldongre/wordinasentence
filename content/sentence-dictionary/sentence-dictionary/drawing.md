@@ -1,0 +1,62 @@
+---
+title: "drawing in a sentence | drawing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drawing"
+---
+- I'm `drawing` a blank.
+- I'm `drawing` the line.
+- Still `drawing` a blank.
+- `Drawing`'s a good thing.
+- She showed me a `drawing`.
+- What is it a `drawing` of?
+- ey’re `drawing` our ﬁre.
+- He's `drawing` an isthmus...
+- Just focus on the `drawing`.
+- It's just a `drawing` not real.
+- It was a kid's `drawing`, joyce.
+- May i see the `drawing`, please?
+- Do you mind signing my `drawing`?
+- It's not like `drawing` on paper.
+- I should like to see my `drawing`.
+- Pity i didn't keep that `drawing`.
+- I can't just be `drawing` some map.
+- In `drawing` gamblers to the casino.
+- Well, i do a little `drawing` -- oh?
+- Back to the `drawing` board, i guess.
+- The four horsemen are `drawing` nigh!
+- Why were you `drawing` the holy mary?
+- You didn't say there was a `drawing`.
+- I'm `drawing` bad blood from the wound.
+- Do you know what to do in a `drawing`- room?
+- I have a large `drawing` room all to myself.
+- It's the same shape as... as your `drawing`.
+- Deeds is `drawing` on his warped imagination!
+- Thanks for `drawing` that machine gun off me.
+- We may be `drawing` a line, but... - get off.
+- She's `drawing` memories that are not her own.
+- Where are we, lug, in a `drawing` room comedy?
+- I caught him `drawing` this in class last week.
+- It was you `drawing` on the belly over there...
+- I was merely `drawing` a parallel, miss daniels.
+- I'd pay for the privilege of `drawing` your head.
+- I have a `drawing` of you saying that in michigan.
+- I'm talking about `drawing` a line in the sand, dude.
+- The other night jasper tried to show you a `drawing`.
+- But `drawing` a picture won't improve the way it looks.
+- She's `drawing` attention to us, that's what she's doing.
+- There was a `drawing` on the wall that looked like a bird.
+- There's a `drawing` on every page... and all these quizzes.
+- Her regular supply of `drawing` pencils has dwindled to nothing.
+- Vic's gone mister hyde on us -- go back to the `drawing` board.
+- The `drawing` shows a priest named sankara who lived centuries ago.
+- If we wanted you dead, you would no longer be `drawing` breath in miami.
+- Up in the berkshires one weekend, `drawing` a picture of mount greylock.
+- When i asked evan about his `drawing`, well, he didn't remember doing it.
+- A week later this gallery calls me up: "somebody's offering us the `drawing`.
+- With all those lights `drawing` all night, the batteries had that much charge.
+- She'll take a light supper alone in her private `drawing` room and retire early.
+- And he checks the drive, yeah, there was a `drawing` of a... an adult and a child.
+- Have not received last month's `drawing` account; how come your neck is like a swan.
+- I'll remember that the next time you get excited by `drawing` pubic hairs on raisin bran.
+                 

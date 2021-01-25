@@ -1,0 +1,64 @@
+---
+title: "courage in a sentence | courage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "courage"
+---
+- I don't want `courage`.
+- Come on now - `courage`.
+- That takes... `courage`.
+- He was full of `courage`.
+- But `courage` isn't justice.
+- But i admire your `courage`.
+- The only one with `courage`.
+- Her strength...and `courage`.
+- He says he likes your `courage`.
+- Your `courage` and your dignity.
+- No, change 'guts' to '`courage`.'
+- He's got old bill's `courage`.
+- `Courage` is an emotion too, data.
+- That must've taken some `courage`.
+- There's no `courage` without fear.
+- With `courage` alone he nearly won.
+- It takes `courage` to do what he does.
+- You're confusing `courage` with wisdom.
+- `Courage` man, the hurt can not be much.
+- Then... don't talk to me about `courage`.
+- For your `courage` through the dark years.
+- I'm sure he could give you some `courage`.
+- But you're going to need `courage`, willow.
+- Where is your `courage`, comrade buljanoff?
+- Remember, there's no `courage` without fear.
+- They have no more `courage` than you have.
+- Of course, one must admit he has great `courage`.
+- But men don't follow titles, they follow `courage`!
+- Now i suppose you don't think i have the `courage`!
+- You must have `courage` for it, then it's wonderful.
+- But he earned it with his `courage`... and his heart.
+- Take me where i haven't the `courage` to take myself.
+- I've never had the `courage` to say this before but...
+- I see i'm not the only one impressed by your `courage`.
+- But here's to your god and the `courage` of our legions...
+- You just don't have the `courage` to admit it to yourself.
+- The crest of a lion and a dragon and a single word: `courage`.
+- Which do you think is more important, `courage` or confidence ?
+- There is something we can do but it will require great `courage`.
+- If we had the `courage`, we would have left with kane, no, please.
+- Perhaps it's because they lack the `courage` to do anything about it.
+- We do have to take into consideration that, through your `courage`...
+- Do you have something you use, when you need to get up your `courage`?
+- Honor that is freely accorded to `courage`, may be refused obstinacy...
+- We have acted and showed `courage` that is not of a kind known by most.
+- A coward... without the moral `courage` to stop an unspeakable atrocity.
+- That message is, "`courage`, mom..." and he got the message through.
+- That last night in the palace... one boy showed us kindness and `courage`.
+- He said people would say you hadn't the `courage` to deal with it yourself.
+- They take those teardrops seriously -- they're badges of `courage`, of honor.
+- Look at people who had real `courage`, who took risks, who risked their lives.
+- Why only -- oh -- don't you know the wizard's going to give you some `courage`?
+- You're good and god knows you got the `courage`, but you ain't in ringo's class.
+- I've seen you so often - it took every bit of `courage` i could raise- not at all.
+- Someone is accessing you have `courage`... sure, eventually, when you were old enough.
+- Wearing a uniform doesn't bestow an automatic monopoly on `courage`, <u>commander</u>!
+- It will take a lot of `courage` and backbone on the part of the cns to get this on the air.
+                 

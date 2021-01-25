@@ -1,0 +1,107 @@
+---
+title: "seen in a sentence | seen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seen"
+---
+- But...i've `seen` you.
+- Has anyone `seen` her?
+- Have you `seen` gibbs?
+- Have you `seen` monty?
+- Have you `seen` peter?
+- I haven't `seen` them.
+- I've never `seen` him.
+- I've never `seen` one.
+- I've `seen` him do it!
+- I've `seen` it before.
+- I've `seen` it happen.
+- I've `seen` that done.
+- I've `seen` that play.
+- I've `seen` them, too.
+- I've `seen` the omega.
+- ...i've `seen` things.
+- I've `seen` your face.
+- `Seen` the commerical?
+- We haven't `seen` him.
+- Yeah, i've `seen` him.
+- You haven't `seen` it.
+- You haven't `seen` me.
+- You shoulda `seen` me!
+- You've `seen` octavia?
+- You've `seen` to that.
+- Ever `seen` him before?
+- Finally, i feel `seen`.
+- Haven't `seen` anybody.
+- Have you `seen` dustin?
+- Have you `seen` tamara?
+- Have you `seen` walter?
+- Have you `seen` willie?
+- I have `seen` it often.
+- I have `seen` the lady.
+- I should've `seen` him.
+- I've already `seen` it.
+- I've `seen` a lot, max.
+- I've `seen` everything.
+- I've `seen` you around.
+- I've `seen` you before.
+- I've `seen` your house.
+- I wish i had `seen` it.
+- Ned, i `seen`... death.
+- Never `seen` it before.
+- Never `seen` it so hot.
+- Okay, you've `seen` me.
+- `Seen` the new playboy?
+- Someone has `seen` her.
+- You `seen` my suitcase?
+- You've never `seen` it.
+- You've never `seen` me.
+- You've `seen` the club.
+- Ain't no one `seen` him.
+- Anybody `seen` my scope?
+- Have you `seen` day-day?
+- Have you `seen` jeffrey?
+- Have you `seen` octavia?
+- Have you `seen` verdell?
+- He's `seen` a dozen now.
+- I'd `seen`... something.
+- I have never `seen` him.
+- I have `seen` him again.
+- I have `seen` it before.
+- I have `seen` it in you.
+- I know, i've `seen` him.
+- I never `seen` a turtle.
+- I `seen` a pitcher once.
+- I `seen` enough to know.
+- I should of `seen` this.
+- I've always `seen` that.
+- I've `seen` it in books.
+- I've `seen` that before.
+- I've `seen` the photo's.
+- I've `seen` this before.
+- I've `seen` those leads.
+- I've `seen` you in here.
+- I've `seen` your movies.
+- I�ve `seen` you on cnbc.
+- Last `seen` in nebraska.
+- Never `seen` him before.
+- No, i've never `seen`...
+- Oh, i've `seen` these...
+- `Seen` a lot of islands?
+- `Seen` plenty of it too.
+- `Seen` that face before.
+- She has `seen` too much.
+- We `seen` all your shit!
+- You ain't `seen` nothin.
+- What have you `seen`?
+- But i've never `seen` it.
+- But i've `seen` the deed.
+- Has anyone `seen` claude?
+- Has anyone `seen` eduard?
+- Has anyone `seen` rudolf?
+- Has nick `seen` a doctor?
+- Have i `seen` her before?
+- Have you ever `seen` him?
+- Have you `seen` calloway?
+- Helms has `seen` to that.
+- Hey, you guys `seen` dax?
+                 

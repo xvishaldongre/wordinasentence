@@ -1,0 +1,107 @@
+---
+title: "divorce in a sentence | divorce example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "divorce"
+---
+- `Divorce` ain't final.
+- She wants a `divorce`.
+- The `divorce`, i mean.
+- There was no `divorce`.
+- For getting a `divorce`?
+- I'm getting a `divorce`.
+- When did john `divorce`?
+- I'm in `divorce`, mainly.
+- Well, not just `divorce`.
+- I deal in `divorce` cases.
+- She's getting a `divorce`.
+- We're getting a `divorce`.
+- We're getting a `divorce`.
+- Instant `divorce` you mean?
+- I screwed up the `divorce`.
+- She's going to `divorce` me.
+- Please don't get a `divorce`!
+- Remind me to get a `divorce`.
+- She was filing for `divorce`.
+- Hey, i'm a child of `divorce`.
+- She never mentioned `divorce`!
+- My `divorce` just came through.
+- But why do you want a `divorce`?
+- The marriage ended in `divorce`.
+- We're never getting a `divorce`.
+- Sylvie -- i'm getting a `divorce`.
+- 'cause they're getting a `divorce`.
+- Ted, `divorce` is a terrible thing.
+- Are you and mom getting a `divorce`?
+- The ink on your `divorce` isn't dry.
+- Boyd brought up `divorce` statistics.
+- More mountain, i will `divorce` you."
+- George, she's not gonna `divorce` you.
+- Hey, gary, how's the `divorce` comin'?
+- Is it true you're getting a `divorce`?
+- Stifler's mom got it in the `divorce`.
+- I `divorce` thee' don't talk like that.
+- I mean -- about my getting a `divorce`.
+- They call it "collaborative `divorce`."
+- Why did your mother ever `divorce` him?
+- `Divorce`... is a strange concept to us.
+- It's this legal term called "`divorce`."
+- But that is no reason to get a `divorce`!
+- Your dad dated my mom after her `divorce`.
+- I just want to pick up my `divorce` papers.
+- `Divorce` is a very serious sin, apparently.
+- Me and robin got a `divorce` six months ago.
+- Why the hell couldn�t you `divorce` the man?
+- Wasn't she the judge at my `divorce` hearing?
+- Why, a `divorce` doesn't mean anything today.
+- Barry's `divorce` came through, be diplomatic.
+- You said one in two marriages end in `divorce`.
+- Than getting a `divorce` or opening a bookstore.
+- Well, you mentioned her father... the `divorce`.
+- She said that she wanted a `divorce` in reno.
+- I ain't worn it since our `divorce` came through.
+- I haven't been with anyone since my `divorce`.
+- I've been talking to a prominent `divorce` lawyer.
+- We have to `divorce` ourselves from emotions here.
+- He said that if i got a `divorce` i'd burn in hell.
+- If i stop ... there'll be no more talk of `divorce`?
+- Anne asked me to come and see you about the `divorce`.
+- Hop on over to reno, get yourself a quickie `divorce`.
+- You want to `divorce` daddy and daddy doesn't want to.
+- "if you climb one more mountain, i will `divorce` you."
+- You know: how the voters are gonna play your `divorce`.
+- Your `divorce` pain's getting real old real fast, dude.
+- But it wasn't like i was feeling bad about the `divorce`.
+- When we `divorce` a decade ago, she was very, very angry.
+- But marylin, you know a `divorce` would ruin me right now.
+- Four years, you still haven't signed your `divorce` papers.
+- That was the one unpolluted part of my `divorce` -- no kids.
+- Worth the training... worth the `divorce`... worth anything.
+- Why don't you ask her just to leave a date for the `divorce`?
+- Do you know that mother is seeing a prominent `divorce` lawyer?
+- He wouldn't `divorce` his wife... because she was a great cook.
+- I'm happy for you patty `divorce` was her childhood aspiration?
+- My aunt used to say, "`divorce` is the sister-in-law of death".
+- Y'know something thelma--you are the typhoid mary of `divorce`.
+- I did go see him in jail to tell him i was filing for `divorce`.
+- I'll look at the `divorce` decree, see if we can get it redrawn.
+- You said in your `divorce` papers that he tried to kill himself.
+- He's getting a `divorce` and he's in the doghouse with my mother.
+- I know -- why should a bitter `divorce` interfere with tradition?
+- You think the marriage and the `divorce` was part of some scheme.
+- Their parents are getting a `divorce` and they need the diversion.
+- I mean, i dated a little bit after my `divorce`, for four or five years.
+- No... but it started one year to the day after my `divorce` became final.
+- I do think you should know that my wife and i are getting a `divorce` soon.
+- So when she wanted a `divorce`...i was...i didn't know what i'd done wrong.
+- When you break off your engagement to martha curtis, i'll `divorce` william!
+- I'm not talking about cell block d. his wife had just filed for `divorce`.
+- I kept trying to call you after my `divorce` and tom always said you were busy.
+- But "split city" sounded like it might have have something to do with `divorce`.
+- The wife's family lawyer comes to see the kid, see - to talk over the `divorce`.
+- After dave got fired, sherry kicked him out of the house and filed for `divorce`.
+- I guess we just `divorce` our spouses, marry each other, and have this baby, right?
+- Daddy's not coming back, she's in the middle of a `divorce`, it's just the two of them.
+- I can't have a baby with a man i don't love... and i can't submit a child to `divorce`.
+- No need for `divorce` and that messy division-of-assets thing when they kick before you do.
+                 

@@ -1,0 +1,107 @@
+---
+title: "pay in a sentence | pay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pay"
+---
+- How did she `pay` you?
+- Let me `pay` for this.
+- Live now, `pay` later.
+- Now you must `pay` me.
+- `Pay` the two dollars.
+- These we'll `pay` for.
+- To `pay` for all this?
+- We'll `pay` all costs.
+- You don't `pay` taxes.
+- You will `pay` dearly.
+- Cost me a week's `pay`.
+- Did he `pay` attention?
+- Fuck double `pay`, man!
+- How much did you `pay`?
+- Three kids, army `pay`.
+- Try to `pay` attention.
+- What did you `pay` him?
+- What if we don't `pay`?
+- You `pay` toby no mind.
+- He's gonna `pay` us.
+- Angelo, `pay` attention.
+- Army'd `pay` for school.
+- Doesn't `pay` very well.
+- Don't `pay` to complain.
+- How much do i `pay` him?
+- I'll `pay` you anything.
+- I'll `pay` you tomorrow.
+- I `pay` you, i paid you.
+- Make them `pay` for him.
+- `Pay` her and thank her.
+- `Pay` him what he wants.
+- `Pay` me, and i shut up.
+- They actually `pay` you?
+- You don't even `pay` me!
+- You don't have to `pay`.
+- You'd `pay` me for that?
+- Can i `pay` you properly?
+- Do i have to `pay` juice?
+- Hey, you didn't `pay` me!
+- How do you want to `pay`?
+- I'll go `pay` for my car.
+- I'll `pay` you on friday.
+- I tried to `pay` you off.
+- It's `pay` day, ain't it?
+- Now i can `pay` him back.
+- Now `pay` attention, 007.
+- `Pay` no attention to it.
+- `Pay` no attention to me.
+- Six months advance `pay`.
+- That's why you `pay` him.
+- The carriage i `pay` for.
+- What if i `pay` the rent?
+- You better `pay` the man.
+- You have to `pay` me now.
+- He was gonna `pay` us.
+- Because you have to `pay`.
+- Composition doesn't `pay`.
+- Did he `pay` you for this?
+- How much did he `pay` you?
+- How's the `pay` in movies?
+- I'll `pay` our going rate.
+- I won't `pay` for nothing.
+- `Pay` you back... grow up.
+- That's my morning's `pay`.
+- What did you `pay` nilsen?
+- Who's going to `pay` them?
+- You'll `pay`, little flea.
+- You `pay` me when you can.
+- You `pay` too big a price.
+- How did you `pay` for them?
+- How much shall i `pay` you.
+- How much shall i `pay` you?
+- I'd `pay` you 1000 dollars.
+- I'll `pay` you back double.
+- I never `pay` for anything.
+- Let's `pay` scotty a visit.
+- Maybe i can `pay` you back.
+- Now why don't you `pay` me?
+- The bureau'll `pay` for it.
+- We fucked up his `pay`-off.
+- We'll `pay` you sick leave.
+- Well, we `pay` for the [?].
+- We `pay` for wire services.
+- You get what you `pay` for.
+- How much does the job `pay`?
+- How much will you `pay` him?
+- I can `pay` now if you like.
+- I'll have to `pay` him back.
+- I mean, you `pay` attention.
+- It's how he earns his `pay`.
+- Just `pay` for these drinks.
+- Now try and `pay` attention.
+- So who's gonna `pay` for it?
+- To `pay` the bills and save.
+- Very small `pay`, i imagine.
+- What do we `pay` mookie for?
+- With what could i `pay` him?
+- You can't even `pay` me off.
+- You have to `pay` for those!
+- You'll `pay` me to watch tv?
+                 

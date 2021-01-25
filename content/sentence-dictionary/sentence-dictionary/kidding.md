@@ -1,0 +1,107 @@
+---
+title: "kidding in a sentence | kidding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kidding"
+---
+- He was only `kidding`.
+- Just `kidding`, frank.
+- No, i'm not `kidding`.
+- No `kidding`... panda.
+- Quit `kidding` around.
+- Stop `kidding` around.
+- You must be `kidding`.
+- You weren't `kidding`.
+- You�re `kidding` me...
+- Got to be `kidding` me.
+- He better be `kidding`!
+- He's not `kidding` you.
+- Pat, i'm not `kidding`.
+- Robert... no `kidding`.
+- You gotta be `kidding`!
+- You gotta be `kidding`.
+- You gotta be `kidding`?
+- Heh heh, just `kidding`.
+- No, he wasn't `kidding`.
+- They were `kidding` you.
+- What, are you `kidding`?
+- You got to be `kidding`.
+- You're `kidding`, right?
+- You think i'm `kidding`.
+- You think i'm `kidding`?
+- Are you `kidding`, josie?
+- Are you <u>`kidding`</u>?
+- He was `kidding` charlie.
+- I mean, you `kidding` me?
+- Shit, who am i `kidding`.
+- You fucking `kidding` me?
+- You got to be `kidding`?!
+- You have to be `kidding`.
+- You're `kidding`, really?
+- Come on, you're `kidding`.
+- Doolittle... no `kidding`?
+- Ergo... are you `kidding`?
+- Hey, i was only `kidding`!
+- Thelma, i'm not `kidding`!
+- We're `kidding` ourselves.
+- You'd better be `kidding`.
+- You gotta be `kidding` me!
+- You gotta be `kidding` me.
+- You're `kidding` yourself.
+- You've gotta be `kidding`!
+- You've gotta be `kidding`.
+- You've gotta be `kidding`?
+- You were `kidding`, right?
+- Are you `kidding` me, dude?
+- Except he wasn't `kidding`.
+- I was `kidding` about that.
+- Oh, are you `kidding`, man?
+- What, are you `kidding` me?
+- Who are you `kidding`, doc?
+- Who the fuck you `kidding`?
+- You got to be `kidding` me.
+- You're `kidding` me, right?
+- You're... `kidding`, right?
+- You think you're `kidding`.
+- You've got to be `kidding`.
+- I was just `kidding` around.
+- You're `kidding` -- ...polo.
+- Are you fucking `kidding` me?
+- Are you fuckin' `kidding` me?
+- It's just... - i'm `kidding`.
+- Krusty, are you `kidding` me?
+- You've gotta be `kidding` me!
+- It's for my wife, no `kidding`.
+- Who the hell are you `kidding`?
+- You've got to be `kidding` me !
+- Are you `kidding`, they love me.
+- Maya, you're `kidding` yourself.
+- Well, no, it isn't no `kidding`?
+- You're all `kidding` yourselves.
+- But who are you `kidding`, quill?
+- Come on frida, i'm not `kidding`.
+- Oh, you've gotta be `kidding` me.
+- This hospital, i'm not `kidding`.
+- Yeah, i'm `kidding`, i'm `kidding`.
+- Are you `kidding`, it looks great.
+- Janine melnitz, are you `kidding`?
+- Just `kidding`, get me this horse.
+- `Kidding` around... you know, fun.
+- You're just `kidding`, aren't you?
+- Because i've been `kidding` myself.
+- You gotta be fucking `kidding` me!!
+- You gotta be `kidding` m- stand up.
+- She hates smokers are you `kidding`?
+- No `kidding`, when will they be here?
+- Yeah, a man's drink... you `kidding`?
+- Now you're the one `kidding` yourself.
+- You must be `kidding` yourself, honey.
+- Are you `kidding`, i never miss a party.
+- No `kidding` -- wait till i tell linnea.
+- Dad i'm `kidding`, you can have the room.
+- I think you're `kidding` yourself, clara.
+- No, i'm not `kidding` you, <u>philip</u>.
+- Your brother wasn't `kidding` about that.
+- You're `kidding` with that answer, right?
+- When i dreamt of the ground, no `kidding`.
+                 

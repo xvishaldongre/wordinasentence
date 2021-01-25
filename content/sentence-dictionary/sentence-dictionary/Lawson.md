@@ -1,0 +1,53 @@
+---
+title: "Lawson in a sentence | Lawson example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lawson"
+---
+- Thank you, mr. `lawson`.
+- What about miss `lawson`?
+- Did you talk about miss `lawson`?
+- Where did you meet miss `lawson`?
+- Miss `lawson`, do you use cocaine?
+- What did he say about miss `lawson`?
+- 's going to file on rebecca `lawson`.
+- Is miss `lawson` a patient of yours?
+- I think `lawson` deserves the bijou.
+- Can we put rebecca `lawson` at the scene?
+- You don't like miss `lawson` much do you?
+- Did miss `lawson` and mr. marsh ever argue?
+- I take it you don't like miss `lawson` very much?
+- How would you describe your sex life with miss `lawson`?
+- Your honor, mr. roston is an ex-lover of miss `lawson`'s.
+- Did miss `lawson` ever accompany mr. marsh to your office?
+- Mr. roston, what was your relationship with miss `lawson`?
+- Did you change your will while you were with miss `lawson`?
+- After that didn't you continuously harass miss `lawson`?
+- It was right before he went to chicago and met miss `lawson`.
+- Dr. paley, where were you the last time you saw miss `lawson`?
+- Yes -- those of mr. marsh and a thumb print of miss `lawson`'s.
+- Miss `lawson` came in here voluntarily to answer your questions.
+- What eventually happened to your relationship with miss `lawson`?
+- She kills the old man and makes it look like miss `lawson` did it.
+- Your honor, this is a tape from miss `lawson`'s answering machine.
+- Did miss `lawson` ever give you any indication why she was leaving?
+- Do you remember the date when you saw miss `lawson` in the bathroom?
+- Your sexual tastes were something that you hid from miss `lawson`?
+- How do you know it was cocaine that miss `lawson` had in the bathroom?
+- How did your relationship with miss `lawson` progress after the surgery?
+- Did miss `lawson` ever accompany mr. marsh inside during his examinations?
+- Dr. trammel, did you ever speak to miss `lawson` about mr. marsh's condition?
+- He's the one who told me i could get the money if miss `lawson` went to jail.
+- The witness has already stated that miss `lawson` left without an explanation.
+- Is that because you were masquerading as luke trumbo while you were in `lawson`?
+- Did mr. marsh ever tell you that he had spoken to miss `lawson` about his illness?
+- Didn't miss `lawson` come home one day and find you in bed with your male lover?
+- I feel that his opinion is valid in substantiating the character of the miss `lawson`.
+- I was at the house one morning -- i thought miss `lawson` was upstairs with mr. marsh.
+- I opened the bathroom door one day and saw miss `lawson` pouring cocaine out of a vial.
+- I just wanted to introduce myself and inform miss `lawson` that there will be an inquiry.
+- May i remind mr. dulaney that the person on trial here is miss `lawson` -- not dr. paley.
+- There's no evidence that he had anything but straight sex prior to meeting miss `lawson`.
+- You don't really believe what the district attorney is saying about miss `lawson`, do you?
+- You see, i was involved in an accident in `lawson`, and i spent some time recovering there.
+                 

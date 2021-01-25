@@ -1,0 +1,51 @@
+---
+title: "slave in a sentence | slave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slave"
+---
+- I did `slave` all day.
+- I'll work, i'll `slave`.
+- You are a `slave` owner!
+- You were born a `slave`.
+- Old `slave` superstition.
+- It's like being a `slave`.
+- You're just his `slave`.
+- Identical `slave` mentality.
+- I refuse to be your `slave`.
+- That you are a `slave`, neo.
+- You look like a damned `slave`!
+- You will be my `slave` of love.
+- If i win, you become my `slave`.
+- It was called '`slave` of love.'
+- I'm a `slave` to that sonofabitch.
+- Robinson, you're the galley `slave`.
+- Not exactly a `slave` to probability.
+- No one will be `slave`, no one master.
+- You said the `slave` had a crucifix...
+- No race should be a `slave` to another.
+- Yeah and get a `slave`, too, huh, baby?
+- We'll need a `slave` switch to set it off.
+- The one where you go to the `slave` market.
+- Sally, our `slave` system is a british law...
+- But you are an aristocrat and a `slave` owner.
+- But it was once the figurehead of a `slave` ship.
+- Do you have a, ah, film called '`slave` of love?'
+- It was called '`slave` of love' when i bought it.
+- Now i shall have the son of jor-el as my `slave`!
+- That mass infection would make us a `slave` race.
+- Do you think you can just treat us like your `slave`?
+- That's the name of the `slave`- master who owned your family.
+- Yeah, that's me: book `slave` there for, like, five years now.
+- My people weren't taking any pictures from those `slave` ships, man.
+- Julius ain't my name, you better recognize hopkins was our `slave` name.
+- What dares the `slave` come hither, to fleer and scorn at our solemnity?
+- Magua was taken as a `slave` by the mohawks who fought for the grey hair.
+- With this pool of `slave` labor, you can underbid any contractor in town.
+- I dumped him in the swamp and untied the `slave`, licked his wounds clean.
+- Listen, i'm taking applications -- how'd you like to be my palace `slave`?
+- Well, back in `slave` times they had a thing called the underground railroad.
+- He used `slave` labor to build the v-2 rockets for hitler before bell needed him.
+- You're no `slave` to fashion ... although ... and i'm usually in bed by ten-thirty.
+- `Slave` labor... reverend harry wong, a preacher had the flophouse fronting for them.
+                 

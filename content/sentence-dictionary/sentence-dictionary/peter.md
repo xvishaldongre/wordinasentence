@@ -1,0 +1,107 @@
+---
+title: "peter in a sentence | peter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "peter"
+---
+- Have you seen `peter`?
+- Listen to me, `peter`.
+- `Peter`, are you okay?
+- `Peter`, i'm an agent.
+- `Peter` is the police!
+- `Peter` was a mistake.
+- `Peter`, what'll i do?
+- What about `peter`?...
+- Alright, c'mon `peter`.
+- Don't let him, `peter`.
+- Hi, i'm `peter` parker.
+- `Peter`, where are you?
+- Then do it for `peter`.
+- You're just... `peter`.
+- Are you `peter` venkman?
+- I'm `peter`, by the way.
+- Or tom and `peter` even.
+- `Peter`... --admit what?
+- `Peter` knows something.
+- `Peter` ... ... love ...
+- `Peter` spent the night.
+- This is `peter` venkman.
+- Do `peter` sellers again.
+- I can't be sure, `peter`.
+- Leave him alone, `peter`.
+- Me and `peter` both have.
+- Oh, this is big, `peter`.
+- `Peter`... is it serious?
+- `Peter` kenneth appleton.
+- `Peter`-- my condolences.
+- `Peter`'s right, captain.
+- `Peter`, this is serious.
+- Very amateurish, `peter`.
+- His helper, black `peter`.
+- `Peter`, i believe in you.
+- `Peter` left me yesterday.
+- `Peter` sends his regards.
+- This, is our baby `peter`.
+- Very nice speech, `peter`.
+- What about `peter` kelson?
+- You are that man, `peter`.
+- Don't get excited, `peter`.
+- You sound like `peter` pan.
+- No... `peter`... talk to me.
+- `Peter` keeps asking me out.
+- I'll never see `peter` again.
+- Kill me, `peter`, do it, now.
+- `Peter` -- are you all right?
+- `Peter` i love you too but...
+- `Peter`, let go of the chair!
+- That was black `peter`'s job.
+- How very dull, `peter` parker.
+- `Peter` finch -- he's english.
+- `Peter`, their hands are tied.
+- This `peter`'s a motherfucker.
+- But miles ahead of `peter` pan.
+- It was `peter` -- i saw him ...
+- Mel, let's get `peter` in here.
+- Oh, `peter`, i didn't dump you.
+- Oh, `peter`� what's the matter?
+- `Peter` and i were both loners.
+- That would have amused `peter`.
+- You're wrong, `peter` appleton.
+- How are you at riddles, `peter`?
+- Look, `peter`, i don't hate you.
+- `Peter`, what about the bathtub?
+- `Peter`-- you took this picture?
+- You're the new `peter` appleton.
+- For `peter`, that's a short trip.
+- I am old enough to-- oh, `peter`.
+- No, this one's for real, `peter`.
+- `Peter` said you came to kill us.
+- `Peter`, what time were you born?
+- `Peter`, you want to run with it?
+- She's been stalking you, `peter`.
+- You ever do any hunting, `peter`?
+- You�re a little tougher, `peter`.
+- Hello `peter`, so good to see you.
+- I kinda overheard you and `peter`.
+- I'm just afraid i'll hurt `peter`.
+- I thought that was `peter` joshua.
+- It's alright, `peter`, we're fine.
+- Thank you for joining us, `peter`.
+- You know about `peter`, of course.
+- But it won't be because of `peter`.
+- `Peter`, please... we need to talk.
+- `Peter`, what are you talking about?
+- She said she told you about `peter`.
+- You need to know something, `peter`.
+- `Peter` redmond helped immensely.
+- `Peter` criss is my inspiration, man.
+- `Peter` even likes me without makeup.
+- Should i call the cops or... `peter`?
+- Hey `peter`, lemme ask you a question.
+- `Peter` warne, you've gone far enough.
+- `Peter`, you couldn't even fix our tv!
+- Here's another wire from `peter` warne.
+- There's another wire from `peter`, sir.
+- I'm not looking for an apology, `peter`.
+- `Peter`, the bathtub tried to eat oscar.
+                 

@@ -1,0 +1,52 @@
+---
+title: "belly in a sentence | belly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "belly"
+---
+- He means buddha `belly`.
+- Eyes on your own `belly`!
+- He got it in the `belly`.
+- Keep me `belly` full, jack.
+- Who wants to rub my `belly`?
+- ...listen to me `belly`-achin'.
+- Wear the `belly` before you go.
+- Little touch of the delhi `belly`.
+- A little touch of the deli `belly`.
+- Your `belly`-button sticks out!
+- In the `belly` of that steel beast.
+- Right here near her `belly` button.
+- Come on, come on, you yellow `belly`.
+- She has terrible pain in her `belly`.
+- That bullet in his `belly` is my fault.
+- Marsco went `belly`-up on the dow jones.
+- The situation is, i'm shot in the `belly`.
+- All you've got in your `belly` is taco bell!
+- Duke, will you take that `belly` back there?
+- We can close up here and go into his `belly`.
+- It was you drawing on the `belly` over there...
+- Just let that ol' `belly` sag and enjoy itself.
+- I'll go in, give it a `belly` shot, and get out.
+- To fill your `belly` with much-needed potassium.
+- On account of the twin he absorbed in my `belly`.
+- His `belly` is used to nothing but rotgut whiskey.
+- It's the baby what's in my `belly` thrashing about.
+- Do you think we're ready to get out of this `belly`?
+- Everyone at school is always grabbing at my `belly`.
+- It looks like a big pair of breasts and a pot `belly`.
+- That's right -- it's like ticklin' a alligator's `belly`.
+- While the saps like lombardo went `belly`-up in the swamp.
+- You get a knife in yer `belly` or too much shit in yer veins.
+- Aren't they a little too pre-teen `belly`-button ring for you?
+- I want to have a sweet tiny baby inside my `belly`... from you.
+- You got the `belly` to look me in the eye and pull the trigger?
+- An adult t-rex cares about one thing -- filling its own `belly`.
+- I'm just saying i don't mind a guy with a bit of a beer `belly`.
+- All she has to do is pull up her dress and let us see her `belly`.
+- I had a `belly` like yours, we wouldn't have nothin' to worry about.
+- You've got fear and hate in your `belly` like battery acid, all because of me.
+- I never liked her, but she didn't deserve to die in the `belly` of a swan like that.
+- Bill � so now i'm s'posed to roll over like an ol' bitch dog gettin' ger `belly` scratched.
+- If you become food i don't want the only set of keys in the `belly` of one of those things.
+- When ya got all that blood workin' in your `belly`, it ain't upstairs where it needs to be.
+                 

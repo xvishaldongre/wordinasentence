@@ -1,0 +1,107 @@
+---
+title: "hour in a sentence | hour example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hour"
+---
+- Be ready in an `hour`.
+- By the `hour` of nine.
+- Is from an `hour` ago.
+- Same as an `hour` ago.
+- An `hour`, two at most.
+- Come back in an `hour`.
+- Five dollars an `hour`?
+- I gotta kill an `hour`.
+- I'll be half an `hour`.
+- Pardon the `hour`, sir.
+- Something in an `hour`.
+- Something in an `hour`.
+- Cocktail `hour` is over.
+- I'll take a half `hour`.
+- They left an `hour` ago.
+- We don't have an `hour`.
+- We signed an `hour` ago.
+- In about an `hour` or so.
+- Is 70 miles per `hour`.
+- It's a four `hour` drive.
+- It's an `hour` - oh, man!
+- It's been like an `hour`.
+- The vote is in an `hour`.
+- You charge by the `hour`?
+- An `hour` and a half late.
+- I left like an `hour` ago.
+- I'll see you in an `hour`.
+- In an `hour` they're gone!
+- It is cocktail `hour` yet?
+- It's on a 12 `hour` timer.
+- I want an `hour` with him.
+- Just like an `hour` or so.
+- We just met an `hour` ago.
+- 24-`hour` tail on taransky?
+- About an `hour`, maybe two.
+- A half `hour` in the lobby.
+- Another `hour` to write it.
+- Be ready in half an `hour`.
+- I'll be there in an `hour`.
+- I'm sorry about the `hour`.
+- It's a three-`hour` flight.
+- Nothing in the past `hour`.
+- She's done an `hour` early.
+- We give it one more `hour`.
+- We'll be back in an `hour`.
+- We're about an `hour` away.
+- What if it takes an `hour`?
+- About forty miles an `hour`.
+- I can be there in an `hour`.
+- Labor, five bucks an `hour`.
+- Ninety-five miles an `hour`.
+- Seventy-two miles an `hour`.
+- Seventy-two miles an `hour`?
+- Six am, the cocktail `hour`.
+- Three quarters of an `hour`.
+- We leave miami in an `hour`.
+- Well i'm on my lunch `hour`.
+- You said that an `hour` ago.
+- You sat there for an `hour`?
+- But that's an `hour`'s drive.
+- Can i stay up another `hour`?
+- His plane lands in an `hour`.
+- I am going 5 miles an `hour`!
+- I'll check back in an `hour`.
+- Polls open in half an `hour`.
+- An `hour`, an `hour` and a half.
+- Eighty-eight miles per `hour`!
+- It's only a five-`hour` drive.
+- I've only got maybe an `hour`.
+- Let's give him half an `hour`.
+- She'll be free in half `hour`.
+- Steve'll be back in an `hour`.
+- 96 miles an `hour`, 98, 97, 97.
+- About an `hour` and a half ago.
+- But i'm back in half an `hour`.
+- Can you cover me for an `hour`?
+- Fifty dollars an `hour`, right?
+- I'll be back within the `hour`.
+- I'll see you in an `hour`, max.
+- I'm more than an `hour` behind.
+- I took the pills an `hour` ago.
+- It's about a five `hour` drive.
+- Maybe twenty gallons an `hour`.
+- So much for my cocktail `hour`.
+- There's about an `hour`'s wait.
+- We been sitting here an `hour`.
+- We can't see her for an `hour`?
+- Where you going at this `hour`?
+- Yeah, every `hour` on the `hour`.
+- Half `hour` till the ball drops.
+- I come in for an `hour` at most.
+- I'll be back in about an `hour`.
+- I was until about an `hour` ago.
+- What could it be at this `hour`?
+- A hundred bucks an `hour` though.
+- An `hour` after you picked it up!
+- An `hour` from the train station.
+- Can't you give me another `hour`?
+- Couldn't he have taken an `hour`?
+- I'll meet you there in an `hour`.
+                 

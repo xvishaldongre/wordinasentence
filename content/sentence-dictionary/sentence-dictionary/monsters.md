@@ -1,0 +1,55 @@
+---
+title: "monsters in a sentence | monsters example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "monsters"
+---
+- But they're `monsters`.
+- They're not `monsters`.
+- They're `monsters`, jake.
+- Those two are `monsters`.
+- Your `monsters` are here.
+- Turned us into `monsters`.
+- They're not `monsters`, lex.
+- Seeing your `monsters` again.
+- I had `monsters` on the brain.
+- "the only `monsters` are here."
+- There are `monsters` out there.
+- They've got two `monsters` now.
+- I fight `monsters` all the time.
+- Not all trainers are `monsters`.
+- I won't help you build `monsters`.
+- Tonight we let the `monsters` out.
+- The only `monsters`... ...are here.
+- We'll always be `monsters` to them.
+- Then came the real `monsters`: judgy.
+- They have a fleet of flying `monsters`.
+- Don't let the `monsters` come over here!
+- So i could see you with your `monsters`.
+- Who's to say my `monsters` aren't alive?
+- The air itself is filled with `monsters`."
+- The women prefer the traditional `monsters`.
+- We know the `monsters` are gonna molt again.
+- My mommy always said there were no `monsters`.
+- If it does... that released a lot of `monsters`.
+- It's a roach, guy -- `monsters` in the gelatin...
+- Killing, flaying... - transforming into `monsters`.
+- Becky asked if the `monsters` are going to kill dad.
+- Shouldn't you be in the dungeon with your `monsters`?
+- Oh, man -- there are `monsters`... ...in the gelatin...
+- To the tunnels, `monsters`, the upside down, everything.
+- Fuckin, zookerman -- there are `monsters` in the gelatin!
+- Uh, trying to save the world from russians and `monsters`.
+- Uh, when i was a young boy, i fell in love with `monsters`.
+- Captain spaulding's museum of madmen and `monsters`... cool.
+- Are you human beings or are you some kind of male `monsters`?
+- It could make me a fortune or fill the world with `monsters`.
+- They're screaming like `monsters` and it's giving me a headache.
+- Snatching me from my mother's hands like two `monsters` in a fairy-tale!
+- Any reports about `monsters`, people in halloween masks, anything like that?
+- Hey, dad, i'm almost finished laying down my `monsters` of metal compilation tape.
+- `Monsters` and dinosaurs, cannibals and shamans are the new currency of the realm.
+- You want me to ask these people if they're burning candles to ward off `monsters`.
+- Hey, hey, sweetie... and even if the flayed are `monsters` now, why can't el find them?
+- I've tracked these `monsters` from city to city, waiting for a time to exact my revenge.
+                 

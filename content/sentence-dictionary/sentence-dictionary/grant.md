@@ -1,0 +1,107 @@
+---
+title: "grant in a sentence | grant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grant"
+---
+- He went in mr. `grant`.
+- I loved -- `grant`, no!
+- They want alan `grant`.
+- `Grant`, where'd you go?
+- He's smart, dr. `grant`.
+- President `grant` is...!
+- Remember daniel `grant`?
+- It's no use, dr. `grant`.
+- When i got the `grant`.....
+- When we got the `grant`....
+- You've used up your `grant`.
+- Timmy, listen to dr. `grant`!
+- Cary `grant` and deborah kerr.
+- Do as dr. `grant` says, quick!
+- I `grant` you she's beautiful.
+- So you're `grant`'s secretary?
+- Briggs, `grant`, get behind me.
+- `Grant`'s one of the good guys.
+- `Grant` wrote the song himself.
+- Haven't seen `grant`'s tomb yet.
+- What about eric and dr. `grant`?
+- You're alan `grant`, aren't you?
+- Dr. `grant` says it's a bad idea!
+- My research `grant` came through.
+- The addressee was "john `grant`."
+- I must `grant` him his last rites.
+- Julie `grant` is a behaviouralist.
+- We need to find `grant` yesterday!
+- I told her i would not `grant` one.
+- To `grant`) she's, uh - - tenacious.
+- Dr. `grant` is looking for the coast.
+- We're going to make it back, `grant`.
+- It's just one of my students, `grant`.
+- Surely you'll `grant` me a final word.
+- How, unless you bring `grant` in alive?
+- Your `grant` could be on the line here.
+- `Grant` used to get filled up every day.
+- I will `grant` you the destiny you seek.
+- No, no, see dr. `grant`, you're the best.
+- Then i decide if i `grant` the interview.
+- Mrs. `grant`, governor...i won't hurt you.
+- What do you do over at your bank, `grant`?
+- A couple of moments, i'll `grant` you that.
+- Kind of like to see `grant`'s tomb, though.
+- Well, you can trust eleanor samara `grant`.
+- Is it true cary `grant` has proposed to you?
+- Because "dr. `grant`" isn't looking for eric.
+- Dr. `grant` says this is dangerous territory.
+- Eric and dr. `grant` are out there somewhere.
+- He's teaching environmental science, `grant`.
+- `Grant`, our miniaturizer can shrink anything.
+- Dr. `grant`, we're not leaving without our son.
+- God, i was in love with `grant`, he was so hot.
+- My government `grant` was rescinded i got this.
+- We need you for security purposes, mr. `grant`.
+- Oh right, right you're on that research `grant`.
+- I will `grant` them their wish soon enough...
+- `Grant`, as you do everything else, with treachery.
+- Only you weren't in that uniform... hello, `grant`.
+- Subject's name is "jamie gumb," aka "john `grant`."
+- We're hoping we find `grant`, he'll lead us to her.
+- They pray, `grant` thou, lest faith turn to despair.
+- Saints do not move, though `grant` for prayers' sake.
+- Sorry we had to get you up at this hour, mr. `grant`.
+- `Grant` hell, you were -- megan halesy' little sister.
+- `Grant` us a moment alone, won't you, monsieur prouix?
+- He asks if your majesty might `grant` him an audience.
+- There is no baer/`grant` publishing without alan baer.
+- `Grant` come on, baby, it's -- work thing hell, starla.
+- `Grant` is on top of her, breathing a little too heavy.
+- So he gave it to `grant` and `grant` just said, let's go.
+- However, it's within my power to `grant` you a reprieve.
+- Dr. `grant`, dr. sattler -- you've heard of chaos theory?
+- `Grant` goodeve -- the oldest brother on eight is enough.
+- I `grant` you your wish if you `grant` lady guenevere hers.
+- `Grant`, no -- i'm sorry, i'm just -- i'm not in the mood.
+- I couldn't be more surprised if she'd said `grant`'s tomb.
+- I, on the other hand, am in a position to `grant` nothing.
+- To mr. woltz, if mr. woltz would `grant` us a small favor.
+- The board of regents has decided to terminate your `grant`.
+- I am delighted to finally meet you in person dr `grant`.
+- Sounds like heavy artillery... request removal, mr. `grant`.
+- Excuse me, mr. `grant`, but you've got a smudge on your cheek.
+- I'm hoping to get a `grant` for this one project on teenagers.
+- All right, i'll `grant` you a bird'll panic in an enclosed room.
+- `Grant` goodeve was very instrumental in my maturing as a woman.
+- I'm also sorry to say, my problem is your problem, mrs. `grant`.
+- We stayed a little longer than expected with mr and mrs `grant`.
+- I'd kind of like to see `grant`'s tomb - and the statue of liberty.
+- I will `grant` you the optics on the lair ooh, general scroogeyness.
+- Anyone who dares to jump from the mountain, god will `grant` his wish.
+- Dr. `grant` if you'd just sit tight, we'll explain this all in a jiffy.
+- `Grant` -- wait a minute -- you're not going to dismantle the wireless?
+- Bring me ten proofs of purchases and we'll `grant` you any wish you want.
+- Do they say, "without daniel `grant`, there is no baer/`grant` publishing?"
+- The problem, starla, is, the last person anyone saw her talking to was `grant`.
+- `Grant` me, your unworthy servant pardon for all my sins... o'lord hear my prey.
+- Oxygenation... don't tell me they're refueling... a simple exchange, mr. `grant`.
+- But sometimes before, to relax and get in the mood, i think about `grant` goodeve.
+- No one could have predicted dr. `grant` would suddenly jump out of a moving vehicle!
+                 

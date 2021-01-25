@@ -1,0 +1,107 @@
+---
+title: "dirty in a sentence | dirty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dirty"
+---
+- It ain't that `dirty`.
+- Just a `dirty` window.
+- They're still `dirty`.
+- Those '`dirty` looks'.
+- I knew she was `dirty`.
+- You think he's `dirty`?
+- A `dirty` fiend at that.
+- Raising a `dirty` mouth!
+- You ain't `dirty` harry.
+- You're a `dirty` cop.
+- Rudolfo, you `dirty` pig!
+- '`dirty` harry' coming up.
+- So that's down and `dirty`.
+- A `dirty`, stinkin' stoolie!
+- Did you do the `dirty` deed?
+- I thought they were `dirty`.
+- Long as it ain't to `dirty`.
+- Reading `dirty` comic bocks.
+- Trust me, the guy's `dirty`.
+- He wears a `dirty` brown hat.
+- No more fuckin' `dirty` work!
+- You do your own `dirty` work.
+- I don't want no `dirty` money.
+- It's nice and `dirty` for you.
+- This place is `dirty`, doctor.
+- `Dirty`, tattooed, uncivilized.
+- Lots of `dirty` little secrets.
+- The `dirty` yellow rat bastard.
+- But drugs is a `dirty` business.
+- I love it when you talk `dirty`.
+- It felt `dirty` to not tell you.
+- Map is kinda `dirty`, monster...
+- Mike flynn's a `dirty` cop, hap!
+- Most of it pretty `dirty` money.
+- Carefull those are `dirty` words!
+- I didn't mean it nothin' `dirty`.
+- It's your `dirty` roll, cheswick.
+- I want you to talk `dirty` to me.
+- The `dirty` snowball at its core.
+- To look at the `dirty` magazines.
+- These animals are `dirty`, doctor.
+- Don't talk `dirty` 'bout ya sister.
+- I'm a `dirty` degenerate, aren't i?
+- I mean this dirt is very...`dirty`.
+- I'm getting a lot of `dirty` looks.
+- You better believe they're `dirty`!
+- You're just a `dirty` little fixer.
+- `Dirty` business we're in sometimes.
+- What do you mean by '`dirty` looks'?
+- ...yes -- wanna hear a `dirty` joke?
+- Sure, say it, it's not a `dirty` word.
+- Don't get `dirty`, dad -- oh yes, i am.
+- They think i'm `dirty` or i cut a deal.
+- This whole fucking precinct is `dirty`.
+- He's not a `dirty` cop, he's a good cop.
+- I wouldn't `dirty` my hands with you ...
+- But don't worry about the `dirty` movies.
+- But she was `dirty`, what was i gonna do?
+- I wanna fight just as `dirty` as he does.
+- We do not take tips from `dirty` old men.
+- Don't say "spec" like it's a `dirty` word.
+- The air got `dirty` and the sex got clean.
+- This is your more exotic `dirty` magazine.
+- He calls me a `dirty` tramp--my own father!
+- A little weasel with a quick, `dirty` mouth.
+- The `dirty`, stinking, rotten, sons of b's!!
+- Why, all of a sudden, is the sketch `dirty`?
+- You're making me feel so `dirty` and shitty.
+- But with these guys it's like a `dirty` word.
+- Sure, it's crowded, it's `dirty`, it's noisy.
+- You can count on me-o, you `dirty` young man.
+- All right -- only he needn't `dirty` my pants!
+- A no-good, `dirty` ... you weren't even there.
+- A river of `dirty` money running through here.
+- `Dirty` work, and i kill no women and no kids.
+- If there's one cop who's not `dirty` it's him.
+- We can do our own `dirty` work -- and we must.
+- You know, but it's gotten-it's so `dirty` now.
+- `Dirty` blond hair, split down the middle like?
+- Quick and `dirty`, like ripping off a band-aid.
+- He went `dirty` and they made an example of him.
+- Hey -- did these guys teach you to talk `dirty`?
+- Listen to your `dirty` mouth, you fucking whore!
+- The `dirty` little secret of a nervous producer.
+- Well, i didn't but... what... the `dirty` bitch!
+- It's just that it's a little `dirty`, that's all.
+- Now the factory pays us to do their `dirty` work.
+- Elliot tells me you're fronting for a `dirty` cop.
+- I'm going to get even with you, you `dirty` stiff!
+- So don't paw at me with your `dirty` little guild.
+- Who put this `dirty` picture in buckaroo's viewer?
+- It looks as though like there's `dirty` work afoot.
+- I put it there for the blood and the `dirty` sheets.
+- A little aggressive for the situation, `dirty` birds!
+- I did your `dirty` work for you sheila, now fuck off.
+- They'll probably get drunk, and watch `dirty` movies.
+- I didn't know we were gonna get all `dirty` and stuff.
+- Ooo, here's an evil nazi -- he likes to fight `dirty`!
+- `Dirty` tricks -- political assassinations -- now wait.
+- It appears to be `dirty` -- why don't you get somebody?
+                 

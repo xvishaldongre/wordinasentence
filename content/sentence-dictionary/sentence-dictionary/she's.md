@@ -1,0 +1,107 @@
+---
+title: "she's in a sentence | she's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "she's"
+---
+- Besides, `she's` okay.
+- Hear `she's` retarded.
+- Hey, `she's` ticklish!
+- I know `she's` hungry.
+- I'm sure `she's` fine.
+- I think `she's` lying.
+- Lloyd, `she's` my mom.
+- Miller, `she's` right.
+- No, `she's` afraid to.
+- No, `she's` all right.
+- No... `she's` too old.
+- Now `she's` all yours.
+- `she's` a beauty, huh?
+- `she's` a brave woman.
+- `she's` a drug addict.
+- `she's` after charlie.
+- `she's` a human being.
+- `she's` amazing in it.
+- `she's` an exception..
+- `she's` a vassar girl.
+- `she's` been alive...?
+- `she's` been arrested.
+- `she's` clamping down.
+- `she's` dead now, too.
+- `she's` done the math.
+- `she's` driven before.
+- `she's` fine, charles.
+- `she's` getting worse.
+- `she's` glad i called!
+- `she's` going with me.
+- `she's` gonna use you.
+- `she's` good... tense.
+- `she's` got the blood!
+- `she's` got the blood.
+- `she's` having a baby.
+- `she's` in california.
+- `she's` in fine shape.
+- `she's` in good hands.
+- `she's` in the desert.
+- `she's` in your dream.
+- `she's` just a victim.
+- `she's` just insecure.
+- `she's` like a sponge.
+- `she's` lying, norman.
+- `she's` my girlfriend.
+- `she's` not a psychic.
+- `she's` not a suspect.
+- `she's` not available.
+- `she's` not dead soft.
+- `she's` not forgotten.
+- `she's` not gonna die.
+- `she's` not home, yet.
+- `she's` not imaginary.
+- `she's` not important.
+- `she's` not my sister.
+- `she's` not one of us.
+- `she's` not qualified.
+- `she's` not your baby.
+- `she's` one of a kind.
+- `she's` only fourteen.
+- `she's` ready to talk.
+- `she's` so articulate.
+- `she's` so nice, brad.
+- `she's` still alive...
+- `she's` still my wife.
+- `she's` still working?
+- `she's` terribly vain.
+- `she's` turning north.
+- `she's`, uh, sleeping.
+- `she's` with jonathan.
+- Tell me `she's` lying.
+- What if `she's` right?
+- You mean `she's` dead?
+- Beside `she's` urm.
+- I bet `she's` ugly.
+- An' `she's` got a beau!
+- At least `she's` alive!
+- At least `she's` alive.
+- Because `she's` clever.
+- 'cept `she's` not here.
+- God, `she's` beautiful.
+- Honey, `she's` perfect.
+- I bet `she's` easy jam.
+- I'm sure `she's` there.
+- I said `she's` a freak!
+- I think `she's` acting.
+- I think `she's` scared.
+- Jack, `she's` innocent!
+- Jesus, `she's` jammin'.
+- Of course `she's` home.
+- Oh, `she's` got a cold.
+- Oh, wow, `she's` great.
+- `she's` about 20, 21...
+- `she's` a lesbian, too.
+- `she's` a little daffy.
+- `she's` a little tipsy.
+- `she's` alive, sweetie.
+- `she's` a lyin' bitch!!
+- `she's` a miracle, dad.
+- `she's` a tad skittish.
+                 

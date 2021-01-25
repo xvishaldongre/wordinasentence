@@ -1,0 +1,69 @@
+---
+title: "grandfather in a sentence | grandfather example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grandfather"
+---
+- That's me `grandfather`.
+- The `grandfather` clock?
+- Where's my `grandfather`?
+- It's paul's `grandfather`.
+- My adoptive `grandfather`.
+- Your `grandfather`'s here.
+- `Grandfather` was a bishop.
+- The `grandfather` clock.
+- Eh, where's my `grandfather`?
+- He was my `grandfather`, too.
+- His `grandfather` was a snake.
+- My `grandfather` was in there.
+- That's not your `grandfather`.
+- I knew his great-`grandfather`.
+- You have a blind `grandfather`.
+- Hell, he was your `grandfather`.
+- I came to find my `grandfather`.
+- Well, you are his `grandfather`.
+- I will join my `grandfather` there.
+- What was your `grandfather`'s name?
+- My `grandfather`'s work was doo-doo!
+- My `grandfather` was a peach farmer.
+- Your `grandfather`'s stirred him up.
+- I'm staying with my... `grandfather`.
+- Eh, have you got paul's `grandfather`?
+- So you're going to be a `grandfather`.
+- Your `grandfather` was a peach farmer.
+- My `grandfather` tried to give me that.
+- Your `grandfather` sure believed in it.
+- How, did you know about my `grandfather`?
+- But your `grandfather` lives in your house.
+- This was my `grandfather`'s private library.
+- `Grandfather` say: "it never rain every day."
+- My `grandfather`'s `grandfather` was toruk makto.
+- That's your `grandfather` you're talking about!
+- Well ... if he's your `grandfather`, who knows?
+- Who knows what my biological `grandfather` did.
+- Where is my `grandfather`'s private library?
+- My `grandfather` snared a shitload of them in w.w. two.
+- When your `grandfather`'s nursing home is full of them?
+- You're old enough to be her fa... er, her `grandfather`!
+- Your `grandfather` had one iron rule that's stood me well.
+- `Grandfather` left him twenty per cent of a tobacco company.
+- I can remember it in my `grandfather`'s time and my father's.
+- My `grandfather` and your `grandfather` used to pal around together.
+- Oh, christ, now we gotta listen to that `grandfather` thing again.
+- My `grandfather` was jilted by his girl friend when he got jaundice.
+- She'd never lived alone -- my `grandfather` died -- i stayed with her.
+- `Grandfather` forged excalibur... you won't ever see finer craftsmanship.
+- I was out saving the galaxy when your `grandfather` was still in diapers.
+- Oh, that's me other `grandfather`, but this one's me `grandfather` and all.
+- No... he's not... not... there... you'll see my `grandfather` in valhalla!
+- My 90 year old `grandfather` thinks 'ghost in the computer - silicon dragon.'
+- Aye, come on, honest, that `grandfather` of yours is worse than any of you lot.
+- He said he had shot his `grandfather` with a gun, and then he died in the garden.
+- He's kept out o' print because his great- `grandfather` was smarter than the indians.
+- Ju1ien was your father your great-`grandfather` - your `grandfather` - and your father.
+- Your `grandfather` wore that in his service to the king, and i to fight for the duke.
+- Your `grandfather` pointed out shake was always being taller than me just to spite me.
+- It's easy, it runs in my family, take my `grandfather`, for example... how do you do it?
+- Owen green embezzled money from your `grandfather` i'm in a rooming house with mr. green.
+- But my `grandfather`, victor was, after all, what we might politely refer to as... a cuckoo!
+                 

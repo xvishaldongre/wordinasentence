@@ -1,0 +1,107 @@
+---
+title: "friends in a sentence | friends example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "friends"
+---
+- One of your `friends`.
+- Our son has `friends`.
+- The man has `friends`.
+- They are my `friends`.
+- They're old `friends`.
+- Try to make `friends`.
+- We're your `friends`."
+- You weren't `friends`.
+- Birds are my `friends`.
+- Going out as `friends`.
+- I don't need `friends`.
+- I have `friends`, will.
+- I loved your `friends`.
+- I tried your `friends`.
+- Just ask his `friends`.
+- Making a few `friends`?
+- Our american `friends`.
+- They're your `friends`.
+- Those are my `friends`.
+- To eat their `friends`.
+- To find your `friends`.
+- To meet some `friends`.
+- Visiting old `friends`.
+- We're `friends`, right?
+- What are `friends` for?
+- Where are my `friends`?
+- Where my `friends` are.
+- Who are your `friends`?
+- You have our `friends`.
+- Any childhood `friends`?
+- Are you guys' `friends`?
+- But `friends` don't lie.
+- Don't tell my `friends`.
+- `Friends` of the family.
+- `Friends` of yours, huh?
+- He's with his `friends`.
+- My dear, dear `friends`!
+- My `friends`, my mother.
+- Oh, just some `friends`!
+- Send in their `friends`.
+- Take me to my `friends`.
+- Thank you, my `friends`.
+- These are all `friends`.
+- These are our `friends`.
+- We never were `friends`.
+- We used to be `friends`.
+- Your `friends` are dead.
+- You should be `friends`.
+- Are these your `friends`?
+- Can... `friends` do this?
+- Don't you have `friends`?
+- Forgive me, my `friends`.
+- For "let's be `friends`"?
+- `Friends` from cornell...
+- `Friends` tell the truth.
+- `Friends` with potential.
+- I have need of `friends`.
+- I have no `friends` left.
+- I wanna remain `friends`.
+- I want my `friends` back.
+- Makin' `friends` already.
+- My brother, my `friends`.
+- My `friends` call me tnt.
+- Pony and i are `friends`.
+- That's what `friends` do.
+- Their `friends` are here.
+- Then let my `friends` go.
+- They were your `friends`.
+- War, more dead `friends`.
+- We'll still be `friends`.
+- Well we're not `friends`.
+- We were `friends` once...
+- What about our `friends`?
+- Where are your `friends`?
+- Where your `friends` are.
+- Who are your "`friends`"?
+- Who my `friends` will be.
+- Your new-found `friends`.
+- So will his `friends`.
+- Are we really "`friends`?"
+- `Friends` i couldn't have.
+- Go back to your `friends`.
+- Golden face has `friends`.
+- It's `friends` that count.
+- Looking for her `friends`.
+- Thank you my... `friends`.
+- They're `friends` of mine.
+- This is what `friends` do.
+- Those aren't my `friends`.
+- Uh... we're old `friends`.
+- We'll always be `friends`.
+- We're `friends` now, guys.
+- What about your `friends`?
+- You and him `friends` now?
+- You'll meet new `friends`.
+- "your `friends` love you."
+- And `friends` become foes."
+- Do you have many `friends`?
+- `Friends` of yours michael.
+- He don't have no `friends`.
+                 

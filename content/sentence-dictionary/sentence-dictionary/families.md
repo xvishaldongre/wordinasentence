@@ -1,0 +1,89 @@
+---
+title: "families in a sentence | families example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "families"
+---
+- Their `families`, too.
+- `Families` can be tough.
+- It was for our `families`!
+- Made up of 4 `families`...
+- They're heads of `families`!
+- Out two `families`, together.
+- There are `families` in there.
+- You think they got `families`?
+- Also the other `families`'.
+- I hope `families` are reunited.
+- These `families` have children.
+- Sixty, maybe seventy `families`.
+- We're both from poor `families`.
+- `Families` shouldn't be separated.
+- The `families`... want your ticket.
+- They all got `families` to support.
+- By barzini and the other `families`.
+- All the heads of the five `families`.
+- It was too tough on their `families`.
+- Remind our `families` we still exist.
+- Made up of 4 `families`... the primes.
+- There were `families` with seven kids.
+- With the heads of the five `families`.
+- How many `families` live here with you?
+- The `families` who control the casinos?
+- Looks like we both found new `families`.
+- Only the poorest `families` ever ate it.
+- You know, in some `families`, i believe.
+- How many `families` we talking about here?
+- That was a signal meant for our `families`.
+- The league of `families` leans on congress.
+- But she's a member of the twelve `families`.
+- Or worse, they could destroy our `families`.
+- Our crew is made up of asgardian `families`.
+- Exhumations are upsetting for the `families`.
+- There's no connection between the `families`.
+- And invite a few select `families` to join us.
+- For all the bureau chiefs and their `families`.
+- I've told the crew to contact their `families`.
+- We all fight for our `families`, our countries.
+- We find an event that connects both `families`.
+- They arrested the plotters and their `families`.
+- If there was any way out... our `families`, fred.
+- Do you think about their wives or their `families`?
+- All the five `families` would come after you, sonny.
+- One: `families` that have held wealth for centuries.
+- Have fun and forget they may want or have `families`.
+- The other `families` won't sit still for all out war.
+- So he can talk to all the `families` behind your back?
+- Tell that to the `families` of the policemen who died.
+- Well, mr. stephens is representing several `families`.
+- Some of the other `families` won't sit still for a war.
+- They're strong, gentle men with `families` of their own.
+- That other `families` would be willing to do things with.
+- It tastes like crap, shared by only four other `families`.
+- Probably all the other `families` will line up against us.
+- Most all the babies i delivered were from local `families`.
+- That puts me and the other new york `families` against you.
+- You should offer condolences to the `families` of those kids.
+- Decent men with loving `families` go home every day after work.
+- The ones with big `families` ... barton -- where's that boy?
+- Some of their `families` have been in the craft for generations.
+- As i told clarke, to get them to eat their friends and `families`.
+- Diane, i take better care of these people than their `families` do.
+- Because it was either that or a dinner party for the two `families`.
+- I don't care if we have to fight all the five `families` in new york.
+- The hangmen were playing chamber music at home with their `families`.
+- You start operating, the five `families` will start their raids again.
+- They transferred the home movies of both `families` onto half-inch vhs.
+- "he stole your mother" �- it is more than a feud between two `families`.
+- For their `families` you lied to, it must've gotten loose during reentry.
+- Helen just asked me what sort of arrangements we have for the `families`.
+- So far there's no event or service that doubles back into both `families`.
+- We have empty rooms since the boys got their own `families` and moved out.
+- Kaylee's dream of unifying the children of gabriel with their `families`...
+- Not the victims, not the `families` of the victims, he doesn't talk about them.
+- I've also drafted a letter to `families` of officers killed in the line of duty.
+- They go back home to keep their `families` alive, stay into the spring to plant.
+- They're frightened for themselves, their `families`... maybe it's the homo angle.
+- Even the `families` dropped him when they found they had a fruitcake on their hands.
+- Drugged-up wandering suicidal search of the self fuck-ups don't have `families`, david.
+- Your corporate take overs can decimate a `families` livelihood over a year sometimes two.
+                 

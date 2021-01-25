@@ -1,0 +1,107 @@
+---
+title: "bank in a sentence | bank example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bank"
+---
+- How many `bank` exits?
+- It's a federal `bank`.
+- I work `bank` robbery.
+- We'll go to my `bank`.
+- What about the `bank`?
+- Except at china `bank`.
+- Robbed a `bank`, c'mon!
+- You're a `bank` robber?
+- I see, i `bank` so hard.
+- The jolly nigger `bank`.
+- Am i a female fog `bank`?
+- Anything from the `bank`?
+- He's still at the `bank`.
+- [i can't see the `bank`!]
+- What `bank` are you with?
+- You got `bank` americard?
+- Carter �� `bank` examiner.
+- I guess i'll rob a `bank`.
+- No `bank` roll there, boy.
+- Say we bust into a `bank`.
+- The robbers in the `bank`.
+- This is money inna `bank`.
+- We got dick in the `bank`.
+- It's just a walk-in `bank`.
+- I used to work in a `bank`.
+- I've never robbed a `bank`.
+- The cards... you're `bank`.
+- How did it go at the `bank`?
+- That `bank` is our best bet.
+- We gotta put it in a `bank`.
+- [we have an atm `bank` card.
+- You have a `bank` in zurich.
+- Your `bank`, mr. kringelein.
+- `Bank` teller's just a start.
+- Check with your son�s `bank`.
+- Nowadays i'm a `bank` robber.
+- ...overdrawn `bank` accounts.
+- We just come from the `bank`.
+- It's paid for by first `bank`.
+- We cover the `bank`, whatever.
+- You could go to the `bank`...?
+- He was in the `bank` yesterday.
+- I'm running this `bank` my way.
+- It's twenty bucks in the `bank`.
+- It's <u>money in the `bank`</u>.
+- I went to the `bank` to see why.
+- You can take that to the `bank`.
+- How about that guy at the `bank`?
+- I know a girl down at the `bank`.
+- Jack foley, famous `bank` robber.
+- They're going to rob that `bank`.
+- In spite of that `bank` insurance.
+- In this city, outside that `bank`?
+- Like breakin' open a piggy `bank`.
+- She and hatch were `bank` robbers.
+- She doesn't have a `bank` account.
+- Why can't i have a `bank` account?
+- Anyway i bet you hated that `bank`.
+- `Bank` robber doesn't sound so bad.
+- The next time i walk into a `bank`.
+- He wants the money from your `bank`.
+- Small town, small `bank`, big money.
+- The rest is barker's `bank` records.
+- A mortgage anna note from the `bank`.
+- At least you'd make some nice `bank`.
+- Both at the same `bank`... who knows?
+- It's a `bank` job, that's all i know.
+- The `bank` records, the surveillance.
+- Well, no, jesse, it was the `bank`'s.
+- Where you get your `bank` statements.
+- Your contract went out to the `bank`.
+- Job, `bank` accounts, everything gone.
+- Okay, but how did it go at the `bank`?
+- Please dial allgemeine `bank`, zurich.
+- You think he's a `bank` robber, maybe?
+- Don't worry, the `bank`'ll buy it back.
+- In the morning i will enter the `bank`.
+- Now i've got ten million in the `bank`.
+- Where'd you find him, robbing a `bank`?
+- But i didn't ask you to go rob a `bank`.
+- You're not going to take it to a `bank`?
+- All i know is the `bank` called our loan.
+- I didn't start out to be a `bank` teller.
+- I know it ain't no durned `bank` holiday!
+- I know this place -- it's a blood `bank`.
+- Here's to your new job down at the `bank`.
+- It's all in lock boxes in a mexico `bank`.
+- The `bank` examiner will step in tomorrow.
+- What do you do over at your `bank`, grant?
+- Why won't he wait until the `bank` closes?
+- First `bank` had sponsored my scholarships.
+- I'll be walking out of the `bank`, unarmed.
+- It's your `bank` as well as mine, isn't it?
+- Mortgage department, first national `bank`.
+- That's why you can't have a `bank` account!
+- [the number you use at the `bank` machine.]
+- They might have robbed a `bank`, who knows?
+- Yeah, either that or in the fuckin' `bank`.
+- You gave up baseball to be a `bank` teller?
+- Four o'clock gives you time to go to `bank`.
+                 

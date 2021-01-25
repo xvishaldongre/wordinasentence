@@ -1,0 +1,59 @@
+---
+title: "houses in a sentence | houses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "houses"
+---
+- _ - glass `houses`, joyce.
+- But where are the `houses`?
+- All new `houses` have noises.
+- It `houses` seventy-five men.
+- Our `houses` become alcatraz.
+- It's only three `houses` away.
+- A plague o' both your `houses`.
+- A plague o' both your `houses`.
+- A plague on both your `houses`!
+- Big `houses`, legit business...
+- Haunted `houses` don't come easy.
+- Why does god need so many `houses`?
+- Working in the slaughter- `houses`.
+- I know what those `houses` are like.
+- It's not three `houses`, it's twelve.
+- Look, `houses` in which we don't live.
+- We're surrounded by `houses`, dumbass.
+- Did you order our `houses` burned down?
+- Listen - all old `houses` have stories.
+- They're tearing down the `houses` here!
+- Feeling does not buy clothes and `houses`!
+- My momma says every house is two `houses`.
+- Is that the way it's done in most `houses`?
+- If you listen, the `houses` will speak to you.
+- I didn't think there were any `houses` up here...
+- Everyone wore white and lived in crystal `houses`.
+- I stopped rolling `houses` in the sixth grade, mom.
+- Sandro, that's how you should design your `houses`.
+- These old victorian `houses` are great, aren't they?
+- Those `houses`, like the one you found, you know what?
+- Designed and built the coolest `houses` i've ever seen.
+- I don't care if you're from the `houses` of parliament.
+- That's where all the big publishing `houses` are based.
+- You carved all these little figures and `houses` and things?
+- Clinics, half-way `houses`, treatment centers, detox units...
+- You need four `houses` on every lot of the same color, martini.
+- They had savings accounts, stocks to sell, `houses` to mortgage.
+- They made some mess, too, smashing into `houses` and everything.
+- We have to cordon off the streets, then evacuate these `houses`.
+- Lots of people have saws, knives and ropes around their `houses`.
+- The cars, the clothes, the `houses`... well, consider the source.
+- Ask them why they have new cars and `houses` full of new furniture.
+- I've been in a lot of people's `houses` and this one's the creepiest.
+- They have cars and refrigerators and telephones in the `houses` even.
+- You just have to remember... men are like `houses` and trade upwards...
+- When i was young there were cars and `houses`, private schools, nannies.
+- Cooper's farm log says, this section which `houses` our medical facility.
+- I see two great `houses` -- house atreides, house harkonnen -- feuding...
+- The man with the eyes in his hands... and whose `houses` do you design...?
+- It goes with this... cold `houses` and warm drinks...the effete englishman.
+- Your family all seem to be okay in the other `houses`; your mother's still sleeping.
+- Rich people spent obscene amounts of money redecorating their `houses` to match the cat.
+                 

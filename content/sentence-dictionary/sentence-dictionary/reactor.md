@@ -1,0 +1,53 @@
+---
+title: "reactor in a sentence | reactor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reactor"
+---
+- `Reactor` vent failed.
+- The nuclear `reactor`?
+- Nuclear `reactor` count?
+- Open the `reactor` door.
+- Clearly not the `reactor`.
+- Going into that `reactor`.
+- The `reactor`'s still hot.
+- Show me your `reactor` core.
+- The `reactor` door is sealed.
+- Like you did in the `reactor`.
+- We provide the `reactor` fuel.
+- Powered by a nuclear `reactor`.
+- Target their primary `reactor`.
+- The whole `reactor` melts down.
+- When that `reactor` melts down.
+- I'll look at that `reactor` now.
+- It's nowhere near the `reactor`.
+- And madi's in a nuclear `reactor`?
+- Where's this "`reactor`" come from?
+- It's the `reactor`-control computer.
+- His `reactor`'s starting to overheat.
+- And order them into a nuclear `reactor`.
+- You need a mechanic to run the `reactor`.
+- I have the coordinates of the `reactor`...
+- Powered by an anti-matter micro `reactor`.
+- The `reactor` melts it and releases oxygen.
+- The one who died in the `reactor`, we don't.
+- Red sun toxin will spill into this `reactor`.
+- Take down the `reactor` and you get ryker back.
+- So... we get to shut down the neutron `reactor`?
+- The `reactor`'s beneath the machine shop anyway.
+- Commence attack on thedeath star's main `reactor`.
+- The `reactor` will melt down, you're staying here.
+- I killed 4 people in the nuclear `reactor`... quiet.
+- This whole station is basically a big fusion `reactor`.
+- Regenerating fission `reactor`, you wouldn't understand.
+- We have to beam in next to the `reactor` room, not in it.
+- Just welding a couple cracks in the `reactor`'s coolant pipe.
+- Depends on how much shielding is between us and the `reactor`.
+- I'll get priya to help me take down the `reactor`, the second.
+- It's got an urm micro `reactor` for power supply probably worth millions.
+- Science can make a nuclear `reactor`, but it can't tell us not to build it!
+- Yes, we keep pollution down by having the power `reactor` far below the city.
+- They each had a 5-hour energy drink and a jar of nutella i blow the `reactor`.
+- Put weapons grade plutonium inside the sub�s `reactor`: instant, catastrophic meltdown.
+- The fitness center only had an old nordictrack, they know we won't detonate the `reactor`.
+                 

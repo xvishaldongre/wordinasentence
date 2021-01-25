@@ -1,0 +1,93 @@
+---
+title: "brave in a sentence | brave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brave"
+---
+- Good men, and `brave`.
+- She's a `brave` woman.
+- To our `brave` guests.
+- You're my `brave` boy.
+- You're `brave`, clarke.
+- You want to be `brave`?
+- Are you my `brave` hero?
+- As `brave` as my father.
+- `Brave`... that's right.
+- I married a `brave` man.
+- Be `brave`, my .daughter.
+- It's a `brave` new world.
+- That was a `brave` act...
+- _ you were `brave` to try.
+- Are you my big `brave` boy?
+- `Brave` sir robin ran away.
+- You're a very `brave` girl.
+- You're very `brave`, louis.
+- Are you really that `brave`?
+- I told you you were `brave`.
+- Danny... home of the `brave`.
+- Your people are very `brave`.
+- You're kind and you're `brave`.
+- To show myself how `brave` i am.
+- You’re so `brave`, aren’t you?
+- But she did say you were `brave`.
+- Everybody says he was so `brave`.
+- Oh, well ... er `brave` concorde!
+- They say she was `brave`, strong.
+- Well, you're a `brave` young lady.
+- Do you really think it was `brave`?
+- I'd be `brave` as a blizzard -- oh.
+- Perhaps it wasn�t so `brave` of him.
+- _ is going to fall, `brave` princess.
+- But the shepherd was `brave` and wise.
+- Isn’t `brave`, bellamy, it’s stupid.
+- Mr. khan said they called you `brave`.
+- Not so `brave`, are you now, sky girl?
+- We need a man who's fearless, `brave`.
+- Who will be `brave` enough to help us?
+- ...but you're one `brave` kid, rebecca.
+- That's mighty `brave` of you, reverend.
+- You're a `brave` girl coming in here...
+- It's a `brave` and honest piece of work.
+- It was a very `brave` and noble thing...
+- Artoo, why did you have to be so `brave`?
+- That was a `brave` thing you did, nelson.
+- You just did an incredibly `brave` thing!
+- She... was very `brave`...braver than i am.
+- That was a foolish act, but it was `brave`.
+- You are pretty `brave`, taking us yourself.
+- So we will be `brave` and swallow our grief.
+- How come you're so `brave` with all this stuff?
+- You're very `brave` to do this... you opened it.
+- He is `brave` sir robin, `brave` sir robin, who ...
+- You're smart, `brave`, you want to do the honors?
+- Firing lead into another man's flesh isn't `brave`.
+- You're not one of those `brave` little buggers hey.
+- She's `brave` enough, but i don't know about myself.
+- `Brave`, concorde ... you shall not have died in vain!
+- It scared president kennedy, but he was a `brave` man.
+- That's those little `brave` baby steps you gotta take.
+- Either you are incredibly `brave`, or incredibly stupid.
+- It was pretty `brave` even trying... nah, i fucked it up.
+- The earth will become a `brave` new world of only plants.
+- You are indeed `brave` sir knight, but the fight is mine.
+- What you're doing is as `brave` as going to battle, semet.
+- What you're doing is as `brave` as going to battle, semet.
+- I'm still figuring: you're either real `brave` or real dumb.
+- Any bum who picks up a .45 in a pawn shop can be that `brave`.
+- So those `brave` men are flying blind and running out of fuel.
+- It will, protect against the horseman if i show a `brave` face.
+- I'd pray that maybe i'd grow up to be as `brave` as she was.
+- You're very `brave` under the commander's protection, aren't you?
+- We had...gone to a new musical called...oh africa, `brave` africa.
+- You must be very `brave`... ... but nobody withstands the machine.
+- Boy, those guys in the french resistance were really `brave`, you know?
+- Yes data, `brave` new worlds... to new worlds... now, you make a toast.
+- `Brave`, sir rob ... er, that's ... that's enough music for a while, lads.
+- Because he was a `brave` man - because i liked him -- i came here to be sure.
+- I have no quarrel with you, `brave` sir knight, but i must cross this bridge.
+- You did pick a real strange time to go and be `brave` all on your own... yeah.
+- He's very very very clever, very very `brave`, and he loves you ever very much.
+- You only killed the bride's father - that's all - hurry, `brave` sir launcelot!
+- Our songs, our dreams, our seeds are all just a `brave` attempt to live forever.
+- An american serviceman... a `brave` american serviceman, is left <u>behind</u> ...
+                 

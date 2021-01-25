@@ -1,0 +1,58 @@
+---
+title: "hers in a sentence | hers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hers"
+---
+- We're sure it's `hers`?
+- Only two are `hers`.
+- Elizabeth has `hers`.
+- It's `hers`, you schmuck.
+- One's `hers`, one's mine.
+- Why is it slowing `hers`?
+- I'm a great fan of `hers`.
+- We don't know it's `hers`.
+- Yes, elizabeth has `hers`.
+- `Hers`'n zodda meg a livig.
+- No, it was actually `hers`.
+- I'm a good friend of `hers`.
+- That's my fault, not `hers`.
+- You mean, no prints but `hers`?
+- It was a memory, but not `hers`.
+- She's got `hers`, we've got ours.
+- Your hips are as slim as `hers`.
+- Appears to have jump-started `hers`.
+- She's bringing stargher into `hers`.
+- They may have been friends of `hers`.
+- Destroys that brilliant mind of `hers`?
+- Apparently the hostility was all `hers`.
+- My mind'll be backed up, and `hers` won't.
+- Get her thinking about that jeep of `hers`.
+- Instead of trying to be a father to `hers`.
+- Visiting friends of `hers` in palm springs.
+- Your mom's not touching `hers`, by the way.
+- I came from a neighborhood just like `hers`.
+- Why didn't he take my life instead of `hers`?
+- That switch of `hers` been all over this town.
+- Came looking for a job with a friend of `hers`.
+- In his mind, anyway, and soon enough in `hers`.
+- Who is to say our morals are better than `hers`?
+- It must be about that appalling script of `hers`.
+- Look, you can't be my dog and `hers`; pick a side.
+- Steal its pristine innocence like it stole `hers`.
+- If i were a friend of `hers`, i'd have her examined.
+- Taking you up to the house with that smile of `hers`.
+- That brain of `hers` just snaps like that all the time.
+- I grant you your wish if you grant lady guenevere `hers`.
+- That little snozzle of `hers` is the berries, i tell you.
+- This is my house, not `hers`, and has been since father died.
+- I know your mother ain't still operating that house of `hers`.
+- Saw her at the movies the other night with that boss of `hers`.
+- Jackie can tell me any story come in that pretty head of `hers`.
+- That husband of `hers` is a skinny bit of a fellow, isn't he?
+- I'm tool-pusher and we're testing this automated derrick of `hers`.
+- You can fill in your name and `hers` and leave any time you please.
+- If it is `hers`, there might be something there to help me find my sister.
+- If anyone had paid to have that husband of `hers` killed, it would have been me.
+- `Hers` and his father's; from god, for having sex-- i knew he slept in a toolshed.
+                 

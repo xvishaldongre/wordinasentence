@@ -1,0 +1,107 @@
+---
+title: "name in a sentence | name example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "name"
+---
+- But her `name` is max.
+- But my `name` is adam.
+- But my `name`'s not...
+- Does he have a `name`?
+- Does it have a `name`?
+- Don't say that `name`.
+- Er, what's his `name`?
+- Had your `name` on it.
+- Her `name` is charlie.
+- Her `name` is kristen.
+- Her `name`'s mayfield.
+- Her `name` was eleven.
+- His `name` is chigurh.
+- His `name` is lincoln.
+- His `name` is maurice.
+- His `name` is michael.
+- His `name` is redfoot.
+- His `name`'s armitage.
+- His `name` was swifty?
+- I asked you my `name`.
+- In the `name` of love?
+- Is your `name` felson?
+- I've heard the `name`.
+- I went to holy `name`.
+- Just `name` a country.
+- May i ask your `name`?
+- Mckinney's the `name`.
+- My `name` is bao yung.
+- My `name` is beatrice.
+- My `name` is calloway.
+- My `name` is not enzo.
+- My `name` isn't harry.
+- My `name` is quintero.
+- My `name` is schwartz.
+- My `name`'s kurtzweil.
+- My `name` was spenser.
+- My real `name`'s norm.
+- Now do we have `name`?
+- Now what's her `name`?
+- So what's in a `name`?
+- So what's your `name`?
+- That's a solid `name`.
+- That's my real `name`!
+- The `name`'s plissken.
+- Tuscarora -- a `name`.
+- ...what's your `name`?
+- Who is he, his `name`?
+- Yes, that's my `name`.
+- You got a `name`, cop?
+- Your christian `name`?
+- Your `name` is clarke?
+- Your `name` is norman.
+- Your `name` is tremor.
+- * your `name`'s teddy.
+- Your `name` was first.
+- You share that `name`.
+- You should `name` her.
+- What's your `name`?
+- Because it's my `name`.
+- Did you get her `name`?
+- Does she have a `name`?
+- Hallowed be her `name`.
+- Hallowed be his `name`.
+- Hallowed be his `name`.
+- Hallowed be thy `name`.
+- Her `name` is gretchen.
+- Her `name`'s stephanie.
+- His `name` is lebowski?
+- His `name` is mercutio.
+- His `name` is poochini.
+- Ich, my `name` is nick.
+- I didn't use my `name`.
+- If that was her `name`.
+- I just need his `name`.
+- I'll write your `name`.
+- It's a romantic `name`.
+- It spelled your `name`.
+- It's under your `name`.
+- My first `name`'s butt.
+- My `name` is bill cage.
+- My `name` is cornelius.
+- My `name` is frederick.
+- My `name` is josephine.
+- My `name` is li mu bai.
+- My `name` is lorl, sir.
+- My `name` is sam lowry.
+- My `name` is thornhill.
+- My `name`'s john klute.
+- My `name`'s mr. orange.
+- Ok. what's your `name`?
+- She told me the `name`.
+- Sweet `name`, isn't it?
+- That `name`'s familiar.
+- That's a lovely `name`.
+- That's a maiden `name`.
+- That's my first `name`.
+- The `name` is lonnegan.
+- The `name` of the show?
+- We don't need a `name`.
+- Whatever his `name` is.
+                 

@@ -1,0 +1,107 @@
+---
+title: "staying in a sentence | staying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "staying"
+---
+- I'm `staying` with it.
+- Then you're `staying`.
+- You go, i'm `staying`.
+- You're `staying` here.
+- You're `staying` home.
+- Are you `staying` long?
+- By just `staying` here?
+- How long you `staying`?
+- I'm not `staying` here!
+- I'm `staying` with him.
+- She `staying` with you?
+- `Staying` out of range.
+- Where is she `staying`?
+- Where're you `staying`?
+- He's `staying` over now?
+- She's `staying` with us.
+- Thank you for `staying`.
+- We're `staying` married.
+- Where are you `staying`?
+- Where you `staying` now?
+- You think i'm `staying`?
+- I'm `staying` right here.
+- Where you `staying`, dad?
+- You `staying` for dinner?
+- I am `staying` right here.
+- I'm `staying` with my son.
+- Is he `staying` the night?
+- We're `staying`, too, sir.
+- How long are you `staying`?
+- I'm not `staying` out here.
+- I'm `staying` pregnant, le.
+- So, you `staying` with him?
+- `Staying` right with us.
+- Everyone's `staying`, stays.
+- How long's he `staying` for?
+- I'm `staying` here with you.
+- I'm `staying` with a friend.
+- I'm `staying` with the ship.
+- What motel you `staying` at?
+- I didn't say i was `staying`.
+- Is miss scott `staying` here?
+- I was `staying` in character.
+- I tell you i'm `staying`, pop.
+- Jordan, you're `staying`, too.
+- No, no, no, i'm `staying` put.
+- What's the point of `staying`?
+- Where have you been `staying`?
+- You are not `staying` outside!
+- You're `staying` at the hotel?
+- Are you `staying` at the hotel?
+- Did you plan on `staying` long?
+- How long will you be `staying`?
+- How long you `staying`, crease?
+- So you're `staying` in tonight?
+- You gonna be `staying` up here?
+- Chuckles: you're `staying` here.
+- I'm not `staying` out late doug.
+- I'm `staying` with the countess.
+- Thank you for `staying` tonight.
+- We're `staying` at peterson's...
+- We're `staying` in <u>tents</u>?
+- We want this `staying` on track.
+- What hotel are you `staying` at?
+- Bob barrenger is `staying` he...?
+- I can't be `staying` long anyway.
+- Not `staying` in here another....
+- So where have you been `staying`?
+- Tom was `staying` at the goldoni.
+- But i'm `staying` here on my side.
+- I'm `staying` here where i belong.
+- Then i'm `staying` with the money.
+- Why is she `staying` out of sight?
+- You'll be `staying` there a while?
+- I've come, i'm here, i'm `staying`.
+- `Staying` alive might depend on it.
+- That's why you're `staying` aboard.
+- You're `staying` at the soho grand.
+- I'm moving away your `staying` here.
+- I'm `staying` here with you tonight.
+- `Staying` the night here, uninvited.
+- We're not `staying` here on our own.
+- [where are you `staying` in mexico?]
+- And `staying` within a budget, right?
+- Are you `staying` with a friend, sir?
+- I'd feel like `staying` up all night!
+- I'm `staying` with my... grandfather.
+- How long have you been `staying` here?
+- I thought the kid had `staying` power.
+- I told her you were `staying` with me.
+- So my little brother's `staying` here.
+- So, um, pony, where are you `staying`?
+- The young lady `staying` in your room?
+- Are you going to be `staying` here long?
+- I can't see `staying` here a day longer.
+- Stephen's not `staying` here now, brian.
+- We've got no need `staying` around here.
+- Are you `staying` at your mother's house?
+- I guess we've been `staying` up too late.
+- [pounding on door] you're `staying` here.
+- `Staying` one step ahead of the russians?
+                 

@@ -1,0 +1,107 @@
+---
+title: "somewhere in a sentence | somewhere example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "somewhere"
+---
+- Got to be `somewhere`.
+- He's here `somewhere`.
+- It's here `somewhere`.
+- Out there `somewhere`?
+- `Somewhere`, you know.
+- I was `somewhere` else.
+- Just to go `somewhere`.
+- Left field `somewhere`.
+- `Somewhere` down there?
+- `Somewhere` in between.
+- Start over `somewhere`.
+- Can we meet `somewhere`?
+- Could we go `somewhere`?
+- Going `somewhere`, kane?
+- He's around `somewhere`.
+- She's here, `somewhere`.
+- We're going `somewhere`.
+- You're `somewhere` else.
+- Did you fall `somewhere`?
+- He's in here `somewhere`.
+- He took them `somewhere`.
+- I have to be `somewhere`.
+- I'll go `somewhere` else.
+- `Somewhere` in this city.
+- You gotta go `somewhere`?
+- Found `somewhere` new.
+- But `somewhere` they know.
+- Can we go sit `somewhere`?
+- Going `somewhere`, margie?
+- It'll be here `somewhere`.
+- Let's go `somewhere` else.
+- Can i drop you `somewhere`?
+- Don't you live `somewhere`?
+- He's out there `somewhere`.
+- Hide me `somewhere` deeper?
+- I need `somewhere` to stay.
+- Russell's here `somewhere`.
+- Some apartment `somewhere`.
+- `Somewhere` under all this.
+- Taking ol' leo `somewhere`?
+- Were you going `somewhere`?
+- Yeah, `somewhere` far away.
+- He must be here `somewhere`.
+- I have his card `somewhere`.
+- I'll be... `somewhere` else.
+- Is this leading `somewhere`?
+- Just do it `somewhere` else.
+- ...`somewhere` in the light.
+- `Somewhere` on the mountain.
+- `Somewhere` that you're not.
+- We could put it `somewhere`.
+- Well, don't you `somewhere`?
+- He got lost `somewhere` else.
+- He must be going `somewhere`.
+- He's bound to be `somewhere`.
+- `Somewhere` near the capital?
+- Take ticket `somewhere` else.
+- They are here -- `somewhere`.
+- They'll find him `somewhere`.
+- Tim, go throw up `somewhere`.
+- Are you going out `somewhere`?
+- Gotta come from `somewhere`...
+- I can pick him up `somewhere`.
+- Is that `somewhere` we -- yay.
+- Now we're getting `somewhere`.
+- `Somewhere` behind this panel.
+- Uh, he's got them `somewhere`.
+- You must be going `somewhere`.
+- Can we go `somewhere` and talk?
+- Could you drive me `somewhere`?
+- Do i know you from `somewhere`?
+- He's downstairs -- `somewhere`.
+- He's gonna go `somewhere` else.
+- I've got it here `somewhere`...
+- I wish i were `somewhere` else.
+- Now, we're getting `somewhere`!
+- Oh, they're `somewhere` around.
+- Okay, it's in here `somewhere`.
+- `Somewhere` along the pipeline.
+- `Somewhere` around nine-thirty.
+- Why is `somewhere` else better?
+- You got `somewhere` else to be?
+- You're `somewhere` else, where?
+- You sure this goes `somewhere`?
+- He had to come from `somewhere`.
+- He's alone out here `somewhere`.
+- I knew i left these `somewhere`.
+- Lost `somewhere` under all this.
+- Okay, we're getting `somewhere`!
+- She's off on a trip `somewhere`.
+- Shut down the line `somewhere`?!
+- `Somewhere` else you need to be?
+- `Somewhere` in me is a yoni egg.
+- `Somewhere` in the indian ocean.
+- Take that shit `somewhere` else.
+- We need to get `somewhere` safe.
+- We've got to put it `somewhere`.
+- You're getting help `somewhere`.
+- Got to be `somewhere` that's hot.
+- He's got a sea daddy `somewhere`.
+                 

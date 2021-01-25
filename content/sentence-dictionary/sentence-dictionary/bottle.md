@@ -1,0 +1,107 @@
+---
+title: "bottle in a sentence | bottle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bottle"
+---
+- For a `bottle` of wine.
+- Gimme back my `bottle`.
+- You uncorked a `bottle`.
+- How much is the `bottle`?
+- I need that `bottle` now.
+- It wasn't in the `bottle`.
+- Give me a `bottle` of beer.
+- Pass me the empty `bottle`.
+- We caught it in a `bottle`.
+- Did you design the `bottle`?
+- Maybe a `bottle` of wine...?
+- She hit you with a `bottle`?
+- Give him the bloody `bottle`.
+- I'll open a `bottle` of wine.
+- Pretty handy with a `bottle`.
+- Bought the `bottle`, didn't i?
+- Monks `bottle` their own wine.
+- Like the genie in the `bottle`.
+- That the `bottle` lou gave you?
+- Yo-ho-ho and a `bottle` of rum.
+- `Bottle`, but i'm not a monster.
+- Oh, if this `bottle` could talk.
+- There was only the one `bottle`.
+- Hand me that extra `bottle` okay?
+- I could always get us a `bottle`.
+- In a `bottle` of chateau margaux.
+- It's john's name on the `bottle`.
+- Okay, give me a `bottle` of wine.
+- Stabbed her with a beer `bottle`.
+- But it's called spin the `bottle`?
+- The poison wasn't in the `bottle`.
+- What was the `bottle` that did it?
+- I can't be opening my own `bottle`.
+- I'm staking out this beer `bottle`.
+- I took what was left of a `bottle`.
+- So i left the `bottle` out as bait.
+- Then buy a `bottle` and go outside.
+- Can you use a `bottle` of champagne?
+- Do i look like i live in a `bottle`?
+- I ... can't drink from the `bottle`.
+- [wind whistling] breast or `bottle`?
+- How many pills were in that `bottle`?
+- ...if he can have a `bottle` of suds.
+- You really hit a guy with a `bottle`?
+- Not even a `bottle` of cooking sherry.
+- Get your reserve `bottle` and let's go.
+- Pull me down a `bottle` of jack daniels.
+- Send up a `bottle` of crystal champagne.
+- What do you say we send a `bottle` over?
+- Pass the `bottle`; i know you're holding.
+- That that's a `bottle` of johnnie walker.
+- Time in a `bottle`, man, time in a `bottle`.
+- Jasper: i don't even need a whole `bottle`.
+- So i brought you a `bottle` of barley water.
+- We ought to `bottle` this stuff and sell it.
+- Were any fingerprints found on the `bottle`?
+- Mr. kimball a `bottle` of san pelle- kimball.
+- You should have said it was bring-a-`bottle`.
+- Maxwell gave him a `bottle` of wheat germ oil.
+- I guess you won't mind my keepin' the `bottle`.
+- Jack woke up on the wrong side of the `bottle`.
+- What's that little air `bottle` on the machine?
+- I'm gonna just sit here and drain this `bottle`.
+- There's a half a `bottle` a soothin' sirup here.
+- Its time to open the `bottle` you've been hiding.
+- Just somebody delivering a `bottle` of champagne.
+- I think we'll have a `bottle` of red, as well.
+- With family and a `bottle` of 97-year-old scot.
+- Drinking coffee creamer straight from the `bottle`.
+- We should pick up a `bottle` of tequila on the way.
+- Curl up by the fire and open a `bottle` of wine.
+- But you also mean well, i prefer time in a `bottle`.
+- Did i tell you she threw the `bottle`- a milk at me?
+- It's time to open that `bottle`, you've been hiding.
+- You think one `bottle`'s enough for all them toasts?
+- I was afraid one `bottle` might get lonely by itself.
+- So he drank a `bottle` of pepto and his ass blew off.
+- Was have this label at a funny angle on the `bottle`.
+- As you do, the `bottle` will slip from your hands.
+- Around the same time, he introduced a square `bottle`.
+- In both those films is the `bottle` of johnnie walker.
+- Is this the `bottle` that was found on the nightstand?
+- Dim smashes alex in the face with a full milk `bottle`.
+- Isn't it true that you put the cocaine in the `bottle`?
+- I need a `bottle` of gas at the top of the hillary step.
+- No other `bottle` of nasal spray was found in the house.
+- Okay, "bro," this jig is up... just get in the `bottle`.
+- So i took the `bottle`, and i threw it against the door.
+- We go to the surface now, we'd pop like a soda `bottle`.
+- When i was ten, my old man threw a `bottle` at my mother.
+- I'm not supposed to tuck him in and give him his `bottle`.
+- God, she's going to kill me... this `bottle` is half-empty!
+- Why don't we get a `bottle` of sherry to sip while we talk?
+- Hey, i've been in a frigging `bottle` for six hundred years.
+- Homer might have been slower, and a `bottle` of stolichnaya.
+- That dent is where he threw a `bottle` of vodka at the pilot.
+- We found a `bottle` of dristan nasal spray on the nightstand.
+- Kastle slams the ketchup `bottle` down on junior's right hand.
+- The baby, just open a `bottle` of prunes, and one of the beef.
+- This `bottle` has been a witness to the industrial revolution.
+                 

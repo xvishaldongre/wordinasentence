@@ -1,0 +1,107 @@
+---
+title: "chair in a sentence | chair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chair"
+---
+- `Chair`, cup and ball.
+- Oh, captain's `chair`.
+- Your new `chair`, sir.
+- For the dupont `chair`.
+- Can you... [the `chair`.
+- Y'all pull up a `chair`.
+- I tripped over a `chair`.
+- Sit down in that `chair`.
+- Your nude in the `chair`.
+- That -- is my `chair`.
+- I'll use the `chair` here.
+- Please, sit in the `chair`.
+- The `chair` is fine for me.
+- The `chair`-looking thingy.
+- Go sit over in that `chair`.
+- I always hated that `chair`.
+- On that `chair` in the hall.
+- Can i get you a baby `chair`?
+- His gun was on the `chair`...
+- Peter, let go of the `chair`!
+- Get the fuck outta my `chair`.
+- End up in the electric `chair`?
+- He was very good in... `chair`.
+- I say we tape him to a `chair`.
+- Pulled the `chair` out for you.
+- Get her out of that `chair` now!
+- I want you back in your `chair`!
+- Missed the electric `chair` twice.
+- Get up out of the `chair`, richard.
+- Excuse me, what's a `chair` chall...
+- Help me put him back in his `chair`.
+- Take the number one `chair`, ibanez.
+- I'm still in the `chair`, lieutenant.
+- Sits in that `chair`, he's outta junk.
+- Uh huh... is that really your `chair`?
+- I will have a `chair` put just outside.
+- Sit in this `chair`, and i'll pose you.
+- Will you please call the `chair` people?
+- Got my `chair`, got my window, i'm great.
+- Hudson hawkins gets the `chair` of honor.
+- The young man leaned back in his `chair`.
+- Well, here we are, sitting in my `chair`.
+- The judge sits in robes in a big `chair`..
+- 3, 2, 1. do we have any `chair` challenges?
+- Excuse me, lovebirds, you're on my `chair`.
+- Get your crazy white ass out of my `chair`.
+- Rose, sit down in that `chair` and be quiet!
+- Did you straighten out the `chair` situation?
+- Lisa versus brian, winner gets first `chair`.
+- Do you think my `chair` will be here tomorrow?
+- Jumping from table to `chair` to bed... steve.
+- Kids, make sure you're in a `chair` that spins.
+- It's an electric `chair` that was built in 1896.
+- The man held oppenheimer's `chair` at princeton.
+- A patio `chair` comes flying through a glass door.
+- He goes and sits in the `chair` where nikolas sat.
+- The leather `chair` was soaked through with sweat.
+- People died in that `chair`, including three women.
+- Before i pick up this `chair` and smash your face in.
+- Ada pulls up a `chair` and seats herself at the piano.
+- For gosh sake, eve, take your foot off the `chair`!
+- The guy in the third `chair`'s dynamite... nobody much.
+- Child, i say to you get up out of that `chair` and walk.
+- Skinner, didn't i ask for a buffer `chair` take it easy.
+- So much less refined than frizzling them in the `chair`.
+- You might fall between that `chair` and this television.
+- Just wanted to let you know you're sitting in my `chair`.
+- She'll be dead if you don't put your ass in that `chair`!
+- Becker sits down in a `chair`, half-shrouded in the light.
+- I always thought i'd have a crack at this `chair` one day.
+- I just pictured the tire sitting in a `chair` watching tv.
+- Now that is very interesting -- take a `chair`, joseph, yes.
+- Risk is part of the game if you want to sit in that `chair`.
+- They'll be looking for an excuse to send him to the `chair`.
+- You're the man, the governor, the dude in the `chair`, like.
+- Andy... we don't want the viewer to get out of their `chair`.
+- The polarity must have been reversed by the electric `chair`!
+- Get up out of the `chair`, and walk toward the backdoor, richard.
+- Do you know what it's like being second banana to a third `chair`?
+- We're trying to help you, you silly creature, sit in that `chair`!
+- What makes a man walk into a lion cage with nothing but a `chair`?
+- The `chair` has yet to settle the question to its own satisfaction!
+- You're doing my wedding and i'm calling about the `chair` situation.
+- That's where i hit the `chair` doing that phony fall in the cafeteria.
+- No sir but you struck me as a man who wouldn't want to waste a `chair`.
+- Are you going to offer me a `chair` or leave me standing here all night?
+- Sit down in a comfortable `chair`... and study each detail of this subject.
+- He has dropped his glove�flopped into a `chair`�and has taken out his ocarina.
+- I bought it for ten bucks from a kid in a lawn `chair` on sunset... yeah well...
+- There -- in the master's `chair`, sits the master -- my half-brother paul holland.
+- 'course he might eat this stuff, but then i've seen him eat a rocking `chair`, too.
+- Remember when they took your office `chair` in for repairs and forgot to return it?
+- It's how you pulled out my `chair` and nearly served high tea the first time we met.
+- Let me get this little... being turned into a `chair`, so i thought i'd swap it out.
+- She starts to sink back in her `chair` and bateman leans over and pulls her back up.
+- So, i'm signing us all up for a month brian, that was perfect... for second `chair`.
+- What's wrong with that dog... that have a `chair` i can sit in, except the `chair` store.
+- You back that queen again, you son of a bitch, i'll blow you right out of that `chair`!
+- Because ten years ago, i was sitting in that `chair`, as scared shitless as you are now.
+- You're strapped into an implant `chair`, and i'm monitoring you at a psycho-probe console.
+                 

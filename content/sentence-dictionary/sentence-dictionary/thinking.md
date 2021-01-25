@@ -1,0 +1,107 @@
+---
+title: "thinking in a sentence | thinking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thinking"
+---
+- Exactly my `thinking`.
+- Good `thinking`, duke.
+- Good `thinking` marge.
+- I'm `thinking` dorsia.
+- I was just `thinking`.
+- `Thinking` about home?
+- `Thinking` about what?
+- We'll keep `thinking`.
+- What is he `thinking`?
+- What's the `thinking`?
+- What was i `thinking`?
+- Dear, i was `thinking`.
+- Good `thinking`, honey.
+- I have been `thinking`.
+- I'm `thinking`... well?
+- I've been `thinking`...
+- Merv, i'm `thinking`...
+- My `thinking` is clear.
+- That's good `thinking`.
+- The... good `thinking`.
+- What are we `thinking`?
+- Who am i `thinking` of?
+- Good `thinking`, dwight.
+- I can't stop `thinking`!
+- I...i wasn't `thinking`.
+- I'm `thinking` about it.
+- I was just `thinking`...
+- I was `thinking` of you.
+- Nah, wishful `thinking`.
+- She got me `thinking`...
+- What are you `thinking`?
+- I'm `thinking` about you.
+- I'm `thinking` cargo pod.
+- I wasn't `thinking` that.
+- Just `thinking` out loud.
+- "what are you `thinking`?
+- What were you `thinking`?
+- What were you `thinking`?
+- Did you finish `thinking`?
+- I'm `thinking` of a movie.
+- I've just been `thinking`.
+- I was `thinking` of sybok.
+- Mutual wishful `thinking`.
+- That was quick `thinking`.
+- `Thinking` about thorwald?
+- We're `thinking` pavilion.
+- Here's what i'm `thinking`.
+- I keep `thinking` of annie.
+- I'm saying, i'm `thinking`.
+- I'm `thinking` of your man.
+- I need time for `thinking`.
+- It's what i was `thinking`.
+- I was just `thinking` that.
+- I was `thinking` about you.
+- I was `thinking` las vegas.
+- I was `thinking` that, too.
+- Not `thinking` he knew her.
+- Oh, you've been `thinking`.
+- So i'm `thinking` about it.
+- So what are you `thinking`?
+- That's what i'm `thinking`.
+- You're a `thinking` person.
+- You `thinking` about lunch?
+- I keep `thinking` about him.
+- I know what 'cha `thinking`.
+- I'm `thinking` of someplace.
+- It's not wishful `thinking`.
+- I wasn't `thinking` clearly.
+- I was `thinking` of stewart.
+- I was `thinking` that maybe.
+- That's what your `thinking`.
+- What you `thinking` of, hon?
+- Ain't worth `thinking` about.
+- Get your `thinking` straight.
+- I'm done `thinking` about it.
+- I'm not `thinking` of myself.
+- I'm `thinking` about the kid.
+- I'm `thinking` when i'm home.
+- I wasn't `thinking` of pinta.
+- Jesus, what was i `thinking`?
+- Let me do all the `thinking`.
+- My forward-`thinking` school.
+- Selena, i've been `thinking`.
+- That's what i was `thinking`.
+- The hell were you `thinking`?
+- Well, i've been `thinking`...
+- What was i `thinking`, right?
+- You know what i'm `thinking`?
+- I know what you're `thinking`.
+- I'm still `thinking` about it.
+- I'm `thinking` about moonpies.
+- I'm `thinking` platinum, or...
+- I've been `thinking` about us.
+- I was `thinking` alice cooper.
+- Just let me do the `thinking`.
+- Not the way you�re `thinking`.
+- Saw a bear, you're `thinking`?
+- `Thinking` about my childhood.
+- To be `thinking` about things.
+- What are you `thinking` about?
+                 

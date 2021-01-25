@@ -1,0 +1,107 @@
+---
+title: "expecting in a sentence | expecting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "expecting"
+---
+- I was `expecting` you.
+- My wife's `expecting`.
+- He was `expecting` you?
+- They're `expecting` us.
+- I'll be `expecting` you.
+- They're `expecting` you.
+- You `expecting` someone?
+- You were `expecting` me?
+- Grandpa's `expecting` us.
+- He's `expecting` my call.
+- I'm `expecting` a refund.
+- I'm `expecting`, ya know.
+- I wasn't `expecting` you.
+- They are `expecting` you.
+- We'll be `expecting` you.
+- You `expecting` problems?
+- You were `expecting` her?
+- He's been `expecting` you.
+- I've been `expecting` you.
+- I wasn't `expecting` this.
+- Uh, my wife's `expecting`.
+- Are you `expecting` anyone?
+- But they're `expecting` us.
+- I'm `expecting` some calls.
+- I'm not `expecting` anyone.
+- Weren't you `expecting` us?
+- We've been `expecting` you.
+- Are you `expecting` company?
+- Are you `expecting` me to..?
+- Are you `expecting` someone?
+- I have been `expecting` you!
+- Were you `expecting` anyone?
+- I'm `expecting` some friends.
+- Pike will be `expecting` you.
+- Someone was `expecting` that.
+- They won't be `expecting` us.
+- Weren't `expecting` you, kay.
+- I'm `expecting` a rent cheque.
+- I see that you're `expecting`.
+- Who else were you `expecting`?
+- Because i'm `expecting` a call.
+- I was `expecting` someone else.
+- Okay, someone's `expecting` us.
+- We weren't `expecting` you yet.
+- It's not what i was `expecting`.
+- I've been `expecting` something.
+- Kay, we weren't `expecting` you.
+- Whatta you `expecting` termites?
+- It wasn't what i was `expecting`.
+- Maybe they're `expecting` gruner.
+- Now i'm not `expecting` miracles.
+- What are you `expecting` from me?
+- 'cause they're not `expecting` it.
+- Don't know what i was `expecting`.
+- Don't worry; he's `expecting` you.
+- So they'll be `expecting` us, hey.
+- You `expecting` somebody you know?
+- You're not... `expecting` are you?
+- Miss eve kendall is `expecting` me.
+- Only that you were `expecting` him.
+- The ambassadors are `expecting` me.
+- Hey, kid... you `expecting` company?
+- I think she might be `expecting` me.
+- He's `expecting` you, and he owes me.
+- The emperor has been `expecting` you.
+- You weren't `expecting` me, were you?
+- I wasn't `expecting` this many of you.
+- Joyce, i wasn't `expecting` you today.
+- Make it fast, i'm `expecting` someone.
+- It is as if i had been `expecting` you.
+- Sangedakru is `expecting` you in 3 days.
+- Well, i'm not `expecting` anyone either.
+- I didn't know we were `expecting` guests.
+- Mom's `expecting` you for dinner tonight.
+- Should i be `expecting` him anytime soon?
+- We were `expecting` you to return by six.
+- Particularly if you're not `expecting` it.
+- You were `expecting` a deliver y that day?
+- It's that call you were `expecting`, vince.
+- Not quite what you were `expecting`, right?
+- Sangedakru is `expecting` a girl named echo.
+- At least on his turf, he's not `expecting` it.
+- But were you really `expecting` me to say yes?
+- That's what sheronda's `expecting` me to wear.
+- We're `expecting` brown this afternoon, ma'am.
+- I'm `expecting` you won't mention it again.
+- Okay, karen is `expecting` you in half an hour.
+- So they'll be `expecting` us, where's my watch?
+- You know, i really wasn't `expecting` all this.
+- I just... without `expecting` something in return.
+- I kept `expecting` you to show up and expose me...
+- I was `expecting` somebody else... police business.
+- We weren't `expecting` you for another three months.
+- Well, we were rather `expecting` it to come from you.
+- Actually, i was `expecting` something a little swankier.
+- We weren't `expecting` to find those remains, of course.
+- I really wasn't `expecting` this... all the way out here.
+- My sister is `expecting` me... our train is leaving soon.
+- I've been `expecting` you; i got a letter from the lawyer.
+- I'd love to, but unfortunately i'm `expecting` some company.
+                 

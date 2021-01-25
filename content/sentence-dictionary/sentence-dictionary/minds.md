@@ -1,0 +1,107 @@
+---
+title: "minds in a sentence | minds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "minds"
+---
+- To change our `minds`.
+- Two `minds`, one body.
+- Two `minds`, one brain.
+- We changed our `minds`.
+- I don't control `minds`.
+- Their `minds` are so....
+- They'll read our `minds`!
+- Changing people's `minds`.
+- Great `minds` think alike.
+- What's on all our `minds`?
+- They changed their `minds`.
+- Are you out of your `minds`?
+- Didn't know you read `minds`.
+- Everyone `minds` his business.
+- Freeing `minds` one at a time.
+- And we can change their `minds`.
+- But all this, these are `minds`.
+- Put their `minds` to a solution.
+- Sinks with `minds` of their own.
+- Some of them lost their `minds`.
+- We need to separate our `minds`.
+- Our `minds` will be gone forever.
+- Or when i put their `minds` to it.
+- Well, can we change their `minds`?
+- That's all that's on their `minds`.
+- The kind of rich that warps `minds`.
+- So the aliens can't read our `minds`.
+- But wrap your `minds` around this one.
+- Or lost their `minds`, - are you sure?
+- To hold entire `minds`, consciousness.
+- A group of `minds` from a space vessel?
+- Can't nobody read `minds` long distance.
+- By freeing the `minds`... are you hungry?
+- What's changed, mr. gayle, is our `minds`.
+- You're out of your `minds`, you know that?
+- Because of this the people have two `minds`.
+- Dave, do you think we're out of our `minds`?
+- Yes, an astonishing power over weak `minds`.
+- Designed by the greatest russian `minds`, no.
+- Then you know two `minds` can't share a body.
+- Could say we're of two `minds` on the subject.
+- Hey, i'm-i'm not trying to change any `minds`.
+- Now don't let this cop fuck with your `minds`.
+- We gotta get their `minds` back on each other.
+- What you're doing is stealing people's `minds`.
+- The barrier between our `minds` is breaking down.
+- Illuminate hearts and `minds` with a ray of truth.
+- That's where their `minds` is at, them sick fucks.
+- As our bodies atrophied our `minds`... compensated.
+- Get their `minds` -- your mind, on everyday things.
+- Some people�s `minds` are gloriously uncomplicated.
+- That was unkind and -- but, we changed our `minds`.
+- You might say we had a meeting of the `minds`, yes.
+- I'm gonna blow your `minds` chancellor, dr. griffin.
+- Six-year-old boys don't have girls on their `minds`.
+- These people are still whacked out of their `minds`.
+- Who's `minds` are linked, for the plants and for us.
+- The `minds` of everyone who has entered - are you ok?
+- Two `minds`, one brain never ends well, and strength.
+- Consistency is the hobgoblin of <u>little</u> `minds`.
+- Days to train your bodies and your `minds` to go for it.
+- I mean if you and me put our `minds` together... oh, no.
+- Look at them in the front offices -- the master `minds`!
+- You reverse-engineered them to upload our entire `minds`.
+- I'll just hang the boy here in case we change our `minds`.
+- Most people don't have anything on their `minds`, do they?
+- They're put together by legal `minds`--after a long study.
+- Instead, it unlocked parts of our own `minds`, octavia, go.
+- They had their `minds` made up before i even went in there.
+- Which means the wall separating our `minds` is almost gone.
+- Trying to keep the `minds` separate so the body doesn't die.
+- The more `minds` turn to the task, the more powerful a.l.i.e.
+- When two `minds` share a body, cheating me out of their home.
+- I mean, it's probably ticking away in both our `minds`, right?
+- What is this power you have to control the `minds` of my crew?
+- Oh, they had a lot of money, when they put their `minds` to it.
+- You got to get in your `minds` how the hell spooks think, bill!
+- Let's face it, in your particular field, you're the top `minds`.
+- So just keep it in your `minds` if ya ever wanna make use of it.
+- I finally finished something and the rest of us lose our `minds`?
+- Your bodies would crumble as your `minds` collapsed into madness.
+- By transferring their `minds` into the bodies this isn't our fight.
+- I'm going to scourge their puny `minds`, reducing them to zombie's.
+- The weak ones are these 'people' who can't speak their own `minds`.
+- Great `minds` worked for centuries to turn worthless into priceless.
+- I am obviously not standing out in people's `minds` at the robberies.
+- I just have a hunch... well, it isn't entirely a hunch... our `minds`?
+- Personal experiences are what fuel the `minds` of great writers, rennie.
+- We were a collective of great `minds` dedicated i need to see aden first.
+- But they'll mess with your `minds`, here's whose brain the powder is from.
+- My god, we can't even wrap our `minds` around something as obvious as hiv.
+- You can tell her yourself but her brain can no longer support two `minds`.
+- By the time both `minds` are simultaneously conscious, - when will he wake up?
+- `Minds` of the natives, isn't that the whole point of your little puppet show?
+- This is his strength.... take the great jewish `minds`: marx, freud, einstein.
+- And for that, he'll never get there, right now before they change their `minds`.
+- They are projections materializing from our `minds`, based on a given individual.
+- She `minds` her business and we ... no, not mad at all: she's rotten with religion.
+- Uses it to upload our `minds` by then, this mild ankle sprain should be good as new.
+- Martin, could you wait here for a few minutes while we make up our `minds` about something?
+                 

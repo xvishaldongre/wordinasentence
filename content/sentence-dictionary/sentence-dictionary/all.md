@@ -1,0 +1,107 @@
+---
+title: "all in a sentence | all example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "all"
+---
+- Attention `all` units.
+- (beeping) `all` right.
+- Bellamy is `all` that.
+- Better bring it `all`.
+- Bikes, it's `all` you.
+- But he sent you `all`.
+- But it's `all` you do.
+- But what's `all` this?
+- Can `all` of you work?
+- Can you move at `all`?
+- Dickson's `all` right.
+- Did we get them `all`?
+- Did you lose it `all`?
+- Does he work at `all`?
+- Do i look `all` right?
+- Do you study at `all`?
+- Eh, what's `all` this?
+- Engage `all` defenses.
+- Engage `all` hostiles.
+- Fire `all` phasers...!
+- Fire up `all` systems.
+- Get it `all` the time.
+- He's real `all` right.
+- He's retarded's `all`.
+- Hey, it's `all` right.
+- I could have it `all`!
+- I did slave `all` day.
+- I don't got `all` day!
+- I don't, that's `all`.
+- I dunno, that's `all`.
+- If that's `all` right.
+- I have not said `all`.
+- I know `all` about it.
+- I'll be `all` over it.
+- I love you `all`, too.
+- I'm `all` ears, joyce.
+- I'm `all` knocked out.
+- I'm `all` washed up...
+- I'm curious, is `all`.
+- I'm doing `all` right.
+- I'm doing `all` right?
+- I mean `all` the time.
+- I mean - not at `all`.
+- I missed `all` of you.
+- I'm not at `all` well.
+- I owe it `all` to you.
+- I remember them `all`.
+- I said `all` the rest.
+- I sat with them `all`.
+- Is human, after `all`.
+- Is that `all` he said?
+- Is that `all` you got?
+- Is that `all` you say?
+- Is this `all` you got?
+- I swear, that's `all`.
+- It `all` went so fast.
+- It just `all` came up.
+- It's `all` businesses.
+- It's `all` money, man.
+- It's `all` over, paul.
+- It's `all` right here.
+- "it's `all` right now.
+- It's `all` right, sir.
+- It's `all` soul's eve.
+- It's `all` worked out.
+- It's `all` your fault!
+- It's `all` your fault.
+- It's mine `all` right.
+- It this `all` we have?
+- It was `all` bullshit.
+- It was `all` clear ...
+- It was `all` they had.
+- It�s `all` just words.
+- I've been `all` right.
+- I watch him `all` day.
+- I will kill you `all`!
+- I will need you `all`.
+- John, you `all` right?
+- Just talked, is `all`.
+- Least of `all` my son.
+- Leave us `all` behind.
+- Legends `all` of them!
+- Let him take it `all`.
+- Let's find them `all`.
+- Like `all` the others.
+- More than `all` right.
+- Naw, it's `all` fixed.
+- Never mind `all` that.
+- No, she's `all` right.
+- Not a bit `all` right.
+- Not at `all` friendly.
+- Not at `all`, huh?!...
+- Not handsome at `all`.
+- Not with `all` of you.
+- No, we're `all` right.
+- Now she's `all` yours.
+- "of `all` that i see."
+- Oh -- i'm `all` right.
+- Oh, well, `all` right.
+- On this `all` depends.
+                 

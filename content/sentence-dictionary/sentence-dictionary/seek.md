@@ -1,0 +1,70 @@
+---
+title: "seek in a sentence | seek example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seek"
+---
+- What is it you `seek`?
+- Yoda you `seek`, yoda.
+- "`seek` higher things."
+- Is this what you `seek`?
+- To `seek` a new beginning.
+- We `seek` a new beginning.
+- You `seek` the holy grail.
+- And i `seek` safe passage."
+- Do not `seek` the treasure!
+- I do not `seek` forgiveness.
+- We come to `seek` a meeting.
+- We `seek` to undo the curse.
+- We'll `seek` an emerald seer.
+- Well, what fish do you `seek`?
+- You `seek` glory for yourself.
+- By all means, `seek` him out...
+- In time he will `seek` you out.
+- [coughs] "`seek` higher things."
+- We `seek` the fortress of krull.
+- We `seek` the one you call pike.
+- Do we `seek` out things to covet?
+- Mean you to `seek` him out below?
+- `Seek` you the bridge of death ...
+- I will `seek` the fortress for you.
+- We `seek` solutions through prayer.
+- And to all who `seek` the soul stone.
+- We play hide and `seek` all the time.
+- What does he do, this man you `seek`?
+- What you `seek` lies in front of you.
+- Perhaps the very scientists you `seek`.
+- I have two words for you... `seek` help.
+- I will grant you the destiny you `seek`.
+- We `seek` the ogre, baron couer de noir.
+- It's not my forgiveness you should `seek`.
+- Playing hide-and-`seek` with a little girl.
+- Should we `seek` to destroy -- or to build?
+- The man you `seek` is lower than a serpent.
+- The things you `seek` are not in our power.
+- Go, girl, `seek` happy nights to happy days.
+- One of these cities, is the place you `seek`.
+- To `seek` out new life and new civilizations.
+- To you, and to all who `seek` the soul stone.
+- Is it a joke to `seek` the truth about this man?
+- Ask yourself, why do you `seek` the cup of christ?
+- She was playing hide-and-`seek` with a little girl.
+- But defying those whose approval we `seek` the most.
+- I don't `seek` popularity or renown, monsieur delben�.
+- First commander went into space to `seek` higher things.
+- You `seek` facts, when it would be better to `seek` truth.
+- You need to `seek` the help of a trained -- never mind that!
+- Killed a whole day playing hide-and-`seek` with a crazy kraut.
+- One must know when to `seek` publicity - and when to avoid it.
+- Well, let me ask you this: what kind of settlement do you `seek`?
+- The first culture, even from an old strain "`seek` higher things."
+- On the bottom put `seek` asylum where the stars shine on betlemska.
+- Eat it and go hungry; count it and go broke; `seek` it and grow mad.
+- I've been playing hide-and-`seek` ever since the train left new york.
+- The next time you `seek` counsel it should be of the psychiatric type.
+- I just had a dream about her playing hide and `seek` with a little girl.
+- I don't... `seek` publicity -- will you be staying in gotham for a while?
+- All i `seek` is a genuine balance of power between the emperor and the senate.
+- Relentless hide-and-`seek`, the braiding of hair, and i know the perfect person.
+- So he packed his few belongings and left the farm to `seek` his fortune across the sea.
+                 

@@ -1,0 +1,90 @@
+---
+title: "attacked in a sentence | attacked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attacked"
+---
+- We've been `attacked`.
+- Someone `attacked` him.
+- He must've `attacked`...
+- I really was `attacked`.
+- Some thug `attacked` me.
+- That just `attacked` me.
+- Yet he `attacked` us.
+- She was never `attacked`.
+- After the gulls `attacked`.
+- I heard you got `attacked`.
+- [chuckles] we were `attacked`.
+- They `attacked` while we slept.
+- Which means they `attacked` us.
+- Who `attacked` me in the woods.
+- You `attacked` us for no reason.
+- Like the guys that `attacked` us.
+- Skaikru `attacked` their village.
+- We were `attacked` by a werewolf.
+- We were `attacked` -- down river.
+- Why do you think they `attacked`?
+- Before the wee pesties `attacked`.
+- His blind friend got "`attacked`."
+- You were `attacked` in the forest?
+- They took rose, `attacked` delilah.
+- Today, his dog `attacked` my mom.
+- He shouldn't have `attacked` my ship.
+- But to be safe... who `attacked` them?
+- Perhaps it's because i feel `attacked`.
+- Not now, sven... we're being `attacked`!
+- Okay, you're `attacked` by the bog demon.
+- They told me that someone was `attacked`.
+- Was `attacked` by what you call grounders.
+- Well... well... these birds `attacked` us.
+- He was one of the guard's nomak `attacked`.
+- He was with sidney when she was `attacked`.
+- They would have `attacked`, and you know it.
+- They would have `attacked`, and you know it.
+- Anything attacks it gets counter- `attacked`!
+- Where is this thing that `attacked` your wife?
+- The commander's force never `attacked` the ark.
+- Only kidding...<u>actually</u> i `attacked` you.
+- Walls and borders, unguarded, will be `attacked`.
+- Yes, they `attacked` the children, `attacked` them.
+- He tells her, "bye-bye," and she gets "`attacked`."
+- Just once... weren't you `attacked` by a bolshevik?
+- If they `attacked` the school, that's pretty serious.
+- Did you get a good look at the man who `attacked` you?
+- Open that door, the grounders `attacked` mount weather.
+- If we get `attacked` out here, they'll kill more people.
+- Now all we've got to worry about is what `attacked` him.
+- Can you think of something more romantic than `attacked`?
+- He just... ...he just `attacked` me for no reason at all.
+- The police report said an escaped lunatic `attacked` them.
+- They may have `attacked` only as a warning to us, captain.
+- "good-bye, princess," & the same night she gets `attacked`?
+- He was `attacked`, and his wallet and his watch were taken.
+- That army could've `attacked` us taken from your belongings.
+- First, they always return to where they've `attacked` before.
+- I'm impressed, jasper, the grounders `attacked` mount weather.
+- On the moors, we were `attacked` by a lycanthrope, a werewolf.
+- But just before he was `attacked`, he hid it... uncle terrence.
+- If they `attacked` mount weather, echo, you're my sister, mama!
+- There's still no indication of why they `attacked` the station?
+- We have a fighter screen up, in case we are `attacked`, admiral.
+- Commander data `attacked` us in the mission scout ship yesterday.
+- The first time, when they `attacked` long ago, was the beast here?
+- A few years later, that dog `attacked` my baby sister you're right.
+- It might help if you could get yourselves `attacked` by the police.
+- This is not the first time the dark ones have `attacked` our world.
+- A girl named elizabeth sherman was `attacked` by four drunken seniors.
+- You set yourself up tonight when you `attacked` kathy, you crazy fuck!
+- It's ok. twenty-five... you `attacked` an army that was there to help us.
+- I will not be `attacked` and belittled by my own children in my own home!
+- You're all right... you sure... no, i'm fine... really... you were `attacked`.
+- Miss daniels was `attacked` by a gull just yesterday after... oh, yeah, yeah.
+- Incredibly efficient energy... ♪ feel, feel ♪ - _ - _ and wastelanders `attacked`.
+- His ship was `attacked` by the dread pirate roberts, who never left captives alive.
+- Sir, the speaker of the house `attacked` this administration on national television.
+- It seems he was `attacked` by a maniac, maybe two or three maniacs, just after midnight.
+- When `attacked`, your blood will try and survive -- and crawl away from a hot needle say.
+- If clear's right about the order, then nora and tim are going to be `attacked` by pigeons!
+- Mr. jameson-- bunch of kids at your goddamned college say their appliances `attacked` them.
+- On the high seas, your ship `attacked`, and the dread pirate roberts never takes prisoners.
+                 

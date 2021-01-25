@@ -1,0 +1,107 @@
+---
+title: "folks in a sentence | folks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "folks"
+---
+- Open up here, `folks`.
+- Take it easy, `folks`.
+- Who are these `folks`?
+- Them po' young `folks`.
+- Where are your `folks`?
+- Your `folks`, too, huh?
+- `Folks`'ll ask question.
+- I have no close `folks`.
+- My `folks` got divorced.
+- Your `folks` live there?
+- Okay, that's all `folks`.
+- Alright, `folks`, hang on.
+- I'm not your `folks`, man.
+- Was your `folks` well off?
+- Where's my `folks`, muley?
+- You `folks` need any help?
+- All right, `folks`, please!
+- Cut them `folks` to pieces.
+- How'd your `folks` take it?
+- John, where's your `folks`?
+- You `folks` ready to go on?
+- All right, `folks`, hang on.
+- `Folks`, be reasonable here.
+- Well, `folks`, you heard it.
+- Factory looks great, `folks`.
+- Have a great flight, `folks`.
+- Some `folks` just can't sail.
+- That's what some `folks` say.
+- The genie's on fire, `folks`.
+- A lot of these `folks` aren't.
+- Uh...excuse me, `folks`... oh.
+- What can i do for you `folks`?
+- Well, `folks`, what's the plan?
+- They still around, your `folks`?
+- `Folks` can dance when they want.
+- In rhode island with the `folks`.
+- Hope you figure this out, `folks`.
+- Sorry `folks`, i don't do couples.
+- Your `folks` didn't understand?
+- Honey, some `folks` just can't fly.
+- That's what respectable `folks` do.
+- The parkers seem like nice `folks`.
+- All i've ever seen is black `folks`.
+- I always been lucky killin' `folks`.
+- Stay clear of `folks` you might see.
+- That'll make the `folks` very happy.
+- All right, `folks`, get on your mark.
+- I live up in pompano with my `folks`.
+- Don't you `folks` talk to one another.
+- `Folks` ain't talkin' about much else.
+- `Folks`, we have scored big this time.
+- Ain't you seen your `folks` since then?
+- I can't go puttin' this on you `folks`.
+- ♪ to the `folks` that i know ♪ nowhere.
+- I killed some `folks` quite awhile back.
+- Might be that's just the way `folks` is.
+- You know -- some `folks` are just lucky.
+- How do you `folks` like our hotel so far?
+- I guess it's too lonely for most `folks`.
+- My `folks` didn't really care what i did.
+- But at least i'm upset about it, `folks`.'
+- Give our `folks` medals, know what i mean?
+- His `folks` used to visit with us summers.
+- I mean, lot's of `folks` have got lawyers.
+- My `folks`, your `folks`, ever'body's `folks`.
+- Our number one tune for the `folks`, boys.
+- Why can't i go out to your `folks`' house?
+- Ah, you young `folks` don't know how it is.
+- I see you've been out visiting the `folks`.
+- Didn't want `folks` to think i was a snitch.
+- I called my `folks`, then colonel doolittle.
+- Some `folks` calls it hell, i call it hades.
+- There's settled `folks`, and there's nomads.
+- There's some `folks` i want to keep tabs on.
+- You treat `folks` special when they company.
+- As about what `folks` <u>believe</u> is true.
+- But only a few `folks` know how to get there.
+- My `folks` bought a place over on elm street.
+- Some `folks` take that natural stuff too far.
+- Tell the `folks` where you are today, donald.
+- Wait, so i'm a big hero to my `folks`, right?
+- Well--tell the `folks` inside how it is, tom.
+- My `folks` live in a small town near hartford.
+- Nice, hospitable `folks` they get around here.
+- Come right into the parlor, won't you, `folks`.
+- Did you send my `folks` in philly the check...?
+- I think `folks` carry on about heaven too much.
+- These `folks` have to protect their investment.
+- What happens to other `folks` is their lookout.
+- `Folks` say you're running around town with her.
+- Most `folks` around here got no use for nigrahs.
+- Mr. lord, can you get your `folks` to circle up?
+- When are you gonna come clean with your `folks`?
+- `Folks`'re batshit with the weather turning sour.
+- Oh -- sunday is good for me to meet your `folks`.
+- He's the man, one of the `folks` behind nick fury.
+- It meant a lot to `folks` that you said something.
+- Well i guess `folks` don't mind they's integrated.
+- Ain't it pathetic the way `folks` talk around here?
+- But he fungold this one so bad, `folks` around l.b.
+                 

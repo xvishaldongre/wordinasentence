@@ -1,0 +1,107 @@
+---
+title: "no in a sentence | no example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "no"
+---
+- Brooks ain't `no` bug.
+- But hey, `no` prob ...
+- But `no` one else did.
+- But `no` one has keys.
+- But oh, `no`, not you.
+- But there's `no` data.
+- But tor, he `no` talk.
+- But you're `no` pinup.
+- Charlotte: `no`, `no`!
+- Close, but `no` cigar.
+- Commander `no` longer.
+- Don't say `no`, jacko.
+- Dreams or `no` dreams?
+- Frank was a `no`-show.
+- He had `no` reason to.
+- He has `no` heartbeat!
+- He's `no` steve young.
+- I ain't got `no` eyes.
+- I ain't `no` grounder.
+- I bring you `no` harm.
+- I can't--i can't-`no`.
+- I did `no` such thing!
+- I don't know `no` tod.
+- I don't see `no` riot.
+- I forget things, `no`.
+- I guess that's a `no`.
+- I had `no` idea... `no`.
+- I have `no` questions.
+- I have `no` reason to.
+- I know it's `no` good.
+- I'm `no` fucking good.
+- I'm `no` good at this.
+- I'm `no` longer a man!
+- [in english] `no`, `no`.
+- I `no` understand you.
+- I said, `no`, i'm not.
+- It brought `no` peace.
+- ...it had `no` choice.
+- It is of `no` concern.
+- I told them `no` mayo.
+- I told you `no` calls.
+- It's a `no`-good town.
+- It's `no` coincidence.
+- I've got `no` allergy.
+- Makes `no` difference.
+- Makes `no` sense, roy.
+- Maybe `no` one's home.
+- My mom... `no` signal.
+- `No`, an arm, he said.
+- `No`, bennie: lumbago.
+- `No`, but caesar does.
+- `No`, but it was here.
+- `No`, but i wanted to.
+- `No` calls, in or out.
+- `No`, captain, please.
+- `No`, dear, the train.
+- `No`, doc, not a doll.
+- `No` elephants either.
+- `No` fear of that now.
+- `No` goddamned phones.
+- `No` goodbyes, elaine.
+- `No` harm done, ma'am.
+- `No` harry, you can't.
+- `No`, he picked me up.
+- `No`, he's in mombasa.
+- `No`, honey, we don't.
+- `No`, i ain't married.
+- `No`, i can handle it.
+- `No`, i can't do that.
+- `No`, i can't find it!
+- `No`, i can't let you.
+- `No`, i don't hate it.
+- `No`, i don't think...
+- `No`, i don't want to.
+- `No`, i haven't heard.
+- `No`, i'm a socialist.
+- `No`, i'm a visionary.
+- `No`, i'm fine thanks.
+- `No`, i'm not a whale.
+- `No`, i'm not kidding.
+- `No`, i'm not married.
+- `No`, i'm not worried.
+- `No`, i'm off tonight.
+- `No`, i'm out of town.
+- `No`, i'm serious man.
+- `No`, i'm telling you.
+- `No`, i'm too hot now.
+- `No`, i... sign me up.
+- `No` it doesn't but...
+- `No`, it isn't, lamar.
+- `No`-- it makes sense.
+- `No`, it's a prophecy.
+- `No`, it's not a joke.
+- `No` -- it's not that.
+- `No` - it's showgirls.
+- `No`, it's weird, man.
+- `No`, i want to go in.
+- `No`, i want to smoke.
+- `No` joke, lieutenant.
+- `No` kidding... panda.
+                 

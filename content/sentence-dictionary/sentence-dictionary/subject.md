@@ -1,0 +1,107 @@
+---
+title: "subject in a sentence | subject example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "subject"
+---
+- What's your `subject`?
+- Where's the `subject`?
+- It's a simple `subject`.
+- That's a good `subject`.
+- The forbidden `subject`.
+- The `subject` is closed.
+- The `subject` scares me.
+- ....change `subject`, ok?
+- A forbidden `subject`.
+- That's a simple `subject`.
+- Don't change the `subject`!
+- Don't change the `subject`.
+- Let's change the `subject`.
+- What's your best `subject`?
+- Big `subject` with me, yeah.
+- Can we change the `subject`?
+- What `subject` do you study?
+- It's a complicated `subject`.
+- Must we change the `subject`?
+- Could we change the `subject`?
+- What `subject` does she teach?
+- No s. your `subject` is plural.
+- That's a fascinating `subject`.
+- I thought the `subject` was sex?
+- `Subject` to the king, no doubt.
+- Then let's change the `subject`.
+- But it's a fascinating `subject`.
+- I'd like to change the `subject`.
+- It is a pretty crucial `subject`.
+- `Subject` is armed and dangerous.
+- Toby no, but i like my `subject`.
+- Viktor, that was short `subject`.
+- Does this `subject` make you edgy?
+- General textbook on the `subject`.
+- I changed the `subject`, didn't i?
+- I repeat, `subject` is on the run.
+- I've no thoughts on the `subject`.
+- Will be `subject` to a kill order.
+- Don't try and change the `subject`.
+- Now that's a complicated `subject`.
+- Thou art a `subject` of the divine.
+- Any `subject`... except video games.
+- ♪ i know... ♪ titus is my `subject`.
+- You call yourself a loyal `subject`?
+- Don't try to change to the `subject`.
+- And her specialist `subject` is color.
+- Any further thoughts on the `subject`?
+- Yeah, but let's stay on one `subject`.
+- That's the `subject` of my last chapter.
+- You knew the `subject` thomas grunemann.
+- I'm on to stage five: the human `subject`.
+- Let's get a little light on the `subject`.
+- You hear something... change the `subject`.
+- Long as we're on the `subject` of perverts .
+- Now you are a `subject` of the german reich!
+- Or would you rather i changed the `subject`?
+- Acquire `subject` at k street and key bridge.
+- Now what was your major `subject` at college?
+- Today's `subject` is brooke, earth embryo 47.
+- Could say we're of two minds on the `subject`.
+- You might be an interesting `subject` of study.
+- That is my last word on the `subject`, okay?
+- `Subject` -- indian -- entering suspect's house.
+- Well, you know i'm dear to the `subject` matter.
+- A `subject` on which you're dangerously ignorant.
+- Well, whad'ya know... don't change the `subject`.
+- Just how long did your test `subject` survive?
+- `Subject`: marachuk, john l. died during procedure.
+- `Subject`'s name is "jamie gumb," aka "john grant."
+- "that's not the `subject` of our evening together."
+- Typically, the `subject` being copied is terminated.
+- `Subject` looks to be between 16 and 18 years of age.
+- The `subject` will be delivering the currency in a...
+- Could you-- child molestation is a touchy `subject`...
+- I think we're getting a little off the `subject` here.
+- My schedule is not `subject` to the whims of lunatics.
+- ...no...do not call myself much of a `subject` at all.
+- There is no expert on this `subject`, no wise old man.
+- You're showing how superior you are to your `subject`.
+- This promise isn't `subject` to congressional approval.
+- You wanna change this `subject`, you better have a war.
+- Even an amateur artist needs a `subject` to inspire him.
+- From now on i am your loyal `subject` ... your highness.
+- My deal with job was `subject` to a successful boot scan.
+- "`subject` marachek, john j., died during the procedure."
+- I don't think that's a good `subject` for jokes, mr. hoag.
+- Don't change the `subject`... you owe me two hundred bucks.
+- What was your reason for choosing him as your `subject`?
+- He is `subject` to rapid aging -- like this unstable planet.
+- I cannot commit treason, if i have never been his `subject`!
+- I-- every time i bring it up, you- you change the `subject`.
+- Tell me, what do you know about the `subject` of witchcraft?
+- The `subject` got emotionallv disturbed; he just dropped out.
+- "we would only ever be as happy as our least happy `subject`."
+- Thank you so much for bringing up such a painful `subject`.
+- This is a perfect `subject` for your series on young metropolis.
+- I am now taking a manila envelope from the `subject`'s flight bag.
+- Honey, we're goin' to bed now and it's time to change the `subject`.
+- So i'm going to want a little more of your thinking on the `subject`.
+- Notation: obviously higher settings can be dangerous to the `subject`.
+                 

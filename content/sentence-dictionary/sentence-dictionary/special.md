@@ -1,0 +1,107 @@
+---
+title: "special in a sentence | special example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "special"
+---
+- Our own `special` bus.
+- `Special` agent gibbs.
+- `Special` agent jones.
+- `Special` needs class.
+- Don't i feel `special`?
+- No `special` treatment.
+- Ray's `special` recipe.
+- She's pretty `special`.
+- That word is `special`.
+- Are you in `special` ed?
+- Is this a `special` day?
+- No `special` conditions?
+- This is `special` order!
+- Well, nowhere `special`.
+- With a `special` report.
+- Your sister's `special`.
+- But this one's `special`.
+- That church is `special`.
+- There's a `special` ship.
+- They're really `special`.
+- Why are you so `special`?
+- You're nothin' `special`.
+- He's a very `special` man.
+- Some kind of `special` id?
+- She ordered them `special`.
+- `Special` agent pendergast.
+- This is `special`, darlin'.
+- This kid's `special`, sean.
+- You said we were `special`.
+- But what's `special` in him?
+- I have a `special` practice.
+- Sounds like a `special` guy.
+- Was there someone `special`?
+- What makes him so `special`?
+- You know, nothing `special`.
+- Your name is very `special`.
+- This is a `special` book.
+- She's really `special`, guys.
+- What's so `special` about it?
+- What's so `special` about me?
+- Anything `special` about them?
+- Did we meet someone `special`?
+- I'm on a very `special` quest.
+- It's a `special` day isn't it?
+- What's so `special` about him?
+- Got anyplace `special` in mind?
+- Nobody `special` enough, curly.
+- So what makes you so `special`?
+- `Special` agent gunther moonan.
+- Well, there's nobody `special`!
+- You missed something `special`.
+- Zev, we have a `special` guest.
+- First i give you `special` fuck!
+- I'd go `special` reconnaissance.
+- I'll have the `special` fish.
+- Did they give him `special` care?
+- Linda have `special`, crazy fuck.
+- My name is `special` agent jones.
+- Oh, is this your `special` place?
+- She's really something `special`.
+- That car is very `special` to me.
+- This makes `special` k look weak.
+- This one has a `special` meaning.
+- What's so `special` about a lamp?
+- What's `special`...what draws us?
+- Ya see, i ordered that `special`.
+- Anything `special` about the case?
+- Did you think it was so `special`?
+- Do they have any `special` powers?
+- I brought you a `special` present.
+- It makes you very `special`, jane.
+- Just, you know, nothing `special`.
+- Maybe it needs `special` handling.
+- Supervising `special` agent, harp.
+- You got a `special` friend, jimmy?
+- I mean, this is one `special` gift!
+- May i say you smell real `special`.
+- That makes you something `special`.
+- This is a `special` night, sweetie.
+- Tired... to my own `special` sissy.
+- Want anything `special` for dinner?
+- It must he something very `special`.
+- I was just making it more `special`.
+- I wrote something `special` for you.
+- Suzie must be pretty `special`, huh?
+- The "rancher's `special` breakfast"?
+- We'll make this a `special` night...
+- 'x' department `special` operations.
+- You're someone real `special` to me.
+- Are there any `special` instructions?
+- I guess it was... `special` occasion?
+- It had very `special` meaning for me.
+- I thought to myself: she's `special`.
+- It's `special` officer tannen to you.
+- She has a `special` surprise for you.
+- That must have been pretty `special`.
+- We drink this at `special` occasions.
+- We need a `special` man for this job.
+- Why are you teaching `special` needs?
+- You've got to do something `special`.
+                 

@@ -1,0 +1,70 @@
+---
+title: "package in a sentence | package example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "package"
+---
+- It's a `package` deal.
+- A `package` from raven.
+- Deliver this `package`.
+- Permanent `package` boy.
+- `Package` is on the move.
+- Had a `package` to deliver.
+- Sarah eye on the `package`.
+- The `package`: what was it?
+- You're the `package` thief?
+- Give it here, `package` boy.
+- We have a `package` for you.
+- Eh, kind of a `package` deal.
+- The `package` is in the open.
+- They don't have the `package`.
+- I'm just delivering a `package`.
+- Sir, i'll deliver the `package`.
+- The severance `package` is fair.
+- This `package` was kuala lampur.
+- The `package` boy knows everyone.
+- What's in the two week `package`?
+- May i carry your `package`, grace?
+- ♪ open up a `package` of... ♪ how?
+- Did i get my `package` in the mail?
+- I repeat, `package` is on the move.
+- The "`package`" should be arriving now.
+- He gave the police a complete `package`.
+- I was just delivering a `package`, miss.
+- Maybe this is all part of the `package`.
+- Monk, schoenick... secure the `package`.
+- Relinquish the `package` and you can go.
+- Jack open the door, let the `package` roll.
+- I mean, i've got the whole `package`, right?
+- Just because i help a lady with her `package`?
+- No activity in his account after this `package`.
+- What kind of perk `package` are you thinking of?
+- `Package` away in five..four..three.. two..one...
+- That `package` is kind of heavy, and it's so hot.
+- If they had the `package`, they'd have killed him.
+- `Package` delivery thefts continue in springfield.
+- This by this... how big a `package` we talking about?
+- Definitely a `package` you don't want to open or touch.
+- Had his jingle bell rung in a `package` deal gone boom.
+- He's the proud owner of an alliance security `package`.
+- Finding this `package` is a thing easier said than done.
+- This `package`, whatever it is, do you give it to the cia?
+- Well, the guy at the gates, they say they got a `package`.
+- The guy at the gate's outside...says there's a `package`...
+- Every person counts, every `package` counts, that's my point.
+- They dropped the `package` on the ground and you picked it up.
+- I had a courier job -- picking up a `package` from the airport.
+- I threw the `package` in the kitchen and went to take her hone.
+- This kid, this `package` boy could bring down the whole east coast.
+- What's this little green wire coming out one side of the `package`?
+- Do not engage until we've confirmed the `package` has been delivered.
+- Does tire 40 in 3.4, soft hands, lateral movement--the whole `package`.
+- Whole `package`'ll crank this betty up another three-hundred horsepower.
+- Inside that leather bag with the pockets is a `package` of lens cleaners.
+- Is there a benefits `package`, or are you hiring me on a freelance basis?
+- Told me that in a raid, the whole `package` never gets back to the station.
+- What's a bruddah s'posed to do, ride around all day with the damn `package`?
+- Your friends picked up the wrong `package` when they bundled me out here in the car.
+- Ooh ooh, tough talk from a scared little girl all wrapped in a pretty grown-up `package`.
+- Then... then swede and i split with the `package` and meet you back at the rendezvous.
+                 

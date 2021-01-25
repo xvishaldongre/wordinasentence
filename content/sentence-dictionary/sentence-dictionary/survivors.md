@@ -1,0 +1,53 @@
+---
+title: "survivors in a sentence | survivors example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "survivors"
+---
+- There were `survivors`.
+- We're sole `survivors`.
+- But there are `survivors`?
+- Um... look for `survivors`.
+- Hailing all ark `survivors`.
+- I was like many `survivors`.
+- I treat aircrash `survivors`.
+- Maybe they found `survivors`.
+- You're fighters, `survivors`!
+- You know any `survivors`, dad?
+- But we don't leave `survivors`.
+- You don't bury the `survivors`.
+- You were one of the `survivors`.
+- We have about a dozen `survivors`.
+- Where do you bury the `survivors`?
+- Fortunately, there were `survivors`.
+- And this year we had lone `survivors`.
+- Marcus, i... we've got two `survivors`.
+- No `survivors`... a hotel fire downtown.
+- I believe there will be other `survivors`.
+- I estimate no more than 1,000 `survivors`...
+- We need to hit them hard, leave no `survivors`.
+- You told me they're `survivors`...and they are.
+- Are you saying there are `survivors` on the ground?
+- ...and `survivors` came here from all over the world.
+- If there were `survivors`, have you been to lithuania?
+- Then i'm supposed to write a report on `survivors`.
+- Earth monitoring station hailing all ark `survivors`.
+- Earth monitoring station, hailing all ark `survivors`.
+- It does not matter `survivors` are still on their farms.
+- Ark `survivors`, and we need those reinforcements, raven.
+- Set course for ceti alpha v and we'll pick up `survivors`.
+- They are the `survivors` of the steveston county massacre.
+- They're looking for `survivors`, you know what i'm talking about.
+- We might be able to dig out a couple of suez `survivors` for you.
+- Until i was dispatched to clean up one of the flight 180 `survivors`.
+- My intervention in the death of 180 `survivors` will cheat the design.
+- Their descendants on that transport ship are `survivors`, just like us.
+- Searching for other `survivors` from the ark, why would we want to leave?
+- If there's any change in her condition, our people are here... no `survivors`.
+- Fight's over before it's begun... soon the `survivors` will be in full retreat.
+- Uh, for the crew lunch, you lied about there not being any `survivors` from the ark.
+- In this situation, we assign equal blame moving farm station `survivors` in is another.
+- No `survivors`... and am amtrak train derails seven and half miles outside of the city.
+- About the `survivors` from the ark, they're just gonna kill each other as soon as we leave.
+- In twenty-eighty-two many of the `survivors` moved their facilities underground to escape .
+                 

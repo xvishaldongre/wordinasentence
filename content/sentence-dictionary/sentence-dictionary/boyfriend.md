@@ -1,0 +1,107 @@
+---
+title: "boyfriend in a sentence | boyfriend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boyfriend"
+---
+- Her first `boyfriend`.
+- He's your `boyfriend`.
+- Like your `boyfriend`.
+- Sort of a `boyfriend`?
+- That's my `boyfriend`.
+- You got a `boyfriend`?
+- You're my `boyfriend`.
+- `Boyfriend` trouble ..?
+- Is he your `boyfriend`?
+- Lisa has a `boyfriend`?
+- Who's your `boyfriend`?
+- You have a `boyfriend`?
+- You're her `boyfriend`?
+- Your first `boyfriend`.
+- Your mom's `boyfriend`.
+- Are you her `boyfriend`?
+- He's not my `boyfriend`.
+- She found a `boyfriend`.
+- She's got a `boyfriend`?
+- A portuguese `boyfriend`.
+- He wasn't my `boyfriend`.
+- With another `boyfriend`.
+- Do you have a `boyfriend`?
+- He's a former `boyfriend`.
+- He's my first `boyfriend`.
+- So, you gotta `boyfriend`?
+- I don't have a `boyfriend`.
+- Mama has a `boyfriend` now.
+- My `boyfriend`'s in lockup.
+- So is miller's `boyfriend`.
+- He's not my `boyfriend`.
+- Get a `boyfriend` like this.
+- Got a `boyfriend` back home?
+- He's nobody's `boyfriend`...
+- He was my first `boyfriend`.
+- I was her first `boyfriend`.
+- She's got a new `boyfriend`.
+- So is that your `boyfriend`?
+- You and your `boyfriend`...?
+- Your new `boyfriend`, right?
+- `Boyfriend` johnnie farragut.
+- I've got a `boyfriend`, mark.
+- Yeah, i've got a `boyfriend`.
+- You can't have a `boyfriend`.
+- You don't have a `boyfriend`?
+- I didn't like her `boyfriend`.
+- I had this `boyfriend`, chuck.
+- Was it a `boyfriend` of yours?
+- With her dirtball `boyfriend`.
+- No, she killed her `boyfriend`.
+- She doesn't want a `boyfriend`.
+- Who's your fucking `boyfriend`?
+- Did lefferts have a `boyfriend`?
+- Maybe it was her... `boyfriend`.
+- That was your other `boyfriend`.
+- You guess he's your `boyfriend`?
+- Call me your fucking `boyfriend`.
+- I thought i was your `boyfriend`.
+- My `boyfriend` told me about you.
+- So is steve your `boyfriend` now?
+- What was that `boyfriend`'s name?
+- I don't like the term `boyfriend`.
+- I have a `boyfriend` now you know.
+- Is this `boyfriend` bothering you?
+- Looks like her `boyfriend` did it.
+- She broke up with her `boyfriend`.
+- She's so proud of her `boyfriend`.
+- What happened to your `boyfriend`?
+- Your `boyfriend`'s being an idiot.
+- I already have a `boyfriend`, nick.
+- I don't have a `boyfriend` anymore.
+- I told him you were my `boyfriend`.
+- Oh, and she also has a `boyfriend`.
+- That must be her `boyfriend`'s car.
+- What is your `boyfriend`'s name?
+- Delilah's `boyfriend` saved my life.
+- It isn't another `boyfriend`, is it?
+- Karl, this is my `boyfriend`, doyle.
+- Maybe she's got another `boyfriend`.
+- Or if your `boyfriend`'s an asshole.
+- This is dante hicks, my `boyfriend`.
+- Who's the guy, george's `boyfriend`?
+- Principal collins is her `boyfriend`!
+- Taking my `boyfriend` to the airport.
+- You're not even `boyfriend` material.
+- If i was your `boyfriend`, i might be.
+- I'm sorry your `boyfriend` got killed.
+- Tell me about the `boyfriend` she had.
+- Think this old guy is her `boyfriend`?
+- What would your - `boyfriend` - think?
+- You didn't know she had a `boyfriend`?
+- You want me to steal your `boyfriend`?
+- For god's sake, i've got a `boyfriend`.
+- I'd like for my `boyfriend` to love me.
+- I'm having trouble with my `boyfriend`.
+- What is he, like, your `boyfriend` now?
+- I thought you didn't have a `boyfriend`.
+- When your `boyfriend` dumps you, always.
+- Why can't i have a normal `boyfriend`???
+- Another mark for your `boyfriend`'s book.
+                 

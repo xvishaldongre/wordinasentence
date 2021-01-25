@@ -1,0 +1,107 @@
+---
+title: "art in a sentence | art example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "art"
+---
+- The `art` of survival.
+- Yea, `art` thou there?
+- For thou `art` with me.
+- The `art` supply store.
+- There `art` thou happy.
+- Yea, `art` thou there?!
+- Creasy's `art` is death.
+- For the `art` of ballet.
+- It's state of the `art`.
+- It's state-of-the `art`.
+- My goal is to make `art`.
+- Thinks he's making `art`.
+- Thou `art` my souls hate!
+- 'thou `art` then a king?'
+- You have wonderful `art`.
+- Your `art`'s worth a lot.
+- Tush, thou `art` deceived.
+- You mustn't talk to `art`.
+- Dude, know your `art` form.
+- It's an `art` installation.
+- This is science, not `art`.
+- Wherefore `art` thou romeo?
+- Why, romeo, `art` thou mad?
+- Eddie -- it's `art` esparza!
+- The `art` of transformation!
+- Anything for `art`, eh, paul?
+- Do you have an `art` metaphor?
+- He uhm-- makes `art` with them.
+- I found a lot of `art` mooneys.
+- That's why `art`'s so valuable.
+- They called it automatic `art`.
+- You're not interested in `art`?
+- At least they're learning `art`.
+- The `art` of which is deception.
+- But isn't that the duty of `art`?
+- It's a lie that `art` is popular.
+- Thou `art` consortest with romeo?
+- '`art` thou the king of the jews'?
+- He's been reviewed in `art` forum.
+- It's not just `art`, it's history.
+- This system is state of the `art`.
+- This system is state-of-the-`art`.
+- You wanna buy some ignorant `art`?
+- `Art` critic � writes for artforum.
+- "`art`'s supplies" is for ex- cons.
+- `Art` supplies in the bunker, finn.
+- Oh, you're a piece of `art`, johns.
+- Thou `art` a subject of the divine.
+- You phoned up `art` esparza's wife?
+- `Art` thou not romeo and a montague?
+- I've had some practice in the `art`.
+- Marfa is the `art` capital of texas.
+- Was there any `art` on judge ramsey?
+- You know a lot about `art`, i guess.
+- There's an `art` to mass destruction.
+- This is state-of-the-`art` firepower.
+- You can open an erotic `art` gallery.
+- Hence from verona `art` thou banished.
+- I am an artist and i believe in `art`.
+- Is this one `art` deco or `art` nouveau?
+- That's a very important work of `art`.
+- You know, as... connoisseurs of `art`.
+- Like i would have `art` in my suitcase.
+- Museums... `art` galleries... concerts.
+- These little honeys are works of `art`.
+- Bro, what you built was a work of `art`.
+- The `art` buys are in a separate ledger.
+- Politics and `art` must be kept separate.
+- By learning the ancient `art` of ninjetti.
+- `Art` and politics, yeah, `art` and politics.
+- `Art` garfunkel and marvin gaye -- -- made.
+- That `art` and politics can't be separated?
+- I really wasn't into `art` when i was a kid.
+- Towards your mother onto your `art` teacher.
+- I didn't realize you were an `art` collector.
+- I may not know `art`, but i know what i like.
+- It will enhance any collection of fine `art`.
+- My brother `art` got his girlfriend one once.
+- That is my `art`, and it is <u>dangerous</u>!
+- They're packing state-of-the-`art` firepower.
+- You make `art` and you want people to see it.
+- Could it be an overpowering interest in `art`?
+- I' faith, i am sorry that thou `art` not well.
+- In a dictatorship, `art` belongs to the party.
+- Well, it is not my fault that thou `art` tiny.
+- You talk to me about culture, `art` and music?
+- I remember you now..the so called `art` dealer.
+- You mustn't tell `art` that i was at the trial.
+- They get all their `art` literature from dreams.
+- This is the room above the `art` treasures room.
+- Time to add another chapter to my work of `art`.
+- Yeah... like � stupid, ridiculous, crummy `art`.
+- Christ, i hope this isn't more crappy folk `art`.
+- I know the brunwalds are famous `art` collectors.
+- Well, no - it's more like a "found `art` object."
+- Goddamn that `art` mooney with a star by his name!
+- Where language was seen as an expression of `art`.
+- Actually, the `art` department had some ideas on...
+- What we need is a space for real performance `art`.
+- Wouldn�t want anyone to interfere with his �`art`�!
+                 

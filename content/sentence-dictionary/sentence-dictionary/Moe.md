@@ -1,0 +1,57 @@
+---
+title: "Moe in a sentence | Moe example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Moe"
+---
+- But paid for by `moe`.
+- Give me a duff, `moe`.
+- `Moe`, you're a genius!
+- Taking frink to `moe`'s.
+- Another night at `moe`'s?
+- `Moe` loves the business.
+- My brain in `moe`'s body.
+- `Moe`, i got to get drunk.
+- I'm through with ya, `moe`!
+- Lenny, carl, barney, `moe`.
+- `Moe` has a liquor license.
+- You wound up at `moe`'s.
+- `Moe`, i'm here to apologize.
+- So you guys friends of `moe`?
+- Guess old `moe`'s got a heart.
+- I'll head directly to `moe`'s.
+- That night, `moe` cut him off.
+- There's no place like `moe`'s.
+- What happened to `moe` greene?
+- I ordered `moe`'s mail-order bride.
+- Mike, you sure about `moe` selling.
+- I know this is a tough one but... `moe`?
+- This is our chance to get back at `moe`.
+- I don't know how i feel right now, `moe`.
+- Maybe this will turn out great for `moe`.
+- `Moe`, lisa has offered to pay my bar tab.
+- That'll break `moe`'s heart and his wallet.
+- Now, now, `moe` didn't mean nothin' by that.
+- We bought ya a tap into `moe` anenberg's wire.
+- Why didn't `moe` green meet us at the airport?
+- Dad, you should take professor frink to `moe`'s.
+- As `moe` szyslak said, homer was definitely a suspect.
+- But `moe` and me, we're good friends, right, `moe`, huh?
+- Of successful american businessman, uh, `moe` szyslak?
+- Uh, look, `moe`, i'll tell you how to get her back, okay?
+- But i'd rather not let maybe you should just go to `moe`'s.
+- "`moe` gives... chancellor pike would like to speak with you.
+- `Moe`, i never dreamed you were capable of such a sweet thing.
+- ♪ circus clowning ♪ pretending to be my lawyer, probably `moe`.
+- Turns out this ducking `moe` was an accountant for the king pin.
+- 'cause i don't want no one knowing that this is `moe` szyslak here.
+- According to civil defense plans from before the war, `moe`'s tavern.
+- That kid's name was `moe` greene, and the city he invented was las vegas.
+- You don't come to las vegas and talk to a man like `moe` greene like that!
+- I knew `moe`; i knew he was headstrong, and talking loud, and saying stupid things.
+- But that doesn't make it right, did you hear `moe` accidentally bought a wife online?
+- `Moe` green is out of the tropicana, and my sons, michael and fredo, are taking over.
+- Boudalan now controls level e and f. `moe` serves christmas dinner to the old and needy.
+- ♪ and please not milhouse or kearney ♪ _ little bits of bacon, a tough one, but... `moe`?
+- I just have to push this one button, my sweet `moe`, there is no way to fake what we have.
+                 

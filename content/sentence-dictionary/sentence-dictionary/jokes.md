@@ -1,0 +1,54 @@
+---
+title: "jokes in a sentence | jokes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jokes"
+---
+- Always mit the `jokes`!
+- You don't tell `jokes`.
+- You make weird `jokes`.
+- We know the `jokes`.
+- No `jokes` about my name?
+- One of your sick `jokes`?
+- Your `jokes` are terrible.
+- As meditation `jokes` go...
+- Come, make `jokes` for her.
+- I hate them polish `jokes`!
+- No, no `jokes`, i gotta pee.
+- So no `jokes` about my name?
+- Inventin' `jokes` ain't easy.
+- You're always making `jokes`.
+- Don�t know any doctor `jokes`.
+- Make `jokes` about the traffic.
+- No `jokes`, i�ve heard them all.
+- Alright, get your `jokes` out now.
+- How, making stupid little `jokes`?
+- No `jokes`-these are friends, okay?
+- Sissy and cort are playing `jokes`.
+- All right, get your `jokes` out now.
+- So, makin' dame `jokes`, huh, eddie?
+- Oh, telling inside `jokes` now, are we?
+- I don't know any `jokes` about your name.
+- I, for one, miss your stupid little `jokes`.
+- It's like one of those `jokes` on the wireless.
+- Startin' with the bad `jokes` early today, huh.
+- Although i do get to keep using the same `jokes`.
+- They stand at the edge of the grave and make `jokes`.
+- Leon, you know the `jokes` you told me a few days ago?
+- You know, they told me there were gonna be some `jokes`.
+- Making `jokes` is the one thing you're good at, isn't it?
+- No more `jokes`, drop it or she gets it between the eyes!
+- I don't think that's a good subject for `jokes`, mr. hoag.
+- I don't care to hear any `jokes` about people being in hell.
+- I'm really not in the mood for one of your practical `jokes`.
+- Great, but nobody laughs at it 'cause your `jokes` aren't funny.
+- He never `jokes`... perhaps the professor could use your computer.
+- Mr. scott, don't make `jokes`, we are in danger of - stand by, sir.
+- Scrabble, knock-knock `jokes`, anecdotes about famous dead italians....
+- She's got the volume on so damn high he can hear david letterman's `jokes`.
+- You will have to make all the `jokes`, because i'm going to be very serious.
+- Stay away from his ass - and don't play any of his fuckin' knock-knock `jokes`.
+- Sitcoms are the lowest form of entertainment: stupid `jokes` and canned laughter.
+- No old cia/ new cia `jokes`... don't you just hate kids... you're supposed to be dead!
+- Lydia, i don't know what it is with you and these pratical `jokes`, but -- well this is...
+                 

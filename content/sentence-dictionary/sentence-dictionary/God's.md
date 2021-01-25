@@ -1,0 +1,107 @@
+---
+title: "God's in a sentence | God's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "God's"
+---
+- Death is `god's` will!
+- For `god's` sake, why?
+- It's `god's` mountain.
+- Oh, for `god's` sakes!
+- On `god's` flat earth.
+- For `god's` sake, lilly!
+- Terry, for `god's` sake.
+- What in `god's` name...?
+- For `god's` sake, thelma.
+- That's the `god's` truth.
+- For `god's` sake -- go on!
+- I resent `god's` monopoly.
+- It's about `god's` values.
+- `God's` ways are not yours.
+- Oh, for `god's` sake, will.
+- Spare me, for `god's` sake.
+- This is `god's` punishment.
+- Oh, for `god's` sake...here.
+- That's `god's` honest truth.
+- It's ok. oh, for `god's` sake.
+- For `god's` sake... - be quiet.
+- For `god's` sakes, let me out!!
+- From your mouth ta `god's` ear.
+- The embodiment of `god's` will!
+- Bob... what in `god's` name... ?
+- From your lips, to `god's` ears.
+- Leave us alone for `god's` sake!
+- No... for `god's` sakes, santos!
+- This is "`god's` country," john.
+- Maybe `god's` punishing us all...
+- Maybe `god's` right here and now.
+- All men are equal in `god's` eyes.
+- But `god's` grace is for everyone.
+- For `god's` sake, what's happened?
+- He's in chicago, for `god's` sake!
+- As if they have `god's` permission.
+- For `god's` sake, forget the money!
+- It would have to be `god's` portal.
+- Look at his neck, for `god's` sake.
+- Of course he did, for `god's` sake.
+- This is a school, for `god's` sake.
+- What in `god's` name are you doing?
+- With extreme car, for `god's` sake.
+- I can offer you `god's` forgiveness.
+- What in `god's` name does that mean?
+- Why in `god's` name would i want...?
+- You don't have to earn `god's` love.
+- For `god's` sake, chain this convict.
+- `God's` music, my mother used to say.
+- We were in da nang, for `god's` sake.
+- For `god's` sake, keep colson out.
+- For `god's` sake, give her a sedative!
+- For `god's` sake, what happened to me?
+- For `god's` sake, when does this end?!
+- In `god's` name, don't you understand?
+- What's hoover found, for `god's` sake?
+- Answer me, for `god's` sake, answer me.
+- But `god's` law is not for us to judge.
+- For `god's` sake, i've got a boyfriend.
+- For `god's` sake, leave him alone, dad.
+- Please, for `god's` sake, don't hit me.
+- The paint's still wet for `god's` sake.
+- How dare you stop me doing `god's` will!
+- I'm not fucking angry, for `god's` sake.
+- Oh, for `god's` sake, she has the blood.
+- You've killed an icon, for `god's` sake.
+- For `god's` sake, tell him i'm on my way.
+- For `god's` sake, will you please go now?
+- What in `god's` name am i to do with you?
+- What's he got to write, for `god's` sake?
+- Now for `god's` sake keep your mouth shut.
+- <u>wildlife</u> footage, for `god's` sake.
+- For `god's` sake, ohashi, i need your help.
+- `God's` grace cannot be resisted or denied.
+- I don't know, pete, but for `god's` sake...
+- Oh for `god's` sake, louella- nix, sweetie.
+- Then for `god's` sake, don't be a detective.
+- You could have telephoned, for `god's` sake.
+- For `god's` sake stop plucking your hair.
+- For `god's` sake, play something with a beat.
+- I'm telling you `god's` words, not no hustle.
+- For `god's` sake keep a grip on yourself janet.
+- `God's` back on our side, so let's get smokin'.
+- I know, sir ... oh, for `god's` sake okay, sir.
+- "i'm telling you `god's` words, not to hustle."
+- For `god's` sake, homer, wally's been shot down!
+- For `god's` sakes...i told you before...nothing.
+- Who in `god's` name do you think you are....?
+- `God's` real estate holdings and tax-free status.
+- I mean, for `god's` sake, we own a grocery store!
+- It's the color of your costume, for `god's` sake.
+- Every word i told you is the `god's` honest truth.
+- No, for `god's` sake, i just watered it yesterday.
+- That's why brad thinks he's `god's` gift to women.
+- What in `god's` name are you talking about, woman?
+- For `god's` sake -- she's in trouble -- get a grip.
+- For `god's` sakes, what are you trying to do to me?
+- What in `god's` holy name are you blathering about?
+- For `god's` sake, ann, i am not fucking your sister.
+- For `god's` sake sheila, you almost had them killed!!
+                 

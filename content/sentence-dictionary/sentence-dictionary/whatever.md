@@ -1,0 +1,107 @@
+---
+title: "whatever in a sentence | whatever example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whatever"
+---
+- ..or `whatever` i did.
+- Well, hey, `whatever`.
+- `Whatever` that means.
+- `Whatever` that means.
+- `Whatever` you wish...
+- Do `whatever` they say.
+- Do `whatever` you want.
+- I do `whatever` i want.
+- Or mean, or `whatever`.
+- Take `whatever` i want?
+- `Whatever` do you mean?
+- `Whatever` his name is.
+- `Whatever` jamie needs.
+- `Whatever` our name is.
+- `Whatever` shall we do?
+- `Whatever` that means..
+- Yeah, sure, `whatever`.
+- Ask `whatever` you will.
+- Ok, `whatever` you want.
+- `Whatever` gets you off.
+- `Whatever`'s going on...
+- '`whatever` you desire.'
+- `Whatever` you desire...
+- `Whatever` you say, dil.
+- `Whatever` you say, man.
+- `Whatever` you say, rat.
+- `Whatever` you say, sir.
+- `Whatever` you two want.
+- Do `whatever` you please.
+- Take `whatever` you want.
+- `Whatever` you can carry.
+- `Whatever` you'd call it.
+- `Whatever` you're having.
+- `Whatever` you say, boss.
+- `Whatever` you say, boss.
+- `Whatever` you say, john.
+- `Whatever` you say kojak.
+- `Whatever` you say, lady.
+- `Whatever` you want, ray.
+- Yeah, okay... `whatever`.
+- Yeah... `whatever`, jake.
+- It's like yeah `whatever`.
+- I used `whatever` it took.
+- Loan sharks or `whatever`.
+- Okay, `whatever` you want.
+- The esophagus, `whatever`.
+- To talk and... `whatever`.
+- `Whatever` does that mean?
+- `Whatever` happened to us?
+- `Whatever` helps you cope.
+- `Whatever` night you like.
+- `Whatever`'s closest, man.
+- `Whatever`'s on your mind.
+- `Whatever` you girls want.
+- Yeah, right -- `whatever`.
+- Borrow `whatever` you like.
+- I can do `whatever` i want.
+- I don't know... `whatever`.
+- I'll give you `whatever`...
+- Ok, `whatever` you think...
+- Well, `whatever` you think.
+- `Whatever` happened to him?
+- `Whatever` it is, it hurts.
+- `Whatever` makes you happy.
+- `Whatever` you want, helen!
+- You do `whatever` you want.
+- You'll do `whatever` i say.
+- Call me `whatever` you like.
+- Call me `whatever` you want.
+- Do `whatever` they tell you.
+- I'll do `whatever` you want.
+- `Whatever`, do you remember?
+- `Whatever` happened to mary?
+- `Whatever` i can do to help.
+- `Whatever` i did, i'm sorry.
+- `Whatever` it is, it's dark.
+- `Whatever` it is just do it.
+- `Whatever`, it's a disaster.
+- `Whatever` it takes, jasper.
+- `Whatever` the hell we want.
+- `Whatever` you say, darling.
+- Ah, wear `whatever` you want.
+- Dear, `whatever` shall we do?
+- Drugs are bad..." `whatever`.
+- Just eat `whatever` you want.
+- Pick out `whatever` you want.
+- The ufo, or `whatever` it is.
+- <u>`whatever` you desire</u>.
+- `Whatever` happens it's over.
+- `Whatever` it was, it's gone.
+- `Whatever` the hell you want.
+- `Whatever` you like it to be.
+- `Whatever` you make yourself.
+- `Whatever` you say, mr. eddy.
+- Yeah, ok, `whatever` you say.
+- Bring him `whatever` he wants.
+- By `whatever` means necessary.
+- Let `whatever` happens happen.
+- We can say `whatever` we want.
+- We cover the bank, `whatever`.
+                 

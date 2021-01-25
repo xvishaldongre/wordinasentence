@@ -1,0 +1,58 @@
+---
+title: "plastic in a sentence | plastic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plastic"
+---
+- The `plastic` surgeon!
+- What is it, `plastic`?
+- C4, `plastic` explosive.
+- I was a `plastic` surgeon.
+- I will open the `plastic`.
+- `Plastic` fucking surgeon?
+- They're encased in `plastic`.
+- I got all the `plastic` stuff.
+- Soon he'll be a `plastic` cube.
+- They gave me `plastic` surgery.
+- I'm the `plastic` man, remember?
+- Everyone needs `plastic` surgery.
+- One pocket comb - black `plastic`.
+- They're hunks of `plastic`, michael.
+- What's with the `plastic` picnic ware?
+- Sometimes i employ a `plastic` surgeon.
+- ...because she's just a piece of `plastic`.
+- Melted `plastic` and microwaved bubble gum.
+- Connor and myles... choked on `plastic`, no!
+- Do you need a `plastic` bag to breathe into?
+- Two `plastic` ball pens - one black, one red.
+- Dear lord, please bring back `plastic` straws.
+- The best `plastic` surgeons in the world, ben.
+- So, when are you getting a `plastic` fuck doll?
+- Fella, works for a `plastic` surgeon, argentina.
+- With `plastic` surgery to look like movie stars.
+- For me, the tiny green `plastic` war never ended.
+- Moving along - a typical `plastic` security card.
+- Where you then sell everyone `plastic` food boxes?
+- But we're all molded from the same crappy `plastic`.
+- I shoot from the distance and if i miss i `plastic`.
+- Elective `plastic` surgery, every single one -- ...almost.
+- Transparent spiders, `plastic` men - the whole nine yards.
+- With tinsel and `plastic` icicles and... on his penis, sir.
+- Have you found any `plastic` scrapings near the stove or sink?
+- You can't get her out of bergdorf's with `plastic` explosives.
+- No hair tonics, no cologne, seal all our food in `plastic` bags.
+- So uh, if you were a `plastic` surgeon before... and put them out.
+- He hid in one of those purple `plastic` tunnels and didn't come out.
+- You dye your hair... you get `plastic` surgery, like we talked about.
+- I need `plastic` bags ... tape and rope ... who are you going to call?
+- You get the wine and i'll go see if i can rustle up some `plastic` cups.
+- Ripley...she doesn't have bad dreams because she's just a piece of `plastic`.
+- When you ordered a pie it came with a little `plastic` madonna in the middle?
+- I'd just soon have a paper bag rather than a `plastic` one, if it's same to you.
+- Not unless her hmo covers `plastic` surgery, which, incidentally, she does not need.
+- Do you see a slender `plastic` tag clipped to my shirt with my name printed on it?...
+- Elective `plastic` surgery, every single one -- spotter on the lake confirmed israel.
+- You better be careful, seamus, before something happens a `plastic` surgeon can't fix.
+- I think no matter which way i go i'm likely to wind up face down on a sheet of `plastic`.
+- ♪ they're made of lipstick `plastic` and paint ♪ you've still got to clean it and eat it.
+                 

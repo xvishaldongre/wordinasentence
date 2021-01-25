@@ -1,0 +1,90 @@
+---
+title: "Leo in a sentence | Leo example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Leo"
+---
+- I'll find you, `leo`...
+- `Leo`, you're my agent.
+- Jimmy didn't kill `leo`.
+- Forget the drinks, `leo`.
+- `Leo` spanked a waitress?
+- What's the matter, `leo`?
+- You can call me `leo`.
+- `Leo`'s twenty-eight, cal.
+- Somebody named `leo` crow.
+- You bet your boots, `leo`.
+- I'm warning you, `leo`.
+- Lay off the bennies, `leo`.
+- `Leo` fast elk... is alive.
+- `Leo`, jimmy... eagle bear.
+- So they took care of `leo`.
+- Taking ol' `leo` somewhere?
+- `Leo` was killed right here.
+- Where's `leo` bloom's share?
+- You found `leo`, didn't you?
+- Good to see you again, `leo`.
+- The owl told him about `leo`.
+- I'm out here looking for `leo`.
+- Just tell me, who's `leo` crow?
+- This is where we belong, `leo`.
+- Jesus, `leo`, this is my career!
+- The victim's name is `leo` crow.
+- `Leo` was an apple, that's right.
+- Forget about `leo`'s money, harry.
+- `Leo`, what if this play is a hit?
+- We'll have to give `leo` a refund.
+- You turned `leo` over on his face.
+- `Leo`, goddammit... this isn't fair!
+- `Leo`, i didn't give them the names.
+- `Leo`'s been out here too long, man.
+- `Leo`'s gonna need his hands, cooch.
+- `Leo`, this was before pearl harbor.
+- `Leo` wasn't killed in the badlands.
+- He's gonna tell you who killed `leo`?
+- `Leo`'s gotta get to burial, brother.
+- Can you just tell me who `leo` crow is?
+- Don't worry, shelly, i'll handle `leo`.
+- `Leo`, i was trying to impress a skirt.
+- `Leo` was on the other side, wasn't he?
+- You're a `leo`, and he's a sagittarius.
+- Well, `leo`, are you having a good time?
+- `Leo` and durk and i will make our plans.
+- "`leo`", i says, "hunsecker froze me out.
+- I said when can `leo` be taken to ceremony?
+- `Leo`, you were in there, you saw what i did.
+- The nurses `leo` and me picked up last night.
+- Guy from miami, owns `leo` now that momo died.
+- `Leo` did quillwork, he's gonna need his hands.
+- You ever heard him mention the name `leo` crow?
+- I know the others -- redi, fallon, `leo`, bruns.
+- Do you realize what `leo` could have told jimmy?!
+- The man who murdered `leo` walked like a wasi'cu.
+- But you will bring it down if you kill `leo` crow.
+- Don't tell me you started a polka with `leo` bartha?
+- `Leo` fell, rolled, and came to a stop in the grass.
+- Why i'm here, `leo`, basically, is to save your ass.
+- I think `leo`'s retired from quillwork for the moment.
+- It's compensation, `leo`, for the marginal life we lead.
+- `Leo` knew something heavy and was trying to tell jimmy.
+- They obviously wanted it to be known that they offed `leo`.
+- Well, i gotta have a talk with `leo`, my runaway dry cleaner.
+- I've just been having nightmares about the way `leo` was killed.
+- `Leo` and i know that santy claus is coming to town... thursday.
+- The man that shot `leo` down was behind the wheel of a moving car.
+- You don't open an account, `leo`, you put it in a safe deposit box.
+- I'd say he goes two-ten, two-fifteen -- -- `leo` wasn't killed here.
+- Ulla, i'd like you to meet my partner and associate, mr. `leo` bloom.
+- Captain `leo` wants you out of here a.s.a.p., unless you turn state's.
+- The three hundred grand you got from a little dry cleaner named `leo`.
+- Start a location run and a contact search for future victim `leo` crow.
+- The three hundred grand a guy named `leo` devoe scammed off an airline.
+- If `leo` comes here, he won't believe that i am out doing the "meals on wheels".
+- Well, let me tell you something about `leo`, man -- your good friend `leo` fast elk.
+- No, this is the home of the oglala sioux and i want the dog-fucker who killed `leo`.
+- My astrologers assure me that the hour is p-p-propitious -- `leo`, with virgo rising.
+- `Leo`, she was... she was a girl i knew in college... well, that's not what they think.
+- So he comes to l.a... well, since `leo`'s name was on the passenger list... keep going.
+- `Leo` had some kind of trouble with his kidneys, so they were giving him about ten years.
+- ...i been talking about two nurses `leo` and me picked up in a bar on seventy-first street.
+                 

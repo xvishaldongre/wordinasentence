@@ -1,0 +1,69 @@
+---
+title: "detail in a sentence | detail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "detail"
+---
+- More surface `detail`.
+- Every goddamn `detail`.
+- Tell us every `detail`.
+- This was your `detail`.
+- We pulled the `detail`.
+- Two days' work `detail`.
+- You knew every `detail`.
+- Minor technical `detail`.
+- I remember every `detail`.
+- Security `detail`, come in.
+- Every `detail` is important.
+- Get off the sleaze `detail`.
+- I got you off work `detail`.
+- The deal is in the `detail`.
+- Look at that <u>`detail`</u>!
+- Some `detail` they got you on.
+- You pull me off work `detail`.
+- I thought that was in `detail`.
+- How long you have this `detail`?
+- Mount weather security `detail`.
+- Mount weather security `detail`.
+- Johnston, solo on bilge `detail`.
+- Pike's `detail` is still at it...
+- You have a good eye for `detail`.
+- I'll send a guard `detail` with you.
+- Times and i remember every `detail`.
+- `Detail` i guess i forgot to mention.
+- How the hell did we get this `detail`?
+- Set a guard `detail` to check on rose.
+- Someone who thought of every `detail`.
+- All that `detail`, just from memory...?
+- We got a little extra `detail` for you.
+- From robbery `detail`, inspector dayton.
+- I need to see more... get more `detail`.
+- I've got it planned to the last `detail`.
+- My first `detail`, and i'm a fuckin' slug!
+- Why we don't work the same `detail` anymore?
+- I don't remember in `detail`, there were so many.
+- They sort of got me on shit `detail`, no offense.
+- He wanted every conceivable `detail` about our crash.
+- Look, we'll `detail` your car and fix your comic book.
+- ...special `detail` carries with it special privileges.
+- And you'll need a `detail` of about 50 of your own people.
+- Mr. gibbs, organize a cleaning `detail` -- you and cotton.
+- You weren't sent here to go off on your own `detail`, ray.
+- The holy grail's final resting place described in `detail`!
+- I did not want to upset mrs. rand by discussing it in `detail`.
+- He's like psychotically obsessing over every little `detail`.
+- That's for two full weeks of memories, complete in every `detail`.
+- Inspector dayton, the cop from robbery `detail` who was looking for you.
+- The exactness, the attention to every foreseeable `detail`... perfection.
+- Sit down in a comfortable chair... and study each `detail` of this subject.
+- Check with burglary `detail` and see if anyone else knows him, knows his habits.
+- I couldn't swear to ever `detail` but... it's certainly true that it is a story.
+- The mountain was very tall and very scary, every `detail` of your terrible plan.
+- You forgot one `detail`, mr. big shot�you forgot me, the prize stooge of the world.
+- We have just seen that its body duplicates our navigator in <u>precise</u> `detail`.
+- When you make a picture of the moment in your mind, you can remember every `detail`.
+- In that book of your, did they happen to `detail` what would happen if they were hostile?
+- There doesn't seem to be enough `detail` in the photo to ascertain the design on the ring.
+- They've been enlarged and show a lot of `detail`... we can use all the support we can get.
+- Welcome to the main event of the evening, one guard `detail` comes with me to the dropship.
+                 

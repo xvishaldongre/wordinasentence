@@ -1,0 +1,107 @@
+---
+title: "beer in a sentence | beer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "beer"
+---
+- I'll buy you a `beer`.
+- Tatum get me a `beer`.
+- Thanks for the `beer`.
+- Waiter another `beer`.
+- Want to grab a `beer`?
+- `Beer`'s in the bucket.
+- `Beer`'s on the bucket.
+- Let's just have `beer`.
+- Still want that `beer`?
+- This is a light `beer`.
+- You guys want a `beer`?
+- Listen, you like `beer`?
+- Pour the fuckin' `beer`.
+- Would you like a `beer`?
+- Best `beer` in the world?
+- How about another `beer`?
+- What did the `beer` cost?
+- Get the brothers a `beer`.
+- I'll have, like, a `beer`.
+- Sorry, pat, out of `beer`.
+- That `beer` made me dizzy.
+- `Beer`, with ice and water.
+- `Beer` yes, but no whiskey.
+- Cigarettes and `beer` rule!
+- Give me a bottle of `beer`.
+- There's `beer` on the ship.
+- We need extra `beer` today.
+- Where's the fuckin' `beer`?
+- You want a `beer`, man -- ?
+- Come back and have a `beer`!
+- Do you want a `beer` or not?
+- Hey doug, you want a `beer`?
+- Maybe a `beer` or something.
+- What would you like, `beer`?
+- Where's my `beer`, marjorie?
+- `Beer` in hand by five after.
+- I taught him to drink `beer`.
+- Or would you prefer a `beer`?
+- Was it expensive, the `beer`?
+- We've got spirits and `beer`.
+- Hey... can i buy you a `beer`?
+- I don't sell `beer` to minors.
+- What kinda `beer` do you like?
+- Where has all our `beer` gone?
+- Would you like another `beer`?
+- You can't have a light `beer`?
+- How's that trucklhouser `beer`?
+- One `beer`, one coffee, thanks.
+- Who's going to buy me a `beer`?
+- Don't mix very well with `beer`.
+- ...watching us drink his `beer`.
+- You can drink `beer`, can't you?
+- * 56 bottles of `beer` * - hello?
+- `Beer` and weed is what i've got.
+- Don't you want your aphid `beer`?
+- Stabbed her with a `beer` bottle.
+- Stifler finds this `beer`, right?
+- This `beer`'s gonna get too warm.
+- This `beer`'s gonna get too warm.
+- You haven't finished your `beer`.
+- C'mon, relax, drink your `beer` ..
+- I can't stand fuckin' warm `beer`.
+- Let's get you a root `beer` float.
+- We'll have some `beer` with frank.
+- We were all set -- `beer`, broads.
+- I can't hardly pay for this `beer`.
+- I'm not buying it a fucking `beer`.
+- I'm staking out this `beer` bottle.
+- It's comin' along... want a `beer`?
+- It was just a can of `beer`, frank.
+- Root `beer` float that sounds good.
+- Shit, yes, pour the fuckin' `beer`.
+- What kind of `beer` would you like?
+- You gonna buy me a `beer`, frankie?
+- Did you bring `beer` and sandwiches?
+- Hell, i forgot all about this `beer`.
+- I'm going downstairs to get a `beer`.
+- Long day's journey into light `beer`.
+- Not as good as `beer`, but all i got.
+- We'll drink `beer` and talk baseball.
+- We're on our third pitcher of `beer`.
+- When you're out to the `beer` parlor.
+- Hey, why don't you buy another `beer`.
+- Would you like a `beer` for your bath?
+- Raymond, get enough `beer` for ben too.
+- Let's grab a fuckin `beer` -- seat belt.
+- Why can't we just grab a goddamn `beer`.
+- You don't wanna put `beer` over mai-tai.
+- Don't need to think fast to handle `beer`.
+- Ever get out for cheeseburgers and `beer`?
+- Frank's been drinking this mexican `beer`.
+- What would a truck stop be without `beer`?
+- Drink your `beer` and don't get so excited.
+- Greely's `beer` garden and billiard parlor.
+- One `beer` with lunch is hardly "drinking".
+- We can have protein and biofuel and `beer`.
+- Go to 7. when there's a mouse in his `beer`.
+- I don't think so, but thanks for the `beer`.
+- That's good... now go get yourself a `beer`.
+- Two crab dinners and pitcher of cold `beer`.
+                 

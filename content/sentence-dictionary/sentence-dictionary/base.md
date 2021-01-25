@@ -1,0 +1,107 @@
+---
+title: "base in a sentence | base example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "base"
+---
+- Report to `base` camp.
+- This is patrol `base`.
+- Search `base` camp now.
+- Thirty is `base` price.
+- Welcome to `base` camp!
+- Welcome to `base` camp.
+- Search `base` camp, now.
+- Copy, `base` camp to rob.
+- Rob, this is `base` camp.
+- Your `base` isn't secure?
+- A sax player and a `base`?
+- It's their power `base`...
+- There's the air `base`.
+- I have sent this to `base`.
+- In a secret russian `base`.
+- Rob to `base`, rob to `base`.
+- That's the air force `base`.
+- That's what first `base` is.
+- We must hurry to the `base`.
+- ... at `base` camp this year.
+- I'm at `base` camp right now.
+- I'm sure the `base` is there.
+- Nobody's got to first `base`.
+- You are way off `base`, buddy!
+- `Base` camp, do you copy, over.
+- `Base` camp, do you copy, over?
+- I'm heading back to the `base`.
+- `Base`-camp talk is now offline.
+- I've seen you around the `base`.
+- What do you `base` this upon?
+- Teams at `base` camp this season.
+- Teams at `base` camp this season.
+- The `base` is to be sealed tight.
+- Uh, i'm at `base` camp right now.
+- Call in to `base` camp by transat.
+- Forward operating `base` heathrow.
+- Guy cotter to everest `base` camp.
+- It's just a po' man's free `base`.
+- Where's the secret `base`, sir?
+- Guy calling to everest `base` camp.
+- I don't... what, someone on `base`?
+- If it isn't the mayor of `base` camp!
+- If it isn't the mayor of `base` camp.
+- Right there on the first `base` line.
+- We're at the `base` of the step, over.
+- What exactly constitutes third `base`?
+- Get in touch with the `base` commander.
+- I played `base` guitar for pat benatar.
+- Shit, too bad we in `base` camp anyway.
+- We're heading down to the `base` level.
+- I'm putting the `base` on condition red.
+- But we can't communicate with the `base`.
+- Primary target the icbm `base` at laputa.
+- They must have gotten it from the `base`.
+- This is gold leader, returning to `base`.
+- I'm gonna take the chinook to `base` camp.
+- This is helen wilton, `base` camp manager.
+- And we are official at everest `base` camp.
+- Hell it'd broaden our `base` of visibility.
+- Right to the primal fear, the `base` anger.
+- Rob to `base`, rob to `base`, how copy, helen?
+- Yes sir, it's all going back to `base` camp.
+- And we are officially at everest `base` camp!
+- Returning here to `base` camp after each one.
+- I'd have to see on what you `base` your claim.
+- Its primary is their missile `base` at laputa.
+- Was a military `base` built within a mountain.
+- We have the adventure consultants `base` camp.
+- Returning here, to `base` camp, after each one.
+- That will lead you to the `base` of the weapon.
+- Well...i suppose penetrate the `base` by force.
+- I've never even gone to first `base` with a guy.
+- Big billy's team was losing and he was on `base`.
+- Could it have been something from the air `base`?
+- We found a body out by the army `base` yesterday.
+- There's a cavern at the `base` of the next hill...
+- Careful... oh, shit... ramstein air `base`, germany.
+- No, we should reach the `base` of the brain shortly.
+- What i need from you: i need a `base` of operations.
+- I've been down to `base` camp and i'm back to camp 1.
+- No fooling on `base`, no signs, no comments, no talk.
+- No one at `base` would pull a stunt like that, terry.
+- Same thing with the pumps on the `base` air purifiers.
+- The `base` commander, general ripper, selected plan-r?
+- When the ramp comes down, go directly into the `base`.
+- I can wait till you're off the `base` and do it myself.
+- You may save the lives of every soldier on this `base`.
+- I've been down to `base` camp, and i'm back at camp one.
+- Let's get 'em off the face and back down to `base` camp.
+- No one's ever try to fly higher than `base` camp before.
+- Okay, now grab it by the `base` and pull it straight up.
+- He's doing it for his buddies at macdill air force `base`.
+- Look, kid, they obviously found your `base` of operations.
+- We could cross-reference a data `base` on media ownership.
+- Are you, by any chance, going up to your `base` at clavius?
+- Ian, have you seen how many people are here at `base` camp?
+- I'm gonna die in a secret russian `base` distraction it is.
+- This epidemic could easily spread to our `base`, dr. floyd.
+- That was a nice little stunt you pulled, buzzing the `base`.
+- Did you just barge in here and curse at your `base` commander?
+                 

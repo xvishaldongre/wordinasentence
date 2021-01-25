@@ -1,0 +1,107 @@
+---
+title: "camera in a sentence | camera example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "camera"
+---
+- Even the `camera` guy.
+- You got your `camera`?
+- Don't hurt my `camera`!
+- Hey, label to `camera`.
+- I turn on the `camera`.
+- Let me get my `camera`.
+- The `camera` loves her.
+- So's the video `camera`.
+- Donut, get your `camera`.
+- How'd i look on `camera`?
+- Make war to the `camera`.
+- The `camera` guy is here.
+- They had a damn `camera`!
+- What about that `camera`?
+- Give me the `camera`, joe.
+- I'm gonna get my `camera`.
+- Oh yeah, the `camera` man?
+- Waving it at the `camera`.
+- Drake, check your `camera`.
+- Got my `camera` right here.
+- Burt loaned me his `camera`.
+- Do you own a video `camera`?
+- Put the `camera` down, oleg.
+- That `camera`'s totally dying.
+- The `camera` can pick this up.
+- The lipstick thermal `camera`?
+- Turn the goddamn `camera` off!
+- What about your `camera` girl?
+- Keep the `camera` trained on...
+- Stand there with your `camera`.
+- That `camera` is totally daine.
+- The `camera` loves you, vanessa.
+- Well, i see you have a `camera`.
+- You know, bring the `camera` in.
+- Annabelle put down that `camera`.
+- I only make love to the `camera`.
+- Place a new `camera` in the room.
+- With those `camera` lights and...
+- Commander, do you have a `camera`?
+- Is this security `camera` footage.
+- Your `camera` crew is standing by.
+- The `camera` was stolen anyway.
+- Jordan... come back, `camera` fish!
+- But who would operate your `camera`?
+- You never had a `camera` in my head.
+- His `camera`... it's still recording.
+- Looks like someone forgot a `camera`.
+- One of the waitresses had a `camera`.
+- ...she looks right into the `camera`.
+- The `camera`, above you to the right.
+- 212 continued: your infrared `camera`?
+- Your lighting and `camera` angles.
+- Load a new tape, turn the `camera` on.
+- Put down that <u>goddamn</u> `camera`!
+- No, not to me, for me, for the `camera`.
+- You can have the `camera` back tomorrow.
+- You see that `camera` right up there?
+- How'd the `camera` get so high like that?
+- ...she keeps her back to the `camera`...?
+- As if the `camera` weren't on them at all.
+- Two medical kits.. one `camera`... one tx9.
+- Here is the only other `camera` i have left.
+- This one just goes into the `camera` itself?
+- Um, okay... roll `camera` what's to protect?
+- The only one we saved was in mary's `camera`.
+- We haven't even got a `camera` over there.
+- I been saying we need a `camera` in this hall.
+- There's a `camera` built right into the bridge.
+- But at least you've put the `camera` to good use.
+- Audrey, did you take the tape out of the `camera`?
+- Off-`camera`, a string quartet is playing debussy.
+- There's a `camera` in the upper right-hand corner.
+- There's no buttons, and the `camera` only faces you.
+- <u>stop</u>... 55 days and i take home the `camera`.
+- Yesterday, with the `camera`... oh, i'm sorry, john.
+- Wake up the chicks and bust out the `camera` awesome?
+- We show them to <u>him</u>, her back to the `camera`.
+- We've got a security `camera` in this bit of the shop.
+- You wanted me here because the `camera` comes with me.
+- Giving us control of the `camera` on their mother ship.
+- If i go over to shari, the `camera`'s going there, too.
+- It was in the `camera` belonging to the missing divers.
+- Well, this is the story of how i got my first `camera`.
+- Has a microphone, `camera` and a means to transmit data.
+- Look...i can see you on that `camera` right up there.
+- The porta power...comm kits...got the ir/thermo `camera`?
+- As a matter of fact, it's the only `camera` i've ever had.
+- I want you to turn that `camera` off and make love with me.
+- Forget it, denham ... for godssake set up the `camera` boys!
+- I had a boy down at the `camera` shop cut them all together.
+- There's a security `camera` room that videotapes everything.
+- Well then, can you have them jump to the `camera` over here?
+- Will he go on-`camera` and talk about the mexico city branch?
+- I'm going to stake out frank's place tomorrow with a `camera`.
+- About when i looked through the wrong end of a `camera` finder.
+- Dad got a new video `camera` and we're all gonna be in a movie.
+- Jesus, he's gonna kill me when he finds out about the `camera`.
+- She really doesn't want you and the `camera` in here right now.
+- A tape from the surveillance `camera` at the first national bank.
+- I took out the `camera` - i specifically didn't agree to winston.
+                 

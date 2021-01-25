@@ -1,0 +1,107 @@
+---
+title: "survive in a sentence | survive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "survive"
+---
+- How did you `survive`?
+- It won't `survive` me.
+- Stealing to `survive`?
+- We'll never `survive`.
+- We `survive` together.
+- How will you `survive`?
+- Told you i'd `survive`.
+- And no one'll `survive`.
+- That's how we `survive`.
+- We do have to `survive`.
+- Take for us to `survive`.
+- Will we `survive` or not?
+- Fewer will `survive` them.
+- So i can `survive` a drop.
+- They can `survive` winter.
+- We do `survive`, don't we?
+- But we will `survive` this.
+- How did you even `survive`?
+- I `survive`, i'm a thinker.
+- On how to `survive` winter?
+- The ark couldn't `survive`.
+- We can `survive` this, too.
+- We did things to `survive`.
+- But that's how we `survive`.
+- None of you could `survive`.
+- You did things to `survive`.
+- And just happen to `survive`.
+- I'm just trying to `survive`.
+- Madi wouldn't `survive` that.
+- We can't `survive` this, sir.
+- What we've done to `survive`.
+- You gotta adapt to `survive`.
+- But we need them to `survive`.
+- He taught me how to `survive`.
+- How does the family `survive`?
+- We don't deserve to `survive`.
+- All we have to do is `survive`.
+- And some things will `survive`.
+- Only one of us could `survive`.
+- Today, we `survive`, all of us.
+- What we had to do to `survive`.
+- Fuckin' a, first `survive`, yes?
+- They find some way to `survive`.
+- We will `survive`, we always do!
+- Everything we did to `survive`...
+- He won't `survive` another night.
+- Maya can `survive` on the ground?
+- Me, i'll find a way to `survive`.
+- Oh, hell, i could `survive` that.
+- Oh, the things i do to `survive`.
+- That is how v'ger will `survive`.
+- To `survive`, we do what we must.
+- I do what i gotta do to `survive`.
+- I'm not looking to just `survive`.
+- `Survive` today, that's the point.
+- The army can `survive` without me.
+- They can `survive` down here, hey!
+- They relied on blood to `survive`.
+- You will `survive` this... donald.
+- He needs extreme cold to `survive`.
+- He won't `survive` another surgery.
+- However, first, you must `survive`.
+- They had to, in order to `survive`.
+- And if bellamy is gonna `survive`...
+- Did she `survive` the city of light?
+- Pretty sure no germ can `survive` it.
+- What makes you think you'd `survive`?
+- Am i evil because i want to `survive`?
+- I know how they `survive` seems harsh.
+- I promise you that you will `survive`.
+- Take us up to space, and we `survive`.
+- We can `survive` without gordon gekko.
+- To `survive`, my way, i need money.
+- But i doubt you'll `survive` that long.
+- It's his will that we should `survive`.
+- Some of them won't `survive` that long.
+- You won't `survive` outside the shield.
+- Clay probably won't `survive` the night.
+- For the things that we did to `survive`.
+- If we don't try, zordon won't `survive`!
+- I think we do what we must to `survive`.
+- We `survive` because we have technology.
+- What we do here now, we do to `survive`.
+- Everyone does what they can to `survive`.
+- Nobody thought any of us would `survive`.
+- To `survive` we must focus... be patient.
+- Can't `survive` on our bodies alone, nick.
+- I only meant to get loose... to `survive`.
+- To help us `survive` the great journey.
+- We have no idea how to `survive` down here.
+- You must `survive`, or i will never exist.'
+- And we will teach you how to `survive` here.
+- I told you, you didn't deserve to `survive`.
+- I've been fighting to `survive` all my life.
+- Looking for anything to help them `survive`.
+- Under control if we're gonna `survive` this.
+- I can't `survive` in prison, sonny... shit...
+- I don't have to do anything except `survive`.
+- There's no way a rhino'd `survive` that drop.
+- They only did it in space to `survive`, - no.
+                 

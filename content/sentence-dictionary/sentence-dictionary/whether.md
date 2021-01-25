@@ -1,0 +1,107 @@
+---
+title: "whether in a sentence | whether example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whether"
+---
+- `Whether` i was born here.
+- `Whether` or not i'm going.
+- Or `whether` you're fighting.
+- `Whether` they stopped bein'.
+- `Whether` we want to, or not.
+- `Whether` you like a paradox.
+- `Whether` you make it or not.
+- "`whether` tempter sent, come.
+- `Whether` or not you feel lucky.
+- It's not important `whether` you do.
+- I don't care `whether` he did or not.
+- On `whether` the stories are all true.
+- `Whether` the hell you like it or not!
+- So, `whether` he likes it or not, we...
+- I don't know `whether` i saw you or not.
+- I don't know `whether` to swoon or smirk.
+- They'll know `whether` he killed himself.
+- Thinking about `whether` arkadia is home.
+- What do you care `whether` i come or not?
+- `Whether` he cares about us is different.
+- It�s up to you `whether` they walk or not.
+- `Whether` crabs are in season there now...
+- But `whether` she's pretending to like you.
+- `Whether` i liked him or not is irrelevant.
+- Always moving, `whether` you like it or not.
+- I'll tell you `whether` you're right or not.
+- My father is deciding `whether` to kill you.
+- I don't care `whether` it's important or not.
+- I get the same dough `whether` i work or not.
+- I was wondering `whether` you'd come at all..
+- `Whether` or not it's safe to follow us down.
+- `Whether` you tell us or not, we'll find out.
+- They don't know `whether` to be sad, or angry.
+- You want to bet on `whether` you won your bet?
+- Then i had to decide `whether` to nod or shrug.
+- He needs help, `whether` he knows it or not.
+- Not `whether` he wads of folds his toilet paper.
+- We'll find out `whether` he's telling the truth.
+- `Whether` he wants to kill us she got her a toy.
+- `Whether` she wants to or not...she's not going.
+- It's `whether` we can live together... like this!
+- `Whether` you believe it or not, krueger is back.
+- I don't even know `whether` a defense is possible.
+- We don't know `whether` he's been able to free it.
+- `Whether` i am or not, you've been more than fair.
+- `Whether` or not you're happy is on you, oh, clay.
+- `Whether` you fight with us or not, hallelujah!
+- There are ways of telling `whether` she is a witch.
+- They didn't know `whether` to break the plates yes.
+- `Whether` it impacted our precious freedoms or not.
+- Do you think i *know* `whether` i want you or wally?
+- `Whether` it impacted our precious freedoms, or not.
+- `Whether` you get him or i get him, i just want him.
+- But we're family now `whether` we like it or not, no.
+- I've sometimes doubted `whether` life itself has any.
+- And you'll be part of it `whether` you like it or not.
+- I don't know `whether` you're being cute or crazy now.
+- Is this testing `whether` i'm an android or a lesbian?
+- Oh, he spent months deciding `whether` to wake you up.
+- There is a serious question as to `whether` -- murder.
+- I don't care `whether` they know what i know about him.
+- That's always been standard, `whether` you like or not.
+- Not quite -- you are in it `whether` you like it or not.
+- `Whether` it kills a deer or not is more less up to you.
+- Why don't you confirm `whether` this baby'll start, huh?
+- I don't know `whether` i'm being sensible or hard on you.
+- I must seriously question `whether` -- "the lark report."
+- Money talks, bullshit walks, `whether` you like it or not.
+- `Whether` or not you succeed is, of course, problematical.
+- Can you decide for yourself `whether` or not i'm qualified?
+- I don't know `whether` i'm standing on my head or my heels.
+- No, you just wanted to know `whether` i actually loved him.
+- You're in some deep shit pal, `whether` you know it or not.
+- Because... why does it matter `whether` you're fat or not...
+- Comforted, and watched over... `whether` you like it or not.
+- Francis, may i ask `whether` you wear warm winter underwear?
+- `Whether` or not you're willing to play nancy one last time.
+- Chief, sometimes i don't know `whether` you're kidding or not.
+- I'll see you reach the wizard, `whether` i get a heart of not.
+- The only thing i care about is `whether` you get your rest in.
+- `Whether` the boy hears it or not, the man is still a jackass.
+- `Whether` they be brine-ed no, we'll do everything i promised.
+- You have the same chance of winning `whether` you play or not.
+- I can't tell `whether` they're blue, or `whether` they're violet.
+- <u>you</u> know `whether` or not...you have a thing goin' down.
+- At least it will expose `whether` khruschev has been overthrown.
+- ... worrying `whether` someone said something "nice" about them.
+- My regular daily rate -- $200, `whether` we catch him or not.
+- He'll have to see with his own eyes, `whether` or not i am there.
+- The well-kept secret is `whether` any of them has won your heart.
+- `Whether` any trace of a host's mind remained after resurrection.
+- Hal, tell me `whether` the following statements are true or false.
+- "honey, i'm a zombie, i don't know `whether` i'm coming or going."
+- That's not the fucking point, `whether` you told the truth or not!
+- * what difference does it make `whether` he * was your guy or not?
+- Well, it's not up to you to decide `whether` she's innocent or not.
+- Well, then i went through `whether` to kill 300 people to save air.
+- I don't know `whether` he was good or bad, an' it don't matter much.
+- "`whether` tempter sent, and you still want to play house with them?
+- I don't know -- it depends on `whether` or not they've already eaten.
+                 

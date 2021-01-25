@@ -1,0 +1,65 @@
+---
+title: "considered in a sentence | considered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "considered"
+---
+- I `considered` lightly.
+- I've `considered` that.
+- We had `considered` it.
+- Yes, i `considered` it.
+- All things `considered`.
+- Have you `considered` that?
+- That's `considered` proper.
+- It's `considered` offensive.
+- All things `considered`, yes.
+- Have you `considered` a doctor?
+- ", that's `considered` poor form.
+- Have you ever `considered` piracy?
+- I was still `considered` a rookie.
+- I've `considered` that possibility.
+- You `considered` becoming a prostitute?
+- Do you think i have not `considered` that?
+- We `considered` that before going no rush.
+- I `considered` it, but... it's not who i am.
+- Well, have you ever `considered` tar macadam?
+- Are these me `considered` armed and dangerous?
+- They were `considered` 3/5ths of a human being.
+- Guards was always `considered` to be pretty good.
+- Have you `considered` going into therapy yourself?
+- Have you `considered` that the worm toxin it's ok.
+- Have you ever `considered` running your own "park" ?
+- You were the king... have you `considered` my offer?
+- You know, it's a crazy idea, but have you `considered`...
+- Have you ever `considered` the jerry garcia line of ties ?
+- I `considered` taking that one-step shortcut to the lobby.
+- I was `considered` one of the best bush pilots on sullust.
+- Marge, have you `considered` this time, i stood my ground.
+- But, wait too long and you're not `considered` hot anymore.
+- Have you ever `considered`-- i don't know what it's called.
+- Don't you realize your words could be `considered` heretical?
+- You know, i've always `considered` myself a very clever girl.
+- Did russell tell you your child will be `considered` worthless?
+- Have you ever `considered` asking him if he'd like a cold beverage?
+- Mr. president, there is another possibility we haven't `considered`.
+- Oh, on the contrary, the albatross is `considered` a very good omen.
+- Don't you think anything that can suffer deserves to be `considered`?
+- That means his hands are `considered` a weapon like a gun or a knife.
+- I don't even know why hang-gliding is `considered` a legitimate sport.
+- I think i'm being rather gentle with your father, all things `considered`.
+- You know, back in the day, grafting was `considered` a gentleman's racket.
+- At widdman high i was `considered` a pretty hot date, i did a killer frugue.
+- Automatic imprisonment for possession of materials `considered` seditious...
+- I don't know if you have russian ice cream or if that's `considered` gelato.
+- Uh... it's ok. yeah, you know, i `considered` it, as you know, clarke failed.
+- Have you ever even once `considered` that we need to find out if he's the host.
+- In fact, when she died, it was `considered` to be the happiest time of her life.
+- All the while your true enemy could very well be `considered` already here among you.
+- I felt thoroughly depressed and even quite seriously `considered` committing suicide.
+- Sally, i have never `considered` you for this part because you are too old to play it.
+- Have you ever `considered` a prosthesis that would make you look a little more...normal?
+- Have you `considered` that chuckie roeder's not calling himself chuckie roeder these days?
+- The proof... not to state the obvious, have you ever `considered` that you're the problem?
+- You see, it would not be `considered` good manners to take a woman that another man wanted.
+- According to jewish law, the blood and limbs are `considered` to be part of the human being.
+                 

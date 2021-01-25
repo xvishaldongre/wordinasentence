@@ -1,0 +1,91 @@
+---
+title: "moves in a sentence | moves example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moves"
+---
+- Great `moves`, day-day.
+- He `moves` around a lot.
+- He's making the `moves`.
+- Nothing `moves` in here.
+- That bugger `moves` fast.
+- He `moves` like an animal.
+- Look at the way he `moves`.
+- Then `moves` to my stomach.
+- When the spirit `moves` me.
+- On anything male that `moves`?
+- Queen nia `moves` against you.
+- Sheila `moves` closer to theo.
+- He `moves` up beside her again.
+- Paul `moves` on her first move.
+- I'll fuck anything that `moves`.
+- Priest rises and `moves` to alex.
+- Paul `moves` off into the shadows.
+- If anyone `moves`, shoot them, too.
+- I guess you know the basic `moves`.
+- We're makin' `moves` on each other.
+- Complicated or not, life `moves` on.
+- Small `moves`, captain, small `moves`.
+- When my money `moves`, i go with it.
+- Without passion, nothing `moves` us.
+- We approach slow, no hostile `moves`.
+- He's starting it, so he `moves` first.
+- There you go with those `moves` again.
+- All the right `moves` is still playing.
+- Anna `moves` down to stand cl of paine.
+- The wind `moves` in a predictable path.
+- Information `moves`, but it has to wait.
+- I can't believe he put the `moves` on me.
+- I told you time `moves` much faster there.
+- You're not making any `moves` against him.
+- Certain `moves`, however, call for a sword.
+- He should have to register when he `moves`.
+- At nightfall, he `moves`, fifty, sixty yards.
+- The view `moves` to the rear door of the bus.
+- I've seen your `moves`, so... can you save me?
+- Do you see me screwing everything that `moves`?
+- I bet i got a few `moves` you ain't never seen.
+- If he `moves` - blow his guts out... cover him!
+- The reverend mother `moves` her face up to his.
+- Chief guard `moves` to table with his clipboard.
+- Mummy keep still and daddy `moves` on top of her.
+- If anyone `moves` for a weapon, happy wake-up day.
+- Theo `moves` towards buzz in a threatening manner.
+- West side got a boy 6'6", 310, `moves` like a cat.
+- But they seem to murder everything that `moves`...!
+- If she `moves`, you've got to get me back to marge.
+- I was thinkin' tom cruise in all the right `moves`.
+- Everything that `moves` in and out� we take our cut.
+- I was just so impressed with your wrestling `moves`.
+- Let's see -- -- a pawn `moves` this way, doesn't it?
+- Motivated by character and `moves` the story forward.
+- Spare me mini `moves`, progress reports and bullshit.
+- The particulate matter `moves` in response to motion.
+- Then like monsoon, it `moves` darkness over all country.
+- Bold `moves` make history, like teddy roosevelt -- "t.r."
+- Yeah, but homer picked up some cool gorilla `moves`, too.
+- When an object `moves` through different states of matter.
+- When we get into the clearing, i'll turn on my sexy `moves`.
+- Her ball `moves` so slowly it barely tips over the first pin.
+- He's walking around this ship, killing anything that `moves`.
+- Did you see the `moves` i was making on that girl at the party?
+- All right, be cool, everybody, nice and slow, no sudden `moves`.
+- Ten cents a hundred pounds on everything that `moves` in and out.
+- If you can take back the sword in three `moves`, i'll go with you.
+- She `moves` around you, and can get you in a thousandth of second.
+- Paul presses forward and the fight `moves` quickly around the room.
+- The middle class black family `moves` into a white suburban enclave.
+- But he didn't make any `moves`...and when you arrived, he backed off.
+- I mean, christ... do we have to let this lunatic make all the `moves`.
+- Oh man, you have picked up a few `moves` since john paul ii boulevard.
+- "if the president `moves` to deploy the b-2 before it is fully tested."
+- Before anyone `moves`, you two shake hands and don't carry it any further.
+- Damn guy `moves` so fast, he actually gets there before you even ask for him.
+- If he so much as `moves`, you are to blow his nigger brains out, is that clear?
+- It `moves` to... that means i'm in charge of the machines it doesn't look good.
+- No one `moves`, kane: on the ark, you taught your students just as she found you.
+- Whatever `moves` burps or bleep is gonna be picked up to a height of twenty feet.
+- When the fires start the street cops'll be capping off at anything that `moves`.
+- The middle class black family `moves` into a small southern town that is run by the kkk.
+- 'cause i never got it straightened up; made the push, made the `moves`... ...pie in the sky?
+                 

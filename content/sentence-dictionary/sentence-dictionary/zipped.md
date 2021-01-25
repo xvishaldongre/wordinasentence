@@ -1,0 +1,8 @@
+---
+title: "zipped in a sentence | zipped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "zipped"
+---
+- I'm depending on you to keep it `zipped`.
+                 

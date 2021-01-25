@@ -1,0 +1,96 @@
+---
+title: "soldiers in a sentence | soldiers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "soldiers"
+---
+- Send in the `soldiers`!
+- The `soldiers` hurt you?
+- Need more `soldiers` too.
+- Half a million `soldiers`.
+- We're american `soldiers`.
+- He killed those `soldiers`.
+- They murdered my `soldiers`.
+- Black `soldiers`, pakistanis.
+- There's `soldiers` out front.
+- The `soldiers` were provoked.
+- How many `soldiers` with cage?
+- Our `soldiers` are retreating.
+- We're not `soldiers`, bellamy.
+- Your own `soldiers` let me in.
+- The new `soldiers` can't fight?
+- All your `soldiers` speak latin?
+- Come out and meet my `soldiers`.
+- I'm so sick of these `soldiers`.
+- What happens to your `soldiers`?
+- That's what `soldiers` do, right?
+- You have no `soldiers` or police?
+- You `soldiers` get all the glory.
+- Motivated, disciplined `soldiers`.
+- That'll put fire in my `soldiers`!
+- The `soldiers` were just kids, too.
+- How many `soldiers` do you have?
+- We've seen this with `soldiers`.
+- `Soldiers` willing to fight and die.
+- Only a very little, as `soldiers` do.
+- Those `soldiers` have got loafers on.
+- I'm not, but alot of my `soldiers` are.
+- Jaha has an army of chipped `soldiers`.
+- They're english `soldiers`, ain't they?
+- If they were `soldiers`, i'd agree, and?
+- The `soldiers` may give you a hard time.
+- They're saying you killed 10 `soldiers`.
+- I tell you, the `soldiers` were provoked.
+- He ain't one of cabot's `soldiers` either.
+- I have `soldiers` spread out a little bit.
+- We ran up against a platoon of `soldiers`.
+- Not to take `soldiers` for a hundred bucks.
+- Our foot `soldiers` will blow your brains out!
+- The `soldiers` are going to kill those people!
+- We are `soldiers` and our only duty is to win.
+- 300 `soldiers` and not a single gun between them.
+- But i'm here to warn you that the `soldiers` mmm!
+- What kind of army gives their `soldiers` loafers?
+- It means... jaha has an army of chipped `soldiers`.
+- If you weren't delivering `soldiers` to our enemies.
+- I can play as `soldiers` do, but have no great skill.
+- More food, the best land for your `soldiers` to camp.
+- Sanctum is broken, and fanatics make good `soldiers`.
+- Eight thousand, five hundred, `soldiers` and officers.
+- So then the poor enemy `soldiers` will stop and think.
+- A lot of good `soldiers` are gonna die tomorrow, major.
+- All those `soldiers` out there... getting bored, thirsty.
+- The french, the italians, even the belgian un `soldiers`.
+- When the europeans left, their `soldiers` gathered lists.
+- I'd say it means we need as many `soldiers` as we can get.
+- Then he said, "the chinese `soldiers` -- they are coming."
+- We kill their `soldiers`, sir, lieutenant emerson is back.
+- What was that you were saying before with your `soldiers`?
+- From 1945 to '59 only two u.s. `soldiers` defect to russia.
+- Guarded by thousands of highly trained `soldiers` it's not.
+- Says he's one of the `soldiers` that was in the helicopter.
+- Will he take back his `soldiers`, and let us rule ourselves?
+- Oh, i told you not to, those kids killed 10 of our `soldiers`.
+- <u>three-hundred `soldiers` storming anzio</u> <u>beach</u>??!
+- I remember seeing `soldiers` pushing helicopters overboard huh?
+- No...she's not... what'd the `soldiers` have to kill her for!..
+- But `soldiers` need a mission otherwise they tear themselves up.
+- But i'm here to warn you that the `soldiers` her name was costia.
+- [sobbing] `soldiers` report an explosion in chemicals deployment.
+- Any serious problems with your sergeant or your fellow `soldiers`?
+- But general webb will not send their `soldiers` across the salt lake.
+- If magua give women to yengeese `soldiers`... will receive many gifts.
+- We got some `soldiers` in traction from a jeep accident, but it's quiet.
+- Why is it necessary for the chinese to keep so many `soldiers` in lhasa?
+- They're buying time till they can bring over more `soldiers` from england!
+- Two of them as they were about to crash into a transport full of `soldiers`.
+- This sword was taken several days ago from your son by some of my `soldiers`.
+- Colonel oliver says the un has three hundred `soldiers` for the whole country.
+- `Soldiers` there murdered old folks, women and babies, and dumped 'em in a trench.
+- We're just little tiny `soldiers` getting moved around on some big asshole's desk.
+- Paul, i've sent my `soldiers` to rescue the lady prime minister, she'll need a room.
+- We have `soldiers` on board, e-x grunts, the baddest of the bad...and their weapons?
+- Congress has informed the army that it is bankrupt and cannot pay the `soldiers` pensions.
+- For my `soldiers` this is a war to obliterate the 'upper class' from the face of the earth!
+- Once the `soldiers` get here, it will be too late, so i'll be over around, say, like, 8:00?
+                 

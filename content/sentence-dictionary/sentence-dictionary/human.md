@@ -1,0 +1,107 @@
+---
+title: "human in a sentence | human example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "human"
+---
+- `Human` see, `human` do.
+- I feel almost `human`.
+- I'm only half `human`.
+- Is `human`, after all.
+- Regular, `human` scum.
+- She's a `human` being.
+- The `human` condition.
+- The last `human` city.
+- He liked being `human`.
+- `Human` beings can die.
+- It makes us `human` ...
+- Meet the `human` brain.
+- But they're not `human`!
+- He like `human` jukebox.
+- I'm not a `human` being.
+- It's all `human` nature.
+- Not bad for a h-`human`.
+- They want `human` flesh.
+- He's a `human` chum line!
+- It's not `human`, kelvin.
+- Regard the `human` brain.
+- That is not now, `human`!
+- This isn't `human` blood.
+- You are much too `human`.
+- I'm not quite `human`.
+- Both: `human` application.
+- `Human` beings, all of us.
+- The `human` cash register.
+- You're too `human`, blade.
+- A... `human` like creature?
+- He's a `human` being, like.
+- I'm just as `human` as you.
+- I'm only `human`, you know.
+- It was <u>`human`</u>, yes?
+- Learning my "`human`" name.
+- Who saved the `human` race.
+- You mated with the `human`!
+- A `human` can love a cyborg.
+- A mansch -- a `human` being!
+- Does it have a `human` name?
+- He hit like `human` jukebox.
+- I suppose we're all `human`.
+- Welcome to the `human` race.
+- Wiping cut the `human` race!
+- But i like being `human` now.
+- I am saving the `human` race.
+- These are not `human` beings.
+- With `human` blood, jeremiah!
+- Wondering if they're `human`!
+- You have to be `human` first.
+- A vampire with a `human` soul.
+- He's not afraid to be `human`.
+- `Human` beings have free will.
+- `Human` beings have free will.
+- Sidney, i know `human` nature.
+- We don't have a `human` donor.
+- But is the `human` thing to do.
+- Don't forget, i'm half `human`.
+- I've never met a `human` woman.
+- Just a good old `human` driver.
+- Like your father... so `human`.
+- Ohh... yeah, if you're `human`.
+- That's `human`, understandable.
+- Does this cyborg love a `human`?
+- He wasn't like anything `human`.
+- If there's a flaw, it's `human`.
+- It responds like a `human` does.
+- That i'm not completely `human`?
+- Well, i am also a `human` being.
+- Yes, a despicable `human` being.
+- Ido, can a `human` love a cyborg?
+- Is it safe for `human` transport?
+- A uniquely `human` characteristic.
+- But his pours had a `human` touch.
+- But shifting view of `human` life.
+- Have you no `human` consideration?
+- So satan will assume `human` form.
+- That the `human` race stays alive.
+- The `human` is when she walks out.
+- There's a dead `human` being here.
+- They'll smell that you're `human`.
+- What care i for the `human` heart!
+- Don't talk about `human` resources.
+- I don't buy or sell `human` beings.
+- I'm a `human` being, i've got some!
+- The next step in `human` evolution.
+- Unforeseen by a `human` programmer.
+- Unforeseen by a `human` programmer.
+- We're the last of the `human` race.
+- What kind of `human` being are you?
+- You're also a `human` being, frank.
+- A window onto the `human` condition?
+- Both tap into `human` consciousness.
+- But i'm only a `human` girl and i...
+- Maybe they'd be <i>more</i> `human`.
+- Metallic taste to it, `human` blood.
+- The `human` side of you is stronger.
+- A `human` who works for the vampires.
+- Sometimes, being a `human` sucks.
+- Defender of the `human` race... amen.
+                 

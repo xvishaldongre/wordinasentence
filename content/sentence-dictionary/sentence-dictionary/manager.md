@@ -1,0 +1,107 @@
+---
+title: "manager in a sentence | manager example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "manager"
+---
+- Is that the `manager`?
+- Show us the `manager`.
+- Where's the `manager`?
+- You are the `manager`?
+- Am i your `manager`?...
+- Don't tell my `manager`.
+- I'm the hotel `manager`.
+- I wanna be ya `manager`.
+- The assistant `manager`.
+- He was jeriko's `manager`.
+- The `manager` looks at me.
+- You can't bet a `manager`!
+- Even with my new `manager`.
+- Who made you the `manager`?
+- You're the slots `manager`.
+- He's her campaign `manager`.
+- Jane's the office `manager`.
+- Uh...my dad's the `manager`.
+- What does the `manager` say?
+- Where is the damn `manager`?
+- Complaining to the `manager`.
+- Is the `manager` cooperating?
+- We have a business `manager`.
+- I saw you... - your `manager`.
+- The `manager`'s door is metal.
+- I'm mr. daniels, the `manager`.
+- His father's the `manager`, sir.
+- It's bob's, the day `manager`'s.
+- `Manager`'s get fifteen percent.
+- Yes, sir, this is the `manager`.
+- I introduced you to the `manager`?
+- I'm the executive sales `manager`.
+- My wife was my campaign `manager`.
+- You're supposed to be a `manager`!
+- Show that to the station `manager`.
+- The `manager` yes, but not the boy.
+- This place needs a sales `manager`.
+- The `manager` says your boss called.
+- Vaughan, vaughan's the `manager`.
+- You -- you're the road `manager`!
+- She's a night `manager` at mcdonalds.
+- This is our `manager`, mr. bienstock.
+- Mr. bernstein is my general `manager`.
+- Thank you to rez gavron, my `manager`.
+- Yeah, man, my `manager` and my lawyer.
+- David reynolds, i'm the `manager` here.
+- This is my business `manager`, rowboat.
+- Who put you up to this -- the `manager`?
+- Would you like to talk to the `manager`?
+- He had a `manager` -- september 14, 1923.
+- I ain't your partner, i'm your `manager`.
+- This is helen wilton, base camp `manager`.
+- How's the branch `manager` from kansas city?
+- I am his lawyer, not his business `manager`.
+- `Manager` remembers you going into her room.
+- Sir, the `manager` stepped out for a moment.
+- The fight's set -- i don't need a `manager`.
+- Ah, i see you've got your `manager` with you.
+- Hey, i hung out with danny, pony's `manager`.
+- So you figure you're still my `manager`, huh?
+- I could shoot the `manager` while i was at it.
+- I'm the hotel `manager`... what's the trouble?
+- In a couple of years, i'll be floor `manager`.
+- I told you - my `manager` was a total asshole!
+- My plant `manager` is somewhere on this train.
+- That creep down the hall phoned the `manager`.
+- The `manager`, he's diabetic, he's lookin' bad.
+- Western sales `manager` for kingby electronics.
+- `Manager`, do you notice a smell of cockroaches?
+- What if the `manager` won't give up the diamonds?
+- Now if it's a `manager`, that's a different story.
+- Professor scott, i'm dr. nichols, plant `manager`.
+- I was general `manager` and director of new products.
+- Courtesy of our courteous hotel `manager`, mr. daniels.
+- Did you tell your `manager` there's gonna be a robbery?
+- I'm the `manager` of the band - not the night watchman.
+- Monster... he was talking with the casino `manager`.
+- I mean, do you have something i could show my `manager`?
+- Nnn... nothing... what'd you tell that casino `manager`?
+- No answer at the door and the apartment `manager`'s out.
+- Well... the `manager`, mr. heem, would like to meet him.
+- Well, did you ever think about hiring a business `manager`?
+- You should have seen the store `manager` at parade of shoes.
+- Store `manager`'ll give you some stuff for it in the morning.
+- I don't think your `manager` would appreciate... no, i wasn't.
+- That makes me your `manager`, and managers get fifteen percent.
+- There might be an opening for a `manager` at salem next spring.
+- I want you to go there, see if you can get the `manager` to i.d.
+- My name's marge gunderson - naw, i... executive sales `manager`.
+- You should call up the station `manager` at channel seven -- no.
+- Call the golden lion and ask for mr reynolds, he's the `manager`.
+- I wasn't a `manager` here then mrs steckler - don't you remember?
+- My first twenty fights were stumblebums handpicked by my `manager`.
+- Well then, it's a good thing you're not regional `manager` and i am.
+- The `manager` showed me the transfer notice with your signature on it.
+- Hey, you, `manager`... don't get any ideas, fucker... see that man there?
+- You two take the `manager` in the back and make him give you the diamonds.
+- I contacted ernie roman's `manager`, he's fighting in france the same week.
+- If you'll excuse me just a moment -- barnard thomas, `manager` of the hotel.
+- The general `manager` says he wants to be every bit as good as the networks.
+                 

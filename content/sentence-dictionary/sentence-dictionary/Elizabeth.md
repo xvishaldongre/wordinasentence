@@ -1,0 +1,56 @@
+---
+title: "Elizabeth in a sentence | Elizabeth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Elizabeth"
+---
+- `Elizabeth` goes free!
+- `Elizabeth` -- turner.
+- Don't cry, `elizabeth`.
+- It's me... `elizabeth`.
+- Virginia or `elizabeth`?
+- `Elizabeth` has hers.
+- Her name was `elizabeth`.
+- I grew up on `elizabeth`.
+- Yes, `elizabeth` has hers.
+- Queen `elizabeth` is a man!
+- `Elizabeth` what's very food?
+- I need your car, `elizabeth`.
+- I lov-loathe `elizabeth` allan.
+- Your `elizabeth` sounds lovely.
+- It wouldn't be fair to `elizabeth`.
+- What's it going to be, `elizabeth`?
+- `Elizabeth`, get a hold of yourself.
+- Lizy, eliza... `elizabeth` bennett...
+- You ever see queen `elizabeth` sleep?
+- `Elizabeth`, i'm prescribing hypnocyl.
+- `Elizabeth`, i'm relieved you're safe.
+- `Elizabeth`, it's three in the morning.
+- Will you come to the trial, `elizabeth`?
+- They were just like `elizabeth` taylor's.
+- You have become a fine woman, `elizabeth`.
+- `Elizabeth`, i hereby withdraw my proposal.
+- This is my niece, the princess `elizabeth`.
+- `Elizabeth`, we don't need any outside help.
+- Replying your inquiry `elizabeth` kinsolving.
+- `Elizabeth` deane does not give second chances.
+- I suppose it all goes back to queen `elizabeth`.
+- Not `elizabeth` the second, `elizabeth` the first.
+- Are you going to see `elizabeth` while you're here?
+- Don't be thinking i'm happy about this, `elizabeth`.
+- This isn't like that queen `elizabeth` question, is it?
+- I-- uh-- fill in the blank: "i blank `elizabeth` allan."
+- Will, how many times must i ask you to call me '`elizabeth`'?
+- It's ok. that's ok. how long have you worked with `elizabeth`?
+- Parker barnes, i'd like you to meet crime czar `elizabeth` deane.
+- For god's sake, `elizabeth`...just try to help the kids, will you?
+- Oh, please tell me, `elizabeth`, how exactly does one suck a fuck?
+- A girl named `elizabeth` sherman was attacked by four drunken seniors.
+- Will -- it'll go worse for us -- for `elizabeth`, especially -- if we fight.
+- Your dad will be back on sunday, so i've put `elizabeth` in charge until then.
+- `Elizabeth`, we will be landing in port royal soon, and beginning our new lives.
+- `Elizabeth`, i think it doesn't matter that we are of a different class -- there.
+- We'll be like `elizabeth` taylor and richard burton no one disrespects homer simpsons.
+- But you just can't bury your head in the sand like some ostrich, goddammit, `elizabeth`!
+- Between you and me, no one in the world could do musical harm to the princess `elizabeth`.
+                 

@@ -1,0 +1,60 @@
+---
+title: "assure in a sentence | assure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "assure"
+---
+- I `assure` you they do.
+- Routine, i `assure` you.
+- I can `assure` you of that!
+- I can `assure` you of that.
+- That's okay, i `assure` you.
+- Not for eating, i `assure` you.
+- Of that i can `assure` you both.
+- I can keep going, i `assure` you.
+- I `assure` you i won't be offended.
+- But i `assure` you, my music is not.
+- No, it isn't that, i can `assure` you.
+- I `assure` you that won't be necessary.
+- I `assure` you they will be quite safe.
+- Only to help the medics, i `assure` you.
+- I `assure` you my intentions weren't bad.
+- Nothing has changed, i `assure` you both.
+- You'll be yourself again, i `assure` you.
+- There's no such thing, i can `assure` you.
+- Well, i can `assure` you they're not true.
+- It is important to `assure` the succession.
+- You'll be quite convincing, i `assure` you.
+- You can `assure` him that's true, can't you?
+- `Assure` him that there will be no reprisals.
+- `Assure` them that you're being well treated.
+- Let me `assure` you, the lids match the tubs.
+- It is nothing of a sexual nature i `assure` you.
+- Well, i can `assure` you, it won't happen again.
+- But, general, i `assure` you my motives are sincere.
+- But i can `assure` you that they were about to fail.
+- I `assure` you, sir, david is a very careful driver.
+- I `assure` you, there's nothing mysterious involved.
+- It will be the best of your collection, i `assure` you.
+- I `assure` you i feel a very ordinary man at this moment.
+- I `assure` you, sam, i'm doing everything within my power.
+- I can `assure` you, there is no such creature in my genes.
+- Had we been ready, i can `assure` you we would have sailed.
+- I can `assure` you i'm the last person he would wanna visit.
+- Oh, i'm well aware of what the government did, i `assure` you.
+- It was the poorest lemon ranch in california, i can `assure` you.
+- Well i `assure` you, sir, i have no desire to create difficulties.
+- I `assure` you, lord vader, my men are working as fast as they can.
+- But i `assure` you that is really the best thing you can do for him.
+- Will you `assure` the strikers of my hearty sympathy in their cause.
+- I `assure` you, charles, the maiden has no greater admirer than myself.
+- I know you did, frank, but i `assure` you there was an impending failure.
+- Ambassador, let me `assure` you that the fbi has made this a top priority.
+- You mentioned a demonstration of force-- i `assure` you such power exists.
+- I `assure` you, you do not in fact i'd be obliged for your best advice.
+- Double is ridiculous but we can `assure` you a healthy profit on your shares.
+- I `assure` you, mr. boone, i meant no -- isn't it enough you told me you're a fairy?
+- My astrologers `assure` me that the hour is p-p-propitious -- leo, with virgo rising.
+- They `assure` me there's a fine tail wind which will sweep you back to moscow in no time.
+- I `assure` you that we as the revolutionary vanguard are as serious about this as you are.
+                 

@@ -1,0 +1,68 @@
+---
+title: "Europe in a sentence | Europe example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Europe"
+---
+- So i watched `europe`.
+- Hitler's taken `europe`.
+- We're going to `europe`.
+- You must be from `europe`.
+- Joe's huge in `europe`.
+- The president's in `europe`.
+- I'm not gonna go to `europe`.
+- So, how's pro-ball, `europe`?
+- I don't want to go to `europe`.
+- All `europe` shall hear of this!
+- Is the rest of `europe` like this?
+- We're going to `europe` next week.
+- Bert brought them over from `europe`.
+- The love affair that shocked `europe`!
+- 'my wife returns from `europe` tomorrow.
+- In `europe` women find older men very sexy.
+- For our new neighbors from eastern `europe`.
+- He's supposed to be flying in from `europe`.
+- They have steadily advanced across `europe`.
+- The last time we visited they were in `europe`.
+- Other properties as well - here and in `europe`.
+- We told them you were in a hospital in `europe`.
+- I could have gone to `europe` and taken the baby.
+- You�re a long way from home... `europe`... france.
+- Do you want to see the loveliest woman in `europe`?
+- I think we'll live in `europe` after we're married?
+- So we were going to wait till she went to `europe`.
+- You tailed your man all the way here from `europe`.
+- Today, the whole of `europe` is marching against us.
+- Their parents are gold traders from eastern `europe`.
+- I may take off to `europe` for the rest of the summer.
+- Conquered much of the western world, america, `europe`.
+- When i went to `europe` my friends told me i was crazy.
+- You can go off to `europe`, meet somebody, get married.
+- I hear he ditched you and the kid and moved to `europe`.
+- I thought about moving somewhere far away like, `europe`.
+- Suppose you went back to medieval `europe` with a tv set.
+- Burial rites are taken very seriously in eastern `europe`.
+- In `europe`, people are saying you're gonna die from drugs.
+- But i want the complete list now, not just eastern `europe`.
+- Most of `europe`, the middle east and asia are battle ready.
+- Don�t flatter yourself - six was for <u>eastern `europe`</u>.
+- Lots of people... something's been going on here in `europe`.
+- My wife is in `europe`, but this is her house... her bedroom.
+- To seal off her trade with `europe`, what has it cost you?
+- A year ago, the whole of `europe` was marching alongside of us.
+- If it hadn't been for hitler, he wouldn't have had to leave `europe`.
+- I was the most famous composer in `europe` when you were still a boy.
+- In 1992, `europe` is coming together to become one business superpower.
+- Why do you think dickie's father sent him to `europe` in the first place?
+- Oh, but if you knew what it means to us to leave `europe`, to get to america!
+- I'm working on something that's going to explode like a bomb all over `europe`!
+- A cloud of radiation the size of `europe`... made to look just like an accident.
+- My dear talleyrand, none of the kings of `europe` bear any friendship for france.
+- From every corner of `europe`, hundreds, thousands, would rise to take our places.
+- I was going to take regan to `europe` for a while, after she finished school here.
+- If this bridge were in `europe`, it would be on every tourist's sight- seeing list.
+- I just want to graduate from high school, go to `europe`, marry charlie sheen and die.
+- When i turned twenty- one, i went to `europe` with visions of being free and independent.
+- Oh, please, professor, why can't we go with you and see all the crowned heads of `europe`?
+- He escaped from a concentration camp and the nazis have been chasing him all over `europe`.
+                 

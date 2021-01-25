@@ -1,0 +1,78 @@
+---
+title: "event in a sentence | event example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "event"
+---
+- It's the `event` horizon.
+- It's a traditional `event`.
+- Small `event` but dramatic.
+- I'm also working this `event`.
+- In any `event`, i'm not curious.
+- Get on board the `event` horizon.
+- We're talkin' a media `event` here.
+- No... was there any trigger `event`?
+- Saving yourself for the main `event`.
+- It's the social `event` of the decade!
+- The called it an unknown entry `event`.
+- In any `event`, i will not beg for mercy.
+- It's the last school `event` of the year.
+- That's a separate `event` at the marriott.
+- Would spoil the movie `event` of the year.
+- In any `event`, you still owe me my reward.
+- This brothers is gonna be a colossal `event`.
+- The `event` horizon could be there in a day...
+- A miracle is an `event` without an explanation.
+- We find an `event` that connects both families.
+- In that `event`, we won't need so many supplies.
+- The `event` horizon's computer think's it's 2034.
+- Chongo's an all-state track star in every `event`.
+- It's gonna be a big `event` -- we're going all out!
+- The co2 filters on the `event` horizon are shot.
+- Approximately what year did this `event` take place?
+- "probable"...applies to an `event` that may be real.
+- Even... `event`..." we could blow the doors manually.
+- In any `event`, you must be out within sixty minutes.
+- This is an important `event` and i want a vote on it!
+- No, she flew up to boston for another charity `event`.
+- I would think about a person or a place, or an `event`.
+- In any `event`, whatever occurs you do not belt anybody.
+- Class of sixty-five is having this `event` in six months.
+- Of the greatest scientific `event` in the history of man.
+- That's how the `event` horizon travels faster than light.
+- We've found it at every `event` site we've been to lately.
+- There's an `event` at my father's school... an anniversary...
+- We ate, that's eating, sharing an important physical `event`.
+- The `event` horizon only had life support for eighteen months.
+- If it really is the `event` horizon, they'll attempt a salvage.
+- The `event` horizon moved to safe distance using ion thrusters.
+- Well, come to think of it, we did have a big `event` around here.
+- In that `event`, the probabilities are that our mission would fail.
+- Starck, download all the files from the `event` horizon's computers.
+- It's airline policy not to imply ownership in the `event` of a dildo.
+- The school would probably contact you in the `event` of my expulsion.
+- The `event` horizon was created for one reason: to go faster than light.
+- Claire used to tell me i loved the `event` horizon more than i loved her.
+- You got a half hour of tape, so give me some lead-in to the main `event`.
+- So far there's no `event` or service that doubles back into both families.
+- You're leaving your house... and you're in a hurry to a big social `event`.
+- All i know is we're in motion for the most watched media `event` in history.
+- I'm not missing what's probably going to be the social `event` of the season.
+- In that `event`, we better make arrangements to get some porters immediately.
+- Most of the time, all three precognitives will see an `event` in the same way.
+- All the big art critics and art dealers would be there, it would be an `event`.
+- On that flight recorder, they called the black hole an "unknown entry `event`."
+- The `event` that fatalistically shaped my life happened before i was even born.
+- I told her that wasn't true, i just knew the `event` horizon better, that's all.
+- We're going to leave someone here at the house in the `event` that she calls in.
+- In the `event` of a stunt person being used, the artist must have full consultation.'
+- The first truly global, a-political `event` in history and you can't wait to spin it.
+- Although the wayne foundation is hosting the `event`, sadly i will be unable to attend.
+- The `event` horizon sensors show the same thing: "bio-readings of indeterminate origin."
+- In any `event`, my feelings were hurt when i learned that he had fallen for someone else.
+- It's clear to me and other people that you have suffered significantly from this `event`.
+- I was around, passably cute, the anniversary of an `event` brings back traumatic memories.
+- The nation's cradle -- january first -- the first major `event` of our two hundredth year.
+- Especially for what he said, and i quote, "would be a highly anticipated `event`, locally."
+- Welcome to the main `event` of the evening, one guard detail comes with me to the dropship.
+                 

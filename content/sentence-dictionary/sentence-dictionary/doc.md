@@ -1,0 +1,107 @@
+---
+title: "doc in a sentence | doc example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doc"
+---
+- Fuck semantics, `doc`!
+- How's it going, `doc`?
+- I'm still here, `doc`.
+- Loud and clear, `doc`.
+- No, `doc`, not a doll.
+- You can call me `doc`.
+- Are you alright, `doc`?
+- How you feelin', `doc`?
+- How you feeling, `doc`?
+- I wouldn't worry `doc`.
+- She's delirious, `doc`.
+- Well -- see you, `doc`.
+- Well, ya know, `doc`...
+- You're a shrink, `doc`.
+- `Doc`, ya gotta help me.
+- Do you like lamb, `doc`?
+- I'm here for you, `doc`.
+- Like gangbusters, `doc`.
+- No insights here, `doc`.
+- Take these to the `doc`.
+- That's all right, `doc`.
+- We'll go to `doc` mimms.
+- You're a witness, `doc`!
+- `Doc` is gonna be pissed.
+- Don't be insecure, `doc`.
+- Do you want to see `doc`?
+- Got to cut it out, `doc`.
+- No sign of `doc`, though.
+- People can change, `doc`.
+- You say something, `doc`?
+- `Doc`, what can i tell ya?
+- But give `doc` the shotgun.
+- I'm dealing with it, `doc`.
+- I'm going to get the `doc`.
+- No gentleman caller, `doc`.
+- Now think real hard, `doc`.
+- Said as much myself, `doc`.
+- Saved all our lives, `doc`.
+- Slice out the crazy, `doc`.
+- Who are you kidding, `doc`?
+- `Doc`... ...so accomplished.
+- Hey `doc`, come take a look.
+- No, `doc`, a private secret!
+- `Doc` found you in scrapyard.
+- `Doc`, i'm not on the island.
+- Do you like ice cream, `doc`?
+- Hold this shit for us, `doc`.
+- Keep me off the couch, `doc`.
+- Sheriff behan, `doc` holliday.
+- Where do you hail from, `doc`?
+- You don't look so good, `doc`.
+- You must be `doc` holliday.
+- Anything good to report, `doc`?
+- `Doc`'s just in no kinda shape.
+- I'll tell you something, `doc`.
+- I'm a good woman to you, `doc`.
+- The `doc` says you gotta relax.
+- What's the deal with `doc` ock?
+- Why do you want to know, `doc`?
+- Abe lincoln... dumbo... - `doc`!
+- Listen to your assistant, `doc`.
+- What are you going to do, `doc`?
+- Caused by `doc` ock's experiment?
+- No, this is my first trip, `doc`.
+- 'sat about the gist of it, `doc`?
+- She going to be all right, `doc`?
+- Where you going with that, `doc`?
+- Been hittin' it awful hard, `doc`.
+- `Doc` had gone home for the night.
+- `Doc` won't quit, been up 36 hours.
+- What makes a man like ringo, `doc`?
+- Cobb, you and `doc` check the rooms.
+- Come on, `doc`, you must be kiddin'.
+- `Doc`, i think you should have this.
+- `Doc` says i got one more treatment.
+- He's pitiful, `doc`, a goddam puppy.
+- Okay, here's the first thing: `doc`!
+- Now we got to get you to `doc` mimms.
+- Because danger, `doc`, is my middle...
+- But, `doc`... where's the machine guns?
+- Not exactly... what's that mean, `doc`?
+- Swear to god, `doc`, i just don't know.
+- That's the old maintenance grid, `doc`.
+- Would you mind if `doc` took a picture?
+- ...try this one out some-... hey, `doc`.
+- You called danny '`doc`' twice just now.
+- How many sessions have we had now, `doc`?
+- This one's better looking than the `doc`.
+- Ya know, `doc`, you could have folled me.
+- You know anything about addiction, `doc`?
+- Clell, tom, go get `doc` mimms in liberty!
+- `Doc`... assumptions are always dangerous.
+- Honestly... new `doc`'s working on a cure.
+- Looks like your kid's full of shit, `doc`.
+- Excuse me, `doc`, i've got a plane to land.
+- Only mccreary and the `doc` are allowed in.
+- I don't want you to be mad at skip... `doc`.
+- `Doc`, go get frank and put him on the phone.
+- Thanks, `doc`, but i don't need an aids test.
+- `Doc`-... tell the choppers we're lifting off!
+                 

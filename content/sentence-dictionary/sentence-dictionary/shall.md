@@ -1,0 +1,107 @@
+---
+title: "shall in a sentence | shall example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shall"
+---
+- Holy sh... `shall` we?
+- I presume you `shall`.
+- Mr. black, `shall` we?
+- `Shall` i read to you?
+- Then, we `shall` meet.
+- Well then, `shall` we?
+- Well, you `shall` see.
+- Where `shall` we dine?
+- I `shall` be all right.
+- `Shall` we have a song?
+- Whatever `shall` we do?
+- "what `shall` i ready?"
+- What `shall` we do now?
+- Where `shall` we begin?
+- America, we `shall` see.
+- Chocolate it `shall` be.
+- Eve: i `shall`, leonard.
+- Hmm, what `shall` we do?
+- I `shall` be a free man.
+- Now, what `shall` it be?
+- `Shall` i leave, m'lord?
+- `Shall` i shut the door?
+- `Shall` we be all right?
+- `Shall` we have a drink?
+- `Shall` we have another?
+- We `shall` seal our vow.
+- What `shall` we discuss?
+- Where `shall` we put it?
+- We `shall` rule them.
+- I `shall` be out walking.
+- `Shall` i wash these out?
+- `Shall` we drink to that?
+- `Shall` we go for a swim?
+- Well then ... `shall` we?
+- What `shall` we call him?
+- Which one `shall` i wear?
+- God `shall` lead us there.
+- I `shall` be near at hand.
+- I `shall` call him diello.
+- `Shall` i alert dr. mccoy?
+- `Shall` i call the doctor?
+- `Shall` i get her for you?
+- `Shall` i tell them again?
+- `Shall` we close up, then?
+- `Shall` we give it a name?
+- `Shall` we go to my place?
+- Then i `shall` respect it.
+- We `shall` attack at once.
+- How much `shall` i pay you.
+- How much `shall` i pay you?
+- `Shall` be the next sultan.
+- `Shall` i begin evacuation?
+- `Shall` i drop by tomorrow?
+- `Shall` i see you tomorrow?
+- `Shall` we go to my office?
+- `Shall` we relive together?
+- `Shall` we say -- a dollar?
+- `Shall` we stop for dinner?
+- `Shall` we track them both?
+- That is what we `shall` do.
+- What secret `shall` i tell?
+- I `shall` count the minutes.
+- No, but i certainly `shall`.
+- `Shall` i light the candles?
+- `Shall` we join the natives?
+- Uh... nancy... - `shall` we?
+- You `shall` bore me no more!
+- Dear, whatever `shall` we do?
+- I `shall` be absolutely fine.
+- I -- `shall` i see you again?
+- I `shall` look forward to it.
+- I `shall` need a small plane.
+- I `shall` wear it in my hair!
+- Let's start over, `shall` we?
+- Like "thou `shall` not kill"?
+- Or `shall` i call my servant?
+- `Shall` i go over there, sir?
+- `Shall` i tell you what i do?
+- `Shall` we summon the writer?
+- `Shall` we try and go around?
+- She `shall` not be left here.
+- Well what `shall` i swear by?
+- We `shall` meet our own kind.
+- We `shall` never change that!
+- How `shall` one say, director?
+- I `shall` never, ever grow up.
+- Let's have a look, `shall` we?
+- Oh well -- i `shall` find him.
+- `Shall` i draw your bath, sir?
+- `Shall` i go get a cappuccino?
+- `Shall` i look after the rest?
+- Well, let's recap, `shall` we?
+- We `shall` double our efforts.
+- We `shall` have to meet again.
+- What `shall` we drink to, sir?
+- Who `shall` i say is calling?
+- Come on, jack, `shall` we go?!!
+- I'll just hang then, `shall` i?
+- I `shall` recommend you highly.
+- Let's make us even, `shall` we?
+                 

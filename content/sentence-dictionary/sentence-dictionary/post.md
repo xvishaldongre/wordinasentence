@@ -1,0 +1,107 @@
+---
+title: "post in a sentence | post example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "post"
+---
+- I meant on the `post`.
+- Now stand your `post`.
+- Send me a `post` card.
+- The washington `post`.
+- She'll `post` sentries.
+- With a `post`-it on it.
+- From the hawkins `post`.
+- Get back to your `post`.
+- Saturday evening `post`.
+- I already get the `post`.
+- I got to leave my `post`.
+- Page three of the `post`.
+- When does he `post` bail?
+- Like a `post`-life crisis.
+- You didn't like my `post`.
+- Did they `post` the scores?
+- Do we `post` it on the net?
+- Like hugging a lamp `post`.
+- Six weeks, counting `post`.
+- The parcel�s in the `post`.
+- The `post` has been filled.
+- Where's the command `post`?
+- You've seen the `post`-its.
+- I don't know what `post` is.
+- Blame the damn `post` office.
+- Works at the hitching `post`?
+- Yes, from the hawkins `post`.
+- Applying for fanelli's `post`.
+- Give him just this one `post`.
+- `Post`-toasted's more like it.
+- Speaking of the vacant `post`.
+- They have the `post` of honor!
+- Why aren't you at your `post`?
+- And we'll check out the `post`.
+- Former kgb surveillance `post`.
+- He works for the `post` office.
+- It's a `post` all vienna seeks.
+- Don't `post` it on social media.
+- Jezebel, from the `post` office.
+- One call to tom at the `post`...
+- Don't `post` it, on social media.
+- Even the `post`-credit sequences?
+- Will you hear "last `post`", sir?
+- The regent has resigned his `post`.
+- Well they can fucking un-`post` it!
+- Establish a recon `post` downstairs.
+- The man at the `post` office sent me.
+- I was gonna do the `post` office once.
+- Now you're needed at the guard `post`.
+- Oh, i found this at the `post` office.
+- Once i `post` it on reddit, come here.
+- One word from me and the `post` is his.
+- The whole british bloody `post` office.
+- I hear they're closing that `post` down.
+- Stealing electricity from a lamp `post`.
+- This is sid courtney, washington `post`.
+- Did you really do all the `post` yourself?
+- Father, i saw a `post` rider at the house.
+- Hello, `post`... mr. walter burns, please.
+- It's -- a surveillance `post` or something.
+- Must have been gary at the hitching `post`.
+- Ny times, washington `post`, war, war, war.
+- Father, a `post` rider came from charleston.
+- Then what about this washington `post` crap?
+- This is fuckin' `post`-pubescent disneyland.
+- But i can't lose this `post`, i simply can't!
+- I got a whole new problem when i `post` bail.
+- This is the morning `post` you're talking to!
+- We have an enlisted man's club at the `post`.
+- I'll `post` it on every monitor on the ship...
+- This look like a fucking `post` office to you?
+- He swears he never left his `post` for a moment.
+- The `post` might have a lot of fun with it, too.
+- Thought of you at the hitching `post` last night.
+- How could they hope to hide a surveillance `post`?
+- You... went ahead and fixed the ice `post`, i see.
+- From others suffering from `post`-traumatic stress.
+- We'll just start by impounding the `post` property.
+- I have trouble writing a `post` card to my children!
+- Then why doesn't he simply appoint me to the `post`?
+- With minor `post`- mortem lacerations and abrasions.
+- You took off without leaving so much as a `post`-it.
+- They're grilling the applicant for the vacant `post`.
+- That guy i brought in yesterday, `post`-cardiac arrest.
+- Your scout told us that you had 3 primes at the `post`.
+- Earl williams caught by the morning `post` -- exclusive!
+- I'll send my letters to thy lord `post` haste to mantua.
+- It is time for the southernmost guard `post`'s rotation.
+- I was sent from the `post` in place of our social editor.
+- Send it to me through the `post` office like we arranged.
+- That's where the trading `post`'ll be, los from above.
+- We have the new york times, the `post`, all the big ones.
+- Hi, i'm bob woodward of the `post` and-- howard hunt here.
+- So you see, this `post` is very important to me right now.
+- Hi, yes, um, this is nancy wheeler from the hawkins `post`.
+- You wouldn't shoot anyone... no, i better stay at my `post`.
+- I'm doing a piece on right-wing groups, `post` oklahoma city.
+- I mean <u>him</u>, back at his `post`, like nothing happened.
+- Will you give me... what's the good of another `post` mortem?
+- Do you think you've been discriminated against on this `post`?
+                 

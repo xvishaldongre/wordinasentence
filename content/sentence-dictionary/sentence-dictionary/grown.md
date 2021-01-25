@@ -1,0 +1,92 @@
+---
+title: "grown in a sentence | grown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grown"
+---
+- Bob was a `grown` man.
+- He has `grown` strong.
+- But you a `grown` girl.
+- Hey, pops, i'm `grown`.
+- `Grown` for the cyborgs.
+- Yeah, that's `grown` up.
+- You've `grown` up a bit.
+- You look very `grown` up.
+- My god, you've `grown` up.
+- `Grown`-up stuff to you, huh?
+- Hey, come on, i'm `grown`-up.
+- `Grown` men cried like babies.
+- I could have `grown` up happy.
+- You have `grown` up very good.
+- I'm a `grown` woman, dr. emlee.
+- To be a little more `grown`-up.
+- `Grown` man dressed like a clown.
+- It still hasn't `grown` fully in.
+- Break into a `grown`-up's bedroom?
+- Look, we're both `grown` men here.
+- She's `grown` up some, hasn't she?
+- I'm tired of supporting a `grown` man.
+- Is fully `grown` for you to come back.
+- I've `grown` quite attached to them...
+- This will be a full `grown` myna bird.
+- Stop -- we have `grown` wiser with age.
+- Yes... and... and how were you `grown`?
+- We've `grown` very close in a short time.
+- Anywhere a `grown` man would expect privacy.
+- The movement's `grown`; we've `grown` with it.
+- It's nice to see that in a `grown`-up person.
+- What kind of thing is that for a `grown` man?
+- I haven't by any chance `grown` on you, have i?
+- It's `grown` out more than an inch, sweetheart.
+- Well, `grown`-ups think it's funny to be scared.
+- Miss has `grown` up, and is getting married soon.
+- ... or `grown`-ups, who still like to be children.
+- I've `grown` very fond of you you and michael both.
+- You've `grown` so tall... so tall in the last year.
+- C'mon, you wanna sit at the `grown`-up table or not?
+- When he does, he'll be fully `grown`, or close to it.
+- Don't fault him for having `grown` up on the frontier.
+- If he was so `grown` up he'd get you two an apartment.
+- The empire has `grown` bold in its disregard of the...
+- He's a vat `grown` ninja, the royal family's bodyguard.
+- He's `grown` up just like me...my boy is just like me."
+- I had to...in the games... you've `grown`, big program.
+- It's too late...she's a woman `grown` now... you crazy?
+- `Grown` men don't normally fall into the river, do they?
+- I'm a `grown` woman, and i can decide about my own life.
+- This is so weird, being in another `grown`-up's bedroom.
+- Well, i hope you'll meet all those, when you're `grown`.
+- But johnnie walker has `grown` from strength to strength.
+- You have `grown` older and your chin has `grown` balder.
+- Don't any of your little pals have real, `grown` up names?
+- Years ago i married a widow who had a `grown`-up daughter.
+- Mildred no `grown` woman is a fan of premature ejaculation.
+- Then there you were, such a beautiful, beautiful `grown` man.
+- We've always `grown` maize in the strip above the vegetables.
+- When you're `grown` up, you'll be lucky to make minimum wage!
+- But this... ...you�ve really `grown` into a beautiful woman...
+- It's just that with the kids almost `grown` -- educated guess.
+- Look, you're a `grown` man, you know how to pick up a lobster.
+- I just... ann is very... she's a `grown`-up, she can handle it.
+- She will grow old in the fortress as you have `grown` old here.
+- You just let the `grown`-ups worry about `grown`-up things, okay?
+- Hey, jj, why don't we put on a play for the `grown`-ups tonight?
+- Maybe they're angry because they're `grown` in meccano-breeders.
+- Your tee-times have just `grown` exponentially... you'll leave -- ?
+- They're `grown` from human dna mixed with the dna of the natives.
+- You won't recognize the kids any more, they're `grown` up by now.
+- I don't fall in love with `grown` men who collect baseball cards!!
+- It's really quite something to see you all `grown` up like this, enid.
+- "as part of the experience, you see, as a `grown`-up, he's not even here.
+- This must all seem like a bunch of confusing `grown`-up stuff to you, huh?
+- The child she carried was eight months `grown` at least... near to birthing.
+- Also, we have to make sure that the lab is fully `grown` for you to come back.
+- I guess i was a real stinker not to be a `grown`-up when you needed a `grown`-up.
+- What did i see 'cept a `grown` man gettin' whipped so bad he can't laugh anymore.
+- But we feel that perhaps... you and the program have `grown` apart philosophically.
+- I have `grown` daughters, myself, and i don't like the thought of women being hurt.
+- Me and my brother dozer, we are 100 percent pure, old- fashioned, home-`grown` human.
+- Ooh ooh, tough talk from a scared little girl all wrapped in a pretty `grown`-up package.
+- Well, the widow curtis will bring you riches, position, land, even half-`grown` children.
+- Get joseph reed, and the pigs in congress, the speculators, who've `grown` fat off the war!
+                 

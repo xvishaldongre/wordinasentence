@@ -1,0 +1,107 @@
+---
+title: "homer in a sentence | homer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "homer"
+---
+- That's right, `homer`.
+- Do you get it, `homer`?
+- Hmm... `homer` simpson?
+- In `homer`'s underwear.
+- Of `homer` j. simpsons.
+- Of `homer` j. simpsons?
+- It's all of us, `homer`.
+- Oh, oh, `homer` simpson.
+- Evelyn got `homer` drunk.
+- `Homer` and bart simpson!
+- `Homer`'s been kidnapped.
+- `Homer`, you got flushed.
+- Kick `homer` in the butt?
+- Okay... stop it, `homer`.
+- Three cheers for `homer`.
+- Ain't that right, `homer`?
+- `Homer`, control yourself.
+- I don't think so, `homer`.
+- Shouldn't we tell `homer`?
+- I... `homer` gets his, too.
+- The car is driving `homer`.
+- Welcome to walkoff `homer`!
+- But you're dating a `homer`.
+- `Homer`, she's got the part.
+- `Homer`, you're doing great.
+- Not be dependent on `homer`.
+- Oh, `homer`, she is a beaut.
+- Well, well, `homer` simpson.
+- You called buford's `homer`.
+- You just go inside, `homer`.
+- `Homer` and i can take you...
+- `Homer`, put your phone away.
+- I'm marge's husband, `homer`.
+- That's got to sting, `homer`.
+- You forget yourself, `homer`.
+- He thinks `homer` is an idiot.
+- `Homer`'s-a talking to nobody.
+- `Homer`, you're getting there.
+- `Homer`, you're making me mad.
+- I am `homer`'s liar... lawyer.
+- I hope `homer` gets here soon.
+- I knew it couldn't be `homer`.
+- I'll kick `homer` in the butt.
+- Just call me handsome `homer`.
+- Okay, `homer`, catch and lift.
+- There are no turtles, `homer`.
+- Bart and `homer` have cratered.
+- `Homer`, i'll see you tomorrow?
+- Okay, `homer`, you can do this.
+- `Homer`, i'm going to the beach.
+- It was justifiable `homer`-cide.
+- `Homer`, order anything you like.
+- I was gonna show it to `homer`...
+- Mom, mom... a hearty `homer` hug.
+- Okay, `homer`, time to do a lift.
+- To do whatever you like, `homer`.
+- What business is you in, `homer`?
+- What crime is `homer` committing?
+- `Homer`, dorothy isn't a *sailor*!
+- Just ignore `homer`, old sourpuss.
+- You call it "`homer` simpson-ing."
+- You ever see a palm tree, `homer`?
+- Evelyn, this is my husband `homer`.
+- Has `homer` lost his will to drink?
+- He mentions `homer`, too, you know.
+- `Homer`, i want to be your partner.
+- `Homer`'s gonna be here any minute.
+- Of *course* there's worms, `homer`!
+- Please, `homer`, you're my husband.
+- Them's good hands you got, `homer`.
+- We heard that one already, `homer`.
+- You're a good man, `homer` simpson.
+- If you tell them... `homer`, no.
+- `Homer` is a... grace to the family.
+- `Homer` took me to a "psychiatrist".
+- I don't think we have to... `homer`.
+- No one disrespects `homer` simpsons!
+- No one disrespects `homer` simpsons.
+- The screenplay with brother `homer`.
+- Brother `homer`, why do you hesitate?
+- `Homer`, i got to tell you one thing.
+- `Homer` simpson, you'll leave a ring.
+- `Homer`, sorry to blow my own horn...
+- `Homer` doesn't have any *diplomas*...
+- We will remake bart and `homer` brand.
+- Yeah, don't `homer` simpson, you jerk.
+- You just stay out of trouble, `homer`!
+- I'm not going to break up with `homer`.
+- No one disrespects `homer` j. simpsons.
+- Oh, i suppose you is a doctor, `homer`?
+- Ain't you gonna see what it is, `homer`?
+- `Homer`, we're the best in the business.
+- No, `homer`, she's just acting the part.
+- Oh, no, i can't leave `homer` that long.
+- Don't worry, `homer`, i'll chop the wood.
+- This is still part of the dream, `homer`.
+- Why did someone dare you to have `homer`?
+- ♪ i am the champion of the... ♪ - `homer`.
+- It's amazing how `homer` draws people out.
+- Now, tell me, how is this `homer`'s fault?
+                 

@@ -1,0 +1,107 @@
+---
+title: "ma'am in a sentence | ma'am example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ma'am"
+---
+- I can't read, `ma'am`.
+- I don't know, `ma'am`.
+- `ma'am`... - i'm fine.
+- No harm done, `ma'am`.
+- No, `ma'am`, we can't.
+- Uh, question, `ma'am`.
+- Yes `ma'am`, i reckon.
+- Yes, sir -- `ma'am`...
+- [gasping] yes, `ma'am`.
+- How do you do, `ma'am`.
+- I believe not, `ma'am`.
+- It's mr brown, `ma'am`.
+- Less than 50%, `ma'am`.
+- `ma'am`, i just said...
+- Stop that `ma'am` crap!
+- Yes, `ma'am`, at first.
+- Can't complain, `ma'am`.
+- Federal agents, `ma'am`.
+- Gotta go now, `ma'am`...
+- I'm very sorry, `ma'am`.
+- I am very sorry, `ma'am`.
+- I have a letter, `ma'am`.
+- I'll work on it, `ma'am`.
+- No, that's okay, `ma'am`.
+- Anything you say, `ma'am`.
+- It's a fine spot, `ma'am`.
+- Jus' cleanin' up, `ma'am`.
+- `ma'am`, i'm sure she was.
+- `ma'am` the vacant office.
+- Nice to meet you, `ma'am`.
+- No `ma'am`, not this time.
+- Well... uh... yes `ma'am`.
+- I'm not heartless, `ma'am`.
+- My hands are tied, `ma'am`.
+- No, `ma'am`, i'm just fine.
+- Porter: thank you, `ma'am`.
+- Here's your ticket, `ma'am`.
+- I know who you are, `ma'am`.
+- `ma'am`, i need you to sign!
+- `ma'am`, ray dunbar's black.
+- Pardon my language, `ma'am`.
+- If you'll excuse me, `ma'am`.
+- No need to thank me, `ma'am`.
+- Okay, `ma'am`, just a moment.
+- Pleased to meet you, `ma'am`.
+- You asked to see me, `ma'am`?
+- Your husband is ill, `ma'am`.
+- Excellent, `ma'am`, excellent.
+- He has typhoid fever, `ma'am`.
+- Hm-mm... hm-mm... no, `ma'am`.
+- It's seeing-eye dogs, `ma'am`.
+- `ma'am`, can i see your badge?
+- Since i can remember, `ma'am`.
+- I don't wanta rob you, `ma'am`.
+- Uh, `ma'am`... - take them off!
+- I believe he is unwell, `ma'am`.
+- That's it, we're empty `ma'am` !
+- They're naturally wary, `ma'am`.
+- Well, give me two then, `ma'am`.
+- Why, thank you, `ma'am`... whew.
+- Yes, `ma'am`... mister mcmurphy!
+- If not, have a nice day, `ma'am`.
+- `ma'am`, i need you to calm down.
+- Oh, but you <u>have</u>, `ma'am`.
+- Please don't be alarmed, `ma'am`.
+- They call me green jack, `ma'am`.
+- Time for you to get off, `ma'am`.
+- Uh, where's the matches, `ma'am`?
+- `ma'am`, i answered your question.
+- `ma'am`, the pleasure is all mine.
+- Uh... sitrep forthcoming, `ma'am`.
+- You need to come with us, `ma'am`.
+- I'm twenty-five years old, `ma'am`.
+- `ma'am`, you have to open the door.
+- Plasma, `ma'am`... from the planet.
+- We won't let him get hurt, `ma'am`.
+- A rare pleasure to meet you, `ma'am`!
+- I'll take some laughing gas, `ma'am`.
+- No, `ma'am`, i'm afraid that's extra.
+- Prince albert is at windsor, `ma'am`.
+- I don't appreciate your ruse, `ma'am`.
+- I'm an ultrasound technician, `ma'am`.
+- I'm three sheets to the wind, `ma'am`!
+- `ma'am`, i am the deputy of this town.
+- `ma'am`, i'm as gentle as a puppy dog.
+- `ma'am`, how could you not report this?
+- `ma'am`, we're tracking a resistance...
+- Need any help with those bags, `ma'am`?
+- No, `ma'am`, he just wanted us to quit.
+- `ma'am`, i'm looking for doctor strange.
+- You're not supposed to be here, `ma'am`.
+- Federal bureau of investigation, `ma'am`.
+- `ma'am`, i'm gonna need you to stay calm.
+- What sort of an accident was it, `ma'am`?
+- Look, `ma'am`, we've been driving all day.
+- Don't do the "shucks, `ma'am`" thing again!
+- I'll be perfectly honest with you, `ma'am`.
+- No, you don't, `ma'am`, it's not necessary.
+- `ma'am`, this is a matter of public urgency.
+- Pardon me, `ma'am`, can i ask you somethin'?
+                 

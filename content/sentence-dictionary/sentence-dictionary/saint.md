@@ -1,0 +1,55 @@
+---
+title: "saint in a sentence | saint example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "saint"
+---
+- One is born a `saint`.
+- Lorenzo `saint` dubois.
+- `Saint` thomas aquinas.
+- Yeah, or `saint` anthony.
+- It's mama's `saint`'s day.
+- Your mother was a `saint`.
+- You think she's a `saint`?
+- Ask your `saint` who he is.
+- `Saint` andrew has smiled on me.
+- The patron `saint` of prisoners.
+- `Saint` dionysius the aeropagite.
+- The first `saint` of our century.
+- `Saint` john would chew tobacco.
+- A `saint` just like your own mother.
+- Y-you're a g-god damn `saint`, john.
+- You went to `saint` xavier with mary.
+- Do you think he's a `saint` or something?
+- "harold, the patron `saint` of taxidermy."
+- If i remember correctly, `saint` paul's...
+- Holy `saint` francis, what a change is here!
+- I was a clerk's apprentice on `saint` croix.
+- Was there ever a `saint` who hid in the church?
+- Buddy deeds-- yeah, and my mother was a `saint`.
+- Almighty patron `saint` of dogs, `saint` bernard...
+- All he said was `saint` severin... before the coma!
+- No, i'm `saint` greeter, if you'll forgive the pun.
+- Hey, lou, when's the festival for `saint` know-it-all?
+- Evan, i am so sorry, you were a `saint` to wait for us!
+- The writings of `saint` thomas aqu... aquin... that is.
+- Who is reincarnated as his partner's pet `saint` bernard.
+- Well, you were working there-- and your mother was a `saint`.
+- I�m sorry i was such a `saint` before and i�m such a prick now.
+- Do your recall the words of `saint` peter, in ecciesiastes 1:27?
+- These married people in `saint` cloud are going to be the parents.
+- Do you know who they like even more than jolly old `saint` nicholas?
+- He was so excited when you bought that record -- you're a `saint`!...
+- I was thinking dinner on friday with james and meg at the `saint` mark.
+- Lucas, lucas, lucas, lucas, lucas, lucas, lucas-- are you `saint` peter?
+- One day a dead man will refuse to return, and that man will be a `saint`.
+- So that's why the thrice-martyred `saint` en you ﬁnish the south ﬁeld.
+- Your brother's a `saint`� �only one ever tried to get me my compensation.
+- Oh, salieri, patron `saint` of losers, okay, so, just to be clear, this...
+- He thinks that anybody who knows what a 'spinnaker' is got to be a `saint`.
+- I don't care if he's solomon with `saint` joseph sitting in his <u>lap</u>.
+- Your mother was a resident of `saint` catherines home before you moved her.
+- You never heard the story of `saint` severin driving the werewolves from paris?
+- ♪ qui dit étude dit travail, ♪ to recount the inspiring story of this great `saint`.
+- `Saint` ignatius would smoke cigars and stub them out on the soles of his bare feet.
+                 

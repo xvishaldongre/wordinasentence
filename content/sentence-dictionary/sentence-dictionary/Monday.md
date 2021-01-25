@@ -1,0 +1,81 @@
+---
+title: "Monday in a sentence | Monday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Monday"
+---
+- I start `monday` week.
+- It is `monday`, right?
+- It's `monday` morning.
+- I'll find out `monday`.
+- It was <u>`monday`</u>.
+- I wrote him on `monday`.
+- My `monday` morning tape.
+- Local 15, `monday` nights.
+- The test is this `monday`!
+- We'll do it next `monday`.
+- We start shooting `monday`.
+- But only on `monday` nights.
+- Can't it wait till `monday`?
+- Look, call me `monday`, hey?
+- You can start `monday` week.
+- First thing `monday` morning.
+- I can't get it until `monday`.
+- We have a big day on `monday`.
+- But we have to before `monday`.
+- Yeah, i'll see you on `monday`.
+- He won't be back until `monday`.
+- I haven't started till `monday`.
+- You're the first since `monday`.
+- I just talked to her on `monday`.
+- `Monday` morning, you're history.
+- Jerry's on vacation 'till `monday`.
+- I got a job starts `monday` morning!
+- Why don't we talk about it `monday`?
+- I'll see you on `monday`, mr. clarke.
+- It's just a run-of-the-mill `monday`.
+- Now, the bus will be here on `monday`.
+- Christ, charlie, it's a `monday` night.
+- I want you to come with me on `monday`.
+- `Monday` morning, that's when it opens.
+- Feels like a `monday` night, don't it...?
+- Will you want me to stay on till `monday`?
+- Next plane's not coming 'til next `monday`.
+- Yeah, see you bright and early `monday` am.
+- Yeah, well it's fucking `monday` afternoon.
+- Well, his body was found `monday` night, okay?
+- I'm sorry you had to come in...`monday`, lunch.
+- The place we stashed it opens `monday` morning.
+- Didn't i tell you, she dumped me `monday` night.
+- `Monday`, if you'd invite me for dinner again...
+- `Monday`, with some of the boys from the office.
+- The publisher wants the transcripts by `monday`.
+- We just couldn't wait 'till `monday` to find out.
+- I told her we would talk on `monday`, in the office.
+- Not now, harold... you can't put me down for `monday`?
+- But, get this... the office was closed all day `monday`.
+- It's got to be there by `monday` morning, no slip-up.
+- I'11 have this thing in front of a grand jury by `monday`.
+- I figured we'd just take it up on `monday`, in the office.
+- Let me check with my girl and get back to you on `monday`.
+- From tuesday to yesterday, not including `monday` or today.
+- The attorney gen...they said we have three days... `monday`.
+- Three business...i wait till `monday`, my time limit runs out.
+- Hell, here it is `monday` and i'm already working on wednesday.
+- `Monday` afternoon a sailboat race will be held at the cesspool.
+- Nevertheless, i'd like to see you in my office `monday` morning.
+- There's going to be very few virgins left in school on `monday`.
+- Mr. schmidt can't have the figures on the television buy until `monday`.
+- No, mr. lowery... but then she's always a bit late on `monday` mornings.
+- So if i ain't there 8 a.m. `monday` morning, there's gonna be hell to pay.
+- Wanna thank them for all my sundays, and of course my `monday` nights too.
+- Hopefully the district judge can straighten it all out by `monday` morning.
+- He marries a different virgin every friday and then divorces her on `monday`.
+- He went to work on `monday` and stayed in the city during the week, like always.
+- I just got an additional list of sixty-two employees to interview before `monday`.
+- Then someone comes along and opens the door...and it's never `monday` night again...
+- I start shooting a week from `monday` - zanuck is impatient, he wants me, he needs me!
+- Tomorrow, i'm in l.a....`monday`...i'll take you to lunch, where would you like to go?
+- Me and the lads went down there sunday evening, we weren't discovered till the `monday`.
+- Brevity this... digger and george are with family in the hamptons until `monday` morning.
+                 

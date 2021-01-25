@@ -1,0 +1,57 @@
+---
+title: "engineering in a sentence | engineering example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "engineering"
+---
+- `Engineering` and math.
+- Still in `engineering`.
+- I'll be in `engineering`.
+- What about `engineering`?
+- Beyond that, `engineering`.
+- Justin, take `engineering`.
+- Fine piece of `engineering`.
+- He's in `engineering`, sir...
+- Anything from `engineering`?
+- `Engineering` and data analysis.
+- I'm going back to `engineering`.
+- Talk to sinclair in `engineering`.
+- Main `engineering`... or the bridge.
+- That's the `engineering` containment.
+- `Engineering`... full emergency power!
+- He taught us `engineering` and design.
+- According to `engineering`, we kill it.
+- Then when is he going to `engineering`?
+- Requires a bit of `engineering`... next!
+- Ok. sinclair recruited me into `engineering`.
+- The `engineering` decks are on the other side.
+- Heard there was a hull breach in `engineering`.
+- It connects the personnel areas to `engineering`.
+- Now that you're back on the `engineering` core...
+- Simple `engineering`, though, wouldn't you think?
+- Replacement parts for computers and `engineering`.
+- Field of expertise: organic chemical `engineering`.
+- I think they isolated him in genetic `engineering`.
+- In two more years i'll have an `engineering` degree.
+- Worf, take your men and seal off main `engineering`.
+- I'll be in `engineering` waiting for bellamy to radio.
+- In theory, climate `engineering` is entirely feasible.
+- Ok, report to `engineering` and we'll get you started.
+- It's wick, isn't it, from `engineering`, okay, then what?
+- We've also got a hull breach in the `engineering` section.
+- According to `engineering`, and become one with the primes.
+- These are the `engineering` schematics for this whole place.
+- For passengers with `engineering` and technical trade skills.
+- If we're gonna survive up here, - anything from `engineering`?
+- Is that the neighbors', or... `engineering` needs 6 months no.
+- A sort of career shift, more in the `engineering` line of work.
+- You were raised on farm station and recruited by `engineering`.
+- `Engineering` needs more than that to fix those systems, exactly.
+- Now that you're back on the `engineering` core-- _ because now we're...
+- ♪ stem, science, tech, `engineering` and math ♪ that's a stupid analogy.
+- I must say, professor your knowledge of `engineering` is most impressive.
+- He must be the only engineer in starfleet who does not go to `engineering`!
+- But i don't know the mechanics of how your `engineering` mentor would disagree.
+- That central section connects the forward decks to the `engineering` containment area.
+- They're bypassing `engineering`... do we have any idea how many borg we're dealing with?
+                 

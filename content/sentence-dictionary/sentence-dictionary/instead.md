@@ -1,0 +1,107 @@
+---
+title: "instead in a sentence | instead example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "instead"
+---
+- I fined 'em `instead`.
+- `Instead` of a girdle.
+- That i kept `instead`.
+- Be with them `instead`.
+- `Instead` of "sin city."
+- I'll take this `instead`.
+- `Instead` of all mankind.
+- `Instead` of, you know...
+- Save myself `instead`.
+- Money `instead` of sheets.
+- What do you use `instead`?
+- Let's play house `instead`.
+- Here -- take this `instead`.
+- `Instead` of torturing them?
+- `Instead` of torturing them?
+- Let's call that 3 `instead`.
+- How about i kill you `instead`?
+- I got a code for you `instead`.
+- `Instead` of gaining a husband.
+- `Instead` of "should we do it?"
+- Looked right `instead` of left.
+- No, `instead`, what did he say?
+- `Instead` i became the fear.
+- `Instead`, they sent a murderer.
+- I wish i'd hugged him `instead`.
+- You're coming with me `instead`.
+- I decided to have hope `instead`.
+- `Instead`, i saw an open air duct.
+- `Instead` of the other way around.
+- `Instead`... - you wanna hold him?
+- `Instead` wind up with nothing.
+- Broomsticks `instead` of tail guns.
+- `Instead` of going into his mind...
+- She chose to look inward `instead`.
+- Falls `instead` by their technology.
+- Limped through law school `instead`.
+- I shoulda sent you `instead` of jack.
+- Take it to the party `instead` of me.
+- You know, `instead` of that cat book.
+- `Instead`, it made me feel inadequate.
+- It's what's on `instead` of the movie.
+- So that i'd hate him `instead` of you.
+- And that she should watch you `instead`.
+- That she should watch you `instead`.
+- But what happens if `instead` of this...
+- I'm going to big choice video `instead`.
+- `Instead`, at 0600 this morning, - bart.
+- `Instead` of hiding from the real world.
+- Taking a cab `instead` of hiring a limo?
+- When he shot up that stranger `instead`.
+- You listened to the policeman `instead`.
+- I'm doing shylock `instead` of a shylock.
+- `Instead` of sperm, would you like semen?
+- Looks like emori dies `instead` of raven.
+- A night on the town `instead` of under it?
+- But why are we going up `instead` of down?
+- `Instead` of ten percent, you get fifteen.
+- Why don't you hold your breath, `instead`?
+- Why were you sitting here, `instead` of...
+- Couldn't you take a sack of seed `instead`?
+- He likes to go with men `instead` of women.
+- `Instead` of sealing, the doors all opened.
+- `Instead` of trying to be a father to hers.
+- May as well get paid `instead` of punished.
+- Sometimes i say "okay" `instead` of "fine".
+- Why not act the role of heroines `instead`?
+- You killed his goddam girlfriend `instead`.
+- `Instead`, i can't wait for tonight to come.
+- Scores to san quentin `instead` of stanford.
+- Stop smiling and put us over that `instead`.
+- Why you're doing this `instead` of doing it.
+- You think i should do henry james `instead`?
+- How about you stick it up your ass `instead`?
+- `Instead` of trying to reach the destination.
+- Why didn't he take my life `instead` of hers?
+- `Instead`, i came -- bringing you nothing.
+- `Instead` of a big fish it's... who knows?
+- How come you're here `instead` of with curtis?
+- I almost went to the police station `instead`.
+- `Instead`, he used you to try to save himself.
+- Just gonna have four guys after you `instead`.
+- No, you just broke his fuckin' nose `instead`.
+- Say--why don't you take this remote `instead`.
+- We're gonna use peritoneal dialysis `instead`.
+- What's that, five `instead` of ten years jail.
+- No... you don't mind if i go `instead`, do you?
+- Well, `instead` of a haircut, how about a wash?
+- Does anybody prefer this guy go `instead` of me?
+- Gonna keep them looking outside `instead` of in.
+- In lieu... &quot;`instead`&quot;.... no contest.
+- ...`instead` of taking phone calls from clients.
+- Listen up `instead` of running off at the mouth!
+- You could take him back to hell `instead` of me.
+- My childhood, `instead`, was a very sensible one.
+- But `instead`, i sent hatch and his people to die.
+- `Instead` i make boats and other people sail them.
+- `Instead` of just waiting for their turn to speak.
+- `Instead`, you antagonize her further bode wright.
+- Lets say i taught them chess `instead` of english.
+- Only `instead` of freezin', i was sweatin' strong.
+                 

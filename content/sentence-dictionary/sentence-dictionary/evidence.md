@@ -1,0 +1,107 @@
+---
+title: "evidence in a sentence | evidence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "evidence"
+---
+- Destroy the `evidence`?
+- It's called `evidence`.
+- No physical `evidence`.
+- The drug is `evidence`.
+- The `evidence` of what?
+- To hide the `evidence`.
+- Turn states `evidence`.
+- You have no `evidence`.
+- Turn state's `evidence`.
+- I'll give you `evidence`.
+- This money is `evidence`.
+- Who found the `evidence`?
+- We'll find the `evidence`.
+- Destroy the `evidence` huh.
+- He must ask for `evidence`.
+- Send the book to `evidence`...
+- The `evidence` is contestable.
+- You were after the `evidence`.
+- Destroy the `evidence`, pronto!
+- Is there any `evidence` she is?
+- There is no `evidence` of that.
+- We got box loads of `evidence`.
+- You messed with the `evidence`.
+- Nobody's better with `evidence`.
+- There is no `evidence` for that.
+- You were holding the `evidence`.
+- Before the `evidence` disappears.
+- Empirical `evidence` doesn't lie.
+- `Evidence` of a massive infection.
+- There is no direct `evidence`, no.
+- They're supposed to be `evidence`.
+- It must be knee-deep in `evidence`.
+- We're sequestering that `evidence`.
+- If i do the tapes become `evidence`.
+- That's an opinion, not `evidence`...
+- There's no chain of `evidence`, bill.
+- You don't have a shred of `evidence`!
+- Fat sam is turning state's `evidence`.
+- They say the `evidence` is rock solid.
+- I can get you new `evidence` next week.
+- It was his duty to give the `evidence`.
+- Not me, i'm just looking at `evidence`.
+- We need to have the `evidence`, ya know?
+- Theo seizes the krugerands as `evidence`.
+- Why didn't the cops put it in `evidence`?
+- Produce your `evidence` -- if you have it.
+- They're... digging up some new `evidence`.
+- Some of the `evidence` is uncontestable ...
+- Do you have any `evidence` against him, jim?
+- It must be pretty compelling `evidence` mmm.
+- The `evidence` of every scam we ever pulled.
+- Why not show dr. furtw�ngler the `evidence`.
+- He thinks you want him to look at `evidence`.
+- I have no `evidence` of your taking anything.
+- I've got to give `evidence` in court at nine.
+- Once we make it `evidence`, it belongs to us.
+- With no physical `evidence`, what do we have?
+- But as for `evidence`, we, uh, we got nothing.
+- There's no hard `evidence` he knew about this.
+- I'll just destroy the `evidence` and play dumb.
+- If i had, there would have been some `evidence`.
+- I'm sure some of the `evidence` was compromised.
+- Taking `evidence`, tampering with a crime scene.
+- There's no `evidence` of any foul play at present.
+- There was a third man - he didn't give `evidence`.
+- If there is any `evidence` here, it's for homicide.
+- It's circumstantial `evidence` in the case at hand!
+- I'm satisfied with the `evidence` we have right now.
+- Was there any `evidence` that mrs. windham shot him?
+- Lainey, there's no `evidence` that simone isn't real.
+- There's no `evidence` until he gives public testimony.
+- Calloway, you haven't shown me one shred of `evidence`.
+- Someone who's practically a piece of <u>`evidence`</u>?
+- But her brain stem shows `evidence` of a massive stroke.
+- It must be pretty compelling `evidence` why is she here?
+- Maybe with `evidence` that could blow that meeting away.
+- She went in to get `evidence`, and she came out with it.
+- So we'll get the `evidence`, first, ask questions later.
+- This is what we would've called an "orgy of `evidence`".
+- No, there's no `evidence` of a surge or spike of any kind.
+- This can look like you paid me off to withhold `evidence`.
+- This is the first `evidence` that corroborates our theory.
+- Your honor, the state enters this `evidence` as exhibit a.
+- But there's no way we can get the jewels out of `evidence`.
+- Well, if i am, why is the government concealing `evidence`?
+- What concrete `evidence` do you have of your own existence?
+- You'll find `evidence` of the master of this house: an ape.
+- The `evidence` that's going to put us away for twenty years.
+- Are you refuting this `evidence` and your previous testimony?
+- ...found no physical `evidence` of the creature you describe.
+- That's not what i call conclusive `evidence` of an abduction.
+- Well, why don't you hold these as `evidence` in the meantime.
+- We take all the `evidence`, and all the pictures and samples.
+- I'll stick it in the `evidence` locker... has her books in it.
+- Your wife is aware of or has `evidence` of your activities?
+- Do you have any other physical `evidence`, that we can look at?
+- The first documented, unrefuted `evidence` of life after death.
+- We had circumstantial `evidence`, but nothing to tie him to it.
+- We haven't found any `evidence` of the things you've described.
+- We're waiting for trace `evidence` results on the rice killing.
+                 

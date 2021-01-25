@@ -1,0 +1,71 @@
+---
+title: "mirror in a sentence | mirror example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mirror"
+---
+- Do you have a `mirror`?
+- The `mirror` is broken.
+- Look in a `mirror`, bozo.
+- Did you bring ze `mirror`?
+- The `mirror` -- it's broken.
+- Of the woman in the `mirror`.
+- Give me the god damn `mirror`!
+- Put your face in the `mirror`.
+- I'm afraida look inna `mirror`.
+- You block the rearview `mirror`.
+- But i'm the woman in the `mirror`!
+- He's got a `mirror` in every room.
+- Yo, rocky -- look at this `mirror`.
+- Looking at myself in the `mirror`.
+- I prefer to think of it as a `mirror`.
+- Jackie, will you hand me the `mirror`?
+- Well, it's like looking in a `mirror`.
+- Look in the `mirror`, and see yourself.
+- I made him finally look in the `mirror`.
+- Pull the `mirror` down on the sun visor.
+- Look at your reflection in the `mirror`!!
+- You and your friends behind the `mirror`.
+- Didn't buy that `mirror` ball for nothin'.
+- `Mirror` man here is our electronics expert.
+- When i look in the `mirror` it looks like me.
+- ♪ the `mirror` of your dreams ♪ i... let's go.
+- We need something: a flare, a signal `mirror`.
+- Every day i look in the `mirror` and say, "what?
+- Slicing your arm open and punching the `mirror`.
+- Don't look in the `mirror` or you'll id yourself.
+- You ought to look at yourself in the `mirror`, man.
+- Look in the `mirror` before... you really mean that?
+- Did you ever look at your own eyeballs in a `mirror`.
+- Can you see the lesions on your chest in this `mirror`?
+- I wanna kill the friggin' moron who broke the `mirror`.
+- I'm only a `mirror` reflecting what i'm getting from you.
+- It's not like breaking a `mirror` bad luck, but it's bad.
+- Re- lieved yet still anxious, sorsha paces to a `mirror`.
+- In front of a little -- it's a bit... you want a `mirror`?
+- I'll catch him in the bathroom `mirror` touching his scars.
+- Because i can see something in the `mirror` that you cannot.
+- I'd like to kill the friggin' moron who broke this `mirror`.
+- Like a `mirror`, you see everything i have friends in sanctum.
+- Every time you see your face in the `mirror`-- would i want to?
+- Oh, that morning you looked in the `mirror` and saw a statesman!
+- So yesterday i looked in the `mirror` and she was doing it again.
+- I do some work up at the merrick `mirror` factory, or i used to...
+- I just saw it in the `mirror`, it doesn't look like my ass anymore.
+- It's ear-marked for `mirror` man and the sphinx... we'll take it...
+- So if you wanna throw bad looks somewhere, throw 'em at a `mirror`.
+- The `mirror`'s metaphor -- to show how her character's inwardly dead.
+- That's why you've been staring at yourself in the `mirror` ok, then.
+- But the small scenes, the fragments in the `mirror`: you remember them.
+- "for now we see but through a glass darkly..." he said he's a `mirror`.
+- He started reading "atlas shrugged," staring at himself in the `mirror`.
+- I stopped by the `mirror` factory today, you left quite a mess behind there.
+- Hey - that's `mirror` man ... and that's freb ... and tumbler ... and toby ...
+- Pretty soon i'm going to start checking the `mirror` to see if i'm turning green.
+- If you'll look in your `mirror`, when you are in a better temper- you'll know why.
+- It's an alt-azimuth design with one parabolic `mirror` and one secondary flat one.
+- Y'ever look at yoself in the `mirror` junior, youse uglier than a dick on a dog man.
+- They said that's not such a good idea, the shock alone could -- give me a `mirror`...
+- No... if we don't finish this job, how are we gonna look at ourselves in the `mirror`?
+- There are my balls hanging from the rearview `mirror` after she gets back from cincinnati.
+                 

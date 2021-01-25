@@ -1,0 +1,107 @@
+---
+title: "said in a sentence | said example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "said"
+---
+- A surprise, he `said`.
+- As you already `said`.
+- Barry `said` its done.
+- Because you `said` so.
+- ...cause you `said`...
+- Everything you `said`.
+- Exactly what i `said`.
+- Go upstairs i `said`!!
+- He really `said` that?
+- He `said` dyle did it!
+- He `said` he'd listen.
+- He `said` immediately.
+- He `said` i was right.
+- He `said` not to tell.
+- He `said` to tell you.
+- He `said` what i `said`!
+- I did what you `said`.
+- I have not `said` all.
+- I just `said` i would.
+- I know what he `said`.
+- I meant what i `said`.
+- I never `said` it was!
+- I `said` all the rest.
+- I `said`, be the last.
+- I `said` "doll-hairs."
+- I `said` give me time.
+- I `said`, "guess who?"
+- I `said` i'll drop it.
+- I `said`, it's coming.
+- I `said` knock it off!
+- I `said`, no, i'm not.
+- I `said` say it again.
+- I `said`, stop moving.
+- I `said` ten thousand.
+- I `said`, who's there?
+- I `said` you're fired.
+- Is that all he `said`?
+- Is that what i `said`?
+- I think i just `said`.
+- It `said` "fbi" on it.
+- It was as he `said`...
+- I've `said` i'm sorry.
+- Laura `said` we could.
+- Let him go, he `said`.
+- Like i `said`, schizo.
+- Mr. kaplan `said` bus.
+- No, an arm, he `said`.
+- Nobody ever `said` it.
+- Oh, he `said` rim job.
+- Put it down, i `said`!
+- `Said` i looked funny.
+- That's what he `said`.
+- That's what it `said`.
+- That's what we `said`.
+- That�s what he `said`.
+- Then do like i `said`.
+- They `said` "namings."
+- They `said` you would.
+- Well -- i `said` that.
+- Well, you `said` that.
+- Where is he, i `said`.
+- Wonder what he `said`.
+- You `said` i couldn't.
+- You `said` it, mister.
+- You `said` it, not me.
+- You `said` last night.
+- He `said`, "oh no!"
+- I `said` we didn't.
+- -- like you `said`.
+- Anything they `said`...
+- But stoltzfus `said`...
+- Cole `said` she was 17.
+- en do what i `said`.
+- He `said` - be careful.
+- He `said`, "get a job."
+- He `said` he'd fire me.
+- He `said` he'd kill me.
+- He `said` he'd see you.
+- He `said`... what wife?
+- He `said` you say that!
+- He `said` you told him.
+- He `said` you were gay?
+- I already `said` hello.
+- I never `said` a thing.
+- I never `said` help us!
+- I `said` a clean break.
+- I `said`, are you hurt?
+- I `said`: are you sure?
+- I `said` bring them in.
+- I `said` drown 'em all!
+- I `said` i didn't care.
+- I `said`: i don't know.
+- I `said` i'm not lying.
+- I `said` i think it is.
+- I `said` i was sorry...
+- I `said`, let her pass.
+- I `said` no such thing.
+- I `said` not as a rule.
+- I `said` open the door.
+- I `said` pass the ball!
+                 

@@ -1,0 +1,107 @@
+---
+title: "afternoon in a sentence | afternoon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "afternoon"
+---
+- Yes, this `afternoon`.
+- About this `afternoon`.
+- Got a busy `afternoon`?
+- Be here all `afternoon`.
+- Good `afternoon`, bobby.
+- Good `afternoon`, enola.
+- Good `afternoon` to you.
+- Good `afternoon`, ladies.
+- Good `afternoon`, mrs...?
+- Good `afternoon`, clayton.
+- Good `afternoon`, officer.
+- She quit this `afternoon`.
+- Late `afternoon` is better.
+- Good `afternoon`, mr. cross.
+- He took the `afternoon` off.
+- It's one in the `afternoon`.
+- I was here this `afternoon`.
+- Good `afternoon`, mr. bailey.
+- Good `afternoon`, mr. harris.
+- Good `afternoon`, mr. parker.
+- Good `afternoon`, mr. kaplan.
+- Not till saturday `afternoon`.
+- This `afternoon` at the party.
+- Good `afternoon`, mr. campbell.
+- Thumper had a busy `afternoon`.
+- We rode around all `afternoon`.
+- Where were you all `afternoon`?
+- Good `afternoon`... ... shirley.
+- I'm seeing him this `afternoon`.
+- What do i have this `afternoon`?
+- You're around every `afternoon`?
+- I made your bed this `afternoon`.
+- Talked to her this `afternoon`...
+- You'll meet him this `afternoon`.
+- You spend the `afternoon` in bed?
+- ...to the office this `afternoon`.
+- I'm talking about this `afternoon`.
+- It had nothing on this `afternoon`.
+- It's in all the `afternoon` papers.
+- Makes me sleepy in the `afternoon`.
+- This `afternoon` - at four o'clock.
+- I do apologize for this `afternoon`.
+- Jack... good `afternoon`, mr brumby.
+- This `afternoon` before i came here.
+- What do people do in the `afternoon`?
+- During the `afternoon` i read a novel.
+- For intruding on you this `afternoon`.
+- I'm trying to prolong our `afternoon`.
+- Listen, james, about this `afternoon`.
+- Mr. curtis called us this `afternoon`.
+- The bandages came of this `afternoon`.
+- Get me to new orleans this `afternoon`.
+- Good `afternoon`-- sooner--if you like.
+- He came by the garage this `afternoon`.
+- I'll be out this `afternoon`, remember?
+- I'll drop 'em off tomorrow `afternoon`.
+- Besides, it's twelve in the `afternoon`.
+- Can you watch the kids this `afternoon`?
+- For defending my honor this `afternoon`.
+- I went into their room this `afternoon`.
+- We'll be able to start this `afternoon`.
+- At least i watched "dog day `afternoon`!"
+- Hey, what would you do in the `afternoon`?
+- I almost had to yoke him this `afternoon`.
+- I gave it to berthier... this `afternoon`.
+- I shouldn't even be here this `afternoon`.
+- What's your mother doing this `afternoon`?
+- How free is your schedule this `afternoon`?
+- I got an interesting call this `afternoon`.
+- I'm goin' up to baltimore this `afternoon`.
+- This `afternoon`, about four, five o'clock.
+- Yeah, well it's fucking monday `afternoon`.
+- Your check as cashed yesterday `afternoon`.
+- She only got to the hotel this `afternoon`,.
+- You... as of three o'clock this `afternoon`.
+- You'll be on the 3:50 wednesday `afternoon`.
+- Didn't they catch the shark this `afternoon`?
+- Thompson's going to try cia this `afternoon`.
+- God, i hate falling asleep in the `afternoon`.
+- I'm sorry about being a jerk this `afternoon`.
+- I've been trying to reach you all `afternoon`.
+- Shall we say two o'clock tomorrow `afternoon`?
+- We're expecting brown this `afternoon`, ma'am.
+- You and i can't - i'll leave this `afternoon`.
+- By the way, there's a meeting this `afternoon`.
+- Got me an `afternoon` job at the shirt factory.
+- That guy sailor came around this `afternoon`...
+- That same `afternoon`, julia telephoned to him.
+- That sulky boy was here again this `afternoon`.
+- Tonight, but i'll be back tomorrow `afternoon`.
+- Um, so, we have the whole `afternoon` together.
+- We had a party here this `afternoon` for cathy.
+- Wow, we built a whole float in one `afternoon`.
+- I'll leave from the office tomorrow `afternoon`.
+- Maybe he took the `afternoon` off and went home.
+- So the rites will be performed this `afternoon`.
+- That phone call this `afternoon` was the signal.
+- Freud psychoanalyzed patients in one `afternoon`.
+- Gee, i'll sit out this `afternoon`'s coffee talk.
+- Good morning -- or should i say good `afternoon`?
+                 

@@ -1,0 +1,107 @@
+---
+title: "trap in a sentence | trap example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trap"
+---
+- It had to be a `trap`.
+- Me or the bear `trap`?
+- The summit's a `trap`.
+- Before the bear `trap`.
+- Bellamy, it's a `trap`!
+- Could this be a `trap`?
+- It's a `trap`, i agree.
+- This could be a `trap`.
+- You know it's a `trap`.
+- He is here to `trap` us.
+- Hurry up on that `trap`.
+- She hopes it's a `trap`.
+- Where's the `trap` door?
+- The visions were a `trap`.
+- I'm laying a spring `trap`!
+- What if it's another `trap`?
+- Get going on the `trap` door.
+- Leading us to another `trap`?
+- Yeah, but... - it's a `trap`.
+- But it's not about the `trap`.
+- See that `trap` door up there?
+- They're walking into a `trap`.
+- You know it's a `trap`, right?
+- It might be a `trap`... look...
+- Little rabbit `trap` like this?
+- This is one giant death `trap`.
+- This woman was a `trap` for you.
+- We'll have to `trap` it somehow.
+- And-- - don't step on the `trap`.
+- Rattle- `trap` pieces of garbage.
+- She's leading them into a `trap`.
+- Being rich is <u>not a `trap`</u>.
+- How do i know this isn't a `trap`?
+- I need to tell them it's a `trap`.
+- Maybe this is all a `trap` was it?
+- Now you've fallen into his `trap`.
+- Some sort of ancient booby-`trap`.
+- I can dig out of the slicer `trap`.
+- Sure�sure�i'll keep my `trap` shut.
+- You underestimate the `trap`, mary.
+- He taught me how to hunt and `trap`.
+- I'm going to throw in my `trap` now.
+- It all reeks of a burgundian `trap`!
+- We gonna `trap` ourselves a snowman?
+- I asked you to keep your `trap` shut!
+- Like that merchant-ivory clap-`trap`.
+- It feels wrong, jack... like a `trap`.
+- The only chance we have to `trap` him.
+- I rigged the `trap` with, uh, now what?
+- It was a `trap`, and you were the bait!
+- She wouldn't let and not into a `trap`?
+- All we have is a japanese beetle `trap`.
+- But i wouldn't call them a death `trap`.
+- You'll keep your `trap` shut, all right.
+- Flesh is a `trap` and magic sets us free.
+- What if it's a `trap` and pike's waiting?
+- Did you see how they fell into our `trap`?
+- Meant to ask you- the railroad car `trap`.
+- Well, mom's dead, so shut your fly `trap`.
+- Lord vader has set a `trap` for him and ...
+- They set a `trap` they actually set a `trap`.
+- But if it is a `trap` then why are we going?
+- I do the talking; you keep your `trap` shut.
+- So we need you to bait the `trap` with these.
+- There's more than one way to spring a `trap`.
+- Marcus, he could be leading you into a `trap`.
+- When you bait the `trap`, the mouse will snap.
+- But did you ever consider it might be a `trap`?
+- If it is a `trap`, i'm not marching surprise me.
+- Just like rita's visions were a `trap` at verdun.
+- The best way to `trap` a fox is through her cubs.
+- They will set the `trap` at thirty minutes to ten.
+- Or maybe it will `trap` me inside for all eternity.
+- They just found out those things are a death `trap`.
+- We could learn a thing or two from this flea `trap`.
+- You don't `trap` something you think is already dead.
+- Just keep your lying, heathenous `trap` shut, jeremiah.
+- I think i liked you better when you kept your `trap` shut.
+- [flies buzzing] i do have this handy-dandy little `trap` here.
+- That's the `trap` some son of a bitch is going to fall into...
+- Sometimes, a persona can just... it becomes a `trap`, you know?
+- I'm not getting caught in a miniature sand `trap` with that guy.
+- They had no business- it won't work, he'll know it's a `trap`...
+- He diverted attention, exposed ryuji's `trap`.. we'll let you go.
+- If it was a `trap`, why flip their dicks by announcing themselves?
+- I don't know... even this poster... could be some sort of `trap`.
+- That don't justify trying to `trap` a boy by getting pregnant, lynette!
+- We'll leave a trail back to 1012 and try to `trap` the monster in here.
+- Collins can be a pretty crafty guy, what do i do if he smells the `trap`.
+- Simply because he eluded your `trap`, do you think he is more than a man?
+- We thought there might be a brain on p. bugs laid a `trap`, didn't they ?
+- That's also where mr. barnes lost his arms to mathew grimes' booby� `trap`.
+- The men here used it for a `trap` door, so we had to remove it temporarily.
+- We'd better seal off the lower maintenance level; at least `trap` it there.
+- At least we know how those conditions not much of a `trap` without the bait.
+- He fought his way through the `trap` and carried her body to a secret place!
+- I always think everything could be a `trap` -- which is why i'm still alive.
+- Get online with low, inform him of zero's route -- we'll set a `trap` for him.
+- Gotta ask you this, though: for all our sakes, you better keep your `trap` shut.
+- Now remember... the first step in avoiding a `trap` is knowing of its existence.
+                 

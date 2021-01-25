@@ -1,0 +1,54 @@
+---
+title: "warrant in a sentence | warrant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "warrant"
+---
+- You got the `warrant`?
+- Did you see a `warrant`?
+- I ain't got a `warrant`.
+- I have my own `warrant`.
+- Not without a `warrant`.
+- Arrest without `warrant`.
+- Have you got a `warrant`?
+- I didn't see a `warrant`.
+- I've got a `warrant` out.
+- Killaine has a `warrant`.
+- Who sought the `warrant`?
+- You better have a `warrant`.
+- You got a `warrant` for this?
+- I could get a search `warrant`.
+- Have you got a search `warrant`?
+- I have a `warrant` for her arrest.
+- Traffic tickets gone to `warrant`.
+- We can get a `warrant` if you like.
+- We have a `warrant` for your arrest.
+- That's the requirement for the `warrant`.
+- We don't need a `warrant` if it's a riot.
+- What could he have done to `warrant` that?
+- But i'd need a `warrant` for that, won't i?
+- The good doctor signed our death `warrant`.
+- You kill me, you sign your death `warrant`.
+- No cop can come in here without a `warrant`.
+- When did harp say they'd have the `warrant`?
+- You just signed your death `warrant`, simpson.
+- We'll raid the ace the moment we get a `warrant`.
+- No, monsieur varlac, my `warrant` is only for you.
+- Think you've got enough for a search `warrant` now?
+- I have a `warrant` in my pocket that says different.
+- Just as soon as you get yourself a search `warrant`.
+- I don't really think you `warrant` that strong an emotion.
+- This is chief `warrant` officer phillips -- it's his boat.
+- We didn't even need a `warrant` for most of the shit we did.
+- Uh... excuse me, but don't you need a `warrant` or something?
+- By the time we clear a `warrant` someone else is going to be dead.
+- Call the palmdale city attorney for a telephonic search `warrant`.
+- Personal correspondence... we have a search `warrant`, mr. wigand.
+- Make your mind easy, you shall not be left behind, i `warrant` you.
+- You pay me ten dollars, you can go inside otherwise, get a `warrant`.
+- When you get the `warrant`, have mikkelson and dreyer search his house.
+- Suppose i wanted to search the cabins, all twelve... would i need a `warrant`?
+- I have the right to make you wait here with ray while i go get a `warrant`.
+- You mean, besides the `warrant` out on us for blowing up our commanding officer?
+- It looks like we're going to be getting a `warrant` to speak with miss prescott anyway.
+                 

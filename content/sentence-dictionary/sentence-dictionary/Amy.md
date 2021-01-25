@@ -1,0 +1,72 @@
+---
+title: "Amy in a sentence | Amy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Amy"
+---
+- "to daddy from `amy`."
+- I can't tell you, `amy`.
+- Off with you now, `amy`.
+- You're not takin' `amy`.
+- `Amy`, not that old tree!
+- `Amy`'s been lying again.
+- Who's this one for, `amy`?
+- I thought `amy` was calling.
+- `Amy`, there's nothing there.
+- `Amy`�s not good at drinking.
+- I thought you were with `amy`.
+- Just do it, `amy`, please, go.
+- Oh, it isn't your fault, `amy`.
+- We have to be realistic, `amy`.
+- A merry christmas to you, `amy`.
+- But where did you get it, `amy`?
+- `Amy` never came back last night.
+- Take the gun and go into `amy`'s.
+- If not for me, at least for `amy`.
+- `Amy` and i made them out together.
+- I'm not laurie, or `amy`, or becky.
+- `Amy` presumed i�d forget the rings.
+- The good part was, i had `amy` back.
+- This one says, "to mother from `amy`."
+- About time for you to come home, `amy`.
+- It was only a slap -- all right, `amy`.
+- This one says, "to edward from `amy`.".
+- Aww, naw, `amy`, that won't be necessary.
+- `Amy` picked it off the top of that stack.
+- I don't like the winter, all right, `amy`.
+- Drunk isn�t the same thing as happy, `amy`.
+- Edward will give you your breakfast, `amy`.
+- `Amy` has too many fancies -- too few friends.
+- Now, i don't know `amy` -- let the child stay.
+- She pleaded so to do it and `amy` mailed them?
+- You're just as nice as `amy` told me you were.
+- But, `amy`, that was just a story; it wasn't real.
+- `Amy` was lonely; she was desperate for friendship.
+- Getting the yard all fixed up for your party, `amy`.
+- I just met `amy` and she pointed out where you live.
+- Tell `amy`, i love her painting, it's on my wall.
+- Lois huggins says that's proper, oh, thank you, `amy`.
+- `Amy`... what was i supposed to think happened to you?!
+- `Amy` wasn�t just jealous...she was sad and lonely.
+- I've left `amy` in the car and she's getting impatient.
+- `Amy`, i thought you were doing that piece on the f.b.i.
+- Did `amy` tell you she keeps her homecoming tiara by the bed?
+- Yeah, she's with that cocksucker again... and they got `amy`.
+- Well, ma'am, the truth is, i gave them to `amy` hersolf to post.
+- It has so much to do with `amy` � although he'll never realize it.
+- All i have to do is look at `amy`'s eyes, blue and deep like yours.
+- `Amy`, you remember the party invitations edward, gave you to mail?
+- Darling, no father could be nicer to a child than you are to `amy`.
+- John levy, staff, and `amy` cain, press off.... who we got here...?
+- Of all the irresponsible... `amy`, take this down: dear miss archer.
+- ...ginger's missing and she tied `amy` up and she locked her in her room.
+- Once the emptiness in `amy`'s life is filled, the dream will go of itself.
+- Oh, i like the sound of that.., `amy` and her friend... `amy` and her friend.
+- `Amy` slapped donald because he had hurt the butterfly -- and it was her friend.
+- Hello, `amy` -- was it -- i thought she said, mamie -- for pete's sake, norville!
+- </pre><pre> `amy` well... .sometimes i got a spoonful of tea in a cup of hot milk.
+- I'm sure i -- ...well, you know me, `amy`, at least better than that that dame does.
+- ...uh-uh-uh - i'm not gonna ask you where you are, just please, put `amy` on a plane.
+- This must be a friendship that only we shall have... you and i... `amy` and her friend.
+- ...you son of a -- consider this my resignation -- now, `amy` -- worked in a watch factory?
+                 

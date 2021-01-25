@@ -1,0 +1,107 @@
+---
+title: "return in a sentence | return example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "return"
+---
+- `Return` to your seat!
+- For lamagra's `return`.
+- `Return` to main quest.
+- `Return` to washington.
+- The puppy with `return`.
+- `Return` to our own time?
+- I can `return` everything.
+- I'll `return` it tomorrow.
+- We offer ours in `return`.
+- What do i get in `return`?
+- Can you `return` the hopes?
+- Can you `return` the trust?
+- I'll `return` your estates.
+- Singer's `return` from war.
+- We demand life in `return`.
+- When will strader `return`?
+- The blood will not `return`.
+- This speaks of his `return`.
+- You don't `return` my calls.
+- `Return` to ship immediately.
+- So what do i get in `return`?
+- To prepare for your `return`.
+- As lechter will `return` back.
+- God promises we will `return`.
+- I have no body to `return` to.
+- Wait for the buck to `return`?
+- I'll `return` to finish ...
+- None who go there `return`.
+- Come, let's `return` to dinner.
+- Lock phasers and `return` fire!
+- Pilgrims `return` from etherea.
+- To celebrate misery's `return`.
+- When you `return` to your room.
+- I'll `return` in a little while.
+- Let your light `return` upon us.
+- Priya's `return` blesses us all.
+- We must `return` to our village.
+- But i need something in `return`.
+- I will be here when you `return`.
+- We have to `return` the van soon.
+- When is she supposed to `return`?
+- I just need one thing in `return`.
+- I wish i could `return` the favor.
+- "priya's `return` blesses us all"?
+- We will `return` with a shrubbery.
+- Care to do me a favor in `return`?
+- I have to `return` some videotapes.
+- I want to `return` this comic book.
+- `Return` him to his rightful place.
+- This is a gift you'll not `return`.
+- You must `return` it to the depths.
+- Free your mind and `return` he will.
+- Now she can `return` the compliment.
+- People won't even `return` my calls.
+- Promise to `return` him to his ship.
+- With just one life in `return`, hmm?
+- You may `return` to your embroidery.
+- Your eyesight will `return` in time.
+- Could someday `return` to the ground.
+- Let's make "the `return` of dracula"!
+- Mr. sim i want you to `return` to dr.
+- She won't `return` my calls or texts.
+- The gods will never let you `return`.
+- You just simply `return` what's mine.
+- All we'd ask for in `return` is peace.
+- Of course, you could `return` with us.
+- Of your desire to `return` to reality.
+- `Return` to your quarters immediately.
+- Sorry i can't `return` the compliment.
+- This is about investment and `return`.
+- All of your gods will `return` tonight.
+- Will the dead ever `return`, freya?
+- Do <u>not</u> `return` scan, mr. spock!
+- Only if you promise not to `return` me.
+- Our people will `return` to the ground.
+- She will `return`, won't she, sherlock?
+- We've reached the point of no `return`?
+- But what does the lady want in `return`?
+- I beep you - you don't `return` my call.
+- I... came back to `return` your bracelet.
+- We were expecting you to `return` by six.
+- Some service deserves service in `return`.
+- The red sun alarm on the day you `return`.
+- You're going to `return` every cent of it!
+- We're getting married when we `return`.
+- But if i have to `return`, you're finished.
+- Captain, shall we attempt to `return` fire?
+- I'm all right -- stand by to `return` fire!
+- The balloon failed to `return` to the fair.
+- Tonight we `return` once again to the cave.
+- He floated away, far away, never to `return`.
+- `Return` it to me when we are together again.
+- You have leave to `return` to philadelphia...
+- I shan't tell this story when i `return` home.
+- Perhaps you think no man would `return` to me.
+- There's no `return` address on the envelope...
+- The "triumphant `return` of dj rob gordon?"
+- Do you have plans to `return` soon, dalai lama?
+- I'm waiting for him to `return` with the flame.
+- I wish you to `return` immediately to salzburg.
+                 

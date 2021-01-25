@@ -1,0 +1,107 @@
+---
+title: "escape in a sentence | escape example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "escape"
+---
+- He failed to `escape`.
+- He'll not `escape` me.
+- "a chance to `escape`."
+- She helped me `escape`.
+- Ryker helped him `escape`.
+- We'll cover your `escape`!
+- His only `escape` may be...
+- I can't help them `escape`.
+- He cannot possibly `escape`.
+- There isn't an `escape` pod.
+- Why would i try to `escape`?
+- You want to `escape`, right?
+- Ok. you helped kane `escape`?
+- Suppose you help us `escape`.
+- Want to `escape` for a while?
+- You can't `escape` like this.
+- One of us has got to `escape`.
+- How did you manage to `escape`?
+- I'm here for the `escape` room.
+- 'cause i'd be crazy to `escape`!
+- Mrs. peel had a narrow `escape`.
+- And take us to the `escape` room.
+- But he had to `escape` the nazis.
+- Can't seem to `escape` you today.
+- Dreaming of the day i'd `escape`.
+- I've hacked into an `escape` pod.
+- They're not supposed to `escape`!
+- You cannot `escape` your destiny.
+- But how are you going to `escape`?
+- I allowed it to `escape` the city.
+- There is no way you will `escape`.
+- You're blocking the fire `escape`.
+- I offer an `escape` from suffering.
+- There's an `escape` pod, you idiot.
+- Then i'd guess you want to `escape`.
+- You can never `escape` what you did.
+- You got a fire `escape` or anything?
+- You helped him `escape`, didn't you?
+- He was dead, shot trying to `escape`.
+- They'll think i'm trying to `escape`.
+- Where did your brother `escape` from?
+- I'll get in through the fire `escape`.
+- Let's take her into an `escape` orbit.
+- No one's been able to `escape` it yet.
+- Terry's right, i'm the `escape` hatch.
+- He's never once attempted `escape`?
+- Can't `escape` what you were born into?
+- Put me right off any `escape` attempts.
+- They must have found a way to `escape`.
+- You can't `escape` from me that easily.
+- Congratulations on your daring `escape`.
+- Maybe we can hijack an `escape` shuttle.
+- The "immaculate `escape`" -- am i right?
+- We might as well die trying to `escape`.
+- I'm not sure we can `escape` our natures.
+- Isn't there an `escape` pod on this ship?
+- It's the most obvious solution: `escape`.
+- Maybe they did `escape` from outer space.
+- Things can get pretty wild... "`escape`"?
+- Those boys `escape` and giving them guns.
+- We need a distraction to `escape`, right?
+- I need time to think of a way to `escape`.
+- Once i find you again, how do we `escape`?
+- Or you may never `escape` this cave alive.
+- Sounds like a couple of `escape` shuttles.
+- This has turned into a brilliant `escape`!
+- To come up with the perfect `escape` plan.
+- Besides, we'll need that later to `escape`.
+- Not me, i need a clean room to `escape` it.
+- I even have a perfect `escape` plan for you.
+- All of his allowance money on `escape` rooms.
+- I told you that it wouldn't `escape` his eye.
+- Doesn't anybody ever `escape` from this place?
+- If you know how to `escape`, why don't you...?
+- ...less than a year to go, trying to `escape`.
+- I can not just step aside and let you `escape`.
+- I'll stay up here in case he tries to `escape`.
+- If we fail, she'll take the ship's `escape` pod.
+- Nonsense, i... no, no, this one didn't `escape`.
+- Perhaps they stole one of the `escape` shuttles.
+- She let it `escape` because she wants me to die.
+- I help him `escape`, but they've sealed the city.
+- But you have to find a way to `escape` that thing.
+- See if there could be any way for him to `escape`.
+- You want me to get a 130-year-old `escape` pod no.
+- All right, i'm gonna give you a chance to `escape`.
+- Listen, i'm the one help jack `escape` from prison.
+- Locks are a super important part of `escape` rooms.
+- Maybe if she thought of you as a means of `escape`.
+- That was a pretty good `escape` act at the station.
+- The transmission from the `escape` pod is complete.
+- An organized plan of `escape` must be devised first.
+- First of all, you will need it as an `escape` valve.
+- I keep hearing you helped a lot of jews to `escape`.
+- A little late to be thinking about `escape`, isn't it?
+- You guys, you guys, i think this is the `escape` room.
+- I came to this country to `escape` food-based violence.
+- That woman tried to `escape` and i did what i had to do.
+- Am i going mad or did the word "think" `escape` your lips?
+- Because one, you've bet ten thousand francs he'd `escape`.
+                 

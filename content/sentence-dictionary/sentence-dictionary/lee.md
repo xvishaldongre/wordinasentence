@@ -1,0 +1,107 @@
+---
+title: "lee in a sentence | lee example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lee"
+---
+- `Lee`, this one's on me.
+- Your assignment is `lee`.
+- Don't, `lee`--that's dead.
+- This is my calling, `lee`.
+- Trust you and harry `lee`.
+- Yes, sir... david `lee`...
+- `Lee`, you're no idiot.
+- `Lee` <u>harvey</u> oswald.
+- Me, harry `lee`, all of us.
+- Now that's bullshit, `lee`.
+- This wasn't my case, `lee`.
+- General `lee`, welcome back.
+- `Lee`, i'm in love with you.
+- This is april `lee`, auggie.
+- Do you have it in you, `lee`?
+- What's the matter, `lee`-`lee`?
+- Any last words, general `lee`?
+- Cathy `lee` crosby stayed here.
+- I'll look for it, daryll `lee`.
+- `Lee`" to rent the room, right?
+- You're `lee`'s american friend.
+- Don't be messing with me, `lee`.
+- `Lee`, i've missed you, brother.
+- So what do we do, general `lee`?
+- That is...chief inspector `lee`.
+- Tuck that shirt in, david `lee`.
+- Even robert e. `lee` was a loser.
+- I'll make a deal with you, `lee`.
+- `Lee`, she's wired... what is it?
+- You take care of yourself, `lee`.
+- I wanna see jamie `lee`'s breasts.
+- Let me make you a rich man, `lee`.
+- What's the matter with you, `lee`?
+- Don't be giving me attitude, `lee`.
+- It's daryll `lee` cullum, isn't it?
+- `Lee` a couple of blocks from here.
+- `Lee`, what the hell are you doing?
+- Oh...`lee`, you are my whole world.
+- Colonel `lee`, with your permission?
+- General `lee` is detained captain...
+- I know who you are, inspector `lee`.
+- Is that why you killed `lee` lother?
+- Let me see it... david `lee` morgan.
+- You're just like your father, `lee`.
+- `Lee` oswald was no ordinary soldier.
+- When do we see jamie `lee`'s breasts?
+- How do you think i'm doin' with `lee`?
+- They'll be anchored on the `lee` side.
+- You let linda `lee` die in chiba city.
+- How does `lee` know about these things?
+- Colonel charles `lee`... hounds and all.
+- Don't you be getting corny on me, `lee`.
+- Listen, mama... what is it, david `lee`?
+- Then let me run the show, general `lee`.
+- Face it, `lee`, she's playing both sides.
+- I'm sorry, `lee`, you never had a chance.
+- I thought it might be daryll `lee` cullum.
+- Stan `lee` couldn't think of a better one.
+- Because it was bruce `lee`'s fighting style.
+- If you don't want to... are you okay, `lee`?
+- I want to talk to the great inspector `lee`.
+- Ruined a brand-new pair of `lee` press- ons.
+- David `lee`, it's time for you to get to bed!
+- Do you talk to holly or `lee` behind my back?
+- Do-do-do you talk to holly, or `lee`, or what?
+- Don't take all day at that table, david `lee`.
+- If i had time for a courtship, `lee`, i would.
+- Get it straight, `lee` isn't into taking risks.
+- `Lee` walks over to elliot in the center aisle.
+- Hell, `lee`, you know my father died on the job.
+- I get it--`lee` lother have a hand in that, too?
+- Mr. shaw, did you ever meet `lee` harvey oswald?
+- Nathan `lee` morgan... what's your daddy's name?
+- The biggest movie you've ever dealt with, `lee`.
+- Have you been talking to holly or `lee` about us?
+- `Lee`, we just got a call from the harbor patrol.
+- This is master clive `lee` of the white hot palm.
+- James `lee`, you come in here and meet your daddy.
+- Come on, david `lee`, you and me'll do the loading.
+- Jamie `lee` was always the virgin in horror movies.
+- `Lee`, there was a bombing at the american embassy.
+- You know, `lee` wilkins came to hear me last night.
+- Jerry `lee` lewis, elvis, dinky doo and the don't's.
+- Take it easy, `lee`--no other woman'll ever get you.
+- I bet you could use a hot cup of coffee, nathan `lee`.
+- Your buddy, mr. `lee`, is on his way back to china.
+- Why would he leave a path as big as `lee` harvey oswald's?
+- Would you say this "leon" was actually `lee` harvey oswald?
+- Some of these people aren't worth your attention, `lee`-`lee`.
+- I think it must be something else that detains general `lee`.
+- The british are negotiating to make a trade for general `lee`.
+- It's lunchtime, and i wanna have a talk with you, nathan `lee`.
+- Congress is talking -- openly -- about replacing you with `lee`.
+- I've always thought `lee` was the one destined for great things.
+- You have to understand, `lee`-`lee`, well, maybe they're friendly.
+- Before i can do anything, i need `lee` and his seven thousand troops.
+- We gotta lotta men here... do you know my daddy, nathan `lee` morgan?
+- Harry `lee`, is here from virginia, recruiting for a continental army.
+- Maybe soon-- mama, when kin me and earl go to school with david `lee`?
+- Daryll `lee` cullum, he wrote that book, he wanted the lady to have it.
+                 

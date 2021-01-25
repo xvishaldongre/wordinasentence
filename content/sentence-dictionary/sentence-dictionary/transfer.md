@@ -1,0 +1,52 @@
+---
+title: "transfer in a sentence | transfer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "transfer"
+---
+- `Transfer` to jefferson.
+- `Transfer` to washington.
+- `Transfer` me, suspend me.
+- I can `transfer` it to you.
+- I'm doing a `transfer` now.
+- `Transfer` to a new prison.
+- I'm going to `transfer` you.
+- Shit, where's my `transfer`?!
+- A wire `transfer` of this size?
+- `Transfer` effective immediately.
+- It's connected by a `transfer` shaft.
+- Could you `transfer` me to mr. clarke?
+- Do you know what a wire `transfer` is?
+- Captain, can i put in for a `transfer`?
+- They might `transfer` to other guardians.
+- Did something go wrong with the `transfer`?
+- Or you willingly `transfer` your authority.
+- Am i to understand-- there was a `transfer`.
+- They money will be standard bank `transfer`.
+- But i needed you for the `transfer` with max.
+- Are you proposing to `transfer` command to me?
+- A patient pickup and `transfer` to smith's grove.
+- I'd like to accept the `transfer` - am i too late?
+- On the cervix `transfer`, you almost lost the t297.
+- She got fed-ex to give her a `transfer` and she left.
+- But can you do me a favor and pull a `transfer` order?
+- My hope is that he's either `transfer`, retire, or die.
+- Only thing they might do is `transfer` you to the bronx.
+- Once you control the ship, i will `transfer` my flag there.
+- You slipped on a t297 `transfer` just before lunch, didn't you?
+- Colonel, i didn't request this `transfer` because you're my father.
+- Couldn't be, i checked the `transfer` circuits, just like you said!
+- He's under close guard at the courthouse, pending a prison `transfer`.
+- The manager showed me the `transfer` notice with your signature on it.
+- So you and your buddies are gonna `transfer` your planes up to haleiwa.
+- C'mon... we've got to `transfer` those funds and get the hell out of here.
+- Every wire `transfer` gets rocketed through a series of multiple switches.
+- I've got 655321 on a `transfer` from parkmoor to the ludovico centre, sir!
+- Currency data so we can do optimum conversions at the moment of `transfer`.
+- Get life, do a little youth authority jolt, `transfer` to folsom a big man.
+- You could take a local, arrives in two hours, and `transfer` in albuquerque.
+- Mr. scott, `transfer` power to the phaser banks -- precautionary, mr. chekov.
+- All you've done for me, sir, working out the `transfer`, i did it to say thanks.
+- Yes... we can `transfer` over to the inner ear, and go by way of the endolymphatic duct.
+- They use an optical `transfer` ink from india that burns red -- the real ink burns black.
+                 

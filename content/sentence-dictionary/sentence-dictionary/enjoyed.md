@@ -1,0 +1,52 @@
+---
+title: "enjoyed in a sentence | enjoyed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "enjoyed"
+---
+- I really `enjoyed` it.
+- You `enjoyed` the girl?
+- I `enjoyed` it very much.
+- I've `enjoyed` being man.
+- But you `enjoyed` it, yes?
+- I `enjoyed` talking to you.
+- So, i `enjoyed` meeting you.
+- I've never `enjoyed` it more.
+- Well, i've `enjoyed` it, too.
+- I really kind of `enjoyed` it.
+- I `enjoyed` the play very much.
+- I hope you `enjoyed` your visit.
+- I've `enjoyed` working with you.
+- Hey, i really `enjoyed` your set.
+- I mean, he actually `enjoyed` it.
+- Well, i've certainly `enjoyed` it.
+- I always `enjoyed` models as a boy.
+- Well, i've `enjoyed` talking with you.
+- I haven't `enjoyed` mass this much in years.
+- I hope you've `enjoyed` this little charade.
+- I hoped your `enjoyed` yourself this evening.
+- I've worked very hard and `enjoyed` my life...
+- How long have you `enjoyed` madame's confidence?
+- I've killed, i've hunted, and i've `enjoyed` it.
+- I knew - i guess i got carried away `enjoyed` it?
+- I really think you would have `enjoyed` yourself.
+- Everyone seems so-- i `enjoyed` every minute of it.
+- He traveled most of the time, and `enjoyed` himself.
+- Talking to you... not at all, i `enjoyed` -- oh, yes!
+- What secretly helped me was i `enjoyed` killing strangers.
+- I have `enjoyed` the confidence of this family for more than forty years.
+- Uh, we just wanted to stop by and say that we really `enjoyed` your sets.
+- You have `enjoyed` the confidence of this family for more than forty years.
+- I `enjoyed` seeing the shock on their poor faces when they realized who i was.
+- M'sieu laval, i have `enjoyed` the confidence of this family-- i hope so, too.
+- The vatican is made of constant mysteries meant to be `enjoyed`, not explained.
+- We had to stop you and friedman meeting... well, i hope you `enjoyed` yourself.
+- Because nicky `enjoyed` being a gangster, and he didn't give a damn who knew it.
+- But at the end of the day, what matters is that we `enjoyed` lincoln, are you ok?
+- But i'll tell you something, until about five months ago, i really `enjoyed` my work.
+- Madame colet, i've `enjoyed` the confidence of your family for more than forty years.
+- But back then the bosses didn't give a fuck about whether he `enjoyed` himself of not.
+- I just thought i would tell you that i really `enjoyed` getting to know you this year.
+- Well, do you -- i mean, have you `enjoyed` all these... strange things you've been doing?
+- Well, you tell me which bit you liked most -- and i'll tell you if i `enjoyed` making it.
+                 

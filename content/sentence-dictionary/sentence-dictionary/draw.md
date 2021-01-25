@@ -1,0 +1,107 @@
+---
+title: "draw in a sentence | draw example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "draw"
+---
+- How do you `draw` now?
+- You don't `draw` shit.
+- I can `draw` you a map.
+- I don't like to `draw`.
+- I will `draw` his fire.
+- Cookie didn't `draw` it.
+- I had to `draw` them out.
+- Why did you `draw` these?
+- You `draw` first blood...
+- You gotta `draw` 'em out.
+- That would `draw` the eye.
+- `Draw` two for chasers.
+- We're going to `draw` blood.
+- What object should i `draw`?
+- Where do we `draw` the line?
+- Don't `draw` any conclusions.
+- You `draw` lines with pencil!
+- 10-meter `draw`, and i'm good.
+- But why `draw` it on the wall?
+- I want you to `draw` it to us.
+- Next waterhole's black `draw`.
+- Shall i `draw` your bath, sir?
+- You can't `draw` on the walls.
+- You can `draw` me to any death.
+- ♪ `draw` strength from your son.
+- Here, villain, `draw` and ready.
+- They `draw` the biggest titties.
+- You `draw` in lines with pencil.
+- I don't `draw` like that anymore.
+- I'm gonna `draw` that thing away.
+- We have to try and `draw` it off!
+- All right, we'll call it a `draw`.
+- Get him something to `draw` a map.
+- We have to `draw` out the cannons.
+- Do you want me to `draw` a picture?
+- They could `draw` them from memory.
+- How to `draw` out people's opinions.
+- 'in case of emergency, `draw` door.'
+- Like, you can't `draw` on the walls.
+- Did conrad `draw` on his imagination?
+- I'm here so he can `draw` my picture.
+- We were supposed to `draw` a picture.
+- I really couldn't `draw` my gun again.
+- Plant them next time, `draw` a charge.
+- `Draw` and drag the sequoia widow-maker.
+- Give time, they'll out `draw` the t-rex.
+- They `draw` it inside to take back home.
+- But it's just my face you want to `draw`.
+- `Draw` a five mile radius around gattaca.
+- If tatum sees you -- she'll `draw` blood.
+- I say we use the sky girl to `draw` fire.
+- Julian, `draw` a bath for this young man.
+- Oh - `draw` on my imagination, i suppose.
+- You mean -- you really want to `draw` me?
+- For the judgment of god shall `draw` near.
+- You rally think this'll `draw` the parent?
+- In the meantime, i'll `draw` up the papers.
+- We `draw` out 300 dollars every two weeks.]
+- But frontiers also `draw` another type of man.
+- He must let us `draw` the water from the well.
+- I could get us some markers and we can `draw`!
+- Win, lose or `draw` it will be on your record.
+- He'll `draw` every light from every goon tower.
+- I'll head for the suv, `draw` the mimics to me.
+- I'd `draw` my sword, and cut my way through them.
+- New faces are so much more interesting to `draw`.
+- We `draw` him in, pin him down, get what we need.
+- Why would i `draw` attention to myself like that?
+- ♪ any strength to `draw` the line ♪ almost got it.
+- How do you know how to `draw` the red line anyway?
+- You don't `draw` attention to yourself in any way.
+- But he's got five times the man-power to `draw` on.
+- I am now gonna ask your permission to `draw` blood.
+- I `draw` the line at seven un-returned phone calls.
+- Clearly meant to `draw` more of his supporters here.
+- You will `draw` no attention to yourself in any way.
+- As long as you `draw` breath, you can turn it around.
+- You're not worried the fire's gonna `draw` attention?
+- So we're going to set me up as bait to `draw` him out.
+- Do you always `draw` pictures of people you don't know?
+- I `draw` people with smiles, dogs running, and rainbows.
+- I need the guy who wouldn't let me i'll `draw` his fire.
+- We're going to `draw` a little bit of everybody's blood.
+- You could sculpt mountain ranges...`draw` with rainbows!
+- A million dollar hit fee will `draw` some huge flies.
+- Come sit beside me, sweet boy, and i'll `draw` you a map.
+- You pay me to go get guys like wigand, to `draw` him out.
+- What's he gonna do - `draw` <u>really scary cartoons</u>??
+- You said it would be interesting to see what i would `draw`.
+- Roger: now, that's a picture only charles addams could `draw`.
+- Shall we `draw` up the papers, or is our handshake good enough?
+- We set you loose, and you `draw` the disciples away from m-cap.
+- `Draw` chips for all these people so they can play on the house.
+- I've hardly published enough for anyone to `draw` conclusions from.
+- You don't want to `draw` pictures of me in my birthday suit, right?
+- No, you `draw` no secrets from me, as you drew them from jacqueline.
+- `Draw` chips for everybody in the room so they can play on the house.
+- If we get their attention... - maybe we can `draw` them from the lab.
+- The bird pretends to be injured to `draw` the fox away from its nest!
+- Then i'll write a book and `draw` the illustrations like a comic book.
+                 

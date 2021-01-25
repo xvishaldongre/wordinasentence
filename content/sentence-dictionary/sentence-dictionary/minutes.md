@@ -1,0 +1,107 @@
+---
+title: "minutes in a sentence | minutes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "minutes"
+---
+- Fifteen `minutes` ago.
+- `Minutes` flight time.
+- N'about ten `minutes`.
+- Nine... ten `minutes`.
+- Roughly ten `minutes`.
+- Three `minutes` to go!
+- Twenty five `minutes`.
+- Two `minutes`, dudley.
+- Two `minutes`, people.
+- Two `minutes` to drop.
+- We have two `minutes`.
+- You got ten `minutes`.
+- You have 20 `minutes`.
+- 12 `minutes` to impact.
+- 2.5 `minutes` to spare.
+- About thirty `minutes`.
+- About twenty `minutes`.
+- Check at six `minutes`.
+- Give me five `minutes`.
+- It's been 19 `minutes`.
+- It's been 30 `minutes`.
+- May be a few `minutes`.
+- Raven... two `minutes`.
+- So take five `minutes`!
+- Starts in 10 `minutes`.
+- You got five `minutes`.
+- You have six `minutes`.
+- You've got 5 `minutes`.
+- 4 `minutes`, 10 seconds.
+- By about five `minutes`.
+- Dinner in ten `minutes`.
+- Here -- three `minutes`.
+- I'll be a few `minutes`.
+- In about five `minutes`.
+- Two `minutes` to impact.
+- We don't have `minutes`.
+- You got three `minutes`.
+- 10-4, in a few `minutes`.
+- 20 `minutes` ago, thanks.
+- 2 `minutes`, .12 seconds.
+- 80 or 90 `minutes`, tops.
+- Give me twenty `minutes`.
+- Give you three `minutes`.
+- In the next 15 `minutes`.
+- In thirty-five `minutes`.
+- It's just five `minutes`.
+- Just a few `minutes` ago.
+- Just for a few `minutes`.
+- Just for a few `minutes`?
+- Make it thirty `minutes`.
+- Thirty `minutes` maximum.
+- Thirty `minutes` or less.
+- Two and a half `minutes`.
+- ...within five `minutes`.
+- You got thirty `minutes`.
+- You said three `minutes`.
+- Counter's at 10 `minutes`.
+- Five and a half `minutes`.
+- Forty-two `minutes` ahead.
+- I have ten `minutes` left.
+- In the next two `minutes`?
+- It'll take five `minutes`.
+- Just a few more `minutes`.
+- Just five `minutes`, okay?
+- Left twenty `minutes` ago.
+- `Minutes` to shell access.
+- Only forty `minutes` late.
+- She le 5 `minutes` ago.
+- Takes maybe two `minutes`.
+- Then we have 30 `minutes`.
+- Thirty to forty `minutes`.
+- Two `minutes`, 35 seconds.
+- We open in five `minutes`.
+- What about "60 `minutes`."
+- You've got five `minutes`.
+- 4 `minutes` and 10 seconds.
+- I just need five `minutes`.
+- In about fifteen `minutes`.
+- I only want five `minutes`!
+- It's a tough two `minutes`.
+- Less than thirty `minutes`.
+- `Minutes` for the takedown.
+- Ten, fifteen `minutes` ago.
+- The past fifteen `minutes`.
+- Three `minutes`, no sooner.
+- Three `minutes`, no sooner.
+- Two `minutes`, ten seconds.
+- You gave me five `minutes`.
+- A few `minutes`, maybe more.
+- "fifteen `minutes` of fame?"
+- I did that 10 `minutes` ago.
+- I shall count the `minutes`.
+- Is it fifteen `minutes` yet?
+- It'll kill twenty `minutes`.
+- Maybe thirty more `minutes`.
+- See you in a few `minutes`.
+- Thirty-two `minutes` left...
+- Be back here in 30 `minutes`.
+- Bridge closes in 5 `minutes`.
+- Fifteen `minutes` ain't long.
+                 

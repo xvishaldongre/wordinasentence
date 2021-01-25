@@ -1,0 +1,107 @@
+---
+title: "court in a sentence | court example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "court"
+---
+- It goes to `court` now.
+- Meaning, to `court`'sy.
+- My `court`, i go first.
+- You know diane `court`?
+- She drove me to `court`.
+- Not in `court` you can't.
+- That's a `court`-martial.
+- This `court` is adjourned.
+- You belong on the `court`.
+- I was slandered in `court`.
+- They call it "the `court`".
+- Face a `court`- martial?
+- Diane `court` is a showpony.
+- John murphy, `court` jester.
+- See you in `court` some day.
+- Why not just attack `court`?
+- After a `court` convicts him.
+- Ball's in your `court`, hunt.
+- Delightful, `court` composer.
+- That i'll see him in `court`.
+- The `court` gave you justice.
+- They've set the `court` date.
+- Are we going to go to `court`?
+- I went to `court` to kill him.
+- That's why the `court` exists.
+- Your `court` order, dr. allen.
+- Force me to testify in `court`.
+- Good morning, `court` composer.
+- Cattivo again, `court` composer.
+- Have you petitioned the `court`?
+- It would look better in `court`.
+- Not to mention `court` reynolds.
+- We'll save the `court` the time.
+- We play in my `court` this time.
+- You please me, `court` composer.
+- You're 'sposed to be in `court`.
+- You sure they said food `court`?
+- I followed you here from `court`.
+- I'll see you in fucking `court`!!
+- The ball is in richter's `court`.
+- Well, where do they hold `court`?
+- If i want to, i can go to `court`.
+- I see you go to the night `court`.
+- You are cattivo, `court` composer.
+- Ball's in your `court`, mr. mccloy.
+- Try and get it in a `court` of law.
+- Can you give the `court` an example?
+- Tell the `court` about that, please.
+- They're hauling misery into `court`.
+- Had a `court` martial and everything.
+- He was convicted in a `court` of law.
+- Let's give key lime a day in `court`.
+- Four cases before the circuit `court`.
+- Fuck you so speaks the `court` jester.
+- Jim `court`... no, this is her father.
+- You're going to settle out of `court`?
+- No, mr. dowd, you'll see me in `court`.
+- Right around here, in the food `court`.
+- Stick to what you can prove in `court`.
+- They'll go to the supreme `court` next.
+- They wanted this cleared up in `court`.
+- Any `court` in the land would understand.
+- No -- we don't want this case in `court`.
+- We had a `court`-martial in your absence.
+- We never met in `court` or anyplace else.
+- We're trying to get a quick `court` date.
+- You just have to get back on the `court`.
+- All the men at `court` are without poetry.
+- Have you ever wanted to go to the `court`?
+- I'm going to take out diane `court` again.
+- The matter has been settled out of `court`.
+- I should know, the probate is in my `court`.
+- I was not born a `court` composer, you know.
+- This man's scared to death to go to `court`.
+- I've got to give evidence in `court` at nine.
+- I was going to clerk for the supreme `court`.
+- No questions, no `court` appearance, nothing.
+- Are you disrespecting this `court`, mr. white?
+- It looks like your going to have a new `court`.
+- Oh, can we make a pit stop at the food `court`?
+- You see, i was trying to `court` miss angstrom.
+- Diane `court` doesn't go out with guys like you.
+- ...no... ...you want to see the `court` records?
+- Out-cog-nate every homey on the `court` of life.
+- We're getting a `court` order to exhume to body.
+- You belong here, my boy, not the snobby `court`.
+- You should have proved that in a `court` of law.
+- Massachusetts supreme judicial `court` rule 3:03.
+- A consortium of `court` street lawyers and judges.
+- Did you ever see a 14-year-old testify in `court`?
+- I don't think you understand me, `court` composer.
+- Unfortunately, sir, i will see you all in `court`.
+- You were no-filed this morning in circuit `court`.
+- The `court` doesn't exist to give them justice, eh?
+- Congress is pushing ahead with your `court`-martial.
+- It's my head, schwartz, and i'll see you in `court`!
+- My attorney should have brought that our in `court`.
+- Thanks to you, not one fat cat saw a day in `court`.
+- We're going to get `court` martialed, you know that.
+- I did get to argue a case before the supreme `court`.
+                 

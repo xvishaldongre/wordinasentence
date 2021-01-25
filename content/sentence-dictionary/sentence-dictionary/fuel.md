@@ -1,0 +1,74 @@
+---
+title: "fuel in a sentence | fuel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fuel"
+---
+- It's just `fuel` to me.
+- We need all our `fuel`.
+- We're near out of `fuel`.
+- You forgot the `fuel` dump.
+- Means they must have `fuel`.
+- We provide the reactor `fuel`.
+- What if it's the wrong `fuel`?
+- Which means they carry `fuel`.
+- Rocket `fuel` likes to go boom.
+- We already got the `fuel`, man.
+- Could use a dash more jet `fuel`.
+- They can't reduce nuclear `fuel`.
+- Thing is, i'm about out of `fuel`.
+- We don't have the `fuel` for this.
+- And disable the cars' `fuel` cells.
+- Fumes build up in the `fuel` tanks.
+- That's a nuclear `fuel` cell, john.
+- The flamethrower needs more `fuel`.
+- Sounds like a `fuel` intake problem.
+- How much `fuel`'s left in this thing?
+- I think we've burned off enough `fuel`.
+- Speaking of feet, `fuel`'s down to 4.0.
+- `Fuel` injectors that burn people alive.
+- I don't have the `fuel` for this convoy.
+- Just across the bay, at the `fuel` depot.
+- _ wait, there’s roet `fuel` down there?
+- Trajectory coordinates and a `fuel` ratio...
+- You know, the heli's full of `fuel`, though.
+- Of the four left, only one is full of `fuel`.
+- You said there’s `fuel` in those roets, right?
+- It's pressed right up against the `fuel` pods.
+- Do we have enough `fuel` to make it back to earth?
+- It's pesticides, cleaning supplies, diesel `fuel`.
+- We pay your `fuel` costs up front plus ten percent.
+- We're losing `fuel` and my rudder's not responding.
+- You know what that'll do to our `fuel` consumption.
+- You've got enough `fuel` left for two hours flying.
+- Imagine having all that `fuel` there, waiting for us!
+- Bellamy, she worked on the `fuel` problem all morning.
+- Land the plane and we'll trade you hostages for `fuel`.
+- Your intentions are noble, but no diesel `fuel` for heat.
+- Tricks...jesus... we need `fuel`, and a couple automatics.
+- So, you just let us drive on knowing we were losing `fuel`?
+- Under impulse power she expends `fuel` like any other ship.
+- So those brave men are flying blind and running out of `fuel`.
+- To dump the `fuel` you have to close the circuit for the pump.
+- `Fuel` level 6.03..propulsion 2x4... how you doing this morning?
+- I got some `fuel` comin' out and, i hope, some automatic rifles.
+- Not to mention the potential hazards of your radioactive `fuel`.
+- I mean, can you imagine their faces just don't hit the `fuel` cell.
+- Their researchers have been blocked from testing a `fuel` additive.
+- But she left out the ones referring to the `fuel` dump at greenwich.
+- We'll be loaded with 2,000 pounds of bombs and 1,500 pounds of `fuel`.
+- Well i mean like they also took our `fuel` -- we've been here two days.
+- Personal experiences are what `fuel` the minds of great writers, rennie.
+- Except for last winter when the `fuel` bills kept going up and up and up.
+- Solid rocket `fuel` at twenty-five thousand kilograms... get a tricorder.
+- Okay, these water mages have `fuel` tanks on their backs, only everything.
+- They'll still be able to track us by radar, because of the radioactive `fuel`.
+- We've stopped dumping... but we've only got about twenty minutes of `fuel` left.
+- We could use some `fuel` -- just a half drum -- just enough to get us out a here.
+- They can't control the plane, their engines are failing and they're losing `fuel`.
+- There's some more combustible `fuel` down in the storage lockers next to the lounge.
+- You will get sixteen `fuel` bladders of crystal meth precursors from the malaysian ship.
+- The planes had to take off so early they may lack `fuel` to make the mainland anyway.
+- You wanna keep your job tomorrow, ♪ with all your faults ♪ ok. let's go find that `fuel`.
+- I think he was running a test on an old rocket engine... and one of the `fuel` cells burst.
+                 

@@ -1,0 +1,86 @@
+---
+title: "cancer in a sentence | cancer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cancer"
+---
+- He had `cancer`, john.
+- What kind of `cancer`?
+- Or a cure for `cancer`?
+- He says, "`cancer`!"
+- You don't want `cancer`?
+- `Cancer`, i-- like what?!
+- Did her `cancer` come back?
+- For good, `cancer`-merchant!
+- Candy-stripe a `cancer` ward.
+- It turned out to be `cancer`.
+- Because i don't want `cancer`.
+- Christoph had spinal `cancer`.
+- My mother had breast `cancer`.
+- Stage four pancreatic `cancer`.
+- I want ascending bowel `cancer`.
+- Want you does she have `cancer`?
+- "i get `cancer`, and i kill joe."
+- Exotic form of lymphatic `cancer`.
+- You won't die of `cancer`, laurie.
+- I didn't give you `cancer`, laurie.
+- Through anything, through `cancer`.
+- What was it, pneumonia or `cancer`?
+- He told me he was dying of `cancer`.
+- I have `cancer` and i'm dying, soon.
+- A cure for aids, a cure for `cancer`?
+- There's a `cancer` on the presidency.
+- Growing beneath us like some `cancer`.
+- See the guys with testicular `cancer`.
+- You'll get lip `cancer` smoking those.
+- So alan stanwyk does not have `cancer`.
+- I think `cancer`'s make the best lovers.
+- This -- like `cancer` with a purpose.
+- Gave his friends and associates `cancer`.
+- It's a picture of a `cancer`-ridden lung.
+- Rose's `cancer` has come back, hasn't it?
+- I mean, and you know what we do to `cancer`.
+- What about all those poor shits with `cancer`?
+- He's being treated for bone `cancer` at the v.a.
+- Jason's mother died of ovarian `cancer` in 1969.
+- She thinks she has `cancer` and is going to die.
+- I think testicular `cancer` should be no contest.
+- But he acts like he's curing `cancer` or something.
+- I know there's a history of `cancer` in the family.
+- I mean, you've got `cancer`, <u>this</u> is serious.
+- I've read they're using it to repair `cancer` cells.
+- Gimme a break -- how do we know they've got `cancer`?
+- Look, this is a bad time... like testicular `cancer`?
+- Billy's wife, lydia, died of `cancer` a few years ago.
+- Christ yes, i went in for a `cancer` scan first thing.
+- Well they found out cigarettes give you lung `cancer`.
+- Course, you get `cancer` and die, that's the down side.
+- The `cancer` came back, i'm afraid i fibbed about that.
+- He got `cancer` by chewing fluorescent bulb glass...?
+- Her favorite uncle it's a lung `cancer` issue number one.
+- Close to where the national `cancer` institute is located.
+- This was a support group for men with testicular `cancer`.
+- I mean, they got problems, but none of this `cancer` stuff.
+- I saw you at melanoma, tuberculosis and testicular `cancer`.
+- Yet you must've known all along that you'd give me `cancer`.
+- He - he - had a stroke- just before ellie died - of `cancer`.
+- If it's `cancer`, then the prognosis is... 'cause i, uh...
+- Guided meditation worked for `cancer`, it could work for this.
+- His mother died a few years later after a long bout with `cancer`.
+- That's a kind of `cancer` -- yeah, i'm real glad you brought that up.
+- You're about to get your head blown off, you're worried about `cancer`.
+- You thought he should be using it to cure `cancer`, not making millions.
+- They still have the lowest rate of `cancer` of anywhere in the world.
+- He smiles as you pay for your `cancer` sticks and says, "have a nice day."
+- That girl thinks she gave her mom `cancer` by dropping a plate on her hand.
+- You get `cancer`, your hair falls out, but you <u>do</u> get to smoke dope.
+- A rabbit replicates till it overloads a file, then it spreads like `cancer`.
+- You know the insides of those are filled with stuff that gives you `cancer`.
+- That's compared to, like, earthquakes in the far east or testicular `cancer`?
+- Well, from what this stuff says, i'd say they both have some form of `cancer`.
+- It's what they install in your throat when throat `cancer` takes your voice box.
+- They caught him examining her little tits for breast `cancer` in the faculty lounge.
+- Smoking causes lung `cancer`, heart disease, emphysema, and may complicate pregnancy.
+- Anyway, i've found a new guy who's gonna be able to instantly remove the `cancer`.
+- Slowly but surely, ultraviolet rays would pour in, increasing the risk of skin `cancer`.
+                 

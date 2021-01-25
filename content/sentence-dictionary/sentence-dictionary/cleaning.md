@@ -1,0 +1,66 @@
+---
+title: "cleaning in a sentence | cleaning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cleaning"
+---
+- I'm just `cleaning` it.
+- Is he `cleaning` house?
+- `Cleaning` a rock, otis?
+- I'm `cleaning` my stove.
+- Not `cleaning` the pool.
+- Beats `cleaning` carpets.
+- I'm `cleaning` the wound.
+- Paul i was `cleaning` it.
+- I'll do the `cleaning` up.
+- A fucking `cleaning` woman?
+- It's called dry `cleaning`.
+- Maintenance and `cleaning`.
+- A carpet `cleaning` company?
+- Maybe they're `cleaning` it.
+- To cope with your `cleaning`.
+- Did the `cleaning` woman come?
+- No -- i'm `cleaning` an attic.
+- You fired the `cleaning` woman?
+- I mean `cleaning` up, knee-deep.
+- That's how dry `cleaning` works.
+- For `cleaning` up oil spills.
+- You want some help `cleaning` up?
+- Dry `cleaning`--remember the name.
+- It's a carpet `cleaning` company...
+- That's for `cleaning` off road salt.
+- Are you `cleaning` sand from my ears?
+- It's just a carpet `cleaning` company.
+- Unless you plan on `cleaning` latrines.
+- It's not so easy `cleaning` up after me.
+- Ask roquier -- he's `cleaning` her dress.
+- Cause i'm tired, `cleaning` up after you.
+- That `cleaning` woman doesn't... go away.
+- 'cause if he were single, he'd be `cleaning` up.
+- I now have a hundred dollar dry `cleaning` bill.
+- Margarita found them while `cleaning` your room.
+- That was before he lost my carpet `cleaning` van.
+- Yeh, d. b. oh, just `cleaning` out the dead-wood.
+- Caesar was nervous, kept `cleaning` the apartment.
+- It's pesticides, `cleaning` supplies, diesel fuel.
+- The `cleaning` woman said they're at the dentist's.
+- Okay, well, you know, you are `cleaning` the sheets.
+- I know it must seem strange, for not `cleaning` her gun.
+- Finish your dinner, then finish `cleaning` those 'droids.'
+- He's got a dry `cleaning` business out on federal highway.
+- Mr. gibbs, organize a `cleaning` detail -- you and cotton.
+- I'm just `cleaning` out some of this stuff that's built up.
+- There's also a `cleaning` service that comes in once a week.
+- Thanks for `cleaning` my flat and sending my money, all right?...
+- I hope these dwarves are better at forging than they are `cleaning`.
+- I hope we have more success than we did with the `cleaning` service.
+- I know someone who saw walter matthau picking up his dry-`cleaning`.
+- This is *dry* `cleaning`, this is not some fly-by- night thing here!
+- Yeah, either that or they just went on a hell of a `cleaning` spree.
+- Because you lost my fucking carpet `cleaning` van and i don't like you.
+- As for you, ricky, your draw will go towards a new carpet `cleaning` van.
+- We each kick in a hundred a week for beer and `cleaning`, stuff like that.
+- We've dumped the whole data-base from one of the `cleaning` remotes into the helmet.
+- While you're `cleaning` up, i'll take this to the wardrobe mistress- they are lovely.
+- ... and i want you to start `cleaning` the equipment out of the scan- shielded compartments.
+                 

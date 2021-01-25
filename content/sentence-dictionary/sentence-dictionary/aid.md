@@ -1,0 +1,58 @@
+---
+title: "aid in a sentence | aid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "aid"
+---
+- Get the first `aid` kit!
+- What was that in `aid` of?
+- Turn up your hearing `aid`.
+- Just pull off that band-`aid`.
+- Just pull off that band-`aid`!
+- I'm not drinking the kool-`aid`.
+- Did you bring the first `aid` kit?
+- Somebody get me a first `aid` kit.
+- The batteries wore out in my `aid`.
+- The countess has come to our `aid`.
+- But we don't have a first `aid` kit.
+- Just stick it in the band-`aid` can.
+- There's a first `aid` kit in the lab.
+- When `aid` you get home last night...?
+- Your hearing `aid` isn't working right.
+- Rip off the band-`aid` and let it bleed.
+- Or you got your hearing `aid` turned down?
+- They'll have some sort of first `aid` kit.
+- I can't even put a band-`aid` on my finger.
+- Right now, a band-`aid` is the best option.
+- I bet they've even asked the west for `aid`!
+- Oh -- ho -- you want legal `aid` against us?
+- Would'st you harm one who comes to `aid` you?
+- Quick and dirty, like ripping off a band-`aid`.
+- Deke, have you got a first `aid` kit back there?
+- Your "jim jones kool- `aid`" that was exactly that?
+- ♪ don't belong ♪ to `aid` in your recovery, my lord.
+- Your hearing `aid`, it's buzzing at me like a snake.
+- Get away from me... what was <i>that</i> in `aid` of?
+- Try to keep the extra batteries for your `aid` around.
+- Somebody switched it for a beaker of grape kool-`aid`!!
+- I should be in medical, not packing first-`aid` supplies.
+- Lothar, get up here fast, and bring your first- `aid` kit!
+- On mondays and wednesdays, i work for the travelers' `aid`.
+- Don't worry, frank, just a little psychological first `aid`.
+- You're talking about putting... putting a band-`aid` on this.
+- I know, i know, and a first-`aid` kit and a fire extinguisher.
+- Well no, it's not noble, but it's a good `aid` to your lesson.
+- And i try and teach the students to ask: what is it in `aid` of?
+- But if she won't fly to my `aid`, then into a ghost i must fade.
+- There's an old emergency `aid` depot all right, here's the plan.
+- He came, at his own expense, to `aid` his brother in his trouble.
+- The guns we found at the `aid` depot what the hell was that thing?
+- I'm here to raise this county's militia to `aid` the british defense.
+- Without his country's financial `aid` -- perhaps he will listen to you...
+- We can probably get some first `aid` and food at this gas station up here.
+- A man of war is never bothered to `aid` an ally -- you will follow me, captain.
+- My man, i speak to you solely as a comrade in arms offering unconditional `aid`.
+- That was a grunt; a deep inhalation of oxygen to `aid` in the stretching of muscles.
+- We was going to get high, and i was going to show this white boy how to make kool-`aid`.
+- At sixteen he committed his first murder -- a pretty teacher's `aid` named molly pettygrove.
+                 

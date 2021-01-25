@@ -1,0 +1,107 @@
+---
+title: "feed in a sentence | feed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feed"
+---
+- Don't `feed` that dog.
+- Now look at my `feed`.
+- That's chicken `feed`.
+- Must you always `feed`?
+- What do you `feed` him?
+- Some chicken `feed`.
+- `Feed` on the river moss.
+- I got six kids to `feed`!
+- Soon i'll need to `feed`.
+- To `feed` all of us here.
+- You know i'll `feed` you.
+- At the manual `feed` stem.
+- Did you breast-`feed` her?
+- I've got to `feed` my cat.
+- Leonard, how's the `feed`?
+- Henderson `feed` and grain.
+- I came to `feed` your fish.
+- I got to `feed` the fambly.
+- Uplinking drone `feed` now.
+- We won't have to `feed` it!
+- I `feed` them what they need.
+- Sorry doesn't `feed` my kids.
+- Give me one to `feed` the d.a.
+- Do you `feed` on mice and rats?
+- `Feed` them to the sharks, sir.
+- Hey, i got four kids to `feed`.
+- I'll `feed` jango to the frogs.
+- We can't `feed` all the hungry.
+- We'll have to force `feed` him.
+- You should `feed` your animals.
+- �i was gonna `feed` 'em, terry.
+- `Feed` that boy to the dogs.
+- I'm just here to `feed` the cat.
+- Nobody can `feed` him except me.
+- They got no food to `feed` them.
+- You gotta promise to `feed` her.
+- Come, you're going to `feed` now.
+- He ain't got five kids to `feed`.
+- So now they `feed` us terrorists.
+- How many people do you all `feed`?
+- Neuter a locust, `feed` the world.
+- Yes, someone's got to `feed` them.
+- Your parents forget to `feed` you?
+- A chance to `feed` a wife and kids!
+- Didn't you `feed` him this morning?
+- I protect and i `feed` and i teach!
+- Mr. brinkmeyer's `feed` is no good.
+- You're gonna `feed` on the beetles.
+- And `feed` their hearts to your dog.
+- He sold the `feed` to me, didn't he?
+- We're gonna `feed` it to the plants.
+- Don't make me force `feed` a cripple.
+- When they stop to `feed` on our bait.
+- `Feed` it, and it just grows hungrier.
+- Go milk the cows, `feed` the chickens.
+- `Feed` her a cheeseburger or something.
+- I `feed` you, i clean you, i dress you.
+- Shall i be forced to `feed` you, david?
+- The forest doesn't `feed` that quickly.
+- And then they'll `feed` you to the bugs.
+- Meantime, i gotta `feed` my little girl.
+- Someone's got to `feed` them, i suppose.
+- But i'll tell you what to `feed` the pig.
+- I bet ya `feed` maranzano that same line.
+- 's'okay, i had to go home, `feed` my cat.
+- Sounds like something you `feed` the dog.
+- Stale chicken `feed` with four days mold.
+- And you'll `feed` him dirt for a lifetime.
+- But others pay to `feed` the hunger in us.
+- Lemme `feed` you, sweetie, while they hot.
+- Something you can `feed` the pets, perhaps?
+- I said i was taking her to `feed` the ducks.
+- We're gonna `feed` the bastard to the lions.
+- I'm a file clerk - harrison `feed` and grain.
+- Shall i be forced to `feed` you, mr. kessler?
+- That's why they're having to `feed` so often.
+- `Feed` store keeps up to five k in their safe.
+- I `feed` him out of my own hand for six years.
+- It's a direct `feed` into our computer system.
+- The `feed` wasn't interrupted by the explosion.
+- The `feed` wasn't interrupted by the explosion?
+- Your mother not breast `feed` you or something?
+- What'd they `feed` you, chinese food, right?
+- We also have a live `feed`, if you want to look.
+- If you had half a chance you'd `feed` us to them!
+- She's the reason we have to `feed` 'em like this.
+- They `feed` their dead to some cave beast, anyway.
+- `Feed` his hunger for revenge - he just wants more.
+- I tried to `feed` her but she wouldn't eat a thing.
+- Uhh... you'll eat this bloody to `feed` your blood.
+- While i `feed` the dog marshmallows she's a legend.
+- Of stealing that money to `feed` her gambling habit.
+- Beautiful as the girl on a `feed` store calendar.
+- I don't know about you, but i `feed` off my emotions.
+- Why, the good folks here'd go right off their `feed`!
+- Harrison `feed` and grain... at hamilton and fourth...
+- We cannot `feed` the russian people on your intentions.
+- Before, you were ready to `feed` this shark a hand grenade.
+- So the creature's gonna `feed` wherever the most bones are.
+- I have to `feed` the chickens before they wake everybody up.
+                 

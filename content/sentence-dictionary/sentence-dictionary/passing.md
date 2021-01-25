@@ -1,0 +1,76 @@
+---
+title: "passing in a sentence | passing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "passing"
+---
+- Just `passing` through.
+- Just `passing` through.
+- `Passing` ten thousand!
+- I was just `passing` by.
+- And... they're `passing`.
+- It was more in `passing`.
+- But your era is `passing`.
+- Boys just `passing` through?
+- I'm `passing` it to you, too.
+- Just `passing` the 80th floor.
+- You weren't `passing` 'em out.
+- `Passing` one-half light speed.
+- This shari is a `passing` fancy.
+- We were just `passing` out guns.
+- Just `passing` through the night.
+- I just happened to be `passing` by.
+- Just `passing` through santa carla?
+- You fellows just `passing` through?
+- Light up the sky with his `passing`.
+- You ain't `passing` these test, son.
+- But, for a time... a `passing` fancy?
+- No, i mentioned it only in `passing`.
+- Abby: the... the storm is `passing`.
+- It's awful soon after ben's `passing`.
+- It's `passing` over earth as we speak!
+- I've been `passing` information for...
+- He was `passing` just after it happened.
+- We are `passing` through the bassen rift.
+- I'm sorry...i just mentioned it in `passing`.
+- I was sorry to hear about your mama `passing`.
+- I�m `passing` through town and i�m in a hurry.
+- The infection's `passing`, why was she afraid?
+- `Passing` every second communication's channel.
+- Would you mind `passing` that salad young lady?
+- Knew him well enough not to mourn his `passing`.
+- I was just `passing` by and wondered how you were.
+- They ain't `passing` out medals for slinging dirt.
+- He's been `passing` certain remarks that i don't like.
+- I just went for a walk and happened to be `passing` by .
+- So is finishing my residency and `passing` my boards ...
+- We've been `passing` the chancellor's pin not this song!
+- Who do i get the idea you're not just `passing` through!
+- His `passing` has left me with... something of a dilemma.
+- I don't want you going to the dark side or `passing` out.
+- I told you.... more beautiful with each `passing` minute...
+- Strides through the chaos, avoiding the `passing` vehicles.
+- They drew a black line over me and now i'm `passing` it on.
+- Next time turk's `passing` out wedgies, you ain't gettin' one.
+- "before `passing` on to a new owner, execution is set for dawn.
+- The flame was about `passing` wisdom on to the next line, okay.
+- I don't recall any sketches of this `passing` across my desk ...
+- I got our scepter in the elevator just `passing` the 80th floor.
+- Of course, with hank's tragic `passing`, the secret died with him.
+- I'm just, y'know, `passing` the time best i can till i can see you.
+- She doesn't dare `passing` before the open door again to join leon.
+- I happened to be `passing`, and i thought you might like some corfee.
+- ...and that one of the editors was `passing` it up to a senior editor.
+- Just `passing` through town, need money so he busts in on an, old man.
+- Keep a weather eye open for `passing` ships, and our chances are fair.
+- Until now we have met only in `passing`... miss caswell is an actress.
+- What's interesting about it is you say you only knew her in `passing`.
+- Richard's parents were just `passing` through when his mother's time came.
+- Now i know you're ill -- `passing` up the chance to explore some new gadget.
+- You're `passing` up archie bunker to go bowling, you've gotta have an angle.
+- The spark that allows the `passing` of existence from one generation to another.
+- Any ship `passing` through this region will have to make a minor course correction.
+- I don't know, but it's the reason i'm living here and you're just `passing` through.
+- I don't know, but "it's the reason i'm living here and you're just `passing` through."
+- What i want to do is give `passing` beggars a roof, some food, and a bit of human warmth.
+                 

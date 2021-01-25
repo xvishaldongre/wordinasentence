@@ -1,0 +1,107 @@
+---
+title: "cage in a sentence | cage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cage"
+---
+- Hello, nicolas `cage`.
+- The `cage` won't hold.
+- `Cage` is in the dorms.
+- It's a guy in a `cage`.
+- Move out of the `cage`.
+- My name is bill `cage`.
+- They're coming, `cage`.
+- You'll be fine, `cage`.
+- He keeps me in a `cage`.
+- His `cage` on the other.
+- I was gonna kill `cage`.
+- Private `cage`, j squad.
+- Put him in a `cage` now!
+- Put this in your `cage`.
+- Stay the course, `cage`.
+- What's this, the `cage`?
+- Mom, they're in a `cage`!
+- She's back in her `cage`.
+- A bird in a gilded `cage`!
+- A bird in a gilded `cage`.
+- A bird in a gilded `cage`?
+- Are you all right, `cage`?
+- You're a good man, `cage`.
+- As it exits the rib `cage`.
+- He is in his pigeon `cage`.
+- You heard what `cage` said.
+- Take care of private `cage`.
+- This here is private `cage`.
+- My name is major bill `cage`.
+- Private `cage` is a deserter.
+- So, all three in this `cage`.
+- A bird in a gilded `cage`, eh?
+- Compliments of private `cage`.
+- How many soldiers with `cage`?
+- Move to the end of the `cage`.
+- Stew smith in a gilded `cage`!
+- You are in the `cage`, o'neil.
+- A bird in a gilded `cage`, huh?
+- Alright, `cage`, you've got me.
+- `Cage` knows i helped you guys.
+- He's just rattling your `cage`.
+- That `cage` won't hold forever.
+- My name is major william `cage`.
+- We found each other in a `cage`.
+- Yeah, a bird in a gilded `cage`.
+- How dare you put him in a `cage`!
+- I need to get out of this `cage`.
+- Ok, ok, ok. `cage`, listen to me.
+- My wife in a `cage` with a monkey.
+- `Cage` says the enemy knows us too.
+- `Cage`, we've been looking... guys.
+- She was in the `cage` next to mine.
+- The bird seems to be in his `cage`.
+- `Cage`, they know we're coming, man!
+- I love you, `cage`, my sword's gone.
+- I'm gonna go rattle maroon's `cage`.
+- Not everyone here agrees with `cage`.
+- Your father will come around, `cage`.
+- If you try, this `cage` will be yours.
+- You've really got me confused, `cage`.
+- You might as well put me in the `cage`.
+- He only appears to be inside the `cage`.
+- `Cage`, i do not need to get to know you.
+- Feet before that thing kills you, `cage`.
+- Sometimes, the world feels like a `cage`.
+- Did you put the cover on that `cage`, mom?
+- I'm not weak, get out of my sight, `cage`.
+- Just a boid in a gilded `cage` - that's so.
+- Some of us don't agree with `cage`'s agenda.
+- I woke up, and they forgot to lock my `cage`.
+- No one knows what happened to private `cage`!
+- Where else, but in a `cage`, does man belong?
+- I always knew you'd end up in a crow's `cage`.
+- So they can patch me up and put me in a `cage`?
+- 'a bird in a gilded `cage`' - that's what i'd be.
+- Get your weapon and get in the helicopter, `cage`.
+- At night in the truck, i let him out of the `cage`.
+- Major william `cage`, united states military media.
+- I've had a feeling about you from the start, `cage`.
+- My father installed that silo to protect us, `cage`.
+- `Cage` is under the delusion he does not belong here.
+- He's gonna try and rattle your `cage`, and that's it.
+- There is a `cage` but it is never locked, is it plank?
+- ♪ doodily, diddly ♪ not everyone here agrees with `cage`.
+- `Cage`... we could be living on the ground within a month.
+- Private `cage` is under the delusion he does not belong here.
+- Now you have me in a `cage` with a monkey and a gun to my head.
+- You think `cage` wallace is gonna let me but we know we didn't.
+- I'm not the one who got five good men thrown in a bamboo `cage`.
+- This bird in a `cage` is gonna button his own pants from now on.
+- A `cage` by any other name would still smell like sweaty ugly men.
+- What makes a man walk into a lion `cage` with nothing but a chair?
+- He got out of his `cage` once and -- no, i mean the hell with that.
+- They chopped off his arms, and now she's out of the faraday `cage`.
+- `Cage`, you've seized control of the omega's ability to reset the day.
+- Otherwise, i was gonna fall down a hole... science takes time, `cage`.
+- Not everyone here agrees with `cage`, meaning i'm stuck looking out for you.
+- In the off chance i escape this `cage` clarke: you're gonna disobey the council?
+- You're gonna need a man through here, two men at the `cage`, one to cover the count.
+- Because if those diseased rats are runnin' loose, a `cage` is better than he deserves.
+                 

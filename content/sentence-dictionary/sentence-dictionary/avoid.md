@@ -1,0 +1,76 @@
+---
+title: "avoid in a sentence | avoid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "avoid"
+---
+- You `avoid` your home?
+- Let's `avoid` that one.
+- Why did you `avoid` this?
+- To `avoid` killing anyone.
+- "we will `avoid` violence.
+- We can't `avoid` the truth.
+- `Avoid` the authorities.
+- To `avoid` drives like this.
+- We have to `avoid` injuring it.
+- I do this to `avoid` doing that.
+- I'll be glad to `avoid` the crush.
+- Are we smart enough to `avoid` that?
+- Here it's easier to `avoid` trouble.
+- I want at all costs to `avoid` this.
+- You can `avoid` security altogether.
+- We `avoid` having breakfast together.
+- At first i did my beat to `avoid` him.
+- Let's just `avoid` the issue, alright?
+- You want to `avoid` unnecessary risks?
+- And there's no way we `avoid` that war.
+- Just to `avoid` a long destructive war.
+- Okay mr inventor, how do we `avoid` it ?
+- I know you wanted to `avoid` all this.
+- Hell of a way to `avoid` a prison sentence.
+- How can you `avoid` a man you've never met?
+- Pretty sure you can't `avoid` jaha forever.
+- Anything to `avoid` losing the german market.
+- He also said we'd `avoid` that storm in space.
+- Just gotta `avoid` them deadbeat bank tellers.
+- Just point her at capri and `avoid` the rocks.
+- Some people don't know how to `avoid` trouble.
+- How would he `avoid` it... as if i needed to ask?
+- I was supposed to `avoid` a sexual interpretation.
+- `Avoid` salt, sugar, starches, caffeine, alcohol...
+- I'm just going to `avoid` all moving metal objects.
+- So `avoid` using the word 'very' because it's lazy.
+- To `avoid` them, but... my name's warburton parker.
+- He <u>also</u> said we'd `avoid` that storm in space.
+- I'd imagine the general would prefer to `avoid` that.
+- In order to `avoid` something you don't want to face.
+- Project parabolic course to `avoid` entering neutral zone.
+- We had ways to make people ta-- ways to `avoid` the radar.
+- You go into a spin to `avoid` an accident and cut them off.
+- There's a popping sound preceding each, we can `avoid` that.
+- You will provoke the very thing you say you wish to `avoid`.
+- One must know when to seek publicity - and when to `avoid` it.
+- To `avoid` bringing disgrace upon a clean and honorable state!
+- But they're just as anxious to `avoid` a nuclear war as we are.
+- People are always anxious to `avoid` conversations about death.
+- Bob, is there any way we can `avoid` stopping a submarine first?
+- Even if you manage to `avoid` a fight you won't know where to go.
+- Draws attention, which is something you `avoid` in my line of work.
+- All right, here's our plan of communication, so as to `avoid` smokey.
+- Or what's no horrible down here that everyone's trying to `avoid` it?
+- You know we can `avoid` the chaos that happened at the icefall today.
+- You know, we can `avoid` the chaos that happened in the icefall today.
+- When dad's popping aspiring like popcorn, it's `avoid`-all-contact-day.
+- It could be a little tricky if you want to `avoid` them... ten thousand.
+- You're using this conspiracy theory as an excuse to `avoid` sex with me.
+- I'd prefer not to be the president to push the button if i can `avoid` it.
+- I'11 try to `avoid` i'11 go out of my way to `avoid`, getting together with you.
+- Fine, but if you want to `avoid` more killing, it's why we had to stay in space.
+- Not without causing the kind of attention i'd just as soon `avoid` right now.
+- But didn't you `avoid` contact with ms. torres, after you found out she had aids?
+- Its true, what the hell can we do to `avoid` a repeat of what happened 10 years ago?
+- My only fear is that the zulu will `avoid` the engagement so attack is your defence.
+- But following a regimen of cbd oil must find place to `avoid` pop culture discussions.
+- One of the other nuns found out about the baby and... and wanted to `avoid` a scandal.
+- You know you speak very well, although you `avoid` fricatives and sibilants in your speech.
+                 

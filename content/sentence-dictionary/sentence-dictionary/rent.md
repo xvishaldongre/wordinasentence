@@ -1,0 +1,104 @@
+---
+title: "rent in a sentence | rent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rent"
+---
+- The `rent` is okay?
+- I never `rent` my gear.
+- I didn't `rent` it shoes.
+- I just `rent` her a room.
+- I need to `rent` a cabin.
+- I owe you for the `rent`.
+- I want to `rent` a movie.
+- No -- the `rent` in paid.
+- What if i pay the `rent`?
+- I want to `rent` this one.
+- You want to `rent` a movie.
+- I'm tryin' to be dif'`rent`.
+- Larry, did you `rent` a car?
+- Of `rent` i do not bullshit.
+- Who pays the `rent` on time.
+- Hey, hey -- there's a `rent`.
+- It may as well pay my `rent`.
+- I'm expecting a `rent` cheque.
+- Can we just `rent` it from you?
+- I had to `rent` some equipment.
+- I'll `rent` the truck from you.
+- Lee" to `rent` the room, right?
+- They're paying a higher `rent`.
+- Think i could `rent` a scooter?
+- Yes, the `rent`'s due tomorrow.
+- We're still short on the `rent`.
+- It is the car they want to `rent`.
+- Her `rent` will remain what it was.
+- This time, i gotta have the `rent`.
+- We'll `rent` some at the bathhouse.
+- I needed some way to pay the `rent`.
+- That's who people want to `rent` to.
+- You could keep it and `rent` it out?
+- I hate it when i can't `rent` videos!
+- Impound isn't a `rent`-a-car company.
+- The studio wanted to `rent` your car.
+- Did you just `rent` a room at the ritz?
+- Right -- let's talk about `rent`... no.
+- Yes -- and pays the `rent` every month.
+- You took care of `rent`, that's enough.
+- May i `rent` you out as an adding machine.
+- When is your `rent` coming up at the motel?
+- Who do you think's been paying the `rent`?!
+- Why don't we just `rent` it for the season?
+- I decided to `rent` that place we looked at.
+- I haven't been too punctual with the `rent`.
+- I mean, `rent`, and tapes and this equipment.
+- Just, uh, just slip the `rent` under my door.
+- Renata tells me you're going to `rent` a car.
+- He told me to try and `rent` you another room.
+- Pack your things, `rent` a moving van and git!
+- Uh, don't you want to know what the `rent` is?
+- <u>and</u> pay my back `rent` from the profits.
+- But how are you gonna pay `rent` and everything?
+- It's gonna cost twice as much to `rent` a place.
+- Well this is the last time i ever `rent` here...
+- You `rent` women like you rented this apartment.
+- Should we `rent` or are we in a buying mood, dear?
+- I don't even mind mom and dad making me pay `rent`.
+- I want you to let me pay the `rent` for this month.
+- This my world, you just a nigga late paying `rent`.
+- You're two months behind on the `rent`, lieutenant!
+- Hey, hon'--this is what pays the `rent` and tuition.
+- If we miss the `rent`, what's the worst they can do?
+- Well, i'd really hope to `rent` it for... that sign.
+- Do you know that the `rent` on this place isn't paid?
+- Got a couple of lovely cottages coming up for `rent`.
+- I mean the liquor, and the groceries, and the `rent`?
+- Well... then may you `rent` me your gear for the day?
+- I've found a bungalow to `rent` up the towpath, clive.
+- You didn�t `rent` this place for the weekend, did you?
+- He went to `rent` a movie, but he hasn't gotten back yet.
+- I'll bet you twenty bucks you don't get to `rent` that tape.
+- On the salary he pays me, i can't make my `rent` without it.
+- She's trying to find out where she can `rent` a loudspeaker.
+- We need to `rent` a car and for that you need a credit card.
+- Mr. wood, you have bounced your third and final `rent` check.
+- "that fancy raspberry filling represents the company's `rent`.
+- Why don't we just `rent` a lear jet and haul it back ourselves?
+- I want to go to a good video store so i can `rent` a good movie.
+- I can't afford any trouble -- will you `rent` me a cabin, or not?
+- You can't work in an apartment where you owe three months' `rent`.
+- We'll have to `rent` a refrigerated truck for the beef and poultry.
+- Have debi follow you to the `rent`-a-car so you can get a ride back.
+- Without it, i can't pay the `rent`... jesus christ, what an evening.
+- All right, i'll `rent` ya everything i got in the warehouse for two grand.
+- Mookie, you can hardly pay your `rent` and you're gonna tell me what to do.
+- After he left i had a dream that he signed a lease to `rent` our guest room.
+- Well, his `rent`'s past due and he said to call you in case of an emergency.
+- I gave you money to pay the fuckin' `rent` and buy groceries, put the heat on.
+- So come home and live `rent` free, 'stead of that cockroach palace you live in.
+- Number one: i got some jive, late- `rent`-paying trifling negroes in this house.
+- I hate to ruin your fairy tale, but i've been paying jess' `rent` for six months.
+- You should know that included with the `rent` here is a complimentary blow job.
+- Look, it's either you or the `rent` and i don't mind telling you it's not an easy choice.
+- Maybe in the high `rent` districts they discuss -- but in my neighborhood, they still nag.
+- I've paid the `rent`, the con-ed and the phone bill, so you don't have to worry about them.
+                 

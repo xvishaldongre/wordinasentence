@@ -1,0 +1,107 @@
+---
+title: "wait in a sentence | wait example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wait"
+---
+- But...`wait` a minute!
+- Can't it `wait`, then?
+- 'gonna `wait` outside.
+- Hey, `wait` take this.
+- How long do we `wait`?
+- I can't `wait` either.
+- I'll just `wait` here.
+- I'm...`wait` a second.
+- It must `wait`, child.
+- Jack, `wait` a minute.
+- Let the tailor `wait`.
+- Lincoln, `wait`, `wait`!
+- Long `wait` for a bus?
+- Madi... - just `wait`.
+- Maybe this can `wait`.
+- Octavia: `wait`, kane.
+- So `wait`, `wait`, `wait`.
+- `Wait` a minute, boys.
+- `Wait` a minute, whoa.
+- `Wait` a second, whoa!
+- `Wait`, don't hang up.
+- `Wait`, don't tell me.
+- "... `wait` for help."
+- `Wait` for the police.
+- `Wait`, just a minute.
+- `Wait`-- let me guess.
+- `Wait`, shit, no arms.
+- `Wait` until i'm gone.
+- `Wait`, what russians?
+- `Wait`, what was that?
+- Well, `wait` a minute.
+- We `wait` for breslin.
+- You want me to `wait`?
+- Anna: i'll `wait`, sir.
+- But, ah, it can `wait`.
+- He shouldn't `wait` up.
+- I can't `wait` anymore.
+- I didn't `wait` on him.
+- I don't want to `wait`.
+- No, no, sugar - `wait`.
+- No you `wait` a second.
+- Nurse, `wait` a minute.
+- Roger, `wait` a minute.
+- So do i. i just `wait`.
+- `Wait` a minute, bruce.
+- `Wait` a minute, cates.
+- `Wait` a minute here...
+- `Wait` a minute, kiddo.
+- `Wait` a minute, major.
+- `Wait` a minute, sonny.
+- `Wait` a minute, watch.
+- `Wait` a minute, woman.
+- `Wait` a minute... wow!
+- `Wait` a second, chief?
+- `Wait` a second, hoffy.
+- `Wait`, doctor -- `wait`!
+- `Wait` for the back-up!
+- `Wait` for the firemen!
+- `Wait` one damn minute!
+- `Wait`... she's crying.
+- `Wait`, that wasn't me.
+- `Wait` 'til i'm across!
+- We must `wait` until...
+- Will you `wait` for me?
+- Yes... you will `wait`.
+- You better `wait` here.
+- You know when i `wait`?
+- All right, we'll `wait`.
+- Anyway, this can `wait`.
+- Can't this `wait`, dear?
+- (gasps) `wait` a minute.
+- Hey, now `wait` a sec...
+- I'll `wait` in the hall.
+- I'm not going to `wait`.
+- I `wait` for the scores.
+- Just `wait` for me here.
+- Just `wait`, you'll see.
+- Now `wait` justa minute!
+- Oh, let henslowe `wait`.
+- Or hang back and `wait`.
+- The bridge won't `wait`!
+- They `wait` at 180 feet.
+- `Wait` a minute, daphne.
+- `Wait` a minute - guard!
+- `Wait` a minute, mollie.
+- `Wait` a minute, ronnie.
+- `Wait` a minute, walter.
+- `Wait`, did he say cold?
+- `Wait`- ed a good while.
+- `Wait`... just a minute.
+- `Wait`, she just looked.
+- `Wait` till i get going!
+- `Wait` up there, claude.
+- `Wait`, `wait`, it worked?
+- `Wait` -- while we walk.
+- _ `wait` with miss lucy.
+- `Wait`... you hear that?
+- We can't `wait` anymore.
+- We'll `wait` on the lab.
+- We're gonna `wait` here?
+                 

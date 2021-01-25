@@ -1,0 +1,80 @@
+---
+title: "Benjamin in a sentence | Benjamin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Benjamin"
+---
+- Calm down, `benjamin`.
+- Bring `benjamin` first.
+- Promise me, `benjamin`.
+- How are you, `benjamin`?
+- I never did, `benjamin`.
+- `Benjamin` -- i really do.
+- It was a ford, `benjamin`.
+- You are now `benjamin` 2x.
+- `Benjamin` -- where are you?
+- The room number, `benjamin`.
+- Think real hard, `benjamin`.
+- A `benjamin` yahoo something.
+- Is your name paul `benjamin`?
+- `Benjamin` -- do they know you?
+- `Benjamin` -- what's happening?
+- `Benjamin` franklin high school.
+- We've talked enough, `benjamin`.
+- `Benjamin` -- of course there is.
+- Isn't that right, mr. `benjamin`?
+- `Benjamin` franklin, where's that?
+- `Benjamin`, is this your first time?
+- His real name is `benjamin` raspail.
+- Say hello to mrs. robinson, `benjamin`.
+- Well this is your business, `benjamin`.
+- `Benjamin`, i want to ask you something.
+- I do not want `benjamin` rand disturbed!
+- ...and who was `benjamin` franklin again?
+- `Benjamin`, what does it possibly matter?
+- How is my dear friend `benjamin` feeling?
+- I'll be with you in a moment, `benjamin`.
+- I'm extremely upset about it, `benjamin`.
+- So far, there's mr. `benjamin` and myself.
+- `Benjamin` sends along his best wishes.
+- `Benjamin` -- all right, for christ's sake.
+- `Benjamin` -- i'm not trying to seduce you.
+- I'm not married to her `benjamin`, you are.
+- `Benjamin`, don't you ever take that girl out.
+- You're paul `benjamin` the writer, aren't you?
+- `Benjamin` franklin, he discovered electricity.
+- `Benjamin` -- do you dislike me for some reason?
+- `Benjamin`, this isn't a very interesting topic.
+- But they cross over `benjamin` black star's prints.
+- Brother `benjamin`, do not rush, it has to be exact.
+- Jesus, `benjamin`, you're still as gullible as ever.
+- `Benjamin` -- i haven't even said i'll marry you yet.
+- `Benjamin` -- i want you to know i'm available to you.
+- But i'm -- `benjamin` -- you've known me all your life.
+- Mrs. robinson -- listen to me very carefully, `benjamin`.
+- She teaches chemistry in `benjamin` franklin high school.
+- `Benjamin` -- i would like to know what you're doing here.
+- For christ sakes, they have volumes of data on `benjamin`!
+- But i have to keep an eye on mr. `benjamin` wherever he goes.
+- `Benjamin` -- i am getting pretty tired of all this suspicion.
+- I think we have everything quite under control now, `benjamin`.
+- Since `benjamin` became ill we have our own hospital downstairs.
+- `Benjamin` -- i thought i made myself perfectly clear about this.
+- `Benjamin` -- you're -- i don't know what to say -- you're -- no.
+- I thought you said you and your husband -- listen, `benjamin` hood.
+- How could you possibly rape my... how could you do that, `benjamin`?
+- ... tell me, mr. gardiner, just how serious is `benjamin`'s illness?
+- Look -- i was thinking about that time after the party -- `benjamin`?
+- `Benjamin`, have you ever been severely beaten about the face and neck?
+- ... my god, i only wish that `benjamin` had your recuperative powers...
+- `Benjamin`, i want to apologize to you if that's the impression you got.
+- Well you don't drive around from midnight until noon the next day, `benjamin`.
+- For god's sake, `benjamin`, will you stop acting that way and bring me the purse?
+- I just don't think we could possibly -- `benjamin` -- do you find me undesirable?
+- `Benjamin` -- i'm sorry to be this way, but i don't want to be alone in this house.
+- Now i'm sure that mr. robinson will be here any minute and -- sit down, `benjamin`.
+- There is no information available on the man before he moved into `benjamin` rand's.
+- `Benjamin`, when you came up here, what did you think was going to happen between us?
+- And, `benjamin`, no one ever got trampled aka infusers, decarboxylators, do you like it?
+- I have very few friends, chauncey... and `benjamin`'s friends are all quite a bit older...
+                 

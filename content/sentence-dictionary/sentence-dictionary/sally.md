@@ -1,0 +1,80 @@
+---
+title: "sally in a sentence | sally example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sally"
+---
+- `Sally` ann cavanaugh.
+- I love you `sally`-mae.
+- Is `sally` doing `sally`?
+- She's based on `sally`.
+- `Sally`, do you love me?
+- Hey mav, this is `sally`.
+- `Sally`, turn off that tv!
+- A medical hellhole `sally`.
+- `Sally`, for christ's sake.
+- I'm sure `sally`'s told you.
+- It's a bet--come on, `sally`!
+- It's time for `sally`'s meds.
+- `Sally` did all this herself?
+- `Sally`, that's quite a gift.
+- Out the northern `sally`-port.
+- Thanks for having me, `sally`.
+- Just stop right there, `sally`.
+- `Sally`, so i took a few pills.
+- `Sally`, we're back, i love you.
+- Listen to me, you're `sally` nash.
+- Now, `sally`, you're embarrassing me!
+- The character that's based on `sally`.
+- I know how private you and `sally` are.
+- I'm in the same room with `sally` nash.
+- `Sally` is an important part of my show.
+- `Sally` tells me she's in love with you.
+- Don't dish if you can't take it, `sally`.
+- I got a call today from `sally` doneghy...
+- That you don't have... oh christ, `sally`.
+- I got a call today from `sally` doneghy ...
+- I'm sure you charmed the hell out of `sally`.
+- `Sally`, our slave system is a british law...
+- C'mon, `sally` - let's grab a bite... move out?
+- `Sally`, first of all, you're talking bullshit.
+- You can't lose me, `sally`--i'm no lily myself!
+- So will you leave `sally` and me alone right now?
+- They're still married... alan and `sally` ann.
+- No--i'll take `sally` and give you the best of it.
+- The character that's based on `sally` in the book.
+- Can you `sally` forth and secure us some more mead?
+- Get wise to yourself, `sally`--you're no sob story.
+- `Sally` aren't you going to tell how your day went?
+- Of course, his wife's name is `sally` ann cavanaugh?
+- When `sally` showed me what was in swayzak's files...
+- My friends... `sally` there's a whole world out there.
+- That's more like the old `sally`--a little bit of fire.
+- Real name is `sally` jones or something wooden like that.
+- `Sally` oh i...nothing... you deserve it is the occasion.
+- The deadly nightshade you slipped me wore off, `sally`...
+- You don't have kids to keep a marriage together, `sally`.
+- Have you heard anything from our dear friend, `sally`?
+- `Sally` hayes is not a bitch - she's a damn fine attorney!
+- '...with his legal wife, the former `sally` ann cavanaugh.'
+- The character is also clearly in her early twenties, `sally`.
+- `Sally`, please don't tell sophia that i'm not breast feeding.
+- That's right... that's when `sally` fairfax was tutoring you...
+- That's a bet--but i couldn't let you walk out like that, `sally`.
+- `Sally` if he asks me again, i'm gonna tell him i returned it all.
+- Tell 'em half goes to `sally` two trees if i ain't back in a week.
+- You know, that thing that was `sally` - that always surprised you.
+- He killed her...he killed her... oh jesus... then `sally` comes too.
+- What?-- yes--you know what i've been thinking, `sally`?-- what, again?
+- `Sally` has been tutoring george in the philosophies, isn't that right?
+- `Sally`'s actually taken to thinking of this clod of earth as her home.
+- You know what `sally` therrian was saying about your spine and your brain?
+- I try to throw a fuckin' case your way... `sally` doneghy, now who is that?
+- .i try to throw a fuckin' case your way ... `sally` doneghy, now who is that?
+- Well fuck me side `sally`, who want to read about all that horse shit anyway.
+- I think a lot of this could have been avoided if `sally` made more of an effort.
+- I thought you might know where she is-- oh, denby--have you seen `sally` around?
+- `Sally`, i have never considered you for this part because you are too old to play it.
+- '`sally` ann can confirm all this when the police pick her up at the airport marriott.'
+- No, `sally`, viznick's a manipulator, he's clever, he has what i call malignant narcissism.
+                 

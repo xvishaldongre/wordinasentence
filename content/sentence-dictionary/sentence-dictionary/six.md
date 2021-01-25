@@ -1,0 +1,107 @@
+---
+title: "six in a sentence | six example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "six"
+---
+- Class of eighty-`six`!
+- Five, `six` feet high.
+- Get me ant team `six`.
+- Isaw that `six` times.
+- It's been `six` years.
+- I was `six` years old!
+- Mile marker `six`-one.
+- Ok. you `six` with me.
+- `Six` million dollars.
+- `Six` months of tests.
+- `Six` thousand, right?
+- The inscrutable `six`?
+- The past `six` months.
+- About `six` months ago.
+- It's `six` volumes.
+- Check at `six` minutes.
+- Eight, `six`, and four.
+- Flip `six`, three hole.
+- Give me `six` at least.
+- Guy's `six` weeks over.
+- I come away with `six`.
+- I could pass for `six`.
+- In under `six` seconds.
+- It's been `six` months.
+- It took `six` stitches.
+- I was here `six` years.
+- Now who were the `six`?
+- Read `six` crises, bob.
+- `Six` months, at least.
+- `Six` people mutilated?
+- `Six` scoop interviews!
+- `Six` thousand dollars.
+- `Six` thousand dollars?
+- `Six` weeks and no sex?
+- You have `six` minutes.
+- Five or `six` years ago.
+- How many is that, `six`?
+- I've got a `six` strobe.
+- Nine men, `six` bullets.
+- Or possibly phase `six`.
+- `Six`, eight hours tops.
+- `Six` o'clock in berlin.
+- `Six` stones or nothing.
+- This is a `six`-shooter.
+- We're on sublevel `six`.
+- We've got `six` reapers.
+- Dkq dash one seven `six`.
+- Eight with `six` fathers.
+- Harris, watch your `six`.
+- I got `six` kids to feed!
+- In the last `six` months.
+- It only took `six` years.
+- It's almost `six` thirty.
+- It's `six` dollars a man.
+- Now there's `six` of 'em.
+- Pack it in `six` dragons.
+- She was fifty-`six`, son.
+- `Six` men means `six` guns.
+- `Six` months advance pay.
+- `Six` people died, right?
+- A hundred and fifty-`six`.
+- At five knots...no, `six`!
+- Don't give me `six` years!
+- Five hundred; `six` maybe.
+- Five, `six` hundred bucks.
+- Game `six` is history,pal.
+- He wants to meet at `six`.
+- I'm `six` months pregnant.
+- Just five or `six` people.
+- Just over `six` feet tall.
+- One coat for `six` people?
+- `Six` library guards, raw?
+- `Six` months, eleven days.
+- `Six` seconds and i'm out.
+- They have `six` tentacles.
+- You owe me `six` big ones.
+- Balls in their `six`- ties.
+- But it only has `six` legs.
+- I'm fifty- `six` years old.
+- Just stay on channel `six`.
+- Member of `six` golf clubs.
+- Not just every `six` weeks.
+- `Six` months' probation...?
+- `Six` month stint on datus.
+- `Six` weeks, counting post.
+- `Six` years is a long time.
+- Tomorrow, at `six` o'clock.
+- Up to `six` weeks, i think.
+- We've got `six` hours left.
+- Your father was `six` then.
+- Your plane leaves at `six`.
+- I wadn't but `six` or eight.
+- `Six` am, the cocktail hour.
+- `Six` guys working for me...
+- `Six` steps out, three left.
+- `Six` to clear the roadwork.
+- `Six` to the right, and hah!
+- Something like thirty-`six`.
+- Something like thirty-`six`?
+- That's twenty-`six` dollars.
+                 

@@ -1,0 +1,56 @@
+---
+title: "moral in a sentence | moral example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moral"
+---
+- Good, `moral` compass.
+- [it's a `moral` issue.
+- With a `moral` compass.
+- It's not a `moral` decision.
+- It's highly `moral`, majesty.
+- Because i am a `moral` person.
+- Where is your `moral` compass?
+- It's best not to be too `moral`.
+- He'd call it a `moral` awakening.
+- This isn't a "`moral`" issue, bob.
+- Stray from the `moral` path, whoa-ho!
+- You used to have a `moral` psychology.
+- It's a fiction, not a `moral` treatise.
+- We offer `moral` guidance, not hardware.
+- Lisa was the `moral` center of this town.
+- He's always been lacking in `moral` fibre.
+- With `moral` reservations about just wait.
+- I'm, uh, in the midst of a `moral` dilemma.
+- `Moral` or sexual problems or peculiarities?
+- We're in bad shape, benedict, `moral` is low.
+- Now go do your job being emori's `moral` anchor.
+- Major arnold believes he has a `moral` duty, too.
+- Not before i satisfy my sense of `moral` outrage.
+- That would be one's own `moral` sense of decency.
+- On `moral` relativity from the queen of cannibals.
+- I mean, i take very seriously our strict `moral` code.
+- You're obviously going through a critical `moral` dilemma.
+- Of course to you, my sweet, for your... `moral` support.
+- Gee, he talks like he's violating a `moral` issue sitting here.
+- The white man is in no `moral` position to accuse anyone of hate.
+- You just detach sex from everything.. what's a `moral` orgasm john?
+- We have a `moral` duty to be just and we have to be seen to be just.
+- A certain "`moral` flexibility" would be the best way to describe it...
+- A coward... without the `moral` courage to stop an unspeakable atrocity.
+- Psychological scars steaming from `moral` conflicts and overt sexuality.
+- You win a war and you not only gain the miles you get the `moral` ground.
+- They'll be happy to see you ... ahhh... and the `moral` of that story is -- ?
+- Tell me the `moral` difference, if any, between the citizen and the civilian ?
+- Let him keep right on being the great, noble, `moral` - champeen of the people.
+- There's a certain `moral` virtue in being materialistic, i'm beginning to feel.
+- We cannot afford free speech if it excises the `moral` fiber of this community!
+- But it takes a certain character, `moral` toughness to stand up to -- no it isn't.
+- Miss caswell, at the moment, is where i can lend no support - `moral` or otherwise.
+- His ethical and `moral` subroutines took over all of his basic functions... fail-safe?
+- You have `moral` objections to what we're doing here, but believe... now listen to me.
+- I was wondering, because i know you're a very `moral` person, and -- um, ten-o-five.
+- We can no longer afford our `moral` equivocations, think of things that make you mad.
+- I should think you'd be at the side of your protegee, lending her `moral` support... amen.
+- He and his wife both said she had a fine `moral` character and was wonderful with children.
+                 

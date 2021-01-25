@@ -1,0 +1,107 @@
+---
+title: "north in a sentence | north example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "north"
+---
+- Heading `north` still?
+- Roger, `north` island.
+- She's turning `north`.
+- True `north` is a lie.
+- It's `north`, that way.
+- South dakota - `north`?
+- Go out the `north` exit!
+- I 95, `north` and south.
+- I think this is `north`.
+- That's not true `north`.
+- They do that up `north`.
+- "true `north` is a lie."
+- That is the `north` star.
+- The `north` is the `north`!
+- What news of the `north`?
+- Cabot, `north` of laurier.
+- What is due `north`, john?
+- But not <u>this</u> `north`.
+- Charlotte, `north` carolina.
+- From the `north` valle area.
+- I thought he was up `north`.
+- So you're living up `north`?
+- That's up `north`, ain't it?
+- `North` island, please repeat?
+- Well, that's not true `north`.
+- You go `north`, i'll go south.
+- Did she say how far due `north`?
+- For collection in `north` miami.
+- That put clarke `north` of here.
+- Which means that's true `north`.
+- About sixty miles `north` of here.
+- A passenger liner, `north` island.
+- How long have you been up `north`?
+- I'm talking `north` pole to south.
+- `North` korean nuclear specialist.
+- She was from up in `north` dakota.
+- She was sailing up `north`, right?
+- That needle ain't pointing `north`!
+- We can make it to the `north` cave.
+- Byrne: it's coming from the `north`.
+- Gathering from the `north` and west.
+- Proceeding `north` to 42nd precinct.
+- The address is 1921 `north` east 23.
+- We'd travel `north`, my bride and i.
+- They'll never make a passage `north`.
+- He had urgent business in the `north`.
+- I got a big score lined up up `north`.
+- This is for the `north` woods section!
+- We couldn't have gone that far `north`.
+- I'll take the `north` side of the river.
+- ♪ love, i have wounds ♪ `north`.
+- Uh, i would have to say the `north` pole?
+- I just can't seem to get that far `north`.
+- Look at you... roger that, `north` island.
+- Mere, but `north` of that, it's all krauts.
+- We're at the lake now, heading due `north`.
+- Maybe go up to the `north` pole, the arctic.
+- Morning mr. `north` i'll send them right up.
+- `North` 38 degrees, 54 minutes, .25 seconds.
+- Here... in front of this oak, facing `north`.
+- It's `north` do you know where you're headed?
+- As far away as i can get from `north` carolina.
+- It's also the highest point in `north` america.
+- Let's c ut up the money, i want to get `north`.
+- Meaning, if we follow the compasses' `north`...
+- Go for the power regulator on the `north` tower.
+- Our watch was to the `north` looking for azgeda.
+- We're tied for most wins with northglen `north`.
+- But the good witch of the `north` told me not to.
+- By america's ned flanders to the `north`, canada.
+- That must be about as far `north` as you can get.
+- Your husband is secretly sending an army `north`.
+- His father worked in a strip mine `north` of here.
+- On my signal, open `north`-west section seventeen.
+- They want aerial maps of the whole `north` africa.
+- Keep going `north`, get us deep into the mountains.
+- `North` of here, everyone's always counting on you.
+- 3rd battalion just got hit 15 kliks `north` of here.
+- I shlepped all the way to the `north` pole for this?
+- ♪ ah-hoo ♪ - well, they're all facing `north`, right?
+- They drove her and the kids to `north` tahoe airport.
+- Auxiliary field at haleiwa, ten miles `north` of here.
+- Transmit copy of program via satellite `north` uplink.
+- I didn't know we had units up there in `north` vietnam.
+- I'm headin' `north` up around the niobrara in nebraska.
+- True `north`... straight up that pass, through the net.
+- I'm workin' a big one with gondorff on the `north` side.
+- In a war, if you own the desert, you own `north` africa.
+- `North` island, have you got any additional information?
+- Sixth is a parking lot `north` of 23rd this time of day.
+- This is united states coastguard station `north` island.
+- If we go `north` and you're wrong, your eyes are opening.
+- She's on the `north` head bluff - approaching the cliffs.
+- This is united states coast guard `north` island station.
+- I'm working with one of the victims outta brooklyn `north`.
+- "in the parking lot of a jack-in-the-box in `north` miami."
+- There's word he's gonna run a con on the `north` side here.
+- Anyone who served under arnold, i want them shipped `north`.
+- Banister was running his camp `north` of lake pontchartrain.
+- I hope the dragon of the `north` sea gets you and your lord.
+                 

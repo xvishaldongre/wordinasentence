@@ -1,0 +1,69 @@
+---
+title: "bum in a sentence | bum example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bum"
+---
+- Don't call me a `bum`!
+- My lawyer was a `bum`.
+- Can i `bum` a cigarette?
+- Da mayor ain't no `bum`.
+- I'm the `bum` of the year.
+- I didn't look like a `bum`.
+- Didn't mean to `bum` you out.
+- I don't think you're a `bum`.
+- ...i'm at least half a `bum`.
+- Thanks for nothing, you `bum`.
+- You always said i was a `bum`.
+- What do you think i am a `bum`?
+- You think my fiance is a `bum`?
+- You have the most amazing `bum`?
+- Does that `bum` have to say that?
+- Remem- ber the old `bum`'s lungs?
+- She gives him a shot in the `bum`.
+- That's 'cause you're a lazy `bum`.
+- I've had it with that `bum`, floyd.
+- I wouldn't give the `bum` a mop job.
+- No wonder everybody calls you a `bum`.
+- Tough life you bahamian beach `bum`...
+- You can't buy me� you're still a `bum`!
+- You think everybody i fight is a `bum`.
+- Goddamnit, you fuckin' `bum`, come here!
+- I ain't even any goddam good as a `bum`.
+- You're just a `bum` like the rest of us.
+- You want some `bum` in the bus terminal?
+- I even know who the `bum` is gonna marry.
+- It's the only reason to go out with a `bum`.
+- Last one to find otis is a smelly old `bum`.
+- Well, it's better than windin' up like a `bum`.
+- What'm i dragging my `bum` leg all over town for?
+- Give dat `bum` a dollar for sweeping our sidewalk.
+- You want to be a `bum` all your life, be my guest.
+- But if it's just a regular `bum`, you pass them by.
+- We could `bum` around the world for a year on that.
+- `Bum` musta rolled them before the police got there."
+- Instead of a `bum`, let's face it, which is what i am.
+- You know, like a woman with a `bum` ovary or something.
+- Well we--i don't-- where's my goddamn money, you `bum`?!
+- Is it ever embarrassing, having your `bum` kissed in public?
+- It's a racket where ya' almost guaranteed to end up a `bum`.
+- You're a drifter, a -- pardon the expression -- beach `bum`.
+- But isn't that just the cutest little `bum` you've ever seen?
+- Any `bum` who picks up a .45 in a pawn shop can be that brave.
+- Every day you give dat `bum`-- you get paid to do what we say.
+- ♪ good times and `bum` times ♪ we have to deal with the funeral!
+- I was, but i managed to `bum` a ride on the last flight out here.
+- Life has dealt me some `bum` cards... we've certainly missed you.
+- Can't have my boy running around lookin' like a `bum` on the street.
+- One of the fathers was on the tv saying, "my child was not a `bum`."
+- Why don't you stop living like a `bum` and get this place cleaned up.
+- It's just a `bum`...you know, there's enough in here for the two of you.
+- Just meet in 30. like a homeless `bum`, i mowed old man humphrey's lawn.
+- He's probably on the `bum` and wants to touch you for the price of a drink.
+- Well, i'm on the `bum`; i'll buy him a couple of drinks and tell him my troubles.
+- So what happens� this `bum` wilson he gets the title shot� outdoors in the ballpark!
+- You thought you was god almighty instead of a cheap� conniving�good-for-nothing `bum`!
+- He always dreamed about moving to tahiti -- living in a hut and becoming a beach-`bum`.
+- All i wanted to prove was i weren't no `bum` -- that i had the stuff to make a good pro.
+- I don't mind a `bum`-steer once in a while -- it's their personalities that usually get me.
+                 

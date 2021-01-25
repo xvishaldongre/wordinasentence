@@ -1,0 +1,65 @@
+---
+title: "Sean in a sentence | Sean example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sean"
+---
+- `Sean`, where are you?
+- I'm having fun, `sean`.
+- Listen to andy, `sean`.
+- No, `sean`, it's over...
+- `Sean` ambrose, for one.
+- `Sean`, baby, please....
+- `Sean`, come on out, man.
+- `Sean`'s still out there.
+- The walkers loved `sean`.
+- Tell `sean` i'm sorry.
+- `Sean` -- you're not real.
+- `Sean`, do you have herpes?
+- `Sean`, this is ridiculous.
+- This kid's special, `sean`.
+- Your book was good, `sean`.
+- Finish school first, `sean`.
+- I'm going to pick up `sean`.
+- I'm terribly grateful, `sean`.
+- No, no you hear me out, `sean`.
+- You and `sean` used to make....
+- She doesn't belong here, `sean`.
+- Is that what this is about, `sean`?
+- He knows a lot about `sean` connery.
+- I was just sayin' goodbye to `sean`.
+- Better than catching `sean`'s herpes.
+- `Sean` was still watching his mother.
+- `Sean` ambrose was the obvious choice.
+- Oh, come on, `sean`-- why is he hiding?
+- `Sean`, that's right... get some sleep.
+- Hold your breath, dad... `sean`, wait...
+- I don't know what to do about you, `sean`.
+- Ramanujan's genius was unparalleled, `sean`.
+- Tomorrow i'm going to put `sean` on the bus.
+- He taught us good, though, didn't he, `sean`?
+- I just want you to know, `sean`... we're done.
+- But `sean` said... you had me worried to death!
+- Kelly, could you look after `sean` for a while?
+- It's just `sean`... look, i'm sorry i -- stephen...
+- Well i think that's a wonderful philosophy, `sean`.
+- `Sean` miyashiro: striding is... you're not walking.
+- That means you, magee.... was uncle `sean` ever bad?
+- I don't have any anger at you-- --yes you are, `sean`.
+- When it killed `sean` it was like a stab in the heart.
+- I got `sean` from the bakery to baby-sit so let's go out.
+- I see you used mclullen here-- will, this is `sean` maguire.
+- `Sean`, there's something i've been meaning to talk to you about...
+- Like bear and the ansel twins and `sean` and... that you didn't die?
+- `Sean` -- the funny thing is, i started to believe he really was my dad.
+- `Sean`, do you have any idea what the odds are against winning the lottery?
+- `Sean` -- lamar, do you know the reason why john came here to work with you?
+- Uh, helen, i wanted to talk to you a second about `sean`... that's your job.
+- Goddamn it, `sean`, you listen to me or i will kick your ass, do you hear me?
+- Where he contracted pneumonia and died at a young age-- --that's right, `sean`.
+- `Sean` feels he hasn't done the job unless he leaves a lot of hats on the ground.
+- I'd like a little more conviction.. go and insinuate yourself back into `sean`'s life.
+- This young man is a true prodigy-- now wait a minute, gerry-- `sean`, this is important.
+- It picked `sean`...it killed your father.... hey, come on, you can't believe that voodoo.
+- `Sean` wasn't killed by the same shark.. dad didn't die because of it...it's all wrong...
+                 

@@ -1,0 +1,107 @@
+---
+title: "doing in a sentence | doing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doing"
+---
+- `Doing` some shopping?
+- `Doing` your homework.
+- Half for `doing` what?
+- He is `doing` so well.
+- He's `doing` his best.
+- He's `doing` it again.
+- He's `doing` it first.
+- He's not `doing` well.
+- How good am i `doing`?
+- How is richie `doing`?
+- How'm i `doing`, boss?
+- How's pilgrim `doing`?
+- How's verdell `doing`?
+- How ya `doing`, honey?
+- How you `doing`, baby?
+- How you `doing`, cato?
+- How you `doing`, cthu?
+- I'm `doing` all right.
+- I'm `doing` all right?
+- I'm `doing` it anyway.
+- I'm `doing` okay, sir.
+- It's `doing` it again.
+- So how're you `doing`?
+- The fuck you `doing`?!
+- The guy we're `doing`?
+- Then i'm `doing` fine.
+- What are they `doing`?
+- What are you `doing` ?
+- What are you `doing`?!
+- What are you `doing`??
+- What's he `doing` now?
+- What were you `doing`?
+- What you been `doing`?
+- What you `doing` here?
+- Why am i `doing` this?
+- You�re `doing` well...
+- Get a job `doing` what?
+- He's `doing` very well.
+- How are you `doing` it?
+- How'm i `doing` so far?
+- How's kayleigh `doing`?
+- How's your mom `doing`?
+- How <u>you</u> `doing`?
+- How you and ma `doing`?
+- How you `doing`, kelly?
+- I'm `doing` a job here.
+- I'm `doing` good, good.
+- I'm `doing` what i can.
+- Is sally `doing` sally?
+- It's been `doing` that.
+- It's `doing` something.
+- So how are you `doing`?
+- So what're you `doing`?
+- Spencer's `doing` fine.
+- That's all i'm `doing`.
+- We're `doing` it again.
+- We're `doing` our best.
+- We're not `doing` this.
+- What am i `doing` here?
+- What are `doing`, bond?
+- _ what are you `doing`?
+- What are you `doing`?
+- What are you `doing`?!!
+- What i've been `doing`?
+- What's he been `doing`?
+- What's he `doing` here?
+- What's mig one `doing`?
+- Why is he `doing` this?
+- Yeah, i'm `doing` fine.
+- You learn from `doing`.
+- You're `doing` fine.
+- Are we like, `doing` it?
+- He's `doing` a good job.
+- He's `doing` it for you.
+- He's `doing` well today.
+- How is that hen `doing`?
+- How're you guys `doing`?
+- How we `doing`, colonel?
+- How ya `doing` in there?
+- How you `doing`, brewer?
+- How you `doing`, squirt?
+- I ain't `doing` nothing.
+- I am not `doing` hearst.
+- I know what i'm `doing`.
+- I'm always `doing` that.
+- I'm `doing` fine...look.
+- I'm `doing` my job, too.
+- I'm `doing` this for us.
+- I'm just `doing` my job.
+- I'm not `doing` cocaine.
+- Is this david's `doing`?
+- Is this nigel's `doing`?
+- I was just `doing` this.
+- Jack, what am i `doing`?
+- My man, how you `doing`?
+- Now what are we `doing`?
+- Raven, i'm `doing` this.
+- She's `doing` just fine.
+- Thanks for `doing` that.
+- That's what i'm `doing`.
+                 

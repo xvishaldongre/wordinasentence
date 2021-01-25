@@ -1,0 +1,107 @@
+---
+title: "cab in a sentence | cab example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cab"
+---
+- Don't litter my `cab`!
+- I'll call you a `cab`.
+- You'll buy me a `cab`.
+- I'd better get a `cab`.
+- Or maybe a yellow `cab`?
+- I'll just take a `cab`...
+- I was gonna take a `cab`.
+- Outta this fucking `cab`!
+- Anybody else in the `cab`?
+- That thing with the `cab`?
+- Ernie, dump him in a `cab`.
+- I got the `cab` downstairs.
+- It's like a `cab` isn't it?
+- No, a `cab` will be faster.
+- Plus, i called you a `cab`.
+- Then i'll call you a `cab`.
+- Well, i'll ride in a `cab`.
+- You haven't paid the `cab`.
+- Deepcore, this is `cab` one.
+- Ice cream truck/`cab` - day.
+- `Cab` one, do you see it yet?
+- Ice cream truck/`cab` - dawn.
+- Still don't own my own `cab`.
+- `Cab` one, radiation readings?
+- Look, can i just call a `cab`?
+- Should i whistle down a `cab`?
+- Somebody's driving this `cab`.
+- Catch any `cab` heading uptown.
+- He got his own `cab`, you know.
+- Didn't even leave us `cab` fare.
+- Maybe we should call for a `cab`.
+- In a `cab` you get to meet people.
+- Thanks... we're taking your `cab`.
+- The `cab` thing is just part time.
+- Trust me, i used to drive a `cab`.
+- Guy fell on my motherfucking `cab`.
+- I put reynolds in the `cab` myself.
+- She wanted to get out of the `cab`.
+- The next corner we can get a `cab`.
+- You were in the `cab`, weren't you?
+- You're never gonna get a `cab` here.
+- I could take a `cab` on the way home.
+- Where can i get a `cab` back to town?
+- Could we take a `cab`, mr. thornhill?
+- Take a `cab`, go on back to the hotel.
+- I agree with you about `cab` franc.
+- Call a `cab` if you wanna go somewhere.
+- I told her i was going to call a `cab`.
+- Quit stalling and get out of the `cab`.
+- You're the one that came into my `cab`.
+- Now stop wasting time and fetch a `cab`.
+- Taking a `cab` instead of hiring a limo?
+- I'll take you there, you can get a `cab`.
+- Let's park the `cab` and go to mannion's.
+- Don't worry about me, i'll grab a `cab`...
+- I used to carry a gun when i drove a `cab`.
+- Oh, you see lots of freaky stuff in a `cab`.
+- Ah...there's a funny lookin' `cab` behind us.
+- None of your business, but it's in the `cab`.
+- She stayed in the `cab`, what's she gonna do?
+- You took a `cab` to see three kung fu movies?
+- I'm driving a `cab` now, not a space fighter!!
+- I'm still in my `cab` -- jammed up in traffic.
+- Roger, you said you were going to call a `cab`.
+- I didn't rob... rick, i'm going to flag a `cab`.
+- They called to check you brought the `cab` in...
+- How much you pay this joker... this `cab` driver?
+- I'm sorry, sir, you'll have to find another `cab`.
+- Because you didn't want to pay for a goddamn `cab`.
+- There was an empty `cab` right outside my building.
+- The `cab` has an airbag, odds are good i'll survive.
+- Some poor newly married guy gets run down by a `cab`.
+- They're <u>somebody's</u> friends... you drive a `cab`.
+- You know, this is the cleanest `cab` i've ever been in.
+- 1840... 50... 60... 70... what's you depth, `cab` three?
+- I got in the `cab` and it was layin' there on the floor.
+- We can spend fifteen bucks on a `cab` to save five each.
+- Mmmmnph...i'll get you a `cab`... kramer, i've got to go.
+- Charles, will you call a `cab` for these gentlemen, please.
+- Deepcore, deepcore... this is `cab` three on final approach.
+- I've always wondered if there was someone else in the `cab`.
+- You don't like my fucking music, get your own fucking `cab`!
+- A `cab` just pulled up, aside from that... something going on?
+- Someone'd have to go up to the `cab` to get it up and running.
+- Well, no... not really... had some famous people in the `cab`.
+- A lot of girls come into my `cab`, some of them very beautiful.
+- When i get back i'll have the `cab` waiting, so be ready to go.
+- You can't carry in a `cab` even with a permit -- so why bother?
+- I let my `cab` go, so can i come in to call another one, please?
+- May as well start packing, our `cab`'s gonna be here in an hour.
+- They found him dead in his own `cab` down by the port authority.
+- Listen tom, i let my `cab` go; can i come in to call another one?
+- Not so very far-- where were you going when you got in that `cab`?
+- ...roger was a bit tipsy when he arrived here by `cab` for dinner.
+- Have your `cab` wait at the foot of cisco -- we'll ride up together.
+- Brilliant -- unless they were close enough to see the `cab` pull away.
+- I'll stay until we can get a man out here and maybe catch a `cab` home.
+- There's a sand barricade up ahead; i'm going to ram this `cab` into it.
+- I tell everybody that comes in this `cab` that they should vote for you.
+- Guy gets in my `cab` wearing a catcher's mask, i think he's a ballplayer.
+                 

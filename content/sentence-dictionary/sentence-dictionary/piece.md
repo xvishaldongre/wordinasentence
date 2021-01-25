@@ -1,0 +1,107 @@
+---
+title: "piece in a sentence | piece example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "piece"
+---
+- Big `piece` or little?
+- He's a museum `piece`.
+- I'll getcha a `piece`.
+- Lying `piece` of shit!
+- Lying `piece` of shit!
+- One ten penny `piece`.
+- `Piece` of cake, baby.
+- Five hundred a `piece`.
+- It's a `piece` of cake.
+- It's a `piece` of crap.
+- It's a `piece` of shit.
+- Like a `piece` of shit?
+- `Piece` of cake, quill.
+- Racist `piece` of shit.
+- What a `piece` of crap.
+- What a `piece` of work.
+- A `piece` of advice, mr.
+- Give me the ear `piece`.
+- It is a `piece` of shit.
+- It is a sublime `piece`.
+- `Piece` of fucking cake.
+- Truck stop up a `piece`.
+- We're now one a-`piece`.
+- All of a `piece`, really.
+- A shitty `piece` of wood.
+- But that `piece` of shit?
+- He's a `piece` of shit...
+- It's a wonderful `piece`.
+- It was a `piece` of wood.
+- ... a `piece` of paper ...
+- Bastard `piece` of shit...
+- It's a `piece` about love.
+- Nice `piece` of work, fox.
+- No, in your...ear `piece`.
+- Not in one `piece` anyway.
+- Oh, this `piece` of paper?
+- `Piece` of work, that guy.
+- This is a `piece` o' cake.
+- Yeah, i read your `piece`.
+- A `piece` of pie on sunday.
+- A terrific `piece` of work.
+- Banner, you want a `piece`?
+- This was a `piece` of cake.
+- We did a `piece` last year.
+- You want a `piece` of cake?
+- A lovely `piece` of theater.
+- Fine `piece` of engineering.
+- God, what a `piece` of junk.
+- Here, have a `piece` of gum.
+- He's a real `piece` o' work.
+- How 'bout a `piece` on iran?
+- I'm not some `piece` a crap.
+- It's called a chess `piece`.
+- Yeah, it's a simple `piece`.
+- You fuckin' `piece` of shit.
+- A `piece` of shrapnel hit me.
+- At least we're in on `piece`.
+- Do you have a `piece` of gum?
+- Frankie, you `piece` of shit!
+- He's a nasty `piece` of work.
+- In a humble `piece` of toast?
+- It's only a `piece` of metal.
+- Keaton was a `piece` of shit.
+- ...`piece` of shit was worth.
+- You pathetic `piece` of shit.
+- Gave me this `piece` of paper.
+- It's a pretty `piece` of land.
+- It's a three `piece` set here!
+- You `piece`-a-shit bug zapper!
+- You're a cold `piece` of work.
+- You're a real `piece` of work.
+- You worthless `piece` of shit!
+- Do you have a favorite `piece`?
+- I'm doing a `piece` on skybolt.
+- So, i'm a `piece` of equipment.
+- That's a franklin mint `piece`.
+- There's a `piece` of cake left.
+- This is a real `piece` of shit.
+- ...wants a `piece`... ...yes...
+- Who wrote this `piece` of crap?
+- Go to hell, you `piece` of shit!
+- How long is a `piece` of string?
+- I have one more `piece` of news.
+- I'll take a `piece` of that bet.
+- I saw the smile -- good `piece`.
+- It is a nice `piece` of writing.
+- Remarkable `piece` of machinery.
+- Well, you're all in one `piece`.
+- It's a beautiful `piece` of work.
+- Not from me, you `piece` of shit.
+- Oh, come on, you `piece` of shit!
+- `Piece` of black, volcanic glass.
+- `Piece` of it came down this way.
+- Would you like a `piece` of cake?
+- A `piece` of ass wouldn't kill me.
+- A puzzle with one `piece` missing.
+- If you get it back in one `piece`.
+- I'm only getting a `piece` of him.
+- It's a `piece` of somebody's life.
+- The missing `piece` of the jigsaw.
+                 

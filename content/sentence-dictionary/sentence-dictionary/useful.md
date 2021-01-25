@@ -1,0 +1,64 @@
+---
+title: "useful in a sentence | useful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "useful"
+---
+- He has proven `useful`.
+- Make yourself `useful`!
+- That might be `useful`.
+- You do something `useful`.
+- He'll be more `useful` now.
+- These will be very `useful`.
+- Oh, that'll come in `useful`.
+- Here - make yourself `useful`.
+- Ok... you want to be `useful`?
+- It's especially `useful` for...
+- I want to know `useful` things.
+- Notice how each one is `useful`.
+- Very `useful` in the apocalypse.
+- You do... do something `useful`.
+- Please give me something `useful`.
+- How can you be `useful` in my camp?
+- Keep being `useful`, and so does he.
+- Some new *things* would be `useful`.
+- Look, why not make yourself `useful`?
+- Some of this stuff could be `useful`.
+- That made her more `useful` than you.
+- What can you tell us that's `useful`?
+- Dee, you've been `useful` for 50 years.
+- Well, i'm onto something more `useful`.
+- Why don't you develop a `useful` skill?
+- Wouldn't it be `useful` to talk to her?
+- At last you're making yourself `useful`.
+- I don't know, you can still be `useful`.
+- That's why nixon's always been `useful`.
+- He's a `useful` guy to have on your side.
+- At present he serves no `useful` function.
+- 'hell, i may as well do something `useful`.
+- To symbolize this union, could be `useful`.
+- I wouldn't be `useful` to you anymore, jack.
+- The hotels are `useful` capital investments.
+- [horn] that could be `useful` to all of us.
+- They found our knowledge `useful` for a time.
+- You've no idea how `useful` that could be.
+- Let me give you some `useful` information, son.
+- It could be extremely `useful` to jog his memory.
+- I found a library and the books were very `useful`.
+- Mccreary's still `useful`, and so are you, for now.
+- Maybe i can learn something that you'll find `useful`.
+- Why not breed a parasite that does something `useful`?
+- I didn't actually see anything `useful`, i don't think.
+- Instead of teachers giving us letter grades, and `useful`.
+- I was `useful` to damaskinos as long as the hunt was still on.
+- Thanks for talking about me behind my back...`useful` in court.
+- Maybe they'll give me a new fishing pole, or something `useful`.
+- Or she is in control and you're not as `useful` - _ - let's see.
+- Dr. soong created us to become active and `useful` members of society.
+- This circuitry will be `useful` locked out of the missiles, we're all here.
+- I.. that if <u>decision</u> were a `useful` tool, you wouldn't <u>be</u> here.
+- The moment you stop being `useful`, her favorite flowers were the calla lilies.
+- "...bio-readings of indeterminate origin," don't you have anything `useful` to tell me?
+- I think this will be extremely `useful`, a good way for us to absorb some of your methods.
+- It�s sound- proofed, stocked up with food, drink and other things you might find `useful`.
+                 

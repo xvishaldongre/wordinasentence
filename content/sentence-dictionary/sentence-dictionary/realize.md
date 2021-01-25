@@ -1,0 +1,107 @@
+---
+title: "realize in a sentence | realize example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "realize"
+---
+- Do you `realize` that?
+- You do `realize` that.
+- You `realize`... why not?
+- I hope you `realize` that.
+- You `realize` that, right?
+- He must not `realize` he is.
+- I'm glad you `realize` that.
+- I `realize` it must be hard.
+- I `realize` this is a shock.
+- Please, don't you `realize`?
+- I didn't `realize` i was out.
+- I didn't `realize` you cared.
+- But you don't `realize`.... no.
+- It made me `realize` something.
+- You made me `realize` i wasn't.
+- You `realize` what is at stake?
+- I'm beginning to `realize` that.
+- You `realize` what you're doing?
+- And they don't even `realize` it.
+- Do you `realize` what time it is?
+- I didn't `realize` you were busy.
+- It helped me `realize` one thing.
+- You do `realize` that, don't you?
+- You `realize` this is a day trip.
+- Do you `realize` what you've done?
+- How long until they `realize` yep.
+- To be honest, i don't `realize`...
+- Do you `realize` i have light eyes?
+- Do you `realize` what we have here?
+- You `realize` that you're a target.
+- Do you `realize` that i work at him?
+- I didn't `realize` it was that loud.
+- I didn't `realize` what i was doing!
+- You didn't `realize` i was in charge.
+- Do you `realize` how paranoid you are?
+- I did not `realize` it was obligatory.
+- So i can `realize` she's not so smart.
+- You'd `realize` you suck at both jobs.
+- You `realize` what this'd mean for us?
+- Now i `realize` how unfair that is.
+- You are a cliché, you do `realize` that?
+- You don't `realize` how important it is.
+- Do you `realize` how immoral this all is?
+- Do you `realize` we got ourselves a ship?
+- I didn't `realize` how late it was, okay?
+- I need you to `realize` i'm on your side.
+- Until you `realize` we're fighting a war?
+- Do you `realize` what your saying, gibson?
+- ....i didn't `realize` i said it out loud.
+- I'll `realize` this is just what i needed.
+- I `realize` you don't want to be involved.
+- Maybe you don't `realize` it, but you are.
+- I, uh, didn't `realize` nancy had a sister.
+- Jeremiah, do you `realize` what this means?
+- What you don't `realize` is, echo's azgeda.
+- You `realize` you have no recourse legally?
+- I didn't `realize` i had to declare a major.
+- Sorry, didn't `realize` she was right there.
+- Viktor, do you `realize` you always do that?
+- You don't `realize` how bad this is, do you?
+- Didn't `realize` you were watching the clock.
+- I didn't `realize` a man could be monogamous.
+- I didn't `realize` you'd been here that long.
+- I didn't `realize` you were an art collector.
+- I prefer option 3... - do you `realize` this?
+- You would `realize` that we were meant to be.
+- Don't you `realize` what you are dealing with?
+- I didn't quite `realize` it at the time but...
+- [banging] hey... you `realize` that, don't you?
+- I don't think that you `realize` what it means.
+- You `realize` how rarely they make that ruling?
+- Do you `realize` how fucking miraculous this is?
+- Do you `realize` who the fuck you're talking to?
+- They'll `realize` i kept my part of the bargain.
+- Do you `realize` what leo could have told jimmy?!
+- Do you `realize` what we're involved in here now?
+- I guess i didn't `realize` how much i needed him.
+- Smithers, do you `realize` how brilliant this is?
+- You do `realize` we don't have a way down, right?
+- To see how long it would take for me to `realize`.
+- You `realize` what would happen if this fort fell?
+- Andy, do you `realize` you don't do comedy anymore?
+- I didn't `realize`... you hired someone to open it.
+- Just, `realize`... this is not some common lunatic.
+- Matt, do you `realize` you're up against something?
+- You must `realize` that we've found the main nerve.
+- You `realize`, however, that you committed a crime?
+- By the way, you `realize` we just lost the midterms.
+- Do you `realize` what a thread we're all hanging by?
+- I mean in my dream -- i didn't `realize` it was you.
+- It wouldn't be fair to you to -- i didn't `realize`.
+- They don't even `realize` they should be frightened.
+- And therefore made me `realize` how selfish homer is.
+- Do you `realize` what you're letting yourself in for?
+- When are you going to `realize` there is no way back?
+- But one day you wake up and `realize` you've been had.
+- Clarke, you `realize` staying says go, go, go, go, go!
+- I don't think you `realize` how serious this is uncle.
+- I'm laughing and then i `realize` i wear a nametag.
+- Don't you `realize` there's nothing you can do, anyway!
+                 

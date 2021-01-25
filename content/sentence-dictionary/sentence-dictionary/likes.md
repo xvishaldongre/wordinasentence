@@ -1,0 +1,107 @@
+---
+title: "likes in a sentence | likes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "likes"
+---
+- He really `likes` you.
+- She <u>`likes`</u> me.
+- Because he `likes` you.
+- I think he `likes` you.
+- I think it `likes` you.
+- I think she `likes` me.
+- The big guy `likes` it.
+- Walter `likes` the past.
+- Who `likes` happy songs?
+- From the `likes` of them.
+- She really `likes` eggos.
+- Apparently he `likes` you.
+- Ben `likes` to be read to.
+- Hey, mikey, he `likes` it!
+- I see why she `likes` you.
+- Man knows what he `likes`.
+- See, cassandra `likes` it.
+- She just `likes` it a lot.
+- She just `likes` to tease.
+- She `likes` to play bingo.
+- He `likes` his women quiet.
+- I think he `likes` her now.
+- Mitch `likes` it very much.
+- Not everyone `likes` music.
+- One `likes` to live simply.
+- Pinta `likes` him too much.
+- Charlie `likes` his leopard.
+- [enola] she `likes` ciphers.
+- Everyone `likes` that story.
+- He `likes` the way he talks.
+- I could see she `likes` you.
+- `Likes` prettyboys like you.
+- M'baku `likes` a good fight.
+- No one `likes` 3 musketeers.
+- He `likes` to create a stink.
+- I know he really `likes` you.
+- Maybe he `likes` older women.
+- Nobody `likes` a know-it-all.
+- She `likes` a stolie, no ice.
+- She `likes` the way you move.
+- She `likes` <u>you</u>, rube.
+- That's easy, she `likes` you.
+- She `likes` tommy lasorda.
+- He just `likes` to write code.
+- He `likes` her better than me.
+- I `likes` you better with her.
+- I take it she `likes` the guy.
+- Somebody up there `likes` you.
+- The man `likes` to play chess.
+- He `likes` the little guys.
+- He `likes` to order that thing.
+- He still `likes` you with mark?
+- I think she really `likes` you.
+- Just because he `likes` nougat?
+- Maybe she `likes` ghostbusters?
+- Rocket fuel `likes` to go boom.
+- Ronald here `likes` telephones.
+- He says he `likes` your courage.
+- I don't think he `likes` jell�o.
+- I know why everyone `likes` him.
+- Maxine `likes` to call me lotte.
+- She `likes` her grounders alive.
+- The mind flayer `likes` it cold.
+- The mind flayer `likes` to hide.
+- Everybody `likes` to, don't they?
+- He `likes` to play the great man.
+- My friend jordan `likes` to talk.
+- You know frank `likes` you a lot.
+- You think she really `likes` him?
+- All i know is she `likes` snapple.
+- I think she `likes` kinky sex.
+- Hall `likes` me bathed and shaved.
+- He `likes` people with an opinion.
+- I can see why russell `likes` her.
+- I just don't think she `likes` me.
+- Mr. merrick `likes` the food here.
+- Oh that, she just `likes` to play.
+- Well, i know mom sure `likes` 'em!
+- Do you think j.j. `likes` steve...?
+- He says he `likes` strawberry, too.
+- She says she '`likes` me too much'.
+- Vanessa `likes` madison for a girl.
+- At least somebody `likes` this shit.
+- Let him break - he `likes` to break.
+- My brother says he `likes` you, too.
+- What makes you think she `likes` me?
+- I don't think your friend `likes` me.
+- It's never been `likes` waves before.
+- My daddy `likes` me home before dark.
+- Peter even `likes` me without makeup.
+- Everybody `likes` a shot at the champ.
+- I know he only `likes` me as a friend.
+- So that's the kind of guy she `likes`?
+- There is no way she `likes` that song.
+- He `likes` it and hangs it on the wall.
+- My father `likes` to drink at your bar.
+- No one `likes` to be alone on holidays.
+- She says she `likes` jerry maroney now.
+- So, whether he `likes` it or not, we...
+- What's this boy got that susie `likes`?
+                 

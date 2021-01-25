@@ -1,0 +1,107 @@
+---
+title: "have in a sentence | have example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "have"
+---
+- Been busy, `have` you.
+- Bet your ass i `have`.
+- But `have` never been?
+- But i don't `have` it.
+- But i `have` big news.
+- But, i `have` my ways.
+- Can i `have` milk too?
+- Can i `have` that one?
+- Can i just `have` one?
+- Can't `have` gone far?
+- Care to `have` a look?
+- C'mon, `have` a drink.
+- Could i `have` a puff?
+- Deers `have` ears too.
+- Did you `have` a coat?
+- Does he `have` a name?
+- Does he `have` people?
+- Does it `have` a name?
+- Do they `have` drinks?
+- Do we `have` a future?
+- Do we `have` a garden?
+- Do we `have` a visual?
+- Do you `have` a cross?
+- Do you `have` a fella?
+- Do you `have` a fever?
+- Do you `have` a match?
+- Do you `have` a phone?
+- Do you `have` a point?
+- Do you `have` a scarf?
+- Do you `have` a sword?
+- Do you `have` ram rod?
+- `Have` a good holiday.
+- `Have` a good holiday?
+- `Have` a great summer.
+- `Have` a little faith.
+- `Have` a little snort?
+- `Have` a nice holiday.
+- `Have` a suck on that.
+- `Have` a swell party.'
+- `Have` been destroyed.
+- "`have` i got a story!
+- `Have` i offended you?
+- `Have` them mobilized.
+- `Have` we obligations?
+- `Have` you been there?
+- `Have` you gone crazy?
+- `Have` you seen gibbs?
+- `Have` you seen monty?
+- `Have` you seen peter?
+- He could `have` tried.
+- He doesn't `have` one.
+- He thinks i `have` it.
+- How long do we `have`?
+- How long do we `have`?
+- How long `have` i got?
+- I also `have` a phone.
+- I also `have` the gun.
+- I bet he would `have`.
+- I can't `have` a baby.
+- I could `have` it all!
+- I don't `have` a clue.
+- I don't `have` a date.
+- I don't `have` a girl.
+- I don't `have` anyone.
+- I don't `have` a ring!
+- I don't `have` a vote.
+- I don't `have` a week.
+- I don't `have` gloves.
+- I don't `have` it yet.
+- I don't `have` spells.
+- I don't `have` time...
+- I got to `have` trust.
+- I guess you `have` to.
+- I `have` a bad temper.
+- I `have` a better one.
+- I `have` a confession.
+- I `have` a girlfriend.
+- I `have` a lunch date.
+- I `have` an apartment.
+- I `have` a new client.
+- I `have` a question...
+- I `have` a rough idea.
+- I `have` a solar head.
+- I `have` a suggestion.
+- I `have` a television.
+- I `have` a vague idea.
+- I `have` been blessed.
+- I `have` betrayed you.
+- I `have` come for him.
+- I `have` eyes on loki.
+- I `have` helm control.
+- I `have` left my wife.
+- I `have` lost my gift.
+- I `have` lots of them.
+- I `have` my eyes open.
+- I `have` no questions.
+- I `have` no reason to.
+- I `have` nothing left.
+- I `have` not said all.
+- I `have` one question.
+                 

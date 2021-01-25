@@ -1,0 +1,97 @@
+---
+title: "issue in a sentence | issue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "issue"
+---
+- [it's a moral `issue`.
+- Not a pressing `issue`.
+- Third `issue` this year.
+- `Issue` is as a bulletin.
+- It's an important `issue`.
+- Today it's not an `issue`.
+- It's a bi-partisan `issue`.
+- That is a separate `issue`.
+- There's the agency `issue`.
+- A very good `issue` to take.
+- Rank is not an `issue` here.
+- No it's not the only `issue`.
+- That's not the `issue`, delmar.
+- Then there's the other `issue`.
+- <u>that's not the `issue`</u>!!
+- My wife is not the `issue` here.
+- The bond `issue` passes tuesday.
+- The `issue` is maureen prescott!
+- There's a more pressing `issue`.
+- Yes, but that's not the `issue`.
+- Don't think it's even an `issue`.
+- This chinaman is not the `issue`!
+- What other `issue` is there, sid?
+- It's more of a perceptual `issue`.
+- This isn't a "moral" `issue`, bob.
+- C'mon, don't make an `issue` of it.
+- A little petting is not the `issue`!
+- First push the man, then the `issue`.
+- `Issue` the toilet paper tear as a...
+- That won�t be an `issue`, believe me.
+- This `issue` is a drop in the bucket.
+- Don't make an `issue` of my womanhood.
+- Let's just avoid the `issue`, alright?
+- Mozart, music is not the `issue` here.
+- Six others, u.s. `issue` jungle boots.
+- There's another `issue`, for the jury.
+- Look, young man, the `issue` is simple.
+- This chinaman is not the `issue`, dude.
+- Wrong, this `issue` is sidney prescott!
+- I do you up feature in the next `issue`.
+- I'll have guild `issue` the invitations.
+- Insomnia, that was just a decoy `issue`.
+- Standard `issue` mal- practice insurance.
+- Available cash is not an `issue` for us...
+- Big `issue` with the first amendment fans.
+- For once in my life, i am not the `issue`.
+- I want to put out an all hop-head `issue`.
+- Though it does raise a disturbing `issue`.
+- That evening they `issue` a general sos.
+- Destroy your career over an `issue` of pride?
+- I don't see this as a gender-related `issue`.
+- Ohh... well, temperature would be an `issue`.
+- 'spending time on her favorite `issue`...' oh.
+- That's not the `issue` here, those people are.
+- Excuse me... but what is the real `issue` here?
+- `Issue` the challenge and let's get on with it.
+- That's right, 'cause it's an important `issue`.
+- But that's not the only `issue` here, sweetheart.
+- I'm not a partisan person, i'm an `issue` person.
+- General, `issue` the warning orders to our forces.
+- Nudity has just never been an `issue` for me, frank.
+- Our first `issue` together is almost ready to print.
+- I'm sure he'd be happy to clarify the `issue` for you.
+- They can be used to `issue` instructions to saboteurs.
+- There's still a chance i can `issue` a distress signal.
+- Her favorite uncle it's a lung cancer `issue` number one.
+- Remember what i told you, that i have an anxiety `issue`?
+- But that's a side `issue` -- something i do on my own time.
+- But the way it was explained to me, that's not the `issue`.
+- Gee, he talks like he's violating a moral `issue` sitting here.
+- No matter what else happens, i've got the sofa `issue` handled.
+- Well, it's a complicated `issue`-- you think we need a new jail?
+- Because race has always been a sensitive `issue` in this country.
+- He knows what's wrong with every `issue` since i've taken charge.
+- Mr. roston's sexual preferences are not at `issue` in this trial.
+- Agent duncan, there's an interstate `issue` up on 54, run out there.
+- Well, letty, this does present a liability `issue` for the hospital.
+- Have to hope it's a signal that he'll back down on the real `issue` too.
+- Might make kind of a social `issue`, not having any other negro officer.
+- Don't tell me that flare is standard prison `issue`... are you crazy?
+- I will only `issue` such instructions when ordered to by the president.
+- I'm sorry sir, we need your debit card before we can `issue` a credit -- no.
+- Homeless, rootless, lonely, maybe your copy gets into one `issue` out of four...
+- Still, this was a sensitive `issue` for me and i wanted to thank you personally.
+- This guy has the damn subscription to every psychotic `issue` i've ever heard of.
+- He's pulling a 211 with a "trucker", who happens to be packing a cop `issue` h&k 9mm.
+- The `issue`'s in doubt, you know--since i'm always for peace-- why would you do that?
+- Well there's a few choice lps in here that re-`issue` some really great old blues stuff.
+- It purports to be the x-ray of dr. l... ...standard `issue`... a fellow with five fingers.
+- Connie, let's `issue` statements advising people not to panic, to stay home and take cover.
+                 

@@ -1,0 +1,107 @@
+---
+title: "comfortable in a sentence | comfortable example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "comfortable"
+---
+- _ - `comfortable` bed.
+- But it's `comfortable`.
+- It takes me `comfortable`.
+- Are you `comfortable` here?
+- Because it's `comfortable`.
+- Does it feel `comfortable`?
+- It's a `comfortable` place.
+- Are you `comfortable` regan?
+- I hope you're `comfortable`.
+- Make yourself `comfortable`.
+- You looked so `comfortable`.
+- Does what feel `comfortable`?
+- He had a `comfortable` night.
+- Make yourselves `comfortable`.
+- You sure you're `comfortable`?
+- I hope you'll be `comfortable`.
+- I'm more `comfortable` in here.
+- Now at least i'm `comfortable`.
+- Are you `comfortable` with this?
+- I just don't feel `comfortable`.
+- You may feel more `comfortable`.
+- Are you... are you `comfortable`?
+- I am not `comfortable` with this.
+- Just make yourself `comfortable`.
+- Somebody's getting `comfortable`.
+- Yo, i'm not `comfortable` either.
+- You feel `comfortable` with that?
+- You don't look `comfortable` here.
+- Better make yourself `comfortable`.
+- Er ... make yourself `comfortable`.
+- I hope you find this `comfortable`.
+- I just told you, i'm `comfortable`.
+- Ninotchka feels more `comfortable`.
+- Please make yourself `comfortable`.
+- Find the room `comfortable`, do you?
+- I'm strangely `comfortable` with it.
+- Please, make yourself `comfortable`.
+- That's all i'm `comfortable` saying.
+- There is nothing more `comfortable`.
+- Why wouldn't you feel `comfortable`?
+- But you know, i'm `comfortable` here.
+- She's not `comfortable` in a corsica?
+- Well, cameron, are you `comfortable`?
+- I went as far as i felt `comfortable`.
+- Jonah's really `comfortable` with her.
+- Marge, i never want get `comfortable`.
+- You all settled an' `comfortable` now?
+- You're just `comfortable`, that's all.
+- But then she became more `comfortable`.
+- Look how `comfortable` he is out there.
+- If you'd like to get more `comfortable`.
+- I'm more `comfortable` around my people.
+- It's not going to be very `comfortable`.
+- Have a seat, make yourself `comfortable`.
+- Have the servants made you `comfortable`?
+- Would you be more `comfortable` barefoot?
+- You know i'm not `comfortable` with this.
+- I'm not `comfortable` with the last sketch.
+- Listen, clara, make yourself `comfortable`.
+- You feel `comfortable` and trusted and open.
+- You think these things are `comfortable`?
+- I just can't find shoes that's `comfortable`.
+- I just feel more `comfortable` keeping it on.
+- Just lay your head back and get `comfortable`.
+- Why don't i slip into something `comfortable`?
+- You're clearly `comfortable` in your own skin.
+- I got so i was `comfortable` there in the dark.
+- Just trying to get `comfortable` on your couch.
+- We sit down -- we make ourselves `comfortable`.
+- It's a beautiful home, wonderfully `comfortable`...
+- All feel `comfortable` i want you to know something.
+- You won't be `comfortable` unless you're distinctive.
+- I thought you'd be more `comfortable` with your peers.
+- I've never been this happy, or `comfortable` anywhere.
+- Well -- it's very `comfortable` -- just to drift here.
+- I'd be more `comfortable` if he slept in the guestroom.
+- I hope you are `comfortable` here, inside my kingdom...
+- Perhaps you'd be more `comfortable` using someone else.
+- I'd be more `comfortable` if you hadn't slept with josh.
+- But first, let me slip into something more `comfortable`.
+- I do the best i can to make it `comfortable` for us here.
+- I wouldn't get too `comfortable` on that high horse, ben.
+- You'd be more `comfortable` if you relaxed with yourself.
+- I think you'll be more `comfortable`... what's this about?
+- Look, i'm not real `comfortable` being here, but... ...in.
+- George would be more `comfortable` if he weren't dying.
+- I have a deal that could make all of us very `comfortable`.
+- Our life feels too `comfortable`, too safe, too predict- able.
+- But i feel like maybe i could be really `comfortable` with you.
+- Why cannot there be a place for me to work safe and `comfortable`?
+- You can do presents and be `comfortable` at the same time, y'know.
+- I have to tell you, mack, i'm not `comfortable` where you're going.
+- I'd really feel more `comfortable` paying for my half of the dinner.
+- I guess, the truth is i'm just not `comfortable` with the idle rich.
+- You sure you going to be `comfortable` enough there, miss... ah... ?
+- Perhaps you'd be more `comfortable` at one of our lower stakes tables.
+- I'm not sure i know you well enough -- i don't think i'm `comfortable`.
+- She said awfully sorry, make yourself `comfortable`, she won't be long.
+- The music surrounds you like a... warm and, `comfortable` pool of water.
+- I gotta tell you, mr. reuben, i'm not `comfortable` getting in any deeper.
+                 

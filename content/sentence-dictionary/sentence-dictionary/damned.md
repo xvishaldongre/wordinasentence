@@ -1,0 +1,107 @@
+---
+title: "damned in a sentence | damned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "damned"
+---
+- Blasphemy be `damned`!
+- I... `damned` hunters.
+- I'll just be `damned`.
+- The public be `damned`!
+- Well, i'll be `damned`!
+- Well, i'll be `damned`.
+- God has `damned` us all.
+- It's this `damned` book.
+- Walking his `damned` dog.
+- It's `damned` humiliating.
+- It's `damned` interesting.
+- This is `damned` peculiar.
+- I'll be `damned` if you are!
+- It's `damned` condescending!
+- "new rose," by the `damned`.
+- We're so `damned` important!
+- He was so `damned` honest ...
+- Put that `damned` thing down!
+- You and that `damned` garden.
+- She's so `damned` judgemental.
+- You look like a `damned` slave!
+- You're `damned` right i'm sure.
+- You're `damned` right they are.
+- Children are `damned` expensive.
+- `Damned` difficult, i'd imagine.
+- I'll be `damned` if i'm leavin'.
+- She's so `damned`... perfect.
+- I'll be god `damned` if you will.
+- It doesn't show a `damned` thing.
+- I called your god-`damned` office!
+- It's just so `damned` pleasurable.
+- Let him be `damned` for his pages!
+- Son of a god<u>`damned`</u> bitch!
+- The tortures of the `damned`, sir.
+- Okay, i'll do a `damned` lot count!
+- Best `damned` woman i've ever known.
+- I don't care about the `damned` car.
+- Because i'm his `damned` pin-up girl!
+- ...their `damned` souls will be ours.
+- We're both of us `damned`, my beauty.
+- I want you to drop the `damned` thing.
+- She's worked too `damned` hard for it.
+- Shoot the `damned` things as they fly.
+- `Damned` interesting work, i'd imagine.
+- He wanted to buy a `damned` fire truck!
+- That `damned` arnold is here, isn't he?
+- `Damned` thing wriggled out of my hands.
+- You're `damned` hard to get on the phone.
+- I find it all pretty `damned` interesting.
+- Seemed pretty god `damned` ordinary to me.
+- We'll never get rid of the `damned` thing!
+- It's not my ego, `damned` or otherwise.
+- Here's to ya, uh... well, i'll be `damned`.
+- I've suffered the tortures of the `damned`.
+- I don't think you are; not one `damned` bit.
+- The `damned` yellows are getting out of hand.
+- All right, but.... ...you're so `damned` ugly!
+- I'm trying to get that god `damned` shop open.
+- This `damned` tie ... will you help me, edgar?
+- `Damned` if i can keep her out of my equations.
+- I'll be `damned` if that wasn't a wrong number?
+- `Damned` to an eternity of idiotic conversation.
+- Well i don't want a `damned` thing to do with it.
+- You think you're so god `damned` smart, don't you?
+- `Damned` if i know... who threw this party, anyway?
+- You got this whole `damned` thing outta proportion.
+- I can't stay home tending the `damned` olive groves?
+- Do you think i want to go to some god `damned` party?
+- Maybe this whole `damned` system of government is ...
+- Audrey, you're too `damned` nice, that's your problem.
+- Colonel tarleton, you deal with these `damned` rebels.
+- I tell you every `damned` place i go the man is adored!
+- I will not have any `damned` ultimatums put to me, lou.
+- I couldn't believe it either... ...well i'll be `damned`.
+- I'm sorry, sir, i - ...if it's so `damned` important to ya!
+- So you called the `damned` thing elvis we do need your truck.
+- Cooties be `damned`, you girls are badass i'm gonna need that.
+- Except this time there's more than your `damned` ego at stake.
+- There's nothing you could have done, gates is a `damned` fool.
+- When are you gonna stop listening to those `damned` talk shows?
+- It's just the god `damned` english doing everything by the book.
+- I don't think her being cautious is so `damned` unreasonable.
+- I'll be `damned` if i'm gonna sit around and pass on the buck again.
+- Johnson had the same `damned` problem till he bugged his own office.
+- We got everything here from a diddle-eyed-joe to a `damned`-if-i-know.
+- You're just left there all alone... swaying in the god-`damned` breeze.
+- Seale, that god `damned` cleaver, where the hell do these guys come from?
+- They want to dump tiger and have me endorse their `damned` chariot, right?
+- Raise bail of my own cognizance & find the best `damned` lawyer there is ..
+- The concentration in the rings is what makes the whole `damned` thing work.
+- Remember that `damned` overland you two thought up in '62 to hit fort louis?
+- The `damned` case doesn't start until tomorrow and already it's over for you!
+- I got this `damned` tooth, i got a few things bugging me, like everybody else.
+- All the `damned` fool has to do is hit the british rearguard and then hold for us.
+- That `damned`, rusty, radiator, bout burned the skin off my legs each time i passed.
+- But, if somebody'd given me half a `damned` excuse -- i was pretty fucked up, you know.
+- You and your `damned` bedside manner and your `damned` little black bag full of miracles.
+- But, sir, you're covered -- no one here gave orders to break into the `damned` watergate.
+- I've been telling you all for years you've got too `damned` many psychoes in the service.
+- No one's gonna tell me that kid did the shooting job he did from that `damned` bookstore.
+                 

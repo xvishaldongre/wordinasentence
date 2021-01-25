@@ -1,0 +1,52 @@
+---
+title: "design in a sentence | design example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "design"
+---
+- Their `design` is good.
+- Parsons school of `design`.
+- To an asian `design` major.
+- But my `design` was perfect!
+- Did you `design` the bottle?
+- He said death has a `design`.
+- Newer, more powerful `design`.
+- Sorry, i just `design` the maze.
+- That was death's original `design`.
+- He taught us engineering and `design`.
+- Next time, we'll `design` a bigger one.
+- Number two, `design` for jupiter orbit.
+- She's marrying an asian `design` major.
+- Unusual `design` for a contemporary piece.
+- Looks like a `design`, some writing, maybe.
+- The `design`'s deliberately noncontextural.
+- The ultimate tree house of my own `design`.
+- Interior `design` is a <u>science</u>, delia!
+- It's all here in the `design` specifications!
+- I think this new `design` will work even better!
+- Sandro, that's how you should `design` your houses.
+- You're pregnant with an asian `design` major's child?
+- Maybe the asian `design` major slipped her some opium?
+- You `design` your own wine; i'll handle the business side.
+- I'm sure you'd be able to `design` some very lovely things.
+- There's no one in fact, who's fully rated on this `design`.
+- My name is ray and my friend bucky and i `design` video systems.
+- The official inquiry blamed weir's `design` for the ship's loss.
+- You'd have to `design` a graphic interface to make the data pop.
+- Norville showed me his `design` for the whatsit the day i met him!
+- When i got out of weapons `design`, i wanted to move into a more .
+- Heavy graphical background, doing `design`-interface for skywire apps.
+- Ladies and gentleman, mrs. asian `design` major herself: caitlin bree!
+- My intervention in the death of 180 survivors will cheat the `design`.
+- The man with the eyes in his hands... and whose houses do you `design`...?
+- ♪ yeah, i'm great, now that i know that russians can't `design` elevators!
+- This was a message... from someone, or something... hinting... at the `design`.
+- If i'm so nuts about you, then why am i having sex with an asian `design` major?
+- If i were to `design` the perfect outlaw band, this gang is what i would create.
+- Being alive after our time caused an outward ripple - a rift in death's `design`.
+- It's an alt-azimuth `design` with one parabolic mirror and one secondary flat one.
+- `Design` new buildings �� plan modern cities �� all that stuff i was talking about.
+- They've got this `design` on them with dolphins and our names engraved in sanskrit.
+- You've got an office or a big home, we'11 come out there `design` you an entire system.
+- There doesn't seem to be enough detail in the photo to ascertain the `design` on the ring.
+                 

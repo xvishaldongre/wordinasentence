@@ -1,0 +1,107 @@
+---
+title: "fix in a sentence | fix example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fix"
+---
+- How can we `fix` this?
+- How will you `fix` it?
+- I bet we can `fix` it.
+- I'll `fix` everything.
+- I'll `fix` my lasagna.
+- Jungle man `fix` jane.
+- Then help me `fix` it.
+- We'll `fix` that, too.
+- ...and `fix` it up new.
+- Can you `fix` the suit?
+- I'll `fix` some drinks.
+- Will you `fix` my hair?
+- You can `fix` old cars.
+- Can i `fix` you a drink?
+- Can you `fix` it for us?
+- He'll `fix` you up fine.
+- I just want to `fix` it.
+- I'll `fix` him his soup.
+- I'll `fix` ya some eggs.
+- I'll `fix` you right up.
+- I'll go `fix` breakfast.
+- Keeping the `fix` happy.
+- Lemme `fix` you a drink.
+- Somebody `fix` a pallet.
+- Well, we can `fix` that.
+- Can you `fix` him for me?
+- I know we can `fix` this.
+- I'll `fix` it right away.
+- I'll `fix` your favorite.
+- I'll `fix` you something.
+- You'd better go `fix` it.
+- David came up to `fix` it.
+- `Fix` me and get your `fix`.
+- I just `fix` their planes.
+- So we can `fix` the plans.
+- Give me time to `fix` this.
+- Got time to `fix` my wheel?
+- I can `fix` that right now.
+- I got to `fix` this school.
+- ...i'll `fix` ya some eggs.
+- I'll `fix` you some coffee.
+- Jade, what can i `fix` you?
+- No way... can you `fix` it?
+- They're gonna `fix` you up.
+- Assuming you can `fix` this.
+- But you can `fix` it, right?
+- Can't you `fix` him up here?
+- Did you `fix` the damn film?
+- Get a `fix` on his position!
+- Got to `fix` the sea anchor.
+- I couldn't `fix` the helmet.
+- I'll `fix` something to eat.
+- I need to `fix` this button.
+- We'll `fix` him good as new.
+- You said you could `fix` me!
+- You said you could `fix` me.
+- You can `fix` them there.
+- Did you `fix` the toilet yet?
+- If only we could get a `fix`.
+- Kyo will `fix` you something.
+- Now can you `fix` it, or not?
+- You can't `fix` me this time.
+- A little bleach'll `fix` that.
+- If it works, don't `fix` it...
+- If they can `fix` them at all.
+- I'm going to `fix` a sandwich.
+- I need to `fix` the algorithm.
+- They're gonna `fix` it, right?
+- To `fix` life support, clarke.
+- You better `fix` your lips.
+- I just want to <u>`fix`</u> it.
+- I'm trying to `fix` this thing.
+- It's not something i can `fix`.
+- I want you to `fix` these fish!
+- Want me to `fix` you something?
+- You better `fix` this and fast.
+- You'd better `fix` this, ray!!!
+- Am i going to help you `fix` it?
+- And we had to try and `fix` her.
+- We had to try and `fix` her.
+- `Fix` one-thing, unplug another.
+- I'll `fix` it... don't let go...
+- Machines don't `fix` themselves.
+- We can't `fix` your phone, - no!
+- We have to `fix` that, won't we?
+- Well, `fix` me and get your `fix`.
+- And i don't know how to `fix` it.
+- There's nothing to `fix` it with.
+- This is not yours to `fix` alone.
+- Do you think you can `fix` her up?
+- Maybe i can `fix` us up some stew.
+- There must be a way to `fix` this.
+- You can't `fix` this car, spicoli.
+- You've got to be able to `fix` me!
+- He just wanted to `fix` their cars.
+- He won't even let me `fix` his eye.
+- I was going to `fix` you breakfast.
+- You can `fix` it in the men's room.
+- 5, 4, 3... but you can't `fix` this.
+- Don't worry about it, i'll `fix` it.
+                 

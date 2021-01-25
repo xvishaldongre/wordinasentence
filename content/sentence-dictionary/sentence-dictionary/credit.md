@@ -1,0 +1,107 @@
+---
+title: "credit in a sentence | credit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "credit"
+---
+- Give me some `credit`.
+- Use my `credit` cards.
+- I want my `credit`.
+- My `credit` was fucked!
+- And your `credit` is good.
+- I'm a `credit` card junkie.
+- Give me a bit more `credit`.
+- Jeez, give me some `credit`.
+- For that `credit` card stuff?
+- Give `credit` where it's due.
+- I don't have a `credit` card.
+- I gave you guys the `credit`.
+- Our `credit` cards are maxed.
+- Ah, i don't want any `credit`.
+- You could take `credit` on it.
+- I did this for <u>`credit`</u>.
+- Nobody stole my `credit` cards.
+- This ain't a `credit` business.
+- All it takes is a `credit` card.
+- Give me some `credit`, will you?
+- Give the man a line of `credit`.
+- Just put it on my `credit` card.
+- Even the post-`credit` sequences?
+- But i really can't take `credit` .
+- He happens to deserve the `credit`.
+- He's been receiving extra `credit`.
+- Will this be cash or `credit` card?
+- You don't give us our due `credit`.
+- Your `credit`'s fine, mr. torrance.
+- `Credit` card, cell phone, aaa card?
+- Jesus, gimme a little `credit`, rob.
+- Like to take `credit` for your work.
+- Send it all back for store `credit`?
+- You might give me a little `credit`.
+- I don't have a goddamn `credit` card.
+- Can i get that `credit` card from you?
+- I didn't want him to get the `credit`.
+- My atm and `credit` cards didn't work.
+- What's an associate producer `credit`?
+- How's my `credit` in this joint anyway?
+- Hunsecker give susie `credit` for that.
+- I mean `credit` references, mr. roundy.
+- My `credit` good enough to buy you out?
+- All you've got is the <u>`credit`</u>...
+- And we weren't being given the `credit`.
+- He took the `credit` for simone tonight.
+- You don't give him enough `credit` chas.
+- He said they were doing a `credit` check.
+- Hey, you can't give him all the `credit`.
+- I only give `credit` where `credit` is due.
+- Just giving `credit` where `credit` is due.
+- We extended `credit`... his behavior... ?
+- You can get one if you have the `credit`.
+- You give me more `credit` than i deserve.
+- Is my `credit` good enough to buy you out?
+- I've got every `credit` card ever printed.
+- Kate, give your old man a little `credit`.
+- `Credit` card orders to dummy corporations.
+- Now all i need is your `credit` card number.
+- You're not doing the extra `credit` problems.
+- Between... hey, i gotta give the guy `credit`.
+- You give him `credit` for too much cleverness.
+- I don't like to use that `credit` card, dignan.
+- No `credit`, no cars, no mortgages -- no wives.
+- I didn't say nothin' 'bout `credit`, mr. howard.
+- I don't think you're giving him enough `credit`.
+- My `credit` cards, cash, fucking id, everything.
+- To take `credit` for some accidental explosions.
+- Not if you take an advance on your `credit` card.
+- Here's the list of all sheldon's `credit` charges.
+- Of course the gentleman has a major `credit` card!
+- Personally, you can have all the `credit` you want.
+- Save the words ... just send back my `credit` card.
+- But if you are humanity, i don't even want `credit`.
+- Whenever i compliment simone, you take the `credit`.
+- You ain't got no `credit` card but you got a lawyer.
+- I also know your lines of `credit` are over-extended.
+- I think you should establish a good line of `credit`.
+- Give me a little `credit` for doing this face-to-face!
+- Hell, i gave you `credit` for more brains than delmar.
+- I just believe in giving `credit` where `credit` is due.
+- Well, you always want to give the `credit` away, do you?
+- We won't make the nut unless we have unlimited `credit`.
+- Yes well... you are a `credit` card holder, are you not?
+- He's much more substantial than you give him `credit` for.
+- They've gotten worse since i took away her `credit` cards.
+- Tom, i never had trouble getting `credit` from you before.
+- If you think you're getting `credit` for this, you're crazy.
+- I know more than you give me c-c- `credit`, that's for sure.
+- We need to rent a car and for that you need a `credit` card.
+- It's just for verification through the `credit` card company.
+- <u>`credit`</u>, paalll... no, the deal <u>isn't</u> changed.
+- The store will cut off our `credit`, and the kids will go hungry.
+- Believe me, i understand -- listen, i've got to give you `credit`.
+- You're giving them an awful lot of `credit` for being on the ball.
+- Filled with phony `credit` cards ... off the two guys in the caddy.
+- I don't want anybody else to get the `credit` for taking me out.
+- Whoever it is, now is taking `credit` for maureen prescott's murder.
+- {\an8}and you're a cleverer boy than i perhaps gave you `credit` for.
+- Can i have your `credit` card number, followed by the expiration date?
+                 

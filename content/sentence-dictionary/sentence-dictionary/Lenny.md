@@ -1,0 +1,81 @@
+---
+title: "Lenny in a sentence | Lenny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lenny"
+---
+- I don't know, `lenny`.
+- Just as well, `lenny`.
+- * `lenny`, it's teddy.
+- Let it alone, `lenny`.
+- `Lenny`, my dispatcher.
+- Happy birthday, `lenny`.
+- Happy new year, `lenny`.
+- He'll kill you, `lenny`.
+- Not in front of `lenny`.
+- You're on foot, `lenny`.
+- You did explain, `lenny`.
+- You're a talker, `lenny`.
+- I made my choice, `lenny`.
+- My wife called me `lenny`.
+- Now that is cold, `lenny`.
+- You come with us, `lenny`.
+- Another slick `lenny` move.
+- `Lenny`, carl, barney, moe.
+- Yeah, you do that, `lenny`.
+- Ah, `lenny`, happy birthday.
+- No plan is perfect, `lenny`.
+- Foam `lenny`, you're my hero.
+- `Lenny`, this shit's illegal.
+- Oh my god oh my god... `lenny`?
+- I got ways, `lenny`, i got ways.
+- My wife used to call me `lenny`.
+- I want you to take this, `lenny`.
+- `Lenny` is gonna be so surprised.
+- What have you got there, `lenny`?
+- Who've you told this to, `lenny`?
+- * * you're not a killer, `lenny`.
+- Godless and maudeless, uh, `lenny`?
+- I acquired the taste from `lenny`.'
+- `Lenny`'s gonna be here any minute.
+- Well, only with `lenny`'s blessing.
+- Don 'the dragon' wilson, `lenny` [?]
+- Problem is, `lenny` knows everybody.
+- `Lenny`, have you lost it completely?
+- Then he does her... come on, `lenny`.
+- Why'd you send for `lenny` marliston?
+- I'm with `lenny`, `lenny`'s your friend.
+- I waited for `lenny` before i watched.
+- Don't have a fucking coronary, `lenny`.
+- It's a surprise party for `lenny`, sir.
+- `Lenny`, as a buddy, let me inform you.
+- We have nothing to talk about, `lenny`.
+- You're crazier than i thought, `lenny`.
+- Did your mom say if `lenny` was... okay?
+- Don't look over, it's `lenny` silverman.
+- `Lenny`, just stay away from tran, okay?
+- It's the dark end of the street, `lenny`.
+- I don't think that's a good idea, `lenny`.
+- You come to peddle me some tapes, `lenny`?
+- Local man leonard "`lenny`" leonard no, no.
+- I didn't sell - that's who you were, `lenny`.
+- `Lenny`, mayor of shelbyville and an ostrich.
+- It's okay, `lenny` they'd never get here in time anyway.
+- `Lenny`, if tran finds you talking to me he'll hurt you.
+- I'm going to open my case... `lenny`, give them the tape.
+- Then maybe `lenny` wouldn't freak out and ruin my family.
+- `Lenny`, ,you pathetic product of the public school system.
+- `Lenny`, you're turning into some kinda squid-head low-life.
+- Look, tran... `lenny` just came by to give me some bad news.
+- While i'm gone, tell them about our cousin `lenny` who's gay.
+- Yeah, i thought about "regards," but `lenny` knows how i feel.
+- Maybe he just figures `lenny` will appreciate what he's created.
+- Mrs. kagan called dad and blamed us for what happened to `lenny`.
+- Hey, `lenny`, you duck-faced psycho, you had one of our wristbands.
+- You know, `lenny`, i've had more rewarding friendships than this one.
+- Oh... `lenny`, you've pitched "that's what she said" 30 times already.
+- `Lenny`, you can't trust a man's life to your little notes and pictures.
+- Now i want you to go back to the time you were in the woods with `lenny`.
+- More than humans are currently capable of creating, mind you, foam `lenny` on fox!
+- `Lenny`, this may be a hard concept for you, but friends don't have to pay their friends.
+                 

@@ -1,0 +1,52 @@
+---
+title: "dickie in a sentence | dickie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dickie"
+---
+- Did `dickie`'s dad go?
+- I found `dickie`'s rings.
+- The thing about `dickie`.
+- I was there with `dickie`.
+- Where's `dickie`'s father?
+- `Dickie`, `dickie` greenleaf.
+- I know you killed `dickie`.
+- Oh hello, where's `dickie`?
+- You've got `dickie`'s rings.
+- It doesn't look like `dickie`.
+- `Dickie` hasn't killed himself.
+- I think `dickie`'s coming home.
+- `Dickie` wilson runs this place?
+- `Dickie` greenleaf... tom ripley.
+- Why do you have `dickie`'s rings?
+- I bought it for you, not `dickie`.
+- `Dickie`, you can't even drive a car!
+- Whenever i look for `dickie` i find you.
+- I suggest you ask `dickie` that yourself.
+- Obviously i'll do anything to help `dickie`.
+- They found this in `dickie`'s place in rome.
+- `Dickie`, are you with peter smith- kingsley?
+- Pleasure to meet you, `dickie`'s made a fine catch.
+- `Dickie` promised me he would never take off this ring.
+- In fact the only thing which looks like `dickie` is you.
+- `Dickie` and peter, that's just too good gossip, isn't it?
+- Dubious but special honor, tom -- crewing `dickie`'s boat.
+- It's the one task `dickie` can do on his own -- make coffee.
+- I've heard about you, of course -- from marge, and `dickie`.
+- He has so many realities, `dickie`, and he believes them all.
+- I did not kill freddie miles and then kill `dickie` greenleaf.
+- Did you know at princeton `dickie` greenleaf half-killed a boy?
+- Marge, you know `dickie` has i hate opera tattooed on his chest.
+- Three different people saw `dickie` get into freddie miles' car.
+- I can't think why you would imagine `dickie` would hide from you.
+- That `dickie` murdered you and is travelling under your passport.
+- You should come and have lunch with us, before you go -- `dickie`?
+- Marge, i don't know you, so i have no right, but `dickie` loves you.
+- I don't understand `dickie`, marge, so your guess is as good as mine.
+- Can you imagine, if `dickie` did kill freddie, what must that be like?
+- Why do you think `dickie`'s father sent him to europe in the first place?
+- Wild horses wouldn't drag `dickie` to -- `dickie` was at the opera last night.
+- He wants to know if you killed freddie miles and then killed `dickie` greenleaf?
+- Marge doesn't understand this, but anytime `dickie` does something i feel guilty.
+- He's already discovered `dickie` cashed checks for $1000 the day before he disappeared.
+                 

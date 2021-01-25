@@ -1,0 +1,53 @@
+---
+title: "spit in a sentence | spit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spit"
+---
+- I didn't `spit` on you!
+- `Spit` it out, captain.
+- Just `spit` him back out.
+- Just `spit` it out, abby.
+- Well, let's `spit` on it.
+- Teach me to `spit` too.
+- You look the `spit` of her.
+- For the gods, `spit` it out!
+- You should `spit` in my face.
+- For chrissakes, `spit` it out.
+- You gotta idea, `spit` it out.
+- Especially when there's `spit`.
+- I'd rather `spit` in your face.
+- He'll roast like a pig on a `spit`.
+- I have no idea how to `spit` this out.
+- Smoking makes him `spit` and feel ill.
+- Why should only men be able to `spit`.
+- You can almost `spit` on it, can't you?
+- She'll `spit` you out when this is over.
+- Now everyone's favorite: rinse and `spit`.
+- You try to help 'em and they `spit` on you.
+- So you can swap `spit` with some stupid girl?
+- They use people, chew them up, `spit` 'em out.
+- We found his `spit` in the dead director's eye.
+- When he gets too close, i'll `spit` in his eye.
+- I haven't seen you swapping `spit` with anybody.
+- Don't `spit` in my face and tell me it's raining.
+- They don't know iff'n to smile, `spit` or swallow.
+- You can't curse or `spit` or anything around them.
+- It took a lot longer to `spit` out than to imagine.
+- A `spit` swear means... - you never break your word.
+- Gifford mayfair - i'll cook your tongue on a `spit`!
+- ♪ you don't `spit` into the wind ♪ trey, don't be a fool.
+- Cheat at cards, steal some strays, `spit` on a rich fella?
+- He tends to `spit` when he talks about products liability.
+- Careful you don't `spit` from here; you could kill someone.
+- Let it chew you up and `spit` you back out on the other side.
+- Oh my god, he just opened his mouth and swallowed that `spit`.
+- ♪ you don't `spit` into the wind ♪ let's give her some privacy.
+- It's nose-bleed territory, but at least you won't get `spit` on.
+- Not one of thuse cheap new things made of chromium and `spit`.
+- But as i haven't got any `spit`... care to wet your whistle, marcus?
+- ♪ you don't tug on superman's cape you don't `spit` into the wind ♪ take it.
+- We gotta choke on the mud and the blood and fleet can't be bothered to `spit`.
+- He would the kick the furniture with his boots, `spit` into corners and the fireplace.
+- After he gets a blow job, he likes to have the cum `spit` back into his mouth while kissing.
+                 

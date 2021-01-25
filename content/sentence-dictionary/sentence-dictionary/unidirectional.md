@@ -1,0 +1,7 @@
+---
+title: "unidirectional in a sentence | unidirectional example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unidirectional"
+---
+## Unfortunately, we have no example sentences for unidirectional                 

@@ -1,0 +1,107 @@
+---
+title: "chief in a sentence | chief example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chief"
+---
+- `Chief` of the guards.
+- I don't know, `chief`.
+- That's greek, `chief`.
+- What's wrong, `chief`?
+- A little girl, `chief`.
+- Big `chief` very sorry.
+- `Chief`, are you there?
+- He was a lousy `chief`.
+- Hey, `chief`, you copy?
+- I am `chief` of police.
+- Is `chief` brody there?
+- Our `chief` four wives.
+- This is `chief` talley.
+- Wait a second, `chief`?
+- `Chief`, it's mikkelson.
+- Don't be funny, `chief`.
+- Have a quarter, `chief`.
+- Hey, `chief`, you there?
+- I'm still here, `chief`.
+- Just ol `chief` bromden.
+- Looking for the `chief`.
+- We got nothing, `chief`.
+- `Chief` says -- how many?
+- My dad was `chief` guard.
+- Spirit and guts, `chief`.
+- Well, take care, `chief`.
+- What is the `chief` part?
+- `Chief` guard closes door.
+- His uncle's `chief` judge.
+- Hold on a second, `chief`.
+- I'm the `chief` of police.
+- Shhh, `chief`, don't talk.
+- Sure, right away, `chief`.
+- You are the `chief`'s son.
+- You're the `chief` second.
+- `Chief` brody -- can we go?
+- I expected better, `chief`.
+- I gotcha, i gotcha `chief`!
+- I'm gonna nail the `chief`.
+- I think it's real, `chief`.
+- No ... more light, `chief`?
+- So `chief` gunderson, then!
+- This is louisiana, `chief`.
+- Tsu'tey is the `chief` now.
+- Who do you think, `chief`?!
+- Ya like that, `chief`, huh?
+- You mean my `chief` has it.
+- You're our `chief` suspect.
+- `Chief` guard turns to alex.
+- More lady problems, `chief`?
+- The anonymous kind, `chief`.
+- The `chief`'s right on this.
+- This ain't bangkok, `chief`.
+- Why is she with the `chief`?
+- You look like hell, `chief`.
+- `Chief` - mind if i take her?
+- `Chief` says -- he has a god.
+- `Chief` went to dry them off.
+- Did they go with the `chief`?
+- Roll up your sleeve, `chief`.
+- You leaving already, `chief`?
+- `Chief`.... then check it out.
+- Nancy, maybe, but the `chief`?
+- Not while i'm barrack `chief`.
+- Tell the `chief` we thank him.
+- That's very colorful, `chief`.
+- The `chief` says-- look at me.
+- The hawkins `chief` of police.
+- Uh... police `chief`, hawkins.
+- `Chief` surveyor and alchemist.
+- `Chief`, what the fuck is this?
+- C'mon, `chief`, show some guts.
+- I'm the `chief` of police here.
+- The `chief`'s worried about me.
+- The war `chief` talks too loud.
+- Why don't you blow me, `chief`.
+- `Chief`, here's a little secret.
+- I'll be up soon, little `chief`.
+- Never heard of any `chief` scar.
+- Tell me something good, `chief`.
+- That is...`chief` inspector lee.
+- They're gonna love you, `chief`.
+- This is deputy `chief` robinson.
+- What's the `chief` throwing you?
+- Why would the `chief` set us up?
+- You know these waters, `chief` ?
+- Busy day, my little fire `chief`.
+- Call the `chief`... we found 'em.
+- Hey, uh, need something, `chief`?
+- Listen, kid, this is the `chief`.
+- This is deck `chief` gus mancuso.
+- Uh, `chief`, you found something?
+- How 'bout you, `chief` wiggum?
+- Are you sure you're okay, `chief`?
+- Ask the `chief` if he understands?
+- Hitler's the `chief` rabbi now?...
+- Hopper's not still `chief`, is he?
+- It ain't been a good day, `chief`.
+- It's regional bureau `chief` cole.
+- The `chief` will take care of her.
+                 

@@ -1,0 +1,107 @@
+---
+title: "church in a sentence | church example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "church"
+---
+- Take them to `church`.
+- Yeah, like a `church`.
+- End of `church` street.
+- I am going to `church`.
+- Right here in `church`?
+- The `church` social ...
+- `Church` go ahead, rube.
+- Once, in `church`, dude.
+- She works at a `church`?
+- The catholic `church`...
+- To the `church` in town.
+- Are we going to `church`?
+- I'm a `church` goin' man.
+- That `church` is special.
+- For when `church` is over.
+- [beat] they're at `church`.
+- Headed to the old `church`.
+- In the `church` at domremy.
+- I've been to `church` hill.
+- `Church`-goers and all that?
+- Do you still go to `church`?
+- He won't kill in a `church`.
+- I'm from holy rood `church`.
+- Like in a `church` painting.
+- They found me in a `church`.
+- This isn't `church` anymore.
+- `Church` at ease, lieutenant.
+- `Church` is not going to die.
+- `Church` of the good hustler.
+- `Church` what about...spirit?
+- Honey, `church` will be fine.
+- Just my `church` and my boys.
+- Miss `church` the way it was?
+- This summer at `church` camp?
+- Bastard's name was "`church`".
+- He's sleeping in the `church`.
+- How did i wind up in `church`?
+- Now, we could cancel `church`.
+- Why have i come to a `church`?
+- A rich `church` usher like you.
+- `Church` will be just the same.
+- I went to st. severin `church`.
+- When i was little, in `church`.
+- Bring my dress to `church`, huh?
+- Do you mean `church` of england?
+- He goes to my father's `church`.
+- I know your mother from `church`.
+- Just `church` and grocery stores.
+- Perhaps i'll see you in `church`.
+- The `church` is a fucking racket.
+- `Church`, steeple, do you, clarke?
+- He used to go to `church` with me.
+- I've been sittin' in the `church`.
+- Let me go into the `church` alone.
+- Dad, no, that's an actual `church`.
+- "in the `church` when you need me."
+- It looks like a converted `church`.
+- Yes, sir, `church` of england, sir.
+- She attended the `church` for years.
+- We ran down that `church` hill info.
+- You brought it back to the `church`.
+- He walked right up to me in `church`.
+- I'll always go back to that `church`.
+- I'm in the `church` when you need me.
+- The $50,000 reward from the `church`!
+- `Church` will never be the same again.
+- Food banks, welfare, `church` charity.
+- It was in a `church`...it was so real.
+- .. my wife made that in `church` group.
+- Why don't we ever see them in `church`?
+- I'll get the 50 g from the `church`!
+- And sports scores while i'm at `church`!
+- Didn't see you in `church` this mornin'.
+- I wanna have a big `church` wedding, ma.
+- I wanted to give it all to the `church`.
+- Our `church` has the money for one film.
+- That's when you start going to `church`.
+- Doors from a `church` in new hampshire...
+- It's brought people back to the `church`.
+- You learned to dance at `church` socials.
+- `Church` of...`church` of eng... everything.
+- He comes down to `church` for a free meal.
+- I guess you're a `church` man, aren't you?
+- Who needs to repair a leaky `church` roof.
+- I'm not talking about the fucking `church`.
+- Does a mama possum skip `church` on sundays?
+- I'm on the side of our mother holy `church`.
+- It's will, he's... aw, sleeping in `church`.
+- Nothing bad can happen in a `church`, right?
+- She's going to `church` with me, right away!
+- St. michael's `church`, fort walton, kansas.
+- Balliol was murdered in a `church` yesterday.
+- `Church` hill, that's pretty close, isn't it?
+- Here is the `church` and here is the steeple.
+- Now `church`, rubrick, and sloan are stunned.
+- Funny you don't look like `church` folk to me.
+- Here she is thinking `church` is going to die.
+- Madeleine -- to the `church`, i must go there.
+- Missed you at `church` this morning, jeremiah.
+- Well, someone looks awfully nice for `church`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "Scott in a sentence | Scott example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Scott"
+---
+- Just take it, `scott`.
+- Miss `scott` panicked?
+- Not the time, `scott`.
+- `Scott` haydn is dead.
+- `Scott`, i'll be fine.
+- Take it easy, `scott`.
+- That's right, `scott`.
+- Where is `scott` lang?
+- Is that hardin `scott`?
+- Oh, i'm sorry, `scott`.
+- Red alert, mr. `scott`.
+- `Scott`, where are you?
+- Thank you, mr. `scott`.
+- Very well, mr. `scott`.
+- Well done, mr. `scott`.
+- Where are you, `scott`?
+- A hispanic `scott` baio.
+- Let me check on `scott`.
+- Mr. `scott`, come in!...
+- Mr. `scott` -- how soon?
+- Mr. `scott` on discrete.
+- My name's `scott` roper.
+- `Scott`, are you coming?
+- Stand down, mr. `scott`.
+- You remember dr.`scott`.
+- Bravo to `scott` fischer.
+- Hope... `scott`, just go!
+- How'd you do it, `scott`?
+- `Scott`'s air won't last!
+- `Scott`'s air won't last.
+- `Scott`, come on, wake up!
+- `Scott`, don't say that...
+- `Scott` my boy, come here.
+- But then `scott` showed up.
+- Call off the ants, `scott`.
+- So, i went and saw `scott`.
+- With where `scott` lang is?
+- But this dr everett `scott`.
+- Have you heard from `scott`?
+- Mr. `scott`, you're amazing.
+- Put `scott` through college.
+- `Scott`, fire up the, uhh...
+- `Scott`, get away from that!
+- `Scott`, what are you doing?
+- Uh, please, call me `scott`.
+- Why, yes, i am, mr. `scott`.
+- Is miss `scott` staying here?
+- `Scott`, don't, don't, don't!
+- Quantum entanglement, `scott`.
+- The <u>doors</u>, mr. `scott`!
+- Can we hold speed, mr. `scott`?
+- Mr. `scott`, the word is given.
+- Mr. `scott`, you old space dog.
+- This is miss `scott` -- and mr.
+- Appreciated by all, mr. `scott`.
+- A wee bout of what, mr. `scott`?
+- Come on, where are you, `scott`?
+- Mr. `scott`, start your engines.
+- No `scott` brosius in the bunch.
+- What do you want to do, `scott`?
+- I don't care what `scott` thinks!
+- Mr. `scott`... on my next signal.
+- Mr. `scott`, you forget yourself.
+- `Scott`, you can't save everyone.
+- Steady... all right, mr. `scott`.
+- Mr. `scott`: as good as your word.
+- `Scott`, you sound a little rough.
+- It takes two to tango, mr. `scott`.
+- You can't get `scott` on the radio?
+- You stole him from `scott` fischer.
+- You stole him from `scott` fischer?
+- Give me a round figure, mr. `scott`.
+- Sorry, `scott`, but rules are rules.
+- We don't label people here, `scott`.
+- You know that guy, dr. gene `scott`?
+- I talk to `scott` when he comes here.
+- Right, tie me in, `scott`, tie me in.
+- You mean, people like `scott` clarke.
+- I talk to `scott` when he come's here.
+- One...two... three... four... `scott`?
+- `Scott` fischer, mr. mountain madness.
+- Your timing is excellent, mr. `scott`.
+- Dr `scott` i'm sorry about your nephew.
+- I'm not looking for apologies, `scott`.
+- `Scott`, get this back to the compound.
+- We'll stop at a motel -- kate, `scott`?
+- All right, `scott`, this is a mic check.
+- Have you... have you heard from `scott`?
+- Hey, `scott`, i know that they're there.
+- I'm gonna stop you right there, `scott`.
+- I'm not looking for an apology, `scott`.
+- `Scott`, you really don't look too good.
+- Yeah... just .... dr. `scott`'s got 'im.
+- But i want you and `scott` to understand.
+- Mr. `scott`, get the transporter working.
+- Someday, `scott`, this will all be yours.
+- So, `scott`, why don't we start with you.
+- Great `scott` - scotty - dr everett `scott`.
+- I hope it won't come to that, mr. `scott`.
+- Miss `scott`, you're not making any sense.
+                 

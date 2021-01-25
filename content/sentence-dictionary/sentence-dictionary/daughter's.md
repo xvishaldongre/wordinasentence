@@ -1,0 +1,52 @@
+---
+title: "daughter's in a sentence | daughter's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "daughter's"
+---
+- It was his `daughter's`.
+- Your `daughter's` around.
+- At your `daughter's` house.
+- To your `daughter's` party.
+- A friend of my `daughter's`.
+- Your `daughter's` all right.
+- Your `daughter's` been taken.
+- This was my `daughter's` house?
+- My `daughter's` not a sex object.
+- She is my `daughter's` companion.
+- Your `daughter's` in the sky box.
+- For your `daughter's` bridal purse.
+- His `daughter's` a patient of mine.
+- For ensuring my `daughter's` safety.
+- I'm at my `daughter's` ballet recital.
+- I think it might be your `daughter's`.
+- My `daughter's` entering a prize steer.
+- On the day of your `daughter's` wedding.
+- Wouldn't you know your own `daughter's`?
+- My `daughter's` been missing five months.
+- You can rest in my `daughter's` room, bro.
+- Kastle's `daughter's` been lookin' for you.
+- Your `daughter's` life was just threatened!
+- Congratulations on your `daughter's` wedding.
+- But your `daughter's` not one with the primes.
+- If your `daughter's` here, i'll track her down.
+- I'm putting my `daughter's` life in your hands.
+- You know, my `daughter's` a lot different to you.
+- I was surprised to see her in our `daughter's` body.
+- Nurse, thou know'st my `daughter's` of a pretty age.
+- My `daughter's` always dreamed of bein' a cheerleader.
+- Would you be so calm if it was your `daughter's` turn?
+- Your `daughter's` fine, but i recommend a five-day stay.
+- Accept this justice as a gift on my `daughter's` wedding day.
+- Your `daughter's` the only leverage they have to keep you quiet.
+- Hobbs was trying to cut his eleven- year-old `daughter's` throat.
+- Tell her how you helped the girl who stole her `daughter's` body.
+- They're more interested in your `daughter's` health -- and yours.
+- My `daughter's` no-good husband will not take one bite of our food.
+- No sicilian can refuse any request on his `daughter's` wedding day.
+- <u>you want a blowtorch on your `daughter's`</u> <u>pretty face</u>?!
+- Now if there's nothing else, i'd like to go to my `daughter's` wedding.
+- And, oh yes, i almost forgot, my `daughter's` fallen in love with death.
+- Twelve years after your `daughter's` born you decide to become a father.
+- Because they know that no sicilian will refuse a request on his `daughter's` wedding day.
+                 

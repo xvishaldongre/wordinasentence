@@ -1,0 +1,63 @@
+---
+title: "cases in a sentence | cases example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cases"
+---
+- Put it in the `cases`.
+- I hate the press `cases`.
+- I deal in divorce `cases`.
+- Four hundred `cases` worth.
+- Sometimes, in some `cases`.
+- I've seen far worse `cases`.
+- There've been other `cases`.
+- Now let's get down to `cases`.
+- Thousand new `cases` a day now.
+- I paid for those guitar `cases`.
+- Just like any other hard `cases`.
+- We've still got 36 `cases` of rum.
+- Especially the weird press `cases`.
+- The `cases` are hooked up and ready.
+- Four `cases` before the circuit court.
+- Judge threw out the `cases` each time.
+- And therefore, more `cases` onto a boat.
+- `Cases`: smith versus state of michigan.
+- Could be a big help in unsolved `cases`.
+- The items in these `cases` belong to me.
+- He is lifting stanwyk's two attach� `cases`.
+- I've handled runaway `cases` like it before.
+- Specializes in `cases` like this, like yours.
+- `Cases`, leads -- they don't matter, rorschach.
+- I don't usually read private cigarette `cases`.
+- I told you: i'm a sucker for hard luck `cases`.
+- Well, these are the checks for the large `cases`.
+- I don't take `cases` with foundations in bullshit.
+- It won't be long before we start seeing `cases` okay?
+- Fundoscopic examination is unrevealing in these `cases`!
+- I don't work with violent `cases`, i work with children.
+- Him, he costs you a fortune in breach of promise `cases`.
+- Sometimes, in some `cases`, it's necessary to take a risk.
+- These `cases` are harder on the doctor than on the patient.
+- I have no influence in `cases` of inter-planetary conspiracy.
+- I'm running blocker for four hundred `cases` of illegal brew.
+- ...no `cases` over the age of temptation but deliver us eight.
+- The man's an ambulance chaser... four `cases` in three years...
+- The man's an ambulance chaser ... four `cases` in three years ...
+- Before it crashed, they dumped three `cases` filled with millions.
+- Randy says there are five more `cases`, and they ate fish, too.
+- We can buy a couple of `cases` of liquor and you can have the rest.
+- I can understand what you mean - demented men, pathological `cases`.
+- In fact, there were two earlier `cases` where serials were murdered.
+- About ninety five percent of the `cases` had some technical explanation.
+- Since no display `cases` are being fucked with, no alarms should go off.
+- Dean generally handles nuisance `cases` like the... what's the man's name?
+- It's rare... but there are `cases` where people go for years without sleep.
+- The clinic's where they send the real hard-`cases` for attitude adjustment.
+- While i'm at it, i thought i'd look at the `cases` koessler worked with low.
+- Colonel richards here has had a dozen agents on these `cases` for over a year.
+- This technique, in certain `cases`, can re-stimulate life for a limited period.
+- The bureau does not send us in on these `cases` to lord it over the local police.
+- I have a notorious weakness for hard luck `cases` -- that's why i work with whales.
+- You think he's one of those `cases` you're always draggin' in and feelin' sorry for.
+- I evaluate individual `cases` and determine if help is needed, deserved, and available.
+                 

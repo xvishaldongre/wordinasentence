@@ -1,0 +1,74 @@
+---
+title: "stands in a sentence | stands example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stands"
+---
+- `Stands` against us all.
+- My judgment still `stands`.
+- "that `stands` for what we are."
+- You think she `stands` a chance?
+- But for today the offer `stands`.
+- `Stands` and pauses for a moment.
+- Ellie `stands` on the bottom step.
+- `Stands` and picks up her handbag.
+- Here's what it really `stands` for.
+- I watched from behind the `stands`.
+- `Stands` and walks toward the door.
+- Octavia's banishment still `stands`.
+- But thea -- she `stands` in your way.
+- It `stands` to reason, i won't have it.
+- The doctor `stands` bending over l�one.
+- You know what that big "e" `stands` for?
+- You're through with one night `stands`?!
+- The deal still `stands`, our other thing.
+- The gentleman `stands` guilty as charged.
+- Victory `stands` on the back of sacrifice.
+- Pauline `stands` and juliet grabs her hand.
+- The two sleazeballs tarry as theo `stands`.
+- Every letter `stands` for a different belief.
+- She `stands` and goes quickly to pour a drink.
+- Yes, this country `stands` at such a juncture.
+- It `stands` for "bart homer brand 2," you moron.
+- The clan that `stands` against one of us jackson.
+- Ultimate warrior... it is evil who `stands` here?
+- There `stands` the loins from which you've sprung.
+- I'll get her back, but then our deal still `stands`.
+- Theo `stands` up and shakes kastle's proffered hand.
+- The way a person `stands` may disguise who they are.
+- `Stands` to reason he'd still be here in the morning.
+- A modest, heroic man who `stands` up for what's right.
+- Crime he `stands` charged with is against your people.
+- I'm not satisfied till the spoon `stands` straight up.
+- `Stands` on the edge of the woods, almost in a trance.
+- Charenton `stands` to profit from us both, i'm certain.
+- But there is one truth that `stands` above all the rest.
+- They move into reception hall where the doctor `stands`.
+- Makes people nervous when a bartender just `stands` there.
+- She `stands` sentry while you sleep and calms your dreams.
+- So who `stands` to gain if jordan flames out in a big way?
+- It's the one thing that `stands` between me and the jungle.
+- He went to every game and sat in the `stands` with his glove.
+- Look, frank -- she `stands` to inherit three million dollars.
+- Not completing a voyage is against everything he `stands` for.
+- I mean, if you're having second thoughts, my offer still `stands`.
+- Back with macfarlane and all that he `stands` for the next day.
+- Quickly she removes her hands, `stands` and gestures flora to play.
+- A man... under `stands` one day... that his life is built on nothing.
+- Just like i belong in the `stands`, looking cute and cheering you on.
+- [indistinct chatter] the offer still `stands` for the next 10 seconds.
+- Anyway, big billy needed another player so he yelled into the `stands`.
+- You know, i saw it on the `stands`, my first inclination was to buy it.
+- Time just `stands` still here like a snake sunnin' itself in the road...
+- Who `stands` to gain the estate with your father dead and if you die?
+- Jack baer `stands` next to daniel metzheiser, a balding man in his forties.
+- You read my book which as you know, hit the `stands` a couple of weeks ago.
+- 's' and 'p' `stands` for 'special people', which is the kind of kids we are.
+- Holiday on ice, ice capades, ice follies-- i'm through with one night `stands`.
+- Do we stand for the same things that the "chronicle" `stands` for, mr. bernstein?
+- People walk all over him and he never fights back, never `stands` up for himself.
+- Disgust, fear of the unknown -- all part of the great gulf that `stands` between us.
+- Kastle shoves the sculpture onto the floor, `stands` up, and crushes it under his heel.
+- In the language of the nathadians, "nin" `stands` for "man", "jetti" `stands` for "animal".
+- Night's candles are burnt out, and jocund day `stands` tiptoe on the misty mountain tops.
+                 

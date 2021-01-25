@@ -1,0 +1,107 @@
+---
+title: "detective in a sentence | detective example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "detective"
+---
+- I'm `detective` jones.
+- `Detective` mills here.
+- `Detective`: miss davis.
+- I am a lady `detective`.
+- It's `detective` smythe.
+- I went as a `detective`.
+- You're not a `detective`.
+- A `detective`'s nightmare.
+- `Detective` williams here.
+- I'm a private `detective`.
+- Was he a good `detective`?
+- `Detective` donald kimball?
+- `Detective` jackson's hurt.
+- I'm a homicide `detective`.
+- Is `detective` williams in?
+- You're a store `detective`.
+- Puttin' a `detective` on us.
+- You get `detective` sheilds.
+- Are you `detective` williams?
+- I call it blood, `detective`.
+- I want your best `detective`.
+- Are you a private `detective`?
+- I'm a first grade `detective`.
+- Is that a threat, `detective`?
+- No lisa anderson, `detective`.
+- You're a good man `detective`.
+- How's the `detective` business?
+- I'm a `detective` in hong kong.
+- Throw your weapon, `detective`!
+- Twenty-four hours, `detective`.
+- Who the... `detective` greenly.
+- Excellent `detective` work, sir.
+- Hi, i'm `detective` mark dargus.
+- If you'll excuse me `detective`.
+- It's `detective` eddie flemming.
+- What a good `detective` you are.
+- `Detective` sergeant phil heller.
+- Explains the private `detective`.
+- Never take up poker, `detective`.
+- Sid, this is `detective` kincaid.
+- They're making him a `detective`.
+- But i'm better than a `detective`.
+- `Detective` kendall...uh campbell?
+- [enola] i'm a private `detective`.
+- I was thinking `detective` bureau.
+- Okay, mr. `detective`, who did it?
+- Then he's got to be a `detective`.
+- Turns out, he was the `detective`.
+- Who... `detective` inspector ross.
+- You're not a `detective` any more.
+- You want to be a good `detective`?
+- `Detective` duquette, ms. van ryan.
+- ... `detective` ich-iro matsu-moto.
+- You're a good `detective`, osborne.
+- You're like, a private `detective`?
+- `Detective` flemming - bobby korfin.
+- It's harder playing `detective` now.
+- It's our friend the boy `detective`.
+- Well, okay - thank you, `detective`.
+- You're a `detective`, with no clues.
+- I'm a homicide `detective`, remember?
+- Well, if it isn't `detective` jetson.
+- You seem to like movies, `detective`.
+- Do you know where she is, `detective`?
+- I know you, `detective` carter, right?
+- I'm a hemotologist, not a `detective`.
+- You know what makes a good `detective`?
+- `Detective`, does it look like a murder?
+- I'm only a laundress; not a `detective`.
+- Be a `detective` if that's what you want.
+- Why don't you ask your chief `detective`?
+- Why didn't you tell the other `detective`?
+- Deal, but i'm still `detective` kincaid,ok?
+- They didn't send a `detective` to find you.
+- Your `detective` told you a nakedfaced lie.
+- You've become quite the `detective`, enola.
+- `Detective` carter from the haddonfield p.d.
+- Everybody says you were a grand `detective`.
+- He doesn't sound like much of a `detective`.
+- I never stop thinking about it, `detective`.
+- Then for god's sake, don't be a `detective`.
+- Means we have a real `detective` on the case.
+- You just wander around * playing `detective`.
+- I decided to write a book about a `detective`.
+- I've never been a `detective` before either...
+- This is `detective` stern with the arson unit.
+- God, it's happening again isn't it `detective`?
+- If they're making you a `detective`, watch out.
+- I saw her drowning inside the car, `detective`.
+- Now, that's some cracker jack `detective` work.
+- The `detective` in charge of our investigation.
+- Unfortunately, only one of us is a `detective`.
+- You're a regular little `detective`, aren't ya?
+- Have you ever played the consulting `detective`?
+- Is `detective` gordon going to be at your house?
+- `Detective` - can you tell us what happened here?
+- `Detective` dormer's not leaving for a few hours.
+- I think your private `detective` is what's wrong.
+- It's not up to us to do our own `detective` work.
+- Signed: lovington `detective` agency, charleston.
+                 

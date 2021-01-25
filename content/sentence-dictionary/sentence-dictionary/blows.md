@@ -1,0 +1,51 @@
+---
+title: "blows in a sentence | blows example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blows"
+---
+- Then there she `blows`.
+- How long till it `blows`?
+- How long until it `blows`?
+- I mean, "batman `blows` it"?
+- Disco `blows` dogs for quarters.
+- The legal buck `blows`, memphis.
+- Whatever `blows` your hair back.
+- The next one `blows` off your dick.
+- A storm `blows` up and we're history.
+- That line `blows` my mind every time.
+- We'll see which way the wind `blows`.
+- Born free, as free as the wind `blows`.
+- What happens if he `blows` up the school?
+- Being stuck in this rat-hole when it `blows`.
+- But i saw a lot of cuts and a lot of `blows`.
+- ...ready before the morning crowd `blows` in.
+- The wind `blows`... the fire burns... leeloo?
+- Eat something before the wind `blows` you away.
+- 'til he turns ta dust and `blows` away on the wind.
+- `Blows` up with him then we did all this for nothing.
+- It `blows` up and pulls the diver up like an elevator.
+- Except right now when the wind `blows` me shoot to kill.
+- You think <u>i</u> couldn't figure out some low `blows`?
+- I got it... ...ready before the morning crowd `blows` in.
+- Sometimes, your total obliviousness just `blows` my mind.
+- Next thing i know, somethin' `blows` through my kitchen window.
+- Too bad, man, that `blows` my chance to be ambassador to france.
+- Well, could you stay away from me until this thing `blows` over.
+- But suppose the thing `blows` and they indict bob and the others.
+- The stream flows the wind `blows` the heart beats nothing will die.
+- And the story `blows` up in our face ♪ with lumberjill ♪ don't pack.
+- ...so it `blows` up that big... what they call an omelette surprise!
+- There ain't a fix in the world gonna cool him out if he `blows` on ya.
+- I hope the wind `blows` the whole damn thing off and it pours down rain.
+- Okay, twist, but you know if this `blows` up, i can't do ya no good downtown.
+- Something to hold onto while everything else around you withers and `blows` away.
+- She don't put in at cresap's landing no more, but she still `blows` as she passes.
+- Ok and one of them jane mckenna -- she `blows` a little jealous of bree - you know?
+- Have you ever thought of moving out -- at least until this disturbance `blows` over?
+- Some people think we just wink out...like a candle flame when the wind `blows` hard.
+- You're giving away your money, fool... twenty on my man... eleven to seven he `blows` it.
+- She starts singing 'dead skunk in the middle of the road', that `blows` our whole case.
+- Look, i'm going to head south for a while -- hole up at karnak until all this `blows` over.
+- Probable cause repeated `blows` to the back of the head with an obtuse angled blunt object.
+                 

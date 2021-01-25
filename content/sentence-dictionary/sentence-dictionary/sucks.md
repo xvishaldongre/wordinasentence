@@ -1,0 +1,64 @@
+---
+title: "sucks in a sentence | sucks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sucks"
+---
+- Lis, altruism `sucks`.
+- `Sucks` it right down.
+- Your attitude `sucks`.
+- Besides, oxnard `sucks`.
+- I mean, dying `sucks`...
+- The penny saver `sucks`.
+- Your damn brace `sucks`!
+- Survival instinct `sucks`.
+- This planet `sucks` anyway.
+- Travel `sucks` at this time.
+- The food `sucks`, i know.
+- But this stuff still `sucks`.
+- God, your poker face `sucks`.
+- The quarterback `sucks`, man.
+- Yeah, the real world `sucks`.
+- Your attitude `sucks` anyway.
+- Oh, that `sucks` for you, pal.
+- Yeah, but it `sucks` for free.
+- The standard treatment `sucks`.
+- Can't ruin what already `sucks`.
+- My final words are lisa `sucks`!
+- Ho chi minh `sucks` dead dick!...
+- I know it `sucks`, monty, it's me.
+- Woman, voice-over: reality `sucks`.
+- You know, this future shit `sucks`.
+- Sometimes, being a human `sucks`.
+- ♪ `sucks` to be you, `sucks` to be you.
+- Sears `sucks`, crash, i tried it once.
+- The world thinks andy kaufman `sucks`.
+- Working outside in the winter `sucks`.
+- It `sucks` a whole truck full of butts.
+- That club `sucks`, they card everybody.
+- The queen mother `sucks` cocks in hell!
+- He `sucks` soup through his front teeth.
+- If your life `sucks`, then mine is god awful.
+- He rubs you and `sucks` the disease right out!
+- Every possibility `sucks` -- we've got to move!
+- I think the whole thing about pets dying s-s-`sucks`!
+- Because the standard treatment `sucks` compared to you.
+- This ship `sucks` people in and it never lets them out.
+- Look, i know this `sucks`, but i didn't mean it like that.
+- It's like, it `sucks` everything towards it and destroys it.
+- Well, please, tell me this, and be honest, `sucks` to be old.
+- I never meant for you to get hurt, your promised land `sucks`!
+- ♪ `sucks` to be you ♪ i don't know which of you two is dumber.
+- Your mother `sucks` cocks in hell karras, you faithless slime!
+- Monkey finger sniff t-shirts, `sucks`, but i'm dealing with it.
+- But we're pretty sure it's what `sucks` in all the radio signals.
+- ♪ `sucks` to be you, `sucks` to be you ♪ and welcome to thunderdome.
+- Oh my god if someone `sucks` my toes i'll come in like ten seconds!
+- You're wife `sucks` my cock every night, swallows my cum and loves it.
+- I mean, no, man, it's hard, it's scary, it `sucks` ... having fun, kip?
+- I know the school paper `sucks` in comparison, but it's really not that bad.
+- I'm not going anywhere without the flame, being a police chief really `sucks`.
+- Oh, tesla, your 900-pound feet it's also why the range in our walkies `sucks`.
+- That's what we call in the trade, audition free-for- alls and most of it `sucks`.
+- Well, it still `sucks`, but you start to see that there are advantages to being single.
+                 

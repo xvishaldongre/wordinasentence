@@ -1,0 +1,107 @@
+---
+title: "sanctum in a sentence | sanctum example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sanctum"
+---
+- `Sanctum` has lost us.
+- `Sanctum` is our home.
+- `Sanctum` will explode.
+- Good evening, `sanctum`.
+- _ - `sanctum`, i presume.
+- We go to `sanctum` first.
+- This gets me to `sanctum`.
+- And it's bye-bye `sanctum`.
+- I need to get to `sanctum`.
+- And will again be `sanctum`.
+- [beeping] `sanctum` raiders!
+- In `sanctum` treating emori.
+- I was protecting `sanctum`...
+- `Sanctum` is their home, too.
+- We laugh at you in `sanctum`.
+- Welcome to the new `sanctum`.
+- Why is `sanctum` on lockdown?
+- Forget taking me to `sanctum`.
+- I'm the high king of `sanctum`.
+- It wasn't the `sanctum` guards.
+- Power's out all over `sanctum`.
+- The build us another `sanctum`.
+- Name the 4 pillars of `sanctum`.
+- The `sanctum` remains unguarded.
+- The `sanctum` riders are coming.
+- He didn't send them to `sanctum`.
+- Well, how do we get to `sanctum`?
+- It's time to go back to `sanctum`.
+- `Sanctum` is yours, sounds lonely.
+- This is `sanctum`'s holiest place.
+- Through fire, we purify `sanctum`.
+- Blessed be the primes and `sanctum`.
+- But we need to get back to `sanctum`!
+- For the glory and grace of `sanctum`.
+- For the glory and grace of `sanctum`.
+- It was the safest place in `sanctum`.
+- The blood of `sanctum` is real blood?
+- We realized `sanctum` was a moon yes.
+- Your blood or the blood of `sanctum`.
+- There is only one leader in `sanctum`.
+- And my baby doesn't get into `sanctum`.
+- Let the blood of `sanctum` do its work.
+- Our `sanctum` family has been violated.
+- I created all of `sanctum` in its image.
+- My little `sanctum` is at your disposal.
+- Please, let's just go back to `sanctum`.
+- This is one of the leaders of `sanctum`.
+- We go back to `sanctum`, we get our army.
+- Russell isn't the only prime in `sanctum`.
+- Savior of `sanctum`, - where have you been?
+- Will let your child be raised in `sanctum`.
+- `Sanctum` was colonized i was born in space.
+- To bear witness to the miracle of `sanctum`.
+- Today we observe the 4 pillars of `sanctum`.
+- We're leaving `sanctum` until it's purified.
+- I was with you on `sanctum` for, what, a day?
+- The latin root of "sanctuary"... "`sanctum`".
+- We thought `sanctum` was our second chance...
+- I left `sanctum`, but `sanctum` didn't leave me.
+- To receive the great miracle of the `sanctum`.
+- Open the bridge and send him back to `sanctum`.
+- That's why they're in tanks all over `sanctum`.
+- Once we kill the primes, we take over `sanctum`.
+- Before burning `sanctum` to the ground, i see it.
+- I said nothing about releasing them on `sanctum`.
+- It drives every living creature in `sanctum` mad.
+- We still thought `sanctum` was on the other side.
+- Once we kill their primes, we take over `sanctum`.
+- Rose is still in `sanctum`, and let's go find her.
+- The people on `sanctum` are better off without us.
+- Time between here and `sanctum` doesn't square up.
+- But if we don't get her to `sanctum` soon, get away!
+- Peace and love for the grace and glory of `sanctum`.
+- `Sanctum` is broken, and fanatics make good soldiers.
+- The devils from earth become the heroes of `sanctum`.
+- `Sanctum`... ...something's not right with these rats.
+- When you put mine in on `sanctum`, you pulled me over.
+- You're free to head back to `sanctum` with the primes.
+- If you came back, you'd kill everyone inside `sanctum`.
+- We need your transport ship to be flown into `sanctum`.
+- And the king will let your child be raised in `sanctum`.
+- As soon as the rest of you are safely back on `sanctum`.
+- Russell lightbourne vii, savior of `sanctum`, calm down.
+- We need to accept that they have spies inside `sanctum`.
+- If you die, your people will burn `sanctum` to the ground.
+- You know, while you were off rebuilding `sanctum` by hand.
+- We are purifying `sanctum`, holiness, and what did you say?
+- And kill the rest so they don't burn `sanctum` to the ground.
+- Like a mirror, you see everything i have friends in `sanctum`.
+- Then you can take it from me we purify `sanctum` through fire!
+- You know we can't leave all those people on `sanctum` with who?
+- If we go back to `sanctum`, you get on out there, hors d'oeuvre.
+- The one on `sanctum` leads here, so maybe it was just like that.
+- `Sanctum` was colonized by a team from earth heat shield... good.
+- You were the acting chancellor... the great mystery of `sanctum`.
+- Let's just say that not everyone in `sanctum` lock this camp down.
+- For the first time, another human being today, we purify `sanctum`.
+- John... then i must remind you that those spirits `sanctum` raiders!
+- But only after you let my people return to `sanctum`, all right, mom.
+- "inner `sanctum`"... "the shadow" -- nah, 'cause i had my comic books.
+                 

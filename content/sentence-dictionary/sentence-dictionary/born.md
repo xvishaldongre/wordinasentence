@@ -1,0 +1,107 @@
+---
+title: "born in a sentence | born example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "born"
+---
+- `Born` april 24, 1976.
+- He was `born` with it.
+- I was `born` for this.
+- I was `born` in italy.
+- I was `born` in space.
+- I was `born` this way.
+- My pa was `born` here.
+- One is `born` a saint.
+- Were they `born` here?
+- Where were you `born`?
+- He was `born` fighting.
+- He was `born` that way.
+- I am `born`, i grow up.
+- I was `born` jaundiced.
+- I was `born` near here.
+- My son was `born` here.
+- They're `born` killers!
+- You're a `born` leader.
+- `Born` with "abilities."
+- I am not so well-`born`.
+- Make it my first `born`.
+- We were `born` in space.
+- What i was `born` to do.
+- You were `born` a slave.
+- At dawn, you were `born`.
+- Like being `born`, maybe.
+- You've never been `born`.
+- You were `born` for this.
+- ♪ as the day i was `born`.
+- Gamblers are `born` liars.
+- I wasn't `born` yesterday.
+- Now me, i was `born` rich.
+- That's where i was `born`.
+- Were you `born` in havana?
+- Were you `born` in mexico?
+- We was `born` to die, boy.
+- Whether i was `born` here.
+- Who was `born` on the ark.
+- Bayside, `born` and raised.
+- By then, xavier was `born`.
+- He was `born` deserving it.
+- It was before i was `born`.
+- My mother was `born` there.
+- Their kids was `born` here.
+- A terrible beauty is `born`.
+- Don't answer, he low `born`.
+- Except i was `born` in cody.
+- He was not `born` the alpha.
+- I'm a natural `born` killer.
+- I was `born`, and i am here.
+- I was `born` in switzerland.
+- I was not `born` a rich man.
+- Was `born` here, in leipzig.
+- What about his first `born`?
+- Who made "a star is `born`"?
+- Agnes, how are babies `born`?
+- Eddie, you're a `born` loser.
+- From the moment we're `born`.
+- Here's where you were `born`.
+- He was just `born`, remember?
+- How he was `born` a magician.
+- Just because they are `born`?
+- Sabotage `born` of economics?
+- Where was your father `born`?
+- You know how many are `born`?
+- I was `born` in new york city.
+- I was `born` with a limp, sir.
+- Probably since she was `born`.
+- I was `born` only yesterday!...
+- ...the night batman was `born`.
+- Well, i was almost `born` here.
+- Well i was `born` in st. louis.
+- Ever see natural `born` killers?
+- I killed him when he was `born`.
+- I, nixon, was `born` to do this.
+- No, he died before i was `born`.
+- She was `born` without a tongue.
+- `Born` again of blood and desire.
+- I'm new...i was `born` yesterday.
+- It's because you were not `born`.
+- I was `born` after, in the ruins.
+- I was `born` to murder the world.
+- Peter, what time were you `born`?
+- That's why anarchy 99 was `born`.
+- You were not `born` to be sultan.
+- A `born` freak can only go uphill.
+- I met them before you were `born`.
+- Long ago... where were you `born`?
+- Thank god he was `born` an orphan.
+- Then if i wasn't `born`, who am i?
+- We are `born` knowing our history.
+- Well, i was `born` to be a mother.
+- Wow, were you <u>`born`</u> lucky?
+- For 16 years just for being `born`!
+- I don't think we'll ever be `born`.
+- I say, maybe you were `born` older.
+- I was `born` and raised right here.
+- _ you were `born` for this, clarke.
+- Before i was `born`, actually, mike!
+- I said i wish i'd never been `born`.
+                 

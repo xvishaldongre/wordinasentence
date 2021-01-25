@@ -1,0 +1,79 @@
+---
+title: "yah in a sentence | yah example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yah"
+---
+- `Yah`, thanks a bunch.
+- Oh, `yah`, i know that!
+- `Yah`, send me back-up!
+- `Yah`, that can happen.
+- `Yah`, looks pretty bad.
+- This guy is... `yah`.
+- `Yah` - how are you doon?
+- `Yah`-sure, fine... fine.
+- `Yah`, that's a good one.
+- She's with emori... `yah`!
+- `Yah`, that is a nice ass.
+- `Yah`, that was different.
+- Oh, `yah`, a long time ago.
+- Well, `yah`, i got an idea.
+- Oh, `yah`, couple years now.
+- `Yah`, no, i'm sure you are.
+- `Yah`, got a front movin' in.
+- Open it... `yah` -- the globe.
+- `Yah`, he - oh, he's adorable.
+- `Yah`, `yah`, course i remember.
+- `Yah`, how much money was that?
+- I think i remember linda, `yah`.
+- `Yah`, but - well, i would know.
+- `Yah` - easy there - you do too!
+- `Yah`, he - he's been struggling.
+- `Yah`, woulda been cold out here.
+- `Yah`, shep proudfoot said - well...
+- `Yah`, well, that was a mix-up, then.
+- Well, `yah`, but he had a buddy there.
+- `Yah`, but it's better than this shit.
+- `Yah`... you look in his citation book?
+- `Yah`, this guy's smaller than his buddy.
+- `Yah`, thanks, stan, it's a pretty - 2:30.
+- `Yah`, you said you'd have a think about it.
+- Here's the keys - `yah`, you don't need that.
+- `Yah`, ya know we've got the big statue there.
+- `Yah`, but think this thing through here, wade.
+- You don't think he's mixed up in - heck, `yah`.
+- `Yah` -- i brought her some flowers this morning.
+- Oh, `yah`, but there's not a heckuva lot to discuss.
+- ...`yah`, okay, i think i'll drive down there, then.
+- `Yah`, it's this vehicle i asked you about yesterday.
+- ...`yah` -- well, at least, y'know, i got to perform.
+- Look, dad, there is no fucking way - ...`yah`, okay...
+- `Yah`, all right... what do you mean "your sandwhich?"
+- `Yah`, ya know it's the radisson, so it's pretty good.
+- `Yah`, okay, but, uh - don't you fucking but me, jerry.
+- `Yah`, i got the money, but, uh - i'll see you tomorrow.
+- `Yah`, it's not a bad school... oh... ah, history i think.
+- So if you could read me - `yah`, well, they exist all right.
+- Well it's indisputable that homer visited the kitchen `yah`!
+- `Yah`, if you're an engineer, `yah`, you could do a lot worse.
+- `Yah`, it's over the wire, it's everywhere, they'll find 'em.
+- `Yah`, like i told ya, we haven't had any vehicles go missing.
+- ...i was married to linda cooksey - well, `yah`, i was married.
+- `Yah`, but i - okay, i would, i'd guarantee ya your money back.
+- He says, '`yah`, that guy's dead and i don't mean a old age.'
+- Oh... `yah`, i think that vehicle there probly had dealer plates.
+- It's like robbing peter to play paul, it doesn't make any - `yah`.
+- Maybe if you could just read them to me - `yah`, so we're all set.
+- `Yah`, no, i'm kinda - i'm kinda busy - okey-dokey, thanks a bunch.
+- `Yah`, sorry, so i was married to linda cooksey - ya remember linda?
+- `Yah`, restructurin' the amount of retards they had workin' for them.
+- `Yah`, right - jerry - we thought you were bringin' us an investment.
+- No, no, fax is - `yah`, no problem, i'll just fax that over to ya, then.
+- `Yah`, but this trucoat - you're sittin' here, you're talkin' in circles!
+- `Yah`, well, i, uh... it's not that it didn't work out - linda passed away.
+- `Yah` -- gladys had me order that swan special made from mexico in case becky won.
+- `Yah` -- she's damn near as good as that little black fella -- with the glass eye.
+- `Yah`, but i'm sayin', that trucoat, you don't get it and you get oxidization problems.
+- `Yah`, but that trucoat - we sat here right in this room and went over this and over this!
+- `Yah`, menominie only has chief perpich and he takes february off to go to boundary waters.
+                 

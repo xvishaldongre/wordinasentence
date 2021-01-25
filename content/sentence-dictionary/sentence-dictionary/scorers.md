@@ -1,0 +1,7 @@
+---
+title: "scorers in a sentence | scorers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "scorers"
+---
+## Unfortunately, we have no example sentences for scorers                 

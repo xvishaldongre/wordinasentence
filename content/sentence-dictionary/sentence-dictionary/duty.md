@@ -1,0 +1,107 @@
+---
+title: "duty in a sentence | duty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "duty"
+---
+- Heavy `duty` medicine.
+- Oh well, `duty` calls.
+- You're `duty` to what?
+- You talk about `duty`?!
+- Because it is my `duty`.
+- Okay, here's the `duty`.
+- That's hard `duty`, son.
+- I'm just doing my `duty`.
+- I shouldn't... on `duty`.
+- All in the line of `duty`.
+- `Duty` isn't always honor.
+- Frost, you got the `duty`.
+- He's just going off `duty`.
+- If your `duty` requires it.
+- I'm pulling you off `duty`.
+- It is superseded by `duty`.
+- I was only doing my `duty`.
+- That his `duty` came first.
+- Don't tell me: heavy `duty`.
+- I will do my `duty`, my lord.
+- It's our `duty` to turn him in.
+- It was my `duty` to inform you.
+- We have a `duty` to our people.
+- Well, officer -- do your `duty`.
+- But isn't that the `duty` of art?
+- It is my `duty`...to report this.
+- The whole honor and `duty` thing.
+- It's your obligation, your `duty`.
+- My father ran into him off `duty`.
+- This can't be my last `duty` here.
+- ...i get off `duty` at five-thirty.
+- Okay - got light `duty`, three days.
+- You pull infirmary `duty` this week?
+- A spinal injury, in the line of `duty`.
+- Captain kirk was only doing his `duty`!
+- I'm enough of a copper to do my `duty`.
+- It was his `duty` to give the evidence.
+- Is this in the line of `duty`, sergeant?
+- `Duty` officer so note in the ship's log.
+- The guy you killed was an off `duty` cop!
+- Yes... but the enterprise... my `duty`...
+- I'd have to do some heavy `duty` juggling.
+- Lieutenant ilia reporting for `duty`, sir.
+- We do a tour of `duty` and we're finished.
+- Best to keep your sight fixed on our `duty`.
+- Thanks to gaia, everyone we got's on `duty`.
+- The `duty` to protect my people comes first.
+- Rorschach, you're talkin' heavy `duty` stuff.
+- Thanks, but i'll stick with honor and `duty`.
+- The national guard is on `duty` at the gates.
+- We only have eight officers on `duty`, chief.
+- Anything to get out of combat `duty` tomorrow.
+- We are soldiers and our only `duty` is to win.
+- You've gone beyond the call of `duty` tonight.
+- Devotion to country, `duty`, purity of heart...
+- I thought that was your `duty`, abbe, not mine.
+- My `duty` as a human being is to be pissed off.
+- I can tell you who's gonna be on `duty` tonight.
+- Through constant increases in government `duty`.
+- Well, i mustn't let it interfere with my `duty`.
+- It's not like i was on guard `duty` or something.
+- Logan-5... francis-7, authorized `duty` quadrant.
+- Major arnold believes he has a moral `duty`, too.
+- Pilot trainee ibanez reporting for `duty`, ma'am.
+- It is my `duty` to see that you stay in casablanca.
+- It's my `duty` to serve and protect the next prime.
+- There's an outer row of columns, real heavy `duty`.
+- A `duty` few men are fit for, but you were born for.
+- First i'm stuck with jury `duty`, now this nonsense.
+- But i feel it's my `duty` to point out a second ship.
+- I did my `duty`, now i'd like to get on with my life.
+- It's not a matter of `duty` so much as of commitment.
+- My first and foremost `duty` is to protect my people.
+- Staring three years of operational `duty` in the face.
+- I'd like to volunteer for `duty` with the new detective.
+- Officers, there's your killer, do your `duty`, arrest him!
+- You do not report for `duty` unless the queen requests it.
+- Four months of training, three years of operational `duty`.
+- Your `duty` is to the flame now... we already lost bellamy.
+- I'm off `duty` shortly, then i'm off to the films with alex.
+- Our `duty` also is to bring back the best of german culture.
+- They've done their `duty`, general greene, now you do yours!
+- I'm on `duty` at the desk and who knows a quest might arrive.
+- I know each and every one of you boys will do your `duty`.
+- As long as it's okay with monkeybone - got a doctor on `duty`.
+- It is my `duty` to see that he doesn't impress the other half.
+- Ok. where we... and it is our `duty` to provide that assistance.
+- The first excuse on both our lists was our "sense of `duty`."
+- I know this is above and beyond the call of `duty` for a stand-in.
+- So on active `duty`, meeks didn't make an arrest from 1938 to '43.
+- Have you had to... have sex with other women in the line of `duty`?
+- If you love someone, it's your `duty` to save them from themselves.
+- It's the `duty`, of the sorcerer supreme to protect the time stone.
+- Yes -- but i did my `duty` and sorted out all those messy feelings.
+- I'm gonna find a heavy-`duty` comm sat right now, i need your login.
+- The citizen's `duty` is to remember, not necessarily to write books.
+- We have a moral `duty` to be just and we have to be seen to be just.
+- You don't believe i can fight from a sense of `duty` and patriotism?
+- Before my father could prove it, he was killed in the line of `duty`.
+- Bud's idea of a fight is arm-wrestling one night over laundry `duty`.
+                 

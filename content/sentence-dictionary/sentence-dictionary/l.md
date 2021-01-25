@@ -1,0 +1,107 @@
+---
+title: "l in a sentence | l example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "l"
+---
+- Becca, meet a.`l`.i.e.
+- `L`.a.'s an open city.
+- ...and louis `l`'amour.
+- I'm with the `l`.a.p.d.
+- It's a.`l`.i.e., right?
+- `L`... search the rest.
+- "man from u.n.c.`l`.e."
+- They are s.h.i.e.`l`.d.
+- To make sure a.`l`.i.e.
+- Are you officer 412/`l`?
+- If you don't, `l`.a.p.d.
+- It's not just a.`l`.i.e.
+- Since he moved to `l`.a.
+- 10,000 m.s.`l`., admiral.
+- Damn, evan, on the d.`l`.
+- Doctor v. `l`. pemberton.
+- Get me `l`. b. jefferies.
+- Go back to the a.`l`.i.e.
+- `L`... don't say "can't."
+- `L` respect your privacy.
+- The one with the v.p.`l`.
+- Young guy with `l`.a.p.d.
+- You think that mr. `l`.`l`.
+- He sees a shrink in `l`.a.
+- I am -- i'm captain b.`l`.
+- If i was wrong, a.`l`.i.e.
+- Je `l`'ai choisi moi-m�me.
+- Le montage, `l`�emballage.
+- `L`-lt won't happen again.
+- `L`. where are the others?
+- That's been s.h.i.e.`l`.d.
+- We never made it to `l`.a.
+- Whoa, hold up li'`l` sis'.
+- I didn't start this, r.`l`.
+- Oh shit dude, the `l`-word!
+- Prima non `l`'aveva con se.
+- But others at s.h.i.e.`l`.d.
+- Get out of there, a.`l`.i.e.
+- I called every `l`.a. hotel.
+- If she can access a.`l`.i.e.
+- It's not a.`l`.i.e., clarke.
+- ♪ o god on high ♪ a.`l`.i.e.
+- She's just a little s-`l`-o.
+- So why'd you come to `l`.a.?
+- The colombians are in `l`.a.
+- The more powerful a.`l`.i.e.
+- This guy could be `l`.a.p.d.
+- Who's married to li'`l` bit.
+- You're not from `l`.a., huh?
+- [coughs] - without a.`l`.i.e.
+- I know how to stop a.`l`.i.e.
+- It's a.`l`.i.e.. she got out.
+- I was still at s.h.i.e.`l`.d.
+- `L` is for limited atonement.
+- `L`'ve got a good thing here.
+- Or we'll be giving a.`l`.i.e.
+- Were you in `l`.a. back then?
+- If she was chipped, a.`l`.i.e.
+- In `l`.a. it's out of control.
+- Now i got an `l`.a. gun story.
+- She remembered that a.`l`.i.e.
+- Yeah, well, i'm in `l`.a. now.
+- A.`l`.i.e., a.`l`.i.e., a.`l`.i.e.!
+- I had a fundraiser for a.`l`.v.
+- It's just supper, r.`l`., shit.
+- Numero deux, duck a `l`'orange.
+- What matters is that a.`l`.i.e.
+- I love `l`.a. where we gonna go?
+- It's a company called d-e-`l`-t.
+- To open a portal into a.`l`.i.e.
+- Why don't you get out of `l`.a.?
+- With the added power, a.`l`.i.e.
+- Give me an "`l`." give me an "i."
+- If we stop a.`l`.i.e., sheidheda?
+- Je peux `l`'ouvrir tout de suite?
+- R.`l`., you gonna have to get on.
+- We still having dinner in `l`.a.?
+- ...where's my `l`'il <u>pill</u>?
+- Before we're overrun by a.`l`.i.e.
+- I grew up in `l`.a... you asshole.
+- I'm from `l`.a. we invented gangs.
+- `L`.a.'s changed a lot since then.
+- She wants to use one of a.`l`.i.e.
+- They wouldn't find her, a.`l`.i.e.
+- We were supposed to meet in `l`.a.
+- Yes -- start in `l`.a. on tuesday.
+- You said in `l`.a., anything goes.
+- A `l`�achat, trois ou quatre mille.
+- I'm from `l`.a. that's how you eat?
+- `L`.a.'s a small town, people talk.
+- So have you always lived in `l`.a.?
+- C'est une vedette � la t�`l`�vision.
+- It's the only way to stop a.`l`.i.e.
+- No forwarding addresses after k.`l`.
+- Oh, we're using the "`l`" word, huh?
+- So what brings you to `l`.a., bones?
+- We won't know how to stop a.`l`.i.e.
+- Which comes first, `l` or... glooph?
+- I'm a fan of everything that's `l`.a.
+- I'm gonna pay a visit to the k.`l`.f.
+                 

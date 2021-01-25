@@ -1,0 +1,107 @@
+---
+title: "cops in a sentence | cops example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cops"
+---
+- Running to the `cops`.
+- The `cops` are coming.
+- They're all ex-`cops`.
+- `Cops` don't do nothin.
+- Hidin' from the `cops`?
+- I'm calling the `cops`.
+- Mars, watch the `cops`!
+- No one talks to `cops`.
+- Oh my god, it's `cops`!
+- The `cops` will see us.
+- This is for the `cops`.
+- Did you call the `cops`?
+- Let's do what `cops` do.
+- Lucy went to the `cops`!
+- No-- you see any `cops`?
+- Workin' with the `cops`.
+- Are we on "`cops`" again?
+- Get the `cops`, somebody.
+- I am going to the `cops`.
+- The `cops` are satisfied.
+- The `cops` from my trial.
+- `Cops` say she'll be back.
+- Tagged a couple of `cops`.
+- Yeah, right to the `cops`.
+- He had the `cops` paid off.
+- It's the `cops`, i know it.
+- Those two guys were `cops`.
+- Toon `cops` worked me over.
+- You can't go to the `cops`.
+- You gonna go to the `cops`?
+- But i hate `cops`, remember?
+- Fbi, cia, nsa, local `cops`.
+- Guys, the `cops` are coming!
+- Guys, the `cops` are coming.
+- Take the tape to the `cops`.
+- Then you can sue the `cops`.
+- You called the `cops` on us?
+- All of you used to be `cops`.
+- `Cops` can't locate him, huh?
+- How do i know you are `cops`?
+- I'll call the `cops` for you.
+- Tight with the dallas `cops`.
+- You guys `cops` or something?
+- `Cops` called it "blood week".
+- Leaving work, ditching `cops`.
+- Shouldn't we go to the `cops`?
+- The `cops`, my mom, everybody.
+- They was some `cops` here, ma.
+- We are not calling the `cops`!
+- What if she called the `cops`?
+- What will you tell the `cops`?
+- Why don't you call the `cops`?
+- That's not -- we're not `cops`.
+- The mayor pressures the `cops`.
+- To sound like big macho `cops`.
+- What do you mean tip the `cops`?
+- You got these `cops` outta here.
+- Don't let the `cops` provoke you.
+- Oh, we need `cops` on the street.
+- Salesmen and `cops` are the ones.
+- Well, `cops` are good at finding.
+- But, first of all, are you `cops`?
+- It's crawling with `cops` outside.
+- Kicks the `cops`' asses some more.
+- The `cops`'ll plow right into you.
+- The `cops` were all over my house.
+- What do you think the `cops` have?
+- When they do, you call the `cops`.
+- Come quick, there's `cops` outside.
+- He said he had the `cops` paid off.
+- I know `cops` -- and you're no cop.
+- It's not a good week for ex-`cops`.
+- That woman's gonna call the `cops`.
+- The `cops` think that she ran away.
+- They were ready to call the `cops`.
+- I didn't get burned, two `cops` did.
+- I don't think those `cops` did iris.
+- So the `cops` aren't looking for me?
+- [the `cops` call him 'the dreamer'.]
+- The `cops` weren't much help either.
+- There are `cops` all over the place.
+- Yeah, most `cops` are pretty dumb...
+- You have a weakness for lady `cops`.
+- I can't frisk you but the `cops` can.
+- If you don't tell the `cops`, i will.
+- Should i call the `cops` or... peter?
+- The `cops` were there waitin' for us!
+- What are we going to tell the `cops`?
+- He's just gonna call the `cops` again.
+- I gotta keep the `cops` cooled out ...
+- Somebody is in league with the `cops`.
+- That on top of the `cops` bugging him.
+- The joint is crawling with `cops` now.
+- We got enough dead `cops` on this one.
+- What are ya gonna do, call the `cops`?
+- I'm tired of always playing the `cops`.
+- It may well have been the local `cops`?
+- `Cops` aren't allowed inside the temple.
+- `Cops` aren't allowed to do that either.
+- Entrapment is what `cops` do to robbers.
+                 

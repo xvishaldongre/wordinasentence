@@ -1,0 +1,90 @@
+---
+title: "pair in a sentence | pair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pair"
+---
+- Quite a `pair` we make.
+- That was a `pair` bond!
+- Want a `pair` of boots?
+- `Pair` up and fight now.
+- I have never had a `pair`.
+- You're a beautiful `pair`.
+- A new `pair` of panty hose.
+- They become a mated `pair`.
+- Cost you a `pair` of nylons.
+- One `pair` of italian shoes.
+- `Pair` up, grab the weapons.
+- Permission to `pair` up, sir?
+- Seven hundred for the `pair`.
+- There's only one `pair` left.
+- This is my thirteenth `pair`.
+- Yeah, we made a great `pair`.
+- Alimony to a `pair` of tramps?
+- Oh thomas, a `pair` of pippins!
+- That and a `pair` of testicles.
+- We're quite a `pair`, you and i.
+- Four-fifty is bid for the `pair`.
+- Sven, uh oh... two `pair`... mmm.
+- �a beautiful `pair` of shoulders!
+- Waves a `pair` of new socks around.
+- Struggling with a `pair` of germans.
+- You built her a `pair` of fast legs.
+- One `pair` of tie-dyed socks, purple.
+- Fifty to two hundred dollars a `pair`.
+- Oh, fuck, seth, that's my only `pair`!
+- "the ruffian dogs, the hellish `pair`.
+- 'bout the biggest `pair` you ever seen!
+- `Pair`'a nines with a jack gets a four.
+- Here all one needs is a `pair` of fangs.
+- I never had a really real `pair` before.
+- We are a `pair`, and that's what counts.
+- One `pair` of trousers - blue pinstriped.
+- Do you have a `pair` that are just friendly?
+- Ruined a brand-new `pair` of lee press- ons.
+- Toothbrush, toothpaste, and a `pair` of hose.
+- Indeed i am, my dear... that makes us a `pair`!
+- I've never worn the same `pair` of socks twice.
+- As a `pair` of fur-lined bedroom slippers, boss.
+- I kind of stole a `pair` of her panties, is what.
+- ...to have an extra `pair` of pajamas, would you?
+- I could get her a `pair` of earrings or something.
+- Yeah, between a bookie and a `pair` of broken legs.
+- You're just a kid in a jacket and a `pair` of pants.
+- One `pair` of underpants - white with blue waistband.
+- We were one hell of a `pair`--and we'll be one again.
+- A `pair` of vicious little shits, that's what you are.
+- I'm just working so hard -- it's a `pair` of earrings.
+- It looks like a big `pair` of breasts and a pot belly.
+- Man 1: this magnificent `pair` of louis xvi fauteuils.
+- I can't very well leave without a `pair` of water wings.
+- It took you, what, seven hours to buy a `pair` of shoes?
+- I wouldn't trade them for another `pair`, tell you that.
+- That day, a `pair` of crows came to nest in our roof.
+- You know, meatloaf has a very nice `pair`... no seriously.
+- It certainly could use a `pair` of shears and a blue pencil.
+- They are a `pair` of would-be mur- deresses fighting it out.
+- When you're happily married with a `pair` of strapping boys.
+- The jacket and the `pair` of pants came with the body i took.
+- You've never had a `pair` of fast shoes in your life, dignan.
+- He stole a `pair` of your panties while you were being erased!
+- It's very curious -- i could only find three and a half `pair`.
+- Baker's man... but no use ruinin' a good `pair` of shoes over it.
+- Put a big `pair` of sunglasses on this building, and a funny nose?
+- You're coming back-- and me coming in with two `pair`-- aces full.
+- As far as he's concerned you're just a `pair` of breasts that talk.
+- I'm sorry, that's gotta be a `pair` of tube socks he has down there.
+- Yeah, there's a `pair`'a broads i'm thinking might be good for this.
+- We're dealing with tracy and hepburn here, a very sophisticated `pair`.
+- Damn, porkchop, you sound just like a guy who ain't never seen a `pair`.
+- I remember a `pair` of young philosophers once, who laughed at the world.
+- A giant `pair` of praying hands we have feelings we need to learn to control.
+- I'll have the prison tailor fit you with a `pair` of special spats - striped!
+- I was just thinking that i never had a new `pair` of shoes till i was twelve.
+- A `pair` of average citizens have decided to risk their lives for their country.
+- How would you like to give frau schulz a `pair` of silk stockings for christmas?
+- He puts on a `pair` of dark 7-eleven shades, flips up his collar and skulks away.
+- I mean i wanted to come clean but he gave me a `pair` of balls, you know what i mean?
+- I call 'em constitution and bill of rights, the most dependable `pair` for long journeys.
+- Because the day after the shooting you sent in a `pair` of spats - they had blood on them.
+                 

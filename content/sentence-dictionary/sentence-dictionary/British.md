@@ -1,0 +1,90 @@
+---
+title: "British in a sentence | British example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "British"
+---
+- `British` media mogul.
+- The `british` army, sir!
+- The `british` betrayed me.
+- I used a `british` passport.
+- Sir, i'm a `british` officer.
+- That i betrayed the `british`?
+- `British` promises are honored.
+- I'm a `british` secret service agent.
+- It belongs to the `british` government.
+- So character-forming for the `british`.
+- The `british` have massive superiority.
+- The whole `british` bloody post office.
+- `British` in india, germans with rwanda.
+- I heard the `british` hung him as a spy.
+- I had a visit from the `british` embassy.
+- The `british` army is barricaded in boston.
+- I've got to hand it to the `british`, david.
+- It's true, you're `british`, and i'm belgian.
+- Sally, our slave system is a `british` law...
+- He spent too many years in the `british` army.
+- What's your frank estimation of the `british`?
+- Jinnah has -- has cooperated with the `british`.
+- Where is the film crew from the `british` museum?
+- The `british` with india, the germans with rwanda.
+- The man who stopped the `british` on lake champlain!
+- They're among the best divisions the `british` have.
+- We serve the interests of the `british` people, 007.
+- `British` royal organisation for lasting liquid years.
+- This is basil exposition, from `british` intelligence.
+- I have the entire `british` economy to worry about.
+- `British` regiments drape their drums in leopard skins.
+- You think the `british`'ll share it with their allies?
+- Johnnie walker also rode the wave of the `british` empire.
+- The `british` army is right back there, across that river!
+- This is basil exposition, chief of `british` intelligence.
+- That would destroy us as surely as a `british` victory.
+- The whole of the `british` empire was built on cups of tea.
+- It's a wonder they find the `british` cause worth dying for.
+- That `british` dickhole is what's taking wendy away from me!
+- The `british` navy abandoned that boat, and i'm claiming it.
+- The way i see it is this: the `british` empire was an ideal.
+- This was taken in cairo at `british` headquarters - july 41.
+- Have you contacted the `british` home and the royal hospital?
+- If you ever fall... into `british` hands... what white water?
+- I hear the `british` have his... his archive, files, records.
+- The fall of the `british` empire, the cold war, the internet.
+- Well, a very real expectation is the `british` will hang you!
+- I don't believe it -- even the `british` can't be that stupid!
+- I've got half the `british` government breathing down my neck.
+- The `british` are negotiating to make a trade for general lee.
+- Thinks `british` weather has been tampered with by ... aliens.
+- I thought `british` policy is 'make the world... england', sir.
+- My father is the `british` museum's most respected archeologist!
+- I don't know, but the `british` are excited about it, i know that.
+- But if a certain `british` doctor never asked "what's this fungus?"
+- Hello, austin, this is basil exposition from `british` intelligence.
+- The whole kit and caboodle of 'em are `british` intelligence agents.
+- I'm here to raise this county's militia to aid the `british` defense.
+- Would you rather be ravished by a pirate or a `british` rear admiral?
+- No matter what the `british` government says, i won't kill this story.
+- Not with enough certainty to outweigh `british` interests in this fort.
+- The `british` army wiped them out about the time of the mutiny of 1857.
+- Does a nice little sideline in punting `british` passports to foreigners.
+- Signed detective sergeant driscoll, vancouver, `british` columbia, police.
+- Yes, i spoke to both the `british` home and royal hospital for incurables.
+- Apollo, how would you rate this last `british` challenger, henry wilcoxson?
+- But you were among the `british`, they were your friends - why betray them?
+- He says the `british` have left the palace, which proves kali ma's new power.
+- William says now you have requested a `british` commission, why not colonial?
+- As one of our own who has seen combat with the `british`, your opinion counts.
+- It's a syndicated show out of.. you guys are from the `british` museum, right?
+- You heard this rumour the `british` found something called the hinkel archive?
+- Obviously, the `british` government denies all of this - i see you two have met.
+- All the damned fool has to do is hit the `british` rearguard and then hold for us.
+- For an american you do a good imitation of the `british` at their most apologetic.
+- Congress thinks that the `british` are going to ride right over us come spring.
+- My mother is a complete anglophile, anything `british` makes her drool like a baby.
+- The next time you're in wild country like this, keep in touch with the `british` consul.
+- Because, if the `british` got off their asses and came up here, now, we would be smashed.
+- But, congratulations on your victory at ticonderoga... we've got to attack the `british`!
+- Munro is expecting him to be the good soldier in defense of `british` military interests.
+- You ugly, great brute you, you have sadism stamped all over your bloated `british` kisser.
+- John, i'd like you to meet one of the brightest lights of the `british` stage, mrs. kendal.
+                 

@@ -1,0 +1,107 @@
+---
+title: "immediately in a sentence | immediately example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "immediately"
+---
+- He said `immediately`.
+- We start `immediately`.
+- I need it `immediately`.
+- Send that `immediately`.
+- `Immediately`: i'm trying!
+- Stop this car `immediately`!
+- Call them back `immediately`.
+- Not `immediately`, of course.
+- Return to ship `immediately`.
+- Yes... leaving `immediately`.
+- Go to your room `immediately`.
+- I need a lawyer `immediately`!
+- I wanted it out `immediately`.
+- To airlock b-17 `immediately`.
+- How immediate is `immediately`?
+- `Immediately` and indefinitely.
+- We have to leave `immediately`.
+- Halt negotiations `immediately`.
+- I would have come `immediately`.
+- They'll call down `immediately`.
+- Transfer effective `immediately`.
+- You'd have to start `immediately`.
+- Rose, open this door `immediately`!
+- You call herr mozart `immediately`!
+- I want you to see him `immediately`.
+- Tell them i need them `immediately`.
+- Ed knew what they were `immediately`.
+- None of them are `immediately` fatal.
+- You'll be a lieutenant `immediately`.
+- I want to see my mother `immediately`.
+- Return to your quarters `immediately`.
+- I know, she needs to die `immediately`.
+- I'll write you the check `immediately`.
+- You must see the doctors `immediately`.
+- I need to get to amarillo `immediately`.
+- I want her put on a plane `immediately`.
+- Dispatch me another zfx200 `immediately`.
+- He'd like to start serving `immediately`.
+- I have to leave for russia `immediately`.
+- We have to leave the city, `immediately`.
+- Determine extent of damage, `immediately`.
+- If we do, i'll let you know `immediately`.
+- I've got to get off a wire `immediately`.
+- We have to `immediately` alert that plane.
+- We must take action on this `immediately`.
+- He `immediately` fell in love with her.
+- We must evacuate this planet `immediately`!
+- Yes... yes... we must act `immediately`!...
+- Otherwise... inform mr. scott `immediately`.
+- We will begin mass production `immediately`!
+- We should start phasing it out `immediately`.
+- You must locate those supplies `immediately`.
+- Come on, we've got to get drunk `immediately`.
+- We must convene the war council `immediately`.
+- I wish you to return `immediately` to salzburg.
+- You are to vacate these premises `immediately`.
+- Confused and scared... take cover `immediately`.
+- Gordon is `immediately` electrified into action.
+- Request permission to beam aboard `immediately`.
+- We have to get off this island -- `immediately`!
+- I want this flashed to all section `immediately`.
+- Please report to the south airlock `immediately`.
+- All citizens must report to level 5 `immediately`.
+- I need to return to the observatory `immediately`.
+- No one expects you to get over this `immediately`.
+- There are three thoughts that `immediately` occur.
+- Call them up and have them come here `immediately`.
+- I'll have restraining orders drafted `immediately`.
+- Effective `immediately`: leg of yam and wagyu beets.
+- You're to leave `immediately` for fhloston paradise.
+- The poor woman should be taken care of `immediately`.
+- There's an autopsy ordered at bellevue `immediately`.
+- He's filed to have construction stopped `immediately`.
+- But miles -- you have to leave the house `immediately`!
+- I'll need you and vanessa to get on that `immediately`.
+- I may need you to go to work practically `immediately`.
+- Time's up... we'll have to take them out `immediately`.
+- I really think i should try and locate it `immediately`.
+- Whenever i see the dc logo, i `immediately` fall asleep.
+- I want to get maxie dean and sarah up here `immediately`.
+- To do that, you must locate mount weather `immediately`.
+- We'll see about that - send for your father `immediately`.
+- Guard: dr. abigail griffin, open this door `immediately`.
+- [people gasping] two if we start rationing `immediately`.
+- It was yours actually, but, uh, i approved it `immediately`.
+- You're right, we'll have to send someone down `immediately`.
+- Yes, yes--tell them i'll see them `immediately`--`immediately`!
+- When they change the law spike and i will marry `immediately`.
+- Also, there are three tasks that must be executed `immediately`.
+- Effective `immediately`, you three work desk jobs till midnight.
+- If someone looks at you, you `immediately` become visible again.
+- I would suggest you search the cafe `immediately` and thoroughly.
+- I need two tactical assault squads at place denfert `immediately`.
+- All citizens must report to the nearest shelter zone `immediately`.
+- Corporal, the roughnecks are moving out for planet p `immediately`.
+- Well, fed or hungry, pulleine wants them in position `immediately`.
+- I mean, it's quite n - of course, i'll show it to you `immediately`.
+- Mr. corleone is a man who insists on hearing bad news `immediately`.
+- Perhaps paul, being young, can adjust to joy or grief `immediately`.
+- We're prepared to remove you `immediately`, should anything go wrong.
+                 

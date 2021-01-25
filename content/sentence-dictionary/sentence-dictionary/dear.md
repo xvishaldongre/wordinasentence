@@ -1,0 +1,107 @@
+---
+title: "dear in a sentence | dear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dear"
+---
+- `Dear`, sweet hawkeye.
+- `Dear`, sweet, rachel.
+- Is it hurting, `dear`?
+- Just a minute, `dear`.
+- Just a moment, `dear`.
+- No, `dear`, the train.
+- Oh, i hope so, `dear`.
+- Shit o `dear`, julian.
+- Yes, my `dear`, he is.
+- You know that, `dear`.
+- Ah, `dear` simple otis.
+- `Dear`, i was thinking.
+- `Dear` lord, thank you.
+- He's a polecat, `dear`.
+- It's all right, `dear`.
+- Thank you, `dear` icey.
+- They never are, `dear`.
+- [woman] i know, `dear`.
+- Yes -- quickly, `dear`!
+- Can't this wait, `dear`?
+- Claudia is `dear` to me.
+- Did you like it, `dear`?
+- Here, hold that, `dear`.
+- How old are you, `dear`?
+- It doesn�t, `dear` girl.
+- My `dear`, `dear` friends!
+- Sit on that log, `dear`.
+- Speak on, `dear` friend.
+- Yes, `dear`, what is it?
+- But i have to go, `dear`.
+- `Dear` heart, i love you.
+- `Dear` heart, i love you.
+- Don't call me `dear` boy.
+- Hold on a minute, `dear`.
+- How do you do, my `dear`.
+- In the coffin, my `dear`.
+- Of course not, my `dear`!
+- Well `dear`, you see, i .
+- What do you mean, `dear`?
+- What's the matter `dear`?
+- Who's the father, `dear`?
+- Feeling better, my `dear`?
+- I already have, my `dear`.
+- Let me pod you, my `dear`.
+- No, `dear`, of course not.
+- No, my `dear`, it is true.
+- Not yet, `dear` brother...
+- Oh, `dear` that's too bad.
+- What's the matter, `dear`?
+- You don't want to, `dear`.
+- Be nice to them, my `dear`.
+- `Dear`, you're a scientist.
+- Here you are, maxie `dear`.
+- Oh, i didn't mean "`dear`."
+- What else, my `dear` major?
+- Would you get that, `dear`?
+- Claudia `dear`, come closer.
+- `Dear` daisy, don't despair.
+- `Dear` heart, where are you?
+- `Dear` me, the man is dense.
+- Eve `dear`, this is addison.
+- I have forgotten it, `dear`.
+- I'm not leaving yes, `dear`.
+- Not in this case, my `dear`.
+- Oh, don't be so coy, `dear`.
+- Oh, yeah, of course, `dear`.
+- Only biz, my `dear` artiste?
+- The guests are here, `dear`.
+- Anything for a `dear` friend.
+- `Dear` god, what have i done?
+- `Dear` lord... - don't kneel.
+- "`dear` sleepless in seattle.
+- `Dear`, whatever shall we do?
+- I've been so worried, `dear`.
+- Oh, `dear`, `dear`, `dear`, `dear`.
+- Oh, my `dear` boy, i'm sorry.
+- Roger: there you are, `dear`.
+- We've missed you too, `dear`.
+- You look terrible, my `dear`.
+- What do you do, my `dear`?
+- Give me a kiss, my `dear` boy.
+- [mycroft chuckling] my `dear`!
+- My `dear` -- why do you smile?
+- Oh yes, `dear` too - terrible!
+- Oh, yes you will, ann `dear` .
+- Why, what do you mean, `dear`?
+- Yes, he's very bright, `dear`.
+- Let's call it quits, my `dear`.
+- Not a chance, my `dear` fellow.
+- Oh, is that you, walter `dear`?
+- The un is far away, `dear` sir.
+- They're `dear` friends of mine.
+- This is herr mozart, my `dear`.
+- What do you suggest, my `dear`?
+- Did you have a nice day, `dear`?
+- My `dear`, i've already done it.
+- [perfectly friendly, my `dear`.]
+- Sardonic, if you will my `dear`.
+- Too late for what, `dear` child?
+- Then there's `dear`, old dad.
+                 

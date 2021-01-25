@@ -1,0 +1,82 @@
+---
+title: "Josephine in a sentence | Josephine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Josephine"
+---
+- `Josephine` was right.
+- She isn't `josephine`.
+- Blessed is `josephine`.
+- It's `josephine` prime.
+- `Josephine`'s with him.
+- My name is `josephine`.
+- You'll hit `josephine`.
+- Ah, my poor `josephine`.
+- `Josephine` could do it.
+- Peachy keen `josephine`.
+- The name is `josephine`.
+- Joe - `josephine` - help!
+- Not tonight, `josephine`!
+- `Josephine` and geraldine!
+- How about you, `josephine`?
+- `Josephine` called me john.
+- `Josephine` - oh yes, we do!
+- I miss `josephine` every day.
+- `Josephine`, can you hear me?
+- Wait till i tell `josephine`.
+- How many are with `josephine`?
+- It's her... `josephine` prime.
+- Where the hell is `josephine`?
+- You can admit it, `josephine`.
+- What do you think, `josephine`?
+- If they don't, `josephine` dies.
+- This is `josephine`'s mindspace.
+- When he kills `josephine` prime.
+- I'm `josephine` sarah marcus.
+- Why `josephine` started oblation.
+- 'cause `josephine`'s still inside.
+- He was with `josephine` in the cave.
+- `Josephine` called it the mindspace.
+- I'm daphne - and this is `josephine`.
+- `Josephine` dead -- how unbelievable!
+- `Josephine` would've made sure of it.
+- Madi... `josephine` called me "john."
+- They'll think i'm `josephine`'s guard.
+- But `josephine` can be very persuasive.
+- `Josephine` and i have a lot in common.
+- The drive in her head, it's `josephine`.
+- `Josephine`... no, actually, they're not.
+- Daphne - daphne - good night, `josephine`.
+- `Josephine` and simone were intrigued - uh!
+- Question is, how do we get `josephine` out?
+- `Josephine` is missing, lock this camp down.
+- We call it jo juice after `josephine` prime.
+- We won't tell anybody - not even `josephine`.
+- `Josephine` was tapping morse code on her arm.
+- Here at geriatric park, we combine `josephine`?
+- Oh, `josephine` prime's favorite ritual, - gone.
+- Is your mother madame `josephine` de beauharnais?
+- `Josephine` actually went to the congo last year.
+- Was survivable again, `josephine`, i can explain.
+- We know from clarke and `josephine` how that ends.
+- Anya was my mentor, `josephine` already has the memory.
+- I just can't wait to see her face - yeah - `josephine`.
+- You know, ♪ we're the spirits you raised ♪ `josephine`.
+- Ok. `josephine` was tapping out morse code tell me more.
+- Believe it or not - `josephine` predicted the whole thing.
+- They think i'm `josephine`, can you just give me a second?
+- We need to make peace with the grounders, it's `josephine`.
+- 1. but it looks like i've conquered you at risk, `josephine`?
+- I have just had the most vivid... dream... about `josephine`.
+- Why don't you go home with `josephine` and i'll stay tonight.
+- This is my friend `josephine` - she's going to be a bridesmaid.
+- I beg you one last time... `josephine` lightbourne is in my head.
+- But that's a different... would you say you understand `josephine`?
+- You mean there are some things better left unsaid about `josephine`?!
+- As the commander said, we'll be waiting in the field with `josephine`.
+- There's detonator, if you don't take this deal, `josephine` will kill you.
+- ♪ and find i'm fitting right in ♪ would you say that if it was `josephine`?
+- She must've pulled herself from the mainframe `josephine` seems to sense it.
+- I love the rides that are dangerous `josephine` lightbourne is in my head.
+- If `josephine`'s in her head, ♪ make believe i'm everywhere ♪ gabriel, please don't!
+                 

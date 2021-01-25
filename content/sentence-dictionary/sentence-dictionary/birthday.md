@@ -1,0 +1,107 @@
+---
+title: "birthday in a sentence | birthday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "birthday"
+---
+- Happy `birthday`, kid.
+- Happy `birthday`, man.
+- Is it your `birthday`?
+- Is this my `birthday`?
+- It's my `birthday`.
+- Happy `birthday` adele.
+- Happy `birthday`, bill.
+- It's not my `birthday`.
+- The `birthday` candles!
+- Well, happy `birthday`.
+- When's your `birthday`?
+- Happy `birthday`, lenny.
+- Not my `birthday` again?
+- Happy `birthday`, george.
+- Happy `birthday`, lainey.
+- Happy fucking `birthday`!
+- It's wolfie's `birthday`.
+- Mr. sampson's `birthday`.
+- My `birthday`'s tomorrow.
+- Remembered my `birthday`.
+- Tomorrow's my `birthday`!
+- Happy `birthday`, darling.
+- How's the `birthday` girl?
+- Happy `birthday`, nicholas.
+- Is that a `birthday` cake?!
+- Is that my `birthday` cake?
+- Not even a `birthday` card.
+- Ah, lenny, happy `birthday`.
+- For ellie's `birthday`, yes.
+- For her fiftieth `birthday`?
+- It's your `birthday`, right?
+- It was someone's `birthday`.
+- Sometimes on his `birthday`.
+- 's only a `birthday`, right?
+- Uh, his `birthday`, uh, may.
+- He sent me a `birthday` card.
+- It's her `birthday` tomorrow.
+- It's my `birthday` this week.
+- It's my eightieth `birthday`.
+- It's cozy... who's `birthday`?
+- It's john bonham's `birthday`.
+- We got a `birthday` cake, kid.
+- Did you have a nice `birthday`?
+- "happy `birthday`, wanda june!"
+- Tomorrow is janie's `birthday`.
+- You said it was her `birthday`.
+- My `birthday` is april 10, 2015.
+- Too much `birthday` cake, right?
+- Are you reading, `birthday` girl?
+- Happy `birthday`... yeah, me too.
+- He'll be gone for his `birthday`.
+- Christ, jack, it's her `birthday`.
+- Have a `birthday` party every day?
+- Your `birthday` is september 17th.
+- Bill... bill, it's your `birthday`.
+- `Birthday` guests at three o'clock!
+- Did i tell you about my `birthday`?
+- It's part of my `birthday` present.
+- It's your `birthday` party... no...
+- Mikey loves his `birthday` present.
+- This is a perfect `birthday` drink.
+- His `birthday`'s always a big to-do.
+- He gave them `birthday` concerts.
+- This is the greatest `birthday` ever!
+- Cassie gave me this for my `birthday`.
+- I gave it to viktor on his `birthday`.
+- Your `birthday` isn't until next week.
+- I was your waitress on your `birthday`.
+- Every damn day there's `birthday` party.
+- Have a lovely `birthday` party tomorrow.
+- I bought it for him, for his `birthday`.
+- It's a `birthday` present for my cousin.
+- It's my father's `birthday`--that's all.
+- My dad took me hunting on my `birthday`.
+- The ones you wore to cathy's `birthday`.
+- There's no `birthday` party for me here!
+- You forgetting my `birthday` even worse.
+- A `birthday` drink for the `birthday` girl.
+- Guess who gave me this for my `birthday`.
+- It was on account of the `birthday` party.
+- Mr. ryan just borrowed my `birthday` cake.
+- Your `birthday` celebration, your majesty?
+- Hudson had a `birthday` party, i am sienna.
+- I can't, it's seymour's `birthday`... shit!
+- I hate parties -- but it's your `birthday`.
+- It says, "happy `birthday`, somebody else."
+- Me and faith in a hot tub on my `birthday`.
+- Not invite me to their `birthday` party...?
+- Sometimes i forget our marriage `birthday`.
+- The sig sauer you got me for my `birthday`.
+- Bill's `birthday` is the day after tomorrow.
+- I couldn't it was johnny horne's `birthday`.
+- I'm invited to a `birthday` party at addy's.
+- Not invite me to their `birthday` party ...?
+- This is ark station calling `birthday` girl.
+- What makes you think it's his `birthday`?
+- But i will have it on my `birthday`, won't i?
+- 'happy `birthday`, dear adolf, love wilhelm.'
+- I brought a `birthday` present for mr. gekko.
+- It's your fucking `birthday`, for chrissakes.
+                 

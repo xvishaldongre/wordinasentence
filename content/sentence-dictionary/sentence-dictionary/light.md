@@ -1,0 +1,107 @@
+---
+title: "light in a sentence | light example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "light"
+---
+- Come into the `light`.
+- Felt a little `light`.
+- I'll `light` the lamp.
+- It'll be `light` soon.
+- Leave the `light` off.
+- Go back to the `light`.
+- In the city of `light`.
+- In the city of `light`.
+- It's the inner `light`.
+- Let me get the `light`.
+- My `light` is blinking.
+- The `light` was fading.
+- This is a `light` beer.
+- We go at first `light`.
+- We're going in `light`.
+- You're `light` a deuce.
+- But i get a red `light`.
+- He's not making `light`.
+- He turns on the `light`.
+- `Light` smoke, low roll.
+- Switches on the `light`.
+- That was a red `light`!!
+- What flickering `light`?
+- Yes, i've got a `light`!
+- `Light` as a feather.
+- We `light` into this.
+- Just the city of `light`.
+- That `light`'s beautiful.
+- We all have `light` tans.
+- Ya still `light` seventy.
+- You can `light` the lamp.
+- You got a `light`, honey?
+- And we become the `light`.
+- Don't look at the `light`.
+- Don't turn on the `light`.
+- Go to the city of `light`.
+- Green `light`, roger that.
+- He shouldn't make `light`.
+- `Light` a match, will you?
+- `Light` boostback engines.
+- Oh, that's a good `light`.
+- Put 'em up to the `light`.
+- So you `light`, ain't you.
+- Sudden flashes of `light`.
+- The `light`'s fadin' fast.
+- To `light` up a continent.
+- Tron legacy `light`-cycle.
+- All red `light` long, baby.
+- The `light` goes out...
+- Can we turn the `light` on?
+- Don't `light` that in here.
+- Especially in this `light`.
+- Go to the `light`, bellamy.
+- It's false `light`, lestat.
+- Let me turn on the `light`.
+- Like a... dance of `light`.
+- Like turning off a `light`.
+- No ... more `light`, chief?
+- There's a `light` up ahead.
+- We hit every green `light`.
+- Where's the `light` switch?
+- You drop your dive `light`?
+- Auxiliary `light` cables...?
+- He's in the city of `light`.
+- I found the city of `light`.
+- I'm very `light` of my feet.
+- Leaving a `light` for plato.
+- Maybe i'm a `light` sleeper.
+- Shall i `light` the candles?
+- ...somewhere in the `light`.
+- That seems a little `light`.
+- The city of `light` is real.
+- The city of `light` is real.
+- We will `light` the candles.
+- You're `light` as a feather.
+- A great `light` has gone out.
+- Hard to read in this `light`.
+- It'll take us to the `light`.
+- Ok. red `light`, green `light`.
+- Out back we'd `light` 'em up.
+- Scotch, `light` on the water.
+- Then `light` the match, paul.
+- There's no indicator `light`.
+- They attack at first `light`.
+- This isn't random or `light`.
+- But it's `light` in there now.
+- Distance: three `light` years.
+- House numbers that `light` up.
+- I am the `light` of this city.
+- `Light` up with hildy johnson!
+- Little `light` reading matter.
+- Oh, sh... give me the `light`.
+- She is the `light` of my life.
+- Stay under the safety `light`.
+- There's no `light` back there.
+- They're afraid of our `light`.
+- To `light` every room on fire.
+- We lose `light` in 40 minutes.
+- We need `light` in here, stat.
+- Wish this thing had a `light`.
+                 

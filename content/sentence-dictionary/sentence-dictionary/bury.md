@@ -1,0 +1,73 @@
+---
+title: "bury in a sentence | bury example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bury"
+---
+- That's easy to `bury`.
+- Yeah, let's `bury` her.
+- We'll have to `bury` him.
+- Will you `bury` geoffrey?
+- But...we `bury` the heads.
+- They `bury` you with help.
+- We'll `bury` her tomorrow.
+- I'll `bury` him with honor.
+- You're gonna `bury` us both.
+- `Bury` her out in the desert.
+- `Bury` him all over the place.
+- You don't `bury` the survivors.
+- After we id, we `bury` the body.
+- I would `bury` it in the garden.
+- We'll `bury` him in the morning.
+- We're going to `bury` the heads.
+- You're going to `bury` my movie.
+- We can't `bury` them in suticases.
+- Where do you `bury` the survivors?
+- `Bury` your feelings deep down, luke.
+- Who the fuck are you to `bury` this?!
+- "`bury` him" or... keep smokin', fool.
+- I don't understand, but i'll `bury` you.
+- If they actually bothered to `bury` her.
+- I was hoping you'd be here to `bury` me.
+- I brought you here to `bury` ellen's cat.
+- Maybe we ought to...you know, `bury` him.
+- They'd completely `bury` us in paperwork.
+- You going to `bury` him in the pet sematary?
+- You've got to `bury` your love but now what?
+- Why would they `bury` somebody in the ceiling?
+- When this is over we should `bury` the hatchet.
+- Get in there now or i'll `bury` you in this river.
+- I mean, eventually... you have to `bury` your own.
+- In my heartache, i let them `bury` her with it.
+- He asked if we would `bury` him when his time comes.
+- What're you gonna do, put me in a bag and `bury` me?
+- But how much cash could i `bury` in my closet, right?
+- We can't just `bury` it like some common mammal, okay?
+- How could they `bury` an entire plymouth station wagon?
+- You and moore move the bodies and `bury` boyd with them.
+- I didn't come this far to `bury` a guy that's not my dad.
+- Nature's going to `bury` you like she buries everyone else.
+- He puts his hands on me again i'll `bury` a slug in his ear.
+- So help me god you touch that phone and i `bury` you with them.
+- When the king returns he will `bury` them in those new clothes.
+- You must find the remains...and `bury` them in hallowed ground.
+- Pardon me� we were just going to `bury` him when you came along.
+- I... we have to `bury` leon tommorrow... you wouldn�t understand.
+- Alive or dead is the same, as long as they `bury` you deep enough.
+- If i `bury` zowie there, and it works... ...he'll come back alive.
+- You're not going to take it to a bank or what, you want to `bury` it?
+- Even the coppers aren't afraid to `bury` people out in the desert here.
+- The unsub is able to abduct, kill, transport and `bury` without detection.
+- If so -- well, we'll just have to cut his head off and `bury` him somewhere.
+- Try to get a second radiator, we'll `bury` it between here and the pottery hill.
+- I want you to write me a letter to my brother for a hundred dollars to `bury` me.
+- I write about things like this, stuff it all in books and `bury` it in libraries.
+- They `bury` the dead so quickly - they should leave them lying around for months.
+- The lord says we can `bury` 'em out back in the orchard, nobody'll ever find them.
+- The board didn't know you're a mole who burrowed inside so you could `bury` us all.
+- This is a federal offense, i got kidnapping, armed robbery, they're gonna `bury` me!
+- There's a place out in the woods... if you `bury` something there, it comes back alive.
+- Well, you can all `bury` your heads in the sandwiches, would you like some onion rings?
+- But you just can't `bury` your head in the sand like some ostrich, goddammit, elizabeth!
+- So the minister says nice things, and then, what, we all troop outside and they `bury` him?
+                 

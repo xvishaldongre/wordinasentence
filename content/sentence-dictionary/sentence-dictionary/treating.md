@@ -1,0 +1,65 @@
+---
+title: "treating in a sentence | treating example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "treating"
+---
+- Not `treating` new ones.
+- How's life `treating` you?
+- Market `treating` you good?
+- How are they `treating` you?
+- In sanctum `treating` emori.
+- They `treating` you alright?
+- Are they `treating` you okay?
+- New york `treating` you okay?
+- So how's work `treating` you?
+- Stop `treating` me like that.
+- How's the wife `treating` you?
+- They `treating` you all right?
+- So how's school `treating` you?
+- How's the summer `treating` you?
+- Stop `treating` me like a child.
+- Are they `treating` you all right?
+- So how's tombstone `treating` you?
+- You want to go trick-or-`treating`?
+- Look, stop `treating` me like a child.
+- We're going to go trick-or-`treating`.
+- Ha ha, <u>you</u> have been `treating`.
+- Not one who's `treating` me, of course.
+- I'm going trick-or-`treating` with will.
+- There were `treating` me like a headcase.
+- How do you end up `treating` me like this?
+- Those kids are still trick-or- `treating`.
+- Why're we `treating` yours like a funeral?
+- Then stop `treating` me like a fucking prop.
+- What are you `treating` him for, exactly?
+- It's just, why is she `treating` me this way?
+- What is your policy for `treating` addiction?
+- They `treating` you right over at the bodwins?
+- When are you going to stop `treating` me like one!
+- I wanna go trick-or-`treating` like the other kids.
+- Stop `treating` this like i'm going away with a man.
+- I have of course observed the girl in `treating` her.
+- I mean, i can't even go trick-or-`treating` by myself.
+- About the appalling way he's `treating` you, all of us.
+- I am sure he will find we are `treating` you very well.
+- But i thought you didn't want to go trick-or-`treating`.
+- How are the hometown folks `treating` you, back in xenia?
+- He's not `treating` her right... that's what i don't know.
+- New wrinkle on an old theory for `treating` schizophrenia.
+- But everybody's `treating` him like this -- valuable object.
+- Homer... - i went trick-or-`treating` now how about my reunion?
+- You've been `treating` me like shit ever since i came out here.
+- I know you wouldn't need leon if heidi was `treating` you right.
+- But i couldn't help it it's too late to go trick-or-`treating` now.
+- I have to get out of taking my stupid brother trick-or- `treating`.
+- Didn't realize it was such an honor to go trick-or-`treating` with you.
+- Just kids playing pranks, trick or `treating`, partying, getting high...
+- I believe in `treating` the convicts with respect, if that's what you mean.
+- Maxwell in the other room, i have a crazy woman that i have been `treating`.
+- I'm `treating` the situation with kid gloves because i'm afraid of losing her.
+- So you probably don't have any friends to take you trick-or-`treating`, - now!
+- Not by `treating` symptoms, but by diving nature's most jealously-guarded secrets.
+- When i finally agree to spread my legs, you accuse me of `treating` you like meat.
+- How do you think this makes me look, `treating` her like some tragic victim or something?
+                 

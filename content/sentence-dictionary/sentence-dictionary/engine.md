@@ -1,0 +1,63 @@
+---
+title: "engine in a sentence | engine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "engine"
+---
+- They got the `engine`.
+- Turn off the `engine`.
+- [`engine` stops] please.
+- All stop on the `engine`.
+- Here... cut the `engine`.
+- The `engine`'s still warm.
+- Something with an `engine`?
+- Unauthorized `engine` start.
+- `Engine` room, what happened?
+- Stinks like a diesel `engine`.
+- The `engine` is still running.
+- [`engine` starts] take us home.
+- It's not me, it's the `engine`!
+- It means the `engine`'s on fire.
+- <u>the</u> <u>`engine` room</u>.
+- [`engine` cranking] no, no, no, no!
+- [`engine` starts] that sounds right.
+- Gale, your `engine`'s still running.
+- Four passenger, single `engine` cessna.
+- It attacks when you start the `engine`.
+- Yet you started the `engine` right up.
+- Home of the loveless steam `engine` works.
+- Just an `engine` and truck first on scene.
+- Rita, if you start that `engine`, you die.
+- Well, shall we start with the `engine` room?
+- Can i go to my room and get my fire-`engine`?
+- He said it brought him closer to the `engine`.
+- `Engine` room reports auxiliary power restored.
+- No airline will claim ownership of the `engine`.
+- To blow the starboard `engine` as a distraction.
+- [door opens] you think they have `engine` troubles?
+- Inventor of the pemberton condensed steam `engine`.
+- You selected me based on my search `engine` inputs.
+- A jet `engine` fell on my house... landed on my bed.
+- He turns over the propeller, the `engine` cranks up.
+- Not unless you can wire a missle or fix an `engine`.
+- Hey, if a search `engine`'s good for anything, right?
+- Somebody's gonna have to go back to the `engine` room.
+- You say he can fix a small `engine` like nobody's bidness.
+- So what do you got, a fuckin' hyundai `engine` under there?
+- With the `engine` damage, if you betray us, i will kill you.
+- With that armored steam `engine` of his it'll be a slaughter.
+- This is the finest `engine` room in the whole star -- oh do you?
+- As soon as the `engine`'s fixed -- this ship is full of cat hair.
+- This could be a great opportunity to move... beyond a fire `engine`.
+- `Engine` room... scotty, do we have enough power for the transporters?
+- In flight school you qualified in single and in multi-`engine` planes.
+- Go outside, get your car, and meet me out front with the `engine` running.
+- I want him to leave the `engine` running and walk to the end of the street.
+- They you're talking about a dreadful new `engine` of destruction, mr. spock.
+- It's the `engine`, reactors, audiometers, it's the stuff that makes the ship go zoom.
+- I've got secondaries of an `engine` fire and i'll need to find a clear area to eject.
+- I have a schedule... we can't...we got one `engine` dead, and the other limping badly.
+- Jackson found genetic marker anomalies you just hum along like a finely tuned `engine`.
+- Well, i flew single-`engine` fighters in the air force, but this plane has four engines.
+- I think he was running a test on an old rocket `engine`... and one of the fuel cells burst.
+                 

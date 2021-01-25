@@ -1,0 +1,53 @@
+---
+title: "patience in a sentence | patience example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "patience"
+---
+- `Patience`, my friend.
+- `Patience` is a virtue.
+- He will learn `patience`.
+- My `patience` is at an end.
+- `Patience`, colonel arnold.
+- You're trying my `patience`.
+- `Patience` my love, `patience`.
+- So `patience`, thibeau, `patience`.
+- But don't try my `patience` again.
+- Have a little `patience` with her.
+- I don't have the `patience` for it.
+- I hope you have `patience` with me.
+- Yo, you gotta show some `patience`.
+- Rose, my `patience` is wearing thin.
+- You must learn `patience`, commander.
+- You should learn a little `patience`.
+- But you must have `patience` with me...
+- I love you but i'm all out of `patience`.
+- Have `patience` - you'll see for yourself.
+- Now, just have a little `patience`, my boy.
+- With a little more `patience` and kindness.
+- But his `patience` won't hold out much longer.
+- I've shown more `patience` than a dozen saints!
+- The shepherd's `patience` should be our example.
+- Nor `patience` to suffer your primitive tribalism.
+- With work and `patience`, you'll be a fine actress.
+- I expect you to show as much `patience` as i am now.
+- You're trying my `patience`, nice to meet you, yeah.
+- Arbogast said... `patience` doesn't run in our family.
+- Because if you are, i'm going to run out of `patience`.
+- We must use `patience` and understanding with this man.
+- Waiting for someone with the `patience` to decipher them.
+- It taught you, among other things, the value of `patience`.
+- I took unfair advantage of your `patience` and understanding.
+- My `patience` is growing shorter than rachel maddow's crew cut.
+- You have complimented me with your persistence and `patience`...
+- Don't got `patience` to suffer you children and this monkey junk.
+- Thank you for your `patience`, maybe they were telling the truth.
+- That sonofabitch tests my quaker `patience` to the breaking point.
+- My `patience` is worn to threads and your mom will be here any minute.
+- Anyone with a computer and enough `patience` can find anything he wants.
+- Gentlemen--i--i have no more `patience` with this--this *rascally* character.
+- I'm not a guy who is known for his `patience` and right now you're testing mine.
+- But now through `patience`, invention and skill, my black box is just about ready.
+- I come to you as a last resort -- and i confess that my `patience` is wearing thin.
+- She's gonna lose `patience`, and when she does, then drive through a cornfield for kicks.
+                 

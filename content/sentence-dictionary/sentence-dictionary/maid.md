@@ -1,0 +1,52 @@
+---
+title: "maid in a sentence | maid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "maid"
+---
+- That `maid` just quit.
+- Don't you have a `maid`?
+- Maybe the `maid` did it.
+- Why was the `maid` crying?
+- `Maid` or not, it fits you.
+- My `maid` was a homosexual.
+- We have no cook, no `maid`.
+- My `maid` ramona's daughter.
+- That's an old `maid`'s tale.
+- What's the `maid`'s address?
+- The `maid` packed a suitcase.
+- There a `maid` in this hotel?
+- You've got sand, for a `maid`.
+- We don't have a `maid` any more.
+- To keep from being an old `maid`.
+- A `maid` comes in -- a french `maid`.
+- The `maid`'ll fix it in the morning.
+- You know, you treat mom like a `maid`.
+- Dost thou love, thou charming `maid`?
+- I'm a `maid` in the governor's household.
+- They're gonna rape the `maid`, aren't they.
+- Neither, fair `maid`, if either thee dislike.
+- When i was young, my `maid` was a homosexual.
+- I'll get the `maid` to write the essays you bet.
+- They're trying to open the safe, not your `maid`.
+- No, one of us is always here to let the `maid` in.
+- How does a `maid` come to own a trinket such as that?
+- Mrs. crawford, you were mr. marsh's `maid` for nine years?
+- But you and i both know she's just a dried-up bitter old `maid`.
+- A `maid` must beware of flattery... methinks you want to kiss me.
+- I'm gonna be `maid` marian, and you're the sheriff of nottingham!
+- Anyway, he carried me into the `maid`'s dayroom which nobody used.
+- I hid outside in the hall till the `maid` came to turn down your bed.
+- If you be a virtuous `maid` the unicorn will lay his head in your lap.
+- Come to think of it, i also told you you could sleep in the `maid`'s room.
+- By my count, i was your mother much upon these years, you are now a `maid`.
+- Reverend dyer, this is kimberly's somewhat butch `maid` of honor... come on.
+- She's just a poor sour-faced old `maid` that -- she ain't got no heart left.
+- Her `maid` said she left two days ago, to meet me -- i can imagine where she is.
+- I swear to g-d, i married this big time drug dealer and wound up with the `maid`.
+- Now, i'll be the innocent little milk `maid` and you'll be the naughty stable boy.
+- I was in her `maid`'s room at an inn we stopped at for the night, outside of dijon.
+- You are still a `maid` and perhaps as mistook in me as i was mistook in thomas kent.
+- Hopefully, though she suspects that your decrepit alcoholic father is diddling the `maid`.
+- Suddenly the wife's scheming little `maid` comes in unexpectedly - a very funny situation.
+                 

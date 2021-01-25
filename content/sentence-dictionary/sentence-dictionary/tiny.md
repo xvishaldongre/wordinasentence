@@ -1,0 +1,76 @@
+---
+title: "tiny in a sentence | tiny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tiny"
+---
+- You know, `tiny` like.
+- Drop a `tiny` log on me.
+- Hi weird and `tiny` huh?
+- You've got `tiny` lungs.
+- `Tiny` napkins of course.
+- Spoons, `tiny` spoons.
+- Those `tiny` suits ...
+- I have a `tiny` apartment.
+- He was `tiny` two days ago.
+- Look at the `tiny` figures.
+- Only a `tiny` bit sadistic.
+- When she was a `tiny` girl?
+- It's very `tiny`, but it's good.
+- The `tiny` hairs on your arm.
+- Can't `tiny` drive us to a phone?
+- He's only `tiny`, throw him back.
+- How do they make 'em that `tiny`?
+- And the tape, it's... it's `tiny`.
+- "lifeforms `tiny` little lifeforms.
+- We're a `tiny` version of all that?
+- Put your `tiny` little mind at ease.
+- Do i look like i want a `tiny` pizza?
+- That was just one `tiny` piece of it.
+- ♪ with `tiny` mustard ♪ on the ground!
+- Would you like a `tiny` tape recorder?
+- Oh, surely one can have a `tiny` touch.
+- Inside is a `tiny` electrical detonator.
+- A `tiny` bauble to help me jog my memory .
+- It makes `tiny` little tears in our fabric.
+- There's a `tiny` door in that empty office.
+- A `tiny` cog in the great wheel of evolution.
+- There might be another `tiny` piece we missed.
+- Well, it is not my fault that thou art `tiny`.
+- The sword had pierced its `tiny` heart exactly.
+- You are - so quake with fear, you `tiny` fools.
+- For me, the `tiny` green plastic war never ended.
+- I went back and it was so `tiny`, the whole place.
+- And she squeezed your `tiny` bladder with her mind.
+- I don't want to lose, uh, `tiny` here in the 1950s.
+- As a gag, you're gonna drop a `tiny` log on my face?
+- Teeny `tiny` invisible whaddayou call 'em?..."germs"!
+- `Tiny` ain't got no car, he ain't even got a bicycle.
+- You'll have to forgive `tiny`, he can't hear so much.
+- Don't worry, i'm looking... just taking a `tiny` break.
+- I'm in this `tiny` sub on the bottom of the fucking ocean.
+- Just coax along flash over substance... just a `tiny` bit.
+- And i discovered that there's a little `tiny` door in here.
+- There's only one `tiny` window of time when this will work.
+- `Tiny` was sleeping in the basement where the fire started.
+- Just feels, a little, like a `tiny` bit of argo city... what?
+- But the `tiny` beads of sweat on your upper lip give you away.
+- Every time you breathe, you kill millions of `tiny` organisms.
+- He had one <u>`tiny`</u>, uncharacteristic moment of weakness.
+- I have a surprise for our `tiny` invaders... raise that hatch!
+- I want to have a sweet `tiny` baby inside my belly... from you.
+- If my plan works, gentlemen, i'll just take a `tiny` commission .
+- It's quiet except for the song of these `tiny` sparrowlike birds.
+- They had me staying in this `tiny`-ass town with like fifty people.
+- I also have `tiny` pizzas and mushrooms stuffed with-- no thank you.
+- Me and `tiny`, we had them cornered - but we lost 'em in the shuffle.
+- 'cause if we blow the grid, i don't wanna lose `tiny` here in the 1950's.
+- Did your doctor say anything about a `tiny`, undetectable hole in your aorta?
+- All these `tiny` boxes, little cans filled with eight syllable god knows what.
+- Just a `tiny` cut and he could still be alive today - isn't that right, ellen?
+- That luminous water -- it takes its gleam from millions of `tiny` dead bodies.
+- Slip it through my `tiny` hole... don't start -- i'm hungry for a proper visit.
+- Just a little `tiny` taste, that stuff makes pure mescaline seem like ginger-beer.
+- We're just little `tiny` soldiers getting moved around on some big asshole's desk.
+- I thought i felt a certain attraction between mary and `tiny` soon as he walked in.
+                 

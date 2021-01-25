@@ -1,0 +1,107 @@
+---
+title: "ten in a sentence | ten example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ten"
+---
+- Call me back in `ten`.
+- I said `ten` thousand.
+- I thought `ten` years.
+- It's `ten` after nine.
+- I was `ten` years old.
+- Like, `ten` years ago.
+- More than `ten` years.
+- N'about `ten` minutes.
+- Nine... `ten` minutes.
+- Now, lis- `ten` to me.
+- One `ten` penny piece.
+- Roughly `ten` minutes.
+- `Ten` miligrams a day.
+- `Ten` million dollars.
+- `Ten` seconds, people.
+- Uh, `ten` uh... muddy!
+- You got `ten` minutes.
+- You won `ten` dollars.
+- About `ten` kilometers.
+- I'll be there in `ten`.
+- In `ten` words or less?
+- It's only `ten`-thirty.
+- Next game, `ten` bucks.
+- Passing `ten` thousand!
+- See you in `ten` years.
+- `Ten` bucks she wanted.
+- `Ten` is standard, sir.
+- `Ten` more steps, mate.
+- `Ten` or fifteen times?
+- `Ten` thousand dollars.
+- [the ransom was `ten`.]
+- Why take `ten` percent?
+- You got `ten` thousand.
+- You have `ten` seconds.
+- Apone: squad, `ten`-hut!
+- Dinner in `ten` minutes.
+- ...for `ten` years, now.
+- It's only `ten` days ...
+- It's only `ten` o'clock.
+- It�s `ten` thirty, jack.
+- Let me have `ten` bucks?
+- Of five to `ten` years.
+- Between `ten` and twelve.
+- I'm only `ten` years old.
+- Maybe ... `ten`-thousand.
+- Nine-thirty, `ten` maybe.
+- Oh, about `ten` days ago.
+- Okay, `ten` more seconds.
+- `Ten` dollars... a month.
+- That was at `ten`-thirty.
+- The usual `ten` per cent?
+- You were `ten` years old.
+- Could be `ten` or fifteen.
+- God gave you `ten` thumbs.
+- I gotta have more'n `ten`.
+- I have `ten` minutes left.
+- It's almost `ten` o'clock.
+- It's a quarter past `ten`.
+- John, john, `ten` percent.
+- Just below `ten` thousand.
+- Like, for instance, `ten`.
+- "`ten` miles to big rock."
+- `Ten` thousand right here.
+- That `ten` grand of yours.
+- You wanted `ten` thousand?
+- Everything's `ten` dollars.
+- Get me `ten` bags of mulch.
+- I got `ten` marks for that.
+- I'll write you `ten` poems.
+- I only want `ten` thousand.
+- Managers get `ten` percent.
+- `Ten`, fifteen minutes ago.
+- `Ten` seconds, full charge.
+- `Ten` thousand sounds high.
+- `Ten` years is a long time.
+- They outnumber us by `ten`!
+- Two hundred `ten` thousand.
+- Two minutes, `ten` seconds.
+- What `ten` thousand pounds?
+- You mean all `ten` plagues.
+- I figger `ten` at the least.
+- I got `ten` million of them.
+- I'll give you `ten` seconds.
+- It's not the `ten` per cent.
+- It's `ten` thousand dollars.
+- `Ten` mi -- you cheapskates!
+- `Ten` throws -- mr. webster?
+- `Ten` to one shot, you said.
+- There's `ten` grand in here.
+- Traumas of a `ten`-year old.
+- What's another `ten` pounds?
+- You were gone `ten` seconds.
+- He's `ten` years old, bernie!
+- I can come `ten` times a day.
+- I want `ten` million and one.
+- Oh... - i'm guessing a `ten`.
+- Still got that `ten` dollars?
+- `Ten` glorious days of peace.
+- The best part of `ten` years.
+- Thirty one's and two `ten`'s?
+                 

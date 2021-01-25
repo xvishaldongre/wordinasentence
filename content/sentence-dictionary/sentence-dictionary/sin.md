@@ -1,0 +1,65 @@
+---
+title: "sin in a sentence | sin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sin"
+---
+- Give me my `sin` again.
+- It's a `sin` to be fat.
+- Give me my `sin` again."
+- Instead of "`sin` city."
+- Then it was not a `sin`.
+- Go thou and `sin` no more.
+- I have committed no `sin`.
+- That's a pretty big `sin`.
+- What's all this about `sin`?
+- Is that my `sin` in your eyes?
+- Wallowing in `sin` and lust...
+- It's a different kind of `sin`.
+- Some of you think it's a `sin`.
+- Which is a `sin` against heaven!
+- You know she thinks it's a `sin`.
+- Father, my `sin` is a terrible `sin`.
+- In the sight of god that is a `sin`.
+- There's no `sin` in charity, jeanne.
+- O deadly `sin`, o rude unthankfulness!
+- You have committed the `sin` of pride.
+- The `sin`, the glitter, the wickedness?
+- They don't see `sin` in their nakedness.
+- God pardon `sin`, was thou with rosaline!?
+- Great charlie, any better it'd be a `sin`.
+- Divorce is a very serious `sin`, apparently.
+- What hideous `sin` have you committed lately?
+- "let the `sin` begins" -- that was a good one.
+- Then have my lips the `sin` that they have took.
+- Thus from my lips, by yours, my `sin` is purged.
+- ♪ and what is `sin` ♪ you've made me a new woman.
+- "then have my lips the `sin` that they have took."
+- "thus from my lips, by thine, my `sin` is purg'd."
+- ...that filth is better left in the "`sin` cities."
+- Oh, i'm sure i can manage something... "`sin` city."
+- The books and sermons are about atonement for `sin`.
+- He says a woman in trousers is a `sin` against nature.
+- I don't believe in `sin`, though there is good and evil.
+- It's a `sin` against god for me to refuse your kindness.
+- So maybe there ain't no `sin` an' there ain't no virtue.
+- Or we're living in `sin` and... a good reason, i suppose.
+- That's the ultimate `sin` for most of you fools, isn't it?
+- I don't see any kind of pleasure that would make this a `sin`.
+- You can grovel and crawl for `sin`, but not to save your soul.
+- A `sin` against <i>what?</i> he can't abide a woman in trousers.
+- It's supposed to be some big `sin`, even if you love each other.
+- They believe if you are not hard at work, you are hard at `sin`.
+- Josie, we have a chance to erase this `sin`, there are no others.
+- Great carolyn, doing any better would be a `sin`... how you doing buddy?
+- Why that didn't make you the biggest movie star in the world is a `sin`.
+- I won't deny my own personal desire to turn each `sin` against the sinner.
+- One philosopher said "sadness is a `sin` against the richness of the world."
+- For every `sin` you have placed on my head i could give you a hundred others.
+- I'm a catholic, you know, and even to think about suicide is a terrible `sin`.
+- Well if one of them is this "`sin` city" thing -- what do you mean, four more?
+- Well i was lyin' - and i'm proud to say that that `sin`'s been warshed away too!
+- Now, by the stock and honour of my kin, to strike him dead, i hold it not a `sin`.
+- You see a deadly `sin` on almost every street corner, and in every home, literally.
+- Your job is preventing `sin`, and the way to do that is give him your best cross action.
+                 

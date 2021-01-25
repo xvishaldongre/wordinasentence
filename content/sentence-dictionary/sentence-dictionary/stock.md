@@ -1,0 +1,82 @@
+---
+title: "stock in a sentence | stock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stock"
+---
+- The `stock` will turn.
+- How's the `stock` market?
+- We have those in `stock`.
+- You sold all of our `stock`?
+- The `stock` is cheap, archer!
+- The `stock`'s going to pluto!
+- So you're hot on this `stock`?
+- I'm a `stock`-holder, you know.
+- It was a veal `stock`, i thi...
+- Our `stock` coupons will spike.
+- These are `stock` certificates.
+- Stay away from the `stock` market.
+- I signed-up for the `stock` option.
+- Suppose the `stock` market crashes?
+- We carry stuff that big in `stock`.
+- That's why i love `stock`-car racin'.
+- We'll have to re-`stock` some basics.
+- I've just wiped out the `stock` market.
+- Twelve programmes, lots of `stock` film.
+- Have a hot shower, `stock` up on supplies.
+- Fred, i worked summer `stock` with hopkins.
+- What would it take to buy our `stock` back?
+- He says your summer `stock` deal is all set.
+- We could start a two-person `stock` company.
+- It's not illegal to buy `stock` or to be right.
+- Mr. kross, i'm not here to sell you my `stock`.
+- Right before which kind of film `stock` we used.
+- They're from good `stock` on their mother's side.
+- He's the one that's made every ingenue in `stock`!
+- Did you see what the first bank `stock` opened at ?
+- I also own some american telephone and ibm `stock`.
+- I want him to commit his `stock` to us this morning.
+- Seeing how my `stock`'s doing... what are you doing?
+- That dress should be listed on the `stock` exchange.
+- The reason has nothing to do with summer `stock`.
+- No, he lost the house after the `stock` market crash.
+- I came about the low light level infrared film `stock`.
+- I'll bet he's got an opinion on the `stock` market too.
+- No mortgage, no debts; lock, `stock`, the sodding lot .
+- They're depressing the `stock` so they can buy it cheap!
+- You `stock` these things for what, to fend off russia?
+- Give us an option on your `stock` and resign as president.
+- I'm supposed to be getting the `stock` tips from you, ben.
+- Next time i'll have film `stock` that doesn't need lights.
+- Your `stock`'s never sold above thirty-one dollars a share.
+- These are `stock` "certificates" that we bought in your name.
+- Either i buy from the other `stock` holders, or i buy from you.
+- We have to match the `stock` footage of the octopus underwater.
+- But it's the closest thing they `stock` to my side of the fence.
+- Mr. kross is just getting off the phone with his `stock` broker.
+- I told you, he's one of dino velvet's `stock` players... who is he?
+- I want you to put every cent you've got into our `stock`, you hear?
+- If it works, your `stock` at the pentagon will go up along with mine.
+- I own some `stock` in some of the hotels, but only very small amounts.
+- Today they just happen to get good news and the `stock` goes bat shit.
+- Biocyte `stock` is just a week or two away from going through the roof.
+- If reed's right, then this little trip will double our `stock` offering.
+- "space alien revealed as head of time warner; reports `stock` increase."
+- Like any normal healthy boy, bart has been the focus mmm, old card `stock`.
+- You know it is against the city ordinance to keep chickens or live `stock`.
+- Mr. harris, we know you've purchased at least twenty percent of our `stock`.
+- Cash, `stock` certificates, and this... do you want to tell me what you found?
+- I know they're gonna buy that `stock` -- ol' satchel-butt... on norville barnes!
+- First rule of business is never get emotional about `stock`, clouds the judgment.
+- I know a guy in universal's `stock` house -- he's giving me the footage for free.
+- We can forget horse racing, roulette, the `stock` market... our worries are over!
+- We have no way of finding other `stock` but i have money for you from the guests.
+- Hey to bluestar, as your broker all i can advise is hold on to that `stock` dad...
+- Now, by the `stock` and honour of my kin, to strike him dead, i hold it not a sin.
+- Tell him you did your homework and you thought the `stock` was a sound investment.
+- Stella -- in economics, a kidney ailment has no relationship to the `stock` market.
+- This boy tapped into that main link between tokyo and the new york `stock` exchange.
+- So it does business through a brain dead marine and runs the `stock` market for funding.
+- Well, i -- go on, tell the truth; i trust you and i put a lot of `stock` in your opinion.
+- He didn�t think my life was worth the chump change he spent on a day at the `stock` market.
+                 

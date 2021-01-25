@@ -1,0 +1,107 @@
+---
+title: "condition in a sentence | condition example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "condition"
+---
+- The human `condition`.
+- `Condition` lever, low.
+- In perfect `condition`.
+- I have this `condition`.
+- Not in your `condition`.
+- What is our `condition`?
+- His physical `condition`.
+- In excellent `condition`.
+- It's in good `condition`.
+- I've got one `condition`.
+- You're in no `condition`.
+- You're in no `condition`.
+- On one `condition`-- deal.
+- Spock: `condition` report!
+- The second `condition`?
+- [he has a heart `condition`.
+- I've got a skin `condition`.
+- Congenital heart `condition`.
+- Second `condition` -- my fee.
+- See, i have this `condition`.
+- Your `condition` can be treated.
+- Hard to find in good `condition`.
+- His pleura's in fine `condition`.
+- I want it in perfect `condition`.
+- In town, in excellent `condition`.
+- Not as a `condition` -- a request.
+- A window onto the human `condition`?
+- But her `condition` was progressive.
+- On one `condition`... maybe i did...
+- See, you have this `condition`... 21.
+- These chairs are in good `condition`.
+- Your father's `condition` is serious.
+- What is the `condition` of the bridge?
+- Your interpretation of his `condition`.
+- I can't stay here in my `condition`.
+- But alfred's `condition` is less severe.
+- I'm putting the base on `condition` red.
+- Well, your `condition`'s pretty serious.
+- Guess i've told you about my `condition`.
+- It was a `condition` of getting doug out.
+- She's still alive, in stable `condition`.
+- Her `condition` isn't quite what it seems.
+- His retirement a `condition` of the bonus.
+- I'm a garbageman of the human `condition`.
+- It depends on the `condition` of the ship.
+- Well, she was in a weakened `condition`...
+- We're in no `condition` to mount a rescue.
+- I guess i've told you about my `condition`.
+- Should you be drinking in your `condition`?
+- He's just there to help `condition` the man.
+- I ain't interested in his mental `condition`.
+- I'll let you know if her `condition` changes.
+- Her dad's genetic `condition` finally got her.
+- I don't think i'm in any `condition` to drive.
+- Possible atmospheric `condition`, sir...solar.
+- We're rapidly approaching a '`condition` red.'
+- What kind of `condition` are you referring to?
+- I know about your fucking `condition`, leonard!
+- I took it once for a low thyroid `condition`...
+- You should be proud to be the same `condition`.
+- Were you aware of mr. marsh's heart `condition`?
+- Did pavlov `condition` his dogs to lick his nuts?
+- I don't know the `condition` of the compartments.
+- I feel certain my `condition` runs in the family.
+- If you didn't discuss my `condition` with marcus.
+- I have this `condition` - you don't know, do you?
+- I told my boss about you, about your `condition`.
+- I am aware of what a `condition` red alert implies.
+- I can't take you out of here in your `condition`...
+- I don't need this--i know all about my `condition`.
+- An old car like this, it depends on the `condition`.
+- ...it's just a question of his physical `condition`.
+- You're not helping my heart `condition` any, barnes!
+- I am poleaxed and in a non compos mentis `condition`.
+- My mint `condition` copy of radioactive man number one!
+- You familiar with a `condition` known as absolute zero?
+- I have no choice, i... you're in no `condition` to ride.
+- My wife doesn't care, but i'm in a delicate `condition`.
+- Never mind the `condition` of your body and your spirit!
+- You'll die if you keep smoking those in your `condition`.
+- You see, i have this `condition` - you don't remember me.
+- Bill, find mr. weathers a position to suit his `condition`.
+- [drums] but not as insane as making... on one `condition`.
+- Buddy, nobody knows about your `condition`, or your drug use.
+- What was mr. marsh's physical `condition` prior to his death?
+- Can't we access the mainframe to check the ship's `condition`?
+- Cocaine is the last thing a man in his `condition` would want.
+- All right, jesse, we'll play it your way, under one `condition`.
+- A `condition` red means enemy attack in progress, doesn't it?
+- And, michael's `condition` is often worsened by periods of stress.
+- Maybe we'd better wait for more word on the president's `condition`.
+- Am leaving ship myself to overtake him, as fearful of his `condition`.
+- That's correct -- but andrew never told me he had a heart `condition`.
+- But i'll do it on one `condition` -- that you're there to give me away.
+- Even on earth technology has always aspired to a `condition` of nature.
+- Dr. mccurdy, what would cocaine do to someone in mr. marsh's `condition`?
+- That my `condition` will continue to deteriorate until the end of my life.
+- So you don't believe his `condition` is the result of anything supernatural?
+- Dr. trammel, did you ever speak to miss lawson about mr. marsh's `condition`?
+- I'll meet you on one `condition` - i get exclusivity and you surrender to me.
+                 

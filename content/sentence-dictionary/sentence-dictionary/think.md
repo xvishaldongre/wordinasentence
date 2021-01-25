@@ -1,0 +1,107 @@
+---
+title: "think in a sentence | think example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "think"
+---
+- Ayuh, i `think` 'twas.
+- But i `think` this is.
+- Colonel, just `think`.
+- Corn bread, i `think`.
+- Don't `think` i don't.
+- Don't `think` i won't.
+- Do you `think` i must?
+- Do you `think` she is?
+- Five years, i `think`.
+- Gee, i don't `think` .
+- I don't `think` he is.
+- I don't `think` i can.
+- I don't `think` i was.
+- ...i don't `think` so.
+- I don't... `think` so.
+- I don't wanna `think`.
+- I'll `think` about it.
+- I'm trying to `think`.
+- I need you to `think`.
+- I `think` he'll be ok.
+- I `think` he's cryin'!
+- I `think` he's scared.
+- I `think` he wants me.
+- I `think` i better go.
+- I `think` i bought it.
+- I `think` i got lased!
+- I `think` i just said.
+- I `think` i'm alright.
+- I `think` i'm too old.
+- I `think` i scared it!
+- I `think` it's a risk.
+- I `think` it's better.
+- I `think` it's fucked.
+- I `think` i <u>do</u>.
+- I `think` i've got it.
+- I `think` i�m ready...
+- I `think` she's lying.
+- I `think` so, for now.
+- I `think` someone did.
+- ...i `think` so...you?
+- I `think` that you do.
+- I `think` they got me.
+- I `think` two million.
+- I `think` we both can.
+- I `think` we can help.
+- I `think` we found it.
+- I `think` we just did.
+- I `think` we lost 'em.
+- I `think` you do, yes.
+- I `think` you're cute.
+- I wouldn't `think` so.
+- Just `think` about it!
+- Just `think` about it.
+- Kurtzweil, we `think`.
+- Low-level, we `think`.
+- More than you `think`.
+- Mr. gower, i `think` .
+- No, i don't `think`...
+- Now `think` back hard.
+- Oh i don't `think` so.
+- Oh, i `think` he will.
+- Sometimes i `think`...
+- So what'd you `think`?
+- So you `think` sidney.
+- Sterling, i `think`.
+- That's what i `think`!
+- That's what i `think`.
+- That what you `think`?
+- Then `think` about it.
+- They `think` i did it!
+- They `think` i'm nuts.
+- `Think` about a price.
+- `Think` about it, eve!
+- `Think` about it, rob.
+- `Think` nothin' of it.
+- `Think` of last night!
+- `Think` of your price.
+- `Think` what you like.
+- `Think` you can do it?
+- `Think` you can sleep?
+- Time to go, i `think`.
+- Too much, you `think`?
+- Two rounds, i `think`.
+- Um, yeah i `think` so.
+- We gotta `think` here.
+- Well `think` about it.
+- Whaddya `think` it is?
+- What would he `think`?
+- ...why do you `think`?
+- Yeah, i `think` he is.
+- Yeah, i `think` it is.
+- Yeah, i `think` -- no.
+- Yeah, i `think` we do.
+- Yes, i should `think`.
+- You really `think` so?
+- You `think` a pitbull?
+- You `think` he did it?
+- You `think` he hid it?
+- You `think` he saw us?
+- You `think` i'm crazy.
+                 

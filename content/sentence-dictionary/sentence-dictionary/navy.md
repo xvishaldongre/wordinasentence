@@ -1,0 +1,55 @@
+---
+title: "navy in a sentence | navy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "navy"
+---
+- With the royal `navy`.
+- But my father was `navy`.
+- No more `navy` blue suits.
+- My dad was a `navy` doctor.
+- Well, he was in the `navy`.
+- That's a job for the `navy`.
+- He's wearing a `navy` jacket.
+- Not when i was in the `navy`.
+- I did three hitches in the `navy`.
+- I've never read the `navy` manual.
+- My natural pigmentation is `navy`.
+- `Navy` seal turned terrorist chef.
+- Keep 'em down, wait for the `navy`.
+- Airborne ranger, maybe a `navy` seal.
+- They never used to send a `navy` car.
+- The `navy` cross... what "all females"?
+- I didn't know the `navy` was so hard up.
+- You're not getting any `navy` contracts.
+- What does that tell you about the `navy`?
+- There's a u.s. `navy` car outside, norman.
+- Is there anybody in the `navy` you don't know?
+- I left my mama and joined the `navy` to be a man.
+- Like the `navy` crewman -- harry was sleeping then.
+- `Navy` intelligence got something to do with it too.
+- Sure do... that's why we didn't bet with the `navy`.
+- Sir, someone mentioned you received the `navy` cross.
+- We're on the verge of closing a large `navy` contract.
+- She was something they called a `navy` seal, okay, mom.
+- Exactly -- you'll go up the nung river in a `navy` p.b.r.
+- Except for two years when he was in the `navy`, in korea.
+- The british `navy` abandoned that boat, and i'm claiming it.
+- In the `navy`, we used to call guys -- he's gonna be awright.
+- If i can do that to a `navy` seal, what's gonna happen to you?
+- She upped and married some other cat after i joined the `navy`.
+- Mav... ahhh...you know, at one point i did want a `navy` career.
+- Madam senator... this is an internal document of the u.s. `navy`.
+- Or like maybe he was baby sitting a problem child for the `navy`.
+- The `navy` will get us to within 400 miles of the japanese coast.
+- He's not just a `navy` captain -- he works for the fucking pentagon.
+- They called me for my physical so i figured the `navy` had better food.
+- The `navy` has been running blockades since the days of john paul jones.
+- I think you didn't get that lot in the `navy`, doing your national service.
+- Pinned down, a mile east of here, waiting for some help from the `navy` guns.
+- The `navy`'s conclusion regarding the crash of an f-14 aboard an aircraft carrier.
+- If you're among the best in the `navy`, i tremble for the security of this country.
+- See, after you're done with the royal `navy`, you'll have a bit of a problem: the h.m.s.
+- After the attack, a `navy` guy woke me up -- i don't know -- i thought he was an illusion.
+- He said you were a `navy` seal and a decorated hero she gave me an hour to get you all out.
+                 

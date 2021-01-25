@@ -1,0 +1,107 @@
+---
+title: "really in a sentence | really example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "really"
+---
+- He ain't `really` new.
+- He'll be `really` mad.
+- He `really` likes you.
+- He `really` loves you.
+- He `really` said that?
+- He was `really` upset.
+- I can't `really` tell.
+- I don't mind `really`.
+- I don't `really` know.
+- I feel `really` weird.
+- I mean `really` never.
+- I'm not `really` sure.
+- I'm... `really` sorry.
+- I `really` don't know.
+- I `really` enjoyed it.
+- I `really` have to go.
+- I `really` like annie.
+- I `really` needed him.
+- Is this `really` real?
+- It `really` goes fast.
+- It `really` is lovely.
+- It's `really` a house.
+- It's `really` fifties.
+- It's `really` pitiful.
+- Just so sad, `really`.
+- Like, `really` silent.
+- No one `really` knows.
+- Nothing `really` mean.
+- Not `really`... mnunn.
+- Not `really` my scene.
+- `Really`... bless her!
+- `Really` nice to hear.
+- `Really` put together.
+- `Really`, `really` good.
+- `Really` want to know?
+- She `really` did that?
+- She `really` loves me.
+- Still don't, `really`.
+- That's `really` funny.
+- That's `really` great!
+- That's `really` great.
+- That's `really` sweet.
+- They `really` mean it.
+- This is `really` dumb.
+- This is `really` good.
+- This is `really` nice.
+- We got `really` lucky.
+- You are `really` home.
+- You `really` think so?
+- You're `really` close.
+- You're `really` crazy.
+- He's `really` nice.
+- And that `really` hurt.
+- Awesome work, `really`.
+- But i didn't, `really`.
+- But it wasn't `really`.
+- Doesn't `really` count.
+- French toast, `really`?
+- Have `really` loved me?
+- I am `really` nineteen.
+- I don't mind, `really`.
+- I'd `really` like that.
+- I feel `really` stupid.
+- I'll be fine, `really`.
+- I mean, he `really` is.
+- I'm-i'm `really` sorry.
+- I'm just `really` busy.
+- I'm just `really` sick.
+- I'm `really` impressed.
+- I `really` despise you.
+- I `really` do, jeffrey.
+- I `really` do like you.
+- I `really` needed this.
+- It `really` isn't easy.
+- It `really` looks good.
+- It's not `really` pain.
+- It's not you, `really`.
+- It's `really` fan mail.
+- It's `really` more fun.
+- It's `really` terrible.
+- It's `really` that bad?
+- It's `really` valuable.
+- It's routine, `really`.
+- It was `really` clever.
+- Like you `really` care.
+- Mac's `really` unhappy.
+- No, he's `really` evil.
+- No, that's `really` it.
+- Oh, yeah, `really`, oh!
+- Rather simple `really`.
+- `Really`... all of you!
+- `Really` appreciate it.
+- `Really`, i feel weepy.
+- `Really`, i'm so sorry.
+- `Really`, just breathe.
+- `Really` made me laugh.
+- `Really`.... that's it?
+- Routine stuff `really`.
+- She `really` liked you.
+- That is `really` smart.
+                 

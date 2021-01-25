@@ -1,0 +1,53 @@
+---
+title: "powder in a sentence | powder example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "powder"
+---
+- `Powder` up, everyone.
+- Even the `powder` room.
+- Till it's in a `powder`.
+- I wanna `powder` my nose...
+- This place is a `powder` keg.
+- You smell like baby `powder`.
+- I told you, use less `powder`.
+- I'm going to the `powder` room.
+- We've got `powder` but no ball!
+- If not for all the crew `powder`.
+- I'm going to go `powder` my nose.
+- What shade of `powder` do you use?
+- There's no more brain `powder`.
+- Just wanted to... `powder` my nose.
+- We've got plenty of baking `powder`.
+- Whooey -- he took a run-out `powder`.
+- An explosion in the `powder` magazine.
+- Baking `powder`, we need baking `powder`.
+- Their skin smells like talcum `powder`.
+- Why are you dressed like a `powder` puff?
+- We're gonna blow up the `powder` magazine.
+- With all that `powder` all over your nose?
+- Fuck you.... green dot -- shotgun `powder`.
+- I'm better with hydrazine and gun `powder`.
+- It's a white `powder` that comes in a vial.
+- No, they're just `powder` burns, thank god.
+- A bit heavy on the `powder`, isn't she, jimmy?
+- How do i know you ain't gonna take a `powder`.
+- There's a lot of money in that white `powder`.
+- What you do not smell is called iocane `powder`.
+- You'd swear there was real chicken `powder` in there.
+- Ruptured lungs, i can sell you brain `powder` in bulk.
+- There's enough `powder` around here to put us all away.
+- Help ourselves to a few horns from your `powder` stores.
+- This sucker is filled with 150 grains of black `powder`.
+- What other kind of white `powder` do people keep in a vial?
+- If we don't go, there is no `powder`, there's too many of them.
+- Up here in the hills, a man gets a hankering to smell `powder`.
+- Just keep your pecker up, your `powder` dry, the worm will turn.
+- She has been asked to leave the `powder` room but without success.
+- Then i put him to bed and pour talcum `powder` on him like a baby.
+- Blain... ... just like the others... no `powder` burns, no shrapnel.
+- I spent the last few years building up an immunity to iocane `powder`.
+- This much `powder` you don't throw in the trunk with a blanket over it.
+- But they'll mess with your minds, here's whose brain the `powder` is from.
+- The `powder` room down here is being re-tiled, but you can use the master bath upstairs.
+                 

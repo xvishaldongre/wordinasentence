@@ -1,0 +1,107 @@
+---
+title: "buddy in a sentence | buddy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "buddy"
+---
+- I'm so sorry, `buddy`.
+- Thanks a lot, `buddy`.
+- That's right, `buddy`.
+- Welcome back, `buddy`.
+- You're a real `buddy`.
+- All right, old `buddy`.
+- `Buddy`, you all right?
+- Cheer up `buddy` `buddy`.
+- Goodnight, old `buddy`.
+- Hang in there, `buddy`!
+- It's not fair, `buddy`.
+- It's too late, `buddy`.
+- Remember that, `buddy`?
+- Thanks to you, `buddy`.
+- They love you, `buddy`.
+- Two years ago, `buddy`.
+- You got nerve, `buddy`.
+- Are you with me `buddy`?
+- Awwww, `buddy` -- fired!
+- `Buddy`, i was horrible.
+- Don't leave me, `buddy`.
+- Gonna miss you, `buddy`.
+- Gonna miss you, `buddy`.
+- Hey, `buddy`... stop it!
+- I'm not scared, `buddy`.
+- Keep listening, `buddy`.
+- Mr. walker's my `buddy`.
+- That's just it, `buddy`.
+- Well, i -- say, `buddy`!
+- What about you, `buddy`?
+- And you're done, `buddy`.
+- Better come out, `buddy`.
+- Be your drinking `buddy`?
+- `Buddy`, it's your daddy!
+- `Buddy`, you're in space.
+- Hey, `buddy`... trust me.
+- I know you will, `buddy`.
+- Just hold on `buddy` boy.
+- Let's roll, good `buddy`.
+- Merry christmas, `buddy`.
+- That's okay, `buddy`-boy.
+- You're grounded, `buddy`.
+- Don't call me `buddy`!
+- `Buddy` boy, how ya doing?
+- Come on, `buddy`, wake up!
+- Cut the malarkey, `buddy`.
+- Easier than that, `buddy`.
+- Happy: i'm sorry, `buddy`.
+- I'm proud of you, `buddy`.
+- Listen, king, old `buddy`.
+- Say, where's your `buddy`?
+- So when did `buddy` leave?
+- Stay with it, `buddy`-boy!
+- Wasn't too tough, `buddy`.
+- What's your name, `buddy`?
+- `Buddy`, are we in trouble.
+- `Buddy`, that was business.
+- `Buddy`, that was my place.
+- Getting a complex, `buddy`?
+- I am not here, ol' `buddy`.
+- I don't need that, `buddy`.
+- I'm all ears, good `buddy`.
+- I mean... come on, `buddy`.
+- I'm their new best `buddy`.
+- Jus' take it slow, `buddy`.
+- No such thing, old `buddy`.
+- Tell me something, `buddy`.
+- What do you think, `buddy`?
+- Where are you, ol' `buddy`?
+- Your `buddy` is callin' ya.
+- `Buddy` was one of them.
+- `Buddy`'ll take care of him.
+- But you gotta know, `buddy`.
+- Hey `buddy`... let her go...
+- Hey, how's my `buddy` doin'?
+- Oh, `buddy`, you do love me!
+- What are you doing, `buddy`?
+- You need some work, `buddy`!
+- You're the asshole, `buddy`.
+- `Buddy` deeds was a murderer.
+- `Buddy` of mine worked there.
+- `Buddy`, you're just a child.
+- I gotta talk to you, `buddy`.
+- Look `buddy`, i'm a big star.
+- Looks bearish to me, `buddy`.
+- Now back up there, `buddy`...
+- Say, this is my `buddy` jack.
+- What's troubling ya, `buddy`?
+- You can't leave now, `buddy`.
+- `Buddy`, what's come over you?
+- But it's a lost love, `buddy`.
+- Come on, we both like `buddy`.
+- Do me a favor `buddy`, please.
+- Hey-a, `buddy`, what'll it be?
+- I was going to... hey `buddy`!
+- Now, move aside; good `buddy`.
+- Who said he's my good `buddy`?
+- Why, `buddy`, shut your mouth!
+- You are way off base, `buddy`!
+- You better sleep now, `buddy`.
+                 

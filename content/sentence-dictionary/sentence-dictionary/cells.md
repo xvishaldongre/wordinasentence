@@ -1,0 +1,51 @@
+---
+title: "cells in a sentence | cells example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cells"
+---
+- They're tossing `cells`!
+- They're tossing `cells`.
+- To get out of your `cells`.
+- But we'll need more `cells`.
+- I helped build these `cells`.
+- They seal off all the `cells`.
+- And disable the cars' fuel `cells`.
+- Get the prisoners to their `cells`.
+- Just get the holding `cells` ready.
+- Where's the collar, in the `cells`?
+- The museum's divided into five `cells`.
+- All the memory `cells` have been emptied.
+- ...need those `cells` from the crash ship.
+- No, no, no.... and what about the `cells`?
+- Those are nuclei of `cells`, lining a duct.
+- I rigged it to the solar `cells` in the roof.
+- The `cells` in our bodies are always changing.
+- <u>get the fucking `cells` over here</u>, johns.
+- You went into the `cells` and you changed them.
+- My power `cells` continually re- charge themselves.
+- In six or seven years all your `cells` have changed.
+- I've read they're using it to repair cancer `cells`.
+- There's plenty of `cells`, but they put us together.
+- Instruct the `cells` of the host to make more viruses!
+- It continuously regenerates the `cells` in our bodies.
+- She's the pilot, she should stay close to the `cells`.
+- Then a repressor protein that blocks the operating `cells`.
+- About how to kill us and still get these `cells` to the skiff.
+- If we get four `cells` back to the skiff, we're off this rock.
+- You give him the `cells` and the ship -- and he will leave you.
+- We'll have to carry the `cells`...drag them...whatever it takes.
+- The red blood `cells` are biconvex, which is theoretically impossible.
+- He spends half his day in the detention `cells` at the hall of justice.
+- So you're going to burn up your own `cells` no matter how much you eat.
+- There are a hundred billion `cells` inside of this miracle of evolution.
+- There wasn't enough oxygen in those red `cells` to pump life into a flea.
+- "without me, joe could not take in oxygen to feed his red blood `cells`."
+- 15 6-gigs here...90 gigs total...other ship carries 20-gig `cells`, so...five.
+- I'd heard tales about you from people i'd meet in jail `cells` and truckstops.
+- Couple of swedish sailor `cells` just gang divided a virginal cheerleader cell.
+- It's injected into the bone marrow `cells`, it causes the host's dna to mutate.
+- Until it's so dark we can't even find our way back to -- let's wait on the power `cells`.
+- I think he was running a test on an old rocket engine... and one of the fuel `cells` burst.
+- We'll guard the perimeter with my men and engage the motion detectors in the other `cells`.
+                 

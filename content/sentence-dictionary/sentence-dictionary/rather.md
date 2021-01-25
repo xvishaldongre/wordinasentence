@@ -1,0 +1,107 @@
+---
+title: "rather in a sentence | rather example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rather"
+---
+- I'd `rather` not play.
+- I `rather` thought so.
+- I'd `rather` die alone.
+- I'd `rather` sail them.
+- I would `rather` march.
+- Or `rather`, you don't.
+- `Rather` simple really.
+- I'd `rather` hear yours.
+- I'd `rather` piss glass.
+- I'd `rather` you didn't.
+- I'd really `rather` not.
+- It is `rather` alarming.
+- I'd `rather` be with you.
+- I'd `rather` kill myself.
+- Melvin, i'd `rather` not.
+- No, cuz, i `rather` weep.
+- `Rather` safe than sorry.
+- That's `rather` big talk!
+- Uh, i'd `rather` not say.
+- Would you `rather` leave?
+- I'd `rather` have a knife.
+- I'd `rather` not be alone.
+- I `rather` like it myself.
+- I really am `rather` busy.
+- I'd `rather` be with mommy.
+- I'd `rather` move actually.
+- It's `rather` stupid of me.
+- Well, i'd `rather` not say.
+- Wouldn't you `rather` know?
+- Would you `rather` be dead?
+- I believe i'm `rather` late.
+- I'd `rather` give it to you.
+- I'd `rather` go to viet nam.
+- I'd really `rather` not say.
+- Where would you `rather` be?
+- Which would you `rather`...?
+- I'd just `rather` keep it on.
+- I'd `rather` read, thank-you.
+- I'd `rather` you just talked.
+- I'd `rather` you not be here.
+- I went riding `rather` early.
+- I would `rather` eat cossack.
+- `Rather` touchy, aren't they.
+- That looked `rather` painful.
+- A `rather` dull name, i think.
+- I'd `rather` just start fresh.
+- I'd `rather` not be by myself.
+- I - i'd really `rather` not...
+- I think it's `rather` obvious.
+- It's `rather` hard to explain.
+- But i'd `rather` save the time.
+- I'd `rather` not talk about it.
+- I'd `rather` spit in your face.
+- It is mankind, `rather`, who...
+- Only three, `rather` than four.
+- `Rather` astonishingly so, yes.
+- `Rather` than the reverse, yes?
+- That's `rather` nice, isn't it?
+- Would you `rather` i not smoke?
+- I'd `rather` not think about it.
+- I think i�d `rather` have drugs.
+- I've been `rather` heavy lately.
+- Of course, i'm `rather` partial.
+- To me he seems `rather` nervous.
+- I'd `rather` have mandrake falls.
+- I'd `rather` keep busy, you know?
+- Isn't that `rather` too close...?
+- `Rather` be back in the mountain?
+- `Rather` not be scarred for life.
+- I'd `rather` just forget about it.
+- I would `rather` the women didn't.
+- I would `rather` you dismissed me.
+- The class was `rather` elementary.
+- You seem to be `rather` an expert.
+- I'd `rather` sing than do anything!
+- I'd `rather` talk about number two.
+- I'd really `rather` not make it 10.
+- I would say you look `rather` lost.
+- Mr brandon's a `rather` lonely man.
+- `Rather` serving in the afghan war.
+- Taylor, i'd `rather` you - shut up.
+- Would you `rather` have terrorists?
+- You'd `rather` spoil our walk home.
+- You have a `rather` checkered past.
+- Aren't you being `rather` arbitrary?
+- I think it's `rather` extraordinary.
+- I would `rather` be called depraved.
+- Nobody i'd `rather` have on a leash.
+- That was `rather`.... disappointing.
+- You'd `rather` go back to that city!
+- I would `rather` watch paint dry.
+- But i'm sure you'd `rather` be alone.
+- Guys, i think i'd `rather` stay here.
+- I'd `rather` be preparing the lesson.
+- I'd `rather` play than talk about it.
+- If not, i'd `rather` not be bothered.
+- I'm `rather` more consumed elsewhere.
+- I `rather` hoped you'd be wearing it.
+- I think it went on `rather` too long.
+- "on which planet would you `rather`?"
+                 

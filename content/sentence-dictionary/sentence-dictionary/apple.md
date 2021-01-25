@@ -1,0 +1,59 @@
+---
+title: "apple in a sentence | apple example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apple"
+---
+- Cuz he was an `apple`?
+- It's a horse `apple`.
+- The `apple` core club.
+- You prefer an `apple`?
+- Sparkling `apple` cider?
+- Is this an `apple` store?
+- Shut up, `apple`-polisher.
+- Ghost `apple`, to be exact.
+- Yeah, there was `apple` juice.
+- It's as american as `apple` pie.
+- Yeah, bitch, give me my `apple`.
+- Leo was an `apple`, that's right.
+- Feels like warm `apple` pie, dude.
+- Let me have some `apple` pie, helen.
+- _ and look what i hid in the `apple`.
+- `Apple`, pecan, cherry, and key lime.
+- She's as american as `apple` pie too.
+- Steal an `apple`, and you're a thief.
+- That is called a crab `apple` switch.
+- `Apple` pie... mcdonald's or homemade?
+- I only heard one thing � `apple` core.
+- Okay, and an `apple` for your troubles.
+- ...the big `apple`, new york, new york.
+- I like `apple` butter not butter butter.
+- I want to eat the onion like an `apple`.
+- An `apple` and banana for extra energy.
+- But those aren't `apple` blossoms, aunty o.
+- Meat loaf, `apple` pie and a cup of coffee.
+- Buy ibm, buy polaroid, buy `apple` computer.
+- I also bought some `apple` juice, red cheek.
+- Is your family in the `apple` business, too?
+- Was there `apple` juice when you were little?
+- Here's a title: an `apple` for the teacher.
+- I think i'd probably like the `apple` business.
+- You watched the `apple` fucking-dumpling gang?!
+- Candy, is that like candy cane or candy `apple`?
+- Do you want an `apple`, or do you want an orange?
+- Not just a flower, an `apple` blossom, she stopped.
+- If i hit the stick too hard, the `apple` will split.
+- If i am too timid, the `apple` will fall off the stick.
+- At the big `apple` circus, it's the only big top i know.
+- A warrior doesn't mourn the dead and fiona adams `apple`.
+- Banana cream, pineapple cream, chocolate cream--and `apple`.
+- You've kicked over the whole city hall like an `apple`-cart.
+- I fed my horse an `apple`, and i found but, really, not necessary.
+- But the will has gone -- independence will drop like a ripe `apple`.
+- His adam's `apple` keeps jumping up and down whenever he gets excited.
+- As an example, i think `apple` is a very good example of that movement.
+- There's fried chicken and candied sweets and cornsticks and `apple` cobbler!
+- Pamela anderson, kate moss, halle berry, and fiona `apple`, all naked in one room.
+- You want three big macs, two chocolate shakes, two orders of fries, and an `apple` pie.
+- I'll take three big macs, two chocolate shakes, two orders of fries, and an `apple` pie.
+                 

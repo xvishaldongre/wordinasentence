@@ -1,0 +1,65 @@
+---
+title: "march in a sentence | march example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "march"
+---
+- To `march` on arkadia.
+- I would rather `march`.
+- `March` on philadelphia!
+- Wonkru is set to `march`.
+- Today's `march` 30, people.
+- Or `march` and be destroyed.
+- Or `march` with me and live.
+- So we `march` for blodreina!
+- Today is `march` 30th, people.
+- Today is `march` second, 2063.
+- You want your army to `march`?
+- Twenty- six years this `march`.
+- 50% of our people won't `march`.
+- They only `march` to please you.
+- `March` 18, just like we planned!
+- We've a hard day's `march` ahead.
+- You don't need to `march` to war.
+- Let the others `march` for a time.
+- Then wonkru's on the `march` again.
+- The revolution is on the `march`...
+- When we `march` on that valley, no!
+- We `march` as soon as the eye's down.
+- This year -- `march` twenty first.
+- I will `march` the 33rd to fort edward.
+- And forced us to `march` into a massacre.
+- `March` you're on chain gang with barnes.
+- They're refusing to `march`, aren't they?
+- Busted for sexual assault: `march` 22, 1970.
+- Born `march` 16, 1945 in church hill, maryland.
+- It sheds it's leaves the first week of `march`.
+- Men he knew he could `march` into certain death.
+- When the germans `march` out, i'll wear it again.
+- To get them to `march` ontari, hold out your hand.
+- There's an army on the `march` toward us right now.
+- We `march` as soon as the fight in the pit is over.
+- We `march` on castle couer de noir within the hour.
+- Your obsession... do you know what `march` 22nd is?
+- How about the first thursday in `march`, ten o'clock.
+- "`march` 7th - glen asked me to sleep with him again.
+- Herr salieri composed that `march` of welcome for you.
+- Maybe daniel and kaylee prime ♪ during `march` madness?
+- She can decide not to `march` oh, let's get out of here.
+- Yesterday she ordered us to `march` on the valley, - bra!
+- He says you were bar mitzvahed there, in `march` 1988. who?
+- You just told me half of our people are refusing to `march`.
+- ♪ they made the ants `march` down ♪ - well, shit, that worked.
+- So what we're going to do is `march` right to hunter's doorstep.
+- "homer wells, born portland, maine, `march` 2, 1915..." he's leaving...
+- You're ok. [cli] [beeping stops] the sky people `march` with us now.
+- We clean him up, untie him and * `march` him out with a gun in his back.
+- I got all i could get which was 750,000 shares plus 5000 `march` 50 calls.
+- On `march` 24, thomas sandefur, ceo of brown & williamson had you fired.
+- When the devil died, they wanted his bandleader to conduct the funeral `march`.
+- No, i celebrate at the beginning of my corporate tax year which is `march` first.
+- Ensuring that 3 generations from now octavia told you we have to `march`, you, too.
+- Thanks to you, we can `march` freely all right, well, we'll get you into something.
+- They arrive in november, you know, and don't migrate north again until `march` or...
+- If you set me free i will find my way back to the army, `march` on rome and depose you.
+                 

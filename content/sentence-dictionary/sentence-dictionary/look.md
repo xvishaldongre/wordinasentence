@@ -1,0 +1,107 @@
+---
+title: "look in a sentence | look example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "look"
+---
+- Care to have a `look`?
+- Christ, `look` at her.
+- Christ, `look` at you.
+- Come to `look` around?
+- Does this `look` weak?
+- Do i `look` all right?
+- Get a `look` under it.
+- Gosh, you `look` nice.
+- Grandma, `look` at me!
+- Hey butt-head, `look`.
+- Hey, `look` at this...
+- Hey, ma, `look` at me!
+- Hey, you `look` great!
+- How do i `look`, mama?
+- I'll go take a `look`.
+- I `look` good tonight.
+- I mean, `look` around.
+- I mean, `look` at her.
+- I'm sizzling - `look`!
+- It don't `look` right.
+- Jess--you `look` good.
+- Jesus, `look` at this.
+- Let me `look` at them.
+- Let's go `look`, then!
+- Let's go `look`, then.
+- `Look` again, asshole.
+- `Look` at him take it!
+- `Look` at it out here.
+- `Look` at its insides.
+- `Look` at it that way.
+- `Look` at it this way.
+- `Look` at jerry graff.
+- `Look` at kenny rossi.
+- `Look` at me and rick.
+- `Look` at me, shinzon!
+- `Look` at my painting.
+- `Look` at the picture.
+- `Look` at the weather!
+- `Look` at this room!..
+- `Look` at this street.
+- `Look` at this wiring.
+- `Look` at your street.
+- `Look`, do me a favor.
+- `Look` for antiques...
+- `Look` great, don't i?
+- `Look`, i'd better go.
+- `Look`...i don't know.
+- `Look`, i... hi honey.
+- `Look`, i lied to you.
+- `Look`, i'll show you.
+- `Look`, i'm desperate.
+- `Look`, i'm me, right.
+- `Look`, it's three am.
+- `Look`... `look` at him!
+- `Look`... `look` at him.
+- `Look`, `look`, `look`....
+- `Look`, man i'm sorry.
+- `Look`, mr. brenner...
+- `Look`, mr. jefferies.
+- `Look`; okay, come on.
+- `Look` out the window.
+- `Look`, that's enough.
+- `Look` under the body.
+- `Look`, we gotta talk.
+- `Look` who i've found!
+- Lucas, `look`, my arm.
+- Man, you `look` great.
+- Mirtha, `look` at you.
+- Now `look` at my feed.
+- No you `look`, mister!
+- Oh, `look` at you two.
+- Rae, `look` at ronnie.
+- Take a `look` at this.
+- Take a `look`, harold.
+- Vampira, `look` at me!
+- Want to take a `look`?
+- Well, how do i `look`?
+- Well how do we `look`?
+- Well... `look` at you.
+- Well, `look` er, i ...
+- Well you `look` great.
+- Well, you `look` nice.
+- We `look` like morons.
+- What'd he `look` like?
+- What'd he `look` like?
+- What's he `look` like?
+- What's it `look` like?
+- Will ya `look` at her!
+- Yet you `look` so sad.
+- You `look` awful, son.
+- You `look` frightened.
+- You `look` just awful.
+- You `look` lost, hank.
+- You `look` nice today.
+- You `look`... surreal?
+- You say `look` at you?
+- Actually, sir-- `look`.
+- Alright, `look` around.
+- Don't `look` at me.
+- `Look` at my nails!
+                 

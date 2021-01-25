@@ -1,0 +1,91 @@
+---
+title: "lets in a sentence | lets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lets"
+---
+- `Lets` talk this over.
+- Yeah - `lets` shove off.
+- It `lets` you see things.
+- `Lets` you own a cruiser.
+- So `lets` get on with it!
+- Theo `lets` go of sheila.
+- `Lets` think this through.
+- `Lets` get out of here, joe.
+- That `lets` us off the hook.
+- Come on, clarence, `lets` go.
+- `Lets` talk about your future.
+- Now `lets` get some breakfast.
+- Who `lets` me give her a bath.
+- Come on, `lets` get out of here.
+- The sound is what `lets` you go.
+- `Lets` check on this little girl.
+- If he `lets` you get close enough.
+- My daddy `lets` me sit on his lap.
+- Brad, please `lets` get out of here.
+- Hey, `lets` toast some marshmellows!
+- Wait a minute - `lets` not be hasty.
+- Come on jamie, `lets` go back to bed.
+- Giving the love that `lets` us go on.
+- It `lets` a crazy man into our lives.
+- `Lets` throw another log on the fire.
+- Nobody just `lets` a ship float away.
+- This woman `lets` you touch her body?
+- Next time `lets` put some money on it.
+- You better hope he `lets` you back in.
+- I'm lucky helms `lets` me have a staff.
+- Then `lets` go back while we still can.
+- All right - `lets` take it from the top.
+- That's why uncle james `lets` them stay.
+- <font color=#ffff2d>alright, `lets` move.
+- Just leave me alone and `lets` forget it.
+- `Lets`... scrum on the ropes right there.
+- Looks like, unless tokyo `lets` me start.
+- Bianca still `lets` me play a few innings.
+- Why do you think he `lets` me do all that?
+- A barbarian who `lets` his socks come down!
+- `Lets` get things nice and sparkling clear.
+- Put a fork in me harry, `lets` get started.
+- It's o.k...it's o.k...`lets` me help you up.
+- `Lets` pay this bill and get up very slowly.
+- I'll go take a look when the rain `lets` off.
+- It `lets` you always choose mission over men.
+- The queen never `lets` them out of her sight.
+- He uses women; he `lets` them kill themselves.
+- Okay next contest, now `lets`... how was that?
+- We have some bourbon - `lets` make manhattans.
+- You're scared, but if he `lets` you live, whee.
+- He usually `lets` others dole out the punishment.
+- `Lets` you do as you please, go where you please.
+- Sam `lets` go of the parcel and pushes jill away.
+- `Lets` say i taught them chess instead of english.
+- As soon as the doctor `lets` us, we gotta move you.
+- People he really likes--he `lets` call him "jamie."
+- Vanessa `lets` me have a room for all my old stuff.
+- Jim - `lets` just get the money and get out of here.
+- Well, i say `lets` tear this place apart for weapons.
+- Hollywood only `lets` in one bill nye in a generation.
+- He never `lets` me do one goddamn thing that's any fun.
+- This ship sucks people in and it never `lets` them out.
+- Then, when she don't expect it... he `lets` her have it.
+- ...he just `lets` himself get pushed around all the time!
+- `Lets` not talk about it anymore, let's have a good time.
+- `Lets` get out of here before i get the epizootics myself.
+- Come on - `lets` go up to her room and tell her - right now.
+- But if i equip this staff that `lets` me cast lava quadballs...
+- What kinda man `lets` a woman answer the door, this time a night?
+- He stares at her, sees the pleading look in her eyes, and `lets` go.
+- Sometimes my father puts me in his lap and `lets` me steer the jeep.
+- Just like you.... mommy `lets` me.... no, no...it's too dangerous....
+- No way -more- `lets` us watch each other's backs over a wide area.
+- He `lets` mama off any time she feels like it 'cause they're best friends.
+- The sister's been over to new orleans, `lets` us have it while she's gone.
+- Order eleven came down... which `lets` her down but doesn't snap her in two.
+- Wouldn't find out what it's all about in two *years*, `lets` alone two months.
+- If another fella tries to take that perch away from him, he `lets` him have it.
+- That one idea, the one that `lets` you get started � i still haven't gotten it.
+- Bur `lets` pretend for a minute that what you say is true, that i want to leave.
+- It's a stinking world because it `lets` the young get onto the old like you done.
+- That means you put it on, and it `lets` his people know we're here, not even of clowns?
+- For 97 years, we have eked out it's how the other team `lets` you know... they surrender!
+                 

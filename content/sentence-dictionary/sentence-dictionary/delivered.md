@@ -1,0 +1,55 @@
+---
+title: "delivered in a sentence | delivered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "delivered"
+---
+- I `delivered` him, didn't i?
+- If i `delivered` you safely.
+- I've `delivered` people there.
+- He `delivered` no such message.
+- `Delivered` from martha stewart.
+- Yeah...just had it `delivered`...
+- You `delivered` us from praimfaya.
+- `Delivered` from swedish furniture.
+- He said the stone `delivered` them.
+- You certainly `delivered` the goods.
+- Today you `delivered` us from starvation.
+- Now, remember: you never `delivered` this.
+- You want that `delivered`, we'll deliver it.
+- A policeman `delivered` the baby in a taxicab.
+- `Delivered` an ultimatum at the shanghai site.
+- But maybe, just maybe, you've been `delivered`.
+- Look at these here telegrams to be `delivered`!
+- Should've been `delivered` to the palace already.
+- Natural weather `delivered` to your door on demand.
+- Wait a second -- we must've had it `delivered` then.
+- What will they do if the money isn't `delivered`?
+- The wrong man was `delivered` to me as the right man!
+- Would you like to, uh... - the shepherd `delivered` us.
+- "springtime for hitler," signed, sealed and `delivered`.
+- She found out what she could ...and `delivered` him here.
+- The shoes were `delivered` to ... an island in hyde park.
+- And `delivered` it to my bed, marge, i have a secret, too.
+- We had a printer `delivered` to mr. trevor matthews' room.
+- Always `delivered` with a smile and a sense of brotherhood.
+- I hear these hollywood guys have it `delivered` to the set.
+- Most all the babies i `delivered` were from local families.
+- "[2] he was the last baby my father `delivered`, arthur was.
+- `Delivered` from armchairs in obscure green stripe patterns.
+- I saw the woman whose son's body was `delivered` last night.
+- I thought people just wanted their mail `delivered` on time.
+- You could have a meat order that big `delivered` to your home.
+- She said she `delivered` your message and that you'd understand.
+- If not for you, i would have `delivered` us tell me how to stop it.
+- Do not engage until we've confirmed the package has been `delivered`.
+- We know that by the time the shepherd `delivered` us jackson: what?
+- When elektra�s ear was `delivered` to him in the post, he came to me.
+- But you must not know how serious it was or you would have `delivered`.
+- `Delivered` from bullshit colors like "cobalt," "ebony," and "fuchsia."
+- Stay home, watch some television, we'll get "mad" magazine `delivered`.
+- When artoo has been safely `delivered` to my forces, you get your reward.
+- Listen to me, richter, i want quaid `delivered` alive for re-implantation.
+- Which is why the mail in this town never gets `delivered` to the right place.
+- Excuse me harry, i'm sorry, i just wanna let you know that the flowers were `delivered`.
+                 

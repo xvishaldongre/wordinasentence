@@ -1,0 +1,107 @@
+---
+title: "gonna in a sentence | gonna example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gonna"
+---
+- `Gonna` hurt somebody.
+- '`gonna` wait outside.
+- He's `gonna` clean up.
+- He's `gonna` feel bad.
+- He's `gonna` find out.
+- He's `gonna` kill pop.
+- He's not `gonna` talk.
+- How 'you `gonna` live?
+- I'm `gonna` call boyd.
+- I'm `gonna` catch you!
+- I'm `gonna` catch you.
+- I'm `gonna` find will.
+- I'm `gonna` get ticks.
+- I'm `gonna` get you!!!
+- I'm `gonna` go to bed.
+- I'm `gonna` keep that.
+- I'm `gonna` leave now.
+- I'm `gonna` marry him!
+- I'm `gonna` punch you.
+- I'm `gonna` stay here.
+- I'm `gonna` step left.
+- I'm not `gonna` do it!
+- I'm not `gonna` do it.
+- Is he `gonna` be okay?
+- It's `gonna` be close.
+- It's `gonna` be great.
+- It's `gonna` get cold.
+- It's `gonna` go great.
+- It's not `gonna` work.
+- I was `gonna` go home.
+- I was `gonna` tell ya.
+- No one's `gonna` show.
+- No one's `gonna` talk.
+- She's `gonna` use you.
+- She's not `gonna` die.
+- They're `gonna` shoot!
+- We `gonna` run or not?
+- Well, they're `gonna`.
+- We're all `gonna` die!
+- We're all `gonna` die.
+- We're `gonna` be okay.
+- We're `gonna` be rich!
+- We're `gonna` do this.
+- We're `gonna` go home.
+- We're `gonna` make it.
+- We're not `gonna` die.
+- What am i `gonna` do?!
+- What am i `gonna` eat?
+- What're we `gonna` do?
+- What're ya `gonna` do?
+- What's `gonna` happen?
+- What's he `gonna` say?
+- What's she `gonna` do?
+- What was i `gonna` do?
+- Where am i `gonna` go?
+- Who's `gonna` be next?
+- Who's `gonna` do that?
+- Who's `gonna` get him?
+- Who's `gonna` stop us?
+- Who's `gonna` to that?
+- You `gonna` answer it?
+- You `gonna` stop that?
+- Ain't `gonna` be moved?
+- Are we `gonna` do this?
+- Are you `gonna` answer?
+- Are you `gonna` try it?
+- Everyone's `gonna` die.
+- `Gonna` be le hot shit.
+- `Gonna` grow two heads?
+- `Gonna` have something?
+- `Gonna` make ogre-stew!
+- I'm `gonna` die, nicky.
+- I'm `gonna` get beside.
+- I'm `gonna` go ask him.
+- I'm `gonna` go to jail.
+- I'm `gonna` help you.
+- I'm `gonna` tell frank.
+- It's `gonna` be sticky.
+- It's `gonna` get messy.
+- It's `gonna` work, dad.
+- Mary's `gonna` hear us.
+- Mom's `gonna` kill you.
+- She's not `gonna` know.
+- Still `gonna` smell it.
+- That's not `gonna` fly.
+- This `gonna` take long?
+- Waddaya `gonna` do now?
+- We're `gonna` die here!
+- We're `gonna` find him.
+- We're `gonna` find out.
+- We're `gonna` kill you!
+- We're `gonna` make out.
+- We're `gonna` stop him.
+- We're `gonna` tube him!
+- What are we `gonna` do?
+- What're ya `gonna` say?
+- What're you `gonna` do?
+- What're you `gonna` do?
+- What's it `gonna` cost?
+- What's that `gonna` do?
+                 

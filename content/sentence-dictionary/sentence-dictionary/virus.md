@@ -1,0 +1,95 @@
+---
+title: "virus in a sentence | virus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "virus"
+---
+- Sounds like a `virus`.
+- So the `virus` is fast.
+- They spread the `virus`.
+- The `virus` isn't airborne.
+- If we all catch the `virus`.
+- Launch the da vinci `virus`?
+- A hacker planted the `virus`.
+- It'll neutralize the `virus`.
+- The `virus` doesn't last long.
+- What does this `virus` attack?
+- Ok, so tommy's got the `virus`.
+- There is no plutoxin 7 `virus`.
+- There's some kind of a `virus`.
+- [bellow] - like she's a `virus`.
+- The `virus` is extraterrestrial.
+- Hey, what's the da vinci `virus`?
+- It's quite an impressive `virus`.
+- To give us access to the `virus`.
+- Have i ever "developed" a `virus`?
+- The doctor said you had a `virus`.
+- The plant's infected with a `virus`.
+- And dissent spreads like any `virus`.
+- There's a new `virus` in the database.
+- 's poison pill `virus` through the web.
+- The fibers are infected with a `virus`.
+- What `virus` are we talking about, dad?
+- It's a strain of the plutoxin 7 `virus`.
+- The good news is a `virus` can be cured.
+- You'll need to recultivate that `virus`.
+- This part isn't about the `virus`, is it?
+- She's not the one who planted the `virus`.
+- This force is like a parasite, or a `virus`.
+- Floating around in the cosmos like a `virus`.
+- I'm telling you, doubt spreads like a `virus`.
+- You eat them, and the `virus` alters your dna!
+- But a `virus` normally codes for other viruses.
+- Her system is protected by her 'pussy `virus`.'
+- It also contained the anti-`virus`, bellerophon.
+- How many are expected to die of a mystery `virus`?
+- The pollen genetically altered to carry a `virus`.
+- This thing's loaded with internal `virus` systems.
+- God, i hope that thing didn't bring down a `virus`.
+- Jeffrey mason said it was my idea about the `virus`.
+- The `virus` itself might have positive applications.
+- Are you familiar with the hanta `virus`, agent mulder?
+- The doctor said it was like a `virus`, it infected him.
+- So this `virus`, it's connecting him to the tunnels?
+- The grounders sent him here with a `virus` to infect us.
+- Mulder -- this `virus` -- it... what do you mean by haul?
+- This `virus` walked the planet long before the dinosaurs.
+- You knew she had the `virus`, but you caught her, anyway.
+- ♪ he drivin' a drop top cadillac ♪ - like she's a `virus`.
+- I just need to have access to the pure `virus`, that's all!
+- I'm not sure, guy, but i don't think dyslexia is a `virus`.
+- They inject `virus`-like serums to attack the neuro-systems.
+- This `virus`... the infected hosts seem to be communicating.
+- The vaccine you hold is the only defense against the `virus`.
+- If hit hard enough, it could break open, releasing the `virus`.
+- What is a `virus` but a colonizing force that cannot be defeated?
+- Now, when... when a typical `virus` attaches itself to its host...
+- Explain to me about this `virus`, no don't tell me about the `virus`.
+- A `virus` has been planted in the ellingson mineral computer system.
+- Aids, the ebola `virus` -- on the evolutionary scale they are newborns.
+- A `virus` planted in the gibson computer system claimed responsibility.
+- A weak vaccine against the `virus` agent scully has been infected with.
+- It's like a computer `virus` that developed a personality or something.
+- The `virus` no longer just invades the brain as a controlling organism.
+- The x-5 unit is a new top-secret biological weapon, a manmade `virus`...
+- I just have to locate the `virus` in its original form before it mutates.
+- Our best guess right now is it's some kind of `virus` indra... octavia...
+- Tommy knew he had the `virus`, like, but never knew he'd gone full-blown.
+- Have you been exposed to a loud noise recently, or did you have a `virus`?
+- Did you find the program for the `virus` on any of the discs we confiscated?
+- Now, if there really was a `virus`, wouldn't you move to contain the airflow?
+- Now -- what fucking `virus` have you come up with, you demented fucking maniac?
+- Well, without a cure for the `virus`, we're nothing more than digestives anyway.
+- Miss hall's blood, it appears, has absolutely no elements of the chimera `virus`.
+- A `virus` called da vinci will cause oil spills at 10:30 am eastern time tomorrow.
+- The bone was porous, as if the `virus` of the causative microbe were digesting it.
+- All we have to do is launch the da vinci `virus`, and then they'll all be put away.
+- I mean... da vinci `virus`, didn't phreak say that's what he was being charged with?
+- It was a deadly `virus` spread by field mice in the southwest u.s. several years ago.
+- Some of 'em are callin' it -- -- epstein-barr `virus`, and the rest are callin' it...
+- I'll just search his files for the original `virus` code, and then i can eliminate it.
+- He or perhaps his accomplice has a disk that mr. belford needs to disable that `virus`.
+- The `virus` those men were infected with contains a protein coat i've never seen before.
+- If this is a `virus`, and will's the host, then... we start your training in the morning.
+- Ambrose got bellerophon from nekhorvich on the plane, but he didn't get the chimera `virus`.
+                 

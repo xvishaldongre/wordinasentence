@@ -1,0 +1,107 @@
+---
+title: "more in a sentence | more example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "more"
+---
+- Ay-`more` fie- dellis.
+- Can i tell you `more`?
+- Could be a lot `more`.
+- Couple `more` seconds!
+- Don't you want `more`?
+- Get behind him `more`.
+- He's `more` than that.
+- I know there's `more`.
+- I need `more` aspirin.
+- It's `more` than that.
+- It's one `more` thing.
+- It's something `more`.
+- Just a couple `more` .
+- Just found two `more`.
+- Just, `more` activity.
+- Just one `more` thing.
+- `More` fun win battle?
+- `More` pancakes, lisa?
+- `More` red than green.
+- `More` surface detail.
+- `More` than all right.
+- `More` than ten years.
+- `More` than you think.
+- My `more` than sister.
+- No `more` aurora talk.
+- No `more` competition?
+- No `more` false faces.
+- No `more` games, nick.
+- No `more` panty- hose.
+- ... no `more`, please.
+- Not tonight no `more`.
+- Okay, one `more` time.
+- Ok. no `more` talking.
+- Only four `more` cars.
+- So what is one `more`?
+- That's `more` like it!
+- That's `more` like it.
+- There's `more` coming.
+- Want some `more` soup?
+- We'll get some `more`.
+- We need to dig `more`.
+- What's one `more` day?
+- But i mean `more` like.
+- But you get `more` now?
+- Death and `more` death?
+- Emcee: one `more` time!
+- Gives you `more` power.
+- Having `more` meetings.
+- I always wanted `more`.
+- I appeal to you `more`?
+- I did `more` then that.
+- I `more` than liked it.
+- It buys us `more` time.
+- It needed `more` white.
+- It's just `more` boxes.
+- It's really `more` fun.
+- I would've paid `more`.
+- Just one `more` second.
+- `More`, do you hear me?
+- _ `more` fudge, please.
+- `More`- how did she..?
+- `More` like a fortress.
+- `More` like morse code.
+- "`more`" or "all done"?
+- `More` people will die.
+- `More` sure of himself?
+- `More` than co-workers.
+- `More`, with this wind.
+- No `more` about beynon.
+- No `more` taxes to you.
+- No `more` wasted lives.
+- No one came any `more`.
+- Oh, no, not any `more`.
+- Put on two `more` guys.
+- She needs `more` water.
+- Shit, `more` than that.
+- Ten `more` steps, mate.
+- The `more` the merrier.
+- There has to be `more`.
+- There isn't any `more`.
+- There's `more` of them!
+- There's no `more` left?
+- There's nothing `more`.
+- They want `more` money.
+- This is `more` like it.
+- Three `more`, i figure.
+- We need `more` monkeys!
+- We need `more` ritalin.
+- What's a little `more`?
+- With `more` bullets?...
+- Work less, make `more`.
+- You do `more` than try.
+- You expect `more` what?
+- You want `more` coffee?
+- Any `more` would be bad.
+- Are you game for `more`?
+- A thousand times `more`.
+- Broke is `more` like it.
+- Don't accept any `more`.
+- Do you want `more` rice?
+                 

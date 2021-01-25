@@ -1,0 +1,53 @@
+---
+title: "bugs in a sentence | bugs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bugs"
+---
+- I can hear the `bugs`.
+- They're `bugs`, wyatt.
+- Who cares about `bugs` ?
+- `Bugs` don't lay traps...
+- I'll get `bugs` ta do it.
+- That always `bugs` me out.
+- Two `bugs` with one stone.
+- Lately it `bugs` me, i guess.
+- And i searched him for `bugs`.
+- We're gonna change it, `bugs`.
+- The `bugs`, they're inside him.
+- Hey, `bugs` don't take prisoners.
+- We will kill some `bugs`, though.
+- Kinda early for christmas, `bugs`.
+- They don't even need `bugs` anymore.
+- It's-it's got bad plumbing and `bugs`.
+- Ain't no live and let live with `bugs`.
+- And then they'll feed you to the `bugs`.
+- If you don't�ever hear of `bugs` dooley?
+- I want you to search the house for `bugs`.
+- You two can keep a watch out for grid `bugs`.
+- Enough to affect the `bugs` but not the people.
+- I'll get the power back on and kill the `bugs`.
+- The `bugs` will kill each other, to get in or not?
+- You know what `bugs` me about old guys at the gym?
+- Just fly around catch `bugs` and have a lot of fun.
+- That's right, and it's got bad plumbing and `bugs`.
+- Evidently to install `bugs` and photograph documents.
+- The `bugs` start to freak out, bup, don't be so sure.
+- You're seeing `bugs` where they don't exist, striker.
+- I've never seen so many `bugs` upstairs at the same time...
+- Snug as criminally insane `bugs` but we are not here to fight.
+- Filled with man-eating `bugs` and toxic plants still breathing.
+- And bellamy already made a deal and burrowing, parasitic `bugs`.
+- We need to talk about how we're what happened to all the `bugs`?
+- Hope he kills all the `bugs` before the yellow dot gets to the red one.
+- We call him doc sometimes, you know, like in the `bugs` bunny cartoons.
+- We thought there might be a brain on p. `bugs` laid a trap, didn't they ?
+- You know, `bugs` are-are-uh, entomology is a... ...rapidly growing field.
+- But there are things happening now _ they're as cute as two `bugs` in a rug.
+- If the `bugs` come upstairs in this neighbor-hood, we'll be the first to know.
+- Well, if the `bugs` have hatched, and they're not here... then where are they?
+- And how i think the `bugs` are an early-warning system and it'll break his heart.
+- He said: "well for christ's sake, everybody `bugs` everybody else; we know that."
+- You know how sometimes neil `bugs` you and you just get up and walk away from him?
+- Shutter `bugs` camped outside any place he goes, every concierge and maitre d' on the take.
+                 

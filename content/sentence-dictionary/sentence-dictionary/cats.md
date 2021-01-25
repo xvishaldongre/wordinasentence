@@ -1,0 +1,55 @@
+---
+title: "cats in a sentence | cats example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cats"
+---
+- "`cats` in the cradle."
+- Yes, `cats`, of course.
+- More than prince of `cats`.
+- He's got a thing for `cats`.
+- I'm just feeding the `cats`.
+- When we went to see '`cats`'.
+- Be careful of the bald `cats`.
+- Hell, i had six `cats` myself.
+- `Cats` and dogs out there, huh?
+- Sure, got thousand `cats`, too.
+- Three on a match, black `cats`...
+- But don't `cats` clean themselves?
+- I seen one of the `cats` heard it.
+- 'cause in skånland, `cats` love me.
+- The cat lady is eating with `cats`.
+- Mice killing `cats`, guts everywhere.
+- Look at 'em-- points to cages of `cats`.
+- He's afraid of `cats`, what's that about?
+- No scaredy-`cats` in the talamasca, huh...?
+- "the naming of `cats` is a difficult matter.
+- That is, they eat the carcasses of the `cats`.
+- I know he lit `cats` on fire when he was a kid.
+- Thousands and thousands... as many as my `cats`?
+- The world belongs to the fucking dogs and `cats`.
+- I now believe `cats` should earn as much as dogs."
+- So --the `cats` eat the rats--the rats eat the `cats`.
+- He's been stealing my `cats` to experiment on [them].
+- Yeah, and he's gonna eat a lot more than just `cats`.
+- You know why those guys just get `cats` out of trees?
+- I told you `cats` don't go around looking for trouble.
+- [crowd cheering] sorry, snowball, `cats` are polarizing.
+- Three kids, two `cats`, and fifteen needlepoint pillows?
+- I'll give you one of my favorite `cats`... a jellicle cat.
+- She might eat it and besides, `cats` are afraid of wolves.
+- [lot of] how many `cats` you have--what's the matter-- rats?
+- These cornmuffins go to the phone and dial... street `cats`?
+- Actually forget guinea pigs, `cats`, monkeys, and chimps also.
+- Real amazin' how far a gun and a badge can carry some `cats`...
+- I'll shoot myself in the head, you can tell me that `cats` name!
+- Ever notice how `cats` always seem to turn up around dinner time?
+- I will now sell four copies of `cats` and dogs by the royal trux.
+- I thought `cats` were supposed to have nine lives, not thirty one!
+- When i was young i thought `cats` were the girls and dogs were the boys.
+- It's owned by this like very rich ptitsa who lives there with her `cats`.
+- I cry when i see a cat that's been run over... and i don't even like `cats`.
+- It's better you go home still dreaming about your kitty `cats` and puppy dogs.
+- I understand from your neighbors that all [them] `cats` are making noise at night.
+- Those three `cats` -- are supposed to be the most beautifully drawn `cats` in western art.
+                 

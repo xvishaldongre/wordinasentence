@@ -1,0 +1,8 @@
+---
+title: "shrivel in a sentence | shrivel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shrivel"
+---
+- Betty, i don't wanna `shrivel` up alone in some stinking prison.
+                 

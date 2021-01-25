@@ -1,0 +1,107 @@
+---
+title: "daddy in a sentence | daddy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "daddy"
+---
+- `Daddy` rounds 'em up.
+- `Daddy`'s an elephant.
+- `Daddy` you scared me!
+- `Daddy`, you upstairs?
+- Did `daddy` tease you?
+- Don't take my `daddy`!
+- His mommy and `daddy`?
+- I don't know, `daddy`.
+- I just can't, `daddy`.
+- I knowed your `daddy`.
+- Oh, `daddy` ate yours.
+- "to `daddy` from amy."
+- '`daddy` has to go now.
+- `Daddy`, i got an idea.
+- `Daddy`'s little angel.
+- `Daddy`'s not with you.
+- `Daddy` thinks so, too.
+- `Daddy`, you came back!
+- Good night, `daddy`....
+- Hi, allison -- `daddy`!
+- How old was i, `daddy`?
+- I have a date, `daddy`.
+- It was `daddy`'s dream.
+- Nowhere... hi, `daddy`.
+- Saying i'm the `daddy`!
+- What is it, `daddy` --?
+- Where was you, `daddy`?
+- You heard from `daddy`?
+- Anthony, `daddy`'s busy.
+- `Daddy`, `daddy`, i can't.
+- Her `daddy` touches her.
+- I love you too, `daddy`.
+- I love you too, `daddy`.
+- It's `daddy`, shit-head.
+- Steve's her `daddy` now.
+- Tell `daddy` everything.
+- What's he doing `daddy`?
+- Who's your `daddy`, boy?
+- You lose again, `daddy`.
+- Buddy, it's your `daddy`!
+- But `daddy`'s super sick!
+- But i ain't your `daddy`.
+- But where is my `daddy`!?
+- `Daddy` and i tried hard.
+- `Daddy`, did ya see that?
+- `Daddy` is coming for us.
+- Don't talk about `daddy`.
+- Is `daddy` in his office?
+- I think `daddy` suspects.
+- It'll come back, `daddy`.
+- It's his `daddy`'s fault.
+- It was too dark, `daddy`.
+- I want this one, `daddy`.
+- Mommie, `daddy`, piglets.
+- She used `daddy`'s razor.
+- Wasn't `daddy` wonderful?
+- Your `daddy` saw to that.
+- `Daddy` can't hug anymore.
+- `Daddy`, what is going on?
+- `Daddy`, where's my money?
+- How'd you know my `daddy`?
+- I had better call `daddy`.
+- Like my `daddy` before me.
+- My `daddy` died in prison.
+- Are we going away, `daddy`?
+- Case `daddy` don't like me.
+- Continued goodbye, `daddy`.
+- `Daddy` drank some ick-ick.
+- `Daddy` the friendly ghost.
+- `Daddy` was washing rachel.
+- `Daddy`, what's the matter?
+- `Daddy` wouldn't hear that.
+- I'm waiting for my `daddy`.
+- It was what killed `daddy`.
+- They're different, `daddy`.
+- All right, `daddy`, good-by.
+- And a smile from my `daddy`.
+- `Daddy`, don't be mad at me.
+- `Daddy` want some sausage...
+- `Daddy`, why are you crying?
+- I don't understand, `daddy`.
+- Not even `daddy`...or mommy?
+- Why would my `daddy` hit me?
+- You know somethin', `daddy`?
+- Can i have this room `daddy`?
+- `Daddy`, what was that noise?
+- `Daddy`-- with us old creeps?
+- Give my best to your `daddy`.
+- I had a fun weekend, `daddy`.
+- I'm your `daddy` now, kirsty.
+- Oh regan i love your `daddy`.
+- Please don't take my `daddy`!
+- Please don't tell my `daddy`.
+- So's jerry maroney's `daddy`.
+- Talk, `daddy`, i'm listening.
+- Was i fucking my own `daddy`?
+- What's that outside, `daddy`?
+- You gotta let me go, `daddy`.
+- You know how your `daddy` is.
+- `Daddy` never went out at all.
+                 

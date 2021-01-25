@@ -1,0 +1,107 @@
+---
+title: "trying in a sentence | trying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trying"
+---
+- At least i'm `trying`.
+- I'm finished `trying`.
+- I'm `trying`, alright?
+- I'm `trying`, i swear!
+- I'm `trying` to focus!
+- I'm `trying` to think.
+- It's `trying` to talk.
+- Keep `trying`, chekov.
+- Only `trying` to help.
+- So stop `trying`, huh?
+- `Trying` to jump ship.
+- Woman 2: i'm `trying`.
+- Always `trying` to win.
+- He's `trying` to go up.
+- I'm `trying`, you know.
+- I was `trying` to help.
+- `Trying` to stop a war.
+- He's `trying` the voice.
+- I'm `trying` to be, dad.
+- I'm `trying` to be fair.
+- I'm `trying` to think...
+- Just `trying` to get by.
+- Keep `trying`, sergeant.
+- Of `trying` to find out.
+- They just stop `trying`.
+- `Trying` to protect you.
+- `Trying` to wipe us out.
+- We're `trying` to count!
+- He's `trying` to copy me.
+- He's `trying` to kill me.
+- He's `trying` to make it.
+- He's `trying` to sink us!
+- Hey, i said i'm `trying`.
+- I mean...i'm `trying` to.
+- I'm `trying`... hey, hey.
+- I'm `trying` to eat here.
+- I'm `trying` to find her.
+- I'm `trying` to find out.
+- I'm `trying` to help you.
+- I'm `trying` to prove it.
+- I'm `trying` to save you!
+- I'm `trying` to save you.
+- I'm `trying` to tell you.
+- Not for lack of `trying`.
+- `Trying` to hurt herself.
+- You're just not `trying`.
+- Are you `trying`, damn it?
+- He isn't `trying` anymore.
+- He's `trying` to fuck you.
+- He's `trying` to kill him.
+- He was `trying` to get me.
+- I am `trying` to kill him.
+- I-i'm `trying`, i'm sorry.
+- I'm just `trying` to help.
+- Immediately: i'm `trying`!
+- I'm `trying` all the time.
+- I'm `trying`, marie, okay?
+- I'm `trying` to marry you.
+- I'm `trying` to thank you.
+- Just `trying` to have fun.
+- No, no, i wasn't `trying`.
+- What's she `trying` to do?
+- Maybe not die `trying`.
+- He's `trying` to kill me...
+- He was `trying` to kill me!
+- He was `trying` to kill us!
+- He was `trying` to kill us.
+- He was `trying` to tell us.
+- I been `trying` to hit you.
+- I'm `trying` terribly hard.
+- I'm `trying` to be helpful.
+- I'm `trying` to help, duff.
+- I'm `trying` to seduce you.
+- I was `trying` to save you.
+- Keep `trying` to do better.
+- Stop `trying` to rescue me.
+- They're `trying` to get me.
+- `Trying` to get a reaction.
+- `Trying` to track you down.
+- We appreciate you `trying`.
+- What're you `trying` to do?
+- What was i `trying` to say?
+- Who're you `trying` to con?
+- Who's `trying` to kill you?
+- You're `trying` to beat me.
+- Can't blame me for `trying`.
+- He's `trying` to form words.
+- I'm `trying` to believe you.
+- I'm `trying` to change here.
+- I'm `trying` to concentrate.
+- I'm `trying` to save us all.
+- I'm `trying` to talk to you.
+- I think she's `trying` that.
+- I vas just `trying` to help.
+- I was just `trying` to help.
+- I was `trying` to be smooth.
+- Just something i'm `trying`.
+- Just `trying` to be helpful.
+- Nothing wrong with `trying`.
+- Okay, i'm `trying` it again.
+                 

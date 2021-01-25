@@ -1,0 +1,107 @@
+---
+title: "bill in a sentence | bill example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bill"
+---
+- `Bill`, how do you do?
+- How to send a `bill`!!
+- Please call me `bill`.
+- Say, `bill`... shit...
+- About `bill`, you mean?
+- `Bill` my room, please.
+- `Bill` stuckey, vivian.
+- Don't run away, `bill`.
+- Don't thank me, `bill`.
+- Happy birthday, `bill`.
+- I'm glad `bill`'s back.
+- I want `bill` kunstler.
+- My name is `bill` cage.
+- Put the `bill` on this.
+- You want facts, `bill`?
+- `Bill`, we need to talk!
+- Good to see you, `bill`.
+- Hurry him along, `bill`.
+- I ain't waitin', `bill`.
+- I'm not `bill` mitchell.
+- It's down on our `bill`.
+- Say hi to `bill` for me.
+- As a three-dollar `bill`.
+- `Bill`, he's a crazy man.
+- Go tuck yourself, `bill`.
+- H'ya, carl--h'ya, `bill`!
+- I - i don't know, `bill`.
+- Oh, `bill`, i'll keep it.
+- The 'question' -- `bill`.
+- Until you get the `bill`.
+- We're doing this, `bill`.
+- Did we get our `bill` yet?
+- Good night to you, `bill`.
+- Have i gone crazy, `bill`?
+- I was just asking, `bill`.
+- You fill the `bill`, `bill`.
+- You're marking us, `bill`.
+- Don't fuck with me, `bill`.
+- Lords debate reform `bill`!
+- Shaw's our toehold, `bill`.
+- There's no mistake, `bill`.
+- We never even saw a `bill`.
+- You've got nothin', `bill`.
+- You will receive no `bill`.
+- You wrote `bill`'s scripts!
+- Are you proud of me, `bill`?
+- `Bill`, i know you're upset.
+- `Bill`, listen... that's it!
+- 'cept maybe for wild `bill`.
+- Take it easy, that's `bill`.
+- Those were my words, `bill`.
+- Yeah - `bill` - how are you?
+- You killed... little `bill`.
+- Does that bother you, `bill`?
+- Everyone aboard young `bill`?
+- I'd like to pay their `bill`.
+- I love `bill` cosby pictures.
+- I think you heard me, `bill`.
+- Jesus, `bill`, you got fever.
+- My name is major `bill` cage.
+- Not one `bill` is left alive.
+- Seen any signs of it, `bill`?
+- The word's on every `bill`!!!
+- This is a crime `bill`, shep.
+- Wait till he sees the `bill`.
+- What happened to you, `bill`?
+- You want the spencer, `bill`?
+- Claudia... ain't here, `bill`.
+- His cellular `bill` was clean.
+- How long you gonna be, `bill`?
+- President vetoes works `bill`?
+- That's your privilege, `bill`.
+- We have to let her go, `bill`.
+- Well... actually, no `bill`...
+- We'll tell 'em to `bill` kyle.
+- Why, i've introduced a `bill`!
+- You're a good soldier, `bill`.
+- How's your `bill`, senator?
+- Because my mom gets the `bill`.
+- `Bill` was one of his best men.
+- He's going to be on the `bill`.
+- Hey, gi `bill` pays for school.
+- Hey kid, it's me, `bill` munny.
+- Hiya, `bill`, what do you know?
+- I know what people say, `bill`.
+- I'm sorry, `bill` -- goodnight.
+- Here, kid, here's half a `bill`.
+- I... don't say "`bill`," bernie!
+- I'll tell `bill` you dropped by.
+- Listen: patrick, he's... `bill`!
+- Tell `bill` to get the fuck off!
+- The head man's writing a `bill`.
+- There's no goddamn `bill` on me?
+- Are you going to fire me, `bill`?
+- Did you hear about `bill` miller?
+- I lock at you and i see `bill`...
+- I'm just an investigator, `bill`.
+- Joe sounds like a ringer, `bill`.
+- We ain't bad men no more, `bill`.
+- You don't change, do you, `bill`?
+                 

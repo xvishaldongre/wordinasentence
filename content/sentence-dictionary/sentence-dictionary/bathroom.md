@@ -1,0 +1,107 @@
+---
+title: "bathroom in a sentence | bathroom example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bathroom"
+---
+- `Bathroom` over there?
+- Get in the `bathroom`!
+- Get to the `bathroom`!
+- I'm in the `bathroom`.
+- That's the `bathroom`.
+- To use the `bathroom`.
+- Even in the `bathroom`?
+- He's in the `bathroom`.
+- Is that the `bathroom`?
+- Is this the `bathroom`?
+- It's in the `bathroom`.
+- Where's the `bathroom`?
+- Get into the `bathroom`.
+- Is he in the `bathroom`?
+- Probably the `bathroom`.
+- She's in the `bathroom`.
+- There is the `bathroom`.
+- Where's your `bathroom`?
+- Can i use the `bathroom`?
+- Check out the `bathroom`.
+- Do you have a `bathroom`?
+- He's in the `bathroom`...
+- He was in the `bathroom`.
+- He died in the `bathroom`.
+- Rhonda is in the `bathroom`.
+- A `bathroom` right back here.
+- Gingo take you to `bathroom`.
+- Have you seen the `bathroom`?
+- I gotta go to the `bathroom`.
+- I'm gonna use the `bathroom`.
+- Mind if i use the `bathroom`?
+- When i was in the `bathroom`?
+- Help you go to the `bathroom`.
+- I had to go to the `bathroom`.
+- I've got to find a `bathroom`.
+- There's a `bathroom` upstairs.
+- Which `bathroom` is that, sir?
+- I have to go to the `bathroom`.
+- Can i use your `bathroom` first?
+- Hey, your `bathroom` is leaking.
+- She asked to use the `bathroom`.
+- Use the `bathroom` on the plane!
+- We had a leak in the `bathroom`.
+- A sunken tub in every `bathroom`.
+- I'm just going to the `bathroom`.
+- In a `bathroom` in union station.
+- Make a little `bathroom` bam-bam.
+- Or graffiti the `bathroom` stall?
+- There's water in your `bathroom`.
+- This is the caterers' `bathroom`.
+- We can keep it in the `bathroom`.
+- Excuse me, gotta go to `bathroom`.
+- I saw his stuff in the `bathroom`.
+- I saw his teeth in the `bathroom`.
+- There's a towel in the `bathroom`.
+- Took it out the `bathroom` window.
+- Who the fuck is in the `bathroom`?
+- In the `bathroom` by mr. salerno's.
+- There's a spider in the `bathroom`.
+- I should maybe go to the `bathroom`.
+- Maybe she had to use the `bathroom`.
+- Were you recently in the `bathroom`?
+- Do you mind if i use your `bathroom`?
+- Her blood is all over the `bathroom`.
+- Maybe you left 'em in the `bathroom`.
+- Tried to make it to the `bathroom`...
+- You need the `bathroom`, it'll reach.
+- Maybe he got locked in the `bathroom`.
+- Nothin', just goin' to the `bathroom`.
+- Throw 'em in the `bathroom`, will you?
+- To the `bathroom`, where do you think?
+- He's washing down the `bathroom` walls.
+- You ever use the `bathroom` in kennedy?
+- Everyone graffitis the `bathroom` stall.
+- I have an eye on his private `bathroom`.
+- I have to go to the `bathroom`, cynthia.
+- She smiles and looks for the `bathroom`.
+- They tried to kill me in the `bathroom`!
+- You didn't just smash up the `bathroom`?
+- I guess this isn't the `bathroom`, is it?
+- I was in the `bathroom` when it happened.
+- The one who got caught in the `bathroom`.
+- Claude, mind helping me to the `bathroom`?
+- Deal drugs in the `bathroom`-- it's a bar.
+- Is it all right if i go to the `bathroom`?
+- <u>you</u> know...where's your `bathroom`?
+- We didn't just have sex in the `bathroom`?
+- Christ... where the hell is the `bathroom`?
+- Hey, here's thought, have you a `bathroom`?
+- I'm gonna run to the `bathroom` real quick.
+- It's simple, you just go to the `bathroom`.
+- Maybe he's just looking for the `bathroom`.
+- May i use your `bathroom` to wash up a bit?
+- You can look in the `bathroom` if you want.
+- Listen dewey i have to go to the `bathroom`.
+- What's the difference... use the `bathroom`.
+- Did you take a look at the `bathroom` window?
+- The monitor says that he's in the `bathroom`.
+- There's a big black spider in the `bathroom`.
+- Listen carefully ... you're in the `bathroom`.
+                 

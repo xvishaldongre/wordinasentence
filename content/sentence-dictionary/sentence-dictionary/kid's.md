@@ -1,0 +1,56 @@
+---
+title: "kid's in a sentence | kid's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kid's"
+---
+- The `kid's` got talent.
+- The `kid's` with them!!
+- That's the `kid's` name?
+- The `kid's` a hop jockey.
+- The `kid's` dying anyway.
+- The `kid's` shootin at us?
+- The `kid's` sorry, auggie.
+- It's the `kid's` lucky day.
+- The `kid's` clean, captain.
+- This `kid's` special, sean.
+- There was this `kid's` room.
+- The `kid's` really blossomed.
+- Your `kid's` in the back here.
+- The `kid's` full of shit, hear?
+- Why, this `kid's` got a record.
+- But i ain't that `kid's` father.
+- It was a `kid's` drawing, joyce.
+- At least the `kid's` getting out.
+- But the poor `kid's` going crazy.
+- That `kid's` the great white hope.
+- The `kid's` practically in a coma.
+- In the harrington `kid's` backyard.
+- `kid's` a bit of a stick, isn't he?
+- That `kid's` name was jim marshall.
+- The `kid's` half crazy with anxiety.
+- Girl: that `kid's` driving me crazy.
+- How do you know it was a `kid's` room?
+- Some `kid's` banging toy cars together.
+- Yeah, but the `kid's` seen more movies.
+- I think this `kid's` entitled to a break.
+- That `kid's` already spent all the money!
+- Looks like your `kid's` full of shit, doc.
+- My `kid's` got a big future with the jazz.
+- That buddhist `kid's` a really good person.
+- It's like they know what every `kid's` doing.
+- You know the `kid's` a little crazy sometimes.
+- For crying out loud, a `kid's` driving the car?!
+- So why would you think it was a `kid's` room, then?
+- I can't kill this `kid's` father... let go of the belt!
+- Then, when he needs you, that `kid's` driving me crazy.
+- You need a bigger place - this is like a little `kid's` room.
+- You've got a firecracker here, the `kid's` really set the table.
+- You were thinking: 'that's no cap gun in that `kid's` overcoat.'
+- If this coulda been avoided, i'll put that `kid's` ass in a sling.
+- The `kid's` still got, oh, 96 to 97 thousand, depending on the options.
+- That `kid's` name was moe greene, and the city he invented was las vegas.
+- I figured we had enough problems without monitoring a berkeley `kid's` class schedule.
+- What do you expect, from the guy who stole a `kid's` bicycle when his truck broke down?
+- This `kid's` ready but we won't know all the damage till we get in and see what's happened.
+                 

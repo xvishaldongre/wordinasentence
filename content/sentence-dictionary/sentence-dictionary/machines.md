@@ -1,0 +1,62 @@
+---
+title: "machines in a sentence | machines example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "machines"
+---
+- It was the `machines`.
+- These `machines` are hidden.
+- Check the vending `machines`!
+- These are our best `machines`.
+- Does it work on cash `machines`?
+- `Machines` don't fix themselves.
+- It can't form complex `machines`.
+- Do you do washing `machines`, too?
+- Abominable things these `machines`.
+- I mean, you know, about `machines`.
+- `Machines` the size of molecules...
+- Why didn't you pull the `machines`?
+- These `machines` -- they're in here.
+- Then cathedrals... adding `machines`.
+- Many `machines` on ix... new `machines`.
+- Look, i... `machines` do not eat message.
+- Loose `machines` are right back over there.
+- Don�t they have a limit at those `machines`?
+- To work the `machines` and build the tunnels.
+- The `machines` out there, that fly and that roar!
+- On three `machines` in a row, it's in the billions.
+- I guess they don't have fax `machines` on elephants.
+- In those days there weren't these modern `machines`.
+- It's the only weapon we have against the `machines`.
+- It's mostly farming stuff, `machines` and trade goods.
+- I want to see the injured man out wit the `machines` !
+- Thought perhaps there'd be dispensing `machines`, you know.
+- Computers are just `machines` after all, they can't think...
+- The `machines` at hess farm where... we are in her backyard.
+- And i saw a bunch of lights and `machines` and shit in there.
+- He retired to florida... made a killing in vending `machines`.
+- Somebody once said that man makes `machines` in his own image.
+- The `machines` were expendable, safe to say skaikru's screwed.
+- You know i've got this gift for certain kinds of... `machines`.
+- The doctors say the `machines` should keep him going a long time.
+- Okay, so is that because of the `machines` that you're working on?
+- A singular consciousness that spawned an entire race of `machines`.
+- But these...`machines` are what's keeping him alive, is that right?
+- Perhaps one day `machines` will be better just slow down, all right?
+- There's a rumor you've been going around miscalibrating the `machines`.
+- Let's go back to what you were saying about these terminator `machines`.
+- We fight with ingenious `machines` and fire, like gods, and for nothing.
+- Don't let him catch you behind the `machines`; if he does, you're trapped.
+- `Machines` can be helpful sometimes, but they can also be a pain in the ass.
+- Supposed to be getting some giant x- ray `machines` to run the trucks through.
+- It moves to... that means i'm in charge of the `machines` it doesn't look good.
+- The bank has an expensive security system; metal detectors and x-ray `machines`.
+- That explains why communication is cut the moment their `machines` begin to move.
+- The upshot is i've had to eat shit and stop flogging my `machines` to other clubs.
+- ♪ because when they win at pebble beach ♪ the `machines` are already here, nothing.
+- Oh we got our sources... tearing the heads off... what was it... gumball `machines`?
+- Change the `machines` around, whatever you do, you could make other things, couldn't you?
+- I play the violin... and my chess routines are quite advanced... do `machines` ever play?
+- I can't live like you do -- all your `machines` and -- cold metal and sharp corners -- no.
+- ...when you work with clients on `machines`, do they sometimes just jump up a level or two?
+                 

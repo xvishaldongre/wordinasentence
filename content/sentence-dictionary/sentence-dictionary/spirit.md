@@ -1,0 +1,107 @@
+---
+title: "spirit in a sentence | spirit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spirit"
+---
+- It's in your `spirit`.
+- Are you a `spirit` too?
+- Body-soul and `spirit`.
+- ...if only in `spirit`.
+- She has a real `spirit`.
+- 'and with your `spirit`.'
+- My `spirit` will live on.
+- `Spirit` and guts, chief.
+- Faithful in `spirit`, yes.
+- I don't want her `spirit`!
+- There's the `spirit`, lad.
+- When the `spirit` moves me.
+- `Spirit` and guts, remember?
+- Church what about...`spirit`?
+- In `spirit` only, i'm afraid.
+- Smells like teenage `spirit`.
+- <u>that's</u> the `spirit`...
+- Vera was an amazing `spirit`.
+- If heda's `spirit` chooses me.
+- My husband `spirit` come back?
+- Oh, yeah, that's the `spirit`.
+- May her `spirit` choose wisely.
+- His `spirit` shall live eternal.
+- The `spirit` lives in the blood.
+- Us and your... `spirit` friends.
+- She always had such `spirit`!
+- Just a very enlightened `spirit`.
+- Sing and your `spirit` will soar!
+- Your `spirit` shall live eternal.
+- Do you know of `spirit` assassins?
+- I will never be a lonely `spirit`.
+- It's the `spirit` of the commander.
+- That's the `spirit` -- fifty-fifty.
+- They gave us the fighting `spirit`.
+- Now his `spirit` is in the dirt.
+- My `spirit` will choose its successor.
+- A girl of some `spirit`, your daughter.
+- Come on, where's your pioneer `spirit`?
+- Strength of `spirit` like that is rare.
+- A warrior `spirit` needs a warrior body.
+- But you broke the `spirit` of the rules.
+- Only the `spirit`, the illusion remains.
+- Why waste your `spirit` on such rubbish?
+- Those are the words of a broken `spirit`.
+- Your melancholy `spirit` of this century!
+- Her `spirit` has chosen you to become agh!
+- The unquiet `spirit` must be laid to rest.
+- I told you my `spirit` would choose wisely.
+- See you at the independent `spirit` awards.
+- The commander's `spirit` must be passed on.
+- I'm being filled with the `spirit` of jesus.
+- Let thy `spirit` you know what we're saying!
+- Lexa's `spirit` would never choose earn this.
+- Lexa's `spirit` would never choose that's it!
+- Or even `spirit` messages from the next world.
+- He will be the vessel for the `spirit` of vigo.
+- My `spirit` will choose its successor, awesome.
+- ...to get into the `spirit` of the proceedings.
+- Without the wisdom of the commander's `spirit`.
+- I'm talking to the `spirit` of jethro macdonald.
+- Like isadora duncan.... a wild pagan `spirit`...
+- "smells like teen `spirit`," nirvana, nevermind.
+- Commie bastards sure know how to make a `spirit`.
+- I knew when i married her she was a free `spirit`.
+- I was attempting to get in the `spirit` of things.
+- We wish to commune with the `spirit` of mrs. feur.
+- It is the perfect union of mind, body and `spirit`.
+- Then perhaps the `spirit` hasn't chosen, after all.
+- I'm testing a new `spirit` gum, to see how it holds.
+- But you've just taken care of the `spirit` all right.
+- Ivo shandor, i saw his name in tobin's `spirit` guide.
+- Maybe they'll help you get the `spirit` of this place.
+- And give place to the holy `spirit`, the `spirit` of god.
+- Never mind the condition of your body and your `spirit`!
+- No -- that is a power reserved to the almighty `spirit`.
+- Ooh, you two have gotten into the thanksgiving `spirit`.
+- [hatch opens] i told you my `spirit` would choose wisely.
+- She be a water `spirit`, lives in a bog down at sea-side.
+- Yes, yes, there is an upside to having a broken `spirit`.
+- You here again like an evil `spirit` to mar my happiness?
+- Her `spirit` has chosen you to become i hope you're right.
+- How in the workplace, if the `spirit` of the commander uh!
+- They took my body, but my `spirit`... they left that here.
+- In the `spirit` of friendship and harmony, that's why i hid.
+- It's not the structure but the `spirit` which dwells within.
+- Oh, man, the `spirit` of the striding man is to keep moving.
+- Letting you pull me into bed whenever the `spirit` moved you.
+- I don't think you're getting in the `spirit` of things, janet.
+- In the `spirit` of the season, i'm going to give you a chance.
+- Let thy `spirit` let thy soul be healed you know, i just might!
+- Peace - the dignity of man - the destiny of the human `spirit`!
+- But underneath the elegant surface, was an adventurous `spirit`.
+- There's a force, you see -- a `spirit` that exists in our blood.
+- You and this old indian rag-man-- `spirit` of the north country.
+- Nothing makes the great `spirit` laugh harder than a man's plans.
+- Which means there's still a demonic `spirit` present in his body.
+- Some crazy jesus freak, gonna fuck the `spirit` into me... no ma'am.
+- All you've done is try to break my `spirit`, try to turn me into you!
+- I needed to learn my `spirit` will choose much more wisely than that.
+- Well, i should hope not... you haven't dampened my `spirit`, samia...
+                 

@@ -1,0 +1,107 @@
+---
+title: "cannot in a sentence | cannot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cannot"
+---
+- I `cannot` be certain.
+- I `cannot` believe it!
+- I `cannot` tell a lie.
+- This `cannot` be good.
+- This `cannot` be true.
+- You `cannot` be armed.
+- You `cannot` go alone.
+- You `cannot` say that!
+- I `cannot` go with you.
+- I `cannot` involve you.
+- You `cannot` know that!
+- You `cannot` stop time.
+- For he `cannot` be free.
+- I `cannot` believe this.
+- I `cannot` betray louis.
+- Sing because i `cannot`.
+- You `cannot` understand.
+- I `cannot` be late again.
+- I `cannot` do that again.
+- I `cannot` do that alone.
+- I `cannot` override them.
+- I `cannot` stop the sand.
+- No, no, this `cannot` be.
+- That i `cannot` tell you.
+- You `cannot` break it.
+- But we `cannot` be killed.
+- ...`cannot` go on the air.
+- I `cannot` get rid of you.
+- The word we `cannot` hear!
+- You `cannot` hide from me.
+- You `cannot` marry wessex!
+- I `cannot` go with you.
+- A thing that `cannot` wait?
+- Excalibur `cannot` be lost.
+- I `cannot` betray my bride.
+- I `cannot` let anyone pass.
+- One `cannot` love and kill.
+- There we `cannot` help you.
+- They `cannot` make it true.
+- You `cannot` kill them all.
+- You `cannot` track that.
+- But you `cannot` control it.
+- He `cannot` possibly escape.
+- I `cannot` promise you that.
+- I `cannot` repeat it to you.
+- The child `cannot` harm you.
+- We `cannot` let her stop us.
+- You `cannot` be real, conor.
+- I'm afraid i `cannot` assist.
+- She `cannot` possibly refuse.
+- They `cannot` save you, jane.
+- This bridge `cannot` be held.
+- We `cannot` let him get away.
+- You `cannot` fight all of us.
+- You see, i `cannot` find him.
+- But you `cannot` take revenge.
+- Death `cannot` stop true love.
+- I `cannot` be other than i am.
+- I `cannot` leave these people.
+- I `cannot` remember what from.
+- You `cannot` fool the murman.]
+- Because you `cannot` lie to me.
+- Even i `cannot` see their fate.
+- He will look where we `cannot`.
+- I am afraid i `cannot` do that.
+- I `cannot` help but be touched.
+- This press we `cannot` control.
+- We `cannot` go into this later.
+- Yet `cannot` love nor write it.
+- You `cannot` blame me for this.
+- Bavmorda `cannot` transform you.
+- I `cannot` let her be destroyed.
+- The university `cannot` do this.
+- We `cannot` break free, captain.
+- You `cannot` hide forever, luke.
+- You `cannot` trust these people.
+- But you `cannot` read experience.
+- Dearly as i love you, i `cannot`.
+- I `cannot` stop this without you.
+- Misery chastain `cannot` be dead!
+- You `cannot` escape your destiny.
+- You `cannot` walk away from this.
+- I `cannot` keep both promises.
+- I `cannot` believe i'm doing this.
+- I `cannot` go with you, my friend.
+- Michelle `cannot` possibly accept!
+- My dear, you `cannot` be a sultan.
+- No, one `cannot` simply ignore it.
+- Raoul, no... you `cannot` do this.
+- We `cannot` defeat this -- peace?!
+- You `cannot` go back to the hotel.
+- No... no, please... you `cannot`...
+- You `cannot` stay here...i'm sorry.
+- I `cannot` stress this point enough.
+- I `cannot` teach her to have a soul.
+- I `cannot` tell you a goddamned lie.
+- People in masks `cannot` be trusted.
+- The secret i carry i `cannot` share.
+- This `cannot` be a war of manoeuvre.
+- We `cannot` look after them anymore.
+                 

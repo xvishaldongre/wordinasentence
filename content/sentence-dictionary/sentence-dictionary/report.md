@@ -1,0 +1,107 @@
+---
+title: "report in a sentence | report example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "report"
+---
+- I mean to `report` it.
+- `Report` to base camp.
+- `Report` to main gate.
+- The `report`'s a joke.
+- But you `report` to me.
+- Damage `report`, spock?
+- He will `report` to me.
+- I got my `report` card.
+- I have a book `report`.
+- I oughtta `report` you.
+- It was for my `report`.
+- I wouldn't `report` it.
+- Damage `report`, ensign.
+- Give me a full `report`.
+- `Report` back to me, ok?
+- `Report` to major byrne.
+- They called to `report`.
+- What about the `report`?
+- With a special `report`.
+- You typed this `report`?
+- About your `report` here.
+- I need that `report`, lt.
+- Status `report`, admiral!
+- The `report` king bought.
+- Do they have the `report`?
+- I said `report`, mccreary.
+- `Report` to the main gate.
+- Spock: condition `report`!
+- How's your `report` coming?
+- I'll make a `report` later.
+- I wanna `report` a robbery!
+- I will offer that `report`.
+- ... side and `report` back.
+- What was the last `report`?
+- About the minority `report`?
+- Can i get a status `report`?
+- He's in the warren `report`.
+- `Report` on the case so far.
+- Then who wrote the `report`?
+- Then you `report` back here.
+- They `report` it to the irs.
+- We are preparing a `report`.
+- What is the damage `report`?
+- Yeah, i read the `report`...
+- After torpedo room: `report`!
+- Didn't you read the `report`?
+- I'll `report` to the skipper.
+- I'm not going to `report` it.
+- Look around, make a `report`.
+- Some seaman's loast `report`.
+- What do you have to `report`?
+- You ought to file a `report`.
+- File a missing drugs `report`?
+- I'd better go `report` this...
+- I mentioned it in my `report`.
+- I read the probation `report`.
+- It should all in the `report`.
+- My name goes on that `report`.
+- South foxhole, `report` now.
+- Anything good to `report`, doc?
+- Check it out and `report` back.
+- I better go `report` this in...
+- I just read your `report` card.
+- I'll `report` it to the driver.
+- Same `report` milholland heard.
+- You `report` it to the factory.
+- The `report` is accurate...?
+- I have to `report` to mr warren.
+- I'm not sure what's -- `report`.
+- Just find the minority `report`.
+- There must be a police `report`.
+- The `report` is entirely untrue.
+- Trying to write our `report`....
+- All security personnel, `report`.
+- Have him `report` to the skipper.
+- I am making out the `report` now.
+- I got to write my `report` first.
+- It is my duty...to `report` this.
+- It looks very bad on my `report`.
+- Don't worry, i won't `report` you!
+- `Report` to the sergeant- at-arms.
+- That's what my `report` will read.
+- The `report` says 'recent origin'.
+- Did you ever `report` it to anyone?
+- Did you make that `report` out yet?
+- I looked at the coroner's `report`.
+- What about the ballistics `report`?
+- What do you think of that `report`?
+- Anything to `report`, miss kendall?
+- He gives a good `report` and i walk?
+- If she farts i want a full `report`.
+- I'm supposed to `report` in to them.
+- Leave her out of your `report` what?
+- This anonymous `report` was sent me.
+- We got a `report` from the hospital.
+- You'll `report` me for drug evasion.
+- Did you get a `report` from the m.e.?
+- I'd like to get me a smokey `report`?
+- I'm putting that in my next `report`.
+- I've got what i need for my `report`.
+                 

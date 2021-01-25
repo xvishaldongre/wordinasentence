@@ -1,0 +1,107 @@
+---
+title: "prove in a sentence | prove example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prove"
+---
+- I'll `prove` my story!
+- I'll `prove` it to you!
+- I'll `prove` it to you.
+- I've got to `prove` it.
+- Then `prove` her wrong.
+- What does that `prove`?
+- What does this `prove`?
+- What will this `prove`?
+- We can `prove` that.
+- He said he'd `prove` it.
+- I can `prove` it to you.
+- I said i can `prove` it.
+- I'm gonna `prove` it.
+- But you can't `prove` it!
+- I hope he can `prove` it.
+- I'm trying to `prove` it.
+- I will `prove` it to you.
+- They couldn't `prove` it.
+- We gonna `prove` that.
+- He can't `prove` anything.
+- Let 'em `prove` something.
+- You can't `prove` a rumor.
+- It would `prove` your case.
+- We can't `prove` he did it.
+- We just have to `prove` it.
+- You can't `prove` anything.
+- You'd love to `prove` that.
+- You'll get to `prove` that.
+- Can you `prove` any of this?
+- Hence i'll `prove` my point.
+- But what does *that* `prove`?
+- Just to `prove` you're right?
+- Only one way to `prove` that.
+- `Prove` himself to the tribe.
+- She may `prove` to be a risk.
+- To `prove` he wasn't chicken.
+- What have you got to `prove`?
+- With the paper to `prove` it.
+- What is she trying to `prove`?
+- What're you trying to `prove`?
+- You can't `prove` it, can you?
+- Nothing that i can `prove` yet.
+- What are you trying to `prove`?
+- And i can't `prove` any of this.
+- He can't `prove` anything, john.
+- I believe in what i can `prove`.
+- `Prove` it... stand on one foot.
+- This won't `prove` a damn thing.
+- We don't need it to `prove` out.
+- What are you trying to `prove`!?
+- What the fuck does that `prove`?
+- Who's going to `prove` me wrong?
+- You can't `prove` any of this...
+- Do you have something to `prove`?
+- Go out and `prove` it against me!
+- My gosh, do i have to `prove` it?
+- We've got the tape to `prove` it.
+- You still had to `prove` yourself.
+- Come on up, i'll `prove` it to you.
+- Does this `prove` something to you?
+- I'm not trying to `prove` anything.
+- You don't have to `prove` anything.
+- He wanted to `prove` you were right.
+- I don't have to `prove` shit to you.
+- We need to `prove` we're not afraid.
+- You have nothing to `prove` anymore.
+- Don't `prove` there was two lanterns.
+- He's trying to `prove` his innocence.
+- Let me `prove` to you what we can do.
+- We're gonna `prove` 'em wrong, right?
+- You needed to `prove` your point, uh?
+- For everything we've done, `prove` it.
+- There's only one way i can `prove` it.
+- Stick to what you can `prove` in court.
+- So you fucked around to `prove` a point!
+- That was an exercise to `prove` a point.
+- Why'd you come up, to `prove` something?
+- Of course, you can `prove` all of it.
+- You'll have the chance to `prove` it.
+- Maybe some of that is true -- `prove` it.
+- Then we let them `prove` they deserve it.
+- What if i could `prove` it to you, satch?
+- Yeah and i got the bruises to `prove` it.
+- Oh, doesn't that `prove` something to you?
+- Though i have no way to `prove` otherwise.
+- We can `prove` that you're not ray dunbar.
+- You don't have to `prove` anything to her.
+- But that doesn't `prove` that he's the one!
+- I assume you can `prove` that if necessary.
+- I don't know what you're trying to `prove`.
+- I have to `prove` that earth is survivable.
+- We kill them, take their suits, `prove` it.
+- Even got the label on my neck to `prove` it.
+- It won't hold, ronnie, it won't `prove` out.
+- Right now i'm going to `prove` it to you.
+- Just to `prove` he's better than all of them.
+- Then why are you afraid to let me `prove` it?
+- Byrne... you wanted to `prove` there's no god.
+- Ellen, what are you trying to `prove`, anyway?
+- I can't `prove` it but we both know it's true.
+                 

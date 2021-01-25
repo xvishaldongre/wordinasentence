@@ -1,0 +1,94 @@
+---
+title: "wound in a sentence | wound example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wound"
+---
+- I dressed the `wound`.
+- The `wound` is mortal.
+- Carole, you `wound` me!
+- You done `wound` me up!
+- I would not `wound` you.
+- That's a bullet `wound`.
+- The `wound` is bleeding!
+- I `wound` up in here.
+- God, my original `wound`.
+- Hold this to the `wound`.
+- I'm cleaning the `wound`.
+- My scar is a war-`wound`.
+- You couldn't `wound` him?
+- A gunshot `wound`... sure.
+- It's only a flesh `wound`.
+- You have a `wound`, eleven.
+- You `wound` up at moe's.
+- I don't see an entry `wound`.
+- There was no visible `wound`?
+- He recovered from his `wound`.
+- She sounded pretty `wound` up.
+- Sometimes a `wound` will kill.
+- At that `wound` in the morning.
+- I mean, what about the `wound`?
+- An old war `wound` or something.
+- It looked like an arrow `wound`.
+- `Wound`'s a through-and-through.
+- You're `wound` too tight, mills.
+- The `wound` is healed, - shut up.
+- Through a `wound` on his stomach?
+- Tis not the `wound`, that's sure.
+- Would you like to see my `wound`?
+- Hasn't merlin mended your `wound`?
+- How bad was the unicorn's `wound`?
+- There's a poultice on his `wound`.
+- `Wound` up in a juvenile facility.
+- You uncover the `wound`, all right?
+- Pulls wade's hands from the `wound`.
+- But that's not how things `wound` up.
+- But we need to cauterize the `wound`.
+- I `wound` up hanging out with vector.
+- The grounders cauterized the `wound`.
+- You `wound` the crank all day long.
+- I'm drawing bad blood from the `wound`.
+- Tom-tom's puncture `wound` is infected.
+- Would you like to see the exit `wound`?
+- Do you have anything to cover the `wound`?
+- Or "tightly `wound`," that was another one.
+- Well, maybe because it is an arrow `wound`.
+- He jests at scars that never felt a `wound`.
+- I still need something to close the `wound`.
+- It is the old `wound`, that has been opened.
+- You have a `wound`, eleven, a terrible `wound`.
+- You ran off, you `wound` up here, is that it?
+- I `wound` up staying for a couple of hours.
+- I promise you, there's a poultice on his `wound`.
+- You'd have `wound` up a senior citizen of boston.
+- But from what i hear, most of them are `wound` up.
+- She `wound` up doing about six months at camp nine.
+- After a rough fight, ya' nothin' but a large `wound`.
+- Carried diphtheria bacilli in the `wound` until 1920.
+- Elena, you're just getting `wound` up to get `wound` up.
+- So the `wound` and the shell give you the same answer.
+- But i just threw them up and `wound` up in the hospital.
+- You would be also, if your `wound` had not somehow shut.
+- You said entrance `wound` in the forehead, no exit `wound`.
+- I'm finally good at something help me with a knife `wound`?
+- To think your bones might have `wound` up in the reliquary.
+- The `wound` all fused, cauterized... what the hell did this?
+- You weren't there, when the coroner examined the `wound`.
+- ♪ that i ever had ♪ she needs to put pressure on her `wound`.
+- You've got the radiation burns, i've got the gunshot `wound`.
+- The kids brought it in with a puncture `wound` in the abdomen.
+- Conklin had these guys `wound` so tight they were bound to snap.
+- I'll need you to quickly bandage the `wound` this place is dead.
+- It's just that the french guy had a gunshot `wound` on his neck.
+- I was so `wound` up about gino, she was trying to help me relax.
+- Guy came in with a gunshot `wound`, but he died of a heart attack.
+- To the best of your recollection, where did the open `wound` fall?
+- Once the `wound` healed up... got out of the mountain this morning.
+- Anyway, about ten months ago, i `wound` up in jerome, workin' for darlene.
+- There's no way - no natural way - these could've `wound` up in the bodies?
+- Why did colonel finck not dissect the track of the bullet `wound` in the neck?
+- If the crone's `wound` bled hard, that means she was not killed by the hessian.
+- I swear to g-d, i married this big time drug dealer and `wound` up with the maid.
+- Miss simpson, was that an f sharp if there is any fluid leaking from the `wound`.
+- Instead of pushing lang through time, you might've `wound` up pushing time through lang.
+                 

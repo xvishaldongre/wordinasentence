@@ -1,0 +1,7 @@
+---
+title: "softest in a sentence | softest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "softest"
+---
+## Unfortunately, we have no example sentences for softest                 

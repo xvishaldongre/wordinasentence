@@ -1,0 +1,107 @@
+---
+title: "hole in a sentence | hole example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hole"
+---
+- Good boy, port `hole`.
+- A giant fishing `hole`.
+- Cut it out butt-`hole`!
+- Flip six, three `hole`.
+- He's not in the `hole`.
+- I'll get in the `hole`.
+- That's a bullet `hole`.
+- I found a square `hole`!
+- I mean your `hole` card.
+- Shut your gibber-`hole`.
+- Make a `hole`, billy-boy.
+- Shut your `hole`, slutnik.
+- Su casa y shit-o `hole`-o.
+- Then the `hole` begins.
+- Just going down the `hole`.
+- Shut your bleedin' `hole`!!!
+- Shut your pie `hole`, jimmy.
+- You'll be out of the `hole`.
+- You're my ace in the `hole`.
+- Your `hole` is healed, then?
+- Dig out this `hole` a little.
+- It had a `hole` in the floor.
+- They wanna `hole` up in here?
+- This place was a shit-`hole`.
+- We'd be in the `hole` by now.
+- It goes in that little `hole`.
+- There's a `hole` in her glove.
+- I want out of this hell `hole`!
+- We are part of a larger `hole`.
+- Why were you digging the `hole`?
+- You have a `hole` in your chest.
+- If we say mole, you dig a `hole`.
+- It's eating a `hole` in the floor!
+- This puts me in a peculiar `hole`.
+- Can you see anything in the `hole`?
+- Good, the fox is out of her `hole`.
+- You dig that rat out of the `hole`?
+- I'm off to a little watering `hole`.
+- It's burning a `hole` in my stomach.
+- Shut your filthy `hole`, you scum!!!
+- A week in the `hole` is like a year.
+- He shot a `hole` in the damn ceiling.
+- Mark 20 into the black `hole`, areao.
+- Promise me you'll stay in the `hole`.
+- So remember, only 3 seeds per `hole`.
+- The police blew a `hole` in his head.
+- There'd never be a `hole` big enough.
+- We dug a `hole` and we put her in it.
+- Figured it's just another hell `hole`.
+- Let me stick this in the black `hole`.
+- But i do kinda feel like an ass-`hole`.
+- But, uh, i lost the pick in the `hole`.
+- I don't know, an acid `hole` in a duct.
+- It's not filling the `hole` inside you.
+- Right off he'll `hole` up at the ranch.
+- Somebody's poisoned the water `hole`...
+- There's one major `hole` in your story.
+- This is where the chief dug his `hole`.
+- We know it went through a black `hole`.
+- You mind punching a `hole` in the floor?
+- You're listening to a `hole` in the sky.
+- You will not make it back to the `hole`.
+- A black `hole` of sadness and split ends.
+- Rodriguez's `hole` just got... over here!
+- They didn't know what a black `hole` was.
+- No such thing as easy time in the `hole`.
+- There's still this big `hole` in my brain.
+- So i'm an "arrrrrs-`hole`", eh captain rob?
+- The happy girl put the thing in the `hole`!
+- Told you to stay away from this hell `hole`!
+- What are you doing in this shit-`hole` town?
+- You don't know me from a `hole` in the wall.
+- You picked a bad house to `hole` up in, son.
+- You're going to wear a `hole` in the carpet.
+- Being stuck in this rat-`hole` when it blows.
+- You just earned yourself a day in the `hole`.
+- She had a... a `hole` in the palm of her hand!
+- That crack is burning a `hole` in your pocket.
+- ...before i bust your `hole` with my boot heel!
+- Where's the bastard that runs this shit `hole`?
+- Whoa, you better cut a bigger `hole` than that.
+- Let's get out of this funk `hole` can't you see?
+- Just your random bad cheese trying to `hole` you.
+- Looks like we're in a dead heat after one `hole`.
+- Pull your friends into the black `hole` with you.
+- Your black `hole` damn near ripped my ship apart.
+- Joe falls back with a neat red `hole` in his head.
+- Oh, he's going to leave a `hole` in the community.
+- As we stand around a `hole` like a bunch of morons.
+- Does your mind truly fathom what a black `hole` is?
+- I bet it's burning a `hole` in your brain just now?
+- Uh... dill, um, face... um, uh, butt... um, `hole`.
+- We can go see `hole` and then we can get some `hole`.
+- It was in the cava and the `hole` sealed itself off.
+- Then you're only a hundred-forty-five in the `hole`.
+- Why don�t you get my half sister her seventh `hole`?
+- If i can find the goddam `hole` the milk squirts out.
+- Then you're only a hundred-forty- five in the `hole`.
+- We don't have time to look at a `hole` in the ground.
+- Who says you have to know the king to be in a `hole`?
+                 

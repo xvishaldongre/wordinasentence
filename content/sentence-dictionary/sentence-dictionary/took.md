@@ -1,0 +1,107 @@
+---
+title: "took in a sentence | took example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "took"
+---
+- Grounders `took` them.
+- He thinks i `took` it.
+- He `took` a huge risk.
+- He `took` me in and...
+- He `took` the day off.
+- He `took` your wallet?
+- I `took` a benzedrine.
+- I `took` doris's keys.
+- I `took` off on tisch.
+- It `took` a long time.
+- It `took` eight hours.
+- Laura just `took` off.
+- Never `took` a bullet.
+- She `took` everything!
+- Teresa `took` the job.
+- The friend `took` off.
+- The police `took` him.
+- They `took` his drive.
+- They `took` my wallet.
+- They `took` the flame.
+- They `took` the leads?
+- They `took` the tapes.
+- `Took` me three tries.
+- We `took` to the rock.
+- You `took` my workers.
+- Bitch `took` my wheels.
+- But we `took` the keys?
+- Clarke `took` the chip?
+- Clarke `took` the chip?
+- He `took` away my life.
+- His wife `took` a trip.
+- I `took` it out on you.
+- It `took` six stitches.
+- Me, i `took` a beating.
+- My wife `took` it well.
+- She `took` my key card.
+- Sir, i `took` the call.
+- They `took` miss swann.
+- `Took` away the choice.
+- `Took` her last breath.
+- `Took` him from school.
+- `Took` it this morning.
+- `Took` polaroids after.
+- `Took` you long enough.
+- We `took` care of that.
+- Whoever `took` it does.
+- You `took` the chalice.
+- Buckley `took` the body.
+- He `took` a guy hunting.
+- He `took` her to vormir.
+- He `took` it like a man.
+- He `took` me to the zoo.
+- I `took` away the blood.
+- I `took` care of it all.
+- I `took` sleeping pills.
+- I `took` the initiative.
+- I `took` the other road.
+- I `took` yours from you.
+- Just like it `took` bob.
+- Ouskejon `took` medical.
+- She `took` some clothes.
+- Somebody `took` it down.
+- They `took` him from me.
+- They `took` my daughter.
+- `Took` bus, most of way.
+- `Took` them long enough.
+- What `took` you so long?
+- You `took` off so quick.
+- You `took` this picture?
+- Anders `took` us outside.
+- I `took` off my coat.
+- Her friend `took` a hike.
+- He `took` derek's wallet!
+- He `took` me to the cell.
+- He `took` my fucking arm!
+- He `took` seven hostages.
+- He `took` them somewhere.
+- I finally `took` lessons.
+- It only `took` six years.
+- Like when they `took` me.
+- She `took` the night off.
+- So yeah, i `took` a look.
+- The firm `took` in sixty.
+- They `took` everything...
+- `Took` away their choice.
+- `Took` him under my wing.
+- `Took` his kids with her.
+- We just... `took` a walk.
+- We `took` his system out.
+- What `took` you so long?
+- What `took` you so long?!
+- They `took` that away.
+- But we `took` care of him.
+- But you `took` his orders.
+- He `took` off a while ago.
+- I `took` advantage of you?
+- I `took` off on corporate.
+- I `took` the early rounds.
+- I `took` the scenic route.
+- It `took` you long enough.
+                 

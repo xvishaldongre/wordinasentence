@@ -1,0 +1,107 @@
+---
+title: "agent in a sentence | agent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "agent"
+---
+- I called your `agent`.
+- I'm a `agent` as well.
+- Just from his `agent`.
+- Peter, i'm an `agent`.
+- Special `agent` gibbs.
+- Special `agent` jones.
+- This is `agent` kulok.
+- Who is her `agent`...?
+- `Agent` rodgers?...
+- It's `agent` mackelway.
+- Leo, you're my `agent`.
+- `Agent` came by the bar.
+- `Agent` desmond, it's...
+- `Agent` phillip raymond.
+- This is `agent` daniels.
+- What about your `agent`?
+- You're still my `agent`.
+- A secret service `agent`.
+- Wasn't i, `agent` mulder?
+- Your `agent` just called.
+- But why attack an `agent`?
+- [hello, `agent` mackelway.
+- I'm not just your `agent`.
+- I need to call my `agent`.
+- Thank you, `agent` carter.
+- This is `agent` mackelway.
+- We had our `agent` on you.
+- You are a federal `agent`.
+- Your `agent` called today!
+- `Agent` carruthers is dead!
+- Call every `agent` in town.
+- Come on in `agent` rodgers.
+- I'm a free `agent` tonight.
+- Special `agent` pendergast.
+- You tell me, `agent` kujan.
+- `Agent` daniels, come on in.
+- Oh that was `agent` wallace.
+- Spoken like a press `agent`.
+- Excuse me, `agent` mackelway?
+- This is `agent` james fujima.
+- Secret service `agent` carter.
+- That dea `agent` called again.
+- This is `agent` matheson, fbi.
+- I called that `agent` of yours.
+- Special `agent` gunther moonan.
+- That guy was a federal `agent`.
+- This is my press `agent`, joan.
+- We assaulted a federal `agent`.
+- Do you have an `agent`, stanley?
+- Like an `agent` with one client.
+- My name is special `agent` jones.
+- What kind of fbi `agent` are you?
+- Where's your head, `agent` kujan?
+- You mean that guy was an `agent`?
+- `Agent` myers is your new liaison.
+- I'm `agent` thomas mackelway, fbi.
+- Is that `agent` desmond's vehicle?
+- It was keyser soze, `agent` kujan.
+- Supervising special `agent`, harp.
+- Wait a minute, what other `agent`?
+- You know, i liked `agent` desmond.
+- Young lady, i'm a federal `agent`.
+- He said he was an american `agent`.
+- I'm not a field `agent`, all right?
+- No, you have a press `agent` do it.
+- The renting `agent` and the tailor.
+- This is `agent` david halpern, cia.
+- `Agent` hurley... not on him, chief.
+- `Agent` scully doesn't deserve this.
+- `Agent` woo will see you in an hour.
+- I'm no `agent`, secret or otherwise.
+- You feeling okay, `agent` mackelway?
+- I'm a british secret service `agent`.
+- That's got to our secret `agent` man!
+- Why don't you go to a travel `agent`?
+- Yeah, well, you should be my `agent`.
+- You are a travel `agent`, aren't you?
+- "you need a new real estate `agent`."
+- `Agent` kulok, could you wipe my face?
+- I want to help you, `agent` kujan.
+- Does this temple have a press `agent`?
+- Hot enough for you, `agent` mackelway?
+- I need to speak with an `agent` lowry.
+- It must be from a real estate `agent`.
+- This is `agent` johnson...no relation.
+- Ah, `agent` smecker, we have a problem.
+- I don't know what to tell you, `agent`.
+- I don't know what to tell you, `agent`.
+- I'm special `agent` johnson of the fbi.
+- Is that a pretty good job, fbi `agent`?
+- Maybe what you need is another `agent`.
+- Y'ever heard of a double `agent`, bill?
+- He'd have done anything for `agent` low.
+- They tell me you're an american `agent`.
+- You getting the signal, special `agent`?
+- I was a treasury `agent` for eight years.
+- They think i'm a crooked customs `agent`.
+- You can address me as `agent` kensington.
+- You got in the union, you got an `agent`.
+- Congratulations, field `agent` kensington!
+                 

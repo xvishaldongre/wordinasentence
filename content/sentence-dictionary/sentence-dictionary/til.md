@@ -1,0 +1,107 @@
+---
+title: "til in a sentence | til example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "til"
+---
+- Not `til` this is over.
+- Wait '`til` i'm across!
+- Never tried, '`til` now.
+- ``til` we get a better lead.
+- Let them stay '`til` morning.
+- Not '`til` right fucking now!
+- '`til` they pick up the perp.
+- Wait '`til` i get over there.
+- We're not going '`til` you go!
+- Gotta wait '`til` visitin' days.
+- Two minutes `til` krieger shows.
+- You never know `til` you try.
+- Please, paul, '`til` first light.
+- My dad won't be back `til` sunday.
+- Nothing `til` thursday, all right?
+- Wait '`til` i show it to bontecou.
+- I don't have to be home '`til` two.
+- ...it's not over, '`til` it's over.
+- Not '`til` we get what we came for.
+- But she won't be in '`til` tomorrow.
+- Can we leave this up '`til` we move?
+- He didn't leave '`til` i was twelve.
+- Hold out `til` after you're married.
+- You don't celebrate `til` it's over.
+- You waited `til` tonight to tell me?
+- I can hardly wait '`til` you're free.
+- We only got a few hours `til` dinner.
+- Gotta wait `til` the press conference.
+- We're not sitting here '`til` november.
+- He's got '`til` midnight tonight, nicky.
+- It's only '`til` you get out of here.
+- I'm not telling '`til` you straighten up.
+- I'm sorry, but can it wait `til` tonight?
+- So jimmy wasn't there `til` the next day.
+- At least '`til` we get back to the hummer.
+- I mean how long '`til` it stopped hurting?
+- Watch her `til` 8:00--i've got to edit.
+- I can't get out of here `til` mid- morning.
+- Next plane's not coming '`til` next monday.
+- Yessir, be here `til` ten tomorrow morning.
+- Excom's not supposed to convene `til` eight.
+- .....wait `til` you hear the speech tonight.
+- We don't light up '`til` the fat lady sings.
+- Lose one you run off the other `til` morning.
+- Can't you wait a few minutes '`til` i'm ready?
+- He won't give us your bags '`til` you pay him.
+- Better put it on hold '`til` we find pritchett.
+- It didn't go over '`til` i turned her starboard!
+- The war ain't over `til` i <u>say</u> it's over.
+- ...which means no one will get there '`til` ten.
+- Captain says to wait '`til` the patrol gits here.
+- Eighteen minutes... how long '`til` they reach us?
+- I never danced with anyone but her, `til` tonight.
+- Casey and steve didn't bite it `til` way after ten.
+- Fine, i'll fuck off, but not `til` i say something.
+- The gold stays where it is `til` we're ready to go.
+- '`til` he turns ta dust and blows away on the wind.
+- You want me to wait `til` you've quit the building?
+- No problem, just give us '`til` dawn and we're gone.
+- You'll never know '`til` you walk through that door!
+- Listen fellas, y'know he's got '`til` this week's end.
+- `Til` thursday, my darling, i shall count the minutes.
+- I'm relieved at 4:00 a.m. you're here '`til` what time?
+- Some action in london, '`til` it turned nickel and dime.
+- We've got to hold him somewhere '`til` the police -- no.
+- You don't get another swallow '`til` you really open up.
+- Then you're mine and mr. kennedy can wait '`til` morning.
+- About how long '`til` you heard the suspect's second shot?
+- But anyway, i called everyone in it `til` i found her son.
+- Well i do, i do '`til` it's fucking coming out of my ears.
+- Another month and we don't see 'em again '`til` next summer.
+- I'll need ten minutes, sir, '`til` the radiation dissipates.
+- I had to wait '`til` he moved on you before i could zero him.
+- Not '`til` you get about three hundred yards from the summit.
+- Then we woulda moved on '`til` the next local putz caught on.
+- You're in a public place, you'll be safe '`til` we get there.
+- Am i an old dog to lie in fronta the fire `til` my eyes close?
+- ...go on, go on... two o'clock, work the phones '`til` you go.
+- Now the expo runs all weekend so i won't be back `til` sunday.
+- Planned on going to sea, me and bob, '`til` i read jack london.
+- Do me a favor, arthur, keep him on `til` i see what's happening.
+- I slept `til` one-thirty, when my wife woke me up with the news.
+- It happened so fast no one knew what hit them '`til` is was over.
+- You've got to stay up there '`til` we get a break in the weather.
+- Alright, now, here: he stays on the ground in china `til` tomorrow.
+- Don't get sentimental now dad -- save it '`til` we get out of here.
+- We need it to <u>distract</u> them for two weeks `til` the election.
+- Are you going to be breathing down my neck right '`til` the very end?
+- I could've sat tight for the transport, '`til` bob came poking around.
+- Nothing, '`til` i find out if it's the gun julia wolf was killed with.
+- Unless he's dumber than i think, he won't wait '`til` his lease is up.
+- Follow the road straight through town '`til` it curves off on the left.
+- I figure '`til` we get settled we can just move around month to month...
+- ...with my added time for the escape, i don't get out now '`til` 1987...
+- It looks like we're stuck here '`til` morning -- let's make the best of it.
+- For richer, for poorer, in sickness and in health, '`til` death do they part.
+- The ice melts, she gets loose and floats around `til` somebody runs into her.
+- You go straight through town '`til` you see a little hotel on your left there.
+- Hell, i even thought i was dead `til` i found out it was just i was in nebraska.
+- You tol me you wuunt ask me again `til` i'm ready.... you want to get married...?
+                 

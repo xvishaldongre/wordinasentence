@@ -1,0 +1,52 @@
+---
+title: "Scotty in a sentence | Scotty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Scotty"
+---
+- Best speed, `scotty`...
+- `Scotty` here, captain.
+- With `scotty`'s help...
+- Good shooting, `scotty`.
+- No choice now, `scotty`!
+- `Scotty`, let's have it.
+- `Scotty`, don't prejudge.
+- Not good enough, `scotty`.
+- She's gonna kill `scotty`!
+- Easy, easy, easy, `scotty`.
+- How's it working, `scotty`?
+- Let's pay `scotty` a visit.
+- `Scotty`, get us out of here!
+- You'll work it out, `scotty`.
+- Delay that order, `scotty`...!
+- `Scotty`, how long is this bay?
+- ...how ya doin' there, `scotty`?
+- Keep your eyes peeled, `scotty`.
+- `Scotty`, can we make it inside?
+- `Scotty`, dear, he' not a madman.
+- You know, `scotty`, it amazes me.
+- So, `scotty` goes on house arrest.
+- Damn it, `scotty`, reduce yourself!
+- Your reputation is secure, `scotty`.
+- `Scotty`: are the whale tanks secure?
+- Jean and `scotty` never have to worry.
+- `Scotty`, is he gonna be all right?
+- Hey, i'm headed to the office, `scotty`.
+- `Scotty`, we have to find some humpbacks.
+- Great scott - `scotty` - dr everett scott.
+- `Scotty`, you sure you don't want a drink?
+- I know you'll whip her into shape, `scotty`.
+- I'm not going `scotty`, help me with this chute.
+- `Scotty`, help me pick richie up, and lay him down.
+- If mom's a psycho, `scotty` will still be ok, won't he?
+- 'cause when i first met `scotty`, he was in a bad place.
+- Because when i first met `scotty`, he was in a bad place.
+- I've moved into `scotty`'s... good news about t.j., though.
+- `Scotty`, is there any way dilithium can be re-crystallized?
+- Hey, i just gotta drive on to `scotty`'s, so he can fix the plans.
+- Engine room... `scotty`, do we have enough power for the transporters?
+- I can have auxiliary power in a few minutes -- `scotty` -- what's left?
+- Mr. chekov, stand by de-cloaking -- `scotty`, ready for power build up!
+- `Scotty`, i've got to ask: any chance of getting the mains back on the line?
+- Phasers locked... mr. sulu, lock phasers on target and await my command... `scotty`!
+                 

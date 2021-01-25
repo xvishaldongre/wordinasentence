@@ -1,0 +1,63 @@
+---
+title: "darkness in a sentence | darkness example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "darkness"
+---
+- The powers of `darkness`!
+- The prince of `darkness`.
+- Like, perpetual `darkness`.
+- Or the prince of `darkness`.
+- I am a creature of `darkness`.
+- There is `darkness` sucking me.
+- There is `darkness` sucking me.
+- You get used to the `darkness`.
+- I got enough `darkness`, don't i?
+- About the voice in the `darkness`.
+- Once you get used to the `darkness`.
+- You are the prince of the `darkness`.
+- Prolonged `darkness` makes people crazy.
+- We won't have the `darkness` to hide us.
+- But diyoza helped me past that `darkness`.
+- To me, `darkness` is as clear as daylight.
+- That there would be...a lasting `darkness`.
+- Which mariners called the sea of `darkness`.
+- It's kissing me and `darkness` is entering me.
+- Well, we can't go anywhere in this `darkness`.
+- You dare to challenge the power of `darkness`?
+- Angle - grange in the gallery -- in `darkness`.
+- "in the absence of light, `darkness` prevails."
+- Did i solicit thee from `darkness` to promote me?
+- I saw a flash, then `darkness` descended upon me.
+- You are in the `darkness`, but it's not your fault.
+- I'm in so much `darkness` though with things moving.
+- `Darkness`, and open water, and a fast cabin cruiser.
+- That `darkness` is part of their natural development.
+- It's what drives the `darkness` that makes you suffer.
+- The knights retreat | into the `darkness` of the cave.
+- That he's the `darkness` reaching out for the `darkness`.
+- Then like monsoon, it moves `darkness` over all country.
+- I know the `darkness` and cruelty of nature, sweetie pie.
+- Then you reach level 6, and that's the sea of `darkness`.
+- To defeat his rainbow of `darkness`, - it's all so close.
+- Did you stop and think that maybe infants need `darkness`?
+- So those in the `darkness` can see the power of the light.
+- It is better to light one candle than curse the `darkness`.
+- That which has been hidden in `darkness` is now in the light.
+- Or shall we begin when i was born to `darkness`, as i call it.
+- That epic forces of `darkness` and light that have come into play.
+- A shadow grows on the wall behind you, swallowing you in `darkness`.
+- I come from great `darkness` and deep peace but where do you come from?
+- The 1000 c infrared sensitive film must be handled in total `darkness`.
+- We reveal the `darkness` of our past... and i heard you made it, hannah.
+- He told you how he took you out of `darkness` and brought you to the light.
+- I hope you'll forgive the `darkness`... we're not comfortable in the light.
+- Now the world belongs to me... now begins two million years of `darkness`!!
+- And i allowed that, that `darkness` to rise... for his sake, i hope you can.
+- This will be the day that i.... pritchett, what is this "core of `darkness`"?
+- On this the day of `darkness`, she will be ours, wife to you and mother to me.
+- The forces of `darkness` have won the day ... but, tomorrow is another one what?
+- In the beginning there was `darkness`, and the `darkness` was without form and void.
+- Once again, mr. del toro stripped away the `darkness` so we're doing what he wants?
+- The princess of `darkness` would have you for her own to join us through extreme pain.
+                 

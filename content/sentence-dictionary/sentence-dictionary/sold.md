@@ -1,0 +1,107 @@
+---
+title: "sold in a sentence | sold example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sold"
+---
+- You `sold` me a lemon.
+- Man 1: `sold` for 1200.
+- You `sold` dad's ranch!
+- You `sold` my painting!
+- He uh, `sold` a picture.
+- Mueller `sold` it to me.
+- You `sold` the building.
+- God `sold` out to google.
+- I `sold` it this morning.
+- He `sold` me this bad boy.
+- `Sold` it to the mandarin.
+- `Sold` out for three days.
+- We shoulda `sold` tickets.
+- Dentonvale has been `sold`.
+- I thought you `sold` boats.
+- Nick -- you `sold` him out.
+- Probably `sold` her clothes.
+- You `sold` all of our stock?
+- I had `sold` my fucking soul.
+- I `sold` them to jerry graff.
+- `Sold` 'em all in three days.
+- You think they `sold` me out?
+- But we `sold` that right away.
+- You actually `sold` insurance!
+- Fletch, i never `sold` nothing.
+- I tell you this is half `sold`.
+- You `sold` eight mountain view?
+- You `sold` your soul, remember?
+- He has `sold` himself to vienna.
+- I `sold` my entire stash to him.
+- I think they're all `sold` out.
+- `Sold` to mr. stone, second row.
+- Those cocksuckers `sold` me out!
+- I had been `sold` to the english.
+- The guy just `sold` the property.
+- I `sold` all the wind instruments.
+- I `sold` the pee-wee herman doll!!
+- I don't want it `sold` to children.
+- Charles `sold` it all -- at auction.
+- He `sold` the feed to me, didn't he?
+- So you `sold` ninety thousand units.
+- We want ... everything `sold` as is.
+- How many books have you `sold`, gale?
+- The disk job `sold` you is worthless.
+- Fuck it, they `sold` us out - so what!
+- Her father had `sold` her for a camel.
+- Two million copies it `sold` last year.
+- He `sold` mr. fawcett a different brand.
+- ♪ he `sold` our home without telling me.
+- I hear your show was `sold` out already.
+- If luca `sold` out we're in real trouble.
+- He `sold` you $3,000 worth of scrub brush.
+- And it `sold` today in quite a bidding war.
+- Paulie `sold` out the old man, that strutz.
+- Since armitage `sold` them a program on it.
+- `Sold` in marriage and half way to america.
+- The man who `sold` the boy to your brother.
+- They'll say i `sold` out to the communists.
+- Well, i don't claim to have `sold` 'em all.
+- She'd have `sold` that thing for a dime bag.
+- You were his partner, and he `sold` you out.
+- I `sold` her house for them, made them money.
+- I've already pre�`sold` alabama and oklahoma.
+- Sarah so what happens when you've `sold` out?
+- `Sold` lady kenmores--it's nasty, nasty work.
+- If luca `sold` out, we're in a lot of trouble.
+- In this camp `sold` them out to the grounders.
+- I thought you never `sold` cigarettes to kids.
+- I'd gone to the movies, only it was `sold` out.
+- I don't know a recent saturday i've `sold` more.
+- My father `sold` it before they found oil on it.
+- `Sold` to mr. vandamm at 700. for your pleasure.
+- But what about the fact that he `sold` our house?
+- It wa your fault... you `sold` me a crummy watch.
+- Right after the government `sold` the expedition.
+- You've just `sold` me something that is no good."
+- They `sold` this lemon to the american public.
+- For it he `sold` ten thousand serfs in the market.
+- I just `sold` you five waterfront glengarry farms.
+- Oh god, my grandad's flat in london's been `sold`.
+- So i `sold` my story to <u>ramparts</u> and split.
+- But we believe that he `sold` himself to the devil.
+- I know someone who `sold` two of those tot tossers.
+- I'm building a new house, the old one's been `sold`.
+- No... no it's not horse, you see i `sold` the horse.
+- One of my associates `sold` the building last month.
+- Say, you're `sold` on the john doe idea, aren't you?
+- Bingo night was `sold` out for six months after that!
+- Every seat for the opening has been `sold` at vienna.
+- My buyers `sold` it to a guy who `sold` it to the army.
+- Next time it's `sold`, it'll be called something else.
+- Not until the last drugstore has `sold` its last pill!
+- So, del get that car he `sold` you up and running yet?
+- Felt like i couldn't've `sold` ice water in the sahara.
+- I `sold` me three of them so far, twenty grand a piece.
+- That ghost mask is `sold` at both kroger's and walmart.
+- She `sold` the business to me at least eight months ago.
+- Stuff that's `sold` under the counter, illegally... max.
+- `Sold` a jacuzzi to someone who came in to use the phone.
+- Not a single farm's been `sold` to the railroad since.
+                 

@@ -1,0 +1,107 @@
+---
+title: "jimmy in a sentence | jimmy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jimmy"
+---
+- But it's not, `jimmy`.
+- Go catch `jimmy`, ray.
+- How ya doin', `jimmy`.
+- `Jimmy`, stay with me.
+- Just tell me, `jimmy`!
+- Most likely `jimmy`'s.
+- Take it easy, `jimmy`.
+- What's wrong, `jimmy`?
+- You know her, `jimmy`?
+- Can't help it, `jimmy`.
+- I'm bell, `jimmy` bell.
+- Isn't that so, `jimmy`?
+- So go get 'em, `jimmy`!
+- Tis `jimmy` squarefoot.
+- Works for `jimmy` capp.
+- Don't "man" me, `jimmy`.
+- Do you know me, `jimmy`?
+- I am sorry, mr. `jimmy`.
+- I'm very sorry, `jimmy`.
+- `Jimmy` didn't kill leo.
+- No, `jimmy` has a point.
+- What you doing, `jimmy`?
+- Who the hell is `jimmy`?
+- Am i in trouble, `jimmy`?
+- Cuz `jimmy`'s gonna show.
+- Forget the deal, `jimmy`.
+- Most places are, `jimmy`.
+- Swear on `jimmy`'s grave.
+- We've got `jimmy` nailed.
+- What happened to `jimmy`?
+- He said `jimmy` will know.
+- I don't hate you, `jimmy`.
+- I want to talk to `jimmy`.
+- `Jimmy` didn't do it, ray.
+- `Jimmy`... it's beautiful!
+- `Jimmy`, you've got -- no.
+- Nice to meet you, `jimmy`.
+- Where am i to go, `jimmy`?
+- `Jimmy`'s in it, right?
+- Fuck `jimmy` and the money.
+- `Jimmy`, did you touch her?
+- `Jimmy`'s prints are there.
+- `Jimmy` squarefoot no lost.
+- Leo, `jimmy`... eagle bear.
+- `Jimmy`'s calling every day.
+- `Jimmy`, what are you doing?
+- Shut your pie hole, `jimmy`.
+- Tell me everything, `jimmy`.
+- The `jimmy` stewart picture?
+- They can lead us to `jimmy`.
+- You feeling bad for `jimmy`?
+- You're `jimmy` gator, right?
+- He dropped `jimmy` off first?
+- `Jimmy`, gimme another drink.
+- `Jimmy`, `jimmy`, `jimmy`, `jimmy`.
+- We'll have to check, `jimmy`.
+- What do you mean, `jimmy`?
+- I mean `jimmy` and everything.
+- Like ol' * `jimmy` down there.
+- You can call me `jimmy` again.
+- I'm in real deep shit, `jimmy`.
+- Why are we going here, `jimmy`?
+- How'd you do out there, `jimmy`?
+- Just before we caught `jimmy`...
+- My, oh my, `jimmy`, how gallant.
+- You're no good at this, `jimmy`.
+- Because i slipped `jimmy` a five.
+- But you're a friend of `jimmy`'s.
+- How are you feeling, mr. `jimmy`?
+- `Jimmy`'s father is on the phone.
+- Ain't that right, `jimmy` kissass?
+- Ask me to meet you again, `jimmy`.
+- I can't help you anymore, `jimmy`.
+- I know you're not calling `jimmy`.
+- I wonder if `jimmy`'s gotten back.
+- `Jimmy`'s bringing the car around.
+- Some other time `jimmy`, i'm beat.
+- Three grand on the black, `jimmy`.
+- We live simply, mr. `jimmy` and i.
+- Yes, `jimmy` was he the president?
+- You got a special friend, `jimmy`?
+- Don't get premature on me, `jimmy`.
+- Everyone calls me `jimmy` the finn.
+- Hey, `jimmy`, where they taking us?
+- So...what happened to you, `jimmy`?
+- `Jimmy`'s body died a long time ago.
+- So, `jimmy` still hasn't called yet?
+- What's the story on `jimmy` gardner?
+- You will take them all, mr. `jimmy`?
+- He's still looking, col. hi, `jimmy`.
+- Jesus `jimmy`, you at the alpha team.
+- So what do you want with me, `jimmy`?
+- I've got to keep you healthy, `jimmy`.
+- `Jimmy`, how's the - everything on it.
+- `Jimmy`'s partners think i set him up.
+- What was that she called you, `jimmy`?
+- Wants to know what happened to `jimmy`.
+- You'd like me better that way, `jimmy`?
+- `Jimmy`, where do you find these people?
+- At least `jimmy` and mickey want to help.
+                 

@@ -1,0 +1,107 @@
+---
+title: "personal in a sentence | personal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "personal"
+---
+- No `personal` details?
+- Business or `personal`?
+- His `personal` effects.
+- Some `personal` injury.
+- That sounds `personal`.
+- In your `personal` life?
+- It's a `personal` thing.
+- It's nothing `personal`.
+- It was never `personal`.
+- It was never `personal`.
+- Nothin' `personal`, huh?
+- Take a "`personal` day."
+- Don't take it `personal`.
+- It's a `personal` matter.
+- It's long and `personal`.
+- Nothing `personal` in it.
+- Nothing `personal` friend.
+- Don't make this `personal`.
+- It's not `personal`, sonny.
+- I think it's too `personal`.
+- It's `personal` property...!
+- Nothing `personal`, ya know?
+- `Personal` things, you know.
+- It's nothing `personal` data.
+- Maybe it's a `personal` pain.
+- `Personal` data transmitters.
+- "`personal` property to ana."
+- Some `personal` satisfaction?
+- About our-our `personal` life?
+- Hey, don't take it `personal`.
+- How is your -- `personal` life?
+- It couldn't be more `personal`.
+- My own `personal` jesus christ!
+- So you see, this is `personal`.
+- I didn't mean to get `personal`.
+- I have some `personal` business.
+- It can't be all that `personal`.
+- It's nothing `personal`, george.
+- It's nothing `personal`, though.
+- May i ask a `personal` question?
+- Nothing `personal` -- forget it.
+- Says his business is `personal`.
+- So what's your `personal` thing?
+- What kind of `personal` project?
+- You have no `personal` politics.
+- You mind some `personal` advice?
+- See, these're `personal` matters.
+- This is business, not `personal`.
+- But countess... purely `personal`.
+- Danger powers, `personal` effects.
+- It's much more `personal` in here.
+- It was for `personal` consumption.
+- That's a very `personal` question.
+- This has become `personal` to you.
+- Can i ask you something `personal`?
+- I'd consider it a `personal` favor.
+- You're taking this very `personal`.
+- Can i ask you a `personal` question?
+- Can i tell you something `personal`?
+- Kalmbach--nixon's `personal` lawyer.
+- May i ask you a `personal` question?
+- All i have is my `personal` feelings.
+- It's an extension of `personal` fear.
+- Mine's just a little more `personal`.
+- This is deeply, intensely `personal`.
+- Go through kristen's `personal` stuff.
+- I'm making this my `personal` mission.
+- Please may i say something `personal`?
+- Yeah, my own `personal` famous person.
+- You can't ask me `personal` questions.
+- His `personal` safe, he gave it a name.
+- How do we respond to `personal` attack?
+- Next, your new `personal` communicator.
+- When you said `personal`, how `personal`?
+- Can i let you in on a `personal` secret?
+- It's not `personal`, it's just survival.
+- He was rex rexroth's `personal` attorney.
+- I'll need something `personal` of theirs.
+- In my `personal` thing, i don't see that.
+- It's a `personal` project i'm working on.
+- It's the president's `personal` property!
+- Well, ah... that's a `personal` question.
+- The `personal` note is all there is to it.
+- You tell him nothing `personal`, starling.
+- Eddie, is it all right if i get `personal`?
+- I'm not interested in `personal` publicity.
+- I'm not paid to take your `personal` calls.
+- It wasn't `personal`... who's responsible?!
+- You put your hands on her `personal` parts?
+- Don't let `personal` feelings make it worse.
+- This is somebody's `personal` tax -- try al.
+- I got my own `personal` philosophy about 'em.
+- It's a very `personal`, very important thing.
+- Our dilemma -- or your <u>`personal`</u> one?
+- `Personal` effects... you're damn right i do.
+- Mr. dunn, can i ask you a `personal` question?
+- Shouldn't we examine their `personal` effects?
+- Suicide's a `personal` thing, best done alone.
+- You're interrupting a `personal` conversation.
+- Do you mind if i ask you a `personal` question?
+                 

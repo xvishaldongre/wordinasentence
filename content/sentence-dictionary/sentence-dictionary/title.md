@@ -1,0 +1,73 @@
+---
+title: "title in a sentence | title example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "title"
+---
+- The unity day `title`.
+- You, a lady of `title`!
+- Ah the `title` won't do.
+- I don't like the `title`.
+- Just tell me his `title`.
+- What's your `title` again?
+- You want the `title` shot?
+- I don't have a `title` yet.
+- Isn't that a great `title`?
+- San is an honorable `title`.
+- You thought of a `title` yet?
+- If they could never take `title`.
+- You want the `title` shot or not?
+- What's with this new `title`?!
+- That's a great `title` for a song!
+- What is your job `title`, exactly?
+- Murphy wants a shot at the `title`.
+- The `title` is "bride of the atom."
+- I lost my `title` but i won a watch!
+- If i come out, i'll lose the `title`.
+- Maybe you can come up with a `title`.
+- I don't give a damn about the `title`.
+- `Title`'s the first thing's got to go.
+- Mercutio and the `title` of this piece?
+- I said, what-is-your-job-`title`, missy?
+- For the `title` it's the safe bet, orson.
+- It's even the `title`, for christ's sake!
+- The word 'count' is part of your `title`.
+- Whose `title` doesn't appear on the bill?
+- You say that because you have the `title`!
+- What happened to `title` dictates behavior?
+- But the distributor wanted a punchier `title`.
+- Here's a `title`: an apple for the teacher.
+- What's the `title` of this seduc... assault?
+- By that time i'll be too weak to win the `title`.
+- I own a place called kirby paint and `title` plus.
+- The good news is you got your shot at the `title`.
+- All you gotta do is keep changing your job `title`.
+- So your argument is that `title` dictates behavior?
+- He ain't gonna get a shot at the `title` without us.
+- I'm going for the lunch-boxing middleweight `title`.
+- I do, uh, probate, real estate, `title` search, uh...
+- How do you like this a `title`: can you go home again ?
+- You might actually... - i didn't get through the `title`.
+- The audience decides who is more deserving of the `title`.
+- Your `title` gives you claim to the throne of our country.
+- Two, to make a point: `title` does not dictate behavior.
+- Or possibly your land, your estate, your `title`, your seat.
+- We have that same `title` yet are never described the same way.
+- And you bring john "never won a `title`" stockton into the mix?!
+- The budget projections on this-- a "z" and a "k" in the `title`.
+- You tellin' us you refuse the `title` of boss of all the bosses?
+- I don't see why i shouldn't have a shot at the `title` right now.
+- We need a new `title`, we need a... marty... like dykes and dogs.
+- Well, you only give me books with the word "death" in the `title`.
+- Nobody ever give them a shot at the `title`... freak luck for sure.
+- He stole it from everyone that deserved it by putting me on `title`.
+- I'm telling you, this is your step towards getting a shot at the `title`.
+- You beat him and it only figures they'll wanna see you get a `title` shot.
+- No, american is a blessed `title` directly sent from god's soul to your mind.
+- Repeat any of it and you'll simply bestow the `title` of 'paranoid' upon yourself.
+- Citizen kane it's an awful `title`, of course, but i can't think of anything better.
+- So what happens� this bum wilson he gets the `title` shot� outdoors in the ballpark!
+- What about vice-president of the chamber of music, you used that `title` didn't you?
+- I'm the only guy ever to beat sugar ray, and i still don't have a shot at the `title`.
+- If you'll just tell me the `title` of your rental choice, i'll have him hold it for you.
+                 

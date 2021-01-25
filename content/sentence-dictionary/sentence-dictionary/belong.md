@@ -1,0 +1,107 @@
+---
+title: "belong in a sentence | belong example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "belong"
+---
+- Don't `belong` to you!
+- I don't `belong` here!
+- I don't `belong` here.
+- I don't `belong` there.
+- To `belong` to someone.
+- Does it `belong` to you?
+- I `belong` with deborah!
+- It's where you `belong`.
+- You don't `belong` here!
+- You don't `belong` here.
+- She didn't `belong` here.
+- These `belong` to people.
+- This is where i `belong`.
+- You do not `belong` here.
+- You don't `belong` there!
+- Because we don't `belong`!
+- No, i don't `belong` here.
+- This is where we `belong`.
+- Well, you `belong` in one.
+- Who does this `belong` to?
+- You `belong` on the court.
+- You `belong` on the stage!
+- Hey, i don't `belong` here.
+- I don't even `belong` here.
+- We `belong` to you, kirsty.
+- A board of which i `belong`.
+- Hell, i don't `belong` here.
+- Look, i don't `belong` here!
+- No, you don't `belong` here.
+- Out here you `belong` to me.
+- They `belong` to the people.
+- We `belong` up there, alita.
+- That doesn't `belong` to you!
+- That doesn't `belong` to you.
+- This does not `belong` to us.
+- I don't think i `belong` here.
+- Lisa, you don't `belong` here.
+- Oh, i don't `belong` formally.
+- They don't `belong` to anybody.
+- This is where we `belong`, leo.
+- He simply doesn't `belong` here.
+- She doesn't `belong` here, sean.
+- This should `belong` to the club.
+- Who did the voice `belong` to?
+- But he doesn't `belong` in prison.
+- I `belong` everywhere and nowhere.
+- I'm staying here where i `belong`.
+- Jesus, i don't `belong` in prison.
+- You `belong` in a mental hospital.
+- But the truth is, i don't `belong`.
+- Does this dog here `belong` to you?
+- It's obvious i don't `belong` here.
+- Monty, you do not `belong` in here.
+- Those `belong` to my neighbor phil.
+- You should stay where you `belong`.
+- He doesn't `belong` on this mission.
+- He makes you feel like you `belong`.
+- I hardly `belong` to myself anymore.
+- That conway seemed to `belong` here.
+- That didn't just `belong` to woodly.
+- Which "district" do you `belong` to?
+- Bring 'em up here where they `belong`.
+- But to the victor `belong` the spoils.
+- I feel like i `belong` here, you know?
+- Vivian, you `belong` wherever you are.
+- 'guess i `belong` here more than there.
+- Lying in the gutter where they `belong`.
+- Maybe i just don't `belong` in her life.
+- The items in these cases `belong` to me.
+- Why you don't `belong` in this business.
+- What do you mean you don't `belong` here?
+- That's because we don't `belong` anywhere.
+- You `belong` in a prison, not in an asylum.
+- You `belong` to a very important profession.
+- If you ask me, that's where you `belong`.
+- Does the world `belong` to you, mr. preysing?
+- Where else, but in a cage, does man `belong`?
+- After all, it don't `belong` to nobody, right?
+- Until i say different, you `belong` to me.
+- Because after tonight, you will `belong` to me.
+- You're our daughter, you `belong` here with us.
+- Somebody took something didn't `belong` to them!
+- Those maps `belong` to his majesty's government.
+- You `belong` here, my boy, not the snobby court.
+- Could you find them and see who they `belong` to?
+- Truly you `belong` here with us among the clouds.
+- You `belong` in the stockyards looking like that.
+- Or maybe it's the other people who don't `belong`.
+- Then your toes `belong` on the other side of it!!!
+- Under soviet law the jewels `belong` to the state.
+- I'm always sticking this where it doesn't `belong`.
+- Inside of us we both know you `belong` with victor.
+- I used to `belong` to the petty bourgeoisie myself.
+- ♪ don't `belong` ♪ to aid in your recovery, my lord.
+- _ [hatch door clangs] does that `belong` to anybody?
+- People with sense can `belong` wherever they're put.
+- Cage is under the delusion he does not `belong` here.
+- Why, you `belong` right here in one of these toilets.
+- Keep your lashes on your lids where they `belong`.
+- Because every time i do, you, you don't `belong` here.
+                 

@@ -1,0 +1,107 @@
+---
+title: "state in a sentence | state example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "state"
+---
+- `State` your business!
+- `State` your case, mr.
+- Check with the `state`.
+- Depends on the `state`.
+- '`state` of emergency.'
+- Texas is a big `state`.
+- It's `state` of the art.
+- It's `state`-of-the art.
+- The `state` of illinois?
+- Turn `state`'s evidence.
+- No `state` sales tax!
+- I do not `state` it, sir.
+- I'm going to `state` now.
+- Went to the `state` fair.
+- Guaranteed by the `state`.
+- I can't leave the `state`.
+- `State` your name, please.
+- I am in a `state` of grace.
+- Illinois, like the `state`?
+- Kentucky `state` law about.
+- Utah, the bee-hive `state`.
+- A `state` that is brand new.
+- County fair or `state` fair?
+- They're from out of `state`.
+- We can't change our `state`.
+- But it's my favorite `state`.
+- In the whole goddamn `state`.
+- That's legit in this `state`.
+- The great `state` of florida.
+- No sir, we don't `state` that.
+- `State` of grace and all that.
+- `State` police are on the way.
+- How is his `state` of mind?
+- I just won the `state` lottery.
+- Life is just a `state` of mind.
+- Pain is just a `state` of mind.
+- Women in their natural `state`.
+- Your honors, the `state` rests.
+- You take out of `state` checks?
+- A signal service to the `state`.
+- Did you call the `state` police?
+- Such a sordid `state` of affair.
+- Call the `state` homicide bureau.
+- Leave myers for the `state` boys.
+- No matter what `state` you're in.
+- Please `state` your core command.
+- Well, that's the `state`'s offer.
+- When did alaska become a `state`?
+- Yes, tennessee, a lovely `state`!
+- Becky was my only shot at `state`!
+- Cannabis is legal in this `state`.
+- Off the top of the empire `state`.
+- She's in a sick, terrible `state`.
+- They have stolen `state` property.
+- This system is `state` of the art.
+- This system is `state`-of-the-art.
+- Being unhappy is a `state` of mind.
+- The `state` doesn't work like that.
+- The whole damn `state`'s goin' ape!
+- You're straddling the `state` line.
+- Ngabo did not have the `state` seal.
+- The whole `state`'s lookin' for 'em.
+- I'm a messenger at the `state` house.
+- I tracked him over two `state` lines.
+- `State` the nature of your emergency.
+- This is `state`-of-the-art firepower.
+- All of it is simply a `state` of mind.
+- Fat sam is turning `state`'s evidence.
+- Military installation, garden `state`.
+- On top of the empire `state` building.
+- So you ain't with the `state` no more?
+- By `state` police earlier this evening.
+- I called the `state` attorney's office.
+- I'm going to win the `state`, then the.
+- You never mentioned his mental `state`.
+- You weren't in the `state` legislature.
+- Cases: smith versus `state` of michigan.
+- He just got out of the `state` hospital.
+- They believe he's out of `state` by now.
+- We'll call the `state` force from there.
+- You're in no fit `state` to go anywhere.
+- I did live there in the `state` hospital.
+- I heard he lit a `state` trooper on fire.
+- I'm from the `state` certification board.
+- Jim, that man is an enemy of the `state`.
+- L.a. is in a constant `state` of warfare.
+- Playing in the `state` where you grew up.
+- She says juliet's in a terrible `state` .
+- She's in a surprisingly terrible `state`.
+- Fight interference on readi- ness `state`.
+- Mm, cannabis is legal in this `state` now.
+- My friends in `state` pd, i'm hearing you.
+- Or any gambling interests in that `state`?
+- Yeah, we're in a constant `state` of flux.
+- A leech on the welfare `state` in addition.
+- What is the `state` of your memory now?
+- "bringing every `state` to a higher `state`."
+- If you were married you got a `state`-room.
+- I'm from new york - the "shoot me" `state`.
+- Well, `state`'s got a good business school.
+                 

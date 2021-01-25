@@ -1,0 +1,107 @@
+---
+title: "heading in a sentence | heading example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heading"
+---
+- `Heading` north still?
+- `Heading` out of town.
+- `Heading` to "big top."
+- They're `heading` home.
+- They're `heading` west.
+- I'll lay in a `heading`.
+- You `heading` back down?
+- He's `heading` under -- !
+- Still `heading` for cuba.
+- Where are they `heading`?
+- Course `heading`, captain?
+- I'm `heading` out of town.
+- We're `heading` northeast.
+- `Heading` for bedroom b-54.
+- I'm `heading` out the door.
+- They keep `heading` us off.
+- He's right on the `heading`.
+- Monty, we're `heading` home.
+- We got to be `heading` back.
+- Too bad we're `heading` west.
+- Drop to 2600, `heading` 0-3-0.
+- I've got the `heading`, major.
+- She'll be `heading` your team.
+- We're `heading` back your way.
+- Catch any cab `heading` uptown.
+- I'm `heading` back to the base.
+- I'm `heading` in to work, baby.
+- Kuba, we're `heading` your way.
+- This is where you're `heading`.
+- ey’re `heading` for the gate!
+- Nyah, ambrose is `heading` back.
+- Stay on your `heading`, captain.
+- Go past me, `heading` down, over.
+- We're `heading` back to the ship.
+- I was `heading` back to my garage.
+- We're `heading` to the beacon now.
+- Sixty miles off, `heading` in fast.
+- We'll be `heading` back down, over.
+- You `heading` to the train station?
+- Are you two `heading` for las vegas?
+- Bellamy's `heading` towards you now.
+- It�s `heading` for the oil terminal.
+- He's `heading` down the stairs, now..
+- We're `heading` back to cape kenneth.
+- I'm `heading` out that door right now.
+- They've changed their `heading` again.
+- We're `heading` a little higher up now.
+- We're `heading` down to the base level.
+- I'm `heading` back to montana right now.
+- You'll be `heading` east from here, huh?
+- Three patrol ships are `heading` our way.
+- Turn right to `heading` zero eight niner.
+- `Heading` three-three-four... what is that?
+- I thought you said you were `heading` west.
+- We're at the lake now, `heading` due north.
+- We're `heading` into a difficult situation.
+- Word is a space ship is `heading` this way.
+- Hey, you `heading` out a little early today?
+- It is `heading` directly toward the surface.
+- Ring jan, tell her that we're `heading` out.
+- Maintain speed and `heading`, mr. lightoller.
+- She's in the elevator `heading` toward ethan.
+- We're `heading` for the rendezvous right now.
+- Two and three are `heading` toward the boeing.
+- Captain, i'll give you a new compass `heading`.
+- Two more star destroyers `heading` right at us.
+- Which is why we're `heading` to houston, texas.
+- You're `heading` away from the rendezvous point!
+- You're `heading` away from the rendezvous point.
+- East above the river `heading` for the eagle pass?
+- I'm positive he's `heading` back to the lake area.
+- By `heading` back to the ooze first chance you get?
+- You're under arrest for `heading` a pickpocket ring.
+- <font color=#ffff2d> she will be `heading` your team.
+- Last time i saw them, they were `heading` downstairs.
+- Yeah, ring jan and tell her that we're `heading` out.
+- We are turning left to a `heading` of zero- niner-niner.
+- If you're `heading` towards her room, you won't find her.
+- I suppose all this comes under the `heading` of adventure.
+- They were `heading` to mcgovern's office later that night.
+- The batcomputer tracks him `heading` for the gotham museum.
+- Wherever you�re `heading`, i reckon somebody�ll pick you up.
+- Yeah, me and jake will be `heading` out for california soon.
+- Agent chase, does it appear that they are `heading` for mexico.
+- I'm `heading` over to the hotel to personally oversee security.
+- Just as soon as i see doug, we'll be `heading` back down, over.
+- If he makes it through customs, he'll be `heading` for the john.
+- My firm has an office there and i�m going to be `heading` it up.
+- Where are you `heading` mr..ah how far are you going, mr. sayer?
+- Mate, i have just had ang dorjee go past me `heading` down, over.
+- The rangers and dea are `heading` out to the desert this morning.
+- The main word there, the file `heading`, translates as: treadstone.
+- We were young, different people, `heading` in different directions.
+- Just come for my day's pay owing and to tell you i'm `heading` east.
+- I don't know whether he's wandering around or `heading` for the house.
+- I thought we were `heading` for trouble putting on all these trinkets.
+- I've got to make a stop in vegas, then i'm `heading` to santa barbara.
+- About seagulls getting lost in the fog, and `heading` in for the lights.
+- Leonard: he's `heading` pretty far out on the north leg and awfully high.
+- That computer is running this ship and we're `heading` right for the sun.
+                 

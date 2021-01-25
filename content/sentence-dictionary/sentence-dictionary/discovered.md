@@ -1,0 +1,72 @@
+---
+title: "discovered in a sentence | discovered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "discovered"
+---
+- I `discovered` a clue.
+- `Discovered` some things.
+- Who `discovered` america?
+- What have you `discovered`?
+- I've `discovered` some things.
+- If you're `discovered` but what?
+- I have `discovered` his weakness.
+- Thank god, we `discovered` in time.
+- I've `discovered` a way to invoke it.
+- Then i've `discovered` a new species.
+- We just `discovered` him, your honor!
+- If we're `discovered`... all uniforms?
+- A chinese man `discovered` electricity.
+- No chinese man `discovered` electricity.
+- No, my son's `discovered` the games room.
+- That was hen i first `discovered` misery.
+- You'd already `discovered` this, hadn't you?
+- No one's denying that you `discovered` simone.
+- Benjamin franklin, he `discovered` electricity.
+- It was `discovered` in springfield city limits.
+- I've `discovered` something interesting, charles.
+- She `discovered` that you were building a tunnel.
+- It was `discovered` by a harvard botanist in 1893!
+- It was only an accident that we `discovered` them.
+- I've `discovered` a new way into the phantom zone.
+- With all respect, sir, i `discovered` that portal.
+- Townsend `discovered` it in one of lareaux's books.
+- You don't remember what you've `discovered` or how.
+- My father was the engineer who `discovered` the flaw.
+- We `discovered` we shared a lot of the same interests.
+- Its curative properties were `discovered` - is it a 13?
+- I feel like i've `discovered` this whole new side of me.
+- This was a device we... `discovered` on an alien planet.
+- I have `discovered` the source of the thalaron radiation.
+- Unless of course i'm `discovered` and become a movie star.
+- When i `discovered` this ancient cure i knew who to go to.
+- And i `discovered` that there's a little tiny door in here.
+- At any time phillippe could be `discovered`, and what then?
+- Did the events start before or after you `discovered` this?
+- Hana, we have `discovered` a shared please - the boy and i.
+- Then i `discovered` what i know, now...it's all business...
+- _ my daughter `discovered` a long time ago, i gave it to her.
+- You must understand i `discovered` her when she was eighteen.
+- The portuguese have already `discovered` black-skinned people.
+- Wait a minute -- wasn't it stanley who `discovered` livingstone?
+- Data, if you were following the boy and `discovered` this ship...
+- I've `discovered` some serious issues with this nuclear plant.
+- The sergeant `discovered` this relationship and wanted me expelled.
+- It was `discovered` by state trooper david o'bannon, just after dark.
+- You americans `discovered` the signal, you led the decryption effort.
+- I've `discovered` a serious error here in the accounts of your last play.
+- Lieutenant anus has `discovered` the cold-blooded killer behind everything.
+- The son'a `discovered` an m-class planet with humanoid life six months ago.
+- Then, almost accidentally, i `discovered` the secret of how to deal with them.
+- Do you people still use fossil fuels, or have you `discovered` crystalic fusion?
+- Mysteriously my fellow officers `discovered` ten pounds of heroin in my cruiser.
+- They ordered an autopsy and `discovered` her body had been stolen from the morgue.
+- We've just `discovered` a new skeleton, and - - well, it's - - right up your alley.
+- And, i believe, we have also `discovered` an opportunity to gain a tactical advantage.
+- He's already `discovered` dickie cashed checks for $1000 the day before he disappeared.
+- In looking at your books, i've `discovered` that ... you have forty-eight seconds left.
+- Me and the lads went down there sunday evening, we weren't `discovered` till the monday.
+- I can hear the alice-sit-by- the-fires now: "we `discovered` it in the amazon rain forest.
+- You say you were in the room with the body from the time you `discovered` it 'til we came?
+- His body was `discovered` three days ago, in an alley off of central avenue, near downtown.
+                 

@@ -1,0 +1,107 @@
+---
+title: "board in a sentence | board example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "board"
+---
+- Favorite `board` game?
+- Put me on the `board`.
+- To get on the `board`.
+- Open and above `board`.
+- Some contest `board`...
+- The `board` is waiting.
+- They killed my `board`.
+- Across the `board`, sir.
+- Five persons on `board`.
+- You mean the `board`...?
+- You're the `board` here.
+- Hey, i tried the `board`.
+- Is he already on `board`?
+- Lost everyone on `board`.
+- Twelve bodies on `board`.
+- Why can't she `board` it?
+- He's at a `board` meeting.
+- The car's off the `board`.
+- You got it on the `board`.
+- I'll be on `board` by noon.
+- I've got you on my `board`.
+- Johnson's still on `board`.
+- Then put me on the `board`.
+- A `board` of which i belong.
+- I'm chairman of the `board`.
+- My leg's stiff as a `board`.
+- We can't kill it on `board`.
+- "green hornet" `board` games.
+- We'll `board` the damn thing!
+- Does she know he's on `board`?
+- The `board` is giving me hell.
+- Clean as the `board` of health.
+- Everyone on `board` was killed.
+- The control `board`'s glitched.
+- But look at your vision `board`.
+- To the on-`board` computer room.
+- We could get a `board` together.
+- Dietrich, frost, off the `board`!
+- Get on `board` the event horizon.
+- I could see that `board` meeting.
+- I'll blow this `board` to pieces.
+- It's going up across the `board`.
+- It was a ouija `board`, remember?
+- Skipper, they mean to `board` us.
+- A mutiny on `board` a prison ship?
+- Didn't you call a `board` meeting?
+- I don't think many on `board` are.
+- Across the `board` to get promoted.
+- Come on, you're stiff as a `board`.
+- Have you been to the water `board`?
+- That's why chaz left us on `board`.
+- The `board` is using this poor guy!
+- The school `board` doesn't pay you?
+- I got to get on the fucking `board`.
+- I wish i had my `board` with me now.
+- Are you running this `board` or am i?
+- Back to the drawing `board`, i guess.
+- The `board` is going to *replace* me!
+- The prison `board` made the decision.
+- And everyone left on `board` will die.
+- Does the threat `board` show anything?
+- Even your vision `board` is a failure.
+- How many of our people are on `board`?
+- Set up some pieces on the big `board`?
+- That runs through the primary `board`.
+- We always have a synthetic on `board`.
+- I am on the `board` of my son's school.
+- I'll put one on the notice-`board` too.
+- We'll discuss that in the `board` room.
+- We need you on `board` right now, okay?
+- Get the chalk and put me on the `board`.
+- I forgot to ask to have food on `board`.
+- `Board` of education steve who likes you?
+- First you break our school `board` rules.
+- I'm from the state certification `board`.
+- I'm, i'm, i'm, i'm fucked on the `board`.
+- The school `board` saw to that right off.
+- All card- `board`, all hollow, all phoney.
+- Everything on `board`'s thinking too hard.
+- I didn't think the `board` was that smart.
+- I'm not sailing with this thing on `board`!
+- I put an ad on a computer bulletin `board`.
+- Put me on the cadillac `board`, williamson!
+- The buzz is that jason might be on `board`.
+- We'll have to `board` up the bedroom doors.
+- We're about to `board` a seven hour flight.
+- You weren't on `board` with the time heist.
+- Commissar razinin, `board` of trade, moscow.
+- Doesn't mean they don't have any on `board`.
+- I'm...don't look at the `board`, look at me.
+- Let's `board` this up and get the hell gone.
+- The most unpredictable piece on the `board`.
+- To `board` their ship and fly to the valley.
+- Chairman of the `board` of colet and company.
+- Leandra's funeral is so on my vision `board`.
+- Anybody tries to `board`, we'll know about it.
+- The `board` of trustees wants to *replace* me!
+- Everyone on `board` was killed like beauregard.
+- If you have a chart on `board`, i can show you.
+- You shouldn't even carry cigarettes on `board`!
+                 

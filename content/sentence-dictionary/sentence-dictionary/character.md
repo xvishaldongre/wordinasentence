@@ -1,0 +1,107 @@
+---
+title: "character in a sentence | character example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "character"
+---
+- Big tough `character`.
+- Quite the `character`.
+- Show some `character`.
+- It's got... `character`.
+- It�s called `character`.
+- It's a `character` trait.
+- He's a cartoon `character`.
+- He's a fucking `character`.
+- It is a test of `character`.
+- He's a `character`, isn't he.
+- If the main `character` does.
+- It had `character`, you know?
+- I was staying in `character`.
+- On this armitage `character`.
+- There's a shifty `character`.
+- You'll love your `character`!
+- More like a `character` actor?
+- The crazy breakout `character`!
+- I wanted to know my `character`.
+- Bob doesn't have any `character`.
+- It's a `character` thing, bernie.
+- What are there `character` traits?
+- Call it a reckoning of `character`.
+- Don't talk to me about `character`.
+- Yeah, eddie was a real `character`.
+- Pity you don't have the `character`.
+- I know david - a strange `character`.
+- The `character` that's based on sally.
+- You paid $50,000 for your `character`?
+- It has to be a full `character`'s name.
+- Really, i haven't a bit of `character`.
+- So `character`-forming for the british.
+- The mother `character` is such a snooze.
+- Now why don't you use that `character`...
+- That would be totally out of `character`.
+- Was that to get to know your `character`?
+- He's an interesting `character`, you know?
+- I'd put my money on that vigo `character`.
+- Any other disney `character` would be fine.
+- So, tell me about this "marge" `character`.
+- You're a fine judge of `character`, charles.
+- The main `character` is a guy just like me.
+- Are you always sucha good judge of `character`?
+- I've got a pretty good `character` for the man.
+- That tells me something about your `character`.
+- Your associates are people of good `character`.
+- Oh, they just got rid of their best `character`.
+- You have to start getting into your `character`.
+- I pretended to be a flimsy, one-note `character`.
+- Typical, i must say of your sterling `character`.
+- We'll build `character` by building it ourselves.
+- Has a completely unique and different `character`.
+- I'm getting deeper and deeper into my `character`.
+- Oh, the *other* prominent `character` in the play.
+- That hardly makes you a good judge of `character`.
+- The `character` that's based on sally in the book.
+- The real `character`'s always gonna shine through.
+- You're not having `character` doubts now, are you?
+- This ed martin `character` is a complete loser.
+- Defamation of `character`, malicious prosecution...
+- My parents always say hard work builds `character`.
+- Say, she's quite a `character`, that norma desmond.
+- The `character` also appears on a mah- jongg piece.
+- What about this so-called "barbara" `character`?
+- But as we know i'm a very poor judge of `character`.
+- You had a wonderful `character` before, the gambler.
+- I'll lay odds she's looking for `character` in a man.
+- Motivated by `character` and moves the story forward.
+- You trust his `character` more than anyone else does.
+- Your video-`character` can respond as fast as you can.
+- Ben damon's `character` was the first one to get offed.
+- I did some checking on that carter stevens `character`.
+- How long do we have to wait for this police `character`?
+- Maybe by that time i'll develop myself some `character`.
+- Crush this ellsberg `character` the same way we did hiss!
+- Maybe i oughta talk to this ray bones `character` myself.
+- There's just this stigma associated with the `character`.
+- If they doubt you, viciously attack their `character`.
+- Cici's the name of the `character` she plays in the movie!
+- This shep proudfoot `character`, he's a little darling.
+- A soul's search: finding your true `character` and calling?
+- Mr. potter, what makes you such a hard-skulled `character`?
+- Why stop at one `character` when you can have a whole cast?
+- The `character` is also clearly in her early twenties, sally.
+- Because i am utterly incapable of stepping out of `character`.
+- Because my `character` isn't important enough for a last name.
+- They loved hiss just like they loved this ellsberg `character`.
+- Bring the sheila 3.2 `character` module with you... amazing.
+- You're saying, this trial is about andrew beckett's `character`.
+- You want to get into a finger pointing contest about `character`?
+- Dizzy says you two knew this rasczak `character` in buenos aires...
+- The mirror's metaphor -- to show how her `character`'s inwardly dead.
+- I always choose a cartoon `character` -- last time out, i was mrs. bambi.
+- Separate the `character` module from the neural net... how do you kill it?
+- All right, since i got you on the phone, let's talk about your `character`.
+- Gentlemen--i--i have no more patience with this--this *rascally* `character`.
+- I think you broke the record for staying in `character` about three hours ago.
+- We're the kids you're never gonna have oh, yeah, boba fett, great `character`.
+- I just hope she doesn't turn out to be a hidden hotcha `character`, that's all.
+- You have ten copies of the book, but you don't know who the main `character` is?
+                 

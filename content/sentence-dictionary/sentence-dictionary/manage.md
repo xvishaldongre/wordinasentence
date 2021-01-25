@@ -1,0 +1,71 @@
+---
+title: "manage in a sentence | manage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "manage"
+---
+- I `manage` fine alone.
+- How do you `manage` it?
+- How did you `manage` it?
+- How'd you `manage` that?
+- Oh, we can `manage` that!
+- Thanks, but i'll `manage`.
+- You sure you can `manage`?
+- No, thanks, i can `manage`.
+- How'd you `manage` that one?
+- We can `manage` without you.
+- But i'm sure he'll `manage` .
+- Something that will `manage`.
+- How'd you `manage` that, then.
+- I suppose i could `manage` it.
+- Well--i can *`manage`*-- yeah!
+- How did he `manage` to do that?
+- How did you `manage` to escape?
+- Before now, i could `manage` it.
+- Without pupils i can't `manage`.
+- It's a stretch but i'll `manage`.
+- Must be in love to `manage` that.
+- Yes, tom -- i think i can `manage`.
+- Did you `manage` to find good rooms?
+- How do you `manage` to stay so cool?
+- Just how would you `manage` that?
+- You `manage` to throw me off balance.
+- `Manage` the whole damn place some day.
+- You know... how'd you `manage` the gun?
+- So i always `manage` to, do you see?
+- Can you `manage` a table near the floor?
+- How the hell'd you `manage` to stay single?
+- You could never `manage` that one, could ya?
+- A kid can `manage` it if he wants a fake i.d.
+- But how did you `manage` to get a babysitter?
+- Anyone `manage` to find out where he is, over.
+- I can just about `manage` to stand on my feet!
+- Yeah and they `manage` to go to bourgeois joints!
+- You `manage` the building at the end of the alley?
+- I'd have to `manage` a nookie parlor to do that....
+- I mean, they can't `manage` when the cable goes out.
+- Oh, i'm sure i can `manage` something... "sin city."
+- It's the only way we can `manage` what you still got.
+- You look like you need all the room you can `manage`.
+- How do you `manage` to put up with all this confusion?
+- I'll -- i will `manage` somehow -- i'll `manage` myself.
+- Seriously, is there any chance you could `manage` a loan?
+- You'd think he could `manage` to keep her name out of print.
+- How you gonna `manage` that with a new blow-hole in your dome?
+- I `manage` these boys and i got their best interests at heart.
+- The doctor said it's the only way to `manage` this thing, jack.
+- Even if you `manage` to avoid a fight you won't know where to go.
+- I knew you had to `manage` on your own before you could come back.
+- Continued how did they `manage` to do that without any communication?
+- I'm not about to let selfridge and quaritch micro-`manage` this thing.
+- How'd you `manage` to piss off a guy as powerful as francis boutillier?
+- Unless we `manage` to replace the filter by tomorrow morning, i'm afraid.
+- I think i can `manage`... an obituary column... can you read in this light?
+- Just how do you people `manage` to be in the right place at the right time?
+- How do you `manage` to keep coming up with new and amazing ways to screw up?
+- I just have the toothbrush to carry up and i think i can `manage` it myself.
+- You're not carrying a bullwhip... how'd you `manage` to put my kids to work?
+- I don't think miggs could `manage` again so soon, even if he is crazy - do you?
+- Well, i've saved up two eggs and each of my friends is bringing his own so we'll `manage`.
+- We did `manage` to pull any sensitive equipment and material out of our safehouse wreckage.
+                 

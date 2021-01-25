@@ -1,0 +1,52 @@
+---
+title: "billion in a sentence | billion example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "billion"
+---
+- One `billion` dollars.
+- One `billion` dollars.
+- Four `billion` dollars.
+- Not in a `billion` years.
+- That's `billion`, colonel.
+- A one in a `billion` anomaly.
+- You mean the seven `billion`.
+- One-hundred `billion` dollars.
+- Six `billion` in the world.
+- I have three `billion` dollars.
+- A `billion` people speak chinese.
+- Seen one `billion`, seen them all.
+- Total, eight `billion` and change.
+- You gave them the eight `billion`.
+- Okay, `billion`...right, of course.
+- About 42 `billion` light years away.
+- It's a `billion`-to-one cosmic fluke.
+- It's like having half a `billion` dollars.
+- Like killing 6.5 `billion` people mad max.
+- Pg&e is a 28- `billion` dollar corporation.
+- 60 `billion` buys you some slack in this world.
+- I had a `billion` dollars... what have i done?!
+- I don't want your silly `billion` dollar empire?
+- Population... thirty-five `billion`... all borg.
+- `Billion` people in china, and everyone uses my phone.
+- ...probably contain more than a hundred `billion` birds!
+- Virtucon alone makes over nine `billion` dollars a year.
+- Losing a `billion` dollars means nothing fears are fears.
+- That's how you end up with a 400 `billion` dollar deficit.
+- Who cares that 11 `billion` people are on fire as we speak?
+- Then remember, you are the heir to a `billion` dollar empire.
+- There's two `billion` chinese - let one of them be your partner.
+- There are over four hundred `billion` stars out there -- i'm not.
+- Yeah, but, what if this guy lived a `billion`, trillion years ago?
+- A few `billion` bucks and suddenly he's cro-magnon man of the year.
+- Come on, what can you do with six `billion` you can't do with four?
+- Him sends his booful li'l sweetums a `billion` oceans full of kisses.
+- Like it or not, this is the only oxygen for three `billion` kilometers.
+- You heard that kid -- they have 28 `billion` dollars at their disposal.
+- There are a hundred `billion` cells inside of this miracle of evolution.
+- Four `billion` bucks in war reparations to vietnam to get the others back.
+- Just remember: they think there's ten `billion` dollars in gold down there.
+- That's four hundred years of science fighting a `billion` years of instinct.
+- That'll happen when you're about to spend thirty `billion` dollars on some aspirin...
+- Six `billion` people on the planet, you're getting bent out of shape 'cause of one fat guy?
+                 

@@ -1,0 +1,8 @@
+---
+title: "enchant in a sentence | enchant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "enchant"
+---
+- I'll nay `enchant` ye.
+                 

@@ -1,0 +1,76 @@
+---
+title: "kinds in a sentence | kinds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kinds"
+---
+- All `kinds` of couples go.
+- There are lots of `kinds`.
+- There's different `kinds`!
+- What `kinds` of questions?
+- Some `kinds` of women are...
+- I hear all `kinds` of things.
+- They pick fruit, all `kinds`.
+- He's got all `kinds` of tools.
+- We're all `kinds` of stubborn.
+- There are two `kinds` of warfare.
+- I'm hearing all `kinds` of things.
+- My brain's all `kinds` of awesome.
+- All `kinds` of shit would come out.
+- Yep, we're all `kinds` of stubborn.
+- You'll hear all `kinds` of stories.
+- He said, there's always two `kinds`.
+- On these `kinds` of things, but i do.
+- Then she's in all `kinds` of trouble.
+- What `kinds` questions did cabot ask?
+- Filled with all `kinds` of juicy tech.
+- Filled with all `kinds` of juicy tech.
+- All `kinds` of crap comes with that.
+- Snow, static, all `kinds` of distortions.
+- Those are two different `kinds` of trust.
+- He used to rub all `kinds` of things on it.
+- There's all `kinds` of horses, ain't there?
+- She keeps thinking up new `kinds` of torture!
+- Please not, 'the two `kinds` of people' speech.
+- Yeah, but i'm remembering all `kinds` of stuff.
+- Asking all `kinds` of questions... that's right.
+- They got all `kinds` of high-tech shit nowadays.
+- ♪ all `kinds` of stuff, and yet i mope ♪ i drink.
+- I have a theory that there's two `kinds` of boys.
+- Except -- i am having all `kinds` of weird dreams.
+- The last set i had gave me all `kinds` of trouble.
+- There are two `kinds` of men in the world, selina.
+- We got all `kinds` and you gonna fit in real good.
+- Just not this big a one... takes all `kinds` though.
+- Four thousand straight days in all `kinds` of weather.
+- There are all `kinds` of groups, all `kinds` of initials.
+- We're trained to deal with these `kinds` of situations.
+- Ellen, there are two `kinds` of people in the world -- yes.
+- Yeah, we got all `kinds` of traditions -- like dying young.
+- Do you know how many different `kinds` of laws we've broken?
+- I know it's silly to get hung up on these `kinds` of things.
+- There's two `kinds` of specialty product; legal and illegal.
+- We're just two very different `kinds` of people, that's all.
+- You'd be surprised how many `kinds` of birds you'll see here.
+- Who'd want to let in all `kinds` of riff-raff off the streets?
+- You know i've got this gift for certain `kinds` of... machines.
+- Don't bring it in here -- it probably has all `kinds` of diseases.
+- They came to america seeking other `kinds` of cheese, as i recall.
+- Darryl's been callin', mad as a hornet, makin' all `kinds` of noise.
+- I'm as curious as the next man... you hear all `kinds` of things.
+- I'm sorry, it's just why can't we talk to different `kinds` of people?
+- <u>yes</u>, for my wife, what the hell `kinds` of questions are these.
+- Then they cut all `kinds` of holes in her head and sucked out the blood!
+- Sometimes it seems like society is <u>run</u> by these `kinds` of people.
+- Well, maybe things that happened... leave other `kinds` of traces behind.
+- I hear there's a shuffleboard court on deck -- it might be `kinds` cool...
+- The people i know want facts, the `kinds` of things an insider would know.
+- We feel these are the `kinds` of kids that are going to make indiana proud.
+- There's straight-up chromium -- does all `kinds` of good things for the body.
+- A lot of guys around here have tried it -- all `kinds` of approaches -- no dice.
+- I mean, he raped me and all, but i guess there's all different `kinds` of rapes.
+- Karen, i've been with the bureau fifteen years, on all `kinds` of investigations.
+- She's been to all `kinds` of doctors in the city and they've said different things.
+- A lot of them have all `kinds` of diseases and will cut your throat while you sleep.
+- I bet both our asses bobby peru done murdered all `kinds` of people, and meant it, too.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ice in a sentence | ice example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ice"
+---
+- How's the `ice` break?
+- Ready for `ice` cream?
+- Rum and `ice`, please.
+- Got stuck in the `ice`.
+- Gotta de-`ice` my mask.
+- `Ice` cold still water.
+- Just my luck, no `ice`.
+- Tots can't `ice` skate.
+- Elvis is on `ice` again.
+- He owns the `ice` plant.
+- I... and... `ice` cream.
+- `Ice` cream truck - day.
+- It's like `ice` skating.
+- The `ice` queen is dead.
+- Where's the `ice` cream?
+- You buy the `ice` cream.
+- So is my `ice` cream.
+- `Ice` water in her veins.
+- I gotta de-`ice` my mask.
+- So where's all the `ice`?
+- The `ice` isn't cracking.
+- We've got elvis on `ice`!
+- Then we can `ice` her.
+- Does the `ice` help, rose?
+- Do you have any `ice` tea?
+- Fire, or clear out, `ice`.
+- `Ice` cream's not workin'.
+- `Ice` crystals everywhere.
+- I'm already on thin `ice`.
+- My "`ice`" as you call it.
+- That was the `ice` nation.
+- This `ice` will break yet.
+- You better get that `ice`.
+- Now we get `ice` cream.
+- Beer, with `ice` and water.
+- He was in a tub with `ice`.
+- I got "d" `ice` in my mask.
+- I'm out like vanilla `ice`.
+- Including the `ice` nation.
+- I've got to get more `ice`.
+- Look, the `ice` is melting.
+- Some `ice` for mr. martins.
+- Can we get some `ice` cream?
+- Everybody loves `ice` cream.
+- `Ice` cream truck/box - day.
+- `Ice` cream truck/cab - day.
+- `Ice`-skater, or stewardess?
+- I threw it across the `ice`.
+- Maybe even some `ice` cream.
+- Can we get `ice` cream after?
+- Do you like `ice` cream, doc?
+- `Ice` cream truck/cab - dawn.
+- I know what `ice` fishing is!
+- It's better than `ice` cream.
+- She likes a stolie, no `ice`.
+- Swana escapes over the `ice`!
+- That why they call him `ice`?
+- ...the `ice` cream for money!
+- There's "d" `ice` on the `ice`.
+- There's `ice` skaters coming!
+- You're skating on thin `ice`.
+- And, uh... `ice`... `ice` cream.
+- Only i was burning from `ice`.
+- Shut down your `ice` patterns.
+- So we need to break the `ice`.
+- The air is turning into `ice`!
+- The `ice` nation isn't afraid.
+- I brought you some `ice` cream.
+- Should we stop for `ice`-cream?
+- Their bones will turn to `ice`.
+- You like that `ice` cream, huh?
+- You ready for some `ice` cream?
+- You wanna get some `ice` cream?
+- Can you crack its `ice` pattern?
+- I'd like an `ice`-cold heineken.
+- The whole core of mars is `ice`.
+- What should i do with the `ice`?
+- And put your hands on this `ice`.
+- Didn't he always move your `ice`?
+- `Ice`, roll off, i can shoot him.
+- I'm just going to get some `ice`.
+- I want an `ice` nation commander.
+- The `ice` nation can be ruthless.
+- Was it like a warm `ice` capades?
+- You look like melted `ice` cream.
+- A commander from the `ice` nation?
+- A life of perpetual `ice`-olation.
+- Can you move the `ice` afterwards?
+- Into the hands of the `ice` queen.
+- Kid, that cuts no `ice` with them.
+- There's grayling under this `ice`.
+- You guys know what `ice` cream is.
+- I had a ticket to holiday on `ice`.
+- I have some `ice` from the machine.
+- It's the way he flies - `ice` cold.
+- That's my girl... `ice` cold water.
+- What's gonna stop the `ice` nation?
+- Br-rrr, these sheets are like `ice`.
+- I always wanted to go `ice` skating.
+- `Ice` nation has crossed the border.
+                 

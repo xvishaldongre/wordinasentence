@@ -1,0 +1,107 @@
+---
+title: "mother's in a sentence | mother's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mother's"
+---
+- Your `mother's` alive.
+- Your `mother's` smart.
+- My `mother's` ears.
+- My `mother's` in italy.
+- On my `mother's` grave.
+- You're `mother's` dead.
+- Your `mother's` pastor.
+- In my `mother's` drawer.
+- My `mother's` like that.
+- My `mother's` recovered.
+- Your `mother's` funeral.
+- Got her `mother's` looks.
+- It's my `mother's` piano.
+- Your `mother's` not dead.
+- Mayfield, `mother's` name.
+- They were your `mother's`.
+- His `mother's` an american.
+- I'm going to my `mother's`.
+- She went to her `mother's`.
+- This is my `mother's` house.
+- And it's my `mother's` fault.
+- At my `mother's` beach house.
+- His `mother's` an only child.
+- `mother's` looking after you!
+- My `mother's` name, actually.
+- This was his `mother's` idea.
+- My, uh... my `mother's` maybe.
+- Okay... on my `mother's` life.
+- As per `mother's` instructions.
+- I swear on my `mother's` grave.
+- It was my `mother's` specialty.
+- My `mother's` a real secretary.
+- Paul is `mother's` first child.
+- That was your `mother's` scalp!
+- Your `mother's` dead, llewelyn.
+- That was my `mother's` bracelet.
+- Went to my `mother's` in boston.
+- Your `mother's` a defector, too.
+- I ignored my `mother's` crossing.
+- It's your `mother's` anniversary.
+- When `mother's` happy, i'm happy.
+- You have your `mother's` hands...
+- You're my `mother's` hairdresser?
+- Your `mother's` not there is she?
+- Now that your `mother's` dead?
+- I swear it on my `mother's` grave.
+- I travel under my `mother's` name.
+- It was my `mother's` parting gift.
+- Let me avenge my `mother's` death.
+- There's a shovel at my `mother's`.
+- Your `mother's` family is spanish?
+- Sorry to do this on `mother's` day!
+- Did you enjoy your `mother's` visit?
+- He's sort of under `mother's` thumb.
+- I'm just making your `mother's` tea.
+- `mother's` not half so blind as you.
+- My `mother's` told me all about you.
+- I'm taking the kids to my `mother's`.
+- So this is your `mother's` apartment?
+- Your `mother's` right, you're crazy!!
+- I am coming to my `mother's` funeral!!
+- It's registered in my `mother's` name.
+- Her `mother's` awful worried about her.
+- I travel under my `mother's` name, too.
+- That depends on how `mother's` feeling.
+- What are your `mother's` name, jackson?
+- Why would we invade `mother's` kingdom?
+- Your `mother's` inspired today, marcus.
+- I hope he got his `mother's` permission.
+- Are you staying at your `mother's` house?
+- I think the sound is my `mother's` voice.
+- No, <u>his</u> `mother's` always on time.
+- Well, your `mother's` going to pta today.
+- He's your `mother's` only brother so what?
+- His `mother's` got twenty million dollars.
+- No, my `mother's` .. you better stop in ..
+- We've pawned your `mother's` wedding ring.
+- What is a `mother's` life but her children?
+- Well... phantom mary's on my `mother's` side.
+- Your `mother's` dead but your father's alive.
+- Her `mother's` a very sweet woman, you'll see.
+- Her `mother's` in the living room watching tv.
+- My `mother's` buying me a new car for college.
+- The `mother's` on a photoshopping retreat hey.
+- I'm told your `mother's` army marches on polis.
+- I wasn't thinking about my `mother's` bathroom.
+- My `mother's` family went there during the war.
+- My uncle�`mother's` brother�had four children .
+- Nobody gets into `mother's` draws except daddy!
+- In `mother's` absence, she is my ward, not yours.
+- `mother's` going to help me with the invitations.
+- `mother's` set her heart on a big church wedding.
+- Our friend, groppi, went to his `mother's` house.
+- They're from good stock on their `mother's` side.
+- You really are your `mother's` son, you know that?
+- Were they all done for your `mother's` benefit?
+- Why don't you put your `mother's` secret book back?
+- A friend's plea set against his `mother's` attitude.
+- Ernie, will you take me over to my `mother's` house?
+- Feel me seeing someone else wear my `mother's` face.
+                 

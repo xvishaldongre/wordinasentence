@@ -1,0 +1,88 @@
+---
+title: "details in a sentence | details example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "details"
+---
+- No personal `details`?
+- All the gory `details`.
+- Spare me the `details`.
+- You want the `details`?
+- Indra has the `details`.
+- `Details`, baby, `details`.
+- What about the `details`?
+- But you hid the `details`!
+- Just one or two `details`.
+- Tell me all the `details`.
+- Gabriel gets the `details`.
+- If you insist on `details`.
+- The rest is only `details`.
+- The rest was just `details`.
+- They're big `details`, jerry.
+- I'll take those `details` now.
+- You build a life of `details`.
+- I don't give out the `details`.
+- I don't have any `details`, ok?
+- I don't know all the `details`.
+- `Details`, why are we restrained?
+- Need any help with the `details`?
+- We don't even know the `details`.
+- But let's spare her the `details`.
+- Come on, gimme some more `details`.
+- My secretary has all the `details`.
+- You don't wanna know the `details`.
+- I'm not interested in the `details`.
+- Mac, you take care of the `details`.
+- Don't you want to hear the `details`?
+- Do we have to talk wedding `details`?
+- From now on, `details` must be exact.
+- C. i don't need to know the `details`.
+- Don't overwhelm me with the `details`.
+- I don't want to go into the `details`.
+- I would like to go over the `details`.
+- Please bore me with the `details`. )
+- It's the `details` that sell your story.
+- My office will follow up with `details`.
+- You're up on your `details`, aren't you?
+- Memo e-7 on top will cover the `details`.
+- They were asking me for all the `details`.
+- I just want to be straight on the `details`.
+- It gives `details` which couldn't be invented.
+- I've uncovered the `details` on project vulcan.
+- We know all the `details`... you're a deep one.
+- The things you gotta remember are the `details`.
+- Will he wish to know the `details` of this night?
+- And we can work out the `details` of your crossing.
+- Don't look at me, x, she handles all the `details`.
+- Next week we'll meet and discuss further `details`.
+- The `details` of my life are quite inconsequential.
+- Can't give you the `details` because i can't remember.
+- She told you all about my `details` but not about his.
+- So you gotta know the `details` about this men's room.
+- I'm just here to record some `details`, standard stuff.
+- People get all hung up on `details`, but what's the point?
+- You can pause, rewind, or slow down any `details` you wish.
+- Don't overwhelm me with `details`, you know how i hate that.
+- When it's all sewed up, i'll let you know all the `details`.
+- I could tell you the gory `details`, we do not attack our own.
+- I see the big picture and you stumble around in the `details`.
+- When they leave they take your life of `details` with them.
+- Lock it up and assign the personnel to base security `details`.
+- See, your mind is very good with the more mechanical `details`.
+- Meetings and travel...whenever they come here, i handle `details`.
+- No matter how hard it is, we have to stay focused on the `details`.
+- I expect you to look out for me, pup, let me run off work `details`.
+- Filmmaking isn't about picky `details` -- it's about the big picture.
+- One day, when it's all sewed up, i'll let you know all the `details`.
+- Yeah apparently it `details` the exploits of a publisher like myself.
+- I'm putting together little `details` to see if we're missing something.
+- Perhaps a few more `details` about the evening will refresh your memory.
+- Those files contain the `details` of every working artist in this country.
+- Mean- while, enjoy your party, celebrate, we'll attend to the nasty `details`.
+- Wrote down `details` of conway's story about shangri-la which i am forwarding.
+- Is it true you tried to leave camp we need `details` on troop count and weapons.
+- Well, to tell the truth, they really didn't fill me in on many of the `details`.
+- If we want to know the most intimate `details` of your life, you'd better tell us.
+- You don't need to know the `details` of this mission... you're better off if you don't.
+- Now, mr. chekov, let us review: you say you have no `details` of project 'genesis' ?
+                 

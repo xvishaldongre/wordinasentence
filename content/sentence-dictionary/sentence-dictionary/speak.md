@@ -1,0 +1,107 @@
+---
+title: "speak in a sentence | speak example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "speak"
+---
+- But i `speak` english.
+- Don't `speak` russian!
+- Do you `speak` german?
+- I `speak` what i feel.
+- Let's `speak` english.
+- Nothing to `speak` of.
+- `Speak`, dummy, `speak`!
+- Why don't you `speak`?
+- You `speak` shellfish!
+- Can i `speak` to mommy?
+- Can i `speak` with her?
+- Dana, `speak` to me ...
+- Did you `speak` to tom?
+- Don't `speak`, quellek.
+- Do you `speak` english?
+- I also have to `speak`.
+- Like to `speak` to you.
+- May i `speak` with you?
+- Oh, so you can `speak`.
+- She can `speak` for us.
+- `Speak` with my lawyer.
+- We don't `speak` czech!
+- What do you `speak` of?
+- You have to `speak` up.
+- You said `speak` czech!
+- Does he `speak` english?
+- Don't `speak` of charms.
+- Don't you `speak` to me.
+- Do you `speak` english!?
+- Feel free to `speak` up.
+- I can't `speak` for him.
+- I don't `speak` spanish.
+- I'll `speak` to someone.
+- I'm in it as we `speak`.
+- I must `speak` honestly.
+- `Speak` english will ya.
+- `Speak` of the devil!...
+- `Speak` on, dear friend.
+- `Speak` then if ye must.
+- You do not `speak` here!
+- You don't `speak` latin?
+- You `speak` for me, son.
+- Could he `speak` english?
+- I do not `speak` english.
+- I don't `speak` grounder.
+- I know she can't `speak`.
+- I need to `speak` to you.
+- Not really to `speak` of.
+- Did you `speak` to farlow?
+- I do not `speak` english.'
+- If we could `speak` alone.
+- I told him not to `speak`.
+- Let us `speak` in private.
+- So you do `speak` english.
+- `Speak` it like it's real.
+- You'll have to `speak` up.
+- You wanna `speak` to mary?
+- Don't be shy to `speak` up.
+- He doesn't `speak` english.
+- I don't care to `speak` it.
+- I don't `speak` grounder...
+- I'll `speak` with you soon.
+- I need to `speak` with you!
+- I want to `speak` with you.
+- Let me `speak` to clarence.
+- Nothing much to `speak` of.
+- Or should i `speak` slower?
+- `Speak` a little like this.
+- We didn't actually `speak`.
+- Which is guy-`speak` for...
+- Yeah, `speak` for yourself.
+- You chose to `speak` to me.
+- You're planning to `speak`?
+- You... you `speak` english?
+- A gatekeeper, so to `speak`.
+- Do you guys `speak` english?
+- I `speak` as i find, archie.
+- I wish you'd `speak` to him.
+- Let me `speak` to mr. smith.
+- May i `speak` with you, sir?
+- Sami doesn't `speak` french.
+- Then they should `speak` up.
+- Then you can `speak` slowly.
+- Did you `speak` to my father?
+- He wants to `speak` with you.
+- I didn't `speak` to him, sir.
+- I'd like to `speak` with him.
+- I'll try and `speak` up more.
+- I `speak` with him every day.
+- Let me `speak` to max cherry.
+- Maude, i must `speak` to you.
+- Now `speak` czech or english.
+- `Speak` the words, constable.
+- Which dialect do you `speak`?
+- You can simply `speak` to me.
+- You can't even `speak` dutch.
+- Then you began to `speak`.
+- Can we `speak` off the record?
+- Come on, fellah -- `speak` up!
+- Did you `speak` to mr. norton?
+                 

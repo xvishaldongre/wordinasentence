@@ -1,0 +1,58 @@
+---
+title: "Linda in a sentence | Linda example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Linda"
+---
+- `Linda`, call vaughan.
+- Thanks a lot, `linda`.
+- Everybody love `linda`.
+- .. `linda` king's desk.
+- Are you `linda` barrett?
+- Don't do anything, `linda`.
+- You know why `linda`'s dead.
+- Let me call you a car, `linda`.
+- `Linda` doesn't come in nights.
+- `Linda`... honey, what's wrong?
+- Myself, i love `linda` so much!
+- I think i remember `linda`, yah.
+- You like to call me `linda` now?
+- You're so easy... shit, `linda`!
+- `Linda` have special, crazy fuck.
+- No plans for the weekend, `linda`?
+- Sit with `linda`, man, will ya?...
+- Only,good people love `linda`, see.
+- You call me `linda`, just like home.
+- Look, `linda`, there're fifty reasons.
+- You let `linda` lee die in chiba city.
+- Why did you come here tonight, `linda`?
+- I love `linda` more than i can even say.
+- What `linda` has, `linda` -- i love `linda`.
+- You really ought to look at this, `linda`.
+- It's not your house, doyle, it's `linda`'s.
+- Jonathan, jonathan... - i'm sorry, `linda`.
+- `Linda` and frank are very important to me.
+- She's in philadelphia seeing `linda` aahby.
+- Special, crazy fuck just like with `linda`?
+- How you like to have nice fuck with `linda`?
+- `Linda` says you're not supposed to have dairy.
+- I'm trying to help, `linda` -- shut the fuck up.
+- `Linda` never sent me the address and phone number.
+- No, `linda`, you don't understan -- hang up the phone.
+- Come on, `linda`, i haven't had a boyfriend all summer.
+- `Linda` -- now you must really shut the fuck up, please.
+- It's ten or twelve miles from here - over by `linda` rosa.
+- `Linda`'s been dumpin' everybody's stray clothes there lately.
+- ...i was married to `linda` cooksey - well, yah, i was married.
+- `Linda`, you are without a doubt the scariest person on campus.
+- Yah, sorry, so i was married to `linda` cooksey - ya remember `linda`?
+- Yah, well, i, uh... it's not that it didn't work out - `linda` passed away.
+- I would want to pay you, nick... and i was thinking -- `linda`... hey, `linda`...
+- They weren't - he, uh, he was bothering `linda` for about, oh, for a good year.
+- I've told `linda` that one day that man is going to really hurt her or that boy.
+- I hope you can show more than you did when you let the yakuza butcher `linda` lee.
+- Why in the h... `linda`, how come you don't see that sunny puts his shoes on right?
+- I want to change his will, can i change his will?...i need to `linda`, you're safe.
+- All i want you to promise me is that you're capable of being around `linda` and frank.
+- If i could use this place to stay, because... oh... you know... `linda`, what's the matter?
+                 

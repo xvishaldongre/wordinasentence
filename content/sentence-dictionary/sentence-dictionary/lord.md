@@ -1,0 +1,107 @@
+---
+title: "lord in a sentence | lord example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lord"
+---
+- He is here, my `lord`.
+- `Lord`, i'm sorry i...
+- Meant `lord` or ruler.
+- Oh, praise the `lord`.
+- Understood, my `lord`.
+- Dear `lord`, thank you.
+- `Lord`, it's a miracle!
+- The `lord` be with you.
+- The `lord` is merciful!
+- We don't have a `lord`.
+- Who is dead, my `lord`?
+- You flatter, my `lord`.
+- As much as for a `lord`?
+- Good `lord`, mr. treves!
+- Good morning, my `lord`!
+- I'm so sorry, my `lord`.
+- `Lord`, wake me, please.
+- `Lord`, you're stubborn.
+- O'`lord` hear my prayer.
+- O'`lord` hear my preyer.
+- Shall i leave, m'`lord`?
+- The `lord` will provide.
+- Just trust in the `lord`.
+- Little `lord` fauntleroy!
+- Well, who is your `lord`?
+- We will be ready, `lord`.
+- Be good to her, my `lord`!
+- But what of `lord` wessex?
+- I... submit to our `lord`.
+- It's the truth, my `lord`.
+- Let me, please, my `lord`.
+- `Lord` aberdeen was right.
+- `Lord` have mercy on joey.
+- `Lord`, how my head aches!
+- The `lord` hates a loafer.
+- Through christ our `lord`.
+- Where is my lady's `lord`?
+- How is `lord` lavenham?
+- How do i offend, my `lord`?
+- Recite the `lord`'s prayer.
+- We're escaping, oh, `lord`.
+- Good `lord` no, it's just...
+- See the cross of the `lord`.
+- Also our `lord` jesus christ.
+- Dear `lord`... - don't kneel.
+- I do not love you, my `lord`.
+- I will do my duty, my `lord`.
+- ... my honorable `lord` ergo?
+- Oh, my `lord`, she said that?
+- Put your trust in the `lord`.
+- If i may be excused, m'`lord`.
+- `Lord`, how i hate this place.
+- Not a king like you, m'`lord`.
+- She is to marry `lord` wessex.
+- The `lord` made them that way.
+- Welcome to the `lord`'s house.
+- May the `lord` be with you.
+- Lady viola is pious, my `lord`.
+- `Lord` cornwallis is brilliant.
+- `Lord` knows you now have time.
+- No more, my `lord` - my friend.
+- Praise the `lord`, i am reborn!
+- Were you sent by `lord` dunois?
+- You mustn't see her, my `lord`.
+- Calm down, my `lord`, i beg you!
+- Don't you believe in the `lord`?
+- Here we come at last, my `lord`!
+- I hope they fit well, my `lord`.
+- I'll wait for `lord` cornwallis.
+- Is that mandrake, `lord` merlin?
+- Oh `lord`, what have we done...?
+- That's `lord` frederick tessier.
+- But the `lord`'s been good to me.
+- Durnford sikali horse, my `lord`.
+- `Lord`, the man is here for ally.
+- You have done well, `lord` vader.
+- Do you intend to marry, my `lord`?
+- I am your truthsayer, my `lord`...
+- No, it's from `lord` of the rings.
+- Our `lord` said just the opposite.
+- The `lord` meant that job for two!
+- What did the `lord` tell you, ike?
+- Full of sport they were, my `lord`.
+- I am torquil, `lord` of the forest.
+- I'm talking about atheists, `lord`.
+- It is not my riding day, my `lord`.
+- Persistent troublemaker, my `lord`.
+- He says he feels no pain, my `lord`.
+- I wish that `lord` modred were here.
+- My `lord`, he was telling the truth!
+- Oh, `lord` almighty, listen to me...
+- The `lord` bless thee and keep thee?
+- What's the crazy man saying, `lord`?
+- The `lord` said, - what the hell?
+- We've got rum, praise the `lord`.
+- Good `lord`, have you lost your mind?
+- I am the `lord`'s voice in this town.
+- I just thank the `lord` they can see.
+- Oh sweet `lord`, everett, looka this!
+- The eternal `lord` of horror, cthulhu.
+                 

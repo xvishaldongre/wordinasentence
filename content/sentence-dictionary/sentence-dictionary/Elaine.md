@@ -1,0 +1,92 @@
+---
+title: "Elaine in a sentence | Elaine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Elaine"
+---
+- I've got it, `elaine`!
+- No goodbyes, `elaine`.
+- `Elaine` -- i love you.
+- Hello, is this `elaine`?
+- Then `elaine` was right.
+- `Elaine`, it's wednesday.
+- What d'you say, `elaine`?
+- Don't talk about `elaine`.
+- Don't talk about `elaine`?
+- `Elaine`, what's going on?
+- I want you back, `elaine`.
+- `Elaine`, just hear me out.
+- You had no choice, `elaine`.
+- You should talk to `elaine`.
+- `Elaine`, we have to go back.
+- Quit worryin' about `elaine`.
+- `Elaine`, what happened to us?
+- Good to see you too, `elaine`.
+- `Elaine`, i'm going back there.
+- Let's get out of here, `elaine`.
+- `Elaine`, i've got to talk to you.
+- There are other studios, `elaine`.
+- What word would you use, `elaine`?
+- You are not to see `elaine` again.
+- Simone's not coming over, `elaine`.
+- That's not important now, `elaine`.
+- You have to listen to me, `elaine`.
+- You talked to `elaine` this morning?
+- Do you know what these are, `elaine`?
+- `Elaine`, what are you doing tonight?
+- I'm going to marry `elaine` robinson.
+- You can be gentle with him, `elaine`.
+- `Elaine` -- that is not what happened.
+- Where did you get that date, `elaine`?
+- Cut the doubting thomas shit, `elaine`.
+- `Elaine` -- are you serious about this?
+- `Elaine`, you had another date in mind?
+- `Elaine`, you're a member of this crew.
+- Have you ever seen `elaine`'s portrait?
+- `Elaine`, she doesn't have any children!
+- There's nothing wrong with me, `elaine`.
+- As i've tried to explain to you, `elaine`.
+- I'd rather sit down for this one, `elaine`.
+- You're as bad as the rest of them, `elaine`!
+- Ben says he and `elaine` are getting married.
+- I'm going to tell you a secret now, `elaine`.
+- Mrs. robinson -- i have a date with `elaine`.
+- Marcia -- `elaine` -- me -- all taken care of.
+- Simon, why has he become so... so... `elaine`!
+- `Elaine`, i mean the mission has to be aborted.
+- `Elaine`, it's obvious you've been ignoring me.
+- So old `elaine` robinson got started in a ford.
+- `Elaine`, ask rok for a field interference scan.
+- No -- don't cry -- oh my god -- `elaine` -- yes.
+- We've got to... don't talk to me about `elaine`.
+- `Elaine`, i've come to apologize for lt. mcelroy.
+- Look -- `elaine` robinson and i do not get along.
+- I promise i will never take out `elaine` robinson.
+- The brain is an amazingly complex organ, `elaine`.
+- Hey ben, `elaine`'s coming down from berkeley soon.
+- `Elaine` -- right now i don't feel like talking much.
+- That's the way i've always wanted it to be, `elaine`.
+- But, `elaine` -- i think i'd better go home now please.
+- `Elaine` wolff is giving a free lecture tomorrow night.
+- Oh say -- `elaine` gets down from berkeley on saturday.
+- Jack, wait... `elaine`, i gotta put you on hold... jack?
+- `Elaine`, i'm sorry about that little outburst a moment ago.
+- `Elaine`, look, i'm in the middle of sone stuff right now...
+- `Elaine`, do you realize you can't stop talking about viktor?
+- There's something dangerously wrong with this ship, `elaine`.
+- `Elaine`, i don't want to have to take you in for questioning.
+- Listen, `elaine` -- it seems to me that there isn't a bar in here.
+- `Elaine`, i haven't time to put this gently, so i'll be very direct.
+- Look, `elaine`, i... request; comprehensive electrical systems check.
+- Listen, `elaine`, viktor and i -- it's strictly a working relationship.
+- I want to talk to you now, not as `elaine`, studio head, but `elaine`, ex-wife.
+- But `elaine` -- i don't want you to go anywhere until you have a definite plan.
+- In order to keep `elaine` away from you -- i am prepared to tell her everything.
+- By the way, if you ever go past the wyatt ranch, have another talk with `elaine`.
+- I have seen `elaine` and i have spent the afternoon taking steps to insure... huh?
+- It's awkward and strained for me every time he suggests that you call up `elaine`.
+- I talked too much, like always -- he thinks you told `elaine` the things i told her.
+- Well, `elaine`, this might be it if those guys on the ground don't think of something.
+- Who would believe that `elaine` thompson was once a stewardess on the denver-chicago run.
+- I don't know how many times i have to say this, `elaine`, but viktor and i are not in love.
+                 

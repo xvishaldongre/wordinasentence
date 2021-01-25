@@ -1,0 +1,7 @@
+---
+title: "abridged in a sentence | abridged example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "abridged"
+---
+## Unfortunately, we have no example sentences for abridged                 

@@ -1,0 +1,81 @@
+---
+title: "trunk in a sentence | trunk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trunk"
+---
+- We found your `trunk`.
+- In the `trunk` of a car.
+- Don't look in my `trunk`!
+- Pop the `trunk`, tumbler.
+- Can i hide in the `trunk`?
+- Link off the main `trunk`.
+- My stuff's in the `trunk`!
+- Get that out of your `trunk`.
+- I got a `trunk` in that room.
+- I need to get in the `trunk`.
+- The `trunk` under the carpet.
+- Gimme the keys for the `trunk`.
+- We'll throw him in the `trunk`.
+- Dr. kurtzweil is in the `trunk`.
+- I ain't gittin' in that `trunk`.
+- I sent a `trunk` home yesterday.
+- Now help me out of this `trunk`.
+- Right in the `trunk` of the car.
+- Yeah in the `trunk` of my squad.
+- Who was the `trunk` addressed to?
+- You don't have the `trunk` space.
+- Tied up in the `trunk` of the car.
+- In the `trunk` of my car is a rope.
+- You didn't leave me the `trunk` key.
+- You were <i>both</i> in the `trunk`?
+- Forget the story -- find the `trunk`.
+- I just ain't climbin' in that `trunk`.
+- You ain't getting out of that `trunk`.
+- What the fuck did you do to my `trunk`?
+- There's nothing in the `trunk`, sheriff.
+- I ain't riding in that `trunk` no minutes.
+- Pack the money up and put it in the `trunk`.
+- What the hell are you doing in that `trunk`?!
+- All the professionals keep them in the `trunk`.
+- You had to go into the `trunk`, didn't you?
+- Step away from the vehicle and pop the `trunk`.
+- Step out of the car, sir, and open the `trunk`.
+- Grace -- in the `trunk` of my car is a tow rope.
+- I just have to get something out of the `trunk`.
+- So have i--i can get it right out of my `trunk`.
+- Well, if you owe me, git your ass in the `trunk`.
+- The cop in the `trunk` -- he could still be alive.
+- Why don't you let him sleep it off in the `trunk`.
+- [the car will not be powerful and have no `trunk`.]
+- The `trunk` was just picked up -- by mrs. anna thorwald.
+- They found him yesterday folded neatly in a car `trunk`.
+- Sheriff, i'm telling you there's nothing in that `trunk`.
+- Well, i'm sorry, man, but i ain't gittin' in that `trunk`.
+- Some guy they found in a `trunk` with his head blown off.
+- It's like having an extra battery in the `trunk` of your car.
+- Theo helps millie load suitcases into the `trunk` of her car.
+- Certainly not with one of their own still locked in my `trunk`.
+- He was going to check on the railroad station, and the `trunk`.
+- Come on, crabtree, i know you're holding... that's a big `trunk`.
+- Shut the fuck up or i'll throw you back in the `trunk`, you know.
+- You're out in the desert, all alone, with a body in your `trunk`.
+- You're just jealous it was me in the `trunk` with her and not you.
+- Now step around to the back of the car and open the `trunk` for me.
+- You should've never took him outta your `trunk` in the first place.
+- Jesus, this guy used to carry a percussion bomb around in his `trunk`.
+- Lex, am i gonna have to lock you in the `trunk` till we reach detroit?
+- No... but i found some blood, smeared on a tree `trunk` in that grove.
+- There'd be a whole crowd of people around when the `trunk` was opened.
+- But when the `trunk` opened, how come you didn't cap the two guys then?
+- I wanna help you, but i don't wanna be locked in the `trunk` of no car.
+- This much powder you don't throw in the `trunk` with a blanket over it.
+- Of course, it's normal for a man to tie his `trunk` up with a heavy rope.
+- When i get back we'll load him in the `trunk` and dump him in the desert.
+- You almost brain me and lock me in a fucking `trunk` and you're on my side?
+- We'll leave a few packets in the `trunk`, and stash the rest somewhere else.
+- They're unarmed, you had a shotgun and you let them throw you in the `trunk`.
+- Your cabbie is floating down a storm drain or stuffed in the `trunk` of a cab.
+- Who's got a fucking million fucking dollars parked in the `trunk` of our car out here?
+- 'cause you're just taking out the garbage... you don't know the guy in the `trunk`, either.
+                 

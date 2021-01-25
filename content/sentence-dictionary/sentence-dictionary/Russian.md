@@ -1,0 +1,107 @@
+---
+title: "Russian in a sentence | Russian example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Russian"
+---
+- Don't speak `russian`!
+- The `russian` shithead.
+- He only speaks `russian`?
+- I'm not `russian` at all.
+- `Russian` women prisoners?
+- In a secret `russian` base.
+- We're translating `russian`!
+- It's a `russian` submersible.
+- Oh, my god, is she `russian`?
+- What's the `russian` for ant?
+- That's not czech or `russian`.
+- The `russian` would be easier.
+- Where's your `russian` friend?
+- Who said he sounded `russian`?
+- But the writing's in `russian`.
+- Maybe i should learn `russian`.
+- Yes, the little `russian` girl.
+- He's safe in the `russian` zone.
+- Of a `russian` child in hawkins.
+- Smirnoff is `russian` forget it.
+- Sounds like a `russian` general.
+- A secret `russian` communication!
+- My people, and the `russian` mob.
+- I know... it's the `russian` soul.
+- Gregor, he was the `russian`'s man.
+- I am also <u>rich</u> `russian`, da?
+- Does he sing in english or `russian`?
+- `Russian` minister of transportation.
+- I'm only safe in the `russian` zone...
+- We got `russian` subs creeping around.
+- Haitian, dominican, `russian`, israeli?
+- That's why he was trained in `russian`.
+- Maybe you better have a black `russian`.
+- Rus-to-kov, that's not `russian`, is it?
+- We'll never get him in the `russian` zone.
+- ...and a `russian` grandmother... bullshit.
+- Maybe those `russian` dames would take him.
+- Trust me... they're not speaking `russian`.
+- They thought the `russian` was a nice touch.
+- Designed by the greatest `russian` minds, no.
+- "existential motifs in `russian` literature"!
+- Lieutenant... is there... a `russian` attack?
+- She's some kind of a `russian` weapon, right?
+- So you know your krylov in `russian`, do you?
+- They always belonged to the `russian` people.
+- I don't know what an evil `russian` looks like.
+- I intercepted a secret `russian` communication.
+- I'll travel wherever `russian` commissions are.
+- No one shall say ninotchka was a bad `russian`.
+- You're not disposing of those `russian` broads?
+- In response to the `russian` ankovirus outbreak.
+- So what are you thinking, `russian` retaliation?
+- Strange man... you mustn't talk `russian` to me.
+- The address of the `russian` production company.
+- When the `russian` doctor took out the bone saw.
+- In america, this man is actually a `russian` spy.
+- When i kissed you i betrayed the `russian` ideal.
+- Who am i to cost the `russian` people seven cows?
+- Didn't someone say he didn't speak good `russian`?
+- Some `russian` princes want to hunt the himalayas.
+- I guess you'll be dismantling `russian` tanks soon.
+- There is a `russian` snowstorm in each of her eyes.
+- And then watched `russian` dashcam videos all night.
+- As in, they're working for the `russian` government?
+- I'll take you to the `russian` tea room for pelmeni.
+- So, how is it that you guys are fluent in `russian`?
+- The world will be crowded with `russian` restaurants.
+- Coffey wants to call it a `russian` submersible, fine.
+- Every `russian` family has one.. you are the princess.
+- She's working at the `russian` tea room in ogdenville.
+- The girl with the buzzed hair, she's not `russian`.
+- I'll fix you up with a couple of those `russian` women!
+- The `russian` with this keycard also has a massive gun.
+- We cannot feed the `russian` people on your intentions.
+- "he only had two more `russian` words right than wrong."
+- You are a fucking little, small `russian` piece of shit.
+- You're a czech national and you're a `russian` national.
+- It's next to impossible to get `russian` sweethearts out.
+- I'm gonna die in a secret `russian` base distraction it is.
+- A great artist will have great privileges in a `russian` zone.
+- Cause the `russian` production company would be easier to find.
+- Emits a high-pitched signal on `russian` emergency frequencies.
+- I'm talking a full-on `russian` invasion right here in hawkins.
+- Let me buy you a glass of some of that `russian` shit you like.
+- Grigory yefimovich rasputin -- grigory -- that's `russian`, right?
+- If i stay here a week i will cost the `russian` people seven cows.
+- Some `russian` girl with a shaved head was hiding in his basement.
+- The grand duchess swana... active in the white `russian` movement?
+- He'd have about as much use for `russian` as a cat has for pajamas.
+- You're telling me barbara holland was kidnapped by `russian` spies.
+- I always wondered if my freshman `russian` class would come in handy.
+- To exchange our thoughts - what does a `russian` know about business?
+- Critics give you bad reviews, you have them sent to the `russian` front.
+- We'd assume that twenty-five percent of the `russian` birds get through.
+- I know how hard this is on you, son, a `russian` spy presence in hawkins.
+- The feeb gig was i front a coupla undercover, `russian`-speakers to them.
+- You see, `russian` tanks are crossing the afghan border this very minute.
+- He's scared of that seven-foot-tall `russian` freak - to get my wife back.
+- Isn't there someone in indiana who speaks `russian` that... do i know you?
+- Why, i'm here to see my partners, gregor, the boys in the `russian` mafia.
+                 

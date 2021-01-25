@@ -1,0 +1,107 @@
+---
+title: "knows in a sentence | knows example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knows"
+---
+- But nobody `knows` it.
+- Cal `knows` who he is.
+- Everyone `knows` that.
+- God `knows` it worked.
+- God `knows` i want to.
+- He `knows` everything.
+- He `knows` we're here.
+- Maybe he `knows` best.
+- No one really `knows`.
+- She `knows` about you.
+- She `knows` i'm lying.
+- Who the hell `knows`?!
+- Lecter `knows` him.
+- She `knows` i know.
+- Everybody `knows` that.
+- Everyone `knows` deeds.
+- He `knows` where ya at.
+- He `knows` who you are!
+- I mean so he `knows`...
+- I think george `knows`.
+- It `knows` our secrets.
+- `Knows` all about that.
+- `Knows` i can help him.
+- Madox `knows`, i think.
+- Monkey `knows` the way.
+- My brother `knows` him.
+- My dog `knows`, though.
+- She `knows` about will.
+- She `knows` everything?
+- She `knows` who she is.
+- She `knows` who we are.
+- The government `knows`.
+- The whole town `knows`.
+- This is all he `knows`.
+- You bet he `knows` how.
+- He `knows` his alphabet.
+- He `knows` our defenses.
+- He `knows` we're coming.
+- He `knows` where i work.
+- I'm a woman who `knows`.
+- It `knows` where we are.
+- Justice already `knows`.
+- `Knows` what that means.
+- Nobody `knows` about us.
+- Nobody `knows` anything.
+- Nobody `knows` his name.
+- Peter `knows` something.
+- Ruiz `knows` about this?
+- She `knows` i knew noah.
+- She `knows` the terrain.
+- She `knows` you're here.
+- So he `knows` your name?
+- The ai `knows` the code.
+- Yeah, karen `knows` him.
+- Alie `knows` you're here.
+- Barry `knows` about this?
+- Everybody `knows` that...
+- He `knows` where that is.
+- I don't think he `knows`.
+- I hope she never `knows`.
+- It's out, and it `knows`.
+- Look who `knows` so much.
+- Nobody `knows` it was us.
+- No one else `knows` what?
+- Oh... she `knows` better.
+- She `knows` how she feel.
+- She `knows` i'm catholic!
+- She `knows` it's my case?
+- She `knows` not to steal.
+- She `knows` what happens.
+- Shelly `knows` what i am.
+- Tony `knows` [bleep] all.
+- Uh, well, dustin `knows`.
+- Who `knows` what that is?
+- Who `knows` what else?
+- Clarke `knows` about this?
+- Erin `knows`, doesn't she?
+- Everybody else `knows` it.
+- God `knows` <u>i</u> know.
+- He `knows` something's up.
+- He `knows` we're onto him!
+- I don't think she `knows`.
+- I mean, who `knows`, kane?
+- `Knows` what i'm building.
+- Man `knows` what he likes.
+- Nobody `knows` she's here.
+- Nobody `knows` who we are.
+- No, my friend `knows` her.
+- No one `knows` who did it.
+- She `knows` arnie metzger.
+- She `knows` you real self?
+- So's he and he `knows` it.
+- That no one `knows` about.
+- The computer `knows` that.
+- Vince `knows` you're here.
+- We hope she never `knows`.
+- What `knows` you of ready?
+- Any simpleton `knows` that.
+- Coach `knows` what abs are?
+- Diyoza `knows` who you are.
+                 

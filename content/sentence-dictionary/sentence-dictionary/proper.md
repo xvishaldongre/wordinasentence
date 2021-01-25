@@ -1,0 +1,87 @@
+---
+title: "proper in a sentence | proper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "proper"
+---
+- What `proper` grounds?
+- He's a very `proper` actor.
+- That's considered `proper`.
+- You're a `proper` champion.
+- It... seemed the `proper` way.
+- Rear ranks, `proper` distance!
+- That would hardly be `proper`.
+- It's not even a `proper` novel!
+- Learnin' 'ow to speak `proper`.
+- She always tries to be `proper`.
+- But that was not a `proper` kiss.
+- I'll see you get a `proper` tour.
+- Or it's not as normal or `proper`.
+- Let her decide the `proper` suitor.
+- Now that's a `proper` introduction.
+- Here you must be in `proper` attire.
+- Is this fitting and `proper` enough?
+- Now, that's a `proper` introduction.
+- Because i thought it `proper`, major.
+- It's full of `proper` german virtues.
+- Just like `proper` english gentlemen.
+- In a perfectly `proper` way, of course.
+- You look a `proper` gentlemen for once.
+- What is enterprise's `proper` evolvement?
+- I trust that you'll do the `proper` thing.
+- She doesn't show 'em the `proper` respect.
+- That seemed more `proper` to me, i reckon.
+- That's not really a very `proper` question.
+- That's `proper`, sir, according to the code.
+- What a dream i've had... `proper` nightmare.
+- I guess we've never been introduced `proper`.
+- That's because you had a `proper` upbringing.
+- To be determined by the `proper` authorities.
+- You have to go through the `proper` channels.
+- Musta been you didn't hear grandmama `proper`.
+- Nothing `proper` about what that man did to us!
+- Well, i guess we're not a very `proper` family.
+- I just wish i had a `proper` anesthetic for you.
+- We shouldn't be doing this -- it isn't `proper`!
+- Look forward to meeting you at the `proper` time.
+- Many of them, many did not possess `proper` arms.
+- We did all the `proper` things, and we lost love.
+- Why is he in your care, and not a `proper` prison?
+- You still need a `proper` nourishment for your brain.
+- Lois huggins says that's `proper`, oh, thank you, amy.
+- Don't you dare tell me that wasn't a `proper` kiss!
+- As of now, you start affording me the `proper` respect.
+- Well, i'm sure with the `proper` guidance he'll be fine.
+- Your leave has been granted for good and `proper` cause.
+- You've just gotta go through the `proper` channels first.
+- The police are the `proper` people to conduct this affair.
+- Oh look, i haven't got time to be `proper`, i want to live.
+- Or that he can't be bothered to write us a `proper` letter?
+- The `proper` application of strength, the door'll lift free.
+- It was a matter of forming the request in the `proper` terms.
+- Come closer then, jack, that i might give you `proper` thanks.
+- Now, let's get back to london and find a `proper` hiding place.
+- I thought it only `proper` to pay me last respects to the family.
+- We cover the story from here until we can get `proper` protection.
+- If i'd had a `proper` hospital bed, this never would have happened.
+- Carbon units have clearly retarded enterprise's `proper` evolvement.
+- I beg your pardon, general solo, but that just wouldn't be `proper`.
+- Rather disappointed at how poorly i taught you `proper` housekeeping.
+- I'm just glad someone finally put this thing in its `proper` perspective.
+- It seemed like the `proper` door for a servile, worthless organism to use.
+- I finally located a car with adequate horsepower and the `proper` coloring.
+- No, no, it's my fault -- we didn't have a `proper` introduction forget it.
+- If you've any accusations to make, hartman, make them in the `proper` manner.
+- Just burning them up, no `proper` funeral, it's like condemning them to hell.
+- Don't you think it's `proper` for a fella to introduce his girl to his parents?
+- Slip it through my tiny hole... don't start -- i'm hungry for a `proper` visit.
+- A policeman, like a judge, has a right to disqualify himself on `proper` grounds.
+- Make it bergdorf goodman... and now everything is on its `proper` shelf, eh, max?
+- Don't leave town and report any change in your address to the `proper` authorities.
+- Blast it -- no, i suppose you're right.... you do know the `proper` chemical formula?
+- When i return... you and i shall have a little talk about showing `proper` respect!
+- With the `proper` tools, conor, a naive man can be much more dangerous than an evil one.
+- I'm a `proper` citizen, i'm a decent man, i don't do anything that isn't decent or `proper`.
+- Really, susan, i don't think that was very `proper`, and besides, it's common practice now.
+- You can't tell me what the `proper` channels are, because that's classified information?
+                 

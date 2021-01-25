@@ -1,0 +1,51 @@
+---
+title: "governor in a sentence | governor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "governor"
+---
+- `Governor` mary bailey.
+- Not at all, `governor`.
+- `Governor` will be there.
+- My apologies, `governor`.
+- Right you are, `governor`!
+- It's all right, `governor`.
+- What's from the `governor`?
+- This is from the `governor`.
+- What a pleasure, `governor`.
+- `Governor` gathers up papers.
+- Sorry about this, `governor`.
+- This is the `governor`, lynn.
+- Did you speak to the `governor`?
+- Get the `governor` on the phone!
+- What were you saying, `governor`?
+- It's a pardon from the `governor`.
+- Now, that'll impress the `governor`.
+- Is taylor there?-- `governor` hopper.
+- What a pleasure, `governor` reynolds.
+- Has `governor` yu ever seen the sword?
+- The `governor`'s here in half an hour.
+- Full name and number to the `governor`.
+- He's just parking the `governor`'s car.
+- I'm a maid in the `governor`'s household.
+- Mrs. grant, `governor`...i won't hurt you.
+- We wanna make the `governor` feel at home.
+- I was just making some-- `governor` hopper!
+- Finest `governor` we've ever had in m'sippi.
+- Our `governor` is a bigger fool than i thought.
+- That's where you introduce me to the `governor`.
+- Maybe you'd like to come along and watch, `governor`?
+- Sir te believes it's a ploy cast suspicion on `governor` yu.
+- You're the man, the `governor`, the dude in the chair, like.
+- `Governor` yu is a court official, and in charge of security.
+- Is there any place safer than under the nose of `governor` yu?
+- The `governor` gave me his word of honor he wouldn't interfere.
+- Jesus - what a terrible tie- come on, the `governor`'s coming at 3.
+- But that's where we're gonna send you if it harelips the `governor`.
+- The election tuesday'll be only - i'm going to be elected `governor`.
+- Answer when the `governor` asks you a question you filthy young swine!
+- Then we'll let the `governor` in on the capture -- share the glory with him.
+- The `governor`'s got sbi, fbi, and god knows who else on their way down here.
+- Well, you're not too busy to know that the `governor` hasn't signed that reprieve!
+- For what i am trying to tell you is that i am the `governor` general of jesuits in france.
+                 

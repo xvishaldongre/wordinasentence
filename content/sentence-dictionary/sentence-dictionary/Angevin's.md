@@ -1,0 +1,7 @@
+---
+title: "Angevin's in a sentence | Angevin's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Angevin's"
+---
+## Unfortunately, we have no example sentences for Angevin's                 

@@ -1,0 +1,107 @@
+---
+title: "peace in a sentence | peace example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "peace"
+---
+- Got his `peace` talks.
+- I am a man of `peace`.
+- I get `peace` of mind.
+- It brought no `peace`.
+- Just `peace` on earth.
+- Like a `peace` treaty.
+- `Peace` in the family.
+- We bring them `peace`.
+- I maintain the `peace`.
+- Just `peace` and quiet.
+- The `peace` conference.
+- You will be at `peace`.
+- You will be at `peace`.
+- We must sue for `peace`.
+- We will have `peace`.
+- It's for `peace` of mind.
+- Let's find inner `peace`.
+- Ok. increase the `peace`.
+- She is dead � at `peace`.
+- Stupid `peace` and quiet.
+- Then we can have `peace`.
+- You say you want `peace`.
+- And negotiate for `peace`.
+- Did you ever find `peace`?
+- I have `peace` right here.
+- Is it `peace` in out time?
+- Let's just eat in `peace`.
+- Margo, let's make `peace`.
+- You want to be at `peace`?
+- Diyoza's terms for `peace`.
+- Freedom first, and `peace`.
+- Join the `peace` corps -- ?
+- To `peace` on earth, major.
+- A little `peace` of mind?...
+- Your legacy will be `peace`.
+- How about a `peace` offering?
+- I do feel kind of at `peace`.
+- Let my susie rest in `peace`!
+- May his soul rest in `peace`.
+- `Peace` is made is such ways.
+- Ten glorious days of `peace`.
+- Treacherous lover of `peace`!
+- 1945: `peace` breaks out d'oh!
+- And there will be the `peace`.
+- He brings `peace` from within.
+- Only then can we have `peace`.
+- `Peace`, good mercutio, `peace`!
+- This is how we get to `peace`.
+- You want the `peace` of death.
+- All any of us wants is `peace`.
+- Is there a way to make `peace`?
+- It gives me a sense of `peace`.
+- Where's the `peace` conference?
+- Can there be `peace` between us?
+- If it brings about `peace`, yes.
+- Let my daughter rest in `peace`.
+- `Peace` with the grounders yeah.
+- Your desire for `peace` is true.
+- The `peace` conference... viktor!
+- Was to strike a deal for `peace`.
+- It's the key to real `peace`, hmm?
+- I've made `peace` with it, though.
+- `Peace` and quit is for libraries.
+- Rest in `peace`, earth monitoring.
+- Spend a year in the `peace` corps.
+- We cannot defeat this -- `peace`?!
+- You want `peace`, no, no, not yet.
+- In `peace` may you leave the shore.
+- `Peace`, everybody--paul, penelope.
+- There's `peace`, happiness, safety.
+- There's `peace`, happiness, safety.
+- They were jeopardizing our `peace`.
+- This fuckin' `peace` is killin' us.
+- A mother-fuckin' `peace` conference.
+- Have <u>you</u> found `peace`..?
+- Are you at `peace` with your family?
+- But the `peace` and quiet is what...
+- Have you ever known `peace`, clarke?
+- He won't be at `peace` until you do.
+- In `peace`, may you leave the shore.
+- Is he sincere about wanting `peace`?
+- It has tainted your `peace` already.
+- On "the planet of galactic `peace`?"
+- We have one motto: `peace` on earth.
+- In `peace`, may you leave this shore.
+- I told you i need to work in `peace`.
+- So will you let me eat it in `peace`?
+- You were just trying to make `peace`.
+- All we'd ask for in return is `peace`.
+- But `peace` is a foreign concept here.
+- Have you come to make `peace` with me?
+- `Peace` without war is still possible.
+- Whatever he's after, it's not `peace`.
+- Miss all of this `peace` and quiet?
+- I believe your soul will be at `peace`.
+- In `peace`… may you leave this shore.
+- I want a home and children and `peace`.
+- I would like to have died in `peace`...
+- Let is complete our mission in `peace`.
+- One gold medallion with `peace` symbol.
+                 

@@ -1,0 +1,107 @@
+---
+title: "grab in a sentence | grab example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grab"
+---
+- Don't `grab` me, okay?
+- Go `grab` me a shovel.
+- `Grab` onto something.
+- `Grab` yourself a cue.
+- Mike: `grab` on to it!
+- Want to `grab` a beer?
+- Hicks: `grab` her, man.
+- Let's `grab` some food.
+- So you gotta `grab` it.
+- Everyone `grab` a torch!
+- I want to `grab` my bag.
+- Let's `grab` a highball!
+- Okay, `grab` his walkie.
+- Would you `grab` me one?
+- You wanna `grab` a bite?
+- `Grab` a seat there, boy.
+- Jesus christ, `grab` her!
+- Knock off the `grab`-ass!
+- All right, `grab` the bat.
+- `Grab` it, eddie, `grab` it!
+- I'm off to `grab` a drink.
+- Only if you `grab` my ass.
+- Raymond, `grab` the tapes.
+- We `grab` madi, and we go.
+- We'll `grab` 'em in a sec.
+- Everybody `grab` your gear!
+- Frida, `grab` that red one.
+- `Grab` on to this, come on!
+- I'm gonna go `grab` dinner.
+- Just `grab` a history book.
+- Bobby peru `grab` you now...
+- `Grab` mary and come inside.
+- `Grab` yourself an egg roll.
+- Hey, okay if i `grab` a cue?
+- I'm gonna go `grab` a drink.
+- Just let me `grab` a shower.
+- Pair up, `grab` the weapons.
+- Would you `grab` my shampoo?
+- I don't care what, `grab` it.
+- Only if you try to `grab` me.
+- You people go `grab` a table.
+- Everybody, `grab` your monkey.
+- Let's just `grab` that and go.
+- Maybe i should `grab` my mace.
+- `Grab` me with your other hand!
+- I'm gonna `grab` a quick slice.
+- We were gonna `grab` some food.
+- Bend over and `grab` your shins.
+- Come on girls, `grab` your oars.
+- Dante, let me `grab` a gatorade.
+- Hey, can you `grab` that strainer?
+- They're about to `grab` the hosts.
+- Did you want to `grab` one with me?
+- Don't you wanna `grab` one with me?
+- `Grab` one of the cards behind you.
+- ......come on, let's `grab` a table.
+- They `grab` ugarte and she walks in.
+- Well, then why don't you `grab` him?
+- `Grab` the keys, ich, and get inside.
+- Shut your ass up and `grab` the wall!
+- You `grab` it, and you run like hell.
+- Give me your gum and `grab` the wheel.
+- Let's go inside and `grab` your rocks.
+- Shouldn�t we `grab` some dinner first?
+- Just `grab` my waist and hold on tight.
+- Let's `grab` a fuckin beer -- seat belt.
+- We `grab` the doctor, okay, makes sense.
+- Why can't we just `grab` a goddamn beer.
+- I can't let everybody `grab` free drinks.
+- They can always `grab` oranges off trees.
+- When you see your opportunity, `grab` it!
+- Don't worry about me, i'll `grab` a cab...
+- If our feet get hot, you `grab` the piano.
+- You didn't `grab` her and try to kiss her?
+- You don't think i can `grab` bulls' balls?
+- Did you see that kid `grab` vampira's tits?
+- I can't believe you let them `grab` my rig!
+- Short round, come on, `grab` onto me tight!
+- Did you want to `grab` dinner, or something?
+- He comes in the window, we maybe `grab` him.
+- In fact we had time to `grab` a bite to eat.
+- Next wednesday i `grab` a grand from snyder.
+- Just `grab` a blanket and pillow off the bed.
+- C'mon, sally - let's `grab` a bite... move out?
+- `Grab` your gear and meet at raven's gate in 5.
+- Okay... well, honey, just `grab` some other toy!
+- All we have to do to `grab` ganz is not go blind.
+- Let every rag in town `grab` a red-hot story?
+- I'll be outta micro-bio and we can `grab` a bite.
+- I'm gonna swing by, you're just gonna `grab` him.
+- Let's `grab` them quick before someone else does.
+- Sure billy, `grab` your dog we'll eat in the van.
+- Hey, what do you say we go `grab` a couple drinks.
+- I'll `grab` your snickers and get a place in line.
+- Take my advice�`grab` the first bus back to miami.
+- Things'll go crazy, and we'll `grab` you and finn.
+- This is a story that's gonna <u>`grab`</u> people.
+- I think i'll `grab` one for myself while i'm at it...
+- All i have to do is `grab` my suitcase, and i'm ready.
+- But when it's over, we talk about how `grab` the keys.
+                 

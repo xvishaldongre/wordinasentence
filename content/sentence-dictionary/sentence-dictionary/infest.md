@@ -1,0 +1,8 @@
+---
+title: "infest in a sentence | infest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "infest"
+---
+- You `infest` and control enterprise.
+                 

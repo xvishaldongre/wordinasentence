@@ -1,0 +1,107 @@
+---
+title: "their in a sentence | their example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "their"
+---
+- Get into `their` head.
+- I let `their` dog out.
+- I'll get `their` guns.
+- I met `their` parents.
+- It's for `their` sake.
+- It's `their` building.
+- Target `their` bridge.
+- That's `their` symbol.
+- `Their` families, too.
+- `Their` family owns...
+- They lost `their` son.
+- To break `their` will.
+- Was he `their` leader?
+- What is `their` ethos?
+- You get `their` power.
+- You mean `their` cars?
+- You're `their` healer?
+- He is `their` champion.
+- I come in `their` room.
+- I'm `their` only pilot.
+- I stroked `their` hair.
+- It's not `their` fault.
+- Of `their` <u>tits</u>.
+- Still has `their` soul.
+- That's on `their` head.
+- That's `their` problem.
+- `Their` design is good.
+- `Their` ship is so big.
+- They're on `their` own.
+- They're on `their` way.
+- This is `their` becket.
+- To eat `their` friends.
+- We honor `their` lives.
+- We're at `their` mercy.
+- What are `their` names?
+- What's `their` program?
+- And cancel `their` date.
+- He's one of `their` own.
+- In `their` own language?
+- Is it `their` innocence?
+- Now, as `their` coach...
+- Send in `their` friends.
+- Takes over `their` mind.
+- That's `their` position?
+- `Their` check's no good?
+- `Their` minds are so....
+- `Their` radio's out too.
+- `Their` weapons missing?
+- `Their` wedding clothes.
+- Tie `their` hands, boys.
+- What was `their` intent?
+- You on `their` team now?
+- You use `their` witness.
+- You were `their` leader.
+- And we need `their` help.
+- Clarke's on `their` side?
+- Get them on `their` feet.
+- Give me `their` uniforms.
+- Glitterize `their` tears.
+- Got `their` own language.
+- I saved `their` universe.
+- Let 'em have `their` fun.
+- Miller, get `their` guns.
+- Not taking `their` money.
+- `Their` clothes are here!
+- `Their` clothes are here.
+- `Their` friends are here.
+- `Their` loss is our gain.
+- `Their` weapons are down.
+- They made `their` choice.
+- They're on `their` way...
+- To follow `their` dreams.
+- Took away `their` choice.
+- To save `their` own skin.
+- We've seen `their` faces.
+- `Their` pets are fine.
+- For fixing `their` system.
+- Get one of `their` horses.
+- Goes back in `their` lamp.
+- Guys name `their` penises.
+- Hallowed be `their` names.
+- How many in `their` party?
+- I just fix `their` planes.
+- It's `their` power base...
+- Leave `their` stuff alone.
+- Let's get `their` weapons.
+- Let's get `their` weapons.
+- On `their` transport ship.
+- On `their` worst mistakes.
+- Scarred `their` own faces?
+- Some of `their` handiwork?
+- `Their` deaths are on you.
+- `Their` offices are empty.
+- Then `their` sos was real.
+- The words of `their` gods.
+- They do take `their` time.
+- They got `their` own guys.
+- They'll lose `their` hair.
+- They'll wet `their` pants.
+- To relink to `their` tags.
+                 

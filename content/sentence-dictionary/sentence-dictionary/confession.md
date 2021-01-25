@@ -1,0 +1,63 @@
+---
+title: "confession in a sentence | confession example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "confession"
+---
+- For your `confession`?
+- I have a `confession`.
+- Go to `confession`.
+- I went to `confession`.
+- We need a `confession`.
+- Try for the `confession`.
+- I signed the `confession`.
+- There's your `confession`.
+- To my weekly `confession`.
+- Offer me your `confession`.
+- I should go to `confession`.
+- I got a `confession` to make.
+- It's a deathbed `confession`.
+- I have a `confession` to make.
+- I have a `confession` to make?
+- I can't hear your `confession`.
+- I have a terrible `confession`.
+- Do you know what `confession` is?
+- I can't hear your `confession`...
+- I have got a `confession` to make.
+- I, um, have a `confession` to make.
+- Not unless you hear my `confession`.
+- Okay, i have a `confession` to make.
+- Tapert's given us a full `confession`.
+- I've got a `confession` to make to you.
+- Someone else c'n take your `confession`.
+- Write my `confession`, and i'll sign it.
+- He gets one day of `confession` each year.
+- Okay, then, i have a `confession` to make.
+- You don't want to miss first `confession`.
+- He didn�t need your `confession`... what sums?
+- How long since your last `confession`, my son?
+- Aside from thinking our church has `confession`.
+- Have you got leave to go to `confession` to-day?
+- It has been two days since my last `confession`.
+- It's been two months since my last `confession`.
+- Well, i'm really pleased to hear a `confession`.
+- I'll come down and make a full `confession` later.
+- Is this, by any chance, going to be a `confession`?
+- Unless is a signed `confession`, i'm not interested.
+- You have just six hours to make a full `confession`.
+- I ask only one thing... to hear me in `confession`...
+- Well, this is a unique `confession` to say the least, son.
+- Given your `confession`, what happens if we delete her code?
+- You want me to write a `confession`, i'll write a `confession`.
+- How many sins have you committed since your last `confession`?
+- She has admitted to her evil and signed a written `confession`.
+- This is my first `confession` in... well... a really long time.
+- I wonder how many hail marys the father'll make me say at `confession`.
+- You run, you may as well sign a `confession`, turn us both in right now.
+- He's signed a `confession`--supplied us with the suit he wore on the night.
+- M'sieu laval, i've got a `confession` to make to you ... no--yours, madame.
+- A `confession` of failure for every one of you who ends up in the stripy hole.
+- While they deserved it, i still went to `confession` the following sunday.
+- Besides, a `confession` under torture will never convince anyone of her guilt.
+- So, edwin, baby, this is sunrise `confession` time... what have you got for us?
+                 

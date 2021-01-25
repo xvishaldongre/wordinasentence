@@ -1,0 +1,54 @@
+---
+title: "quantum in a sentence | quantum example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "quantum"
+---
+- `Quantum` zeno effect.
+- To the `quantum` realm.
+- To the `quantum` realm.
+- Ready `quantum` torpedo.
+- Absorbing `quantum` energy.
+- Approaching `quantum` void.
+- `Quantum` healing particles.
+- `Quantum` is up thirty-five.
+- `Quantum` entanglement, scott.
+- Lost... in the `quantum` realm.
+- `Quantum` energy is the future.
+- "`quantum` anomaly" in argentina.
+- Thanos destroyed the `quantum` tunnel.
+- About a `quantum` anomaly in argentina.
+- That's not how `quantum` physics works.
+- Why don't you just `quantum` leap there?
+- Worf, `quantum` torpedoes at my command!
+- In the wasteland, beyond the `quantum` void.
+- I was in a place called the `quantum` realm.
+- Well, you wanted a smaller `quantum` tunnel.
+- One of the oddest things in `quantum` physics.
+- Superconducting `quantum` interference device.
+- The doorway to the `quantum` realm was opened.
+- The doorway to the `quantum` realm was opened.
+- Time works differently in the `quantum` realm.
+- Time works differently in the `quantum` realm.
+- I read that with a `quantum` increase of seven.
+- I read your paper on the `quantum` zeno effect.
+- Exit the `quantum` realm at another point in time?
+- Does anyone know what the `quantum` zeno effect is?
+- Can we modify a `quantum` spectrometer and track it?
+- It's all `quantum` physics and molecular attraction.
+- Could we modify a `quantum` spectrometer and track it?
+- Well, on a `quantum` scale, that may actually be true.
+- Have either of you guys ever studied `quantum` physics?
+- There is no `quantum` flux and there is no auxiliary...
+- Years, she's been down there absorbing `quantum` energy.
+- _ colin was a `quantum` physicist, a fields medal winner.
+- The `quantum` realm is like its own microscopic universe.
+- The new `quantum` torpedoes are doing the trick, jean-luc.
+- A `quantum` implosion has occurred within the amargosa star.
+- Phasers are off-line... we have two `quantum` torpedoes left.
+- Do you guys just put the word '`quantum`' in front of everything?
+- See, the rules of the `quantum` realm aren't like they are up here.
+- Between the `quantum` states composed of her molecules and your brains.
+- Open `quantum` latches -- rechannel all safety relays -- i read the same here.
+- Isolated completely, a `quantum` system would revert back to separate states of matter.
+                 

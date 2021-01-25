@@ -1,0 +1,66 @@
+---
+title: "emperor in a sentence | emperor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "emperor"
+---
+- The `emperor`'s blade.
+- How is... the `emperor`?
+- We're with the `emperor`.
+- "... by the `emperor` of rome.
+- It was .... the `emperor` ....
+- Is the `emperor` angry with me?
+- You underestimate the `emperor`.
+- I've also heard of the `emperor`.
+- Then the `emperor` has already won.
+- To the `emperor`... and the senate.
+- Well, i can speak for the `emperor`.
+- The `emperor` has been expecting you.
+- He won't turn me over to the `emperor`.
+- I'm the `emperor` why can't i kill him?
+- The `emperor` has given him permission.
+- The `emperor` himself, didn't you know?
+- The `emperor` is strong with the force.
+- Tomorrow night i dine with the `emperor`.
+- He's, like, the `emperor` augustus, right?
+- The `emperor` is not as forgiving as i am.
+- We must obey our `emperor` and the senate.
+- But the `emperor` of china had 1000 of them!
+- The `emperor`'s going to fight in the arena.
+- I think i'll take this up with the `emperor`.
+- Where is the `emperor` and the army, soldier?
+- But they could be made to serve the `emperor`.
+- Come, the `emperor` will complete your training.
+- I am a servant of the his majesty the `emperor`.
+- You've heard of the `emperor` caligula, perhaps?
+- Now the `emperor` is kind of a spiritual figure, yes?
+- The exact month when the `emperor` must be confirmed!
+- Perhaps you are not as strong as the `emperor` thought.
+- So tell me, what happened between you and the `emperor`?
+- The `emperor` will show you the true nature of the force.
+- `Emperor` the atreides house is building a secret army!...
+- I don't know... cos, what in hades is the `emperor` up to?
+- The `emperor` and i are bound by the threads of the fates.
+- On december 2, 1804, napoleon was made `emperor` of france.
+- Luke, i will not lose you to the `emperor`, as i lost vader.
+- When the senate and the `emperor` agree miracles can happen.
+- For the `emperor`, to choose a wife, is only a matter of minutes.
+- The `emperor` has decided to marry your archduchess, marie-louise.
+- I see the `emperor`'s little boy has finally caught up with the army.
+- It's not often an `emperor` like <i>you</i> calls on creatures like us.
+- The `emperor` does not share your optimistic appraisal of the situation.
+- To practice it, ya gotta play -- i'd like to bomb their `emperor` too.
+- If they got arrested and executed, all their estate went to the `emperor`.
+- Together we will be the most powerful ... even stronger than the `emperor`.
+- All i seek is a genuine balance of power between the `emperor` and the senate.
+- I haven't the slightest idea of how the `emperor` francis might feel about this.
+- Sought audience with the `emperor` -- give me back my anonymity, that's all i ask!
+- Ah, my dear napoleon, sometimes i feel that i am not really an `emperor` as you are.
+- The harkonnens are our enemies, yes... but behind them, i suspect, is the `emperor`.
+- But surely the `emperor` didn't mean to prohibit dancing when it's part of the story.
+- You could be the one, the `emperor`, the man who oversees the rebirth of the republic.
+- This would be, in a grander situation, as if a chamberlain were to expose an `emperor`.
+- Can you tell my readers more about your star-crossed connection with `emperor` commodus?
+- Did the `emperor` or empress give you any... instructions of any kind... before you left?
+- So, i'm the only one here who can tell the difference between an `emperor` and a murderer?
+                 

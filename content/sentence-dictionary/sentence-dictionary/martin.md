@@ -1,0 +1,100 @@
+---
+title: "martin in a sentence | martin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "martin"
+---
+- `Martin`, this is jay.
+- You hear me, `martin`?
+- Hey, `martin` princess.
+- Definitely not `martin`.
+- Tell you what, `martin`.
+- You know what, `martin`?
+- I'm `martin`... remember?
+- `Martin`, do you read me?
+- `Martin`, it's not funny!
+- `Martin`, we're going in.
+- `Martin` -- your customer.
+- Oh, you know me, `martin`.
+- `Martin`, this is an order!
+- Do you understand, `martin`?
+- Thinks he's `martin` borman.
+- Go to your reunion, `martin`.
+- `Martin`, uh, we've found it.
+- Yeah, we're getting `martin`.
+- "abraham, `martin`, and john."
+- Harry, we spoke with `martin`.
+- How'd you meet `martin` anyway?
+- `Martin`, it could be anything.
+- I work for `martin`, that�s all.
+- Let me help you along, `martin`.
+- Lisa `martin` ramos, mr. creasy.
+- A simple shave, please, `martin`.
+- Don't concern yourself, `martin`.
+- Who will speak for gina `martin`?
+- Last week i saw a purple `martin`.
+- Trying to say something, `martin`?
+- Great, `martin`, that's just great.
+- I'm `martin` bettes ... dr. bettes.
+- `Martin` won't order from the menu.
+- Yeah... he was one `martin` helder.
+- `Martin`, damnit, what are you up to?
+- `Martin`, what- damn it, look at you!
+- You don't like `martin` much, do you?
+- Especially if i help him get `martin`.
+- `Martin`, my husband, i've killed him!
+- Only feeding the disease, eh, `martin`?
+- Can senator `martin` do something to you?
+- Have you been x-rayed recently, `martin`?
+- Well...`martin` says... only if i'm dead!
+- `Martin`, would you run me an atmospheric?
+- I want `martin` weir, i go get `martin` weir.
+- Harry told me `martin` loves it, he flipped.
+- I've always respected your opinion, `martin`.
+- Pinta `martin` ramos is just a number to you.
+- For starters, marty wasn't `martin` back then.
+- I think what you fear `martin` is domesticity.
+- `Martin`, we hired the best man we could find.
+- Two time academy award nominee, `martin` weir.
+- Yeah, well `martin` is known for his flipping.
+- `Martin`... he�s `martin`... who�s the money man?
+- There's this kid at school... `martin` brockett.
+- `Martin`, can't you just deal with this yourself?
+- `Martin`...i want you to know some- thin'... how?
+- `Martin` luther king was killed in memphis today!
+- It's three feet deep, `martin` he's sitting in it.
+- Just me... `martin`�s gone back to the ambassador.
+- Yes, for every `martin` short, this place is huge.
+- This ed `martin` character is a complete loser.
+- Meantime, try to get a feel for catherine `martin`.
+- `Martin`, i'm not connected to those people anymore.
+- See if you could help him get `martin` in his movie?
+- Come on... right now... she's gonna talk to `martin`?
+- It's based on the life of doctor `martin` luther king.
+- Yeah, i hear you bagged `martin` weir for mr. lovejoy.
+- `Martin` swayzak is going to be this town's next mayor.
+- No need to involve outsiders in our business, `martin`.
+- Don't forget how far we are from the colonies, `martin`.
+- The guy doing the investigating is named `martin` dardis.
+- `Martin`, set course for irth and accelerate us into stardrive.
+- Says here you're getting `martin` weir for the part of lovejoy.
+- But for catherine `martin`, it all comes down to you and lecter.
+- Deeds, does the name of `martin` w. semple mean anything to you?
+- I've always liked the format of rowan and `martin`'s "laugh-in."
+- It's `martin` the door begins to open revealing debi and newberry.
+- Right now your big friend at the diplomat is bleeding fast, `martin`.
+- Well, `martin`, i only wear them in washington -- that's the trouble.
+- `Martin` i'm sorry to have dragged you all the way down here for that.
+- Well actually, `martin` the movie we came to talk about is mr. lovejoy.
+- I got to ask you and `martin` to ride to the state capitol with me, ethan.
+- `Martin` van buren aldrich and my pa's the only democrat in cross corners.
+- He said if `martin`'s interested, i could get a half a million for it easy.
+- I'm sorry to say it looks like you were right in the first place, `martin`.
+- Whoever he is, your guy�s not one of friedman�s... is this friedman, `martin`?
+- Okay -- perfect timing as ever -- hold the fort for a second will you, `martin`?
+- Doesn't matter what it's called, harry's got `martin` weir and it's gonna be big.
+- Maybe when he gets tired of toying with senator `martin`, he'll talk to you again.
+- Only this time, no john wayne and dean `martin` shooting the bad guys in el dorado.
+- `Martin`, could you wait here for a few minutes while we make up our minds about something?
+- Anyway, murray has this shrink, who also happens to be `martin`'s personal trainer's shrink.
+                 

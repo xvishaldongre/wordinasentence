@@ -1,0 +1,7 @@
+---
+title: "entomological in a sentence | entomological example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "entomological"
+---
+## Unfortunately, we have no example sentences for entomological                 

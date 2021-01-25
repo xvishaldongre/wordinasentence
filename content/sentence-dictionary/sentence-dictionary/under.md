@@ -1,0 +1,107 @@
+---
+title: "under in a sentence | under example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "under"
+---
+- Get a look `under` it.
+- It's `under` my desk!!
+- Look `under` the body.
+- Right `under` my nose.
+- We are `under` attack!
+- You're `under` arrest.
+- You're `under` arrest.
+- You're `under` arrest!
+- You're `under` arrest.
+- He ever served `under`.
+- In `under` six seconds.
+- It's not `under` power.
+- It's `under` your name.
+- It's `under` your seat.
+- She was pulled `under`.
+- `Under` two conditions.
+- We are `under` assault.
+- You are `under` arrest.
+- Brothers `under` livery.
+- Check `under` the wheel.
+- He was `under` pressure.
+- I'm in the over `under`.
+- Nothing `under` pearson.
+- `Under` heat properties.
+- `Under` the seat... who?
+- `Under` the underground?
+- `Under` the underground.
+- `Under` the world clock.
+- Yeah, `under` the steps.
+- Bloom, i'm going `under`.
+- Guy had it `under` a wig.
+- He's heading `under` -- !
+- I got it `under` control.
+- I had it `under` control.
+- I'm `under` house arrest!
+- I'm `under` the gun here.
+- In a box `under` my seat.
+- Place him `under` arrest.
+- She's `under` the grille!
+- The other way is `under`.
+- These men you up `under`.
+- Took him `under` my wing.
+- Unless you're `under` 18.
+- We `under` attack or not?
+- You look `under` the bad.
+- And look `under` your bed?
+- Get the girl back `under`.
+- I can't `under`- stand it!
+- I'll put her back `under`.
+- I `under`-understand that.
+- Put him `under` the table!
+- That means `under` a year.
+- `Under` arrest for murder.
+- `Under` the circumstances.
+- `Under` what circumstance?
+- We are not `under` attack.
+- What's `under` the ground?
+- You're all `under` arrest.
+- `Under` any conditions.
+- Everything `under` control?
+- He had you `under` a spell.
+- I got this `under` control.
+- It's geoffrey `under` this.
+- I was `under` house arrest.
+- Just `under` the waterline.
+- Sir, are we `under` attack?
+- Somewhere `under` all this.
+- The bags `under` your eyes.
+- They're `under` the ground!
+- `Under` the exodus charter.
+- Why are they `under` there?
+- Are you gross `under` there?
+- A tunnel `under` the palace.
+- How about "`under` the sea?"
+- How are things down `under`?
+- It was `under` control, bud.
+- I was hurt `under` your arm.
+- Okay, you're `under` arrest!
+- That's `under` lock and key.
+- Uh... you're `under` arrest.
+- `Under` the bed with niylah.
+- What's buried `under` there?
+- What she's standing `under`.
+- A kiss `under` the misteltoe.
+- A kiss `under` the mistletoe.
+- Can he breathe `under` water?
+- Come on, what's `under` this?
+- Everything's `under` control.
+- Have really held you `under`?
+- I'm `under` some magic spell?
+- In closets, `under` the sink.
+- It's right `under` that pile.
+- There's no safe `under` here.
+- The trunk `under` the carpet.
+- `Under` the manhattan bridge.
+- What's `under` that sheet...?
+- You got this `under` control?
+- Careful, don't get `under` it!
+- Everything is `under` control.
+- He's `under` so much pressure.
+                 

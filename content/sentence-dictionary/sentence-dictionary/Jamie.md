@@ -1,0 +1,56 @@
+---
+title: "Jamie in a sentence | Jamie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jamie"
+---
+- I'm here now, `jamie`.
+- Were you with `jamie`?
+- `Jamie`, he's careless.
+- Whatever `jamie` needs.
+- Don't touch him `jamie`!
+- Why did you take `jamie`?
+- Let `jamie` take the lead.
+- What's happened to `jamie`?
+- `Jamie`, you're not mad at me.
+- Does it have to do with `jamie`?
+- I wanna see `jamie` lee's breasts.
+- `Jamie` needs a halloween costume.
+- So i have to watch `jamie` tonight.
+- Are you talking about `jamie` lloyd?
+- I helped `jamie` with the first one.
+- Come on `jamie`, lets go back to bed.
+- When do we see `jamie` lee's breasts?
+- You'll have to watch `jamie` tonight.
+- Get a higher arc on the ball, `jamie`.
+- Can i come over after `jamie`'s asleep?
+- What would you like me to tell `jamie`?
+- You promised me -- you promised `jamie`!
+- He's insisted `jamie` and i be there too.
+- I think `jamie`'s been seeing karl again.
+- `Jamie`, sometimes it's... like a sister?
+- John, they sound `jamie` lloyd this morning!
+- Just take `jamie` and get out of that house.
+- That you're scamming on `jamie` sullivan.
+- It was the nightmare man `jamie`, what happened?
+- I'm gonna lower you to the chimney, okay `jamie`?
+- That's where `jamie` lives, that's where he'll go.
+- `Jamie` lee was always the virgin in horror movies.
+- People he really likes--he lets call him "`jamie`."
+- Subject's name is "`jamie` gumb," aka "john grant."
+- `Jamie` looks pretty -- i'll tell her you were here.
+- I'd like to take `jamie` to dinner on new year's eve.
+- Keep your distance from this house -- and from `jamie`.
+- Your just going to go in and buy a costume for `jamie`.
+- `Jamie` ... not if i kill you first ... give up, castor.
+- I sent `jamie` off because i wanted to be alone with you.
+- Stacy, did fredrica ever mention a man named `jamie` gumb?
+- I'll get rid of `jamie` -- but you and i are in this together.
+- Letting `jamie` go out, cooking me dinner, -- your next assignment?
+- `Jamie` kurth, jonathan edmunds-- i'm not a witch, you're all crazy!
+- We're not real sisters `jamie`, but that doesn't mean i love you any less.
+- Sam, she died with him in that explosion after the -- it was `jamie` lloyd.
+- `Jamie`'s baby ... she has the gift -- the blood of thorn running through her veins.
+- Right now at least one girl is dead and `jamie` lloyd is in there fighting for her life.
+- The fog, terror train, prom night -- how come `jamie` lee curtis is in all these movies?
+                 

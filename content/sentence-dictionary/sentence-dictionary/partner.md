@@ -1,0 +1,107 @@
+---
+title: "partner in a sentence | partner example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "partner"
+---
+- Diego is my `partner`.
+- Right here, `partner`.
+- You'd be my `partner`.
+- You were my `partner`?
+- In my youth, `partner`.
+- Is this your `partner`?
+- Where's your `partner`?
+- I'm your care `partner`.
+- I need a `partner`, roy.
+- Used to be my `partner`.
+- Don't tell me, `partner`.
+- I'd be a great `partner`.
+- Rain check me, `partner`.
+- Well, me and a `partner`.
+- Your `partner`'s through.
+- Derek's our `partner`.
+- Catch you later `partner`.
+- Look around you `partner`!
+- Please choose a `partner`.
+- I'm not your `partner`.
+- Doucet killed my `partner`.
+- He's half yours, `partner`.
+- I like that in a `partner`.
+- Looking... good, `partner`.
+- You well-heeled, `partner`?
+- Have hope be your `partner`.
+- I got my `partner` in there!
+- My `partner`'s marcus welby.
+- So i'm a terrible `partner`?
+- I'll call my study `partner`.
+- I'm ahead of you...`partner`.
+- I'm bringing in my `partner`.
+- I wanted to be his `partner`.
+- Look at your dildo `partner`.
+- Well, he killed my `partner`!
+- Hank was a terrible `partner`.
+- I'm hobbes's `partner`, right?
+- The "silent" silent `partner`.
+- Watch it, `partner`, watch it!
+- Who was this `partner` of his?
+- Your `partner` is still alive.
+- Looks like you got a `partner`.
+- And making marge your `partner`.
+- Meet my `partner`, gloria perez.
+- You're going to be my `partner`.
+- Excuse me, you were my `partner`?
+- I'd be a good sparrin' `partner`.
+- Of course i'll be your `partner`.
+- Then have hope be your `partner`.
+- What are you, a silent `partner`?
+- I heard he shot his own `partner`.
+- I mean, i could be your `partner`.
+- You need a `partner` for this job.
+- All right, how's the new `partner`?
+- 'cause you'll find a new `partner`.
+- Homer, i want to be your `partner`.
+- I gotta talk to me `partner` first.
+- I'm not used to having a `partner`.
+- Kay, you're scaring your `partner`.
+- Nick, have i been a good `partner`?
+- You're working a `partner` on this.
+- 'cause your `partner` depends on it.
+- I had a `partner` and she fucked me.
+- I'm trying to help your "`partner`."
+- I told your `partner`, i can't help.
+- It was no time to lose my `partner`.
+- But it's not in the cards, `partner`.
+- Does this offer include my `partner`?
+- I ain't his `partner`, i'm a tourist.
+- That's kelly, my so-called `partner`.
+- This is our little secret, `partner`.
+- "my new true `partner`, but i blew it!
+- Where's your `partner`, the jumpy one?
+- Captain rob's always been my `partner`.
+- Hey, `partner`, we're wasting daylight.
+- Lester clark jr. my ex-`partner`'s son.
+- You do want a `partner`, don't you son?
+- You want my `partner` to kiss your ass?
+- You're our thirty-percent `partner`?
+- Easy there, `partner` -- i wasn't there.
+- Help your `partner` with the blindfolds.
+- I haven't had a bingo `partner` in ages.
+- My `partner`'s dead because of this guy.
+- You already have a `partner` mr. kastle.
+- I ain't your `partner`, i'm your manager.
+- It was wade's old `partner`... gallagher.
+- My ex-`partner`'s kid went off the rails.
+- Sounds like his `partner`'s all lubed up.
+- This is the guy that killed my `partner`.
+- Well, i was supposed to be his `partner`.
+- But you've got plenty to lose '`partner`'.
+- He was a business `partner` of my daddy's?
+- I'm kind of a deadbeat lab `partner`, huh?
+- Managing `partner` at damon, schwarzchild.
+- Ricky tan was his `partner` for ten years.
+- What i need is a `partner` i can count on.
+- You need a `partner`, someone to spot you.
+- He's a `partner` now, earl, like it or not.
+- Or become involved with a mature `partner`.
+- Sonny burnett...this is my `partner`, rico.
+                 

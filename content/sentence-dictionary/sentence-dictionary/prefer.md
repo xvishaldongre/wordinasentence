@@ -1,0 +1,107 @@
+---
+title: "prefer in a sentence | prefer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prefer"
+---
+- I `prefer` the aliens.
+- You `prefer` an apple?
+- Whichever you `prefer`.
+- As you `prefer`, squire.
+- I'd `prefer` you didn't.
+- I `prefer` it like this.
+- Some people `prefer` it.
+- I `prefer` your new body.
+- Or do you `prefer` boone?
+- Which would you `prefer`?
+- But i `prefer` it to this.
+- Or "nori" if you `prefer`.
+- Which one do you `prefer`?
+- But i `prefer` the machete.
+- ...i `prefer` apartments...
+- I `prefer` distrusting you.
+- Or would you `prefer` jail?
+- I `prefer` "bowling center".
+- Or would you `prefer` a beer?
+- I just `prefer` the other one.
+- Believe me, i'd `prefer` not to.
+- Enola may `prefer` to stay here.
+- I `prefer` scotch to bourbon.
+- I `prefer` waiting for a while...
+- Would you `prefer` to do nothing?
+- I `prefer` a dose of common sense.
+- Or even mrs. earp if you `prefer`.
+- Personally, i'd `prefer` stupidity.
+- We can go to one if you'd `prefer`.
+- With your skin, i `prefer` crimson.
+- In this city... you'd `prefer` that?
+- I would `prefer` some peanut butter.
+- So, you `prefer` the original thing?
+- Would you `prefer` someone else now?
+- I `prefer` mine with a twist of fate.
+- I'd `prefer` you to say what you feel.
+- I `prefer` to think of it as a mirror.
+- What would you `prefer`, - you're not.
+- I `prefer` to be ruth but i'm flexible.
+- Or would you `prefer` to just shoot us?
+- I for one would `prefer` the latter.
+- Now which of these beds do you `prefer`?
+- Surely some here would `prefer` to live.
+- If you don't mind, i `prefer`- it's okay.
+- That i entirely `prefer` them to people."
+- Do you `prefer` cuba or the united states?
+- I'd `prefer` it if you didn't speak to me.
+- They call me steve, but i `prefer` shenge.
+- And the consciously evil `prefer` fracking.
+- But personally, i `prefer` classical music.
+- Ideally, i'd `prefer` a different scenario.
+- I `prefer` to be called rozengurtle by men.
+- But you'd `prefer` that boy from the market.
+- The women `prefer` the traditional monsters.
+- I'd `prefer` to have our brandy in the salon.
+- I `prefer` gold, and the english have plenty.
+- I `prefer` option 3... - do you realize this?
+- I think i `prefer` to see my client privately.
+- We `prefer` to think of ourselves as unsung...
+- You `prefer` a book to your husband's company?
+- Actually, i think i `prefer` katherine hepburn.
+- If i'm going to die, i `prefer` to die at home.
+- I `prefer` the term "artificial person" myself.
+- I presume you'd `prefer` handling the delivery.
+- You `prefer` drastic measures to rational ones.
+- Does anybody `prefer` this guy go instead of me?
+- I just think he might `prefer` to be left alone.
+- I think i `prefer` the smith and wesson variety.
+- Would you `prefer` an interior or exterior room?
+- I `prefer` to think, more like the sagacious owl.
+- Look... search your own records, if you `prefer`.
+- Tell you what -- i'd `prefer` loyalty.. go ahead.
+- You needn't wear my dress if you `prefer` not to.
+- I'd `prefer` if you were just a little more blunt.
+- Which did you `prefer`, your banner or your sword?
+- I much `prefer` "show boat" or "the invisible man."
+- It's obvious the people `prefer` jim gettys to me."
+- But you also mean well, i `prefer` time in a bottle.
+- I can't... they `prefer` a more formal presentation.
+- I'd imagine the general would `prefer` to avoid that.
+- I'd `prefer` we didn't refer to it as my last speech.
+- I `prefer` to stay in the less frivolous professions.
+- Maybe you `prefer` this one... who... who are you...?
+- Sir, i would `prefer` if you didn't raise your voice.
+- I would `prefer` you not use that word in my presence.
+- Fifteen years, although i `prefer` the term "assassin."
+- If you'd `prefer` something else, they'll send it up...
+- It's just something i'd `prefer` she didn't know about.
+- Would you `prefer` it bit off the leg of a crew member?
+- I `prefer` a straight fight to all this sneaking around.
+- No, i - mike - wyncha sit over there, i'd `prefer` that.
+- Personally i'd `prefer` a greyhound with a shot of speed.
+- I `prefer` it to &quot;instead&quot;, it has more dignity.
+- I `prefer` to call it an exodus from an undesirable place.
+- And factory girl zoe monroe they seem to `prefer` stabbing.
+- Some women `prefer` not to scent their bodies with perfume.
+- During the day, visitors `prefer` to be outside, au naturel.
+- I `prefer` not to, because... look, they're laughing at him.
+- L.t., in this office i'd `prefer` you say italian-americans.
+- I'd `prefer`, i really would, to just-- then what was it?
+                 

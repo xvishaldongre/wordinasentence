@@ -1,0 +1,107 @@
+---
+title: "interested in a sentence | interested example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "interested"
+---
+- But he's `interested`!
+- Chino got `interested`.
+- If i were `interested`.
+- She's `interested` now.
+- We're not `interested`.
+- Sorry, not `interested`.
+- But you are `interested`?
+- If you're `interested`...
+- I'm not `interested` yet.
+- Ok. now i'm `interested`.
+- G-go on, i'm `interested`.
+- I'm just not `interested`.
+- No longer `interested` me.
+- You `interested` in a job?
+- Are you `interested` in me?
+- But she ain't `interested`.
+- `Interested` in buying one?
+- See if you're `interested`.
+- Are you really `interested`?
+- But she wasn't `interested`.
+- Call if you're `interested`.
+- I'm not `interested` at all.
+- I'm not `interested` in him.
+- I'm not `interested` in you.
+- Not when i get `interested`.
+- They're `interested` in you.
+- Who is `interested` in this?
+- Why are you so `interested`?
+- I'm `interested` in a murder.
+- I'm not `interested`, carter.
+- I'm not `interested` in that.
+- `Interested` in local curios?
+- Man would be `interested` in.
+- You wouldn't be `interested`.
+- Ann is very much `interested`.
+- At least they're `interested`.
+- Be `interested` in joining us?
+- I am not fucking `interested`.
+- I'm `interested` in mythology.
+- I'm not `interested` in marge.
+- Now, i'm getting `interested`.
+- This part i'm `interested` in.
+- I'm not `interested` in saturn.
+- I'm not `interested` in theory.
+- They're not `interested`, jake.
+- Who else is `interested` in me?
+- You're not `interested` in art?
+- You're not `interested` in him?
+- You're not `interested` in sex?
+- You still `interested` in that?
+- I thought you'd be `interested`.
+- Mom, vincent's not `interested`.
+- Could i get anybody `interested`?
+- I'm not `interested` in politics.
+- Oh as <u>if</u> i'm `interested`.
+- We are `interested` in this case.
+- We are `interested` in your case.
+- What are they `interested` in...?
+- You `interested` in an automatic?
+- I'm not `interested` in this tape.
+- I'm not `interested` in your book.
+- Nix was never `interested` in you.
+- Thought you might be `interested`.
+- We're not `interested` in selling.
+- You `interested` in a little work?
+- And asked me if i was `interested`.
+- I'm `interested` in who handled it.
+- I'm very `interested` in that body.
+- Just want to keep 'em `interested`.
+- Why would he be `interested` in me?
+- Are you the man i'm `interested` in?
+- But i am `interested` in the occult.
+- I'm not `interested` in blind dates.
+- I'm not `interested` in the details.
+- Thought you might be `interested`...
+- What <u>are</u> you `interested` in?
+- You `interested` in his photographs?
+- Come, come, mozart; i'm `interested`.
+- That's all that `interested` me then.
+- We're `interested` in the same thing.
+- We're not really `interested`, henry.
+- Why are you so `interested` in clarke?
+- And, furthermore, i'm not `interested`.
+- He was really `interested` in my voice.
+- I'm not `interested` in the newspapers.
+- I'm not `interested` in what you think.
+- I'm not the slightest bit `interested`.
+- I'm the only cause i'm `interested` in.
+- They are very `interested` in the case.
+- You got to be `interested` in somebody.
+- Because i'm `interested`, mrs. robinson.
+- I ain't `interested` in your life story.
+- I'd be real `interested` to know myself.
+- I'm `interested` in showing jean's work.
+- There were many men `interested` in you?
+- We're `interested` in any new therapies.
+- Another prince more `interested` in baba.
+- Hasn't been very `interested` in leading.
+- Is this something you're `interested` in?
+- I told you i'm `interested` in mythology.
+                 

@@ -1,0 +1,7 @@
+---
+title: "dressmakers in a sentence | dressmakers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dressmakers"
+---
+## Unfortunately, we have no example sentences for dressmakers                 

@@ -1,0 +1,107 @@
+---
+title: "boys in a sentence | boys example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boys"
+---
+- `Boys`... died a hero.
+- Guy, send them `boys`.
+- How did you `boys` go?
+- How you `boys` comin'?
+- [sighs] sorry, `boys`.
+- These `boys`'re a hit!
+- The two surfer `boys`?
+- Wait a minute, `boys`.
+- Just one of the `boys`.
+- That'll be all, `boys`.
+- They `boys`'ll be glad.
+- Whatcha `boys` playin'?
+- Where you `boys` going?
+- Am i boring you, `boys`?
+- `Boys` frightened, lula.
+- `Boys` upstairs get hot.
+- `Boys`, we're home free.
+- `Boys`, won't we, major?
+- Don't be scared, `boys`.
+- Farm `boys` are farming.
+- He was one of my `boys`.
+- I know plenty of `boys`.
+- I want that lab, `boys`.
+- Just you and the `boys`?
+- Mr. come on, old `boys`.
+- Okay, `boys`, i'm ready.
+- Tie their hands, `boys`.
+- Well, there's my `boys`.
+- They are good `boys`.
+- `Boys` always have candy.
+- Had the `boys` follow us.
+- I take care of my `boys`.
+- Let's go to work, `boys`.
+- Now stay with me, `boys`.
+- This is the `boys`' room.
+- What are the `boys` like?
+- What's your beef, `boys`?
+- You `boys` want anything?
+- Your family, your `boys`.
+- `Boys`, you're aiming low.
+- Hey, hey, `boys` and `boys`!
+- I'll stay with the `boys`.
+- I mean, i have two `boys`.
+- Motherfucking frat `boys`.
+- Nothing happens to `boys`.
+- She talk about the `boys`?
+- The joe `boys` in 1980...!
+- We're gonna do it, `boys`.
+- What are you `boys` up to?
+- What's the matter, `boys`?
+- You `boys` do negro songs?
+- ...young `boys`, still...?
+- ♪ all the `boys` say ♪ shh.
+- Salt the ham water, `boys`.
+- The mexicali `boys` to who?
+- They're nothing but `boys`.
+- You `boys` carryin' pieces?
+- You know the beach `boys`?!
+- All right, `boys`--let's go.
+- `Boys` just passing through?
+- Gotta check up on my `boys`.
+- I coached the `boys` myself.
+- I don't mix with the `boys`.
+- Okay, `boys`, let's have it.
+- We finally found it, `boys`!
+- Both `boys` are being helped.
+- Come on `boys`, don't be shy.
+- Fingers in your ears, `boys`.
+- How long these `boys` in for?
+- I miss reading to the `boys`.
+- Just my church and my `boys`.
+- One of cleroe payne's `boys`?
+- Thanks for the drink, `boys`.
+- The `boys` will be home soon.
+- There's no other way, `boys`.
+- These `boys` is all swole up.
+- All right, `boys`, here he is.
+- How are you `boys` holding up?
+- I always liked country `boys`.
+- It's up to you and the `boys`.
+- I want to ask a favor, `boys`.
+- My `boys`... and <u>yours</u>.
+- No way those are local `boys`.
+- Some fine ladies here, `boys`.
+- The `boys` are back in town!!!
+- You're all wire happy, `boys`.
+- All right, stay frosty, `boys`.
+- `Boys` and girls, moms and dads.
+- `Boys`, i need you to stay here.
+- `Boys`, we was chained together.
+- It's all right `boys`, i'm here!
+- Lost both his `boys` in the war.
+- The `boys` stop and applaud him.
+- Those are your `boys` out there.
+- Watch out for the smile, `boys`.
+- `Boys` at the vfw loved that one.
+- `Boys`, this here is english bob.
+- How are you going to meet `boys`?
+- I can hit those `boys` from here.
+- Leave myers for the state `boys`.
+                 

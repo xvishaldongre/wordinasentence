@@ -1,0 +1,107 @@
+---
+title: "boat in a sentence | boat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boat"
+---
+- I say we got a `boat`.
+- My `boat`'s neat, dad!
+- Nice `boat`, taransky.
+- Now get in the `boat`.
+- To search your `boat`.
+- We bought this `boat`.
+- What about the `boat`?
+- I'd done "show `boat`."
+- It's not a `boat` `boat`.
+- Now, get in the `boat`.
+- They missed the `boat`.
+- Will live... on `boat`.
+- You bought this `boat`?
+- Been to the `boat` show.
+- Flipped the `boat` over.
+- Get in the `boat`, rose.
+- Get on the `boat`, now !
+- I love `boat` ownership.
+- Rose, get in the `boat`!
+- They got a `boat` there.
+- `Boat` has two batteries.
+- Emori, get in the `boat`.
+- From carl heine's `boat`.
+- I went out on the `boat`.
+- Maybe that is his `boat`.
+- That's a damn big `boat`.
+- Where's his `boat`, then?
+- Who's driving the `boat`?
+- You know this old `boat`.
+- Could be a fishing `boat`.
+- Why'd you take the `boat`?
+- Your friend on the `boat`?
+- How you gonna get a `boat`?
+- Right... you have a `boat`.
+- What `boat` you sailing on?
+- Where would i get a `boat`?
+- Get to a `boat` quickly.
+- But i signed for the `boat`.
+- Found on carl's `boat`, too.
+- Just straight to the `boat`.
+- We'll take the `boat` out...
+- Where do i charter a `boat`?
+- Will you live on the `boat`?
+- But it's a greenpeace `boat`.
+- Don't you throw up on `boat`?
+- He's over at the `boat` show.
+- Maneuver up to carl's `boat`?
+- Sergeant, secure the `boat` !
+- That `boat` is my livelihood!
+- We can use my uncle's `boat`.
+- Where did you get the `boat`?
+- You got a `boat` for the day.
+- Group two: the `boat` rockers.
+- Help me get him to the `boat`.
+- No shark did that to a `boat`!
+- We're not going on the `boat`?
+- Come, we have a `boat` waiting.
+- Didn't want to rock the `boat`.
+- Phillippe, get into the `boat`.
+- The little `boat` flipped over.
+- Brindisi versus electric `boat`.
+- Ever handled an outboard `boat`?
+- I know a man who's got a `boat`.
+- Okay, you got yourself a `boat`.
+- That's where my `boat`'s moored.
+- This `boat` doesn't go anywhere.
+- A friend of mine bought a `boat`.
+- I'm in charge of this `boat`!
+- Daddy, will we ever get a `boat`?
+- I cheated to get on the `boat`!!!
+- Okay, guess whose `boat` this is.
+- Right where we landed our `boat`.
+- Roth got out on a private `boat`.
+- Who i am, outside of this `boat`.
+- You want i nut him in the `boat`?
+- Something to do with a big `boat`.
+- More every week off the `boat`.
+- I should be checking on the `boat`.
+- That `boat` sailed without us, man.
+- There were no drugs on that `boat`.
+- This must be some important `boat`.
+- You mean we're alone on the `boat`?
+- You think you can find your `boat`?
+- It's a beautiful `boat`, sir elliot.
+- Jackie can come back in this `boat`!
+- Look, i'm just on this `boat`, okay?
+- Pity to mess up a nice clean `boat`.
+- That's up to your guy on the `boat`.
+- Thrown clear when the `boat` burned.
+- You won't hire a `boat` or anything?
+- Say, where is this `boat` headed for?
+- That `boat` washed up in my district.
+- There's somebody else on this `boat`.
+- This is how he came to the `boat`?
+- I'm working across on a cattle `boat`.
+- Emori, who'd you steal the `boat` from?
+- Hey, buddy, that `boat` still runs, eh?
+- So we get a little more for the `boat`.
+- You have to get to a `boat` right away!
+- You planning to rock the `boat` at all?
+                 

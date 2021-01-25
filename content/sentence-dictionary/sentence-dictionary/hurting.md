@@ -1,0 +1,62 @@
+---
+title: "hurting in a sentence | hurting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hurting"
+---
+- I'm already `hurting`.
+- Is it `hurting`, dear?
+- My ears are `hurting`.
+- You're `hurting` him!!
+- Are you `hurting` again?
+- `Hurting` your feelings?
+- Ow, you're `hurting` me!
+- This is `hurting` people.
+- You're `hurting` my head.
+- They're `hurting` someone.
+- You're `hurting` it again.
+- You're `hurting` yourself!
+- You're `hurting` yourself.
+- I'm fucking `hurting` here.
+- Not without `hurting` them.
+- They're `hurting` us, baby.
+- It's not `hurting`... harry?
+- No, you're not `hurting` me.
+- The sun is `hurting` my eyes.
+- You're done `hurting` people.
+- You're `hurting` my feelings.
+- You're `hurting` your own case.
+- Lot of people `hurting` up there.
+- Meeks, your grades `hurting` too?
+- But why, if i'm not `hurting` you?
+- His grades are `hurting`, charlie.
+- Not if you stopped `hurting` people.
+- Do you get pleasure from `hurting` me?
+- I'm just thinking of how she's `hurting`.
+- I mean how long 'til it stopped `hurting`?
+- I never took pleasure in `hurting` anyone?
+- I'm `hurting` the blood brought me this far.
+- They're `hurting` someone, the guy she loves.
+- He ain't `hurting` me, but i can't get him down.
+- I didn't say anything... you're `hurting` my arm.
+- Above all, not `hurting` the object of your love.
+- I don't know how i can help her without `hurting` you.
+- You don't usually talk to anyone when you're `hurting`.
+- You fuck off and die i will hurt you for `hurting` her.
+- ...you're `hurting` me... who d'ya think you're foolin'?
+- But he was afraid of `hurting` the gentle, delicate cathy.
+- But i don't know how i could help her without `hurting` you.
+- I'd give twice this amount to take a piss without it `hurting`.
+- When homer realizes how much this is `hurting` me, everything ok?
+- We belong to each other now, for better or worse... you're `hurting`.
+- Even with your healing ability, you're going to be `hurting` for a while.
+- Headaches are like resolutions... you forget them soon as they stop `hurting`.
+- You were `hurting`, and you lashed out that we sent the hundred to the ground.
+- I didn't want to hurt you... all i wanted to do was to keep from `hurting` you.
+- Nicky, i let my butterflies die once upon a time and it's never stopped `hurting`.
+- Owwww...you're `hurting` me... you're `hurting` me...i hate you ...i hate you... no!
+- What puzzles me is why people seem to get so much pleasure out of `hurting` each other.
+- I'm not -- i didn't -- al, you know how i feel about you... jeanette, you're `hurting` me.
+- I will never get tired of `hurting` you, eddie, so you might want to change your attitude.
+- There was -- one from your mum: she said don't forget lunch and her leg's `hurting` again.
+                 

@@ -1,0 +1,107 @@
+---
+title: "bite in a sentence | bite example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bite"
+---
+- Why did he `bite` you?
+- It's a mosquito `bite`.
+- You wanna grab a `bite`?
+- I do `bite` my thumb, sir!
+- What if he doesn't `bite`?
+- Their `bite` is septic.
+- Take a `bite`, take a `bite`.
+- I didn't mean to `bite` him.
+- It's just a mosquito `bite`.
+- No, my `bite`'s a lot worse.
+- She's more bark than `bite`.
+- What has bark but no `bite`?
+- Don't let the bedbugs `bite`!
+- Don't let the bedbugs `bite`.
+- Oooh, i'll `bite` you myself!
+- Yes, i had a quick `bite`.
+- That `bite` healed up quickly.
+- Don't let the bedbugs `bite`...
+- Do you `bite` your thumb at us?
+- I couldn't have another `bite`.
+- So cheeco can `bite` my ass off?
+- Don't let the bedbugs `bite` you.
+- Hey, stranger, care for a `bite`?
+- ...that the prey can `bite` back.
+- You can touch me, i won't `bite`.
+- Would you like a `bite` of my pie?
+- A `bite`... where'd you get bitten?
+- He wanted to get a `bite` -- after.
+- I should've had that dog `bite` me.
+- Well, i'll go in and have a `bite`.
+- You got a love `bite` on your neck.
+- Do you `bite` your thumb at us, sir?
+- I saw her `bite` down on the pillow.
+- It's all right, it won't `bite` you.
+- Those ingrates really take a `bite`.
+- Haven't you got a bullet i can `bite`?
+- <u>`bite`</u> <u>my</u> <u>bishop</u>.
+- When the sun's out, they don't `bite`.
+- Come on, let's check the `bite` radius.
+- It ain't nothin' but a mosquito `bite`.
+- Yes... and the `bite` marks on my ears?
+- Just take a `bite`, you'll like it fine.
+- Maybe we could... get a `bite` sometime?
+- ...causes the victim to `bite` down hard.
+- You were ready to `bite` that guy's face.
+- Frog don't fly and `bite` like tomcats.
+- He tried to take a `bite`, so i grabbed it.
+- I'm all but lame from the `bite` on my leg!
+- Even one `bite`, we go in and take him down.
+- In fact we had time to grab a `bite` to eat.
+- Take a big wet `bite` out of my ass is what.
+- I didn't mean to `bite` him, i really didn't.
+- I'm sure your bark is worse than your `bite`.
+- You might want something to `bite` down on.
+- Can't you `bite` me and then i'll be like you?
+- Let's go, c'mon, get up -- `bite` it, cynthia.
+- C'mon, sally - let's grab a `bite`... move out?
+- I thought maybe we'd all get a `bite` together.
+- Well, at least they haven't tried to `bite` us.
+- You can either do that here - he doesn't `bite`.
+- Every little nibbler in the sea's taken a `bite`.
+- I'll be outta micro-bio and we can grab a `bite`.
+- I'll `bite`--what's the bottom of the truth, jud?
+- I've got to make news, if i have to `bite` a dog.
+- ♪ they fight, they `bite` ♪ i didn't protect you.
+- A great white chopped him in half with one `bite`.
+- Casey and steve didn't `bite` it til way after ten.
+- People here are dying, haven't got a `bite` to eat.
+- Actually, i got this spider `bite`� your dog ate it.
+- That's what happens to girls who `bite` their nails.
+- Here, you're gonna want to `bite` down on this, okay?
+- I'm going to `bite` out your eyeballs, you know that?
+- Killed a bear, founded a town, died of a beaver `bite`.
+- Makes you less vulnerable to the next poisonous `bite`.
+- That sheriff wade, though, he took an awful big `bite`.
+- Closer and closer �- until they `bite` into your throat!
+- No self respecting shark is gonna take a `bite` out of you.
+- Thus we fear a dog without distinctly imagining its `bite`.
+- You cut that slice down to `bite`-size and maybe we can talk.
+- To get a drink before we meet the guys for a `bite` at eleven.
+- Goodnight pearl, sleep tight; and don't let the bedbugs `bite`.
+- Luther always told me to `bite` my toenails when i get nervous.
+- You gonna bark all day, little doggie, or are you gonna `bite`?
+- Sshhh... john... 'night miss jenny; don't let the bedbugs `bite`.
+- If you see that boy again, `bite` off his ear off like mike tyson.
+- I said: "are you gonna bark all day, dog, or are you gonna `bite`."
+- My daughter's no-good husband will not take one `bite` of our food.
+- As for that policeman, i didn't `bite` him, i don't think i bit him.
+- You could try emergency room personnel, treatment for `bite` wounds.
+- No, thank the lord, but she be sore envenomed by the spider's `bite`.
+- Go into a fit and `bite` off my own tongue in the middle of the bayou.
+- I thought maybe we could have a `bite` to eat first -- and then -- sure.
+- Listen, dave, why don't we order some room service, have a `bite`, relax.
+- This includes a shared right to taxation too but some `bite` in the plan.
+- On top of that, you have a `bite` on your ankle that is severely infected.
+- You use 'em on the first couple of these parasites that try to `bite` you.
+- Try your tricks on me and i'll turn myself back into a snake and `bite` you.
+- Did a horse `bite` your head off, and now you're crying oh, what a great day.
+- I will `bite` my thumb at them; which is a disgrace to them, if they bear it.
+- Clench your teeth so when we land you don't accidentally `bite` off your tongue.
+                 

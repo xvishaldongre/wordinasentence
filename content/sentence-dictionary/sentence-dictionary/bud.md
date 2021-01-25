@@ -1,0 +1,107 @@
+---
+title: "bud in a sentence | bud example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bud"
+---
+- What's going on `bud`?
+- `Bud` brought it to me.
+- `Bud` permit me -- c.c.
+- What do you say, `bud`?
+- `Bud` white's been here?
+- I'm proud of you, `bud`.
+- That was gorgeous `bud`.
+- What do you think `bud`?
+- `Bud`, it's the pressure.
+- `Bud`, this is a heavy...
+- It's confidential, `bud`.
+- No, `bud`, no... not you.
+- `Bud`, this is me, lindsey.
+- `Bud`--why did you do this?
+- I have to see `bud` kruger.
+- I'm so proud of you, `bud`.
+- Sorry to bother you, `bud`.
+- What's your problem, `bud`?
+- It was under control, `bud`.
+- Oh--what's the point, `bud`?
+- You all right, little `bud`?
+- `Bud` thank you, mr. kirkeby.
+- I-- it's the only way, `bud`.
+- I... they're all dead, `bud`.
+- Look, `bud`, what's the idea?
+- Why's she seeing `bud` white?
+- `Bud` and i had a little talk.
+- `Bud`, why are you doing this?
+- He's skull-fucking you, `bud`.
+- I'll be honest with you `bud`.
+- I see `bud` because i want to.
+- `Bud` how many guys were there?
+- Come in out of the rain, `bud`.
+- All right, `bud`... let's do it.
+- I need you to believe me, `bud`.
+- Will, we're here for you, `bud`!
+- I want you to follow `bud` white.
+- Let's get things straight, `bud`.
+- I'm gonna nip it in the `bud`.
+- Maybe i could talk to `bud` ellis.
+- Don't throw away your future `bud`!
+- Been divorced for a year now, `bud`.
+- ... those aren't your cookies `bud`.
+- What are we looking for here, `bud`?
+- What kind of luminous things, `bud`?
+- You're part of something here, `bud`.
+- `Bud`, you have to trust me... please.
+- Well -- it's all right with me, `bud`.
+- Can't get a little bit pregnant, `bud`.
+- Don't look so down in the mouth, `bud`.
+- Maybe that's the price, `bud`, maybe so.
+- `Bud`--i thought you wanted to come home.
+- `Bud` parker and you're ... um--mary sue.
+- Yeah, i'm gonna make you rich, `bud` fox.
+- You're the policeman `bud` told me about.
+- You're tougher than `bud` thinks you are.
+- `Bud` white grilled me on it this morning.
+- `Bud`, you're still going to be president.
+- I didn't think you smoked `bud` that much.
+- The way you've underestimated `bud` white?
+- You want to know what `bud`'s like in bed?
+- `Bud` fox, i look at a hundred ideas a day.
+- `Bud`, get wise to the political realities.
+- He's not a racehorse, `bud`, he's a jumper.
+- Actually, `bud`'s only tough on the outside.
+- Hello `bud`, i'm lisa, a friend of gordon's.
+- No such thing `bud` - 'cept death and taxes.
+- ...a dewars on the rocks and a `bud`, please.
+- Triple time sounds like a lotta money, `bud`.
+- Only here isn't where i left it, is it, `bud`?
+- You're gonna owe me the rest of your life, `bud`.
+- `Bud`... there won't be enough to run the heaters.
+- `Bud` white, what brings you down to the basement?
+- Indict, try and convict stensland and `bud` white.
+- `Bud`, i hate to tell you this but you're a genius!
+- `Bud`, you have to look with better eyes than that.
+- I don't think we can make a case without `bud` white.
+- Stick around... larry, one of my "gang" -- `bud` fox.
+- Look, if it helps, `bud` hates himself for what he did.
+- We're not fund managers, `bud`, churn 'em and burn 'em.
+- `Bud`... jack thought he was up to his neck in all this.
+- Heroing's not really my thing... - are you ready, `bud`?
+- `Bud`, advice to the lovelorn from three hundred fathoms.
+- `Bud`, that water's only a couple degrees above freezing.
+- Fox, `bud` d. is this deja vu or has it really been a year.
+- I don't know what i'd do if i couldn't paint anymore `bud`.
+- My mom hates for me to smoke, so she made me `bud`-brownies.
+- You may not believe this `bud` but i really do care for you.
+- Good news, `bud`, the mayflowers have moved up the time-table.
+- I see `bud` because he can't hide the warmth he has inside him.
+- I knew the minute i laid eyes on you, you had what it takes `bud`.
+- What did `bud` and mary sue name the cat they found in the gutter?
+- `Bud`'s idea of a fight is arm-wrestling one night over laundry duty.
+- Gee whiz "`bud`", what could we possibly need when we have each other?
+- I thought i might, you know, nip it in the `bud` before it gets worse.
+- `Bud`, according to monk here, you just set a record for the deepest suit dive.
+- If i could work homicide like a real detective... do you like being a cop, `bud`?
+- Now be logical, `bud`, you're-- lindsey, just put the thing on and shut up-- no way!
+- Okay, whose window did `bud` break when he was playing with his father's golf clubs?
+- Remember the one where `bud` lost his cousin when he was s'posed to be watching him?
+                 

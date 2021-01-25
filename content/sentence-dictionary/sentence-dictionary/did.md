@@ -1,0 +1,107 @@
+---
+title: "did in a sentence | did example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "did"
+---
+- But because you `did`.
+- But no one else `did`.
+- But we `did` see this.
+- But we `did` want you.
+- But why `did` i do it?
+- But you `did` promise.
+- Captain renault `did`.
+- Damn right i `did` it.
+- `Did` anybody see you?
+- `Did` anyone get hurt?
+- `Did` anything happen?
+- `Did` as of last week.
+- `Did` daddy tease you?
+- `Did` dickie's dad go?
+- `Did` he kill freddie?
+- `Did` he kill himself?
+- `Did` he or didn't he?
+- `Did` he say about me?
+- `Did` he say anything?
+- `Did` he used to ... ?
+- `Did` i do my part ok?
+- `Did` i hear a threat?
+- `Did` i miss anything?
+- `Did` i say something?
+- `Did` i tell you that?
+- `Did` it go like that?
+- `Did` it stop finally?
+- `Did` pretty good too.
+- `Did` she believe you?
+- `Did` she talk to you?
+- `Did` someone save me?
+- `Did` they follow you?
+- `Did` vaughan go home?
+- `Did` we get them all?
+- `Did` we lose anybody?
+- `Did` we win the game?
+- `Did` you call anyone?
+- `Did` you carry a gun?
+- `Did` you change cabs?
+- `Did` you decide, sir?
+- `Did` you do anything?
+- `Did` you even notice?
+- `Did` you ever see it?
+- `Did` you... find him?
+- `Did` you find rennie?
+- `Did` you fuck vickie?
+- `Did` you get it done?
+- `Did` you get it, too?
+- `Did` you get my card?
+- `Did` you get my note?
+- `Did` you get the job?
+- `Did` you give him it?
+- `Did` you have a coat?
+- `Did` you invite them?
+- `Did` you kill anyone?
+- `Did` you kill brumby?
+- `Did` you... kill him?
+- `Did` you lose it all?
+- `Did` you not hear me?
+- `Did` you... order...?
+- `Did` you pull me out?
+- `Did` you put that on?
+- `Did` you say, "i do"?
+- `Did` you see a romeo?
+- `Did` you see a shark?
+- `Did` you see bellamy?
+- `Did` you see permits?
+- `Did` you see the gun?
+- `Did` you sign up yet?
+- `Did` you suggest any?
+- `Did` you talk to him?
+- `Did` you tell walter?
+- Fred krueger `did` it.
+- Goddamn right i `did`.
+- He already `did` once.
+- He `did` or he didn't?
+- He said dyle `did` it!
+- How big `did` he sign?
+- How big `did` you get?
+- How `did` it get here?
+- How `did` it go today?
+- How `did` she pay you?
+- How `did` this happen?
+- How `did` we get here?
+- How `did` you boys go?
+- How `did` you do that?
+- How `did` you do that?
+- How `did` you find me?
+- How `did` you find us?
+- How `did` you get out?
+- How `did` you know...?
+- How `did` you like it?
+- How `did` you survive?
+- How far `did` you get?
+- How many `did` we win?
+- I certainly `did` not.
+- I `did` for my people.
+- I `did` it in the can.
+- I `did` it pretty big.
+- I `did` my time, okay?
+                 

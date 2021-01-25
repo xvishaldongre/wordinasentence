@@ -1,0 +1,98 @@
+---
+title: "parts in a sentence | parts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "parts"
+---
+- If we had the `parts`.
+- Not down in my `parts`.
+- `Parts` of it got lost.
+- We only jacked `parts`.
+- One of his best `parts`.
+- Too many moving `parts`.
+- Perhaps the best `parts`.
+- You know... it's `parts`...
+- I know `parts` of who you are.
+- You're not from these `parts`.
+- I'll do all the `parts` myself.
+- `Parts` of the bible are great.
+- The `parts` about ancient rome.
+- Wick is scrounging for `parts`.
+- I wish stripping him for `parts`.
+- Everything but the boring `parts`.
+- But there's plenty of other `parts`.
+- It would've been a waste of `parts`!
+- The sum of her psychological `parts`?
+- What brings you out to these `parts`?
+- And saying what `parts` we're playing.
+- The re-animation of component `parts`?
+- We're more polite around these `parts`.
+- Comes in different `parts` of the river.
+- They don't have a lot of moving `parts`.
+- Oh, i don't move machine `parts` anymore.
+- Selling `parts` to him and his new tuner.
+- Colonel, those are all `parts` of mahjong.
+- Or takes-us, as they say in these `parts`.
+- Two, equal `parts` gasoline and diet cola.
+- Yep... we're using `parts` we salvaged no.
+- Out of spare body `parts` from dead g.i.'s.
+- You put your hands on her personal `parts`?
+- I felt it was a little derivative in `parts`.
+- I mean when you're not playing other `parts`?
+- Well, there's no other `parts` worth playing!
+- If this was a sink find me some metal `parts`.
+- Nova demands body `parts` for his experiments.
+- You'll find all the `parts` you need up there.
+- Come on, you buy and sell `parts` all day long.
+- ...carves girls up and sells their body `parts`.
+- I like `parts` of it, but i don't really get it.
+- Torn `parts` rusted bad as the rest of the boat.
+- ... see there ain't just two `parts` to a person.
+- They never found one complete body, only `parts`.
+- You want to know what `parts` you are to receive.
+- No cold feet, or any other `parts` of our anatomy.
+- Replacement `parts` for computers and engineering.
+- Guns and explosives have chemicals, moving `parts`.
+- There's only enough usable `parts` hold your horses.
+- As you may have guessed, i am not from these `parts`.
+- Those jackers want your `parts` for the black market.
+- `Parts` of your brain now seem to be firing at random.
+- Me and bill scraped together the `parts`, worked on it.
+- I'm still scraping up `parts` who says my class is grim?
+- Sorta like stealing cars and selling'm for `parts`, huh?
+- Did you memorize the whole book or only the good `parts`?
+- If i could get the `parts`, i could live dozens of lives.
+- Looks like the best `parts` have already been spoken for.
+- I'll whisper some of the main `parts` of the story to you.
+- Instead, it unlocked `parts` of our own minds, octavia, go.
+- It looks like someone got to his private `parts` before us.
+- Why don't we go home and give our private `parts` a workout?
+- Once i'm out of here, i'll remind you of the best `parts`.
+- Any other toy would give up his moving `parts` just to be you.
+- In other `parts` of the world, i suppose there are other ways.
+- Hard to believe that book's got any `parts` worth highlighting.
+- Creating a whole far more dangerous than the sum of its `parts`.
+- Equal `parts` greed and paranoia, usually resulting in homicide.
+- Unfortunately, i have to keep certain `parts` of my life private.
+- Open the suitcases, unpack the body `parts` and reunite the limbs.
+- I've covered almost the entire seaboard and `parts` of eastern ohio.
+- No bomb `parts` found in a three-mile radius of the chinese theatre?
+- Affliction is enamoured of thy `parts`, and thou art wedded to calamity.
+- I'll never forget the time we had this old tv set with no `parts` in it.
+- About six months ago some `parts` of bodies were found down by the river.
+- Why don't we all do our little private `parts` to make it a pleasant one?
+- So, remember the three most important `parts` of a good interview... yeah.
+- A rich socialite oakie like you oughta be a big catch around these `parts`.
+- So maybe he also know where the hell am i going to get the `parts` i need...
+- Drew and bontecou are going to chop up the company and sell it off for `parts`.
+- Then they decided they had learned enough so they tore us up for spare `parts`.
+- That's about an hour and a half longer than i usually spend looking for `parts`.
+- My daddy was one of the first mens to organize soil conservation in these `parts`.
+- Say... do you think it would be possible for me to maybe play one of these `parts`?
+- The only way they survive is to have body `parts` transplanted over and over again.
+- Well, put: "something for your sweet tooth, baby, and all your other sweet `parts`."
+- Now, sometime you get maybe to artistic; you wind up in the clinic tanks, spare `parts`.
+- He wanted you to know the legal limit for hexavalent chromium, is .05 `parts` per million.
+- He took them into private rooms, swapped goodies: pictures, panties, jewelry, body `parts`.
+- Well ... you got your `parts`, you got your labour ... let's call it a hundred-fifty bucks.
+                 

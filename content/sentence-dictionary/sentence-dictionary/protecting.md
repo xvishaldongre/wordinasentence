@@ -1,0 +1,79 @@
+---
+title: "protecting in a sentence | protecting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "protecting"
+---
+- He's `protecting` her.
+- Who's `protecting` us?
+- He was `protecting` me.
+- Who is she `protecting`?
+- They're `protecting` him!
+- He wasn't `protecting` me.
+- I don't need `protecting`.
+- I was `protecting` everyone.
+- I'm not `protecting` anybody!
+- I was `protecting` sanctum...
+- Somebody is `protecting` him.
+- You're `protecting` somebody.
+- Rooney's `protecting` someone.
+- The part she was `protecting`.
+- What she's `protecting` there.
+- He was `protecting` <u>you</u>!
+- Hiss was `protecting` his wife.
+- Who are you `protecting`, then?
+- I'm the man they're `protecting`.
+- It is if you're `protecting` him.
+- I was `protecting` everyone, too.
+- That i'm `protecting` a murderer?
+- You're not "`protecting`" anyone.
+- ...by `protecting` a wanted felon.
+- Is `protecting` us from ourselves.
+- Together, `protecting` the tunnel.
+- You ought to stop `protecting` him.
+- I'm just `protecting` my investment.
+- ♪ i told you he was `protecting` me.
+- `Protecting` you from your own self.
+- That was his way of `protecting` me.
+- `Protecting` your reality, douchebag.
+- Who says that i'm `protecting` anyone?
+- Alie is `protecting` us from ourselves.
+- For all the dark magic `protecting` it.
+- I'm actually `protecting` him from you.
+- at’s how you’re `protecting` her, huh?
+- How are you `protecting` your depositors?
+- I was `protecting` the national security.
+- `Protecting` your mother from me, are you?
+- Are you `protecting` him because policeman?
+- Maybe they're all `protecting` the species.
+- She's a prime, and you're `protecting` her.
+- He was doing his job, `protecting` the girl.
+- If i remove the flame, i was `protecting` you.
+- I was `protecting` your sorry, long-winded ass.
+- They think they are `protecting` my by moving.
+- It's almost like the ai is `protecting` sheidheda.
+- I'm not in the business of `protecting` crooked cops.
+- I won't apologize for `protecting` you from yourself.
+- He's `protecting` more than industrial secrets, alfred.
+- That you're `protecting` a man who's killed four people?
+- You are down for `protecting` malcolm's widow aren't you?
+- You're not `protecting` the world, you're obstructing progress!
+- She's `protecting` the doctors she'd be up there on the stand...
+- Wear our stupid costumes i'm actually `protecting` him from you.
+- What's the terrible, dark secret you're `protecting` everyone from?
+- Give me six months and i'll be in washington `protecting` a white guy.
+- The man lost a child, for christ's sake... why are you `protecting` him?
+- But we'll see how you feel when we find whoever it is you're `protecting`.
+- The depositors you were `protecting` were the first ones to pounce on you.
+- God knows i had my doubts along the way, by `protecting` 300 of your people.
+- If you are `protecting` others of your kind, it will cost you your identity.
+- You're talking about preservation of the species, a hen `protecting` her young.
+- She said that horse was `protecting` him and nobody could convince her otherwise.
+- What about rule one: never let the person you are `protecting` out of your sight!
+- There's a vast difference between... have you ever seen a jay `protecting` a nest?
+- Known as transference, where you project your feelings he was `protecting` himself.
+- [raven screaming] with my bare hands so her brain wouldn't melt, - `protecting` her!
+- If we can't even take it off, why are you `protecting` the man who killed your mother?
+- I don't think she'll need you very much -- i aim to do most of the `protecting` myself.
+- Sometimes, instead of a waif, he'd have the wrestler `protecting` an idiot manchild.
+                 

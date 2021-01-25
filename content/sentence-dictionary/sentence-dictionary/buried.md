@@ -1,0 +1,107 @@
+---
+title: "buried in a sentence | buried example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "buried"
+---
+- `Buried` 400 years?
+- It's dead and `buried`.
+- You `buried` this here.
+- Get my crewies `buried`?
+- `Buried` it in the woods.
+- I could have `buried` him.
+- My wife was `buried` here.
+- I `buried` my mother today.
+- Why was she `buried` there.
+- What's `buried` under there?
+- We're `buried` -- that's all.
+- Any movie stars `buried` here?
+- She's `buried` in the morning.
+- The bodies that i've `buried`?
+- The dead ought to be `buried`.
+- Could have been `buried` alive.
+- Show me where you `buried` her.
+- So tell me where nix is `buried`.
+- I don't want to be `buried` alive.
+- She `buried` him the next mornin'.
+- You digging for `buried` treasure?
+- `Buried` her at a "private" service.
+- `Buried` under a stone in the floor.
+- Did she know where nix was `buried`?
+- Dead... they're dead... and `buried`.
+- I saw him lying `buried` in his shop.
+- The first settlers are `buried` here.
+- All right -- so it's `buried` with you!
+- He knows where the bodies are `buried`.
+- Oh my god...we�re `buried` alive... no.
+- You might as well be dead and `buried`.
+- It was his body that was `buried` there.
+- It was still alive when you `buried` it?
+- They `buried` my ma & pa and my sisters.
+- We `buried` them, then we went to track.
+- You're dead, son - get yourself `buried`!
+- Then, your brother�s not `buried` yet.
+- As for him, we `buried` him good and deep.
+- He knows where all the bones are `buried`.
+- Maybe he wasn't dead when we `buried` him.
+- Nix is dead and `buried`, for fuck's sake.
+- You think that's the place she's `buried`?
+- Because he had something `buried` in there.
+- I'll be `buried` in my yard next to barbara.
+- I tried to tell myself i `buried` him alive.
+- There's something `buried` in the snow here.
+- I said another man was `buried` in his place.
+- It is my last wish to be `buried` sitting up.
+- The boy should be `buried` by his own people.
+- How can you tell it was deliberately `buried`?
+- ♪ i `buried` it for decades ♪ i can't do that.
+- Only when it is red, then it will be `buried`.
+- I know exactly where i want to be `buried`.
+- If he ever -- there's something `buried` there.
+- It's `buried` under layers of rote object code.
+- They found tom grunemann's body `buried` there.
+- But he knows where a lot of bodies are `buried`.
+- It is `buried` somewhere in the grudd mountains.
+- Jud, i `buried` my son today and i'm very tired.
+- Karen sumpter was `buried`, washed up in a flood.
+- Something's `buried` under it i want you to have.
+- `Buried` the two kids who died during the landing.
+- Time-life `buried` the zapruder film for 15 years.
+- Some of the gold has been `buried` under your barn!
+- A great white, i found a tooth `buried` in the hull.
+- Man, that is `buried` right in the center, isn't it?
+- `Buried` behind some old diner, up by dyckman street.
+- Michael myers is in hell, `buried`, where he belongs.
+- They didn't, they `buried` him at the foot of anubis.
+- I helped norman pick out the dress she was `buried` in.
+- We might both be dead and `buried`, but you'll be nice.
+- Everybody you care about would be dead and `buried`.
+- He's dying <u>a-n-d</u> wants to be `buried` on mercury.
+- Our dead are `buried` behind that wall in this ground!
+- Aren't you supposed to be `buried` in new york someplace?
+- Just find the `buried` treasure, and you're a millionaire.
+- Maybe the pirate who `buried` this treasure chest made it.
+- Now he's d-y-i-n-ging and wants to be `buried` on mercury.
+- All these years you've kept those things `buried` down here?
+- Some of the old people say crazy horse is `buried` back there.
+- Liberty is too precious to get `buried` in books, miss saunders.
+- Hey, wes, what kind of treasure you figure these people `buried`?
+- Is the hatchet `buried` between the english and my french father?
+- They must be `buried` together or their souls won't rest in peace.
+- But ain't none of our folks ever been `buried` without a few words.
+- `Buried` deep under 200 years worth of soil, ash, and compost layers.
+- Cohaagen's big secret is `buried` in that black hole you call a brain.
+- They `buried` their dead and for a long time their dead stayed `buried`.
+- Yeah, but he's got to be dead and `buried` for a couple of thousand years.
+- He died of small pox when he was two and he was `buried` in a kansas field.
+- They `buried` their treasures, drew maps, and hid the maps in puzzle boxes.
+- Not with all that `buried` loot you had waiting for you when you got out.
+- He'll not leave the grave -- not since wednesday last when we `buried` the lad.
+- Somehow i don't think he stabbed himself in the chest, then `buried` himself too.
+- Misery was `buried` in the ground at the end, paul, so you'll have to start there.
+- And changing the pitch of my voice ♪ alors on danse ♪ `buried` with the rest of him.
+- Got a lot of holes in the desert, and a lot of problems are `buried` in those holes.
+- Tell max i want to be `buried` with royalties... you'll break your neck on that ice.
+- No... we have to find some piece of evidence that got `buried`, to reopen the sucker.
+- And, how many victims are `buried` without reprisal while guilty men roam our streets?
+                 

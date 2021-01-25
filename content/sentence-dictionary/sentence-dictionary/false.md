@@ -1,0 +1,67 @@
+---
+title: "false in a sentence | false example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "false"
+---
+- No more `false` faces.
+- No `false` modesty, lad.
+- From another `false` god.
+- ...magua's way is `false`.
+- It's `false` light, lestat.
+- It's `false` sentimentality.
+- That it was a `false` alarm.
+- Nothing was ever more `false`.
+- This is too bad to be `false`.
+- And his `false` prophet to hell!
+- You're nothing but `false` notes.
+- A: submit a `false` medicare claim?
+- You ever get any `false` positives?
+- Jason: hey, `false` alarm, everybody.
+- True or `false`: it's worth the risk.
+- I became a `false` god all over again.
+- Surely, the mute is a `false` prophet.
+- You proceed from a `false` assumption.
+- But we don't have time for `false` hope.
+- Dedicated to the worship of `false` gods.
+- I have no proof that it was `false` data.
+- Than worship at the feet of `false` gods.
+- You don't have to be a `false` commander.
+- `False` data can act only as a distraction.
+- Do you wear any `false` teeth or `false` limbs?
+- I could give you a `false` name, but i won't.
+- One `false` move and i'll blow your heads off!
+- Marge creates what feels like `false` jeopardy.
+- This gets out, `false` or not, no one'll touch me.
+- I know a thing or two about worshiping `false` gods.
+- ...you may be doing so on the basis of `false` data.
+- My wife... ...totally `false`...<u>totally</u> `false`.
+- Sir, we just got word that was another `false` report.
+- Quite, absolutely - i always thought they were `false`.
+- But russell told the people that it was a `false` alarm.
+- There's a hallway and a `false` wall by the greek vases.
+- In `false` hope we might be able to secretly find a cure.
+- You're telling me the cause of death on the report is `false`.
+- Hal, tell me whether the following statements are true or `false`.
+- I put the coke in the `false` bottoms and take it through customs.
+- To bring him back here safely, cleared of all these `false` charges.
+- You're like the `false` god you worship... fallen angels, all of you.
+- All i'm saying is, please know, i'm not here to create any `false` hope.
+- Did you do this for your sister... finn: maybe it was a `false` alarm.
+- It is `false` that the french would not be friends, still, to the huron.
+- You wouldn't want to explode on the basis of `false` data, would you?
+- I shoulda let ya go and gotten yourself arrested for passin' `false` notes.
+- We're cool... ...the lease, the phones, the cars...layers of `false` ident.
+- I'd come to the realization that everything i'd based my life on was `false`.
+- I feel like such a tramp - taking jewelry from a man under `false` pretenses.
+- Real quick... iris checked into the sheraton last night under a `false` name.
+- Let us assume, as common sense dictates, that the prisoner's story is `false`.
+- ...which he gave to an attendant in the general assembly building was `false`.
+- But the `false` promise of a new dawn is usually followed by a most bloody sunset.
+- Including mr. hooks' dramaturgy about the defendant issuing a `false` distress call.
+- It is just as `false` not to blow your horn at all as it is to blow it too loudly...
+- `False` leads, prank calls, uh... jaha gave me the key to the city of light, - jesus.
+- Now, i believe you were gone for much longer than just a few seconds more `false` hope.
+- Saginaw, yes, lives have been lost in the worshipping of `false` gods before, whatever.
+- And overthrow their `false` gods actually, i think jordan was just about to tell us one.
+                 

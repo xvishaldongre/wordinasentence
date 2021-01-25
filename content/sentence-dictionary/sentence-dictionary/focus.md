@@ -1,0 +1,90 @@
+---
+title: "focus in a sentence | focus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "focus"
+---
+- Don't `focus` on them.
+- I'm trying to `focus`!
+- Can we `focus`, please?
+- `Focus`, nelson, `focus`.
+- `Focus` on your breath.
+- It helps me to `focus`.
+- Raven, `focus`, please.
+- But you have to `focus`.
+- Has to `focus` on india.
+- It's all out of `focus`.
+- To `focus` on something.
+- Can't `focus`... seventy.
+- I've found a new `focus`.
+- Look, just `focus`, jack.
+- So think it into `focus`.
+- Would you please `focus`?
+- Don't `focus` on anything.
+- Just `focus` on the drawing.
+- Patrick, we need to `focus`.
+- You `focus` on the big problem.
+- All right -- you have to `focus`.
+- It connects because... - `focus`.
+- But we're the `focus`, right reed?
+- Then his eyes `focus` on the fire.
+- People in camp were losing `focus`.
+- Right now, we have to `focus` okay.
+- They `focus` on what can be gained.
+- Tony i'm gonna need you to `focus`.
+- Like so: now, `focus` on your co-ah.
+- Tony, i'm gonna need you to `focus`.
+- With a `focus` on biblical languages.
+- You gotta keep your `focus` straight.
+- You gotta stay `focus` on your dream.
+- And `focus` on anything good about it.
+- Then `focus` on how you feel about her.
+- Always remember, `focus` on the peach...
+- 44 people don't just vanish `focus`.
+- That�s a down payment on a ford `focus`!
+- But <u>we're</u> the `focus`, right reed?
+- `Focus` that fire on the left flank, sam.
+- Hey, clarke, our `focus` should be there.
+- To survive we must `focus`... be patient.
+- Why do you always `focus` on the negative?
+- [abigail] all right, ray, we gotta `focus`.
+- Hope, please, we need to `focus`, all right?
+- It's just she's been the `focus` for a while.
+- It tested well with `focus` groups, all right?
+- `Focus` on that, not the train, not its weight.
+- We can't lose `focus` of domino's journey, mark.
+- You want scooby to be the `focus` of all this?
+- But when i'm dizzy like this my eyes won't `focus`.
+- Danny: guys, we need to `focus` and find the clues.
+- How do you expect me to `focus` right now let's go.
+- I just can't seem to `focus` on anything these days.
+- For example, at this moment the film's out of `focus`.
+- If you're not gonna `focus`, just gimme the binoculars.
+- The `focus` is on the college admissions process today.
+- Can't really `focus` on birds at the moment, pendergast.
+- Nothing like fear of drowning to `focus` your attention.
+- You always have to find one singular thing to `focus` on.
+- If we `focus` on that, we'll be ok. we got to find clarke.
+- The closer i watched, the more the fault came into `focus`.
+- Abby, please... but you'll need to `focus` like never before.
+- If your `focus` is on me, you'll miss something coming at you.
+- Okay, now i'm gonna `focus` on the good things that you've got.
+- I'm calling a town meeting for eight p.m. `focus` on the present.
+- I'm afraid i wouldn't be able to give ozzy the `focus` he deserves.
+- You `focus` should be here hey, lady bosses, kids, kids, how are you?
+- But i think it's far more important to `focus` on your case right now.
+- I need my shoes in total `focus` right here and also joe back there--!
+- They like their wild life in `focus` and without any personal comment.
+- Don't try to `focus` on things as black and white, because you'll go blind.
+- I just risked my life for a network that tests my face with `focus` groups.
+- Like any normal healthy boy, bart has been the `focus` mmm, old card stock.
+- If you `focus`, even now, one week into summer... you can feel autumn coming.
+- As chancellor, you can't expect me to just... `focus` on the little green men.
+- Tomorrow as we `focus` the new movement more clearly, we will gain a new unity.
+- I want what the prison board is doing to be the `focus` of our follow up episode.
+- Most articles `focus` on the first half of her name--describing some feline monster.
+- My guess... trying to find a way and we can `focus` on what really matters, finding will.
+- You work your entire life, all the training, `focus`, all the dedication, all irrelevant.
+- I think our best course right now would be to `focus` on the probation officer's report...
+- But it's more of a long term thing -- right now we have to `focus` on more immediate goals.
+                 

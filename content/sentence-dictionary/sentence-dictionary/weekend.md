@@ -1,0 +1,107 @@
+---
+title: "weekend in a sentence | weekend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weekend"
+---
+- July fourth `weekend`.
+- Not for the `weekend`.
+- It's opening `weekend`.
+- See you next `weekend`?
+- `Weekend` after next...
+- Yeah, a great `weekend`.
+- Go home for the `weekend`.
+- Just -- for the `weekend`.
+- We leavin' this `weekend`.
+- I called you all `weekend`.
+- See you next `weekend`, dad.
+- This `weekend` we'll go out.
+- I had a fun `weekend`, daddy.
+- Just wait till next `weekend`.
+- She'll be here next `weekend`.
+- You can finish next `weekend`.
+- It's a `weekend` of full moons.
+- We went bowling last `weekend`.
+- It's going to be this `weekend`.
+- It's more like a lost `weekend`.
+- Least till after this `weekend`.
+- Got a bar mitzvah this `weekend`?
+- He goes up there every `weekend`.
+- You hadda show up on a `weekend`.
+- But just wait till next `weekend`.
+- He ask you out for next `weekend`?
+- It might be perfect all `weekend`.
+- It's going to be a cozy `weekend`.
+- It took me and barb all `weekend`.
+- No plans for the `weekend`, linda?
+- What are you doing this `weekend`?
+- Last `weekend` at that block party.
+- Maybe hang out this `weekend` or...
+- No, they're away for the `weekend`.
+- We should be done by the `weekend`.
+- Not bad for a `weekend`'s work, huh?
+- You know how i spent last `weekend`?
+- I was in tucson over the `weekend`...
+- Why don't you come by this `weekend`.
+- You're gonna see him, this `weekend`.
+- A lot's happened since last `weekend`.
+- Jeremy will be home for the `weekend`.
+- Next `weekend` we're going to the zoo.
+- There's a whole `weekend` ahead of us.
+- This is going to be a great `weekend`.
+- We have the kids this `weekend`, so...
+- What are your plans for the `weekend`?
+- I don't get it -- when's the `weekend`?
+- I haven't been pleasant this `weekend`.
+- I'm going to my parents this `weekend`.
+- I might've been away for the `weekend`.
+- Taking advantage of the long `weekend`?
+- Want to go to hawaii for the `weekend`?
+- What -- so i'll see you this `weekend`.
+- You're gonna see him... this `weekend`.
+- You told me that on parents' `weekend`.
+- Before the `weekend`'s out, you'll quit.
+- So guess where i'm going next `weekend`?
+- The following `weekend`'s better for me.
+- _ a 20-year-sentence here on a `weekend`.
+- Hitting bottom isn't a `weekend` retreat!
+- Spending every `weekend` polishing brass.
+- Why don't you stay through the `weekend`?
+- But i think we'll go out this `weekend`...
+- I'll be out at my camp over the `weekend`.
+- I'm working here next `weekend`, so... oh!
+- Miss daniels is staying for the `weekend`.
+- His parents grounded him for the `weekend`.
+- I'm going to meet with them next `weekend`.
+- Last `weekend` you said... what time is it?
+- You goin' to the deer cheer this `weekend`?
+- You lost enough money last `weekend` to me.
+- I'm gonna have to recatalogue all `weekend`.
+- Now, that sounds like a hell of a `weekend`.
+- Suzi, i'll make time for you this `weekend`.
+- They made plans to meet again next `weekend`.
+- Took the kids to his mom's for the `weekend`.
+- Meg went on her first date last `weekend`.
+- I might see you in norfolk over the `weekend`.
+- Are you gonna take me somewhere next `weekend`?
+- Yeah it is...the best day before the `weekend`.
+- Clarke... and a spot on `weekend` update on snl.
+- On its second `weekend`, i know the plan, raven.
+- Can i see you later -- go away for the `weekend`?
+- Just a few... just a day or two... the `weekend`.
+- We spent all `weekend` looking for her doctor-boy.
+- Dad, you have to teach me to suture this `weekend`.
+- Myra and me come down to lajolla for the `weekend`.
+- To a great `weekend` -- i said we start having fun.
+- Actually, it's our first anniversary this `weekend`.
+- Jack, look, next `weekend` i'm having a house party.
+- Your parents are always going away for the `weekend`.
+- Then, one `weekend`, he asked me up to meet lydia.
+- You didn�t rent this place for the `weekend`, did you?
+- Maybe next `weekend` or... into the order of the flame?
+- Look, why don't you both come on down for the `weekend`.
+- Not this `weekend`, sweetie, she's runnin' away with me.
+- So what would a `weekend` in the country be without sex?
+- Twombley's son-in-law and daughter are up the `weekend`.
+- I'm just in town for the `weekend`, taking in the sights.
+                 

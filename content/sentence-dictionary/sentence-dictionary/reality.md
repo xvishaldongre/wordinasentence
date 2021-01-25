@@ -1,0 +1,97 @@
+---
+title: "reality in a sentence | reality example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reality"
+---
+- Okay, `reality` check.
+- `Reality`, like i said.
+- [`reality` very risky.]
+- It�s just not `reality`.
+- But this is the `reality`.
+- How do you play `reality`.
+- `Reality` check, dillweed.
+- This is another `reality`.
+- I like to play "`reality`".
+- It has to be the `reality`.
+- Face what they call `reality`.
+- There's only one `reality` left.
+- The virtual `reality`'s working.
+- `Reality` can be whatever i want.
+- You've lost touch with `reality`!
+- Please, grampa, back to `reality`.
+- She has no real grip on `reality`.
+- Dad, i watch those `reality` shows.
+- `Reality` tv and stay by the phone.
+- This is the means to the `reality`.
+- Woman, voice-over: `reality` sucks.
+- In that `reality`.... it never left.
+- It's a twisted version of `reality`.
+- Now this may benefit your `reality`.
+- Anomalies in our so-called `reality`.
+- But that's just not `reality`, nancy!
+- Have you lost all sense of `reality`?
+- He's a `reality` television producer.
+- Protecting your `reality`, douchebag.
+- Why don't you two stick to `reality`.
+- But the `reality` gets you in trouble.
+- Gambling's about not facing `reality`.
+- Of your desire to return to `reality`.
+- That `reality` is a real 'no,' isn't it?
+- I can't risk this `reality` on a promise.
+- It's self-reflexive `reality` television.
+- That's gone, but i settled for `reality`.
+- He's completely lost touch with `reality`.
+- You've gotta start dealing with `reality`.
+- Hence he'll be getting the `reality` stone.
+- I know you have the `reality` stone, tivan.
+- Paranoia's only `reality` on a finer scale.
+- To help your `reality`, i'm dooming my own.
+- For us, that place will soon be a `reality`.
+- I really did think i was still in `reality`.
+- `Reality` pulled out of her five minutes ago.
+- `Reality` is probably somewhere in between us.
+- Speaking of being out of phase with `reality`.
+- Well, in `reality` it's not that dangerous, bob.
+- It looked like a dream but it felt like `reality`.
+- But i only see it as a fantasy version of `reality`.
+- This is a fairly strange `reality` to be faced with.
+- Look, schizophrenics tend to withdraw from `reality`.
+- So, in `reality`, you and i are in the same business!
+- Did something happen to make you care about `reality`?
+- `Reality`-`reality`-`reality` -- outrageous building, huh?
+- But for i, this isn't a fantasy, it is <u>`reality`</u>!
+- He's never wanted to face the `reality` of our situation.
+- You've just been too blinded by your own `reality` to see.
+- Is it possible to bring you back to `reality` for a moment?
+- The `reality` is this: we send far too many men off to war.
+- And extract the `reality` stone and get gone, lickety-split.
+- And extract the `reality` stone, and get gone lickety-split.
+- Ok lassies, i think it's time you get to gripping `reality`.
+- So...he's trying to cross over, from film into our `reality`.
+- I must concetrate my imagination...to creat a new...`reality`!
+- We accept the `reality` of the world with which we're presented.
+- You are out of touch with `reality` if you think differently.
+- I must say you're an island of `reality` in an ocean of diarrhea.
+- What you think, you know, doesn't have much to do with `reality`.
+- Joey, you walked through your window from one `reality` to another.
+- But i do know if one tenth of what's happening to me is `reality`...
+- A thousand times, you have one day to get used to your new `reality`.
+- That's the `reality` morgan's gonna have to find a way to grow up in.
+- You know, `reality` shows love a sob story, we're not there yet, mel.
+- Any connection between your `reality` and mine is purely coincidental.
+- Luke, i'm hopping you can help him see the `reality` of the situation.
+- If i give up the time stone to help your `reality`, i'm dooming my own.
+- Munchkin, i wanted it as bad as you did, but we have to face `reality`.
+- You've created something in your mind, james -- a substitute `reality`.
+- Remember the bowling ball bag sid carried with him in virtual `reality`?
+- It's strip `reality`, actually, like what the pilots always want to play.
+- Just like that, an idea blossoms into the flower of possible `reality`.
+- It's a swift spiritual kick to the head that alters your `reality` forever.
+- Real magic, willow, is simply the art of controlling the `reality` of others.
+- Danny said if i can capture the `reality` of burnfield, it'd make a great tape.
+- The `reality` stone's been safely stored there with a man called the collector.
+- When confronted with the prospect of your own `reality`, hide behind quotations.
+- There are two sides to every personality, all right--the `reality`...and the lie.
+- Every `reality` show needs that crazy, no-limits guy i can't believe i did this to him.
+                 

@@ -1,0 +1,70 @@
+---
+title: "enemies in a sentence | enemies example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "enemies"
+---
+- Yes, i have `enemies`.
+- And `enemies` of wonkru.
+- They're all your `enemies`?
+- What about my `enemies`?
+- Your `enemies` are circling.
+- No, i have no `enemies` here.
+- We don't have to be `enemies`.
+- What happens to our `enemies`.
+- Your `enemies` know you're here.
+- Emory had made a lot of `enemies`.
+- My `enemies` are trying to frame me.
+- Then they would become my `enemies`.
+- `Enemies` when she was among friends.
+- Our real `enemies` fell from the sky.
+- I can't think of any `enemies` i have.
+- You have turned friends into `enemies`.
+- What happens to the `enemies` of wonkru.
+- So now he calls them `enemies` no longer.
+- Are you sure you don't have any `enemies`?
+- I just know we've made too many `enemies`.
+- In this way, i have outlived my `enemies`.
+- You leave me at the mercy of my `enemies`.
+- But "love your `enemies`"... body and soul.
+- So we aren't sharing it with our `enemies`.
+- The blood of our `enemies` you had me shot!
+- I've killed twice as many `enemies` as that.
+- I think that you and i are natural `enemies`.
+- We neutralized `enemies` of the united states.
+- The cia's keeping something from our `enemies`.
+- Shaw probably has lotsa `enemies` to choose from.
+- There is only wonkru and the `enemies` of wonkru.
+- Keep your friends close and your `enemies` closer.
+- Forget watergate, the break-ins, the `enemies` list.
+- If you weren't delivering soldiers to our `enemies`.
+- I've had a long time to make `enemies`, dr. arroway.
+- Legend has it when she died, even her `enemies` wept.
+- Fella made himself a pile of `enemies` over the years.
+- If we stop fighting our `enemies`, the world will die.
+- Nature and truth are the very `enemies` of playacting.
+- Yeah, sure, you got lots a `enemies` in l.a. after what?
+- Well, that was before she went into hiding with my `enemies`.
+- About the chip, ok, please, but you think `enemies` of azgeda.
+- Better to keep your friends than to worry about your `enemies`.
+- But a machine this powerful is going to make powerful `enemies`.
+- We're each our own country, with temporary allies and `enemies`.
+- She is an enemy of wonkru, and like all of our `enemies`... - no.
+- They are our `enemies`... traitors to our people, oh, screw this.
+- With ergo the magnificent by your side, your `enemies` are dead men.
+- If you make `enemies` on both sides of the border, you'll end up dead.
+- The order of the flame will never support of my `enemies` being whacked.
+- You must understand that your father's `enemies` have friends in palermo.
+- It's in his best interest no one has told you we're not `enemies` anymore.
+- "love your `enemies`"... no, i... do you think this cross will protect you?
+- Because skynet knows the russian counter-strike will remove its `enemies` here.
+- Easy ... take it easy ... we're almost there... all my `enemies` own car crushers.
+- Awww... deep down i'm a bastard, but when ya got eight kids ya can't make `enemies`.
+- Soon, wonkru will accept their new leader he got any `enemies` you might know about?
+- The harkonnens are our `enemies`, yes... but behind them, i suspect, is the emperor.
+- We have to keep our `enemies` at bay or our whole program is gonna go down the tubes.
+- You said the `enemies` of the reich could all be replaced, but there is one exception.
+- It has been said, you may have `enemies` whom you hate, but not `enemies` whom you despise.
+- My job is to protect this country from its `enemies`, and its `enemies` are inside the walls.
+- Our `enemies` are plenty smart, and there might even be an attack on the base by saboteurs.
+                 

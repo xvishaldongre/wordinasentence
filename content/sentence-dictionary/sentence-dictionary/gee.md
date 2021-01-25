@@ -1,0 +1,107 @@
+---
+title: "gee in a sentence | gee example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gee"
+---
+- `Gee`, i don't think .
+- `Gee`, that's too bad.
+- `Gee`, would you, sir?
+- `Gee`, i'm sorry, lois.
+- Oh `gee`, your journal.
+- `Gee` -- i don't know...
+- `Gee`, i'm really sorry.
+- `Gee`, i wonder why not.
+- `Gee`, your dad's smart.
+- Good to hear you, `gee`.
+- `Gee`, that is a problem.
+- `Gee`, you're home early!
+- I thought maybe -- `gee`!
+- Then i thought "`gee`.
+- `Gee`, uh, that's too bad.
+- `Gee`, i don't know, crabs.
+- `Gee`, i'm glad you're here.
+- `Gee`, it's good to see you!
+- `Gee`, i don't know, crabs...
+- `Gee`, i wish i'd been there.
+- "`gee`, i wish i were a man."
+- `Gee`, that's very serious...
+- `Gee`, guys, what should i do?
+- `Gee`, would you, mr. webster?
+- You see, the velocity-- `gee`!
+- `Gee` guys, that's swell of you.
+- `Gee`, i didn't recognize you...
+- `Gee`... that's wonderful, jill.
+- `Gee`, that was so poetic, jack.
+- Oh, `gee`, he's crazy about you.
+- Well... oh, `gee`, i don't know.
+- Because `gee`, you don't look ok.
+- `Gee`... fuckin' a -- -- you are.
+- ...`gee`, i'm sorry to hear that.
+- `Gee`... what makes you say that?
+- `Gee` gallagher, do you look good!
+- `Gee`, i better not, if it's okay.
+- `Gee` -- those look like diamonds!
+- Well, `gee`, nelson, i don't know.
+- `Gee`, i always loved porch swings.
+- `Gee`, officer, they went that way.
+- `Gee`, this looks like a fun place.
+- `Gee`, i haven't done this in years.
+- `Gee`, it's swell to see you, eddie.
+- It ain't no heavy `gee` we're after.
+- Well, `gee`, i try and have a heart.
+- But i am not t-i-m. `gee`, it's easy.
+- `Gee`, lou, i'm doing the best i can.
+- `Gee`, this is a surprise, mr. gittes.
+- `Gee`, that would really disappoint me.
+- Aw, `gee` -- we didn't finish our story.
+- `Gee` -- that fair -- all right, daniel.
+- Hello?...hello?...`gee`, it must be edad.
+- `Gee`, eddie, you're not gonna go, are ya?
+- `Gee`, i'm hungry too -- my pleasure, sir.
+- `Gee`, look at that thing swing, will you?
+- `Gee` stud, this is going to be some date.
+- Escort *you* `gee`--i mean--*sure*-- *yes*!
+- Just kidding... `gee`, eddie, i'm a rabbit.
+- Well `gee`--how--how've you been, saunders?
+- `Gee`, i thought you'd be thrilled to death.
+- `Gee`, doggone it, i never thought about that.
+- `Gee`, alan's been looking kind of sick lately.
+- `Gee`, i didn't even know you had any children.
+- Oh, `gee`, mr. gittes we're going out tomorrow.
+- Yes, sir -- i guess i do -- `gee` -- of course.
+- `Gee`, i hope they don't have a fight out there.
+- `Gee`..twenty five dollars for something i made!
+- `Gee`, ya think it wouldn't be too much trouble.
+- ..this week's tke kegger... `gee`, let me think.
+- `Gee` i hope this doesn't make my cold any worse.
+- `Gee`, i'll sit out this afternoon's coffee talk.
+- `Gee`, that sure puts my problems in perspective.
+- `Gee` whiz-- we're ahead of schedule, that's all.
+- `Gee`, we hate to leave you like this, major kong.
+- `Gee`, i'd like to get inside and see how it works.
+- `Gee`, the more i think about it the more i could .
+- `Gee`, charley, i'm sure glad you stopped by for me.
+- I thought all along-- `gee`--i--i'm glad to see you.
+- `Gee`, i hope you're not goin' to get in any trouble.
+- `Gee`, i wouldn't want anything to happen to my kids.
+- `Gee`, trevor, you sure know how to charm the ladies.
+- `Gee`, i don't know, it seems to be some kind of code.
+- `Gee`, uncle lex, i was just getting to the good part.
+- `Gee`, mom, do you think maybe he's a diamond smuggler?
+- Aw, `gee`, mom -- i had plans to play with mr. carpenter.
+- `Gee`, i wouldn't want to touch an ugly critter like that!
+- `Gee`, when you tipped one seventy-five you were beautiful.
+- `Gee`, yeah, you told me it was the best time you ever had.
+- Really, sara, i... `gee`, grady, that sounded so heartfelt.
+- `Gee`, uncle lex, i don't think this guy's much of a dancer.
+- `Gee`, with an invitation like that how could a girl refuse.
+- `Gee` whiz, i could use this as a raft in case the boat sunk.
+- No, `gee`--i couldn't stay here-- oh--a wonderful thing--yes.
+- `Gee`, he talks like he's violating a moral issue sitting here.
+- `Gee`, you almost make me feel like a heel -- coming between you.
+- She'd make a beautiful heroine... `gee`, that's an idea, gallagher.
+- `Gee`, honey-bunch, i'm sorry -- i'm going to have to disappoint you.
+- `Gee`, we haven't had one of those in a long time, have we gallagher?
+- ♪ that alone i'd never fi... ♪ and the smell... `gee`, mother of god.
+                 

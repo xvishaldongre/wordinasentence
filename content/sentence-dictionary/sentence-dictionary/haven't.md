@@ -1,0 +1,107 @@
+---
+title: "haven't in a sentence | haven't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "haven't"
+---
+- `haven't` for a while.
+- `haven't` got a thing.
+- I guess you `haven't`.
+- I `haven't` exercised.
+- I `haven't` forgotten.
+- I `haven't` got a gun!
+- I `haven't` read that.
+- I `haven't` seen them.
+- No, i `haven't` heard.
+- Still `haven't` shown.
+- We `haven't` got time.
+- We `haven't` seen him.
+- You `haven't` changed.
+- You `haven't`, got it.
+- You `haven't` replied!
+- You `haven't` seen it.
+- You `haven't` seen me.
+- You `haven't` told me.
+- `haven't` seen anybody.
+- `haven't` they already?
+- `haven't` you told him?
+- I `haven't` any family.
+- I `haven't` got it yet.
+- I `haven't` won it yet.
+- They `haven't` changed.
+- We `haven't` much time.
+- We `haven't` tested it.
+- Why `haven't` you left?
+- You `haven't` found us.
+- You `haven't` heard me.
+- You `haven't` told him?
+- Don't think i `haven't`.
+- `haven't` felt it a bit.
+- `haven't` got that much.
+- `haven't` we met before?
+- `haven't` you opened it?
+- I `haven't` been hiding.
+- I `haven't` brushed yet.
+- I `haven't` come to you.
+- I `haven't` decided yet.
+- I `haven't` got a union.
+- I `haven't` laid a hand.
+- I `haven't` lied to you.
+- I `haven't` much to say.
+- I `haven't` said a word.
+- Of course you `haven't`.
+- We `haven't` build shit.
+- You `haven't` been here.
+- But i `haven't` shot him.
+- `haven't` hit bottom yet.
+- `haven't` you had enough?
+- I `haven't` been invited.
+- I `haven't` done a thing.
+- I `haven't` felt like it.
+- I `haven't` got it, john.
+- I `haven't` got no class.
+- I `haven't` killed _you_.
+- I still `haven't` packed.
+- No, i `haven't` seen him.
+- They `haven't` decoupled!
+- We `haven't` done it yet.
+- We `haven't` got all day.
+- Well, i `haven't` either.
+- Why `haven't` i seen you?
+- Why `haven't` you called?
+- You `haven't` touched it.
+- We `haven't` seen her.
+- `haven't` seen you around.
+- `haven't` slept, have you?
+- `haven't` thought of that.
+- I `haven't` been sleeping.
+- I `haven't` done anything.
+- I `haven't` done it right?
+- I `haven't` got any wings.
+- I `haven't` gotten it yet.
+- I `haven't` heard of that.
+- I `haven't` opened it yet.
+- I `haven't` said anything.
+- I `haven't` time to argue.
+- No, `haven't` heard of it.
+- No, you `haven't` met him.
+- We `haven't` spoken since.
+- We `haven't` talked a lot.
+- We `haven't` talked since.
+- You `haven't` decided yet?
+- You `haven't` heard of it.
+- Actually, we `haven't` met.
+- Got a brain, `haven't` you?
+- `haven't` thought about it.
+- `haven't` you even started?
+- `haven't` you ever noticed?
+- I `haven't` checked in yet.
+- I `haven't` got the energy.
+- I `haven't` heard from her.
+- I `haven't` heard from him.
+- I `haven't` invited you in.
+- I `haven't` lived this day.
+- I `haven't` made any calls.
+- I `haven't` seen you there.
+- I `haven't` slept in weeks.
+                 

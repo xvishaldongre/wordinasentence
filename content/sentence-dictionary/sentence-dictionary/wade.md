@@ -1,0 +1,78 @@
+---
+title: "wade in a sentence | wade example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wade"
+---
+- I'm `wade` whitehouse.
+- Nope, he ain't `wade`.
+- This is a war, `wade`.
+- Are you alright, `wade`?
+- Guy named `wade` beemer.
+- `Wade`, are you alright?
+- `Wade`'s in cryo-prison.
+- You can't buy `wade` off.
+- `Wade`, that wasn't smart.
+- `Wade`, would you do that?
+- How you holding up, `wade`?
+- I'm asking you here, `wade`.
+- That badge-- charley `wade`.
+- Gives `wade` the second shot.
+- This is my deal here, `wade`!
+- Yes, `wade`, i mean twombley.
+- You have technophobia, `wade`.
+- He gently closes `wade`'s eyes.
+- `Wade` did a little reminiscing.
+- `Wade`, i got a message for you.
+- Now come on here, no way, `wade`!
+- Twenty years have passed, `wade`.
+- You think it's charley `wade`, huh?
+- Nothing, `wade`, i've been thinking.
+- Pulls `wade`'s hands from the wound.
+- So you must remember sheriff `wade`.
+- He tagged `wade` dangerously defiant.
+- What the fuck you telling me, `wade`?
+- Didn't you say you'd seen him, `wade`?
+- Just shut up, ryan didn't kill `wade`.
+- Maybe `wade` should take a look at it.
+- I mean, c'mon, `wade`, give me a break.
+- They were darned clear on that, `wade`!
+- You ever heard of a badge named `wade`?
+- It was `wade`'s old partner... gallagher.
+- `Wade`, what the hell are you doing here?
+- You recall if charley `wade` was a mason?
+- `Wade` was sentenced to twenty-five years.
+- `Wade`, what the heck're you talkin' about?
+- You gotta listen to me on this one, `wade`.
+- But sir, sergeant `wade` saved the hostages.
+- Somebody's got to `wade` in, save the thing.
+- You ever think of getting a new car, `wade`?
+- Pumps the morphine straight to `wade`'s brain.
+- Those boys are buying up the mountain, `wade`.
+- Always count on old `wade` for a good screwing.
+- Yah, but think this thing through here, `wade`.
+- Figured you'd know something about that, `wade`.
+- It's just... we've done all our talking, `wade`.
+- Hollis probably told you we found charley `wade`.
+- The sheriff at the time was big charley `wade`.
+- But sheriff `wade`, he could shut you down anytime.
+- Sir, i ain't feeling so chipper on account of `wade`.
+- You helped set up my partner, sergeant william `wade`.
+- That sheriff `wade`, though, he took an awful big bite.
+- You get reiben, jackson and `wade`, meet me at transport.
+- `Wade` -- i've been working toward this audition for years.
+- He had to `wade` in... his nervous breakdown followed hobbs.
+- Oh -- don't forget tomorrow we have dinner with `wade` cooksey.
+- I don't know, i kind of like `wade`'s idea about the cruise ship.
+- Said he'd make sure i was left alone if i helped put `wade` away.
+- Them days, you deal with sheriff `wade` or you didn't deal at all.
+- Call chub meritt and have him pick up `wade`'s car, fix the clutch.
+- These - we're not holdin' any cards here, `wade`, they got all of 'em.
+- Well - i gotta tell ya, `wade`, i'm leanin' to jerry's viewpoint here.
+- You know `wade` was the eleventh of the twelve, you're the last one still alive.
+- More morphine, hurry up, come on, come on... shoves the needle into `wade`'s neck.
+- We're not horse-trading here, `wade`, we just gotta bite the bullet on this thing.
+- After that cabron charley `wade`-- you built our patio while you were on the county?
+- `Wade`, sarge, corporal insect, all of us, hell, i'll bet even the captain has a mother.
+- No, but, `wade`, see, i was bringin' you this deal for you to loan me the money to put in.
+                 

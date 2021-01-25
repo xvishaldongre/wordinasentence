@@ -1,0 +1,107 @@
+---
+title: "hands in a sentence | hands example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hands"
+---
+- He's got bare `hands`.
+- Hold out your `hands`.
+- Just with her `hands`.
+- She's in good `hands`.
+- Wash your `hands` now.
+- You see these `hands`?
+- Can i see your `hands`?
+- He's got great `hands`.
+- His `hands` were magic.
+- How are the `hands`...?
+- It's out of my `hands`.
+- She is in safe `hands`.
+- Sterilize your `hands`.
+- You're in good `hands`.
+- Get your `hands` off me!
+- Get your `hands` off me.
+- His two `hands`, dingus.
+- I can't feel my `hands`!
+- I can't feel my `hands`.
+- It's `hands` on a clock.
+- It's out of our `hands`.
+- Let me see your `hands`!
+- No, not holding `hands`.
+- Tie their `hands`, boys.
+- Both `hands` on your lap.
+- But he `hands` them over.
+- Get your `hands` off him!
+- Got my `hands` full here.
+- He's washing his `hands`?
+- I putter with me `hands`.
+- It's freezing my `hands`.
+- It's out of your `hands`.
+- I've got my `hands` free.
+- Let me see those `hands`.
+- She `hands` him the file.
+- Take your `hands` off me!
+- Take your `hands` off me.
+- They's both left `hands`.
+- Your `hands` are so soft.
+- Let me see your `hands`...
+- Look at her `hands`, baby!
+- The book is in my `hands`.
+- With your own two `hands`?
+- My `hands` are shaking.
+- `Hands` and knees, you say?
+- `Hands` off your hip, cole.
+- He didn't wash his `hands`.
+- I washed my `hands` of her.
+- My `hands` are tied, ma'am.
+- Oh, your `hands` feel cold.
+- Preferably holding `hands`.
+- Two `hands` leads to three.
+- But i had to use my `hands`.
+- Get your `hands` off of her.
+- Her life is in your `hands`.
+- Her life was in our `hands`!
+- I'm on my `hands` and knees.
+- I'm shaking `hands` with it.
+- I said, `hands` on the wall.
+- Nyko's got his `hands` full.
+- Put your fucking `hands` up!
+- Sue... look at your `hands`.
+- The world is in our `hands`.
+- This is out of your `hands`.
+- Watch your `hands` and feet.
+- We need all `hands` on deck.
+- What brown `hands` you have.
+- `Hands` where i can see them.
+- Her life was in your `hands`!
+- I did it with my own `hands`!
+- I leave that in your `hands`.
+- So why play into his `hands`?
+- Stick out your `hands`, jake.
+- Those things in your `hands`.
+- ...we get our `hands` on him?
+- We're running out of `hands`.
+- Will be on your `hands`, too.
+- You have really soft `hands`.
+- All `hands`, brace for impact!
+- Can't do it with both `hands`?
+- Come out with your `hands` up!
+- Crawl on my `hands` and knees?
+- I have strength in my `hands`.
+- I hope she has strong `hands`.
+- Keep your arms in, `hands` in.
+- Okay, i wanna see the `hands`.
+- Peter, their `hands` are tied.
+- Put your `hands` on the wheel.
+- Put your `hands` on your head.
+- Secure their `hands` and feet.
+- Shake `hands` with your daddy.
+- Somebody step on your `hands`?
+- Those are carpenter's `hands`.
+- Well then, just shake `hands`.
+- With our dicks in our `hands`.
+- You guys been holding `hands`?
+- All right, put up your `hands`.
+- Get your damn `hands` off her!'
+- Her `hands` and feet were tied.
+- Holding `hands` are holy `hands`.
+                 

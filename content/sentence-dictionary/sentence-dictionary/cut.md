@@ -1,0 +1,107 @@
+---
+title: "cut in a sentence | cut example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cut"
+---
+- Better `cut` that out.
+- They've `cut` into us.
+- They were `cut` loose.
+- We could `cut` a demo.
+- Will you `cut` it out!
+- You can `cut` the bow.
+- Aw, `cut` it out, ruth.
+- `Cut` half his ear off.
+- `Cut` it out butt-head.
+- `Cut` it out butt-hole!
+- `Cut` it out, will you?
+- `Cut` that out, copper.
+- `Cut` the general crap.
+- `Cut` the shit, flynne.
+- Did you `cut` yourself?
+- He was `cut` -� --here.
+- I `cut` myself shaving.
+- I'm in ... `cut` 'em...
+- They'll `cut` you down.
+- Time to `cut` a rug, z!
+- You can `cut` the crap.
+- You get an equal `cut`.
+- You have to `cut` deep.
+- You've `cut` your hair?
+- Could you `cut` me down?
+- `Cut` round him for now.
+- `Cut` the mush, lorelei.
+- It's already been `cut`.
+- Just `cut` it out, okay?
+- Lie flat and then `cut`.
+- They `cut` the hardline.
+- They'll `cut` the power.
+- What's the `cut`, poppa?
+- You got to `cut` it out!
+- Alright, `cut`, `cut`, `cut`.
+- `Cut` his fucking throat.
+- `Cut` the horsing around.
+- `Cut` the kid some slack.
+- `Cut` the shit, will you!
+- Don't `cut` much up here.
+- Got to `cut` it out, doc.
+- Hate to `cut` this short.
+- Here... `cut` the engine.
+- I'll `cut` him right now!
+- I must have `cut` myself.
+- Just a scene i `cut` out.
+- Let's `cut` the bullshit.
+- Let's `cut` to the chase.
+- Now let's `cut` the shit.
+- Oh, mother, `cut` it out.
+- Raven, `cut` the engines.
+- She has `cut` my strings!
+- Should have `cut` it off.
+- Some kind of power `cut`.
+- You `cut` me to the core!
+- After you `cut` her loose.
+- `Cut` down with a herring!
+- `Cut` it off with a knife.
+- `Cut` some kind of a deal.
+- `Cut` the malarkey, buddy.
+- `Cut` to them, you'll see.
+- Go ahead, `cut` him loose!
+- I couldn't `cut` the rope.
+- I'm gonna `cut` my throat!
+- Listen, flo, `cut` it out.
+- Oh, `cut` it out, will ya?
+- Stay back, or i `cut` him!
+- Then let's `cut` the crap.
+- They'd `cut` us to shreds.
+- We've gotta `cut` through.
+- Who didn't make the `cut`?
+- Will you two `cut` it out?
+- Young woman `cut` herself.
+- And, `cut`... that's great.
+- Aw, `cut` it out, will you?
+- Because somebody `cut` her.
+- Coulda `cut` a better deal!
+- `Cut` it back a little bit.
+- `Cut` out my fucking heart.
+- `Cut` out that us business.
+- `Cut` out the guff, schulz.
+- `Cut` the crap and read it.
+- `Cut` the horseplay, harry.
+- `Cut` them folks to pieces.
+- George, now `cut` this out.
+- Hey man, where is my `cut`?
+- I want to `cut` his throat.
+- Let's `cut` the "sir" crap.
+- Oh `cut` the shit, kathryn.
+- Old ties are hard to `cut`.
+- We have to `cut` her loose.
+- We should `cut` our losses.
+- You'd `cut` me loose, boss?
+- ...you might get `cut` out.
+- All right, `cut` me a break.
+- I could `cut` the binds.
+- Bart, you `cut` the bullies.
+- Could we `cut` all news off?
+- * `cut` from completed film.
+- I mean, who makes the `cut`?
+                 

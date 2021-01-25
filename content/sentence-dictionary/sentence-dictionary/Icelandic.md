@@ -1,0 +1,7 @@
+---
+title: "Icelandic in a sentence | Icelandic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Icelandic"
+---
+## Unfortunately, we have no example sentences for Icelandic                 

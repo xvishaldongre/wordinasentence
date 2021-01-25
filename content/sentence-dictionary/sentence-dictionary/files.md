@@ -1,0 +1,100 @@
+---
+title: "files in a sentence | files example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "files"
+---
+- I checked the `files`.
+- Go through his `files`.
+- It'd be in his `files`.
+- Let me see the `files`.
+- You've got the `files`?
+- Go back to your `files`.
+- I have detailed `files`.
+- I have it in my `files`.
+- What's in those `files`?
+- He had all those `files`.
+- I always lock my `files`.
+- I have the `files`, ward.
+- Seventh, `files` section.
+- The `files` are spotless.
+- You know how time `files`.
+- I'm sending you the `files`.
+- I hacked the eligius `files`.
+- They've closed the x-`files`.
+- Why wasn't it in our `files`?
+- You've seen my `files`, right?
+- The ones in the box of `files`.
+- There's nothing in the `files`?
+- Who the hell opened my `files`!
+- Been putting my `files` into it.
+- He'd seen these `files` and knew.
+- It's those `files` you asked for.
+- Did you see anything in the `files`?
+- You know what's in those `files`?
+- Hey -- those are my `files` -- i will.
+- Why were we never shown these `files`?
+- Pulled your `files` before i came down.
+- He kept `files`, close on 250,000 `files`.
+- All old `files` are sent up to the castle.
+- Looked like some shit from the x- `files`.
+- The t-1000 has the same `files` that i do.
+- Who told you to look at elektra�s `files`?
+- They didn't look like medical `files` to me.
+- Where are you storing the personnel `files`?
+- If he `files` are you going to take the case?
+- She kept these `files` of other missing kids.
+- That computer has everything... ...my `files`!
+- I have -- where are the police academy `files`?
+- It was chock full of loomis' `files` on meyers.
+- These are the `files` for the eligius missions.
+- As long as he's got secret `files` on everybody.
+- I don't believe there is a keeper of the `files`.
+- How did you open protected `files`, may i ask?
+- Or, thirdly, have the man's `files` been destroyed?
+- Why would we keep `files` on <u>dead</u> employees?
+- Andrews -- get the `files` on her parents' accident.
+- Still... we're talking raw, unprocessed kgb `files`.
+- When sally showed me what was in swayzak's `files`...
+- When you get more `files`, i'd like to see them, too.
+- `Files` are mostly by state and year of disappearance.
+- I go through police `files`, personel `files`, anything.
+- Nobody has access to those `files` except studio execs.
+- `Files` on horsefield, tudor, swinburne, and velakofsky.
+- I even opened the protected `files` and -- working late?
+- Man, there's too many garbage `files`, i need more time.
+- He might have that one little thing i need in his `files`?
+- In the meantime no one else must know those `files` exist.
+- I've seen him copying `files`, leaving here late at night.
+- The fbi computer holds `files` on twenty million americans.
+- You come into my office as a friend and steal city `files`!
+- Suddenly you're losing `files`, and it's time to let you go.
+- They upload medical `files`, school records, pharmacy `files`.
+- I hear the british have his... his archive, `files`, records.
+- Look joyce, i need your key to the `files`, not advice, okay?
+- ... what we do in here is keep track of all the case `files`.
+- I have no idea - it's full of `files` and documents and tapes.
+- No police record on your suspect--at least not in our `files`.
+- Goddammit chief, why would i ever need to look in your `files`?
+- Mary has stolen our `files` and is sending them back to people.
+- We have a zero bug attacking all the login and overlay `files`.
+- I know -- but she wants you to represent her if cardenas `files`.
+- I'm sorry but there's no record of a jacob singer in our `files`.
+- Well, it seems they've dropped any charge relating to the `files`.
+- Maybe, but i've started to wonder what those `files` were all about.
+- Starck, download all the `files` from the event horizon's computers.
+- Just some preliminary questions that i need for my own `files`, okay?
+- With how our lives are, if i start subdividing `files`, i'll be sunk.
+- I'm trying to grab a little something from some hard-crypt data `files`.
+- You've been looking through my private `files`, haven't you, you weasel?
+- Those `files` contain the details of every working artist in this country.
+- Being a decent loving friend i went to the `files` and made a copy for you.
+- Yes, ran it through my `files`, even asked around: came up completely blank.
+- Get these `files` downstairs... and, quit listening to your fucking voodoo music.
+- I'll just search his `files` for the original virus code, and then i can eliminate it.
+- Those `files` are gonna tell us who joined the party, who informed and who was helpful.
+- We caught him by surprise, so we don't think he had time to erase his computer `files`.
+- The `files` are in a sealed room and the university are under strict orders to stay away.
+- The keeper of the `files` is still waiting for your final summation of the erlanger claim.
+- He `files` suit, says he has no choice in what they serve and it violates his civil rights.
+                 

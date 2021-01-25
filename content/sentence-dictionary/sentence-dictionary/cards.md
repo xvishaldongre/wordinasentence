@@ -1,0 +1,107 @@
+---
+title: "cards in a sentence | cards example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cards"
+---
+- Use my credit `cards`.
+- Let me get the `cards`.
+- What are those `cards`?
+- `Cards` are on the table.
+- It wasn't in the `cards`.
+- Your family sent `cards`.
+- Did you bring the `cards`?
+- I-i will deal the `cards`.
+- No scripts, no cue `cards`.
+- The `cards`... you're bank.
+- We bought baseball `cards`.
+- We playing `cards` tonight?
+- But ya got a deck a `cards`?
+- Do you know the `cards` well?
+- Our credit `cards` are maxed.
+- Do you understand the `cards`?
+- He's got `cards` up the wazoo.
+- I've promised to play `cards`.
+- You're hitting for my `cards`!
+- Nobody stole my credit `cards`.
+- Selling all my baseball `cards`.
+- What did you do with the `cards`?
+- Pick up your `cards` and let's go.
+- `Cards` for sorrow, `cards` for pain.
+- Grab one of the `cards` behind you.
+- Mind if i take one of your `cards`?
+- A game of `cards` and hatchet harry.
+- I need extra `cards` for my rolodex!
+- One to seven: deal the face `cards`.
+- But it's not in the `cards`, partner.
+- I saw it in the `cards` this morning.
+- I saw some `cards` in the other room.
+- Not if i give you all the `cards` ...
+- Now all we need is a deck of `cards`.
+- Then all we need's a deck of `cards`.
+- My atm and credit `cards` didn't work.
+- They're being issued identity `cards`.
+- One of those get well soon `cards`.
+- Found them in the box with the `cards`.
+- I want you to have my baseball `cards`!
+- Rick, i'll put my `cards` on the table.
+- She came apart like a house of `cards`.
+- The `cards` are now my only livelihood.
+- You said you'd be -- oh `cards`, maybe.
+- I played the `cards` i was dealt, wyatt.
+- Ooooh, now the `cards` are on the table.
+- I meant -- how will playing `cards` help?
+- Never play with someone's else's `cards`.
+- Your `cards`... lay them down... face up.
+- You're gonna make them eat those `cards`.
+- I was thinking of selling all the `cards`.
+- Just when we have all the `cards`, vaughn.
+- Would you like me to make you two `cards`?
+- Life sure has dealt you some shitty `cards`!
+- All the `cards` finally on the goddamn table!
+- ...playing `cards` with naked ladies on them.
+- We'll call right now and cancel your `cards`.
+- Fifteen minutes ago, where were those `cards`?
+- People like that rarely leave business `cards`.
+- My credit `cards`, cash, fucking id, everything.
+- My `cards` are on the table-- i want to know you.
+- Now i'm going to lay all my `cards` on the table.
+- I'm sorry you saw one of our notification `cards`.
+- Play your `cards` right and you could hit paydirt.
+- The last thing i said to you was mind the `cards`.
+- Don't pick up the `cards` if you are not in the game.
+- Stolen phone `cards` and two-ways is what you sayin'.
+- Thanks for playing that one `cards` down, by the way.
+- The global economy collapses like a house of `cards`.
+- I just got promoted and don't have my new `cards` yet.
+- It's fucking boring after a while without the `cards`.
+- Are we here to play `cards` or talk about the old days?
+- Cheat at `cards`, steal some strays, spit on a rich fella?
+- I -- uh, i... well, there is no place `cards` or anything.
+- They've gotten worse since i took away her credit `cards`.
+- You might want to check those tarot `cards` one more time.
+- Don't forget we have an engagement for cocktails and `cards`.
+- Frankly, j.j., i don't think you got the `cards` to blitz me.
+- So you're probably playing `cards`, and he cheated true love.
+- We cut `cards` to see who sleeps over him, and i always lose.
+- I think philip believes all that stuff with the tarot `cards`.
+- Them pitchers--them little pos'`cards`-- they was real pretty.
+- Where i came from a palmer was a person who cheated at `cards`.
+- You're hitting santa's `cards` and you're taking santa's money!
+- Life has dealt me some bum `cards`... we've certainly missed you.
+- You can also take cue `cards` and teleprompter out of the budget.
+- Filled with phony credit `cards` ... off the two guys in the caddy.
+- If you play your `cards` right, you might get some money out of it.
+- See, every morning the maids drop one of these `cards` in each room.
+- You lend them your cool stuff, like comic books and trading `cards`.
+- I don't fall in love with grown men who collect baseball `cards`!!
+- These - we're not holdin' any `cards` here, wade, they got all of 'em.
+- I want somebody who can find out what philip saw in those damn `cards`.
+- I don't remember any arbor day `cards` from mr. rock 'n' roll detective.
+- I could deny i had those credit `cards` on the plane with me, laplante...
+- Rose is on the phone and here's the `cards` for today -- it's okay, stanley.
+- The negotiator keeps on playing `cards` until mike comes back safe and sound.
+- You play your `cards` right and you'll never have to worry about money again.
+- It's not in the `cards` that i die on a luxury cruise ship...now which way up?
+- She'll take you to the museum, maybe to a movie if you play your `cards` right.
+                 

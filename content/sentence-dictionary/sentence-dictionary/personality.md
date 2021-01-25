@@ -1,0 +1,58 @@
+---
+title: "personality in a sentence | personality example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "personality"
+---
+- Split `personality` ...
+- ...namely a `personality`.
+- You have no `personality`.
+- Maybe some `personality` changes.
+- My `personality`'s showing again.
+- They may help your `personality`."
+- I apply my `personality` in a paste.
+- There's a fellow with `personality`.
+- Because of my charming `personality` ?
+- Winning `personality`, heaps of charm?
+- Classic abandoned `personality` disorder.
+- Give him teeth - the whole `personality`.
+- I know who the dominant `personality` is.
+- I mean, there's a `personality` in there.
+- I think he's got a terrific `personality`.
+- Uh, how did this `personality` come about?
+- They don't have your winning `personality`.
+- It's like birdson had a split `personality`.
+- My lady friend has a `personality` disorder.
+- You have such a great `personality`, michael.
+- Your cheery `personality` makes my skin itch.
+- The `personality` inventories would trip him up.
+- Haven't you noticed your `personality` splitting?
+- I made the name up to give him some `personality`.
+- Thanks, guy, but...she's got a lousy `personality`.
+- He uses his `personality` as a form of birth control.
+- Tessie, they say you were the sister with `personality`.
+- I never could believe that tom was a split `personality`.
+- His `personality` is overflowing into mine and vice versa.
+- It would be a pity to squander such a strong `personality`.
+- I'm supposed to be taking `personality` tips from you three?
+- These new `personality` corrections i've been reading about.
+- Is it just my cheery `personality` that makes your skin itch?
+- So do you think grimes has become the dominant `personality`?
+- But it keeps me from having to develop an actual `personality`.
+- Don't you feel there are different sides to every `personality`?
+- Checking out psychiatric hospitals for his `personality` profile.
+- But his injury resulted in a complete change to his `personality`.
+- I�m desperate to start but i don�t have an addictive `personality`.
+- Why do you feel the need to explore this side of your `personality`?
+- For you -- a puppy's got a little more `personality` than a fish.
+- It's like a computer virus that developed a `personality` or something.
+- They experience emotional disturbances that result in `personality` changes.
+- Different sides of your `personality` might come to life, speak out, act out.
+- Look doc, i really don't understand how her whole `personality` could change.
+- There are two sides to every `personality`, all right--the reality...and the lie.
+- He suffers from a deplorable excess of `personality`, especially for a mathematician!
+- Right after you change your wardrobe, your `personality` and drop about thirty pounds.
+- You won't interfere with the basic rugged concept of my `personality`, will you, girl?
+- Well, if your breath is as sweet as your `personality`, i got a lot to look forward to.
+- Your life can be broken down into the sections of time that formed your `personality` .
+                 

@@ -1,0 +1,107 @@
+---
+title: "o'clock in a sentence | o'clock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "o'clock"
+---
+- It's twelve `o'clock`.
+- Say, seven `o'clock` ?
+- Bandits at 2 `o'clock`.
+- Contact, two `o'clock`.
+- 8 `o'clock` in my suite?
+- Eight `o'clock` tonight.
+- It's only ten `o'clock`.
+- Six `o'clock` in berlin.
+- Are you my two `o'clock`?
+- Dad -- eleven `o'clock`!!
+- It must be one `o'clock`.
+- You said three `o'clock`.
+- It's almost ten `o'clock`.
+- It's only eight `o'clock`.
+- They said three `o'clock`.
+- Eight `o'clock`, everybody!
+- Eight `o'clock` in my room?
+- Howard, your one `o'clock`.
+- I told max eight `o'clock`.
+- It's only eleven `o'clock`.
+- It's twelve `o'clock`, man.
+- Tomorrow, at six `o'clock`.
+- Two people at 12 `o'clock`.
+- On the nine `o'clock` train.
+- Engaging bandit 12 `o'clock`.
+- Four `o'clock` could be good.
+- I get up about one `o'clock`.
+- Six `o'clock` and come alone.
+- Six `o'clock` in the morning?
+- Two `o'clock` is a good time.
+- Bogey at three `o'clock` high!
+- But it's nearly two `o'clock`.
+- We're home by eight `o'clock`.
+- Eight `o'clock` on the dot.
+- I had the four `o'clock` shift.
+- In room "302" at ten `o'clock`?
+- It's ten `o'clock` on saturday.
+- Seven `o'clock`, same as usual.
+- Ten `o'clock` tomorrow morning.
+- That ridge line, one `o'clock`.
+- At one `o'clock` in the morning?
+- I still want pay to 7 `o'clock`.
+- I'll be there at eight `o'clock`.
+- Nine `o'clock` get ready for bed.
+- What happens at eleven `o'clock`?
+- It's four `o'clock` on a saturday.
+- It's two `o'clock` in the morning.
+- "oh, my god, it's five `o'clock`."
+- "at two `o'clock` this morning, mr.
+- Birthday guests at three `o'clock`!
+- Everyone in bed by eight `o'clock`!
+- It is now nine `o'clock` precisely.
+- It's nine `o'clock` in the morning.
+- Like tonight, like seven `o'clock`?
+- My flight leaves at four `o'clock`.
+- No, sir, it's nearly six `o'clock`.
+- This afternoon - at four `o'clock`.
+- Bandit at seven `o'clock` low--solo.
+- I did say three `o'clock`, didn't i?
+- I've got that two `o'clock` in town.
+- Since eight `o'clock` last night...!
+- Well, about - uh - eleven `o'clock`.
+- I'm taking a break at four `o'clock`.
+- `o'clock` is not a target, disengage!
+- Yes -- twelve `o'clock`... yes... ...
+- Cool....so, if we say eight `o'clock`.
+- How do i know when it's ten `o'clock`?
+- Meet me here today at seven `o'clock`.
+- I have a five-`o'clock` plane to catch.
+- I'll be here at four `o'clock` exactly.
+- Let's say nine `o'clock` here tomorrow.
+- Meet me at my studio at nine `o'clock`.
+- We can't keep open till four `o'clock`.
+- Coach has us on eleven `o'clock` curfew.
+- I have to take a class at two `o'clock`.
+- I'll expect you around twelve `o'clock`.
+- I'll pick you up around eight `o'clock`.
+- I'm seeing my broker at three `o'clock`.
+- The senate convenes at twelve `o'clock`.
+- Two `o'clock` then... you know treves...
+- Bruce is making the nine `o'clock` train.
+- It's two `o'clock` in the bloody morning!
+- Right now it's about 8 `o'clock` at home.
+- This gun gets fired before ten `o'clock`.
+- Two `o'clock` in the morning, eddie said.
+- What do you say, friday, eight `o'clock`?
+- Let's drop it for the ten `o'clock`, okay?
+- Oh, i thought you were my eight `o'clock`.
+- Shall we say five `o'clock` -- downstairs?
+- I'll be coming with the five `o'clock` bus.
+- I'm taking the nine `o'clock` train, hildy.
+- It's seven `o'clock` and time for the news.
+- It's three `o'clock` in the morning, frank.
+- Then about nine, ten `o'clock` we can play.
+- This afternoon, about four, five `o'clock`.
+- What about ten `o'clock`, is that too late?
+- Four `o'clock` gives you time to go to bank.
+- I don't get off and then -- eight `o'clock`?
+- You... as of three `o'clock` this afternoon.
+- He wanted it here at exactly seven `o'clock`.
+                 

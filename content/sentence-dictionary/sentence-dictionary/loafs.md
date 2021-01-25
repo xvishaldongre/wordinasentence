@@ -1,0 +1,9 @@
+---
+title: "loafs in a sentence | loafs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "loafs"
+---
+- Just eat your `loafs`.
+- We only got fifteen-cent `loafs`.
+                 

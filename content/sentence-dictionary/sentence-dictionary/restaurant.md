@@ -1,0 +1,100 @@
+---
+title: "restaurant in a sentence | restaurant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "restaurant"
+---
+- The `restaurant`, too?
+- Not in my `restaurant`.
+- This is a `restaurant`.
+- Very nice `restaurant`.
+- Lunch in a `restaurant`.
+- A `restaurant` in oakland.
+- What is it, a `restaurant`?
+- Ah... `restaurant` supplies.
+- Going into the `restaurant`.
+- I'll be at the `restaurant`.
+- We're opening a `restaurant`.
+- She wasn't at the `restaurant`.
+- The people at the `restaurant`?
+- A man comes into a `restaurant`.
+- He was a real `restaurant` buff.
+- It's going to be a `restaurant`.
+- Louis `restaurant` in the bronx.
+- We had dinner at a `restaurant`.
+- We have opened a `restaurant`...
+- Dining at that fine `restaurant`?
+- Mike, you go to the `restaurant`.
+- Uh, fontella's what `restaurant`?
+- Big `restaurant` interview tomorrow.
+- There's a `restaurant` on top of it.
+- This is a `restaurant`, not a meadow.
+- Like it's some five star `restaurant`.
+- The `restaurant` there, but that's it.
+- Uh, uh, did he go to the `restaurant`?
+- I got to get to my `restaurant` on time.
+- Our friend from the chinese `restaurant`.
+- So, is this like a japanese `restaurant`?
+- Yeah, and the `restaurant`'s on my route.
+- You should have gone at the `restaurant`.
+- Hey, is there someone in the `restaurant`?
+- Mmm, `restaurant` chains i never heard of.
+- Down at the dock by the tides `restaurant`.
+- Look, i'll be at the `restaurant` tomorrow.
+- She comes in the `restaurant` all the time.
+- How's the italian food in this `restaurant`?
+- My abuelita had a jukebox in a `restaurant`.
+- `Restaurant`, uh, that's the main expansion.
+- Than when a `restaurant` misprints a coupon?
+- I get to the `restaurant` and he's not there.
+- It's here in this fried chicken `restaurant`.
+- What kind of `restaurant` doesn't serve wine?
+- That air is the property of this `restaurant`.
+- All those times you came into the `restaurant`.
+- I'll take you to the best `restaurant` in town.
+- He's meeting the architects at the `restaurant`.
+- You can't get this in a `restaurant` in new york.
+- Oh, my abuelita had a jukebox in the `restaurant`!
+- ...in some legitimate places, like my `restaurant`.
+- Numerous health code violations in my `restaurant`.
+- The skin flake was found in michael's `restaurant`.
+- That guy with the `restaurant`... about a month ago.
+- He came in with jenny to the `restaurant` where i work.
+- I don't like sitting in the middle of a `restaurant` ..
+- I ever tell you about the `restaurant` i wanted to open?
+- It's a bunch of young agents and it's at a `restaurant`.
+- You guys should stop by the `restaurant` for lunch today.
+- We'll have an apb out while we stake out the `restaurant`.
+- When he could get time off from the `restaurant` business.
+- You can't display a toad in a fine `restaurant` like this!
+- Now we insist it's a public place... a bar, a `restaurant`.
+- Aw shit...the crowded `restaurant`... so there's no scene...
+- Huh...the `restaurant`'s just around the corner here... yep!
+- I'm so excited springfield finally has a vegan `restaurant`.
+- Joey at cinema four said this is a pretty good `restaurant`.
+- When i went in that drugstore by the `restaurant` in biloxi?
+- You didn't think i'd sell that health `restaurant`, did you?
+- I ate somethin' at a `restaurant` that made me a little sick.
+- You know, i'm in a `restaurant` and it's - it's embarrassing.
+- Yes, but i have to tell you in private at a fine `restaurant`.
+- Let's find a good seafood `restaurant` and eat some red salmon.
+- Well, was it in a bar, her apartment, some `restaurant`-- where?
+- You were supposed to wait for me with harry at the `restaurant`.
+- They tell me it has a wonderful `restaurant` on the second floor.
+- Tonight at 8:00 he signed out for louis' `restaurant` in the bronx.
+- No doubt, brother - i figured as much back there in the `restaurant`.
+- I've also committed numerous healthcode violations in my `restaurant`.
+- Well if that's so, you can just get the hell out of this `restaurant`!
+- What i don't get was why didn't you take the shot inside the `restaurant`?
+- Hey, miles, i heard you came by the `restaurant` last night looking for me.
+- Besides, they tell me there isn't a decent `restaurant` on the whole island.
+- God, she'll kill me... ... if she catches me eating pasta in a `restaurant`.
+- I got a friend in coney island who's gonna open his `restaurant` just for us.
+- I thought you said he come into the `restaurant` where you worked with jenny.
+- If you want to lunch in the bois, there's... can you recommend a `restaurant`?
+- We left the `restaurant`, and... and i felt sick... so... so i took a cab home.
+- I mean -- i didn't know if we'd be eating at any `restaurant` that have dress codes.
+- I thought it would be better for your birthday to eat at a nice `restaurant`, chez tres.
+- It could be his... you can go... you don't need "hi i've just come from the `restaurant`."
+- Insist it has to be a public place: a bar or `restaurant` at the height of the dinner hour.
+                 

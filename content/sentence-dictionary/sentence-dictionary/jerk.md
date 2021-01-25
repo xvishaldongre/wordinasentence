@@ -1,0 +1,93 @@
+---
+title: "jerk in a sentence | jerk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jerk"
+---
+- Joel, don't `jerk` me.
+- No, you did it, `jerk`.
+- Okay, who's the `jerk`?
+- Did he `jerk` off to it?
+- He was a `jerk`, really.
+- It's that `jerk` walter.
+- [don't `jerk` a `jerk`-off.
+- Of knee-`jerk` reactions?
+- I feel like such a `jerk`.
+- I've been a `jerk`, right?
+- Homie, i was such a `jerk`.
+- `Jerk`... what did you say?
+- Is that when you `jerk` off?
+- We gonna jump or `jerk` off?
+- Marge, i was a lumber-`jerk`.
+- : you're some fucking `jerk`.
+- [grunts] _ skinner's a `jerk`.
+- I can't... skinner's a `jerk`.
+- I'm not trying to be a `jerk`.
+- Married to some boring `jerk`.
+- You don't have to be a `jerk`.
+- God, flash can be such a `jerk`.
+- Howard the `jerk` reneged on me.
+- Nice left you got there, `jerk`.
+- She's always been a real `jerk`.
+- Johnny, you're a real `jerk`-off.
+- You shoulda stuck around, `jerk`.
+- He certainly drives like a `jerk`.
+- Only a `jerk` like me could do it.
+- Well, i still `jerk` off manually.
+- But not when you act like a `jerk`.
+- The `jerk` who's running your life?
+- You're a `jerk`-off, you know that?
+- And don't `jerk` me around any more.
+- You `jerk`-- catholic school, nasty.
+- Finally realized rick's a `jerk`, huh?
+- Yeah, don't homer simpson, you `jerk`.
+- You thought i was some fucking `jerk`?
+- Any `jerk` with a gun can kill someone.
+- Good, make sure he don't `jerk` around.
+- That `jerk` kept trying to break us up.
+- Yeah, she's turning into a real `jerk`.
+- Being a `jerk` doesn't make you special.
+- Hey, i love you, too, you little `jerk`.
+- Yeah ... turned out to be a real `jerk`.
+- I'm sorry i've been acting like a `jerk`.
+- I'd like to `jerk` and press those babies.
+- Is there anything you don't `jerk` off to?
+- You `jerk` off before all big dates, right?
+- You shouldn't be fighting with that `jerk`.
+- Being a `jerk` is better than being nothing.
+- Some `jerk` lost a bet with me on contraxia.
+- I talk like a `jerk` sometimes -- ...nothing.
+- Tell me you `jerk` off before your big dates.
+- I'm sorry about being a `jerk` this afternoon.
+- I actually have an early lunch, so... a `jerk`.
+- Why does she have to be in love with a `jerk`?!
+- Some `jerk` d.k'd me and i gotta cover his loss.
+- So, what'd you say to that fuckin' `jerk` anyway?
+- You should be shot like a lame horse, you `jerk`.
+- Screw you... screw that... don't `jerk` me around.
+- No, he's a soda-`jerk` drifter, a hamburger flipper.
+- You sure it's not just 'coz you `jerk` off too much?
+- I know that i can be a `jerk` like him sometimes, duck!
+- What a `jerk` -- and like nobody knows who he really is!
+- If that `jerk` didn't like your sports notions, back off!
+- I'll take you drinking and tell you what a `jerk` he was.
+- The great `jerk`-off book caper of 1953. who are you calling?!
+- According to the soundtrack to hamilton, you were a real `jerk`.
+- I don't care, kevin's a `jerk` and i don't like him anymore.
+- Did your classmates there call you '`jerk`' or... ...'schmoe'?
+- I wa- this... yeah, i got this vw out there... what a `jerk`, yeah.
+- For some `jerk` sit in the office tell you "get out there and close."
+- Well, i got news for you, `jerk`: this store would survive without you.
+- Okay, okay -- stand over there.... come on, phil, don't `jerk` me around.
+- I dropped out of school, became a mud wrestler, married and divorced a `jerk`.
+- You `jerk` along from moment to moment, fighting everything that comes at you.
+- He got like this once -- i saw him `jerk` a guy's spine out and show it to him.
+- I'll tell you what scares me -- stumbling through life, like an ordinary `jerk`.
+- ... where... where's a `jerk` like me ever gonna find another girl to love him...
+- If you're a good observer, you must have observed by now that frank burns is a `jerk`.
+- Explain that some `jerk` in a mask and costume fought a mad scientist with four tentacles?
+- From the minute i listen to that stupid program on the radio, i've been a complete `jerk`.
+- That `jerk` that teaches that incredible crap course "contemporary crisis in western man"!
+- I just want to say, for the rest of your life, daniel, can i... ok. skinner's a `jerk`.
+- Then he calls me a `jerk` and says the last guy who thought he was a `jerk` was dead now.
+                 

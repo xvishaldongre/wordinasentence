@@ -1,0 +1,107 @@
+---
+title: "butt in a sentence | butt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "butt"
+---
+- Blood's on the `butt`.
+- Hey `butt`-head, look.
+- I'll have your `butt`!
+- I'll kick your `butt`!
+- Legs, `butt` and hair.
+- Ooh, a `butt`-squeeze.
+- Cut it out `butt`-head.
+- Cut it out `butt`-hole!
+- Did you see his `butt`?
+- Imagination, my `butt`.
+- My first name's `butt`.
+- Pecs and a cute `butt`.
+- Kick lisa in the `butt`.
+- Ow, let go, `butt`-head!
+- Kick homer in the `butt`?
+- My `butt`'s bothering me!
+- Kinda tough on the `butt`.
+- Smooth as a baby's `butt`.
+- With a bloody gun- `butt`.
+- You like, "kicked `butt`."
+- `Butt` cheeks, huh huh huh.
+- Go on, sefton -- `butt` out!
+- You're a pain in the `butt`!
+- Check it out `butt`-head, tv!
+- He licks his `butt` everyday.
+- Or possibly jabba the `butt`.
+- Who put a bee up your `butt`?
+- He ain't stalking your `butt`.
+- I'll kick homer in the `butt`.
+- Sniff a `butt` you don't know.
+- Just get your `butt` down here.
+- Promise me you won't `butt` in.
+- Hey `butt`-head it's that chick!
+- I wouldn't lick nobody's `butt`.
+- She's got a stick up her `butt`.
+- You speak english, `butt`-steak?
+- Thumb up my `butt` sounds better.
+- Darryl doesn't have a cute `butt`.
+- Hey `butt`-head, are we gonna die?
+- Uh, my `butt` and your...uh, `butt`.
+- You should kick your `butt`'s ass.
+- `Butt` out, you pencil-necked geek.
+- Uh... rainbows come out its `butt`.
+- You're too much of a `butt`-monkey.
+- I can get my `butt` kicked for this.
+- I'm gonna kick his corporate `butt`.
+- You can see the outline of a `butt`.
+- I've already got seat cushion `butt`.
+- Somebody's `butt` is gonna bar-b-que.
+- Get your clothes on, move your `butt`.
+- Killing him, dynamite in the `butt`...
+- That `butt` double for the love scene.
+- Even let me put my hands on her `butt`.
+- Beat your `butt`, you don't lemme think!
+- Big `butt`... you know, can't fly coach.
+- Check it out `butt`-head, porta-potties.
+- Why, they'd have my `butt` in a satchel!
+- I don't want to be an adult `butt` wiper.
+- You gotta sell his `butt` on the bahamas?
+- I can feel my `butt` getting sore already.
+- Hey `butt`-head, this chick is pretty cool.
+- The dna revealed that it was a `butt` dial.
+- Uh... `butt`-snatch... um... ass... head...
+- What do you mean, they take out her `butt`?
+- You mean, like, "he has the cutest `butt`"?
+- Hey `butt`-head, i'm starting to feel weird.
+- Hey, smart ass, how 'bout i kick your `butt`?
+- You're kind of being a `butt`-head right now.
+- She has her own bubble-`butt` boyfriend billy.
+- Be careful on that sofa -- it's a `butt`-biter.
+- Hey `butt`-head, why's that guy holding a sign?
+- You know that crack i made about your...`butt`?
+- Hey, `butt`-head, it's that slut from the plane!
+- ...that army nut job to save your narrow `butt`?
+- That guy doesn't know his `butt` from a rathole.
+- You miss me kicking your `butt` in the basement?
+- Rip off your arms, and shove them up your `butt`!
+- Rip off your arms then shove them up your `butt`!
+- Why goose, whose `butt` did you kiss to get here?
+- Especially that big, white, mushy `butt` of yours.
+- It's more like the legs or the `butt` or the hair.
+- He had the same exact yellow pattern on his `butt`.
+- Hey, i'm the one who kicked ivy's botanical `butt`.
+- I put a special tape on the trigger and the `butt`.
+- Uh... dill, um, face... um, uh, `butt`... um, hole.
+- No one's called me a `butt`- head since ninth grade.
+- Hey `butt`-head, do you think we're ever gonna score?
+- They tried for hours to turn my little `butt` around.
+- But considering your status, i'll say slurp my `butt`.
+- I'm afraid though it's time to get your `butt` kicked.
+- It's all that black semen been shootin' up his `butt`.
+- Flattened out on your `butt`, swimmin' around in glory.
+- If you don't you get your lazy `butt` out of that hole.
+- Try to kiss my `butt` just once before i'm transferred.
+- Got any proof on your `butt`-probin' aliens yet, murray?
+- Y'all turned a easter egg hunt into a `butt`-fuck-a- thon.
+- Someone jumped on your car with their `butt`... that's right.
+- That `butt` double for the action scene, in the rainbow room.
+- Then get those balls in the air and get your `butt` over here.
+- Let's arm ourselves to the teeth and kick this psycho's `butt`.
+                 

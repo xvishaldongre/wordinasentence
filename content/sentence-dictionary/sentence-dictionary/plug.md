@@ -1,0 +1,55 @@
+---
+title: "plug in a sentence | plug example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plug"
+---
+- I'm pulling the `plug`.
+- I say we pull the `plug`.
+- Stick a `plug` in it boyd.
+- There's no `plug` to pull.
+- We're gonna `plug` a leak.
+- We have to pull the `plug`.
+- It's time to pull the `plug`.
+- Geneva just pulled the `plug`.
+- I gotta good mind to `plug` you.
+- We `plug` the cracks, we're good.
+- You pull the `plug`, it's an oval.
+- Go out and `plug` the cord back in.
+- `Plug` it in, and press the button.
+- Only pendergast can pull the `plug`.
+- Now tell me why you pulled the `plug`.
+- What'll it do if they pull the `plug`?
+- You can't just pull the `plug`, david.
+- I'll try to get her to `plug` the film.
+- I mean, all i do is pull a `plug` here.
+- But if i don't `plug` it in how can i...
+- In a panic, they try to pull the `plug`.
+- If you're hopeless, i'll pull the `plug`.
+- Our asses won't be worth a `plug` nickel.
+- How do you know you can touch that `plug`?
+- Man veronica, pull the `plug` on that shit.
+- There wouldn't be any place to `plug` it in.
+- Whoa, dwight, i say when we pull the `plug`.
+- Put down your weapons, or we pull the `plug`.
+- Artoo is trying to `plug` into the system now.
+- <i></i> they're pulling the `plug` at nine am.
+- Not even you can `plug` all the world's leaks.
+- "put down your weapons or we pull the `plug`."
+- She dreamed they were pulling the `plug` on me.
+- You buy yourself a bag and `plug` up your ears.
+- What i think is, we need to pull the damn `plug`.
+- What do you figure they `plug` all their shit into?
+- Pulling the `plug` from the ground is not an option.
+- Evidently the fellow's funny, so he gave him a `plug`.
+- Let's pull the `plug` on this sleeping army and go home.
+- Take a portable terminal and go out there and `plug` in manually.
+- Give me one good reason why i don't `plug` you right here, right now ?
+- It means i can trust you as long as what i'm asking you pull the `plug`.
+- But then how can you... never mind the `plug`, just go through the motions.
+- That's how we survived, i'm just afraid i won't be able to pull the `plug`.
+- No, but like my dad said, "there's only so many ways you can wire a `plug`".
+- Swollen eye, a lot of blood... - ...things that all added up... you pull the `plug`.
+- `Plug` the signal directly into the circuitry at this... ... point here, captain.
+- Hey, smith... we're still venting trace gasses, gimme twenty minutes to `plug` the hole.
+                 

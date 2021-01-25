@@ -1,0 +1,107 @@
+---
+title: "self in a sentence | self example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "self"
+---
+- It was `self` defense.
+- It was `self`-defense.
+- Was it `self`-defense?
+- Believe in your `self`.
+- If it's `self`-defense.
+- It'll `self`- destruct.
+- It's her shadow-`self`!
+- If he `self`-destructed.
+- Killed my `self`-esteem.
+- My own `self`-interests.
+- `Self`-control, she had.
+- Then you are `self`-made.
+- I done that my own `self`.
+- Put yo'`self` in my shoes.
+- She knows you real `self`?
+- It's called `self`-testing.
+- But i'm my old `self` again!
+- Repressing your real `self`?
+- Was that `self`-defense too?
+- You mean my other `self` ...
+- Before he `self`- destructed.
+- Don't be so `self`-righteous.
+- It should be a `self`-solver.
+- I took `self` defense marylin.
+- No, it's a `self`-driving car.
+- You can holla y'`self` hoarse.
+- `Self`-esteem protocol failing.
+- You lack faith in your- `self`.
+- It's like you enjoy `self`-pity.
+- He can be mean, `self`-righteous.
+- Out of `self` comes selflessness.
+- `Self` sufficient... anti social?
+- You'll make him `self`-conscious.
+- Don't you have any `self`-respect?
+- It's the extreme of `self`-denial.
+- It was `self`-defense, your honor.
+- Mother, it's a `self`-driving car.
+- Up-tighteous and `self`-righteous.
+- Why don't you see for your `self`?
+- A technology that `self` destructs.
+- He hardly knew of them him- `self`.
+- It's more like...`self` immolation.
+- We're completely `self`-supporting.
+- Initiating `self`-destruct sequence.
+- Note to `self`... we still got time.
+- Protecting you from your own `self`.
+- Why do you say i'm `self`-conscious?
+- You are not looking at your- `self`.
+- You should have more `self`-control.
+- You think i'm too `self`-sufficient?
+- But your bravado covers `self`-doubt.
+- Power-hungry, `self`-serving jackass.
+- Their systems are `self` destructing.
+- To road test our `self`-driving cars.
+- You're bleeding all over your `self`.
+- You wrote it, all by your own `self`.
+- A dangerously `self`- destructive one.
+- `Self`-pity never got anyone anywhere.
+- I can feel my old `self` coming back...
+- It will only make you `self`-conscious.
+- That would sap anyone's `self` confi...
+- By an internal `self`-destruct mechanism.
+- It's `self`-reflexive reality television.
+- It's `self`-replicating...it mimics life.
+- What is insane about `self`-preservation?
+- Where have you been keeping your- `self`?
+- This ship is `self`-correcting its course.
+- Well... are you `self`-conscious about it?
+- You're not your old, cruel `self` anymore.
+- Your `self`-restraint puzzles me, admiral.
+- A time for some serious `self`-exploration.
+- So, human... you've met your better `self`!
+- That act against their own `self`-interest.
+- Who can inspire people to `self`-sacrifice.
+- He stabbed duane lindeman in `self`-defense?
+- Stupid fucking cunts with no `self`- esteem.
+- You believe his feeble, `self`-serving lies.
+- Has rarely outweighed my own `self`-interest.
+- I didn't know, but i'm super `self`-involved.
+- A grounder set off a `self`-destruct sequence.
+- He's a fucking `self`-righteous, little prick.
+- I'm my very best `self` in these competitions.
+- Just like they say; no fucking `self` control.
+- Because it'd ruin his `self`-respect," he says.
+- It's a `self`-preservation thing, i'll be fine.
+- All you have to do is lose your thinking `self`.
+- He's lucky he didn't kill his own danged `self`.
+- You're not your usual chatty `self` today, kane.
+- You sit right there with your no manners `self`.
+- Went through his `self`-destruct phase, you know?
+- You have to stop being so `self`- critical frida.
+- I don't think this rig has a `self`-park function.
+- You just said you didn't want me `self`-conscious.
+- Then he started `self`-medicating with alcohol.
+- He'll hit you in the head and plead `self`-defense.
+- Lame, `self`-serving, arrogant...guilty as charged.
+- Never met a `self`-promotion scheme he didn't like.
+- Oh, shut up, and don't be so damn `self` righteous.
+- With the emphasis on `self`, and in selfish, right?
+- Before it's too late - it was `self`-defense, tubbs!
+                 

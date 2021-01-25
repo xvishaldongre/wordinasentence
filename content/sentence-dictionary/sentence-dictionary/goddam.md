@@ -1,0 +1,65 @@
+---
+title: "goddam in a sentence | goddam example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "goddam"
+---
+- `Goddam` it, skipper...
+- So don't `goddam` come!
+- Give me a `goddam` break.
+- Do i set the `goddam` hook?
+- You and your `goddam` memo.
+- I'll take your `goddam` bet.
+- Jon, this is `goddam` insane.
+- Keep the `goddam` blanket on.
+- Well, you `goddam` well should.
+- I `goddam` invited you, didn't i?
+- Then what's your `goddam` opinion?
+- `Goddam` are you suave, you fucker.
+- `Goddam` are you suave, you fucker.
+- `Goddam` sand thing drive you crazy.
+- He's pitiful, doc, a `goddam` puppy.
+- I want to talk to a `goddam` lawyer.
+- I'm tired of your `goddam` accusations!
+- Big peni-`goddam`-cillin bargain, right?
+- I ain't even any `goddam` good as a bum.
+- In the whole `goddam` metropolitan area.
+- Palmed it right in the `goddam` chamber.
+- You two are a couple of `goddam` clones.
+- Doctors are like `goddam` auto mechanics.
+- I'm tellin' you to drop the `goddam` gun.
+- Let's hear from you, you `goddam` yankee.
+- `Goddam` thing's ten sizes too big for me.
+- They can mimic us- we `goddam` mimic them!
+- You killed his `goddam` girlfriend instead.
+- Rico, tell'em to glass this `goddam` planet.
+- Mulwray had salt water in his `goddam` lungs!
+- This is my `goddam` money we're talking about.
+- Well isn't there a number on the `goddam` phone?
+- Best equipped dentist in the whole `goddam` army.
+- When did you start working for the `goddam` d.a.?
+- I'm not so sure the `goddam` thing's in his heart.
+- I don't give a good `goddam` if you're angry -- yes.
+- `Goddam`, you and ann make such a big deal out of it.
+- If i can find the `goddam` hole the milk squirts out.
+- I'm not going to play any more of your `goddam` games.
+- But first will you please kindly shut the `goddam` door?
+- Rico then, at least call me rico in my own `goddam` place.
+- So reckon i'd better go to work and get me a `goddam` job.
+- Cough yourself inside out, then light a fag, a `goddam` fag.
+- Oh really, okay fine look, go cook, gimme the `goddam` keys.
+- Then put your `goddam` drawers on, and get your ass out here.
+- That `goddam` diamond stud earring that cost me a fucking fortune.
+- X -- that's what it ought to say there on that `goddam` headstone.
+- Maybe the `goddam` thing'll erode the artery when nobody's looking.
+- When this is over, will you get this `goddam` thing out of my head?
+- Coming in waving her lawyers and her money at me � so `goddam` smug.
+- Three of us made a deal for, twenty-five, see, big `goddam` bargain?
+- Dammit, jim, they've made him into a `goddam` green-blooded computer!
+- Oh, the `goddam` party -- it's for the party, dad -- i don't like cake.
+- What was he thinking, i mean, what was going through his `goddam` head?
+- `Goddam` it, spock, you're talking about the end of every life on earth!
+- You want some free medical advice, shut your `goddam` mouth about that night.
+- We wear so many `goddam` masks after a while they get stuck to our faces, you know?
+- Oh, you gonna tell me the reason you lost all the `goddam` money i got in the world!
+                 

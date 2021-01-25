@@ -1,0 +1,107 @@
+---
+title: "while in a sentence | while example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "while"
+---
+- Haven't for a `while`.
+- How long is a `while`?
+- Not for a `while` yet.
+- Nothing for a `while`.
+- Not `while` it's dark.
+- Just out for a `while`.
+- Not `while` i'm around.
+- She left a `while` ago.
+- Smile once in a `while`.
+- This may take a `while`.
+- Wait- ed a good `while`.
+- Wait -- `while` we walk.
+- Yeah, once in a `while`.
+- I have to rest a `while`.
+- It's been a `while`, sir.
+- It's just been a `while`.
+- Leave them for a `while`.
+- Split town for a `while`.
+- This will take a `while`.
+- `While` he makes the run.
+- `While` i was dating her?
+- `While` we're having sex.
+- Yes, `while` he was here.
+- Enjoy it `while` it lasts.
+- He took off a `while` ago.
+- I'll be back in a `while`.
+- Just fir a little `while`.
+- Just for a little `while`.
+- Let it ride for a `while`.
+- Not `while` he's using me.
+- Quit `while` you're ahead.
+- This could take a `while`.
+- What's a "little `while`?"
+- `While` he was saving you?
+- `While` they're coming in!
+- Can you stay for a `while`?
+- Had me going for a `while`.
+- Just leave me be a `while`.
+- Not `while` you're driving.
+- Stay with me for a `while`.
+- Stay with us for a `while`.
+- That'll take 'em a `while`.
+- Wait here `while` i change.
+- `While` they're strung out?
+- You mean, `while` i'm here.
+- A very short `while`, uncle.
+- Do it, `while` we have time.
+- Get it `while` you're young.
+- It'll take a little `while`.
+- Me too `while` you're at it.
+- Not `while` i'm in training.
+- Once in a `while`, you know.
+- See you in a little `while`.
+- What am i `while` you exist?
+- `While` you were saving her?
+- You were gone for a `while`.
+- After a `while` it got stale.
+- I gotta go out for a `while`.
+- I tried a little `while` ago.
+- It was fun `while` it lasted.
+- It was quite a `while` after.
+- Not `while` i'm holding this.
+- Ok. let's stay for a `while`.
+- They'll be out for a `while`.
+- This is gonna take a `while`.
+- Want to escape for a `while`?
+- `While` we make preparations.
+- Mine `while` you're at it.
+- Enjoy it `while` you can, vin.
+- He'll sleep for a `while` now.
+- He's at work `while` i'm here.
+- I'll be with you in a `while`.
+- I won't be here for a `while`.
+- Let's just talk for a `while`.
+- Not `while` i'm barrack chief.
+- Sometimes, it takes a `while`.
+- We were friends for a `while`.
+- ...`while` i'm rebuilding him.
+- `While` you're still champion!
+- You talk to him for a `while`.
+- Cover me, kid, `while` i mount.
+- I'll be in in a little `while`.
+- It's just been empty a `while`.
+- It's just for a little `while`.
+- I've been here quite a `while`.
+- I wanna be alone for a `while`.
+- May we stay here for a `while`?
+- My stuff `while` he runs tests.
+- Not `while` i'm still using it!
+- They attacked `while` we slept.
+- `While` the other half starves.
+- `While` we still can, jonathan!
+- `While` you were in the shower.
+- Anyway, it's gonna be a `while`.
+- At least `while` i'm in college.
+- Can i text `while` it's driving?
+- Could you wait a little `while`.
+- For a little `while`, all right?
+- I haven't seen him in a `while`.
+- I'll make it worth your `while`.
+                 

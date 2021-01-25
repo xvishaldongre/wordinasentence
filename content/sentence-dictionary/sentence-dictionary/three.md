@@ -1,0 +1,107 @@
+---
+title: "three in a sentence | three example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "three"
+---
+- Gimme `three` of them.
+- Got `three` callbacks.
+- I'd say `three` hours.
+- I'm `three` feet away.
+- I'm `three` years old.
+- It don't take `three`.
+- Look, it's `three` am.
+- Not for `three`-fifty.
+- One... two... `three`.
+- One... two... `three`.
+- Or a `three`-bagger...
+- She have `three` tits?
+- So be here at `three`.
+- That's `three` things.
+- `Three` ass-kick suns.
+- `Three` business days.
+- `Three` including you.
+- `Three` is not farrow.
+- `Three` kids are dead.
+- `Three` men in a room.
+- `Three` minutes to go!
+- `Three` of four times.
+- `Three` or four times.
+- Took me `three` tries.
+- Two or `three` nights.
+- You have `three` days.
+- Cottage number `three`.
+- Flip six, `three` hole.
+- I'm calling it `three`.
+- It's `three` a.m., lad.
+- It's twenty of `three`.
+- Just `three` questions.
+- No `three`-way stretch?
+- One... two ... `three`.
+- Take two, `three` days.
+- That's `three` percent.
+- The door... on `three`.
+- The shape of a `three`.
+- `Three` different guys?
+- `Three` hundred pounds!
+- `Three` if you need it.
+- `Three` in the morning?
+- `Three` kids, army pay.
+- `Three` kung fu movies.
+- `Three` months tonight.
+- `Three` more, i figure.
+- `Three` weeks at least.
+- We're `three` men down.
+- You get `three` wishes.
+- You got `three` months.
+- You said `three`-fifty?
+- Not `three` or five?
+- At zero `three`-hundred.
+- Both: one, two, `three`.
+- Fuck the `three` of you.
+- He killed `three` women.
+- He missed `three` weeks.
+- Here -- `three` minutes.
+- I'm finished at `three`.
+- It holds `three` people.
+- I've got `three`, right?
+- Looks like zone `three`.
+- Make it `three` hundred.
+- ... maybe `three` hours.
+- Okay, one, two, `three`.
+- One, two, `three`, four.
+- Only `three` rooms left!
+- On the count of `three`!
+- On the count of `three`.
+- `Three` college degrees.
+- `Three` days ago it was.
+- `Three` favorite movies.
+- `Three` hundred, anyone?
+- `Three` men and a women.
+- `Three` thousand pounds.
+- `Three` ways, i figured.
+- You got `three` minutes.
+- About `three` months ago.
+- Actually, it was `three`.
+- As a `three`-dollar bill.
+- A year and `three` weeks.
+- But these last `three`...
+- Get the `three` thousand.
+- Give you `three` minutes.
+- It is top `three` for me.
+- It's been `three` months.
+- I've got `three` choices.
+- I've lost number `three`.
+- I won't count to `three`.
+- Now we each have `three`.
+- Only `three` people here.
+- Page `three` of the post.
+- Ready for number `three`?
+- See ya and raise `three`.
+- See you in `three` years.
+- That only leaves `three`.
+- That's `three` i owe you.
+- There is no step `three`.
+- `Three` and a half hours?
+- `Three` cheers for frink!
+                 

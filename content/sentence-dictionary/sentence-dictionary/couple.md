@@ -1,0 +1,107 @@
+---
+title: "couple in a sentence | couple example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "couple"
+---
+- `Couple` more seconds!
+- `Couple` of .45 acp's.
+- Just a `couple` more .
+- Like we're a `couple`.
+- A `couple` of whiskies.
+- A `couple` of... years.
+- A `couple` other rules.
+- `Couple` of housewives.
+- `Couple` sore knuckles.
+- `Couple` times a month.
+- What an ideal `couple`.
+- You a `couple` of fags?
+- `Couple` of wrong turns.
+- Just a `couple` of days.
+- A `couple` hundred bucks?
+- A `couple` of days later.
+- A `couple` of our people.
+- A `couple` of weeks back.
+- At least a `couple` days.
+- `Couple` of hours, maybe.
+- I got a `couple` of kids.
+- I'll give you a `couple`.
+- Just a `couple` of hours.
+- Maybe a `couple` million.
+- Maybe a `couple` of them.
+- Yeah, `couple` a muskies.
+- You make a nice `couple`.
+- A `couple` of weeks maybe.
+- `Couple` hours from idaho.
+- `Couple` of months anyway.
+- Gonna stay for a `couple`?
+- Tagged a `couple` of cops.
+- A `couple` of weeks, maybe.
+- `Couple` it with something.
+- Funny `couple`, ain't they?
+- He died `couple` years ago.
+- I can recommend a `couple`.
+- In just a `couple` of days.
+- Take a `couple` of seconds.
+- You get a `couple` of guys.
+- Another `couple` in trouble.
+- Answer me a `couple` things?
+- `Couple` a nice restaurants.
+- `Couple` of creedence tapes.
+- Got a `couple` of kids, huh?
+- Oh, yah, `couple` years now.
+- We'll tag up, `couple` days.
+- A `couple` of weeks, i think.
+- Been here a `couple` of days.
+- Give her a `couple` of hours.
+- He died a `couple` years ago.
+- He's called a `couple` times.
+- Hit a `couple` of jazz clubs.
+- I been here a `couple` years.
+- I know a `couple` of addicts.
+- Not for a `couple` of months.
+- Yeh, i wrote a `couple` down.
+- Every `couple` of months, huh?
+- For the next `couple` of days?
+- I figure a `couple` of months.
+- I've only got a `couple` left.
+- Maybe a `couple` degrees over.
+- Sing a `couple` of songs, huh?
+- You two make quite a `couple`.
+- A `couple` of guys, i owe them.
+- Get a `couple` hours sleep.
+- Because we are an odd `couple`.
+- `Couple` hundred on his person.
+- I bought a `couple` of tickets.
+- I come every `couple` of years.
+- I could a `couple` of days ago.
+- I'll bet a `couple` of hundred.
+- I'm only a `couple` hours away.
+- Okay, fire a `couple` in there.
+- That night, `couple` weeks ago.
+- Yeah, i'll play you a `couple`.
+- I got a `couple` thousand bucks.
+- I'll only be a `couple` of days.
+- Kyra's gone for a `couple` days.
+- You two were a married `couple`.
+- Flush it a `couple` o' times.
+- `Couple` more miles up this road.
+- Get me a `couple` juicy pictures.
+- I'll call you in a `couple` days.
+- I think you make a cute `couple`.
+- It's just a `couple` of cables...
+- Less hook us a `couple` big ones.
+- Well, let's have a `couple` more.
+- You know... a `couple` of queers.
+- You talk to the married `couple`?
+- A `couple` hundred for the clutch.
+- I believe the boys got a `couple`.
+- I have a `couple` here to see you.
+- Let's get a `couple` drinks, okay?
+- Only they use a `couple` big hams.
+- She had a `couple` just like them.
+- The play's in a `couple` of weeks.
+- There's a `couple` stuck in there.
+- We'll find her in a `couple` days.
+- You and shaw make a good `couple`.
+                 

@@ -1,0 +1,72 @@
+---
+title: "superman in a sentence | superman example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "superman"
+---
+- The end of `superman`.
+- Come to me, `superman`!
+- Where `superman`'s from?
+- Pierce `superman`'s skin.
+- We got to see `superman`.
+- `Superman` gets mail here?
+- I see `superman` every day.
+- Do you really know `superman`?
+- I always loved `superman` iii.
+- The one `superman` wrecked up?
+- Of yours can defeat `superman`?
+- So what else has `superman` got?
+- The planet `superman` came from.
+- You want to mess with `superman`?
+- He has all of `superman`'s powers.
+- I didn't see `superman`'s in time.
+- I sure wish `superman` was around.
+- Now who's the dreamer, `superman`?
+- Inevitable now, destroy `superman`.
+- But `superman` isn't an average man.
+- `Superman` will be there on wednesday.
+- The place where `superman` comes from?
+- He's got the fact that he's `superman`!
+- You're right, you're right, `superman`.
+- Could you get me `superman`'s autograph?
+- With `superman` dead and you on my team?
+- `Superman` broke your monster, uncle lex.
+- He doesn't need to be `superman`, does he?
+- You tell `superman` we think he's wonderful.
+- Have i got a proposition for you, `superman`.
+- George reeves, `superman` on tv, shot himself.
+- How can i ask `superman` such a dumb question.
+- What a waste -- no, `superman`, of course not.
+- Like when `superman` teamed up with lex luthor.
+- This letter was addressed to `superman` care of me.
+- That movie where `superman` was a chick oh, uh-uh-uh.
+- I always thought it was hilarious, `superman` iii.
+- About `superman` writhing in the bowels of the volcano.
+- The whole world will be waiting for `superman`'s answer.
+- It wasn't any fun up there with just lois and `superman`.
+- This all has something to do with `superman`, doesn't it?
+- ♪ and they say you don't tug on `superman`'s cape ♪ marge.
+- `Superman`'s got something up his sleeve, that's for sure.
+- Miss teschmacher, `superman` is a fairly bright individual.
+- I'll be able to introduce `superman` to his first nightmare .
+- That hair contains a sample of `superman`'s genetic material.
+- Zor-el but what can you, a mere girl- `superman` will return it.
+- If one of you can get that -- i mean, i want the real `superman`.
+- The -- wait a minute, wait a minute, let's talk a deal, `superman`.
+- Lois is doing an interview with `superman` about his peace mission .
+- If you like shot `superman` with those guns, would he feel it or what?
+- It wouldn't mean much to you, `superman`, but i call it...target zero.
+- ♪ and they say you don't tug on `superman`'s cape ♪ a jewish carpenter.
+- For the first time today, `superman` i must tell you that you're wrong.
+- Like the door of `superman`'s fortress of solitude but what about lucy?
+- You ever hear of &quot;`superman`?&quot; and i don't mean the comic book.
+- Now that `superman`'s out of the nice guy business... a normal person.
+- Do you realize what i can create with a single strand of `superman`'s hair!
+- ♪ you don't tug on `superman`'s cape you don't spit into the wind ♪ take it.
+- Any second now, its -- really lois, we've got to stop meeting this -- `superman`!
+- If it hadn't been for that guy `superman` - that overgrown boyscout... australia.
+- If `superman` throws it into the sun, he'll get the biggest surprise of his life.
+- I mean it strikes me funny that every time `superman` comes around, you disappear.
+- Frankly, once you've seen `superman` in action, niagara falls tends to leave you cold.
+- "at a special session of the general assembly, 178 countries voted to censure `superman`.
+                 

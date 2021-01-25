@@ -1,0 +1,107 @@
+---
+title: "jasper in a sentence | jasper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jasper"
+---
+- `Jasper` can splice.
+- `Jasper`... - it's ok.
+- `Jasper` was with her.
+- So have you, `jasper`.
+- `Jasper`, what's wrong?
+- Let's protect `jasper`.
+- `Jasper`, are you there?
+- `Jasper`, get in here.
+- `Jasper`, get that side.
+- `Jasper`'s lost someone.
+- `Jasper`'s so sensitive.
+- _ so have you, `jasper`.
+- This is `jasper` jordan.
+- Now we go after `jasper`.
+- Octavia: `jasper`'s hurt.
+- Isn't gonna help `jasper`.
+- `Jasper`: come on, clarke!
+- `Jasper` looked up to you.
+- [`jasper` moaning] - yeah!
+- `Jasper`'s my best friend.
+- `Jasper`, what's going on?
+- Charles... `jasper`, think.
+- Clarke: `jasper` was hit.
+- Meet jordan `jasper` green.
+- Oh, `jasper`, are you ok?
+- That's something, `jasper`.
+- What do you want, `jasper`?
+- Harper, do you see `jasper`?
+- `Jasper`, if you hurt her...
+- `Jasper`'s actually smiling.
+- They're gonna kill `jasper`.
+- Tried to kill `jasper`, too.
+- We've gotta get to `jasper`.
+- Whatever it takes, `jasper`.
+- `Jasper`, get out of the way.
+- `Jasper`, get out of the way.
+- `Jasper`: trying to stop you.
+- You got a problem, `jasper`.
+- Give me the radio, `jasper`.
+- `Jasper` fired the first shot!
+- Your scars run deep, `jasper`.
+- Hey, `jasper`, you're on in 15.
+- `Jasper`, are you on something?
+- `Jasper`, have you seen clarke?
+- `Jasper`: i don’t see anyone!
+- `Jasper` saved your life, maya.
+- `Jasper`, there's no one there.
+- So what, we let `jasper` die?
+- `Jasper`, you're not cursed.
+- `Jasper` can't wait much longer.
+- `Jasper`: south hallway's clear.
+- `Jasper`, this is your home now.
+- `Jasper`, you're coming with me.
+- Murphy's going to kill `jasper`!
+- I think `jasper` would like that.
+- `Jasper`: i don’t see anything.
+- `Jasper`’s working on them now.
+- Well, it looks like it, `jasper`.
+- What `jasper` said sounds insane.
+- If i don’t, he’ll kill `jasper`.
+- `Jasper`, i need a minute, please.
+- `Jasper` was plan b. rabid rats?
+- `Jasper`, what are you doing here?
+- `Jasper`, what are you doing here?
+- That's it till `jasper` gets back.
+- Where's `jasper`, monty, and maya?
+- You don’t want to hurt `jasper`.
+- You were right about `jasper`, ok?
+- I just heard murphy has `jasper`.
+- I'm gonna need that case, `jasper`.
+- `Jasper`: we can't let you do that.
+- `Jasper`, we need that motherboard.
+- When all else fails, `jasper`--gum.
+- Hey, it's ok to be afraid, `jasper`.
+- `Jasper`: i can't run much longer!
+- `Jasper`, it's already been 4 hours.
+- `Jasper` was smarter than all of us.
+- `Jasper`: you don't need to whisper.
+- No, `jasper`, nobody's gonna kill us.
+- Clarke: we've gotta get to `jasper`.
+- Every memory i have, there's `jasper`.
+- `Jasper`, octavia is not gonna happen.
+- `Jasper` screamed when they moved him.
+- Let's get yourself together, `jasper`.
+- But, that day on the field, - `jasper`.
+- I'll take a break when we find `jasper`.
+- But, `jasper`, what the hell is going on?
+- If `jasper`'s been chipped, then a.l.i.e.
+- `Jasper` thinks he can cook up - stop it!
+- `Jasper` would understand why you stayed.
+- Less talking, more looking, ok, `jasper`?
+- That's why hosts are so rare... `jasper`?
+- With their blood, `jasper`'s handwriting.
+- Part of me thinks that `jasper` maybe not.
+- What the hell are we doing here, `jasper`?
+- You heard what `jasper` said on the radio.
+- I must say i'm impressed, `jasper`, murphy?
+- I promise i'll make more time for `jasper`.
+- `Jasper`: i don't even need a whole bottle.
+- `Jasper` over radio: ey’re everywhere!
+                 

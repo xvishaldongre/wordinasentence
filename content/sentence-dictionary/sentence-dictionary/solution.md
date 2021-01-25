@@ -1,0 +1,70 @@
+---
+title: "solution in a sentence | solution example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "solution"
+---
+- Is that your `solution`?
+- It's a great `solution`.
+- We'll find a `solution`.
+- I might have a `solution`.
+- Give us another `solution`.
+- How's this for a `solution`.
+- This is the best `solution`.
+- This is the only `solution`.
+- I have to ﬁnd a `solution`.
+- So, who found the `solution`?
+- There is no other `solution`.
+- Running away is no `solution`.
+- Getting drunk is no `solution`.
+- Put their minds to a `solution`.
+- Into a supersaturated `solution`.
+- ...the `solution` presents itself.
+- Yeah, a good political `solution`.
+- Could be our permanent `solution`."
+- Sometimes it's the only `solution`.
+- What do you think of my `solution`?
+- One might say...the final `solution`.
+- Also, i checked on the otic `solution`.
+- If she is, there's only one `solution`.
+- I think it will be a simple `solution`.
+- But you don't think that's a `solution`.
+- My only `solution` ran out of batteries.
+- The `solution` is to sacrifice yourself?
+- It's the most obvious `solution`: escape.
+- Well, my, my, what an elegant `solution`.
+- I am prepared, however, to offer a `solution`.
+- There's always a `solution` to these problems.
+- Supposed to be finding a diplomatic `solution`.
+- You're saying that it's a permanent `solution`?
+- To find a peaceful `solution` to these problems.
+- Your final `solution` was, shall we say, unique?
+- I thought you'd have the `solution` by this time.
+- Look, someone posted a `solution` on the whiteboard.
+- When we faced extinction, i offered a `solution`.
+- So our `solution` is to introduce a bonding substrate!
+- But perhaps, there is some, some less radical `solution`.
+- There is only one `solution` to your problem, mrs. tasker.
+- He has to go to new mexico and sit in a lukewarm `solution`.
+- ♪ if you're poor and find yourself ♪ that's your `solution`?
+- They're going to be pressing for a military `solution` soon.
+- Get this clear: socking people is no `solution` for anything.
+- He seized and almost coded--i gave him a hypertonic `solution`.
+- If it's late, there's no case... every problem has a `solution`.
+- The problem, mr. president, is that it's a short-term `solution`.
+- Even if it's not a permanent `solution`, now take down your dukes.
+- Then we've got to figure out an acceptable political `solution`.
+- But don't despair -- i think i have the `solution` to your problems.
+- So the `solution` to our little problem is we had them deemed crazy.
+- I have figured out what i think is the best `solution` for both of us.
+- Ok. "the `solution` of ten plus y equals... you are both i saw the ship.
+- I have no `solution` for its meaning yet, but i could not just ignore it.
+- Recognize the problem and you are half way on the road to its `solution`.
+- The obvious `solution` isn't always the only `solution`... see you tomorrow.
+- They'll thank us after we've transcended, as a `solution` and not a problem?
+- If there has been a coup and there is no acceptable political `solution`?
+- Father lowe came into the drugstore two days ago for a bottle of otic `solution`.
+- Yes, and they were said to be the most virulent proponents of the final `solution`.
+- Then, slowly, we learned that fighting is no `solution` -- that aggression leads to chaos.
+- I told her it's just business to you, that all you want is a reasonable `solution` to this.
+                 

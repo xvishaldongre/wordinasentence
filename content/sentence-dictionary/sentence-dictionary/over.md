@@ -1,0 +1,107 @@
+---
+title: "over in a sentence | over example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "over"
+---
+- Bathroom `over` there?
+- Come `over` here, kid.
+- Dad's is `over` there.
+- Don't go `over` there.
+- First watch is `over`.
+- Going `over` the wall.
+- Go right `over` there.
+- Hand `over` them keys.
+- How about `over` here?
+- I'll be all `over` it.
+- I mean send it `over`.
+- I'm getting `over` it.
+- I'm in `over` my head.
+- I never get `over` it.
+- It's all `over`, paul.
+- It's game `over`, man.
+- It smell `over` there?
+- It's not `over`, okay?
+- It's `over`, finished.
+- It's `over` on the tv.
+- Lets talk this `over`.
+- Oh, i got `over` that.
+- Our mission is `over`.
+- `Over` and out, helen.
+- `Over` vast distances.
+- Pull `over` someplace.
+- Right `over` the head.
+- Shh... `over` and out.
+- Sit down `over` there.
+- So i was `over`-ruled.
+- Take him `over` to g2.
+- That man `over` there.
+- The cold war's `over`.
+- The test isn't `over`?
+- They're all `over` us!
+- Those days are `over`.
+- Torch it `over` there!
+- We should head `over`.
+- All `over` the... whoa!
+- Ask irene `over` there.
+- Being faxed `over` now.
+- Bring the crane `over`.
+- Fly us `over` the edge.
+- Guy's six weeks `over`.
+- He held that `over` me.
+- How 'bout `over` there?
+- I am going `over` here.
+- I have love all `over`.
+- I'm going `over` there.
+- I'm totally `over` her.
+- I say when it's `over`!
+- It's done, it's `over`.
+- It's great `over` here.
+- I've been `over` there.
+- Jerry -- i'm `over` it.
+- Karl, come `over` here.
+- Kelly, get `over` here.
+- Kurt, come `over` here.
+- Maybe the war's `over`.
+- None of us are, `over`.
+- Not til this is `over`.
+- Our car's `over` there.
+- `Over` forever without.
+- `Over` forty years now.
+- Puffy, get `over` here.
+- Pull `over` right here.
+- Put it `over` the tree.
+- Should be `over` there.
+- So... come `over` here.
+- Start `over` somewhere.
+- Summer's almost `over`.
+- Take me `over`, please.
+- The audition is `over`.
+- The cold war is `over`.
+- The story's not `over`.
+- They'll soon be `over`.
+- This evening is `over`.
+- This'll be `over` soon.
+- This meeting is `over`.
+- This program is `over`.
+- Those times are `over`!
+- Want me to take `over`?
+- Well that's `over` now.
+- We'll watch `over` her.
+- We're `over` our heads.
+- We've been `over` this.
+- You'll get `over` that.
+- You're `over` reacting!
+- All `over` the sidewalk.
+- Alvy singer `over` here!
+- It's all `over` now.
+- A thousand times `over`!
+- Class is `over` already.
+- Cocktail hour is `over`.
+- Come `over` to the door.
+- Comin' `over` coldwater.
+- Did you od `over` there?
+- Flipped the boat `over`.
+- Got run `over` by a car.
+- Hand `over` your dinner.
+                 

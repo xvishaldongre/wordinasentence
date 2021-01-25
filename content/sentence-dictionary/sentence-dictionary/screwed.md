@@ -1,0 +1,91 @@
+---
+title: "screwed in a sentence | screwed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "screwed"
+---
+- I'm `screwed`, arthur.
+- Okay, he `screwed` up.
+- You're both `screwed`.
+- Eddie, you `screwed` up.
+- I `screwed` up a recipe?
+- We're getting `screwed`.
+- Are we totally `screwed`?
+- Because you `screwed` up.
+- Except they `screwed` up.
+- You just `screwed` it up.
+- I `screwed` up twice, sir.
+- The latch is `screwed` up.
+- I `screwed` up the divorce.
+- Otherwise, we're `screwed`.
+- You're basically `screwed`.
+- I kinda `screwed` things up.
+- It means she's `screwed` up.
+- Okay, you `screwed` up once.
+- His mixture got `screwed` up.
+- You guys are so `screwed` now!
+- All these people are `screwed`.
+- No wonder he `screwed` us over.
+- So now we're totally `screwed`?
+- Now they're gonna get `screwed`.
+- This whole thing is `screwed` up.
+- I think i `screwed` that one once.
+- You get that we're `screwed`, right?
+- You people have really `screwed` up!
+- ...arlo, and you `screwed` me for it.
+- God, i hope they're not `screwed` up.
+- I guess we really are `screwed`, huh?
+- Machine's `screwed` up, i can't tell.
+- We get jacked again, we're `screwed`.
+- Completely and ridiculously `screwed`.
+- Rex `screwed` up and i nailed his ass.
+- Oh, we're `screwed`, night... oh, shit.
+- But you refused, and now, i'm `screwed`.
+- No wonder it's such a `screwed`-up place.
+- We're `screwed`... we're so `screwed`... no.
+- Look, something somewhere got `screwed` up.
+- Doesn't mean i'm not `screwed` up, so stupid.
+- I know i `screwed` up gettin' busted in here.
+- I'm not `screwed` together like i used to be.
+- Long-range communication is totally `screwed`.
+- Look, she kidnapped her-- we're `screwed` now!
+- Help me with this one, i'm really `screwed` up.
+- If you can figure it out, they `screwed` it up.
+- I mean, so far, have i `screwed` it up for you?
+- You totally and completely `screwed` both of us.
+- So, if your spouse `screwed` up, my raisins came!
+- The chief and her, they've `screwed` before, huh?
+- Things just got a little `screwed` up, that's all.
+- But we can't look too eager or we'll get `screwed`.
+- Allison i think i really... `screwed` everything up.
+- I would have been `screwed` if you hadn't come along.
+- Oh, jesus, we're so `screwed` if it's the demogorgon.
+- Because you `screwed` the pooch in your big debut, ok?
+- Jason really `screwed` up the poor sonofabitch's mind.
+- Looks like the only one who got `screwed` here was you.
+- Workers all over the ark are tired of getting `screwed`.
+- Yeah, just like the half dozen guys you `screwed` today.
+- A woman wouldn't have `screwed` over the woman she loved.
+- My old man, he bought into the system, and it `screwed` him.
+- ♪ there's no training that's too torturous ♪ i `screwed` up.
+- If someone else goes out on an injury we're really `screwed`.
+- My `screwed` up life shouldn't have to bleed onto my friends.
+- The machines were expendable, safe to say skaikru's `screwed`.
+- You `screwed` up my life just so you could get higher ratings.
+- I've `screwed` up so many times in our marriage, no, you're not.
+- Oh, uh, yeah, we were, but, uh, sooze, `screwed` up the tickets.
+- I believe this valentine `screwed` me out of a fair sum of money.
+- `Screwed` it first, then set it on-- suspect westbound on olympic.
+- Buy a boring book about egypt from the guy who `screwed` anna scott.
+- So i guess you could say that we `screwed` up, but we weren't wrong.
+- Chief - i know i `screwed` up - but this guy was no innocent civilian.
+- I was doin' him a favor on the tv outta kindness, and he `screwed` me.
+- We're never gonna find help, and your ice cream buddies are `screwed`.
+- Anyway when i left i was really `screwed` up-- are you out of your mind?!
+- I mean it could've been, but they `screwed` it up, gave it a happy ending.
+- Yeah, i just `screwed` up with the only man who ever really cared about me.
+- Boy, if that's what you think, i must've really `screwed` up my job as a father.
+- A japanese game show needs an american celebrity i'm not the one who `screwed` up.
+- It's like when you have a dream oh, jesus, we're so `screwed` if it's the demogorgon.
+- Bourne was his number one -- guy went out to work, `screwed` the op and never came back.
+                 

@@ -1,0 +1,75 @@
+---
+title: "victor in a sentence | victor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "victor"
+---
+- `Victor`, have a care!
+- `Victor`, tell me why!
+- Faye and `victor`, too.
+- No, `victor`, there isn't.
+- `Victor`, explain yourself.
+- `Victor` frankenstein, sir.
+- `Victor` must've taken him.
+- What do you want, `victor`?
+- `Victor`'s not that bad.
+- `Victor` wanted it that way.
+- What's our vector, `victor`?
+- `Victor`, i'm afraid for you.
+- `Victor`, `victor` frankenstein.
+- I've got to meet with `victor`.
+- There's only one god, `victor`.
+- This was baron `victor`'s room.
+- `Victor`, this is roger murdock.
+- `Victor` laszlo is on that plane.
+- We have with us `victor` strachi.
+- Do you love `victor` frankenstein?
+- `Victor`'s better at these things.
+- History is written by the `victor`.
+- `Victor`, wait, slow down a second.
+- `Victor`, we've had so much tragedy.
+- About `victor` laszlo everywhere.
+- Intriguingly yours, `victor` kleskow.
+- My mother spoke to my uncle `victor`.
+- `Victor`, your scar -- just find him.
+- But to the `victor` belong the spoils.
+- The grandson of `victor` 'fronkonsteen'?
+- Yesterday's `victor` is tomorrow's vapor.
+- `Victor`, faye, and daniel prime are lost.
+- `Victor`, why don't you tell me about rick?
+- `Victor`, your scar -- just <u>find</u> him.
+- Richard, `victor` thinks i'm leaving with him.
+- The names are mr. and mrs. `victor` laszlo.
+- He's agitated enough not hearing from `victor`.
+- `Victor` was not a stranger, he was our neighbor.
+- A friend came and told me that `victor` was alive.
+- More purpose than `victor` could ever conceive of.
+- Inside of us we both know you belong with `victor`.
+- `Victor`, i, i feel somehow we shouldn't stay here.
+- `Victor`'s medical facility... we're in quarantine.
+- `Victor`'s not the one who has to get into that thing.
+- Yes, this was `victor`'s... the baron's medical library.
+- `Victor`, i'm sorry i -- `victor`, are you feeling alright?
+- `Victor`, we can't do anything until the research is ready.
+- You're getting on that plane with `victor` where you belong.
+- If you don't help us, `victor` laszlo will die in casablanca.
+- `Victor`, if we could understand what happened to us -- abort?
+- `Victor`, please, don't go to the underground meeting tonight.
+- Just a two-line item in the paper: "`victor` laszlo apprehended.
+- Is it true, miss moritz, that you love `victor` frankenstein?
+- Let's see: you got `victor`, stud of the year, more coin than god?
+- Uh, `victor`, i hope i haven't done something to make you think...
+- `Victor`, if we could understand what happened to us -- <u>abort</u>?
+- But aren't you the grandson of the famous dr. `victor` frankenstein?...
+- I just did a play in hollywood, and `victor` crowley praised its realism.
+- She's got a good thing with `victor` -- reed, i'm not talking about debbie.
+- If i call to help `victor`, a general will think "paul rusesabagina is a fool.
+- My interest in whether `victor` laszlo stays or goes is purely a sporting one.
+- It wasn't long after we were married that `victor` went back to czechoslovakia.
+- `Victor`'s landlord says an envelope of cash was in the office mailbox each month.
+- No, you see, `victor` laszlo is my husband... and was, even when i knew you in paris.
+- It's what `victor` stone's dad used to make cyborg's bionic and cybernetic components.
+- `Victor`, whatever i do, will you believe that i, that -- i love you very much, my dear.
+- But it's actually... we took one item from every person's bag to the `victor` go the spoils.
+- But my grandfather, `victor` was, after all, what we might politely refer to as... a cuckoo!
+                 

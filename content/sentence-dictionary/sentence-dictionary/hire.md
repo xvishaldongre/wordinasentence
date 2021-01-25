@@ -1,0 +1,83 @@
+---
+title: "hire in a sentence | hire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hire"
+---
+- When did he `hire` you?
+- We'd like to `hire` you.
+- Who else would `hire` me?
+- You could `hire` cheaper.
+- "`hire` a lawyer," i said.
+- I'm just a killer for `hire`.
+- The mafia `hire` jack hewitt?
+- Can't you `hire` somebody else?
+- He needs to `hire` an attorney.
+- We'd `hire` a plane in october.
+- I can `hire` workers to help me.
+- You can `hire` me not to use it.
+- I can't promise he'll `hire` you.
+- Like he'd never `hire` me for real.
+- Cukor was too cheap to `hire` music.
+- People would `hire` a has-been, ray?
+- You won't `hire` a boat or anything?
+- He's so great, <u>you</u> `hire` him.
+- We `hire` a lot of moonlighters here.
+- We'll `hire` someone to videotape.
+- I said, "`hire` yourself a damn lawyer.
+- We `hire` drivers with nothing to lose.
+- The only problem is none will `hire` me.
+- They wouldn't `hire` a goddamned lawyer.
+- You wanna know, you gotta `hire` me back.
+- La `hire`, i'm warning you -- don't swear!
+- Samuel is going to `hire` a new bodyguard.
+- I'm going to `hire` quint to kill the fish.
+- Maxwell seemed like he wanted to `hire` me.
+- They just want you to `hire` some new help.
+- As secretary you can `hire` anyone you like.
+- Closest planes for `hire` are here in cache.
+- I `hire` him while you were in the hospital.
+- Then i'll find a ship -- i'll `hire` a ship.
+- The one we `hire` for the job, you lunkhead!
+- This is a catastrophe, they won't `hire` her.
+- If we want to `hire` a psychiatrist for agnes.
+- The last few years he's been muscle for `hire`.
+- Then you shouldn't have begged me to `hire` him.
+- Maybe we ought to `hire` a bodyguard from now on.
+- Why the fuck would joe `hire` somebody like that?
+- If i don't got a job, i can't `hire` a lawyer.
+- No reputable company would `hire` a guy like that.
+- You just don't want to `hire` a nigger, that's all.
+- But you hired me or you hired that chippie to `hire` me.
+- Before i `hire` anybody else, i'll ask you one last time.
+- Almost everyone borrows... for tools or to `hire` workers.
+- Get him a suite at the imperial and `hire` some bodyguards.
+- After today, the california raisins aren't gonna `hire` you.
+- He'd have a lot of deadwood to clear out, new men to `hire`.
+- Well, the actors they `hire` aren't exactly dame judi dench.
+- I ought to know better than to `hire` anybody with a disease.
+- I wouldn't `hire` a display designer if i didn't trust her taste.
+- Now that i have a track record, studios are bound to `hire` me!
+- I'll `hire` a hit man if you don't want to help me stop this thing.
+- Anyway, i thought...while i'm gone...maybe i'll `hire` in some help.
+- I will `hire` someone who is most qualified for this particular job.
+- Maybe you should ask your husband to `hire` someone... more sociable.
+- Well, we've never actually met, but your name was on the `hire` slip.
+- Even if i could, they wouldn't `hire` me because of my war record.
+- Get you fired so i can `hire` you and we won't have to hide back here.
+- Take note mr. mason...this is why you `hire` a professional...no whining.
+- Where do we find a carozza for the forum, or can we `hire` any of them -- ?
+- 'f he wants to `hire` men, let him write it out an' say what he's gonna pay.
+- Tell 'em i needed sleep, i needed rest, shit, they'll `hire` someone else...
+- To `hire` someone solely on their ethnicity, gender or religion is not right.
+- If i put my neck out for you with him, will you work at it if he'll `hire` you?
+- We `hire` a has-been to direct it please do what's right for your people, - mm.
+- I'm authorized by the township of amity to `hire` you as an independent contractor.
+- It�s been my experience that the people who `hire` a prostitute, need a prostitute.
+- You're going to publish, he's going to perish... and why did you `hire` me for this?
+- If you want to `hire` me, i still have to know what you and mulwray were arguing about.
+- In order to get it built quickly and quietly they'd `hire` anybody who could do the job.
+- They didn't `hire` peter stiller from the <u>times</u> and he had a great audition tape.
+- The people that can `hire` you are afraid to, because they think you're phoning it in.
+- I wonder if you'd `hire` me if i came in here and asked you for a job ... we like you, too.
+                 

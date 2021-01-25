@@ -1,0 +1,67 @@
+---
+title: "channel in a sentence | channel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "channel"
+---
+- `Channel` open, captain.
+- Next `channel`, darling.
+- Just stay on `channel` six.
+- Okay, i'm on `channel` two.
+- Stand by on this `channel`.
+- But it's `channel` ten, right?
+- The emergency `channel`, open.
+- And subscribe to our `channel`.
+- His wife changed the `channel`.
+- This `channel`'s always active.
+- We're from `channel` four, yes.
+- And watch the weather `channel`.
+- On a secure `channel`, 3 clicks.
+- They might change the `channel`.
+- This `channel` is always active.
+- Any idea which `channel` he's on?
+- Do they have an x-rated `channel`?
+- Who wants to change the `channel`?
+- Get her off the ark-wide `channel`.
+- Christ, what `channel` are we on?...
+- From my new `channel`, reaction bart.
+- On a loop over the arkwide `channel`.
+- What are you doing on this `channel`?
+- Uh...what `channel` were you watching?
+- `Channel` 9 is the emergency frequency.
+- Like i just swam the english `channel`.
+- Please don't bother with that `channel`.
+- I'll keep to the middle of the `channel`.
+- She let `channel` eight get a beat on us.
+- What're you doing on this `channel` again?
+- Are you sure you're on the right `channel`?
+- Commander, starfleet on emergency `channel`.
+- It was either this or the weather `channel`.
+- That's how he can support an entire `channel`.
+- Doctor -- the `channel`'s getting awful narrow.
+- He's down checking a buoy in the bay `channel`.
+- Passing every second communication's `channel`.
+- The arts and incarceration `channel` presents...
+- Over the arkwide `channel`, tell them we're here.
+- Dr. banks can you turn the tv to a news `channel`?
+- Don't have weather `channel` in the mountain, nick.
+- Every `channel` is making like it's nineteen fifty.
+- She's using you to `channel` some dead lesbian lover.
+- Sinclair on speaker: this is a restricted `channel`.
+- So what do we use to `channel` the pulse to her brain?
+- Uh... and watch the tv `channel` that's about the hotel.
+- Actually, there is some interest from the sundance `channel`.
+- Now, if i say go to `channel` three, it really means go to six.
+- Admiral, there is no response from the grissom on any `channel`.
+- You should call up the station manager at `channel` seven -- no.
+- Two hours ago we pulled this audio off a secure `channel` in russia.
+- We can send a message over the arkwide `channel`, you guys survived.
+- Two hours ago we pulled this audio off a secured `channel` in russia.
+- It looks like he was washed the entire length of the runoff `channel`.
+- Epsilon nine is monitoring the intruder; keep a `channel` open to them.
+- Snowplow, generator, tv dish... hell, we get the goddamn playboy `channel`!
+- ♪ he's alive, someone quick call `channel` 5 ♪ nancy, what's taking so long?
+- That's a flip-flop gate to `channel` the air, but we can use it to trap the thing.
+- Not if you chose to stay within god's `channel`... you are contradicting yourself, donnie.
+- If i had a $100,000 boat, i sure as hell wouldn't leave it anchored alone in the `channel`.
+                 

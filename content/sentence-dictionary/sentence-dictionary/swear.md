@@ -1,0 +1,107 @@
+---
+title: "swear in a sentence | swear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swear"
+---
+- I'd `swear` he didn't.
+- I'm trying, i `swear`!
+- I `swear`... bullshit!
+- I `swear` it was here.
+- I `swear` on the kids.
+- I `swear`, that's all.
+- I `swear` to god, jos.
+- `Swear` means promise.
+- I `swear` i don't know!
+- I `swear` i don't know.
+- I `swear` i'm innocent.
+- I `swear` on your life.
+- I `swear` that it does.
+- I `swear` to god, snake.
+- `Swear` to god... tubby.
+- I didn't know, i `swear`.
+- `Swear` on jimmy's grave.
+- [i don't know, i `swear`.]
+- I `swear` it will be done.
+- It's the truth, i `swear`.
+- I `swear` to god, i will...
+- Louis, i `swear` i did not.
+- You can't `swear` on these.
+- Don't `swear` it's impolite.
+- I `swear` man, i don't know.
+- I `swear` to you on my life.
+- Reads, writes, i `swear` it.
+- I `swear` it on my very bone.
+- I `swear` -- the both of you.
+- `Swear` to me on your mother.
+- Well what shall i `swear` by?
+- Do you know any `swear` words?
+- I `swear`, as god is my judge.
+- I `swear`, i ... didn't smoke.
+- I `swear` i'm not a gear snob.
+- I `swear` on your ring, marge.
+- I `swear` that dog's an idiot.
+- I `swear` to you, it's true...
+- I was with valerie, i `swear`.
+- Paulie, i `swear`, i'm afraid.
+- When you do this, i `swear`...
+- Do you `swear` you didn't know?
+- Guess you better `swear` me in.
+- I `swear`, it has to come here!
+- I `swear` on my mother's grave.
+- I `swear` to you i didn't know.
+- I would `swear` my love to you.
+- `Swear` to me you won't -- hey.
+- To `swear` you in as president.
+- You fucking `swear` to shut up!
+- I `swear` none of this was here.
+- I `swear` on my life, i won't...
+- Not good enough, `swear` to god.
+- She was breathing, i `swear` it.
+- `Swear` it, ethan?...given word?
+- I did, i destroyed it, i `swear`.
+- I don't know his name, i `swear`.
+- I `swear`, you'll see, mathilda!!
+- I `swear`, i don't know this girl.
+- I `swear` it on my mother's grave.
+- I `swear`, you look just like him.
+- Yeah, let's `swear` we won't tell!
+- You really think i should `swear`?
+- I did... jason, i `swear`, i did...
+- You must `swear` by the holy bible.
+- I `swear` to you, it changed me.
+- But i `swear` to you, she is coming.
+- Do you have to `swear` all the time?
+- I had the money, i `swear` i had it.
+- I `swear` i didn't want to hurt you.
+- I `swear` i never meant to hurt you.
+- I `swear`, it's almost not worth it.
+- I `swear`, this town has gone crazy.
+- I `swear` to god, i'll fucking puke.
+- I `swear` to god i'm fuckin' jinxed.
+- I `swear` to god i'm gonna fuck her.
+- So let the council `swear` publicly.
+- `Swear` to god, i didn't do nothing!
+- Do you `swear` on st. christopher...?
+- I `swear` i'm gonna get to you, okay?
+- I `swear` on my children he won't be.
+- I `swear`, you can't leave the house.
+- And i will cut you down, i `swear` it.
+- Ned, i `swear` i knew nothing of this!
+- R i'm telling you straight, i `swear`.
+- I could `swear` i heard my son call me.
+- I `swear` i'll shoot you in your sleep.
+- I `swear` that that woman in my room...
+- I `swear` to god, i didn't do anything.
+- No, it's not what you think, i `swear`!
+- `Swear` to god, doc, i just don't know.
+- I could `swear` i heard... ahh, nothing.
+- I didn't invite them here, i `swear` it.
+- I didn't know about this, ok, i `swear`.
+- I'll call a tow truck myself, i `swear`.
+- I'll call for fucking backup, i `swear`!
+- I saw keaton get shot, i `swear` to you.
+- I `swear` i won't say noth- ...or death.
+- Mr. lynch, i `swear` to you, he's lying!
+- I `swear`, you got the sweetest cock.
+                 

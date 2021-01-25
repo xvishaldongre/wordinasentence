@@ -1,0 +1,107 @@
+---
+title: "fuck in a sentence | fuck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fuck"
+---
+- Calm the `fuck` down.
+- Did you `fuck` vickie?
+- Do not `fuck` with me.
+- Don't `fuck` with him.
+- `Fuck` dat honky shit.
+- `Fuck` 'em in the ear.
+- `Fuck` him in the ear.
+- `Fuck`, it's freezing.
+- `Fuck` semantics, doc!
+- `Fuck` that shit, man.
+- `Fuck` the lot of you.
+- `Fuck` you - `fuck` you.
+- Go `fuck` dick vitale.
+- Helluva `fuck` factor.
+- Here's to your `fuck`.
+- Hey `fuck` you damone.
+- I don't give a `fuck`!
+- I don't give a `fuck`.
+- Otherwise, `fuck` 'em.
+- Owwwaaaa -- `fuck` me!
+- That means `fuck` all.
+- The `fuck` you doing?!
+- Till then, `fuck` you.
+- Well `fuck` you, evan!
+- What the `fuck` is it?
+- Where the `fuck` am i?
+- Whisper "`fuck` me"...
+- You can suck a `fuck`.
+- You'll `fuck` it up...
+- You want to `fuck` me.
+- Away to `fuck` the irs.
+- But you `fuck` with me.
+- Danny: what the `fuck`?
+- `Fuck` band practice...
+- `Fuck` double pay, man!
+- `Fuck` everything else.
+- `Fuck` kindred spirits.
+- `Fuck` that shit, jack.
+- `Fuck` the both-of you.
+- `Fuck` this angel shit.
+- `Fuck` those spic pigs!
+- `Fuck` you, clementine.
+- I mean what the `fuck`.
+- Nigger, `fuck` me hard!
+- No, did you `fuck` him?
+- So who the `fuck` does?
+- Sue me, you jew `fuck`!
+- Tessa, what the `fuck`!
+- The `fuck` do you know?
+- Vee `fuck` you up, man!
+- What the `fuck`'s this?
+- What the `fuck` was it?
+- Where the `fuck` is he?
+- Who the `fuck` are you?
+- Who the `fuck` is that?
+- Who the `fuck` is this?
+- You bet she can `fuck`.
+- You go `fuck` yourself.
+- You say '`fuck`' a lot.
+- You want to `fuck` her?
+- Ask your rat-`fuck` son!
+- But you can't `fuck` me.
+- Did salvy `fuck` vickie?
+- Don't `fuck` up in here.
+- For `fuck`'s sake, abbe!
+- `Fuck` blue chip stocks!
+- `Fuck` the three of you.
+- `Fuck`, what's his name?
+- `Fuck` yesterday's game.
+- `Fuck` you fucking guys!
+- `Fuck` you, grease-ball!
+- `Fuck` you, johnny utah.
+- `Fuck` your grandmother.
+- `Fuck` you, you get out.
+- I didn't say `fuck` him.
+- Johnny, what the `fuck`?
+- Just shut the `fuck` up.
+- Just shut the `fuck` up!
+- Listen, you dumb `fuck`!
+- Look, `fuck` the border.
+- Look, `fuck` the thesis.
+- Now sit the `fuck` down!
+- So don't `fuck` with me!
+- So he goes, "`fuck` it."
+- The `fuck` is that shit?
+- They sure as `fuck` did!
+- Told them to `fuck` off.
+- <u>`fuck`</u> the world.
+- Well, i say `fuck` that.
+- What do i give a `fuck`?
+- What the `fuck` are you?
+- What the `fuck` is that?
+- What'the `fuck` is that?
+- What the `fuck` is this?
+- Where the `fuck` are we?
+- Who the `fuck` are they?
+- You can `fuck` off, too.
+- You'd `fuck` your uncle!
+- You know the `fuck` not.
+- You're a `fuck`, walter!
+                 

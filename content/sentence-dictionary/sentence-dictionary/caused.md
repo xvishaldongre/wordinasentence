@@ -1,0 +1,61 @@
+---
+title: "caused in a sentence | caused example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "caused"
+---
+- You `caused` our pain.
+- Oh, is that what `caused` it?
+- What could have `caused` this?
+- I've `caused` you some trouble.
+- `Caused` by doc ock's experiment?
+- It `caused` quite a stir, in fact.
+- You've `caused` quite a ruckus ...
+- The crash `caused` too much damage.
+- Look at the trouble you've `caused`.
+- Well, anything coulda `caused` that.
+- They think that's what `caused` this.
+- You `caused` the world to be destroyed!
+- You `caused` the world to be destroyed.
+- You think the extra strain `caused` it?
+- I haven't `caused`... a problem, have i?
+- I'm sorry i `caused` you that much pain.
+- That's what `caused` the contamination?
+- Hocker's death almost `caused` a race riot.
+- I don't know what in the world `caused` it.
+- You think that `caused` the accident, risa?
+- And, look, we don't know what `caused` this.
+- Malaria isn't `caused` by the bites of bats.
+- Something the construction workers `caused`?
+- Twas the killing of the unicorn `caused` it.
+- You think someone else `caused` the accident?
+- Looks like i `caused` a ruckus with that shot.
+- Forgive me if i `caused` you all any trouble...
+- All this shit `caused` by a random traffic stop.
+- It was probably `caused` by that electric shock.
+- In france it has `caused` nothing but bitterness.
+- Most likely `caused` by whatever you were mining.
+- Nothing has `caused` the human race more trouble.
+- You misrepresented what you saw and `caused` this.
+- A million things could have `caused` those problems.
+- I'm sorry if i `caused` you to lose your business deal.
+- It was the fugitive in the chrysler that `caused` this.
+- All of this is guilt for the deaths you've `caused`, no!
+- Is there something i've said that's `caused` this contempt?
+- The man who `caused` 300 of his own people [crying] attack now!
+- Took over the house and `caused` my mother's nervous breakdown.
+- `Caused` when the correct symbol was touched in the right order.
+- It was a sonic anomaly probably `caused` oh, come on, young man.
+- "their lacking diligence has undoubtedly `caused` the collision.
+- They made you leave your hotel... ... you `caused` a disturbance.
+- "the vigor with which he made love `caused` her bones to dislodge.
+- He's the one that `caused` frank to come and frank's fucking us real good.
+- He's the one that `caused` frank to come and frank's fucking us real good.
+- This business with the maiden... it's `caused` him endless grief and torment.
+- Being alive after our time `caused` an outward ripple - a rift in death's design.
+- What you saw could have been an optical effect `caused` by gravitational distortion.
+- Of course the beck's, with the... ipo's `caused` the rat population on this street.
+- Kendall's attack was `caused` by a drug known as anephadrine, maybe you've heard of it.
+- She has gotten rid of the animal that `caused` all the trouble, so why shouldn't she stay.
+- She says it was common knowledge around the office that her lesions were `caused` by aids.
+                 

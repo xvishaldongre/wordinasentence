@@ -1,0 +1,63 @@
+---
+title: "ho in a sentence | ho example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ho"
+---
+- Christ, it's `ho`-jon!
+- `Ho`'s a fucking pimp!
+- `Ho` `ho`, capital punks!
+- `Ho`, `ho`, `ho`, yourself!
+- How about it, `ho`-jon?
+- Me and `ho` rode sleds.
+- How much you need, `ho`?
+- Explain them to `ho`-jon.
+- My name is miss `ho` kym.
+- Ha ha `ho` `ho` and hee hee.
+- Okay, what <u>`ho`</u>tel?
+- Wait a minute, `ho`-jon...
+- `Ho` -- `ho` --`ho` -- `ho` look!
+- `Ho`-hotel... los angeles...
+- I ain't callin' you no `ho`.
+- Get out the scotch, `ho`-jon.
+- Not your gung-`ho` jungle ace.
+- Oh `ho`, so very infrequently.
+- This is `ho`-jon, my houseboy.
+- Yeah, an honest tramp-ass `ho`.
+- Yo-`ho`-`ho` and a bottle of rum.
+- All right, say "airport `ho`-jo."
+- `Ho` chi minh sucks dead dick!...
+- I can dissolve them `ho`, `ho`, `ho`.
+- Long enough to call victoria a `ho`.
+- Oh-`ho`-`ho` yes, i've spread my seed.
+- Stray from the moral path, whoa-`ho`!
+- Ah, i finally met a man called "`ho`."
+- Hi `ho`, hi `ho`, it's off to work i go!
+- Neither do i... ha ha `ho` `ho` hee hee.
+- We're training `ho`-jon to be a bartender.
+- I need something to write with, `ho` `ho` `ho`!
+- James giving some woman the old heave-`ho`.
+- `Ho`-jon, give the father some more martini.
+- Oh -- `ho` -- you want legal aid against us?
+- Suga, go ask miss `ho` kym if she seen them.
+- `Ho`'s a good guy -- maxie's fucking with me.
+- I just took the `ho` to burger king, alright.
+- No, `ho`-jon, we're not going to open you up.
+- Yeah, why don't ya take a... airport `ho`-jo!
+- Nah, man... you think this shit's funny, `ho`?
+- Partner died, no back-up, i was too gung-`ho`.
+- No, i'm going `ho` -- are you riding with me, james?
+- Jesus i've got - to get to the `ho`-- it's over a month.
+- Some gung-`ho` agent from d.c. pushed him into a corner.
+- Still have enough profit to send `ho`-jon to college.
+- You keep on thinking i'm somebody `ho` lacks...confidence.
+- Why she gotta be a `ho`, just cause she wants to get with me.
+- She's a `ho` cause she's sending her coochie through the mail.
+- But if you're so gung-`ho`, we'd best call it in for some back-up.
+- It's the only way we can make enough to put `ho`-jon through androscoggin.
+- Drink up me hearties, yo `ho` ... not when you can drink instead, at least.
+- `Ho` -- `ho` --`ho` ha -- ha -- ha -- it's no use screaming at a time like this!
+- We got it, men... `ho`-jon's keep as androscoggin... if there is such a place.
+- I mean, how many times have you told me yourself to watch out for these `ho`'s?
+- This guy drinks rum from a barrel, says "yo `ho` `ho`" has a peg leg... yeah, he's a pirate.
+                 

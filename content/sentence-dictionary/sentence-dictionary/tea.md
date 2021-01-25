@@ -1,0 +1,107 @@
+---
+title: "tea in a sentence | tea example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tea"
+---
+- Le fanu's green `tea`.
+- Like a `tea` ceremony?
+- Who ordered the `tea`?
+- You make crummy `tea`.
+- Get some `tea` in here.
+- Get some `tea` into ya.
+- Ordering calming `tea`.
+- I'll pour the `tea`.
+- Give him a cup of `tea`.
+- Here's your `tea`, tita.
+- How is your `tea`, john?
+- I'll make us some `tea`.
+- See you at `tea` time...
+- But it's oat straw `tea`.
+- Do you have any ice `tea`?
+- Tell him his `tea` stinks.
+- Want some coffee or `tea`?
+- Would you like more `tea`?
+- Would you like some `tea`?
+- Do you want a cup of `tea`?
+- How do you like your `tea`?
+- Just putting up some `tea`.
+- There is iced `tea`, hanna?
+- There... um, there's `tea`.
+- You don't want `tea`, papa.
+- I'd like some `tea`, please.
+- In their `tea` or something.
+- No, i'll get you some `tea`.
+- `Tea` would spoil my dinner.
+- Can i get you a cup of `tea`?
+- It's time for `tea`, grandma.
+- Then you have some hot `tea`?
+- Can i offer you a cup of `tea`?
+- Oat straw `tea` and ginger pie.
+- Would you like some iced `tea`?
+- He looks like a giant `tea` bag.
+- We haven't even begun `tea` yet.
+- It's not your cup of `tea`, mama.
+- Would you two like a cup of `tea`?
+- Better than `tea`, don't you think?
+- Drink `tea` -- there's lots of `tea`.
+- I just want to invite him to `tea`.
+- She sips at her `tea` reflectively.
+- Will you have `tea`, mister welles?
+- I don't want a goddamn cup of `tea`.
+- I'm just making your mother's `tea`.
+- I thought you might like some `tea`.
+- I was just taking her in some `tea`.
+- Perhaps you could join me for `tea`.
+- Have you ordered `tea` or a cocktail?
+- Sweeten the `tea` with honey, harold.
+- Would you like a cup of `tea`, billy?
+- You're surrounded by now drink `tea`?
+- You want a cup of `tea` or something?
+- You can't make a cup of `tea`, edward.
+- We'll leave some `tea` and oxygen here.
+- May i offer you some `tea`, herr mozart?
+- I'll drink some more of stoltzfus' `tea`.
+- Let me tell hanna to bring `tea` for two.
+- There is whiskey and there is iced `tea`.
+- Try to make him some cow `tea` next time.
+- You promised to come for `tea` yesterday.
+- I make special `tea` for you, hiyes, okay?
+- I think you've had enough `tea` for today.
+- Looks like `tea` time, maybe they're brits.
+- Now, are you going to have some more `tea`?
+- Punks think bay of pigs is an herbal `tea`.
+- You've never had oat straw `tea`, have you?
+- Hancock acts, he led the boston `tea` party!
+- How much `tea` do you drink, prime minister?
+- Would you like a cup of `tea` before you go?
+- Now what would you like -- `tea` ... bath...?
+- Would you like a glass of `tea` or something?
+- Make us a nice cup of `tea` and i'll tell you.
+- I wouldn't miss this for all the `tea` in china.
+- `Tea`, principally, was the product in the 1820s.
+- Do you think we should invite them over for `tea`?
+- Perhaps i could drop round for `tea` or something?
+- We're sending people up to you with `tea` and o's.
+- If it's something hot you want, you can have `tea`.
+- I merely invited mr. boone in for a glass of `tea`.
+- I'll take you to the russian `tea` room for pelmeni.
+- The taste of `tea` so black it falls into your mouth.
+- She's working at the russian `tea` room in ogdenville.
+- Do we have any of that breakfast `tea` around here?
+- I think we'll take our `tea` down by the swimming pool.
+- I was just about to ask hanna to bring down iced `tea`.
+- When one is invited to `tea`, one must look one's best.
+- Would you like me to make you a nice cup of `tea`, son?
+- I'm normally a `tea` man myself, but let's give it a go.
+- I got some sheapas coming up there with `tea` and oxygen.
+- Mind if i swing by later, wring out a `tea`-bag with you?
+- We've got some sherpas coming up there with `tea`, oxygen.
+- The whole of the british empire was built on cups of `tea`.
+- What does that have to do with the price of `tea` in china?
+- Oh they've probably gone to the canteen, cup of `tea`, like.
+- Vitamins, exercise, herb `tea`... and see a doctor, will ya?
+- Can i get you anything...coffee... `tea`...a little tequilla?
+- He wants to know if you'd like a cube of sugar in your `tea`.
+- I'll put on the kettle and we'll have a nice hot cup of `tea`.
+                 

@@ -1,0 +1,54 @@
+---
+title: "Wyatt in a sentence | Wyatt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Wyatt"
+---
+- No... `wyatt`, my god!
+- They're bugs, `wyatt`.
+- I am usin' it, `wyatt`.
+- I know things, `wyatt`.
+- `Wyatt`, are you crazy?
+- I get cold, `wyatt`.
+- `Wyatt` berry stapp earp.
+- You are the one, `wyatt`.
+- Private affair... `wyatt`!
+- Way ahead of you, `wyatt`.
+- `Wyatt` earp is my friend.
+- I couldn't help it, `wyatt`.
+- Listen to yourself, `wyatt`.
+- Live, `wyatt`... live for me.
+- What's between you and `wyatt`?
+- `Wyatt`, i know what i'm doin'.
+- I'm a man without fear, `wyatt`.
+- All right `wyatt`, maybe you can.
+- Hey, `wyatt`, you believe in god?
+- That's what i love about `wyatt`.
+- `Wyatt` earp...dodge city, right?
+- I'm sorry about this, mr. `wyatt`.
+- We know that we're doin', `wyatt`.
+- Impressive man that's `wyatt` earp.
+- No, `wyatt`, i just said i need it.
+- `Wyatt`, what're you talkin' about?
+- Want to thank you for that, `wyatt`.
+- `Wyatt`, listen, you can't beat him.
+- Hey, `wyatt`, god damn it, i'm serious!
+- `Wyatt`, they're threatening our lives.
+- I played the cards i was dealt, `wyatt`.
+- That's virgil lyin' over there, `wyatt`.
+- It's got nothin' to do with you, `wyatt`.
+- `Wyatt`, i want you to meet father feeney.
+- You told `wyatt` you'd disarmed those men.
+- `Wyatt`, meet fred white, he's town marshal.
+- It's working out just like you said, `wyatt`.
+- Maybe you ought to have a talk with doc, `wyatt`.
+- I'm `wyatt` earp, these're my brothers- newcomers, eh?
+- It's a nice place owned by an old couple named `wyatt`.
+- I saw that look pass between you and `wyatt` at the fight.
+- Will somebody get the damn dog out- you were right, `wyatt`.
+- I'm sorry about... `wyatt`... no, no, get away, get away from me...
+- But there's no light in your smile for me, `wyatt`, nothing to keep me warm.
+- But the nearest shelter's the `wyatt` ranch and that's maybe five hours away.
+- `Wyatt`, i couldn't find a single store that had laudanum any- you're the boss.
+- By the way, if you ever go past the `wyatt` ranch, have another talk with elaine.
+                 

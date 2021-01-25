@@ -1,0 +1,107 @@
+---
+title: "dollar in a sentence | dollar example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dollar"
+---
+- A `dollar` seventy-five.
+- I'll make it a `dollar`.
+- Make top `dollar` smile.
+- As a three-`dollar` bill.
+- Only cost you a `dollar`.
+- Shoot the whole `dollar`.
+- Give him an extra `dollar`.
+- I owe you a `dollar` sixty.
+- Shall we say -- a `dollar`?
+- Yo, rock, gimme a `dollar`.
+- You can keep that `dollar`.
+- Hundred `dollar` freeze-out.
+- Room's twenty-five `dollar`!
+- Give me that `dollar` seventy.
+- That's a `dollar` forty-seven.
+- A lousy ten-`dollar` card game.
+- Are you a fifty `dollar` whore?
+- A `dollar` sixty-nine, plus tax.
+- They're from the `dollar` store.
+- $2.99 plus one `dollar` is $3.99!
+- He was a runner for top `dollar`.
+- I think this is worth a `dollar`.
+- It's a two-hundred `dollar` fine!
+- You'd do anything for a `dollar`.
+- A four hundred `dollar` lunch tab!
+- Do you have change for a `dollar`?
+- Using all dose ten `dollar` words?
+- Why should i pay you `dollar` one?
+- On an eighty-thousand `dollar` day?
+- Sheila pulls out a 5 `dollar` bill.
+- A `dollar` sixty per share you said.
+- Ten cents each, i'll get a `dollar`.
+- Well, another day, another `dollar`.
+- I haven't seen one `dollar` from you.
+- That's one `dollar` an' twenty cents.
+- These are one hundred `dollar` nikes!
+- The twenty-five thousand `dollar` one.
+- They see you, they see `dollar` signs.
+- Those are five hundred `dollar` chips.
+- We had a two thousand `dollar` budget.
+- Could this be a million-`dollar` puree?
+- I'd say you give a good `dollar` value.
+- That's a seventy thousand `dollar` car.
+- That's why i wear a fifty `dollar` hat.
+- A `dollar` on the five, two on the nine.
+- He pays top `dollar` for the... you see?
+- .. not worth giving up for a `dollar` ..
+- A `dollar` seventy and i'm gonna keep it!
+- I could make a `dollar` a day, sometimes.
+- It's a trillion `dollar` a year business.
+- It was about the size of a half `dollar`.
+- When it gets to the two-`dollar` theater.
+- Be hip to the struggle, only a `dollar`!!!
+- 'cause we dig ya, man -- gimme a `dollar`.
+- So, you want a ten-thousand `dollar` bond.
+- He didn't expect a million `dollar` reward.
+- Pg&e is a 28- billion `dollar` corporation.
+- Hundred `dollar` fine and ordered to desist.
+- I've reported every `dollar` i've ever made.
+- Just throw in your `dollar`, and let's move.
+- By festooning his statue with `dollar` bills.
+- One `dollar` each, please, for the milk fund.
+- Until then--the `dollar` forty stays with me.
+- Rolling fat jays outta hundred `dollar` bills.
+- Two-hundred dollars in hundred-`dollar` bills.
+- Worth every cent of the 10 million `dollar`-s.
+- You got your ad in for `dollar` doorknob club.
+- Because every `dollar` that we spend is a vote.
+- Two-hundred dollars in hundred- `dollar` bills.
+- You said there'd be a thousand `dollar` reward.
+- You want those assholes, you want top `dollar`.
+- Albrecht this isn't top `dollar`'s style anyway.
+- I don't want your silly billion `dollar` empire?
+- I now have a hundred `dollar` dry cleaning bill.
+- Hey, you just got a five thousand `dollar` raise.
+- Mr. wombosi owns a thirty million `dollar` yacht.
+- That was all gale and `dollar` signs and ratings.
+- There's nothing here but a hundred `dollar` bill.
+- Was a two hundred `dollar` hat, i hadda kill you.
+- Wow, girl, you just made a hundred-`dollar` sale.
+- You made a `dollar`, an' that's a `dollar`'s worth.
+- Give dat bum a `dollar` for sweeping our sidewalk.
+- I owe you a `dollar` forty--here--keep the change.
+- She's worth every `dollar` of it, take it from me.
+- A `dollar` seventy-nine for wraps-what's that shit?
+- Don't be a lightweight...this is top `dollar` toot.
+- Even when it was hotter than a two-`dollar` pistol.
+- This is a multimillion-`dollar` installation, okay?
+- A `dollar` forty--out of the two dollars i gave you.
+- I got this dress at a thrift store for one `dollar`.
+- One hundred thousand `dollar` fine and three months?
+- For that service i charge one `dollar` taxi fare.
+- He's got a million `dollar` arm and a five cent head.
+- It's my twelve thousand `dollar`, calf's skin jacket.
+- Yeah - and get us into a million `dollar` libel suit.
+- Bet your bottom `dollar` that's a wheat king thresher.
+- Hey, i negotiate million `dollar` deals for breakfast.
+- Someone bet me a `dollar` .. how'd you do it, old man?
+- That mug reminds me of a guy with his second `dollar`.
+- Most counterfeiters only get ten cents on the `dollar`.
+                 

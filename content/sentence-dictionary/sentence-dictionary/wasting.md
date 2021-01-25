@@ -1,0 +1,100 @@
+---
+title: "wasting in a sentence | wasting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wasting"
+---
+- You're `wasting` time!
+- You're `wasting` time.
+- We're `wasting` our time!
+- We're `wasting` our time.
+- Sir, we're `wasting` time.
+- Well we're `wasting` time.
+- Abby, we're `wasting` time.
+- Why am i `wasting` my time?
+- You're `wasting` your time!
+- You're `wasting` your time.
+- No -- this is `wasting` time.
+- You're `wasting` your breath.
+- Come on, we're `wasting` time.
+- Mickey, you're `wasting` time!
+- `Wasting` time is half my job.
+- We're `wasting` our time here.
+- You'd be `wasting` your money.
+- _ look, we’re `wasting` time.
+- Am i `wasting` my time with you?
+- Castor's not `wasting` any time.
+- You're `wasting` your time here.
+- So i've been `wasting` my breath?
+- You're `wasting` your lives, man.
+- You're `wasting` your time, duke.
+- You're `wasting` your time, lady.
+- I'm not `wasting` my water on him.
+- You're `wasting` your time, blade.
+- You're `wasting` your time, frost.
+- Nick, you're `wasting` your time...
+- So here you're `wasting` your time.
+- You're both `wasting` precious time.
+- You're lucky i am not `wasting` you.
+- You're `wasting` your breath, woman.
+- I am `wasting` away and i cannot die.
+- Because you weren't `wasting` my time.
+- You're `wasting` the taxpayers' money.
+- Hey, partner, we're `wasting` daylight.
+- I told you, you're `wasting` your time.
+- Not `wasting` any time, are you, tracy?
+- Now it's worse -- you're `wasting` away.
+- Now stop `wasting` time and fetch a cab.
+- Why am i `wasting` my time with this kid?
+- Why the hell are we `wasting` time here?!
+- So stop `wasting` my time it's time to go.
+- Go to the mall and stop `wasting` our time.
+- Why are we `wasting` time with this, anyway?
+- Because i don't want to be `wasting` my time.
+- Still `wasting` your time with this clown, eh?
+- `Wasting` my time listening to this mad woman.
+- What am i `wasting` my time with this shit for?
+- You're `wasting` your time, already been tried.
+- Dude, you're `wasting` your time talking to her.
+- All that i'm saying, that you're `wasting` leads.
+- `Wasting` all this marvelous time with arguments!
+- You are `wasting` everyone's time with this shit.
+- So why are you `wasting` your time in a small town?
+- You're `wasting` your time--she's a friend of mine.
+- Nothing you need to be `wasting` your time watching.
+- You're `wasting` your time, the guy's a basket case.
+- Now here you guys are, `wasting` my fucking time!
+- It's just, turns out you're `wasting` a lot of money.
+- The fool killed himself, `wasting` a good mind drive.
+- You're `wasting` your time, there's no one out there.
+- I told you, you're `wasting` your time talking to her.
+- You don't even have the money and you're `wasting` it.
+- I can't believe he's `wasting` flanders' wi-fi on this.
+- Because he has been so furiously busy `wasting` himself.
+- `Wasting` my time just partying and... just stupid shit.
+- A few hours and i'll be `wasting` away in margaritaville.
+- I don't even know why i'm `wasting` my time here with you.
+- Why are you `wasting` time on this burned-out street junk?
+- If you won't answer my questions, you're `wasting` my time.
+- If i could do you think i'd be standing here `wasting` my time.
+- You're `wasting` your fucking time, man, you're `wasting` my time.
+- Imagine `wasting` a great reporter - -- uh, reporters -- on this.
+- I expected that two months ago, and they're `wasting` their time...
+- It's hardly worth `wasting` your time--a no-nothing case like this.
+- Now why don't you stop `wasting` my time and tell me what you want.
+- `Wasting` my time, naturally... look at her teasing those bumpkins.
+- Then momo gets pissed for `wasting` his time and we don't need that.
+- So you go on and stamp your forms, sonny, and stop `wasting` my time.
+- Ten years you carried that pistol, and you end up `wasting` your shot.
+- I guess i have said enough i'm just `wasting` my breath talking to you.
+- Now stop `wasting` time, thorwald, or i'll hang up and call the police.
+- I thought he was going somewhere but now i think i am `wasting` my time.
+- I've always said you were `wasting` your time in the underwear department.
+- Well it's not here -- you're `wasting` your time and you're pissing me off!
+- Just making sure that i'm not `wasting` one second of the little time i have.
+- Your behavior is not funny and is `wasting` the time of the federal government.
+- Tonight's dinner is amazing, folks: i think we're `wasting` time with politics here.
+- You two ought to start a stand-up act, because you're just `wasting` your humor on me.
+- Doucet's killing people and you're `wasting` valuable time busting two-bit technothugs.
+- I finally realized through a lot of therapy that i was `wasting` my energy on hating him.
+                 

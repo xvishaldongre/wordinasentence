@@ -1,0 +1,88 @@
+---
+title: "united in a sentence | united example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "united"
+---
+- The `united` nations?
+- `United` in getting some.
+- A `united` states senator!
+- `United` republic of mars.
+- Look at your `united` front.
+- This is the `united` states.
+- Take me to the `united` nations.
+- What about your `united` nations?
+- To the `united` states of america.
+- Says the `united` states of america.
+- The `united` nations are still here.
+- You know about the `united` nations?
+- The president of the `united` states.
+- The president of the `united` states?
+- The entire `united` states of america.
+- You represent the `united` states now.
+- Are we talkin' `united` states dollars?
+- They're headed for the `united` states.
+- Third president of the `united` states.
+- Do you prefer cuba or the `united` states?
+- Jack and i are `united` in holy matrimony.
+- It'll be a `united` nations here this year.
+- We got the `united` nations here this year.
+- We need help at the `united` nations tav--!
+- Except the president of the `united` states.
+- The `united` states is a no- smoking nation.
+- "a history of the `united` states, volume i."
+- It was full of men from the `united` nations.
+- I was aiming for the eastern `united` states.
+- We neutralized enemies of the `united` states.
+- Chicago police capture `united` nations killer.
+- We've got enough for the whole `united` states.
+- Would i walk across the `united` states for you?
+- Here at u.t.a., `united` talented apes, oh, shit.
+- The `united` nations voted not to hear our appeal.
+- Major william cage, `united` states military media.
+- They took out the president of the `united` states!
+- Banned from the `united` states, just like asbestos.
+- I am harold ryan, of the `united` states of america.
+- They are undermining the `united` states of america.
+- Two terms; one in italy, one in the `united` states.
+- But you are an honored guest of the `united` states...
+- God bless the `united` states of america welcome back.
+- This is the `united` states government for god's sake.
+- 'the president of the `united` states to harry shapiro.
+- Compliments of the `united` states army artillery corps.
+- This is `united` states coastguard station north island.
+- We’ll miss the window for the eastern `united` states.
+- * with the `united` nations high commission on refugees.
+- General, i am an officer in the `united` states military.
+- This is `united` states coast guard north island station.
+- ...you'd be operating outside territorial `united` states.
+- The only people you `united` were the flamekeepers i don't.
+- You won't even give me your address in the `united` states.
+- He was the president of the `united` states -" you're wrong.
+- Sir, this plane carries the president of the `united` states.
+- The `united` nations has voted authority to the `united` states.
+- To the champion of the whole `united` states -- dan'l webster!
+- I'm an undercover agent for the `united` states secret service.
+- Personally, i'll be calling the president of the `united` states.
+- What is your intended purpose of your visit to the `united` states?
+- In 1959, the `united` states was very friendly with the shah of iran.
+- Did you know that's written in the constitution of the `united` states?
+- The goddamned missile crisis `united` the whole country behind kennedy.
+- Y-yes-- does that include helen filmore, `united` states congresswoman?
+- Narrator: to the `united` states went the best that britain could produce.
+- Lee, this is special agent sterling from the `united` states secret service.
+- Who do you think gets through this gate into the `united` states of america?
+- How can you say a thing like that about an officer in the `united` states army?
+- I am the commander-in-chief of the `united` states, and i say when we go to war!
+- You talk about the people of the `united` states as though they belonged to you.
+- Commander in starfleet, `united` federation of planets, service number 656-5827b.
+- The la guardia flight�s canceled but i got you out of kennedy on `united` at nine.
+- So you do have an agreement with the `united` states government, mr. jung, correct?
+- Not you -- not the `united` states government -- me -- i'm the one being ripped off!
+- <u>nasa</u> is going to kill the president of the `united` states with an earthquake.
+- An accident which, conveniently, came hard upon your dismissal from `united` pictures.
+- ...the `united` states into the kind of country we're supposed to be fighting against.
+- How the hell do you have the temerity to blackmail the president of the `united` states?
+- You represent the `united` states government... never end a sentence with a preposition.
+- I want to be the exclusive distributor of obregon brothers cocaine for the `united` states.
+                 

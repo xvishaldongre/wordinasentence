@@ -1,0 +1,65 @@
+---
+title: "therapy in a sentence | therapy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "therapy"
+---
+- I missed my `therapy`.
+- I'm going to `therapy`.
+- Then hormone `therapy`.
+- I should be in `therapy`.
+- `Therapy` session is over.
+- I could use some `therapy`.
+- It's visualization `therapy`.
+- You yanks and your `therapy`.
+- And say they're `therapy` pets?
+- Do you want to leave `therapy`?
+- Isn't `therapy` helping at all?
+- You're in `therapy` too, marty?
+- His `therapy` was going nowhere.
+- To send me to `therapy` forever?
+- This is legitimate `therapy`?
+- So you don't believe in `therapy`?
+- Well, that's what `therapy`'s for.
+- Yeah, group bloody `therapy` time.
+- Electro-shock `therapy`, my friend.
+- I'd recommend `therapy` for your son.
+- I'm going to need a lot of `therapy`.
+- Okay, champ, physical `therapy` time.
+- There will be `therapy` bills for you.
+- 40 bucks' worth of `therapy` coming up.
+- His body kept rejecting gene `therapy`.
+- How was your `therapy` session tonight?
+- Man, you have got to get some `therapy`.
+- You're already putting me in `therapy`!!
+- Maybe you should be the one in `therapy`.
+- Are you saying i'm through with `therapy`?
+- I would caution against physical `therapy`.
+- Answer the question, patrick you need `therapy`.
+- Bellamy would have never okay, couples `therapy`.
+- I had to do some `therapy` at the crossbar hotel.
+- Have you considered going into `therapy` yourself?
+- She's going to need years of `therapy` after this.
+- Is she in any kind of `therapy`... professional help?
+- Mummy has a special technique called "deep `therapy`."
+- I was thinking maybe i shouldn't be in `therapy` anymore.
+- Mister mcmurphy, the purpose of this meeting is `therapy`.
+- Thanks to this `therapy`, i now know what i'm looking for.
+- Quitting your `therapy` won't feed the children of ethiopia.
+- "there's no shame in getting a little `therapy`", right, doc?
+- At st. thomas, it's called the institute for mental `therapy`.
+- You understand that you are free to leave `therapy` at any time?
+- I mean, maybe they do, but i doubt those people are in `therapy`.
+- Well, i say fuck `therapy` and what's that stuff you take, xanax?
+- I don't think this aversion `therapy` is really necessary, doctor.
+- The world series is goin' on right' now an' that's `therapy` also!
+- She has the car... so she can drive you to your `therapy` tomorrow.
+- There's no shame in getting a little `therapy`... is there, althea?
+- Everyone thought the gene `therapy` made her blood black, didn't it?
+- If i had everything i need, i wouldn't be going to physical `therapy`.
+- ♪ go, oh, oh ♪ honey, i signed us up for physical `therapy` this afternoon.
+- Take that to your goddamn `therapy`... honey, we went over this in `therapy`.
+- ♪ talking to the bear sure beats `therapy` ♪ i mean, this can't be a coincidence.
+- It's possible that graham has hidden motives for disliking `therapy` and/or therapists.
+- I finally realized through a lot of `therapy` that i was wasting my energy on hating him.
+                 

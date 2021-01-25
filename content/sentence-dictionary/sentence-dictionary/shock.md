@@ -1,0 +1,82 @@
+---
+title: "shock in a sentence | shock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shock"
+---
+- It is a terrible `shock`.
+- The woman was in `shock`.
+- One eligius `shock` collar.
+- Pop, do you want a `shock`?
+- She's in a kind of `shock`.
+- Give it a hell of a `shock`.
+- I realize this is a `shock`.
+- It's a terrible `shock`, eh?
+- This will come as a `shock`.
+- Had to `shock` him twice more.
+- The king of the `shock` jocks.
+- This is... really a `shock`...
+- It's still an electric `shock`!
+- Some of them would `shock` you.
+- No, odette says he's in `shock`.
+- She just had a bit of a `shock`.
+- Must come as a hell of a `shock`.
+- Recent hours have been a `shock`.
+- `Shock` treatments every 2 hours.
+- The punishment is `shock`-lashing.
+- Electro-`shock` therapy, my friend.
+- It was an awful `shock` to me, too.
+- My `shock` baton has got your back.
+- You deactivated the `shock` collars.
+- His madness....could be from `shock`.
+- This was a big `shock`, for all of us.
+- Today... now this might `shock` you...
+- Well, let's get the `shock` over with.
+- Your chancellor is going into `shock`.
+- The table settings jump from the `shock`.
+- You're not, this is natural - it's `shock`.
+- You've had a bit of a `shock`, haven't you?
+- What a `shock` -- i don't have a right to...
+- You know you just do this for `shock` value.
+- It was probably caused by that electric `shock`.
+- This one holds the record for `shock` treatments.
+- It's just that, uh, this might be a `shock` to you.
+- It's just there's, uh, it's likely to be a `shock`.
+- Not another word from the `shock`, yes it would be.
+- Did you have too many and you fear it may `shock` me?
+- It's just the `shock` of seeing me after three years.
+- Call him up and ask - he might drop dead with `shock`.
+- You'll get a `shock` from hell if you touch that seat.
+- It's a constant `shock` to me, how small this place is.
+- We used electro- `shock` to produce a vegetative state.
+- I don't think we'll need to `shock` you, but just in case.
+- In the `shock` of this brilliant move, i forgot something.
+- It sends a `shock` whenever it senses a drop in blood flow.
+- Insulin `shock` treatment is an extreme measure, mr. holland.
+- Imagine the `shock` of suddenly existing in a whole other world.
+- Heather and kurt were a `shock`, but martha dumptruck, get crucial!
+- I've had a `shock` recently, and i'm only beginning to get over it.
+- The doctor said he was in some kind of strange `shock` when he died.
+- Well--enjoy the natural, honest, unrehearsed result--surgical `shock`.
+- I'm a little in `shock`, quite frankly... why are you doing this to me?
+- When nando died--it was so sudden--i was kind of in `shock` for awhile.
+- I'm at a stage where the audience expects me to constantly `shock` them.
+- Is it true they blacked out the whole county giving you electro-`shock`?
+- That nerve `shock` can kill -- but it can also restore the damaged mind.
+- I realize this is a `shock`, but really, rowan - you never even knew her.
+- He said only another emotional `shock` could do it, and probably wouldn't.
+- I was stupid with `shock` -- not knowing whether to run or start laughing.
+- You haven't yet started to think of it as my "gratuitous need to `shock`."
+- If you don't calm the hell down i'm gonna strap you in for electro-`shock`!
+- Would it be fair to say that when she did find out it was a `shock` to her?
+- He just said...that i'd `shock` eugene and then things would change for him.
+- The patient is revived from the coma by a violent overwhelming nerve `shock`.
+- I enjoyed seeing the `shock` on their poor faces when they realized who i was.
+- Now take your electro-`shock` and you'll be back at the space center in no time.
+- A trauma, `shock` or... you haven't shown him any of the films you make, have you?
+- The `shock` shifted the orbit of <u>this</u> planet and everything was laid waste.
+- They said that's not such a good idea, the `shock` alone could -- give me a mirror...
+- Feed them garlic and they'll go into anaphylactic `shock` -- so what do you use, then?
+- Or a spaghetti-filled grilled cheese sandwich and `shock` batons to control the criminals.
+- If he tries to get away with warp drive, he's really in for a `shock`... tractor beam, aye!
+                 

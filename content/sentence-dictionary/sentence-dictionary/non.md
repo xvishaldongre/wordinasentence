@@ -1,0 +1,81 @@
+---
+title: "non in a sentence | non example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "non"
+---
+- We are `non`-refundable.
+- Fiction or `non`-fiction?
+- Smoking or `non`-smoking?
+- This is `non`-negotiable.
+- Dome pear-igg-`non` it is.
+- Its a `non` zero sum game.
+- Its a `non` zero-sum game.
+- Mais `non`, c'est pour toi.
+- Prima `non` l'aveva con se.
+- It's kind of `non`-autistic.
+- On the `non`-stick surfaces.
+- Outer door `non`-responsive.
+- A `non`-writing producer.
+- `Non`-alcoholic malt beverage?
+- The pursuit of `non`-violence.
+- Computers are `non`-functional.
+- [i told you, `non`-negotiable.]
+- A `non`-terrestrial intelligence.
+- `Non`, `non`... je vous remercie...
+- However, you are also `non`-en-...
+- I speak to you on ze phone, `non`?
+- You know me, i'm `non`- political.
+- One hundred grand, `non`- negotiable.
+- To create a `non`-elected government.
+- `Non`-lethal, just to cover one's ass.
+- Rahesh `non` never existed, mr. meeks.
+- Sir, the shields... `non`- responsive.
+- So you�re not at a `non`- profit firm?
+- "blue book `non`-disclosure agreement."
+- Followed by `non`-human manifestations.
+- Highly unstable in its `non`-solid form.
+- Looks like a healthy `non`-mutant to me.
+- Or, actually, its official `non`-policy.
+- The cops are `non`-negotiable, ippolito.
+- What about, ah, `non`-union occupations?
+- Are you telling me i'm a - "`non`-smoker"?
+- Nan-- is there a `non`-standard treatment?
+- The transporter beam is `non`-operational.
+- How did that happen to a `non`-party member?
+- La petite m�a l�air assez bien foutue, `non`?
+- You stare at him `non`-stop, like every lunch.
+- I got to say i love seeing you `non`-believers.
+- I'm sort of a `non`-gentleman's `non`- gentleman.
+- Tv battles between `non`-predator fish and divers.
+- But a toothbrush is a `non`-lethal object, isn't it?
+- It's too involved; a lifetime of `non`- involvement.
+- She's a professor of `non`-linguistic communication.
+- You know, monsieur mercier, this is all `non`-sense.
+- I am poleaxed and in a `non` compos mentis condition.
+- `Non`-violence means co-operation when it is possible.
+- Right, we had to attach each neuron `non`-sequentially.
+- Don't worry it's a `non`-dairy sauce made from soy milk.
+- Your honor, the witness' response was `non`-responsive...
+- I made nachos with `non`-fat cheese and they're almost gone.
+- `Non` e questo il luogo per le vostre conversazioni private!
+- ♪ i wish i'd done more for `non`-whites ♪ you're wrong, gaia.
+- I do know, ryan, this is `non` addictive so you mustn't worry.
+- The alarm will trigger if the system detects any `non`-w.a.s.p.
+- What if we don't know anything about someone like rahesh `non`?
+- He means that strictly in a `non`- prison-movie type of way.
+- Then you'll understand why `non`-psychotropic edibles, aka food.
+- At that time, i tended to express my feelings `non`- verbally.
+- Make the thing `non`-lingual, so everyone gets a handle on it.
+- Our patients are decent, `non`-violent people with a real problem.
+- If i'm so all-used-up ben, why do you try to hook me up `non`-stop?
+- Something `non`- human, but intelligent... y'all could be more specific.
+- My people have a strict policy of `non`-interference with other cultures.
+- The suit compartments are in a `non`-oxygenated, zero gravity atmosphere.
+- The viceroy has agreed to your release if you will speak for `non`- violence.
+- But do you really believe you could use `non`-violence against someone like hitler?
+- He has to find `non`-smoker's meetings that used to be almost impossible, you know?
+- `Non`- specific mud traces of asphalt, oils, blah, blah... sand and... carnuba wax.
+- Then again, maybe things are even worse than we've written-- my `non`-denial denial.
+- This show was created, conceived by you, a `non`-threatening african- american male.
+                 

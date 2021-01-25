@@ -1,0 +1,54 @@
+---
+title: "nineteen in a sentence | nineteen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nineteen"
+---
+- I am really `nineteen`.
+- `Nineteen` eighty four.
+- A `nineteen`-inch drill.
+- `Nineteen` zero and nine.
+- Twenty-one is `nineteen`.
+- A `nineteen`-year-old kid.
+- Are you really `nineteen`?
+- How do you say `nineteen`?
+- Divorced `nineteen` seventy.
+- `Nineteen` fifty -- what year?
+- `Nineteen` years of this shit?
+- For a wife of `nineteen` years.
+- `Nineteen` months i been sober.
+- That's right, `nineteen` years.
+- Okay, sometimes i'm a `nineteen`.
+- But at `nineteen` percent interest!
+- `Nineteen` twenty-five, to be exact...
+- The station complement was `nineteen`.
+- `Nineteen`, if you hang me with my men.
+- January seventh... `nineteen` forty-two.
+- They've shown it about `nineteen` times.
+- You've been asleep for `nineteen` hours.
+- I got it pitchin' a `nineteen`-inning game!
+- If i say go to twenty-one, go to `nineteen`.
+- `Nineteen` senny-nine, you know what i made?
+- At `nineteen` hundred hours an alarm tripped.
+- `Nineteen` and a half pounds, not counting ammo.
+- `Nineteen`... or thereabouts... how old are you?
+- Every channel is making like it's `nineteen` fifty.
+- For `nineteen` years... you work at cook's chicken?
+- I'd say you're about `nineteen`, twenty, am i right?
+- Date of birth, november the fourth `nineteen`-sixty-two.
+- You and one hundred `nineteen` other fortunate individuals.
+- Gold leaf, art nouveau, french, early `nineteen` hundreds...
+- My son frank, he was married when he was `nineteen` years old.
+- That was `nineteen` years ago, and they were simple gambling pinches.
+- Okay, i'm not sayin' i didn't - we had us a deal here for `nineteen`- five.
+- From your review of the hospital records of may twelfth `nineteen` seventy-six.
+- August seventh `nineteen` and sixty-six to july second `nineteen` and sixty-eight.
+- My mother told him i was still at high school, after i told him i was `nineteen`.
+- `Nineteen` thirty minutes...what time is it now... seven-thirty tomorrow evening.
+- Brought against sparazza by israel's mother laverne who was `nineteen` at the time.
+- In the back of a `nineteen` and thirty- one stretch hudson with a big ole' trailer.
+- `Nineteen` eighty, eighty-one...eighty-two...six months of eighty-two...who's there?
+- The enterprise is only `nineteen` hours from communications range with the federation...
+- ...i was just a young cat back then, about `nineteen`, bussin' tables in this very place.
+- Fifty bucks for the box, and i'm doin' you a -- leather purse... `nineteen` bucks at sears.
+                 

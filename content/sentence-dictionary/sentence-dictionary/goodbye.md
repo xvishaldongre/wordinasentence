@@ -1,0 +1,107 @@
+---
+title: "goodbye in a sentence | goodbye example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "goodbye"
+---
+- `Goodbye` bruce wayne.
+- `Goodbye`, captain ...
+- `Goodbye`, miss paine.
+- `Goodbye`, mr. baxter.
+- `Goodbye`, mr. gillis.
+- `Goodbye`, mr lombard.
+- `Goodbye`, mr. rieper.
+- `Goodbye`, mrs. smith.
+- `Goodbye`, my darling.
+- `Goodbye`... too late.
+- Oh -- `goodbye`, lion.
+- So `goodbye`, focusyn.
+- Thanks, and `goodbye`.
+- Time to say `goodbye`.
+- Yeah, well, `goodbye`.
+- `Goodbye`, dr. lecktor.
+- `Goodbye`, dr. thurman.
+- `Goodbye`, mr. hockley.
+- `Goodbye`, mr. sampson.
+- I had to say `goodbye`.
+- Now tell him `goodbye`.
+- `Goodbye` and thank you.
+- ... `goodbye`, chance...
+- `Goodbye` ... divine ...
+- `Goodbye`, gifted class.
+- `Goodbye`, young fellow.
+- `Goodbye`, your majesty.
+- Hello, `goodbye`, roger.
+- I came to say `goodbye`.
+- I said `goodbye` to you.
+- Give me a `goodbye` kiss.
+- `Goodbye`, mistress leia.
+- `Goodbye`, mr. jefferies.
+- `Goodbye`, mr. sheldrake.
+- `Goodbye`, m'sieu filiba.
+- No `goodbye`, no nothing.
+- Uh, `goodbye`, everybody.
+- What if i said `goodbye`?
+- You didn't say `goodbye`.
+- `Goodbye`'s make me crazy.
+- H and g. hi and `goodbye`.
+- I can't say `goodbye` yet!
+- I guess this is `goodbye`.
+- I'm telling you `goodbye`.
+- Continued `goodbye`, daddy.
+- Kiss the 85 thou `goodbye`?
+- Raoul -- `goodbye`, father.
+- They want to say `goodbye`.
+- We're not saying `goodbye`.
+- `Goodbye`, `goodbye`, `goodbye`.
+- It doesn't mean "`goodbye`."
+- Say `goodbye` to your aunts.
+- So how do you say `goodbye`?
+- `Goodbye`, mister ambassador.
+- I just came to say `goodbye`.
+- Looks like this is `goodbye`.
+- I don't want to say `goodbye`.
+- I got you a `goodbye` present.
+- I would like to say `goodbye`.
+- You mean this is -- `goodbye`?
+- `Goodbye`.... `goodbye`, my wife.
+- I just wanted to say `goodbye`.
+- When you said `goodbye` to him?
+- You like to kiss her `goodbye`.
+- Aloha means hello and `goodbye`.
+- I'll say `goodbye` to you, tita.
+- This is how he says "`goodbye`?"
+- You're welcome to say `goodbye`.
+- You weren't gonna say `goodbye`?
+- `Goodbye`, my angel ... my angel!
+- I just came out to say `goodbye`.
+- I think `goodbye` is traditional.
+- It's a kiss... `goodbye`... what?
+- I wanted to say `goodbye` to you.
+- Leaving without saying `goodbye`.
+- Marge, ripley's saying `goodbye`.
+- To help us say `goodbye` to rafe?
+- Wanted to say `goodbye` to him...
+- Why does it have to be `goodbye`?
+- `Goodbye`, m'sieu la-- oh, yes ...
+- Okay...same as usual... `goodbye`.
+- Yes, i'm leaving now -- `goodbye`.
+- If somerset wants out, "`goodbye`."
+- Kiss your ass `goodbye`, reinhardt.
+- Or that you didn't say '`goodbye`'?
+- `Goodbye`--madame colet and company!
+- I was just sayin' `goodbye` to sean.
+- Look i just wanted to say `goodbye`.
+- Another martini -- `goodbye`, my boy.
+- Didn't get a chance to say `goodbye`.
+- `Goodbye`, fraulein, `goodbye`, madame!
+- I must go now -- `goodbye` -- thanks.
+- So i guess it's `goodbye` for awhile.
+- Want to say `goodbye` to the colonel?
+- I'd have liked to have said `goodbye`.
+- I'm really good at `goodbye` presents.
+- Without even letting me say `goodbye`?
+- Hello and `goodbye`, that's all you do.
+- Helena, i'm so sorry -- `goodbye` arnie.
+- I'd say `goodbye`, but what's the point?
+                 

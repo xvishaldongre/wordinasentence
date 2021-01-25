@@ -1,0 +1,86 @@
+---
+title: "midnight in a sentence | midnight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "midnight"
+---
+- It's after `midnight`.
+- It's almost `midnight`.
+- It's `midnight`, harry.
+- As of `midnight` tonight.
+- See you around `midnight`.
+- Curfew begins at `midnight`.
+- I'm off at `midnight` and...
+- I waited up till `midnight`.
+- Stop just before `midnight`.
+- Did you say after `midnight`?
+- I should be gone by `midnight`.
+- Come to my window at `midnight`.
+- But it's not even `midnight` yet!
+- Get the... `midnight`... express.
+- I'm no `midnight` cowboy, y'know.
+- It's ten minutes past `midnight`.
+- Red, maybe a deep `midnight` blue.
+- Last one to the `midnight` star buys.
+- They were just `midnight` pork chops.
+- She called up at `midnight` last week.
+- Yeah, but no presents till `midnight`.
+- What is this, a `midnight` study group?
+- He's got 'til `midnight` tonight, nicky.
+- I'm leaving the house around `midnight`.
+- That'll be exactly half past `midnight`.
+- You think we'll get there by `midnight`?
+- I'll meet you at the station--`midnight`.
+- Oh, dad, the points expire at `midnight`.
+- At `midnight` tonight, he will kill again.
+- Get there at exactly `midnight`.</i> hello?
+- Came through a store called after `midnight`.
+- Yes, but isn't `midnight` a little excessive?
+- I'll catch the last bus leaving at `midnight`.
+- Stella... are you the `midnight` star herself?
+- Been on the road opening for "`midnight` hore".
+- China will think it happened before `midnight`.
+- "we'll settle this at `midnight` on yellow hill."
+- Who was there on the dot, at twelve `midnight`...?
+- Burn the `midnight` oil tryin' to find who done it?
+- If you're right, you can pick him up at `midnight`.
+- Baby, we're gonna be up by five hundy by `midnight`.
+- I'm always home by `midnight` and he's always asleep.
+- ♪ she took the `midnight` train ♪ save the theatrics.
+- He left the club with his girlfriend about `midnight`.
+- I'll pick you up in front of the school at `midnight`.
+- She could pay you a `midnight` visit -- you always do.
+- And now she's home, `midnight`, frogface, or toothless?
+- Well, what do you say we get a little `midnight` snack?
+- Shall we say the "stroke of `midnight`" no pun intended?
+- Now, look here, norm ... you've got a `midnight` matinee.
+- The prison section has been on half-air since `midnight`.
+- Hurricane's due after `midnight` and we're still going out?
+- It's `midnight` and the motherfucker's ordering an apertif.
+- We're meeting armitage there for the `midnight` floor show.
+- Everything from `midnight` on-- --yeah, the goddamn stoners!
+- I'm still tingling all over from our little `midnight` swim.
+- Just do what i told you and meet me back here at `midnight`.
+- Relax, don't jam it... hong kong `midnight`, happy new year.
+- If you find her, tell her to come, it's almost `midnight`.
+- At `midnight` we crept out of the forest and into the village.
+- But unless the will shows up by friday `midnight`, it's theirs.
+- Effective immediately, you three work desk jobs till `midnight`.
+- Tee, the beautiful babies don't work wednesdays `midnight` to six.
+- I'll give you until `midnight`, mr. stone, but not one minute more.
+- Soon it will be `midnight` and the city will be mine -- and vigo's.
+- He brought me in his carriage, and he will call for me at `midnight`.
+- He talked me into sneaking out for a `midnight` walk on the steel pier.
+- I <u>live</u> for `midnight`, when i can tear another of those suckers off.
+- If `midnight` comes before we can get to him, well, then we go together.
+- I know something not even the police know--what's in the park at `midnight`.
+- Well you don't drive around from `midnight` until noon the next day, benjamin.
+- I mean, there's the diapers and the burping and the `midnight` feedings... am i?
+- I predict that the world will end at the stroke of `midnight` on new year's eve.
+- We may go out for coffee after the meeting so don't expect us before `midnight`.
+- Yeah, well, if he says that all that flab turns into dick at `midnight`, he's a liar.
+- It seems he was attacked by a maniac, maybe two or three maniacs, just after `midnight`.
+- Say an hour for the janitors, then one more just to be safe... we'll go in at `midnight`.
+- I have ordered a drill of the royal guard for `midnight`, and must be clear-headed for it.
+- Does that start exactly at `midnight` tomorrow, or could you hold off for a few days maybe?
+                 

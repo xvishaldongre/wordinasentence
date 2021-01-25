@@ -1,0 +1,56 @@
+---
+title: "lessons in a sentence | lessons example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lessons"
+---
+- [grunts] ...`lessons`.
+- He's got piano `lessons`.
+- I finally took `lessons`.
+- Just the music `lessons`.
+- I'll have to get `lessons`.
+- Morning swimming `lessons`.
+- How are the `lessons` going?
+- She's taking singing `lessons`.
+- So we'll learn valuable `lessons`.
+- You think i should take `lessons`?
+- Do me a favor... no more `lessons`.
+- I don't think i need any `lessons`.
+- I'll take some `lessons` this time.
+- It's part of the `lessons` of life.
+- Maybe you oughta give me `lessons`.
+- He gave me many `lessons` about fire.
+- Teach other kids `lessons` and stuff?
+- Relax, i've been giving him `lessons`.
+- What about their philosophy `lessons`?
+- Advanced `lessons` to select clientele.
+- I'm paying you to give cello `lessons`.
+- I'm going to give you dancing `lessons`.
+- Who's been giving you history `lessons`?
+- You learned her `lessons` better than i.
+- Didn't have to give that one any `lessons`.
+- Anyone here need `lessons`, just talk to me.
+- You'll finally let me take karate `lessons`?
+- He learned his `lessons` quickly and left me.
+- One of his daddy's bible `lessons` i imagine.
+- Save your philosophy `lessons`, dr. santiago.
+- Do you offer any private `lessons` for riders?
+- Maybe somebody around here gave him `lessons`.
+- Besides the hebrew `lessons`... where are they?
+- I never went to sewin' `lessons` all them times.
+- Why use mozart to teach me `lessons` in humility?
+- The `lessons` we've learned are all in plan-r.
+- Perhaps you should give me some `lessons` in that.
+- Prefects will accompany you to and from `lessons`.
+- Singing `lessons`, acting `lessons`, dancing `lessons`.
+- Some `lessons` in obedience for the future baroness.
+- So i had ten years of dramatic `lessons`, diction, dancing.
+- Vernon can s'port 'em and buy 'em `lessons` on the clarinet!
+- Who�s ever heard of dance `lessons` for a wedding, honestly?
+- For five years i had this girl under training; singing `lessons`!
+- I want for our children to go to private schools and take music `lessons`.
+- His fingers were red from fighting and he spoke like a schoolboy at `lessons`.
+- But i'm afraid you'll have to 'kiss off' the rest of your `lessons` this afternoon.
+- All so i could have tap `lessons` and be in the pageant -- the same one you were in.
+- We're not going to a singing lesson, she's just gonna start taking singing `lessons`.
+                 

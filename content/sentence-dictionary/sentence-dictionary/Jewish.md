@@ -1,0 +1,54 @@
+---
+title: "Jewish in a sentence | Jewish example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jewish"
+---
+- You think i'm `jewish`?
+- She don't look `jewish`.
+- `Jewish`, `jewish`, `jewish`.
+- Forget the `jewish` stuff.
+- They're not that `jewish`.
+- `Jewish`... who's the girl?
+- You ever fuck a `jewish` girl?
+- `Jewish` men like to get it.
+- That's a `jewish` name, isn't it?
+- My `jewish` friend's grandmother did.
+- `Jewish` girls like to give head, right?
+- May i ask if you are `jewish`, mr lombard?
+- Get them out to the `jewish` community stat.
+- Lombard, this is not a `jewish` name, is it?
+- I'm as `jewish` as fucking tevye this driveway.
+- Do you accept anyone of the `jewish` persuasion?
+- From `jewish` folk poetry, a song cycle... panes?
+- We need more `jewish` police... who's recruiting?
+- Many persons of the `jewish` faith find it quite...
+- The point is, the modern world is a `jewish` disease.
+- Can anybody imagine why i would say a `jewish` prayer?
+- Did you hear the one about the greek-`jewish` wedding?
+- They asked me what number means "good luck" in `jewish`.
+- Great, wallow in guilt, you <u>sure</u> you're not `jewish`?
+- That `jewish` atomic clock stuff ate up a lot of our budget.
+- I don't have that... what's the `jewish` word for "chutzpah"?
+- I think anti-semitism today is largely a `jewish` phenomenon.
+- The other night you said the modern world is a `jewish` disease.
+- What's that go to do with...i've gone out with a, with `jewish` women.
+- ♪ and they say you don't tug on superman's cape ♪ a `jewish` carpenter.
+- As you know, cindy, thirteen is a mystical number in the `jewish` faith.
+- '`jewish` musicians are good businessmen with few scruples, lacking roots.'
+- In the third reich, weren't a number of high-ranking nazis of `jewish` origin?
+- This is his strength.... take the great `jewish` minds: marx, freud, einstein.
+- Well, they think, she isn't `jewish`, but she's well to-do, a nice old family.
+- God forbid he should have a nice `jewish` girl come eat by him once in a while.
+- That's why the eastern, read `jewish`, publishing establishment won't touch it.
+- The `jewish` worker's salary, you pay it directly to the ss, not to the worker.
+- ...and the opportunity to help my brothers and sisters in the `jewish` community.
+- What about this: '`jewish` musicians lack a genuine affinity with our music.'
+- I think the whole `jewish` people were permanently scarred by what happened on mt.
+- Well, if it isn't enid and rebecca, the little `jewish` girl and her aryan friend.
+- After a woman has been with a `jewish` man, she never wants a normal partner again.
+- Listen to this: 'the jew composer schonberg is admired by the `jewish` international.'
+- Really, who but a jew would want to kill ilio manzetti simply because he was `jewish`?
+- The `jewish` bankers over there should be persuading america to declare war on germany!
+- According to `jewish` law, the blood and limbs are considered to be part of the human being.
+                 

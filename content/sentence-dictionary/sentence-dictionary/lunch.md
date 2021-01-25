@@ -1,0 +1,107 @@
+---
+title: "lunch in a sentence | lunch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lunch"
+---
+- I already ate `lunch`.
+- I have a `lunch` date.
+- I take a long `lunch`.
+- Thank you for `lunch`.
+- But what about `lunch`?
+- I'll pack us a `lunch`.
+- Let's get some `lunch`.
+- Will you go to `lunch`?
+- But it's almost `lunch`.
+- Great place for `lunch`.
+- `Lunch` in a restaurant.
+- `Lunch`, same as always.
+- `Lunch` should be ready.
+- Tell him i'm at `lunch`.
+- You're the `lunch` lady.
+- I'll just eat my `lunch`.
+- It's <u>your</u> `lunch`.
+- I've already had `lunch`.
+- Ok, we'll go for `lunch`.
+- Time for `lunch` i think.
+- "we'll all have `lunch`."
+- Can i take you to `lunch`?
+- Cronin's okay for `lunch`?
+- I had `lunch` with joanna.
+- Maybe we can have `lunch`.
+- You mean the `lunch` room?
+- You're not having `lunch`?
+- Awesome `lunch`, robot mom.
+- Did you have a big `lunch`?
+- He went to pick up `lunch`.
+- I'll be home after `lunch`.
+- I'm waiting for my `lunch`.
+- I walk with you to `lunch`.
+- The faz's favorite `lunch`.
+- To `lunch` and then asgard.
+- Who wants to go to `lunch`?
+- You thinking about `lunch`?
+- I had `lunch` in town today.
+- I have `lunch` with friends.
+- I'm eating my `lunch`, okay?
+- The worst thing was `lunch`.
+- Well i'm on my `lunch` hour.
+- Who'd you have `lunch` with?
+- Have to pass on that `lunch`.
+- Louise will bring me `lunch`.
+- `Lunch` time sleeping beauty.
+- Sorry about the long `lunch`.
+- Well, maybe it's her `lunch`.
+- We're just finishing `lunch`.
+- Come on, i'll buy you `lunch`.
+- I bet you haven't had `lunch`.
+- I don't want to go to `lunch`.
+- Out to `lunch` with the girls.
+- She made me `lunch` every day.
+- Are you thinking about `lunch`?
+- Bit of `lunch` and then asgard.
+- I'll have `lunch` ready by one.
+- That's why people have `lunch`.
+- We could have `lunch` together.
+- We'll `lunch` at the sea shore.
+- What are you doing for `lunch`?
+- Would you like to have `lunch`?
+- You haven't eaten your `lunch`.
+- Hey, look-- let's go to `lunch`.
+- That `lunch` was the worst, huh.
+- That's your ration till `lunch`.
+- We should have `lunch` sometime.
+- Come, let me take you to `lunch`.
+- Get `lunch` for the rest of them.
+- I -- i was just going to `lunch`.
+- So glad you are free for `lunch`.
+- So, who'd you go to `lunch` with?
+- What's a `lunch` cost these days?
+- A four hundred dollar `lunch` tab!
+- Finding a place to eat at `lunch`.
+- He ain't eating beans fer `lunch`.
+- He wants to have `lunch` tomorrow.
+- How was your `lunch` with charlie?
+- I'll bring him back after `lunch`.
+- I'm having `lunch` with him today.
+- It's not... go to `lunch`, george.
+- You cut that up fer `lunch`, luke.
+- You must eat `lunch` pretty early.
+- Define `lunch` or be disintegrated.
+- I can make that in a `lunch` break!
+- I'll drop by your `lunch` tomorrow.
+- Isn't mr. lowery back from `lunch`?
+- I try not to drink at `lunch`-time.
+- But i've already got a `lunch` date.
+- He said who's going to make `lunch`?
+- I didn't have `lunch` with jennifer.
+- I usually take `lunch` by the river.
+- Lisa, would you join us for `lunch`?
+- Maybe we can stop there for `lunch`.
+- The guy's completely out to `lunch`.
+- I get off for `lunch` in ten minutes.
+- Just before `lunch` on the final day.
+- She ate a pistol for `lunch` one day.
+- Well, i am going to go after `lunch`.
+- Worry about your own goddamn `lunch`!
+                 

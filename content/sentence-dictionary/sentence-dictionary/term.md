@@ -1,0 +1,74 @@
+---
+title: "term in a sentence | term example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "term"
+---
+- Whats this `term` here?
+- That a technical `term`?
+- What's this `term` here?
+- Wreck is a harsh `term`.
+- A vulgar `term`, but yes.
+- I hate that goddamn `term`!
+- A vulgar pop `term`, but yes.
+- It's a common medical `term`.
+- I have no short-`term` memory.
+- You have to think long `term`.
+- Ooh, we don't like that `term`.
+- The correct `term` is babes, sir.
+- The `term` "deliver" is so weird.
+- This will get me a second `term`.
+- I don't like the `term` boyfriend.
+- The official `term` is "psychotic".
+- I have excellent long-`term` memory.
+- I never heard of that `term` before.
+- Is it worth a one-`term` presidency?
+- This time i'm in for the long `term`.
+- Not right in the middle of the `term`.
+- See, i have no short- * `term` memory.
+- She was just long-`term` leasing' you.
+- The game teaches long-`term` strategy.
+- A long-`term` contract with no options.
+- Long-`term` parking charges by the day.
+- It's this legal `term` called "divorce."
+- We don't use the `term` 'negro' anymore.
+- Do you know where that `term` comes from?
+- I think we used the `term` [bleep] a lot.
+- Oh, dear god... was the child full `term`?
+- I'm interested in long-`term` expectations.
+- Is the business `term` of the 90's, my man!
+- The official `term` for it is "clusterfuck".
+- The technical `term` for you is "chimera"...
+- Second of all, we don't like that `term`.
+- I'm not too concerned with long `term` plans.
+- By the way, add a life `term` to my sentence."
+- Soon this... what is your charming `term` -- ?
+- I prefer the `term` "artificial person" myself.
+- They don't have the long-`term` vision anymore.
+- Long `term` psychic or physiological repercussions?
+- The `term` "menace to society" was made up for him.
+- The latin `term` for that sentiment is "carpe diem."
+- Fifteen years, although i prefer the `term` "assassin."
+- I believe "heinous bitch" is the `term` used most often.
+- When you started noticing your short `term` memory loss.
+- I mean, love, it's like a `term` that gets thrown around.
+- Isn't there a psychological `term` for that, dr. johnson?
+- You never... you never heard that `term`... look at that.
+- Miss emma is a street `term` used by junkies for morphine.
+- There is a name, a `term` for your kind, the likes of you.
+- Chronic alcoholism ~ one cause of short `term` memory loss.
+- Adam had a five hundred dollar `term` life insurance policy.
+- I mean, what kind of long-`term` goals can you possibly have?
+- I prefer the more ancient `term`, planetologist... noble born.
+- Now remember, your short `term` memory may have been affected.
+- The problem, mr. president, is that it's a short-`term` solution.
+- You got us off the hook in the short `term`, - hey, you need to rest.
+- Like to think of myself more as a titan-killing, long-`term` booty call.
+- Folks use that `term` for everything but what it means: who's eating who.
+- There is a more ancient `term` you might keep in mind -- "noble born."
+- Did i use the `term` "sexual conquests" or is that your way of putting it.
+- Now i'm thinking i should just give up, serve out my `term`, what the heck?
+- Some'll charge you more'n that, go as high as six for five on a short-`term` loan.
+- Two months to the end of his `term`-- and foley has to go and die on us-- great saints!
+- But it's more of a long `term` thing -- right now we have to focus on more immediate goals.
+                 

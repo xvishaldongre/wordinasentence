@@ -1,0 +1,107 @@
+---
+title: "judge in a sentence | judge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "judge"
+---
+- He doesn't `judge` me.
+- He's called a `judge`.
+- How about it, `judge`?
+- `Judge` -- just a sec.
+- We don't `judge` here.
+- `Judge`, i want to... no!
+- His uncle's chief `judge`.
+- Over here, `judge` munson.
+- Don't believe him, `judge`.
+- So, don't `judge` yourself.
+- You know `judge` hainey.
+- Bobby `judge` is a good boy.
+- I'll be the `judge` of that.
+- We gotta go see the `judge`.
+- `Judge` me by my size do you?
+- I swear, as god is my `judge`.
+- I will be the `judge` of that.
+- Let me be the `judge` of that.
+- That's up to the `judge`, gus.
+- We're not supposed to `judge`.
+- Yeah man, but where's `judge`?
+- You must `judge` for yourself.
+- You shouldn't `judge`, brenda.
+- `Judge` gave 'em the long ride.
+- The `judge` was very impressed.
+- I ain't gonna shoot you `judge`.
+- Honey, sing it for `judge` tower.
+- I can `judge` only by what i see.
+- They will be the `judge` of that!
+- Don't `judge` a book by its cover.
+- The `judge` came up with a number.
+- The `judge` set the verdict aside.
+- I don't preach and i don't `judge`.
+- [sherlock] i don't mean to `judge`.
+- You mustn't `judge` us too harshly.
+- Was there any art on `judge` ramsey?
+- What gives you the right to `judge`?
+- You know i `judge` myself every day.
+- Give a deposition to the `judge`.
+- I'll go to a movie with you, `judge`.
+- `Judge`, hold on, is your phone safe?
+- Let me be the `judge` of that, madam.
+- Some `judge`... who's the old geezer?
+- `Judge` threw out the cases each time.
+- The `judge` has put you under my care.
+- They were empty... what it be `judge`.
+- But god's law is not for us to `judge`.
+- So... we understand each other `judge`?
+- I say yes because who is to `judge`?
+- C'mon `judge` we got to start somewhere.
+- Hard to `judge` how these things happen.
+- Why not let your publisher `judge` that?
+- A `judge` ruled that that was entrapment.
+- Don't `judge` a comic book by it's cover.
+- So we can `judge` them but not ourselves?
+- You'll find your `judge` embalmed in wax!
+- It's my head, i'll be the `judge` of that.
+- The `judge` sits in robes in a big chair..
+- You can't `judge` him by modern standards.
+- What are you, a dance `judge` or something?
+- A `judge` wouldn't believe you for a second.
+- Jesus christ... <u>that</u> was the `judge`?
+- Maybe you should sleep with the `judge` too.
+- On the deposition for the `judge`, bernie...
+- The `judge` had a thing about sex offenders.
+- The `judge` should have put you behind bars!
+- You're a fine `judge` of character, charles.
+- Boy, are you ever a shitty `judge` of people.
+- Did you see a lawyer and go before a `judge`?
+- Mr vitovetch is a good friend of the `judge`.
+- They're deadbeats, you can't `judge` on that.
+- Wasn't she the `judge` at my divorce hearing?
+- Guilty verdict set aside by presiding `judge`.
+- You were alright `judge`, better than alright.
+- Are you always sucha good `judge` of character?
+- He won another blue ribbon and bit the `judge`.
+- I don't `judge` people on their worst mistakes.
+- I got nothin' more to say till i see a `judge`.
+- Maybe a couple boxes of shells for the `judge`.
+- By producing slick video appeals to the `judge`.
+- How much the pigs pay you for this one, `judge`?
+- If i am your `judge`, i cannot be your champion.
+- `Judge`: do you know him to be a reasonable man?
+- That hardly makes you a good `judge` of character.
+- You ain't the `judge` and executioner around here!
+- You just can't let the world `judge` you too much.
+- For our purposes, you may consider me your `judge`.
+- `Judge` must have money riding on the championship.
+- But as we know i'm a very poor `judge` of character.
+- He was a good `judge`, but that was a long time ago.
+- It's only a few words mumbled over you by a `judge`.
+- One kicked out, one the `judge`, you say... what two?
+- I `judge` military matters, captain winthrop, not you.
+- `Judge` wakefield, it's an honor to handle it for you.
+- The `judge` went for motherhood straight down the line.
+- Hotel for my parents, the tent, the band, the `judge`...
+- I have to send it back to the `judge` with my evaluation.
+- I once had to `judge` a theta chi tighty- whitey contest.
+- So a hot robot who clouds your ability to `judge` her al?
+- The `judge` couldn't have been clearer - no ghostbusting.
+                 

@@ -1,0 +1,76 @@
+---
+title: "authority in a sentence | authority example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "authority"
+---
+- I have the `authority`.
+- ...has `authority` here.
+- You have no `authority`.
+- I'm an `authority` on it.
+- Override on my `authority`!
+- Override on my `authority`.
+- Who is in `authority` here?
+- But you have no `authority`!
+- Give me the `authority` now.
+- From the highest `authority`.
+- I don't have the `authority`.
+- No one wants the `authority`.
+- Why am i such an `authority`?
+- Shocking abuse of `authority`.
+- We don't have any `authority`.
+- Do i need any more `authority`?
+- On whose `authority`, corporal ?
+- Then its `authority` is in doubt.
+- If it's a question of `authority`.
+- That's all the `authority` i need.
+- `Authority` still makes me nervous.
+- But i have her complete `authority`.
+- You don't even have the `authority`.
+- Your `authority` cancelled herewith.
+- This is from the highest `authority`?
+- I don't have that `authority` anymore.
+- Such `authority` with the ape-man boy.
+- We have no `authority`-- we're at war.
+- I lack the `authority`, buckaroo banzai.
+- You don't have the `authority` to do that.
+- Or you willingly transfer your `authority`.
+- Captain renault, i am under your `authority`.
+- You don't have any `authority`-- <u>jack</u>!
+- I believe corporal hicks has `authority` here.
+- You're talking to an `authority` in that area.
+- He is the fifth leading `authority` in his field.
+- Li'l joker, he just got out of youth `authority`.
+- Scotland yard, interpol, every dutch `authority`.
+- There is no one to challenge my `authority` here.
+- You have no `authority` to make a deal like that.
+- Miss blake, by `authority` of the council, - where?
+- Someone with `authority` i'd imagine, wouldn't you?
+- I'm reporting you to the .....transit `authority`!!!
+- Nothing has changed as far as <my> `authority` goes!
+- You have no `authority`... the council can't hold me!
+- He's simply unable to submit to any higher `authority`.
+- I come as the king's servant, and with his `authority`.
+- And ultimate `authority` in determining your punishment.
+- Are you going to shut down the beach on your own `authority`?
+- Having a monkey as the only parental `authority` in your life.
+- It's been over three hours -- you haven't got the `authority`.
+- Please advise your salvage `authority` pending registry check.
+- The united nations has voted `authority` to the united states.
+- <b>no one</b> is to challenge that `authority`, <b>no one!</b>.
+- ...have a, i have a terrific problem with `authority`, you know.
+- They found him dead in his own cab down by the port `authority`.
+- I wanta throw the heater to announce my presence with `authority`.
+- He said no one had the `authority` to rescind the order except you.
+- What makes you such an `authority` on what i want or don't want?
+- I'm not gonna argue who's got the higher `authority` here, all right?
+- This private assurance represents the word of the highest `authority`?
+- Get life, do a little youth `authority` jolt, transfer to folsom a big man.
+- But he ain't seen my heat-- "to announce your fucking presence with `authority`"?
+- But remember, "whoever resists `authority` will bring judgement upon themselves."
+- But we cannot help you unless you submit to our learned judgment and `authority`.
+- Brilliant analyst of recent history and a world `authority` on the berlin airlift.
+- Mr. kaplan's untimely shooting has now acquired the `authority` of the printed word.
+- Without blood -- a willingness to spill it -- there's no real power, no `authority`.
+- I'll take it out of your damn <i>pension</i> if you question my `authority` one more time!
+                 

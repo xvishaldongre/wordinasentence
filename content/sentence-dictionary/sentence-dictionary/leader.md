@@ -1,0 +1,107 @@
+---
+title: "leader in a sentence | leader example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leader"
+---
+- The majority `leader`?
+- Was he their `leader`?
+- He's the clan `leader`.
+- You're a born `leader`.
+- A `leader`, like laszlo?
+- He's still our `leader`.
+- Our `leader` isn't here.
+- You were their `leader`.
+- Red `leader` standing by.
+- Take me to your `leader`.
+- You're a `leader`, clarke.
+- But you, you're a `leader`.
+- `Leader` of the sky people?
+- Yet look at their `leader`.
+- He was `leader` of our gang.
+- He will master the `leader`.
+- This guy is a cult `leader`.
+- We got to find the `leader`.
+- Band `leader` or prison guard?
+- Married an orchestra `leader`!
+- Team `leader`, this is team 2.
+- The `leader` of the dark ones?
+- Where's the majority `leader`?
+- She's their spiritual `leader`.
+- Their `leader` is some old man.
+- You seem like a noble `leader`.
+- He'll be the next clan `leader`.
+- I'm gonna need a squad `leader`.
+- They have no `leader`, let's go.
+- What kind of `leader` does that?
+- A labor `leader` like bennett?
+- Are you the `leader` of tis group?
+- Our project `leader` has vanished.
+- That is the alpha, their `leader`.
+- I have a message for your `leader`.
+- I'm right behind you, blue `leader`.
+- We get madi and kill their `leader`.
+- That's [ ] the minority `leader`.
+- Rico, i'm making you sqaud `leader` !
+- Their `leader` is some old man who...
+- There is only one `leader` in sanctum.
+- We're a world with no single `leader`.
+- I guess i'm just not a `leader` of men.
+- They also said you were their `leader`.
+- We are a world with no single `leader`.
+- Who elected you `leader` a this outfit?
+- Blodreina was a `leader` we needed then.
+- He's saying, "take me to your `leader`."
+- Is that what the cult `leader` told you?
+- Ten points for our fearless `leader` ...
+- You've driven a great `leader` insane...
+- This is gold `leader`, returning to base.
+- Mangalores don't fight without a `leader`.
+- Secretary to a `leader` of little squirts.
+- They deserve a `leader` who knows that.
+- But if we're seen beating their `leader`...
+- I repeat: this is gold `leader`, all right.
+- Those are the qualities of a true `leader`.
+- Are you the `leader` of your people, or not?
+- You could be a `leader` your people look to.
+- If there were a `leader`, i would be the one.
+- If you want mercy, i am not a `leader`, jaha.
+- That's what it means to be a `leader`, clarke.
+- Unfortunately, he's not their `leader`, though.
+- And now they're watching their `leader` burn food.
+- Simone, if we kill their `leader`, please come in.
+- They're coming to me and choose the next `leader`.
+- He's on his way to mecha you're a `leader`, clarke.
+- I repeat: this is goddamn gold `leader`... - dusty!
+- Now you're thinking like a `leader` of your people.
+- If you're gonna be a `leader` ... do the bosses wait?
+- For the kind of `leader` you've become, shakespearean.
+- If their `leader` had offered you the deal... - check.
+- They're more than just friends, he's-he's the `leader`.
+- Wait a minute - who elected you `leader` a this outfit?
+- To free you, we must destroy the `leader` of the vampires.
+- Apparently you think of me only as the `leader` of a cause.
+- Luna, you're the last of your kind, just like their `leader`.
+- What makes you think... you'll make... squad `leader`, rico ?
+- Your people would kill their own `leader` for being merciful?
+- Westerburg doesn't need mushy togetherness, it needs a `leader`.
+- Has it penetrated yours that i'm holding a gun on their `leader`?
+- Those marks remain... for the `leader` to bring the hunters home.
+- For some reason, the `leader` seems to like you, what do you want?
+- If they haven't made you squad `leader` by now, i'm sure you will.
+- So then she could teach me how to be this great military `leader`.
+- All i know is that it happened, i have a message for your `leader`.
+- Don't we need a `leader` capable of guiding us through the seasons?
+- Heather chandler was that `leader` but... what do you want from me?
+- They are disciplined, well-trained and have a charismatic `leader`.
+- Perhaps you can find out who this secret `leader` of the jesuits is.
+- Because i have been withholding i will not help you kill my `leader`.
+- I've never felt the sun on my face i have a message for your `leader`.
+- They must lay their eggs... the `leader` of skaikru must bear our mark.
+- As i am your droog and `leader`, i am entitled to know what goes on, eh?
+- As your `leader`, it's my job to keep us safe look out, i said look out!
+- Ok. you're their `leader`, and i should probably tell you that thank god.
+- Could someone restart the central this is gold `leader`, returning to base.
+- When our ship returns tonight, she's `leader` of trikru and a trusted ally.
+- So what kind of `leader` do you want to be, at least octavia won't be alone.
+                 

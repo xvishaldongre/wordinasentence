@@ -1,0 +1,70 @@
+---
+title: "Caesar in a sentence | Caesar example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Caesar"
+---
+- `Caesar`, ignore them.
+- `Caesar`, i'm leaving.
+- `Caesar`, i'm serious.
+- No, but `caesar` does.
+- We're family, `caesar`.
+- `Caesar`, i did my best.
+- `Caesar`, this is corky.
+- `Caesar`, this is crazy.
+- `Caesar`, what happened?
+- It's not here, `caesar`.
+- Just admit it, `caesar`.
+- `Caesar`, i know johnnie.
+- `Caesar` is your husband?
+- Don't be silly, `caesar`.
+- You flatter me, `caesar`.
+- `Caesar` wants me to stay.
+- `Caesar`'s mafia, isn't he?
+- Don't worry about `caesar`.
+- Has `caesar` ever seen him?
+- Look at yourself, `caesar`.
+- He wanted what `caesar` had.
+- No, `caesar`, gimme the gun.
+- `Caesar` started managing it.
+- `Caesar` calls him the driver.
+- `Caesar`, you don't know shit.
+- Hey, `caesar`, where's the key?
+- Like that fella killed `caesar`.
+- `Caesar` lives for these moments.
+- No, a... what - what, `caesar`'s?
+- `Caesar` calls it "the |business."
+- `Caesar`, what are we going to do?
+- `Caesar`, you still got the money?
+- That means `caesar` will be ready.
+- `Caesar`, what are you going to do?
+- Julius `caesar` never took no vote.
+- Let's not forget to serve `caesar`!
+- I beg you, please continue, `caesar`.
+- So `caesar`, what did it total out at?
+- `Caesar`, someone could see us out here.
+- `Caesar`, you just killed gino marzzone.
+- Please, `caesar`, we don't have much time.
+- You used me, `caesar`, just like i used you.
+- `Caesar`, didn't i tell you to get something?
+- That's none of your goddamn business, `caesar`.
+- Respectfully `caesar`, quintus and i must report.
+- `Caesar` was nervous, kept cleaning the apartment.
+- But it wasn't even about me, it was about `caesar`.
+- I remember that `caesar` made a huge deal about it.
+- It sounded like he and `caesar` don't like each other.
+- `Caesar`, let me sponsor your first wager in the arena.
+- The dangerous man, `caesar`, is the man who doesn't care.
+- It's a big thing for them, it's like... `caesar`'s palace.
+- He was never afraid of `caesar` because he didn't know him.
+- For shelly, taking the money was a way to take from `caesar`.
+- `Caesar`, stop acting like an asshole and think -- stupid cunt!
+- Julius `caesar`: "brutus and cassius, they too are honorable men."
+- From there, `caesar` has decreed you be given an estate in paestum.
+- He came to see me yesterday because he was afraid `caesar` figured it out.
+- `Caesar` ... all right, johnnie, you want to play it this way, i can play it this way.
+- I swear it, `caesar`, your generosity is being repaid with public attacks on your honor.
+- The new `caesar` must be honest enough to know when the emperorship is no longer feasible.
+- Narcissus will never support you, `caesar`, he has too much of a philosophical temperament.
+- You could have got him killed knowing that `caesar` would bring the money to the apartment.
+                 

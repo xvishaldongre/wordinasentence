@@ -1,0 +1,7 @@
+---
+title: "editorialized in a sentence | editorialized example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "editorialized"
+---
+## Unfortunately, we have no example sentences for editorialized                 

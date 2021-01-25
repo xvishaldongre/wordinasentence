@@ -1,0 +1,107 @@
+---
+title: "glass in a sentence | glass example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "glass"
+---
+- [`glass` shatters] oh!
+- Get yourself a `glass`.
+- Have a `glass` with me.
+- Pour me a full `glass`.
+- By the way, i'm `glass`.
+- I'd rather piss `glass`.
+- I'm not made of `glass`.
+- Just give me a `glass`.
+- Sorry about the `glass`.
+- Milk spurts into `glass`.
+- No `glass` on the inside.
+- Thing had a `glass` door.
+- This road's like `glass`.
+- _ - `glass` houses, joyce.
+- I remember the `glass` ...
+- Think i'll have a `glass`.
+- Give him a `glass` of wine.
+- He drinks from the `glass`.
+- I... you dropped a `glass`.
+- Look at this empty `glass`.
+- The thing with the `glass`?
+- A large `glass` of milk.
+- How about a `glass` of wine?
+- Through the looking `glass`.
+- You sure about that `glass`?
+- How 'bout a `glass` of water?
+- I think one of 'em's `glass`.
+- Theo takes the other `glass`.
+- This `glass` looks brand-new.
+- Can i have a `glass` of water?
+- "through the looking `glass`."
+- A `glass` of champagne, please.
+- Did you hear any `glass` break?
+- And the little slide of `glass`.
+- I feel as if i've eaten `glass`.
+- Might i have a `glass` of water?
+- The `glass` is bullet resistant.
+- The sound of shattering `glass`.
+- A `glass` of water would be nice.
+- Can you look through the `glass`.
+- How about a nice `glass` of milk?
+- It's a reflection on the `glass`.
+- Piece of black, volcanic `glass`.
+- There's a clear decanter `glass`.
+- Trapped behind a pane of `glass`.
+- Would ya like a `glass` of water?
+- Ids building, the big `glass` one.
+- We're through the looking `glass`.
+- Will you have a `glass` of sherry?
+- Kanita, get him a `glass` of water.
+- Now raise it over the `glass` and...
+- There's a wall, like a `glass` wall.
+- Yeah, you really killed the `glass`.
+- [`glass` cracks] i trust him, clarke.
+- `Glass` will cut `glass`, mrs. langtry.
+- I became the face behind the `glass`.
+- I'll just pick up the broken `glass`.
+- This stuff is pura vida in a `glass`.
+- You need one `glass` of champagne.
+- Here, have another `glass`, macfarlane.
+- I asked for metal, you gave me `glass`.
+- Let me get you another `glass` of wine.
+- Why are you always polishing a `glass`?
+- It was through a plate-`glass` door.
+- Can you just hand me a `glass` of water?
+- Could i have a `glass` of water, please?
+- Have a `glass` of champagne... or six...
+- The least you could do is use a `glass`.
+- But now i'd like a `glass` of white wine.
+- For me, the problem isn't in the `glass`.
+- How 'bout giving me a `glass` of whiskey?
+- One sheet of `glass` between them and us.
+- Pop, pop, pop, right through the `glass`.
+- That's when i cut my hand on the `glass`.
+- You are drinking a `glass` of aspiration.
+- You were asked to have a `glass` of wine.
+- Don't let me be a face behind the `glass`.
+- I'm guessing there's `glass` in her lungs.
+- "but you can't do `glass` the way we do it.
+- Could i trouble you for my `glass` of milk?
+- Even the `glass` around the bomb is rigged.
+- `Glass`, you're to stand by with your team.
+- Go see some boring footprint under `glass`?
+- Raise the `glass` and push the blue button.
+- Activate in the form of, a `glass` of water.
+- Rico, tell'em to `glass` this goddam planet.
+- You don't have a clean `glass` in the house.
+- It couldn't smell us through the `glass`.
+- Could you please put my `glass` on the table?
+- I'm talking shards of `glass` go to the ship.
+- On my boat, relaxing with a `glass` of port!!
+- Would you like a `glass` of tea or something?
+- `Glass` half full, at least it's warm in here.
+- `Glass`, sorry about pooch, he was a good man.
+- Have another `glass` of something good, toddy.
+- How bout you, `glass`, how's that chip shaking?
+- I cut it on some `glass` and we got lost, mama.
+- Kimura and `glass` will head the investigation.
+- It was the only way to bypass the smart `glass`.
+- May i see the magnifying `glass`, agent desmond?
+                 

@@ -1,0 +1,58 @@
+---
+title: "carpenter in a sentence | carpenter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "carpenter"
+---
+- Thanks, mr. `carpenter`.
+- Eli is a fine `carpenter`.
+- Didn't we, mr. `carpenter`?
+- Eli, john is a `carpenter`.
+- Goodnight, mr. `carpenter`.
+- See how good a `carpenter`.
+- Good evening, mr. `carpenter`.
+- Those are `carpenter`'s hands.
+- Mr. `carpenter`, i-- goodnight.
+- I was talking to mr. `carpenter`.
+- Are you a `carpenter`, mr. rieper?
+- I'm not a king, i'm a `carpenter`.
+- It's like `carpenter`'s the thing.
+- I'm looking for maggie `carpenter`.
+- The real story on miss `carpenter`.
+- Any identification, mr. `carpenter`?
+- Don't just stand there, `carpenter`!
+- Eli says you're a `carpenter`, book.
+- It's called if i were a `carpenter`.
+- One of 'ems how to be a `carpenter`.
+- Uh... hang the... uh... `carpenter`.
+- You throw down with the `carpenter`?
+- We can always use a good `carpenter`.
+- It isn't just you and mr. `carpenter`.
+- Your name's `carpenter` -- that right?
+- Maybe you should... hang the `carpenter`.
+- What do you want it for, mr. `carpenter`?
+- Mr. `carpenter` -- what does velocity mean?
+- Did you speak to our friend mr. `carpenter`?
+- I hope mr. `carpenter` won't think i'm intruding.
+- You didn't follow mr. `carpenter` at all, did you?
+- Mr. `carpenter` -- now can we go see the space ship?
+- Mom -- is there something wrong with mr. `carpenter`?
+- Mr. `carpenter` showed him how to do his arithmetic.
+- I guess i'm just tired of hearing about mr. `carpenter`.
+- Aw, gee, mom -- i had plans to play with mr. `carpenter`.
+- Like he's a `carpenter`, and he makes really good tables.
+- Once the authorities from `carpenter` get here, you'll...
+- You're starting to sound like some wes `carpenter` flick.
+- Christ, maybe he's tough but he sure ain't no `carpenter`.
+- Mr. `carpenter`" -- you don't seem to know about anything.
+- I've got some terrific news about your friend, mr. `carpenter`.
+- Let's not say anything to my mother about this, mr. `carpenter`.
+- Did you and mr. `carpenter` really go to see professor barnhardt?
+- Splendid dissection of maggie `carpenter`, very professional job.
+- Did he not choose a `carpenter`'s son to reveal himself to the world?
+- Mom -- why does mr. `carpenter` have to go down to the police station?
+- ♪ and they say you don't tug on superman's cape ♪ a jewish `carpenter`.
+- `Carpenter`, is there a convenient time to talk vis-a-vis: relationship?
+- Bobby -- i think it would be better if we didn't see quite so much of mr. `carpenter` okay.
+- The best i can do is call the station in `carpenter` and have them keep a lookout for them.
+                 

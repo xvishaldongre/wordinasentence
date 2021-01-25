@@ -1,0 +1,107 @@
+---
+title: "picking in a sentence | picking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "picking"
+---
+- `Picking` up velocity.
+- Stop `picking` on him.
+- Was i `picking` on you?
+- We're `picking` her up.
+- I'm not `picking` it up.
+- I'm `picking` people up.
+- Well, *`picking`* them is!
+- `Picking` on me won't help.
+- Thanks for `picking` me up.
+- The winds are `picking` up.
+- No one's `picking` up there.
+- My men are `picking` them up.
+- Oh, my mom's `picking` me up.
+- Arthur's `picking` me up soon.
+- As i am at `picking` husbands.
+- `Picking` on us little fellas.
+- You're always `picking` on me.
+- I'm sure `picking` up on vices.
+- Josh's `picking` me up in five.
+- `Picking` out my wedding dress!
+- Yep, i'm `picking` that up too.
+- I'm `picking` up another signal.
+- It keeps `picking` up old films.
+- When's clifton `picking` you up?
+- Why are you `picking` on me for?
+- Who will be `picking` her up?
+- Go start `picking` up the pieces.
+- `Picking` apples is truly boring.
+- The only jobs are `picking` jobs.
+- He's `picking` me up this morning.
+- Yor dad `picking` the music again?
+- `Picking` up magnetic interference.
+- `Picking` you up, 7:00 p.m. friday.
+- Always `picking` on poor little roy.
+- I thought michael was `picking` me up.
+- They're not `picking` me up until six.
+- You think he's been `picking` flowers?
+- Part of the job is `picking` up scents.
+- Is `picking` up white sounds everywhere.
+- We're `picking` up some hull ionization.
+- You want... why are you `picking` on me?
+- John, there's nothing worth `picking` up.
+- So, you still `picking` apart cockroaches?
+- We're `picking` up ed tv for another month!
+- You're gonna bust me for `picking` up a car?
+- All right, no more `picking` on dim, brother.
+- Someone's `picking` up where jethro left off!
+- The sensors are `picking` up something outside.
+- Hey thanks for `picking` up the lunch tab, mare.
+- It's probably `picking` up another baby monitor.
+- What about obsessively `picking` her split ends?
+- And there were some older kids `picking` on will.
+- We are the victims of a pocket-`picking` pandemic.
+- You weren't mad at him for `picking` up the phone?
+- Cabin, mast, net lights, `picking` lights... maybe.
+- I'm just `picking` some things up for the barbecue.
+- Now look, i'm `picking` up this ordinary telephone.
+- I don't believe it, jean � they're `picking` straws.
+- I'm `picking` up paul at the station - want to come?
+- When i was `picking` a lock to rob somebody's house.
+- Now look, i'm `picking` up the phone...nice and slow.
+- Would you rather be `picking` lead out of your navel?
+- How many paupers did peter's pocket `picking` produce?
+- I'm `picking` up faint life signs twenty meters below.
+- `Picking` these up for ... "mrs. haniver" and... "mrs.
+- We're `picking` up the new super just like i told you.
+- Well, we're `picking` this guy up at the train station.
+- Well, i wish you'd stop criticizing and `picking` on her.
+- Oh she's `picking` you up, good you're on the right track.
+- Skipper, you're `picking` up seaweed -- or whatever it is.
+- You guys ought to try `picking` up a phone once in awhile.
+- You're not `picking` a fight, you're coming to her rescue.
+- This is what you get for brain- `picking` an old cia spook.
+- We're `picking` up the new superintendent at the bus station.
+- Yes - you have to be very careful about `picking` a roommate.
+- I had a courier job -- `picking` up a package from the airport.
+- Before you start `picking` your nose, i know he put you up to it.
+- How about that time you were `picking` your feet in poughkeepsie?
+- Sensors are not `picking` up any ships coming from the surface...
+- Why are you `picking` at my sores... what is it that you want?...
+- You are `picking` a fine moment i take it he said i was a killer.
+- You're `picking` up the key group: girls who don't like milhouse.
+- I read your column every day... you're `picking` up my lingo, hon.
+- You don't find it depressing that homer wells is `picking` apples?
+- Aaah ... stop `picking` on me... you're as bad as the rest of them.
+- They're `picking` up a guy smuggling emeralds out of south america.
+- You know, you've been `picking` on her ever since she came in here.
+- I know someone who saw walter matthau `picking` up his dry-cleaning.
+- That blip we're `picking` up might only be the radio-active particle.
+- Scufflin' around the small rooms, `picking` up eight, ten bucks a day?
+- Jam, why'd you talk us into `picking` that bitch up in the first place!?
+- Worrying - clicking - `picking` - you may as well be back in los angeles.
+- I'm `picking` up trace life forms, but i can't get a lock on the location.
+- My antenna is up, it is fully extended, and i am `picking` up...what is it?
+- Uh... actually, `picking` apples is as much excitement as i want for a while.
+- Here, look, i'm calling the old bill right now" -- `picking` up the telephone.
+- I'm `picking` up an unusual electromagnetic signature from the kolarin system.
+- I'm having a hard time `picking` up your signal this morning--what did you say?
+- A few days ago i'm in paris `picking` pockets and now i'm america's most wanted.
+- Always `picking` on somebody who can't defend himself -- the littler the better.
+                 

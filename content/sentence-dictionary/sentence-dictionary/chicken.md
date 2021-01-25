@@ -1,0 +1,107 @@
+---
+title: "chicken in a sentence | chicken example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chicken"
+---
+- No kung pao `chicken`.
+- That's `chicken` feed.
+- `Chicken` salad, devra!
+- He called me `chicken`.
+- Some `chicken` feed.
+- You ever play `chicken`?
+- You want some `chicken`?
+- They're mostly `chicken`.
+- From a `chicken`, bug-wit.
+- Does a `chicken` have lips?
+- I didn't get any `chicken`.
+- What's up, dixie `chicken`?
+- `Chicken` blood on the crops.
+- I like a fried `chicken` leg.
+- Some more `chicken`, perhaps.
+- To prove he wasn't `chicken`.
+- A `chicken` lays those things.
+- Bring me some `chicken`, baby!
+- `Chicken` and chorizo sausage.
+- `Chicken` puff with shark fin.
+- Burglary's for `chicken` shits.
+- Half fried `chicken` with fries.
+- Some of that take out `chicken`.
+- What are ya, `chicken`, charlie?
+- I have the only fabergé `chicken`.
+- You want me to hold the `chicken`.
+- `Chicken` is a fool's game captain.
+- I haven't had `chicken` in a while.
+- I work at kentucky fried `chicken`.
+- Four `chicken` lumpettes per person.
+- Owns a `chicken` farm in hackensack.
+- Um, that was a `chicken` pot pot pie.
+- We got some `chicken` in the ice box.
+- Who said it was... "`chicken` blood"?
+- Why did the `chicken` cross the road?
+- Can i borrow a piece of your `chicken`?
+- Do i look like `chicken` george to you?
+- Richard carl in "the spring `chicken`."
+- What about a little king pao `chicken`?
+- Bandit, this here's the dixie `chicken`.
+- Hey... popeye's `chicken` is ass kickin'!
+- Stale `chicken` feed with four days mold.
+- What are you listening to, `chicken` ass?
+- Didn't you want some `chicken` and things?
+- This fried `chicken` is fit for a king.
+- Do you know the cook's `chicken` franchise?
+- I hope you're enjoying your `chicken`, ted.
+- Out in the desert near the `chicken` ranch.
+- Where's a good `chicken` place around here?
+- I got a native doing a funky `chicken` here.
+- I'm going to make him fresh `chicken` broth.
+- Mrs. sandelman made you some `chicken` soup.
+- We gotta whole half-`chicken` in the icebox.
+- Fine, fine, i feel like a `chicken` mcnugget.
+- He wanted to know if i liked fried `chicken`.
+- Honey, send out for kentucky fried `chicken`.
+- It's here in this fried `chicken` restaurant.
+- The `chicken` hawks were on him all the time.
+- They called me `chicken`-- you know, `chicken`!
+- `Chicken` would really hit the spot about now.
+- Gift certificates to kentucky fried `chicken`.
+- Hey, i asked you if you wanted some `chicken`.
+- I told you it would taste just like `chicken`.
+- I would feel safer with a `chicken` drumstick.
+- Ain't no thing but a `chicken` wing, buttercup.
+- I got `chicken` cacciatore for you, sweetheart.
+- Ain't nobody here but you and me, `chicken` wing.
+- It's heaven for those degenerate `chicken`-hawks.
+- Stop being `chicken`-hearted and write that story.
+- The gangster of love don't eat no fried `chicken`.
+- For nineteen years... you work at cook's `chicken`?
+- He's not exactly what we call "a spring `chicken`".
+- Woman bites `chicken` leg, turns out to be a mouse.
+- Ask the guy at the place where a `chicken` place is.
+- Fine, as long as you don't serve `chicken` that way.
+- If we evacuate, they'll know mmm, `chicken` nuggets.
+- Talk about the fox investigating the `chicken` coop.
+- Also... fried `chicken` and... gasoline... next exit.
+- Now should it be `chicken`-noodle or bean-with-bacon?
+- Put your money where your `chicken`- lipped mouth is.
+- Vada there is no `chicken` bone stuck in your throat.
+- You'd swear there was real `chicken` powder in there.
+- Including things that ate or were eaten by a `chicken`.
+- I've got girls and `chicken` and hot oil waiting for me.
+- Not after the smear story you did on my `chicken` sushi.
+- Plant it, animal, and grow us a `chicken` for christmas.
+- I haven't wrung a `chicken`'s neck in a month of sundays.
+- He know what he can do with that `chicken`-shit day's pay.
+- You don't know the `chicken` places around where you live?
+- `Chicken` and beer, definitly, absolutely, without a doubt.
+- Didn't look like `chicken` to me, more like fried pussy cat.
+- I was running around like a `chicken` with my head chopped off.
+- It's pure hell--if i never see another `chicken`, i'll be happy.
+- I-i c-can't... you're not gonna `chicken` out on me now, are you?
+- `Chicken` bone cross take the curse off this bat and bring me hits.
+- You can start leaving the kids with the `chicken` fat lady again.
+- I... there�s some cold `chicken` salad in the fridge if you�re hungry.
+- Tastes like something you'd feed a `chicken` to make it lay more eggs.
+- ♪ `chicken` nugget ♪ and i really don't want to find a new dry cleaner.
+- I've got... ...liverwurst -- liverwurst -- `chicken` and -- liverwurst.
+                 

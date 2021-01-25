@@ -1,0 +1,52 @@
+---
+title: "studying in a sentence | studying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "studying"
+---
+- We were just `studying`.
+- Stop `studying` me, kane.
+- Still `studying` the vase.
+- What are you `studying`?
+- I'm not `studying` no mayor.
+- Depends on what i'm `studying`.
+- They're `studying` with cynics.
+- He's `studying` us from the trees.
+- I see you `studying` so hard, tom.
+- No, tell them we're... `studying`.
+- Clarke... stop `studying` me, kane.
+- Have you been `studying` the manual?
+- Man, i'm `studying` in the man's book.
+- Shouldn't you be `studying` or something.
+- What are you `studying` now, mrs. hillyer?
+- You've studied me, now i'm `studying` you.
+- So j.d., what are you `studying` in school?
+- So much time `studying` the heavenly bodies.
+- No, but i've been `studying` it for 150 years.
+- Oh, see, `studying` would've been a huge help.
+- What psychopath are we `studying` up on today?
+- You've been `studying` the stone for 150 years.
+- I'll probably just be here `studying` for finals.
+- We're `studying` the holocaust in social studies.
+- I suppose we will not be doing any `studying` now.
+- You're too young to be `studying` criminal behavior.
+- We're going to get in by `studying` imperial procedures?
+- They were `studying` viral cancers as a weapon in the 30's.
+- I've been `studying` those symbols since we found the stone.
+- William, we've been `studying` hard, i really know my stuff.
+- You're `studying` nursing and having trouble with your family.
+- Not sit around `studying` each other like specimens in at bottle.
+- `Studying` me as if - as if i were a play or a set of blueprints!
+- I'm `studying` the effect of negative reinforcement on esp ability.
+- I remember first hearing your name when i was `studying` at oxford.
+- You seem to be making a career of `studying` sensational murderers.
+- Doctor crusher has been... `studying` some advanced medical theories.
+- You remember, george, when we were '`studying`' the great philosophers?
+- Laughing and tears and cruel eyes `studying` you... and my mother there?
+- He was `studying` to be a jesuit, but he gave it up after his first vows.
+- I was `studying` at the university of paris -- till the english invaded it.
+- Because i want you to feel the bitter rays do a lot of `studying` last night?
+- Yes, but i've spent the last winter `studying` all the great battles of history.
+- The disciples have been `studying` the bardo texts you cheated on your wife, homer.
+- I'm `studying` under dr. macfarlane -- that is, i've been `studying` until today -- a doctor?
+                 

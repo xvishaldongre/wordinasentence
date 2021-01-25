@@ -1,0 +1,95 @@
+---
+title: "downstairs in a sentence | downstairs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "downstairs"
+---
+- Take 'em `downstairs`.
+- I'm going `downstairs`.
+- She lives `downstairs`.
+- I was right `downstairs`.
+- Ok, see you `downstairs`.
+- Upstairs or `downstairs`?
+- I got to get `downstairs`.
+- Oh, that mob `downstairs`.
+- `Downstairs` in the closet.
+- I got the cab `downstairs`.
+- Lives `downstairs` from me.
+- Lot of people `downstairs`?
+- There's a man `downstairs`.
+- I heard voices `downstairs`.
+- In my gun safe `downstairs`.
+- Gorbachev's not `downstairs`.
+- M'sieu giron is `downstairs`.
+- She's `downstairs` with ruth.
+- They dragged me `downstairs`.
+- Danny, go `downstairs` -- now!
+- Your parents are `downstairs`.
+- You should check `downstairs`.
+- He's `downstairs` -- somewhere.
+- I'm going to sleep `downstairs`.
+- They said send you `downstairs`.
+- Go `downstairs`, i will help you.
+- Please come `downstairs` with me.
+- Mom, i heard someone `downstairs`!
+- Are you coming `downstairs` to eat?
+- Recovery meetings are `downstairs`.
+- Establish a recon post `downstairs`.
+- I'll be `downstairs` in ten minutes.
+- She's `downstairs` in the infirmary.
+- I called your room from `downstairs`.
+- I'm going `downstairs` to get a beer.
+- Hold on, becky, i'm going `downstairs`.
+- We'd better get back `downstairs` asap.
+- Because i just saw johnnie `downstairs`.
+- But your friend is waiting `downstairs`.
+- The man `downstairs` said number-- *no*!
+- They're holding my husband `downstairs`.
+- Well suppose i hadn't come `downstairs`.
+- I'm goin, `downstairs` to get me a drink.
+- No -- we're just on our way `downstairs`!
+- Run `downstairs` and give your dad a hug.
+- Why don't you use the phone `downstairs`?
+- Go `downstairs`, and tell them - anything.
+- Shall we say five o'clock -- `downstairs`?
+- When you're dressed, come on `downstairs`.
+- Upstairs and `downstairs` in his nightgown.
+- You were supposed to go `downstairs`, baby.
+- Oh, you have an upstairs and a `downstairs`.
+- You guys got something going on `downstairs`?
+- When you came `downstairs`, what happened?
+- I'll pack my things and meet you `downstairs`.
+- We can use the crawlspace to get `downstairs`.
+- I gotta go meet kelly for a drink `downstairs`.
+- I've got cobbie `downstairs` watching the door.
+- Help me get something to carry her `downstairs`.
+- He's been taken `downstairs` for further testing.
+- Don't forget there's a dead watchman `downstairs`.
+- I went `downstairs`... outside... what did you do?
+- We found a litter box `downstairs` but not the cat.
+- What am i going `downstairs` and tell those people?
+- Those tape recordings you've got `downstairs` -- ok?
+- `Downstairs`... at the front... jesus... where is it?
+- Last time i saw them, they were heading `downstairs`.
+- Okay if i watch you tape that interview `downstairs`?
+- If i'm not at the shindig `downstairs` go to the room.
+- I'll meet you `downstairs`, i gotta find some clothes.
+- Have you any idea what the place looks like `downstairs`?
+- Madam, it is mr. meierheim -- he is waiting `downstairs`.
+- Obviously `downstairs` with the other kids isn't good enough.
+- I felt it happen `downstairs` and when i went into the bathroom.
+- Since benjamin became ill we have our own hospital `downstairs`.
+- Yeah, i'm going to take a shower and i'll meet you `downstairs`.
+- I'm going `downstairs` and see if i can get the furnace fired up.
+- Kelly, i want you to close and lock all the `downstairs` windows.
+- Why don't you go `downstairs`, get a cup of coffee and calm down?
+- She slammed every door on her way `downstairs` -- except that one.
+- Could you climb out your window if we were `downstairs` to catch you?
+- Traipse `downstairs` in your sexy little underthings and check it out?
+- Crickets go silent when they feel threatened, `downstairs` to the right.
+- You're very funny -- yellow room where they dance -- where `downstairs`?
+- It's against my better judgement, but i'll run this by the man `downstairs`.
+- You've got that room `downstairs` with the treadmill luke never uses anyway.
+- Get these files `downstairs`... and, quit listening to your fucking voodoo music.
+- `Downstairs`, i think we got another rifle, maybe a scatterer and some gardening tools.
+                 

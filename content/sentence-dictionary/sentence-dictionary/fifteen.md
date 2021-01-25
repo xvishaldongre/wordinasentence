@@ -1,0 +1,107 @@
+---
+title: "fifteen in a sentence | fifteen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fifteen"
+---
+- `Fifteen` car lengths.
+- `Fifteen` lousy bucks.
+- `Fifteen` minutes ago.
+- `Fifteen` seconds now.
+- `Fifteen` years, yeah.
+- He was only `fifteen`.
+- Even if i am `fifteen`?
+- `Fifteen`, at the most.
+- `Fifteen` percent skim?
+- `Fifteen` years, frank.
+- I need about `fifteen`.
+- I piss `fifteen` kilos.
+- Ten or `fifteen` times?
+- A chimp takes `fifteen`.
+- What are you, `fifteen`?
+- `Fifteen` hundred is bid.
+- `Fifteen`... what's next?
+- It was `fifteen` seconds.
+- This guy makes `fifteen`?
+- Could be ten or `fifteen`.
+- `Fifteen` million dollars.
+- `Fifteen` tickets, please.
+- I have... eight-`fifteen`.
+- That's `fifteen` by seven?
+- You get `fifteen` percent.
+- Can you go `fifteen` grand?
+- `Fifteen` inches overnight.
+- `Fifteen` thousand dollars.
+- In about `fifteen` minutes.
+- Ten, `fifteen` minutes ago.
+- The past `fifteen` minutes.
+- All right, "five-`fifteen`."
+- Altitude `fifteen` thousand.
+- "`fifteen` minutes of fame?"
+- How about `fifteen` hundred?
+- Impact in `fifteen` seconds!
+- Is it `fifteen` minutes yet?
+- `Fifteen` minutes ain't long.
+- It's a lousy `fifteen` kilos.
+- What about `fifteen`-hundred?
+- Has it been `fifteen` minutes?
+- I met him `fifteen` years ago.
+- It was `fifteen` minutes late.
+- No cubs over `fifteen`, billy!
+- So was juliet -- at `fifteen`.
+- The deal is `fifteen` hundred.
+- You've already been `fifteen`.
+- Another ten, `fifteen` minutes.
+- I've known you `fifteen` years.
+- Another `fifteen` seconds to go.
+- I told everyone seven-`fifteen`.
+- Manager's get `fifteen` percent.
+- Four hours and `fifteen` minutes.
+- Fourteen, `fifteen` grand a week.
+- Jesus, george, `fifteen` percent.
+- We only got `fifteen`-cent loafs.
+- `Fifteen` for a straight delivery.
+- I'm thinkin' like `fifteen` bucks.
+- This here's a `fifteen`-cent loaf.
+- Time remaining: `fifteen` minutes.
+- That's worth `fifteen` grand to ya?
+- Y-y-yeah, just for `fifteen` years.
+- `Fifteen` minutes to a half an hour.
+- `Fifteen` seconds to cloud boundary.
+- I get off work in `fifteen` minutes.
+- That'll be `fifteen` hundred - cash.
+- Your ghf reading is minus `fifteen`.
+- You were dead for `fifteen` seconds.
+- At `fifteen` em-pee-aitch i roll out!
+- I was here about `fifteen` years ago.
+- Relax ... it was `fifteen` years ago.
+- Approximately `fifteen` hundred bucks.
+- He might wake up in `fifteen` minutes.
+- In a month it's worth `fifteen` bucks!
+- It's `fifteen` minutes out of our way.
+- But it's not worth more than `fifteen`.
+- It happened just `fifteen` minutes ago.
+- I was killing men when i was `fifteen`.
+- Over `fifteen` years -- do you miss it?
+- What happened to the `fifteen` hundred?
+- All i need is `fifteen` minutes a night.
+- I guess i should tell him i'm `fifteen`.
+- Sell him five cars over `fifteen` years.
+- He'll give you `fifteen` - maybe twenty .
+- I'll see you get it in `fifteen` minutes.
+- Impact in `fifteen` seconds... mr. spock?
+- It could have been - `fifteen` years ago.
+- They're pretty quick...`fifteen` seconds?
+- I emancipated myself when i was `fifteen`.
+- Instead of ten percent, you get `fifteen`.
+- Yeah; just ten or `fifteen` dollars maybe.
+- I can only take it up to `fifteen` minutes.
+- Well -- `fifteen` and two thirds, actually.
+- He dropped out of sight `fifteen` years ago.
+- If no one goes for the ship, five-`fifteen`.
+- Will you be here in about `fifteen` minutes?
+- It's only fourteen or `fifteen` flesh wounds.
+- That leaves `fifteen` or twenty for your end.
+- The girl in my story was `fifteen` years-old.
+- Then meet me at the dam in `fifteen` minutes.
+                 

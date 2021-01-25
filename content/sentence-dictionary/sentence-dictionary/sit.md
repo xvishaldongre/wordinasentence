@@ -1,0 +1,107 @@
+---
+title: "sit in a sentence | sit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sit"
+---
+- Come here, `sit` down.
+- Even, you `sit` there.
+- From where i `sit`, 4?
+- Hey, let's `sit` down.
+- Hey, `sit` in the car.
+- Just `sit` down, okay?
+- Leif, you `sit` there.
+- Let's `sit` down, son.
+- Literally `sit` in it.
+- Mind if we `sit` down?
+- Of course, `sit` down.
+- Okay, if i `sit` here?
+- Please, `sit`, doctor.
+- Please, `sit`, here...
+- `Sit` down..and drink.
+- `Sit` down over there.
+- `Sit` on my knee, boy.
+- This terry what'`sit`.
+- Tony, `sit`, `sit` down!
+- Where should we `sit`?
+- You better `sit` down.
+- You should `sit` down.
+- Ask them to `sit` down.
+- Did i ask you to `sit`?
+- I can't `sit` with you.
+- Just let me `sit` down.
+- Let's just `sit` tight.
+- Shut up and `sit` down.
+- `Sit` down, mr. harley.
+- `Sit` down, mr. starks!
+- Well, then, `sit` down.
+- You like to `sit` down?
+- You need to `sit` down.
+- You <u>can't `sit`</u>!
+- You want to `sit` down?
+- `Sit` behind a desk?
+- Come `sit` at the table.
+- Do you wanna `sit` down?
+- I can `sit` up straight.
+- I-i-i `sit` and i whine.
+- ...i need to `sit` down.
+- It's fine really, `sit`.
+- It's not a '`sit` down.'
+- Now `sit` the fuck down!
+- `Sit` down, and shut up!
+- `Sit` down for a second.
+- `Sit` down here with me.
+- `Sit` on that log, dear.
+- `Sit` with me, my child.
+- Uh, let's go `sit` down.
+- Well, please `sit` down.
+- Why don't we `sit` down?
+- You can't `sit` on this.
+- You'd better `sit` down.
+- Ah, won't you `sit` down?
+- You come `sit` by me.
+- Just `sit` here and wait?
+- Now everybody `sit` down.
+- `Sit` down, have a drink.
+- `Sit` down in that chair.
+- `Sit` down, now `sit` down.
+- `Sit` down where you are.
+- We can't just `sit` here.
+- Well come on, `sit` down.
+- Why don't you `sit` down?
+- Ya hit or `sit`, martini?
+- You'd better `sit` there.
+- You don't `sit` with me!!
+- You ever been on a `sit`?
+- Can we go `sit` somewhere?
+- Do `sit` down, mr. kaplan.
+- I must `sit` close to him.
+- Okay, willard, `sit` down.
+- Please `sit` down, harold.
+- `Sit` up so i can see you.
+- Some cars `sit`, you know?
+- You go `sit` by the piano.
+- You want to `sit` up here?
+- All right, `sit`, children.
+- Come here, `sit` down, `sit`.
+- Come let's `sit` down here.
+- Honey, i could `sit`... no.
+- I don't need to `sit` down.
+- Please `sit` down a minute.
+- Please, `sit` in the chair.
+- Roger: i don't wanna `sit`.
+- Sheila and kastle `sit` up.
+- `Sit` down a moment, billy.
+- `Sit` down, miss juspeczyk.
+- `Sit` down, the lot of you.
+- `Sit` over there, will you?
+- Someone yells "`sit` down."
+- We don't `sit` in judgment.
+- Well, won't you `sit` down?
+- We should `sit` in silence.
+- You better come `sit` down.
+- Do you mind if i `sit` down?
+- Go `sit` over in that chair.
+- I can `sit` through it once.
+- It's okay if i `sit` closer?
+                 

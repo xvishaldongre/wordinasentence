@@ -1,0 +1,7 @@
+---
+title: "expectorate in a sentence | expectorate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "expectorate"
+---
+## Unfortunately, we have no example sentences for expectorate                 

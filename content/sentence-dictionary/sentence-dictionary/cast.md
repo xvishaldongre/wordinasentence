@@ -1,0 +1,76 @@
+---
+title: "cast in a sentence | cast example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cast"
+---
+- You `cast` shadow walk.
+- `Cast` your spell, oona.
+- I already `cast` my lot.
+- We'll `cast` an unknown.
+- `Cast` a protection spell.
+- Was i wrong to `cast` loretta?
+- For getting rid of that `cast`.
+- He `cast` his spell on you too!
+- Just a little change of `cast`.
+- Even though you were `cast` out?
+- We saw blodreina `cast` you out.
+- Dat dress will `cast` ya round...
+- With that `cast` on -- you don't.
+- She's having a bust `cast` of him.
+- Turns to `cast`, i saved the play.
+- I'll tell the `cast` ahead of time.
+- To `cast` you out, to sacrifice you?
+- O sweet my mother `cast` me not away.
+- I have to have a talk with the `cast`.
+- But it `cast` me out, banished me here.
+- Marsh was wearing a `cast` on the tape.
+- The last vote you `cast` was for quisp.
+- We're gonna feature gale's `cast` more.
+- I wouldn't `cast` my fate with that man.
+- `Cast` members may pretend it's illegal."
+- If we could `cast` it properly, that is...
+- Peter breck's already been `cast` as brian.
+- No one can `cast` a king out of his kingdom.
+- Any disturbance will `cast` suspicion on him.
+- But with my luck they'd `cast` tori spelling.
+- Suspicion has been `cast` in my direction.
+- Stab 3's going to cutting corners `cast`-wise.
+- I'll show them how to `cast` pipes out of clay.
+- They're `cast` away deep in your mind, octavia.
+- I'm standing with the `cast` of "the godfather."
+- It's nothing, the `cast` comes off in six weeks.
+- Small `cast`, simple sets, and some hip-hop, no.
+- Said i should `cast` you out for my own protection.
+- I've been here before to `cast` evil from this house.
+- About... what about the guy he put in the body `cast`?
+- I think he just went out to kill another `cast` member.
+- The navigator just came in - we're ready to `cast` off.
+- I let people recut the movies, `cast` their relatives...
+- Your father has `cast` a shadow that you've never eluded.
+- Will could've `cast` protection last night, but he didn't.
+- How fucking dare you `cast` skye davidson in that part?
+- She wouldn't be the first one in that `cast` with problems.
+- Why stop at one character when you can have a whole `cast`?
+- `Cast` winnebago -- next </b> alf pulls onto the 15 freeway.
+- Sir te believes it's a ploy `cast` suspicion on governor yu.
+- ♪ so now we have to `cast` him out ♪ it's like i told miller.
+- Well any human being will `cast` about in a moment of stress.
+- But if i equip this staff that lets me `cast` lava quadballs...
+- The mountain has `cast` a shadow over these woods for too long.
+- You're nothing but primal beasts he and his men were `cast` out.
+- This badge is not an old newspaper you can `cast` down on the desk.
+- As with our own lives, the only people he can't `cast` are his family.
+- If you want to stay a few more days, todd flanders, i `cast` thee out.
+- Must be rough on you thinking of me wearing this `cast` another whole week.
+- `Cast` winnebago -- night </b> domino and the others are all drinking coffee.
+- It's opening night of the last depressing week of l. b. jefferies in a `cast`.
+- Nevada desert -- later on </b> the `cast` winnebago drives through the desert.
+- We were like a play whose run outlasted the `cast`'s ability to keep it fresh.
+- I'll pull you out of that 1-bunk hilton and `cast` you down with the sodomites.
+- Isn't there anyone in the neighborhood who might `cast` an eye in her direction?
+- But if you gotta wear a `cast`, you oughtta feature it more it's parta the story.
+- `Cast` winnebago -- next </b> domino rides shotgun with her cell phone to her ear.
+- She put it even at three to three, so as the mayor i get to `cast` the tiebreaker.
+- You really have me consorting with a `cast` of sordid characters, don't you, mr. garrison.
+                 

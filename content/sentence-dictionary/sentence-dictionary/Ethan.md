@@ -1,0 +1,55 @@
+---
+title: "Ethan in a sentence | Ethan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ethan"
+---
+- I don't know, `ethan`.
+- `Ethan`, i saw the mole.
+- `Ethan` takes the blame.
+- `Ethan`�s right behind me.
+- `Ethan` -- `ethan`, it's okay.
+- `Ethan` was the first to die.
+- `Ethan` what's wrong with you?
+- I'd hate to lose you, `ethan`.
+- I wish uncle `ethan` was here.
+- Swear it, `ethan`?...given word?
+- You wanted for a crime, `ethan`?
+- Are <u>you</u> all right `ethan`.
+- `Ethan`, you're not making sense.
+- `Ethan`, you <u>can't</u> burn out.
+- Give in, stop fighting me, `ethan`.
+- There�s too much at stake, `ethan`.
+- `Ethan`...kittridge is on the train.
+- What does `ethan` hunt <u>want</u>?!
+- `Ethan`, if you knew about jim?..why..
+- This girl's driving you insane, `ethan`.
+- Well, you did all a body could, `ethan`.
+- They�re covering this frequency, `ethan`.
+- `Ethan`, i can understand you're very upset.
+- Promise me that you'll take care of `ethan`.
+- She's in the elevator heading toward `ethan`.
+- Sure i'm all right... you all right, `ethan`?
+- You seem hell bent on blaming yourself, `ethan`.
+- I say we do it my way, `ethan`...and that's an order!
+- "thou shall not covet thy neighbour�s wife", `ethan`.
+- Yes!..yes, i remember!..have they found her, `ethan`?
+- `Ethan`, tell me - nyah, you've done more than enough.
+- `Ethan`, tell me more about this woman who's after you.
+- You're right sure you want to <u>jump</u> 'em, `ethan`?
+- I know how much jim in particular meant to you, `ethan`.
+- Did you kill many damyankees with this sabre, uncle `ethan`?
+- Every station had a pulsed inductive thruster here, `ethan`.
+- Well, that's seven we can score up to your brother, `ethan`.
+- Before or after i showed in london, mind telling me, `ethan`?
+- Oh, `ethan` is in love with you, claire, make no mistake about it.
+- `Ethan`...i found a man's seen her... knows where little debbie is!
+- ..when you think about it, `ethan`, it was inevitable..no more cold war.
+- I got to ask you and martin to ride to the state capitol with me, `ethan`.
+- If you were me, `ethan`, who would <u>you</u> trust to make him believable?
+- `Ethan` - i�ve always taught you, nothing can be more dangerous than the truth.
+- Well, fust off... name's `ethan`...now what's so mighty fishy about this trail?
+- Awfully short notice.. well, `ethan` hunt, what is it you want to talk to me about?
+- In all fairness, `ethan`, claire was never convinced her charms would work with you.
+- Do you know what `ethan` will do if he has a chance?...he'll put a bullet in her brain!
+                 

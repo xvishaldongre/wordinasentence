@@ -1,0 +1,107 @@
+---
+title: "roger in a sentence | roger example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "roger"
+---
+- No `roger` from op/ed?
+- `Roger`: good evening.
+- `Roger`, north island.
+- Has `roger` spoken yet?
+- `Roger`: there you are.
+- `Roger`, this is silly.
+- `Roger`, wait a minute.
+- Why the hurry, `roger`?
+- Hello, goodbye, `roger`.
+- `Roger`, arctic warrior.
+- `Roger`: here they come.
+- `Roger`: how disgusting.
+- `Roger`: i'm not kaplan.
+- But neither does `roger`.
+- `Roger` mathison, doctor.
+- `Roger`: so is breathing.
+- `Roger` that, bald eagle.
+- Stop calling me `roger`.
+- You and `roger` in op/ed.
+- Green light, `roger` that.
+- My name is `roger` murdock.
+- `Roger`, cs-40's going hot.
+- `Roger`: i don't wanna sit.
+- `Roger`, keep calling them.
+- `Roger` that, flying right.
+- Don't be sarcastic, `roger`.
+- Ferro: (on headset) `roger`.
+- You hear me, `roger` ramjet?
+- Dolores, meet `roger` rabbit.
+- My name is `roger` thornhill.
+- `Roger`: thank you very much.
+- `Roger`: there you are, dear.
+- `Roger`, i read you, continue.
+- `Roger`, i think we should go.
+- `Roger`: oh, you're that type.
+- `Roger`, you are disgraceful.
+- Octavia, on radio: `roger` that.
+- `Roger`: but this is ridiculous.
+- Victor, this is `roger` murdock.
+- I think `roger` could be the one.
+- `Roger` de bris presents history.
+- `Roger`... more light, sixpack...
+- Space stattion 5 - lounge `roger`.
+- `Roger`'s pants are sunrise orange.
+- We had food, water... `roger` that.
+- `Roger`: have you got any olive oil?
+- `Roger`, i'm setting up the crm-114.
+- `Roger`, i'm starting to get pissed.
+- `Roger`, what the hell are you doing?
+- `Roger`, will you be home for dinner?
+- I'm eddie dowd, this is `roger` baron.
+- Verb - `roger`, this is edie finneran.
+- I don't venerate drug dealers, `roger`.
+- `Roger`, enough with the fucking donuts!
+- Uh, that's an affirmative, `roger` wilco.
+- You haven't gotten into trouble, `roger`?
+- I'a a pawn in this just like poor `roger`.
+- Let's face it, `roger`, that dress is you.
+- Look at you... `roger` that, north island.
+- More money than you ever dreamed, `roger`.
+- How much is a shave and a haircut, `roger`?
+- Sure `roger`, whatever you want, it's cool.
+- Mother, this is your son, `roger` thornhill.
+- `Roger`, dear, we were so worried about you.
+- `Roger`: either hurry up or get me a snorkel.
+- But just remember, my name is `roger` murdock.
+- `Roger`, you said you were going to call a cab.
+- ...and you don't have to put up a dime, `roger`.
+- `Roger`: then, why don't you send for the police?
+- Hello, i'm `roger` delacorte - the head librarian.
+- `Roger`, do you mind if we talk a little business?
+- `Roger`: you feel you've seen me somewhere before.
+- By the way, `roger`, you were right about your wife.
+- Edie, this is `roger` kint, he was at how do you do?
+- `Roger`, do you understand what the word 'no' means?
+- `Roger` de bris is the worst director that ever lived.
+- `Roger`, document as much as you can, but keep moving.
+- `Roger`: i think i'll take that cold shower after all.
+- Scott, genius cameraman, `roger`, magician with sound.
+- Yeah, daddy, that's a `roger`, but we don't sell alcohol.
+- Cack the old man, pin it on `roger`, and destroy the will.
+- `Roger`, eagle one, our primary target has shifted course.
+- Scott...`roger`...and unruly julie ...this is...i'm sorry.
+- `Roger`: uh, give me a bedroom on the 20th century, please.
+- Which is also the name of a low-budget `roger` corman movie.
+- An original `roger` tory peterson of a red-breasted merganser.
+- `Roger`: now, that's a picture only charles addams could draw.
+- I think this would be a marvelous opportunity for you, `roger`.
+- `Roger`: i don't like the way teddy roosevelt is looking at me.
+- `Roger`: i've already told you- -we know where you're headed for.
+- `Roger`: i think you better go out and tell those police to hurry.
+- ...`roger` was a bit tipsy when he arrived here by cab for dinner.
+- `Roger`: i want to be packed in olive oil if i'm gonna be a sardine.
+- `Roger` meris, steps up, it's a corker down the pipe... no way phil.
+- I've got a 24 hour a day reminder of `roger`, for the rest of my life.
+- Tell me you didn't do a snoop job for a toon named `roger` the rabbit.
+- Relax, `roger`, everybody's doing it but you don't know, you don't know.
+- It wasn't like my marriage to `roger` was so great, even before -- jerry?
+- `Roger`: our friend who's assembling the general assembly this afternoon.
+- We've got a man here who answers to the description of thornhill, `roger`.
+                 

@@ -1,0 +1,85 @@
+---
+title: "tongue in a sentence | tongue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tongue"
+---
+- Cat got your `tongue`.
+- Cat got your `tongue`?
+- His `tongue`, his eyes.
+- Stick out your `tongue`.
+- You watch your `tongue`.
+- It's all in the `tongue`.
+- Watch your `tongue`, boy.
+- Mind your `tongue`, madame.
+- So does your `tongue` cramp up?
+- Just put a dab on your `tongue`.
+- Leave your `tongue` off of that!
+- She was born without a `tongue`.
+- Could you lose the `tongue` ring?
+- That business with your `tongue`.
+- With your hands or your `tongue`?
+- But next time... no `tongue`, okay?
+- You better hold onto your `tongue`!
+- Gimme a couple dabs on the `tongue`.
+- I don't wanna stick out my `tongue`.
+- My `tongue` is frozen to your zipper.
+- Stick out your `tongue` and say "ah."
+- Aren't you the clever little `tongue`?
+- Tomorrow, we'll cut out your `tongue`.
+- Who told you about my silver `tongue`?
+- Quite, boy, or you'll lose your `tongue`.
+- Roll it around your `tongue` for a years.
+- Your arm speaks louder than your `tongue`.
+- But i thought you could hold your `tongue`.
+- Open your mouth and hold out your `tongue`.
+- This is an old `tongue`, from an old world.
+- You have a free `tongue`, captain hamilton.
+- Still, i'll pull out your `tongue` for that.
+- Englishmen don't know what a `tongue` is for.
+- I gave you that `tongue` and i can rip it out!
+- Put that old silver `tongue` of yours to work.
+- I see bartha gave you cold `tongue` for supper.
+- For five bucks, i'll even throw in the `tongue`.
+- Just open your mouth and stick out your `tongue`.
+- What do you do - you and your `tongue`-tied friend?
+- Gifford mayfair - i'll cook your `tongue` on a spit!
+- Maybe your `tongue`...i don't know, my mouth is numb.
+- No, i really like my `tongue`... we're very attached.
+- Don't you go in there with that shit on your `tongue`.
+- It had a long `tongue`, teeth this big and yellow eyes.
+- "like everything's on the tip of my `tongue`", he said.
+- You missed my `tongue` there, but, eh, that's all right.
+- I should tear your `tongue` through your throat for that.
+- My `tongue` around the edge of his ear is what cured him.
+- She was the first girl i ever put my `tongue` in her mouth.
+- A landlord's dream tenant: a paralyzed man with no `tongue`.
+- When i do that i want you to massage my `tongue` with yours.
+- You ever see a motherfucker with a silicon fucking `tongue`?
+- Do you think up these questions or the girl with no `tongue`?
+- Remember that, duffy, and keep a civil `tongue` in your head.
+- You no longer have to hold your `tongue`, or hoist your skirts!
+- He's got a glib `tongue`, but you'll be a better doctor, fettes.
+- I'm about to scrape the bottom of my shoe off my `tongue`, right?
+- I'm a fair person, a straight shooter and i don't hold my `tongue`.
+- Every street singer with a cracked voice gives `tongue` to that one.
+- Go into a fit and bite off my own `tongue` in the middle of the bayou.
+- I've held my `tongue`, because i appreciate i shouldn't have said that.
+- What a fine meal you'd make, be the rest of you sweet as your `tongue`.
+- The more danger you and your family are in... all `tongue`, no lips.
+- I think maybe i have ramon and ceasar staple your `tongue` to your chin.
+- It's the ... oh ... it's the ... it's on the tip of my `tongue` ... what?
+- I thought you might -- i don't know -- swallow your `tongue` or something.
+- Is it true that gene simmons had a cow's `tongue` grafted onto his real one?
+- For murder, though it have no `tongue`, will speak with most miraculous organ.
+- I tried it on my mother for two months once before she fished out my `tongue`.
+- Why am i still drunk on your blood, the taste of your flesh on my `tongue`?
+- Here i was, finally getting a feel for a new `tongue` - i'm sure she is, james.
+- Clench your teeth so when we land you don't accidentally bite off your `tongue`.
+- It's like my memory is on the tip of my `tongue` -- but i can't taste any of it.
+- Let's try it again, only this time i'm going to stick my `tongue` in your mouth.
+- I used to know a kid who lived there and who had the biggest `tongue` in the world.
+- So, as a personal favor to me... will you put your `tongue` in neutral for a while?
+- Well, if you wanna work in the post- office you'll have to stick out your `tongue`.
+- Cute little rascal until it flicked out that red `tongue`, and those two sharp fangs.
+                 

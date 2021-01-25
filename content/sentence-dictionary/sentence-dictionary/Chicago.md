@@ -1,0 +1,99 @@
+---
+title: "Chicago in a sentence | Chicago example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Chicago"
+---
+- He lives in `chicago`.
+- I've been to `chicago`.
+- You lived in `chicago`?
+- He sent me to `chicago`.
+- It's a `chicago` station.
+- The bismark in `chicago`.
+- `Chicago`, miami, detroit.
+- We got word from `chicago`.
+- Yes, a ticket to `chicago`.
+- `Chicago`, houston, detroit.
+- What's doug do in `chicago`?
+- Why did you go to `chicago`?
+- He's on his way to `chicago`.
+- So you live in `chicago` now?
+- So `chicago`'s been good to ya.
+- This is poliakoff, in `chicago`.
+- I thought you lived in `chicago`?
+- He'll be in `chicago` on business.
+- He's in `chicago`, for god's sake!
+- I won't be in `chicago` that long.
+- You made the `chicago` papers too.
+- Andrew was in `chicago` on business.
+- I wish you'd let me go to `chicago`.
+- Now, will you let me go to `chicago`?
+- That's why vincent went to `chicago`.
+- We've got to go through to `chicago`!
+- You wanna take him back to `chicago`?
+- He says he's got to stay in `chicago`.
+- I found this `chicago` station before.
+- Maybe he's on our flight to `chicago`.
+- The under boss of the `chicago` mafia.
+- He and his wife gone back to `chicago`?
+- 'course `chicago` was a right town then.
+- I advised `chicago` as soon as i saw it.
+- You're not going to like it in `chicago`.
+- You were married to a woman in `chicago`?
+- I operate out of the `chicago` o'hare hub.
+- `Chicago`'s only about 400 miles from here.
+- The boss is leaving for `chicago` tomorrow.
+- We had a little trouble in `chicago` today.
+- I don't know, i had to go to `chicago` again.
+- Atlanta, `chicago` and philadelphia, destroyed?
+- `Chicago` police capture united nations killer.
+- Here and there like boston, `chicago`, houston?
+- I'm going to make `chicago` come alive for you.
+- We have a group going to `chicago` to do a job.
+- Any place has to be safer for us than `chicago`.
+- `Chicago`, the passengers are beginning to panic.
+- Did we aquire a bank from `chicago` or a charity ?
+- He went to the hotel ambassador east in `chicago`.
+- They got perfume counters in `chicago`, don't they?
+- Well, hell, you got the whole `chicago` south side.
+- ...you are due at the ambassador east in `chicago`.
+- He'd been with his parents on their way to `chicago`.
+- Is that why you came to `chicago` in the first place?
+- It's about an hour-and-a-half's drive from `chicago`.
+- We're hitting one, `chicago` swat's taking the other.
+- But johnnie runs `chicago` because gino is his father.
+- If i didn't have a fianc� in `chicago`, i'd go for it.
+- Tommy tells me that capone's coming in from `chicago`.
+- Yeah, two things pete, that -- i'm on my way to `chicago`.
+- Have you canceled `chicago` and the rest of the weekend yet?
+- It was right before he went to `chicago` and met miss lawson.
+- Would you be bummed out if i didn't go to `chicago` with you?
+- You made it out to him last week after he left for `chicago`.
+- Plus you have bloom at the university of `chicago`... why not?
+- He was an investigative journalist for the `chicago` sun-times.
+- After the sears, uh, `chicago`... you never been to minneapolis?
+- I came over from the capitol merger in `chicago` six months ago.
+- Teddy fraiser and his crew went on vacation in `chicago` for it.
+- Are you the mckinney, the dentist on calumet avenue in `chicago`?
+- But after you took the bible out of the drake hotel in `chicago`.
+- They dragged him off to some bullshit conspiracy trial in `chicago`.
+- I've thought of leaving, going to `chicago` or new york, but... yeah.
+- Did you tell me rachel took the kids back to `chicago` for a few days?
+- I mean she's a junior at `chicago` university, she's twenty years old!
+- When i get back to `chicago`, i'm going to start my life all over again.
+- Every hood in `chicago` will be looking for us - as far away as possible.
+- They wouldn't be caught dead in `chicago` - so we'll finish the job here.
+- You don't show for `chicago`, everyone'll know there's something going on.
+- You beat on this prick enough, he'll tell ya he started the `chicago` fire.
+- I once heard itzhak perlman guest star with the `chicago` symphony orchestra.
+- You can't buy the tribune in `chicago` -- you can't buy ^ g-g- goddamn thing.
+- Don't you think you should bring some assistance here from cleveland or `chicago`?
+- Oh, ahh, oil change, i...ehh...i just drove in from `chicago` and uhh...nice hair.
+- Lived there till i was twenty or so and then moved to `chicago` when i got married.
+- The state's investigation just uncovered mr. roston yesterday afternoon in `chicago`.
+- Me and those two witnesses whom your lawyers have been looking for all over `chicago`.
+- The `chicago` office is running through all the personal ads in the tattler right now.
+- Even if we get out of town and go to another airport i'm sure the fbi and `chicago` p.d.
+- Who would believe that elaine thompson was once a stewardess on the denver-`chicago` run.
+- They had al capone send some men in from `chicago` to kill my father, and they almost did.
+                 

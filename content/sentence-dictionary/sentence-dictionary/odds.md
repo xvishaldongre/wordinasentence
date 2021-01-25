@@ -1,0 +1,78 @@
+---
+title: "odds in a sentence | odds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "odds"
+---
+- I'll take those `odds`.
+- I just liked the `odds`.
+- He's goin' up the `odds`.
+- The `odds` were on my side.
+- These are `odds` of 8 to 1.
+- I mean, what are the `odds`?
+- The `odds` are like gravity.
+- The `odds` are you're right.
+- You wanna talk about `odds`?
+- Six to one is no `odds`, boy.
+- The `odds` catch up with you.
+- What are the `odds` on syphon?
+- You want to talk about `odds`?
+- The percentages -- what `odds`?
+- What are the `odds` on that one?
+- Your body... against all `odds`.
+- `Odds` are -- she'll miss anyway.
+- Look at those `odds` - ten to one.
+- The `odds` are all with the house.
+- So the `odds` are up to fifty-fifty?
+- The `odds` are 5 to 3 against us ...
+- I'll take `odds` on cecil number two.
+- Out and about, doing `odds` and sods.
+- We have faced worse `odds` than this.
+- `Odds` are there are more like clarke.
+- Rich or poor, the `odds` are the same.
+- What kind of `odds` are they giving me?
+- Do you have any idea what the `odds` are?
+- I'll lay `odds` you got that bracelet.
+- Most people say the `odds` are against me.
+- You willing to b-back that up with `odds`?
+- The `odds` are always in favor of the house.
+- What are the `odds` of that, one in a million?
+- What are the `odds` of you being seen with me?
+- How about settling for some what are the `odds`?
+- [beeping] because it's the closest `odds` bodkins!
+- How about the `odds` of me buying the first round?
+- Ten to one, o'connell, your `odds` are no-so-good.
+- The cab has an airbag, `odds` are good i'll survive.
+- I'll lay `odds` she's looking for character in a man.
+- Man's figured the `odds`...and he can't take a chance.
+- Johnny friendly is layin' `odds` that you won't get up.
+- What are the `odds` everything works out the librarian?
+- But the `odds` of it being any use to us are against it.
+- `Odds` of anybody finding that girl, thirty years later.
+- But that means the `odds` are probably in your favor now.
+- The `odds` are a hundred to one for a good reason, bacon .
+- So what are the `odds` that eligius iii they're everywhere!
+- I have a feeling this man doesn't play the `odds`, detective.
+- We'll take the first race where the `odds` are 4-1 or better.
+- I take it the `odds` are against us and the situation is grim?
+- I took the `odds` on getting down in one piece, and i made it.
+- The `odds` are one hundred to one so all we need is five grand.
+- What would you have done if the `odds` had gone against you?
+- The `odds` would drop, i mean you could watch the goddamn board.
+- He says she's so famous now, maybe vegas will give `odds` on her.
+- It looked like a fuckin stopwatch, the `odds` would drop so fast.
+- What are the `odds` of there being another ted nelson on our flight?
+- The `odds` are not high, and we found variables that reduce the `odds`.
+- I mean, realistically, what are the `odds` that this is a terrific guy?
+- Frankly, i think the `odds` are slightly in your favor at hand fighting.
+- Sean, do you have any idea what the `odds` are against winning the lottery?
+- What are the `odds`, gentlemen, that i don't live to see mr. james hang yet?
+- Your `odds` of survival are 23,763,273 to... man, you are one chilly square!
+- We've already beaten incredible `odds` by being lucky enough to be alive now.
+- I told you boys i'm no escape artist, but for the first time, i like the `odds`.
+- But with this steel casing and bullet proof glass, `odds` for you are not so good.
+- There wasn't hardly a flutter on the tote board from the time the `odds` were posted.
+- When the right man comes along--no matter *what* the `odds`--he can't *ever* quit!
+- If the `odds` of survival were better, i hope there are no hard feelings try not to move.
+- Then two days ago the `odds` start jumping all over the place until you're a 12-5 underdog.
+                 

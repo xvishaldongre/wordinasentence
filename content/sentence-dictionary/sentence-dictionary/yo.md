@@ -1,0 +1,104 @@
+---
+title: "yo in a sentence | yo example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yo"
+---
+- They're all `yo` `yo`'s.
+- `Yo` soy dies y nueve.
+- `Yo`, we gotta go now!
+- `Yo`, what's with you?
+- `Yo`, where's the "d"?
+- Ai nou na bash `yo` op.
+- Hi-`yo`, just desserts!
+- `Yo`' ass ain't changed.
+- `Yo`, look what i found.
+- `Yo`, showtime, showtime!
+- `Yo` son, check this out.
+- Put `yo`'self in my shoes.
+- Well bring `yo`' ass on...
+- `Yo`, don't sell all that.
+- `Yo` getting there taylor.
+- `Yo`, tavis, check it out.
+- `Yo`' tommy, what up, man?
+- `Yo`, rock, gimme a dollar.
+- `Yo`, teach, what the fuck?
+- `Yo`, you gonna show, tony?
+- I won't hunt with a `yo`-`yo`.
+- Why did `yo` do this for me?
+- Why do `yo`&amp;i accuse me?
+- Wait for the `yo`-`yo` to move.
+- Who do you think's a `yo`-`yo`!
+- `Yo`, man, this is zero cool!
+- `Yo`, you all seen my palace?
+- `Yo`, everyone check this out.
+- I'll bet you're a real `yo` `yo`.
+- `Yo`-ho-ho and a bottle of rum.
+- `Yo`, man, you an amateur, man.
+- `Yo`, we might have killed him.
+- (clicking, beeping) `yo`, hicks.
+- `Yo`, can i have my locker back?
+- `Yo`, carlos-i'm gonna punch you.
+- `Yo`, i heard he was jerkin' off.
+- `Yo`, i'm not comfortable either.
+- `Yo`, johnson... carter, shut up!
+- Didya hear what i just said, `yo`?
+- `Yo`' know i iz the best man here!
+- `Yo`, rocks, buy us sum wine, man.
+- Fo' i pump this glock in `yo`' ass!
+- `Yo`, rocky -- look at this mirror.
+- `Yo`, you got any weed around here?
+- `Yo`, you gotta show some patience.
+- `Yo`, you think we killed that guy?
+- Cameron, cameron, come on over.`yo`!
+- `Yo` black, you looking for trouble.
+- `Yo`, blocker, what's going on here?
+- `Yo`, mike -- what's happenin' here?
+- `Yo`, can i talk to you for a minute?
+- `Yo`, i don't have that kind of cash.
+- `Yo`, your gettin' me all upset here.
+- `Yo`, remember from the pool, that girl?
+- `Yo`, chill man, i'm talking to venezuela.
+- Do you know what '`yo` no quiero morir' is?
+- `Yo`, let me get in your parent's room man.
+- `Yo`' bleedin' inside, man -- get that doctor.
+- I copied a garbage file from... `yo`, what's up?
+- Snoop onto them... `yo`, brain dead, the manual!
+- Uh, `yo`, dude, my catchphrases why are we here?
+- Don't mouth me, old man, i'll knock `yo`' out too.
+- Get me drunk so i don't stick my foot up `yo` ass.
+- You're a pal, rock -- how 'bout `yo`' talk to her?
+- `Yo`... you know why rammellzee's here, don't you?
+- I ain't laid a hand on ya but to ease `yo` fever...
+- Them fleas and tics must be sucking on `yo`' brain!
+- `Yo`, dela, i just got the news from the cns brass.
+- `Yo`, fat thor, i've seen vindicators: crystal war 2.
+- `Yo`, man, i think that devil guy just got ripped off.
+- `Yo`, we're a midseason replacement, ordered 12 shows.
+- `Yo` tavis, i be lovin' `yo` show but mantan you is foul.
+- If `yo` don't have a reservation you can skip to ma-loo.
+- Listen, i wanna say hi to my girlfriend -- `yo`, adrian!
+- `Yo`, check it, my black brothers, we can't let this slide.
+- How 'bout... `yo`, big black, we needs a name for this joint.
+- I been trying to tell `yo`' ass that... day-day is my cousin.
+- `Yo`, dela, they tried to lynch my black ass up in dat piece.
+- `Yo`, rock -- now ya'll be lookin' for people to help, right?
+- I'd seen all the fads: `yo`-yos, pogs, pokémon, crunking, hey.
+- I... go on, whatcha gotta lose, `yo`' here now... no, thanks...
+- `Yo`' old ass need to get in a little bit o' trouble sometimes.
+- `Yo`, `yo`, `yo`... come on, sweetheart... now we'll both call him.
+- Hey, whatta ya doin' here -- we're closed... `yo`, we're closed!
+- I, um... `yo`, milhouse, i got you a balloon form the gift shop.
+- Into a gooey lovefest run by a narcissistic kum-bah-`yo`-`yo`, enter.
+- `Yo` -- he ended up moving back to milwaukee to live with his parents.
+- ♪ `yo`, jebediah survived the pox ♪ your people did not vote for kane.
+- Drink up me hearties, `yo` ho ... not when you can drink instead, at least.
+- Remember when the captain..... `yo` pandora, quit hummm-ing... look at this.
+- `Yo`, day-day, something is going down with those mexicans across the street?
+- That's how i knew `yo`-`yo` wouldn't get a round off even if i gave him all day.
+- See, it's very easy for a fighter to accidentally hurt -- `yo`' yellow, old man.
+- `Yo`, i know what you're thinking, that i'm one of those guys that keep coming up to her.
+- Now if you ain't a dog, which you don't look like -- georgia on my mind wit'`yo` fine ass.
+- So i don't have to spend the rest of my life to give our kids the tools they'll need `yo`.
+- This guy drinks rum from a barrel, says "`yo` ho ho" has a peg leg... yeah, he's a pirate.
+                 

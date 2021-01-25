@@ -1,0 +1,95 @@
+---
+title: "fan in a sentence | fan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fan"
+---
+- I'm a `fan` of thumper.
+- I'm your biggest `fan`!
+- It's really `fan` mail.
+- Not a `fan` of talking.
+- The `fan` club is real.
+- Big `fan` like yourself.
+- I am your biggest `fan`.
+- A `fan` sent them to you.
+- I'm a big `fan` of yours.
+- Yeah... kat a `fan`, too?
+- Your wife a lakers `fan`?
+- Your number one `fan`.
+- He's a big `fan` of yours.
+- He's only a `fan`, millie.
+- I'm a great `fan` of hers.
+- Not a big music `fan`, eh?
+- We're all gonna `fan` out!
+- I can't be nice to a `fan`?
+- Immersive `fan` experience.
+- `Fan` out and look for them.
+- She brought me my `fan` mail.
+- "the harold ryan `fan` club."
+- I'm not a big `fan` of orange.
+- Are you a `fan` of henry james?
+- The `fan` will soon be starting.
+- You're a holden caulfield `fan`.
+- I'm just a really big, big `fan`.
+- His dad was big johnny cash `fan`.
+- You told me you were a mets `fan`.
+- I mean ... a big bag of `fan` mail?
+- She still gets those `fan` letters.
+- It's your `fan` mail, little sister.
+- The guy's not much of a movie `fan`.
+- I also happen to be a jets `fan`.
+- I'm a `fan` of everything that's l.a.
+- She is -- was -- a big doubles `fan`.
+- The shit just hit the `fan`, brother.
+- ...two indians to `fan` me all night.
+- Why don't ya tell 'im you're a `fan`!
+- As a matter of fact, i'm a huge `fan`.
+- I told you i was your number- one `fan`.
+- You haven't introduced me to your `fan`.
+- You startin' a `fan` club or some- thin'?
+- Not a real `fan` of halloween humor, will.
+- Oh my god, i'm a huge skye davidson `fan`.
+- She's just a `fan` for my literary output.
+- (stuttering) i'm a big `fan` of your work.
+- This is me asking you to `fan` that ember.
+- `Fan`-forced air-trains, built around 1870.
+- I don't think '`fan` mail' fits this letter.
+- Look at this `fan` mail i've been answering!
+- You want to join the harold ryan `fan` club?
+- But my mother is rather a `fan` of word games.
+- Didn't have you pegged for a gigglepuss `fan`.
+- `Fan` out and work your way back to the motel.
+- She made a deal with mount weather, `fan` out.
+- Yeah, i was never that big of a western `fan`.
+- I have to see if my `fan` theories are correct.
+- Bet you thought i was just a `fan` or something.
+- I'm a delta gamma and i'm a huge `fan` of yours!
+- The whole fucking `fan` came out of the ceiling.
+- Assuming the baby's a &quot;supremes&quot; `fan`.
+- Homer, will you read my odder stuff `fan` fiction?
+- My god, i can't tell you what a `fan` i am of yours!
+- In one week she got seventeen thousand `fan` letters.
+- I am such a huge `fan` of your movies, books, or music.
+- I didn't murder anybody the shit has hit the `fan`, kid.
+- Then why do they still write me `fan` letters every day.
+- He's been holed up here ever since the shit hit the `fan`.
+- Mildred no grown woman is a `fan` of premature ejaculation.
+- Look at me, dude, do i look like a `fan` of law enforcement?
+- That fucking `fan` stayed on the floor for about half a year.
+- When kramer hears about this, the shit's gonna hit the `fan`.
+- You don't like your `fan` club, you want me to shut 'em down.
+- You see that `fan` -- that sends up air currents into the sky.
+- I'm a huge `fan` of what you did to save that woman, brian.
+- I'm telling you, you don't want to be running that `fan` like it is.
+- We got a whole `fan` club out there just waiting to be conductors.
+- A `fan` club with a worldwide membership in the millions -- also bogus?
+- You couldn't be a `fan` of dolphins or some other less threatening animal.
+- Imprints of their energy, my `fan` club, as you call them, they want power.
+- Well, if this crook's a brewers `fan`, his ass has gotta be from wisconsin.
+- Mickey stops sawin' on my leg and says, 'oh my god, i'm your biggest `fan`!'
+- I'm his number-one `fan`...i've got all his books, every sentence he ever put down.
+- My truck overheated, so i opened the hood and my hair got caught in the `fan` belt.
+- If you're such a devoted `fan`, why were you at the play tonight instead of the game?
+- The w.c. fields `fan` club newsletter... oh my god, the national psoriasis foundation!
+- Uh, uh, i'm a young filmmaker, and a really big `fan`... and i just wanted to meet you.
+                 

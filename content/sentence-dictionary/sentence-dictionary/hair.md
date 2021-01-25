@@ -1,0 +1,107 @@
+---
+title: "hair in a sentence | hair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hair"
+---
+- By pulling my `hair`?!
+- I do her `hair`, yeah.
+- I noticed your `hair`.
+- Legs, butt and `hair`.
+- Your `hair` is moving.
+- And your stupid `hair`.
+- But he has long `hair`!
+- I stroked their `hair`.
+- I was a `hair` analyst!
+- My `hair`'s a little...
+- Same nose, same `hair`.
+- Scrape off your `hair`?
+- Will you fix my `hair`?
+- You've cut your `hair`?
+- Blond `hair`, blue eyes.
+- Cool `hair`, by the way.
+- Her `hair` doesn't blow.
+- He shakes alex's `hair`.
+- His `hair`... any color.
+- I envy the `hair`- line.
+- I got some `hair` stuff.
+- I'll let my `hair` down!
+- I was washing my `hair`.
+- Let me comb your `hair`.
+- My `hair`'s getting wet!
+- Such `hair`, such mouth!
+- We could dye our `hair`.
+- Your `hair`'s different.
+- A lock of `hair` will do.
+- I have siesta `hair`.
+- Big bloke, ginger `hair`.
+- `Hair` spray won't do it.
+- I gave up my body `hair`!
+- I just have short `hair`.
+- Blonde `hair`, nice smile.
+- Gold nose `hair` clippers.
+- How do you like my `hair`?
+- I think it's a pig `hair`.
+- They'll lose their `hair`.
+- This is a photo of `hair`.
+- Your `hair`... is perfect.
+- Your `hair` was different.
+- The color of my `hair`.
+- Did you change your `hair`?
+- Does their `hair` fall out?
+- Grace and braidable `hair`.
+- I never get my `hair` done.
+- It's to do with the `hair`.
+- The color of your `hair`...
+- What color `hair` she have?
+- With a full head of `hair`.
+- Your `hair` looks the same.
+- Braided `hair` -- very dark.
+- Flesh, skin, `hair`...blood.
+- Go and get your `hair` done.
+- Gonna make fun of my `hair`?
+- Made my `hair` stand on end.
+- She tosses her `hair` a lot.
+- That `hair` will have to go.
+- Their `hair` and clothing...
+- What happened to her `hair`?
+- What's it mean, "no `hair`"?
+- What's wrong with my `hair`?
+- If i cut my `hair` again?
+- Did you see his `hair` color?
+- `Hair` brown, eyes pale blue.
+- I'd have to bleach my `hair`.
+- I shall wear it in my `hair`!
+- ... this doing `hair` it's...
+- What'd you do to your `hair`?
+- What happened to your `hair`?
+- Who's been doing your `hair`?
+- Your `hair`'s a little funny.
+- Your `hair`'s cute like that.
+- Her `hair`, i do barbara rush.
+- I like to work on your `hair`.
+- ...i said, i like your `hair`.
+- Just cut his `hair`, you know.
+- Let your `hair` down for once.
+- She just took her `hair` down.
+- What happened to your `hair` ?
+- You might mess up your `hair`.
+- He knows two: both dark `hair`.
+- It's not about the `hair`, man.
+- She might have dyed her `hair`.
+- Watch out, you're on my `hair`!
+- What color `hair` does he have?
+- What did you do to that `hair`?
+- What did you do to your `hair`?
+- Yes...if you like big `hair`...
+- You made this out of my `hair`?
+- You make my `hair` like a doll.
+- Comb my `hair` out later, honey.
+- External `hair` and bony plates.
+- I've changed my `hair`, you see.
+- I was commenting on your `hair`.
+- She styled her `hair` like mine.
+- What color `hair` will she have?
+- What did you want my `hair` for?
+- What'd you say about her `hair`?
+                 

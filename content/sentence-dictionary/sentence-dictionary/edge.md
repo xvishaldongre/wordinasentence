@@ -1,0 +1,93 @@
+---
+title: "edge in a sentence | edge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "edge"
+---
+- Don't lose your `edge`.
+- Fly us over the `edge`.
+- The knife's `edge`, sir.
+- This is the `edge`, boy.
+- Over the `edge`, in fact.
+- The people are on `edge`.
+- There's no `edge` anymore.
+- We finally have an `edge`.
+- Cutting `edge` mathematics.
+- I've been on `edge` lately.
+- I just lost my gaming `edge`.
+- I'm skating the `edge` of it.
+- Over the `edge` of the world.
+- Honed to mono-moleculer `edge`.
+- Whenever he's got an `edge` on.
+- Jade fox must die at its `edge`.
+- Jason: get away from the `edge`.
+- I'm sorry -- i'm on `edge` today.
+- Takes the `edge` off, doesn't it?
+- But he's on the `edge` of a cliff.
+- Let's live on the `edge` a little.
+- All the way to the `edge` and back.
+- It's...i'm just a little on `edge`.
+- Mickey and mallory have that `edge`.
+- It's cutting-`edge` stuff, all right?
+- They passed the '`edge`' along to us.
+- Too many men have died at its `edge`.
+- Sorry, i guess i'm a little on `edge`.
+- Tip of the spear, `edge` of the knife.
+- Said to follow it to the `edge` of night.
+- And we're on the knife's `edge` already...
+- About one step from falling off the `edge`.
+- That thrill of going over the `edge` again.
+- He'll take you to the `edge`... and past it.
+- You're gonna push her right over the `edge`.
+- Trying to save a sheep from the cliff `edge`.
+- Well, you'd be working on the cutting `edge`.
+- More metal... sharp `edge`... don't touch that.
+- One `edge` of an inner rectangle is an integer.
+- I can see the `edge` of the asteroid field, sir.
+- One second... on the eastern `edge` of the valley.
+- Our `edge` is that they don't know we're in touch.
+- You're great at taking the `edge` off a good time.
+- All he was doing i think everybody's on `edge`.
+- Because i'm at the `edge` of my capabilities, robert.
+- They stand at the `edge` of the grave and make jokes.
+- Stands on the `edge` of the woods, almost in a trance.
+- "the `edge` of 13," and, for boys, "jack the stripper."
+- He's from there - `edge` of lake ontario right, soldier?
+- I'm going to lift the tail up, to fly us over the `edge`.
+- My tongue around the `edge` of his ear is what cured him.
+- It's like the murderer walked off the `edge` of the earth.
+- I have a drink before dinner to take the `edge` off my day.
+- Out here on the `edge`, no one around, it's perfect, right?
+- Seems this catwoman has everyone, men and women, on `edge`.
+- I think this whole will byers thing has everybody on `edge`.
+- But it could take the `edge` off that jail time i got coming.
+- On the `edge` of an abyss i've stared why are you here, indra?
+- Don't go making it too simple, we're on the cutting `edge` here.
+- When i was a girl my father took me to the `edge` of el capitan.
+- Making sure the men who've gone over the `edge` won't hurt anyone.
+- Schwartzenegger was the king of the `edge` before they came along.
+- Well, there's a dead cat over here on the `edge` of my lawn, louis.
+- Can you prove that one `edge` of the larger rectangle is an integer?
+- Just wanted to put him on `edge`... what kind of bikes did you ride?
+- But what he's doing, he's attaching an `edge` to the adjacent vertex.
+- Just takes the `edge` off like a beer, but in a fraction of the time.
+- So, not like i'm feeling i put in way too much work, straight-`edge`!
+- Yeah, then some dope to take the `edge` off at the end of a long day.
+- Ever since his wife died in the plane crash, he's been over the `edge`.
+- And cutting-`edge` delivery systems, that i must add to my organization.
+- Her cleverness, that hard `edge`-- maybe they're the weakest part of her.
+- You're playing this as close to the `edge` as any man, i'll give you that.
+- He comes to the `edge` of the world to face that demon, and lay it to rest.
+- So, if he needs it, i help mantini's performance a bit, give him an `edge`.
+- Like once when i woke up on the `edge` of this cliff up on carpathian ridge.
+- It put us in a haze--a honey-colored haze which was lavender around the `edge`.
+- I'm sure you thought columbus was going to sail off the `edge` of the world!
+- I'm moved and i laughed and i-- uh, i, you know, i was on the `edge` of my seat.
+- We had to drive fast and jump before the cars went over the `edge` of the bluff.
+- I can see you still got the style, but i dunno for sure you still got the `edge`.
+- How fucking razor sharp and cutting `edge` and ahead of it's time this concept is?
+- It's kinda frightening to think that a kid like that can go so far over the `edge`.
+- I owe it to myself to go right to the `edge`, rob, and this group does exactly that.
+- But, i should tell you, there are two things that really have us on `edge` right now.
+- You'll be going over the fucking `edge` if you come anywhere near me next friday night.
+                 

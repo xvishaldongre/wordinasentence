@@ -1,0 +1,107 @@
+---
+title: "dress in a sentence | dress example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dress"
+---
+- Give her your `dress`.
+- I got a `dress`, yeah.
+- It's called a `dress`.
+- They tore her `dress`!
+- What about my `dress`?
+- A `dress` or something.
+- Some gave me a `dress`.
+- There's a `dress` code?
+- I'm sorry, that `dress`.
+- I put that `dress` away.
+- I remember that `dress`.
+- No, you get the `dress`.
+- Remember `dress` up day?
+- That's a lovely `dress`.
+- Into a black `dress`.
+- Do you `dress` up leslie?
+- I'll `dress` like i want.
+- Lisa's wearing a `dress`.
+- Will you unzip my `dress`?
+- For your beautiful `dress`.
+- Got a nice evening `dress`?
+- How do you like my `dress`?
+- I have to `dress` the part!
+- That's a different `dress`.
+- That's more than a `dress`.
+- Won't you unzip my `dress`?
+- You `dress` me like a doll.
+- You look good in a `dress`.
+- How did she `dress` him?
+- The man knew how to `dress`.
+- Where'd you get the `dress`?
+- A long `dress`... yeah, lady!
+- Where'd you get that `dress`?
+- Is this your new `dress` suit?
+- Ladies love the `dress` blues.
+- Well, you do have the `dress`.
+- I'll take you to get a `dress`.
+- It's a beautiful `dress`... no.
+- No, i'm paying for the `dress`.
+- Picking out my wedding `dress`!
+- So hard to `dress` for respect.
+- Bring my `dress` to church, huh?
+- Consider it a `dress` rehearsal.
+- It's not you - it's the `dress`!
+- Playing `dress`-up with cretins?
+- They're...pretending to `dress`.
+- Trying to shrug off the `dress`.
+- You have to `dress` for success.
+- You want me to `dress` like her?
+- Dat `dress` will cast ya round...
+- Did you `dress` her up like this?
+- Some car hop, or a `dress` extra?
+- There's a `dress` in the bedroom.
+- You ought to `dress` less square.
+- A `dress` you wear in the evening.
+- So what's my share of the `dress`?
+- Where did you get that `dress`?
+- Any woman can go up a `dress` size.
+- Do you have anywhere i can `dress`?
+- Drown the bitch in the red `dress`.
+- I don't normally `dress` like this.
+- It�s lovely... like the `dress`...?
+- Madam will `dress` now, it is late.
+- This is how i `dress` all the time.
+- I mean, have you seen how i `dress`?
+- Yea, but i'm going to `dress` it up.
+- You'll want a cocktail `dress` then.
+- If i'm right, `dress` like the enemy.
+- I'll take the one inna green `dress`.
+- That's some `dress` you got on there.
+- We all gonna `dress` up like cowboys?
+- I like to `dress` in women's clothing.
+- Then i've only got an hour to `dress`.
+- Why are you wearing a wedding `dress`?
+- You wouldn't have bought this `dress`.
+- I feed you, i clean you, i `dress` you.
+- I'm a walk-on in a fancy `dress` scene.
+- I put the goddamn `dress` on, didn't i?
+- So you'll get married in a new `dress`.
+- Well, why would she want a sun `dress`?
+- Where's that lovely `dress` i made you?
+- Eddie, which `dress` do you like better?
+- If he's a cuban, castro wears a `dress`.
+- Lift your `dress` and an "a" you'll see.
+- Why don't you `dress` like this at home?
+- Ask roquier -- he's cleaning her `dress`.
+- Did you see the woman in the red `dress`?
+- If i win, you wear a `dress` on our date.
+- Maybe i shouldn't have worn that `dress`?
+- I'll just clear up here, and then `dress`.
+- Let's face it, roger, that `dress` is you.
+- Look, mom, i think i've found the `dress`.
+- You haven't once said you like my `dress`.
+- You see how they `dress` when they go out?
+- Doesn't she look great in that new `dress`?
+- Harry, i said don't '`dress` like a queen'!
+- I'll apply this to the cost of the `dress`.
+- The tailored `dress` is our code for drugs.
+- Who will we get now to finish your `dress`?
+- You know who i saw in the `dress` department?
+                 

@@ -1,0 +1,90 @@
+---
+title: "liar in a sentence | liar example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "liar"
+---
+- Cause he was a `liar`.
+- He's a fucking `liar`.
+- He's the worst `liar`.
+- I ain't a damn `liar`.
+- I did too, you `liar`.
+- I'm not a good `liar`.
+- Joel, you're a `liar`.
+- But he is not a `liar`.
+- Or perchance... `liar`!
+- See, i'm a good `liar`.
+- You called me a `liar`.
+- You're a big `liar`!
+- Are you a rotten `liar`.
+- It proves he's a `liar`.
+- `Liar`, you fell asleep.
+- You calling me a `liar`?
+- You're a fuckin' `liar`.
+- You're a `liar`, pancho.
+- Shut up, you `liar`, you!
+- You callin' him a `liar`?
+- You're a charming `liar`.
+- You're a fag or a `liar`.
+- Make up your mind, `liar`.
+- You're a bald-faced `liar`!
+- A `liar` is not one of them.
+- Are you calling me a `liar`?
+- I think the man is a `liar`.
+- I was a pathological `liar`.
+- You're a `liar`, and a thief.
+- If she thinks me a `liar`?
+- I am homer's `liar`... lawyer.
+- You trying to call me a `liar`?
+- She was a `liar`, she was a `liar`!
+- You'll soon find out, you `liar`!
+- Because i'm a professional `liar`.
+- You made a `liar` out of me, neil!
+- Anybody that says that is a `liar`.
+- Selina, i'm not a very good `liar`.
+- But at least i know you're a `liar`.
+- Don't forget you called me a `liar`.
+- He is a `liar`, the demon is a `liar`.
+- Sebastian was a pathological `liar`.
+- Mr. x, i won't make you out a `liar`.
+- An oath to a `liar` is no oath at all.
+- Crawfished a bet, called him a `liar`.
+- I'll never be as good a `liar` as you.
+- Call me a `liar`, then, and a murderess.
+- I don't want to hear it from the `liar`.
+- Either you're a `liar` or you are a fool.
+- [gunshot above] don't make me a `liar`.
+- The only other spook i knew was a `liar`.
+- You used to be a much better `liar`, sam.
+- Oh, but if i keep being this good, `liar`.
+- To me, it would mean that you're a `liar`.
+- Okay, so she's a very old goddamned `liar`.
+- You know that no one likes a `liar`, right?
+- Well that'd make me a `liar` then wouldn't it?
+- No, that's, that's the ultimate `liar` of liars.
+- Excuse me, sir, are you calling my wife a `liar`?
+- That woman is an imposter, a `liar`, and a cheat.
+- The `liar` and the thief the deal was no weapons.
+- A `liar` is the second lowest form of human being.
+- I might be a hypocrite, lexa, but you're a `liar`.
+- I thought you said you weren't a very good `liar`.
+- We've seen our share of crazy, george is a `liar`.
+- That she doesn't kiss and tell, you fucking `liar`!
+- The key thing we proved was that hiss was a `liar`.
+- Big deal, i was exposed as a `liar` on the internet.
+- You know, you're not the only one bald-faced `liar`.
+- Besides, it's beginning to affect your looks� `liar`!
+- Born a `liar`, first word out of his mouth was a lie.
+- Thanks, roy, you're sweet... a big `liar`, but sweet.
+- You're a piss-poor `liar` for the smartest man i know.
+- I live on tips, so don't be offended, but you're a `liar`.
+- Watch out for dick low, he's a `liar`; he has his own world.
+- I told you from the beginning, selina, i'm not a very good `liar`.
+- Steve's weak, immoral and a `liar` but he's still a real nice guy.
+- That you're a coward and a `liar`, putting your life above theirs.
+- Not revealing information doesn't necessarily make someone a `liar`.
+- Of course i pay taxes, only a `liar` doesn't pay taxes, i'm not a `liar`.
+- ...tom is a mystery... you're such a `liar`... good things about tom ripley?
+- Yeah, well, if he says that all that flab turns into dick at midnight, he's a `liar`.
+- She's a `liar`, a traitor-- ♪ so you gotta let me know ♪ what the hell is wrong with you?
+                 

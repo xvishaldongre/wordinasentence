@@ -1,0 +1,70 @@
+---
+title: "checks in a sentence | checks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "checks"
+---
+- His alibi `checks` out.
+- What if he `checks` it?
+- Cates `checks` the file.
+- ...this month's `checks`.
+- Why's there five `checks`?
+- How do you sign `checks`--?
+- It `checks` out didn't it?!
+- In case <u>who</u> `checks`?
+- Place the `checks` properly.
+- Those `checks` take forever.
+- Right, that `checks` out here.
+- Lothar, take your `checks` now.
+- You take out of state `checks`?
+- Radar stealth mode `checks` out.
+- Send your `checks` to his family.
+- So many `checks`, so little rain.
+- Everything still `checks` out okay.
+- I'd like to see if it `checks` out.
+- The `checks` were for odd amounts...
+- The feebees run background `checks`.
+- Radio `checks` at 5-minute intervals.
+- You already have the `checks`, darling.
+- My unemployment `checks` are running out.
+- "don't write any `checks` you can't cash."
+- He had the shoe and the shoe `checks` out.
+- Sometimes he comes and `checks` up on her.
+- Stop him before he endorses those `checks`!
+- Did you send in all of the deposit `checks`?
+- Your pay check is a disgrace to pay `checks`.
+- Just call me if anyone else `checks` in tonight.
+- He has total immunity and his story `checks` out.
+- Just like the numbers on those treasury `checks`.
+- Well, these are the `checks` for the large cases.
+- Almasy `checks` to see if katharine is still awake.
+- Now, i'd kill 'em, but the `checks` keep on coming.
+- We do... that's why he can't call or send `checks`.
+- I bet you didn't forget the bachelor party `checks`.
+- If that ring `checks` out, we'll give him an escort.
+- No envelopes with cash inside, no `checks`, nothing.
+- Yeah, maybe.... let's start the background `checks`.
+- I'm carrying quite a large sum in travelers `checks`.
+- Crooked cops and kidnappers, they don't take `checks`.
+- I saw you shuffling your `checks` with your right hand.
+- Does he always phone you when he `checks` out of hotels?
+- Look at a mod inspiration, let me see what `checks` out.
+- I sweat blood for five years and he `checks` for spelling.
+- And those `checks` or whatever it is for the income tax man.
+- Every time patrol `checks` in... anything in his whole life.
+- I sent a lot of `checks`, i'm not sure what all of them are.
+- That `checks` out with our finding, thank you, mr. dahlberg.
+- I'm just saying i bet those `checks` all found the mailboxes.
+- Or my letters ... of course ... you getting my `checks` ... ?
+- That you didn't prepare for by doing your pre-combat `checks`.
+- He `checks` in, pays, picks up the key, but never walks inside.
+- Hell, anyone who can write can pass fifty-sixty dollar `checks`.
+- It was a different floor then... where'd you pick up your `checks`?
+- Chance - any `checks` from the deceased, any contracts or documents?
+- Usually they carry it long enough to pass some bad `checks` then dump it.
+- Howard, give him the keys... gimme the traveler's `checks` and the register.
+- And he `checks` the drive, yeah, there was a drawing of a... an adult and a child.
+- He's already discovered dickie cashed `checks` for $1000 the day before he disappeared.
+- You carry the money to the welshman, he `checks` it, hands you his marker, you're done.
+- I'd like you to overnight me a copy of those `checks`, then put them in a safe deposit box.
+                 

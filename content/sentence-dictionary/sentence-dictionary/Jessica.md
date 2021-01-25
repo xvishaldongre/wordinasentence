@@ -1,0 +1,61 @@
+---
+title: "Jessica in a sentence | Jessica example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jessica"
+---
+- Dad, this is `jessica`.
+- I'm `jessica` matthews.
+- Back outside, `jessica`.
+- `Jessica` goes back now.
+- I was cruel to `jessica`.
+- `Jessica` and i are through.
+- Where's my chest, `jessica`?
+- `Jessica` lives -- or she dies.
+- `Jessica` told me all about it.
+- That's `jessica` and... my mom.
+- It's nice to meet you, `jessica`.
+- `Jessica`, can you drive me home?
+- Okay, i'll take care of `jessica`.
+- They tried and died.... `jessica`!
+- Hi, `jessica`, mason... hi, nicole.
+- But i'm miss `jessica`'s nurse, alma.
+- You don't seem quite sure, `jessica`.
+- I was just... `jessica`, i'm so sorry.
+- `Jessica` was never any good for paul.
+- He gives `jessica` the flowers and tape.
+- That's what `jessica` was talking about!
+- But miss `jessica` always says "brioche."
+- Diana -- you heard from `jessica` lately?
+- It's not just how i felt toward `jessica`.
+- `Jessica`... listen to me... listen to me...
+- You mustn't speak of... stop him, `jessica`!
+- `Jessica` may go with you as far as the lock.
+- She was mindless but not like miss `jessica`.
+- You think i love `jessica` and want her back.
+- Diana would never talk to you about `jessica`.
+- I can tell you right now `jessica` isn't going!
+- Maybe we should ask `jessica` to join the class.
+- It's `jessica`'s dad - she said he's really anal.
+- `Jessica` calm yourself/ where are my feelings...
+- He comes here every night to see `jessica` rabbit.
+- "you think life's beautiful, don't you, `jessica`?
+- You think you're beautiful, don't you, `jessica`?"
+- Bobby, i love `jessica` like she's my own daughter.
+- Who the fuck told you `jessica` had a miscarriage?!
+- It's a question of what we are to do with `jessica`.
+- Speak to your friends for me, `jessica`... please...
+- `Jessica`'s parents are travel agents and -- hi, sam.
+- I came to tell you again -- `jessica` cannot be cured.
+- I sincerely hope you are not going to marry `jessica`.
+- Because he drove `jessica` insane -- deliberately -- coldly!
+- What was it `jessica` wanted us to do with this chest again?
+- But when i got here, `jessica` was already raging with fever.
+- I like to tend for miss `jessica` and i want to tend for you.
+- The big l, or the big o. i don't want to dupe her, `jessica`.
+- Please... -- reverend mother `jessica`, you know it must be done.
+- You have to...save...`jessica`... save `jessica` and save the... no.
+- I know all about you -- that you're a nice girl, competent and kind to `jessica`.
+- Finch comes to me and says, "`jessica`, i need help with this, blah blah, etcetera."
+- Mother -- seeing `jessica` day after day -- never able to escape, never able to forget.
+                 

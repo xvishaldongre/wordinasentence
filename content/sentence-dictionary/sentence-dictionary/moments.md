@@ -1,0 +1,53 @@
+---
+title: "moments in a sentence | moments example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moments"
+---
+- It has it's `moments`.
+- I've had my `moments`.
+- This is one of those `moments`.
+- Ugh, i hate defining `moments`.
+- I... just for a few `moments`...
+- I'll be back in a few `moments`.
+- She has `moments` of melancholy.
+- Caesar lives for these `moments`.
+- It has its `moments` of uncertainty.
+- Not one of steven's finer `moments`.
+- A couple of `moments`, i'll grant you that.
+- Your existence will cease within `moments`.
+- "the network executives goofiest `moments`."
+- Of course that's only in its weaker `moments`.
+- But i wanted his final `moments` to have peace.
+- In the darkest `moments`, it's what i live for.
+- `Moments` of pure joy always have consequences.
+- It was one of the most wonderful `moments` of my life.
+- These are the `moments` in life you're supposed to grab.
+- Fender house -- `moments` later </b> is that the decoder?
+- Honey, this is difficult, but we've all had our `moments`.
+- Girls, please excuse sister mary patrick for a few `moments`.
+- I must admit, mister fellowes, i had `moments` i was worried.
+- I forget some `moments` where all you been the last two years.
+- I'm talking about one of the worst `moments` in human history.
+- You do have your `moments` ... not many, but you do have them.
+- In a very few `moments` we should have premier belch on the phone.
+- In `moments` of extreme desperation, you might even call me "sir".
+- Sharing small `moments`, sharing memories, raising a beautiful child.
+- It's in those `moments` that everything comes together or falls apart.
+- I can see a big grease spot in the midst of my most intimate `moments`!
+- I would like to catch up with all the `moments` i didn't spend with you.
+- A funny little quality i find -- and he has finer `moments` now and then.
+- It will take a few `moments` for the computer to compile the information.
+- Vandamm: to you, my dear, and all the lovely `moments` we've had together.
+- I ruin so many `moments` by analyzing them when i should just be living them.
+- Oh these `moments` do try me... -- what he would do to your dad's department?
+- Frankly, in a very few `moments`, this is going to be no place for a lady.
+- I want to say it because my whole life may depend on these next few `moments`.
+- I think i should mention, candy, that harold does have his eccentric `moments`.
+- What happened next was one of those life-changing `moments` someone is unchained.
+- They're not photographs -- they're stories, entire histories captured in `moments`.
+- You are a smuggler moving a load... a few more `moments`, still in this business.
+- Yet all you wanted me to do oh, also, you've made me recall wonderful `moments` mmm.
+- Sensor records show a solar probe was launched from the observatory a few `moments` ago.
+- Emma, i swear to you -- if i've learned one thing, it's that `moments` like this are rare.
+                 

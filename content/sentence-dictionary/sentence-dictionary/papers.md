@@ -1,0 +1,107 @@
+---
+title: "papers in a sentence | papers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "papers"
+---
+- Just `papers`, photos.
+- You know, my `papers`.
+- It was in the `papers`.
+- Where are the `papers`?
+- These are free `papers`.
+- Did you see the `papers`?
+- Had to renew my `papers`.
+- It's in all the `papers`.
+- My `papers` are in order.
+- Reads the funny `papers`.
+- Some rolling `papers`.
+- I don't read the `papers`.
+- I'm all over the `papers`.
+- Like the `papers` all say.
+- End up in the `papers`?
+- Have you seen the `papers`?
+- Don't you read the `papers`?
+- I read that in the `papers`.
+- Oh�the `papers`� the `papers`!
+- We'd be in all the `papers`!
+- You read it in the `papers`?
+- Governor gathers up `papers`.
+- Hurry up with those `papers`.
+- See you in the funny `papers`.
+- Did you see the `papers` today?
+- Do you have your `papers`, sir?
+- He kept it out of the `papers`.
+- I had some `papers` to pick up.
+- Have you read the `papers` today?
+- I read about you in the `papers`.
+- It's been in the `papers` lately.
+- Jack, it's all over the `papers`.
+- Only what i read in the `papers`.
+- There's no names in the `papers`.
+- I once did a paper on it `papers`.
+- I'll get you the `papers` tomorrow.
+- It's in all the afternoon `papers`.
+- Less sensational `papers` go broke.
+- Lookin' to make the `papers`, john?
+- You made the chicago `papers` too.
+- Did you read the `papers` yesterday?
+- The chest that i put my `papers` in.
+- We'll have the other `papers` crazy.
+- You were in the `papers` again, son.
+- He used him on the pentagon `papers`.
+- I just came for some `papers` i left.
+- Maybe get my picture in the `papers`.
+- Will... you saw this in the `papers`.
+- I'll sign those `papers` - hey, nurse!
+- I think i have the necessary `papers`.
+- My father's loan `papers` are missing.
+- Providing travel `papers` is illeagal!
+- I'm arranging deportation `papers`.
+- Since when do you believe the `papers`?
+- The family kept it out of the `papers`.
+- This murder was in the `papers`, right?
+- ...and some rolling `papers`, that's it.
+- I'd read all your `papers` on bioethics.
+- My name's been in the `papers` too much.
+- She stopped by to pick up some `papers`.
+- That's what the `papers` have named you.
+- The one the `papers` been writin' about.
+- The `papers` are going to eat you alive.
+- Was in all the `papers` three years ago.
+- We'd better get to work on the `papers`.
+- What're you gonna do about the `papers`?
+- Where do you keep the old town `papers`?
+- Anything really wrong with your `papers`?
+- I had to dump the `papers` in a trashcan.
+- Just keep your eyes on the `papers`, hmm?
+- The `papers` always blow these things up.
+- Maybe i should go home and grade `papers`.
+- `Papers`--they all want me to sign `papers`.
+- Did you see all this stuff in the `papers`?
+- I just want to pick up my divorce `papers`.
+- In the meantime, i'll draw up the `papers`.
+- `Papers` like these speak to larger issues.
+- So, you've got lifeguard `papers`, or what?
+- What else did you keep out of the `papers`?
+- If the enemy gets those `papers` we're lost.
+- It involves some old and forgotten `papers`.
+- No, the corporate `papers` have to be legit.
+- You've read about my father in the `papers`.
+- Good -- also, give it to the `papers` and tv.
+- If you believe what you read in the `papers`.
+- Whoever broke in messed-up all your `papers`.
+- I'd read about your shootings in the `papers`.
+- The `papers` for the car will arrive tomorrow.
+- They print any kind of shit in these `papers`.
+- Fucking dog has `papers`, dude.--over the line!
+- If that was a girl i want ta see some `papers`.
+- It was right after the pentagon `papers` broke.
+- Must i be bothered with all these `papers` now?
+- As soon as we gather the appropriate `papers`...
+- I don't know anything about these `papers`, sir.
+- Three years old, he can read the funny `papers`.
+- The `papers` called them the nightingale murders.
+- You can't chuck me out, my `papers` are in order.
+- That's why i told jester to prepare your `papers`.
+- The `papers` said the safe door was opened, eddie.
+                 

@@ -1,0 +1,107 @@
+---
+title: "sweet in a sentence | sweet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sweet"
+---
+- Ask away, `sweet` man.
+- Damn, this is `sweet`.
+- Dear, `sweet` hawkeye.
+- Dear, `sweet`, rachel.
+- He seems real `sweet`.
+- It's okay, my `sweet`.
+- Oh, charlie's `sweet`.
+- Oh, `sweet` decadance.
+- `Sweet` deal you have.
+- `Sweet` dreams, blake.
+- That's a `sweet` deal.
+- That's really `sweet`.
+- Calm down, `sweet` pea.
+- I think you're `sweet`.
+- `Sweet` daughter death.
+- `Sweet` name, isn't it?
+- `Sweet` talk the woman.
+- They're all so `sweet`.
+- Aw... that's so `sweet`.
+- He's a very `sweet` man.
+- Man, baby, `sweet`, ooo!
+- So are you, pop-`sweet`.
+- Well, home `sweet` home.
+- You got it, `sweet` pea.
+- You guys are so `sweet`!
+- Ah, `sweet` college days.
+- It's such a `sweet` nose.
+- I want somethin' `sweet`.
+- Says it's pretty `sweet`.
+- `Sweet` internet freedom.
+- e air… smells… `sweet`.
+- Early, you are so `sweet`.
+- Isn't that `sweet` of her!
+- Must have a `sweet` tooth.
+- `Sweet` as a peach, i bet.
+- `Sweet` slippers of oisin!
+- Thank you, `sweet` rabbit.
+- This was really `sweet`...
+- Wasn't that `sweet` of me?
+- I'm going to be so `sweet`.
+- I think he's a `sweet` guy.
+- Look at my `sweet` darling.
+- That's so `sweet`, michael.
+- That was so `sweet` of you.
+- Yes, james is very `sweet`.
+- You've been really `sweet`.
+- Bet your `sweet` ass we are.
+- Deal with it, `sweet` thing.
+- Scully... something `sweet`.
+- Why, you `sweet` thing, you.
+- `Sweet` dreams to you to!
+- It's just... you are `sweet`.
+- _ such `sweet` sorrow, right?
+- `Sweet` talk me all you want.
+- This was very `sweet` of you.
+- With `sweet` talk and brains?
+- `Sweet` love, renew thy force!
+- `Sweet`, shy... well- dressed.
+- That's real `sweet`, garcetti.
+- This is a `sweet` side of you.
+- This is mighty `sweet`, paden.
+- We gave you the `sweet` drink.
+- You're a `sweet` man, richard.
+- Play that `sweet` one you know.
+- Same sauce -- `sweet` and sour.
+- `Sweet` little town, fair oaks.
+- The `sweet` fruits of marriage.
+- What's the matter, `sweet` pea.
+- I was afraid it was `sweet` sue.
+- Oh, my `sweet`, beautiful lotte.
+- Yeah, look at that `sweet` face.
+- Any candy bars, anything `sweet`?
+- At that `sweet` little b &amp; b.
+- I'm gonna do it for `sweet` lois.
+- `Sweet`, screaming, pooping life!
+- What brings you in here, `sweet`?
+- It's `sweet` of you, j.j., thanks.
+- Oh, isn't that `sweet`, thank you.
+- She ain't as `sweet` as she looks.
+- That's very `sweet` of you vaughan.
+- That was `sweet` of you--thank you.
+- And home `sweet` home, here we come.
+- It's terribly `sweet` of you, jason.
+- It was `sweet`, but it took forever.
+- Okay, and... and... fucking `sweet`.
+- She was a `sweet` girl but fuck her.
+- So `sweet` and funky and voluptuous.
+- There's something `sweet` about you.
+- Dude, that movie was fucking `sweet`!
+- I think you're very `sweet`, corrado.
+- I told you this was a `sweet` set-up.
+- My `sweet` ellen... of course i knew.
+- Nova, yeah she looked pretty `sweet`.
+- Oh `sweet` lord, everett, looka this!
+- O `sweet` my mother cast me not away.
+- That's very `sweet` of you, mr. roth.
+- Went for the `sweet`-spot and missed.
+- Goodnight `sweet` prince, parting is .
+- He's kind and `sweet` and considerate.
+- How `sweet`- within your time, buster.
+                 

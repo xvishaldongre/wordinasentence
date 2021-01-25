@@ -1,0 +1,62 @@
+---
+title: "packed in a sentence | packed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "packed"
+---
+- Consider him `packed`.
+- The place is `packed`.
+- My mom `packed` for me.
+- `Packed` to the ceiling.
+- You better get `packed`.
+- I still haven't `packed`.
+- I want everyone `packed`.
+- I got the money all `packed`.
+- The maid `packed` a suitcase.
+- Jesus, this place is `packed`.
+- `Packed` and with an inventory.
+- You `packed` your walkie, right?
+- Even chanukah hollow is `packed`.
+- I'm all `packed` and ready to go.
+- Are you sure you even `packed` it?
+- All the rations have been `packed`.
+- I `packed` up my shit and ran away.
+- You already `packed` up your stuff?
+- Listen, i `packed` you some biscuits.
+- So, who... uh, who `packed` my chute?
+- We `packed` all the luggage ourselves.
+- I know my wife `packed` one in there...
+- Please make sure everything's `packed`.
+- It's not `packed` with explosives, is it?
+- So one day, she just `packed` it and left.
+- They `packed` up and left a half hour ago.
+- This bar is `packed` with professional people!
+- Why in the hell is daddy and me class `packed`?
+- I've booked you a flight and `packed` you a bag.
+- They `packed` their stuff on horses and went on.
+- She `packed` a bag to go and stay with mr. quentin.
+- He moved down there after meryl `packed` up and left.
+- Seventeen years of my life... `packed` up in one day.
+- Thousands of refugees being `packed` you're dreaming.
+- And then we get `packed` to go to the country tomorrow.
+- Well she must've `packed` on a few pounds over the years.
+- Here we are all `packed` to go to miami, and what happens?
+- [hoof beats] i `packed` lunch for two if you want to come.
+- You don't think you `packed` in a little too much gunpowder?
+- Make sure the bomb is `packed` and ready to go in 10 minutes.
+- That you've `packed` your bags and ordered the car and - yes.
+- This bar's going to be `packed` with girls for you to pick from.
+- You'd never think such a little thing `packed` such a big wallop.
+- Clean -- carefully `packed` -- not too stylish -- but presentable.
+- Roger: i want to be `packed` in olive oil if i'm gonna be a sardine.
+- See, if you `packed` your piece you could've made the guy see sense.
+- I also `packed` part of the parachute, we'll just finish the session.
+- No more anne schuyler's husband�he has his bag all `packed` by this time.
+- She has to be `packed` and ready to leave by seven thirty tomorrow morning.
+- I knew i should have `packed` up and gone home as soon as i got that twenty.
+- ♪ toot-toot-tootsie, don't cry ♪ we're lucky the rifles were `packed` in grease.
+- So this year, when george white's scandals opened, she `packed` me off to florida.
+- Not a house in the country ain't `packed` to the rafters with some dead negro's grief.
+- So he `packed` his few belongings and left the farm to seek his fortune across the sea.
+- Get the russian up here, have him clean this place, floor to ceiling and get us `packed`.
+                 

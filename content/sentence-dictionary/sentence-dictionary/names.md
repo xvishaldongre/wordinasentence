@@ -1,0 +1,107 @@
+---
+title: "names in a sentence | names example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "names"
+---
+- They call him `names`.
+- They're weird `names`.
+- Kick `names`, take ass.
+- No last `names`, jonah.
+- What are their `names`?
+- You fellas got `names`?
+- He only had two `names`.
+- Hallowed be your `names`.
+- So what are your `names`?
+- Hallowed be their `names`.
+- I'm so bad with `names`...
+- The `names` you called me.
+- We can change our `names`.
+- Yes, but you name `names`.
+- I don't know their `names`.
+- Their real `names`, please.
+- You gave us <u>`names`</u>?
+- Fogel has four more `names`.
+- Get more `names` from billy.
+- Give me those `names` again.
+- Stop throwing `names` at me.
+- Rule number two - no `names`!
+- The more `names`, the better.
+- The `names` i've been called.
+- Try telling them our `names`.
+- You will give us the `names`?
+- Do you know all their `names`?
+- Listen, we know their `names`.
+- So, where you at with `names`?
+- Do you have the `names` or not?
+- I don't see any people `names`.
+- No goddamn `names`, you retard!
+- Their `names`, ranks and posts?
+- You know, what's-their-`names`.
+- I don't know their real `names`.
+- I think those are their `names`.
+- I've written their `names` down.
+- `Names` are incredibly intimate.
+- Plus `names`, addresses and i.d.
+- Under different company `names`.
+- You might recognize the `names`.
+- I heard some of the same `names`.
+- No `names`, this is an open line!
+- There's no `names` in the papers.
+- Different `names`, different jobs.
+- I know the `names` of the cabinet.
+- So, where are you at with `names`?
+- There are the `names` of the dead.
+- We have no `names`, man, no `names`.
+- Do you know leon�s parents `names`?
+- They wanted to clear their `names`.
+- Dragline gives out the `names` here.
+- Leo, i didn't give them the `names`.
+- This committee, it feeds on `names`.
+- Two hundred and eighty-five `names`.
+- We-- we nev-- we don't name `names`!
+- `Names`, a phone number, something...
+- Oh, you're using our made-up `names`.
+- Why can't you remember their `names`?
+- Will it help you give up any `names`?
+- You know, why do you call me `names`?
+- They refused to give me their `names`.
+- How did you come to know their `names`?
+- I have some `names` the police gave me.
+- The naming of `names` is not necessary.
+- They have funny `names`: marlon and al.
+- We've got a lot of `names` coming in...
+- Why do you all have such funny `names`?
+- Can you tell me what their `names` were?
+- I didn't see our `names` on that pardon.
+- I'm not asking for `names` or specifics.
+- The guy doin' the job `names` the price.
+- You get me the `names` of their parents.
+- Oh, this place sure has a lot of `names`.
+- Yes, with your clients' `names` attached.
+- They all have `names` and numbers on them.
+- But, in project mayhem, we have no `names`.
+- First, you don't go calling my men `names`.
+- I enter the `names` on this clipboard here.
+- If you don't mind, you fill in the `names`.
+- Someone `names` a lot of warts on line two.
+- The `names` of all the headwaiters in town.
+- What do you recognize, `names` or faces?
+- It's always been one of my favorite `names`.
+- Jesus, these fucking `names`... ray barboni.
+- These `names` mean anything to you, asshole?
+- I'm sorry i can't remember anybody's `names`.
+- Ruiz don't like using `names` on cell phones.
+- Sir, we do not use such `names` at our hotel.
+- We are ready for the speaking of the `names`.
+- Can we use their `names`?-- --no-- absolutely.
+- I'd rather not know your real `names` anyways.
+- That'd be a job, coming up with those `names`.
+- The `names` are mr. and mrs. victor laszlo.
+- `Names` john behan, i'm cochise county sheriff.
+- We invoke the `names` of the primes as we pray.
+- I'd like to mention a few <u>`names`</u>, who...
+- Now it's 19. the `names` of all past commanders.
+- You came back and repeated three `names`... how?
+- You know me, breakin' hearts and takin' `names`.
+                 

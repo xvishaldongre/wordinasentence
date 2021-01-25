@@ -1,0 +1,107 @@
+---
+title: "half in a sentence | half example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "half"
+---
+- `Half` for doing what?
+- I got a `half` a tank.
+- I'm only `half` human.
+- My van is `half` full.
+- Not the better `half`.
+- One `half` in advance.
+- Try four and a `half`.
+- Two and a `half` days?
+- We broke it in `half`!
+- About `half`, actually.
+- Cut `half` his ear off.
+- Dude's a `half`--squid.
+- `Half` now, `half` later.
+- I'll be `half` an hour.
+- Keep `half` my pension.
+- Then `half` the people.
+- There's no `half`- way.
+- Two and a `half` cents.
+- Well, here it's `half`.
+- You' just `half` a man!
+- A year and a `half` ago.
+- Eighteen-- and a `half`.
+- `Half` a million for me.
+- `Half` of them are mine.
+- `Half` what you owed me.
+- I have a `half` brother.
+- I'll take a `half` hour.
+- I'm eleven and a `half`.
+- Out of `half` a million.
+- Sometimes not by `half`.
+- Try a year and a `half`.
+- About `half` a cup a day.
+- A `half`-track, anything.
+- Do you love `half` of me?
+- `Half` a million for you.
+- `Half` - i'm comin' down.
+- Split it `half` and `half`.
+- Three and a `half` hours?
+- Two and a `half` minutes.
+- Where's the other `half`?
+- About a year and a `half`.
+- A foot and a `half` thick?
+- An hour and a `half` late.
+- A year and a `half` later?
+- But it's only `half`-done.
+- Five and a `half` minutes.
+- `Half` a million soldiers.
+- `Half` this money is ours.
+- It ain't `half` fair, man!
+- It ain't `half` fair, man.
+- She's `half` romulan, jim.
+- Sort of `half`..... great.
+- Well, you're `half` right.
+- Who kept the other `half`?
+- You can fold it in `half`.
+- You don't look `half`-bad.
+- A `half` a million dollars?
+- A `half` hour in the lobby.
+- Be ready in `half` an hour.
+- He's `half` yours, partner.
+- I'll give you `half` of it.
+- Rachel's not `half` my age.
+- We're `half` a million off.
+- About a year and `half` ago.
+- Eighteen and a `half` years.
+- `Half` of that taste is you.
+- I got `half` of 'em elected.
+- I want to rip her in `half`.
+- Just `half`-a-cup of coffee.
+- Nearly snapped me in `half`.
+- Not `half` as bad as i feel.
+- One `half` bar of chocolate.
+- So did `half` the guys here.
+- So does `half` of san diego.
+- Well, `half` of that's mine.
+- Well, morning's `half`-over.
+- Well, then cut it in `half`.
+- Yes, better get me a `half`.
+- You got a flux and a `half`.
+- But a `half` million dollars!
+- But i want `half` the collar.
+- Eight and a `half` feet wide!
+- Got a `half` a tuna sandwich.
+- `Half` of everything is mine.
+- `Half` of gotham zombied-out.
+- *`half`* of these is bruised!
+- He ain't `half`-bad, i guess.
+- He can't wake up `half` done.
+- He was `half` micmac himself.
+- I don't dig `half` the words.
+- I get it for them for `half`.
+- ...i'm at least `half` a bum.
+- I was loaded `half` the time.
+- Polls open in `half` an hour.
+- That's only the `half` of it.
+- Then we go to `half` rations.
+- Yes, one and a `half` please.
+- An hour, an hour and a `half`.
+- `Half` the country's doing it!
+- `Half` the time he's bluffing.
+                 

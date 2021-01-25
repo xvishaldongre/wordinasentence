@@ -1,0 +1,107 @@
+---
+title: "says in a sentence | says example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "says"
+---
+- Eight, it `says` here.
+- He `says` he loves me.
+- He `says` it's a game.
+- He `says` you're dead.
+- I know what he `says`.
+- It `says` forty- nine.
+- Jake `says` thank you.
+- Ok. do what he `says`.
+- Or so my momma `says`.
+- `Says` he can't sleep.
+- `Says` he wanted food.
+- Screw what dad `says`!
+- That's what he `says`.
+- That's what it `says`.
+- The government `says`.
+- What if max `says` no?
+- Your card `says` hutu.
+- He is sorry, he `says`.
+- He `says` frog, i jump.
+- He `says` he loves you.
+- He `says` he's too hot.
+- Long as charlie `says`.
+- `Says` i'm too serious.
+- `Says` she can feel it.
+- Tell me what it `says`.
+- That about `says` it...
+- He `says`, "cancer!"
+- But who `says` you will.
+- Come, what `says` romeo?
+- Gillman `says` i'm fine.
+- Her husband, she `says`.
+- He `says` here good-bye.
+- He `says` he's not dead.
+- Pike: do what he `says`.
+- `Says` he wants to move.
+- She `says` you know her.
+- So he `says` "all right.
+- The data `says` it does.
+- Then all it `says` is...
+- What it `says` is wrong.
+- Chief `says` -- how many?
+- Chub `says` you're fired.
+- Co-owner i be, `says` me.
+- He never `says` his name.
+- He `says` it's up to joe.
+- If that's what it `says`.
+- I know what mommy `says`.
+- It `says` "may have heat.
+- Joyce `says` she's timid.
+- `Says` it's pretty sweet.
+- `Says` you're dinky- dau.
+- Senility `says` the wife.
+- She `says` i should wait.
+- So -- he `says` i'm nice.
+- That's what perry `says`.
+- Abby `says` she's healthy.
+- The kid `says`, "yeah.
+- Command `says` we hold st.
+- He `says` he can help you.
+- He `says` he doesn't know.
+- He `says` he wants it now.
+- He `says` i'm a communist.
+- He `says` it's a bad idea!
+- He `says` it's strawberry.
+- It `says` "money to burn".
+- It's what everyone `says`.
+- Not her fault, she `says`.
+- She `says` 'hello' to you.
+- She `says` she has a plan.
+- That's what my dad `says`.
+- We must do what he `says`.
+- Ballistics `says` it's shu!
+- But she `says` it's urgent.
+- Dad, the computer `says`...
+- He `says` he is a big baby.
+- He `says` so many fianc�es.
+- Jaeger `says` you're crazy.
+- My math `says` twenty-four.
+- No, it `says` marleen here.
+- Rache `says` it's from you.
+- `Says` he must talk to you.
+- `Says` he's a good italian.
+- `Says` i'm a bad influence.
+- She `says` a lot of things.
+- She `says` i sleep all day.
+- She `says` it wasn't sammy.
+- So he `says` you sent them?
+- Who `says` she's a suspect?
+- Everyone `says` "warhol?
+- My dad `says` it's kids.
+- As soon as dr. emlee `says`.
+- Do we know what this `says`?
+- Gary `says` triple homicide?
+- He `says` give 'em equality.
+- He `says` he wants the pain.
+- He `says` they're very nice.
+- I don't care what he `says`!
+- I don't care what he `says`.
+- I don't care what it `says`!
+- I don't know what it `says`.
+                 

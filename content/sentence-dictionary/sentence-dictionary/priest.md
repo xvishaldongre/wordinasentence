@@ -1,0 +1,52 @@
+---
+title: "priest in a sentence | priest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "priest"
+---
+- Raymond... a `priest`.
+- Ask the `priest`, miss.
+- I'll find you a `priest`.
+- Sick `priest`, is that it?
+- Another's become a `priest`.
+- My brother's a `priest`, man.
+- What's he giving the `priest`?
+- I ain't a `priest`, lieutenant.
+- You are not my `priest`, aramis!
+- I never killed a `priest` before.
+- `Priest` rises and moves to alex.
+- Who's this `priest` i'm thanking?
+- I would like to see a `priest`.
+- Yes, but i... was there a `priest`?
+- We went to meet the village `priest`.
+- You want me to go against a `priest`?
+- Excuse me, i'm looking for a `priest`.
+- Did regan know a `priest` was coming over?
+- What should we do with this judas `priest`?
+- With the `priest`, you liked them scrambled.
+- Hast thou no letters to me from the `priest`?
+- So, how'd a shrink ever get to be a `priest`?
+- You're more than a `priest`; you're an angel!
+- My mother always said i looked like a `priest`.
+- Judas e. `priest`, who did you borrow that from?
+- This is prince imhotep, high `priest` of osiris.
+- Dost thou not bring me letters from the `priest`?
+- Far as the `priest` goes, he won't be bothering you.
+- I swear on this former `priest` that i didn't do it.
+- Did the `priest` say anything about the resurrection?
+- Did you tell him we dated before you were a `priest`?
+- I mean, we had a `priest` come in and bless the house.
+- Yes, i mean, who wants to read about another dead `priest`?
+- Your `priest`, your postman, your teacher, the world at large.
+- One last time: can you think of some `priest` who fits the bill?
+- I mean who's the `priest` i keep seeing, he's there all the time.
+- I was talking to the `priest`, and do you know what he said to me?
+- If i knew what's right or wrong i'd be a goddamned `priest`, right?
+- The drawing shows a `priest` named sankara who lived centuries ago.
+- `Priest`... you're not that bad... come on we'll get you to a doctor.
+- It's about some other guy, some guy who's not a `priest`, who doesn't die.
+- We can go right over there... you just quit bein' a `priest` or somethin'?
+- The local `priest` and this doyle girl are getting up a meeting in the church.
+- I don't care if you're a preacher, a `priest`, a nun, a rabbi or a buddhist monk.
+- I'm your `priest`, your shrink, your main connection to the switchboard of souls.
+                 

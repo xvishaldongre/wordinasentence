@@ -1,0 +1,107 @@
+---
+title: "pretty in a sentence | pretty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pretty"
+---
+- Did `pretty` good too.
+- He's `pretty` amazing.
+- Hey, `pretty`, `pretty`.
+- Hey, `pretty` woman...
+- I did it `pretty` big.
+- It's in `pretty` deep.
+- It's `pretty` crowded.
+- It was `pretty` hairy.
+- It was `pretty` scary.
+- Joint's `pretty` dead.
+- Oh, you're `pretty`...
+- `Pretty` as a picture.
+- `Pretty` fucking good.
+- `Pretty` rough so far.
+- `Pretty` shot anyways.
+- Security `pretty` lax.
+- She was very `pretty`.
+- So young, so `pretty`.
+- That is `pretty` cool.
+- That's `pretty` close.
+- That's `pretty` good .
+- That's `pretty` rough.
+- That's `pretty` steep.
+- That's `pretty` stiff.
+- That's `pretty` weird.
+- This is `pretty` good.
+- Win it, `pretty` sure.
+- You are very `pretty`.
+- You're `pretty` drunk.
+- All perky and `pretty`.
+- A `pretty` one too.
+- Certainly `pretty`.
+- Banged up `pretty` bad.
+- He looked `pretty` bad.
+- He seems `pretty` good.
+- I... feel.... `pretty`.
+- Is he hit `pretty` bad?
+- It looks `pretty` good.
+- It's `pretty` exciting.
+- Look `pretty` fun, huh?
+- Looks `pretty` shallow.
+- Make me `pretty` again.
+- `Pretty` cool, stanley.
+- `Pretty` terrible shot.
+- She looked so `pretty`.
+- She looks-- - `pretty`.
+- She's `pretty` special.
+- Signal's `pretty` weak.
+- That's-a `pretty` good.
+- That was `pretty` cool.
+- We're sitting `pretty`.
+- You live `pretty` good.
+- You look `pretty` good.
+- You look very `pretty`.
+- You think i'm `pretty`?
+- I am `pretty` desperate.
+- I think you're `pretty`.
+- It's `pretty` cool, huh?
+- It still `pretty` blank.
+- It was `pretty` pitiful.
+- Just not a `pretty` one.
+- Must feel `pretty` good.
+- Overall - `pretty` good.
+- `Pretty` awesome, right?
+- `Pretty` land, isn't it?
+- `Pretty` low all around.
+- `Pretty` nasty out, mac.
+- `Pretty` shallow of you.
+- We figured `pretty` bad.
+- Yah, looks `pretty` bad.
+- Yeah, i'm `pretty` sure.
+- You guy's `pretty` good?
+- You look `pretty` today.
+- He must be `pretty` good.
+- He's `pretty` well known.
+- Hey, `pretty` nifty, huh?
+- I know her `pretty` well.
+- I'm `pretty` beat myself.
+- It's `pretty` bad timing.
+- It's `pretty` moving huh?
+- It was `pretty` bad, huh?
+- It was `pretty` specific.
+- `Pretty` big chance, huh?
+- `Pretty` boring, i guess.
+- `Pretty` fast, wasn't it.
+- `Pretty` impressive, huh?
+- `Pretty` much everything.
+- `Pretty` radical, johnny.
+- Says it's `pretty` sweet.
+- She's `pretty` rested up.
+- She was `pretty` into it.
+- She was the `pretty` one.
+- Some `pretty` bad people.
+- Steers it `pretty` close.
+- Sure is `pretty`, though.
+- That looks `pretty` nice.
+- They play `pretty` rough.
+- They seem `pretty` happy.
+- Think it's `pretty` good.
+- You hurtin' `pretty` bad?
+                 

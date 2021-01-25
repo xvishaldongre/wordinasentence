@@ -1,0 +1,74 @@
+---
+title: "Karl in a sentence | Karl example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Karl"
+---
+- Hey `karl`, guess what.
+- `Karl`, come over here.
+- What about you, `karl`?
+- `Karl`, this is my mama.
+- Wasn't your name `karl`?
+- Good to know you, `karl`.
+- Hey `karl`, you off work?
+- I just heard them `karl`.
+- Nice to meet you, `karl`.
+- Hey `karl`, you know what?
+- `Karl` has some cool books.
+- `Karl` won't talk to women.
+- Where are you goin', `karl`?
+- You set right there, `karl`.
+- She made sure `karl` knew.
+- I'm ye oldest boy name `karl`.
+- You enjoying yourself, `karl`?
+- `Karl` can stay if he wants to.
+- She's talkin' about me, `karl`.
+- `Karl`, what are you doing here?
+- Come on `karl`, who did you kill?
+- You're leavin' ain't you, `karl`?
+- `Karl` you done a good day's work.
+- `Karl`, you want some coffee, huh?
+- `Karl`, this is my boyfriend, doyle.
+- I wanted for you to meet `karl`, too.
+- `Karl`, did you really kill somebody?
+- Didn't you go to sleep at all, `karl`?
+- How come `karl` won't eat here with us?
+- Me and `karl` got things we need to do.
+- `Karl` has an entire book -- a notebook.
+- Maybe you and `karl` want to go with us?
+- Couldn't you have done somethin', `karl`?
+- I think jamie's been seeing `karl` again.
+- We'll always be nervous, won't we `karl`?
+- Come on, `karl`, let's go out to the garage.
+- It was on that night `karl` met his destiny.
+- Oh `karl`, jesus christ `karl`, don't do that.
+- This is my brother-in-law, `karl` matuschka.
+- `Karl`, what in the world are you doing here?
+- Truthfully, i do want you to leave, `karl`.
+- `Karl` childers just in from the state facility.
+- I'd like to show that fuckin' `karl` to the guys.
+- `Karl`, why don't you and melinda go take a walk.
+- The other thing is your friend `karl` has to go.
+- Oh, we're gonna change the light in here for `karl`.
+- Well don't go now `karl` the stores aren't open yet.
+- `Karl`'s real sensitive about having his picture made.
+- `Karl` here's gonna get some more biscuits tonight.
+- Plus you're liable to bust a spring in `karl`'s head.
+- `Karl`, you better clap your hands or he'll just keep on.
+- I really wouldn't know, you see `karl` takes care of that.
+- `Karl` ruprecht kroenen, one of the reich's top scientists.
+- Now, `karl`, you sure you want to go stay with these folks?
+- Melvin, go get `karl` and take him down to the old classroom.
+- I think `karl` is going to be a writer or a librarian eventually.
+- Make one of them gruntin' sounds `karl` or whatever it is you do.
+- Oh `karl`, we've got rats in the attic you better get some traps.
+- That good old man believes in food as you believe in `karl` marx.
+- Just thought i'd check on `karl` and see if everything's working out.
+- `Karl`, i know you want him, but the police are probably on their way.
+- `Karl`, now listen, there's gonna be a party tonight here at the house.
+- `Karl` if you put this in regan's room i want you to tell me, now did you?
+- Come on `karl`, i need you to help me ice down a tub of beer, you and frank.
+- `Karl`, maybe you and melinda might want to take a walk or something after dinner.
+- Oh well, `karl`'s a little retarded, he don't know what the hell i'm talkin' about.
+- `Karl`, they's a blanket up in under that cot and soap in the bathroom to clean up with.
+                 

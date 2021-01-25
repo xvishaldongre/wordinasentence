@@ -1,0 +1,107 @@
+---
+title: "o in a sentence | o example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "o"
+---
+- It's twelve `o`'clock.
+- Just wanted his `o`-2.
+- M-`o`-f-e-t... now go.
+- Mr. `o`'connor called.
+- Say, seven `o`'clock ?
+- Shit `o` dear, julian.
+- Stop that, `o`'rielly!
+- You know why, boy-`o`?
+- You owe me, `o`'brien.
+- Bandits at 2 `o`'clock.
+- Contact, two `o`'clock.
+- Impact in 10, 9... `o`?
+- I shit on all `o`' you.
+- I want to blast oﬀ.
+- M-`o`-n-y -- i'm right!
+- `O`'neill just tole me.
+- `O`, `o`, listen to me.
+- `O`'reilly, what is it?
+- 8 `o`'clock in my suite?
+- A bunch `o`' jesus nuts?
+- Eight `o`'clock tonight.
+- It's only ten `o`'clock.
+- `O`, be some other name!
+- `O`'lord hear my prayer.
+- `O`'lord hear my preyer.
+- `O`., `o`., i am so sorry.
+- Six `o`'clock in berlin.
+- Well, i'm not using `o`.
+- Are you my two `o`'clock?
+- Call me johnnie... n.`o`.
+- Dad -- eleven `o`'clock!!
+- I'm sorry, `o`. divinity.
+- It must be one `o`'clock.
+- `O`., what are you doing?
+- `O`., what are you doing?
+- `O`� est pass� ton salon?
+- Personally, i'm type `o`.
+- Probably a year... `o`.k.
+- Who wasn't in the `o`.r.?
+- You said three `o`'clock.
+- Come on, you know f.c.`o`.
+- Get the hell out `o` here!
+- I don't see how, `o`'neil.
+- Is that correct, `o`'neil?
+- It's almost ten `o`'clock.
+- It's only eight `o`'clock.
+- Mother `o`'god... shhhhhh.
+- 'n i'm delmar `o`'donnell.
+- Su casa y shit-`o` hole-`o`.
+- There's some poor s.`o`.b.
+- They said three `o`'clock.
+- This is a piece `o`' cake.
+- Well, i'm not using "`o`".
+- What's that, like a p.`o`.
+- After the jack-`o`-lantern.
+- Blank faces here, `o`'neil.
+- But it's a different m.`o`.
+- Eight `o`'clock, everybody!
+- Eight `o`'clock in my room?
+- Howard, your one `o`'clock.
+- I told max eight `o`'clock.
+- It's only eleven `o`'clock.
+- It's twelve `o`'clock, man.
+- Not anymore, mr. `o`'brien.
+- `O` honey nurse, what news?
+- `O`.k., everybody pull out!
+- `O` trespass sweetly urged!
+- So does shaquille `o`'neal.
+- Tomorrow, at six `o`'clock.
+- Two people at 12 `o`'clock.
+- We're getting low on "`o`".
+- Where'd you learn s.`o`.s.?
+- He didn't ask me to d.`o`.r.
+- He's a real piece `o`' work.
+- I ain't so sure `o`' things.
+- In an old jack-`o`'-lantern.
+- Nobody does that single-`o`.
+- No-`o`-`o`... don't touch her!
+- `O`'connor's out to get you.
+- ♪ `o` god on high ♪ a.l.i.e.
+- `O`-kay, you're not talkin'.
+- `O`.k., `o`.k., that's enough.
+- On the nine `o`'clock train.
+- `O`., `o`., it's ok. let's go.
+- `O`, that she knew she were!
+- She's just a little s-l-`o`.
+- The mothership has an `o`.r.
+- We say lame-`o`, you lame-`o`.
+- Don't piss him off, `o`'neal.
+- D.`o`....number three to d.`o`.
+- Engaging bandit 12 `o`'clock.
+- Four `o`'clock could be good.
+- I don't work with `o`'bannon.
+- I get up about one `o`'clock.
+- I'm telling you this s.`o`.b.
+- It's from one of those p.`o`.
+- It's y. `o`. h. you think so?
+- Now then, johnny-`o`; pay me.
+- `O`, he's a lovely gentleman.
+- Six `o`'clock and come alone.
+                 

@@ -1,0 +1,51 @@
+---
+title: "pen in a sentence | pen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pen"
+---
+- Yeah, that's my `pen`.
+- Now i handed them the `pen`.
+- Yeah, well, i lost my `pen`.
+- Your `pen` palls dead, lady.
+- I ju- well, it's a nice `pen`.
+- Twenty-five years in the `pen`?
+- Let me get a `pen` out of my car.
+- Take your `pen` in hand, marquis.
+- I don't do this, back to the `pen`.
+- Joker, he just got out of the `pen`.
+- Uh, the charcoal, a `pen`, anything!
+- And tom hagen got the reynolds `pen`.
+- The `pen` is mightier than the sword.
+- Get a `pen` and don�t ask any questions.
+- I feel like crying... she gave me a `pen`.
+- Eh, could i have my `pen` back now, please?
+- Henry, the `pen` -- it's a rescue, old boy.
+- I gave her my heart and she gave me a `pen`.
+- Our future lies in the stroke of your `pen`.
+- Nor will addison dewitt and his poison `pen`!
+- Hell, world war ii gave us the ballpoint `pen`.
+- From where i stabbed you with my fountain `pen`.
+- If anybody can make use of that `pen`, it's you.
+- He's had no poison-`pen` complaints lodged at all.
+- I got the `pen` out... fuck her... from the store.
+- I just have two more `pen` pals and then i'm done.
+- She published a novel last year under a `pen` name.
+- Imagine your lines high- lighted with a felt tip `pen`.
+- I opened the gate of their `pen` - but they wouldn't run.
+- Take out a `pen`, write yourself a note, do not trust her.
+- Maybe they use them for dust rags, or `pen` wipers... yeah?
+- Buzz takes his card and scrawl on the back with a gold `pen`.
+- You use a gun, i use a fountain `pen`, what's the difference?
+- I'm sorry man, i shoulda picked you up personally at the `pen`.
+- I don't feed ya information on the warriors, it's back to the `pen`.
+- It's all right for you, you couldn't get a `pen` in your foot, you swine.
+- Son, this here pig gotta be moved outta this `pen`, away from them others.
+- Just that my brother did a stint in the `pen` and he used to eat like that.
+- Now tell me why you joined the army or i'll jab this `pen` through your neck.
+- Here's this guy with a `pen` stuck in his ass and he thinks it's a thermometer.
+- Might make a cute musical: it happened in the bull `pen` -- the story of a woman.
+- Why don't you take that fuckin' `pen` and shove it up you ass, you fuckin' jag-off?
+- It's like everybody got an anonymous poison-`pen` letter or some -- do you smell smoke?
+- Look, if the doctor's got the thermometer in his hand, then where's his `pen` gotta be?
+                 

@@ -1,0 +1,61 @@
+---
+title: "worrying in a sentence | worrying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "worrying"
+---
+- Never stop `worrying`.
+- Stop `worrying`, deke.
+- Stop `worrying`, kane.
+- Oh, i wasn't `worrying`.
+- Stop `worrying`, colonel.
+- Leave the `worrying` to me.
+- I like `worrying` about you.
+- I'm not `worrying` any more.
+- That's� oh, stop `worrying`.
+- She's got me `worrying`, too.
+- Hey, stop `worrying`, colonel.
+- Hey, will you stop `worrying`?
+- Quit `worrying` about everthing.
+- Don't start `worrying` about him.
+- No sense `worrying` about it now.
+- I'm `worrying` about other things.
+- Does this mean i can stop `worrying`?
+- And stop `worrying` about your sister.
+- Yeah - that's all that's `worrying` you.
+- Hey, don't you start `worrying` about me.
+- Just `worrying` about my boys -- as usual.
+- Not `worrying` about my son's social life.
+- Voice stress points suggest he's `worrying`.
+- Oh, will you stop `worrying` about the money?
+- You're `worrying` about its killing someone else?
+- Till we do i don't want no one `worrying` about ..
+- It's like she's always `worrying` the end of her finger?
+- Your cousin here was getting sick, `worrying` about you.
+- By `worrying` about you spending money on foolish things?
+- If i were sure he was in a movie, i could stop `worrying`.
+- Take a break from `worrying` about what you can't control.
+- I am not sure what's more `worrying`, the job or your past.
+- I love that old jew, but he's gonna kill himself `worrying`.
+- It never was, so i'm not gonna start `worrying` about it now.
+- Your people are hungry and you're `worrying` about defectors?
+- Your people are hungry, and you're `worrying` about defectors.
+- I said you should stop `worrying` because i've made up my mind!
+- Take my truck, take a rest -- stop `worrying` about mel gordon.
+- What if... but we spend our whole lives `worrying` about money.
+- ... `worrying` whether someone said something "nice" about them.
+- Don't you think i know she spends half her lite `worrying` about me...
+- Now stop `worrying` about me and get ba to work, all of you… _ 7:00?
+- `Worrying` - clicking - picking - you may as well be back in los angeles.
+- Don't want to be critical, john, but here it is� will you stop `worrying`!
+- What would you do if you stopped `worrying` about what other people think?
+- I'm watching the side door and the colonel's out front, so stop `worrying`.
+- You know, you should spend some of that money instead of `worrying` about it.
+- You spend too much time -- much too much `worrying` about that crap... oh good.
+- Of course i'd be here frantically `worrying` thinking you must of got kidnapped.
+- Four taken, four chased and all, i expect, `worrying` somebody's house into evil.
+- You worry about it for a while, i've been `worrying` all night, now you can worry.
+- Oh, i know, a girl with a map, figuring out each step, `worrying` about north and south.
+- Oh, i'm not `worrying` about her - i'm `worrying` about that second act curtain, that's all.
+- No need to stop being a lady... quit `worrying` -- you'll be back on your knees in no time.
+                 

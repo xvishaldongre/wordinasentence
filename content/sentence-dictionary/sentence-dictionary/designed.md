@@ -1,0 +1,59 @@
+---
+title: "designed in a sentence | designed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "designed"
+---
+- I `designed` it myself.
+- It's `designed` unfair.
+- It worked as `designed`.
+- You already `designed` it?
+- I `designed` the damn thing.
+- You `designed` gotham plaza?
+- You `designed` this yourself?
+- It was `designed` to pull people in.
+- I `designed` this whole thing myself.
+- Those missiles are `designed` exactly.
+- Okay, i `designed` the float, you know.
+- I `designed` the ship's propulsion system.
+- The game is `designed` so they always win.
+- They `designed` the ship from watching you.
+- `Designed` by the greatest russian minds, no.
+- They obviously weren't `designed` for racing.
+- This mess hall was `designed` to lock down no.
+- It was `designed` to withstand nuclear warfare.
+- Our bodies may not be `designed` for the journey.
+- They were originally `designed` for microsurgery.
+- This spacecraft was `designed` to pick things up.
+- I don't think this tunnel was `designed` for walking.
+- An aircraft engineer down the peninsula `designed` it.
+- Becca franko `designed` the mind drives and the flame.
+- He's very careful, very... `designed` when he chooses.
+- `Designed` and built the coolest houses i've ever seen.
+- She `designed` it to not just access a human mind, now.
+- The machine was `designed` explicitly for that purpose.
+- He wasn't `designed` to live a complete, human life span.
+- On the earth, but lasercom was `designed` you hated wells.
+- Like me, it has been `designed` with modular power sources.
+- So, you're the psycho that `designed` this murder maze, huh?
+- That's why it was `designed` to trigger itself automatically.
+- Your core was `designed` to interface with this type of body.
+- They have been `designed` to present the illusion of fairness!
+- Hard wired programs `designed` to keep me from my full potential.
+- Weren't `designed` to receive, so the kids wouldn't even hear it.
+- Actually it's a dance `designed` as a sentiment of courtly manners.
+- I go out there and sometimes just stare at something i've `designed`.
+- That never would of -- he looks like he was `designed` by scientists.
+- They `designed` and build tiger's chariot... how much money is involved?
+- In human history, all `designed` to ride out the shepherd's first hurdle.
+- It's `designed` to protect the control room when the missile is launched.
+- I `designed` it to amplify what is already there, assume flight positions.
+- Their weapons were `designed` to fight each other... not extraterrestrials.
+- `Designed` for piscatorial research -- the spawning habits of deep sea fish.
+- These spacesuits are `designed` to withstand the harsh environment of space.
+- She developed the precogs, `designed` the system and pioneered the interface.
+- They were `designed` to fall automatically in a system failure -- what doors?
+- That you `designed` end the world, you're gonna want revenge and rightfully so.
+- Becca franko `designed` the mind... well, you'll be happy to know - try my damn brace!
+- I've `designed` and built six of these places -- take my word for it, everything's fine.
+                 

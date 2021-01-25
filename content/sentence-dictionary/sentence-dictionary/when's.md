@@ -1,0 +1,52 @@
+---
+title: "when's in a sentence | when's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "when's"
+---
+- So `when's` he coming?
+- So, `when's` the drop.
+- `when's` that, a week?
+- `when's` the air date?
+- `when's` the audition?
+- `when's` the deadline?
+- `when's` it going down?
+- `when's` your baby due?
+- `when's` your birthday?
+- `when's` your deadline?
+- So `when's` the wedding?
+- `when's` the next jumbo?
+- `when's` she out of here?
+- `when's` the arraignment?
+- `when's` your next round?
+- Yeah, `when's` he coming?
+- `when's` he coming back...?
+- Ben, `when's` delly due back?
+- `when's` captain nemo moving in?
+- `when's` clifton picking you up?
+- `when's` brian coming for the tv?
+- So, `when's` your first spacewalk?
+- `when's` the last time you saw him?
+- `when's` the last time we were there?
+- I don't get it -- `when's` the weekend?
+- `when's` that novel of yours coming out?
+- `when's` the last time you had some fun?
+- `when's` the rest of your stuff arriving?
+- Could you tell me `when's` the next train?
+- `when's` the next business trip, big fella?
+- `when's` the latest time you were out there?
+- `when's` the last time we played a wedding, jack?
+- `when's` the last time you got a good night's sleep?
+- Hey, lou, `when's` the festival for saint know-it-all?
+- `when's` the last time you took a night off, had a date?
+- Now, this school is so advanced - `when's` he gonna molt again?
+- Okay... if you're the president, `when's` your wife's birthday?
+- `when's` the last time you saw a hundred dollars, ernest farmer?
+- `when's` the last time you had a totally nude girl in your room...
+- `when's` the first time you done it with a girl who wasn't hookin'?
+- `when's` the last time you were outside this house -- -- or this room?
+- `when's` the last time you had some mu-shu let's hear it, lee, when was it?
+- So `when's` that sebastian-cabot- buckingham-palace-looking- butlerhead getting here?
+- ♪ all your life all you've asked `when's` your daddy gonna talk to you ♪ i'll take that.
+- Damn baby, `when's` the last time you had a vacation...jesus, i gotta get out of this job.
+                 

@@ -1,0 +1,107 @@
+---
+title: "asleep in a sentence | asleep example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "asleep"
+---
+- Don't fall `asleep`...
+- He just fell `asleep`.
+- Sorry, i was `asleep`.
+- The fool was `asleep`!
+- No, they were `asleep`.
+- She's finally `asleep`.
+- When you fall `asleep`.
+- Hope just fell `asleep`.
+- How long was i `asleep`?
+- Liar, you fell `asleep`.
+- Aren't the kids `asleep`?
+- Cocksucker fell `asleep`.
+- I mean, she was `asleep`.
+- Just don't fall `asleep`.
+- Don't fall `asleep`, okay?
+- It's not falling `asleep`.
+- Mama was probably `asleep`.
+- My leg is falling `asleep`.
+- The crew is still `asleep`.
+- The master ... is `asleep`!
+- They're all still `asleep`.
+- ... how long was i `asleep`?
+- I - i guess i fell `asleep`.
+- I must have fallen `asleep`.
+- I thought you were `asleep`.
+- Jesus, my legs are `asleep`.
+- The gods are `asleep`, erik.
+- You're all falling `asleep`.
+- Aren't your parents `asleep`?
+- I fall `asleep` at the wheel.
+- I think i'm falling `asleep`.
+- You were altogether `asleep`.
+- How long have i been `asleep`?
+- I was `asleep`, mr. president.
+- We're supposed to be `asleep`.
+- You've been `asleep` too long.
+- You were `asleep` when i left.
+- He's fallen `asleep`, as usual.
+- If dylan falls `asleep`,then...
+- Ray fell `asleep` at the wheel.
+- Brad's probably `asleep` by now.
+- I thought you might be `asleep`.
+- Jade said you'd fallen `asleep`.
+- Not right now, daddy's `asleep`.
+- That can help you fall `asleep`.
+- When you get home, i'm `asleep`.
+- You think the kids are `asleep`?
+- Count d'algout is still `asleep`.
+- Epps, my leg is falling `asleep`.
+- He's in the living room `asleep`.
+- I just want to... she's `asleep`.
+- Janet's probably `asleep` by now.
+- Nah, they were dead-ass `asleep`.
+- Becomes how long were we `asleep`?
+- My room, `asleep`, last i checked.
+- I bet they're `asleep` in new york.
+- I'm so sorry you found me `asleep`.
+- More like deployed in bed `asleep`.
+- The gods are `asleep`, king arnulf.
+- When i leave home, you're `asleep`.
+- I think i went in and fell `asleep`.
+- Nancy, don't fall `asleep` in there.
+- Here's the key in case he's `asleep`.
+- How long will he need to be `asleep`?
+- To our planet while we were `asleep`.
+- You're not falling `asleep`, are you?
+- No, mom, mom, you can't fall `asleep`.
+- No, not that i recall, i was `asleep`.
+- `Asleep`-- --and none of 'em were mine!
+- Can i come over after jamie's `asleep`?
+- I said the kids are `asleep`... and...?
+- Inside your dream, you'll fall `asleep`.
+- Until i could fall `asleep` every night.
+- When dan died you weren't even `asleep`.
+- Will you stay here till i fall `asleep`?
+- You've been `asleep` for nineteen hours.
+- 'cause if you were `asleep` -- i'm sorry.
+- Even if he's falling `asleep` on his feet?
+- I uh, i didn't finish, i... fell `asleep`.
+- They're so precious when they're `asleep`.
+- Time for me to fall `asleep` and find him.
+- You're going to wait until she's `asleep`?
+- I'll bet they're `asleep` all over america.
+- I was `asleep` when you got home, wasn't i?
+- She must've fallen `asleep` at the table...
+- It's oppenheimer, how long were we `asleep`?
+- I was `asleep`, and it put you into my dream.
+- Or do i have to wait until you fall `asleep`?
+- Remember, my wife is `asleep` upstairs, dear.
+- The man must have been `asleep` or something.
+- This is not what i meant by falling `asleep`.
+- We are falling `asleep` at the wheel, people!
+- God, i hate falling `asleep` in the afternoon.
+- I dream that i'm `asleep` and i can't wake up.
+- I think that's about the time i fell `asleep`.
+- Meanwhile whatever you do don't fall `asleep`.
+- We were `asleep` when a helicopter woke me up.
+- He was `asleep` before his head hit the pillow.
+- I'll just get it anyway when you fall `asleep`.
+- I may have been `asleep` but it wasn't a dream.
+                 

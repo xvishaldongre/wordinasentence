@@ -1,0 +1,107 @@
+---
+title: "sleep in a sentence | sleep example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sleep"
+---
+- Get some `sleep`, kid.
+- I can't go to `sleep`.
+- I didn't `sleep` well.
+- Maybe in your `sleep`.
+- Now, get some `sleep`.
+- Says he can't `sleep`.
+- `Sleep` in the winter.
+- `Sleep` now, liebchen.
+- `Sleep` well, my love.
+- `Sleep` wherever i am.
+- Think you can `sleep`?
+- Where did you `sleep`?
+- You'll `sleep` better.
+- You need some `sleep`.
+- You need your `sleep`.
+- You `sleep` her peini.
+- A good night's `sleep`.
+- He doesn't `sleep`.
+- Do try to `sleep`, bob.
+- Go to `sleep`, charlie.
+- I can't `sleep` either.
+- I can't `sleep` nights.
+- I `sleep` where i want.
+- It'll help you `sleep`.
+- I went back to `sleep`.
+- Let's get some `sleep`.
+- No...i need to `sleep`.
+- Now go back to `sleep`.
+- `Sleep` tight, sweetie.
+- We put them to `sleep`.
+- You can't `sleep` here!
+- You can't `sleep` here.
+- You don't eat, `sleep`.
+- You go back to `sleep`.
+- You should `sleep` too.
+- You `sleep` last night?
+- We must `sleep` now.
+- Did you get any `sleep`?
+- Did you `sleep` alright?
+- I can't `sleep` anymore.
+- I don't want to `sleep`.
+- I just couldn't `sleep`.
+- I'm afraid to `sleep`...
+- I'm gonna go to `sleep`.
+- I won't `sleep` tonight.
+- Now, go back to `sleep`.
+- She just got to `sleep`.
+- `Sleep` with me tonight.
+- Try to get some `sleep`.
+- ...you can `sleep`, hon.
+- Because he can't `sleep`.
+- Can't you get to `sleep`?
+- Couldn't `sleep`, pumper.
+- Didn' you get no `sleep`?
+- Did you get some `sleep`?
+- Did you `sleep` with her?
+- Did you `sleep` with him?
+- Get some `sleep`, nelson.
+- Go back to `sleep`, baby.
+- Have to `sleep`, michael.
+- I don't need `sleep`, dj.
+- Let him get some `sleep`.
+- She talks in her `sleep`.
+- So, did you `sleep` good?
+- What car?--go to `sleep`.
+- You `sleep` with my wife.
+- You need your `sleep`.
+- Everyone get some `sleep`.
+- Get a little more `sleep`.
+- He'll `sleep`, that's all.
+- I couldn't `sleep` either.
+- I didn't `sleep` with him.
+- I don't `sleep` very well.
+- I got no place to `sleep`.
+- I should get some `sleep`.
+- Man: go back to `sleep`!
+- Mantan and `sleep` 'n eat.
+- Must have gone to `sleep`.
+- `Sleep`, `sleep` now my son.
+- `Sleep` well, big brother.
+- They didn't go to `sleep`.
+- When did you `sleep` last?
+- You do `sleep`, don't you?
+- You should `sleep`, cathy.
+- Now madam will `sleep`.
+- But honey, i can't `sleep`.
+- Get a good night's `sleep`.
+- Go home and `sleep` it off.
+- Go in and get some `sleep`.
+- I didn't `sleep` all night.
+- I didn't `sleep` very well.
+- I just didn't `sleep` well.
+- I'm going to go to `sleep`.
+- I need very little `sleep`.
+- I `sleep` with my spats on.
+- I think i'll go to `sleep`.
+- She says i `sleep` all day.
+- They come when you `sleep`.
+- This is where they `sleep`!
+- We'll `sleep` here tonight.
+                 

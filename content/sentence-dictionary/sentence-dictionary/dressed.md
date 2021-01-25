@@ -1,0 +1,107 @@
+---
+title: "dressed in a sentence | dressed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dressed"
+---
+- Get `dressed`, scully.
+- I `dressed` the wound.
+- I'm getting `dressed`.
+- Hey, i'm not `dressed`.
+- Hurry -- get `dressed`.
+- Look how i'm `dressed`.
+- I have to get `dressed`!
+- I have to get `dressed`.
+- I should have `dressed`.
+- I wasn't `dressed` right.
+- Can i get `dressed` first?
+- I'm getting `dressed` now.
+- I've got to get `dressed`!
+- Hurry up and get `dressed`.
+- I got `dressed` in a hurry.
+- `Dressed` up and everything.
+- Guy `dressed` for halloween?
+- As soon as you get `dressed`.
+- Dylan, time to get `dressed`.
+- Now get up and get `dressed`.
+- Sweet, shy... well- `dressed`.
+- What are you `dressed` up for?
+- Get `dressed`, we're going out.
+- You are not `dressed` properly.
+- Everyone `dressed` up last year.
+- I'mma go get `dressed` for work.
+- Grown man `dressed` like a clown.
+- I get `dressed` for all my meals.
+- Permission to get `dressed`, sir?
+- Should i get `dressed` up or -- ?
+- I don't want to get `dressed` yet.
+- I'm sorry, i had to get `dressed`.
+- You should probably get `dressed`.
+- Shucks, and i got all `dressed` up.
+- Simon, you've got to get `dressed`.
+- Why are you `dressed` for outdoors?
+- Why are you `dressed` up as batman?
+- Yeah, i did -- am i `dressed` okay?
+- Now you get `dressed` and we go out.
+- Why are you `dressed` like a queen!?
+- Get `dressed` and come to the bridge.
+- He was `dressed` only in his pajamas.
+- I'm `dressed` up with no place to go.
+- I'm not really `dressed` for a party.
+- Quickly `dressed`, a bit dishevelled.
+- When is the sidewalk fully `dressed`?
+- A man `dressed` like a woman this way.
+- Hence why you're `dressed` as a boy...
+- But i'm not `dressed` for siam... siam.
+- He cut her up and `dressed` the wounds.
+- You're pretty well-`dressed` for a kid.
+- Really, everyone `dressed` up last year.
+- The way i look, the way i'm `dressed`...
+- Why are you `dressed` like a powder puff?
+- Well, i want to... you're still `dressed`?
+- When you're `dressed`, come on downstairs.
+- All i ask is that you get `dressed` and go.
+- Got `dressed` without turning on the light.
+- Though you were `dressed` differently then.
+- We didn't get all `dressed` up for nothing.
+- You're strangely `dressed`... for a knight.
+- You should look like you `dressed` yourself.
+- Dad, why are you `dressed` up to go to bingo?
+- The point is we're `dressed` up and she isn't.
+- I don't want to be `dressed` like someone dead!
+- They got a photo of you `dressed` like that?
+- She actually once `dressed` as you for halloween.
+- You think they'll let him in `dressed` like that?
+- I had to get `dressed` before i could do anything.
+- It was dad, i swear, `dressed` like a homeless man.
+- The guy had a sword and was `dressed` like this guy.
+- It's the firs time i've seen you `dressed` like this.
+- Please try to smile... why are you getting `dressed`?
+- These are older women just `dressed` up to look young...
+- Look at the bull fiddle - it's `dressed` warmer than i am.
+- Suppose you listen just for a minute - `dressed` for what?
+- You have no chance of meeting a woman `dressed` like that.
+- How can you act so casual, when you're `dressed` like that?!
+- Jesus, pop, how can you stand the cold, `dressed` like that?
+- The wind was blowin' super-hard and i wasn't `dressed` warm.
+- Get `dressed`, thumper, you're taking me out for my birthday.
+- Pop, i think i'll get `dressed` and go over to harry's party.
+- There's some loose characters `dressed` like maids and butlers.
+- Don't just waltz in here `dressed` like * that and order a beer.
+- This time with a well-`dressed` man with an alligator briefcase.
+- When i `dressed` like you do now, you threw me out of the house.
+- You go back to your dressing room, get `dressed` and blacken up.
+- That man came out with a third man - this well-`dressed` guy.
+- This time with a well- `dressed` man with an alligator briefcase.
+- Having a man `dressed` like a woman to consumers: talking tattoos.
+- Normally `dressed`, you are a sore thumb, and you endanger us all.
+- Odd you'd get all `dressed` up like that just to be going nowhere.
+- I should've known, when he showed up `dressed` like some arty brat.
+- I have no idea why he's being weird and `dressed` in a suit -- yeah.
+- There's a still, quiet place child abuse `dressed` up as protection.
+- Now get `dressed`... you�re not wearing that to the thompsons� party.
+- Like that time she `dressed` up as an elf for our elder tree campaign.
+- I've `dressed` him in a cossack shirt and he'll sing nelson eddy songs.
+- A guy `dressed` as santa has been exposing himself to kids in los feliz.
+- In fact, your wounds were cleaned and `dressed` before you arrived here.
+                 

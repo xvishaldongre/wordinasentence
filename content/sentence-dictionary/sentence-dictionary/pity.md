@@ -1,0 +1,71 @@
+---
+title: "pity in a sentence | pity example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pity"
+---
+- Oh, `pity` feels good.
+- That would be a `pity`.
+- It's a `pity` in this...
+- She doesn't want `pity`.
+- It must be a `pity` date.
+- `Pity` about mr. redfoot.
+- `Pity` the polish lancer.
+- Don't let `pity` stop you.
+- I don't want your `pity` job.
+- You feel you feel `pity` now.
+- You mean the ones you `pity`.
+- `Pity`, it tells it like it is.
+- `Pity` the lambs if i am wrong.
+- I took `pity` on the poor woman.
+- It's like you enjoy self-`pity`.
+- What a `pity` you can't see her.
+- That would have been a `pity`!
+- It would be a `pity`, wouldn't it?
+- `Pity` i didn't keep that drawing.
+- Such a `pity`, that assassination.
+- I've taken `pity` on you, my angel.
+- `Pity` i can't see behind the mask.
+- How it can sap all `pity`, all love.
+- I show no `pity` to imps and fiends.
+- `Pity` to mess up a nice clean boat.
+- `Pity` you don't have the character.
+- I don't want your `pity`, tewkesbury.
+- It's the down-and-outs i `pity` most.
+- I'd be frozen between `pity` and fear.
+- Self-`pity` never got anyone anywhere.
+- I got no `pity` for a mad dog like that.
+- No, but what a `pity` life is like that.
+- So let's go see the sorrow and the `pity`.
+- Took him, snatched him away, without `pity`.
+- Maybe she's staying out of `pity`, who knows?
+- `Pity` your mother came, too ... our chaperon.
+- But it's a `pity` you haven't found the cure yet.
+- Can't you give me a `pity` job, like scorekeeper?
+- It's a `pity` she couldn't make it up here today.
+- Send in a r�sum�, make an -- i don't need `pity`.
+- Next saturday they're tearing it down...a `pity`!...
+- That would be a `pity` because you're a real painter.
+- Totally wallowing in self-`pity` and misery right now.
+- All of you, you think i'm some kind of `pity` case!
+- And for `pity`'s sake not to ask her any more questions.
+- So now we can add self-`pity` to your list of frailties.
+- But with this epic noob blunder, i'm the one they `pity`.
+- ...look down in `pity`... ...from this creature of god!!!
+- You're just taking `pity` on him 'cause he has no friends.
+- It would be a `pity` to squander such a strong personality.
+- The gods sent us the machine because they took `pity` on us.
+- But one man took `pity` on me: the man who became my viceroy.
+- Not `pity` me for who i was or what i went through or... look.
+- Except i'm not on the emerald isle of course, more's the `pity`.
+- I look at you soviet people and i feel... `pity`... superiority.
+- Oh, i do feel things for you, michael; but now, i think it's `pity`.
+- Oh yes, well i mean it'ud be a `pity` to miss the show, wouldn't it like.
+- These charlatans -- it's a `pity` there isn't enough wood to burn them all!
+- It would be a man who suffered remorse and even `pity` when it was all over.
+- `Pity` they're retiring us just as i was starting to understand you, spock...
+- You know, you should have a little more heart yourself, and have `pity` on her.
+- A `pity` he didn't live to see how, from humble beginnings, i created an empire.
+- Ah... `pity`, `pity`... well, sir, the dodgers broke up, disbanded over thirteen years ago.
+- Not unlike television, it hardly represents the real world... oh, for `pity`'s sake...
+                 

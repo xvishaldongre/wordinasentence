@@ -1,0 +1,107 @@
+---
+title: "common in a sentence | common example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "common"
+---
+- Our `common` heritage.
+- That's `common` sense.
+- What `common` objects?
+- A fairly `common` image.
+- I am not `common` keith.
+- Just use `common` sense.
+- Use some `common` sense!
+- It's a `common` question.
+- That's `common` knowledge.
+- We have a lot in `common`.
+- You got a lot in `common`.
+- Eighty third most `common`.
+- You will not be `common`!!!
+- It's just `common` practice.
+- We have nothing in `common`.
+- We have so much in `common`.
+- We've got a lot in `common`.
+- It's a `common` medical term.
+- Very `common` in puerto rico.
+- What do you have in `common`?
+- Have a lot in `common`, kiddo.
+- It's a `common` reaction, jim.
+- Gives us something in `common`.
+- No, make it '`common` decency.'
+- Well, just `common` sense, sir.
+- Your uncle's `common`-law wife.
+- Please, it's `common` knowledge.
+- That wouldn't be `common` sense.
+- Well... not in the `common` way.
+- Is this a `common` thing for you?
+- People skills and `common` sense.
+- You two have so much in `common`.
+- I prefer a dose of `common` sense.
+- The future of the `common` people.
+- You know what we have in `common`?
+- Nothing worse than a `common` tool.
+- Something else we have in `common`.
+- The temperal lobe is very `common`.
+- Well... so much for `common` sense.
+- They celebrated the `common` person.
+- We all have abnormality in `common`.
+- You and me have nothing in `common`.
+- Do we have that in `common`, captain?
+- Finally, some `common` sense... what?
+- Noble and `common`, they respect you.
+- That's something we have in `common`.
+- Those steel things are so - `common`.
+- Against our `common` enemy, grewishka.
+- But nightmares are the `common` thread?
+- Josephine and i have a lot in `common`.
+- A cheap, `common` brawl, in my own home!
+- Is this disease `common` in the tropics?
+- Lacy, that's all the `common` man reads!
+- You have more in `common` than you know.
+- You see we've got something in `common`.
+- They did have that egg shape in `common`.
+- You'd hate to think you were `common`.
+- Let's just say we found a `common` ground.
+- Well, we've got something in `common` then.
+- But we do have a `common` enemy you're dead.
+- I'm gonna mingle it with `common` house dirt.
+- They have something else in `common` as well.
+- It seems you and i have a lot in `common`.
+- I'm talking about `common`, everyday life here.
+- It's easy for me to fight for the `common` man.
+- Using the same doctors is not `common` practice.
+- Well you're far from `common`, officer starling.
+- Whatever it is, it must be `common` on the tepui.
+- For now, we have a `common` goal, she's breathing.
+- Maybe the three of them had something in `common`.
+- Ok... toto, this is no film for the `common` herd.
+- True, but that's hardly `common` knowledge, is it?
+- What is the `common` thread between these victims?
+- Just, realize... this is not some `common` lunatic.
+- Is open flame a `common` occurrence in these things?
+- Now, these `common` drones, they act like its claws.
+- We have more in `common` than you think, wendy dear.
+- Guess we got more in `common` than meets the eye, huh?
+- It's `common` knowledge you hate children and animals.
+- Maybe we have more in `common` than you care to admit.
+- We can't just bury it like some `common` mammal, okay?
+- Ah, but we have even more in `common` with our creator.
+- Honestly, what do i have in `common` with those people?
+- Yankees fantasy camp, i guess we have that in `common`.
+- Oh - we'll have to do something about the `common` wife.
+- 'cause if he is, then he and i got somethin' in `common`.
+- Sleeplessness is `common` oh, come on, you little nitwit.
+- I will guard pearl with my life... you got `common` sense.
+- Well, i don't think you can get more `common` than me, al.
+- It's nice to meet people with `common` interests, isn't it?
+- Oh...and i was afraid we had nothing in `common`... well...
+- Then you two must have a long talk- we have that in `common`.
+- I have demanded it -- and `common` priests present themselves!
+- I hate when people call it a "bowling alley", it's so `common`!
+- Show that there's some `common` ground between black and white.
+- But i'll bet you got one thing in `common` with them other boys.
+- We have `common` foes, chauncey - kid lawyers and our physician!
+- Bellamy: guess we got more in `common` than meets the eye, huh?
+- I acknowledge the existence of a natural impulse `common` to all.
+- I know we don't have a lot in `common`, starting with this one.
+                 

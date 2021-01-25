@@ -1,0 +1,107 @@
+---
+title: "blow in a sentence | blow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blow"
+---
+- `Blow` 'em away ollie.
+- `Blow` the man down...
+- First and only `blow`.
+- He wouldn't `blow` up.
+- I've struck my `blow`.
+- You `blow` it to hell.
+- Then... `blow` me."
+- `Blow` out the candles!
+- Don't `blow` your nose!
+- I didn't "`blow`" them.
+- I'm about to `blow` up.
+- Let's `blow`, chauncey.
+- Told you i'd `blow` it.
+- You gotta `blow` on it!
+- `Blow` out the ramscoop.
+- Don't `blow` it, elliot.
+- Her hair doesn't `blow`.
+- It's a `blow` job thing.
+- It's going to `blow` up!
+- Naw, i'd just `blow` it.
+- `Blow` the goddamn hatch!
+- Dude, these seats `blow`.
+- It'll `blow` you to bits.
+- Just `blow` something up?
+- `Blow` yourself, bigmouth.
+- But let's not `blow` this.
+- Let's `blow` the bitch up!
+- The other tank may `blow`!
+- He's gonna `blow` the door.
+- That'll `blow` the ship up.
+- Yeah, `blow` me, i'm drunk.
+- `Blow` his fuckin' head off.
+- `Blow` the weapons in place.
+- `Blow` up right in our face.
+- It'd `blow` your shorts off.
+- Might `blow` over, this way.
+- She's gonna `blow` him away!
+- We stay put... `blow` it up?
+- Yeah, right, `blow` it open.
+- You didn't `blow` the tower.
+- I'm about to `blow` the wall.
+- Please don't let me `blow` up.
+- Then why did he `blow` me off?
+- We must strike a heavy `blow`.
+- `Blow` those suckers, driscoll!
+- Can we `blow` it with just two?
+- Or it can just `blow` you away.
+- So as not to `blow` the window.
+- Why don't you `blow` me, chief.
+- You'll `blow` your scholarship.
+- It will `blow` over by tomorrow.
+- Let's `blow` this town together.
+- Make it a word and a...a `blow`.
+- Oh... we must have a `blow`-out.
+- She's going to `blow` an o-ring.
+- You `blow` that fire into space.
+- You could `blow` your hands off!
+- You got some good `blow`, right?
+- I died from a `blow` to the head.
+- I'll `blow` this board to pieces.
+- I only did s & m. no `blow` jobs.
+- It's gonna `blow` this place out.
+- Just `blow` something up already.
+- This one's gonna `blow` you away.
+- Do me a favour and `blow` mark 42.
+- Find me something i can `blow` up.
+- He made you give him a `blow` job.
+- Or the whole ship is gonna `blow`.
+- We're gonna `blow` the lid off it!
+- Ah'm gonna `blow` you both to hell!
+- And `blow` those grounders to hell.
+- He can `blow` his nose all the way.
+- He's not going to `blow` us all up.
+- If we don't `blow` them - who will?
+- It could `blow` over tomorrow, too.
+- It's their job to `blow` the power.
+- Like, you know, giving `blow` jobs.
+- Maybe you should `blow` him, carol.
+- They're gonna `blow` out that wall.
+- Threatened to `blow` my brains out?
+- `Blow` the schmuck out of the water.
+- He's been ready to `blow` for years.
+- Like breeres that `blow` through me.
+- This fucker's ready to `blow`... no.
+- This is the part where we `blow` up!
+- `Blow` up a building and blame a nut.
+- Homer, sorry to `blow` my own horn...
+- I'll do it -- we `blow` the corridor.
+- Maybe we can `blow` it up underwater!
+- What if we `blow` the walkways first?
+- You're going to `blow` everyone away.
+- You're going to `blow` it, peggy sue.
+- You're going to `blow` yourselves up.
+- But `blow` off a few toes, absolutely.
+- Should `blow` you away, you know that?
+- ♪ should i cool it or should i `blow`?
+- We need him intubated and `blow` down!
+- What can we do, `blow` up the theatre?
+- You ain't gonna `blow` nobody nowhere.
+- You're gonna `blow` the whole program.
+                 

@@ -1,0 +1,94 @@
+---
+title: "England in a sentence | England example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "England"
+---
+- Do you like `england`?
+- The king of `england`.
+- The queen of `england`?
+- Am i going to `england`?
+- I think it was `england`.
+- `England` is going to pot.
+- Dad was never in `england`?
+- I'll be typing for `england`.
+- Will you go back to `england`?
+- Do you mean church of `england`?
+- Am i a new `england` school-marm?
+- I told them we invaded `england`.
+- Paul went to school in `england`.
+- I must go to `england` -- at once.
+- That's why new `england` loves him.
+- Yes, sir, church of `england`, sir.
+- So how long will you be in `england`?
+- Northern `england` first, italy later.
+- There aren't any coyotes in `england`.
+- Maine national and new `england` first.
+- London, `england`, you're on "tru talk."
+- They make plucky women in new `england`.
+- I thought he was in prison, in `england`.
+- Are you going to `england` with her lloyd?
+- `England` went out with a stress fracture.
+- The most charming gangster in new `england`.
+- 4, cheyenne walk, chelsea, london, `england`.
+- Once you showed up in `england`..it was easy.
+- Even the seagulls have a new `england` accent.
+- In `england`, i was a poor student but i -- oh!
+- I worked passage from `england` as a cabin boy.
+- But we could go to london and live in `england`.
+- Carry them to `england` to your king with pride.
+- If it played in `england` somebody owes me money.
+- I�m french but i live in london... ... `england`.
+- That's impossible, it -- i will invade `england`.
+- You don't get rain like you used to in `england`.
+- You're moving back to `england` after graduation?
+- What with all the rumors getting back to `england`.
+- I'd love to drive through new `england` in the fall.
+- See, jack was a cartographer, back in old `england`.
+- All of `england` is waiting to hear about my brother.
+- Except for that, quite like home; `england`, that is.
+- There's no difference between virginia and `england`.
+- We must have alliance with `england` to prevail here.
+- It would mean nothing less than victory for `england`.
+- Come all the way from `england` to clean up california.
+- We have a good many connections in `england`, naturally.
+- I -- i will write to the press -- here -- and in `england`.
+- I'm the distraction that's going to `england` with her sir.
+- That my family was given this part of `england` to protect.
+- Am i not spoken of, still, in every church in new `england`?
+- All of `england` shudders with the news of renewed rebellion.
+- From the queen of `england` to bonanza jellybean, they stink.
+- Your majesty shall mock at me; i cannot speak your `england`.
+- Back in `england` we didn't know a thing about pirates, really.
+- I thought british policy is 'make the world... `england`', sir.
+- I was supposed to take the children to new `england` next week.
+- That `england`'s suddenly consumed by this ridiculous marquess.
+- Ehrenberg's paid three times that much ... what about `england`?
+- I'm not so sure if america is as far from `england` as i'd hoped.
+- With russia in the continental blockade, `england` must collapse.
+- Granted that you have hurt `england`, but she is still on her feet.
+- I saw it eight years ago, when we made the crossing from `england`.
+- The patient, hardy: they're everything that's good about `england`.
+- But just as the sun will rise tomorrow, some man will rule `england`.
+- We just had a funeral, isn't that what it means in `england` as well?
+- `England` can make no move against you on the continent without austria.
+- Gentlemen, i give you robert conway - `england`'s new foreign secretary.
+- King of all britons, defeator of the saxons, sovereign of all `england`!
+- Well, thank the lord you can always depend on new `england` for weather.
+- They're buying time till they can bring over more soldiers from `england`!
+- `England` does not protect me and does not war against france on our account.
+- I can arrange the most creative financing in the six states of new `england`.
+- Its nobles share allegiance with `england` and its clans war with each other.
+- You'll leave `england` and your bad memories; and then this will all fade away.
+- Funny... 'cos they usually reckon dogs more than people in `england`, don't they?
+- But how is it a person could come to believe that a crocodile is in new `england`?
+- No kat, i lied to you, i hate `england` and i don't ever want to live there again.
+- We'll invite the king of `england` - hell, we'll get the whole royal family along!
+- You have given `england` a dangerous foothold on the continent, for her armies.
+- Just think of it, bob - a cruiser sent to shanghai just to take you back to `england`.
+- You expect me to tell the truth about my life to the most indiscreet man in `england`?
+- Cora, in my heart, i know once we're joined, we'll be the happiest couple in `england`.
+- We had some problems, he got a good offer from an orchestra in `england` and he took it.
+- A small minority thought that `england` was really theirs, they had made it, they owned it.
+- Cora, i adore you and, when we come together, we will be the happiest couple in `england`...
+                 

@@ -1,0 +1,107 @@
+---
+title: "ass in a sentence | ass example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ass"
+---
+- Bet your `ass` i have.
+- Butterflies, my `ass`.
+- Hand of god, my `ass`.
+- I can whip your `ass`.
+- I got my `ass` kicked.
+- Kick his `ass`, steve!
+- Norwegian `ass` raper.
+- Now, let's haul `ass`.
+- Spontaneous my `ass`!!
+- Three `ass`-kick suns.
+- Where's the hot `ass`?
+- Wild kingdom my `ass`!
+- You got a great `ass`!
+- Your hot-`ass` temper.
+- Bet your `ass` you are.
+- Bring your `ass` on in.
+- Don't be a smart `ass`.
+- Don't look at my `ass`!
+- Git your `ass` in here.
+- He a pain in the `ass`?
+- Hicks, cover our `ass`.
+- I'll kick his `ass` in.
+- I should sue her `ass`.
+- I will kick your `ass`.
+- Kick names, take `ass`.
+- Look at that big `ass`.
+- They really kick `ass`.
+- Whoa, this kicks `ass`!
+- You betcher `ass`, dad.
+- Charged me up the `ass`.
+- Get your `ass` back hre!
+- His `ass` belongs to me.
+- I'm kissing mao's `ass`.
+- I'm pumpkin `ass` again!
+- I'm stompin' your `ass`.
+- My `ass` ain't the same.
+- Of course he's an `ass`.
+- That is america's `ass`.
+- They `ass` be young man.
+- Time to kick some `ass`!
+- Try and be a hard-`ass`!
+- Very funny, smart `ass`.
+- Yeah, get up, fat-`ass`.
+- Yo' `ass` ain't changed.
+- You fucking `ass`-holes.
+- Before i kick your `ass`.
+- Big-`ass` enough for you?
+- Get off your `ass`, nick.
+- He's a pain in the `ass`.
+- He will "erase my `ass`."
+- I'm gonna bust his `ass`.
+- I'm gonna kick his `ass`!
+- I want to nail you `ass`.
+- Knock off the grab-`ass`!
+- Smile and shake my `ass`?
+- Then, you kiss his `ass`.
+- Toss us out on our `ass`.
+- Your `ass` belongs to me.
+- Your `ass` must be crazy.
+- You're such a fuck-`ass`.
+- Don't be an `ass`, auggie.
+- I came to save your `ass`.
+- I'm freezing my `ass` off.
+- It'll flatline your `ass`.
+- It's my `ass` i'm risking.
+- It was made by your `ass`.
+- Only if you grab my `ass`.
+- Samurai pain in the `ass`.
+- There's nothing but `ass`.
+- We always cover our `ass`.
+- Well bring yo' `ass` on...
+- Yah, that is a nice `ass`.
+- You bet your `ass` i mind.
+- You want to kick my `ass`?
+- Always on my `ass`, anyway.
+- `Ass` first into the world.
+- Busting my `ass`, for what?
+- Did nothing for your `ass`.
+- Fuck you and kiss my `ass`.
+- I'd kick his fucking `ass`.
+- Is he always such an `ass`?
+- Top level review, my `ass`.
+- Very well, it's your `ass`.
+- Watch your `ass`, shithead.
+- Well don't drag your `ass`.
+- Work in progress, my `ass`.
+- You betcher `ass`, general.
+- You bet your `ass` he will.
+- Bet your sweet `ass` we are.
+- Get your `ass` out the door.
+- Lately kiss my `ass` lately.
+- Not wrong, dumb `ass`, wong!
+- Now tie his `ass` up, elroy.
+- Saved your `ass` again jack.
+- The one with the phat `ass`?
+- You get your `ass` in here!!
+- Your `ass` is goin' to jail!
+- You're a real horse's `ass`.
+- It's fat `ass` by a nose!
+- Climb in my `ass` hatch, son.
+                 

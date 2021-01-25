@@ -1,0 +1,54 @@
+---
+title: "soup in a sentence | soup example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "soup"
+---
+- Want some more `soup`?
+- I'll fix him his `soup`.
+- Blue `soup` all the time.
+- What if they serve `soup`?
+- Do you have any hot `soup`?
+- Katrina smells like `soup`.
+- I said i'll take the `soup`.
+- I brought you chinese `soup`.
+- It has drunk the blue `soup`.
+- But what if they serve `soup`?
+- Keel to stern, `soup` to nuts.
+- He sees policemen in his `soup`.
+- Her whole house smells of `soup`.
+- Get your fingers out of my `soup`!
+- They don't have any carrot `soup`.
+- If you could send loki some `soup`.
+- I spent all morning on that `soup`.
+- Never stopped drinking blue `soup`.
+- No, we had a clear `soup` to start.
+- Warhol got famous doing a `soup` can.
+- Then you use your <u>`soup` spoon</u>.
+- We're all in the same alphabet `soup`.
+- You just put everything in your `soup`.
+- Cathy, you can start serving the `soup`.
+- He sucks `soup` through his front teeth.
+- It's make the `soup` or answer the door.
+- You can stick this in your alphabet `soup`.
+- Mrs. sandelman made you some chicken `soup`.
+- Simon says you brought him `soup` last night.
+- We'll cook up some `soup` and put it in a coke.
+- Here, have this can of campbell's tomato `soup`.
+- When was the last time you drank `soup` standing up?
+- Bleeker told me katrina's whole house reeks of `soup`!
+- When is a plate of bean `soup` not a plate of bean `soup`?
+- It's worse than the blue `soup` by far-- that nothingness.
+- Well, i was always tasting the `soup` two hours after i et it.
+- All the time we were drinking more blue `soup`, more blue `soup`!
+- When <u>is</u> a plate of bean `soup` not a plate of noodle `soup`?
+- Listen, the mud `soup` and the charcoal arugula are outrageous here.
+- They have a french onion `soup` that is, it took him towards the anomaly.
+- Fran is just sitting there, the spoon in her hand, not touching the `soup`.
+- Il peut aller partout sans �tre `soup`�onn�... en plus il a besoin de fric.
+- A girl like you, for the rest of your life you want to cry in your noodle `soup`?
+- I'm gonna beat you so bad you gonna be eatin' nothing but `soup` the rest of your days.
+- We were saved from starvation by the lupi-loopo indians, who fed us a strange blue `soup`.
+- Courtney, you're going to have the peanut butter `soup` with smoked duck and mashed squash.
+- I'm going to paint this can of `soup` and become famous and not give you any credit for it.
+                 

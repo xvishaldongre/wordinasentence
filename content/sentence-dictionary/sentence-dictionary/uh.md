@@ -1,0 +1,107 @@
+---
+title: "uh in a sentence | uh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "uh"
+---
+- I have to... `uh`-huh.
+- I'm, `uh`, not sure...
+- It's, `uh`, solid oak.
+- It was, `uh`, tubular.
+- I, `uh`...i'm leaving.
+- Now, we, `uh`... shit!
+- She's, `uh`, sleeping.
+- Shit, i, `uh`... shit!
+- That's, `uh`, my room.
+- That's, `uh` upstairs.
+- The, `uh`, blur there.
+- `Uh`, captain... push!
+- `Uh`... clarke's dead.
+- `Uh`, come in, please.
+- `Uh`... family friend.
+- `Uh` huh, that's good.
+- `Uh`, i-is lisa there?
+- `Uh`, i'm jim preston.
+- `Uh`, let's try again.
+- `Uh`, maybe next time.
+- `Uh`, merry christmas.
+- `Uh`, mountain biking?
+- `Uh`, mr. president...
+- `Uh`... oh, thank you.
+- `Uh`, out near kerley.
+- `Uh`, question, ma'am.
+- `Uh`, ten `uh`... muddy!
+- `Uh`, tryin' t' write.
+- `Uh`-`uh`-`uh`, i'm sorry.
+- `Uh`, watch and learn.
+- `Uh` -- what are they?
+- `Uh`, where's the box?
+- `Uh`, yeah, it's cool.
+- `Uh`, yeah, it's ives.
+- `Uh`... you're insane.
+- What do i, `uh`... ok.
+- Yeah, `uh`... me, too.
+- ...a little, `uh`, hey!
+- And, `uh`... - lanyard.
+- Hello, `uh`, mr. reiss?
+- I'm, `uh`... on a diet.
+- Is, `uh`... is he okay?
+- Oh, `uh`, i don't know.
+- Oh, `uh`, i snuck past.
+- Oh, `uh`, no, i'm good.
+- So, `uh`, are you safe?
+- The `uh`, arrangements.
+- `Uh`-- a goose, friend.
+- `Uh`, are you a virgin?
+- `Uh`... at least fifty.
+- `Uh`, different things.
+- `Uh`, hi.... hi, marty.
+- `Uh`-huh - in what way?
+- `Uh`, is... is he here?
+- `Uh`, is... `uh`... help!
+- `Uh`... james anderson.
+- `Uh`, multiple signals.
+- `Uh`, my watch stopped.
+- `Uh`... oh... got them.
+- `Uh`, oh, i don't know.
+- `Uh`, someone like a...
+- `Uh`, steve harrington?
+- `Uh`, thanks to alie...
+- `Uh` -- the taft hotel.
+- `Uh`, they don't hatch.
+- `Uh`...`uh`...what is it?
+- `Uh`, what do you mean?
+- `Uh`, yeah, about that.
+- `Uh`, yeah, little bit.
+- Well--`uh`--yes and no.
+- Yeah, `uh` huh... yeah?
+- Yeah, `uh`, who's this?
+- The, `uh`, software?
+- He `uh`, sold a picture.
+- I'm, `uh`, going to bed.
+- I said, `uh`, demo-dogs.
+- Now we'd, `uh`, inmates?
+- Oh, `uh`, local theater.
+- Oh, `uh`, mr. lightyear?
+- On a... `uh`, * mission?
+- Or was it, `uh`... yeah.
+- See it anymore `uh` huh.
+- This was a valued, `uh`.
+- `Uh`, actually... yes...
+- `Uh`... a little, maybe.
+- `Uh`, are you asking me?
+- `Uh`, do you understand?
+- `Uh`... everything okay?
+- `Uh`, excuse me, please.
+- `Uh`... have a nice day.
+- `Uh`, i need an advance.
+- `Uh`, i think they have.
+- `Uh`, it's not charging.
+- `Uh`, let's go sit down.
+- `Uh`, look, diz... sure.
+- `Uh`, so am i all clear?
+- `Uh`... sure... come in.
+- `Uh`, talk to you later.
+- `Uh`, that message...me?
+- `Uh`, `uh`, this is great.
+                 

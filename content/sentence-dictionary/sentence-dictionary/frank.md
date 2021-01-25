@@ -1,0 +1,107 @@
+---
+title: "frank in a sentence | frank example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "frank"
+---
+- Five by five, `frank`.
+- `Frank`, take it easy.
+- `Frank` was a no-show.
+- `Frank` wasn't 'there.
+- I'll hit you, `frank`.
+- I'm grateful, `frank`.
+- I'm quitting, `frank`.
+- Just kidding, `frank`.
+- You're wrong, `frank`.
+- Don't push me, `frank`.
+- Fifteen years, `frank`.
+- `Frank` loves in there.
+- `Frank` would open you.
+- I'm gonna tell `frank`.
+- Jess, c'mon... `frank`!
+- That `frank` is a sign.
+- Throw him out, `frank`.
+- Can i be `frank`, `frank`?
+- `Frank` -- it's rebecca.
+- He knew `frank` sinatra?
+- I'm tired, too, `frank`.
+- I will, `frank`, i will.
+- No, you didn't, `frank`.
+- To your health, `frank`.
+- You're good for `frank`.
+- You too, little `frank`.
+- You were there, `frank`!
+- `Frank` is going to kill.
+- `Frank` was a good bloke.
+- `Frank` wasn't like that.
+- Gabe, what about `frank`?
+- Godammit, `frank` let go!
+- Hey, where y'at, `frank`?
+- I didn't do that `frank`.
+- I'll be `frank` with you.
+- Is that alright, `frank`?
+- I will if i can, `frank`.
+- See you tuesday, `frank`.
+- That's for sure, `frank`.
+- What's the word, `frank`?
+- What was bugging `frank`?
+- You'll embarrass `frank`.
+- You're too weak, `frank`.
+- `Frank` loves company.
+- `Frank`, he went off, too.
+- `Frank`, this is insane...
+- `Frank`, you don't listen!
+- I hate your kids, `frank`.
+- I think you know, `frank`.
+- We're all whores, `frank`.
+- `Frank`, he didn't mean it.
+- He becomes `frank` sinatra.
+- You need a reason, `frank`.
+- You're a romantic, `frank`.
+- You said hello, to `frank`.
+- Come clean with us, `frank`.
+- Come on, `frank`, that's it.
+- I'm gonna throw up, `frank`.
+- May-i be `frank`, counselor?
+- My name is `frank` wheatley.
+- That `frank` was working on.
+- The door, `frank`, the door!
+- Twenty-eight years, `frank`.
+- Where are we going, `frank`?
+- You got weird kids, `frank`.
+- They're all over `frank`.
+- ...find him on the...`frank`.
+- `Frank`... coming in, please.
+- `Frank`, don't talk that way.
+- Have some more wine, `frank`.
+- I think `frank` supplies him.
+- That shit is poison, `frank`.
+- What does that mean, `frank`?
+- Who killed `frank`, margaret?
+- Why do they call you `frank`?
+- You know his name is `frank`.
+- You're very `frank`, clarice.
+- `Frank` sachs -- melvin udall.
+- `Frank` tells me you're a cop?
+- He works for `frank` abolofia.
+- It's all right `frank`'s here.
+- Love, your grandson, `frank`."
+- | | old woman | is `frank` in?
+- The money would go to `frank`.
+- `Frank`'s just crazy about him.
+- I'm looking for `frank` mackey.
+- Is it the `frank` or the beans?
+- Rudy butler, `frank` jackson...
+- Tell me about `frank` ligourin.
+- To a man called `frank` cotton?
+- Y'know, uncle `frank`... shush.
+- You have no sick time, `frank`.
+- I got a `frank` stella, too.
+- Let me be even more `frank`.
+- Did my brother `frank` find out?
+- `Frank` is a very dangerous man.
+- `Frank` loved blue, blue velvet.
+- `Frank` was... well... straight.
+- May i be quite `frank` with you?
+- Mr. rothstein, can i be `frank`?
+                 

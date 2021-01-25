@@ -1,0 +1,107 @@
+---
+title: "figured in a sentence | figured example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "figured"
+---
+- `Figured` i'd drop by.
+- He's `figured` it out.
+- I `figured` that much.
+- 1 got it `figured` out.
+- `Figured` him for dead.
+- I `figured` out-- what?
+- I `figured` she bolted.
+- I got it `figured` out.
+- That's what i `figured`.
+- Three ways, i `figured`.
+- We `figured` pretty bad.
+- You `figured` it out?
+- I `figured` he knew that.
+- I got it `figured` out...
+- Well you `figured` wrong!
+- Got it all `figured`, huh?
+- I `figured` i'd ask you...
+- I `figured` you were dead.
+- It's not like i `figured`.
+- Look he `figured` it out !
+- Oh yeah, i `figured` that.
+- I got it all `figured` out.
+- I had it all `figured` out.
+- It's just like i `figured`.
+- We `figured` you'd want in.
+- `Figured` you could have it.
+- I `figured` as much... good.
+- I `figured` what's the harm.
+- They never `figured` it out.
+- What have you `figured` out?
+- You `figured` that out, huh?
+- You've got it all `figured`.
+- Albrecht i `figured` as much.
+- I `figured` it didn't matter.
+- I finally `figured` that out.
+- That's what i `figured`, too.
+- What if i've `figured` a way?
+- You had it all `figured` out.
+- I `figured`, what's the point?
+- I `figured` you already heard.
+- I've finally `figured` it out.
+- So i `figured` i'd start here.
+- `Figured` i'd keep mom company.
+- `Figured` it was just bad luck.
+- I `figured` i'd make breakfast.
+- I `figured` it was no big deal.
+- I've `figured` out the message.
+- We have that all `figured` out.
+- Well you `figured` wrong, dork!
+- I `figured` you were humiliated.
+- I got it `figured` good, sailor.
+- Last guy i would have `figured`.
+- Maybe i had you `figured` wrong.
+- She `figured` out i was aladdin.
+- You `figured` this was a set-up?
+- Billy's got it all `figured` out.
+- Got the ending `figured` out yet?
+- I `figured` if i didn't save you.
+- I `figured` we'd just study here.
+- I just `figured`-- gobble-gobble!
+- I never `figured` you for a pimp.
+- Sounds pretty well `figured` out.
+- We had one thing `figured` wrong.
+- We just haven't `figured` it out.
+- I `figured` i might cut it fer ye.
+- I `figured` something like that...
+- I `figured` you share information.
+- I haven't `figured` that part out.
+- I think i `figured` something out.
+- I would have `figured` you an r.n.
+- We haven't `figured` that out yet.
+- Yeah, well i kinda `figured` that.
+- Have you `figured` out the message?
+- I `figured` he had a right to know.
+- I guess he `figured` it was better.
+- Oh, you `figured` it out, too, huh?
+- You `figured` this all out already?
+- You've got me all `figured` out?
+- I `figured` i'd be hearing from you.
+- I `figured` jonathan would take you.
+- I `figured` you more as a socialist?
+- I guess you've `figured` it all out?
+- So wow, you've got it `figured` out.
+- `Figured` it was something like that.
+- I `figured` that part out for myself.
+- I `figured` you might like some help.
+- Well, he `figured` it okay this time.
+- You think i haven't `figured` it out?
+- `Figured` it's just another hell hole.
+- Have you `figured` out what i'm doing?
+- I just `figured` you was out bein' mr.
+- I'm sure they `figured` it out by now.
+- It wasn't easy but i `figured` it out.
+- So i `figured` i was imagining things.
+- They `figured` you guys were too soft.
+- Got it all `figured` out now, huh, kid?
+- Raven finally `figured` out the radios.
+- `Figured` they'd send someone after you.
+- I always `figured` you guys had it made.
+- I think he's already `figured` that out.
+                 

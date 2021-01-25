@@ -1,0 +1,107 @@
+---
+title: "cash in a sentence | cash example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cash"
+---
+- `Cash` or check, jazz?
+- He grabbed the `cash`.
+- Make it out to `cash`!
+- How much `cash` we got?
+- In small bills, `cash`.
+- In the `cash` register.
+- It was all in `cash`...
+- Somebody `cash` me out!
+- That's a lot of `cash`.
+- I made it out to `cash`.
+- Now give me your `cash`.
+- She can only use `cash`.
+- National `cash` register?
+- Now: lots n lotsa `cash`.
+- But what about the `cash`?
+- The human `cash` register.
+- We could get it in `cash`.
+- We need that in `cash`.
+- Gonna have to put up `cash`.
+- Plus the usual fifty `cash`.
+- Was it `cash`, mr de moraes?
+- ...darlene pay you in `cash`?
+- Dog, i have found the `cash`!
+- I need some `cash` right now.
+- Relax, we brought the `cash`.
+- She just pocketed the `cash`.
+- You gave it to him in `cash`?
+- `Cash` in on the home footage.
+- I...i...we need `cash`, james.
+- No, no, roy, just `cash` poor.
+- Will that be `cash` or charge?
+- For there to be a `cash` prize.
+- There's our old `cash` machine.
+- Does it work on `cash` machines?
+- Have you hit the `cash` machine?
+- I'm just in this for the `cash`.
+- Speaking of which, `cash`'ll do.
+- Sure, i end up with some `cash`.
+- Then get a large `cash` advance.
+- Besides, i had some extra `cash`.
+- Where's the fucking `cash`, nick!
+- Are you in want of `cash`, my boy?
+- But only if we recover the `cash`.
+- He ever accept `cash` for a favor?
+- His dad was big johnny `cash` fan.
+- I had to hand over all our `cash`.
+- I haven't got that much in `cash`.
+- Look at me, think of me as `cash`!
+- They took two million in `cash`...
+- To them, he was a `cash` register.
+- I'll keep the bonds and the `cash`.
+- I need a million dollars in `cash`.
+- Is he giving you a check or `cash`?
+- Will this be `cash` or credit card?
+- Bring a bunch of `cash`... about 5k.
+- I got, like, uh.... you want `cash`?
+- Millions in `cash` and bearer bonds.
+- That'll be fifteen hundred - `cash`.
+- Eleven thousand four hundred, `cash`.
+- Kit gave it to you yesterday, `cash`.
+- She handles payroll and petty `cash`.
+- Stick strictly to the `cash` drawers.
+- Yo, i don't have that kind of `cash`.
+- Didn't know what `cash` and carry was.
+- Exactly one million dollars in `cash`.
+- In any case we don't want your `cash`.
+- Jury knows we win she gets the `cash`.
+- Let me see your `cash` book, will you?
+- You can pay `cash` when you check out.
+- You dump her and i'll give you `cash`.
+- Except for the fact that i need `cash`.
+- I'd need the `cash` pretty quick there.
+- I make my end of the `cash` at 184,000.
+- Probably, `cash` register or something.
+- You bring your `cash`, i'll bring mine.
+- Into a `cash`-blasting fire hose: billy.
+- No, i'll settle for half that in `cash`.
+- Which reminds me, did you get me `cash`?
+- Eight hundred thousand dollars in `cash`.
+- Old man humphrey's got that kinda `cash`?
+- We haven't `cash` enough to last an hour.
+- You want us to give you `cash` right now?
+- Drinking moonshine with johnny `cash`!
+- Available `cash` is not an issue for us...
+- "don't write any checks you can't `cash`."
+- How come you're not at the `cash` anymore?
+- I also have a couple of million in `cash`.
+- I find myself in dire need of some `cash`.
+- We'll stop at a `cash` machine on the way.
+- Four dead santas and some burned-up `cash`.
+- I get my revenge and make some fast `cash`.
+- I'll pay you one thousand dollars - `cash`.
+- I've got enough `cash` for one night, okay?
+- They think they can `cash` in on your death.
+- Wallet, `cash`, i.d... what else did he get?
+- I just thought we could use the extra `cash`.
+- Put this `cash` in your safety deposit box...
+- That's a lot of `cash` to be carrying around.
+- A lot of `cash`, or it wasn't worth while.
+- I need �20,000, in `cash`, by 11 this morning.
+                 

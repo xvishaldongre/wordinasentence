@@ -1,0 +1,107 @@
+---
+title: "weren't in a sentence | weren't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weren't"
+---
+- You `weren't` able to.
+- You `weren't` friends.
+- You `weren't` helpin'.
+- You `weren't` kiddin'.
+- You `weren't` kidding.
+- If i `weren't` married?
+- The hell you `weren't`.
+- They `weren't` related.
+- They `weren't` smiling.
+- You `weren't` followed?
+- You `weren't` in class.
+- You `weren't` there.
+- But they `weren't` mine.
+- No, you `weren't` maybe.
+- They `weren't` my shoes.
+- `weren't` we, mrs. lane?
+- `weren't` you listening?
+- You `weren't` listening!
+- You `weren't` listening.
+- You `weren't` my choice.
+- Hey, you `weren't` there.
+- Oh, you `weren't` scared.
+- `weren't` we supposed to?
+- We `weren't` hanging out.
+- You just `weren't` aware.
+- You `weren't` at my game.
+- You `weren't` even alive!
+- You `weren't` the target.
+- You `weren't` shocked?
+- Look, you `weren't` there.
+- Of course there `weren't`.
+- So they `weren't` eligius.
+- That we `weren't` related?
+- The rest `weren't` so bad.
+- There `weren't` any shots.
+- There `weren't` any wires.
+- We `weren't` stalking you.
+- You two `weren't` invited?
+- You `weren't` being noble.
+- You `weren't` in the shop.
+- You `weren't` responsible.
+- You `weren't` there, abby.
+- That i wish `weren't` true.
+- There `weren't` any voices.
+- They `weren't` my memories.
+- We know that you `weren't`.
+- `weren't` you expecting us?
+- You `weren't` even charged.
+- At least they `weren't` lit.
+- 'cause you `weren't` around.
+- Oh, they `weren't` that bad.
+- These `weren't` a few birds.
+- They `weren't` worth a damn.
+- `weren't` you ever a yellow?
+- You `weren't` gonna tell me?
+- You `weren't` made for this.
+- Then you `weren't` there.
+- But we `weren't` poor either.
+- I heard you `weren't` coming.
+- It seems we `weren't` enough.
+- Pretty hungry, `weren't` you?
+- `weren't` expecting you, kay.
+- You `weren't` going with her?
+- You `weren't` playing a joke?
+- You `weren't` waiting for me.
+- Bullets `weren't` the problem.
+- I thought you `weren't` dying.
+- They `weren't` ready for that.
+- `weren't` you guys ever a kid?
+- We `weren't` taking the worms.
+- You said you `weren't` coming?
+- You `weren't` my only teacher.
+- You `weren't` passing 'em out.
+- I thought you `weren't` coming.
+- We `weren't` expecting you yet.
+- You `weren't` a paper champion.
+- You `weren't` at the farmhouse.
+- You `weren't` being supportive.
+- You were scared, `weren't` you?
+- Kay, we `weren't` expecting you.
+- They `weren't` part of the deal.
+- We were in love... `weren't` we?
+- You mean they `weren't` up here?
+- You `weren't` dreaming about me.
+- You `weren't` exactly horrified.
+- You `weren't` gonna say goodbye?
+- You `weren't` hired to miss him.
+- You were singing, `weren't` you?
+- Cause i'd freak if you `weren't`.
+- I thought you `weren't` gonna ...
+- They were hebrew, `weren't` they?
+- They `weren't` at school with us.
+- They `weren't` in a smiling mood.
+- We were happy once, `weren't` we?
+- Why `weren't` you honest with me?
+- Why `weren't` you in class today?
+- You were with her, `weren't` you?
+- Even if it `weren't`, why fly?
+- But you `weren't` close, were you?
+- I was afraid you `weren't` coming.
+                 

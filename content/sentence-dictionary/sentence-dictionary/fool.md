@@ -1,0 +1,107 @@
+---
+title: "fool in a sentence | fool example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fool"
+---
+- Can you love a `fool`?
+- Catch him, you `fool`!
+- The `fool` was asleep!
+- You're a drunk `fool`.
+- You're a `fool`, babe.
+- But the man's a `fool`!
+- You a blue-moon `fool`.
+- Don't be a `fool`, gaia.
+- Don't let it `fool` you.
+- I'm not a `fool`, billy.
+- I think you're a `fool`.
+- I've been such a `fool`.
+- Rick, don't be a `fool`.
+- Be quiet, you fat `fool`.
+- The quiet can `fool` you.
+- They don't `fool` around.
+- Went there like a `fool`.
+- Colwyn, don't be a `fool`.
+- Don't be a `fool`, cluett.
+- Do you think i'm a `fool`?
+- I made a `fool` of myself.
+- Make a `fool` of me twice.
+- Of course i `fool` around.
+- That `fool` woman took it.
+- They'll call you a `fool`.
+- Thou may `fool` the world.
+- A bigger `fool` than i was.
+- Come on, don't be a `fool`.
+- You can't `fool` me, claude.
+- You can't `fool` me, mister.
+- You `fool`, i'm not russell.
+- You `fool` -- you damn `fool`.
+- You made a `fool` out of me!
+- Always gotta play the `fool`.
+- Any `fool` can figure it out.
+- Catherine, you are no `fool`.
+- Come here, you little `fool`!
+- I'll make a `fool` of myself.
+- It's `fool` proof, basically.
+- Make bert look like a `fool`?
+- No, you `fool`, a rescue line.
+- Only were he a `fool` to boot.
+- You cannot `fool` the murman.]
+- You `fool` -- look around you!
+- Like a `fool` i believe it.
+- I don't `fool` around with you.
+- Okay, here... be a damn `fool`.
+- Then how'd you hear it, `fool`?
+- You `fool`, what have you done?
+- You truly are a dancing `fool`.
+- Don't `fool` around anymore.
+- Simon was a `fool` to eject now.
+- You don't `fool` around, do you?
+- So could you -- crazy `fool`.
+- I ain't no crazy, killin' `fool`.
+- I... suddenly felt such a `fool`.
+- Not `fool`'s gold, but real gold.
+- I'm going to `fool` them, freshie.
+- No, i... oh, zander, i'm a `fool`.
+- Oh god, i am such an utter `fool`.
+- That's why i don't `fool` with it.
+- But... she didn't `fool` my mother.
+- Chicken is a `fool`'s game captain.
+- Or the selfish `fool` who lost her?
+- You let me make a `fool` of myself!
+- You let me make a `fool` of myself.
+- Don�t let the girly shit `fool` you.
+- I don't like being made a `fool` of.
+- That just makes a `fool` out of him.
+- You ain't nothing but an old `fool`.
+- You can't `fool` an empath, captain.
+- Because i care, i'm a fucking `fool`?
+- Dressing me up doesn't `fool` anyone.
+- I think you're a darn `fool`, though.
+- Lady cosgrove, you are an old `fool`.
+- Then you're a bigger `fool` than him.
+- You going to `fool` around with mike?
+- The `fool` answers, "i don't know.
+- Are you trying to make a `fool` of me?
+- "bury him" or... keep smokin', `fool`.
+- I didn't mean to make a `fool` of you.
+- My brother always said i was a `fool`.
+- To `fool` people is his only thought."
+- Don't let the hirsutism `fool` you.
+- Don't be a `fool` -- give me your hand!
+- He cannot be that big of a damn `fool`.
+- I stood in the courtroom like a `fool`.
+- Jesus lyman, you're an ignorant `fool`.
+- Just the plumbing or something, `fool`.
+- So there is a way to `fool` the system?
+- What are you talking about, you `fool`?
+- You must think i'm some kind of `fool`.
+- But harry won't come, he's not a `fool`.
+- Make a `fool` of me once, that's my bad.
+- Crazy old `fool` damn near cut my throat!
+- Do you want him to think you're a `fool`?
+- Either you're a liar or you are a `fool`.
+- He's not going to... - quiet, you `fool`.
+- Oh, stop behaving like a `fool`, martins.
+- Will you listen to the `fool` prattle on.
+                 

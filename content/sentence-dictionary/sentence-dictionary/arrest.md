@@ -1,0 +1,107 @@
+---
+title: "arrest in a sentence | arrest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "arrest"
+---
+- Can't `arrest` ghosts.
+- You're under `arrest`.
+- You're under `arrest`.
+- You're under `arrest`!
+- You're under `arrest`.
+- You are under `arrest`.
+- It's called an `arrest`.
+- You didn't `arrest` him.
+- `Arrest` without warrant.
+- I'm under house `arrest`!
+- Place him under `arrest`.
+- I want you to `arrest` me!
+- They're on house `arrest`.
+- Under `arrest` for murder.
+- Why would we `arrest` you?
+- You're all under `arrest`.
+- A massive cardiac `arrest`.
+- Call it resisting `arrest`?
+- I was under house `arrest`.
+- They'll `arrest` that girl.
+- Okay, you're under `arrest`!
+- Uh... you're under `arrest`.
+- They're going to `arrest` me.
+- This is no ordinary `arrest`.
+- You need to `arrest` bellamy.
+- D'artagnan, `arrest` them all!
+- I could `arrest` you for this.
+- So we're under house `arrest`?
+- They're going to `arrest` you.
+- I could `arrest` you right now!
+- I meant to, like, `arrest` you.
+- ...stole a truck under `arrest`.
+- What's he gonna do, `arrest` us?
+- Why don't you `arrest` that man?
+- Have you got an `arrest` receipt?
+- How can they `arrest` future man?
+- Well, i was under house `arrest`.
+- You see -- you're under `arrest`.
+- Do the police want to `arrest` me?
+- I don't want them to `arrest` you.
+- If they don't `arrest` you first!!
+- I have a warrant for her `arrest`.
+- I think they're gonna `arrest` me.
+- I want to `arrest` you for murder!
+- So, scotty goes on house `arrest`.
+- To `arrest` both of you right now.
+- Virge, you're makin' the `arrest`.
+- Clarke, we're under house `arrest`.
+- I'm gonna `arrest` the sonuvabitch!
+- If i tell you, will you `arrest` me?
+- If you want to `arrest` me go ahead!
+- I'll have to `arrest` you of course.
+- Is it over if they `arrest` you now?
+- Like, i'll `arrest` you later again.
+- We have a warrant for your `arrest`.
+- We'll `arrest` this kid for larceny!
+- Why were they going to `arrest` you?
+- I can't be, i'm under house `arrest`.
+- I want to report a wrongful `arrest`.
+- Keefer!..put this man under `arrest`!
+- They didn't `arrest` my father, wells.
+- Uh, by the way, you're under `arrest`.
+- Eddie valiant... you're under `arrest`!
+- Well -- johnson, you're under `arrest`.
+- If i don't `arrest` you, i've gone soft.
+- We aren't gonna `arrest` him for that...
+- I'm placing your daughter under `arrest`.
+- I meant, "i'll `arrest` you later, again."
+- I've come here to `arrest` you for murder.
+- I'm sorry to hear about your son's `arrest`.
+- Now, are you guys gonna `arrest` me, or not?
+- We are going to make an `arrest` in your cafe.
+- Why don't you `arrest` me and be done with it.
+- You passed up a dozen chances to `arrest` her.
+- I just need you be right there to `arrest` him.
+- They don't `arrest` people for having feelings.
+- They might `arrest` me and throw me in a gulag.
+- If you want to `arrest` me, go ahead... oh yeah?
+- I'm a federal marshal and you're under `arrest`.
+- Jake griffin, you're under `arrest` for treason.
+- You're not going to `arrest` me for it, are you?
+- You're not under `arrest`, you've been abducted.
+- Are you going to `arrest` me or talk me to death?
+- Oh, mr. dickson - they're going to `arrest` matt.
+- The functional equivalent of being under `arrest`.
+- Three months in jail, three months house `arrest`.
+- You need to `arrest` his grandmother, the dowager.
+- The official cause of death was a cardiac `arrest`.
+- It's off an `arrest` report you typed two years ago.
+- We're - we're placing you under `arrest` for - okay.
+- You're under `arrest` for heading a pickpocket ring.
+- You're under `arrest` for the murder of kara cooper.
+- Call the us coast guard: "come and `arrest` our ass."
+- If i can't trust you i'm gonna have to `arrest` you .
+- I'll make an `arrest` when i know everybody involved.
+- I told you on the phone, i'm under house `arrest` now.
+- She always used to say "you're under `arrest`, sugar."
+- They're determined to get the `arrest` for themselves.
+- You're under military `arrest`, it's not gonna happen.
+- Councilor abigail griffin, you're under `arrest` sorry.
+                 

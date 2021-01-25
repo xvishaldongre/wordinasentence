@@ -1,0 +1,107 @@
+---
+title: "darling in a sentence | darling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "darling"
+---
+- Goodbye, my `darling`.
+- Good night, `darling`.
+- Hello, leon `darling`!
+- I doubt it, `darling`.
+- I love you, `darling`.
+- Nothing, my `darling`.
+- Wouldn't i, `darling`?
+- You decide, `darling`.
+- Come to bed, `darling`.
+- Here i am, `darling`...
+- He was a `darling` man.
+- I hope so my `darling`.
+- Oh, westley, `darling`.
+- `Darling`, i just heard.
+- `Darling`, listen to me.
+- How'd you do, `darling`?
+- It's aunt em, `darling`.
+- Next channel, `darling`.
+- Now run along `darling`.
+- Precisely, my `darling`.
+- Stay with us, `darling`.
+- They love me, `darling`!
+- We must talk, `darling`.
+- You're tense, `darling`.
+- A `darling` baby soldier!
+- Oh, i'm sorry `darling` .
+- Oh, thank you, `darling`.
+- Poor `darling`, and then?
+- What happened, `darling`.
+- What on earth, `darling`?
+- What the hell, `darling`.
+- Yours, always, `darling`.
+- But be serious, `darling`.
+- `Darling`, of course i do!
+- Did it go well, `darling`?
+- Happy birthday, `darling`.
+- Happy new year, `darling`.
+- Leon, `darling`, how nice!
+- Oh, look at me, `darling`.
+- Yes -- 'hildy, `darling`'.
+- Cover your ears, `darling`.
+- I'll be careful, `darling`.
+- I'm so sorry, my `darling`.
+- Look at my sweet `darling`.
+- Now, think hard, `darling`.
+- Oh, i hope so my `darling`.
+- Shut up and play `darling`.
+- What are saying, `darling`?
+- What's wrong, my `darling`?
+- Can't you get it, `darling`?
+- `Darling`, get some glasses.
+- `Darling`, i had to see you.
+- `Darling`, it's all right...
+- `Darling`, you're wonderful.
+- Good night, `darling`- what?
+- Hello, my dearest `darling`.
+- How're you doing, `darling`?
+- ...their underdog `darling`.
+- There's my little `darling`.
+- Whatever you say, `darling`.
+- What is wrong, my `darling`?
+- Bless you, `darling` `darling`!
+- `Darling`, `darling`... please!
+- Don't be facetious `darling`.
+- Hey, `darling`, how's clarke?
+- I know, `darling`, i'm sorry.
+- I want to confess, `darling`.
+- Look at me, mother `darling`.
+- Maggie `darling`, costa rica!
+- Thank you so much, `darling`.
+- What do you think, `darling`?
+- `Darling`, for goodness' sake!
+- `Darling`, it's good riddance.
+- Look, `darling`, johnny ringo.
+- Oh `darling` that's wonderful!
+- Separate bathrooms, `darling`.
+- You want something, `darling`?
+- Button your sweater, `darling`.
+- `Darling`, may i have this one?
+- Oh `darling` -- is that for me?
+- Wings and a halo, my `darling`.
+- You should sit down, `darling`.
+- `Darling`, you mustn't worry so.
+- Good night, my little `darling`.
+- How was i to know, my `darling`?
+- Where'd you get this, `darling`?
+- `Darling`, i talked to millicent.
+- `Darling`, where are the glasses?
+- Dead you're worthless, `darling`.
+- In three days, `darling`, i hope.
+- It's <u>your</u> turn, `darling`.
+- Oh `darling`, of course it would.
+- But, `darling`, you can't do that.
+- Craig, `darling` are you in there?
+- `Darling`, where are the glasses?.
+- `Darling`!...you will be careful!?
+- We're happy, aren't we, `darling`?
+- But there's no one here, `darling`.
+- `Darling`, this would be wonderful!
+- `Darling`, your father's all right.
+                 

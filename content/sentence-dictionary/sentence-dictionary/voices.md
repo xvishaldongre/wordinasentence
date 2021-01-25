@@ -1,0 +1,51 @@
+---
+title: "voices in a sentence | voices example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "voices"
+---
+- Hear `voices` don't i.
+- Strange `voices`, rose?
+- We've got the `voices`.
+- Keep your `voices` down.
+- Start with the `voices`.
+- Several `voices`: yeah.
+- You know how `voices` are.
+- There weren't any `voices`.
+- I heard `voices` downstairs.
+- Goddamn `voices`... drown 'em!
+- She leads those `voices`, yes.
+- The `voices` of our ancestors.
+- Enough with the stupid `voices`.
+- Maybe she really heard `voices`.
+- `Voices` from an old dark house!
+- Sounds, `voices`, music, humming.
+- Everyone, keep your `voices` down!
+- [muﬄed `voices` continue] good.
+- You heard `voices`, you know you did.
+- But my `voices`... they promised me...
+- I heard strange `voices` in the night.
+- He created the `voices` after the fact.
+- Hey, i do not have `voices` in my head.
+- It's really good to hear your `voices`.
+- The instruments to go with the `voices`.
+- No, but... did your `voices` tell you that?
+- You heard the `voices` right uncle merrill?
+- As if there's another cause for little `voices`?
+- But no more strange `voices` in the night, rose.
+- You know... little `voices` tell them bad things.
+- You listen to your `voices`, i listen to my heart.
+- I will ask my `voices`... if they come back one day.
+- To hell with your `voices` -- it's time to face facts!
+- ... all those `voices`... you gather them all together.
+- Only the echo of their `voices` remains in this empty hall.
+- I thought i heard `voices` - and i just had to talk to somebody.
+- My `voices`... my `voices`... do you think they will ever come back?
+- If you close your eyes and listen to our `voices` we might be in paris.
+- [muﬄed `voices` continue above] look, if you don't want to go, that's fine.
+- How do i know their `voices` are -- always hard being friends with you, sidney.
+- [distant, muﬄed `voices`] four-fifty... why send us down today after 97 years?
+- But how do you know that these -- these `voices` aren't really just -- well, you.
+- Other residents are coming forth on a daily basis to add their `voices` of outrage!
+- Because people who are suffering from aural hallucinations hear `voices` in both ears.
+                 

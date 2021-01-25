@@ -1,0 +1,86 @@
+---
+title: "add in a sentence | add example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "add"
+---
+- `Add` some more kindling.
+- Badly, i might `add`.
+- It would `add` up to 102.
+- See, it doesn't `add` up.
+- Incomplete, i might `add`.
+- It doesn't quite `add` up.
+- Now i have to `add`, "p.s.
+- `Add` a little bit of wine.
+- Don't `add` anything to it.
+- Don't `add` anything to it.
+- I'd double it and `add` 20.
+- Dammit, it doesn't `add` up!
+- What do you `add` up to here?
+- But that doesn't `add`, does it.
+- Every week `add` a pound or two.
+- I think they `add` a little life.
+- So what does all that `add` up to?
+- What's it `add` up to you, sefton?
+- We just don't `add` up to dry shit.
+- Betty, this is beginning to `add` up.
+- Then we all `add` a little more to it.
+- Would that `add` to your <u>mirth</u>?
+- `Add` in the coupon: it's one thousand.
+- My favorite vitamin, i might `add`.
+- Seen by her very victims, i might `add`.
+- Unless you have something more to `add`.
+- We `add` to a "chain" of previous books.
+- You have to `add` some twists and stuff.
+- Bart, it's time for your `add` treatment.
+- The generic `add` medication chillaxodol?
+- Would you `add` this to your outgoing mail?
+- `Add` in the new routines i've been writing.
+- He wants to `add` kidnapping to the charges.
+- However, just to `add` a little incentive...
+- Try it... it'll `add` years to our sex life.
+- By the way, `add` a life term to my sentence."
+- Perhaps you'd like to `add` that as a fraction.
+- `Add` five degrees to each satellite coordinate.
+- I forgot to `add` that to the list of surprises.
+- Time to `add` another chapter to my work of art.
+- Don't forget to `add` the new photo releases.
+- Anyway, to `add` to the confusion, he died on us.
+- Why `add` to your misery by confessing to murder?
+- Does your office have anything to `add`, mr. dean?
+- Of course, i think we should `add` a little music.
+- Irwin... two... and a damn fine one, i might `add`.
+- You fixing to `add` overtime to a twelve- hour day?
+- Now let's see, if we `add` these figures, we get ...
+- Of course, i need not <u>`add`</u> - aw, buck up.
+- Anything else you want to `add` before i talk to her?
+- Okay, but how does all this `add` up to an emergency?
+- Ah, it's new year's, i'm not gonna `add` to your woes.
+- You'd be surprised how much uber charges can `add` up.
+- Don't worry if it doesn't `add` up, that's our problem.
+- The `add` just said &quot;makeup artist&quot; deceased.
+- `Add` to that 36 hardened criminals from earth 3 clicks.
+- I feel it will `add` more credibility to my performance.
+- So now we can `add` self-pity to your list of frailties.
+- [violent femmes' "`add` it up" playing] i'm your brother.
+- ♪ "`add` it up ♪ * "`add` it up * game's not over yet, john.
+- I've been through this before and much better i might `add`.
+- I knew that life didn't `add` up to the obvious when i was 8.
+- Your father said this could easily `add` a minute to my dive.
+- Make it fifteen minutes and you can `add` on a ten dollar tip.
+- If i `add` it all up i must have spent years waiting for signals.
+- I am not going to `add` to a public hysteria that could cost lives.
+- If it seems weird, maybe you can `add` a scene where they eat dinner.
+- Not bad hey, i think i'll `add` sparkie to my resume.....good shovel!
+- You care to `add` a little specification to that slanderous accusation?
+- And cutting-edge delivery systems, that i must `add` to my organization.
+- They cut away the guts and brought in another director to `add` slapstick.
+- Then perhaps the time has come to `add` some illumination to our discussion.
+- I don't intend to `add` my contribution to your childish jealousies and suspicions.
+- Other residents are coming forth on a daily basis to `add` their voices of outrage!
+- If you thought it would `add` even the slightest trinket to your pathetic collection.
+- I keep telling her, you can always `add` more if you want, but you can't take it out.
+- I'll need you to `add` a scope to my bow feels like we're negotiating with terrorists.
+- You merely feel you must put yourself in a romantic mood to `add` to your exhilaration.
+- I've been going over this a bunch of times and a lot of this stuff just doesn't `add` up.
+                 

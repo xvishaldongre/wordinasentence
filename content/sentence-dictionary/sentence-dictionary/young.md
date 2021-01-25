@@ -1,0 +1,107 @@
+---
+title: "young in a sentence | young example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "young"
+---
+- But also very `young`.
+- Drink up, `young` man.
+- Eric... `young` adult.
+- Hello, `young` fellow!
+- Hello, `young` fellow.
+- He's no steve `young`.
+- Is the day so `young`?
+- Just some `young` guy.
+- Mostly `young` people.
+- Read on, `young` john.
+- Siddown, `young` lady!
+- So `young`, so pretty.
+- They're still `young`.
+- You're too `young`.
+- God we were so `young`.
+- God, you're so `young`.
+- I am still too `young`.
+- I feel `young`, doctor.
+- Is there a `young` tim?
+- Listen, `young` lady...
+- So long, `young` fella.
+- Them po' `young` folks.
+- Too `young` or too old?
+- Who's that `young` man?
+- `Young` fags, you know.
+- A `young` man seeks her.
+- [beat] she died `young`.
+- Cute `young` thing, too.
+- Goodbye, `young` fellow.
+- "is the day so `young`?"
+- Now for the `young` 'un.
+- Oh, no, my `young` jedi.
+- They ass be `young` man.
+- When i was very `young`.
+- Who is that `young` man?
+- But once we were `young`.
+- But the robin is `young`.
+- God i love a `young` leg.
+- My work keeps me `young`.
+- Now see here `young` man.
+- Oh nonsense `young` lady.
+- So `young` and so fair...
+- We were just too `young`.
+- Who are you, `young` man?
+- `Young` guy with l.a.p.d.
+- Be sorry for soon `young`.
+- Every `young` boy's fancy.
+- It's a `young` man's book.
+- Soon `young`, don't worry.
+- So where is `young` jonah?
+- Twenty-four isn't `young`.
+- Why `young` girls, walter?
+- ...`young` boys, still...?
+- `Young` love, as they say.
+- `Young` mitchell's father.
+- `Young` woman cut herself.
+- Bring `young` masbath here.
+- Even when you were `young`?
+- Gonna change, `young` lady.
+- He thinks he looks `young`.
+- I'm too `young` for coffee.
+- So this is the `young` man?
+- Well c'mere, `young` fella.
+- Well, the night is `young`.
+- What a strange `young` man.
+- `Young` lady, you're drunk!
+- You're a smart `young` man.
+- You're `young`, attractive.
+- Get it while you're `young`.
+- I did it when i was `young`.
+- Is that right, `young` lady?
+- Not even when i was `young`.
+- She was too `young` for him.
+- That's dishes, `young` lady.
+- Train your `young` tibetans.
+- Two `young` people in paris?
+- You're only a `young` thing.
+- You will be, my `young` one.
+- Everyone aboard `young` bill?
+- Good day to you, `young` sir.
+- He sounded `young`, but cool.
+- How old are you, `young` man?
+- Oh no, you're pretty `young`.
+- That's my curse, `young` man.
+- ... too `young` for whisky...
+- You're just a `young` thing.'
+- Arise and shine, `young` hood.
+- I'm too `young` to be so sick.
+- Now listen to me, `young` man.
+- Okay, `young` lady, that's it.
+- Put on the `young` one's suit.
+- She was pretty `young`, hunhh?
+- That `young` school teacher...
+- The `young` guy works for her.
+- You are still so very `young`.
+- You'll never be `young` again.
+- `Young` kids just like tricia.
+- `Young` man, stop right there!
+- `Young` men are uncomplicated.
+- A `young` girl new to the city.
+                 

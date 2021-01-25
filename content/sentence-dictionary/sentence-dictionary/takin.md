@@ -1,0 +1,53 @@
+---
+title: "takin in a sentence | takin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "takin"
+---
+- I'm `takin`' a shiera.
+- You `takin`' his side?
+- We're `takin`' her home!
+- You're not `takin`' amy.
+- He's `takin`' cheap shots.
+- Are you `takin`' the pictures?
+- I'm `takin`' that fuckin' car!
+- You are not `takin`' my truck!
+- Jesus, what's `takin`' this guy?
+- You ain't `takin`' pace, though.
+- `Takin`' care o' business, honey.
+- `Takin`' your truck pissed you off?
+- What's `takin`' so long over there?
+- I'm `takin`' him to a movie tonight!
+- You're `takin`' a helluva chance kid.
+- I'm `takin`' all these job interviews.
+- Maybe, but we shore `takin`' a beatin'.
+- Like `takin`' candy from a fuckin' baby...
+- You `takin`' a lot of shit lately, george.
+- ...that man's `takin`' his job too serious.
+- They was `takin`' down the license numbers.
+- You're walkin' bitch, will's `takin`' the car.
+- You know me, breakin' hearts and `takin`' names.
+- This guy's a friend and now he's `takin`' ya out.
+- This pig is `takin`' my shot -- i iz a contender.
+- You're not `takin`' me to downtown <u>toon</u>town?
+- Okay, look, who's `takin`' the press conference today?
+- You said yourself, you thought about `takin`' him out.
+- Don't get too slap-happy, you're `takin`' me home first.
+- I'm `takin`' your car and goin' back to the crime scene.
+- Ain't worth the mendin'... don't go `takin`' that stuff...
+- `Takin`' over this local, you know it took a little doin'.
+- Them other two, they been `takin`' advances on the payment.
+- Listen, bill, i'm gonna see what's `takin`' the kid so long.
+- Billy clanton was `takin`' him up to the cut to show him off.
+- I can't think of a time my people haven't been `takin`' it dry.
+- I appreciate you `takin`' the time to see a poor ol' civil servant.
+- He'll be here in a little while, he's `takin`' me to get an ice cream.
+- Isn't it bad enough you're drinkin' too much, you're `takin`' all my pills too?
+- I guess he's outside someplace i don't like `takin`' him down to certain places.
+- Sure, but you was worried too, mother; `takin`' off with never a word of goodbye.
+- He's `takin`' care of the same business i'll be `takin`' care of - soon as i dry off.
+- We're getting too close ... cates, what's the matter, you been `takin`' dumb pills?
+- We're `takin`' you to a cabin in the woods, it's only a couple miles from my house.
+- What's the story behind you `takin`' a cab to the most dangerous part of town alone?
+- `Takin`' off with us is got a lot more future in it than marrying a guy named waldrip.
+                 

@@ -1,0 +1,107 @@
+---
+title: "Alex in a sentence | Alex example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Alex"
+---
+- Keep it going, `alex`.
+- Settle down, `alex`...
+- He pulls `alex`'s nose.
+- It's a machine, `alex`.
+- `Alex` sits next to him.
+- Give me a break, `alex`.
+- He shakes `alex`'s hair.
+- It had to be me, `alex`.
+- It's asick idea, `alex`.
+- `Alex` breaks away again.
+- You mean `alex` browning.
+- `Alex` is the smarter one.
+- `Alex`, it's just the zoo.
+- `Alex`, i've lost my mind.
+- Do you understand, `alex`?
+- My wife... `alex` freezes.
+- Thats not a story, `alex`.
+- That uncle `alex` is busy?
+- `Alex` becomes a bit weepy.
+- `Alex`, what are you doing?
+- He stamps on `alex`'s foot.
+- I miss you so much, `alex`.
+- Chief guard turns to `alex`.
+- He slaps `alex` in the face.
+- He slaps `alex` on the knee.
+- Just get on with it, `alex`.
+- You were replaced by `alex`.
+- `Alex`... people are staring.
+- `Alex` you can't -just leave.
+- He wheels right up to `alex`.
+- It wasn't your fault, `alex`.
+- So how did you do it, `alex`?
+- It can turn itself on, `alex`!
+- Nick, `alex`, how are we today?
+- You have a better plan, `alex`?
+- Priest rises and moves to `alex`.
+- What did i do last night, `alex`?
+- He seemed like a nice guy, `alex`.
+- It's how you make me feel, `alex`.
+- Ah, `alex` boy, awake at last, yes?
+- I'm glad you're so certain, `alex`.
+- Old tramps begin to beat at `alex`.
+- `Alex` dots the last "i" and smiles.
+- `Alex`, i think you're freaking out.
+- `Alex` looks at a party of tourists.
+- `Alex`, really... good luck tonight.
+- `Alex` walks to table and undresses.
+- No time to worry about that, `alex`.
+- Deltoid pulls `alex` down on the bed.
+- Discussion group, `alex`, discussion.
+- No, `alex`, we don't really love you.
+- The water drips off `alex`'s clothes.
+- Oh `alex`, get away from that thing...
+- Yes i am... you're not coming, `alex`.
+- You are now a murderer, little `alex`.
+- `Alex` rendered speechless with desire.
+- Then you know you have `alex` murphy...
+- The tramp crowd round `alex`, shouting.
+- A leg is stuck out and `alex` goes down.
+- Deltoid "playfully" grabs `alex`'s hair.
+- He puts his arm round `alex`'s shoulder.
+- Oh, there's a letter from `alex` trebek.
+- The tramp takes a second look at `alex`.
+- They drag `alex` to a low water through.
+- `Alex` seizes his chance as they pass by.
+- All right, gwen, `alex`, fred, follow me.
+- `Alex`, i think it's time for you to stop.
+- `Alex` -- no sense messing up the streets.
+- Come on, `alex`, let's just get to `alex`'s.
+- They're watching me, see if i go to `alex`.
+- Good morning, `alex`, my name is dr. branom.
+- No -- last time i said "i love you, `alex`."
+- `Alex` tosses a bar of chocolate on the desk.
+- I don't like this at all... you okay, `alex`?
+- I lost ten pounds in rome `alex`, are you....
+- `Alex` rams his stick into the tramp's stomach.
+- Uh, `alex`, we've only know each other one day.
+- `Alex` offered to share his room, unsolicited....
+- The evening's a great time, isn't it, `alex` boy?
+- `Alex` brings his stick down smartly on dim's legs.
+- `Alex` does so, and continues to empty his pockets.
+- `Alex`, my man, it's time to play a little offense.
+- Chief guard inspects `alex`'s anus with a penlight.
+- Of the man who planted this in `alex` corvis's car.
+- That's a very pretty shawl you are wearing, `alex`.
+- `Alex`, the key is in the keyhole on the other side.
+- At his party he asked me if uncle `alex` was coming.
+- What of `alex`, hawk's friend, where is his loyalty?
+- `Alex`, you don't know how long i've waited for this.
+- Wait, wait, the hot chick was `alex` p. keaton's mom?
+- `Alex`, has david persisted in his werewolf fantasies?
+- `Alex` -- how can you tell if someone is lying or not?
+- Georgie hits `alex` in the stomach with his blackjack.
+- `Alex` breaks away but the tramp toddles alongside him.
+- `Alex`... can you promise me that no one else will die?
+- Dim smashes `alex` in the face with a full milk bottle.
+- Chief guard briskly leads the way for `alex` and escort.
+- That's what `alex` used to ask himself right up until...
+- `Alex`, gagging and coughing, licks the sole of his shoe.
+- Maybe you should go, `alex`.you'll meet someone wonderful.
+                 

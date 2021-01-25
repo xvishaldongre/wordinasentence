@@ -1,0 +1,107 @@
+---
+title: "only in a sentence | only example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "only"
+---
+- Emergency room `only`.
+- First and `only` blow.
+- He had the `only` gun.
+- He is our `only` hope.
+- He `only` just met me.
+- He's `only` just dead.
+- He was `only` fifteen.
+- He was `only` kidding.
+- If you `only` knew ...
+- I'm `only` half human.
+- I'm sorry, i `only`...
+- I `only` hope he does.
+- I `only` saw his back.
+- I `only` smoke cigars.
+- I `only` told you one.
+- It's my `only` chance!
+- It's `only` a machine.
+- It's `only` beginning.
+- It's `only` four days.
+- It's `only` halloween.
+- It's `only` his dream.
+- It's `only` insurance.
+- It's `only` marijuana.
+- It's `only` temporary.
+- It's the `only` place.
+- My end was `only` one.
+- Now's the `only` time!
+- `Only` for the moment.
+- `Only` four more cars.
+- `Only` her brilliance.
+- `Only` he wasn't dead.
+- `Only` if you kiss me.
+- `Only` in bad weather.
+- `Only` on the surface.
+- `Only` time will tell.
+- `Only` trying to help.
+- `Only` twenty dollars?
+- `Only` two mounths...?
+- `Only` two steps back?
+- `Only` we can do that.
+- `Only` when i breathe.
+- On one hearing `only`?
+- She's `only` fourteen.
+- Stopped `only` to pee.
+- That's `only` natural.
+- That's the `only` way.
+- The `only` trouble is.
+- This the `only` spare?
+- We can `only` hope so.
+- We `only` did it once.
+- We've `only` just met!
+- You `only` caught one?
+- You `only` live twice?
+- You're the `only` one.
+- You the `only` sentry?
+- I `only` hated two.
+- But not the `only` one.
+- Hell, it's `only` 7:30.
+- I ask `only` one thing.
+- If he were `only` that.
+- I'll `only` stay a sec.
+- I'm not the `only` one.
+- I'm `only` walking him.
+- I'm their `only` pilot.
+- I `only` get one today?
+- I `only` have one vote.
+- I `only` need a minute.
+- It concerns `only` jah.
+- It is my `only` object.
+- It `only` plays static.
+- It's `only` a few quid.
+- It's `only` been a day.
+- It's `only` natural....
+- It's `only` ten-thirty.
+- It's `only` two nights.
+- It's `only` two-thirty.
+- It's `only` you and me.
+- It's our `only` chance.
+- It's our `only` choice.
+- It's our `only` option.
+- It's the `only` answer.
+- It's the `only` chance!
+- It's the `only` option.
+- Japanese import `only`.
+- My `only` curse is you.
+- `Only` at the very end.
+- `Only` celebrities now.
+- `Only` for pee or poop.
+- `Only` from a distance.
+- `Only` i know the code.
+- `Only` on indra's word.
+- `Only` that it's money.
+- `Only` the real stiffs.
+- `Only` the stupid ones.
+- `Only` what will i say?
+- `Only` you can do that.
+- `Only` you can help me.
+- She's my `only` friend.
+- She was `only` teasin'.
+- There's `only` one key.
+                 

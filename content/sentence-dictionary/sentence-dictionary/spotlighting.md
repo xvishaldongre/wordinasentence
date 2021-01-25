@@ -1,0 +1,7 @@
+---
+title: "spotlighting in a sentence | spotlighting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spotlighting"
+---
+## Unfortunately, we have no example sentences for spotlighting                 

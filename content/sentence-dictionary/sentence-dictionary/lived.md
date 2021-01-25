@@ -1,0 +1,107 @@
+---
+title: "lived in a sentence | lived example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lived"
+---
+- He `lived` in toronto.
+- He's lucky he `lived`.
+- He `lived` in a garret.
+- She `lived` in tarzana.
+- They `lived` in a cave.
+- You `lived` in chicago?
+- He died as he `lived`...
+- He `lived` through that?
+- You're lucky he `lived`.
+- He `lived` here with you?
+- I'm old and i've `lived`.
+- You have `lived` forever.
+- No, he `lived` in toronto.
+- She lives... `lived` here.
+- This is where she `lived`.
+- I haven't `lived` this day.
+- I `lived` with a president.
+- I've `lived` on the street.
+- `Lived` here my whole life.
+- You `lived` in japan, when?
+- You `lived` like this once.
+- We `lived` here for 6 years.
+- We `lived` near power lines.
+- Where you `lived` with them.
+- You `lived` with it so long.
+- Dwarves `lived` on this ring.
+- Have you always `lived` here?
+- He practically `lived` there.
+- She `lived` on barrow street.
+- Wait, he `lived` in new york?
+- His mother never `lived` here.
+- I've `lived` years since then.
+- Would that marcus had `lived`.
+- He `lived` here for many years.
+- How long have you `lived` here?
+- Said she `lived` on plank road.
+- Then you know who `lived` here?
+- We've `lived` a dream together.
+- I've `lived` all over the world.
+- Spot `lived` another four years.
+- I thought you `lived` in chicago?
+- We `lived` in northern minnesota.
+- We've `lived` all over the world.
+- We've `lived` together six years.
+- Where she `lived`, just the city.
+- You `lived` five blocks from her.
+- You've `lived` a first-rate life.
+- But you haven't `lived` here long.
+- Do you remember where you `lived`?
+- I once `lived` in a country house.
+- She couldn't have `lived` with it.
+- You've `lived` here all your life?
+- I... didn't know where you `lived`.
+- I'd like to have `lived` here then.
+- So have you always `lived` in l.a.?
+- When you `lived` with the fairfaxes?
+- He was the one who `lived` off alone.
+- `Lived` in a picker's cabin at first.
+- Well, i've never `lived` with beauty.
+- You've `lived` with me for two years.
+- I don't mean her -- she `lived` there.
+- I `lived` there for about nine months.
+- They have `lived` together since 1906.
+- They `lived` together all their years?
+- We've `lived` together for nine years.
+- You `lived` in the states for a while?
+- He owned the estate they `lived` on ...
+- Go back to whatever cave you `lived` in.
+- How he's `lived` this long is a mystery.
+- I think she `lived` her a long time ago.
+- I've `lived` next to this boy for years.
+- `Lived` the spoiled princess siddmartha.
+- She `lived` in a world of her own fancy.
+- Two brothers, prospectors, `lived` here.
+- You didn't tell me you `lived` with her.
+- I told you, i've already `lived` my life.
+- That `lived` here before... the bardoans.
+- The greatest swordsman that ever `lived`.
+- We `lived` together for about six months.
+- He `lived` in our house for almost a year.
+- I didn't think anyone still `lived` there.
+- My friend told me she `lived` around here.
+- That you haven't `lived` and loved enough.
+- We `lived` in temple texas for many years.
+- ...and everyone `lived` happily ever after.
+- I have `lived` through others far too long!
+- Sounds like you `lived` in grovers corners.
+- That man up there `lived` in similar times.
+- I've `lived` with that image ever since.
+- No man has been cut half as bad and `lived`.
+- But you have no idea how people `lived` here.
+- They `lived` on it...and so did murray, john.
+- Do you remember me from when you `lived` here?
+- I have `lived` by the oath of king and knight.
+- I haven't `lived` life -- i've hidden from it.
+- Those are the values we `lived` by on krypton.
+- Where they `lived` the other's life for a day.
+- Cyrus `lived`, but he came out of it a cripple.
+- Then it turned out the woman `lived` in duluth.
+- There was this guy he `lived` in san francisco.
+                 

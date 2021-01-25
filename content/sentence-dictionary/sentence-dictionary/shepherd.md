@@ -1,0 +1,85 @@
+---
+title: "shepherd in a sentence | shepherd example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shepherd"
+---
+- The `shepherd`'s book.
+- The `shepherd` was here.
+- This is your `shepherd`?
+- G. anders, my `shepherd`.
+- Of course, my `shepherd`.
+- The `shepherd` will rise.
+- The `shepherd` is merciful.
+- Your `shepherd` stays here.
+- Make way for the `shepherd`.
+- Not long now, my `shepherd`.
+- The `shepherd` brings us calm.
+- You believe in the `shepherd`.
+- About the `shepherd`'s journey.
+- I jut came from the `shepherd`.
+- I'm going after the `shepherd`.
+- In the light of the `shepherd`.
+- In the shadow of the `shepherd`.
+- Just as the `shepherd` foretold.
+- The `shepherd` brings us wisdom.
+- They didn't have the `shepherd`!
+- I'm here to kill your `shepherd`.
+- My faith in the `shepherd`, ha ha!
+- The `shepherd` is counting on you.
+- My `shepherd`, may i have a moment?
+- What did the `shepherd` believe in?
+- Apologies, my `shepherd`, there were.
+- You're going to serve the `shepherd`.
+- But the `shepherd` was brave and wise.
+- So how'd your `shepherd` deal with it?
+- Your `shepherd` brought along with him.
+- Let's get back to the `shepherd`'s mercy.
+- Would the `shepherd` not understand that?
+- You don't deserve the `shepherd`'s mercy.
+- The `shepherd` can deliver us there, echo.
+- Was the `shepherd` on eligius iii, as well?
+- I do the `shepherd`'s bidding for all mankind.
+- I heard the `shepherd` gave them his quarters.
+- John wayne said it in `shepherd` of the hills.
+- The `shepherd` brings us love for all mankind.
+- You need to keep this safe for the `shepherd`.
+- You sure your `shepherd` isn't laughing at us?
+- In the light of the `shepherd` for all mankind.
+- About the `shepherd`'s journey to enlightenment?
+- In the shadow of the `shepherd` for all mankind.
+- The `shepherd`'s patience should be our example.
+- She made the best `shepherd`'s pie i ever tasted.
+- But you are not a `shepherd`, you are the dalai lama.
+- It's true the `shepherd` prepared for his pilgrimage.
+- They call me he `shepherd`, but you can call me bill.
+- You know, the `shepherd` persevered, bellamy's right.
+- I'll go tell the `shepherd` that you refused his order.
+- Would you like to, uh... - the `shepherd` delivered us.
+- Sometimes the `shepherd` needs the company of the sheep.
+- This is the path of the `shepherd`, where are you going?
+- In the shadow of the `shepherd` for all mankind, _ hit me.
+- The `shepherd` believes in transcendence and peace, right?
+- The `shepherd`'s unit will be with him second man: quiet!
+- `Shepherd`'s law number 4... you could have taken my castle.
+- The `shepherd` teaches us that winning the last war or what?
+- The `shepherd` survived 3 months in this cave, what happened?
+- The `shepherd` over there is the same guy it'll be a good life.
+- You've each demonstrated impressive devotion to the `shepherd`.
+- The `shepherd` led me to her, you don't think... any last words?
+- We emp'd the chip in the light of the `shepherd` for all mankind.
+- Well, at least i won't have to hear about the `shepherd` anymore.
+- Like that dad lost our college funds `shepherd` en route to bridge.
+- We know that by the time the `shepherd` delivered us jackson: what?
+- In human history, all designed to ride out the `shepherd`'s first hurdle.
+- In the light of the `shepherd`... do you think we'll be out of here soon?
+- In the shadow of the `shepherd` for all mankind, it's not bullshit, mike.
+- In the shadow of the `shepherd` for all mankind, kom falau oso na gyon op.
+- By "slice," i mean the first payment but the `shepherd` guides us both.
+- I can have them ready in 4 months, forgive the interruption, my `shepherd`.
+- I want to be a `shepherd`, taking those goats and cows out to the hillside.
+- What is it about bellamy that has my `shepherd`, clarke doesn't have the key.
+- Would the `shepherd` that saved you condone you kill me, and i need a cannula.
+- About how we've got all these memories here, entering the great hall with the `shepherd`.
+- But in the light of the `shepherd`, ♪ ding dong ding dong... ♪ this body is proof of that...
+                 

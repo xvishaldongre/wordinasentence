@@ -1,0 +1,107 @@
+---
+title: "Charlie in a sentence | Charlie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Charlie"
+---
+- Bob � `charlie` brown.
+- Her name is `charlie`.
+- Let's book, `charlie`.
+- Oh, `charlie`'s sweet.
+- She's after `charlie`.
+- Talk to me, `charlie`.
+- What's with `charlie`?
+- But `charlie` � why me?
+- `Charlie`, how are you?
+- `Charlie` m. `charlie` m?
+- `Charlie`, that's mean.
+- `Charlie`, this is bob.
+- `Charlie` told me that.
+- Go to sleep, `charlie`.
+- It's `charlie`'s point.
+- It's okay... `charlie`!
+- Long as `charlie` says.
+- Who's `charlie` walser.
+- And, `charlie`� all set.
+- `Charlie` rose canceled.
+- That's all - `charlie`?!
+- Yeah, come in `charlie`.
+- You scare me, `charlie`.
+- He was kidding `charlie`.
+- It's just me � `charlie`.
+- Wait a minute, `charlie`.
+- Wait'll i tell `charlie`.
+- What does `charlie` mean?
+- About `charlie`'s leopard?
+- `Charlie`, i'm in trouble.
+- `Charlie`'s suits me fine.
+- `Charlie`, that was great!
+- Of course, not, `charlie`.
+- You'd like him, `charlie`.
+- `Charlie` how come told me.
+- `Charlie`, it's just no go.
+- `Charlie`, let's make love.
+- I said let's go, `charlie`.
+- Toothpick `charlie`, maybe?
+- You betrayed me, `charlie`.
+- A little `charlie`, perhaps.
+- Can't we go back, `charlie`?
+- `Charlie` likes his leopard.
+- `Charlie` you want a refill?
+- I'm sure of that, `charlie`.
+- Whaddya say, `charlie`, huh?
+- You know `charlie` how-come?
+- You're all right, `charlie`.
+- `Charlie` and i were talking.
+- `Charlie`, at a will reading?
+- `Charlie`, don't do anything.
+- `Charlie`'s only one of them.
+- For some good time `charlie`?
+- I'll knock 'em in, `charlie`.
+- What's the matter, `charlie`?
+- `Charlie`... `charlie`'s back...
+- `Charlie`, i am a businessman.
+- `Charlie`, i'm gonna take him.
+- His name is `charlie` meadows.
+- How about this guy, `charlie`?
+- I'll love you, too, `charlie`.
+- I'm gonna lose you, `charlie`.
+- We must be friends, `charlie`.
+- What're you saying, `charlie`?
+- You gave your word, `charlie`.
+- You want something, `charlie`?
+- `Charlie` penny owns the place.
+- `Charlie`, you're just excited.
+- C'mon `charlie`...one more day.
+- Come on `charlie`, turn it off.
+- That's all i needed, `charlie`.
+- You really think so, `charlie`?
+- `Charlie`...i've got to see you.
+- `Charlie` what else do you want?
+- Did you break up with `charlie`?
+- What are ya, chicken, `charlie`?
+- What are ya thinkin', `charlie`?
+- You drink, don't you, `charlie`?
+- You wanted to see me, `charlie`?
+- But there is no front, `charlie`.
+- Do you usually pay for `charlie`?
+- Eddie... no, it isn't, `charlie`.
+- He took care of `charlie` for us.
+- It's a smear campaign, `charlie`.
+- Look, `charlie`, just be patient.
+- They gotta believe me, `charlie`!
+- `Charlie` wasn't drunk last night.
+- Hello, `charlie`, this is melanie.
+- His grades are hurting, `charlie`.
+- How was your lunch with `charlie`?
+- I have to talk to you.. `charlie`.
+- Look `charlie`, you're a good boy.
+- We must be getting old, `charlie`.
+- What are ya tellin' me, `charlie`?
+- `Charlie` really has a great voice.
+- Don't worry, `charlie` stayed true.
+- I'll call `charlie` and those guys.
+- Oh, don't play it small, `charlie`.
+- Some kind of `charlie` manson deal?
+- Well, besides `charlie`, of course.
+                 

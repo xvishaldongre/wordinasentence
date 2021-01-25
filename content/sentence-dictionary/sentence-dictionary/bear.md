@@ -1,0 +1,107 @@
+---
+title: "bear in a sentence | bear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bear"
+---
+- Me or the `bear` trap?
+- Before the `bear` trap.
+- Got mauled by a `bear`.
+- I can't `bear` it louis!
+- Just grin and `bear` it.
+- Never mind eagle `bear`.
+- A little `bear`, huh.
+- I'll `bear` that in mind.
+- 'creasy `bear`'... you do?
+- Look at this polar `bear`.
+- So just... `bear` with me.
+- That's my cross to `bear`.
+- You won yourself a `bear`!
+- A texas `bear` in arkansas.
+- Great jacket, teddy `bear`.
+- Leo, jimmy... eagle `bear`.
+- Plus where's huggie `bear`?
+- There's no sign of a `bear`.
+- Don't fade on me now, `bear`.
+- He's like a great big `bear`.
+- I'm calling it rupert `bear`.
+- The noise woke up the `bear`.
+- + `bear` with me here... who ?
+- I can't `bear` to see anymore.
+- I can't `bear` to see you cry.
+- I couldn't `bear` to lose you.
+- I made the polar `bear` pants.
+- It's a vacation, sugar `bear`.
+- My teddy `bear` is joining us.
+- Ohhh, i can't `bear` to watch.
+- Saw a `bear`, you're thinking?
+- Yeah, well, i'm bored, `bear`.
+- `Bear` me no ill will, my love.
+- Oh, teddy `bear`, you're funny.
+- Because i can't `bear` to watch.
+- I couldn't `bear` for it to end.
+- I'll `bear` it in mind, admiral.
+- That anyone would `bear` a host.
+- That `bear` had to be surprised.
+- The `bear`'s got his claws back.
+- Can't you `bear` the sight of me?
+- I'll `bear` that in mind... what?
+- Two women fucking a polar `bear`.
+- Why do they call him pooh-`bear`?
+- I `bear` it so they don't have to.
+- Ok. `bear` right onto the freeway.
+- They're armed for `bear`, buckaroo.
+- I thought you were a build-a-`bear`.
+- Yes, adulation is a cross to `bear`.
+- `Bear` right till the fire road ends.
+- Do they pay you to screw that `bear`?
+- She won't be able to `bear` children.
+- The polar `bear` was inside his cave.
+- They `bear` out hasslein's hypothesis.
+- I `bear` it so they don't have to again.
+- I can't `bear` to think about that baby.
+- Looks like it's your cross to `bear` now.
+- Then me busting in like some wild `bear`.
+- How much for this teddy `bear` right here?
+- I can't `bear` it... what's wrong with you?
+- I can't `bear` the thought of your torture.
+- Or i'll take my business to build-a-`bear`.
+- She doesn't appear to `bear` us any grudge!
+- We'll `bear` off to port and run down wind.
+- Huggie `bear` isn't in every single episode.
+- I'm gonna eat that damn `bear`... come here!
+- Just because we can't `bear` a host come on.
+- This is the `bear` creek indian reservation.
+- To `bear` witness to the miracle of sanctum.
+- You just can't `bear` the idea of good news.
+- Aisha, you are the `bear`, stalwart and bold.
+- Probably a `bear`, but... they found a tooth.
+- That i find hard to `bear` -- even in prison.
+- Ace... tell him the line on the `bear`'s game.
+- I don't think i could `bear` being left alone.
+- I've stood just about as much as i can `bear`!
+- Nasty boy ... goes by the name of pooh-`bear`.
+- You can call him baby-`bear`, he loves that...
+- But i went to high school in white `bear` lake.
+- Why we setting eagle `bear` up as an informant?
+- About the mother `bear` in the toilet paper ads.
+- My leg can `bear` my weight, not the both of us.
+- The ottos always waited for the bus with `bear`.
+- Calm down, `bear`... you get life for kidnapping.
+- Go get a tail on eagle `bear`, and stay with her.
+- I lost eagle `bear` -- never turn your radio off!
+- It seems more than a person should have to `bear`.
+- It was like my teddy `bear` when i was growing up.
+- The `bear` was dragging one kid around by the foot.
+- A tooth they say couldn't have come from any `bear`.
+- I can't even `bear` to look at him... how about you?
+- My handle's smokey `bear` and i got you by the tail.
+- You're shopping for `bear` traps with jonathan byers.
+- Estimating 1.9 hours until her weapons come to `bear`.
+- Hey little `bear`, aren't you going to join the others?
+- Killed a `bear`, founded a town, died of a beaver bite.
+- You're, like, totally, 100% sure it wasn't a `bear`?
+- I can't `bear` to have you leave me, hating me like this.
+- ♪ now, this `bear` and i are one and the same ♪ how's finn?
+- Our descendents would `bear` smart enough, not good enough.
+                 

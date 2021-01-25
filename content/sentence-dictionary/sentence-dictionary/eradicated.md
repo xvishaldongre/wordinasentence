@@ -1,0 +1,8 @@
+---
+title: "eradicated in a sentence | eradicated example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eradicated"
+---
+- You're saying all disease will eventually be `eradicated`?
+                 

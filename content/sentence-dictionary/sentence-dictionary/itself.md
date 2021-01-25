@@ -1,0 +1,107 @@
+---
+title: "itself in a sentence | itself example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "itself"
+---
+- You are life `itself`.
+- It happened by `itself`.
+- It'll shut `itself` off.
+- The car drives `itself`.
+- Then it erased `itself`.
+- I mean it fixed `itself`.
+- It's digging `itself` up.
+- That's iconic in `itself`.
+- The meat `itself` is foul.
+- Does it drive `itself`, too?
+- Indeed for mankind `itself`.
+- It'll take care of `itself`.
+- Can of `itself` be a problem.
+- Disable the machine `itself`.
+- The ai will protect `itself`.
+- But i want the grail `itself`.
+- It can turn `itself` on, alex!
+- The car is driving by `itself`.
+- The jelly built `itself` a can.
+- It turned `itself` back on, nick.
+- This angry music all by `itself`.
+- That in `itself` is confusing.
+- Concentrate on the sound `itself`.
+- ...the solution presents `itself`.
+- A true vision of paradise `itself`?
+- It appears to have healed `itself`.
+- This planet is destroying `itself`!
+- Everything'll take care of `itself`.
+- Funny how life repeats `itself`, huh?
+- It can't get on the line by `itself`.
+- A part of him attached `itself` to me.
+- This cat isn't going to clean `itself`.
+- By `itself` it is only a piece of steel.
+- So, tibet, too, needs to define `itself`.
+- The museum ain't going to teach `itself`.
+- Then let's begin with the story `itself`.
+- This thing's changed `itself` into a man.
+- Well, it pretty much speaks for `itself`.
+- The air `itself` is filled with monsters."
+- The dish will align `itself` with the ark.
+- What about running number two by `itself`?
+- If we're real lucky, it'll eat `itself`....
+- It's a security program `itself`, actually.
+- This seminar's already paying for `itself`.
+- But... it didn't just get there by `itself`.
+- ♪ the car just drives `itself` ♪ - our play?
+- This one just goes into the camera `itself`?
+- What we need is a vaccine for death `itself`.
+- Which in `itself` was a rip-off of the thing.
+- And then the aether stuck `itself` inside her.
+- Probably up a pole starving `itself` to death.
+- Hey, guys, the wall's not gonna build `itself`.
+- Just let that ol' belly sag and enjoy `itself`.
+- Sometimes i must even protect it from `itself`.
+- That means wintermute hired us to fry `itself`.
+- The word `itself` makes some men uncomfortable.
+- How long before this damn thing unseals `itself`?
+- If it takes a little blood for `itself`, so what?
+- What's weaker than an enemy at war with `itself`?
+- You've only been dealing with the house `itself`.
+- And thus, you're a part of that intimacy `itself`.
+- On january 1st, 1814, france `itself` was invaded.
+- It's an escher staircase that turns in on `itself`.
+- Maybe i just needed the moment to present `itself`.
+- Our 'cyclops' throws quite a thunderbolt, `itself`!
+- The signal reduces `itself` every time it recycles.
+- That presents `itself` with... with black spots.
+- Don't worry cindy, the brain `itself` feels no pain.
+- I'm not that interested in the act `itself` � beery!
+- It's going to destroy `itself` in a matter of hours.
+- It was in the cava and the hole sealed `itself` off.
+- The virus `itself` might have positive applications.
+- Where's you get the alloy for the throttle `itself`?
+- I've sometimes doubted whether life `itself` has any.
+- I was afraid one bottle might get lonely by `itself`.
+- Jim, it's looking for <u>answers</u> <u>`itself`</u>!
+- Mr. spock, what would v'ger need to fulfill `itself`?
+- My government can go fuck `itself`, and so can yours.
+- The senator's body is literally burning `itself` out.
+- But that's only when the love `itself` goes unchanged.
+- It's made `itself` look like the woman's dead husband.
+- But your heart doesn't constrain `itself` to mere logic.
+- It's some kind of organism, it's attached `itself` to him.
+- Killing this sonuvabitch ought to be a reward in `itself`.
+- That's right, the pain `itself` is a ball of healing light.
+- The government inserts `itself` into all drug transactions.
+- Uh, it views other races, like us, as inferior to `itself`.
+- ..now keep your eyes open, something might present `itself`.
+- We use the mirrors to reflect the light back into `itself`!!
+- You're going out with something that calls `itself` "flash."
+- But from top to bottom this country has no sense of `itself`.
+- That's why it was designed to trigger `itself` automatically.
+- There are many ways a sword might find `itself` in a field...
+- The foundation runs `itself` -- i'm extraneous to the process.
+- Every piece of you is self-sufficient, an animal unto `itself`.
+- I can see the truth beginning to make `itself` clear to you.
+- Today, america is the roman empire and new york is rome `itself`.
+- Angelo went up there, and some- how, it got `itself` in the paper.
+- Forget about the tissue damage you're doing to the heart `itself`.
+- Now, when... when a typical virus attaches `itself` to its host...
+                 

@@ -1,0 +1,70 @@
+---
+title: "Wayne in a sentence | Wayne example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Wayne"
+---
+- Goodbye bruce `wayne`.
+- I am not john `wayne`.
+- You mean john `wayne`?
+- You're warren `wayne`.
+- He played john `wayne`.
+- John `wayne`'s great...
+- It's like this, `wayne`.
+- John `wayne` is dead, man.
+- 'my name is `wayne` gayle!
+- Bruce -- bruce `wayne`!
+- The infamous `wayne` charm.
+- I need the `wayne` diamonds.
+- It's not that easy, `wayne`.
+- Master `wayne`'s dead wives.
+- Okay, `wayne`, step forward.
+- I don't get you bruce `wayne`.
+- Just save your breath, `wayne`.
+- Mr. `wayne` is out for the day.
+- `Wayne` okay, guys, we're here.
+- How can i help you, mr. `wayne`?
+- Mr. `wayne` ... something wrong?
+- Or as bruce `wayne` and hope...?
+- Bruce `wayne` is out of his mind.
+- But you see, that's okay, `wayne`.
+- Hail the all-knowing bruce `wayne`.
+- I really do apologize, mr. `wayne`.
+- Never is a very long time, `wayne`.
+- Did you ever do one on `wayne` gacy?
+- I remember my life as bruce `wayne`.
+- They think i'm john-fucking- `wayne`.
+- John `wayne` in mco... one minute -- !
+- Pass that on to mr. `wayne`, would you?
+- Uh, selina, this is, uh, bruce `wayne`.
+- Um...i'm pretty sure i'm bruce `wayne`.
+- Bruce `wayne` was something i inherited.
+- In the `wayne` county internment camp...
+- She used to work for `wayne` enterprises.
+- Guess who's got a date with bruce `wayne`?
+- You gotta see john `wayne`'s footprints.
+- I hear bruce `wayne` is throwing a fundraiser.
+- John `wayne` said it in shepherd of the hills.
+- The future of `wayne` enterprises is brainwaves!
+- John `wayne`, he also did the same thing in both.
+- We've never been introduced, but i'm `wayne` gayle.
+- Me and you, `wayne`, we're not even the same species.
+- On a blind tip from bruce `wayne` -- we do have laws.
+- Well ... come what may... merry christmas, mr. `wayne`.
+- `Wayne`, i'll not stand for mud- slinging in this office.
+- That `wayne` can't shoot when he's sober, much less drunk.
+- I wish the game still had fights so i could bitch-slap `wayne`.
+- I never though i'd be stuck in a wine closet with warren `wayne`.
+- Yes, i'm boning up for your bruce `wayne` meeting in the morning.
+- John `wayne`'s making so much noise i can hardly -- place is great.
+- Miranda -- tell my friend here what you told me about bruce `wayne`.
+- Of course, dick grayson, ward of the fabulously wealthy bruce `wayne`.
+- That mythical community you're supposed to come from -- fort `wayne`'?
+- This time john `wayne` does not walk off into the sunset with grace kelly.
+- `Wayne` call your station, tell 'em we're going live a little early today.
+- Another orphan of a bankrupt culture who thinks he's john `wayne`...rambo...
+- Get these men reformed, send steuben and `wayne` out on the left... that's greene.
+- Only this time, no john `wayne` and dean martin shooting the bad guys in el dorado.
+- Although the `wayne` foundation is hosting the event, sadly i will be unable to attend.
+- The `wayne` foundation contributes a small fortune to police and crime prevention programs.
+                 

@@ -1,0 +1,107 @@
+---
+title: "nuts in a sentence | nuts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nuts"
+---
+- Because you're `nuts`.
+- He's `nuts` about you.
+- It drives them `nuts`.
+- They think i'm `nuts`.
+- Are you fucking `nuts`?
+- It's driving me `nuts`!
+- I want `nuts` to butts!
+- You think we're `nuts`.
+- A bunch o' jesus `nuts`?
+- This is a little `nuts`.
+- Are you fucking `nuts`!!!
+- Chick's `nuts` about you.
+- Hey you're really `nuts`.
+- I must be going `nuts`...
+- Smythe, i'm going `nuts`.
+- <u>`nuts`</u> to you too!
+- You're driving me `nuts`!
+- He's fuckin `nuts` -- yes.
+- They're driving me `nuts`!
+- Chick only made you `nuts`.
+- I mean it...this is `nuts`.
+- They are `nuts` about wood.
+- Are you `nuts` or something?
+- I was- you're really `nuts`.
+- You think i'm `nuts`, right?
+- He just may be `nuts` enough.
+- Owww....what are you `nuts`?!
+- Lay out some mixed `nuts`.
+- As `nuts` as that sounds, yes.
+- I tell you that dame's `nuts`.
+- Keel, stern, suits and `nuts`.
+- Keel to stern, soup to `nuts`.
+- Chet found out and he's `nuts`.
+- I know, this is fucking `nuts`.
+- I'm going `nuts` in this house!
+- Who did you expect numb `nuts`?
+- Boy, the `nuts` are out tonight.
+- He was going `nuts` at the park.
+- I'm kinda feeling `nuts` myself!
+- You're `nuts`, goin' back there!
+- My daughter must be going `nuts`.
+- This is too `nuts`...i'm leaving.
+- You're `nuts` man, katka's right!
+- You think i'm <u>that</u> `nuts`?
+- I mean you guys are really `nuts`.
+- Put all your `nuts` in one basket.
+- Are you `nuts`, walking into a gun?
+- I don't know... maybe mom's `nuts`!
+- They left an hour ago, pink `nuts`.
+- Jesus christ, homey, you are `nuts`.
+- Looks like everybody's goin' `nuts`.
+- They're going `nuts` for these guys.
+- Greer too, except he went `nuts`.
+- Or the old lady is `nuts` - jonathan?
+- The people, the press will go `nuts`.
+- We have the competition by the `nuts`.
+- You'll drive your wife and kid `nuts`!
+- Anybody ever tell you you're `nuts`....
+- I mean you're driving everybody `nuts`!
+- It's about you're the one who's `nuts`!
+- They always call the great ones `nuts`.
+- Well, the kid musta gone `nuts`, right?
+- And, uh, you're gonna drive them `nuts`.
+- He had of went `nuts` and did somethin'.
+- I'd rather sell my `nuts` to a castrati.
+- He's getting married... and we're `nuts`!
+- Hey, why are you still here, truck-`nuts`?
+- Acres of `nuts`, navajo, and nowhere to go.
+- The `nuts` always call themselves great.
+- If you think this is closure, you're `nuts`.
+- Pulling out the tooth, man, that was `nuts`!
+- With all due respect, cynthia you're `nuts`.
+- You're fucked, rick--are you fucking `nuts`?
+- Your pal `nuts` enough to take a shot at me?
+- `Nuts`, the lines must still be disconnected.
+- Well, if the rider's `nuts`, the horse bolts.
+- When you speak to him he's not at all `nuts`.
+- Hit 'em where it hurts -- right in the `nuts`.
+- On the high side... have you tried the `nuts`?
+- Yeah, i guess... hot chicks are always `nuts`.
+- Bring somebody in so he can cut his `nuts` off?
+- I have to finish this letter or i'll go `nuts`.
+- ...this drug testing is driving my guys `nuts`.
+- A guy went `nuts` over off of commonwealth today.
+- Did pavlov condition his dogs to lick his `nuts`?
+- I'm up to my ass in more `nuts` than a fruitcake.
+- Someone really went `nuts` with the decluttering.
+- That's not monkey `nuts` son; you can still fold.
+- His `nuts` are on the block and <u>we got him</u>.
+- None, it's mine - you said it earlier, i'm `nuts`.
+- The reapers will go `nuts`, take off these chains.
+- They're `nuts`... they used to call in every week.
+- Those two love-birds next door drivin' you `nuts`?
+- I've had it, numb `nuts`... how much money you got?
+- I'd kick him in the `nuts`, if i thought he had any.
+- Serve the `nuts` - i mean, serve the guests the `nuts`.
+- She's a little `nuts`, but she's a good girl i think.
+- Yeah, well, you have to be `nuts` to do what you did.
+- All she did was loosen the `nuts` and put the tire on.
+- I think at least some of the crew went a little `nuts`.
+                 

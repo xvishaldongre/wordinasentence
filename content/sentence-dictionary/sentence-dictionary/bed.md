@@ -1,0 +1,107 @@
+---
+title: "bed in a sentence | bed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bed"
+---
+- Before going to `bed`.
+- Can i go to `bed` now?
+- Come in `bed` with us.
+- Come on back to `bed`.
+- _ - comfortable `bed`.
+- I'm gonna go to `bed`.
+- Lie down on the `bed`.
+- Okay, get in to `bed`.
+- You wanna go to `bed`?
+- I'm going to `bed`.
+- Are the girls in `bed`?
+- Before you go to `bed`.
+- Come to `bed`, darling.
+- Getting pearl to `bed`.
+- I'm going to `bed` now.
+- I'm goin' ta `bed` now.
+- Now let's get to `bed`.
+- Time for `bed`, kiddos.
+- You can have the `bed`.
+- You go on off to `bed`.
+- I'm, uh, going to `bed`.
+- Just get outta my `bed`.
+- Let's try out the `bed`.
+- No, that's thea's `bed`.
+- No, your marriage `bed`.
+- There is only one `bed`.
+- You ever going to `bed`?
+- You go on back to `bed`.
+- You left it in my `bed`.
+- Allison is sick in `bed`.
+- She's great in `bed`.
+- Anyway -- time for `bed`.
+- Cause i'm going to `bed`.
+- Evelyn, put her to `bed`.
+- I just put them to `bed`.
+- I think i'll go to `bed`.
+- The creek `bed` -- where?
+- To `bed` with you, c'mon.
+- What sort of `bed` is it?
+- You ought to be in `bed`.
+- And look under your `bed`?
+- He's just laying in `bed`.
+- I can put myself to `bed`.
+- I just put holly to `bed`.
+- I'm already in your `bed`.
+- I was in `bed` for a week!
+- Look at that flower `bed`.
+- Well, i wanna go to `bed`.
+- You are great in `bed`.
+- But first, back into `bed`.
+- First one to hit the `bed`.
+- Go to `bed`, little father.
+- Her `bed` hasn't been made.
+- He's already gone to `bed`.
+- You're zip-tied to a `bed`.
+- 5:00, i turn down the `bed`.
+- How did i get into my `bed`?
+- I came up and went to `bed`.
+- I don't want to go to `bed`.
+- I guess it's time for `bed`.
+- I have to go to `bed` early.
+- I'll take cathy up to `bed`.
+- I'm just laying on my `bed`.
+- It's like a `bed` on wheels.
+- Just stay in `bed` and rest.
+- Make sure he stays in `bed`.
+- On my `bed` in your panties.
+- Since you all went to `bed`.
+- Under the `bed` with niylah.
+- We're going up to `bed` now.
+- We're gonna eat it in `bed`.
+- Will you sign for the `bed`?
+- You better go back to `bed`.
+- Better go back to your `bed`.
+- But i think i�ll go to `bed`.
+- Help me get her to the `bed`.
+- I thought i put you to `bed`.
+- I've been ordered into `bed`.
+- I wanted a drink and a `bed`.
+- I went to `bed` around seven.
+- I went to `bed` pretty early.
+- Should have broken the `bed`.
+- We don't need a `bed`, do we?
+- You better get back to `bed`.
+- You kids go to `bed` on time!
+- Because you're going to `bed`.
+- Have the child taken to `bed`.
+- How does she like it in `bed`?
+- I come to turn down the `bed`.
+- Letty, you should be in `bed`.
+- She'll get you your own `bed`.
+- She was good in `bed`, though.
+- They found him at `bed` check.
+- Well, quick -- get into `bed`.
+- Why didn't you get into `bed`?
+- Why don't you jump into `bed`?
+- You don't want to go to `bed`.
+- Boss, ain't you going to `bed`?
+- Can't get out of virtual `bed`.
+- Go to `bed` and get some sleep.
+                 

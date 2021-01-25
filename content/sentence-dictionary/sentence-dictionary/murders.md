@@ -1,0 +1,67 @@
+---
+title: "murders in a sentence | murders example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "murders"
+---
+- The hacksaw `murders`.
+- The first two `murders`.
+- We're already `murders`.
+- What first two `murders`.
+- `Murders` in the rue morgue.
+- These `murders` are not normal.
+- I knew you wrote about `murders`.
+- A book on the warehouse `murders`?
+- `Murders` and rapes in the cities.
+- `Murders` pulls high level bounty.
+- ...before the `murders` took place.
+- These `murders` are his masterwork.
+- How many `murders` did you cover up?
+- The `murders` were all happening.
+- You have two `murders` to investigate.
+- Then, he must write about these `murders`.
+- Sometimes they dream about the old `murders`.
+- We've got three `murders` we can link him to.
+- He wouldn't begrudge you two measly `murders`.
+- I m into, well, `murders` and executions mostly.
+- The `murders` in the eighties were never solved.
+- The movie `murders` have brought out the crazies.
+- The papers called them the nightingale `murders`.
+- Just like you thought...two `murders` in two days.
+- The `murders` were a completely isolated incident.
+- Who else but crazy men would film their `murders`?
+- On the day of the `murders`, his state of mind?
+- Are you telling me they can't see `murders` anymore?
+- I give you three `murders` and you aren't satisfied.
+- And, these `murders` have been like forced attrition.
+- You gonna talk to the people who did those `murders`?
+- Then he couldn't have committed those other `murders`.
+- He was re�enacting charles manson's labianca `murders`.
+- You got a collar in here for the nightingale `murders`?
+- I mean, `murders` on your set and still you say nothing?
+- You heard of "the turnpike `murders`" that was sparazza.
+- You tried to pin three stone `murders` on dunbar -- stop.
+- Man, as man was meant to be--a vengeful ape who `murders`.
+- The `murders`... gregory... then 28 days later... carlton.
+- I've got a bad feeling these `murders` are his life's work.
+- On the day of the `murders` what did the defendant request?
+- So you figure the `murders` stop 'cause he's off the street.
+- Like we celebrated after solving the white bluesman `murders`?
+- Ww... uh... you investigating those `murders` out at the lake?
+- He's only two `murders` away from finishing his masterpiece, right?
+- Look, `murders` aside, riddick belongs in the asshole hall of fame.
+- Because i found out for certain that he didn't commit the `murders`.
+- I think there have been five `murders` and you've got shit to go on.
+- The first `murders` were to throw us - using the same names as woodsboro.
+- Again, i am the author of the definitive book on the woodsboro `murders`.!
+- As a narcissist, viznick couldn't blame himself for the alleged `murders`.
+- I cannot accept a connection between david kessler and last night's `murders`.
+- Nicky was questioned in two dozen `murders`, but they always had to let him go.
+- With the `murders` and all, it's like right out of a horror movie or something.
+- That's not technically accurate - simpsons `murders` weren't sexually motivated.
+- It's as if the game is the catalyst for the `murders` -- not the other way around.
+- I wonder if -- if i'm right, this happened before the krueger `murders` in springwood.
+- "what are you talking about ricky, the `murders` were a completely isolated incident".
+- You put him in for three `murders`, the man saved your life -- there's that word again.
+- But get this -- beginning in 1984, there was _another_ series of `murders` in springwood.
+                 

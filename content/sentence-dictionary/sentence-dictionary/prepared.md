@@ -1,0 +1,100 @@
+---
+title: "prepared in a sentence | prepared example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prepared"
+---
+- My soul is `prepared`.
+- A `prepared` statement.
+- I know we're `prepared`.
+- I `prepared` for a week.
+- We could have `prepared`.
+- But you must be `prepared`.
+- I `prepared` a flight plan.
+- I've `prepared` some broth.
+- Are you `prepared` for that?
+- I'm `prepared` for anything.
+- Our data is being `prepared`.
+- But i'm not `prepared` to die.
+- You would have been `prepared`.
+- Well you've gotta be `prepared`.
+- I just want you to be `prepared`.
+- I'm `prepared` to take the blame.
+- This list was `prepared` for you.
+- I am `prepared` to do that anyway.
+- I'm `prepared` to offer you a job.
+- Good thing one of us was `prepared`.
+- How far are you `prepared` to help me?
+- Just watch what albert has `prepared`.
+- Octavia: bell, we’re not `prepared`.
+- But i was `prepared` to go all the way.
+- I am `prepared` to fight for that long.
+- I'd like to read a `prepared` statement.
+- We have to be `prepared` for everything.
+- You should have been taught, `prepared`.
+- Are you `prepared` to put that in writing?
+- Seems like we oughta be `prepared` is all.
+- You can insist on being better `prepared`.
+- I wasn't `prepared` for questions about us.
+- Our ancestors wanted to be `prepared`, too.
+- We could have `prepared` something for you.
+- We have `prepared` you all for this moment.
+- If you help me, i am `prepared` to help you.
+- I went swimming and `prepared` a new vehicle.
+- I am `prepared`, however, to offer a solution.
+- I am `prepared` to write anything you tell me.
+- Is it, being `prepared` to do the right thing?
+- I was already `prepared` to commit one murder.
+- Would you be `prepared` to handle this for me?
+- A man ought to be `prepared` for any emergency.
+- We were better `prepared` and better armed.
+- They say we should�ve been `prepared` for this.
+- My fleet is standing by and `prepared` to attack.
+- However, i have a little statement all `prepared`.
+- I am `prepared` to accept the terms, mr. newcombe.
+- I didn't have to go as far as i was `prepared` to.
+- If the fruit burst into flames i'll be `prepared`.
+- Sir, i've `prepared` your year-end finance report.
+- I've `prepared` this; have had it for over a month.
+- They wouldn't be `prepared` for me bringing anyone.
+- I `prepared` these for you last night, miss connell.
+- You always think you're `prepared` for these things.
+- It's true the shepherd `prepared` for his pilgrimage.
+- This is a summary of a dossier that's being `prepared`.
+- We're using the tunnel, but be `prepared` for anything.
+- At my age, i'm `prepared` to take a few things on faith.
+- Well, i have `prepared` two comebacks, we can make more.
+- Chancellor jaha, all stations are `prepared` for laun.
+- Well -- i was `prepared` for worse, but it wasn't so bad.
+- But only after my friends are... we have to be `prepared`.
+- Two...i'm a journalist, and i'm `prepared` to take that risk.
+- You want to play with the bad boys, you better be `prepared`.
+- Oh, by all means, i'd be quite `prepared` for that eventuality.
+- He's not `prepared` to accept it will mean as much as you think.
+- I know what it meant... and i'm `prepared` to make it up to you.
+- So for six years i incubated her, `prepared` her for this night.
+- To go to <u>that</u> war, you've got to be <u>`prepared`</u>.
+- Be `prepared` to come in for further interrogation on this later.
+- Well -- i guess you're quite `prepared` to suffer the consequences.
+- Not without losing your all-american standing i'm `prepared` to die.
+- We're `prepared` to remove you immediately, should anything go wrong.
+- At this point my client is still `prepared` to consider reconciliation.
+- We have our drink, we're out on the patio, you have `prepared` me for it.
+- My client is `prepared` to settle for fifty percent of the marital assets.
+- Look at all this beautiful food, so lovingly `prepared`... we settled this.
+- You gonna come in on this with me, you gotta be `prepared` to go all the way.
+- They got the company books, `prepared` by you--*cooked* by you--that's motive.
+- In order to keep elaine away from you -- i am `prepared` to tell her everything.
+- All these guns... are you actually `prepared` to kill and die for whooping cranes?
+- And we have to be `prepared` to give them up for the record, you didn't save finn.
+- Yeah, it's good i `prepared`, or i wouldn't have thought to -- "the strawberries"?
+- I feel that somehow my parents never `prepared` me to make this particular decision.
+- I want to buy the property, and i'm `prepared` to offer six-thousand dollars for it.
+- You must make the injustice visible -- be `prepared` to die like a soldier to do so.
+- I'm `prepared` to take whatever steps are necessary to see to it they don't get mine!
+- Someone didn't bother reading my carefully `prepared` memo on commonly used passwords.
+- I'm not sure i can do anything, but i'm `prepared` to give it a go -- -- if you'll help.
+- I have given a great deal of thought to that possibility, and i am `prepared` to face it.
+- I'm quite `prepared` to tell you everything, though there isn't much you haven't guessed.
+- You know, you, you joke with-about me, you make fun of me, but i'm `prepared` for anything.
+                 

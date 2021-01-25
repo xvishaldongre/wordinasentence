@@ -1,0 +1,107 @@
+---
+title: "nine in a sentence | nine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nine"
+---
+- By the hour of `nine`.
+- He's `nine` years old.
+- It says forty- `nine`.
+- It's ten after `nine`.
+- `Nine` hundred is bid.
+- `Nine`... ten minutes.
+- That's `nine` one two.
+- I'll see you at `nine`.
+- Make it `nine` hundred.
+- `Nine` that we know of.
+- "but new struck `nine`."
+- Forty-`nine` point four.
+- `Nine` men, six bullets.
+- `Nine` thousand dollars.
+- She's twenty-`nine`, ma.
+- Eight, `nine` months ago.
+- It's a quarter to `nine`!
+- I've had it since `nine`.
+- Make love to me, '`nine`?
+- Nineteen zero and `nine`.
+- `Nine`-thirty, ten maybe.
+- `Nine` years in the army.
+- `Nine` years, just about.
+- So `nine` hundred to you.
+- Tomorrow evening, `nine`.
+- Eight, `nine` car lengths.
+- My god, she's only `nine`.
+- They've lost `nine` today.
+- Eight, almost `nine` years.
+- I got one `nine` years ago.
+- I'll be back around `nine`.
+- It was a `nine` millimeter.
+- 'mary rooney, forty-`nine`.
+- Three four `nine` `nine` one.
+- You dial `nine` to get out.
+- You mean camp sixty-`nine`.
+- I'd say eight, maybe `nine`.
+- I'm twenty-`nine` years old.
+- In `nine` months, i am free.
+- I was `nine` in the sixties.
+- Meet me tratino's at `nine`.
+- On the `nine` o'clock train.
+- Yeah, `nine` years straight.
+- Breakfast is ready at `nine`.
+- Make it `nine` and you're on.
+- Since i was `nine` years old.
+- Twenty-`nine` years tomorrow.
+- I don't know, eight or `nine`.
+- I'm guessing `nine` feet long.
+- In ten, `nine`... alec in ten.
+- My cock is `nine` inches long.
+- `Nine` millimeter, long slide.
+- `Nine` hundred feet to surface.
+- She's fucking `nine` years old!
+- Somewhere around `nine`-thirty.
+- This is `nine` hundred dollars.
+- A dollar sixty-`nine`, plus tax.
+- From `nine` years in the future.
+- ...i'd say around `nine`-thirty.
+- I'd win at least `nine` of them.
+- I read it at least `nine` times.
+- `Nine` feet -- ten -- that's it.
+- She moved here in 'forty-`nine`.
+- That's `nine` to four, geek-boy.
+- �ys�e seven, eight, `nine`, two.
+- Dipshit with a `nine`-toed woman.
+- I told them to be here by `nine`.
+- My father died when i was `nine`.
+- `Nine` minutes and it's all over!
+- `Nine` o'clock get ready for bed.
+- ...one fifty-`nine`, two minutes.
+- All i want is thirty-`nine` sixty.
+- It opens in `nine` weeks in tulsa.
+- It's `nine`-thirty in the morning.
+- Between point two and point `nine`.
+- But... he only wrote `nine`, major.
+- He killed `nine` people, didn't he?
+- It is now `nine` o'clock precisely.
+- It's `nine` o'clock in the morning.
+- `Nine` hundred meters and dropping.
+- The yellow stripe, that's a `nine`.
+- `Nine` hours and twenty-two minutes.
+- Two on the five, five on the `nine`?
+- You can't disappear for `nine` days.
+- You have twenty-`nine` minutes left.
+- Hollywood zero-one- two-three-`nine`.
+- I'll see you at the office at `nine`.
+- I need a half and a `nine`-six-tenth.
+- Twenty, forty, sixty, eighty, `nine`.
+- Why not thirty-five or thirty-`nine`?
+- Your plane's at `nine` a.m. be on it.
+- Five, seven, and `nine`-- yes--filiba!
+- I lived there for about `nine` months.
+- I once made `nine` hundred in outcall.
+- It's a school night... back by `nine`.
+- I've been pepper sprayed `nine` times.
+- Okay, there have been `nine` bombings.
+- We've lived together for `nine` years.
+- Cabell was his deputy for `nine` years.
+- Let's say `nine` o'clock here tomorrow.
+                 

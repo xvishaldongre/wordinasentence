@@ -1,0 +1,53 @@
+---
+title: "kissing in a sentence | kissing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kissing"
+---
+- Like `kissing` a girl.
+- Like `kissing` a rose.
+- I'm `kissing` mao's ass.
+- Do you like `kissing` me?
+- Is this a `kissing` book?
+- No, it's `kissing` again.
+- For `kissing` an employee?
+- You were `kissing` somebody.
+- You said "`kissing` that guy."
+- He's `kissing` her on the lips.
+- Practicing `kissing` your hands?
+- But all that `kissing` my ears...
+- From `kissing` that guy, to... what?
+- Why are you both `kissing` up to lisa?
+- It's why you stopped us from `kissing`.
+- What's that `kissing` on the mouth shit?
+- Even `kissing` someone with aids is safe.
+- `Kissing` a boa constrictor or something?
+- Must make `kissing` something of a gamble.
+- She says `kissing` is better without teeth.
+- Maybe i was `kissing` someone and he bit me.
+- Well, i mean, they're just `kissing`, right?
+- You've got enough people `kissing` your ass.
+- Sometimes i only think about `kissing` women.
+- We've got crap, crap, crap or crap `kissing`?
+- It's `kissing` me and darkness is entering me.
+- I must have been *dreaming* of `kissing` someone.
+- For your information, we are not `kissing` up.
+- I hate you because you depart without `kissing` me.
+- Not without lots of praying and `kissing` the dice.
+- If i were your bride, would the `kissing` ever stop...?
+- You been `kissing` ass so long you're starting to like it?
+- I just wanted to sort of apologize for the `kissing` thing.
+- Were you planning on `kissing` me when you finished quoting?
+- They're `kissing` again, do we have to hear the `kissing` part?
+- You'd just been `kissing` that girl when i came in, hadn't you?
+- Yeah, but sometimes `kissing` the losers can be a fun diversion.
+- Should be `kissing` our asses for being allowed that's borrowing.
+- `Kissing` isn't what keeps me up to my elbows in placenta all day.
+- Yeah, well, when you were `kissing` that guy, i was fucking molly.
+- `Kissing` and hugging, okay, but if it's actual sex they have to cut away.
+- And get me to a window with a view `kissing` with your eyes closed never goes awry.
+- He showed me a book with a picture of a couple caught `kissing` in a street... ... no.
+- I remember `kissing` you... that was really nice but everything after that is a blank.
+- He rejects her, so she demands his head on a golden tray, `kissing` his cold, dead lips.
+- After he gets a blow job, he likes to have the cum spit back into his mouth while `kissing`.
+                 

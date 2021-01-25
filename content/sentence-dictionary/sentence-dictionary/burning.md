@@ -1,0 +1,97 @@
+---
+title: "burning in a sentence | burning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "burning"
+---
+- Boy, was he `burning`.
+- `Burning` one forever?
+- Hot, `burning` kisses.
+- It's `burning` my eye.
+- Jason: i'm `burning` up.
+- Fires `burning` at night.
+- We met at `burning` woman.
+- Why aren't you `burning` it?
+- Psalms are not for `burning`.
+- Smashing, killing, `burning`!
+- By `burning` down their homes?
+- Only i was `burning` from ice.
+- `Burning` up in the atmosphere.
+- I think your dinner's `burning`.
+- The fumes are `burning` my eyes.
+- No one is `burning` at the stake.
+- It's `burning` me, but i love you.
+- They're `burning` their documents.
+- Everybody's skin started `burning`.
+- Keep the fire `burning` if you can.
+- But the `burning` is totally normal.
+- It's `burning` a hole in my stomach.
+- <u>you</u> were seen `burning` them.
+- It looks like you're `burning` money!
+- Have you ever smelled `burning` flesh?
+- She says he feels like he's `burning`.
+- ♪ and i'm just `burning`... ♪ not here.
+- Bring some ice cream, i'm `burning` up.
+- Right in line with that `burning` tree.
+- Around the world, 7 currently `burning`.
+- `Burning` bamboo scared the monster off.
+- You see man...`burning` at his absolute.
+- His pulse is weak, and he's `burning` up.
+- Just as the source of light is `burning`.
+- This is your pain -- your `burning` hand.
+- Well, they aren't `burning` me in effigy.
+- Is he `burning` what i think he's `burning`?
+- We gotta get this bad boy `burning` again.
+- 'i'm `burning` alive,' screamed the witch."
+- It's `burning`, it's `burning` please mother!
+- A hot light bulb is `burning` inside of you.
+- Did you have a light `burning` or something.
+- I came to this country for the `burning` man.
+- The lamp was `burning` all night in his room.
+- The were `burning` their fingertips with lye.
+- That crack is `burning` a hole in your pocket.
+- Planning on `burning` this place to the ground?
+- Before `burning` sanctum to the ground, i see it.
+- A hunk of hulk of `burning` fudge is our favorite.
+- I feel right now like there's one `burning` in me.
+- This fire wasn't `burning` when we left the house.
+- I bet it's `burning` a hole in your brain just now?
+- ♪ i'm just `burning` ♪ - ♪ in my feet ♪ oh, my god.
+- Now the cigarette keeps `burning` like a fuse, see?
+- Sheeit, beats `burning` hutches anyway... found it.
+- `Burning` up lots of taxpayer's dollars, too, i bet.
+- Soon he will feel the `burning` of his vulcan blood.
+- The senator's body is literally `burning` itself out.
+- To stop simone from `burning` me at the stake, - god.
+- Twelfth night...`burning` pine... and mummers' plays.
+- He's out there feeling, `burning`... grooving on life!
+- We gotta get the gates `burning` again before he dies.
+- `Burning` down the palace was a bit extreme, - thank you.
+- They're `burning` all the canadian stuff cause of the war.
+- Is she the kid you're gonna save from the `burning` building?
+- Some son of a bitch is `burning` my bridges behind my back...
+- They're taking all our laughter and `burning` it to the ground!
+- Now the itching becomes `burning`... heat, upon heat, upon heat.
+- He's `burning` up the place about you just dropping out of sight.
+- He asked, "i thought you'll was supposed to be `burning` in fire."
+- The good old days: toasting marsh- mallows over a `burning` witch.
+- If we pull up to a `burning` building i'll gladly let you go first.
+- ♪ ooh, i'm just `burning` doin' the neutron dance ♪ for everything.
+- They're `burning` russell at the stake tonight, out of this church.
+- I saw him `burning` on the basement stairs, he never reached the top.
+- The `burning` bush, the big picture, the words in neon... hallelujah.
+- There's a forest, a `burning` forest, and you know what i have to do!
+- While they're `burning` up, they're still goin' down on each other?
+- For pulling a 210-pound man out of a `burning` barrack in saudi arabia.
+- `Burning` a man at the stake farewell, instagram, facebook and nextdoor.
+- ♪ i'm just `burning` doin' the neutron dance ♪ - totally, but so were you!
+- You don't ravage the countryside, devouring maidens and `burning` the crops?
+- Just `burning` them up, no proper funeral, it's like condemning them to hell.
+- You're `burning` my ass, i can't get a fucking lead...you think that was luck.
+- Hooked up with these two chicks who were off to see the `burning` man festival.
+- It's `burning`... fletcher, get away from there... fletcher, i want you back here.
+- You want me to ask these people if they're `burning` candles to ward off monsters.
+- I thought we were going to save those leaves you were `burning` for the compost bin.
+- Who could love a man who keeps jumping through `burning` hoops, like a trained poodle?
+- They clamped it on raven's wrist you know, there's a real log `burning` below it, right?
+                 

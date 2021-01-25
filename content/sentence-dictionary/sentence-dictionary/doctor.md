@@ -1,0 +1,107 @@
+---
+title: "doctor in a sentence | doctor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doctor"
+---
+- But you're a `doctor`.
+- `Doctor` david ravell.
+- `Doctor`, he is awake.
+- `Doctor`, i am gassed.
+- Father was a `doctor`.
+- Get her to a `doctor`.
+- He's still a `doctor`.
+- I'll get the `doctor`.
+- Please, sit, `doctor`.
+- Raven, i'm a `doctor`.
+- So, tell me, `doctor`.
+- This is `doctor` bean.
+- Was the `doctor` here?
+- We found our `doctor`.
+- Well, i'm no `doctor`.
+- What kind of `doctor`?
+- Where is the `doctor`?
+- Yes, `doctor`, i have.
+- You were her `doctor`.
+- Because i'm a `doctor`.
+- Did you get a `doctor`?
+- `Doctor`'s orders- - -?
+- `Doctor`, what's wrong?
+- Do you need a `doctor`?
+- Here you are, `doctor`.
+- He's vicious, `doctor`.
+- I feel young, `doctor`.
+- I'm getting a `doctor`!
+- No thank you, `doctor`.
+- Quid pro quo, `doctor`.
+- Someone get a `doctor`.
+- The `doctor`'s a woman.
+- Wait, `doctor` -- wait!
+- What's wrong, `doctor`?
+- Where's `doctor` mccoy?
+- Yes, `doctor` sheppard.
+- Are you a `doctor`, too?
+- A what kind of `doctor`?
+- `Doctor`, if you please.
+- `Doctor`, norm spellman.
+- `Doctor` steven trammel.
+- I'm `doctor` livingston.
+- I'm `doctor` sam loomis.
+- I meant he's a `doctor`.
+- No, thank you, `doctor`.
+- Our `doctor`'s gone too.
+- What'd the `doctor` say?
+- You need ... a `doctor`.
+- You're not her `doctor`.
+- `Doctor` derek sommersby?
+- `Doctor` peel, i presume?
+- `Doctor` v. l. pemberton.
+- Give me a date, `doctor`.
+- Has nick seen a `doctor`?
+- He needs a real `doctor`.
+- He's a research `doctor`.
+- I'm calling the `doctor`.
+- Oh no, it's the `doctor`.
+- Roger mathison, `doctor`.
+- Should i call a `doctor`!
+- Thank you, herr `doctor`.
+- The `doctor` thinks i am.
+- They may need a `doctor`.
+- What are you, a `doctor`?
+- Would you stay, `doctor`?
+- Yes, thank you, `doctor`.
+- You promised no `doctor`.
+- Evening, `doctor` lardner.
+- Here's your man, `doctor`.
+- He's a brilliant `doctor`.
+- I appreciate it, `doctor`.
+- I beg to differ, `doctor`.
+- I'll talk to the `doctor`.
+- It's a `doctor`, isn't it?
+- It's remarkable, `doctor`.
+- I <u>am</u> your `doctor`.
+- Just as you say, `doctor`.
+- Morning, `doctor` goldman.
+- Oh... not a real `doctor`.
+- Shall i call the `doctor`?
+- Should you see a `doctor`?
+- That's not true, `doctor`.
+- The `doctor` suggested it.
+- This is `doctor` sheppard.
+- What did the `doctor` say?
+- Yes, i'm `doctor` venkman.
+- You'll be a good `doctor`.
+- You paid off the `doctor`.
+- You should see a `doctor`.
+- Am i a `doctor`, no, but...
+- Look at this, `doctor`!
+- `Doctor` -- is it possible?
+- `Doctor` lady make it irey.
+- How is `doctor` mccoy, sir?
+- I don't know yet, `doctor`.
+- I'll bring back a `doctor`.
+- It's like being a `doctor`.
+- My dad was a navy `doctor`.
+- My father needs a `doctor`.
+- My name is `doctor` railly.
+                 

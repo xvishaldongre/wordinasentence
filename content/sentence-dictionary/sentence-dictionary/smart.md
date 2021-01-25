@@ -1,0 +1,107 @@
+---
+title: "smart in a sentence | smart example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "smart"
+---
+- Be `smart` about this.
+- It's the `smart` move.
+- Oh, you're so `smart`.
+- Then don't be `smart`.
+- We have to be `smart`.
+- You're `smart` enough.
+- Your mother's `smart`.
+- Annie's a `smart` lady.
+- Boy, is that `smart`...
+- Don't be a `smart` ass.
+- Not `smart`, but noble.
+- Ooooo, you are `smart`.
+- That is really `smart`.
+- These guys are `smart`.
+- This is a `smart` boy."
+- You think he's `smart`?
+- But we gotta be `smart`.
+- Gee, your dad's `smart`.
+- He's a very `smart` man.
+- He's `smart`, dr. grant.
+- He's `smart`, gregor is.
+- I'm too `smart` for you.
+- Now how `smart` is that?
+- Ok, but not too `smart`.
+- `Smart` like his father.
+- Very funny, `smart` ass.
+- Who needs `smart` women?
+- You're a `smart` man?...
+- You're super `smart`.
+- He said you were `smart`.
+- It's about being `smart`.
+- Maybe cause he's `smart`.
+- No-- a person is `smart`.
+- `Smart` as well as quick.
+- `Smart` fellow, ain't he?
+- `Smart` for your age, eh?
+- That must really `smart`.
+- They were really `smart`.
+- Yes, you're very `smart`.
+- He is one `smart` man.
+- But she wasn't so `smart`.
+- I'm a `smart` sonofabitch.
+- I thought you was `smart`.
+- Turkey's are real `smart`.
+- Used to be `smart` enough.
+- Wade, that wasn't `smart`.
+- Well he played it `smart`.
+- You're not `smart` enough.
+- Cassandra's really `smart`.
+- I thought you were `smart`.
+- Just don't get too `smart`.
+- No, man, it's very `smart`.
+- `Smart` dresser, but crazy.
+- What a `smart` kid you are!
+- You're a `smart` young man.
+- But at least you're `smart`.
+- Crash is a very `smart` man.
+- It wouldn't be very `smart`.
+- ...just be `smart` about it.
+- She's a `smart` girl, eddie.
+- That's got to `smart` a bit.
+- You're such a `smart` aleck!
+- Your father must be `smart`.
+- You seem like a `smart` guy.
+- They're `smart` about it.
+- No, you're naturally `smart`.
+- The `smart` tv for christmas.
+- Your father is a `smart` guy.
+- Now it's my turn, `smart`-ass.
+- Octavia said you were `smart`.
+- `Smart` move killing that one.
+- Stop being so goddamn `smart`.
+- You'd better get `smart`, man.
+- Don't get `smart` with me, son.
+- I mean, a `smart` guy like you.
+- I've been trying to be `smart`.
+- The dame's too `smart` for him.
+- The guys think i'm too `smart`.
+- We got a bunch of `smart` guys.
+- You're a `smart` boy, jeremiah.
+- I'm `smart`; and i want respect.
+- `Smart` move, david, `smart` move.
+- Yeah, she's `smart`, you douche!
+- But that would've been `smart`...
+- Hang up...call... that's `smart`.
+- I thought you were a `smart` guy.
+- Oh, yeah, you're just so `smart`.
+- They wuz both too `smart` for us!
+- This isn't even `smart` thinking.
+- You got class and you're `smart`.
+- If you're so `smart`, you call it.
+- I mean electrocution, `smart` guy.
+- No `smart`-ass remarks or nothing.
+- `Smart`, hardworking, resourceful.
+- This'll show you how `smart` i am.
+- You're attractive, you're `smart`.
+- Don't you get `smart` with me, boy.
+- It's a cow, but a very `smart` one.
+- So you're not so `smart` after all.
+- You're right, you're a `smart` guy.
+                 

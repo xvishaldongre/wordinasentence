@@ -1,0 +1,107 @@
+---
+title: "pull in a sentence | pull example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pull"
+---
+- Did you `pull` me out?
+- If you `pull` my cart.
+- `Pull` his arms, john.
+- `Pull` out, goddamnit!
+- `Pull` over someplace.
+- `Pull` up next to him!
+- Steve, `pull` him out.
+- Thorgan, `pull` us in.
+- We have to `pull` him.
+- And `pull` the trigger.
+- Can't `pull` myself up.
+- `Pull` over right here.
+- `Pull` the trigger now.
+- `Pull` your pants down.
+- Don't `pull` it, norman.
+- I'll `pull` you back in.
+- `Pull` my laces tighter.
+- `Pull` the goddamn cord!
+- `Pull` your control rod.
+- Tell him to `pull` back!
+- Want me to `pull` rank ?
+- Why don't you `pull` it?
+- Y'all `pull` up a chair.
+- You `pull` that trigger.
+- You won't `pull` it off.
+- Did eric pake `pull` her?
+- I can't `pull` myself up!
+- I say we `pull` the plug.
+- Okay, pollux, `pull` out.
+- `Pull` yourself together!
+- Shouldn't we `pull` over?
+- `Pull` up behind that car.
+- `Pull` up to the entrance!
+- There's no plug to `pull`.
+- The shit they `pull`, huh?
+- Can you let me `pull` over?
+- Clarke, just `pull` it out.
+- Come on--don't `pull` that.
+- Hey, `pull` over, will you.
+- I can't `pull` yourself up!
+- O.k., everybody `pull` out!
+- `Pull` me out, `pull` me out!
+- `Pull` yourselves together.
+- We have to `pull` the plug.
+- We `pull` on this string...
+- What tricks would i `pull`?
+- You'll never `pull` it off.
+- Ah, so i `pull` the strings!
+- But don't `pull` that again.
+- Don't `pull` the green wire.
+- How can he `pull` that shit?
+- `Pull` at the equator there.
+- `Pull` up the keyhole tapes.
+- `Pull` your car out of line.
+- Shake that, don't `pull` it.
+- Uh, uh, george, `pull` over.
+- But you `pull` it off nicely.
+- If they `pull` it off, great.
+- It's time to `pull` the plug.
+- Maybe you do `pull` this off.
+- `Pull` the drive-in speakers.
+- `Pull` them back, d'artagnan.
+- `Pull` your team out, gorman.
+- They can't `pull` this on me.
+- To `pull` data off the flame.
+- You have to really `pull` it.
+- And i won't `pull` this lever.
+- And i won't `pull` this lever.
+- Have to `pull` this panel off.
+- I know you got a lotta `pull`.
+- Just `pull` off that band-aid.
+- Just `pull` off that band-aid!
+- Okay, `pull` it in tight here.
+- `Pull` over and wait a minute.
+- `Pull` yourself together, man.
+- Well, `pull` in your reel, mr.
+- What are you trying to `pull`!
+- What are you trying to `pull`?
+- What the hell we gonna `pull`?
+- You `pull` me off work detail.
+- Come on, daddy, `pull` my coat.
+- Don't let it `pull` you deeper!
+- Kristen, can you `pull` us out?
+- `Pull` the shades down and sit.
+- `Pull` yourself together, kane.
+- Rizzo `pull` the fucking lever!
+- Simpson, `pull` the fire alarm.
+- That cop didn't `pull` his gun.
+- What are you trying to `pull`?!
+- A little of the old push `pull`.
+- But...we could `pull` something!
+- How soon can we `pull` this off?
+- `Pull` over at that gas station.
+- She ever `pull` down her shades?
+- Then `pull` the emergency brake!
+- We're five minutes- `pull` back.
+- Didn't jump in to `pull` her out.
+- He wants to `pull` that tube out.
+- I'm going to `pull` some strings.
+- `Pull` one more switch, up front.
+                 

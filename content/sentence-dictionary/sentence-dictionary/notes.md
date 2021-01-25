@@ -1,0 +1,64 @@
+---
+title: "notes in a sentence | notes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "notes"
+---
+- What about the `notes`?
+- I'll get you the `notes`.
+- Take some mental `notes`.
+- No... no thank you `notes`.
+- `Notes` between any octave.
+- I promised i'd take `notes`.
+- Take `notes` if you want to.
+- Identical `notes` and rhythm.
+- I can't speak without `notes`.
+- The shrink makes more `notes`.
+- `Notes` and the octave repeats.
+- Your `notes` are very complete.
+- Shouldn't you be taking `notes`?
+- I have the sollozzo `notes` here.
+- I've got twenty pages of `notes`.
+- I was just assembling my `notes`.
+- You're nothing but false `notes`.
+- Your `notes` might be unreliable.
+- Named after wittgenstein's `notes`.
+- It's all written down in the `notes`.
+- I gave `notes` which were ignored.
+- We play `notes` you've never heard of.
+- Hey, do i have to take `notes` on this?
+- I'll get my `notes` and come right over.
+- So, you want to compare `notes` on this guy.
+- You and the grounders should compare `notes`.
+- But becca doesn't mention that in her `notes`.
+- Let's review these `notes` for your testimony.
+- Little `notes` that only mean something to you.
+- It's only 5 `notes`, but... whoa, nellie, right?
+- ...maybe a picture of me in the liner `notes`...
+- Coupla `notes` from last night's dress rehearsal.
+- I still haven't received simone's script `notes`.
+- There are simply too many `notes`, that's all.
+- When i'm ready to compare `notes`, i'll let you know.
+- There are just as many `notes`, majesty, as are required.
+- I don't understand -- i followed the `notes` to the letter.
+- If you liked `notes` from underground, you'll love the idiot.
+- Mr ross is maybe gonna take a few `notes`, if that's o.k.?
+- Since when do you go about slipping `notes` under men's doors?
+- So don't tell me you don't know how to play between the `notes`.
+- That's another hundred - twenty-five pounds `notes` of the realm.
+- He hasn't called, he's hardly written, just these cryptic `notes`.
+- I just play a few `notes`, you know, so i thought maybe i'd stay in.
+- Been keeping `notes` on him for years for my ... great american novel.
+- I just need to ride up front and take some `notes`, if you don't mind.
+- The devil's trumpet blowin' the `notes` o' doom for the devil's troops.
+- Lenny, you can't trust a man's life to your little `notes` and pictures.
+- I shoulda let ya go and gotten yourself arrested for passin' false `notes`.
+- Than this movie's red sand... ok, can you take some `notes` for me, please?
+- Your `notes` made interesting bedtime reading -- if you like trashy fiction.
+- Vegas security lockdown -- night </b> taryn is now scrawling `notes` on a pad.
+- In these past weeks, i have been thinking more carefully and making some `notes`.
+- Maybe there are `notes` or drawings of this place, showing how those plates work.
+- Surely he kept his `notes` -- his private papers and records in some other place?
+- Sending yourself anonymous `notes` in the mail is one thing -- but who called him today?
+- You play <u>between</u> the `notes`, you dance <u>around</u> the structure, you improvise.
+                 

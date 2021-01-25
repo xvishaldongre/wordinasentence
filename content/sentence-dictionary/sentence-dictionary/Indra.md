@@ -1,0 +1,107 @@
+---
+title: "Indra in a sentence | Indra example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Indra"
+---
+- He's one of `indra`'s.
+- `Indra`, what is this?
+- Madi, `indra`'s right.
+- `Indra` has a weakness.
+- Only on `indra`'s word.
+- He saved `indra`'s life.
+- `Indra` has the details.
+- `Indra`, hold your fire!
+- I mean, come on, `indra`.
+- `Indra`: shut your mouth.
+- `Indra`'s in the rotunda.
+- `Indra`, we need to talk.
+- It's `indra` and bellamy.
+- To see `indra` yesterday?
+- You betrayed me, `indra`.
+- Are you my enemy, `indra`?
+- `Indra`, this kitchen a.i.
+- Isn't that right, `indra`?
+- No more lectures, `indra`.
+- Wonkru will lose, `indra`.
+- After you take out `indra`.
+- [beeping] i love `indra`...
+- I saw `indra` in the crowd.
+- I take orders from `indra`.
+- Ai laik `indra` kom trigeda.
+- `Indra`, what are you doing?
+- `Indra`, what happened here?
+- I won't let her die, `indra`.
+- `Indra` has a new serving boy.
+- `Indra` taught me a few words.
+- `Indra`, this is charles pike.
+- `Indra`, we talked about this.
+- `Indra` won't let that happen.
+- You want me to go see `indra`?
+- `Indra` is not in command here!
+- `Indra`: it's not a kill order.
+- `Indra`, we can't wait for her.
+- Hey, we need to talk to `indra`.
+- `Indra` has weaknesses, i might.
+- `Indra`, my brother poisoned me.
+- They're scared, `indra`, hungry.
+- [`indra` moaning] innocent girls.
+- You made the right call, `indra`.
+- `Indra`, they're murdering people.
+- It makes my `indra` problem worse.
+- `Indra`'s reign has changed things.
+- `Indra`, without wonkru, moving on.
+- `Indra`, you can't be ok with this.
+- Thank you for leading `indra` here.
+- Gaia, `indra`, and bellamy will die.
+- `Indra` will join you there shortly.
+- Ok. let the others do that, `indra`.
+- `Indra`'s not doing so well, octavia.
+- `Indra` thinks it could split wonkru.
+- She's having a panic attack, `indra`.
+- Should have gone with `indra`, though.
+- `Indra` led a search party to find her.
+- `Indra`, we need to talk about russell.
+- Hey, octavia, hey, `indra` is here, too.
+- No, but the first battalion's `indra`'s.
+- Thank you for agreeing to this, `indra`.
+- I do care, clarke, `indra`, what's wrong?
+- `Indra` can say that she speaks for heda.
+- `Indra`'s about to take over for octavia.
+- `Indra`, would cooper do something - here.
+- You are wonkru... `indra`, the gun, please.
+- You're not going to the mines with `indra`.
+- _ what the hell are they doing here, `indra`?
+- Where we can make all of this better, `indra`!
+- On my, um, last box of food, so... oh, `indra`.
+- `Indra`, meet marcus kane, and what have we here?
+- Because i think `indra` knows me better than that.
+- `Indra` must trust you to send you in here with me.
+- We'll be home soon, and my mom... `indra`, hold on.
+- The convict you had follow `indra` has gone missing.
+- Yeah, yeah, yeah... `indra`, they almost killed you.
+- `Indra`'s army's outside the wall, let us outta here!
+- `Indra`, at the summit, kane told me look who's a dad.
+- Jackson's tending to `indra` and the others in medbay.
+- `Indra`, it's ok. _ i think i'm falling for you, soggy.
+- Even though `indra` has told you i just know things now.
+- According to legend, it left a hole in the woods `indra`?
+- `Indra`, the fact that you don't want it, _ i wish i could.
+- Please, abby, it's been so long our fight is over, `indra`!
+- Why else would you send kids, what are you saying, `indra`?
+- You just figured out what `indra` knew bellamy: wait!
+- Okay, um... `indra` will put a bullet in your brain me, too.
+- `Indra`... monty, i... you killed finn, and i didn't give up.
+- `Indra` left us in charge because the faithful follow us both.
+- On the edge of an abyss i've stared why are you here, `indra`?
+- I'm up against a tough opponent: and `indra` would kill you, too.
+- `Indra`, please, she has no idea i'm giving jaha the satisfaction.
+- You think you're better than me, kane, i saved your life, `indra`.
+- Either we lose and mount weather kills us all jackson, `indra`'s here.
+- Waiting for us to leave and piing us oﬀ - `indra`, let me help you.
+- Which i assume is impossible to fake, `indra`... something you're not.
+- `Indra`, tell your people to stand down he raised my property taxes, jim.
+- Our best guess right now is it's some kind of virus `indra`... octavia...
+- I don't know, thank you, `indra`, for giving me as they look up to clarke.
+- ♪ well, let's forget all that ♪ if we run, gaia, `indra`, and bellamy will die.
+                 

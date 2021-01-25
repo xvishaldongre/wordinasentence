@@ -1,0 +1,107 @@
+---
+title: "bout in a sentence | bout example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bout"
+---
+- '`bout` five thousand.
+- How '`bout` a western?
+- How '`bout` it, sport?
+- How '`bout` ted bundy?
+- How '`bout` you, bama?
+- So how '`bout` friday?
+- '`bout` two hours left.
+- But what `bout` accent?
+- Don't worry '`bout` me.
+- How '`bout` a back rub?
+- How '`bout` gas, tommy?
+- How '`bout` get shorty?
+- How '`bout` over there?
+- How '`bout` some cokes?
+- How '`bout` the morgue?
+- How '`bout` you carrie?
+- How '`bout` you, jerry.
+- Okay, how '`bout` this?
+- Well, how '`bout` that?
+- '`bout` time you showed.
+- '`bout` written you off.
+- How `bout` five dollars?
+- How '`bout` the sheriff?
+- Must be '`bout` bald.
+- '`bout` a thousand years.
+- How '`bout` a real drink?
+- How `bout` my phone line?
+- How '`bout` this weather?
+- How '`bout` freddy, jason?
+- '`bout` a mile up thataway.
+- How '`bout` a handkerchief?
+- How '`bout` a spare twenty?
+- How '`bout` christian dior?
+- How '`bout` him down there?
+- How '`bout` a little brandy?
+- How '`bout` a piece on iran?
+- How '`bout` carla goodspeed?
+- How '`bout` covering point!?
+- How '`bout` i take you home?
+- How '`bout` this billy snow?
+- Thanks, bobby, '`bout` done.
+- This '`bout` the fifth time?
+- Are you '`bout` it, '`bout` it?
+- '`bout` eight, if that suits.
+- '`bout` fifty thousand times.
+- During a `bout` of pneumonia.
+- How '`bout` a glass of water?
+- ...how '`bout` for the cokes?
+- I done told you '`bout` that.
+- I know whati'mtalkin''`bout`.
+- What are you talkin' '`bout`?
+- How '`bout` a cut in your gut?
+- How '`bout` three out of five?
+- How '`bout` we have a contest?
+- I haf question '`bout` script.
+- Oh yeah,... sorry `bout` that.
+- '`bout` eighty kilos southwest.
+- '`bout` every other night, red.
+- Goddamn... how '`bout` jasmine?
+- Hey, how '`bout` a card for me?
+- How '`bout` a drink at the bar?
+- Nobody talkin' '`bout` ya moms.
+- You hear '`bout` that, uncle t?
+- A wee `bout` of what, mr. scott?
+- '`bout` not touching the switch?
+- Dela, i don't know '`bout` this.
+- That's the thing '`bout` memory?
+- That's what i'm talkin' '`bout`.
+- ...'`bout` ready to mix it up...?
+- '`bout` time you got here, buddy.
+- How '`bout` giving me "the tour"?
+- How '`bout` some christmas music?
+- How '`bout` that furniture plant?
+- How '`bout` this big chuck smith?
+- What the hell you talkin' `bout`?
+- How '`bout` you, chief wiggum?
+- How ``bout` a hug for the old man.
+- How '`bout` cutting me some slack?
+- Not what i told you '`bout` sethe?
+- Don't talk dirty '`bout` ya sister.
+- Just you and me...how '`bout` that?
+- Shut your mouth '`bout` my lucille.
+- Why you gotta talk '`bout` my moms?
+- How '`bout` we check with eve first?
+- Don't worry '`bout` nothin', big bro.
+- How '`bout` another one for mr. zimm.
+- How '`bout` you talk to 'em about me?
+- What did i tell ya '`bout` dat noise?
+- Come on, man... how '`bout` a hug... ?
+- '`bout` the biggest pair you ever seen!
+- How '`bout` i give you your balls back?
+- I have to warn you '`bout` that, chief.
+- You don' know nothin' '`bout` it, baby.
+- How '`bout` a ten spot on the line here.
+- How '`bout` chili's hollywood adventure.
+- What did i tell ya '`bout` dem pictures?
+- How '`bout` giving me a glass of whiskey?
+- Said it was him who told them '`bout` me.
+- True story, '`bout` some killer in texas.
+- Don't be long now, dinner's '`bout` ready.
+                 

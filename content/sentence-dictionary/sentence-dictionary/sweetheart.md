@@ -1,0 +1,107 @@
+---
+title: "sweetheart in a sentence | sweetheart example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sweetheart"
+---
+- E. - hi, `sweetheart`.
+- Hang on, `sweetheart`.
+- It's ok, `sweetheart`.
+- `Sweetheart`, you are.
+- Tell me, `sweetheart`.
+- You're a `sweetheart`.
+- Your old `sweetheart`?
+- He's gone `sweetheart`.
+- I'm here, `sweetheart`.
+- It's okay `sweetheart`.
+- Like you, `sweetheart`.
+- You're my `sweetheart`.
+- Come here, `sweetheart`.
+- Of course, `sweetheart`.
+- You too, `sweetheart`...
+- Good night, `sweetheart`.
+- Oh, christ, `sweetheart`.
+- `Sweetheart`, what is it?
+- Aren't you a `sweetheart`?
+- Look around, `sweetheart`.
+- Oh, god, `sweetheart`, no.
+- `Sweetheart`, you're okay.
+- Yes, `sweetheart`-- wha--?
+- Good morning, `sweetheart`.
+- No `sweetheart`, you can't.
+- `Sweetheart`... about them.
+- `Sweetheart`, you're drunk.
+- What's wrong, `sweetheart`?
+- Just a moment, `sweetheart`.
+- Let's get fed, `sweetheart`.
+- What a `sweetheart` you are.
+- Yes, yes, `sweetheart`, yes!
+- You are such a `sweetheart`.
+- A little faster `sweetheart`.
+- 'bye, 'bye, now, `sweetheart`.
+- Meet me onboard, `sweetheart`.
+- This ain't news, `sweetheart`.
+- Where's the fire `sweetheart`?
+- Yes, i know that `sweetheart`.
+- You better leave `sweetheart`.
+- You can come in, `sweetheart`.
+- How are you doing `sweetheart`?
+- `Sweetheart`, he's still there.
+- `Sweetheart`, you already have.
+- Happy anniversary, `sweetheart`.
+- `Sweetheart`, what day is today?
+- Vada, what's wrong `sweetheart`?
+- You're conning me, `sweetheart`.
+- You're the doctor, `sweetheart`.
+- Of course you will, `sweetheart`.
+- Did i embarrass you, `sweetheart`?
+- Here, `sweetheart`, you want some?
+- See you in a minute, `sweetheart`.
+- `Sweetheart`, it's not your fault.
+- No offense, `sweetheart`: fuck you.
+- We understand, c'mon, `sweetheart`.
+- But it's too late now, `sweetheart`.
+- Do you want some wine, `sweetheart`?
+- Hi, `sweetheart`, how are you doing?
+- No, `sweetheart`, it's a stag party.
+- So why do you take it, `sweetheart`?
+- We're about dry bones, `sweetheart`.
+- You said a mouthful... `sweetheart`!
+- Harvey says the guy's a `sweetheart`.
+- I'll call you tomorrow, `sweetheart`.
+- `Sweetheart`, it was over a year ago.
+- Thanks for being such a `sweetheart`.
+- Come on, `sweetheart` -- what is this?
+- It's so good to see you, `sweetheart`.
+- `Sweetheart`.....is this really you???
+- Yes, `sweetheart`... all by ourselves.
+- You're not busy, `sweetheart`, now go.
+- Blink if you can hear me, `sweetheart`.
+- It's for your protection, `sweetheart`.
+- We got about forty bucks, `sweetheart`.
+- 53 that's so good to hear, `sweetheart`.
+- Let me tell you something, `sweetheart`.
+- `Sweetheart`, we'll straighten this out.
+- He's -- it's all right, `sweetheart`.
+- But that's all gonna change `sweetheart`.
+- Everything's gonna be okay, `sweetheart`.
+- Can't we go into this later, `sweetheart`?
+- Here you go `sweetheart`, throw it my way.
+- Only one way i can think of, `sweetheart`.
+- Aren't you a `sweetheart`... no, not quite.
+- Hey, `sweetheart`, will you cut that out!!!
+- Because i'm concerned for you, `sweetheart`.
+- `Sweetheart`-- norman, this isn't about you.
+- `Sweetheart`, you can get a whole big bunch.
+- `Sweetheart`, you don't know the half of it.
+- `Sweetheart`, you're happy here, aren't you?
+- That's good, memories are good `sweetheart`.
+- There's a man here to see you, `sweetheart`.
+- Oh, `sweetheart`... you can see our progress.
+- Oh, you couldn't be more wrong, `sweetheart`.
+- Only love makes you that crazy, `sweetheart`.
+- `Sweetheart`, write down your former address.
+- That i wasn't bullshitting you, `sweetheart`.
+- What did you say your name was, `sweetheart`?
+- I'm going to finish the picture, `sweetheart`.
+                 

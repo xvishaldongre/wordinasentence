@@ -1,0 +1,65 @@
+---
+title: "curse in a sentence | curse example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "curse"
+---
+- The `curse` is broken.
+- Why you gotta `curse`?
+- Didn't mean to `curse`.
+- My only `curse` is you.
+- I'm not going to `curse`.
+- It's a `curse` to be old.
+- The `curse`'ll be lifted?
+- The `curse` of 18 months.
+- There's a `curse` on you.
+- A `curse` on him, and you!
+- Otherwise...it's a `curse`.
+- This calamity is a `curse`.
+- We seek to undo the `curse`.
+- Don't `curse` in front of it.
+- That's my `curse`, young man.
+- Don't you lay a `curse` on me!
+- One day the `curse` will pass.
+- Not a boast, sir, but a `curse`.
+- That sounds like a `curse` to me.
+- What is it if it ain't a `curse`?
+- It is a `curse` to see so clearly.
+- She's a `curse`, my mamma, a tornado.
+- Sometimes knowledge is a `curse`, ed.
+- The `curse` drove you to gather this?
+- It really is the `curse` of the sequel.
+- That's the `curse` of a government job.
+- It doesn't sound natural when i `curse`.
+- Looks like the `curse` is still at work.
+- You can't `curse` in front of it either.
+- It's a `curse` to be a mother, i tell you.
+- If the horn be restored the `curse` is ended.
+- It is my `curse` to know all who journey here.
+- I know whose blood you need, to end the `curse`.
+- `Curse` you for breathing, you slack- jawed idiot.
+- Do not do not `curse` god when you are humiliated.
+- He told you black was a `curse`, you believed him.
+- You can't `curse` or spit or anything around them.
+- Gaston told me that claude has got the `curse` too.
+- I was praying this `curse` would have ended with me.
+- You survived and now you shall continue the `curse`.
+- The way to free you from the `curse` of the treasure.
+- How we gonna break the `curse` without a prayer or two.
+- If you don't i'll `curse` the day i ever laid eyes on you.
+- It is better to light one candle than `curse` the darkness.
+- Did you just barge in here and `curse` at your base commander?
+- She lives like all the world before the baron's `curse` lifted.
+- Early don't think women should smoke or `curse` or drink liquor.
+- Chicken bone cross take the `curse` off this bat and bring me hits.
+- Oh, and you didn't `curse` out mr. kowalski last week either, right?
+- It's the greatest `curse` that's ever been inflicted on the human race.
+- The `curse` of wealth is that you will never, we both know you want to.
+- What were you doing the very moment the baron's `curse` fell on the world?
+- We, as your victims, have to walk the earth until your `curse` is lifted.
+- You see, i've got this honest streak in me -- in its own way, a sort of `curse`.
+- He began to `curse`, using terrible words the bad men are still looking for us.
+- For once in your life have some respect for me, don't even `curse` at me or nothin'.
+- In all of my research, i've never read of this `curse` actually having been performed.
+- I've wondered--maybe it's a `curse` to go through life wised up like you and me-- okay.
+                 

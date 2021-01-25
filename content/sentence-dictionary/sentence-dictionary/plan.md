@@ -1,0 +1,107 @@
+---
+title: "plan in a sentence | plan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plan"
+---
+- As part of his `plan`.
+- I'll go with `plan` b.
+- Say you have a `plan`.
+- That was your `plan`!?
+- This is madi's `plan`.
+- This isn't the `plan`.
+- This `plan` will work.
+- This wasn't my `plan`!
+- Your `plan` is insane.
+- That's your `plan`?
+- He doesn't have `plan`.
+- Here's the game `plan`.
+- I have a better `plan`.
+- I know we had a `plan`.
+- I `plan` on using them.
+- Running's not a `plan`.
+- So this is your `plan`?
+- That is not the `plan`.
+- Then what's the `plan`?
+- The `plan` didn't work.
+- This wasn't the `plan`.
+- We had a backup `plan`.
+- We need another `plan`.
+- We stick to the `plan`.
+- Here's my second `plan`.
+- I can't `plan` your day.
+- I don't `plan` on dying.
+- I got a goddamn `plan`!!
+- I like my `plan` better.
+- I `plan` to grow on you.
+- It sounds like a `plan`.
+- My greatest ever `plan`.
+- Run this `plan` by them.
+- That's my master `plan`.
+- The `plan` is... you go.
+- This was all her `plan`.
+- This was raven's `plan`.
+- Well, that was `plan` a.
+- You don't have a `plan`.
+- You know -- your `plan`.
+- And `plan` our next move.
+- Do you `plan` everything?
+- I hope you have a `plan`.
+- I'll go with that `plan`.
+- I need vizzini to `plan`.
+- It's a `plan` -- -- _ 51.
+- It's a rough `plan`, guy!
+- It's still a good `plan`.
+- It�s part of some `plan`.
+- Let's change that `plan`.
+- Raven, the `plan` failed.
+- That fucks up our `plan`.
+- We have to have a `plan`.
+- Well... we blew `plan` a.
+- What do you `plan` to do?
+- About this weapons `plan`?
+- But, yes, i have a `plan`.
+- How you `plan` to do that?
+- I had to change my `plan`.
+- Oh, i see, an easy `plan`!
+- She says she has a `plan`.
+- Sounds like a `plan`, red.
+- The `plan` doesn't change.
+- This `plan` is way better.
+- This wasn't in the `plan`.
+- Time to activate `plan` b.
+- We're changing the `plan`.
+- What's your `plan`, brody?
+- What the hell is `plan`-r?
+- All right, i have a `plan`.
+- Alright, here's the `plan`.
+- Alright, what's our `plan`?
+- Fine, so what's the `plan`?
+- Gentlemen, i have a `plan`.
+- I prepared a flight `plan`.
+- So what's the `plan` today?
+- That's an excellent `plan`.
+- That's the `plan`, colonel.
+- That was your whole `plan`?
+- This is your `plan`, finch?
+- Tomorrow we `plan` our war.
+- We can stick to the `plan`.
+- What exactly is the `plan`?
+- I didn't `plan` it that way.
+- I'm not working on a `plan`.
+- It was a good `plan`, arnie.
+- It was our `plan` - has she?
+- Keep mocking my `plan`, max.
+- No `plan` is perfect, lenny.
+- Oh, i didn't have no `plan`.
+- See, now we've got a `plan`.
+- The `plan` worked perfectly.
+- Was it your `plan`, monster?
+- What's the `plan` here jake?
+- Yeah, that's a great `plan`.
+- All right, what's our `plan`?
+- We `plan` his homecoming.
+- Besides, it's not the `plan`.
+- How do you `plan` to do that?
+- Milhouse's `plan` is working.
+                 

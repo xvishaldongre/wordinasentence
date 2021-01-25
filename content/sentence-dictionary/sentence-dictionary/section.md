@@ -1,0 +1,89 @@
+---
+title: "section in a sentence | section example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "section"
+---
+- My cheering `section`.
+- On the `section` gang.
+- It's a rhythm `section`.
+- Seventh, files `section`.
+- You joining `section` 17.
+- Wind `section` since 1936.
+- To `section` 17 are closed.
+- Deck 15, `section` 21-alpha.
+- In the folk music `section`.
+- Take a look at this `section`.
+- The whole `section`'s closed off.
+- Finish up my `section`, will ya...?
+- No water till this `section` is up!
+- `Section` 22350 of the commerce code.
+- They must work on the `section` gang.
+- Man: you must vacate `section` 17...
+- This is for the north woods `section`!
+- I had 'em hid in the foreign `section`.
+- Leading to `section` 17 will be sealed.
+- No, i had to seal off a whole `section`.
+- Wide cross-`section` of men to evaluate.
+- If the documents `section` can't do it...
+- They go to the medical records `section`.
+- We can get out through the lab `section`.
+- West didn't `section` him till last week.
+- We had a run in the mass murder `section`.
+- Wilmont used up the last spinal `section`.
+- [this `section` also not ledgable] natasha!
+- Uh ... responsible for the sixth `section`.
+- Joe--he'll hear the `section` on willet dam.
+- `Section` 4236... close enough to beam down?
+- A political `section` man from the us embassy.
+- I also have this odd pain in my mid `section`.
+- I need this entire `section` mined by morning.
+- This `section` should be finished by tomorrow.
+- Leaving `section` fourteen for `section` fifteen.
+- And... and now-- the `section` doors are sealed.
+- Yes, cultural re-education `section` propaganda.
+- All fighters being deployed, move to `section` 5.
+- Come on, stacy, it's your `section` and your man.
+- I want this flashed to all `section` immediately.
+- One of those `section` eight boys worked in here.
+- On my signal, open north-west `section` seventeen.
+- It will be multiple choice with an essay `section`.
+- Over the clock back here is the diplomatic `section`.
+- This is dr. michaels, chief of the medical `section`.
+- Paying attention to an open airlock in that `section`.
+- We could cut a `section` out of that metallite netting.
+- Yeah, i-i'm kill-- oh, what, in this `section` of town?
+- You just sealed it off; it can't get to that `section`.
+- I know you're upset about what happened at `section` 17.
+- You think that `section` on the point is ridable, lance?
+- The prison `section` has been on half-air since midnight.
+- As you can see, security's pretty tight in this `section`.
+- We've also got a hull breach in the engineering `section`.
+- Row twenty-three, `section` c. i'll settle for l.a. county.
+- Because `section` forty is graft, and i was ready to say so.
+- That `section` over there is reserved for senator's friends.
+- I'm mentioning you in tomorrow's athlete's `section`, legate.
+- Man: all nonessential personnel, please vacate `section` 17.
+- The exercise was one of his `section` eight "private sessions".
+- Under the state criminal code, `section` 545, paragraph 10-b...
+- Why are there copies of the style `section` all over the place?
+- All residents of `section` 17 ok. then what if they don't leave?
+- Can you imagine what it'll mean to this `section` of the country?
+- Fifteen years ago, i was here, i was `section` eight, i was pike.
+- The director has actually ripped out a huge `section` of my music.
+- This `section` was pretty popular, all the way to fulton street...
+- Tonight, i will be in `section` 17 relationships are simple, really.
+- This `section` here codes for activation and make it come out of this.
+- I suppose you saw the work on our new `section` while you were docking.
+- Cooper's farm log says, this `section` which houses our medical facility.
+- Eating like that, he won't make it 5 years, to `section` 17 will be cut off.
+- That one `section` of the ventilator shaft has only two outlets -- you notice?
+- It was done to stop me from talking about a `section` of the appropriations bill!
+- The conductor got so excited he yelled, "there's sabotage in the string `section`!"
+- I was restoring some stones here in the upper `section` one day -- and i found this.
+- The shields in that `section` won't protect them against the thermolytic reaction...
+- Does my colleague's piece concern `section` forty of the bill--a dam on willet creek?
+- That central `section` connects the forward decks to the engineering containment area.
+- Times got the girlscout page twelve, post in `section` two.... horses in mid-stream...?
+- So if you're scared or empty or half-a-step from a `section` eight, do you tell your men?
+                 

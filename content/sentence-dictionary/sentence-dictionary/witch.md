@@ -1,0 +1,75 @@
+---
+title: "witch in a sentence | witch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "witch"
+---
+- What about my `witch`?
+- Baba yaga, the `witch`.
+- You a god damn `witch`?
+- It's the wicked `witch`!
+- A switch hitting `witch`.
+- She's a `witch`, that one.
+- The one about the `witch`.
+- You son of a swamp `witch`!
+- I'm not afraid of a `witch`!
+- She <u>wasn't</u> a `witch`.
+- A `witch`, a `witch`, burn her!
+- Why, i'm not a `witch` at all.
+- "blair `witch`: the real story!"
+- How do you know she is a `witch`?
+- I'm not a `witch`, i'm your wife.
+- Why do you think she is a `witch`?
+- Who killed the `witch` of the east?
+- Get back, `witch` -- maybe he won't.
+- All we've got is a `witch` doctor!
+- I'm soon to be a very wealthy `witch`.
+- "it's why the `witch` kills children."
+- ...just that the `witch` is so wicked.
+- Maybe gregoire and the `witch` ate it.
+- She - she can have my `witch` remover.
+- You mean, like, blair `witch` project?
+- Are you a good `witch`, or a bad `witch`?
+- They're making "blair `witch` ii," too.
+- They're turning it into a `witch` hunt.
+- This is the wicked `witch` of the west.
+- We're not making blair `witch` ii here.
+- You drinking 'the `witch`' after dinner?
+- You killed domini, didn't you, `witch`??
+- 'i'm burning alive,' screamed the `witch`."
+- This is from "josh's blair `witch` mix," man!
+- You're a ve-ry bad `witch`, you know that...?
+- She is not the goddamn `witch`, that's insane!
+- What if she's some sort of `witch` or something?
+- But the good `witch` of the north told me not to.
+- I'm not having a `witch` hunt here, mr. crawford!
+- It takes years of practice... yeah...you a `witch`?
+- There are ways of telling whether she is a `witch`.
+- Point-five ... ding dong the `witch` is dead, right?
+- But he made me feel like a third-class `witch` doctor.
+- That was her sister -- the wicked `witch` of the east.
+- You don't need a potion to find out my truth, `witch`.
+- "hansel shoved the blood-covered `witch` into the oven.
+- Even if it's all true - that doesn't make you a `witch`!
+- God damn it, i knew this `witch`-hunt was fucking bullshit.
+- I'd call it something like season of the `witch`... get it?
+- I've got a `witch` mad at me, and you might get into trouble.
+- She was just a good old-fashioned white `witch`-- elly kedward?
+- That miserable, manipulating loathsome she-devil of a `witch`!!
+- The good old days: toasting marsh- mallows over a burning `witch`.
+- We've brought you the broomstick of the wicked `witch` of the west.
+- Jamie kurth, jonathan edmunds-- i'm not a `witch`, you're all crazy!
+- The `witch` meant to shut the door and bake her once she was inside."
+- You're telling me that, i should take my daughter to a `witch` doctor?
+- Christ, it sounds to me you're looking for a `witch` doctor, not a lawyer.
+- I dunno, i just woke up-- --what happened to the goddamn "`witch`-watch??"
+- I'm afraid you've made rather a bad enemy of the wicked `witch` of the west.
+- I mean, you don't understand... to them you're a `witch`, working for the devil.
+- I wonder how much they'll pay... to have the `witch` of orleans in their clutches?
+- Logically, you couldn't be the `witch`, because she was old back when he was young.
+- "...as soon as the sun was up the `witch` made gretel fetch the wood and kindle a fire.
+- No place like home -- there's no place like home -- no place -- you wicked old `witch`!
+- At some point there <u>was</u> a blair `witch`-- --<u>myth</u>-- --whatever; that's her.
+- The munchkins are happy because you have freed them from the wicked `witch` of the east.
+- Did you ever think somethin' like about the wicked `witch` of the east comin' flyin' in?...
+                 

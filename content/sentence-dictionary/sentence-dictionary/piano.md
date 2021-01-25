@@ -1,0 +1,80 @@
+---
+title: "piano in a sentence | piano example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "piano"
+---
+- I can play the `piano`?
+- Like it were a `piano`?
+- You know, `piano` bars.
+- Do you play the `piano`?
+- Second, it's my `piano`.
+- So you play the `piano`.
+- He's got `piano` lessons.
+- It's my mother's `piano`.
+- So much with the `piano`.
+- The `piano` on the beach?
+- You go sit by the `piano`.
+- I'll play the `piano` again.
+- Let's go sit by the `piano`.
+- Oh, the girl at the `piano`?
+- Plays the `piano` and sings.
+- I'm tuning a goddamn `piano`.
+- I think you need your `piano`.
+- There's a `piano` in the street.
+- I played `piano` in a few places.
+- What's he doing coaching `piano`?
+- Kip is looking around the `piano`.
+- On your `piano`, that is the swap.
+- I-i'll never play the `piano` again.
+- He looked at a `piano` and saw music.
+- So the `piano`'s a little out of tune.
+- That girl is pretty bad at the `piano`.
+- They saw a `piano` and they could play.
+- He wrote some beautiful `piano` sonatas.
+- I think it's a `piano`....a small `piano`.
+- You're playing a `piano`, miss starling?
+- Your portable reed organ....the `piano`.
+- Are you learning how to play the `piano`?
+- A big one with a bar and a `piano` lounge.
+- If our feet get hot, you grab the `piano`.
+- I'm here, you're here, the `piano`'s here.
+- You saw it the other night at the `piano`.
+- Ada says you're doing well with the `piano`?
+- Don't shoot me, i'm just the `piano` players.
+- I know why mr. baines can't play the `piano`.
+- You already put a fucking nick in my `piano`.
+- That's a new `piano`, so you prob -- no thanks.
+- I'm going to try and lift the end of the `piano`.
+- I need a `piano` for my work sometimes... yeah...
+- Besides `piano` and swimming, what else do you do?
+- I cannot afford the `piano` if you mean me to pay.
+- There's a guy in here who's giving away a `piano`.
+- I don't think you should have given up the `piano`.
+- Your father was quite a virtuoso with `piano` wire.
+- Y'know, he told me he actually likes the `piano`.
+- I mean it's not a `piano`, it doesn't make any sound.
+- Ada pulls up a chair and seats herself at the `piano`.
+- But there is a `piano` teacher in the village -- here.
+- How many times did you carry my `piano` up the stairs?
+- Playing `piano` all day and then jumping into cold water.
+- Look, monsieur, play the `piano`, is not about the fingers.
+- She says it's her `piano`, and she won't have him touch it.
+- I won't be able to play the `piano`, but i could still swim.
+- My mother is a `piano` teacher and my father was a conductor.
+- Away from the `piano`, tita, you have no sense of time at all.
+- Your father choked him to death with a length of `piano` wire.
+- You may as well ask one of these beethoven guys on the `piano`?
+- Captain, the boy who is playing the `piano`, somewhere i have seen him.
+- That's not a `piano`.....i have a `piano` at home.....where'd you get it?
+- ..and telling me to get back from behind the `piano` and onto the stage.
+- My mother always told me i would summon my husband by playing the `piano`.
+- It's quite safe, they are managing... she says, throw the `piano` overboard.
+- If you're playing it and singing it... yeah, i always play it on the `piano`.
+- What would you think if someone played a kitchen table like it were a `piano`?
+- You, i take it, are the paderewski who plays his concerto on me, the `piano`?
+- I look at a `piano` and i see black and white keys, three pedals and a box of wood.
+- Remember when you couldn't get your car fixed `cause you wanted to get that `piano`?
+- You've made it clear that if i can cut a little `piano`, i might get a little response.
+- I remember one day i came into the music room and you were fooling around at the `piano`.
+                 

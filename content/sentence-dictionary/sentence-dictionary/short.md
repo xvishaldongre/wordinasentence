@@ -1,0 +1,107 @@
+---
+title: "short in a sentence | short example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "short"
+---
+- Is incredibly `short`.
+- Is `short` for 'ergo'.
+- Just a little `short`.
+- The time...is `short`.
+- I will make it `short`.
+- Time's getting `short`.
+- You are way too `short`!
+- Hate to cut this `short`.
+- I just have `short` hair.
+- `Short` for "murder man."
+- `Short` pieces, you know.
+- How many days you `short`?
+- I'm a little `short` pops.
+- Step on it, `short` round!
+- Besides, we're `short`.
+- -- i am `short`-handed.
+- Did it seem `short` to you?
+- How `short` the skirts are.
+- It's a pretty `short` trip.
+- There you go, `short` shit.
+- We're two thousand `short`.
+- A very `short` while, uncle.
+- Give me the `short` version.
+- He was `short` but powerful.
+- I don't want to run `short`.
+- Indeed i am a bride `short`.
+- Life is too fucking `short`.
+- This is a great `short` cut.
+- You're fifty `short`, skins.
+- I just think he's... `short`.
+- This is kinda `short` notice.
+- Well, it's not a `short` one.
+- Why is this floor so `short`?
+- But no `short`-arm inspection.
+- I have no `short`-term memory.
+- Morehouse and sal are `short`.
+- `Short` for percy, i'm afraid.
+- Yeah, the `short`, gray hairs.
+- I was gettin' `short`, too!
+- But let's use the `short` form.
+- But they're real `short` lines.
+- I'm in town for a `short` time.
+- Then the order came up `short`.
+- I'll keep it real `short`, then.
+- Move on tucker, time is `short`.
+- Summers are `short` here, annie.
+- We're still `short` on the rent.
+- For peter, that's a `short` trip.
+- He's cutting his remarks `short`.
+- I'm not too `short` to be cagney.
+- I need me a `short` little queen.
+- Just `short` of zeta ii reticuli.
+- So is buddy on your `short` list?
+- Tall, `short`-haired, scary eyes.
+- This one had really `short` hair.
+- Viktor, that was `short` subject.
+- You're wrong to sell ich `short`.
+- He's really very `short` on charm.
+- I'll say 'em--an' make it `short`.
+- It seems we're `short` on singers.
+- That's the long and `short` of it.
+- Those really weird, `short` lines.
+- Mantan, way too `short`, too tight.
+- Oh, man, and i was getting `short`.
+- Roy, you're a `short`-con operator.
+- Take a long walk on a `short` pier.
+- The other brother, the `short` one.
+- It's a `short` hop to the caribbean.
+- The `short` stories of john cheever.
+- Wasn't a book...was a `short` story.
+- What would you say to a `short` one?
+- You're too `short` for that gesture.
+- A lot of effort for a `short` voyage.
+- I got there just `short` of too late.
+- Life's too `short`, know what i mean?
+- Why you wanna sell your life `short`?
+- He's got `short` sleeves and dandruff.
+- In his `short` pants on the davenport.
+- I think we can cut your visit `short`.
+- Let me guess: another `short` circuit?
+- Little `short` fella with a pale face?
+- See, i have no `short`- * term memory.
+- `Short` of an unconditional surrender.
+- And, anyway, you sell yourself `short`.
+- And `short` out the locking mechanisms.
+- It's only a `short` drive, mr. webster.
+- It's swallowing `short`-range now, too.
+- Remember... `short`, controlled bursts.
+- Don't pick the `short`, hairy, rich one.
+- I don't care if you are `short`, hudson.
+- I'll give you a scoop... of `short` bus.
+- `Short` time, long time, only ten dolla.
+- "`short` happy life of francis macomber."
+- Well, we are one miracle `short` tonight.
+- We've grown very close in a `short` time.
+- We'd be going in `short`-handed, you know?
+- He's got us all by the `short` and curlies.
+- Hey, you want to hear my `short` story now?
+- `Short` of eradicating the infected plants.
+- `Short` round, come on, grab onto me tight!
+                 

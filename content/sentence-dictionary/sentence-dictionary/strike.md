@@ -1,0 +1,107 @@
+---
+title: "strike in a sentence | strike example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "strike"
+---
+- You `strike` her down.
+- First `strike` options.
+- This here's a `strike`.
+- This isn't `strike` one.
+- I could `strike` him out.
+- I'm on my third `strike`.
+- Lightning could `strike`.
+- Did that `strike` you odd?
+- On a hunger `strike`, huh?
+- You gotta <u>`strike`</u>.
+- You made him `strike` out.
+- How does this `strike` you?
+- Mine-`strike`'s still loose.
+- So when do we `strike` back?
+- `Strike` it from your heart.
+- This time we `strike` first!
+- You mean a general `strike`?
+- Are you going to `strike` me?
+- Don't you `strike` that baby!
+- I'll go on a hunger `strike`.
+- I'm not going to `strike` you.
+- `Strike` on the inside corner!
+- The time has come to `strike`!
+- We must `strike` a heavy blow.
+- This isn't even `strike` three.
+- Either air `strike` or blockade.
+- Doesn't that `strike` you as odd?
+- She's going on a hunger `strike`.
+- So no, it didn't `strike` me odd.
+- Was to `strike` a deal for peace.
+- We're going to win this `strike`.
+- Ahh, `strike`, not, not bad at all.
+- Steven schwimmer ready to `strike`.
+- There is a `strike` in the kitchen?
+- I see, off to `strike` it rich, huh.
+- `Strike` team's coming to secure it.
+- You don't `strike` me as disposable.
+- And the patriot is ready to `strike`.
+- Do i `strike` you as a fresh recruit?
+- `Strike` me down or get the hell out.
+- The killer has yet to `strike` twice.
+- We can't, we're on a hunger `strike`.
+- If they see us, they'll `strike` again.
+- The cobra's waitin' to `strike`, chica.
+- Pick up the sword and `strike` him down.
+- Hey... we have to meet the `strike` team.
+- I've come to `strike` a bargain with you.
+- Doesn't this `strike` you as a bit morbid?
+- How well does your `strike` team know her?
+- Someone should stand up and `strike` back.
+- You'll send a `strike` team no doubt, lexa.
+- Have you learned nothing from this `strike`?
+- I ask you to `strike` it from the record...!
+- You `strike` me with words as hard as steel.
+- ... and that you invited him to `strike` you?
+- Revealing your next move before each `strike`.
+- We're loosing our first `strike` capabilities!
+- You want to make a `strike` breaker out of me!
+- The `strike` is a success; but ... look around.
+- But you've come out here to settle the `strike`?
+- A general `strike` is a good argument for the un.
+- Because if we lose, we lose more than a `strike`.
+- I'm sure we can `strike` some sort of arrangement.
+- We `strike` from the shadows all right, and one more.
+- Don't tell me you're waiting for lightning to `strike`.
+- You know, in life you gotta `strike` when the iron's hot.
+- They don't want no `strike` -- not with their war boom on.
+- But kader told me that you weren't in favor of the `strike`.
+- That's what they're trained for -- just a surgical `strike`.
+- You don't `strike` me as the type that would ask permission.
+- If you so much as breathe heavy on them, i'm out on `strike`.
+- Why was she so reluctant to explain her whereabouts `strike`!
+- Yes -- might make it hard to `strike` a really romantic note.
+- Kastle hits a key and the pins explode in an emphatic `strike`.
+- _ no one in the water until 30 minutes after the last `strike`.
+- They `strike` and disappear, and then they start massing again.
+- You just `strike` me as smart enough to be doing something else.
+- Did your husband `strike` or physically abuse his child in any way?
+- Forgive me, but you don't `strike` me as the social secretary type.
+- This means commodus has to bend; does he `strike` you as that type?
+- Does that `strike` you as a fantastic coincidence, or is it just me?
+- But the nlf has always spoken of a `strike` as a demonstration ... no.
+- Does this `strike` anyone as particularly psychotic, or is it just me?
+- I think it'll be a success ... what do you think of the `strike`, ali?
+- Twenty four seconds--as long as it takes the clock to `strike` twelve.
+- I read in the newspapers about the italian `strike` and riots in milan.
+- Come, come, sheriff, lightning doesn't `strike` in the same place twice.
+- You `strike` me as a particularly icy and remorseless man, mr. dufresne.
+- But jus' the minute they ain't `strike`- breakin' they won't get no five!
+- I want hourly forecasts and a full report on optimum `strike` conditions.
+- You work out `strike` strategy -- and most of the time you're dead right.
+- There's no reason good enough for one medical officer to `strike` another.
+- An invasion... we have high confidence in the expanded air `strike` option.
+- I'll `strike` anybody in anybody's house that calls me a cinderella man.
+- They agree, we must launch a counter offensive with a full nuclear `strike`.
+- After we `strike`, we lure their reinforcements then how about we don't fail?
+- Did david ferrie `strike` you as the kind of person who had a low metabolism?
+- Oh lord, whatever i done, don't `strike` me blind for 'nother couple minutes.
+- If we don't `strike` soon, there may not be much of an america left to defend.
+- Because skynet knows the russian counter-`strike` will remove its enemies here.
+                 

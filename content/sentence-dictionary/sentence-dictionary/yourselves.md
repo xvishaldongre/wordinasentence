@@ -1,0 +1,60 @@
+---
+title: "yourselves in a sentence | yourselves example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yourselves"
+---
+- Fasten `yourselves` in.
+- Strap `yourselves` in.
+- Make `yourselves` at home.
+- Pull `yourselves` together.
+- You can serve `yourselves`.
+- You must save `yourselves`.
+- Help `yourselves` to drinks!
+- Make `yourselves` comfortable.
+- You need to save `yourselves`.
+- You're all kidding `yourselves`.
+- You two just enjoy `yourselves`.
+- Tie `yourselves` to those chairs.
+- You must not arouse `yourselves`.
+- For bringing 'em `yourselves`.
+- Why you're turning `yourselves` in.
+- And call `yourselves` higher beings.
+- Get the deetzes out by `yourselves`!
+- You're going to blow `yourselves` up.
+- You should be ashamed of `yourselves`.
+- You're only screwing `yourselves` over!
+- How can you forget `yourselves` this way?
+- You should all be ashamed of `yourselves`.
+- How come you call `yourselves` cowboys?
+- But i would ask you to disarm `yourselves`.
+- It is in your nature to destroy `yourselves`.
+- Spin `yourselves` to death, you land manatees!
+- You are into `yourselves`, as the saying goes.
+- You thought it wise to sacrifice `yourselves`?
+- You must have been very proud of `yourselves`...
+- Either turn `yourselves` in, she's reaching them.
+- Originally just another species like `yourselves`.
+- Whatever i have to do, get `yourselves` to safety.
+- It adds up that you got `yourselves` the wrong guy.
+- Why don't you get `yourselves` a cup of shut-the-hell-up?
+- But buljanoff, iranoff, kopalski... look for `yourselves`.
+- [both screaming] i hate that you call `yourselves` "owners."
+- Get `yourselves` guns and wipe them off the face of the earth.
+- How could you ever think that i my children, calm `yourselves`.
+- It's stressful, you said it `yourselves`, it gets you confused.
+- Just let `yourselves` out, you say that like it's the first time.
+- Think of `yourselves` as disciples of a strict and hallowed sect.
+- You're just going to have to protect `yourselves` as best you can.
+- How did you evolve as far as you have and not destroy `yourselves`?
+- It might help if you could get `yourselves` attacked by the police.
+- I'll talk with clarke, but the truth is, worry about `yourselves`.
+- Two: you falsely identified `yourselves` as reporters, _ how's that?
+- Making `yourselves` into some sort of "team" of super-powered freaks.
+- I received word that you allowed `yourselves` to be <u>photographed</u>.
+- How about you two go get `yourselves` a nice hot cup of shut-the-hell-up!
+- The rest of you need to decide for `yourselves`, no, this is called stalking.
+- Just keep telling `yourselves` that, the only people who can fuck this up is us.
+- Is there no limit to which you won't go to keep your illusions about `yourselves`?
+- You should each decide for `yourselves`, if we're gonna do this, we have to hurry.
+                 

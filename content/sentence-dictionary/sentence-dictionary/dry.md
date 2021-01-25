@@ -1,0 +1,107 @@
+---
+title: "dry in a sentence | dry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dry"
+---
+- Our clothes are `dry`.
+- Get `dry` for a minute.
+- It's bone `dry`, morty.
+- My mouth is kinda `dry`.
+- I'd like a `dry` martini.
+- Those toenails `dry` yet?
+- It's bone `dry` out there.
+- It should be `dry` by now.
+- It's not completely `dry`.
+- It's called `dry` cleaning.
+- Chief went to `dry` them off.
+- I'd like a martini - very `dry`.
+- That's how `dry` cleaning works.
+- Let's get you some `dry` clothes.
+- Yeah, man, but it's a `dry` heat.
+- `Dry` cleaning--remember the name.
+- Ground's `dry` about an inch down.
+- I am not bleeding anyone... `dry`.
+- Come on, let's give it a `dry` run.
+- I'm gonna make you `dry` my dishes!
+- It's `dry`; it's ugly; it's boring!
+- We just don't add up to `dry` shit.
+- But it seems the old lady was `dry`.
+- The ink on your divorce isn't `dry`.
+- We're about `dry` bones, sweetheart.
+- I would rather watch paint `dry`.
+- `Dry` up into crunchy little pinkies.
+- If they get too `dry`, they'll break.
+- Pull the `dry` cell out of the radio.
+- I can't accuse him just `dry` long 80.
+- That's all right -- it's a drip-`dry`.
+- You `dry`-dive six stories and blammo!
+- `Dry` tributaries here, here, and here.
+- I'm going to take a walk and `dry` off.
+- The `dry` cleaners we used to go to.
+- `Dry`, academic, afraid of women, lousy.
+- Over there in the `dry` wash. last week.
+- After sucking the earth `dry` of oil, no.
+- I look around, i see a lot of `dry` eyes.
+- Come on, let's get you some `dry` clothes.
+- `Dry` fire it whenever you get the chance.
+- I'll `dry` it up here when i wash it next.
+- More of a gentleman... is he oily or `dry`?
+- On my life, r.l., my wick is `dry` on this.
+- Sorry's no going to `dry` me off, you cunt.
+- Whyn't you get it `dry` cleaned and burned.
+- `Dry`-cleaningwise, things are all fouled up.
+- There's a `dry` river bed fifteen miles east.
+- I never left a source hung out to `dry`, ever.
+- My toenails gotta `dry` first anyways, sailor.
+- They're gettin' ready to suck this baby `dry`.
+- Can't believe your tank's `dry` up at the mill.
+- Two suits for `dry`-clean and a bag of whatnot.
+- ... `dry` mouth... well, then we have a problem.
+- I now have a hundred dollar `dry` cleaning bill.
+- Y'all let me know if these steaks are too `dry`.
+- Come on, soon as these clothes of ours are `dry` .
+- The first one with ten thousand, like a `dry` run.
+- Then i went upstairs to put on some `dry` clothes.
+- As a matter of fact, i'd like a `dry` martini myself.
+- You don't think that this might not be a little `dry`?
+- One keg of beast for the basement, then, truck's `dry`.
+- They did a `dry` run with chief curry a few days before.
+- ...well, he got his mistrial, but the well had run `dry`.
+- He's got a `dry` cleaning business out on federal highway.
+- The sun is strong but the air is `dry` and fresh... gaahhd!
+- Here be the death weapon; the unicorn's blood `dry` upon it.
+- Okay, my hair is brittle, my skin is `dry` and i don't care.
+- They printed your article on, '`dry` verses can dog food'...
+- Well, i gotta have a talk with leo, my runaway `dry` cleaner.
+- Just to `dry` out the components "a trip to china sounds nice.
+- This foreign made crap -- is sucking our dollar balance `dry`!
+- I can't think of a time my people haven't been takin' it `dry`.
+- People like myself and my family are left hung out to `dry`.
+- If it's not washed by three, it'll never by `dry` for tomorrow."
+- Just keep your pecker up, your powder `dry`, the worm will turn.
+- Remember harry's story about the `dry` cleaner palmer was after?
+- The caterer forgot them, the varnish wasn't `dry` or something...
+- ♪ drove my chevy to the levee but the levee was `dry` ♪ i'm sorry.
+- Talk about being bent over the sink of life and being `dry` humped.
+- ♪ drove my chevy to the levee but the levee was `dry` ♪ pretty cool.
+- I know someone who saw walter matthau picking up his `dry`-cleaning.
+- This is *`dry`* cleaning, this is not some fly-by- night thing here!
+- That's how long it should take for the ink on the settlement to `dry`.
+- The three hundred grand you got from a little `dry` cleaner named leo.
+- ♪ chicken nugget ♪ and i really don't want to find a new `dry` cleaner.
+- Forty- five minutes on your knees with the `dry` heaves... you bastard!
+- I found a `dry` spot under a rotted oak tree and i guess i fell asleep.
+- You just hung yourself out to `dry` for me, i'm not gonna let you down.
+- So, he ever find this `dry` cleaner, the one with all that money on him?
+- You gotta know they got a blower instead of a towel to `dry` your hands.
+- As soon as the mud on your trousers is all `dry` - you just brush it off.
+- It's about a `dry` cleaner who scams an airline out of three hundred grand.
+- Ya ruined my girlish figure in one fell swoop, and then ya sucked me `dry`.
+- Y'see, actually...but this conversation is becoming rather `dry`, isn't it.
+- Mama never used to make me `dry` the ... you've got to help around the house!
+- The woman at my `dry` cleaners believes there's no such thing as coincidence.
+- You're lucky those tuskens didn't boil you before they hung you out to `dry`.
+- Let go of my arm... my daddy told me that a younger woman would bleed me `dry`.
+- You ever fire one of those bows again, and i'll tack you up on the wall to `dry`.
+                 

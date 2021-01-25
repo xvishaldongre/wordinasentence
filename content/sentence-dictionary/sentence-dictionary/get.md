@@ -1,0 +1,107 @@
+---
+title: "get in a sentence | get example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "get"
+---
+- Aw, don't `get` mushy.
+- Before we `get` there.
+- But people `get` lost.
+- But which i can `get`.
+- But you `get` to live.
+- Can you `get` back ok?
+- Can you `get` us home?
+- Come to `get` you out.
+- Dad, `get` your stuff.
+- Did anyone `get` hurt?
+- Did we `get` them all?
+- Did you `get` it done?
+- Did you `get` it, too?
+- Did you `get` my card?
+- Did you `get` my note?
+- Did you `get` the job?
+- Don't `get` any ideas.
+- Don't `get` sore, joe.
+- Don't `get` too cocky.
+- Dude, `get` back here!
+- Even i can't `get` in.
+- `Get` a firm grip, ma!
+- `Get` a look under it.
+- `Get` a quick picture.
+- `Get` away from there!
+- `Get` away from there.
+- `Get` away, `get` away!!
+- `Get` back here, rool!
+- `Get` behind him more.
+- `Get` dressed, scully.
+- `Get` 'em out of here!
+- `Get` her out of here!
+- `Get` her out of here.
+- `Get` her to a doctor.
+- `Get` him in the tent.
+- `Get` him out of here!
+- `Get` him out of here.
+- `Get` him out of here?
+- `Get` him out've here.
+- `Get` him to the keep.
+- `Get` in the basement.
+- `Get` in the bathroom!
+- `Get` into their head.
+- `Get` it all the time.
+- `Get` me ant team six.
+- `Get` me a typewriter.
+- `Get` me into a plane!
+- `Get` me some bourbon?
+- `Get` me some clothes.
+- `Get` off me, damn it!
+- `Get` off my property!
+- `Get` off my property.
+- `Get` on with it then.
+- `Get` out, i call 911.
+- `Get` out of michigan.
+- `Get` out of my hotel.
+- `Get` out of my house!
+- `Get` out of my house.
+- `Get` out of my sight.
+- `Get` out of my way.
+- `Get` out of the room!
+- `Get` outta here now!!
+- `Get` right back here.
+- `Get` some sleep, kid.
+- `Get` the box, nephew.
+- `Get` the car started.
+- `Get` them in the lab!
+- `Get` them to arkadia.
+- `Get` to see you sing.
+- `Get` to the basement.
+- `Get` to the bathroom!
+- `Get` up there rachel!
+- God, i don't `get` it.
+- "go `get` 'em, honey."
+- Go `get` your load on.
+- Good, let's `get` out.
+- Got to `get` sollozzo.
+- Got to `get` supplies.
+- He's sure to `get` it.
+- Hope, `get` back here.
+- How big did you `get`?
+- How did it `get` here?
+- How did we `get` here?
+- How did you `get` out?
+- How do i `get` to you?
+- How do we `get` there?
+- How'd you `get` there?
+- How far did you `get`?
+- How much can we `get`?
+- How you `get` up here?
+- I always `get` my man.
+- I can `get` it myself.
+- I can `get` you a job.
+- I can `get` you money.
+- I can `get` you there.
+- I can't `get` through.
+- I'd better `get` back.
+- If i `get` a signal...
+- I `get` 'em in mexico.
+- I `get` peace of mind.
+                 

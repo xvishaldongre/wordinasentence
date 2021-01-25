@@ -1,0 +1,107 @@
+---
+title: "we've in a sentence | we've example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "we've"
+---
+- `we've` already begun.
+- `we've` been attacked.
+- `we've` been so lucky.
+- `we've` come this far.
+- `we've` got all night.
+- `we've` got a problem.
+- `we've` got to go now.
+- `we've` got to use it.
+- `we've` got your kid!!
+- `we've` only just met!
+- `we've` all thought it.
+- `we've` been over this.
+- `we've` done it before.
+- `we've` got a job here.
+- `we've` got her sister.
+- `we've` got him locked!
+- `we've` got it up here!
+- `we've` got our orders.
+- `we've` got our target.
+- `we've` gotta get help!
+- `we've` gotta stop her.
+- `we've` got the voices.
+- `we've` got to be bold.
+- `we've` got to be cool.
+- `we've` got to go back.
+- `we've` got work to do.
+- `we've` lost thousands.
+- `we've` only got honey.
+- `we've` lost ordell.
+- So `we've` got problems.
+- `we've` all done things.
+- `we've` got a job to do.
+- `we've` got another one.
+- `we've` got him sighted.
+- `we've` got six reapers.
+- `we've` gotta help him!!
+- `we've` got to find him!
+- `we've` got to find him.
+- `we've` got to get air!!
+- `we've` got to get back.
+- `we've` got to get bail.
+- `we've` got to get help.
+- `we've` got to save her!
+- `we've` got two choices.
+- `we've` located the key.
+- Yes, `we've` heard that.
+- Zack, `we've` got to go.
+- But `we've` been patient.
+- But `we've` got to hurry.
+- Like `we've` always done.
+- Pinta, `we've` got to go.
+- `we've` all lost someone.
+- `we've` already got some.
+- `we've` always been here.
+- `we've` become murderers.
+- `we've` been building it.
+- `we've` been here before.
+- `we've` checked them all.
+- `we've` come for the car.
+- `we've` come this far ...
+- `we've` done it, charles.
+- `we've` got a power leak.
+- `we've` got elvis on ice!
+- `we've` got jimmy nailed.
+- `we've` got nothing, bob.
+- `we've` got some company.
+- `we've` got some weather.
+- `we've` got to find luke.
+- `we've` got to find them.
+- `we've` got to get cathy.
+- `we've` got to move fast.
+- `we've` got two patients.
+- `we've` had a hard night.
+- `we've`... just begun to.
+- `we've` lost a colleague.
+- `we've` only got one gun.
+- `we've` seen their faces.
+- `we've` the allmax teams.
+- Cole, `we've` got to talk.
+- Here... `we've` got elvis!
+- I don t think `we've` met.
+- I don't think `we've` met.
+- Let's see who `we've` got.
+- Look how far `we've` come.
+- Octavia... `we've` got me.
+- `we've` all got to let go.
+- `we've` all made mistakes.
+- `we've` already done this.
+- `we've` been through this.
+- `we've` been up all night.
+- `we've` come all this way.
+- `we've` declared a curfew.
+- `we've` done that already.
+- `we've` done... very well.
+- `we've` driven a long way.
+- `we've` given you the man.
+- `we've` got a big problem.
+- `we've` got a lot of time.
+- `we've` got it right here.
+- `we've` got our own clock.
+                 

@@ -1,0 +1,107 @@
+---
+title: "talking in a sentence | talking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "talking"
+---
+- How many we `talking`?
+- I am `talking` to her.
+- I heard you `talking`.
+- I'm `talking` gallons.
+- I'm `talking` to you !
+- Ok. no more `talking`.
+- They got to `talking`.
+- They're not `talking`.
+- We was just `talking`.
+- What are we `talking`?
+- Who am i `talking` to?
+- Who's he `talking` to?
+- Beth started `talking`.
+- I heard them `talking`.
+- I'm `talking` mansions.
+- I’m `talking` to you.
+- I'm `talking` to you...
+- I was `talking` to dad.
+- Not a fan of `talking`.
+- Please, stop `talking`!
+- That's oprah `talking`.
+- Was i `talking` to you?
+- We're `talking` ransom.
+- We were just `talking`.
+- We were just `talking`.
+- What're you `talking`'?
+- Who's she `talking` to?
+- You're `talking` crazy!
+- You're `talking` to me.
+- You're `talking` to me?
+- Am i `talking` too much?
+- Are we `talking` emmies?
+- Are you `talking` to me!
+- Are you `talking` to me?
+- Are you `talking` to us?
+- I miss `talking` to him.
+- I'm just `talking`, man.
+- I'm `talking` about now.
+- I'm `talking` about you.
+- I'm `talking` to you!...
+- Just keep him `talking`.
+- Let me do the `talking`.
+- Stop `talking` about it!
+- Stop `talking` like one.
+- Time to start `talking`.
+- Unless i keep `talking`.
+- We're `talking` goddess.
+- What are you `talking`?!
+- Who am i `talking` with?
+- Who was he `talking` to?
+- Why you `talking` to me?
+- You are `talking` crazy!
+- Ah, now you're `talking`.
+- Am i not `talking` sense?
+- `Talking` is `talking`!
+- Huh, now we're `talking`.
+- If they aren't `talking`.
+- I'll be `talking` to you.
+- I'll stop `talking` then.
+- I'm not `talking` to you.
+- I'm not `talking` to you?
+- I'm `talking` about salt.
+- I'm `talking` right here.
+- I'm `talking` to a clerk.
+- It's not raven `talking`.
+- Jonathan, stop `talking`.
+- Shut up -- i'm `talking`.
+- Stop `talking` like that!
+- Stop `talking` like that.
+- `Talking` too much again.
+- The adults are `talking`.
+- We're `talking` billions.
+- Were you `talking` to me?
+- What are you `talking`...
+- What you `talking` about?
+- Who are you `talking` to?
+- You are `talking` to him.
+- You're not `talking` now.
+- You `talking` back to me?
+- You try `talking` to her.
+- You were `talking` about?
+- Any luck `talking` to him?
+- Feel like `talking` to us.
+- Hey, i'm `talking` to you.
+- I am not `talking` to you!
+- I am not `talking` to you.
+- I like `talking` about it.
+- I'm done `talking` to you.
+- I'm not `talking` to jaha.
+- I'm through `talking` now!
+- I wasn't `talking` to you.
+- I was `talking` about you.
+- Nick was `talking` to him.
+- No more goddamn `talking`!
+- So you're `talking` to me?
+- `Talking` a bunch of crap.
+- They still just `talking`?
+- Waddaya `talking` about?!!
+- We can practice `talking`.
+- What am i `talking` about?
+                 

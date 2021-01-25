@@ -1,0 +1,107 @@
+---
+title: "sun in a sentence | sun example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sun"
+---
+- The `sun` or the fire!
+- The `sun`'s going down.
+- Oh, and the `sun` block?
+- `Sun` rises in the east.
+- The `sun` came up today.
+- The `sun` is going down.
+- The `sun` turning black.
+- Too much `sun`, i guess.
+- We'll live in the `sun`.
+- Red `sun` toxin detected.
+- You could use some `sun`.
+- The `sun` beam won't work.
+- They love heat, the `sun`.
+- Before the `sun` goes down.
+- I've missed the best `sun`.
+- No, this is the safe `sun`.
+- Setting `sun`, right there.
+- Yeah, but i like the `sun`.
+- Be careful in the `sun`.
+- The `sun` is setting, logan.
+- The `sun` is still shinning.
+- Air... water... your "`sun`."
+- The `sun` is hurting my eyes.
+- Do you know what the `sun` is?
+- The second `sun` of the sudan.
+- The sky, the `sun`, the sea...
+- But the `sun`'ll warm you soon.
+- `Sun` will be down in a minute.
+- The ark sank and the `sun` set?
+- Feel the red `sun` on your face.
+- But the `sun` will warm you soon.
+- I can feel the `sun` approaching.
+- It will be the `sun` or the fire.
+- Sure, slingshot around the `sun`.
+- The red `sun` toxin's everywhere.
+- The `sun` will shine on us again.
+- Where did the `sun` go to, daddy?
+- Come back when the `sun` comes up.
+- Especially when the `sun` hits it.
+- Just to keep him out of the `sun`.
+- Red `sun` toxin has been detected.
+- You look very good in the `sun`...
+- Have you ever seen the `sun`, erik?
+- Red `sun` toxin, he knew who i was.
+- `Sun`... how will i do this one?...
+- We're not going out into the `sun`.
+- Listen, try a place with some `sun`.
+- That's the temperature of the `sun`.
+- The `sun`, the moon, and the truth."
+- The trees shade them from the `sun`.
+- I thought you'd be up with the `sun`.
+- Red `sun` toxin, highly concentrated.
+- Say you're feeling faint - the `sun`.
+- Buy yourself that island in the `sun`?
+- When the `sun`'s out, they don't bite.
+- At the `sun`'s set, get out of the way.
+- God damn, that morning `sun` is bright!
+- I saw desert `sun`, i wanna tell you...
+- Johnny, get this boy some `sun` screen.
+- These plants don't like a lot of `sun`.
+- Well, why would she want a `sun` dress?
+- It is the east, and juliet is the `sun`.
+- Not so long--just once around the `sun`.
+- Pull the mirror down on the `sun` visor.
+- Where the `sun` does shine: outer space.
+- You see, we don't point it at the `sun`.
+- I think i'll stand out here in the `sun`.
+- That red `sun` toxin showed me something.
+- The red `sun` alarm on the day you return.
+- That's the temperature of the <u>`sun`</u>.
+- The second the `sun` hits tomorrow morning.
+- You know what happens during the red `sun`?
+- Has it been exposed to any `sun` before now?
+- Make sure the `sun` comes up and everything.
+- Shit boy you been out in the `sun` too long.
+- Tomorrow the `sun` will shine even brighter.
+- I'll send mother ... ah ... `sun` tan lotion.
+- I'm talking about weaponized red `sun` toxin.
+- Red `sun` toxin will spill into this reactor.
+- Yes, like rain and `sun`, like cold and heat.
+- People of the banner of the `sun` do not fear.
+- So i gave her red `sun` toxin to help her see.
+- When a `sun` is far away, we call it a 'star.'
+- Either we took it or we suffered the red `sun`.
+- Today, of all days, the `sun` decides to shine.
+- To the east, beyond the lising `sun`... cathay?
+- Woman, voice-over: i feel the `sun` on my face.
+- And watch the `sun` rise on a grateful universe.
+- Follow the indian trail to where the `sun` dies.
+- How come the `sun` didn't used to shine in here?
+- The `sun` will destroy the blood i've given you.
+- Hmm, it has been baking in the `sun` for a while.
+- The `sun` was shining and everything was nice.
+- Big as life--sparkling away there under the `sun`.
+- The `sun` should be coming up in about 20 minutes.
+- The `sun`, the desert; they like a religion to us.
+- The white reflects the `sun`; it keeps you cooler.
+- We should stop in the `sun`, recharge the battery.
+- He was exposed to the seaweed during the red `sun`.
+- I haven't watched the `sun` set in a million years.
+                 

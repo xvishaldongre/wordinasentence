@@ -1,0 +1,107 @@
+---
+title: "million in a sentence | million example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "million"
+---
+- Five `million` apiece.
+- Forty `million` beats.
+- I think two `million`.
+- Let's say a `million`.
+- Six `million` dollars.
+- Ten `million` dollars.
+- Two `million` dollars?
+- Two `million` dollars!
+- A `million` at least...
+- Five `million` dollars.
+- Five `million` dollars?
+- Like a `million` times.
+- `Million`, by my guess.
+- Seven `million` people.
+- Try one in a `million`!
+- Eight `million` dollars.
+- Eighty `million` doll ?
+- Fifty `million` dollars.
+- Half a `million` for me.
+- `Million` fucking clams.
+- `Million`, we win, yeah?
+- Not for fifty `million`.
+- Out of half a `million`.
+- Yeah, a `million` times.
+- Circulation 27 `million`.
+- Half a `million` for you.
+- Made your `million`, yet?
+- Maybe a couple `million`.
+- Cost three `million` plus.
+- Fifteen `million` dollars.
+- Fifty `million` four ways.
+- Half a `million` soldiers.
+- Value: one `million` each.
+- You're one in a `million`.
+- A half a `million` dollars?
+- At 5-1 we make 2 `million`.
+- Close to a `million` bucks.
+- On average forty `million`.
+- One in a `million` recover.
+- Uh - - about two `million`.
+- We're half a `million` off.
+- A `million` years behind us.
+- I got ten `million` of them.
+- Look like a `million` bucks.
+- One `million` dollars, dino.
+- There were no six `million`.
+- But a half `million` dollars!
+- I told you a `million` times!
+- I've got a `million` dollars.
+- I want ten `million` and one.
+- Maybe forty, fifty `million`.
+- `Million`, and it's going up.
+- Thanks a `million`, uncle al!
+- About thirty `million` to one.
+- A hundred `million`, but yeah.
+- I got a half `million` shares.
+- Space ball, 2 `million` and 2.
+- That boy's one in a `million`.
+- You said it a `million` times!
+- A `million` dollars in jewelry.
+- A `million` psychedelic colors.
+- It could be a `million` things.
+- "i told you a `million` times."
+- I traveled 250 `million` miles.
+- I've got a `million` questions.
+- I've seen it a `million` times.
+- I warned you a `million` times.
+- There's a `million` birds here.
+- We only got a half a `million`.
+- Estimated assets $110 `million`.
+- Let's make it an even `million`.
+- One point two `million` dollars?
+- That's eight `million` billions.
+- That's, like, a `million` years.
+- Well... two `million` readers...
+- We paid him a `million` dollars.
+- A few `million` at the very most.
+- A quarter of a `million` dollars.
+- I fixed him up a `million` times!
+- Ten `million` is better than six.
+- We could get a `million` dollars.
+- About 250 `million` of your miles.
+- About a half-a- `million` dollars.
+- Ninety-three point four `million`.
+- They took two `million` in cash...
+- Three `million` - - he'll be here.
+- You're welcome a `million`, marty.
+- 20 `million`, plus attorney's fees.
+- A `million` would've been an offer.
+- Eight `million` people needn�t die.
+- Four, five `million` miles of road.
+- I need a `million` dollars in cash.
+- In here, says he wants a `million`.
+- It's eight `million` dollars, erin.
+- Liquid funds over eighty `million`.
+- Maybe he's that one in a `million`!
+- Than thirty-seven `million` pounds?
+- That's over three `million` people.
+- The amount will be fifty `million`.
+- ...we have 37.2 `million` invested.
+                 

@@ -1,0 +1,107 @@
+---
+title: "seven in a sentence | seven example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seven"
+---
+- At the `seven`-eleven.
+- Let's make it `seven`.
+- Not for `seven` years.
+- Say, `seven` o'clock ?
+- `Seven` hundred fifty?
+- `Seven` thirty-five ..
+- What "`seven` dwarfs?"
+- Be home around `seven`.
+- Does the `seven` count?
+- I got `seven` thousand.
+- :i'm thirty-`seven` ...
+- Man 1: now the `seven`.
+- `Seven` million people.
+- Twenty `seven` hundred.
+- Come on, `seven`-twenty.
+- Greek: hepta... `seven`.
+- I'd go with the `seven`.
+- My wife wears a `seven`.
+- `Seven` is my son's age.
+- ...at least `seven` feet.
+- Come over around `seven`.
+- Dkq dash one `seven` six.
+- He took `seven` hostages.
+- Hey, hey, `seven`-twenty.
+- I'll be there by `seven`.
+- `Seven`, eight years ago?
+- `Seven` parking tickets.
+- `Seven` points of damage.
+- `Seven` tomorrow evenin'.
+- `Seven` years to the day.
+- They fill `seven` floors.
+- Ninety-`seven` five right?
+- `Seven` and eight and huh.
+- `Seven` stinkin' diamonds.
+- `Seven` years... how long?
+- `Seven` years, your honor.
+- That's fifteen by `seven`?
+- The wave was `seven` feet.
+- Get `seven` years, did you?
+- Not `seven` like they said.
+- That was `seven` years ago.
+- The roll, it was a `seven`.
+- Uh huh...one point `seven`.
+- Was.. ...`seven` years old.
+- White male, twenty-`seven`.
+- ...will have `seven` hours.
+- Eight -- and `seven` months.
+- I've got `seven` lives left.
+- Little village down `seven`.
+- My `seven` body orifices????
+- Five, `seven`, eight dollars.
+- Get this: `seven`-minute abs.
+- He was a `seven`-months baby.
+- I'm thirty-`seven` years old.
+- I went to bed around `seven`.
+- No more than `seven` percent.
+- Not for `seven` more minutes.
+- `Seven` hundred for the pair.
+- Well, six or `seven` minutes!
+- We were both `seven` in 1969.
+- You mean the `seven` billion.
+- Lyons two, four, `seven`, one.
+- `Seven` terraces of purgation.
+- That's a dollar forty-`seven`.
+- There are `seven` deadly sins.
+- The wallaces leave at `seven`.
+- We're down to `seven` minutes.
+- You pay seventy-`seven` cents.
+- Eight, `seven`, six... ready 4.
+- I'll wait for you till `seven`.
+- It's been twenty-`seven` years.
+- One hundred and twenty-`seven`.
+- `Seven` o'clock, same as usual.
+- Six or `seven` times i went in.
+- That was at least `seven` feet.
+- You said forty-`seven` minutes.
+- She did the `seven` shows...
+- Between six and `seven` seconds.
+- I told everyone `seven`-fifteen.
+- They're been gone `seven` years.
+- Thirty-`seven` now, but... - mr.
+- �ys�e `seven`, eight, nine, two.
+- A hundred-`seven` bucks too much.
+- Data, that was `seven` years ago.
+- Ever hear of the seattle `seven`?
+- I thought they opened at `seven`.
+- I've been awake for `seven` days.
+- `Seven` jaguars' skins, i'm told.
+- `Seven` pounds, eight, i suppose.
+- Sorry, i was `seven` at the time.
+- With me, we can do it in `seven`.
+- Artsy little village down `seven`.
+- Asked him about the `seven` acres.
+- Gimme a `seven` and `seven`, willya?
+- I'll be twenty-`seven` in october.
+- I've waited `seven` years already!
+- Make it <u>`seven` reels long</u>.
+- `Seven` eighty-five out of twenty.
+- The `seven` ceos of big tobacco...
+- Twenty-five by five, roll `seven`.
+                 

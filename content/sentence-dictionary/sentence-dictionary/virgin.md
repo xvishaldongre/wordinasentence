@@ -1,0 +1,59 @@
+---
+title: "virgin in a sentence | virgin example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "virgin"
+---
+- She's still a `virgin`.
+- Uh, are you a `virgin`?
+- Because your a `virgin`?
+- The `virgin` has spoken!
+- I'm still a `virgin`!
+- Are you still a `virgin`?
+- Hence, "like a `virgin`."
+- I'm gonna die a `virgin`.
+- My daughter was a `virgin`!
+- Then he must be a `virgin`.
+- I am not a `virgin`, doctor.
+- Kitchen `virgin`, that's me.
+- Ronnie, i'm still a `virgin`.
+- I don't want to die a `virgin`.
+- I know you're still a `virgin`!
+- Susie's not a `virgin` anymore.
+- I must protect my `virgin` ears.
+- The mothafuckin' `virgin` surgeon.
+- Nobody knows you're a `virgin`!
+- Clean as a `virgin`'s honeypot, huh?
+- Come on... are you really a `virgin`?
+- Hurtling across the `virgin` universe.
+- `Virgin` mary musta snuck that one in.
+- Just so the `virgin` can be really pretty.
+- Aren't you worried you could die a `virgin`?
+- Do you have great devotion for the `virgin`?
+- I mean getting a `virgin` to suck your dick.
+- Love is for low-level `virgin` seduction guys.
+- Because i'm a `virgin` and i don't want no baby.
+- Daddy, are you upset that i'm still a `virgin`?!
+- Jamie lee was always the `virgin` in horror movies.
+- Like extra `virgin` olive oil, the best of the best.
+- God damn it, you fucking `virgin` prick--step outside.
+- I'm sorry, but you're not going to die a `virgin` rod.
+- That's right and now that you're no longer a `virgin`.
+- We've got enough `virgin` samples to last us the week.
+- Well technically, i don't think i'm a `virgin` anymore.
+- I get why she did it i bet mr. mundy's still a `virgin`.
+- Colson doesn't know about it; he's pure as a `virgin` on this one.
+- From now on, nothing but water at every meal -- `virgin` birth -- ha!
+- But here you are, still a `virgin` -- you are virginal yet, aren't you?
+- The pain is reminding a fuck machine what is was like to be a `virgin`.
+- Preacher, take your tin jesus and the `virgin` mary, both, and shove 'em.
+- What i don't understand is why they asked marliston if rod was a `virgin`.
+- Having a `virgin` suck your dick, that's basic because there's nothing lost.
+- He marries a different `virgin` every friday and then divorces her on monday.
+- You better hope he's successful, because if he isn't, oh, he's so a `virgin`!
+- First i want to go on record as saying that my susie was a `virgin` when she died.
+- I'm not really a--does it count if... yowza--only a `virgin` could answer that fast.
+- Have you ever noticed on the astrological chart how the `virgin` is next to the lion?
+- At that moment, at that block party, she represented everything holy about a `virgin`.
+- I'm leaving in an hour for congress to scream like a violated `virgin` about my promotion.
+                 

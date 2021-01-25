@@ -1,0 +1,68 @@
+---
+title: "misery in a sentence | misery example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "misery"
+---
+- He's got the `misery`.
+- Aah, shurrup, `misery`!
+- Made his life a `misery`.
+- Thirty years of `misery`.
+- You murdered my `misery`.
+- Get on with your `misery`!
+- Put us out of our `misery`.
+- As much as `misery` loves ian.
+- To celebrate `misery`'s return.
+- Put us both out of our `misery`.
+- `Misery` chastain cannot be dead!
+- What does she know about `misery`?
+- I just put him out of his `misery`.
+- `Misery`'s about to have her child.
+- Then it'll be out of it's `misery`.
+- I'm the source of all your `misery`.
+- They're hauling `misery` into court.
+- And i can put you out of our `misery`.
+- I put him out of his `misery` -- dead.
+- Or, put yourself out of your `misery`.
+- People sure like those `misery` books.
+- But it must be so that `misery` can live.
+- That was hen i first discovered `misery`.
+- You like laughing at the `misery` of others?
+- Marcia, you know i started "`misery`" on a lark.
+- So do it a favor and put it out of its `misery`!
+- We have the power to give `misery` eternal life.
+- All you do is profit from another man's `misery`!
+- All the power and `misery` it brings with it.
+- I told her we'd give her a ride back to `misery`.
+- Look, i've put my family through enough `misery`.
+- Why add to your `misery` by confessing to murder?
+- Mom, why don't you put that cat out of its `misery`?
+- I could not leave my country in her deepest `misery`.
+- Is he the one who spread all this blood and `misery`?
+- That's a lot of `misery` crammed into thirteen miles.
+- Your `misery` is gonna be my goddamn mission in life.
+- I hope the iraqis shoot me; put me out of my `misery`.
+- Totally wallowing in self-pity and `misery` right now.
+- You better afford your own brand of `misery`, charlie.
+- By dawn we'll be able to give `misery` back to the world.
+- Why don't you just shoot it and put it out of its `misery`?
+- Ian and windthorne dueling for the right to `misery`'s hand.
+- Paul, this is positively the best `misery` you've ever written.
+- I hope those rangers put that lousy lowlife out of his `misery`!
+- Oh, paul, i've read everything of yours, but the `misery` novels...
+- The stranger staying at the inn, is he someone from `misery`'s past?
+- Any of you want to quit, do me a favor... put us out of our `misery`.
+- Speaking of `misery`, miss lonely hearts drank herself to sleep again.
+- The sooner he is put out of our `misery`, the sooner will they be safe.
+- What a wonderful first page--just to read the name `misery` chastain...
+- Paul, say hello to my favorite beast in all the world, my sow, `misery`.
+- Put me out of my `misery` so i don't have to listen to you whining anymore.
+- That's where our people came from -- from the `misery` and pain of slavery.
+- No matter what the trial or what the `misery` is, i tell 'em to stay with god.
+- The first printing order on `misery`'s child was the most ever--over a million.
+- We know you don't want to bring pain and `misery` to your friends and neighbors.
+- `Misery` was buried in the ground at the end, paul, so you'll have to start there.
+- They brought the colored people to the island-- the colored folks and ti-`misery`.
+- I haven't been a writer since i got into the `misery` business-- you're still a writer.
+- Yeah, that and `misery`'s child--those are the only two divine things ever in this world...
+                 

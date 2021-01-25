@@ -1,0 +1,63 @@
+---
+title: "fantastic in a sentence | fantastic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fantastic"
+---
+- Ah, christ `fantastic`.
+- It would be `fantastic`.
+- No, this is `fantastic`.
+- Oh, this is `fantastic`.
+- Stop saying `fantastic`.
+- I think it's `fantastic`!
+- I think it's `fantastic`.
+- It's utterly `fantastic`!
+- The world is `fantastic`.
+- Great, great, `fantastic`.
+- Mike, this is `fantastic`.
+- They say it's `fantastic`.
+- This place is `fantastic`.
+- I think they're `fantastic`.
+- `Fantastic` tip -- `fantastic`.
+- Jesus, these are `fantastic`.
+- Mac's a `fantastic` director.
+- Yeah, i'm fucking `fantastic`.
+- Before that it was `fantastic`.
+- You look `fantastic` in a suit.
+- "craig schwartz is `fantastic`!"
+- It's `fantastic` -- it's too much.
+- Some `fantastic` adventure, right?
+- Well, i do, and she's `fantastic`.
+- Wow, that's... that's `fantastic`.
+- But i'm feeling fucking `fantastic`.
+- Yeah, `fantastic` conversation, marge.
+- You are going to be a `fantastic` mom.
+- I mean, they do look pretty `fantastic`.
+- You're going to have a `fantastic` time.
+- This feels utterly `fantastic`, ryan.
+- ♪ that was such fun ♪ `fantastic` coffee!
+- That's two more than the `fantastic` four.
+- `Fantastic` but i'm a little busy right now.
+- My god, this place is `fantastic`, isn't it hon?
+- No, i don't care about you -- you're `fantastic`.
+- Come on, animal -- let's trip the light `fantastic`!
+- What are you, the "face" of the `fantastic` four now?
+- `Fantastic`... oh, i told her my dream and then i cried.
+- Premier belch will not be fooled by this `fantastic` lie.
+- It seems to me that the skiing up here would be `fantastic`.
+- He's got a date, he's got a date, is this guy `fantastic`...?
+- You mean there's chance we could be full-on-24-7-`fantastic`?
+- There's a radiation-soaked forest between us `fantastic` news.
+- I'll say this, though: it's bringing a lot of `fantastic` guns.
+- ] wichita ] ] you might be right...wendy, you're ] `fantastic`.
+- The waves at malibu and zuma were `fantastic` in the springs talby.
+- Does that strike you as a `fantastic` coincidence, or is it just me?
+- Yes, but it's to `fantastic` to think that they'd keep something from us.
+- You could do anything you felt like here - the more `fantastic` the better!
+- I'll get out of here, if i have to blow this `fantastic` place into the valley!
+- This rather `fantastic` idea of yours to want to give away your entire fortune.
+- Kept talking about shangri- la, telling a `fantastic` story about a place in tibet.
+- He's tripping the light `fantastic` with tammy jordan at 2245 maravilla, hollywood hills.
+- When i was a kid, i thought i was gonna be this `fantastic` wonderful heroic human being.
+- Hey, jack, real men don't have to go in for that macho bullshit ... but i was `fantastic`.
+                 

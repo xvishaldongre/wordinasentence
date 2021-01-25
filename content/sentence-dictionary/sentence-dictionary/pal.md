@@ -1,0 +1,107 @@
+---
+title: "pal in a sentence | pal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pal"
+---
+- But be a `pal`, pally.
+- I know you can, `pal`.
+- It's your call, `pal`.
+- Louder, `pal`, louder.
+- Right in there, `pal`.
+- See you around, `pal`.
+- Sorry, `pal`, i tried.
+- Can you do that, `pal`?
+- You're dog meat, `pal`.
+- Don't look at me, `pal`.
+- Don't yell at me, `pal`.
+- Happy: i got you, `pal`.
+- How bad are you, `pal` ?
+- I knew you would, `pal`.
+- It's your genius, `pal`!
+- That's your call, `pal`.
+- You don't kid me, `pal`.
+- You lead the way, `pal`.
+- You're shut down, `pal`.
+- I'm happy for you, `pal`.
+- Just what you see, `pal`.
+- Money never sleeps `pal`.
+- You're fucked now, `pal`!
+- Game six is history,`pal`.
+- I am bloody skinny, `pal`.
+- That you just died, `pal`.
+- You got ripped off, `pal`.
+- You run in streaks, `pal`.
+- Not as bad as yours, `pal`.
+- So what's your beef, `pal`?
+- That's your problem, `pal`.
+- The door's this way, `pal`.
+- Well, tell you what, `pal`.
+- Don't worry about it, `pal`.
+- How are things going, `pal`?
+- Mighty decent of you, `pal`.
+- Never get enough, huh `pal`?
+- Sure will, `pal`, sure will.
+- The door is this way, `pal`.
+- You beat 'em to shit, `pal`!
+- You didn't answer me, `pal`.
+- I don't call this fun, `pal`.
+- Not a lovers' quarrel, `pal`.
+- Okay... later for you, `pal`.
+- So what firm you with, `pal`?
+- Sure - my `pal` on the paper.
+- Can't wait, `pal`, can't wait.
+- _ excuse me, excuse me, `pal`.
+- Love to-- step outside, `pal`.
+- Oh, that sucks for you, `pal`.
+- Put your faith in that, `pal`.
+- They want make-believe, `pal`.
+- You're the disturbance, `pal`!
+- Hey `pal`, how would you start?
+- What floor you going to, `pal`?
+- Yeah--lucky for us, huh, `pal`?
+- You're still going down, `pal`.
+- I mean this is hollywood, `pal`.
+- It's the end of the line, `pal`.
+- Lightning won't help you, `pal`.
+- Sorry for misjudging you, `pal`!
+- Sorry for misjudging you, `pal`.
+- I need one more for my `pal`.
+- I want you to hear this, `pal`...
+- Tell your little `pal` to let go.
+- Thank god, it's up to you, `pal`.
+- We're going into a new age `pal`.
+- What don't you understand, `pal`?
+- Don't fuck with your brain, `pal`.
+- Old building and loan `pal`, huh .
+- _ `pal` needs your auth code, sir.
+- `Pal`, she's a big girl, you know?
+- This is way over your head, `pal`.
+- Well, you're my `pal`, aren't you?
+- You better quit pushing me, `pal`.
+- You're such a `pal` to understand.
+- Good to see you, buddy ol' `pal`...
+- Look, `pal`, i've got places to be.
+- Now don't get the wrong idea, `pal`.
+- `Pal`, get me a cigarette, will you?
+- `Pal`, my whole life's an emergency.
+- Pretty petty party, isn't it, `pal`?
+- That vibe is from your wrist, `pal`.
+- What's that on your forehead, `pal`?
+- Hey, have a little compassion, `pal`.
+- You're only a genius on earth, `pal`.
+- Getting on to dinner, isn't it, `pal`?
+- Hey ... you don't look so good, `pal`.
+- Is that a nice way to talk to a `pal`?
+- Hey `pal`, i got a mortgage, all right?
+- There's a potload of money here, `pal`.
+- You've been a hell of a figment, `pal`.
+- Hulk, we got a lot to figure out, `pal`.
+- If your `pal` was there i never saw him.
+- Well, i got something to say now, `pal`.
+- What do you say we go for a walk, `pal`.
+- Wouldn't miss this for the world, `pal`.
+- Come on, it's the end of the line, `pal`.
+- He always wants to be my `pal`, you know?
+- Just a visit with my old `pal`, jay-bird.
+                 

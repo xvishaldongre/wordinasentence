@@ -1,0 +1,107 @@
+---
+title: "pass in a sentence | pass example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pass"
+---
+- It has come to `pass`.
+- Just give me a `pass`.
+- Let us `pass` at once!
+- Let us `pass`, please!
+- `Pass` me some whisky.
+- Reese, let her `pass`.
+- Rose, `pass` the wine.
+- That will soon `pass`.
+- You can't even `pass`!
+- I could `pass` for six.
+- I said, let her `pass`.
+- I said `pass` the ball!
+- Crossed at eagle `pass`.
+- Except maybe `pass` out?
+- I'11 have to `pass`, al.
+- I didn't even `pass` it.
+- I think i will `pass`...
+- Keep safe as you `pass`.
+- Thanks, but i'll `pass`.
+- Would you let me `pass`?
+- When did that `pass`?
+- O� est `pass`� ton salon?
+- Where's your hall `pass`?
+- `Pass` the fucking catsup.
+- How can you `pass` that up?
+- I cannot let anyone `pass`.
+- I couldn't `pass` the test.
+- Make a `pass` or something.
+- `Pass` me the empty bottle.
+- What is "`pass` the dutch"?
+- Can you `pass` on a message?
+- Did he make a `pass` at you?
+- He calls me... may i `pass`?
+- How has this come to `pass`?
+- It helped me `pass` spanish.
+- I will try to `pass` within.
+- Koyomi, `pass` her the ball!
+- Let's `pass` this stuff out.
+- Maybe even `pass` right out.
+- They let you `pass` the hat.
+- Watch me `pass` that chevvy.
+- Would you `pass` the butter?
+- Have to `pass` on that lunch.
+- I'll never `pass` the boards.
+- I think i'm gonna `pass` out.
+- It'll `pass` when we bag him.
+- So we can by-`pass` all this?
+- The penitent man will `pass`.
+- Can you `pass` the salad over.
+- He didn't make a `pass` at me!
+- I'll `pass` the word on, then.
+- It'll never `pass` inspection.
+- One day the curse will `pass`.
+- `Pass` them potatoes, lincoln.
+- We ask only to `pass` through.
+- We're gonna `pass` the street.
+- What does a `pass` tell us?
+- Good evening ... can we `pass`?
+- How you gonna give me a `pass`?
+- Je suis `pass`� voir fran�oise.
+- "these things too will `pass`".
+- Did you `pass` out again, grady?
+- I think i'm going to `pass` out.
+- Let them `pass`, or you're next.
+- Olsun - "may it `pass` quickly."
+- She asks that you `pass` within.
+- That's a big `pass`, elton john.
+- We `pass` the savings on to you.
+- "and this too shall `pass` away."
+- Personally i'd `pass` on the jab.
+- Ships that `pass` in the night...
+- But first, will you let us `pass`?
+- Never `pass` up a good thing, eh ?
+- Obviously it didn't `pass` muster.
+- Only the penitent man will `pass`.
+- We lay low here until they `pass`.
+- Good place for a `pass` off to max.
+- It only hurts until you `pass` out.
+- Only the penitent man will `pass`."
+- Why don't you `pass` me your plate?
+- Without a natblida to `pass` it to.
+- You mission is to `pass` the flame.
+- All viruses `pass` on their own dna.
+- What i predicted came to `pass`.
+- Nels, don't let that cop `pass` you.
+- There's another `pass` on the photo.
+- Your people couldn't `pass` through.
+- I `pass` it to you who vanquished me.
+- It's not a `pass`-fail kind of thing.
+- `Pass` the yams and carve the turkey.
+- To `pass` up the opportunity anymore.
+- Maybe `pass` arbogast on the road?
+- But that was a dumb-ass `pass` to toni.
+- I need you to `pass` me fit now, molly.
+- I trained for 5 years to `pass` as one.
+- It will `pass` -- it will `pass` -- come.
+- Man, you don't never `pass` out, do ya?
+- May i see your boarding `pass`, please?
+- `Pass` that on to mr. wayne, would you?
+- Stay on the `pass` straight to the dot.
+                 

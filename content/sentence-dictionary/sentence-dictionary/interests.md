@@ -1,0 +1,57 @@
+---
+title: "interests in a sentence | interests example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "interests"
+---
+- I hate my `interests`!
+- My own self-`interests`.
+- Is that all that `interests` you?
+- Here's to dovetailing `interests`.
+- But that's not what `interests` me.
+- Investigator graham `interests` me.
+- Merely in the `interests` of order.
+- I have other `interests`, of course.
+- She's a girl of so many `interests`.
+- I must protect my `interests`, ms. kyle.
+- Only talent `interests` a woman of taste.
+- I doubt it's my mind that `interests` her.
+- I'm just looking for our best `interests`.
+- Or any gambling `interests` in that state?
+- I'm just looking out for his best `interests`.
+- I was acting in the town's best `interests`...
+- You see we are looking after your `interests`.
+- Let's just say, he looks after your `interests`.
+- I represent the `interests` of the corleone family.
+- We serve the `interests` of the british people, 007.
+- Darling, i was busy looking out for your `interests`.
+- I find it convenient to keep my `interests`... mobile.
+- We discovered we shared a lot of the same `interests`.
+- Her `interests` are not the `interests` of law enforcement.
+- People will do anything to protect their own `interests`.
+- You came out okay in the end... everything `interests` me.
+- Especially since your `interests` don't conflict with mine.
+- It's nice to meet people with common `interests`, isn't it?
+- So you took his... nobody's lookin' out for my `interests`.
+- Well, maybe he's only looking out for your best `interests`.
+- Maybe i don't want to meet someone who shares my `interests`.
+- I manage these boys and i got their best `interests` at heart.
+- I'll bet she can be friendly when it's in her best `interests`.
+- "to enforce the laws of my country and protect her `interests`"?
+- Not with enough certainty to outweigh british `interests` in this fort.
+- What particularly `interests` me at present is, why was i brought here?
+- Mr. corleone, do you have any hotel `interests` in the state of arizona?
+- Once again, our `interests` have fallen victim to his ridiculous crusade.
+- You are not, i hope, suggesting that these `interests` are not indentical?
+- Devoted entirely to the `interests` of all the john does all over the country.
+- We're a vast company with diverse `interests`... gasoline, tires, automobiles.
+- Ingen is my livelihood, dr. malcolm, and i will jealously defend its `interests`.
+- I've cultivated her `interests` so that now we have even more in common than ever.
+- You don't seem to understand that it's your `interests` i'm trying to protect -- !
+- All right, then let me say you'll pay me because it's in your `interests` to pay me.
+- No special `interests` will be allowed to interfere with the truth of that news.
+- They wanted you commander because they expected you would look out for our `interests`.
+- Do you have `interests` or control over gambling and narcotics in the state of new york.
+- Munro is expecting him to be the good soldier in defense of british military `interests`.
+- But, consuelo, even though your poor, don't you have any hobbies or `interests` or anything?
+                 

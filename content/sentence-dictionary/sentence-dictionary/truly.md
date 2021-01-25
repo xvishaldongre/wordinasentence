@@ -1,0 +1,107 @@
+---
+title: "truly in a sentence | truly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "truly"
+---
+- A `truly` good person.
+- Are we `truly` in hell?
+- `Truly` a wonderful man.
+- He `truly` did look dead.
+- It's a formality; `truly`.
+- That was `truly` pathetic.
+- It's `truly` a masterpiece.
+- That was `truly` excellent.
+- Do you `truly` wish to know?
+- For that, i'm `truly` sorry.
+- It was perfection - `truly`!
+- "tell me `truly`, i implore.
+- `Truly` no grudges -- `truly`.
+- I'm votin' for yours `truly`!
+- You didn't `truly` read this.
+- "yours `truly`, stinky moore."
+- It is `truly`, what�s the word?
+- I `truly` value our friendship.
+- The `truly` innocent were safe.
+- You `truly` are a dancing fool.
+- ....shame on you, `truly`... hm?
+- We `truly` want to dust him bad.
+- Picking apples is `truly` boring.
+- Ann, you are `truly` breathtaking.
+- So, is your man `truly` committed?
+- So you `truly` need our prayers.
+- By -- the one person i `truly` hate.
+- Look, i am `truly` sorry about this.
+- I agree with what you said...`truly`.
+- I know where your heart `truly` lies.
+- Is this `truly` the best way to come?
+- I wonder if she `truly` left the ira.
+- `Truly`, you are an excellent mentor.
+- You are an original, you `truly` are.
+- Well i'm votin' for yours `truly` too!
+- Is that a promise you can `truly` keep?
+- Mr. treves, tell me... tell me `truly`.
+- `Truly`, you have a dizzying intellect.
+- This patient is `truly` <u>sick</u>!
+- I'm `truly` sorry to hear that, charlie.
+- Are you `truly` going to let them perish?
+- So i'm `truly` sorry about that, octavia.
+- The only one who `truly` understands you.
+- Did you really, `truly`, honestly like it?
+- If you `truly` have remorse in your heart.
+- It's just... now i am `truly` embarrassed.
+- Have you `truly` read the book in question?
+- I `truly` appreciate your looking at these.
+- What's the matter, i'm `truly` sorry, yeah.
+- Ever again know if anyone `truly` likes you.
+- But hardly anyone does anything `truly` alone.
+- You want to see some `truly` fucked up people?
+- Are there `truly` no extenuating circumstances?
+- He `truly` doesn't care if he ever works again.
+- Your neck is like a swan... yours very `truly`.
+- Are we ready to `truly` do the work of the lord?
+- I - am - really - and - `truly` - leaving - you.
+- But the only time it's ever `truly` gone is madi!
+- Laughable endings... you are `truly` magnificent!
+- Only i shall know who, and what, you `truly` are.
+- `Truly` you belong here with us among the clouds.
+- If we `truly` want peace... - i got a better idea.
+- The greatest secret of life is who we `truly` are.
+- You are young... can it `truly` be used for magic?
+- You `truly` want to do something to make me happy?
+- Does your mind `truly` fathom what a black hole is?
+- No, aunt em -- this was a real, `truly` live place.
+- ...i'm sorry... only if you really, `truly` mean it.
+- Joan -- that was my wife -- `truly` - uh - splendid.
+- Condensed milk - one of the `truly` great inventions.
+- Do you `truly` believe the electoral process is absurd?
+- How many people are `truly` themselves with their love?
+- Only by letting go can we `truly` possess what is real.
+- I guess you can never `truly` know someone else's heart.
+- Well... it seems we're `truly` sailing into the unknown.
+- I do love her when her fire gets well and `truly` stoked!
+- If the young woman `truly` loves raoul -- this cannot be.
+- Then how can we know who is `truly` good, and who is evil?
+- How, if he is `truly` benevolent... mccreary took my pills.
+- But, unfortunately for yours `truly`, that train has sailed.
+- Mathematics is the only `truly` universal language, senator.
+- Once guilder is blamed, the nation will be `truly` outraged.
+- Only way we're `truly` safe is if he believes he's goin' free.
+- The remnants of the civilization that had `truly` transcended.
+- You have to teach her to love if you want her to `truly` live!
+- Only when our lips are silent, can our prayers `truly` be heard.
+- Are you honestly and `truly` going to prom with katrina de voort?
+- Mr. duke, how can you claim that jason voorhees is not `truly` dead?
+- Breeders typically destroy albino pups, so this animal is `truly` unique.
+- Young men's love then lies not `truly` in their hearts but in their eyes.
+- The fact that you didn't know is basically the fault of yours `truly`.
+- Tell me `truly`..." you can go to baseball games with all the dead players.
+- Are you `truly` mouthin' off to a senior member of the senate arms committee?
+- I cannot make one simple connection with any woman who could `truly` love me.
+- If the western woods are `truly` the devil's glen, we will see for ourselves.
+- The puling, pallid creature you were before was `truly` something disgusting.
+- You're only `truly` comfortable around other people who have it and despise it.
+- He's a `truly` kind person, which is pretty extraordinary if you knew the story.
+- Then -- to prove your `truly` mine -- i'll plunder you, darling, from behind!
+- That's where we get rid of the traces of him although we never `truly` succeeded.
+                 

@@ -1,0 +1,67 @@
+---
+title: "rare in a sentence | rare example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rare"
+---
+- A very `rare` disease.
+- Medium `rare`, please.
+- That's a `rare` talent.
+- That's `rare`, i think.
+- A really `rare` disease.
+- A `rare` man-- these days.
+- That's `rare` around here.
+- It is a thing quite `rare`.
+- No, good sisters are `rare`.
+- That's `rare` in this world.
+- You know how `rare` that is?
+- It's `rare` enough these days.
+- ... life is unspeakably `rare`.
+- He's got some `rare` strain of...
+- Ah yes, a `rare` renaissance piece.
+- I -- i got some freaky `rare` kind.
+- A `rare` pleasure to meet you, ma'am!
+- As round and `rare` as golden apples!
+- How `rare` is that in this world, eh?
+- No, but as i say, the type is `rare`.
+- Perfect with lamb, or fine `rare` beef.
+- Strength of spirit like that is `rare`.
+- Wambli is a `rare` and sacred creature.
+- It's a pretty `rare` quality these days.
+- She's a girl of so many `rare` qualities.
+- That's why hosts are so `rare`... jasper?
+- Yeah, there's some really `rare` performances.
+- It's a `rare` breed that gets cuter as it ages.
+- Not so `rare` as the others -- $30,000 perhaps.
+- Now, mr. spicoli, comes a `rare` moment for me.
+- We know hereditarily, it's incredibly `rare`.
+- Very <u>very</u> `rare`, since the tribe's extinct.
+- Gentlemen, i believe an albino dog is `rare` indeed.
+- A very `rare` diamond, called the heart of the ocean.
+- If nightblood is so `rare`, are you feeling any better?
+- Tis `rare` to find an honest lad in this troubled world.
+- Neither do you.... we've got a `rare` bird here, michael.
+- You'll never realize what a `rare` treat you've given me.
+- I should so like to show you some of our `rare` treasures.
+- But dignan, do you really know that much about `rare` coins?
+- Alphas, like the one that you killed, are much more `rare`.
+- Can we have a hot dog, please, medium `rare`, and a cup of joe?
+- It isn't `rare` to find destructive or even criminal behaviour.
+- It's pretty `rare`, they stopped making it a couple'a years ago.
+- The doctor seems to think he's suffering from some `rare` disorder.
+- Is something that people can continue to be proud of, that's `rare`.
+- Figuring out what kind of music i like and then finding me a `rare` album.
+- I thought it was a `rare` case of a brother getting a break in the courts.
+- It's `rare`... but there are cases where people go for years without sleep.
+- In the `rare` emotion-driven species such as your own, i'm so sorry, clarke.
+- They are `rare`... ... orion's belt, pointing to the earth -- not like this.
+- The two things: the two things: `rare` strain of flu, no cause to be alarmed.
+- It's the most `rare` and beautiful thing in life and that is why they follow her.
+- "today you have a `rare` opportunity to make a big difference in your chosen field.
+- I figured he wasn't pointing out a particularly `rare` shrub, and the rest was easy.
+- Your blood has a very `rare` phenotype, one that's quite valuable to people like us.
+- Watch my lips, coz you're not gonna believe this - <u>this</u> is a `rare` occurrence.
+- Except for that `rare` twenty-second twitch, there ain't nothin' about sex i don't hate.
+- Emma, i swear to you -- if i've learned one thing, it's that moments like this are `rare`.
+- It's `rare`, but it does cause bizarre hallucinations and usually just before a convulsion.
+                 

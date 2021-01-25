@@ -1,0 +1,107 @@
+---
+title: "clean in a sentence | clean example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "clean"
+---
+- He's gonna `clean` up.
+- Yes, i'm very `clean`.
+- You `clean` up nicely.
+- Alaska is very `clean`.
+- He's `clean` on google.
+- He wants to `clean` up.
+- I said a `clean` break.
+- Place is `clean`, boss.
+- The wounds are `clean`.
+- At least he was `clean`.
+- Because i'm `clean` now.
+- Can't you `clean` it up?
+- `Clean` out your locker.
+- Give him a `clean` shot.
+- Here, these are `clean`.
+- I'm gonna `clean` it up.
+- Next to you i'm `clean`.
+- She wasn't very `clean`.
+- The floor looks `clean`.
+- And `clean` up this mess.
+- `Clean` though, isn't he?
+- `Clean` up with this boy.
+- Help me `clean` up, okay?
+- [hush] we're `clean` now.
+- I can't `clean` anything.
+- I told you to `clean` up.
+- It's in the `clean` room.
+- What do you mean `clean`?
+- You `clean` up real nice.
+- Just make a `clean` break.
+- Look at how `clean` it is.
+- Nobody's got `clean` kids.
+- Wow...you `clean` up nice.
+- You'll need `clean` armor.
+- You're too `clean` for me.
+- Your slate is `clean` now.
+- A new broom sweeps `clean`.
+- I been `clean` a long time.
+- I made a `clean` spot here.
+- The kid's `clean`, captain.
+- We'll `clean` up the field.
+- Your records wiped `clean`.
+- As `clean` as my conscience.
+- Come `clean` with us, frank.
+- I work hard, `clean` up bar.
+- You `clean` up your budgets.
+- You know, `clean` the pipes.
+- How do you know it's `clean`?
+- Look, i need to `clean` this.
+- We are here to `clean` it up.
+- Well, for now, go `clean` up.
+- You `clean` out of your head?
+- `Clean` that counter off brad.
+- `Clean` your mouth, or i will.
+- God, it's so `clean` out here.
+- His cellular bill was `clean`.
+- I know you'll keep it `clean`.
+- It means `clean` your shit up.
+- I told you that i was `clean`.
+- It's not too <u>`clean`</u>...
+- I want to `clean` out the cut.
+- Why didn't you `clean` it out?
+- `Clean` as the board of health.
+- Easy to `clean`, easy to use...
+- I'm glad you've stayed `clean`.
+- I never felt so `clean` before.
+- My mother used to `clean` them.
+- Oh yes, he's `clean` all right.
+- What do you mean, he's `clean`?
+- You look so `clean` and pretty.
+- You might as well come `clean`.
+- And you kept your hands `clean`.
+- Are you all squeaky `clean` now?
+- `Clean` up and come back to bed.
+- Mom says to `clean` up the pool.
+- Start over with a `clean` slate.
+- Did you even `clean` that thing?!
+- Have trikru `clean` up this mess.
+- Wholesome, kind of - and `clean`.
+- Are you sure this line is `clean`?
+- But don't cats `clean` themselves?
+- Doesn't look that `clean`, though.
+- It's new and `clean`, and waiting.
+- You gotta have a house to `clean`.
+- I'm gonna help `clean` up our mess.
+- Is to `clean` 'em out and take off.
+- It's too `clean`, too antiseptic...
+- Oh yeah, he's very `clean`, y'know.
+- Well, i might as well come `clean`.
+- By the way, feel free to `clean` up.
+- Catch him and your record's `clean`.
+- I'd like to `clean` up myself a bit.
+- I'll cook for a week and `clean` up.
+- It took me an hour to `clean` it up.
+- It was his idea that i come `clean`.
+- I was pardoned, slate wiped `clean`.
+- Pity to mess up a nice `clean` boat.
+- ...we had to lick his boots `clean`.
+- Who will `clean` up this awful mess?
+- You `clean` up pretty good yourself.
+                 

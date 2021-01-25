@@ -1,0 +1,106 @@
+---
+title: "crash in a sentence | crash example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crash"
+---
+- Yeah, i `crash` there.
+- `Crash`, shut the door.
+- I didn't say "`crash`".
+- I saw your ship `crash`.
+- Damn, `crash`, how're ya?
+- Car `crash` when i was 15.
+- Looking for `crash` davis.
+- Was it a military `crash`?
+- He can `crash` on the sofa.
+- `Crash` is a very smart man.
+- I don't know a loud `crash`.
+- Markets will `crash`- `crash`.
+- You can `crash` at stifler's?
+- Thanks for letting me `crash`.
+- There was a `crash` last year.
+- They burned up in the `crash`.
+- What kind of a `crash` was it?
+- I do remember the car `crash`...
+- She was killed in a car `crash`.
+- The `crash` did too much damage.
+- There was no car `crash`, eddie.
+- These three died in the `crash`.
+- I die in a car `crash` in taiwan.
+- If they `crash`, maybe he'll run.
+- Got in a car `crash` or somethin'.
+- Indy, they make our plane `crash`?
+- Thanks for letting me `crash` here.
+- The `crash` caused too much damage.
+- No, i mean a `crash` with a history.
+- I love winning, `crash`, you hear me?
+- What do you think it�s gonna `crash`?
+- I don't think we survived the `crash`.
+- Sears sucks, `crash`, i tried it once.
+- You can `crash` at my pod, i mean pad.
+- You know what, i'm just gonna `crash`.
+- I don't think we survived that `crash`.
+- If i try to set it down she'll `crash`.
+- It wasn't my idea to `crash` the plane.
+- Biggest market `crash` since twenty-four.
+- [`crash`] yeah, but i'll never own a boat.
+- Must have been knocked out in the `crash`.
+- ...need those cells from the `crash` ship.
+- Are you still involving me in your `crash`?
+- [`crash`] don't mean you're better than me.
+- `Crash`, i get wet just thinking about you.
+- You `crash` and bleed out like a stuck pig.
+- I need you to teach a `crash` course really?
+- If you stop, you'll `crash` through for sure.
+- Wait, `crash`--don't go--all i want is a date.
+- You're close, `crash`, you want me to run you?
+- If anyone dies from a `crash` now, it'll be me.
+- This ward is reserved for air- `crash` victims.
+- I've decided to investigate low's plane `crash`.
+- Go home, pick up what we need, then `crash` here.
+- Maybe r.j. got into a `crash` and killed everbody?
+- They found his shoe right beside the plane `crash`.
+- Entered our orbit within a half hour of the `crash`.
+- Her, tod, the plane `crash`... billy told the f.b.i.
+- He wanted every conceivable detail about our `crash`.
+- Honey -- there's nothing on the news about a `crash`.
+- Isabella was supposed to `crash` her van into a lake.
+- No, he lost the house after the stock market `crash`.
+- Once we leave the safehouse, get in there and `crash`.
+- I've seen bodies thrown 50-60 feet from a `crash` site.
+- So what do you think, can i `crash` at your place tonight?
+- Sure, and let the plane `crash` in the middle of the city.
+- Uh... nikon, can i... can i `crash` at your place tonight?
+- C'mon-- `crash`, i didn't think you-- she's dancing with me.
+- What the hell would a geologist be doing at a plane `crash`?
+- They never saw the plane `crash`--they never *heard* it `crash`.
+- I thought you said there wasn't any damage done in the `crash`?
+- They called me up to the show and i wanta tell `crash` goodbye.
+- The plane `crash` and your journey here sound -- most incredible.
+- Maybe older -- hold on -- -- dating the `crash` at least that old.
+- I can either walk you home, or you could `crash` in the guest room.
+- Some neighbors called said they heard screaming and a loud `crash`.
+- It ain't possible that baseball's not enough anymore, is it, `crash`?
+- Officer burke pulled me away from the `crash` that killed my friends.
+- But you'll have to take your new friend, the female `crash`-test dummy.
+- Ever since his wife died in the plane `crash`, he's been over the edge.
+- I thought that if babies were on the plane, the plane couldn't `crash`.
+- I think someone may be taking steps to ensure that you `crash` and burn.
+- Listen, snoopy, i'm on my way up to detroit and need a place to `crash`.
+- Actually, i had a `crash` course from my mother the night before my prom.
+- Biggest `crash` in history, front page, new york times, august 10th, 1988.
+- I know, but she told me to tell you she wants to `crash` here a few hours.
+- It rains, car `crash` stops traffic, you say "how could this happen to me?"
+- Wrong, wrong -- what about the car `crash`... the two guys in the backseat?
+- It was around the time of that plane `crash`, when it first entered my head.
+- Two of them as they were about to `crash` into a transport full of soldiers.
+- Everything was incinerated, it was two weeks before we reached the `crash` site.
+- I take it that you see kennedy's assassination as a special kind of car-`crash`?
+- They're just waiting to `crash`-land into a world with just the right conditions.
+- We are on the brink of another `crash` from which recovery might not be possible.
+- It's a common medical expression, it's a `crash` program to restore the heartbeat.
+- The navy's conclusion regarding the `crash` of an f-14 aboard an aircraft carrier.
+- I need you to teach a `crash` course comes into my precinct and tells me what to do.
+- Then the `crash` comes - and overnight he's the biggest crook the country ever had.
+- There wasn't a simulated cockroach alive within 50 clicks of the simulated `crash` site!
+                 

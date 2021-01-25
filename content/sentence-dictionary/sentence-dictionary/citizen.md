@@ -1,0 +1,63 @@
+---
+title: "citizen in a sentence | citizen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "citizen"
+---
+- Another model `citizen`.
+- I'm just a concerned `citizen`.
+- Thank you, concerned `citizen`.
+- Yes... you're a u.s. `citizen`?
+- A message from `citizen` fouche.
+- Very well, `citizen` lieutenant.
+- I want to be `citizen` because...
+- Twenty�four `citizen` complaints.
+- You're a `citizen` and a soldier.
+- Make him a <u>`citizen`</u>... eh?
+- From `citizen` high to `citizen` low.
+- I was acting as a private `citizen`.
+- The "`citizen` kane" of gore movies.
+- `Citizen` bourrienne to see you, sir.
+- He just became an american `citizen`.
+- But i just became a private `citizen`.
+- Good morning, `citizen` de beauharnais.
+- A-and he was a senior fucking `citizen`?
+- Adolph j. giron--distinguished `citizen`!
+- That makes rick a `citizen` of the world.
+- If you do this, i'll be a model `citizen`.
+- But this is a formerly prominent `citizen`.
+- How's it feel being a solid `citizen` again?
+- I think i have what it take to be a `citizen`.
+- They say `citizen` barras has put away millions.
+- Have you heard about this `citizen` kane picture?
+- Yes, with all due respect, i do `citizen` barras.
+- You'd have wound up a senior `citizen` of boston.
+- Okay, buy a lot of stuff, you're a good `citizen`.
+- Orson welles was 26 when he made "`citizen` kane."
+- Every `citizen` has a right to trial -- this is rome!
+- You can't be a `citizen` when you're only a teenager !
+- Com- pare it to that of a normal law- abiding `citizen`.
+- You don't know many of `citizen` barras' friends, do you?
+- Not some strange, scary monster we call a senior `citizen`.
+- I become an american `citizen` and join in the fun, yes?
+- I am a `citizen` of the ark, come inside, and i'll show you.
+- You have come to the right place, for i am `citizen` varlac.
+- Then do you propose to arrest all of us, `citizen` lieutenant?
+- ... just wanna be a good mom, a nice person, a decent `citizen`.
+- I want to be a `citizen` because... well, because of my girl, sir.
+- No sense in bein' a grifter if it's the same as bein' a `citizen`.
+- So i decided i'll think of myself as some kind of world `citizen`.
+- The `citizen`'s duty is to remember, not necessarily to write books.
+- Get on the phone, have'em fly in a ...whaddaya need to be a `citizen`?
+- Yeah see what you can do about this `citizen` kane picture, won't you?
+- A revolution is not a polite discussion in a parlor, `citizen` lieutenant.
+- Offend a reputable `citizen` and involve the department in a slander suit?
+- `Citizen` lieutenant, my advice is to leave this town at once with your men.
+- Tom, what we need is an act of congress to allow enzo to become a `citizen`.
+- He gets himself caught he's a private `citizen`, a whacko, acting on his own.
+- Tell me the moral difference, if any, between the `citizen` and the civilian ?
+- I wrote, directed, and starred in it just like orson welles in "`citizen` kane"!
+- `Citizen` kane it's an awful title, of course, but i can't think of anything better.
+- You'd think if loveless is going to kill him he could at least be a prominent `citizen`.
+- I'm a proper `citizen`, i'm a decent man, i don't do anything that isn't decent or proper.
+                 

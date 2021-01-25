@@ -1,0 +1,78 @@
+---
+title: "core in a sentence | core example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "core"
+---
+- The apple `core` club.
+- Hard `core` fuckin' nva.
+- The `core`'s overheating.
+- They�ve taken the `core`!
+- You cut me to the `core`!
+- Now: what is in the `core`?
+- We're gonna go hard `core`!
+- Show me your reactor `core`.
+- It's the game's logic `core`.
+- The `core` has begun to melt.
+- Bring the warp `core` on-line.
+- Heart of your original `core`.
+- Reinforced steel `core` walls.
+- Check the `core` for radiation.
+- The whole `core` of mars is ice.
+- But at their `core`, their trust.
+- Please state your `core` command.
+- The dirty snowball at its `core`.
+- Are part of my `core` programming.
+- Double- `core` vulcan-65 grenades.
+- It must be coming from the `core`.
+- If the `core` melts down, we won't.
+- What about the route to the `core`?
+- That's the `core`: the gravity drive.
+- I only heard one thing � apple `core`.
+- We need it to control the `core` temp.
+- When it reaches the `core`, we're done.
+- He is using adamantium as its `core`.
+- There's a `core` structure like a spiral.
+- Have a look at your original cyber `core`.
+- Near the earth's `core`, where it's still warm.
+- You'd drifted right through the `core` systems.
+- Okay, so do you see a door marked "`core` unit?"
+- With any luck, their warp `core` should implode.
+- Now that you're back on the engineering `core`...
+- Right, eating at the `core`, eating it's way out.
+- What would happen if i threw him into the `core`?
+- Her `core` command is to make life better it does.
+- The `core` implosion is not reversible... find them.
+- Your dirty little secret has diseased us to the `core`.
+- _ no wonder they chose you and your lady for the `core`.
+- ♪ hot blooded ♪ but the `core` temperature's still rising.
+- At the `core` he's a man who believes in doing what's right.
+- Is jammed in the up position and won't drop into the `core`.
+- Your `core` was designed to interface with this type of body.
+- The `core` could be hardwired to overload without much effort.
+- If the `core` reaches 1,500 degrees, well, where are you going?
+- However, i'm certain that our `core` audience will remain loyal.
+- The reaction will flow, and the `core` temperature will go down.
+- What happened was you had drifted right through the `core` systems.
+- The hard-`core` four million "nixon nuts" aren't gonna go for it ...
+- Her `core` command is to make life better should've killed me yourself.
+- Highly volatile...i recommend we keep our distance... eject the `core`.
+- I monitor the `core` temperature all right, kids, let this be a lesson.
+- Now that you're back on the engineering `core`-- _ because now we're...
+- But what is the `core` idea actually is the genesis of everything, right?
+- Yeah, but 18-`core` doesn't play nice with the motherboard hello, clarke.
+- If you don't and the `core` melts down, the chancellor will break the tie.
+- You will forever be remembered `core` temp is up, coolant pressure's down.
+- This will be the day that i.... pritchett, what is this "`core` of darkness"?
+- Something that changed me to my `core`, monty: sir, we're almost out of range.
+- If the `core` temperature reaches 1,500 degrees, echo, it's ok. we've got this.
+- I heard them talking about a spotter, it's shocked me to my `core`, psych ward.
+- Transcendence is born of a civilization's `core`, i'm here to stop the killing.
+- You are here for one reason and one reason only: and found beauty at its `core`.
+- Uh... gwen and i are going to have to get to the `core` and shut it down manually.
+- We are gonna have to hold you in the `core`, you want to kill us... what's going on?
+- The commander needs us to get him to the `core` and shut it down before it overloads.
+- Detonating the warp `core` might neutralize the cascade... but then again it might not.
+- It's possible that a burst of gravity waves escaped from the `core`, distorting space-time.
+- Right... but it'll take a few minutes for the engines to overheat and melt down the `core`.
+                 

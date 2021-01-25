@@ -1,0 +1,7 @@
+---
+title: "conjurer in a sentence | conjurer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "conjurer"
+---
+## Unfortunately, we have no example sentences for conjurer                 

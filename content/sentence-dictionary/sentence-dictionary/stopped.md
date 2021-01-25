@@ -1,0 +1,107 @@
+---
+title: "stopped in a sentence | stopped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stopped"
+---
+- Can this be `stopped`?
+- His heart's `stopped`.
+- I nev-never `stopped`.
+- I've `stopped` caring.
+- `Stopped` only to pee.
+- Why have we `stopped`?
+- He has to be `stopped`.
+- He `stopped` breathing!
+- He `stopped` breathing.
+- I `stopped` going home.
+- `Stopped` they must be.
+- That's why i `stopped`.
+- Then he just `stopped`.
+- Uh, my watch `stopped`.
+- He `stopped` by himself.
+- I would've `stopped` it.
+- Then i `stopped` coming.
+- Unless he was `stopped`.
+- He `stopped` breathing.
+- It's got to be `stopped`!
+- My heart about `stopped`.
+- `Stopped` by to see otto.
+- I'm glad you `stopped` by.
+- That's where it `stopped`.
+- The machine was `stopped`!
+- I could have `stopped` him.
+- I `stopped` by your office.
+- I used to, but i `stopped`.
+- Never `stopped` you before.
+- Or somebody `stopped` them.
+- They've gotta be `stopped`.
+- You've `stopped` living it.
+- Until someone `stopped` him.
+- We shouldn't have `stopped`.
+- Your bleeding has `stopped`.
+- You `stopped` it didn't you?
+- Has he `stopped` working out?
+- Oh, jesus, they've `stopped`.
+- That's why they `stopped` me.
+- The molecules have `stopped`.
+- The whole city has `stopped`.
+- Whether they `stopped` bein'.
+- You could have `stopped` him.
+- I just `stopped` in to say hi.
+- I thought you `stopped` going.
+- It must have `stopped` moving.
+- Like that's ever `stopped` me.
+- We `stopped` at a porno store.
+- Because this must be `stopped`.
+- But the tremors have `stopped`.
+- I'm the one who `stopped` that.
+- I never `stopped` loving wally!
+- I should have `stopped` them.
+- I've `stopped` a hundred times.
+- We `stopped` seeing each other.
+- But the killings just `stopped`.
+- The one way he can be `stopped`.
+- They'll be `stopped` -- somehow!
+- They `stopped` at a gas station.
+- To have `stopped` this creature?
+- Well, i'm glad you `stopped` by.
+- You couldn't have `stopped` him.
+- I want these leaks `stopped`.
+- But the footsteps just `stopped`.
+- I though we `stopped` it in time.
+- No, you shouldn't have `stopped`.
+- That hasn't `stopped` you before.
+- That's where the buggy `stopped`.
+- That's why we `stopped` using it.
+- The bus `stopped` in los angeles.
+- The drugs just `stopped` working.
+- He must be `stopped` at all costs.
+- I could have `stopped` it, though.
+- Look who's `stopped` by over here.
+- Well, austin, you've `stopped` dr.
+- Never `stopped` drinking blue soup.
+- [tewkesbury] why have we `stopped`?
+- You've never `stopped` hustling me.
+- During delivery her heart `stopped`.
+- It was the same thing, it `stopped`.
+- I've `stopped` menstruating why not?
+- Not if you `stopped` hurting people.
+- The device has `stopped` responding.
+- We must be here 'cause we `stopped`.
+- You could have `stopped` forty cars.
+- Then he `stopped` visiting my garden.
+- They demagnetized, `stopped` working.
+- They `stopped` serving two hours ago.
+- They tried once but i `stopped` them.
+- At least it finally `stopped` raining.
+- I thought he'd `stopped` doing horror.
+- It's `stopped` snowing out, hasn't it?
+- That when you `stopped` being a nurse?
+- The ceiling `stopped` spinning for me.
+- They probably `stopped` off somewhere.
+- We better get this flooding `stopped`.
+- Well--you boys `stopped` fighting yet?
+- You `stopped` taking your medications.
+- Her slogan when she `stopped` oblation.
+- I `stopped` by the station a while ago.
+                 

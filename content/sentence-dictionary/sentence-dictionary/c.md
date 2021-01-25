@@ -1,0 +1,107 @@
+---
+title: "c in a sentence | c example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "c"
+---
+- `C`'est bon, monsieur.
+- `C`'mere for a second.
+- `C`'mon, don't be shy.
+- `C`'mon, have a drink.
+- `C`'mon i'll show you.
+- `C`'mon, mrs. mulwray.
+- `C`'mon, not a chance.
+- `C`. montgomery burns.
+- `C`'mon, what are you?
+- `C`'mon, you promised.
+- Hey, bubber, `c`'mere!
+- I saw you on `c`-span.
+- Thanks to vitamin `c`!
+- Alright, `c`'mon peter.
+- Bud permit me -- `c`.`c`.
+- `C`.i.a., mrs. lampert.
+- `C`'mon, what you got?!
+- Do you know what `c`.p.
+- Jess, `c`'mon... frank!
+- "man from u.n.`c`.l.e."
+- No problem, master-`c`.
+- Robbed a bank, `c`'mon!
+- They've done a `c`.a.t.
+- `C`'est absurde, madame.
+- "`c`."... "k." new word.
+- `C`'mere, i'll show you.
+- `C`'mon, betty, open up!
+- `C`'mon, hurry no no no.
+- `C`'mon, kids, let's go.
+- `C`'mon, let's call her.
+- No, `c`'mon -- one more.
+- The f.b.i., the `c`.i.a.
+- They... what's `c`.r.s.?
+- Yeah, almost... `c`.r.s.
+- Yeah i'd say `c`...`c`. `c`?
+- `C`'mon, throw in a buck.
+- `C`'mon, time to go home.
+- `C`'mon, ya screwin' her?
+- Do you know what `c`.i.a.
+- He's -- with the `c`.i.a.
+- I never `c`-`c`-carry arms.
+- It's sixth century b.`c`.
+- Or `c`; hack into paypal?
+- To bed with you, `c`'mon.
+- You have a mess on `c`-9!
+- You're not a `c` student.
+- `C`'e questa... a ragione.
+- `C`'mon, i read your book.
+- `C`'mon, laurant, america?
+- `C`'mon louise, chop chop.
+- `C`'mon, pack your things.
+- `C`'mon -- think about it.
+- `C`'mon tony, waddaya say?
+- `C`'mon, we have to hurry.
+- Come on, you know f.`c`.o.
+- How much `c`-4 is missing?
+- I didn't know the `c`.i.a.
+- It's a `c` zero zero five.
+- No, `c`'mon, i wanna know.
+- No, `c`'mon, stop playin'.
+- ...you `c`'n'ave my truck.
+- `C`'mon, give me the gun...
+- `C`'mon, i knew it was you.
+- `C`'mon, it all worked out.
+- `C`'mon now, give it to me.
+- I'm from washington, d.`c`.
+- Mais non, `c`'est pour toi.
+- No, `c`'mon, i'm listening.
+- Now `c`'mon, gimme the key.
+- Well `c`'mere, young fella.
+- ...by squads to the a.p.`c`.
+- "`c`" gun's right behind it.
+- `C`'mon, get real, will you.
+- `C`'mon, it's a quiet night.
+- `C`'mon let's rock an' roll.
+- `C`'mon, right in the chest.
+- `C`'mon shorty, y'gotta ask?
+- `C`'mon, tom, pick up a job.
+- `C`'mon... what am i saying?
+- They'll all `c`-`c`-come back.
+- Wait a second, i -- `c`'mon.
+- Why not go to the n.`c`.i.`c`.
+- Altos on `c`. sopranos above.
+- `C`'mon, don't be a sorehead.
+- `C`'mon everybody quiet down.
+- `C`'mon, i see what i can do.
+- `C`'mon -- i worry about you.
+- `C`'mon, let's go for a ride.
+- `C`'mon let's go to the pool.
+- `C`'mon, look at your screen.
+- `C`'mon, man, it's cold, man.
+- `C`'mon, what's really wrong?
+- Kristina, `c`'mon, i'm sorry.
+- No, `c`'mon...y'know, i read.
+- So, `c`'mon, gimme the truth.
+- You're `c`. montgomery burns.
+- Ah, don't worry about i.`c`.`c`.
+- Aw, `c`'mon, live dangerously.
+- `C`'mon, i'll buy you a drink.
+- `C`'mon, tommy -- fuckin' kid!
+                 

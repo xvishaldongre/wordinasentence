@@ -1,0 +1,103 @@
+---
+title: "Jobs in a sentence | Jobs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jobs"
+---
+- I have several `jobs`.
+- The losing the `jobs`.
+- You find people `jobs`?
+- `Jobs`, eight to 12 `jobs`.
+- No, no, we do our `jobs`.
+- We all have `jobs` to do.
+- Anyone wanna trade `jobs`?
+- Maybe he's changing `jobs`.
+- We are going to our `jobs`.
+- Both `jobs` are open, hildy.
+- Don't you have `jobs` to do?
+- As people doing their `jobs`.
+- For the `jobs` of the future.
+- I get all the glamour `jobs`.
+- I'm between `jobs` right now.
+- No -- only occasional `jobs`.
+- He said he did `jobs` for him.
+- I can get `jobs` -- good idea.
+- You always have so many `jobs`?
+- You guys do all the odd `jobs`.
+- Well, if we don't do our `jobs`.
+- Dick and ronny know their `jobs`.
+- I only did s & m. no blow `jobs`.
+- Solid little `jobs`, aren't they?
+- Then why don't you change `jobs`?
+- The only `jobs` are picking `jobs`.
+- Different names, different `jobs`.
+- I'm gonna get one of those `jobs`.
+- Said he pulled hundreds of `jobs`.
+- That's three `jobs` for the night.
+- There's a lot of `jobs` out there.
+- These aren't `jobs` of the future.
+- Three `jobs` and time for a drink.
+- We got `jobs`, man; we're working.
+- Like, you know, giving blow `jobs`.
+- A few places -- that's a few `jobs`.
+- We need to be able to do our `jobs`.
+- So many applicants...so few `jobs`...
+- There are `jobs` waiting for us there.
+- We got more `jobs` than we can handle.
+- You'd realize you suck at both `jobs`.
+- ...`jobs` he'd pulled, women he fucked.
+- You can't switch 'round `jobs`, anyway.
+- Night `jobs` -- while you were sleeping.
+- The novel reflects, our `jobs` are safe!
+- Well, you're working three `jobs`, doug.
+- Equality in `jobs`, equality in the home.
+- Did max mention anything about any `jobs`?
+- I done more `jobs` than alla you combined.
+- Yeah, yeah, those assholes gave us `jobs`.
+- We can give you a lot of legitimate `jobs`.
+- That's one job, you told me a lot of `jobs`.
+- Had all the most dangerous `jobs` on the set.
+- Gonna pull a lot of `jobs` out of this county.
+- Is to prepare kids for the `jobs` of tomorrow.
+- 'this is a factory and we each have our `jobs`.
+- If these people lose their `jobs`, nowhere to go.
+- Being how we don't want to get `jobs` and whatnot?
+- There are other `jobs`, and they pay better money.
+- Different things, different `jobs`, here and there.
+- One of the `jobs` professor lambeau set me up with.
+- Nobody knows what the `jobs` of tomorrow are gonna be.
+- There was a bit of confusion on one of my last `jobs`.
+- Well, i've quit better `jobs` than this one, believe me.
+- Daddy's offered me `jobs` at some of his other companies.
+- Didn't know you darker people went in for foreign `jobs`.
+- Well, the paper said there were some `jobs` around loose.
+- But in the future, all the `jobs` we've learned here oops.
+- He got laid off from work and had to just work odd `jobs`.
+- Not having a plan is what keeps us doing `jobs` like this!
+- What do you really think the `jobs` of the future will be?
+- All your friends got boob `jobs`, you got the tattoo instead.
+- Who have to travel a long way to get to and from their `jobs`.
+- But bringing `jobs` into america will help our worldwide brand.
+- What keeps us doing `jobs` like this is you dragging your feet.
+- Effective immediately, you three work desk `jobs` till midnight.
+- They all pulled a bunch of `jobs` with ganz about four years ago.
+- The money you make for people creates science and research `jobs`.
+- Either one of those guys have ex-agent pals already in those `jobs`?
+- Only do `jobs` where i can sit down, you need to step aside right now.
+- She hooked up with fed mcgar, they've done a couple a `jobs` together.
+- Well, it was one of them little bitty two-inch screen japanese `jobs`.
+- It's helped our economy grow, brought in new `jobs`, what are you doing?
+- One of those big terry cloth `jobs`, with like embroidery on the pocket.
+- Listen, do you think it's fair to take money from people who do have `jobs`?
+- Two- three thousan' folks that's crazy with worry headin' out for 800 `jobs`!
+- Then we found `jobs` for six other people and they've all gone off relief!
+- You'll clean her outdoor things and do any odd `jobs` as and when she requires.
+- Rocco's men are all a little too good for the `jobs` they're supposed to be doing.
+- Now, any of these guys been offered `jobs` in corporate security after they retire?
+- This gang operates across four states, often riding a hundred miles between `jobs`.
+- We're talking about lives and `jobs`; three and four generations of steel workers...
+- Society is falling apart, miss farmer, and people have to buckle down, do their `jobs`.
+- He's sure that the accident could have been avoided if they had done their `jobs` right.
+- There's a lot of things to do in life, a lot of other `jobs`... risky business, isn't it?
+- There may be `jobs` where you can disappear for days at a time, but this isn't one of them.
+                 

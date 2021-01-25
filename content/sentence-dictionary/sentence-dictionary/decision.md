@@ -1,0 +1,107 @@
+---
+title: "decision in a sentence | decision example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "decision"
+---
+- It's a big `decision`.
+- That's your `decision`.
+- The `decision` for you.
+- I've made my `decision`.
+- She made her `decision`.
+- The `decision` is final.
+- Why is it my `decision`?
+- I admire your `decision`.
+- It isn't your `decision`!!
+- I've come to a `decision`.
+- The `decision`'s been made.
+- A `decision` had to be made.
+- Who made the `decision`?
+- Best `decision` i ever made.
+- But that is your `decision`?
+- But was it a bad `decision`?
+- I have to make a `decision`.
+- It's a `decision` i've made.
+- It's not a moral `decision`.
+- It's the queen's `decision`.
+- It's your `decision`, maria.
+- That is not your `decision`.
+- This is a mental `decision`.
+- I'm looking for a `decision`.
+- It was a business `decision`.
+- You made your `decision` yet?
+- I have to make the `decision`.
+- It was my `decision`, not his.
+- This is a very big `decision`.
+- You made the right `decision`.
+- Well, it's just one `decision`.
+- Commander's `decision` is final.
+- I suddenly came to a `decision`.
+- We're not making any `decision`.
+- I'm not appealing the `decision`.
+- It wasn't my `decision` to leave.
+- I wasn't part of that `decision`.
+- Now you can make a `decision`.
+- Leaving was a business `decision`.
+- That `decision` i've already made.
+- The `decision` isn't mine to make.
+- Are you any closer to a `decision`?
+- Rhodey: we gotta make a `decision`.
+- The man made a business `decision`.
+- `Decision` robinson, my fuckin' ass!
+- I'll have a `decision` by next week.
+- It was entirely simone's `decision`.
+- Not my best `decision`, almost there.
+- One `decision` does not define a man.
+- The prison board made the `decision`.
+- Do not make us regret that `decision`.
+- He can't make that kind of `decision`.
+- It may not be your `decision` to make.
+- Tammy, now we've come to a `decision`.
+- But i don't care... it's my `decision`.
+- He heard me and he made his `decision`.
+- The `decision` of the council is final.
+- The `decision` was made to relieve him.
+- We're awaiting a `decision`, excuse me.
+- So it's almost a retroactive `decision`.
+- You're making the right `decision`, sir.
+- I'm positive i made the right `decision`.
+- Oh patrick, i can't make this `decision`.
+- One is a command `decision` on your part.
+- So i made a `decision`, and it was wrong.
+- But all the `decision` of that officer ...
+- In order to make a responsible `decision`.
+- Jump... you have a big `decision` to make.
+- This is your mama's `decision`, not yours.
+- Was the easiest `decision` i've ever made.
+- Your mom said no `decision` has been made.
+- You've made a considerably wise `decision`.
+- How could you -- it was a mutual `decision`.
+- That is a very difficult `decision` to make.
+- I'm trying to include you in this `decision`.
+- It was a `decision` with tragic consequences.
+- But so was his `decision` to engage in piracy.
+- I doubt that `decision` is still mine to make.
+- Tell them i will give them my `decision` then.
+- The `decision` we make now is all that matters.
+- Hold up a second... we got a `decision` to make.
+- I wish someone else had to make this `decision`.
+- You'll know my `decision` by the end of the day.
+- I believe that `decision` rests with her majesty.
+- That is not a human `decision`, not your or mine.
+- They're going to want a `decision` on the budget.
+- He said it was the hardest `decision` of his life.
+- Ok. you didn't make that `decision` alone, marcus.
+- And, please, chauncey - don't rush your `decision`.
+- That's my `decision` for the time being, gentlemen.
+- That's not a `decision` for you to make on your own.
+- You've made your `decision`, mister stinky american!
+- I'm a total fraud who can't make a single `decision`.
+- So i don't see ava as a `decision`, just an evolution.
+- Unto the samaritan woman... no `decision`'s been made.
+- The best business `decision` if you ever made i'll bet.
+- Buddy, it's not your fault, and it's not your `decision`.
+- But will you also submit to the `decision` of the church?
+- Did anybody make a `decision` - um, yeah, i was gonna ...
+- It's my `decision`, i think i'd make a pretty good pilot.
+                 

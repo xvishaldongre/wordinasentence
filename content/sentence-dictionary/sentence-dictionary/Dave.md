@@ -1,0 +1,107 @@
+---
+title: "Dave in a sentence | Dave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Dave"
+---
+- `Dave` -- i'm working.
+- Without `dave` around.
+- `Dave`, just calm down.
+- How's business, `dave`?
+- Calm down, `dave`, what?
+- Hi, i'm `dave` caldwell.
+- I gotta tell ya, `dave`.
+- I thought it was `dave`.
+- Sure, `dave`, what's up?
+- Come in, `dave` schwartz.
+- He'd kill for you `dave`.
+- Who you scared of, `dave`?
+- What about the mob, `dave`?
+- Who was paying you, `dave`?
+- Yeah, i'll do that, `dave`.
+- `Dave`, i always play square.
+- Thanks for the advice `dave`.
+- With `dave` it was the glory.
+- Ya think, is `dave` open yet?
+- `Dave`, it's going to be okay.
+- How much to they want, `dave`?
+- `Dave` thank you for your time.
+- Of course, `dave`, how are you?
+- Was i afraid of `dave` koessler?
+- `Dave` would have killed us both!
+- Pretty flowery for `dave` ferrie.
+- That was great, mr. keon, `dave`.
+- Well, that's interesting, `dave`.
+- We're not upset with you, `dave`.
+- Come on, `dave`, come on our side.
+- Who's `dave` when he's at home?
+- `Dave` ferrie - you know about him?
+- I 'm here to help you, d... `dave`.
+- She has other things to do, `dave`.
+- They led big `dave` onto the craft.
+- What are you talking about, `dave`?
+- What did `dave` wilkie have to say?
+- `Dave`, i haven't seen rose for years.
+- I don't really agree with you, `dave`.
+- It's actually kind of serious, `dave`.
+- The unit is still operational, `dave`.
+- ...why don't you just pay him, `dave`?
+- Did `dave` brubeck compose in 9/8 time?
+- Big `dave`... he never touched me again.
+- Big `dave`-- what kind of man *are* you?
+- Hands to the side... `dave`... oh, sure.
+- What do you want me to tell her, `dave`?
+- `Dave`, can i just ask you this directly?
+- I'm `dave` wilkie, don't you remember me?
+- Please, dil -- sure, `dave` -- it's `dave`.
+- You know, `dave` -- it is `dave`, isn't it?
+- He wanted me to leave `dave` and marry him.
+- Lou sklaroff, vin badalato, `dave` montell.
+- That's crazy, `dave` and it doesn't matter.
+- `Dave`, do you think we're out of our minds?
+- Did we involve you, `dave`, or did clay shaw?
+- `Dave`, the budget's a very complicated thing.
+- `Dave`, you know that's where this road leads.
+- I would have taken a bullet for i you, `dave`.
+- Look, `dave` your've probably got a lot to do.
+- `Dave`, i find your story simply not believable.
+- There is one other matter that's come up, `dave`.
+- I guarantee you the boss'll protect you... `dave`?
+- `Dave` koessler must have you jumping through hoops.
+- No, it's not that simple, `dave`... what do you need?
+- `Dave`, these things get awfully complicated sometimes...
+- Of course `dave` doesn't have her life force, not at all.
+- How did you find out `dave` ferrie drove to texas that day?
+- You mean we get ``dave`' to nominate you as vice president.
+- Get some rest, `dave`, and you'll feel better in the morning.
+- Inspector `dave` taylor - scotland yard ...can i have a word?
+- Why, that looks like `dave` wilkie, i'm afraid it's my fault.
+- `Dave`, if you've a minute, i'd like your advice on something.
+- `Dave` ferrie took me there, for the express reason to meet him.
+- It would only be a matter of time before i'm calling you `dave`.
+- You don't have to-- ...i don't know what happened to big `dave`.
+- No, i... uh, didn't know that did you know `dave`'s a bed wetter?
+- We're opening another store, big `dave`'s annex, there on garson.
+- `Dave`, as you know, president kennedy was assassinated on friday.
+- I can tell from the tone of your voice, `dave`, that you're upset.
+- I'm not questioning your word, `dave`, but it's just not possible.
+- I've heard over the years you're quite a first-rate pilot, `dave`.
+- That's right, `dave`, i'm headed for glenville on a whisperin' jet.
+- Bloke come up to me, he says, `dave`, he says, you've gone all white.
+- `Dave`, isn't it a bit difficult to hunt for geese without a shotgun?
+- `Dave`, you are as full of shit as a christmas turkey and you know it.
+- Listen, `dave`, why don't we order some room service, have a bite, relax.
+- You know `dave`, his wife used to do dressmaking for you before she died.
+- Sorry to interrupt the festivities, `dave`, but i think we've got a problem.
+- Tell me about that job in alexandria, `dave`, the big motel you're building.
+- Was it the same oswald, `dave`, that was in dallas, or was it an impersonator.
+- `Dave` introduced him as... and that's where you met oswald for the first time?
+- `Dave` wilkie of all people was sitting by me on the plane -- her first husband.
+- After `dave` got fired, sherry kicked him out of the house and filed for divorce.
+- I'm serious, `dave` -- you could get in a lot of trouble for something like this.
+- I mean, we both used to talk about her `dave`, i'm just saying this as your friend.
+- I don't like to assert myself, `dave`, but it would be much better now for you to rest.
+- `Dave` schapiro is no horse doctor and rose has been a good wife to him for a long time.
+- A few months before the election, she'd had an affair with my best friend `dave` novotny.
+- Big `dave` told me about it, and the spot he was putting himself in by getting the money.
+                 

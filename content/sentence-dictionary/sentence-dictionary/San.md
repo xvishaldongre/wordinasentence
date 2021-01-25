@@ -1,0 +1,107 @@
+---
+title: "San in a sentence | San example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "San"
+---
+- Better in `san` diego?
+- Back to `san` francisco.
+- This is `san` francisco!
+- Into `san` francisco bay?
+- I went to uc `san` diego.
+- 'no problem, nick-`san`.'
+- We got nice `san`'widges.
+- I love `san` castellaneta.
+- `San` francisco's changed.
+- At the `san` andreas fault.
+- No, we're from `san` diego.
+- Rushing up `san` juan hill.
+- Maybe up to `san` francisco.
+- `San` is an honorable title.
+- So does half of `san` diego.
+- Whyn't you buy a `san`'wich?
+- Moving to `san` francisco.
+- I work out of `san` francisco.
+- You working in `san` diego now?
+- I'm working down in `san` diego.
+- Isabella molina, from `san` juan.
+- It's coming from `san` francisco.
+- `San` agamat chay bet... envolet!
+- This is the hotel `san` domenico?
+- I want to try for `san` francisco.
+- What are you doing in `san` diego?
+- He's a `san` francisco private eye.
+- `San` diego's got a fever for cush.
+- Yes, sure, we did go to `san` remo.
+- Don't tell me `san` francisco...
+- Last i heard he went to `san` diego.
+- S. cooper trust, in `san` francisco?
+- The city national on `san` vincente.
+- She took a flight to `san` francisco.
+- Did you drive up from `san` francisco?
+- He's in `san` francisco, i'm in miami.
+- How did you end up in `san` francisco?
+- I have to get back to `san` francisco.
+- I went to `san` francisco to meet him.
+- Mr. `san` pedro sula is from honduras.
+- Mr. `san` pedro sula's permit to kill.
+- If... when we get to `san` francisco...
+- `San` francisco's a long way from here.
+- We got bread to make `san`'widges with.
+- What's so important in `san` francisco?
+- I'm in `san` francisco five days a week.
+- You'd have been safe in `san` francisco.
+- `San` diego is so much more relaxing.
+- He's under a tract house in `san` berdoo.
+- I've thought about moving to `san` diego.
+- My fence in `san` francisco ... 305-4410.
+- I've got the police chiefs in `san` diego.
+- Not without a small army, nicklaus- `san`.
+- I left my heart in `san` francisco... nice!
+- I commute to `san` luis obispo twice a week.
+- Scores to `san` quentin instead of stanford.
+- The future of film conference in `san` jose.
+- They take you away to `san` clemente island.
+- Friend of mine'll take you in to `san` diego.
+- I thought you were living in `san` francisco.
+- Mr. kimball a bottle of `san` pelle- kimball.
+- Mr. `san` pedro sula's got an appliance shop.
+- Helen, on your lists to call is `san` quentin.
+- Mitch knows lots of people in `san` francisco.
+- So whatta' you going to do in `san` francisco?
+- But i've never fallen into `san` francisco bay.
+- Deliver that safely to tigrillo in `san` diego.
+- Not nicklaus, not nicklaus-`san`, not nick-`san`.
+- There was this guy he lived in `san` francisco.
+- I got to go see somebody in `san` antonio today.
+- Well, there's lloyd garroway in `san` francisco.
+- It seems to me that's a `san` francisco exchange.
+- Mr. `san` pedro sula's authorized to carry a .45.
+- What's the detective hoping to find in `san` remo?
+- Her father owns a big newspaper in `san` francisco.
+- Santos' gonna drive us to the `san` antonio airport.
+- Miss daniels brought some birds from `san` francisco.
+- `San` diego just came in with a last-minute scenario.
+- So, mccall, how come you ended up in `san` francisco?
+- Greer and goble in the call building, `san` francisco.
+- Something like this: chief of police, `san` francisco.
+- Then you knew mitch in `san` francisco, is that right?
+- The embryos have to be back here in `san` jose by then.
+- Some areas have power - they're on line to `san` onofre.
+- We're not going to miss the `san` castellaneta festival.
+- What are your orders about this wire to `san` francisco?
+- Convinced her she needed to visit her mom in `san` mateo.
+- If `san` antonio sweeps sacramento, we could start there.
+- Tell me, do you share my high opinion of `san` francisco?
+- We bought the last affordable housing in `san` francisco.
+- He wants to take mr. `san` pedro sula and me bass fishing.
+- To begin with, i was bored with my job in `san` francisco.
+- You mean gay old bohemian days of gay old `san` francisco!
+- We only caught sixty ton of skipjack around `san` benedict.
+- If `san` antonio sweeps sacramento... or we'll go somewhere.
+- I'm just his... his freshman roommate from `san` diego state.
+- I'm leonard shelby, i'm from `san` francisco and i'm - teddy!
+- I was seeing quite a lot of him in `san` francisco, you know.
+- Why i've played every theatre from boston to `san` francisco.
+- I'll buy ya the best dinner in `san` francisco...how'd that be?
+                 

@@ -1,0 +1,69 @@
+---
+title: "summit in a sentence | summit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "summit"
+---
+- The `summit`'s a trap.
+- At the `summit` tonight.
+- Over the south `summit`.
+- So, you `summit` friday?
+- I'll wait till we `summit`.
+- (pm) of the south `summit`.
+- She threatened the `summit`.
+- Just below the south `summit`.
+- Just below the south `summit`.
+- No guarantees to the `summit`.
+- The `summit` was two days ago.
+- Oh, my, "a `summit` conference."
+- Hours when we get to the `summit`.
+- Hours when we get to the `summit`.
+- He's just below the south `summit`.
+- There's no oxygen at south `summit`.
+- The `summit` will take care of that.
+- Bottles of gas at the south `summit`.
+- He was still on the `summit` at 4:00.
+- He was still on the `summit` at 4:00.
+- So, you're... you `summit` on friday?
+- The `summit` delegation will be fine.
+- The reason for this `summit` has changed.
+- Best not to stay too long at the `summit`.
+- Her people will escort us to the `summit`.
+- I plan on going to the `summit`, may 10th.
+- Best not to stare too long at the `summit`.
+- You still think the `summit` is a bad idea.
+- There's oxygen at the south `summit`, right?
+- I'll let you know how the `summit` goes, okay?
+- I'm hosting a `summit` with skaikru at sundown.
+- There's no guarantee to the `summit`, i get it.
+- In the little dip just below the south `summit`.
+- There's no fixed ropes above the south `summit`.
+- I'm gonna go to the south `summit` to get oxygen.
+- In that little dip just below the south `summit`.
+- We gotta get down to the south `summit`, come on.
+- Boys, there's oxygen at the south `summit`, right?
+- Half an hour to get back up to the south `summit`.
+- We got to get down to the south `summit`, come on.
+- The commander's changing the terms of the `summit`.
+- I'm going to go to the south `summit` to get oxygen.
+- Well, i'll let you know how the `summit` goes, okay?
+- And lexa lifted the kill order on you at the `summit`.
+- Indra, at the `summit`, kane told me look who's a dad.
+- "please, leave two bottles of gas at the south `summit`."
+- The ice nation never stormed this `summit` and surrender.
+- What, and just like that, you kill my `summit` cappuccino.
+- The only way we both `summit`, mate, is if we work together.
+- Not 'til you get about three hundred yards from the `summit`.
+- The only way we both `summit`, mate, is that we work together.
+- What, and just like that you-you killed my `summit` cappuccino.
+- You know he made it to the south `summit` on everest last year?
+- You know, he made it to the south `summit` on everest last year.
+- The district officer phoned us at the lookout up on the `summit`.
+- Expeditions compete to `summit` everest in the same two week window.
+- Well, there's some fellows fishing at pine `summit` might be interested.
+- I got a clear view of the `summit` and we've still got climbers up there.
+- Think it'll take me about half an hour to get back up to the south `summit`.
+- We're planning on stashing, what, eight bottles of o up at the south `summit`.
+- As a direct result, the peace `summit` between khrushchev and eisenhower failed.
+- Enmund hillary and tenzing norgay became the first climbers to `summit` of everest.
+                 

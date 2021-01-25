@@ -1,0 +1,84 @@
+---
+title: "kicked in a sentence | kicked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kicked"
+---
+- I got my ass `kicked`.
+- Were you `kicked` out?
+- Plus, i got `kicked` out.
+- You like, "`kicked` butt."
+- He carried on some; `kicked`.
+- `Kicked` holbrook's ass, huh?
+- And `kicked` her over a cliff.
+- But the nightmares `kicked` in.
+- Well, not exactly `kicked` out.
+- I got `kicked` in the head, too.
+- `Kicked` his ass a coupla times.
+- No, we...got our butts `kicked`.
+- I'm the one whose ass he `kicked`.
+- But you get ass `kicked` without me.
+- I can get my butt `kicked` for this.
+- You `kicked` us off your turf, merk.
+- We should'a `kicked` that dude's ass.
+- He `kicked` major ass and you know it.
+- I just got `kicked` off my first movie.
+- Look, we `kicked` their asses last time.
+- To this sand, you fbi's `kicked` all up.
+- Some sonofabitch `kicked` me in the back.
+- You even `kicked` the bride in the chest!
+- ...but we just got our asses `kicked`, pal!
+- If you `kicked` off tomorrow, where'd i be?
+- He `kicked` your ass, but you put up a fight.
+- Well, you can't have gotten `kicked` off yet.
+- That's when killer `kicked` him in the stomach.
+- Getting the shit `kicked` out of me by mexicans.
+- It even `kicked` back -- once at you, didn't it?
+- That bitch lazarro is getting `kicked` upstairs.
+- Well, that's what `kicked` this whole thing off.
+- But if he gets us `kicked` out, you're a pioneer.
+- But it don't seem possible--`kicked` off like that!
+- Hear you got your ass `kicked` in hong kong, james.
+- Hey, i'm the one who `kicked` ivy's botanical butt.
+- Are you trying to get me `kicked` out of this place?
+- Let's just hope you've `kicked` the thirst for good.
+- One `kicked` out, one the judge, you say... what two?
+- This suit's already `kicked` the crap outta the hulk.
+- I'm afraid though it's time to get your butt `kicked`.
+- I think we were destined to get `kicked` out of there.
+- You guys really got the shit `kicked` out of you here.
+- I still maintain that he `kicked` himself in the balls.
+- And `kicked` up by the wild thrashing of the crocodiles.
+- He passes on this stuff before it gets `kicked` up to me.
+- Their army has been getting their ass `kicked` let me go.
+- You know it's been over a year since we `kicked` it last?
+- Aunty o would have loved seeing you get your ass `kicked`.
+- Once i `kicked`, i swore i wouldn't let that happen again.
+- Him and his friends beat me and `kicked` me and thumped me.
+- They should have `kicked` you out on that lillibridge case.
+- You've `kicked` over the whole city hall like an apple-cart.
+- If they didn't want you, they woulda `kicked` you out, amigo.
+- Will i get the shit `kicked` out of me if i ask you to dance?
+- I don't know, but the back-up generator should've `kicked` in.
+- I `kicked` john out unlike dev, i actually do know everything.
+- Couldn't have said something before i got `kicked` in the face?
+- Olive oyl good looks had `kicked` her gambling habit years ago.
+- You just `kicked` the shit out of a innocent man, you big asshole.
+- You're the one who's been two beats behind since we `kicked` it off.
+- And this revolution spreads, we can't be the first couple `kicked` off.
+- Supportive letters from prison while i'm being `kicked` out of our home?
+- He must have `kicked` himself when he learned i�d exceeded his expectations.
+- You get `kicked` around long enough, you get to be a real professor of pain.
+- The smaller man -- he must be dominican or haitian -- he `kicked` me so hard.
+- Hell, they even `kicked` me outa vo- tech 'cause i couldn't read a slide rule.
+- But all i know is that i `kicked` him so many times my fuckin' toe feels broken.
+- But i risk being `kicked` into the gutter by someone less "holy" than mr. baker.
+- Was it <u>every</u> day or just semi- weekly you got your ass `kicked` as a kid?
+- After dave got fired, sherry `kicked` him out of the house and filed for divorce.
+- One `kicked` out, one i closed... shelly, you blew the last... john...john...john.
+- When you thought i was being `kicked` around, i wish i could've seen your face.
+- You mean well, heda, couldn't have said something before i got `kicked` in the face?
+- I spotted him this time and `kicked` him out, but he's getting trickier all the time.
+- You stuck your neck out for her and you got your butt `kicked` for her and you tried.
+- Say, listen, you wouldn't know a story if it reached up and `kicked` you in the pants.
+                 

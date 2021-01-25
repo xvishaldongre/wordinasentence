@@ -1,0 +1,104 @@
+---
+title: "finds in a sentence | finds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "finds"
+---
+- So franky `finds` out.
+- I hope he `finds` them.
+- War `finds` me willing.
+- Almost no one `finds` it.
+- What if bruce `finds` you ?
+- When my father `finds` out.
+- What if someone `finds` out?
+- She `finds` him "personable."
+- He `finds` you in your dreams.
+- Thanos `finds` the soul stone.
+- Won't stop until he `finds` it.
+- Until bellamy `finds` a way out.
+- And echo `finds` out i was lying.
+- I'm afraid if paulie `finds` out.
+- Stifler `finds` this beer, right?
+- If anyone `finds` out who you are.
+- On the ark `finds` out we're alive.
+- In new york the trouble `finds` you.
+- 'dem dat hides can `finds` says i'...
+- He'll murder you when he `finds` out.
+- If he `finds` you, he'll... yeah, hi.
+- He `finds` the world has feet of clay.
+- `Finds` out his son-in-law is involved.
+- If he ever `finds` out, it'll kill him.
+- If he `finds` her, he'll kill you, too.
+- If helen ever `finds` out that i� yeah?
+- If paulie `finds` out, we got problems.
+- So if you... not if no one `finds` out.
+- The jury `finds` herschel krustofsky...
+- Ed `finds` the keys without any trouble.
+- When he `finds` out you tossed his list?
+- If junior `finds` us, he'll kill us both.
+- If he `finds` out it's me, i'm a dead man.
+- Caiman `finds` out and he'll have your job.
+- Everybody `finds` what they supposed to find.
+- He `finds` people who don't want to be found.
+- He `finds` them as dull and lifeless as we do.
+- Anyone who `finds` me a fool, please say so now.
+- When he `finds` the money, you're as dead as me.
+- Once it's in the air, he `finds` our friend raven.
+- What happens when the town `finds` out about that?
+- Are you suggesting we wait till someone `finds` us?
+- Hollywood precinct `finds` another stiff yesterday.
+- You mean what if the public `finds` out i perspire?
+- He gets in heaven and `finds` it just like back home.
+- How long before russell `finds` out okay, i'll shake.
+- How soon until the enemy `finds` out what's going on?
+- If the ark `finds` out we're alive, they'll come down.
+- My mom will skin me alive if she `finds` i'm out here.
+- And clarke `finds` another nightblood, you've lost him.
+- He `finds` morelli there... sees she's two- timing him.
+- A lot of good it will do you if the creeper `finds` you.
+- Before he `finds` her in a pool of her own vomit uh-huh.
+- If anyone `finds` out that we knew, you could have died.
+- If we find out how he `finds` them, then we'll find him.
+- Lenny, if tran `finds` you talking to me he'll hurt you.
+- What if that fucker `finds` it before we're ready to go?
+- If batts' crew `finds` we whacked him, we got real problems.
+- The grandmother hears it and `finds` out he's been arrested.
+- Well, he who `finds` the grail must face the final challenge.
+- How long until your mother `finds` another reason she left us.
+- It's just for a night or two, until she `finds` her own place.
+- If he `finds` it out, the entire universe could be at risk.
+- And my mom `finds` out you three are responsible, over and out.
+- [door closes] but if anyone `finds` out, you could be arrested.
+- Jesus, he's gonna kill me when he `finds` out about the camera.
+- It'd have to be switzerland to make sure dwayne never `finds` us.
+- Tell him, as far as i'm concerned, he `finds` something it's his.
+- Wait till mrs. bruce `finds` out he went to that concert with us.
+- When someone `finds` a dead one, the feathers get around the res.
+- Bet you didn't know your boyfriend `finds` a little pain exciting.
+- You think once that guy `finds` his daughter he'll care about you?
+- Come on, logan, let's get out of here before everybody `finds` out.
+- Deltoid makes a grab for alex's joint but `finds` his hand instead.
+- I think it's better if we find this man before he `finds` us again.
+- The ark `finds` out we're alive, i have no choice but to share this.
+- When ust `finds` we're gone, they'll come after you and put us away.
+- I gotta get this fuckmobile back before horace `finds` out i took it.
+- Tell him as far as i'm concerned, if he `finds` something, it is his.
+- If it `finds` anything going on that's not scheduled, it shuts it down.
+- I'm not gonna tell him nothing; but if he `finds` out, he will kill you.
+- I'm worried what he's going to do when he `finds` out you boys are back.
+- If my son or daughter-in-law `finds` you here, they'll have you arrested.
+- It's just going to break his heart when he `finds` out i can't marry him.
+- Getting herself ready for a pioture ... what happens when she `finds` out?
+- Now, while keepin' them at bay, he `finds` the guy he was supposed to kill.
+- It's going to break sugar's heart when she `finds` out i'm not a millionaire.
+- Not half as pissed as she's gonna be when she `finds` out why i blew her off...
+- Yes, but then she `finds` out i've bought a ticket for iggy pop the same night.
+- She's fighting an enemy she can't beat, when lexa `finds` out that skaikru - no.
+- When octavia `finds` out... [distant shouting] clarke: ey’re coming ba.
+- There must be plenty of women who would be glad to go.... only if he `finds` out...
+- I threw it over stephen king's fence if raven `finds` out where we are, upside down.
+- Any person who spends a significant amount of time with me `finds` me... disagreeable.
+- Whoever `finds` it first, catches it in the net and ejects it from the nearest airlock.
+- If he `finds` it, i say mr. walker put the money in, and i didn't know nothing about it.
+- Willing to wait forever and a day and clarke `finds` another nightblood, hey... octavia?
+                 

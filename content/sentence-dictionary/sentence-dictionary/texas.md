@@ -1,0 +1,81 @@
+---
+title: "texas in a sentence | texas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "texas"
+---
+- On the `texas` border.
+- `Texas` is a big state.
+- I have to go to `texas`.
+- My oil wells in `texas`?
+- A `texas` bear in arkansas.
+- We're all going to `texas`.
+- Worse... you're in `texas`.
+- ... in `texas`... didn't it?
+- We showed our ass in `texas`.
+- Fort hancock, `texas`, please.
+- It was a `texas` live oak, boss.
+- Move 'em to `texas`, fry 'em up.
+- With me and `texas` mike o'shay.
+- Maybe the owners are from `texas`.
+- We killed `texas` fuckin' rangers.
+- Sheriff buell clayton from `texas`.
+- Ten miles back on the `texas` side.
+- Marfa is the art capital of `texas`.
+- Not just someone, miss nude `texas`.
+- I'd like to visit `texas` one day, sir.
+- I know what happened to you in `texas`.
+- Plus, i always wanted to visit `texas`.
+- He now lives in a small town in `texas`.
+- True story, 'bout some killer in `texas`.
+- I thought you two were in austin, `texas`.
+- We lived in temple `texas` for many years.
+- They got parks in `texas`, ohio, california.
+- Graveyard dead near big sandy, `texas` in '65.
+- Iguana county's one of the richest in `texas`.
+- I'm still trying to ditch this `texas` smokey.
+- Got word the kids are moving through `texas`...
+- What's a `texas` smokey doing in arkansas, man?
+- Which is why we're heading to houston, `texas`.
+- In september, kennedy announces the `texas` trip.
+- Little bill come out of kansas an' `texas`, boys.
+- Word must have got all the way to `texas` by now.
+- Find a way that we don't have to go through `texas`.
+- So maybe we can pull off a `texas` switch on cuervo.
+- What am i going to do in `texas` the rest of my life?
+- I haven't seen a place like this since i left `texas`.
+- The only thing between oklahoma and mexico is `texas`!
+- Yeah, then if i get jets, it's on to beeville, `texas`.
+- I'll screw every prison official in `texas` if i have to.
+- I'm askin' as a ranger of the sovereign state of `texas`.
+- I just got chased across `texas` by two black helicopters.
+- `Texas`... you were right about what happened to me there.
+- How did you find out dave ferrie drove to `texas` that day?
+- If you wanna perform in `texas`, you give 'em mighty mouse!
+- Let's head for `texas` and see if we can pick up the trail.
+- See, running coors beer east of `texas` is what bothers me.
+- No, but my guess is they're headed west, so prob'ly `texas`.
+- So this big-shot lawyer calls me long-distance from `texas`.
+- He claims to have some sort of factory in `texas`, i believe.
+- Jus when my baby's out on some `texas` road with a killer.
+- A single car accident on an empty road in midlothian, `texas`.
+- You know how i feel about `texas`... we're not going that way.
+- Oh, shit, bill, i guess nobody's gonna come clear from `texas`.
+- I read about a woman in `texas` who was in a coma for seven years.
+- I was in `texas` dancing in an industrial show for sunkist oranges.
+- They can deliver the south and they can put `texas` in your column.
+- The entire state of `texas`, along with the fbi, is looking for you.
+- What's he... that's a `texas` bubble gum machine on your back porch.
+- I never knew there were snake charmers in `texas`... all right, calloway.
+- Should be easy killin' em... supposin' they don't run off to `texas` first.
+- "threat to assassinate president kennedy in dallas, `texas`, november 22-23.
+- It wasn't too long ago i was washing dishes way the hell somewhere in `texas`.
+- Hell if i know, crazy son of a bitch said he was thinking of moving to `texas`.
+- You want to go to mexico from oklahoma and you don't want to go through `texas`?
+- I'm joe buck from `texas` and i'm gonna buy you a drink, what do you say to that?
+- The last time i saw my mom, she was waving out the window of a library in `texas`.
+- ♪ there's a handsome man in `texas` ♪ and promise me you'll stop taking the pills.
+- We were told you took a trip to `texas` shortly after the assassination of friday.
+- I don't recall his hat, but i've seen pictures of him lying dead, shot by `texas` rangers.
+- Here i am standing out in the middle of nowhere `texas`, chasing phantom tanker trucks.
+                 

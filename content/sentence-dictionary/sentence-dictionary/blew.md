@@ -1,0 +1,107 @@
+---
+title: "blew in a sentence | blew example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blew"
+---
+- `Blew` his brains out.
+- But you `blew` us off.
+- They say it `blew` up.
+- You mean you `blew` it.
+- I `blew` it, dr. lester.
+- I think we `blew` a tire.
+- Well... we `blew` plan a.
+- You `blew` it, sebastian.
+- You `blew` it for 'em.
+- You `blew` it -- big time.
+- I `blew` 'em full of holes.
+- Someone `blew` the whistle.
+- That just `blew` it for me.
+- I `blew` up their generator.
+- The storage facility `blew`.
+- Two of my friends `blew` up.
+- God `blew` up the hindenburg.
+- Kid, you just `blew` my mind.
+- Maybe it `blew` though early.
+- Maybe it `blew` through early.
+- We `blew` the horn resounding.
+- Well, we `blew` it, didn't we?
+- Well, you `blew` a good thing.
+- What do you mean it `blew` up?
+- She `blew` the horn resounding.
+- You `blew` him out of the ship.
+- But you're the one who `blew` it.
+- The the whole plane... `blew` up.
+- ... and then everything `blew` up.
+- He `blew` right by his time stamp.
+- You `blew` it, now leave me alone.
+- You had your chance you `blew` it.
+- So when they `blew` it up, no prob.
+- The backdraft `blew` out the flame.
+- I thought you `blew` all your money.
+- You just `blew` up a house in paris!
+- The police `blew` a hole in his head.
+- That man's name and you `blew` it.
+- The draft `blew` over the flowers.
+- But he turned to dust and `blew` away.
+- "my new true partner, but i `blew` it!
+- Then he `blew` himself up, right here.
+- And it `blew` up when it hit the hills.
+- No, i `blew` it, i `blew` it with lester.
+- The electrical fires `blew` out a dcdu.
+- Or maybe the wind `blew` something over.
+- Why do you think i `blew` up your condo?
+- Yeah well, you just `blew` your tip, pal.
+- That the planet `blew` up on may 23, 1937.
+- Problem is it seems mac `blew` a few fuses.
+- And i think that's why you `blew` that horn.
+- They `blew` that building to hide something.
+- Been on many planes that `blew` up, have you?
+- I think you really `blew` the lid off nookie.
+- A bolt of lightning `blew` up cottonwood tree.
+- Your app kind of `blew` mine out of the water.
+- Your boys `blew` this case, we bailed you out.
+- I mean, you `blew` off our date at last minute.
+- The woman passenger on the boat that `blew` up.
+- ♪ well, since you `blew` the challenge ♪ no, no.
+- You're a con man, and you `blew` it like a pimp.
+- It `blew` books from shelves at twenty feet away.
+- I `blew` up this colonel's golf cart with an m-19.
+- I'm sure luke wasn't on that thing when it `blew`.
+- He would have won more but he `blew` it at the end.
+- Now, after the shit `blew` up last night... no, sir.
+- So he drank a bottle of pepto and his ass `blew` off.
+- Then junior `blew` a fuse and i became their last hope.
+- You need now that, you know, you almost `blew` one off?
+- But... you `blew` this when your people were hunting us.
+- She must have been the one that `blew` me off with bobo.
+- This clown almost `blew` mission security on the street.
+- You lost the frog in the subway and you `blew` our cover.
+- Yeah, but you wouldn't have the truck if you `blew` it up.
+- Oh, by the way, another pet theory of yours just `blew` up.
+- I `blew` his back out with a buffalo gun, that's how i know!
+- When paul's car `blew` up i realized the scope of the thing.
+- They `blew` up a container on the lower level no, you're not.
+- What, you think i just dried up and `blew` away when you left?
+- The second one was still being built when they `blew` it up.
+- Somebody `blew` out junior's pilot light, if you get my meaning.
+- That i `blew` up when we went to that silly animal graveyard.
+- I'm talking about old satchmo nearly `blew` the roof off the joint.
+- We probably shoulda filled up the car before we `blew` up that truck.
+- She almost `blew` outta the back of loretta's pick-up on the way over.
+- What would you say if i told you the toilet just `blew` up in my face.
+- So who fuckin' `blew` you in the parking lot before you came in... huh?
+- Ok. gina was already dead when mount weather `blew` up, i choose murphy.
+- Tell that to the wives of the security men she `blew` up this afternoon.
+- I think you just `blew` "don't ask, don't tell" out of the fucking water.
+- Then they raided the payroll office and `blew` the tracks for half a mile.
+- You `blew` off your girlfriend last night, even though it was the big one-oh.
+- You and coleman played the switch for him and `blew` him off to a cab on 49th.
+- Not half as pissed as she's gonna be when she finds out why i `blew` her off...
+- Then he killed doc and you grabbed me -- and the machine `blew` up and i ran...
+- `Blew` up government buildings - it turns out reflected light... - don't ruin it.
+- Then, uh... you know it `blew` over and he went back to being a fireman again.
+- One kicked out, one i closed... shelly, you `blew` the last... john...john...john.
+- That walker colt `blew` up in his hand... which was a failing common to that model.
+- I was in the frankfurt station and the train was three miles away when it `blew` up.
+                 

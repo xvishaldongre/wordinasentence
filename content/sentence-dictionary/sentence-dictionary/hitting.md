@@ -1,0 +1,56 @@
+---
+title: "hitting in a sentence | hitting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hitting"
+---
+- I'm `hitting` the sack.
+- You're `hitting` on me?
+- A switch `hitting` witch.
+- You're `hitting` eva max.
+- Then he started `hitting` me.
+- I ain't `hitting` a man first.
+- No more `hitting` on the head!
+- You're `hitting` for my cards!
+- I wasn't `hitting` on your girl!
+- Even with not `hitting` a rabbit.
+- You boys been `hitting` the pipe?
+- He's been `hitting` it pretty hard.
+- Sometimes i feel like `hitting` her.
+- This is for not `hitting` on my wife.
+- You're `hitting` the vatican to-night.
+- Are they `hitting` you up for donations?
+- `Hitting` bottom isn't a weekend retreat!
+- Nobody said anything about `hitting` her!
+- We'll just be `hitting` empty real estate.
+- You're not `hitting` me up for nyu are you?
+- You're `hitting` rutherford's auction house.
+- We don't wanna take a chance on `hitting` it.
+- Where the hell do you come off `hitting` women?
+- Careful how you go, we're `hitting` the swell now.
+- I'm on a big mountain and `hitting` at the bad men.
+- I'm pinch-`hitting` for our society editor tonight.
+- Quit `hitting` on my wife, you crooning sex pirate.
+- I guess kids were `hitting` each other or something.
+- A man just died, you're `hitting` on me with science.
+- We're `hitting` one, chicago swat's taking the other.
+- But i don't remember him `hitting` anything, anywhere.
+- I hate the thought of guys `hitting` on you all the time.
+- I bet you're real good at `hitting` targets through crowds.
+- Imagine `hitting` something at seven hundred feet a second.
+- For the first time in a long time, it's really `hitting` me.
+- There's no way apollo expected this kind of `hitting` power.
+- Then the chances of `hitting` a dental...forget about it.
+- I keep my mouth pretty much shut, but i don't like `hitting`.
+- Could be the sound of jewellery `hitting` a parquet floor, huh?
+- You're `hitting` santa's cards and you're taking santa's money!
+- I'm not into `hitting` guys 'cause it makes me feel good either...
+- When you're `hitting` you shouldn't think about anything but `hitting`.
+- This is the straight `hitting` on me you were talking about, isn't it?
+- You know what the difference is between `hitting` .250 and `hitting` .300?
+- How come everyone thinks `hitting` me's the best way to get my attention?
+- Say, you know, i found out something yesterday about `hitting` a golf ball.
+- Yeah, but she'll be `hitting` all that traffic going back to san francisco.
+- Think you'd try boarding against his will, and `hitting` him with a fishing gaff?
+- I'm supposed to believe that `hitting` the taxi service wasn't his idea he loved her.
+                 

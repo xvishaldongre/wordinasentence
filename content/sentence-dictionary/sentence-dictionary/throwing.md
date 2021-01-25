@@ -1,0 +1,69 @@
+---
+title: "throwing in a sentence | throwing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "throwing"
+---
+- She was `throwing` up.
+- We're `throwing` it away.
+- You are `throwing` me out.
+- Stop `throwing` names at me.
+- You're `throwing` him out!
+- You're `throwing` my game off.
+- Stop `throwing` away that money.
+- We were `throwing` money at him.
+- What's the chief `throwing` you?
+- I'm `throwing` the money, walter!
+- And he's `throwing` up everywhere.
+- I've been `throwing` up for weeks.
+- Norma, you'd be `throwing` it away.
+- We're `throwing` him a last supper.
+- I don't understand `throwing` it away.
+- I doubt anyone's `throwing` us a shower.
+- I'm the reason they're `throwing` us out.
+- We're `throwing` a big party on saturday.
+- Now you're `throwing` everything away?
+- `Throwing` out some major 'tude right now.
+- Wow, it's really `throwing` off some heat.
+- Bobbie and phoebe are `throwing` me a shower.
+- They were `throwing` rocks, john, just rocks.
+- I hear bruce wayne is `throwing` a fundraiser.
+- It's some sort of party the town is `throwing`.
+- It's the boy next door `throwing` at his birds.
+- He was `throwing` snowballs at baron rothschild.
+- About my `throwing` those people out of my house.
+- Before we start `throwing` math problems at them?
+- Like `throwing` gasoline on a fire... at ease men.
+- `Throwing` it at him and asking him to keep it dark.
+- Well, maybe the slope here is `throwing` it off some.
+- We're `throwing` a rope and you better catch it, hear?
+- A friend of mine is `throwing` a cocktail party up there.
+- How extravagant you are, `throwing` away women like that.
+- My daddy had me `throwing` googlies from the age of five.
+- Old jerko got caught `throwing` eggs and soaping windows.
+- Well i was just `throwing` out ideas... a satellite dish?
+- Everybody's `throwing` her outta their house... hello, ma.
+- The pingala is the nostril used for `throwing` a baseball.
+- All i know is you're `throwing` away an awful lot of money.
+- He's `throwing` a little surprise party for his own family.
+- Ricky tan is `throwing` a little party on his boat tonight.
+- I sold some drawers and socks, too; i'm `throwing` those in.
+- Why were you `throwing` clothes in the building incinerator?
+- Even when you were `throwing` up, i could tell you cared.
+- I've felt like `throwing` up every minute since you got back.
+- The wife of some president was `throwing` it at a battleship.
+- Everytime i pitched--it was like `throwing` gasoline on a fire.
+- Listen, chief, i don't go `throwing` around accusations lightly.
+- ♪ my boy artie is `throwing` a party ♪ once you're under, _ hmm.
+- But don't go `throwing` your life away on somebody you don't love.
+- Clark brandon's `throwing` a party up in his penthouse this evening.
+- I was ready� remember the early rounds `throwing` them combinations.
+- Not as much fun as the bachelor party the guys are `throwing` for me.
+- Well, i don't mind getting up early, so i got a job `throwing` garbage...
+- I could sit here and take turns `throwing` skittles at your ass all night.
+- Musta gone 450 feet...damn... you told him i was `throwing` a deuce, right?
+- We usually wind up screaming and `throwing` things as the curtain comes down.
+- Plenty-a times in my life, i feel like `throwing` the milk bottle at her myself.
+- Damn those carny bolsheviks the other night, `throwing` bricks at my windows -- hmm.
+- I don't have enough indignities in my life-people start `throwing` cigarettes at me!
+                 

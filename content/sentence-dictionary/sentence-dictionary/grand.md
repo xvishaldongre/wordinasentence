@@ -1,0 +1,107 @@
+---
+title: "grand in a sentence | grand example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grand"
+---
+- In the `grand` canyon.
+- You owe thirty `grand`.
+- `Grand` champion, is it?
+- Meet me at `grand` view.
+- This is a `grand` beast.
+- Well, it's been `grand`.
+- Do you need five `grand`?
+- For four fucking `grand`?
+- If i seem vague, `grand`.
+- Twenty or thirty `grand`.
+- What is the five `grand`?
+- `Grand` old opera -- what?
+- That ten `grand` of yours.
+- Where is the soho `grand`?
+- Bet three `grand` on rocky.
+- Can you go fifteen `grand`?
+- Eighty-two fucking `grand`.
+- For the `grand` theft auto.
+- `Grand` larceny, extortion.
+- I'm back in `grand` rapids.
+- We had these `grand` plans.
+- What three hundred `grand`?
+- Even here in `grand` rapids.
+- I'm up twelve `grand` today.
+- It's at the `grand` central.
+- There's ten `grand` in here.
+- You got the 400 `grand` yet?
+- Townsend gave us 300 `grand`.
+- Wholesale plus three `grand`.
+- Ya gettin 150 `grand` killer.
+- `Grand` duchess of the people!
+- `Grand` guignol for the masses.
+- Twenty-five `grand` is peanuts!
+- It's the goddamn `grand` canyon!
+- Reed just gave us fifty `grand`.
+- Twelve `grand` in commission.
+- But we don't have the 50 `grand`.
+- Fourteen, fifteen `grand` a week.
+- But his dad gave me fifty `grand`.
+- It's ten `grand` and i don't lose.
+- Three `grand` on the black, jimmy.
+- I'm up a hundred and fifty-`grand`.
+- It's just a couple hundred `grand`.
+- That's worth fifteen `grand` to ya?
+- Where did he get a hundred `grand`?
+- You're staying at the soho `grand`.
+- I need a stake, a bundle, a `grand`.
+- I need two hundred and fifty `grand`.
+- One hundred `grand`, non- negotiable.
+- That cost me twenty `grand` at least.
+- Was that why you did the two `grand`?
+- Don't you miss the `grand` scheme too.
+- Had twenty-five `grand` in his pocket.
+- Jesus � "the `grand` productive days."
+- Shit, she can make us a `grand` a day.
+- They're gonna tell their `grand` kids.
+- <u>a</u> <u>`grand`</u> <u>dragon</u>.
+- What do you mean "`grand` theft auto?"
+- Why you going to give me five `grand`?
+- What a `grand` pursuit you must be.
+- I'm gonna win ten `grand` in one night.
+- You could buy a car for twenty `grand`.
+- Might have been positively `grand` talk.
+- Something `grand` and beautiful, george.
+- He's gonna hit ya with 20 `grand`, eddie.
+- How do you know there is a `grand` hotel?
+- I'll meet you at `grand` central at noon.
+- We're puttin' down 400 `grand` next week.
+- You just have your hundred `grand` ready.
+- You paid off thirty `grand` i never owed.
+- Might not need a gesture quite so `grand`.
+- One of our runners got hit for 12 `grand`.
+- That horse made me over a hundred `grand`.
+- You wanna see the `grand` canyon at night?
+- I never saw anything so `grand` in my life.
+- The pay won't be `grand`, but it's regular.
+- To live -- to live -- in the `grand` hotel.
+- Everybody says you were a `grand` detective.
+- `Grand` means will be in our hands, wendell.
+- How about if i buy your car for ten `grand`?
+- Next wednesday i grab a `grand` from snyder.
+- No, you need five hundred `grand` to see me.
+- Tomorrow it will be `grand` canal gossip!
+- Every american should see the `grand` canyon.
+- I get the robe an' paulie gets three `grand`.
+- It's on level three of the `grand` concourse.
+- But the fucking `grand` poo-bah of all jinxes?
+- Things you don't know about in `grand` rapids.
+- This clip's gotta be worth at least a `grand`.
+- Thizz...i neee...i need eight hundred `grand`.
+- You're going to the soho `grand` hotel, right?
+- Couple `grand` or more'd give you two a leg up.
+- There's more than a measly few `grand` in this.
+- You got the fifty `grand` and the plane ticket?
+- You're gonna just give me five hundred `grand`?
+- Goddammit, i bet that clock's worth ten `grand`.
+- This musta been a `grand` old place at one time.
+- We coulda used the other two-and-a-half `grand`.
+- You got stewardesses bringing you fifty `grand`.
+- Glass, eighth street, alley behind `grand` hotel.
+                 

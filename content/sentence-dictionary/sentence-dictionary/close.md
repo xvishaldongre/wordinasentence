@@ -1,0 +1,107 @@
+---
+title: "close in a sentence | close example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "close"
+---
+- `Close`, but no cigar.
+- `Close` to retirement?
+- `Close` up shop, hank.
+- Come on, `close` them.
+- Grounders are `close`.
+- Had a `close` one, eh?
+- It's gonna be `close`.
+- It's not even `close`.
+- Not even `close`, son.
+- Now `close` your eyes.
+- Ok. `close` your eyes.
+- That's `close` enough.
+- That's pretty `close`.
+- This could be `close`.
+- We're getting `close`.
+- We're getting `close`.
+- We were quite `close`.
+- You're really `close`.
+- You won't get `close`.
+- We're very `close`.
+- As `close` as we can.
+- But `close` enough, eh?
+- But i gotta be `close`.
+- Don't `close` the door.
+- Don't you `close` soon?
+- He's too `close` to it.
+- It means we're `close`.
+- Just `close` your eyes.
+- Nope, not even `close`.
+- Okay, that was `close`.
+- Someone `close` to you?
+- Then, `close` the case.
+- Then `close` your eyes.
+- Those guns are `close`.
+- `Close` quarters combat.
+- `Close` those around it.
+- `Close` your eyes, baby.
+- How `close` did you get?
+- I have no `close` folks.
+- I wanna `close` up soon.
+- Never been this `close`.
+- Okay, `close` your eyes.
+- That's not even `close`.
+- The bridge will `close`.
+- The vote wasn't `close`.
+- We're `close` this time.
+- We're getting `close`...
+- We're still too `close`.
+- Whenever he was `close`.
+- You were so `close` too.
+- All right, `close` it up!
+- Are you `close` with her?
+- Can't get `close` to him.
+- `Close` the fucking door!
+- Did you `close` the door?
+- I can't `close` my mouth.
+- I have to `close` up now.
+- It's `close`, real `close`.
+- It's too `close` to call.
+- I want you `close` to me.
+- Just stay `close` to her.
+- No, that one was `close`.
+- Oh...i came `close` once.
+- Steers it pretty `close`.
+- Tonight, when we `close`.
+- Too late....stay `close`.
+- Well, i'm `close` to her.
+- We're definitely `close`.
+- We should be `close` now.
+- What time do you `close`.
+- What time do you `close`?
+- As `close` as you can get.
+- Can you get a man `close`?
+- `Close` enough to walk to!
+- `Close` the door, raymond.
+- Don't let them `close` it!
+- Don't let them `close` it.
+- He was very `close` to me.
+- How can you `close` me up?
+- I can't `close` the store.
+- I don't know, but `close`.
+- I feel too `close` to her.
+- I'll stick `close` to you.
+- I must sit `close` to him.
+- Monroe, `close` the doors.
+- Not when we're so `close`.
+- Shall we `close` up, then?
+- You wasn't comin' `close`.
+- Cant be too `close` for me.
+- `Close` to a million bucks.
+- It isn't, not even `close`.
+- I was very `close` to daya.
+- Just stay `close` to faith.
+- Let's not `close` our eyes.
+- Not as `close` as they are.
+- She wanted to stay `close`.
+- We must get `close` to her.
+- We're nowhere near `close`!
+- You're getting too `close`.
+- You're too `close` to this.
+                 

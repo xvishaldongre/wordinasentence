@@ -1,0 +1,95 @@
+---
+title: "chest in a sentence | chest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chest"
+---
+- To shave your `chest`?
+- I got it off my `chest`.
+- [enola] move the `chest`!
+- Harry's treasure `chest`?
+- That hairy `chest` story!
+- The scars on your `chest`.
+- In the `chest` and stomach.
+- C'mon, right in the `chest`.
+- Example, where's my `chest`?
+- It spreads into his `chest`.
+- Where's my `chest`, jessica?
+- There is no "s" on his `chest`.
+- You have a hole in your `chest`.
+- Anybody with hair on his `chest`.
+- This'll put hair on your `chest`.
+- Hit me in the `chest` with this...
+- Stark, is it your `chest` machine?
+- Stark, you-- your `chest` machine?
+- What's that thing on your `chest`?
+- Your `chest` is going to milktate.
+- I never got so much off my `chest`.
+- The `chest` that i put my papers in.
+- Mine are like my neck and my `chest`.
+- [sherlock] the medals on his `chest`.
+- I actually want to get off my `chest`.
+- We got new `chest`-cutter in our tent.
+- "cinderella man grows hair on `chest`!"
+- The treasure `chest` was in his office.
+- I've booked you in for a `chest` x-ray .
+- Well, just get it off your `chest`, son.
+- With two bri sabot slugs in the `chest`.
+- You head was pressed against my `chest`.
+- That's why i wear a target on my `chest`.
+- Worried about that thing in your `chest`?
+- You even kicked the bride in the `chest`!
+- Don't block the window, sizzle `chest`.
+- Roma bragg... spear to the `chest`, niylah!
+- They might even sit on your wife's `chest`.
+- Yeah, you can get your hand off my `chest`.
+- He stabbed my mom four times in the `chest`.
+- So the `chest` is still out there somewhere.
+- Four to the `chest` and one through his foot.
+- I'm having -- lancinating pain -- my `chest`.
+- Look what this cursed `chest` is doing to us.
+- They put a spear into jasper jordan's `chest`.
+- You aspirate the blood from the `chest` cavity.
+- Feels like there's a bullet still in my `chest`.
+- I stuck a number eight scalpel into his `chest`.
+- My heart was flying out of my `chest` with love.
+- Oh -- bang on my `chest` if you think i'm perfect.
+- I'm getting a `chest` cold.. oy... not a road trip.
+- They kiss, and luh hides her head in thx's `chest`.
+- The force of the explosion, it hit her in the `chest`.
+- You know that `chest` expansion program you see on tv?
+- Can you see the lesions on your `chest` in this mirror?
+- His `chest` was hamburger -- from up close or far away?
+- There's room for a whole libretto on freddie's `chest`.
+- That's right... it... it came right out of his `chest`...
+- Maybe the pirate who buried this treasure `chest` made it.
+- Maybe the treasure's a `chest` full of apples and bananas!
+- You better get us a `chest`-cutter before there's trouble.
+- Then they took my `chest` out, and they threw it over there!
+- What was it jessica wanted us to do with this `chest` again?
+- But on every guard's `chest`,they left one marlboro cigarette.
+- You know, buddy, about this friendship thing... open `chest`!!!
+- Marge, you know dickie has i hate opera tattooed on his `chest`.
+- I think they have another fella there to keep it off your `chest`.
+- You're not gonna reach into my `chest` and crush my heart, are you?
+- Like to shake your hand if you'll hurry up and get that `chest` closed.
+- I saw finger blades just like krueger's come out of jason's `chest`.
+- If you know what's good for you - you'll let me get this off my `chest`!
+- Just go get that `chest` and show the world what collins has been doing.
+- It keeps the lungs from rubbing against the wall of the `chest` up there.
+- I mean, he's, you know, he's-- ...and, uh, he complained of `chest` pains.
+- There's just one more thing i'd like to get off my `chest` before i finish.
+- It would take me but an instant to tear that valiant heart from your `chest`.
+- He has a phone pole sticking in his `chest`, i think we don't need an autopsy.
+- George, uh... you're gonna break his little `chest` bones... where is the drug?
+- He pulls alex's ear, pushes him off balance and plants his foot on his `chest`.
+- Somehow i don't think he stabbed himself in the `chest`, then buried himself too.
+- Lloyd, when we were in principal collins's office, did you see any kind of `chest`?
+- So just get it off your `chest`, then let�s go back upstairs and eat some tiramisu.
+- It came out of his `chest`... a hand with long blades on the fingers... who's `chest`?
+- They'll climb right into your bedroom and sit on your `chest` with big bowie knives.
+- We hear you're a friend of freddie's -- he has i hate opera tattooed on his `chest`.
+- About that `chest`-cutter... major burns will be out of your tent in twenty-four hours.
+- I could cut open your `chest`, sew a dead cat in there and you'd never get an infection.
+- Then it grabbed danny by the head... and it pulled his head right down into his `chest`...
+                 

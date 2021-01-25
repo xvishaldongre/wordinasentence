@@ -1,0 +1,78 @@
+---
+title: "affair in a sentence | affair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "affair"
+---
+- It's not our `affair`.
+- She's having an `affair`.
+- That's not your `affair`.
+- We're having an `affair`.
+- "an `affair` to remember."
+- He was having an `affair`.
+- Private `affair`... wyatt!
+- Are you having an `affair`?
+- It's one big love `affair`.
+- It was a very nice `affair`.
+- Moving is a family `affair`.
+- Oh, that was a big `affair`.
+- I've been having an `affair`.
+- We're not having an `affair`.
+- What the "bowsprit `affair`"?
+- That's none of their `affair`.
+- That was a very nice `affair`.
+- What they do's their `affair`.
+- I think he's having an `affair`.
+- Such a sordid state of `affair`.
+- Oh my god you're having an `affair`.
+- Got a love `affair` with police work.
+- I was having an `affair` with eduard.
+- She wants to have an `affair` with me.
+- So why not tell us about the `affair`?
+- The love `affair` that shocked europe!
+- He and doris... were having an `affair`.
+- Do you think darryl's having an `affair`?
+- Evil, prince charles did have an `affair`.
+- Were you and my father having an `affair`?
+- Gabriela was having an `affair` with eduard.
+- Lombardo had an `affair` with sandra, right?
+- I don't think you could have a real `affair`.
+- Is she having some secret `affair` with josh?
+- No, he's the guy i'm having an `affair` with.
+- Oh, perfect -- a 75 per cent family `affair`.
+- Maybe he was having an `affair` with your mom.
+- But what happened here is none of his `affair`.
+- Apparently they were having an `affair` for years.
+- This is a private `affair`, no audience welcome...
+- That's why you had the `affair` in the first place.
+- I don't think she's having an `affair` with enrique.
+- David thought i was having an `affair`, which i wasn't.
+- I had an `affair` -- are you sure you want to hear this?
+- Being an attorney for you will be a very simple `affair`.
+- The police are the proper people to conduct this `affair`.
+- Someone wants to implicate you in this `affair`, mrs. peel.
+- Well, i suppose i am... actually i knew about the `affair`.
+- But you were having an `affair` with your college professor.
+- I don't think darryl is mature enough to conduct an `affair`.
+- Until you found out he was having an `affair` with your wife.
+- I'm told you had an `affair` with rachel banks four years ago.
+- They had a brief `affair` which israel was the by- product of.
+- Why didn't your brother tell you that nathan was having an `affair`?
+- I do recall it was after an `affair` of the heart had gone sour on him.
+- I now know more about their `affair` than i remember about my marriage.
+- It's what jill sobule wore fame, fortune, an `affair` with hans zimmer.
+- Unless... maybe lombardo's attorney was saving the `affair` for the trial.
+- This is an internal `affair`, a czech `affair`, that you are interfering with.
+- Before that it was called "love `affair` with irene dunne and charles boyer."
+- I think you must have had a love `affair` with her... she had beautiful hands.
+- This `affair` that you're not having, is it not with a man or not with a woman?
+- "`affair`" ... yes, maybe ... if she ... selina ... more facets than vicki, huh?
+- If they were having an `affair` how come that cotton couldn't prove it in court?
+- There's only one dyle connected with this `affair`, mrs. lampert -- that's carson.
+- Last week i was convinced you were having an `affair` with cynthia, i don't know why.
+- Now we come to the architect of this tragic `affair`, captain james tiberius kirk.
+- Mr. salvatore, do you have any proof that you and mrs. windham were having an `affair`?
+- I could have easily assumed that you didn't want to because you were having an `affair`.
+- I mean, i crave this guy... and yet... why... why did i have that `affair` this weekend?
+- A few months before the election, she'd had an `affair` with my best friend dave novotny.
+                 

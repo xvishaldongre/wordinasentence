@@ -1,0 +1,7 @@
+---
+title: "supplicate in a sentence | supplicate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supplicate"
+---
+## Unfortunately, we have no example sentences for supplicate                 

@@ -1,0 +1,107 @@
+---
+title: "running in a sentence | running example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "running"
+---
+- He's `running` scared!
+- I got a tab `running`.
+- I'm `running` so late.
+- `Running` a junk yard.
+- `Running` to the cops.
+- Time is `running` out.
+- We're still `running`.
+- Why are you `running`?
+- W-why is he `running`?
+- You're `running` away.
+- I'm done `running`.
+- Are you `running` away?
+- He's `running` a fever.
+- I am `running` faster!!
+- I'm `running` the show.
+- I'm tired of `running`.
+- Oh, i'm `running` late.
+- `Running`'s not a plan.
+- We're `running` behind.
+- We should be `running`.
+- Where are we `running`?
+- He's `running` the show.
+- I'm `running` late here.
+- I'm `running` this shit.
+- I'm `running` <u>to</u>.
+- `Running` my bath water.
+- `Running` probes at you.
+- What's he `running` for?
+- When you went `running`.
+- Carl, i'm `running` late.
+- I'm not `running` for mr.
+- No `running` on my watch!
+- Now, try a `running` guy.
+- I go `running` down there.
+- I'm `running` out of time.
+- I'm `running` this troupe.
+- Keep your motor `running`.
+- No `running` in the house.
+- `Running` king industries?
+- The time is `running` out.
+- What's the `running` time?
+- Why is she `running` this?
+- I'm already `running` late.
+- It's hard `running` things.
+- It's `running` our records!
+- Mine is `running` a saloon.
+- "`running` me off the road?
+- `Running` me out of harlem.
+- What are you `running` for?
+- Why are you `running` away?
+- About `running`, dying what?
+- I guess to get me `running`.
+- I'm `running` a little late.
+- I'm `running` out of advice.
+- I'm tired of `running` away.
+- Is she `running` treadstone?
+- I've been `running` all day.
+- Roper... who's `running` it?
+- `Running` into the mountain.
+- `Running` out of your mouth.
+- Stop `running` away from it.
+- The blood was `running` out.
+- They're `running` me ragged.
+- Time is `running` out, dana.
+- Vector was `running` a scam.
+- We're `running` out of time!
+- We're `running` out of time.
+- What are you `running` from?
+- What was she `running` from?
+- Where are we `running`, joe?
+- Your days are `running` out.
+- You're not `running`, right?
+- You're `running` out of air.
+- He was `running` like a doll.
+- I'm `running` out of answers.
+- I'm sick of `running` anyway.
+- I'm supposed to be `running`.
+- Kenny'll come `running` back.
+- We are `running` out of time.
+- We can't be up and `running`.
+- Well we're off and `running`.
+- We're `running` kind of late.
+- We're `running` out of hands.
+- You're `running` out of time.
+- You `running` mixture for us?
+- But we'll always be `running`.
+- I'm `running` pretty low on o.
+- I'm tired-a `running` around."
+- I wasn't `running` out on you.
+- No more `running` from spears.
+- `Running` away is no solution.
+- `Running` out of time, are we?
+- The engine is still `running`.
+- Well, i've gotta be `running`.
+- We'll need a search `running`.
+- We're `running` low on hexite.
+- Are you `running` away from me?
+- From what would i be `running`?
+- He's too busy `running` around.
+- I'll come a-`running`, pardner.
+                 

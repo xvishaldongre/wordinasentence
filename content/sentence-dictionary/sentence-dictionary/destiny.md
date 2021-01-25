@@ -1,0 +1,81 @@
+---
+title: "destiny in a sentence | destiny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "destiny"
+---
+- This is our `destiny`.
+- `Destiny` takes a hand.
+- Maybe even my `destiny`.
+- 37 miles to my `destiny`.
+- If that is your `destiny`.
+- I have a `destiny`, too...
+- The green `destiny` sword?
+- You can't cheat `destiny`.
+- You have this -- `destiny`.
+- But not from your `destiny`.
+- I ignored my `destiny` once.
+- The green `destiny` is mine.
+- It's about `destiny`, picard.
+- Masters of our own `destiny`.
+- We are a people of `destiny`.
+- `Destiny` arrives all the same.
+- `Destiny` often seems that way.
+- That is `destiny` fulfilled.
+- ♪ it is my `destiny` ♪ move out!
+- This is fate, this is `destiny`.
+- That, is `destiny` fulfilled.
+- What about craig's `destiny`?
+- Change your `destiny`, peggy sue.
+- It's like manifest `destiny` man.
+- You cannot escape your `destiny`.
+- You want to hear about `destiny`?
+- My `destiny` would be dying at 20.
+- That... is the sound of `destiny`!
+- Change your `destiny` and marry me.
+- You really do believe in `destiny`?
+- Simone does not control my `destiny`.
+- It's alright... this is our `destiny`.
+- You don't deserve the green `destiny`.
+- You will never fulfill your `destiny`.
+- I guess this must be `destiny` alright.
+- We cannot write our `destiny`, macleod.
+- Embrace your `destiny` as a villain.
+- I will grant you the `destiny` you seek.
+- You seem to know all about my `destiny`.
+- This woman -- she controls your `destiny`.
+- You cannot run from your `destiny`, conner.
+- It was on that night karl met his `destiny`.
+- Without the green `destiny`, you are nothing.
+- Why is the green `destiny` in your possession?
+- C'mon, i wouldn't have a `destiny` without you.
+- You will not stand between me and my `destiny`.
+- You really changed the course of your `destiny`.
+- Each of us has a `destiny`, for good or for evil.
+- I like to think i'm a master of my own `destiny`.
+- If that's not `destiny`, i don't know what is.
+- Our `destiny` is linked to the fate of the oceans.
+- Commanding a starship is your first best `destiny`.
+- Never to interfere in the `destiny` of your planet.
+- By the same hand that shift your `destiny` even now.
+- What if this man is my `destiny` and i never meet him?
+- "i want to meet you..." your `destiny` can be your doom.
+- Let's just say we have a `destiny` to fulfil, you and i.
+- But together, we are the masters of our sexual `destiny`!
+- I determine my `destiny`, not some mystical energy field.
+- If you will not fight, then you will meet your `destiny`.
+- If he's my `destiny`, then, obviously, he has to be alive.
+- Could we have altered her `destiny` when we had her arrested?
+- Peace - the dignity of man - the `destiny` of the human spirit!
+- Would be able to breathe... our `destiny`... is out there, john.
+- `Destiny` took us apart, but i knew it would bring us back together.
+- We want the power to determine the `destiny` of our black community."
+- Off the top of my head, i would go with the sense of manifest `destiny`.
+- Once you start down the dark path, forever will it dominate your `destiny`.
+- But if once start down the dark path, forever will it dominate your `destiny`.
+- Because, my son, i am placing in your hands the future and `destiny` of shangri-la.
+- Maybe i can fulfill my `destiny` as a useless bimbo and join the swedish bikini team.
+- When he became king, he was determined to reclaim his `destiny` and find the grail...
+- They're not your friends... they've held you back... kept you from your `destiny`... no.
+- With all your powers, you are content to be ridiculed, laughed at... that is my `destiny`.
+                 

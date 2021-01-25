@@ -1,0 +1,80 @@
+---
+title: "positive in a sentence | positive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "positive"
+---
+- Negative to `positive`.
+- `Positive` saliva match.
+- I'm `positive` he didn't.
+- Systems check `positive`.
+- I'm absolutely `positive`.
+- You `positive` about that?
+- His blood is ab `positive`.
+- Are you `positive` he knows?
+- I told you i was `positive`.
+- Paraffin came up `positive`.
+- Increase `positive` pressure!
+- We're on the `positive` plan.
+- How do you stay so `positive`?
+- I want this show to be `positive`!
+- The `positive` gev's are climbing.
+- You feel bad you tested `positive`?
+- Energy shielding `positive` function.
+- I'm not `positive`... but... he knows.
+- ...i'm `positive` this time... stop...
+- Not even if it's something `positive`?
+- Plus is `positive`, minus is negative!
+- There's only one way to be `positive`.
+- You're `positive` of that, aren't you?
+- Accentuate the `positive`, so to speak.
+- I'm not `positive` this means anything.
+- Two negatives always make a `positive`.
+- A direct hit is a `positive` retirement.
+- I'm `positive` i made the right decision.
+- A lot of reinforcement, mostly `positive`.
+- Are you `positive` this is the right place?
+- In our next segment on `positive` thinking.
+- The room's alive with `positive` vibrations!
+- Yet they forced themselves to be `positive`.
+- If he's rh `positive`, i'll have to terminate.
+- Gosh, didn't he say anything `positive` at all?
+- Isn't there something `positive` you could say.
+- You've tested `positive` for the hiv infection.
+- Are you absolutely `positive` that one at e.s.u.
+- They'll each be `positive` the other guy did it.
+- We could get a `positive` confirmation that way.
+- So far nothing they test for comes up `positive`.
+- What a `positive` note on which to end the class.
+- You're `positive` he said "gate" and not "great"?
+- I'm `positive` he's heading back to the lake area.
+- Well, i ain't `positive`, if that's what you mean.
+- General schmuck, are you `positive` of your figures?
+- My father's o `positive` and my mother...a negative.
+- The virus itself might have `positive` applications.
+- There's no way your birth father can be o `positive`.
+- I want to do something <u>`positive`</u>... ...yes...?
+- Okay then... are you `positive` your mother's a bitch?
+- And, uh, she tested `positive` blood must not have blood.
+- Well, what about the `positive` control, the safety catch?
+- Something with no `positive` value, karen, where's our son?
+- I'm sorry i couldn't come up with something more `positive`.
+- ♪ he'd be `positive` for every sedative ♪ there is no question!
+- One is `positive` and will help you if you learn how to use it.
+- Are they aware of your not so `positive` portrayal of greek life?
+- I'm sure, i'm `positive` it didn't happen the way jack says it did.
+- But i'm not `positive` it's gonna happen tonight -- of course, i do!
+- They have to believe proof-`positive` that their lives are in danger.
+- The work i was supposed to do... might have had some `positive` effect.
+- Being black, is that a `positive` or negative for a bodyguard in mexico?
+- I mean, can you imagine: "your honor, i'm `positive` this man is guilty.
+- So we'd gone out to the hamptons and the garden was in `positive` ruins!
+- There's no way we could generate enough `positive` energy to crack that shell.
+- We're running tests to see if we can get an equally strong `positive` reaction.
+- Now it appears they have a movie and i'm `positive` it's not suitable for children!
+- Seeing as we're using a map without any distances, you're `positive` that was dart?
+- I can't be `positive` that it was used for the break-in but people sure are worried.
+- The north pole is the `positive` end of the biggest magnet of all - the earth itself!
+- I'm `positive` i recognized him -- what an old, old man you're getting to be, francis.
+- Quick, she needs a sitz bath -- "`positive`" you're sure i'm not fat or "`positive`" i'm...
+                 

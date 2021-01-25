@@ -1,0 +1,107 @@
+---
+title: "rest in a sentence | rest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rest"
+---
+- Give it a `rest` yllo.
+- I said all the `rest`.
+- Lancelot, `rest` here.
+- Let's `rest` a minute.
+- The `rest` is history.
+- The `rest` of you out.
+- We `rest`, your honor.
+- What about the `rest`?
+- You just `rest` there.
+- I don't need to `rest`.
+- Just `rest` easy, pete.
+- L... search the `rest`.
+- Soon as i `rest` a bit.
+- Tell me the `rest` now.
+- The `rest` is relative.
+- You two got the `rest`.
+- But the `rest` is right.
+- Give it a `rest`, lyman.
+- I'll get you the `rest`.
+- Now take the `rest` off.
+- The `rest` we just want.
+- What's the `rest` of it?
+- You just need to `rest`.
+- I have to `rest` a while.
+- Jake, you need to `rest`.
+- No `rest` for the wicked.
+- The `rest` of you can go.
+- The `rest` of you do not.
+- We should let him `rest`.
+- Where's the `rest` of it?
+- Why don't we `rest` here?
+- Yeah, where's the `rest`?
+- You do the `rest` for me.
+- You filled in the `rest`.
+- But the `rest` is all wop.
+- Give it a `rest` ned, huh?
+- Jesus... give it a `rest`.
+- Just stay here and `rest`.
+- Like all the `rest` of us.
+- She's going to `rest` now.
+- The `rest` is coincidence.
+- The `rest` weren't so bad.
+- You get some `rest`, okay.
+- You get some `rest`, okay?
+- You just need more `rest`.
+- Can we `rest` for a second?
+- e `rest` of you, inside.
+- Give it a `rest` would you.
+- Just like the `rest` of us.
+- The `rest` is in the volvo.
+- The `rest` is only details.
+- The `rest` of you are free.
+- The `rest` of you continue.
+- You can imagine the `rest`.
+- You should get some `rest`.
+- Do you want to `rest` a bit?
+- For the `rest` of your life.
+- Give you a chance to `rest`.
+- I thought you should `rest`.
+- Just stay in bed and `rest`.
+- Tell them i needed a `rest`.
+- That only leaves the `rest`.
+- The `rest` of their friends.
+- The `rest` of this vacation.
+- The `rest` was just details.
+- We won't disturb her `rest`.
+- Why are the `rest` of us ok?
+- Your mouth needs the `rest`.
+- You've got to let me `rest`!
+- You want the `rest` of this?
+- Enjoy the `rest` of the trip.
+- How did you, know the `rest`?
+- How's the `rest` of the gang?
+- I just remembered the `rest`.
+- I'll take care of the `rest`.
+- Just get some `rest` now, ok?
+- Let my susie `rest` in peace!
+- May his soul `rest` in peace.
+- Not any of the `rest` either.
+- Well the `rest` of us aren't.
+- What about the `rest` of you?
+- Yeah, yeah, i got the `rest`.
+- Your mother, `rest` her soul.
+- Along with the `rest` of it...
+- But the `rest` belongs to you.
+- Come on with the `rest` of it.
+- For the `rest` of their lives?
+- I got her, you get the `rest`.
+- I'll pay the `rest` next trip.
+- I'm trying to get some `rest`?
+- James... ...you should `rest`.
+- Shall i look after the `rest`?
+- She was the `rest` of my life.
+- Sounds like you need a `rest`.
+- The `rest` of you, spread out.
+- Wash off the `rest` of harris.
+- Why don't you get some `rest`?
+- You just sit there and `rest`.
+- You probably need your `rest`.
+- You should go back and `rest`.
+                 

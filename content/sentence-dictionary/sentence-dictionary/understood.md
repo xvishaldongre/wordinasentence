@@ -1,0 +1,85 @@
+---
+title: "understood in a sentence | understood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "understood"
+---
+- Is that `understood`?!
+- `Understood`, my lord.
+- You `understood` them.
+- I want it `understood`.
+- I never `understood` it.
+- I would've `understood`.
+- The man `understood` me.
+- They never `understood`.
+- Is that `understood`...?!
+- I want that `understood`.
+- I thought you `understood`.
+- You never `understood` her.
+- I've never `understood` that.
+- I thought you `understood`....
+- Have i made myself `understood`?
+- She nodded, like she `understood`.
+- I have not `understood` what you means.
+- Well, so is water-skiing, `understood`.
+- Nobody `understood` i had feelings too."
+- But perhaps he `understood` -- of course.
+- Even now, it's not `understood` very well.
+- I'venever `understood` you, you know that?
+- I don't think i ever `understood` lucy.
+- I `understood` him to be a patriot as well.
+- I thought you `understood` what i was doing.
+- You, i thought, `understood` a widow's grief.
+- ...i know...i know... because he `understood`.
+- I never `understood` about you and the red sox.
+- I `understood` when you dropped out of law school.
+- When it comes to the law, nothin' is `understood`.
+- As mark twain fully `understood` satire is the way.
+- Captain marion, i `understood` you to be a patriot.
+- We `understood` there were four people living here.
+- It would be nice if you acted like you `understood`.
+- Never `understood` how a girl that wild got all a's.
+- Sometimes, though, i wish i `understood` you better.
+- If i'm not careful i'll be `understood` by everybody.
+- That at least could be `understood`, if not condoned.
+- Believe me, i wish i'd `understood` what was going on.
+- Look, lindsey, i thought we `understood` each other...
+- I thought that was `understood`... of course i'm crazy.
+- I thought we `understood` that discretion is paramount.
+- I don't want anyone going anywhere outside, `understood`?
+- I've merely come to oversee your work here; `understood`?
+- So keep your head about you--the lot of you--`understood`?
+- I never `understood` how anyone could take it so seriously.
+- It appears that our message has been `understood`, captain.
+- Well, i thought you `understood` and i was just missing it.
+- I never `understood` why anyone would want to go into space.
+- Look, i doubt that she even `understood` what she was saying.
+- My parents said they `understood`, i work here in the summer.
+- But they `understood` our messages; they broke off the attack.
+- Gorkon had to die before i `understood` how prejudiced i was...
+- He looked at me and `understood` me, he knew exactly who i was.
+- You wouldn't have `understood`, even if i had tried to explain.
+- I never really `understood` what it was until after he was gone.
+- Honestly, i have never `understood` vulcan mysticism -- i'm sorry!
+- He said he `understood`, but i could see in his eyes that he didn't.
+- I thought you could understand me the way you `understood` the others.
+- `Understood`- you realize now you could never have done it without me.
+- I never `understood` why they had to give you that brain tumor so soon.
+- Vandamm: i've always `understood` you were a shrewd fellow at your job.
+- But then, with time, i `understood` what he said...and your silence too.
+- He never `understood` why but thought it was because she had no children.
+- Galaxies, the universe, whatnot... she always `understood` all that stuff.
+- Well, until we know exactly what it is, nobody goes outside, `understood`?
+- For a moment that night i `understood` how she came to pull the trigger.
+- I just got a dial tone-- i don't think he `understood` what you were saying.
+- Yeah, well, if we'd `understood` we could have invented some kind of excuse.
+- But alfredo didn't betray you, he was the only one who really `understood` you.
+- He `understood` how most people don't want their sugar and salt in the same jar.
+- `Understood`, but before you go, it has the best view of the moon i'm not afraid.
+- You try to be fair to people, they walk out the door; i've never `understood` that.
+- I tried to explain that to reverend mother, but -- i don't know if she `understood`.
+- I `understood`; i saw where they were leading and i suppose that it just made sense.
+- Today i `understood` for the very first time that -- that 50 g could help you -- yeah.
+- I'm your superior officer and you will do as i goddamn well say, is that `understood`?!?
+- You all made me feel `understood` and supported, i heard you tell bellamy you're leaving.
+                 

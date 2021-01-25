@@ -1,0 +1,55 @@
+---
+title: "Boston in a sentence | Boston example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Boston"
+---
+- But that was in `boston`.
+- My wife is from `boston`.
+- I've got to go to `boston`.
+- It's `boston`, mr. mayflower.
+- Mainly i work out of `boston`.
+- She wanted to move to `boston`.
+- Went to my mother's in `boston`.
+- Not far from here, south `boston`.
+- You've never been out of `boston`.
+- I've got to fly to `boston` tomorrow.
+- I think we just found our `boston` rob.
+- I think i can make it to south `boston`.
+- Y'know you `boston` cops are perking up.
+- The `boston` strangler, when was that...?
+- What brings you down from `boston`, jake?
+- The british army is barricaded in `boston`.
+- Hancock acts, he led the `boston` tea party!
+- Here and there like `boston`, chicago, houston?
+- What's this about the `boston` strangler, m.j.?
+- But the `boston` globe critic jay carr hated it.
+- You'd have wound up a senior citizen of `boston`.
+- You're not here from the `boston` globe, are you?
+- Don't tell me `boston` is different from new york.
+- I've got a friend in the `boston` police department.
+- No, she flew up to `boston` for another charity event.
+- On august 11th, you stayed at the statler in `boston`.
+- I grew up in south `boston`, more or less on the streets.
+- I mean he murdered someone and did time back in `boston`.
+- We'll go next weekend and -- come up to `boston` with me?
+- I got offices in detroit, miami, `boston`, take your pick.
+- "it looked extremely rocky for the `boston` nine that day."
+- For god's sake -- it's the `boston` strangler, alber desalvo.
+- I went to college in `boston` so i could be near the red sox.
+- The way we figure it, barbara flies to `boston` twice a week.
+- Why i've played every theatre from `boston` to san francisco.
+- I just found out i have to go to `boston` to get a deposition.
+- To get somebody from a `boston` hospital to say he'll testify?
+- Good day, mister adams... george, what's the word from `boston`?
+- Those guys i worked with back in `boston`, they were a bad influence.
+- Inspector, will you confirm somebody is copying the `boston` strangler?
+- Remember, al... we'll be at the ritz-carlton in `boston` tomorrow night!
+- Well, there's that guy in `boston` that's supposed to be... clarke, he's right.
+- We'll get those new routes to pittsburgh and `boston` and the equipment we need.
+- August the 29th, george kaplan of `boston` registered at the whittier in detroit.
+- `Boston` tea party clam chowder, or maybe the chicken red, white and cordon bleu?
+- "an internship and two years of training at the `boston` lying-in, south end branch.
+- The `boston`... have computer search for anyone that's used that opening against me.
+- He did three as the `boston` strangler just to tell us a copycat serial killer was at work.
+                 

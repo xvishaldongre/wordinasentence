@@ -1,0 +1,107 @@
+---
+title: "written in a sentence | written example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "written"
+---
+- 'bout `written` you off.
+- I have not `written` it!
+- Where is that `written`?
+- Too late, it's `written`.
+- I got it all `written` up.
+- It's real well- `written`.
+- It was `written` in blood.
+- `Written` anything lately?
+- `Written` by our students.
+- I have `written` it myself.
+- It's `written` all over it.
+- You haven't `written` a word.
+- I said he hadn't `written` me.
+- I've never `written` any down.
+- It's `written` in first person.
+- But it's not `written` in stone.
+- Hasn't `written` a letter since.
+- I thought it was well-`written`.
+- It's `written` on toilet tissue.
+- I've `written` their names down.
+- She's `written` sixty-five songs.
+- So what books have you `written`?
+- This episode was badly `written`!
+- Have you `written` that name down?
+- It's the best opera yet `written`.
+- It's `written` in flesh and blood.
+- I've got it `written` out, though.
+- Second offence: `written` warning.
+- History is `written` by the victor.
+- What's that, `written` on the sail?
+- He's `written` a kill-and-tell book.
+- History is `written` by the victors.
+- The greed is `written` on your face.
+- But you haven't `written` your novel.
+- It's all `written` down in the notes.
+- "or in `written` or electronic form."
+- A different one you haven't `written`?
+- 'cause i, i have `written` some things.
+- I don't care what else she's `written`.
+- She's got bitch `written` all over her!
+- When were the sacred scrolls `written`?
+- I've got it all `written` down for you.
+- So it is `written`, so shall it be done.
+- "the 100 greatest books ever `written`."
+- I have `written` repeatedly to mrs. redi.
+- It was `written` before i went out there.
+- I've never `written` about myself before.
+- Shoulda `written` to that magazine, rudy.
+- The script was `written` by some new guy.
+- You haven't called, you haven't `written`.
+- It'll be `written` out and you'll learn it.
+- She had `written` him many letters of love.
+- Paul, what you've `written` just isn't fair.
+- The greatest yarn ever `written` by anybody.
+- You have `written` pictures, haven't you?
+- It's `written` all over you like a neon sign.
+- Shoulda `written`, rudy... mornin', gorgeous.
+- Your hair `written` by clementine kruczynski.
+- That was `written` by mr ludwig van beethoven.
+- I know that you haven't `written` for ten years.
+- I should like people to read what i've `written`.
+- My name has been `written` into the book of death.
+- A lot of nonsense is talked and `written` about it.
+- I would never miss anything that you had `written`.
+- Look at what's `written` about unlocking the stone.
+- Not just the finished book, but how it's `written`.
+- Their `written` language has no form or no direction.
+- It's supposed to be the word of god `written` in fire.
+- Almost as if it were being `written` especially for us.
+- Do you not see the "closed" sign `written` in wakandan?
+- That the bride and groom have `written` their own vows.
+- You haven't `written` a fucking word since you started.
+- My own undercover feature - "`written` by josie geller".
+- What if you can't read what's `written` on there anymore?
+- ♪ `written` on the pages is ♪ something hungry for blood.
+- The point is, mr. odets here has `written` a wonderful play.
+- Well, there's a pirate in truth, i have not `written` a word.
+- Here's the speech you make�and it's all `written` out for you.
+- Paul, this is positively the best misery you've ever `written`.
+- She has admitted to her evil and signed a `written` confession.
+- Then he shouldn't have `written` such a long poem, mr. lawford.
+- Give us a `written` statement, mathieu, and then we'll surrender.
+- Start with the bible; it's cheerier, and more artfully `written`.
+- But... but this man is a christian and he has `written` -- "hell!"
+- He hasn't called, he's hardly `written`, just these cryptic notes.
+- Fortune tellers, nuts, every crank in the country has `written` me.
+- That is not what is `written` in the evidence... look for yourself!
+- Every one of them it's `written` on their face, 'this is a sham.
+- Every one of them it's `written` on their face, `this is a sham.
+- ♪ stem, 'cause the future is `written` in code ♪ or we're both dead.
+- Till he fucked his parole -- we musta `written` what, twenty of 'em?
+- Do you ever read something and feel like it's `written` just for you?
+- The implication being that i have not been reading them as `written`.
+- Did you know that's `written` in the constitution of the united states?
+- After all you've said... don't you know the part was `written` for margo?
+- Think, reggie -- please think -- what was `written` in charles' notebook?
+- I bet he hasn't read a single report we've `written` on the waste problem.
+- I know what ought to be `written`, but i can't write it the way you could.
+- Come on, diz, get that stuff you've `written`--let me have it-- not a word!
+- Everything people have `written` about in science books is going to change.
+                 

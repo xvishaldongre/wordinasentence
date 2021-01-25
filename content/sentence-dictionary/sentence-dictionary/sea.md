@@ -1,0 +1,107 @@
+---
+title: "sea in a sentence | sea example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sea"
+---
+- I come from the `sea`.
+- "the great dark `sea`.
+- You were out at `sea`!
+- Dropped into the `sea`!
+- That's my `sea` anchor.
+- You we're lost at `sea`.
+- I'm not from the `sea`...
+- It was just a `sea`-gull.
+- `Sea` snakes are diurnal.
+- We'll drown her at `sea`.
+- With a view of the `sea`.
+- It's further to the `sea`.
+- We're almost to the `sea`.
+- That `sea` captain guy.
+- Caught a mess a `sea` runs.
+- They're mutated `sea` bass.
+- You said the `sea` is gone.
+- Got to fix the `sea` anchor.
+- How about "under the `sea`?"
+- The `sea` route will take 6.
+- Unwritten rule of the `sea`.
+- Welcome to `sea` world, kid.
+- I'm a kraken from the `sea`!"
+- It's on the `sea` dolphin ii.
+- The country across the `sea`.
+- I've never seen `sea` so blue.
+- Looks like the `sea`, at dawn.
+- Rowan we're below `sea` level.
+- The sky, the sun, the `sea`...
+- Plenty of bitches in the `sea`.
+- We'll lunch at the `sea` shore.
+- You can't take the `sea` route.
+- The `sea`-gull is a lovely bird.
+- We could be at `sea` for months.
+- He's got a `sea` daddy somewhere.
+- He was a hero in the china `sea`.
+- "victory at `sea`," al ... henry.
+- I've been to `sea` since i was 12.
+- I can `sea` its breath in the cold.
+- Jacques is a creature of the `sea`.
+- Just toots around the inland `sea`.
+- One if by land--two if by `sea`!...
+- One lonely, terrifying `sea` snake.
+- The `sea` is lovely, dark and deep.
+- The `sea` is the woman in his life.
+- Chart course to the eastern `sea`.
+- Down the hatch - as we say at `sea`.
+- Well, i'll be a son of a `sea` cook!
+- What the `sea` used to look like.
+- That's cause we're below `sea` level.
+- Fresh `sea` urchin wrapped in seaweed.
+- What do you know of the caspian `sea`?
+- The fog was the ghost of the `sea`.
+- More food for the `sea` monster, right?
+- Mutated, ill-tempered `sea` bass it is.
+- From here, we go south to the red `sea`.
+- I think it must have been a `sea`- gull.
+- We're not safe until we cross the `sea`.
+- I'm just getting my `sea` legs, you know.
+- Most valuable animal since `sea` biscuit.
+- She can't stand to be away from the `sea`.
+- Dogs can't make it 1000 miles to the `sea`.
+- Over the fish of the `sea`, where are they?
+- Go deep `sea` fishing in the gulf of mexico.
+- Hence the ima record of being lost at `sea`.
+- If i don't have a `sea` anchor i'll capsize.
+- I have a school project on... `sea` turtles.
+- The `sea` and i don't agree with each other.
+- Which mariners called the `sea` of darkness.
+- Why would we-- we're not watching the `sea`.
+- It empties into a `sea` some miles from here.
+- Well, that's how long i've been out at `sea`.
+- Give me revs for maximum speed at `sea` level.
+- It's a veddy small island in de caspian `sea`.
+- The jit has assets on land, air, and `sea`.
+- Aye, sir... three-one-zero to the bering `sea`.
+- But i heard it is no more than a week at `sea`.
+- Didn't he go to `sea` before he wrote about it?
+- Gillian... would the whales be at `sea` by now?
+- What's a `sea`-gull doing around the city hall?
+- Every little nibbler in the `sea`'s taken a bite.
+- I've had many... when the `sea` doesn't want you.
+- It's where life first crawled up out of the `sea`.
+- This bitch put a goddamn `sea` monster in my bunk!
+- I took him out to `sea` and threw him in the water.
+- Like dad says, there's plenty of fish in the `sea`.
+- Others will be elephants or creatures of the `sea`.
+- Use the sail for a `sea` anchor and you won't move.
+- Does yengeese major have property across salt `sea`?
+- How can you help feeling bad when you're `sea`-sick?
+- We'll be drinkin' margaritas by the `sea`, mamasita.
+- This must be our professor from across the `sea`.
+- I am sir lancelot of the lake, from across the `sea`.
+- Also, i don't like the smell of the `sea` around here.
+- It's my job -- protein, plankton, grass from the `sea`.
+- But the rest of the plasma's very much like `sea` water.
+- He raked the `sea` with it and stirred up the big waves.
+- The `sea` water seeped into carl's watch and stopped it.
+- Fish and plankton, `sea` greens and protein from the `sea`.
+- She be a water spirit, lives in a bog down at `sea`-side.
+                 

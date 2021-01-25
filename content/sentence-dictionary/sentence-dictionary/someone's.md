@@ -1,0 +1,107 @@
+---
+title: "someone's in a sentence | someone's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "someone's"
+---
+- He thinks `someone's` .
+- `someone's` back there.
+- `someone's` in the way.
+- `someone's` chasing him.
+- `someone's` following me.
+- `someone's` gonna see us.
+- `someone's` got that job.
+- `someone's` got to do it.
+- Changing `someone's` mind.
+- `someone's` been murdered.
+- `someone's` still in here.
+- "oh, `someone's` watching."
+- `someone's` coming through.
+- Hey, `someone's` down there.
+- It was `someone's` birthday.
+- `someone's` looking for you.
+- I think `someone's` watching.
+- `someone's` alive down there.
+- `someone's` brother, charles?
+- `someone's` gonna solve that?
+- `someone's` playing hardball.
+- You bit `someone's` nose off?
+- `someone's` loaning it to him.
+- `someone's` shut off my money!
+- Okay, `someone's` expecting us.
+- `someone's` covering somethin'.
+- `someone's` gonna pay for it!
+- `someone's` got to do it, henryk.
+- Well `someone's` gonna find them.
+- I want to see if `someone's` here.
+- Now we know `someone's` out there.
+- `someone's` playing a prank on me!
+- Yes, `someone's` got to feed them.
+- Could be `someone's` missin' maybe.
+- I think `someone's` fucking with me.
+- I think `someone's` gunning for you.
+- It was `someone's` fault, wasn't it?
+- Maybe... because `someone's` afraid.
+- `someone's` bringing in a kitten...?
+- `someone's` got to send the gold up.
+- `someone's` made themselves at home.
+- `someone's` called it a stone before.
+- To shine a light in `someone's` face?
+- Wind up `someone's` luggage that way.
+- Then `someone's` trying to set him up.
+- `someone's` got to suck out the bullet.
+- It appears `someone's` been lying to us.
+- `someone's` been doing all these things.
+- `someone's` been talking to harvey dent.
+- `someone's` got to feed them, i suppose.
+- Never play with `someone's` else's cards.
+- `someone's` going to find him eventually.
+- `someone's` pulling your chain, as usual.
+- That means `someone's` down there, right?
+- She thinks `someone's` trying to kill you.
+- Yeah, don't talk in `someone's` backswing.
+- Maybe, but `someone's` got to make a stand.
+- `someone's` got to keep her out of trouble.
+- Oh g-d, i'm gonna be `someone's` bald bitch!
+- `someone's` coming to take buzz away from me.
+- `someone's` picking up where jethro left off!
+- Wendell can smell if `someone's` been smoking.
+- You think `someone's` gonna make a house call?
+- I feel it, too...`someone's` trying to get out.
+- Like, because `someone's` holding a gun on you.
+- Might find `someone's` prick in a hot-dog roll.
+- Every battle plan is perfect `someone's` coming.
+- Sounds as if `someone's` hijacked your research.
+- `someone's` gonna have to nurse him through this.
+- It's the best way to see if `someone's` breathing.
+- Jesus, `someone's` going to make a believer out of me.
+- Seems like my whole life `someone's` been telling me...
+- Shit, now `someone's` gotta climb down there and get him.
+- That means officer friendly here is `someone's` property.
+- Big part of loving `someone's` being able to forgive them.
+- `someone's` gonna need to amend that, and stop saying that.
+- You're saying `someone's` trying to keep us on the farm...?
+- `someone's` putting their initials beside the weekly totals.
+- You have to think between `someone's` life and a chess game?
+- I've never seen `someone's` image change so...so drastically!
+- I always try to find something worthwhile in `someone's` death.
+- We wouldn't want `someone's` death to interfere with your games.
+- Stay near the house, for christ's sake- `someone's` killing people.
+- When one shows itself to a sioux... it means `someone's` gonna die.
+- It's like looking in `someone's` diary and taking it out of context.
+- `someone's` dead and all he cares about is his superstition exhibit.
+- `someone's` trying to destroy my life, and i'd like to find out who.
+- Wow, `someone's` been actually doing her geometry homework for once!
+- You know, as soon as i'm gone... `someone's` going to take my place.
+- It's rude not to eat when you're a guest in `someone's` home, clarke.
+- Where `someone's` handwriting doesn't tell me something i need to know.
+- He was `someone's` son, to be the last outpost of humanity in the universe.
+- Just because `someone's` looking for a nice guy doesn't make them desperate.
+- `someone's` mixing up a bunch of half-truths to ruin me and to ruin my case.
+- The problem is, you only see me as your mother, and not as `someone's` wife.
+- You know how, like they say, you save `someone's` life, you responsible for them.
+- `someone's` trying to scare us out of having this fair ... and it's not gonna work.
+- Medicaid, aarp discounts, godzilla's nephew godzooky, `someone's` about to go viral.
+- `someone's` gotta clean that up... why would i ever be angry with you, little friend?
+- You pride yourself on knowing when `someone's` lying to you, not telling you the truth.
+                 

@@ -1,0 +1,85 @@
+---
+title: "opens in a sentence | opens example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opens"
+---
+- [door `opens`] it burns!
+- [door `opens`] kill her.
+- [door `opens`] you're mean.
+- The second that door `opens`.
+- Yeah, if it `opens` the door.
+- It `opens` at 9 a.m. be there!
+- at `opens` the poppet valve.
+- [door `opens`] hello, clarke.
+- [door `opens`] - of the guitar?
+- [door `opens`] - right this way.
+- `Opens` up with the machine gun.
+- [door `opens`] i didn't want them.
+- It `opens` in nine weeks in tulsa.
+- This `opens` the gates of babylon.
+- Till this `opens`, not our wedding.
+- Coughing `opens` up the capillaries.
+- Frankie `opens` them with his teeth.
+- Let me know when your movie `opens`.
+- The hatch only `opens` - oh... whoa!
+- When the door `opens`, kill them all.
+- Probably `opens` up outside somewhere.
+- Monday morning, that's when it `opens`.
+- Who thinks before he `opens` his mouth.
+- Gets the wind every time it `opens`.
+- Dentist's office `opens` in five... yeah.
+- Then one day someone `opens` the door.
+- Hours, the door `opens` up, at the bottom.
+- On impact it all `opens` up in the target.
+- Sarek `opens` his eyes, removes his hands.
+- Yeah well wait till mom `opens` her mouth.
+- What happens to you when that door `opens`?
+- [door `opens`] and something weird happened.
+- They'll be dead the moment the door `opens`.
+- [airlock door `opens`] - that can't be right.
+- [door `opens`] really, and about your family.
+- We still have hours before the store `opens`.
+- [door `opens`] may god have mercy on his soul.
+- The earth just `opens` up and swallows people.
+- The place we stashed it `opens` monday morning.
+- [door `opens`] oh, you selfish little gangsters.
+- Who takes you places, `opens` things up for you.
+- But it `opens` onto the sheer wall of the needle.
+- It `opens` some doors and it doesn't open others.
+- Anyone who tries to stop that [door `opens`] don't.
+- [door `opens`] i don't know, he's way out of range.
+- [door `opens`] you think they have engine troubles?
+- [door `opens`] and that part is my body and my head.
+- Next time that door `opens`, we gotta attack, right?
+- Receiving no response, he gingerly `opens` the door.
+- Levitt helped her with something, [door `opens`] huh.
+- Listen, the xerox place `opens` in, like, 30 minutes.
+- Our curtain `opens` on sun-drenched fields not before.
+- You try another door and it `opens`, then it's for you.
+- [hatch `opens`] i told you my spirit would choose wisely.
+- Exfil `opens` the pocket -- -- cyber ops lifts the wallet.
+- Ok. next time this door `opens`, we attack from each side.
+- That's what the clowns here drink before the tent `opens`.
+- All right... lemme see... okay, new burger king `opens` up.
+- Door `opens` and a crowd of cameramen and reporters rush in.
+- Sort of `opens` up the neurological floodgates, so to speak.
+- He touches kirk with gentleness as jim recovers, `opens` his eyes.
+- It don't matter if i lose... don't matter if he `opens` my head...
+- Raven, since you can't ride, and look, it even `opens` and closes.
+- [door `opens`] madi, i know that this is our home, is to try drugs.
+- ♪ i've got a fever ♪ you're ruling raven: be ready when it `opens`.
+- ...it just goes to show, when one door slams shut, another one `opens`.
+- [door `opens`] you know, this whole helpful guide act, i dare you not to.
+- [door `opens`] shout-out to my crew, hedgehog, thin mint, and white malik.
+- I don't know why, but every time he `opens` his mouth i want to punch him out.
+- I want your guarantee they'll be turned loose when she `opens` the front door.
+- If it launes, the ark will be crippled, when the door `opens`, kill them all.
+- They want to go tonight, before glenn gets in any trouble, `opens` his big mouth.
+- Sheila grabs the bottle from junior, `opens` it and pours some on her shish kebab.
+- Then someone comes along and `opens` the door...and it's never monday night again...
+- There's a program on it which `opens` the back door sweep the village and the woods.
+- Time lock `opens` 20 minutes before they start doing business... what about the vault?
+- In addition to supplies, [door `opens`] the natblidas have begun the purification ritual.
+- Now make a right, you'll see a doorway that `opens` on the central manufacturing facility.
+                 

@@ -1,0 +1,107 @@
+---
+title: "um in a sentence | um example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "um"
+---
+- I'm sorry... `um`... ?
+- That satan... `um` hm.
+- `Um`...i'm just antsy.
+- `Um`, may i interject?
+- `Um` -- not right now.
+- `Um`, too many people?
+- `Um`, yeah i think so.
+- And, `um` ...i guess...
+- `Um`, it's nice, right?
+- `Um`...i've got to run.
+- `Um`... yeah, ok. sure.
+- `Um`... y'know... yeah.
+- Yeah, `um`, good night.
+- `Um`, he's sleeping now.
+- `Um`, how's senior year?
+- `Um`, nothing, let's go?
+- I just, `um`... children!
+- This is, `um`... - honey.
+- `Um`, let me take a look.
+- `Um`, save me a seat, ok?
+- `Um`, shouldn't you know?
+- `Um`... `um`, i'm so sorry.
+- `Um`, `um`, yeah, probably.
+- `Um`... - what's in this?
+- `Um`, where are we going?
+- `Um`, yeah sure, i guess.
+- Hey, guys, `um`, surprise.
+- Ok. `um`, no, y'know what?
+- The last few days, `um`...
+- `Um`... give me some jams.
+- `Um`, it's not gonna work.
+- `Um`, just about everyone.
+- `Um`... she said his name.
+- `Um`, thank you very much.
+- `Um`, to the headmistress.
+- I got to ... `um` ... what?
+- There... `um`, there's tea.
+- `Um`, eh, i don't think so.
+- `Um`, hi, i'm ted peloquin.
+- `Um`, i'm gonna need a bag.
+- `Um`... look for survivors.
+- `Um`... sort of... maybe...
+- `Um`, well, my name's mike.
+- `Um`, well, what'd she say?
+- Yeah, we just, `um`... huh?
+- _ - you look, `um`, rested.
+- You should, `um`, see this.
+- I know, i just, `um`... why?
+- Oh, `um`... you remember me?
+- So, `um`...how was your day?
+- Uh, so, `um`... you'll come?
+- `Um`, i'm happy you're home.
+- `Um`... you know, that's it.
+- `Um`, you need to calm down.
+- Well, `um`, where's octavia?
+- What, `um`... what do we do?
+- Hi, it's, `um`... it's nancy.
+- Oh, `um`, like famous quotes.
+- `Um`, he ain't much of a man.
+- `Um`, i'm sorry, and you are?
+- `Um`... seventy... something.
+- `Um`... that's very relaxing.
+- `Um`, this one's my favorite.
+- `Um`, how would you know that?
+- `Um`... like he means nothing.
+- `Um`-<u>hum</u> ... instantly.
+- `Um`, yeah, thirty miles east.
+- `Um`, you need help with that?
+- I have to ask you these...`um`.
+- I'm `um`, i'm glad you came by.
+- It's, `um`... well, you'll see.
+- Oh, `um` -- he's a new student.
+- Shall we, `um`, stick together?
+- `Um`... can dad come this time?
+- `Um`, i am, uh, you know, will!
+- `Um`, it's probably a bad idea.
+- `Um`, then you're no use to me.
+- `Um`, i guess -- they'll notice.
+- `Um`, i'm not touching anything.
+- `Um`, i'm ten, you bald bastard!
+- `Um`, that's not how trees work.
+- `Um`... well, put it this way...
+- Can i... `um`... have some water?
+- I need to... `um`... talk to you.
+- I `um`... no, i don't think so...
+- Oh, `um`, it's called a car tail.
+- Oh, `um`, no, i haven't seen her.
+- Oh, `um`, that's, `um`... ooh, ooh.
+- There's... somebody who's `um`...
+- `Um`, i like what you're wearing.
+- `Um`, i'm in my bedroom with dad.
+- `Um`, it does say miami, florida.
+- `Um`... yeah but it's more... oh.
+- Yeah...`um`...so anyway, tell me.
+- Yeah, `um`, then...are you alone?
+- You want to, `um`... - i'm sorry.
+- I just wanted to say that, `um`...
+- ♪ i say ♪ `um`... perchloric acid.
+- I wanted to say, you know, `um`...
+- `Um` ... outside of pleasantville.
+                 

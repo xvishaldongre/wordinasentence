@@ -1,0 +1,55 @@
+---
+title: "crimes in a sentence | crimes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crimes"
+---
+- Are capital `crimes`, uhh!
+- I committed no war `crimes`.
+- Their `crimes` go beyond anders.
+- Those are serious `crimes`, abby.
+- You're pardoned for your `crimes`.
+- ...on the stuff involving `crimes`.
+- I want you back in computer `crimes`.
+- To justify your `crimes`, lock it up.
+- They say they'll forgive your `crimes`.
+- `Crimes` we don't even know *is* `crimes`.
+- A lot of `crimes` go unreported, unknown.
+- Because all `crimes` it's pretty cool, huh?
+- We simply make them pay for their `crimes`.
+- Did frank tell you to commit these `crimes`?
+- Like recognizing criminals by their `crimes`.
+- I wished to be reinstated at computer `crimes`.
+- They're not impersonal `crimes` against people.
+- 'snatch them up and put on a war `crimes` trial.
+- To be pardoned of his `crimes` you can see this.
+- Each of you has committed `crimes` against wonkru.
+- It's like recognizing criminals by their `crimes`.
+- Prostitution and gambling are victimless `crimes`.
+- Wiping out my people for the `crimes` of a few sir.
+- Violent `crimes`... and i saw every known depravity.
+- I write and i used to lecture on these `crimes`, but...
+- Don't let them suffer for my `crimes`, get them out of here.
+- To perpetuate such creatures is to celebrate their `crimes`.
+- But the rest of you will burn at the stake for your `crimes`.
+- You don't actually think they're gonna forgive your `crimes`.
+- Wiping out my people for the `crimes` of a few is not justice.
+- We can't keep up with the `crimes` in the parish as it is, chief.
+- Each of these 4 combatants have committed `crimes` against wonkru.
+- Many are involved in `crimes` and confiscated... or just abandoned.
+- I understand he practices the very `crimes` he preaches in his fiction.
+- For the `crimes` of treason, how do you go on after you lose everything?
+- You can't go around pinning `crimes` on people just because they� maybe.
+- Because your `crimes` were committed to save your people, how do you feel?
+- Frankly, we're sending you because your `crimes` a lot faster with a motor.
+- Top five musical `crimes` perpetrated by stevie wonder in the '80's and '90's.
+- Considering you pray to garbage, each of these `crimes` is punishable by death.
+- Does their faith in the `crimes` julia will stay with you until you are a dancer.
+- He was there in the storm... gloating over his `crimes`... challenging me to come.
+- But doesn't the son of sam law prevent criminals from profiting from their `crimes`?
+- Yeah, i'm `crimes` against persons and property now, also sex `crimes` and child abuse.
+- If my reporting agent could be someone outside computer `crimes`, perhaps agent kulok?
+- After the hostilities are ended, there will be such a thing as a war `crimes` commission.
+- Each of you have committed `crimes` against wonkru, your heart shows no sign of weakness.
+- Those capitalist dogs will finally pay for their `crimes` against the people, hey comrades?
+                 

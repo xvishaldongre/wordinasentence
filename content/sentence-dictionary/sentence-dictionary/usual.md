@@ -1,0 +1,107 @@
+---
+title: "usual in a sentence | usual example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "usual"
+---
+- Business as `usual`...
+- It's our `usual` form.
+- Oh, the `usual` thing.
+- The `usual` prospects.
+- The `usual`, you know.
+- Not in the `usual` way.
+- As `usual` you're wrong.
+- Oh, the `usual` reasons.
+- Your `usual` table, sir?
+- I need more than `usual`.
+- It's the same as `usual`.
+- It's the `usual` anxiety.
+- No finlandia, as `usual`.
+- The `usual` ten per cent?
+- You're right, as `usual`.
+- Oh, you know, the `usual`.
+- I'm after news, as `usual`.
+- Plus the `usual` fifty cash.
+- The `usual` -- a girlfriend.
+- You're quicker than `usual`.
+- I gather he's late as `usual`.
+- Tom prinze, tanked as `usual`.
+- Dispatches, as `usual`, at two.
+- He's fallen asleep, as `usual`.
+- Seven o'clock, same as `usual`.
+- So let's call this the `usual`.
+- You will lose less than `usual`.
+- Guess i'll just have the `usual`.
+- Everything as `usual`, mr. farmer.
+- Okay...same as `usual`... goodbye.
+- Nothing but the `usual` argument...
+- That's the `usual` thing, isn't it?
+- You said the `usual`-- what's this?
+- Not the `usual` swiss procedure, mr.
+- This is not my `usual` friday night!
+- What is it, howard, the `usual` crap?
+- I'm already way over my `usual` limit.
+- The `usual`... no more than the `usual`.
+- You look a little whiter than `usual`.
+- I'll shoot your dog... all the `usual`.
+- These taste better than `usual`, right?
+- Well, you get to say, the `usual`, col.
+- As `usual`, i don't have anything to do.
+- I'll just shitkick in my `usual` way.
+- As `usual`, you want everything your way.
+- Someone's pulling your chain, as `usual`.
+- He went off, as `usual`, toward his house.
+- Just worrying about my boys -- as `usual`.
+- Better than the `usual` soaps you bring me.
+- Brevity is even more in order than `usual`.
+- Zipping through my inheritance per `usual`?
+- Quite a bit more rain than `usual` this year.
+- Jack, you're not the `usual` type we get here.
+- Mitch, is... mitch, this isn't `usual`, is it?
+- We just want the `usual` blessings, that's all.
+- You go home as `usual`--five o'clock every day.
+- You're not your `usual` chatty self today, kane.
+- But, as `usual`, it will not go well for... them.
+- Doing his homework in the morning as per `usual`.
+- Tell them to send flowers to the `usual` address.
+- `Usual`: boy meets girl, girl meets bank account.
+- Doing his homework in the morning, as per `usual`.
+- I just, you seem a little more quiet than `usual`.
+- I was just running off at the mouth... as `usual`.
+- Oh, you know, the `usual`... keeping the world safe.
+- We just don't have as much time for them as `usual`.
+- I am tired of this `usual` type of entertainment.
+- Give debra here another drink, and give me the `usual`.
+- More than the `usual` number of scrapes, but now i can.
+- Hello there, you sound younger than our `usual` callers.
+- I'll have the `usual` trouble with annie in bed tonight.
+- Suits, underwear, 100 million dollars...the `usual` stuff.
+- My `usual` fee, plus a bonus if i come up with any results.
+- I knew i'd come all the way here and be shut out as `usual`!
+- I see the `usual` gang of misfits and dope addicts are here.
+- As `usual` no one believed me... don't be so modest, ben.
+- 'cause i think he's thinking a lot more clearly than `usual`.
+- It's `usual` for the guests who come here for the first time.
+- The `usual` investigation turns up nothing more times than not.
+- But you only did a couple of miles instead of your `usual` five.
+- He's a tough case, but i want him treated in the `usual` manner.
+- The `usual` stuff that happens when people stumble on a fortune.
+- I figure, for this information, the `usual` payment... times ten.
+- Oh, the `usual` things... did he say anything about me - tell me?
+- I assume in my `usual` charming manner i've just insulted the host.
+- You mean you don't want the `usual` day and a half to think it over?
+- Aren't you peddling your wares a little far from your `usual` gutter?
+- The `usual` motivation doesn't apply to him, nor the way he uses them.
+- When the turks rolled in they raped, they pillaged, the `usual` stuff.
+- Then dolores drove on and turned onto the marlowe road, as `usual`.
+- As `usual`, that keen mind of yours has pegged the situation perfectly.
+- Electra -- i'll make my `usual` arrangements and expect my `usual` bonus.
+- I made sir william cosgrove's acquaintance as `usual` at the play- table.
+- I own a-- it's all set up... ghost phones and fax, all the `usual` stuff.
+- Your name was mentioned, the word's got thru to me by the `usual` channels.
+- Let's try to move beyond the `usual` prisoner-interrogator banter, shall we?
+- It really isn't the `usual` procedure... yeah, but i don't give a shit about.
+- You'll all be killed and in a few weeks they'll be back to business as `usual`.
+- Well, say, buddy, is that the `usual` pro-cedure for those group ther'py shindigs?
+- Lois, i don't have the vaguest idea -- as `usual` -- what you're -- and you weren't.
+                 

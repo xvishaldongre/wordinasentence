@@ -1,0 +1,78 @@
+---
+title: "mistakes in a sentence | mistakes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mistakes"
+---
+- People make `mistakes`.
+- We all make `mistakes`.
+- Did she make `mistakes`?
+- Have we made `mistakes`?
+- We don't make `mistakes`.
+- `Mistakes` are forgivable.
+- On their worst `mistakes`.
+- We've all made `mistakes`.
+- Everybody makes `mistakes`.
+- Hey, we all make `mistakes`.
+- And make the same `mistakes`.
+- [coughing] i make `mistakes`.
+- From `mistakes` we have made.
+- And we've all made `mistakes`.
+- Even the best make `mistakes`.
+- Just for `mistakes` of parking?
+- Fine, make the `mistakes` i did.
+- He made some `mistakes`, is all.
+- Well, i learn from my `mistakes`.
+- Hey, it's ok. you made `mistakes`.
+- So you all make the same `mistakes`?
+- There's no debate...my `mistakes`....
+- The ice queen doesn't make `mistakes`.
+- You're starting to make `mistakes` now.
+- I don't mind his grammatical `mistakes`.
+- I've made so many `mistakes`, narcissus.
+- The point is, `mistakes` have been made.
+- ♪ we're your careless `mistakes` ♪ what?
+- `Mistakes` like that happen all the time.
+- That you've learned from your `mistakes`?
+- There are no `mistakes` when you are king!
+- Any `mistakes` were okay as long as it was big.
+- I don't judge people on their worst `mistakes`.
+- I couldn't let you die because of my `mistakes`.
+- I'm more worried about your tactical `mistakes`.
+- I'm not stupid enough to repeat your `mistakes`.
+- Because you don't want me to make any `mistakes`.
+- I'd like to believe we learn from our `mistakes`.
+- These people don't make `mistakes`, agent mulder.
+- Of course, they were, perhaps, `mistakes`, captain.
+- She'll see the `mistakes` before we ever make them.
+- You do remember, stop blaming me for your `mistakes`.
+- Sometimes it makes `mistakes`, sometimes big `mistakes`.
+- I was in a hurry to do big things, make big `mistakes`.
+- `Mistakes` that we do not want the world to know about.
+- People have made `mistakes` in these situations before.
+- I don't think they usually make `mistakes` ... but, er ...
+- Is it alright, did i make any `mistakes` that you can see?
+- You should learn to live with your `mistakes`, mr lombard.
+- How many `mistakes` did you make like that's ever happened.
+- ♪ we're your careless `mistakes` ♪ i'll explain on the way.
+- Yeah, well, `mistakes` are how we learn there, young fella.
+- Take the plunge, admit your `mistakes`, move on to tomorrow.
+- Let's just keep our mouthes shut and not make any `mistakes`.
+- "men of science have made abundant `mistakes` of every kind."
+- Whatever `mistakes` i made, i've paid for them and then some.
+- If you let them in, there are a few `mistakes` that's harsh.
+- Your kind of `mistakes` are going to land me back in huntsville.
+- Don't tell me i'm making up for past `mistakes` doctor freud.
+- God doesn't make `mistakes`, you're a mistake... you're a mistake.
+- So stupid, a cop thing, a crazy kid and a buncha dumb `mistakes`...
+- What's it... ...i-i... made some `mistakes` and i spent some money.
+- Jackie, you've made `mistakes` -- we all make `mistakes` -- not to me.
+- But that's why i'm hard on you, because i see in you my past `mistakes`.
+- The men involved with those `mistakes`, do you have a problem with that?
+- A test...i think they sank that ship on purpose to cover up their `mistakes`.
+- If i put a cross on every one of your `mistakes`, you'd look like a graveyard!
+- I don't blame people for their `mistakes`, but i do ask that they pay for them.
+- So all we have to do is watch a bunch of movies and learn from their `mistakes`.
+- Abundant `mistakes`, but, the men involved with those `mistakes`, but now you waver.
+- Subtitles) you have made many `mistakes` pavel, let there be no more, for your sake.
+                 

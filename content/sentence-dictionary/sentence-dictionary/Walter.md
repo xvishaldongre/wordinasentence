@@ -1,0 +1,107 @@
+---
+title: "Walter in a sentence | Walter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Walter"
+---
+- Did you tell `walter`?
+- Good morning `walter`!
+- Hey, cool it `walter`.
+- I have `walter` smith.
+- Put it down, `walter`.
+- `Walter`, come off it.
+- `Walter`, i'm sorry...
+- What's that, `walter`?
+- Drop the gun, `walter`.
+- Have you seen `walter`?
+- In your mind, `walter`.
+- Now calm down `walter`!
+- Oh, ok. hello `walter`.
+- Take it easy, `walter`.
+- They hung up, `walter`!
+- `Walter`, how-- sheesh.
+- We're fucked, `walter`!
+- No tricks, `walter`!
+- He can't walk, `walter`!
+- It's that jerk `walter`.
+- Just a second, `walter`.
+- Not the `walter` wilder?
+- They shot him, `walter`!
+- They want `walter` dead!
+- Wait a minute, `walter`.
+- `Walter` likes the past.
+- `Walter`, you scared me.
+- Where you from `walter`?
+- You're a fuck, `walter`!
+- I'm ok, `walter`, thanks.
+- Oh, better not, `walter`.
+- Pack my things, `walter`.
+- Red deer table, `walter`.
+- You don't know, `walter`?
+- Don't be scared, `walter`.
+- No, `walter`, i'm through.
+- Oh, be yourself, `walter`.
+- That's the idea, `walter`.
+- Why young girls, `walter`?
+- I am fond of you, `walter`.
+- Sara and `walter` declined.
+- That's all right, `walter`.
+- This an accident, `walter`?
+- This could be it, `walter`.
+- `Walter`-- a world of pain.
+- I'm going to marry `walter`.
+- `Walter`, for christ's sake!
+- `Walter`, you can't do that!
+- What's a pederast, `walter`?
+- You're a good man, `walter`.
+- You're `walter`, aren't you?
+- Couldn't get it up, `walter`?
+- Dude-- yeah, thanks `walter`.
+- Oh, don't be silly, `walter`.
+- `Walter`...stay away from me!
+- `Walter`, what are you doing?
+- `Walter` you look awful pale!
+- You're going to use `walter`?
+- Just about anything, `walter`.
+- That's a great plan, `walter`.
+- `Walter`...i can't believe it.
+- `Walter`, you don't mean that?
+- Who has your undies, `walter`?
+- I like you very much, `walter`.
+- Oh, is that you, `walter` dear?
+- Well i can't say that `walter`!
+- Good ol' mild mannered `walter`!
+- I'm `walter` wilder, by the way.
+- I won't say good luck, `walter`.
+- Now why shouldn't you, `walter`?
+- Take care of yourself, `walter`.
+- Are they gonna hurt us, `walter`?
+- But -- i guess i can't, `walter`.
+- I'm throwing the money, `walter`!
+- Listen, `walter` -- why should i?
+- That's the beauty of it `walter`!
+- Those are good burgers, `walter`.
+- `Walter` byrd killed kay connell.
+- `Walter` can i ask you something?
+- What's wrong with `walter`, dude?
+- When did you make this, `walter`?
+- Yeah `walter`, what's your point?
+- You can't sell me that, `walter`.
+- Because they deserve to, `walter`.
+- I don't know what to do, `walter`.
+- It just didn't work out, `walter`.
+- It's going to take time, `walter`.
+- Just, just take it easy, `walter`.
+- N-no... are you nervous, `walter`?
+- `Walter` well...any time, i guess.
+- You know how time flies, `walter`.
+- Don't give me a hard time `walter`!
+- No, this is on the level, `walter`.
+- Thanks, `walter`, but it's no good.
+- `Walter`...`walter` listen carefully.
+- But, `walter` -- suit yourself, kid.
+- I'm just telling `walter` the truth.
+- That is a marvelous image, `walter`.
+- Why don't you cover it up, `walter`!
+- Would `walter` really press charges?
+                 

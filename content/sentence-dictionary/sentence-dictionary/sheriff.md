@@ -1,0 +1,107 @@
+---
+title: "sheriff in a sentence | sheriff example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sheriff"
+---
+- How's that, `sheriff`?
+- I'm `sheriff` hartman.
+- No problem, `sheriff`.
+- Just met the `sheriff`.
+- This is `sheriff` cobb.
+- Fine, thanks, `sheriff`.
+- How 'bout the `sheriff`?
+- He killed him, `sheriff`!
+- `Sheriff` potter, please.
+- Don't mind him, `sheriff`.
+- (groans) `sheriff`, is it?
+- It's all right, `sheriff`.
+- `Sheriff` just radioed me.
+- Merry christmas, `sheriff`.
+- That's bullshit, `sheriff`!
+- What's the dope, `sheriff`?
+- I'm `sheriff` john langston.
+- That's very linear `sheriff`.
+- Then the `sheriff` will come.
+- Wish i could help, `sheriff`.
+- This is `sheriff` ballard.
+- Mack, this is `sheriff` dylan.
+- Not taking a drive, `sheriff`.
+- `Sheriff` behan, doc holliday.
+- `Sheriff`, that's aggravating.
+- We don't need the `sheriff`!!!
+- Pleased to meet you, `sheriff`.
+- You call the `sheriff` on that?
+- You don't want to be `sheriff`.
+- I didn't kill anyone, `sheriff`.
+- I'm `sheriff` deeds-- that's me.
+- It's a mess, ain't it `sheriff`?
+- Oh jesus, `sheriff`, i am sorry.
+- `Sheriff` meeker, we killed him.
+- `Sheriff`, you better take this.
+- When my father was `sheriff`?
+- Good morning, `sheriff`'s office.
+- (grunts) `sheriff`: hey, hey, hey!
+- This `sheriff`'s a real cowboy.
+- `Sheriff` buell clayton from texas.
+- Why you tellin' me that, `sheriff`?
+- No, `sheriff` burke called your dad.
+- `Sheriff`, this is no time to panic.
+- So you must remember `sheriff` wade.
+- That's awful kind of you, `sheriff`.
+- Aw... jesus... we got him, `sheriff`.
+- But they have to be warned, `sheriff`.
+- Her father's `sheriff` of taos county.
+- He's the deputy `sheriff` around here.
+- I need to speak to `sheriff` von teer.
+- `Sheriff` buddy was a different story.
+- `Sheriff`, what is going on out there?
+- What about the `sheriff`'s task force?
+- Belle, give the `sheriff` a cup of rum.
+- That's why we're here, `sheriff` cable.
+- What calibers you got there, `sheriff`?
+- Are you the `sheriff` in this here town?
+- I've been trying to tell him, `sheriff`.
+- Oh, `sheriff` meeker, my name is dr. ...
+- `Sheriff`, he didn't give me any choice.
+- There's nothing in the trunk, `sheriff`.
+- We told `sheriff` cobb about the attack.
+- I don't understand that, `sheriff` young.
+- I got to see my husband, `sheriff` young!
+- The old-high-school-heartthrob `sheriff`.
+- They're not all the `sheriff`'s daughter.
+- You gotta low-life job, mister `sheriff`!
+- Is there a problem up the road, `sheriff`?
+- No, no ... the `sheriff` had enough of us.
+- You can go down to the `sheriff`'s office.
+- You got him too scared to peep, `sheriff`.
+- You'll see nothing of the kind, `sheriff`.
+- The `sheriff`'s lookin' to bust your balls.
+- Who's going to pay for all this, `sheriff`?
+- Walk out and call the `sheriff`'s department.
+- Names john behan, i'm cochise county `sheriff`.
+- We've got a `sheriff`'s task force on stand-by.
+- Here... ...on the dallas `sheriff`'s report.
+- `Sheriff` said right off, i was under suspicion.
+- Death has arrived in your little town, `sheriff`.
+- He's available, you're available-- the `sheriff`.
+- Maybe we work something out, my friend `sheriff`?
+- `Sheriff`, will you kindly extinguish the lights?
+- Heather, my love, there's a new `sheriff` in town.
+- `Sheriff`, can you give me your word on somethin'?
+- You're certainly a hard fellow to find, `sheriff`.
+- You're so fucking lucky your dad is the `sheriff`.
+- The `sheriff` at the time was big charley wade.
+- But `sheriff` wade, he could shut you down anytime.
+- `Sheriff`, i can't afford not to fish toni... sure.
+- `Sheriff`, they're the scum of modern civilization.
+- They want you to stand for `sheriff` next election.
+- If you can clear it with the `sheriff`'s department.
+- Mckendrick picked the new `sheriff` himself, so j.t.
+- `Sheriff` dylan, this is fbi agent thomas mackelway.
+- Unless the `sheriff` gets too close and he holes up.
+- Nobody else but that great thinker, `sheriff` hartman!
+- `Sheriff` deeds' dead, honey--you just `sheriff` junior.
+- The `sheriff` says it was a gang of drunk kansas boys.
+- Deputy art lewis, jerome county `sheriff`'s department.
+                 

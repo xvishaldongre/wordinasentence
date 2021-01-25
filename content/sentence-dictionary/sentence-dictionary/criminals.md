@@ -1,0 +1,51 @@
+---
+title: "criminals in a sentence | criminals example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "criminals"
+---
+- `Criminals` and fools.
+- They're all `criminals`.
+- They're all `criminals`?
+- We were the `criminals`.
+- I don't help `criminals`.
+- Just for the `criminals`.
+- So, let's be `criminals`.
+- We're `criminals`, right?
+- The `criminals` are winning.
+- I say you're not `criminals`!
+- They're dangerous `criminals`.
+- We're surrounded by `criminals`.
+- There were police to stop `criminals`.
+- But the phantom zone is for `criminals`.
+- That's why they send the `criminals` here.
+- I find most `criminals` slip up somewhere...
+- That should put us ahead of the `criminals`.
+- Like recognizing `criminals` by their crimes.
+- It was work camp for white collar `criminals`.
+- With a bunch of `criminals` who invaded my home.
+- ♪ i want less, i want less ♪ they're `criminals`.
+- You said we were `criminals`, what did you mean ?
+- It's like recognizing `criminals` by their crimes.
+- Australia is entirely peopled with `criminals`.
+- You were `criminals` that ended up at alpine grove.
+- Bank robbers are generally your smartest `criminals`.
+- Boy, so sick of getting `criminals` hip, hip, hooray!
+- Add to that 36 hardened `criminals` from earth 3 clicks.
+- Now, we don't like trying losers like they're `criminals`.
+- Either they get on welfare or they become `criminals`-- no!
+- Data indicates that the violent `criminals` in the group laws.
+- ...mid pleasures and palaces though i may roam..." `criminals`.
+- I am worried about thieves and `criminals` coming into the hotel.
+- Because the the only way to stop crime is to identify `criminals`.
+- Oh, shit... where `criminals` can come in here... they take the...
+- Common `criminals` like these are best dealt with on a purely curative basis.
+- Twenty percent's still better than what we give to any of the other `criminals`.
+- But doesn't the son of sam law prevent `criminals` from profiting from their crimes?
+- You beat a bunch of `criminals` led by a sociopath in a battle how can you be so sure?
+- `Criminals` are used to having people not trust them, as you are not trusted by me.
+- I do have eighteen `criminals` under sentence of death, but i hold no prisoners-of-war.
+- Or a spaghetti-filled grilled cheese sandwich and shock batons to control the `criminals`.
+- Would you be willing to shoot hardened `criminals` in the back to offset the chance -- no.
+- Nobody's going to investigate a crime for which the `criminals` have already been pardoned.
+                 

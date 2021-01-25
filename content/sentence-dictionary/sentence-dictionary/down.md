@@ -1,0 +1,107 @@
+---
+title: "down in a sentence | down example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "down"
+---
+- Blow the man `down`...
+- Calm `down`, benjamin.
+- Calm `down` everybody.
+- Calm `down`, richards.
+- Calm the fuck `down`.
+- Come here, sit `down`.
+- Comms are `down`, sir.
+- `Down` at the station?
+- `Down` into the forum.
+- `Down` western avenue.
+- `Down` your phoneline.
+- Everybody calm `down`!
+- Hey, hey, slow `down`.
+- Hey, let's sit `down`.
+- I'd say it was `down`.
+- If she calms `down`...
+- I'm coming `down` now.
+- I'm taking her `down`.
+- I saw it going `down`.
+- It's a `down` payment.
+- It's `down` the block.
+- I won't settle `down`!
+- Just cool `down`, son.
+- Just sit `down`, okay?
+- Just stay `down` here.
+- Keep it locked `down`.
+- Keep your head `down`.
+- Lemme `down`, bugface!
+- Let's sit `down`, son.
+- Lie `down` on the bed.
+- Lock `down` the exits.
+- Man: hold it `down`!
+- Marcie - quiet `down`!
+- Mind if we sit `down`?
+- My dad's `down` there!
+- Nobody backing `down`.
+- Now, bring her `down`.
+- Of course, sit `down`.
+- Paul will calm `down`.
+- Put it `down`, i said!
+- Put it `down`, walter.
+- Put it- put it `down`.
+- Put me `down` for two.
+- Put that phone `down`!
+- Put the plates `down`.
+- See that `down` there?
+- ...see them go `down`?
+- Settle `down`, alex...
+- She's clamping `down`.
+- Shut her `down`, wick.
+- Sit `down`..and drink.
+- Sit `down` over there.
+- Sucks it right `down`.
+- The plane went `down`.
+- There's no way `down`.
+- Throw `down` a ladder!
+- Tony, sit, sit `down`!
+- Turn `down` the music.
+- Watch the step `down`.
+- We'll be right `down`.
+- We'll go `down` there.
+- We should slow `down`.
+- When they come `down`.
+- You better sit `down`.
+- You let me `down` son.
+- You should sit `down`.
+- You strike her `down`.
+- You've worn me `down`.
+- All right, calm `down`.
+- To water it `down`.
+- And we all fall `down`.
+- Are you sitting `down`?
+- Ask them to sit `down`.
+- Back it `down`, johnny!
+- Burn 'em `down`, i say!
+- Calm `down`, calm `down`.
+- Calm `down`, sweet pea.
+- Can you shut it `down`?
+- Could you kneel `down`?
+- Dave, just calm `down`.
+- Deep `down`, gut check.
+- "d" gun's `down` to 20.
+- Did he shut you `down`?
+- Domino wolfs it `down`.
+- `Down` front as always.
+- `Down` there, damn you.
+- Drive `down` the block.
+- Get ba `down` there.
+- Get `down`, you beasts!
+- Get that shield `down`.
+- Go `down` past the bar.
+- He left us `down` here.
+- He weighted her `down`.
+- I can't let him `down`.
+- I'm going `down` there.
+- Is it up, is it `down`.
+- It's dark `down` there.
+- It's going back `down`.
+- It's nice `down` there.
+- I've been `down` there.
+                 

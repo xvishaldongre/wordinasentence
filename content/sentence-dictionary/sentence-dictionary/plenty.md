@@ -1,0 +1,107 @@
+---
+title: "plenty in a sentence | plenty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plenty"
+---
+- He looks `plenty` big.
+- I got `plenty` of 'em.
+- It's `plenty` of time.
+- I've `plenty` of room.
+- Oh, i've got `plenty`.
+- With `plenty` of time.
+- You were `plenty` hot.
+- She'll suffer `plenty`.
+- Sure `plenty` of times.
+- You've gotten `plenty`.
+- I know `plenty` of boys.
+- Never would be `plenty`.
+- Seen `plenty` of it too.
+- Take `plenty` of cigars.
+- The bully, too `plenty`.
+- We got `plenty` of them.
+- I have `plenty` of dates.
+- There's `plenty` of room.
+- There's `plenty` of that.
+- There's `plenty` of time.
+- You got `plenty` of time.
+- There's `plenty` of fruit.
+- We have `plenty` of hares.
+- You got `plenty` of money?
+- I have `plenty` of friends.
+- There's `plenty`... my god!
+- Time, i've got `plenty` of.
+- We've got `plenty` of time.
+- I've seen `plenty` like you.
+- `Plenty` of time for a call.
+- We've got `plenty` of proof.
+- You had `plenty` of chances!
+- But she volunteered `plenty`.
+- I've got `plenty` of friends.
+- `Plenty`, but it was all bad.
+- People have `plenty` of water.
+- `Plenty` of vultures out here.
+- With-with `plenty` of notice?!
+- `Plenty` of bitches in the sea.
+- `Plenty` of people hated wells.
+- They got `plenty` of good ones.
+- You guys have `plenty` of time.
+- `Plenty` of room for two people.
+- There's `plenty` of other girls.
+- Well, we have `plenty` of those.
+- You've got `plenty` of contacts.
+- I'll be back in `plenty` of time.
+- I won `plenty` of races with 'em.
+- `Plenty` of room, `plenty` of room.
+- We got `plenty` a' room for more.
+- I'm sure there's `plenty` of tape.
+- I've got `plenty` of places to go.
+- Not yet, there's `plenty` of time.
+- Yeah, but they leave you `plenty`.
+- `Plenty` of women everywhere right?
+- We appear to have `plenty` of time.
+- You'll have `plenty` of ammunition.
+- But there's `plenty` of other parts.
+- There's `plenty` of room in the car.
+- We've got `plenty` of baking powder.
+- You've had `plenty` of time already!
+- There's `plenty` of food in my place.
+- There's `plenty` of room in my suite.
+- We got `plenty` of room in the wagon.
+- I'm sure you have `plenty` to tell me.
+- `Plenty` of time to find a nice fella.
+- There are `plenty` of others who will.
+- This convention's gonna cost `plenty`.
+- There's `plenty` of water and food.
+- I mean i've still got `plenty` of time.
+- So there is `plenty` of drinking water.
+- There's `plenty` of movies around here.
+- There's still `plenty`-a action around!
+- There are `plenty` of other safe places.
+- There's `plenty` of money in this house.
+- Besides we've got `plenty` more for them.
+- I fought `plenty` of guys tougher'n them.
+- I told you we had `plenty` to talk about.
+- There's `plenty` out lookin' to hang you.
+- We have `plenty` of manpower on the case.
+- Anyway, there's still `plenty` more of it.
+- But you've got `plenty` to lose 'partner'.
+- I know you're tempted, i like ya `plenty`.
+- There are `plenty` of motels in this area.
+- There are `plenty` of rooms for all of us.
+- ...there's `plenty` of movies around here.
+- They'll be `plenty` of time for the other.
+- At least it gives you `plenty` of exercise.
+- He's got `plenty` of room out there to dig.
+- `Plenty` of water, friends, people we love?
+- We've had `plenty` of it the last few days.
+- You still got `plenty` energy for me, baby.
+- There's `plenty` of groceries in the fridge.
+- I prefer gold, and the english have `plenty`.
+- I've seen you down at the jabberjaw `plenty`.
+- `Plenty` of circuits in a walkman... come on.
+- Sure, `plenty`, but not in no wreck like this.
+- There's going to be `plenty` of time for that.
+- We'll be at the station in `plenty` of time...
+- Don't worry evan, you'll have `plenty` of time.
+                 

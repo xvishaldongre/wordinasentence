@@ -1,0 +1,107 @@
+---
+title: "definitely in a sentence | definitely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "definitely"
+---
+- `Definitely` a serial.
+- `Definitely` not dead!
+- It's `definitely` him.
+- It's `definitely` you.
+- Oh, most `definitely`.
+- Run, `definitely` run!
+- `Definitely` no comment.
+- `Definitely` not martin.
+- ...it's `definitely` on.
+- `Definitely` mungo jerry.
+- It's `definitely` barton.
+- We're `definitely` close.
+- Yeah, `definitely` upset.
+- Ok. `definitely` not cool!
+- `Definitely` not agnes.
+- Firing squad, `definitely`.
+- It's `definitely` an atari.
+- `Definitely` looks familiar.
+- `Definitely` not his family.
+- `Definitely` third category.
+- `Definitely` wouldn't agree.
+- It's `definitely` your mama.
+- Pressure is `definitely` on.
+- This is `definitely` better.
+- But he's `definitely` coming.
+- `Definitely` clarence darrow.
+- I most `definitely` say i am.
+- It's `definitely` in the pot!
+- She `definitely` did a factor.
+- This was `definitely` a don't.
+- Yeah, i'm `definitely` hooked.
+- I am `definitely` up the spout.
+- I'm most `definitely` not dead.
+- We'll `definitely` be in touch.
+- Yes, `definitely` the crystals.
+- Yes, yes, and `definitely` yes.
+- You `definitely` deserved that.
+- Close -- but `definitely` wrong.
+- He `definitely` wasn't a midget.
+- I'm `definitely` being followed.
+- She's `definitely` part of this.
+- Something was `definitely` here.
+- I `definitely` didn't expect this.
+- I'm `definitely` coming out of it.
+- Yes, it `definitely` was my fault.
+- `Definitely` inside the barricades.
+- `Definitely` not for the squeamish.
+- So, it's `definitely` worth a shot.
+- That would `definitely` explain it.
+- That time has `definitely` come.
+- I'm `definitely` traveling some day.
+- There's `definitely` something here.
+- We `definitely` had a moment or two.
+- I think that's `definitely` the word.
+- It's `definitely` a step back for me.
+- See, he `definitely` doesn't know me.
+- Somebody `definitely` messed with it.
+- That's `definitely` not chinese food.
+- The one on the left - `definitely`...
+- We `definitely` want it to have junk.
+- There was `definitely` a y. ha ha!
+- I `definitely` do not like this place.
+- No, i `definitely` don't want to know.
+- You should `definitely` call her, ted.
+- You should `definitely` have children.
+- But it's `definitely` a nest, isn't it?
+- Oh yeah, that'll `definitely` happen...
+- I `definitely` wouldn't turn down a job.
+- I'm not dead, but i'm `definitely` shot!
+- The fix was `definitely` in ... me, too.
+- Well, i `definitely` feel sorry for you.
+- ...you're `definitely` doing a story...?
+- Between 50 and 400 million, `definitely`?
+- `Definitely` inappropriate behavior here.
+- Maybe not lapd, but `definitely` a badge.
+- Well we can `definitely` call the police.
+- The scenery has `definitely` improved.
+- No, you `definitely` cannot do that, mark.
+- `Definitely` not part of the big auto show.
+- Boy's `definitely` got a corncob up his ass.
+- He'll `definitely` take your word over mine.
+- Yeah, it's `definitely` still in her system.
+- Yes, `definitely`, god dammit george, swear.
+- But in your opinion, would i `definitely` go?
+- `Definitely` don't wanna dance with this guy.
+- There's `definitely` something wrong with us.
+- They `definitely` don't lie to each other.
+- No, but she's `definitely` pissed and hostile.
+- Oh, it's `definitely` better, beyond question.
+- There is very `definitely` a difference, miss.
+- You `definitely` bring something to the table.
+- Yeah, i `definitely` need to make you some cds.
+- Ok, `definitely` call them, i'll be back friday.
+- Now is `definitely` not the time to bitch up.
+- `Definitely` the most important guy in this room.
+- No, no, i'm `definitely` not asking for anything.
+- It was `definitely` the high point of the evening.
+- So that would `definitely` cover taxicabs, i think.
+- `Definitely` some sort of fighting spaniel, i think.
+- Hey, i'd `definitely` shoot color on that one, jimmy.
+                 

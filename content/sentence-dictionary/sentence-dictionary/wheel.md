@@ -1,0 +1,86 @@
+---
+title: "wheel in a sentence | wheel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wheel"
+---
+- Get behind the `wheel`.
+- Reinvented the `wheel`.
+- You behind the `wheel`.
+- Check under the `wheel`.
+- Money turns the `wheel`.
+- Time to `wheel` her out.
+- Like a four `wheel` drive.
+- Steering `wheel`... ah no.
+- Got time to fix my `wheel`?
+- Take the `wheel`, commander.
+- I fall asleep at the `wheel`.
+- Applejack was the `wheel` man.
+- I'll be at the `wheel` myself.
+- Put your hands on the `wheel`.
+- `Wheel` this meat out of here.
+- Captain bob's steering `wheel`?
+- Ray fell asleep at the `wheel`.
+- The squeaky `wheel` gets the oil.
+- It's captain bob's steering `wheel`!
+- You're afraid of the ferris `wheel`.
+- Give me your gum and grab the `wheel`.
+- Oh, i speak into the steering `wheel`.
+- We can't raise the `wheel` without it.
+- You flung that thing like a hot `wheel`!
+- Or, like, a turning `wheel` for steering?
+- She grabbed the `wheel` and i lost control.
+- Upon the center, `wheel` to the left- about!
+- A tiny cog in the great `wheel` of evolution.
+- We are falling asleep at the `wheel`, people!
+- You have to use the steering `wheel` to turn.
+- Jim you told me he's a big `wheel` in new york!
+- After my wife died, i felt like a fifth `wheel`.
+- I feel like kind of a fifth `wheel` around here.
+- I would never forfeit my control of the `wheel`.
+- Let's just `wheel` this thing back to the house.
+- When you took the `wheel`, who was beside you?
+- I'm a bit of a fifth `wheel` in your setup here...
+- Jesus, what do you think this is -- `wheel` of fortune?
+- She's only a cog in the `wheel` - no way she knows that.
+- Come on, maggie, get on daddy's wap and take the `wheel`.
+- You want me to `wheel` in there and finish the job myself?
+- You've got no business behind the `wheel` of an automobile.
+- The squeaky `wheel` gets <u>thrown</u> <u>away</u>, alright?
+- Jimmy looks twice has never been behind the `wheel` of a car.
+- The wrong person behind the `wheel` of a car can be dangerous.
+- Yeah...i remember my brother-in-law gary, the `wheel` watcher.
+- We came down the hill a little fast and... ...the `wheel` broke.
+- You're all still alive... indoor ferris `wheel`, never ferrised.
+- Bianca, try not to be so bloodthirsty when you're at the `wheel`.
+- Minute flecks were spattered across the seat and steering `wheel`.
+- The man that shot leo down was behind the `wheel` of a moving car.
+- Warriors trained since childhood wow, there's no steering `wheel`.
+- You need major four- `wheel`-drive just to get up that jeep trail.
+- Man's taking his life in his hands, putting you behind the `wheel`!
+- Starting with when you tried to grab the `wheel` -- where was this?
+- This dissolves to a deserted road, peter at the `wheel` of his car.
+- I want you to understand that this man at the `wheel` is my attorney!
+- Steering `wheel`... gear shift... dashboard... police... eh... police.
+- [beat] let her throw it all up before she gets back behind the `wheel`.
+- We don't have to disconnect them, we can `wheel` the stand with the bed.
+- I bet you like sittin' between two men in a dual `wheel` truck don't you?
+- I clipped this from your `wheel` well just before they towed your car away.
+- Sit completely still with both hands on the `wheel` -- until they get here.
+- King, would you mind if i keep me hands on the `wheel` when you take her in?
+- It's an eighteen `wheel` cement mixer that will crush every bone in your body.
+- Armored car -- next </b> locus fender is behind the `wheel` of the armored car.
+- Maybe you better start thinkin' about writin' tickets off a three `wheel` bike.
+- It's someplace down in there.... ..deep.. a big door...a `wheel`.... where is it?
+- I've known him all my life, and he's never gotten behind the `wheel` of a vehicle.
+- I spent a year sitting next to my grandma on the couch watching `wheel` of fortune.
+- Chevy suburban -- next </b> claremont is behind the `wheel` of a black chevy suburban.
+- I have this sudden impulse to turn the `wheel` quickly, head-on into the oncoming car.
+- I'm quiz kid donnie smith from the tv -- nothing special, just a spoke in the `wheel`.
+- Actually, i'm more interested in the man behind the `wheel` more than the manufacturer.
+- A great `wheel` that gives us each what we deserve... yeah, i think i've heard of that.
+- He came out, approached the vehicle then saw that the man behind the `wheel` was jimmy.
+- That sure looks like fun... you know how long it's been since i was behind the `wheel`?
+- Any town, any time, i can pop a ham and cheese in the microwave and feast on a big `wheel`.
+- I can't.... boss' day off...take the `wheel`.... how can you just take the plane like this?
+                 

@@ -1,0 +1,87 @@
+---
+title: "interview in a sentence | interview example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "interview"
+---
+- A joint `interview`, eh?
+- But it's my `interview`.
+- This `interview`'s over!
+- Don't `interview` grampa.
+- I'm doing an `interview`.
+- This `interview` is over.
+- How'd your `interview` go?
+- `Interview` your daughter.
+- The monthly `interview`...?
+- Thank you for the `interview`.
+- Can you arrange an `interview`?
+- Did you finish the `interview`?
+- Hey, what is this-an `interview`?
+- Looked like an `interview` to me.
+- They `interview` you or anything?
+- We did an `interview`, didn't we?
+- He was here for a job `interview`.
+- I said i'd give you a `interview`.
+- Oh -- an hour for the `interview`.
+- Best `interview` i've ever been to.
+- Don't they want to `interview` him.
+- Big restaurant `interview` tomorrow.
+- How long would the `interview` take?
+- I said we'd give you an `interview`.
+- I have an `interview` with mr. lester.
+- Oh, yeah we taped the last `interview`.
+- We need to tape the `interview`, suzie.
+- That `interview` he did for vanity fair?
+- Couldn't you just do a phone `interview`?
+- Then i decide if i grant the `interview`.
+- Well, he may tape an `interview` with us.
+- I've got to get started on my `interview`.
+- So, uh, what do they `interview` you about?
+- I want to `interview` earl williams, warden.
+- That will mean another `interview`, won't it?
+- Why won't they let anyone `interview` him?...
+- I believe i should `interview` the widow alone.
+- Or maybe i shouldn't do this `interview` today.
+- Finally, a job `interview` question i can answer.
+- Now unless i'm mistaken, we just did a `interview`.
+- Okay if i watch you tape that `interview` downstairs?
+- I'd like to `interview` you for the daily- - theories?
+- Really, you know you'd make a fascinating `interview`.
+- What would you say to giving them a joint `interview`?
+- Examination and `interview` materials are confidential.
+- Frink `interview`, final chapter, "happily ever after."
+- I know you 'acted' your reaction after the `interview`.
+- I remember reading about it in an `interview` with him.
+- They're killing the wigand `interview`... what's wrong?
+- I saw the taped outtakes of the `interview` with the girl.
+- Would the network really not run it without the `interview`?
+- How long did you and mr. treves prepare for this `interview`?
+- Is it true you're going to `interview` dr. furtw�ngler today?
+- So unruly julie's comin' with me and planning the `interview`.
+- Cut the `interview` with the prison board fellow before that.
+- The killer gets one million dollars for a television `interview`?
+- `Interview` some suspects, look at fingerprints, do detective shit.
+- Look, kid, we've got a lot of heroes to `interview` -- i just know.
+- Thank you so much, judge wright, for another wonderful `interview`.
+- ... `interview` every employee, support staff, associates, partners.
+- I think that `interview` stuff's too long, we can lose some of that.
+- Lois is doing an `interview` with superman about his peace mission .
+- Earl, there's just one thing i ought to clear up for the `interview`.
+- I want another `interview` with cos. tell him to bring plenty of ink.
+- Yes, i got the `interview`, but i've got some news that's more important.
+- How am i going to conduct an `interview` if i can't ask him any questions?
+- If you want to save earl williams' life, you can `interview` him yourself.
+- Sir, i would appreciate dr. mccoy absenting himself from this `interview`.
+- So, remember the three most important parts of a good `interview`... yeah.
+- In order to put the show on the air, i need to get an `interview` with you.
+- That's when we do the mickey knox `interview`, 'cause the next day he goes.
+- What are they gonna do, try and shoot the president during the `interview`?
+- Get it into shape so when we finish the `interview`, we can just stick it in.
+- Is newsday a real `interview`, or just some cute guy you're setting me up w...
+- I just got an additional list of sixty-two employees to `interview` before monday.
+- They got this story that we pulled this `interview` and they talked to mike and i.
+- I gave strict orders that nobody was to `interview` williams without my permission.
+- Please to explain, why i should agree to `interview`... with pro-zionist american media?
+- Hey, tabloids paid ted bundy - famous serial killer - half a million for his `interview`.
+- If things go badly, i can't be bothered, but i have a good feeling about this `interview`.
+                 

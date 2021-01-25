@@ -1,0 +1,107 @@
+---
+title: "powerful in a sentence | powerful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "powerful"
+---
+- We are all-`powerful`.
+- It was a `powerful` air.
+- No, somebody `powerful`.
+- More `powerful` than you.
+- More `powerful` than you!
+- No one's that `powerful`.
+- I'm a `powerful` sorcerer.
+- More `powerful` than ever.
+- He's a very `powerful` man.
+- Faith is a `powerful` thing.
+- He was short but `powerful`.
+- I said i was all-`powerful`.
+- The more `powerful` a.l.i.e.
+- They are very `powerful`!
+- A rich man, a `powerful` man.
+- He has a very `powerful` ship.
+- My father is a `powerful` man.
+- Newer, more `powerful` design.
+- He'll be too `powerful` to stop.
+- She's too `powerful`, raziel no!
+- Soon it will be more `powerful`.
+- This is a very `powerful` weapon.
+- But you're still a `powerful` jedi.
+- My word is the law--all `powerful`.
+- I had no idea how `powerful` it was.
+- Listen, the ghost is too `powerful`.
+- Maybe it makes them feel `powerful`.
+- The most `powerful` in the universe!
+- But i warn you, it's very `powerful`.
+- He's even more `powerful` now that...
+- No, it's the great and `powerful` oz.
+- The more `powerful` alie becomes mmm.
+- The most `powerful` thing i ever saw.
+- Show my people how `powerful` you are.
+- The gous are a very `powerful` family.
+- You're into something very `powerful`.
+- But the sex urge is a `powerful` force.
+- Scents that create `powerful` emotions.
+- Some people have become too `powerful`.
+- Familial love is a `powerful` motivator.
+- He must have been a very `powerful` man.
+- I need a man who has `powerful` friends.
+- That's how they've become so `powerful`.
+- A laugh can be a `powerful` thing, eddie.
+- I'm tellin' you, it was `powerful` stuff.
+- I'm the most `powerful` kid in the world.
+- The most `powerful` being in the universe!
+- The most `powerful` being in the universe!
+- The most `powerful` being in the universe.
+- You're the most `powerful` woman on earth.
+- They're too strong and `powerful` for that.
+- She's a very very very `powerful` sorceress.
+- It be magic, jack... `powerful` ogre's magic.
+- The force is more `powerful` than any pistol.
+- Shouldn't a drug that `powerful` be destroyed?
+- You got some `powerful` people upset with you.
+- Evil is `powerful`, more so every day it seems.
+- He's an asshole, but he's a `powerful` asshole.
+- The second most `powerful` man is robert haldeman.
+- That's 192 warheads... and how `powerful` are they?
+- [the car will not be `powerful` and have no trunk.]
+- All in all a `powerful` behind-the- scenes strange-o.
+- You're becoming something extraordinarily `powerful`.
+- I'll be one of the most `powerful` men in the country.
+- The ancient aztecs knew how `powerful` this stuff was.
+- I wish to become the most `powerful` sorcerer there is.
+- Mebbe that's why i allus have such a `powerful` thrust.
+- My father's no different than any other `powerful` man.
+- You could have been the most `powerful` man in the room.
+- But, if he could be turned, he would be a `powerful` ally.
+- Yes, sir... readin' must be somethin' `powerful`, huh, son?
+- I believe he was killed by a very `powerful` man: point one.
+- Oh, your father ... a `powerful` jedi was he, `powerful` jedi.
+- Because if jerry is `powerful` and also emotional... edmunds?
+- Either he's got a horseshoe up his ass or `powerful` friends.
+- Now there is new maharajah -- and palace is `powerful` again.
+- The more minds turn to the task, the more `powerful` a.l.i.e.
+- Smell is the sense that triggers the most `powerful` memories.
+- Well, i -- i -- i am the great and `powerful` -- wizard of oz.
+- This is a .44 magnum, the most `powerful` handgun in the world.
+- When you bunch it together, it's exponentially more `powerful`.
+- But a machine this `powerful` is going to make `powerful` enemies.
+- Honeythorn gump'd be a `powerful` wizard indeed could he answer.
+- We'll still be the richest, most `powerful` people in the world.
+- If you were really great and `powerful`, you'd keep your promises!
+- With our generation's most `powerful` tool: rule number two: aagh!
+- Your awareness may be `powerful` enough to control your instincts.
+- Even more `powerful` than the flame... or she wouldn't be fighting.
+- I am the great and `powerful` oz... that's lonely for you, i guess.
+- Grabbed sudden and pulled apart real quick by a real `powerful` one.
+- If you put the camera down here, looking up, i look more `powerful`.
+- You're either the most `powerful` man in the room, or you're nothing.
+- How'd you manage to piss off a guy as `powerful` as francis boutillier?
+- Yours is a very `powerful` and important firm -- it has a lot at stake.
+- A very `powerful` mutant who for some reason has taken an interest in you.
+- The most `powerful` critic in america gets his first crack at nicky rogan.
+- You wanted to become a member of the most `powerful` clique in the school.
+- Together we will be the most `powerful` ... even stronger than the emperor.
+- They make the most `powerful`, horrific weapons to ever torment the universe.
+- I just want to sit here longer, i mean the feeling is `powerful` -- why's that?
+                 

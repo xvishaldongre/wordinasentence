@@ -1,0 +1,57 @@
+---
+title: "parker in a sentence | parker example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "parker"
+---
+- Nana `parker` told me!
+- Hi, i'm peter `parker`.
+- I'm maurice `parker`...
+- Don't give up, `parker`.
+- `Parker`, that's enough.
+- Dorothy `parker`-- sorry.
+- How's mr. `parker` doing?
+- I'm taking suzy `parker`.
+- Are you matthew `parker` ?
+- That's not true, `parker`.
+- What's wrong with `parker`?
+- This isn't a game, `parker`!
+- Good afternoon, mr. `parker`.
+- I missed you to mr. `parker`.
+- You need to wake up `parker`.
+- All right, mr. nosey `parker`.
+- How very dull, peter `parker`.
+- She saved your life, `parker`.
+- You going on a trip mr. `parker`?
+- You make your own luck, `parker`!
+- She's an honor student at `parker`.
+- She knows you love her mr. `parker`.
+- Yeah-- `parker`-- you go here, right?
+- Bud `parker` and you're ... um--mary sue.
+- Does this thing have guns, john `parker`?
+- Mrs. `parker`, was kristen acting different?
+- There is no way `parker` killed those guards.
+- Far less depressing than dorothy `parker`.
+- John `parker`, tell them we're doing our best.
+- For all i know you could hate dorothy `parker`.
+- Get `parker` at the union-leeds - the exchange .
+- Mr. `parker`, you can yell at me, if it'll help.
+- You're amazing... what are you doing mr. `parker`?
+- To avoid them, but... my name's warburton `parker`.
+- Peter `parker`, how do you feel about me this morning?
+- They won't be pretty, nothing personal, john `parker`.
+- Mr. `parker`, i'm supposed to give you your fish sticks.
+- Peter `parker`, you have no idea what i did this weekend.
+- Yeah, this is officer randy `parker` over at the station.
+- You may not believe this, `parker`, why'd.. .you pull me out?
+- Mr. and mrs. `parker` have agreed to join their parcel to mine.
+- In your shoes, i don't think i would have told `parker`, either.
+- `Parker` barnes, i'd like you to meet crime czar elizabeth deane.
+- I know you want photos of me, so i'll give your boy `parker` an exclusive.
+- The next day i'd read, "peter `parker` murdered," and i'd feel... well, no.
+- According to your girlfriend, suzy `parker`, you and she were at the movies.
+- Well, mr. `parker` it seems that your is not the wardrobe of choice tonight.
+- I am guilty of many things, but that was mr. thaddeus rains and `parker`, that day.
+- Letting a lunatic like `parker` barnes loose in the free world is like lighting a fuse.
+- They told me, you might try to talk me into something... you need to rest mr. `parker`...
+                 

@@ -1,0 +1,7 @@
+---
+title: "unevenly in a sentence | unevenly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unevenly"
+---
+## Unfortunately, we have no example sentences for unevenly                 

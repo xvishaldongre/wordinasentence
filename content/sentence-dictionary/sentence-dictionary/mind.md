@@ -1,0 +1,107 @@
+---
+title: "mind in a sentence | mind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mind"
+---
+- Depends on the `mind`.
+- Don't `mind` about me.
+- Do you `mind` if i do?
+- Hope you don't `mind`.
+- I don't `mind` really.
+- I don't `mind` though.
+- If i change my `mind`.
+- I get peace of `mind`.
+- I got my `mind` right.
+- I mean i don't `mind`.
+- Into the `mind` drive.
+- It was `mind` control.
+- `Mind` if we sit down?
+- `Mind` you i'm 74 now.
+- Naw, she don't `mind`.
+- Never `mind` all that.
+- Never `mind` bontecou.
+- Never `mind`, strudel.
+- Never `mind` that now.
+- Never `mind` the girl!
+- Robert, do you `mind`?
+- Sure you won't `mind`?
+- Well...i don't `mind`.
+- What's on your `mind`?
+- You changed my `mind`.
+- You outta your `mind`?
+- Your `mind` of course.
+- Can you read my `mind`?
+- Don't `mind` the smell.
+- George - do you `mind`?
+- He has lost his `mind`.
+- He's out of his `mind`.
+- I don't `mind` if i do.
+- I don't `mind`, really.
+- I don't `mind` so much.
+- I don't `mind` waiting.
+- If you wouldn't `mind`.
+- I'll keep it in `mind`.
+- In your `mind`, walter.
+- It lives in the `mind`.
+- I've changed my `mind`.
+- Like the `mind` flayer.
+- May i join your `mind`?
+- `Mind` if we skip that?
+- `Mind` your line, bart.
+- `Mind` your own meal...
+- Never `mind` that shit.
+- Never `mind` the 'sir'.
+- Please, i don't `mind`.
+- She changed her `mind`.
+- She made up her `mind`.
+- The one in your `mind`.
+- They limit your `mind`.
+- What is on your `mind`?
+- What you got in `mind`?
+- Y'all `mind` the store.
+- You pay toby no `mind`.
+- Are you out your `mind`?
+- But make up your `mind`.
+- Damn `mind` of it's own.
+- Got a `mind` of her own.
+- Have anything in `mind`?
+- I don't `mind` any more.
+- I don't `mind` the work.
+- I got a nurse in `mind`.
+- I have him in my `mind`.
+- I hope you don't `mind`.
+- I'll keep you in `mind`.
+- I'm strong in my `mind`.
+- Let me into your `mind`.
+- Made up your `mind` yet?
+- `Mind` if i have a look?
+- `Mind` if i look around?
+- `Mind` if i smoke a jay?
+- `Mind` turning that off?
+- Never `mind` about that.
+- Never `mind` eagle bear.
+- Never `mind` those guys.
+- Nothing comes to `mind`.
+- Remember -- open `mind`.
+- Takes over their `mind`.
+- Well, i wouldn't `mind`.
+- What changed her `mind`?
+- What changed his `mind`?
+- What was in your `mind`?
+- Would you `mind` moving?
+- You changed your `mind`.
+- You changed your `mind`?
+- You don't `mind` do you?
+- You'd say if you `mind`?
+- You should... `mind` it.
+- You've lost your `mind`.
+- All right, master `mind`.
+- And i'm losing my `mind`.
+- A prison for your `mind`.
+- Are you outa your `mind`?
+- But i don't `mind` hairy.
+- Did you read her `mind` ?
+- Don't `mind` him, chucky.
+- Don't `mind` the colonel.
+                 

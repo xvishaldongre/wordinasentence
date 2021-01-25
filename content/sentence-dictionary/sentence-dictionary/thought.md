@@ -1,0 +1,107 @@
+---
+title: "thought in a sentence | thought example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thought"
+---
+- I rather `thought` so.
+- I `thought` he was it.
+- I `thought` i knew it.
+- I `thought` i was one.
+- I `thought` ten years.
+- I `thought` we agreed.
+- I `thought` you might.
+- It's a good `thought`.
+- It's just a `thought`.
+- November, i `thought`.
+- So i `thought` if i...
+- `Thought` i'd stay in.
+- Yes, i `thought` that.
+- You `thought` it best.
+- You `thought` you did.
+- Ever `thought` of that?
+- I had `thought` that...
+- I never `thought` that.
+- I `thought` about that.
+- I `thought` as a child.
+- I `thought` everything.
+- I `thought` i'd try it.
+- I `thought` i just did.
+- I `thought` i knew you.
+- I `thought` i lost you.
+- I `thought` it was you.
+- I `thought` i was dead.
+- I `thought` i was gone.
+- I `thought` that was...
+- I `thought` you didn't.
+- I `thought`... you win!
+- It's a `thought` i had.
+- Now that's a `thought`.
+- There was no `thought`.
+- We've all `thought` it.
+- What `thought` is that?
+- Bigger than i `thought`.
+- Harder than i `thought`.
+- I'm sorry i `thought`...
+- I never `thought`-- duh.
+- I should have `thought`.
+- I `thought` he was dead.
+- I `thought` he was real!
+- I *`thought`* i heard...
+- I `thought` i heard him.
+- I `thought` i loved her.
+- I `thought` it might be.
+- I `thought` it was dave.
+- I `thought` i was crazy.
+- I `thought` that was it.
+- I `thought` we all were.
+- I `thought` you had her!
+- It was just a `thought`.
+- My parents `thought` so.
+- Never `thought` of that.
+- Not a bad `thought`, eh?
+- Only i `thought` bigger.
+- She `thought` it was me.
+- That's a `thought`, lil.
+- That's what i `thought`!
+- That's what i `thought`.
+- That�s what i `thought`.
+- `Thought` you'd like it.
+- `Thought` you were dead.
+- Who'd have `thought` it?
+- You `thought` it was me?
+- You `thought` i was mom?
+- Better than we `thought`.
+- But i `thought` she died.
+- I hadn't `thought` of it.
+- I just `thought`... sure.
+- I never `thought` to ask.
+- I `thought` he was a boy.
+- I `thought` he was lying.
+- I `thought` i could, too.
+- I `thought` i'd help out.
+- I `thought` i'd lost him.
+- I `thought` i'd lost you.
+- I `thought` i knew her...
+- I `thought` it was empty.
+- I `thought` it was funny.
+- I `thought` it was great.
+- I `thought` it was yours.
+- I `thought` maybe -- gee!
+- I `thought` she liked me.
+- I `thought` she was dead.
+- I `thought` she was here.
+- I `thought` she was rich.
+- I `thought` so too, doll.
+- I `thought` that was you.
+- I `thought` we were dead.
+- I `thought` we were poor.
+- I `thought` you'd get it.
+- I `thought` you had them.
+- It's just as i `thought`.
+- I've `thought` about you.
+- Just hold that `thought`.
+- No one ever `thought` so.
+- Thanks for the `thought`.
+- That sure is a `thought`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ask in a sentence | ask example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ask"
+---
+- `Ask` a few questions.
+- `Ask` away, sweet man.
+- `Ask` her to the prom.
+- `Ask` his friend otan.
+- `Ask` them on western.
+- `Ask` your girlfriend.
+- Doesn't hurt to `ask`.
+- Don't `ask` questions.
+- I `ask` for fieldwork.
+- I'll `ask` a question.
+- It's ok to `ask` that.
+- I wanted to `ask` you.
+- I was afraid to `ask`.
+- Let me `ask` you this.
+- May i `ask` your name?
+- So, i gotta `ask` you.
+- To `ask` her to dance.
+- Well, can i `ask` why?
+- What did you `ask` me?
+- Why do you `ask`, sir?
+- Why do you `ask` that?
+- You have to `ask` kit.
+- Don't `ask` me why.
+- Anybody `ask` anything?
+- Anything... just `ask`.
+- `Ask` him about ordell.
+- `Ask` if i can keep it.
+- `Ask` irene over there.
+- `Ask` them to sit down.
+- `Ask` the priest, miss.
+- `Ask` to meet me again.
+- But he didn't `ask` me.
+- Can i `ask` a question?
+- Did he `ask` you to...?
+- Did i `ask` you to sit?
+- Did she `ask` about me?
+- Did you `ask` for bail?
+- Have a favour to `ask`.
+- I `ask` only one thing.
+- I `ask` you a question.
+- I can't `ask` you to...
+- I'm gonna go `ask` him.
+- Just `ask` his friends.
+- Let me `ask` my friend.
+- May i `ask` a question?
+- No -- but i will `ask`.
+- We could `ask` someone.
+- Why don't we `ask` him?
+- Why don't you `ask` me?
+- Why not `ask` the lady?
+- You `ask` for too much.
+- You `ask` me questions.
+- You should `ask` bobby.
+- You wanna `ask` me out?
+- `Ask` getz at homestead.
+- `Ask` him about the air.
+- `Ask` me something else.
+- `Ask` them why, oh, boy!
+- `Ask` whatever you will.
+- `Ask` your rat-fuck son!
+- Can i `ask` anybody now?
+- Don't `ask`, baby - huh!
+- Folks'll `ask` question.
+- I `ask` you for justice.
+- I couldn't `ask` you to.
+- I didn't `ask` for this.
+- I didn't `ask` him that.
+- I need to `ask` a favor.
+- I said, `ask` your wife.
+- Just `ask` your husband.
+- Maybe you can `ask` her.
+- Might i `ask` your name?
+- Together: "don't `ask`."
+- Trust me; do as i `ask`.
+- We `ask` you a question.
+- We can always `ask` her.
+- Well, don't `ask` me to.
+- What -- i have to `ask`.
+- Why don't you `ask` her?
+- Why don't you `ask` him.
+- Why don't you `ask` him?
+- Why would you `ask` now?
+- You can't `ask` me that!
+- You don't usually `ask`.
+- You'll `ask` me to what?
+- Don't `ask` me questions.
+- He suggested i `ask` you.
+- I didn't `ask` for a dog.
+- I didn't `ask` you to....
+- I hate to `ask` this now.
+- I have to `ask` you that.
+- I never thought to `ask`.
+- Is that so much to `ask`?
+- Is that to much to `ask`?
+- I've got to `ask` myself.
+- Let me `ask` you, lizzie.
+- Now, `ask` me what i see.
+- We didn't `ask` for this.
+- Well, we'll `ask` around.
+- Why didn't you `ask` him?
+                 

@@ -1,0 +1,84 @@
+---
+title: "tunnel in a sentence | tunnel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tunnel"
+---
+- Seal that `tunnel` now!
+- `Tunnel`/air vent - day.
+- `Tunnel`'s through here.
+- Where's the damn `tunnel`?
+- We're sealing the `tunnel`.
+- A `tunnel` under the palace.
+- Not if this `tunnel` deadends.
+- Don't go through that `tunnel`.
+- ere’s a `tunnel` to your camp.
+- Follow the `tunnel` to the end.
+- `Tunnel` under the wall, maybe.
+- I'm gonna fire up your `tunnel`.
+- About the stove and the `tunnel`?
+- Not that `tunnel`, the other one!
+- We can `tunnel` in from the side.
+- This is our way into the `tunnel`.
+- Together, protecting the `tunnel`.
+- ...we're gonna seal that `tunnel`!
+- But not flush against the `tunnel`?
+- At the end of a long, dark `tunnel`.
+- Runs along the side of the `tunnel`.
+- That you were building the `tunnel`.
+- Opening the `tunnel` triggered it.
+- Dammit, this `tunnel` is priority a-1!
+- Major, we've gotta seal that `tunnel`!
+- Thanos destroyed the quantum `tunnel`.
+- ...if we don't get out of this `tunnel`!
+- We got to the dam through this `tunnel`.
+- So the duke dug a `tunnel`--just in case.
+- The `tunnel` will lead you to the stable.
+- But general -- this `tunnel` is your baby!
+- Can we get out on your end of the `tunnel`?
+- e `tunnel` on the right the power plant.
+- Well, you wanted a smaller quantum `tunnel`.
+- Your friends in the `tunnel` can't help you.
+- This is where it was -- the `tunnel` opening.
+- Uh, so head for the other end of the `tunnel`.
+- We're still searching for the `tunnel` entrance.
+- She discovered that you were building a `tunnel`.
+- The entrance to the `tunnel` is right over there.
+- `Tunnel` my way to freedom after that experience?
+- There's a `tunnel` out of the crypt into the barn.
+- I don't think this `tunnel` was designed for walking.
+- Did you discover anything in that `tunnel`, dr. jones?
+- We're using the `tunnel`, but be prepared for anything.
+- He's been getting us what we need to build the `tunnel`.
+- Energy readings show they have not used the `tunnel` yet.
+- Head down that `tunnel` to the hydro vent and turn right.
+- Last night we powered up the `tunnel` for the first time.
+- Last night, we powered up the `tunnel` for the first time.
+- That tun... that `tunnel` hasn't been used in fifty years.
+- Take the first `tunnel` to your right... h-how do i get...?
+- The drill is in the water; approaching the intake `tunnel`.
+- This service `tunnel` is how they're moving back and forth.
+- We found a `tunnel` that leads to a temple below the palace!
+- This colony needs another `tunnel` like a hole in the ground.
+- But we've lost power reattach the keypad outside the `tunnel`.
+- He knows the utility `tunnel` system better than anybody alive.
+- She was sleeping when i re- entered the `tunnel` to look around.
+- We need a component to stop the `tunnel` from overloading again.
+- I need to keep the membranous `tunnel` open for paying customers.
+- Entering the main `tunnel` - ten minutes to target - bore through.
+- I scratch any more tonight i'm gonna have carpal `tunnel` syndrome.
+- Scale the -- scale the barricade and `tunnel` through no man's land.
+- But it'll take half a day there is no light at the end of the `tunnel`.
+- The curved `tunnel` we saw is part of the vortex, the place of the beast.
+- You spend so much time talking about peace, there's only the `tunnel`, what?
+- Think about it...long `tunnel`, bright lights, it's full of vaginal symbolism.
+- I'll picket your whole country.... or a `tunnel` or a bridge... what for... why?
+- The first thing we do is put a remote sentry in the `tunnel` and seal that door.
+- ...the night is a `tunnel`... a hole into tomorrow... if we're to have a tomorrow...
+- At the excavation site in scotland, the `tunnel` leading into the cavern had collapsed.
+- Oh no... bala, that -- that lake we found -- i think the `tunnel`'s right underneath it!
+- The sooner we get the `tunnel` working, the sooner we can get this message out his head.
+- No cameras, the doj doesn't bother with it, it's accessed by a `tunnel` they boast about.
+- You couldn't even get a hand job from bridge and `tunnel` posse, how you gonna get a gun?
+- What bothers me is that we found the rocks from the hole on our side of the `tunnel` wall.
+                 

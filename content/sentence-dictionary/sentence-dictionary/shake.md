@@ -1,0 +1,75 @@
+---
+title: "shake in a sentence | shake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shake"
+---
+- `Shake` it out for me.
+- `Shake` off the pitch.
+- I can't `shake` her free.
+- I said, `shake` her hand.
+- Smile and `shake` my ass?
+- Then why do you `shake` so?
+- `Shake` that, don't pull it.
+- ♪ come on, `shake`... ♪ mike!
+- They wanna `shake` things up!
+- `Shake` hands with your daddy.
+- Well then, just `shake` hands.
+- Did you `shake` the mother off?
+- Let's `shake` a leg, ladies.
+- I don't think i can `shake` him.
+- Heroes ain't supposed to `shake`.
+- May i ask: do your hands `shake`?
+- I'd `shake` hands, but... amazing.
+- All right, you guys, `shake` hands.
+- I `shake` a lot of hands, you know?
+- Forgive me if i don't `shake` hands.
+- I'm not trying to `shake` your faith.
+- Simultaneously, they `shake` and zip.
+- Oh, i think a `shake`-up was in order.
+- Been here 12 years but can't `shake` it.
+- You wanna come in and `shake` it for me?
+- A man couldn't ask for a squarer `shake`.
+- I haven't been able to `shake` him since.
+- Didn't he bow to him and `shake` his hand?
+- Sounds to me you better `shake` him again.
+- The vibrations could `shake` her to pieces.
+- Did those two muscle heads `shake` you down?
+- All i wanted in this case is an even `shake`.
+- It's what we call a "`shake` 'n bake" colony.
+- Doesn't all of this `shake` your faith at all?
+- I had some players to see and hands to `shake`.
+- I want to `shake` your hand and reload your gun!
+- So don't `shake` hands; just a friendly wave ah!
+- Twenty years' experience, i couldn't `shake` you.
+- Why can't they just `shake` hands and be friends?
+- I'll go over with you right now, `shake` him down.
+- Round up all suspected vee cees and `shake` it up!
+- `Shake` your head real hard -- you'll be all right.
+- How long before russell finds out okay, i'll `shake`.
+- Come on, `shake`, we'll leave 'em to their penmanship.
+- Nothing has occurred recently to `shake` my confidence.
+- Once you get a nickname like that you can't `shake` it.
+- If you can't answer me, just `shake` your head yes or no.
+- It doesn't look like much till you `shake` it up a little.
+- Gotta `shake` 'em up now and again, make 'em pay attention.
+- If we can't do business, we `shake` hands and part friends.
+- Let's show the guys our new secret best-friends hand `shake`.
+- Mind if i `shake` it off first...so's i can concentrate better.
+- You're doing the right thing, dick ... don't let 'em `shake` you.
+- I have a cold i can't seem to `shake` but other than that, i'm fine.
+- You don't need to talk all macho, "`shake` him out, little bad boy."
+- All the shit we pulled with you and you're trying to `shake` us down?
+- I mean, they had bookies, pimps and drug dealers i could `shake` down.
+- Let us `shake` hands, drink rice wine, i want redemption or else, dude.
+- Like to `shake` your hand if you'll hurry up and get that chest closed.
+- Well, there they are - more millionaires than you can `shake` a stick at.
+- Before anyone moves, you two `shake` hands and don't carry it any further.
+- Everyone's very anxious to `shake` hands with our newest academic celebrity.
+- It's like this major meal in a `shake` you drink instead of having a big meal.
+- Pay some thief's salary while he thinks up new ways to `shake` the money tree?
+- Anyway, steal from him they'd pick up the whole prison and `shake` it sideways.
+- But this business got me wonderin' what a good `shake` and slap would do for her.
+- Your grandfather pointed out `shake` was always being taller than me just to spite me.
+- Prepare to enter the atmosphere... we'll use the ionospheric boundary to `shake` him...
+                 

@@ -1,0 +1,107 @@
+---
+title: "feeling in a sentence | feeling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feeling"
+---
+- `Feeling` good, arnie.
+- How are you `feeling`?
+- I got a bad `feeling`.
+- I'm `feeling` lucky ..
+- It's a flat `feeling`.
+- It's just a `feeling`.
+- Retain that `feeling`.
+- Are you `feeling` okay?
+- `Feeling` the pressure?
+- How you `feeling`, doc?
+- I know the `feeling`...
+- I'm `feeling` too good.
+- How you `feeling`, beck?
+- How you `feeling` today?
+- I just have a `feeling`.
+- I wasn't `feeling` well.
+- You `feeling` all right?
+- You're `feeling` better.
+- Are you `feeling` better?
+- He's `feeling` wonderful.
+- He wasn't `feeling` well.
+- ...how ya `feeling`, boy?
+- I have a funny `feeling`.
+- It's more of a `feeling`.
+- I've got a bad `feeling`.
+- Said it had no `feeling`.
+- You `feeling` any better?
+- You `feeling` okay, beck?
+- Aren't you `feeling` well?
+- Are you `feeling` alright?
+- `Feeling` better, my dear?
+- `Feeling` up to some work?
+- I have this ... `feeling`.
+- Are you not `feeling` well?
+- Had a `feeling` it was you.
+- He's just `feeling` us out.
+- How are you `feeling` jake?
+- How're you `feeling`, beck?
+- How you `feeling`, big guy?
+- I get that `feeling`, yeah.
+- I got a bad `feeling`, man.
+- I'm `feeling` a periwinkle.
+- I'm `feeling` very fragile.
+- I sure know that `feeling`.
+- I've been `feeling` better.
+- So, you `feeling` anything?
+- Sweetie, how you `feeling`?
+- Viktor, i have a `feeling`.
+- You had no inner `feeling`?
+- Are you `feeling` all right?
+- End up `feeling` like a sap.
+- Freezy, i'm `feeling`...hot.
+- How are you `feeling` today?
+- How can i go on a `feeling`?
+- How have you been `feeling`?
+- I had a `feeling` you would.
+- It's such a weird `feeling`.
+- So... how are you `feeling`?
+- The `feeling` just vanished.
+- You `feeling` bad for jimmy?
+- You `feeling` better franny?
+- Diane, how are you `feeling`?
+- `Feeling` a bit blue, are we?
+- `Feeling` lucky today, miles.
+- How are we `feeling` tonight?
+- How you `feeling`, all right?
+- I got a `feeling` i loved it!
+- I know what you're `feeling`.
+- I'm `feeling` quite fatigued.
+- I'm `feeling` so much better.
+- Is his back `feeling` better?
+- Lis, this is a new `feeling`.
+- No hard `feeling`, eh, chum ?
+- She wasn't `feeling` so good.
+- Uncle, how are you `feeling`?
+- You have the wrong `feeling`.
+- You must have some `feeling`.
+- Because they're `feeling` hot.
+- Haven't you got any `feeling`?
+- How are you `feeling`, norman?
+- How you `feeling`, sleepyhead?
+- I know what you are `feeling`.
+- She isn't `feeling` very well.
+- Stu, are you...`feeling` okay?
+- Clarke, are you `feeling` okay?
+- It's `feeling` much better now.
+- I ... wasn't `feeling` well ...
+- Listen, i'm not `feeling` well.
+- She wasn't `feeling` very well.
+- That `feeling` never goes away.
+- That `feeling` won't last long.
+- Trust me, i know the `feeling`.
+- How are you `feeling`, fernando?
+- I'm `feeling` a little left out.
+- I'm `feeling` fine this morning.
+- I'm kinda `feeling` nuts myself!
+- Mama is not `feeling` very well.
+- Oh... huh ... how you `feeling`?
+- Otherwise, `feeling` all right?
+- Am i horrible for `feeling` that?
+                 

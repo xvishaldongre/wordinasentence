@@ -1,0 +1,107 @@
+---
+title: "y in a sentence | y example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "y"
+---
+- Looks quiet, `y`'know.
+- `Y`'know it is, a bit.
+- `Y`'know -- make love?
+- Yo soy dies `y` nueve.
+- I have a son, `y`'know?
+- M-o-n-`y` -- i'm right!
+- Shirts... my d.k.n.`y`.
+- Um... `y`'know... yeah.
+- `Y`'all mind the store.
+- `Y`'ever think of that?
+- `Y`... you get floated.
+- I needed this, `y`'know?
+- It's your nose, `y`'see.
+- Why would i string `y`'?
+- Would `y`'all like that?
+- `Y`'all pull up a chair.
+- `Y`'ever smoke any shit?
+- `Y`'know that's illegal.
+- `Y`-`y`-yes-- you alright?
+- Hey, where `y`'at, frank?
+- Som'b'`y` you don't know.
+- X, `y`, and z, follow me.
+- `Y`'all just act natural.
+- `Y`-you used to-- oh, no!
+- Easy, peasy, japanese-`y`.
+- ...i'm not deaf, `y`'know.
+- I've been there, `y`'know.
+- Ok. um, no, `y`'know what?
+- Start equalizing, `y`'all.
+- Su casa `y` shit-o hole-o.
+- I care about him, `y`'know?
+- See `y`'at the finish line.
+- `Y`'know, i've been here...
+- `Y`-`y`-you fucking shot him!
+- C'mon shorty, `y`'gotta ask?
+- ♪ i'll tell `y`... ♪ japser.
+- I just said that -- `y`'know.
+- I really do love `y`-- awwww.
+- Is it like, `y`'know, normal?
+- It's `y`. o. h. you think so?
+- No, c'mon...`y`'know, i read.
+- `Y`'know, i'm an artist, too.
+- `Y`'know, it's all so phoney.
+- `Y`'know, to make it so long?
+- Hey, amber, `y`'get my smokes?
+- Hey, i'm not stupid, `y`'know.
+- I've been swimming at the `y`.
+- She's the prettiest, `y`'know.
+- Some'b'`y`'ll have you killed.
+- `Y`'all just shut the fuck up!
+- `Y`'all take american express?
+- `Y`'know, i'm sort of psychic.
+- `Y`'know what else bothers me?
+- `Y`'know you're a fire hazard?
+- You can holla `y`'self hoarse.
+- `Y`-you did not do well today.
+- He loves his weather, `y`'know.
+- I know some stuff too, `y`'all.
+- `Y`'know, uncle frank... shush.
+- `Y`-`y`-yeah that's what he said.
+- No refund on the mask, `y`'know.
+- That's the punchline, `y`'ready?
+- `Y`'all bring your gorilla here.
+- I'm no midnight cowboy, `y`'know.
+- No rest for the wicked, `y`'know.
+- You, you, `y`-you've said enough.
+- Anyway -- it's just... `y`'know...
+- I teach communications at n.`y`.u.
+- It's over, `y`'know -- who was it?
+- Oh, why-uh... `y`-`y`-you gotta car?
+- They're trained as kids, `y`'know.
+- They treated me, `y`'know... nice.
+- When will i see another, `y`'know?
+- `Y`'wanna follow the cattle drive?
+- `Y` -- what in hell starts with `y`?
+- Oh yeah, he's very clean, `y`'know.
+- `Y`'all got a phone here i can use?
+- `Y`'want to gimme brigham's pistol?
+- `Y`-you get enough of that at home.
+- `Y`-you live in chelsea, don't you?
+- `Y`-`y`-yeah, just for fifteen years.
+- All right, `y`'all gonna go with me?
+- Cold blood sid, dead eyes, `y`'know?
+- I won't tell nobody, `y`'understan'?
+- `Y`'know what surprised me the most?
+- You're, `y`-you're right, i'm sorry.
+- `Y`-you're a g-god damn saint, john.
+- And you, `y`-you're just a mercenary.
+- Faggot, `y`'know, hated this country.
+- Out of the mouth of babes `y`'ask me.
+- Why don't `y`'all check out the rest?
+- `Y`'all getting any rain up your way?
+- `Y`'ever read your shakespeare, bill?
+- `Y`'have the option... what about me?
+- `Y`'hear anything you'll let me know?
+- `Y`'know, it's thanksgivin' tomorrow.
+- `Y`-you know where to find me, right?
+- There was definitely a `y`. ha ha!
+- General osvaldo tamarindo `y` ramirez.
+- So i kinda, `y`'know, i'm thinkin' no.
+                 

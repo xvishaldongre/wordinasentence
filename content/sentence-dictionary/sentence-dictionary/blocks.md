@@ -1,0 +1,54 @@
+---
+title: "blocks in a sentence | blocks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blocks"
+---
+- `Blocks` radio signals.
+- The bag `blocks` the signal.
+- The concrete `blocks` are in.
+- Two men, a few `blocks` away.
+- I own three `blocks` downtown.
+- It's only three `blocks` away.
+- Two `blocks` down, turn right.
+- They're backed up for `blocks`!
+- 2.4 `blocks` per game, lifetime.
+- I had to park two `blocks` away.
+- He was found a few `blocks` away.
+- His house is three `blocks` away.
+- You lived five `blocks` from her.
+- Okay, we've got two cell `blocks`.
+- The building `blocks` of his body.
+- We only live a few `blocks` apart.
+- Lee a couple of `blocks` from here.
+- There's a spot a few `blocks` away.
+- C'mon, walk me a couple of `blocks`.
+- It happened four `blocks` from here.
+- I'm about ten `blocks` from the school.
+- It's only a few `blocks` to barnhardt's.
+- Eight `blocks` down in the rue de poivrel.
+- The hotel's a few `blocks` up on the left.
+- There's a place two `blocks` east of here.
+- My house is just a couple of `blocks` away.
+- I was born just two `blocks` from this studio.
+- Besides, i only live three `blocks` from there.
+- `Blocks` that are easy to mistake as characters.
+- Then two fall showings -- twenty `blocks` apart.
+- They only lived a coupla `blocks` from the clinic.
+- Fine... once or twice it did fall off the `blocks`.
+- I set those `blocks` together, patched the muscles.
+- Or building `blocks` for a world that never formed.
+- Three `blocks` west of that, you want to hang right.
+- My family runs a pension not three `blocks` from here.
+- Madison lives two `blocks` from their present location.
+- We passed it a few `blocks` back, where the police were.
+- Then a repressor protein that `blocks` the operating cells.
+- You can't build life like you put together `blocks`, toddy.
+- Just with the letters stacked into `blocks` of syllables, wow.
+- You are a prisoner in those `blocks` until you hear the sound.
+- I can't walk two `blocks` in washington without hearing about "g.i.
+- Apparently we're neighbors - my house is two `blocks` from yours in montreal.
+- Stephen strange is currently performing surgery about twenty `blocks` that way.
+- It appears to be a heavy fluid of some sort... it `blocks` the x-rays... close...
+- Then we want to walk three `blocks` down past stage 17 to the white executive building.
+                 

@@ -1,0 +1,105 @@
+---
+title: "pocket in a sentence | pocket example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pocket"
+---
+- Top `pocket`... go on.
+- Reach into my `pocket`.
+- Put it in your `pocket`.
+- His left jacket `pocket`.
+- You got a `pocket` pager?
+- I had them in my `pocket`.
+- Jacket on, tie in `pocket`.
+- May i reach in my `pocket`?
+- In his inside coat `pocket`.
+- Through your pants `pocket`?
+- I carry bacon in my `pocket`.
+- Anywhere not in your `pocket`.
+- Don't put it in your `pocket`.
+- I stuffed it into my `pocket`.
+- Picked his `pocket`, actually.
+- In the envelope in my `pocket`.
+- Okay... in your `pocket`... no.
+- Have you got a `pocket` compass?
+- ...don't put it in your `pocket`.
+- In your `pocket`, free and clear.
+- Mm hm... two ball, side `pocket`.
+- Check my `pocket`, will ya, honey?
+- Crush'em, put em in your `pocket`.
+- I've got a `pocket` full of tapes.
+- I've got your note in my `pocket`.
+- One `pocket` comb - black plastic.
+- In your `pocket`, please... oh god!
+- To put one of these in my `pocket`?
+- I have a `pocket` full of money.
+- Must have fallen out of my `pocket`.
+- You sure he didn't just `pocket` it?
+- I can't carry it in my `pocket`, man.
+- In my left coat `pocket` is a packet.
+- Are we goin' outta `pocket` ourselves?
+- Had twenty-five grand in his `pocket`.
+- I put the diamond in my coat `pocket`.
+- Keys in the... left `pocket`, probably.
+- So it's just peeking over the `pocket`.
+- Sure, reach in my shirt `pocket` there.
+- That guy lovejoy put it in my `pocket`.
+- You play `pocket` billiards, don't you?
+- The hip has the largest marrow `pocket`.
+- Someone get it out of my `pocket` for me.
+- Take your hand out of my `pocket`, thief!
+- I felt milholland's report in my `pocket`.
+- My right.. jacket..`pocket`.. where is it?
+- With a `pocket` fulla firecrackers - good.
+- It's less than `pocket` change for pg&e.
+- Maybe they just took it out of his `pocket`.
+- To put your money in the rich man's `pocket`.
+- Did you put the envelope in your `pocket`?
+- That crack is burning a hole in your `pocket`.
+- Can i reach in my `pocket`, show you something?
+- 'cause you got some money in your `pocket`, see?
+- You look like you've got money in your `pocket`.
+- Even if it is `pocket` propaganda he's convulsing.
+- I have no idea what that was doing in my `pocket`.
+- I've got enough cash in my `pocket` for one night.
+- We are the victims of a `pocket`-picking pandemic.
+- Cause you can crush it and put it in your `pocket`.
+- Put your hand in your `pocket` like you have a gun.
+- I have a warrant in my `pocket` that says different.
+- I met short round when he tried to pick my `pocket`.
+- He had all the judges and politicians in his `pocket`.
+- How many paupers did peter's `pocket` picking produce?
+- Other computer are `pocket` calculators by comparison.
+- I knew it very well when you took it out of my `pocket`.
+- What can i... ...everything's comin' out of my `pocket`.
+- The badge in my `pocket` says "detective," same as yours.
+- Exfil opens the `pocket` -- -- cyber ops lifts the wallet.
+- Breeze pulls a copy of "new york bowler" from his `pocket`.
+- It's sittin' in your apron `pocket`, right where you left it.
+- Do you usually put your <u>carbons</u> in your `pocket`, too?!
+- There's an enveloped inside -- left jacket `pocket` confirmed.
+- That you carry in your `pocket` like so many nickels and dimes.
+- Well, acme had the will in his `pocket` that night at the club.
+- You might wanna put that time stone in your back `pocket`, doc!
+- If he steals anything, i'll take it out of your `pocket` anyway.
+- Does he get his hat out of his `pocket` at just the right moment?
+- It was because i had this...in my `pocket` you were very nervous.
+- Now be a sport and lemme have twenty bucks to put in my `pocket`.
+- I gotta hunch it's me from here on in... one ball, corner `pocket`.
+- Then if you figure your tax wrong, you pay out of your own `pocket`.
+- The `pocket`'s a cinch -- i'll sew it up for you after dinner, okay?
+- You can't feel it when it's in your hand, when it's in your `pocket`.
+- Not the kind of somebody you can be with a `pocket` full of gold coins.
+- One of those big terry cloth jobs, with like embroidery on the `pocket`.
+- Two hundred thousand cash, right in your `pocket`, no one needs to know.
+- The one you took out of the corner of your bunk and put in this `pocket`.
+- A disk, a chip, anything small enough to put in his `pocket` and run with.
+- When i wrote that note you have in your `pocket`-- that was no trick either.
+- Because the crackpot who did it had a copy of the "enquirer" in his `pocket`?
+- Why, that fifty bucks in your `pocket`'s beginning to show up on you already.
+- Alex, without looking at him, reaches in his `pocket` and gives him some money.
+- You either get it from the wife or out of your own `pocket`, i don't give a fuck.
+- But instead of, like, screws and metal, peter piper picked a peck of `pocket` wallets?
+- You mean you had the slow fuse in your `pocket` all the time and you forgot to put it on?
+- Hey, i'll tell you what -- i'll play you jack-up pool -- just keep one hand in my `pocket`.
+                 

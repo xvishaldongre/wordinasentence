@@ -1,0 +1,107 @@
+---
+title: "places in a sentence | places example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "places"
+---
+- Back to your `places`.
+- Some `places`, not all.
+- Then we trade `places`.
+- There's worse `places`.
+- I've seen worse `places`.
+- Most `places` are, jimmy.
+- There are other `places`.
+- Both `places`... you know.
+- I go `places`, i interact.
+- `Places` that aren't mapped.
+- There are no worse `places`.
+- You play all these `places`?
+- I know all the right `places`.
+- There's worse `places`, honey.
+- You should see these `places`.
+- `Places` are not evil, brother.
+- You're in two `places` at once.
+- Ain't many `places` he can hide.
+- Not many of these `places` left.
+- These `places` are full of them.
+- Why they land in these `places`?
+- You go in `places` we can't fit.
+- I played piano in a few `places`.
+- The extras are in their `places`.
+- I mean, better `places` then this?
+- I've got plenty of `places` to go.
+- Not until trading `places` in '83.
+- `Places` where someone could hide?
+- You said bad things hurt `places`.
+- Don't they have `places` like this?
+- ...he doesn't get invited `places`.
+- It's hard to go `places`, isn't it?
+- Look, pal, i've got `places` to be.
+- There's some great `places` nearby.
+- A few `places` -- that's a few jobs.
+- I got a problem with small `places`.
+- They know the best `places` to stop.
+- That's why you go `places`, isn't it?
+- When she goes to those `places`...
+- Come on, watson, we're going `places`.
+- There's lots nicer `places` than mars.
+- [beat] not in the `places` i come from.
+- Who `places` her trust in thee, my god.
+- You said that in the last two `places`.
+- Any of these `places` could have a mole.
+- There are plenty of other safe `places`.
+- Yeah, and in all the right `places` too.
+- Been usin' my good name, to get `places`.
+- Have you ever seen one of those `places`?
+- In riyadh, saudi arabia, of all `places`.
+- `Places` like this just make you small...
+- Aren't there a million `places` like this?
+- Everyone take their `places` on the stage!
+- I can't stand being in closed-in `places`.
+- I've got a thing about, `places` like this.
+- Pianos were their favorite hiding `places`.
+- Well, i don't get on so well most `places`.
+- I can't...my mind must be in other `places`.
+- No predetermined `places` and times to meet.
+- Oh, like you haven't been in worse `places`.
+- We have some nice `places` around vancouver.
+- You, there are many `places` to get away.
+- There's a lot of other `places` i could work.
+- He could go off road at any number of `places`.
+- Seems to like some of the same `places` you do.
+- Some `places` that's what people use for money.
+- There's a million `places` to hide around here.
+- You sure knew a lot of people in high `places`.
+- Darrell-- look, harlin, i've got `places` to be.
+- There's `places` -- we can't afford to be wrong!
+- Who takes you `places`, opens things up for you.
+- And dustin `places` them into his bag of holding.
+- 'i've been so many `places` in my life and times.
+- Sister, you can't just go breaking into `places`.
+- In a lot of different `places` throughout history.
+- It is one of the most beautiful `places` on earth.
+- Damn few `places` you can make eighty bucks a week.
+- ...in some legitimate `places`, like my restaurant.
+- It was on a list of top ten `places` to see clarke.
+- You ever, you ever stayed in one of those `places`?
+- You're that policeman with friends in low `places`.
+- I must say you have friends in influential `places`.
+- I thought i'd show you one of my favourite `places`.
+- Why did you care that we were there of all `places`?
+- I'd change `places` with a plumber's daughter any day.
+- There's not even enough `places` to stash it in a car.
+- We have been in difficult `places` before, haven't we?
+- I had that diamond checked at three different `places`.
+- One of those cozy bed and breakfast `places`, probably.
+- Different `places`, different methods, different people.
+- It's one of those few `places` we'd never go to as kids.
+- Truck drivers know the best eating `places` on the road.
+- You know you can get `places` in the world with pudding.
+- I've been a lot of `places` - i've asked a lot of people.
+- Do you know, i never knew he worked in one of my `places`!
+- Go `places` you're not meant to be -- that's what you get.
+- I'm telling you, you and me, that map, we can go `places`.
+- The government's putting dough in too many `places` *now*!
+- The night i take you to `places` you've never been before.
+- We spent a lot of time in nicaragua... `places` like that.
+                 

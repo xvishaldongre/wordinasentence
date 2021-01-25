@@ -1,0 +1,55 @@
+---
+title: "cable in a sentence | cable example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cable"
+---
+- `Cable` from gainsford.
+- My `cable`'s out again.
+- What, like the `cable`?
+- You don't have `cable`!
+- I'd better `cable` my wife.
+- The ignition `cable`'s gone.
+- Did you say `cable` junction?
+- We don't even get `cable` tv.
+- See where `cable` junction is?
+- There's a `cable` on the sled.
+- This is great, we got `cable`.
+- To become a `cable` repairman?
+- Are you here about the `cable`?
+- It's not just the `cable` system.
+- Just the damn `cable` tv company.
+- We just need the ignition `cable`.
+- On network, `cable`, and streaming.
+- It comes here from `cable` junction.
+- `Cable` pulls the safety pins, k-boom!
+- Lost transmission at `cable` junction.
+- That's why we're here, sheriff `cable`.
+- `Cable` snapped, a car dropped ten floors.
+- The `cable` will terminate in a big, gray box.
+- Jeez, it all looks like bad late-night `cable`.
+- You still wear the `cable` necklace i gave you.
+- Except that `cable` is a thousand feet long, norman.
+- I mean, they can't manage when the `cable` goes out.
+- Why cram it into a `cable` if you can use the whole sky?
+- What was barnes doing before they cut that `cable` loose?
+- It's damn lucky you didn't have the dossier on `cable` here.
+- `Cable` owned a plot of woodland -- he'd go there on weekends.
+- So're media conglomerates, `cable` companies, phone companies.
+- I didn't get a `cable` or a call or a note or, frankly, a fart.
+- Only the guy does those `cable` hacks says the stuff's no good.
+- The first thing we want to do is to `cable` the foreign office.
+- ...where they get all the really good porno channels on `cable`.
+- Your `cable` said you wouldn't be putting out until mid-october.
+- Low tide at `cable` junction is 7:46 p.m. no problem, no problem.
+- Sheriff `cable`, where were you the night teresa banks was murdered?
+- Sheriff `cable`'s already asked me a few questions about teresa banks.
+- I think we'll have to send our friend wheeler a `cable`, mr. bernstein.
+- From the looks of davidson's `cable`, it might even go higher than that.
+- Other places have beds, they also have `cable` tv, a gym, room service...
+- You gotta find the rf-p1u with coaxial `cable` there's an army out there.
+- But i received a `cable` only this morning, saying that he could not come.
+- This is anger watkins, and you're watching basic `cable`'s four to the left.
+- But if `cable` killed grunemann why would he get you hired to look for grunemann?
+- Little matter to me that this woman chose to pursue a career he fixes the `cable`?
+                 

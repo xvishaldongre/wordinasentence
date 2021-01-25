@@ -1,0 +1,107 @@
+---
+title: "little in a sentence | little example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "little"
+---
+- Big piece or `little`?
+- Cheery `little` place.
+- Come on, `little` one.
+- Even a `little` motor.
+- Felt a `little` light.
+- Have a `little` faith.
+- Have a `little` snort?
+- He has a `little` dog.
+- He's a `little` prick!
+- Hold on, `little` man.
+- I grew up, a `little`.
+- I had a `little` girl.
+- I had a `little` help.
+- I'm a `little`...busy.
+- I'm a `little` hungry.
+- I'm a `little` thrown.
+- It's a `little` heavy.
+- Just a `little` crazy.
+- Just a `little` short.
+- Leon, my `little` boy.
+- Let's live a `little`.
+- `Little` slow tonight.
+- Maybe just a `little`.
+- Show a `little` class.
+- That `little` old man.
+- The `little` bastards.
+- Try a `little` higher.
+- Ugly `little` lives...
+- What `little` old man?
+- Yeah, `little` gloria.
+- A `little` bit of both.
+- A `little` cyborg girl.
+- A `little` girl, chief.
+- A `little` to the left.
+- ...a `little`, uh, hey!
+- A "`little` white lie"?
+- Bought a `little` time.
+- Cocky `little` bastard.
+- Daddy's `little` angel.
+- Deadly `little` things.
+- Discouraged a `little`.
+- Give it a `little` gas.
+- Goose it up a `little`.
+- He had a `little` help.
+- Hello, my `little` boy.
+- He's a `little` person.
+- He's just a `little`...
+- Hey, a `little` hustle.
+- I eat so very `little`.
+- I have a `little` girl.
+- I'm a `little` worried.
+- Inez speaks a `little`.
+- In that `little` thing?
+- It's a `little`... sam?
+- It's 'cos i'm `little`.
+- It's the `little` deer.
+- I was a `little` tipsy.
+- I�m a `little` nervous.
+- Just a `little` closer.
+- Just a `little` higher!
+- Kid is a `little` shit.
+- Like a `little` sister.
+- Like `little` children.
+- `Little` bitch shot me.
+- `Little` late for that.
+- Looks a `little` funny.
+- My hair's a `little`...
+- My `little` gingersnap!
+- Relax a `little`, okay?
+- Seems a `little` loose!
+- She's a `little` daffy.
+- She's a `little` tipsy.
+- She's my `little` girl.
+- So eat just a `little`.
+- Taking a `little` trip?
+- Turn 'er up a `little`.
+- Uh, yeah, `little` bit.
+- Well, maybe a `little`.
+- What's a `little` more?
+- Who's our `little` man?
+- Why, you `little` punk.
+- Yes, the `little` door.
+- A `little` after eleven.
+- A `little` dab'll do ya.
+- A `little` fatter maybe?
+- A `little` longer, paul?
+- A `little` sugar though.
+- A `little` boy, too.
+- And a `little` breeding.
+- As `little` as possible.
+- Benny's `little` sister.
+- Create a `little` drama?
+- Faithful `little` sarah.
+- Feel a `little` foolish?
+- Had a `little` accident.
+- Have a `little` nitrous.
+- He's a `little` unhappy.
+- He was a `little` older.
+- Hop away `little` bunny.
+- I don't need a `little`.
+                 

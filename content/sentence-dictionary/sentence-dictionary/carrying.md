@@ -1,0 +1,107 @@
+---
+title: "carrying in a sentence | carrying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "carrying"
+---
+- He was `carrying` her.
+- Just `carrying` a bag.
+- He's `carrying` a bomb.
+- We're `carrying` weight.
+- They are `carrying` guns.
+- The `carrying` charges?
+- What if they're `carrying`?
+- He started `carrying` a gun.
+- I'm `carrying` you as it is.
+- Was she `carrying` a weapon?
+- Are you `carrying` a surgeon?
+- Why are you `carrying` a gun?
+- All these men were `carrying`.
+- `Carrying` swayzak's notebook?
+- I'm `carrying` a lot of anger.
+- A swallow `carrying` a coconut?
+- What are you `carrying`, willy?
+- Why are you `carrying` the dog?
+- Your uncle was `carrying` this.
+- They're `carrying` guns in town.
+- You still `carrying` passengers?
+- Well, i'm `carrying` three people.
+- If you're `carrying`, it has to go.
+- I'm `carrying` a bit of a load here.
+- He's `carrying` the damn <u>flag</u>.
+- They're fucking `carrying` the stuff.
+- We are `carrying` a damn bomb... int.
+- I am a card-`carrying` seasonal santa.
+- I thought he was `carrying` something.
+- You thought he was `carrying` a knife?
+- Hope you're `carrying` some protection.
+- If they knew what they were `carrying`.
+- Plan on `carrying` some away in a kettle?
+- `Carrying` out our mission, mr. secretary.
+- So i assume he will still `carrying` them.
+- How much money are you `carrying` with you?
+- If he's `carrying`, he'll step out of line.
+- It was the same when i was `carrying` will.
+- They think we're `carrying` cuban refugees.
+- You shouldn't be `carrying` that heavy bag.
+- That horse is `carrying` too much of a load.
+- `Carrying` charges, my boy, `carrying` charges.
+- That's a lot of cash to be `carrying` around.
+- The baby you're `carrying` around inside you.
+- A ship arrives `carrying` this perfect vessel.
+- He's `carrying` her off now through the woods.
+- Mere errand boys `carrying` concealed weapons.
+- That's from `carrying` around the bull fiddle.
+- You're `carrying` too much money on you, hank.
+- You've got a problem with me `carrying` a gun?
+- She came here today `carrying` a plate of food.
+- Of that plus sign he's always `carrying` around.
+- The guy might not have been `carrying` anything.
+- What was this chimera nekhorvich was `carrying`?
+- I've been `carrying` you our whole fuckin' lives.
+- So sometimes you were `carrying` just your sword?
+- Why would he be `carrying` it around in an alley?
+- It's like `carrying` a monkey around on your back.
+- How did he get past her security `carrying` a what?
+- They could all be `carrying` them for what we know.
+- I'm `carrying` quite a large sum in travelers checks.
+- Anyone see a southern gentleman `carrying` a building?
+- Anyone see a southern gentleman `carrying` a building?
+- You were `carrying` them for a pilot husband of yours.
+- I remember `carrying` your ass through the woods in it.
+- He is the only one in the world worthy of `carrying` it.
+- Boy, maggie, you're `carrying` a lot of anger towards mom.
+- How much do you have for `carrying` on your investigation?
+- Uh unh, `carrying` a gun wrecks the line of a fine jacket.
+- Like there's this weight you're `carrying` around with you.
+- It's no big deal, it just <u>looks</u> better `carrying` me.
+- Well, you're going to have a problem `carrying` on, aintcha.
+- What do you think -- i should be `carrying` a torch for you?
+- Do you mind if i sit down - i'm `carrying` quite a load here.
+- How did you know that man you bumped was `carrying` a weapon?
+- Oh, you mean because i wasn't `carrying` my purse at the time.
+- You know that ratty green thing he's always `carrying` around.
+- I call it 'the turtle,' as in `carrying` your home on your back.
+- You're `carrying` around a secret that seems to be eating you up.
+- All right, hell, you trying to work and me `carrying` on in there.
+- If he has a heart attack you're `carrying` the body down yourself.
+- I've got a broken back from `carrying` you all these years anyway.
+- What's that little 'droid' `carrying` that's so blasted important?
+- Those corpuscles -- `carrying` oxygen -- give the stream its color.
+- Way i see it if something happens i want to be `carrying` my share.
+- We have to find he rebels... what we're `carrying` belongs to them.
+- We will just have to find out who's going to be `carrying` them.
+- In 1985 you were flying for twa and got busted for `carrying` drugs.
+- There's no way for them to know they're `carrying` cameras, not bombs.
+- He's a colored man in chauffeur's uniform `carrying` a basket of fruit.
+- You're `carrying` that around like it was a picture of your girlfriend!
+- I got a pound of stuff in my jacket i've been `carrying` around all day.
+- I'm not in the habit of `carrying` around photographs of my male friends.
+- I've been `carrying` this franchise on my back since i was six years old.
+- Or he might have been `carrying` a silver handled gun tucked in his pants.
+- Hey, luther told me he was `carrying` a wad, but i didn't figure this much.
+- `Carrying` it alone, the rest of my life... and i have looked down the road.
+- He went out several time last night, in the rain `carrying` his sample case.
+- Surprised you're able to lift a mug after `carrying` that torch for so long.
+- The next is of a frankenstein-esque creature `carrying` a woman in its arms.
+                 

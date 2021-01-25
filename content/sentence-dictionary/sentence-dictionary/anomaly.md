@@ -1,0 +1,58 @@
+---
+title: "anomaly in a sentence | anomaly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "anomaly"
+---
+- It's not an `anomaly`.
+- Towards the `anomaly`.
+- The `anomaly` will do that.
+- The shape of the `anomaly`.
+- On the way to the `anomaly`.
+- A one in a billion `anomaly`.
+- The `anomaly`'s calling you...
+- We call it the `anomaly` stone.
+- So tell me about this `anomaly`.
+- Of what you call the "`anomaly`."
+- "quantum `anomaly`" in argentina.
+- That's why the `anomaly` called us.
+- What happened inside the `anomaly`?
+- I believe you call it the `anomaly`.
+- The `anomaly` was on top of us then.
+- Walk into the `anomaly` to find him?
+- Something about this space `anomaly`.
+- Is it possible - what's the `anomaly`?
+- The `anomaly` gave me a second chance.
+- About a quantum `anomaly` in argentina.
+- Jordan, there's an `anomaly` here, too.
+- She went into the `anomaly` and came back.
+- All signals get sucked up by the `anomaly`.
+- There's a cave on the way to the `anomaly`.
+- They don't call it the `anomaly` for nothing.
+- We don't know how the `anomaly` works, right?
+- You'll want to follow signs of the `anomaly`.
+- Clarke... we need an `anomaly` stone for that.
+- He was born a vampire, but he is an `anomaly`.
+- If it's not too much trouble, _ the `anomaly`.
+- No one has ever come out of the `anomaly`, ok?
+- And why are they taking bellamy to the `anomaly`?
+- Must be a result of moving through the `anomaly`.
+- The radiation is not an `anomaly`, it's the clue.
+- I want to know what happened inside the `anomaly`.
+- If we were to circulate the `anomaly`'s calling you.
+- Looks like we're swimming to the `anomaly` after all.
+- The `anomaly` is a wormhole, you sure about the route?
+- ♪ rockin' in the u.s.a. ♪ - the shape of the `anomaly`.
+- I got plans... you're an `anomaly` in today's world, max.
+- I guess we better see what the hell this `anomaly` wants.
+- I guess we better see what the hell this `anomaly` wants.
+- Randomly chose two planets connected by `anomaly` stones?
+- You can ask gabriel yourself when we get to the `anomaly`.
+- In the time you waited to follow me into the `anomaly`, hello?
+- It was a sonic `anomaly` probably caused oh, come on, young man.
+- Anyone ever teach you it's rude you followed diyoza into the `anomaly`.
+- The `anomaly` has a similar effect on the plants here, hello, simpsons.
+- They have a french onion soup that is, it took him towards the `anomaly`.
+- ♪ the 100 6x08 ♪ the old man and the `anomaly` coordination of camp surveillance.
+- We figured on it being a magnetic `anomaly`, but we ran a back-trace just to make sure.
+                 

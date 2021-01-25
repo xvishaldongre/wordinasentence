@@ -1,0 +1,53 @@
+---
+title: "veronica in a sentence | veronica example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "veronica"
+---
+- What about `veronica`?
+- Mrs. `veronica` buttle.
+- Did you tell `veronica`?
+- Good luck with `veronica`.
+- `Veronica`, you missed it!
+- God `veronica`, drool much?
+- Hey, what about `veronica`?
+- Then try to see `veronica`.
+- `Veronica` is into his act.
+- Like last night, `veronica`?
+- Doug hylton... `veronica`!
+- We killed tonight, `veronica`.
+- I'm giving `veronica` her shot.
+- `Veronica`, you look like hell.
+- All they get is `veronica` lake.
+- Let me get it clear, `veronica`.
+- Take a break `veronica`, sit down.
+- Football season's over, `veronica`.
+- Lynn bracken is my `veronica` lake.
+- `Veronica`, it's not easy for me...
+- It's the same thing with `veronica`.
+- You look better than `veronica` lake.
+- That was seriously warped, `veronica`.
+- If you want `veronica`, be with `veronica`.
+- I had a date with a girl named `veronica`.
+- Man `veronica`, pull the plug on that shit.
+- He had you cut to look like `veronica` lake?
+- You've been with `veronica` for how long now?
+- I'm sure sang and-`veronica`?-would like that.
+- You ruined my... you've got power, `veronica`.
+- Oh god `veronica`, my afterlife is s-o-o boring.
+- Hey `veronica`, how'd that teenage prevention t.v.
+- Hey josie- who did archie date betty or `veronica`?
+- Hear about `veronica`'s affection for regurgitation?
+- You, `veronica`, caitlin... ...and caitlin's fianc�.
+- Dear `veronica`, heather was your soulmate.....share.
+- Is the `veronica` lake look-alike one of your whores?
+- I thought i...you.. you really fucked me up, `veronica`.
+- But i see that `veronica` girl doing shit for you all the time.
+- Rita hayworth at the morgue and now `veronica` lake with white.
+- One fight a day with `veronica` is about all i can stomach, thanks.
+- If you want caitlin, then face `veronica`, tell her, and be with caitlin.
+- You sound like betty, all pissed off because archie is taking `veronica`.
+- Why the fuck did you tell `veronica` that i was going to dump her for caitlin?
+- You date `veronica` because she's low maintenance and because it's convenient.
+- `Veronica`, i love you... and having him tell me... that was just the weakest move ever.
+                 

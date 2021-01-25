@@ -1,0 +1,61 @@
+---
+title: "surgery in a sentence | surgery example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surgery"
+---
+- Will i need `surgery`?
+- I had bypass `surgery`.
+- I'm late for `surgery`.
+- Two years of `surgery`.
+- It's not brain `surgery`.
+- It's a delicate `surgery`.
+- Corrective teeth `surgery`.
+- Kendall's out of `surgery`.
+- I know, i had the `surgery`.
+- Then experimental `surgery`.
+- The `surgery` could kill you.
+- Was there `surgery` involved?
+- They gave me plastic `surgery`.
+- It's not brain `surgery`, chuck.
+- Everyone needs plastic `surgery`.
+- It's not exactly brain `surgery`.
+- Then all my `surgery` is no good.
+- He won't survive another `surgery`.
+- And marcus is prepped for `surgery`.
+- I can't do `surgery` out of my pack.
+- He died in a liposuction `surgery`, right?
+- My mom's in `surgery` every slice a jeter.
+- That this isn't `surgery` yes, i do, will.
+- After that i'll employ `surgery` to obtain one.
+- I'm getting corrective oral `surgery` tomorrow.
+- With plastic `surgery` to look like movie stars.
+- You're not going into `surgery` tomorrow are you?
+- I mean, do you need to have `surgery` on it or what?
+- I did that to save you, too, let's prep for `surgery`.
+- When i wake up, oh, brain `surgery` in a machine shop.
+- A few nights before my heart `surgery` rebecca woke me.
+- That reason wear a blue dress and work in the `surgery`?
+- Elective plastic `surgery`, every single one -- ...almost.
+- Here we've got a purported x-ray, dr. lechter's `surgery`.
+- Who said anything about `surgery`...it'll only take a moment.
+- I didn't know they taught thoracic `surgery` in seal training.
+- I've found chekov, sir: he's in emergency `surgery` right now.
+- Actually of course i won't operate, i don't do major `surgery`.
+- I'm going to perform `surgery` on a torpedo - you never know...
+- Well, i actually might need a little `surgery` after last time.
+- Abby says raven needs `surgery` do you remember the day dad left?
+- Human beings are the only species until we get you into `surgery`.
+- ♪ and now i have a raging fever ♪ well, she survived the `surgery`.
+- Unless you've done abdominal `surgery` on yourself, too, holy shit.
+- You dye your hair... you get plastic `surgery`, like we talked about.
+- I'm going to speak to dr. feldman about sexual reassignment `surgery`.
+- Now wait just a fucking- this isn't bumper cars, it's brain `surgery`.
+- How did your relationship with miss lawson progress after the `surgery`?
+- Metal scalpels... needle and thread... you actually performed `surgery`...?
+- Stephen strange is currently performing `surgery` about twenty blocks that way.
+- If you persist in your ways, they can always ship you over to medical `surgery`.
+- Not unless her hmo covers plastic `surgery`, which, incidentally, she does not need.
+- Elective plastic `surgery`, every single one -- spotter on the lake confirmed israel.
+- I'm going to play poker until three a.m. or until the patient is ready for `surgery`.
+                 

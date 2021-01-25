@@ -1,0 +1,77 @@
+---
+title: "victim in a sentence | victim example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "victim"
+---
+- I'm the `victim` here.
+- She's just a `victim`.
+- He might be a `victim`.
+- Your `victim` has died.
+- Did you know the `victim`?
+- `Victim`'s a white female.
+- Okay, so you're a `victim`.
+- Oh, don't be such a `victim`.
+- Except this `victim` got away.
+- I'll send in the next `victim`.
+- Look, i'm a `victim` here, too.
+- Should she be the next `victim`?
+- The `victim`'s name is leo crow.
+- But not the only `victim`, right?
+- I was a `victim` of circumstance.
+- Not that you're a `victim`, honey.
+- This girl isn't the second `victim`.
+- Remember the `victim` at the airport.
+- Well, i'm a `victim` of circumstance.
+- You ever talk to a `victim`'s family?
+- Bets part is she's the first `victim`.
+- You say that like an amnesia `victim`.
+- Most serials know their first `victim`.
+- ...causes the `victim` to bite down hard.
+- Just tell me about the intended `victim`.
+- But bonnie, who is the real `victim` here?
+- That don't match either of the `victim`'s.
+- Will the next `victim` be a man or a woman?
+- Who kills in the manner of his `victim`.
+- I can be a `victim`, or i can be a volunteer.
+- A `victim` of the modern age, poor, poor girl.
+- She's not unique, she's just another `victim`.
+- We're still putting the `victim` list together.
+- Are the police aware you dated the `victim`?
+- Now you, another `victim` of the modern age.
+- He claims he is the `victim` of lies and deceit.
+- Every time i see a photo of a `victim` i see her.
+- I don't wan you to become a `victim` like marcia.
+- Had we known there was no `victim`, we need to go!
+- New regulation about compensation for the `victim`.
+- Now you're starting to sound like a `victim` again.
+- On one you are a murderer, on another the `victim`.
+- Then i think maybe i'm just a `victim` of movies, y'know?
+- Are you not the poor `victim` of this horrible new technique?
+- That means that jason might've been krueger's first `victim`.
+- They heard the `victim`'s name and wove him into their story.
+- Can i help it that life is a disease and everyone's a `victim`.
+- What do i have to do to satisfy you -- become the next `victim`?
+- All these coup plotters will suffer looking for his next `victim`!
+- You can tail the `victim` and call it in at just the right moment.
+- I didn't know the name of that `victim` had even been released yet.
+- We're rescuing a kidnap `victim`... well, let's help them with that.
+- Lydia telling natalie the truth makes you a `victim` in what way?
+- Start a location run and a contact search for future `victim` leo crow.
+- Perimortal: `victim` was alive at the time, there's blood on his throat.
+- As for you, my fine friend -- you're a `victim` of disorganized thinking.
+- My husband is the `victim` of an informer in your organization, not ours.
+- Once again, our interests have fallen `victim` to his ridiculous crusade.
+- Yes, sir, that's exactly who i am, sir... and what i am... a `victim`, sir.
+- The embryo, the second form, hosts in the `victim`'s body for several hours.
+- I can keep a `victim` alive for weeks... months, if i desire it... it's an art.
+- This one guy on death row, who i'll call henry, told me about his last `victim`.
+- He has to be standing over the `victim` with knife in hand before we make a move.
+- What, you think the station paid off every accident `victim` in the city to ... ?
+- He is your good friend, whereas i am a `victim` of your carnivorous lunar activities.
+- Now my understanding is that 20 hours after exposure, the `victim` becomes infectious.
+- Gives you enough time to get away from the `victim` so he doesn't punch you in the nose.
+- But it is providential that you, who are also another kind of `victim`, should come here.
+- How do you think this makes me look, treating her like some tragic `victim` or something?
+- Last nights `victim`, christie eastman was found in a warehouse on the outskirts of town.
+                 

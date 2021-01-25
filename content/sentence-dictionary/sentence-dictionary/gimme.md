@@ -1,0 +1,107 @@
+---
+title: "gimme in a sentence | gimme example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gimme"
+---
+- `Gimme` a sword, airk.
+- `Gimme` the big knife!
+- `Gimme` the cigarette.
+- `Gimme` three of them.
+- `Gimme` your gun, boy!
+- `Gimme` your lipstick.
+- Just `gimme` a chance.
+- `Gimme` back my bottle.
+- `Gimme` that other box.
+- `Gimme` the binoculars.
+- Now `gimme` those keys.
+- Beth -- `gimme` the gun.
+- `Gimme` a fucking break.
+- `Gimme` a minute here...
+- `Gimme` a second, dudes.
+- `Gimme` some truth here.
+- `Gimme` that damn thing.
+- `Gimme` the coordinates?
+- Come on, `gimme` a break.
+- `Gimme` the ringer, dude!
+- `Gimme` this god-... int.
+- Here, `gimme` those oars.
+- `Gimme` a break, will you?
+- `Gimme` a twenty, pardner.
+- `Gimme` some of that shit.
+- `Gimme` the fuckin' thing.
+- `Gimme` the god damn ball!
+- `Gimme` your fuckin' keys.
+- Uh, yeah... `gimme` a tab.
+- `Gimme` a break, mr. russo.
+- `Gimme` that bag, fuck you.
+- `Gimme` the receiving room.
+- Hey, look, `gimme` a break!
+- John: `gimme` a cuesta-ray.
+- Look, kid, `gimme` a break.
+- Now c'mon, `gimme` the key.
+- Then `gimme` another raise.
+- Yo, rock, `gimme` a dollar.
+- `Gimme` another explanation.
+- Hey, man, `gimme` some skin.
+- No, caesar, `gimme` the gun.
+- Tessa... `gimme` your pants!
+- Why dontcha `gimme` the gun?
+- At least `gimme` video poker.
+- `Gimme` that again, will yuh?
+- If you'd `gimme` my gun back.
+- Jimmy, `gimme` another drink.
+- Just `gimme` the damn remote!
+- So, c'mon, `gimme` the truth.
+- All right, `gimme` a magazine.
+- No, you `gimme` your gun, boy!
+- Chrissy, `gimme` the big knife!
+- `Gimme` a goddamn cigarette!!!!
+- `Gimme` the keys for the trunk.
+- Hey, mr. arky, `gimme` a break!
+- ...`gimme` that fuckin' phone...
+- Just `gimme` the goddamn remote!
+- Of course, this one's a `gimme`.
+- C'mon, god damn it, `gimme` some!
+- `Gimme` a hostess twinkie, merle.
+- Hey, `gimme` the keys - the keys!
+- `Gimme` a seven and seven, willya?
+- `Gimme` that phillips right there.
+- <u>`gimme` the goddamned keys</u>!
+- Come on, `gimme` some more details.
+- Preacher, `gimme` my coat, will ya?
+- Shut-up and `gimme` your bandolier.
+- Y'want to `gimme` brigham's pistol?
+- `Gimme` a couple dabs on the tongue.
+- Jesus, `gimme` a little credit, rob.
+- Just `gimme` a minute to freshen up.
+- Okay, okay, okay, `gimme` this shit.
+- Andy, `gimme` three thousand dollars.
+- `Gimme` some chili, fries, and a tab.
+- `Gimme` that, `gimme` that, `gimme` that.
+- `Gimme` western four-five-five-seven.
+- Now, `gimme` twenty thousand dollars.
+- Okay, `gimme` a couple hours on this.
+- Don't `gimme` that "nice job" shit, man!
+- You `gimme` the car and a hundred bucks.
+- `Gimme` a break, will yuh, `gimme` a break.
+- 'cause we dig ya, man -- `gimme` a dollar.
+- `Gimme` the binoculars or i will shoot you.
+- Honest to god i'm broke -- `gimme` a break.
+- Ast them would they `gimme` a second chance.
+- Hey -- somebody want to `gimme` a hand here?
+- `Gimme`, `gimme`...so what you gals talk about?
+- Then `gimme` buddy shaw -- he's ranked fifth.
+- Okay, `gimme` a run-down on the three females.
+- Don't get mad at me -- just `gimme` your money.
+- Don't `gimme` that psychology bullshit, norman.
+- Don't `gimme` that, you never had any scruples.
+- `Gimme` a faucet or a drain cover or something.
+- How many more times you gonna `gimme` that one?
+- `Gimme` the marker, dude, i'm marking it an eight.
+- `Gimme` a three-eighths socket on a long extension.
+- `Gimme` that bag before i knock you out and take it.
+- `Gimme` a break -- how do we know they've got cancer?
+- You need anything, help of any kind, `gimme` a holler.
+- If you're not gonna focus, just `gimme` the binoculars.
+                 

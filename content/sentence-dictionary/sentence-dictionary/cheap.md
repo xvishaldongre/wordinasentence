@@ -1,0 +1,107 @@
+---
+title: "cheap in a sentence | cheap example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cheap"
+---
+- `Cheap` but effective.
+- `Cheap`, `cheap`, `cheap`.
+- For us, it is `cheap`.
+- I'm `cheap`, remember?
+- Isn't it `cheap` enough?
+- Loud, but never `cheap`.
+- That was a `cheap` shot!
+- I hope it wasn't `cheap`.
+- He's takin' `cheap` shots.
+- At least they were `cheap`.
+- I detest `cheap` sentiment.
+- Looks like a `cheap` hotel.
+- You're just `cheap`, cosmo.
+- Makes a person feel `cheap`.
+- Must've been a `cheap` date.
+- That's what made it `cheap`.
+- He didn't used to be `cheap`.
+- I resort to `cheap` tricks...
+- I wouldn't call that `cheap`.
+- The stock is `cheap`, archer!
+- They don't come `cheap`, son.
+- ...aconite get it dat `cheap`.
+- Life is `cheap` here, you know?
+- You want the `cheap` backstory?
+- You won't get off that `cheap`.
+- I wouldn't take no `cheap` shots.
+- What `cheap` shit... hey, waiter!
+- Not just 'cause they work `cheap`.
+- Of all the <u>`cheap`</u> excuses.
+- What, some `cheap`, gruesome gags?
+- Because it's `cheap` like a budgie.
+- But i'm not `cheap`, you know that?
+- Life's pretty `cheap` to that type.
+- Cukor was too `cheap` to hire music.
+- What do you want -- `cheap` thrills?
+- I make it last by living `cheap`.
+- That `cheap` seed you've been buying?
+- Don't make yourself out to be `cheap`.
+- A `cheap` trick and a cheesy one-liner?
+- Marrying a midget was a `cheap` thrill?
+- A `cheap`, common brawl, in my own home!
+- That's easy to say, but talk is `cheap`.
+- But i threw it away for a `cheap` thrill.
+- You're nothing but a `cheap` little tart!
+- Why should i always pay more, sell `cheap`?
+- You `cheap` honky sonofabitch... why worry?
+- But the fact is, pardons don't come `cheap`.
+- Hell, now's the time to buy it off him `cheap`.
+- You want sophistication, it don't come `cheap`.
+- Must have been my `cheap`-ass answering machine.
+- This wouldn't last us a week in a `cheap` hotel.
+- Oh, the chronicle would consider it dirt `cheap`.
+- Aw, you've been reading a lot of `cheap` tabloids.
+- Yeah... you live a phony `cheap` cop-out existence.
+- Don't preach that `cheap`, second- hand stuff to me!
+- It suddenly strikes me as being `cheap` and loathsome.
+- They're depressing the stock so they can buy it `cheap`!
+- It's `cheap`, and people know to mind their own business.
+- One little guy with a `cheap` rifle - look what he can do.
+- He had a pretty good line on what `cheap` fucks people are.
+- I'll do it, but it won't be easy...and it won't be `cheap`.
+- But you'll not use it to make `cheap` dramatic gesures with.
+- Well, your "`cheap` whore" is this family's "lovin' mother."
+- Here's what we do: we humor him, and we make it dirt `cheap`.
+- In the living room... a `cheap` wine glass from the caterers.
+- He built `cheap` domes and watched their kids turn into freaks.
+- The woman wanted to be `cheap`, but the man saw that i was right.
+- Not one of thuse `cheap` new things made of chromium and spit.
+- Okay, it was a `cheap` thrill, it was stupid, i admit it, alright?
+- Don't like to, uh, you know, have a lot of `cheap` stuff on my back.
+- That is a `cheap` question and the answer is, of course, no comment.
+- Anybody want to tell us kids in the `cheap` seats who joanna clark is?
+- I do better to sit in the `cheap` seats with some real football people.
+- On this mickey mouse street with that `cheap` strip of bail bond shops.
+- Cough up the buck, ya `cheap` bastard, i paid for your goddamn breakfast.
+- That `cheap` aftershave i send you every christmas, you actually wear it.
+- Otho, i can<u>not</u> <u>live</u> with these `cheap` domestic floor tiles.
+- The only thing wrong is the `cheap`, softcore crap you're peddling, eddie.
+- You own all the tomorrows because you buy them today, and you buy `cheap`.
+- Hey, you know anybody who wants to get hold of some video games... `cheap`?
+- Or does she pick "ngb's" -- "nice guys, but..." nice guys, but i'm `cheap`.
+- Tom waits says it in -- blue ruin is `cheap` gin in case you were wondering.
+- Here -- -- is just hundreds and hundreds of miles of `cheap` desert land.
+- So i used the .22 because it didn't make much noise and the ammo was `cheap`.
+- What he would say is "buljanoff, you can't afford to live in a `cheap` hotel.
+- I just thought she might not wanna meet her maker lookin' like a `cheap` whore.
+- At least the state of mississippi got 40 years of `cheap` labor out of the deal!
+- Do you expect me to stand here and see this place turned into a `cheap` barroom?
+- One case of scotch, you're getting `cheap` in your old age, brian... not likely.
+- Why he ever started this `cheap`, penny-ante building and loan, i'll never know.
+- I'm what you made me -- a `cheap` reporter who'd give up her soul for a story!...
+- What do you think my friends would say if they found me in a little `cheap` flat?
+- Keep the price high, 'cause ya know how folks hate the taste of `cheap` booze.
+- It's not just that he's a `cheap` bastard - these ladies aren't starvin' to death.
+- The paper's `cheap`, the type's too small -- i'll fill page after page, i promise.
+- Had he been an actual midget, there would've been nothing `cheap` about it, my dear.
+- Well, that little girlfriend, she was attractive in a `cheap` sort of way of course.
+- You gotta start owning it man, or they'll smell you a mile away like a `cheap` suit.
+- But you got your head so far up your ass it took a `cheap` date for you to notice me.
+- You thought you was god almighty instead of a `cheap`� conniving�good-for-nothing bum!
+                 

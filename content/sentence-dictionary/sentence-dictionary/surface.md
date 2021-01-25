@@ -1,0 +1,73 @@
+---
+title: "surface in a sentence | surface example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surface"
+---
+- More `surface` detail.
+- Only on the `surface`.
+- Try from the `surface`.
+- It leads to the `surface`.
+- It can reach the `surface`.
+- Stay close to the `surface`.
+- We have no `surface` support.
+- Nine hundred feet to `surface`.
+- The `surface` ships will be back.
+- We must transport to the `surface`.
+- I didn't even scratch the `surface`.
+- Or perhaps they're on the `surface`.
+- He's under until he decides to `surface`.
+- Dr. lazarus, here is your `surface` mapper.
+- It is heading directly toward the `surface`.
+- There -- what about `surface` life signs...?
+- These were microbes on the tube's `surface`.
+- Did you encounter any problems on the `surface`?
+- Negative, on `surface`... a manufactured object.
+- How much time you figure to get to the `surface`?
+- What i do is trick him to the `surface`, got that?
+- Probably couldn't move too easily on the `surface`.
+- The temperature's up 50 degrees from the `surface`.
+- 70 percent of the earth's `surface` is water, norman.
+- 96% of the earth's `surface` will be uninhabitable...
+- It sends 200 volts throughout the cylinder `surface`.
+- [panting] logs can be tampered with on the `surface`.
+- It has to `surface` to release the nerve agent, right?
+- Ooh, i forgot to account for `surface` irregularities.
+- As the fat renders, the tallow floats to the `surface`.
+- Captain, force the sub to the `surface` for inspection.
+- The planet's `surface` is covered with borg technology.
+- To really clean, you have to scrub below the `surface`.
+- You can by `surface`-to-air missiles over the internet.
+- To conceal a small break in the `surface` of the sphere.
+- We go to the `surface` now, we'd pop like a soda bottle.
+- In my previous work it's been all `surface`, superficial.
+- Someday he'll `surface` and i'll get him for both of you.
+- Tell me you weren't behind the breach - to the `surface`?
+- It's on the far side of the planet...firing at the `surface`.
+- I wish something good would happen on the `surface` sometime.
+- [grunts] 96% of the earth's `surface` will be uninhabitable...
+- In fact, i'm guessing there's life on the `surface`, even now.
+- But underneath the elegant `surface`, was an adventurous spirit.
+- On the `surface`, of course, everything was supposed to be fine.
+- Sensors are not picking up any ships coming from the `surface`...
+- Hit the `surface` in the middle of a typhoon?...no, thank you.
+- I went to the `surface` and i collected specimens like i was told.
+- Make ready to land general veers' assault troops on the `surface`.
+- It's a fishing boat with, in front, a long pole near the `surface`.
+- When the time comes, we need to clear the `surface` pay her no mind.
+- After that it's up to you to get us off the `surface` before we freeze.
+- Meaning we're never gonna get to the `surface` alive... to tell anyone.
+- _ who it appears can survive on the `surface`, at least, i think we can.
+- So that those of us who survived can go back to the `surface` of the earth.
+- They use lights to attract them to the `surface`... then turn them into sushi.
+- I have to speak with worf and data on the `surface`... we'll need their help...
+- Miniature power cams set in on contact, giving you a sure grip on any `surface`.
+- A crude sci-fi concept that floats on the `surface` and doesn't threaten anybody.
+- Anybody can clean the `surface` of an object, but dirt can find its way anywhere.
+- I know, but i'm not gonna be held responsible -- subs are still at `surface`, sir.
+- In code to starfleet... captain's spock's tube located intact on genesis `surface`.
+- You see, this elevator will stay on the `surface` i'll never be able to pay that bet.
+- I'm sorry, but if you want my advice, will never be enough to get us to the `surface`.
+- Sir, as the enterprise left orbit, one of their support craft went down to the `surface`.
+- The worse news is it's gonna take us three weeks to decompress back to the `surface` later.
+                 

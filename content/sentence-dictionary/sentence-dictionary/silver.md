@@ -1,0 +1,71 @@
+---
+title: "silver in a sentence | silver example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "silver"
+---
+- On a `silver` platter.
+- "the `silver` cat feeds."
+- I collect `silver` bullets.
+- The `silver` and the china.
+- The `silver` cat feeds... el.
+- Actually, she's `silver`-haired.
+- I think i need `silver` bullets.
+- Got a pretty `silver` band on it.
+- Nothing after the `silver` creek.
+- Every cloud has a `silver` lining.
+- I thought what a waste of `silver`.
+- Thanks much, `silver` tongued devil.
+- Who told you about my `silver` tongue?
+- Anyway, he offered me a `silver` cloud.
+- The `silver` screen's loss is your gain.
+- You might want to change it to `silver`.
+- I handed it to him on a `silver` platter.
+- Most guns have a black or `silver` handle.
+- Shhh... we're just outside `silver` creek.
+- The `silver` cat feeds... "indiana flyer"?
+- What are you doing in the `silver` drawer?
+- She's been nominated for a `silver` mike...
+- Would you like to hear the `silver` lining?
+- He gave me a cushy job on a `silver` platter.
+- Little `silver` thingies on his cowboy boots?
+- The `silver` knight is getting to big for us.
+- Put that old `silver` tongue of yours to work.
+- I want you to turn this into a `silver` bullet.
+- The `silver` cat feeds, maybe he's sick of cow.
+- Not really a `silver`-lining type of guy, is he?
+- Your eyes look like `silver` pools of moonlight.
+- He can withstand sunlight, garlic, even `silver`.
+- Holy water, `silver` shavings, white oak: the works.
+- Or was that debbie reynolds in a `silver` afro wig?!
+- Right, like maybe "`silver` cat" is a meeting place?
+- Vampire mace -- `silver` nitrate, essence of garlic.
+- The man got `silver`, china, rugs -- so what about him?
+- You want everything handed to you on a `silver` platter.
+- The weird thing is... he shot her with a `silver` bullet.
+- The `silver` cat feeds when blue meets yellow in the west.
+- Yes... and i only had enough `silver` halide for one shot.
+- The big `silver` guys pulling on those big `silver` things...
+- The `silver` cat feeds when blue meets yellow in the west."
+- You didn't tell me they were immune to `silver` and garlic.
+- It was a `silver` medal winner at paso robles last year.
+- Only twelve years old and i was felled by a `silver` bullet.
+- That tall drink of water with the `silver` spoon up his ass.
+- You must think i'm ripe to be checked into `silver` meadows.
+- I have the `silver` bullets in case i need to protect myself.
+- I wonder where i was, polishing `silver` behind the coal bin.
+- I got this picture of a `silver` handled gun tucked in his pants.
+- No, i have no idea - unless some of the `silver`-ware is missing.
+- I -- i bought some `silver` jewelry and stuff from eloise -- what!
+- Some cultures still put pennies in the eyes of the dead, or `silver`.
+- Or he might have been carrying a `silver` handled gun tucked in his pants.
+- Go to my kitchen -- third drawer, under the good `silver`, there is napkins.
+- It was `silver`, with a stubby barrel... snub-nosed, i think they call it...
+- I'm sending up a plain, flat `silver` one -- with just your initials engraved.
+- Listen, captain cold, the suit, maybe, even though `silver` went out in the 70's.
+- When i saw james taylor there, and -- the people at `silver` meadows aren't psychos.
+- But i prefer pictures made by me with feeling, and not by kodak with `silver` nitrate.
+- The `silver` jews could be good when you're ready to start putting it all behind you...
+- Mike's out -- i think he went to `silver` meadow to see if you were hanging around there.
+- Says here you done real good in the war: `silver` star, bronze star, couple purple hearts.
+                 

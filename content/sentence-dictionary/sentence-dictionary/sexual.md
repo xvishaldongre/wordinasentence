@@ -1,0 +1,78 @@
+---
+title: "sexual in a sentence | sexual example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sexual"
+---
+- For `sexual` purposes?
+- It's kind of `sexual`.
+- `Sexual` assault, daryl.
+- `Sexual` orientation.
+- Okay, my `sexual` problem!
+- Your `sexual` orientation?
+- Primitive `sexual` practices?
+- `Sexual` battery of a patient?
+- Your first `sexual` experience.
+- Tell me about its `sexual` roots.
+- This `sexual` obsession of yours.
+- Or the `sexual` habits of locusts?
+- An explicitly `sexual` relationship.
+- I mean... it's not `sexual` anymore.
+- Was that like a homo-`sexual` remark?
+- Just not always in the `sexual` sense.
+- Like a... like a `sexual` electricity.
+- Whatta you mean, our `sexual` problem?
+- Got what you call a `sexual` addiction.
+- According to you i'm a `sexual` failure.
+- ...live in exchange for `sexual` favors.
+- Millions, stephen -- and `sexual` favors.
+- `Sexual` problems upsetting to the child.
+- `Sexual` surrogate... slash... companion.
+- That exists without a `sexual` dimension?
+- I have `sexual` fantasies all the time too.
+- No `sexual` confusion there, eh, professor?
+- Busted for `sexual` assault: march 22, 1970.
+- Moral or `sexual` problems or peculiarities?
+- You didn't have `sexual` relations with him?
+- Your entire existence is `sexual` harassment.
+- She might file on you for `sexual` harassment.
+- Describe for me your first `sexual` experience.
+- I know- because of our `sexual` problem, right?
+- I mean the re-channeling of my `sexual` energy.
+- Wait don't tell me ... naked `sexual` charisma?
+- Your `sexual` history, your `sexual` preferences.
+- It is nothing of a `sexual` nature i assure you.
+- Classic, yet extremely `sexual`, don't you think?
+- Her legs pulled apart in a kind of `sexual` pose.
+- I was supposed to avoid a `sexual` interpretation.
+- The whole concept of heroism--and its `sexual` roots.
+- Taping women talking about their `sexual` experiences?
+- You can tell the old man i have 32 `sexual` identities.
+- Why, i was just expressing a healthy `sexual` curiosity.
+- But together, we are the masters of our `sexual` destiny!
+- "discourteous insinuations about his `sexual` abilities."
+- Did you have `sexual` intercourse with the woman in question?
+- Would you like some coffee as you fill out a `sexual` history?
+- Mr. roston's `sexual` preferences are not at issue in this trial.
+- My first `sexual` experience or the first time i had intercourse?
+- All i'm doing is implying some sort of sordid, ugly, `sexual` liason.
+- He's being sued for `sexual` assault right now, but -- it's not true.
+- Your `sexual` tastes were something that you hid from miss lawson?
+- I'm going to speak to dr. feldman about `sexual` reassignment surgery.
+- Couldn't another expert say he <u>flunked</u> the `sexual` sadist test?
+- She is an extreme psychoneurotic with uncontrollable `sexual` impulses.
+- Joey, what's more important, the kids' clothes or your `sexual` potency.
+- Anyway, he doesn't need `sexual` confusion thrown into the stew right now.
+- Did i use the term "`sexual` conquests" or is that your way of putting it.
+- Cross check- ing names from arrests for `sexual` offenses, public fondling.
+- So, for him, biting may be a fighting pattern as much as `sexual` behavior.
+- Sometimes i think i act so weird because i'm crazy from `sexual` frustration.
+- I miss those days, when schoolyard `sexual` harassment was without consequence.
+- I was going to say it was all `sexual`..but everything is `sexual`...but alcohol.
+- `Sexual` politics, racism, the environment, the military industrial... like what?
+- Well, they must be something `sexual`, because ann gets freaked out by that shit.
+- I don't know about you guys, but i'm starting to feel a really `sexual` vibe here.
+- I've never heard the flintstones reduced to a `sexual` exploitation quite like that.
+- So back off or i'll have you in court quicker than you can spell `sexual` harassment.
+- But if you see some people doing kind of compulsive, maybe even bizarre `sexual` things...
+                 

@@ -1,0 +1,107 @@
+---
+title: "your in a sentence | your example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "your"
+---
+- Ask `your` girlfriend.
+- Back to `your` places.
+- Behind in `your` dues?
+- Bet `your` ass i have.
+- Bravo, `your` majesty!
+- Bring out `your` dead!
+- But i'm `your` cousin!
+- But with `your` music.
+- Can i see `your` back?
+- Can i see `your` i.d.?
+- Can i suck `your` tit?
+- Cat got `your` tongue.
+- Cat got `your` tongue?
+- Check `your` read-out.
+- Claire is `your` wife?
+- Come to `your` senses!
+- Dad, get `your` stuff.
+- Doing `your` homework.
+- Down `your` phoneline.
+- Do `your` thing, baby.
+- Drew, he's `your` dog.
+- Enjoying `your` visit?
+- Enjoy `your` kenworth.
+- [enola] `your` family.
+- Finish `your` prayers?
+- Follow `your` impulse.
+- For `your` confession?
+- For `your` own safety.
+- Gimme `your` gun, boy!
+- Gimme `your` lipstick.
+- Give her `your` dress.
+- Give her `your` phone.
+- Give me `your` jacket!
+- Give me `your` phaser.
+- Give me `your` toupee.
+- Go get `your` load on.
+- Go help `your` mother.
+- Go to `your` room now.
+- Go with `your` mother.
+- Had `your` name on it.
+- Here's to `your` fuck.
+- Here's `your` carrots.
+- Here's `your` nuggets.
+- He's `your` boyfriend.
+- He took `your` wallet?
+- He was in `your` room?
+- He was `your` brother.
+- Hey, take `your` time.
+- Hold out `your` hands.
+- Hold `your` pantyhose.
+- How are `your` grades?
+- How old is `your` boy?
+- How's `your` day been?
+- How's `your` marriage?
+- How's `your` new book?
+- How's `your` shoulder?
+- How's `your` war, mac?
+- How was `your` day...?
+- How was `your` flight?
+- How was `your` summer?
+- I accept `your` terms.
+- I am now `your` enemy.
+- I called `your` agent.
+- I called `your` house.
+- I can whip `your` ass.
+- I enjoy `your` column.
+- If that's `your` word.
+- I heard `your` shower.
+- I knowed `your` daddy.
+- I know `your` parents.
+- I like `your` stories.
+- I'll be `your` winger.
+- I'll have `your` butt!
+- I'll kick `your` butt!
+- I'll take `your` word.
+- I'm at `your` service.
+- I mean `your` parents.
+- I'm not `your` sister!
+- I'm `your` father, dr.
+- I'm `your` valet, sir.
+- I needed `your` help.
+- I need `your` brother.
+- I need `your` support.
+- I noticed `your` hair.
+- I saw `your` daughter.
+- Is it `your` birthday?
+- Is it `your` software?
+- Is that `your` camper?
+- Is that `your` driver?
+- Is that `your` sister?
+- Is this `your` place ?
+- Is this `your` shovel?
+- Is `your` father here?
+- Is `your` name felson?
+- It isn't `your` fault.
+- It's all `your` fault!
+- It's all `your` fault.
+- It's in `your` closet.
+- It's in `your` nature.
+- It's in `your` spirit.
+                 

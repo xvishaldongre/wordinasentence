@@ -1,0 +1,107 @@
+---
+title: "s in a sentence | s example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "s"
+---
+- At jesus'`s` concerts.
+- A woman'`s` intuition.
+- Because he'`s` guilty.
+- Because he'`s` not me!
+- Because it'`s` absurd.
+- Because it'`s` in you.
+- Because it'`s` my job.
+- Before... what'`s` up?
+- Bellamy'`s` a warrior.
+- Bellamy'`s` out there.
+- Ben: there'`s` a door?
+- Besides, she'`s` okay.
+- Bikes, it'`s` all you.
+- Billy'`s` bringing it.
+- Black'`s` always good.
+- Blade'`s` razor sharp.
+- Blood'`s` on the butt.
+- Boy-- so what'`s` new?
+- Brynner'`s` van - day.
+- But everything'`s` ok?
+- But he'`s` interested!
+- But he'`s` my brother.
+- But he'`s` part of it.
+- But he�`s` a good guy.
+- But it'`s` all you do.
+- But it'`s` bad enough.
+- But it'`s` impossible.
+- But it'`s` not enough!
+- But it'`s` not enough.
+- But, it'`s` not is it?
+- But it'`s` not, jimmy.
+- But it'`s` 'ok'... oh.
+- But it'`s` so obvious.
+- But let'`s` make sure.
+- But maybe that'`s` it.
+- But my name'`s` not...
+- But that'`s` cheating!
+- But that'`s` not true.
+- But that'`s` not true!
+- But that'`s` the jail!
+- But that'`s` tomorrow.
+- But that'`s` too soon!
+- But there'`s` no data.
+- But what'`s` all this?
+- But what'`s` happened?
+- Can -- that'`s` right.
+- Careful, it'`s` heavy.
+- Carl, it'`s` a jungle.
+- Carl'`s` a fine boy...
+- Carl, that'`s` insane.
+- Car'`s` still missing.
+- 'cause it'`s` organic.
+- Charley'`s` my friend.
+- Christ, it'`s` ho-jon!
+- Clarke: it'`s` true.
+- Cochran�`s` own words.
+- Come on, let'`s` move.
+- Come on, let'`s` play.
+- Come on, let'`s` ride.
+- Come on, let'`s` rock.
+- Control, it'`s` reese.
+- Conway'`s` gone again!
+- Could it be spock'`s`?
+- Couple of .45 acp'`s`.
+- 'course he'`s` coming.
+- Daddy'`s` an elephant.
+- Dad'`s` home, already?
+- Dad'`s` is over there.
+- David, let'`s` go now.
+- Death is god'`s` will!
+- Delmar'`s` been saved!
+- Dickson'`s` all right.
+- Did dickie'`s` dad go?
+- Don't come in sal'`s`.
+- Don’t ﬁre that'`s` it?
+- Doug... doug'`s` gone.
+- Drake'`s` coming, man!
+- Dr. bronfman'`s` line.
+- Drew, he'`s` your dog.
+- Duffy'`s` getting old!
+- Duh... that'`s` quick.
+- Echo, it'`s` not real.
+- Eh, what'`s` all this?
+- Ellie'`s` face clouds.
+- Er, what'`s` his name?
+- Everyone'`s` ok. lisa?
+- Everything'`s` a blur.
+- Everything'`s` a nail.
+- Father'`s` not strong.
+- Food'`s` shot to hell.
+- For god'`s` sake, why?
+- For old time'`s` sake.
+- For old time'`s` sake?
+- For what it'`s` worth.
+- Fred krueger'`s` dead.
+- Fuck, it'`s` freezing.
+- Gale he'`s` got dewey!
+- Gee, that'`s` too bad.
+- Girl'`s` like it slow.
+- Golitsyn�`s` dead too.
+                 

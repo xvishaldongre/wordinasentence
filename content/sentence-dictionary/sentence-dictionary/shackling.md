@@ -1,0 +1,7 @@
+---
+title: "shackling in a sentence | shackling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shackling"
+---
+## Unfortunately, we have no example sentences for shackling                 

@@ -1,0 +1,107 @@
+---
+title: "sort in a sentence | sort example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sort"
+---
+- A `sort` of bodyguard.
+- I'm `sort` of on hold.
+- Seems a lively `sort`.
+- `Sort` of a boyfriend?
+- What `sort` of danger?
+- What `sort` of person?
+- I'm one of that `sort`.
+- `Sort` of a sideline...
+- `Sort` of ... holy cow.
+- `Sort` of... obscenely.
+- Am i one of that `sort`?
+- It was `sort` of a test.
+- Some `sort` of vacation.
+- `Sort` a few things out.
+- `Sort` of like a stroke.
+- They `sort` of got away.
+- But i `sort` of like him.
+- I am `sort` of scattered.
+- I `sort` of already have.
+- It's `sort` of tradition.
+- What `sort` have you got?
+- What `sort` of bed is it?
+- What `sort` of questions?
+- What `sort` of signature?
+- Yeah i guess...`sort` of.
+- Yeah, `sort` of, i guess.
+- Is it some `sort` of joke?
+- `Sort` of a trial balloon.
+- `Sort` of half..... great.
+- It just `sort` of happened.
+- She's a pretty good `sort`.
+- `Sort` of like the postman.
+- Um... `sort` of... maybe...
+- Well... kind of, `sort` of?
+- What `sort` of name is "x"?
+- I became a `sort` of mascot.
+- I `sort` of am a prince now.
+- I `sort` of hope it's a boy.
+- Well i'm `sort` of involved.
+- Well, it's a `sort` of wife.
+- You re `sort` of... radiant.
+- I know nothing of the `sort`!
+- I'm not that `sort` you know.
+- I `sort` of know it by heart.
+- It was `sort` of...shapeless.
+- Just `sort`'ve saw 'em there.
+- Oh no, nothing of the `sort`.
+- They `sort` of came together.
+- You know the `sort` of thing.
+- You look `sort` of fucked up.
+- A `sort` of... thank-you gift.
+- He hates this `sort` of thing.
+- I'll do nothing of the `sort`!
+- I'll do nothing of the `sort`.
+- I'm not the `sort` to cry out.
+- Like, this way... `sort` of...
+- `Sort` of a jack london style?
+- `Sort` of be our indian guide.
+- Yes, but what `sort` of a man?
+- Y'know, i'm `sort` of psychic.
+- ...and `sort` of...disinterest.
+- I `sort` of like what you said.
+- Looks like some `sort` of code.
+- Must be some `sort` of gateway.
+- Things just `sort` of happened.
+- I don't do that `sort` of thing.
+- I'll go and `sort` it out today.
+- Then we can `sort` out the wine.
+- They're not the friendly `sort`.
+- What `sort` of acting do you do?
+- You're the worst of that `sort`.
+- A `sort` of retroactive abortion?
+- He acquired some `sort` of power.
+- Some `sort` of lead or something.
+- There's some `sort` of lock here.
+- What `sort` of an animal is that?
+- What `sort` of thing do you want?
+- You know, a second mom `sort` of.
+- He's had some `sort` of...episode.
+- I thought held `sort` himself out.
+- It's `sort` of spur of the moment.
+- Killaine's not that `sort` of guy.
+- Some `sort` of ancient booby-trap.
+- `Sort` of like a letter of intent.
+- They just `sort` of leave me cold.
+- What `sort` of injury did he have?
+- Became a `sort` of joke between us.
+- I remember walking here, `sort` of.
+- Mine's `sort` of out of commission.
+- `Sort` of... "deception..." "lies."
+- We do a `sort` of informal scoring.
+- You're `sort` of ruining it for me.
+- You `sort` of clash with the world.
+- He's `sort` of under mother's thumb.
+- I knew his father, obnoxious `sort`.
+- It's `sort` of like a diary i guess.
+- Jack's `sort` of sensitive, i guess.
+- There's some `sort` of pattern here.
+- What `sort` of a world is it at all?
+- X-ray vision, things of that `sort`.
+                 

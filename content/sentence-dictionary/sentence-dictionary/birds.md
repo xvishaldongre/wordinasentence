@@ -1,0 +1,107 @@
+---
+title: "birds in a sentence | birds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "birds"
+---
+- Certainly, of `birds`.
+- Not even your `birds`.
+- `Birds` are my friends.
+- She was selling `birds`.
+- The songs of the `birds`.
+- Smoke's as bad as `birds`.
+- `Birds`, `birds`, do you hear?
+- `Birds` of the world, unite!
+- I mean... are there `birds`?
+- These weren't a few `birds`.
+- '`birds` of the world, unite!'
+- I'm sorry he got those `birds`.
+- There's a million `birds` here.
+- We are not `birds` of a feather.
+- `Birds` speak to me all the time.
+- I heard they were filthy `birds`.
+- Ooo, i hear the `birds` chirping.
+- Why are the `birds` nesting here?
+- `Birds` fly to the stars, i guess.
+- They are little stars and `birds`.
+- They were a wise bunch of `birds`.
+- Even the `birds` sitting out there.
+- To bring your sister those `birds`.
+- You `birds` are going to get yours.
+- ♪ his `birds` that warble on key oh!
+- They're extremely aggressive `birds`.
+- Now we kill two `birds` at one stroke.
+- `Birds` of a feather.</i> specifically.
+- He followed my `birds` into their coop.
+- Not even the `birds` sing sweet as you.
+- All `birds` are not gamebirds, you know.
+- Hey, do you fancy either of the `birds`?
+- Oh, i don't know anything about `birds`.
+- Wait and hear the `birds` sing over you!
+- We'll kill twelve `birds` with one bomb.
+- Not yet... you must hear my `birds` sing.
+- Well... well... these `birds` attacked us.
+- `Birds` are not aggressive creatures, miss.
+- We couldn't let you... you did say `birds`?
+- This business with the `birds` has me upset.
+- Thought i'd kill two `birds` with one stone.
+- Don't tell me you fed the `birds` without me?
+- But the `birds` will still be there next week.
+- I wanna see which of you `birds` has any guts.
+- It's the boy next door throwing at his `birds`.
+- We'd like to kill a few `birds` with one stone.
+- Well, these `birds` live in chimneys, you know.
+- A turkey is one of the dumbest `birds` on earth.
+- I'm a strong tree with branches for many `birds`.
+- Like for watching uh... for watching the `birds`.
+- Looks like about ten years apiece for you `birds`!
+- Those two love-`birds` next door drivin' you nuts?
+- The `birds` shat on him and the bees ate him alive!
+- Two other `birds` did the same thing an hour later.
+- Picture the `birds` doing their sex dance on tv.
+- Bet you'll never look at `birds` the same way again!
+- I've already gotten the `birds` and bees from bobby.
+- Most times i wouldn't even notice them `birds` much.
+- A little aggressive for the situation, dirty `birds`!
+- Miss daniels brought some `birds` from san francisco.
+- She's as harmless as... one of these stuffed `birds`.
+- You came all the way up here to bring me those `birds`?
+- [`birds` squawking] next thing i knew, he was screaming.
+- Can't really focus on `birds` at the moment, pendergast.
+- Here you are, up with the `birds` for once, you vampire!
+- I'd hold the `birds` for him, but i'm going away myself.
+- ...probably contain more than a hundred billion `birds`!
+- 'cause sometimes `birds` are attracted by light, you know.
+- I mean, if those `birds` are for him.... that's all right.
+- Most people only notice `birds` with the brightest colors.
+- But this tipping automatically, that shit's for the `birds`.
+- Cuervo's got a place near venice, where the big `birds` fly.
+- I know a place in the park where only very small `birds` go.
+- Look, mitch, even if this is true, even if all the `birds`...
+- You'd be surprised how many kinds of `birds` you'll see here.
+- You deliberately... ahhh, but i really do want those `birds`.
+- Don't read late, we've got a big day with the `birds` tomorrow.
+- Listen, ahh - - because they sure don't look like `birds` to me.
+- Zerzura, the white city of acacias, the oasis of little `birds`.
+- It's quiet except for the song of these tiny sparrowlike `birds`.
+- As the same time, i wouldn't want `birds` that were aloof, either.
+- I have never known `birds` of different species to flock together.
+- If there are... larger `birds`, mitch... they'll get into the house.
+- You mean to tell me you're gonna count those old `birds` over there?
+- But eventually, even the more serious-minded `birds` began to listen.
+- We'd assume that twenty-five percent of the russian `birds` get through.
+- If it weren't for `birds`... hello, may i speak to mitch brenner, please?
+- No, the `birds` didn't attack until the children were outside the school.
+- They're both perching `birds`, of course, but of quite different species.
+- [beat] but, incidentally, you should, because you're `birds` of a feather.
+- Because there are 8,650 species of `birds` in the world today, mr. carter.
+- I hardly think a few `birds` are going to bring about the end of the world.
+- I don't know anything about `birds` except that they're attacking this town.
+- You got goddamn tweety-`birds` flutterin' around your head, that's what you got.
+- Let's see what these two love `birds` say once they're sitting in separate cages.
+- All you gotta do is shoot me an' you an' english bob can ride out free as `birds`.
+- Mom, i was just on hypochondria.edu, maybe we should feed the `birds` without him.
+- I ain't fried up the `birds` yet... if that's what you're ring a ding dinging about.
+- Isn't it amazing, at home there's still snow and ice and here... look at the `birds`.
+- It'd do you `birds` some good just to get a little exercise lifting your arms to vote!
+                 

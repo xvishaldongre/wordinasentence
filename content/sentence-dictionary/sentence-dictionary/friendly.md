@@ -1,0 +1,88 @@
+---
+title: "friendly in a sentence | friendly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "friendly"
+---
+- Be `friendly` like us.
+- Not at all `friendly`.
+- So casual, `friendly`.
+- Jason: super `friendly`.
+- He wasn't very `friendly`.
+- I'm just being `friendly`.
+- It's ok. she's `friendly`.
+- Daddy the `friendly` ghost.
+- I was just being `friendly`.
+- They seem `friendly` enough.
+- Do you know a `friendly` cop?
+- She used to be so `friendly`.
+- Yes, they're very `friendly`.
+- Don't get `friendly` with him.
+- So--`friendly` or otherwise--?
+- Don't shoot me, i'm `friendly`.
+- What about your `friendly` cop?
+- [perfectly `friendly`, my dear.]
+- They're not the `friendly` sort.
+- Oh, yes, they're very `friendly`.
+- You were always `friendly` to me.
+- A little `friendly` pr never hurt.
+- America is a very `friendly` place.
+- You want to hurt johnny `friendly`?
+- Nice `friendly` approach you've got.
+- Whatever it is, it isn't `friendly`.
+- A `friendly` competition, if you will.
+- Don't get too `friendly` with da mook.
+- Like a sheep trusts a `friendly` wolf.
+- Tell me, what's `friendly` about that?
+- ... .and you'll tell johnny `friendly`.
+- You're a `friendly` lady, miss johnson.
+- I won't be as "`friendly`" as today.
+- He wasn't `friendly` during the filming?
+- Just be `friendly` and say "no comment."
+- We could show 'em we're `friendly`, huh?
+- A `friendly` voice from beyond the grave.
+- The one makes my wife here so `friendly`.
+- I'm `friendly` with most of the customers.
+- You're uncommon `friendly` tonight, toddy.
+- He was `friendly` to me as no man ever was.
+- Pop said johnny `friendly` used to own you.
+- Do you have a pair that are just `friendly`?
+- I'm telling you they're probably `friendly`.
+- Like i said we were `friendly`, not friends.
+- Didn't you see how `friendly` she was to you?
+- Thought we was gonna be `friendly` about this.
+- My husband delbert is real `friendly` with him.
+- Look, man, i don't want `friendly` conversation.
+- So don't shake hands; just a `friendly` wave ah!
+- Johnny `friendly` and my brother had other ideas.
+- Now that wasn't a `friendly` thing i heard, toddy.
+- We have to tell these people that we're `friendly`.
+- It was johnny `friendly` who killed joey, wasn't it?
+- You know, man, that guy was trying to be `friendly`.
+- Johnny `friendly` is layin' odds that you won't get up.
+- Don't be so sensitive, pops, let's keep this `friendly`.
+- Drunk all, and left no `friendly` drop to help me after.
+- Least you could do is make some `friendly` conversation.
+- That means officer `friendly` here is someone's property.
+- It's too bad because they're very `friendly` as you can see.
+- I'll bet she can be `friendly` when it's in her best interests.
+- You have to understand, lee-lee, well, maybe they're `friendly`.
+- I was `friendly` with sue lefferts, but we weren't really friends.
+- I've talked to a few people who say you and her were... `friendly`?
+- So i hope you won't mind my giving you a `friendly` piece of advice.
+- In 1959, the united states was very `friendly` with the shah of iran.
+- But your excellency -- the ambassador is here on a `friendly` visit...
+- These people seem to be quite `friendly`, and why should we shoot them?"
+- This won't be an' interrogation, just a... `friendly` chat to kill time.
+- But it's my own brother they're askin' me to finger� and johnny `friendly`.
+- Did you ever daydream that you would one day meet a `friendly` millionaire?
+- Well, i'd ask guy - we were `friendly`, you know - heart attack, wasn't it?
+- No, we're doing a child-`friendly` version and you decide who is disposable.
+- You can't be a `friendly` neighborhood spider-man if there's no neighborhood.
+- Because i've seen enough horror movies to know masked weirdos are never `friendly`.
+- I was in the mountain, man, what the hell, why not let her get `friendly` with 'em?
+- I-- hey now, outside of a very `friendly` dog this morning, it's been a slow decade.
+- Four cowboys come by and we decide to ride together for a while, `friendly` as can be.
+- Well why don't you find some `friendly` therapist and work some of that hostility out.
+- Well, no -- i'm sure he was `friendly` -- to demi moore -- who acted with him in 'ghost.'
+                 

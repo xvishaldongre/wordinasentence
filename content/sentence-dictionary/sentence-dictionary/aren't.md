@@ -1,0 +1,107 @@
+---
+title: "aren't in a sentence | aren't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "aren't"
+---
+- The hell you `aren't`.
+- There `aren't` hotels?
+- Those `aren't` guards.
+- `aren't` i a loose end?
+- `aren't` you a janitor?
+- `aren't` you impressed?
+- Aww, `aren't` they all?
+- But `aren't` you tired?
+- Look, there `aren't`...
+- Painful, `aren't` they?
+- We `aren't` barbarians.
+- Why `aren't` we enough?
+- Why `aren't` you ready?
+- Why `aren't` you there?
+- You are , `aren't` you?
+- `aren't` they gauche...?
+- `aren't` they, sergeant?
+- `aren't` we high enough?
+- `aren't` you a bit late?
+- `aren't` you a spitfire?
+- `aren't` you ever quiet?
+- `aren't` you frightened?
+- ...`aren't` you skating?
+- Are you or `aren't` you?
+- ...i'm here, `aren't` i?
+- I'm walking, `aren't` i?
+- Pupils `aren't` dilated.
+- Reptiles `aren't` swine.
+- There `aren't` any more!
+- They `aren't` our rules.
+- Those `aren't` presents.
+- Well, `aren't` you cute?
+- We're fine, `aren't` we?
+- We're okay, `aren't` we?
+- Why `aren't` you coming?
+- You two `aren't` wonkru.
+- `aren't` the kids asleep?
+- `aren't` these lovebirds?
+- `aren't` we all la-de-da.
+- `aren't` you a gentleman?
+- `aren't` you hot in that?
+- Awful early, `aren't` ya?
+- If they `aren't` talking.
+- Sorry... `aren't` we all.
+- Then i guess we `aren't`.
+- There `aren't` that many.
+- Those `aren't` necessary.
+- Why `aren't` they moving?
+- Why `aren't` you at work?
+- You're here `aren't` you?
+- You're mad, `aren't` you?
+- You're out, `aren't` you?
+- Frogs `aren't` purple.
+- `aren't` i a little angel?
+- `aren't` you afraid of me?
+- `aren't` you a sweetheart?
+- `aren't` you even curious?
+- `aren't` you feeling well?
+- `aren't` you happy for me?
+- `aren't` you nick charles?
+- `aren't` you the cool guy?
+- Ark welders `aren't` toys.
+- Disgusting, `aren't` they?
+- His parents `aren't` home.
+- I'm a warrior, `aren't` i?
+- I'm back here, `aren't` i?
+- Impressive, `aren't` they?
+- I'm, uh, dead, `aren't` i?
+- Superheroes `aren't` real.
+- Then, i guess we `aren't`.
+- There `aren't` any jewels.
+- Those `aren't` my friends.
+- Why `aren't` you in class?
+- You're here, `aren't` you?
+- `aren't` they the same guy?
+- `aren't` we all, mrs. peel?
+- `aren't` we the daring one?
+- `aren't` you happy for her?
+- `aren't` you hungry, honey?
+- `aren't` you on suspension?
+- Brains `aren't` everything.
+- God, `aren't` they fed yet?
+- Great bunch, `aren't` they?
+- Hey, i'm a man, `aren't` i?
+- I am beautiful, `aren't` i?
+- I'm still here, `aren't` i?
+- It's a wonder you `aren't`.
+- Oh, things `aren't` so bad.
+- They `aren't` intelligent !
+- Well, `aren't` you excited?
+- We're talking, `aren't` we?
+- You `aren't` angry with me?
+- You are okay, `aren't` you?
+- You're alive, `aren't` you?
+- You're lying, `aren't` you?
+- `aren't` you pleased?...
+- `aren't` we a power company?
+- `aren't` we the chatty ones.
+- `aren't` you a little early?
+- `aren't` you ever in school?
+                 

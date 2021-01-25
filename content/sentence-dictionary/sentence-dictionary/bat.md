@@ -1,0 +1,66 @@
+---
+title: "bat in a sentence | bat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bat"
+---
+- He's `bat` shit crazy.
+- But bring me the `bat`.
+- Stop swinging the `bat`.
+- Wendy give me the `bat`.
+- You're blind as a `bat`.
+- All right, grab the `bat`.
+- Blind as a tiberian `bat`.
+- Boy, i'm blind as a `bat`!
+- Did you `bat` an eye, max?
+- I heard the `bat` got him.
+- Put the `bat` down, wendy.
+- Did you go to `bat` for me?
+- I remember the `bat`, though.
+- We had another `bat` sighting.
+- Better than you know, `bat`-boy.
+- You keep a `bat` under your seat?
+- You didn�t even `bat` an eyelid.
+- We made friends right off the `bat`.
+- If he doesn't shut up... just a `bat`!
+- I got the `bat` at home... on the wall.
+- I'm colonel "`bat`" guano, 701 battalion.
+- You must have a baseball `bat` or something.
+- No one can capture ivy but the big bad `bat`.
+- That bitch is blind as a blonde fucken `bat`.
+- Did she waltz in or fly on little `bat` wings?
+- I thought the same thing, right off the `bat`.
+- I have but one pet cause, today: ban the `bat`.
+- I want you to throw this one at the `bat` rack.
+- Get ready, lovebirds, you're almost up to `bat`.
+- Put down the `bat` and approach the sign, slowly.
+- Right off the `bat`, they don't like guys like us.
+- Welcome to my parlor said the riddler to the `bat`.
+- What about the baseball `bat` jane saw in his shed?
+- You know who used to have a baseball `bat` like that?
+- You beat nicky with fists, he comes back with a `bat`.
+- Somebody ought to crack that guy with a baseball `bat`.
+- Still like getting hit in the back with a baseball `bat`.
+- Believe in christ or i'll hit your head with a baseball `bat`.
+- He could barely hold the `bat`... big billy winked at isaac...
+- I mean, even before you threatened me with the baseball `bat`.
+- In my weakened state i am no match for the `bat` and the bird.
+- There's a man who throws the ball -- to a man who has a `bat`.
+- That's not the point of christmasland.</i> <i> -- it's a `bat`.
+- We went to `bat` for you -- and now you won't play ball with us.
+- But you can lash me a hundred times do you still have that `bat`?
+- We got a wealthy millionaire here... who dresses up like a `bat`.
+- No, no child... shush... it's all right ... no, it wasn't a `bat`!
+- Chicken bone cross take the curse off this `bat` and bring me hits.
+- Look, man, i'm telling you right off the `bat`, i'm high maintenance.
+- Today they just happen to get good news and the stock goes `bat` shit.
+- You will distract the `bat` and bird while i prepare to freeze gotham.
+- Do you remember the night i fell into that cave and the `bat` chased me?
+- Listen to me, joe... you can't hit a home run without swinging the `bat`!
+- We got a six-foot `bat` that swoops out of the night and preys on evildoers.
+- If i'd told a ty cobb story would you have clubbed him to death with a `bat`?
+- If you're so down on "them" out there, why bust your `bat`-buns to protect 'em?
+- Anyone talks to this guy's an asshole... what, they beat you with a rubber `bat`?
+- I always thought it was the `bat` that scared me that night that changed my life.
+- I had a man trip and fall in the parking lot once, sued me before i could `bat` an eyelash.
+                 

@@ -1,0 +1,91 @@
+---
+title: "suggest in a sentence | suggest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suggest"
+---
+- Did you `suggest` any?
+- What do you `suggest`?
+- I'd `suggest` a telegram.
+- I `suggest` you study it.
+- I `suggest` you use that.
+- So what do you `suggest`?
+- What did you `suggest`?
+- I `suggest` you talk to us.
+- I `suggest` a nice big bomb.
+- But i `suggest` pack up first.
+- I `suggest` it never happened.
+- Have you anything to `suggest`?
+- I `suggest` you kids leave now.
+- I `suggest` you leave it to me.
+- Let me `suggest` the following.
+- What do you `suggest`, my dear?
+- You'll `suggest` other schools.
+- I `suggest` you do it in shifts.
+- Sir, may i `suggest` -- station!
+- Then i `suggest` stepping aside.
+- Then i `suggest` we start there.
+- I `suggest` you say thank you hey!
+- Maybe you can `suggest` something.
+- What do you `suggest`, lieutenant?
+- How do you `suggest` i go about it?
+- I `suggest` that you ask your wife.
+- I `suggest` to reconsider my offer.
+- I `suggest` we go and look at them.
+- I `suggest` you leave while you can.
+- Then what do you `suggest` big shot?
+- You can `suggest` anything you want.
+- Sir, i `suggest` you answer the phone.
+- Then i `suggest` you call one of them.
+- Rob, i `suggest` you get yourself down.
+- All right, bruce, what do you `suggest`?
+- Let us say i `suggest` you may be human.
+- Your marks would `suggest` great injury.
+- Everyone�s dead... what do you `suggest`?
+- I `suggest` you ask dickie that yourself.
+- Then, what do you `suggest`, don sanchez?
+- Well, i `suggest` you speak to him, then.
+- I `suggest` you go home and get some rest.
+- Easy... and how do you `suggest` i do that?
+- So what do you `suggest`, we go to a hotel?
+- May i `suggest` that you call the professor?
+- Voice stress points `suggest` he's worrying.
+- I strongly `suggest` you listen to dr. chiren.
+- I `suggest` assigning them to their own clans.
+- You don't know shit, and i `suggest` you leave.
+- I `suggest` that we get ourselves someplace safe.
+- What do you `suggest` i do about it, dear boy?
+- I `suggest` you spend some hours before the glass.
+- May i `suggest` that you stop daring her to speak?
+- Your appearance doesn't `suggest` that at all, mr.
+- Admiral, may i `suggest` that dr. mccoy is correct.
+- I `suggest` you call during banking hours tomorrow.
+- Might i `suggest` tucking your pants into your socks?
+- I `suggest` that you leave with your men while you can.
+- Let me `suggest` that you take a vacation from yourself.
+- May i `suggest` you bring some backup with you this time?
+- Savvy viewers will notice i was gonna `suggest` a pardon.
+- I `suggest` you find it, using the flight recorder's data.
+- Until we find out why, i `suggest` we keep it to ourselves.
+- I `suggest` you leave - before i imagine something horrible.
+- I `suggest` you just give him the photos and have done with it.
+- I `suggest` you turn around and go back to where you came from.
+- If you have something to say, i `suggest` you say it to morpheus.
+- I would `suggest` you search the cafe immediately and thoroughly.
+- I `suggest` you fly back to your mothership it's deader than he is.
+- I `suggest` you commit to the training, the nature of your research.
+- And, since it's only two streets away, i `suggest` we go take a look.
+- Mr. cardenas, i `suggest` you move on to another line of questioning.
+- You're in a lot of trouble, mrs. tasker, so i `suggest` you cooperate.
+- Or doesn't this all begin to `suggest` to you a kind of... negotiation?
+- In no way did i wish to `suggest`-- why am i being lectured in this way?!
+- A lot of repeated base pairs could `suggest` a high level of genetic damage.
+- I `suggest` you watch your own asses cause barnes gonna be down on all of 'em.
+- And, while you hesitate, permit me to `suggest` that they are one and the same.
+- I `suggest` you get about your business -- nothing soothes herman like success.
+- I `suggest` you study the disks ripley has been kind enough to prepare for you.
+- I `suggest` you either pay this immediately or lay in a large supply of candles.
+- Want to stick around here for a little or... or could i `suggest` another plan...?
+- We found her car at the bus terminal, but nothing to `suggest` she bought a ticket.
+- I strongly `suggest` you return to washington and stay out of small town cemetaries.
+                 

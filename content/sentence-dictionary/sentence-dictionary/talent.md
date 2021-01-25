@@ -1,0 +1,92 @@
+---
+title: "talent in a sentence | talent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "talent"
+---
+- That's a rare `talent`.
+- The kid's got `talent`.
+- 'cause you got `talent`.
+- How about that `talent`?
+- It's a useless `talent`.
+- That boy's got `talent`.
+- You've got the `talent`.
+- Everybody's got `talent`.
+- You've got `talent`, son.
+- `Talent` is no holy shield.
+- You never had any `talent`.
+- I don't doubt your `talent`.
+- No one doubts your `talent`.
+- You have some real `talent`.
+- Never apologize for `talent`.
+- We're a team...my...`talent`.
+- It was a hard-earned `talent`.
+- With his `talent` for realism?
+- Look, `talent` comes everywhere.
+- That's where your `talent` lies.
+- She has all the cooking `talent`.
+- I can tell you're a real `talent`.
+- Oh, my god, she has `talent`, too.
+- All i have a `talent` for is death.
+- Everybody should have one `talent`.
+- I wish i had your natural `talent`.
+- Sonrisa didn't want local `talent`.
+- Your son has a very great `talent`.
+- You think that's a `talent` too, huh?
+- A guy makes a girl cum, it's `talent`.
+- His greatest `talent` is lack thereof.
+- Look, you no-`talent` bag of wrinkles.
+- Why should i waste my `talent` on you?
+- I'd always heard you had some `talent`.
+- You re nothing but no-`talent` garbage!
+- Besides, like i say... you got `talent`.
+- Only `talent` interests a woman of taste.
+- Our profession needs `talent` like yours.
+- `Talent` is more erotic when it's wasted.
+- I'm, uh, i'm gonna do my `talent` tonight.
+- Nobody should have more than one `talent`.
+- What're you gonna do, waste your `talent`?
+- We're not puttin' on our `talent` costumes.
+- Your pop was a genuine `talent` in his day.
+- People who know say the girl's got `talent`.
+- We should sign her to a `talent` holding deal.
+- Crawford's are always looking for new `talent`.
+- He's lining up `talent` for hal phillip walker.
+- We're having lunch with a movie `talent` scout.
+- I've had my people put together a `talent` pool.
+- Whatever `talent` simone has comes from me -- me!
+- A prize-winning novelist with no musical `talent`.
+- Big `talent`, major chops, allow me to demonstrate.
+- But i am endowed with `talent`, and you with money.
+- Do you have some hidden `talent` i should know about?
+- Remember the big `talent` show you planned last year?
+- Yes, i'm scouting `talent` for our youth philharmonic.
+- You have a `talent` for creating difficult situations.
+- He's lost his `talent` and his was a really great gift.
+- Looks and `talent` don't always go together, katherina.
+- The art world doesn't fully appreciate my `talent` yet.
+- You seem to have a special `talent` for making friends.
+- That's `talent`, that's, that's... you closed 'em today?
+- You're a `talent`, a creative force to be reckoned with.
+- I didn't realize how much...`talent` walter actually had.
+- Oh, mr crane-- you've got `talent`, anyone could see that.
+- Your particular assignment requires a special `talent`.
+- But he felt his `talent` would make up for your weaknesses.
+- Miss simpson would just play it and ... a useless `talent`.
+- She's the one they listen to, the one with the most `talent`.
+- What you're dealing with here is a complete lack of `talent`.
+- Denied your `talent`... as a master and disciple we will rule.
+- I'm your star pupil -- i reflect back to you your own `talent`.
+- You have hidden `talent` bubbling inside you, look at that house.
+- All `talent` costumes hafta be okay'd by gladys before the pageant.
+- He had more `talent` in his finger than you have in your whole body.
+- `Talent` -- the only `talent` my son has is for cashing his allowance.
+- You know, your form is for shit, but you've got a hell of a `talent`.
+- I'm lucky i have an after-school job where i can practice my `talent`.
+- "let me help you..." i don't have the `talent` for any of those things.
+- If he thinks a student has `talent`, he'll take 'em on for next to nothing.
+- But hey, if this is about money... you have all this `talent`, and you waste it.
+- Once a `talent` like yours gets into that mocambo- romanoff rut, you're through.
+- You think they call minnesota fats the best in the country just 'cause he's got `talent`?
+- With maggie's combo of good looks and `talent`, we're sure to be seeing her name in lights.
+                 

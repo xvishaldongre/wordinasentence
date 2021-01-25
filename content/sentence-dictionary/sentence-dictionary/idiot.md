@@ -1,0 +1,107 @@
+---
+title: "idiot in a sentence | idiot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "idiot"
+---
+- Not me, `idiot` - him!
+- Not that, you `idiot`.
+- Szybunka, you `idiot`!
+- What am i, an `idiot`?
+- God, you're an `idiot`.
+- Goodnight, you `idiot`.
+- Hey, who's the `idiot`?
+- I feel like an `idiot`.
+- It was a joke, `idiot`.
+- Jesus, what an `idiot`.
+- Now, you're no `idiot`.
+- That girl's an `idiot`.
+- You're also an `idiot`.
+- I'm a total `idiot`.
+- Either side you `idiot`.
+- I'm not an `idiot`, man.
+- Some `idiot` with an ax.
+- What are you an `idiot`!
+- Go to the... ... `idiot`!
+- Not joaquin, you `idiot`.
+- Some `idiot` with an axe.
+- You're a genuine `idiot`.
+- You think i'm an `idiot`?
+- Because you're an `idiot`.
+- Do i look like an `idiot`?
+- I think you're an `idiot`.
+- Lee, you're no `idiot`.
+- He sleepwalks, you `idiot`!
+- He's not dead, you `idiot`.
+- I ain't a `idiot`, asshole.
+- I'm not an `idiot`, clarke.
+- I pray god he's an `idiot`.
+- I want the number, `idiot`.
+- Just shut up, you `idiot`!!
+- Who was that other `idiot`?
+- Do you think i'm an `idiot`?
+- I feel like such an `idiot`.
+- No... because i'm an `idiot`.
+- No, that's scud, you `idiot`!
+- Open your eyes once, `idiot`.
+- He thinks homer is an `idiot`.
+- I'm third- generation `idiot`.
+- I swear that dog's an `idiot`.
+- You're a drunk and an `idiot`.
+- I feel like a complete `idiot`.
+- What `idiot` put you in charge?
+- About how i'm a drunken `idiot`.
+- Finish the inscription, `idiot`!
+- I'm not a fucking `idiot`, nick!
+- All i said was you're an `idiot`.
+- It was dean, you fucking `idiot`.
+- One `idiot` with a gun is enough.
+- I deserve it for being an `idiot`.
+- I must have acted like an `idiot`.
+- It's the wrong field, you `idiot`!
+- What `idiot` would lend him money?
+- Your boyfriend's being an `idiot`.
+- Are you a fucking colossal `idiot`?
+- It's not gonna be his, you `idiot`.
+- No, the man's a homeless `idiot`...
+- Or is it actually being an `idiot`?
+- There's an escape pod, you `idiot`.
+- Yeah, well i said i was an `idiot`.
+- You redneck `idiot`, do you have...
+- I helped you because i'm an `idiot`!
+- I know, but -- you drooling `idiot`!
+- I'm an `idiot` to have you up there.
+- What's that `idiot` doing next door?
+- You must take me for a real `idiot`.
+- You're an `idiot`, steve harrington.
+- 'course you didn't, `idiot` question.
+- Well, don't stand there, you `idiot`.
+- He was kind of an `idiot`, my old man.
+- I'm not entirely an `idiot`, you know.
+- Otherwise, you're a mongoloid `idiot`.
+- The happy `idiot` -- a million laughs.
+- Where do you think, my `idiot` friend?
+- First, the `idiot` april calls in sick.
+- He makes you feel like a total `idiot`.
+- I'd think you were a cinematic `idiot`.
+- It was the grenade you fucking `idiot`.
+- There's an `idiot` in the landing zone.
+- There's an `idiot` on the landing zone.
+- He doesn't want to look like an `idiot`.
+- I feel like the world's biggest `idiot`.
+- It's a fucking soccer ball, you `idiot`.
+- Must you go on babbling like an `idiot`?
+- You're not half the `idiot` i am, harry.
+- Boyd you `idiot`, the shit's coming down!
+- Clarke, tell him he’s being an `idiot`.
+- What do you think, i'm a fuckin' `idiot`?
+- You think you're dealing with an `idiot`?
+- He's like the biggest `idiot` of all time!
+- I'm trying to save your life, you `idiot`.
+- Because of this `idiot`, we have no choice.
+- Don't talk to me like i'm an `idiot`, okay?
+- I've been kidnapped by the village `idiot`.
+- Only an `idiot` would give that man a stone.
+- She can't really love that `idiot`, can she?
+- Have a bunch of little `idiot` janitor brats!
+                 

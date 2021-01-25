@@ -1,0 +1,57 @@
+---
+title: "collect in a sentence | collect example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "collect"
+---
+- How did nicky `collect`?
+- `Collect` from both ends.
+- You still `collect` them?
+- I `collect` silver bullets.
+- I gotta `collect` from you?
+- I've come to `collect` you.
+- Ain't gonna `collect` your pay?
+- I need to `collect` your phone.
+- I don't really `collect` "foreign."
+- I'll `collect` the inconsequentials.
+- You `collect` these to sell, abroad?
+- I `collect` spores, molds and fungus.
+- I'd better `collect` my family first.
+- Some people `collect` beanie babies...
+- `Collect` call from uranus on line two.
+- You come to `collect` something, chris?
+- I thought you were here to `collect` me.
+- This, this i used to `collect` water.
+- Apone, `collect` magazines from everybody.
+- She wants me to come in back and `collect`.
+- Watch behind or i'll never `collect` on it!
+- Levy, `collect` the big guns from the towers.
+- This is where he'd like to `collect`, too.
+- Don't need no other gunmen tryin' to `collect`.
+- I got messages at the holiday inn to `collect`.
+- Yes, of course, and we'll <u>`collect`</u> them.
+- You pull up -- `collect` your first installment.
+- We can `collect` around town, just call me marge.
+- You should pay as fast as you `collect`, you know.
+- What you gonna do when somebody comes to `collect`?
+- ...to identify off this we can `collect` the bounty.
+- Another fuckin'... well, he told me to `collect` cash.
+- You think it's healthy to obsessively `collect` things?
+- I, uh, i want you to `collect` magazines from everybody.
+- Maurice is gonna kill him, try and `collect` the reward.
+- Tomorrow `collect` from del rio -- he's late three weeks.
+- He realized that he and julia could still `collect` money.
+- Need i ask who's favored to `collect` at the end of this week.
+- That was so i could `collect` her eight million dollar estate.
+- All you gotta do is get me outta here long enough to `collect`.
+- Be kinda sweet if we could `collect` that ten thousand smackers.
+- I was going to call the clinic and have them `collect` your ass.
+- She wants to give it to you herself and `collect` her ten percent.
+- I don't fall in love with grown men who `collect` baseball cards!!
+- I got five stops to make, see some friends, `collect` some signatures.
+- Nay, lad, we're here to `collect` a weapon you'll need fighting the baron.
+- Bullocks... and because of your wife's sacrifice, we need to `collect` this.
+- I want to use the ramscoop to `collect` as much of it as we can... aye, sir.
+- Leave a message-- operator, i'd like to make a `collect` call - 213-467-0972...
+- They're in prisons with libraries, they `collect` clippings, i'm their worthy opponent.
+                 

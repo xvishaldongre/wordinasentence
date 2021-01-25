@@ -1,0 +1,107 @@
+---
+title: "neck in a sentence | neck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "neck"
+---
+- Cheer up, `neck` face.
+- But from the `neck` up?
+- He'd broken her `neck`.
+- No marks on her `neck`.
+- This is a great `neck`.
+- My `neck` is killing me.
+- The scar on your `neck`.
+- What side of the `neck`?
+- It was around his `neck`.
+- No pain in my `neck` now.
+- Will you crack my `neck`?
+- You want to rub my `neck`?
+- Lower--down into my `neck`.
+- I ought to wring her `neck`!
+- Or perhaps a `neck` massage?
+- Don't have to turn my `neck`.
+- I think its `neck` is broken.
+- Next time it'll be my `neck`.
+- "put their `neck` out there."
+- What happened to your `neck`?
+- A rock tied around its `neck`.
+- I can't hardly move my `neck`.
+- I'm playing for my `neck` now.
+- No `neck` mccoy we called him.
+- `Neck` and `neck` the whole time.
+- Put your arms around my `neck`.
+- Head still secure to the `neck`.
+- So what happened to your `neck`?
+- I stick my `neck` out for nobody.
+- Probably penis, mouth and `neck`.
+- The bar code on your `neck`, max.
+- Well, he's spitting on my `neck`!
+- You're in this up till ya `neck`.
+- If you do, i'll break your `neck`.
+- I ought to break your damn `neck`.
+- Look at his `neck`, for god's sake.
+- You got a love bite on your `neck`.
+- Hanging by his `neck` from up there.
+- You tied the cord around its `neck`.
+- B-but... we saw... your `neck`... no!
+- I hold at your `neck` the gom jabbar.
+- I'm going to break my `neck` in here.
+- Mine are like my `neck` and my chest.
+- What happens if you crack the `neck`?
+- Can you shine the light on his `neck`?
+- Doctor, i think i need a `neck` brace.
+- I'm the one who's `neck` is stuck out.
+- That's a nasty scratch on your `neck`.
+- To start with, i'll break your `neck`.
+- You mean� �by the `neck` or something?
+- Thanks to you, my heart is in my `neck`!
+- Poseur was missing a chunk of his `neck`.
+- That there's a 6-inch spike in my `neck`.
+- Would you like to wring my little `neck`?
+- You just hung a target around her `neck`!
+- Aside from my `neck`, i'm in superb shape.
+- How'd he drive with his `neck` in a brace?
+- That asshole smashed in my fucking `neck`!
+- What you're doing to my `neck`... what...?
+- Five more turns and your `neck` will break.
+- I appreciate your stickin' your `neck` out.
+- Even got the label on my `neck` to prove it.
+- I'd say you and sigurd were `neck`-and-`neck`.
+- It's my brother's `neck` you want, not mine.
+- It's, uh... ♪ his little `neck` i'm stringing.
+- I've been out there riskin' my `neck` for you.
+- You either need a new uniform or a new `neck`.
+- 12-year-old girl stabbed him in the `neck` hey.
+- Grandmama pace had a long, smooth white `neck`.
+- He bends down and bites the back of her `neck`.
+- How'd you like to trade it for a broken `neck`?
+- I'm gonna break my crazy `neck` on this ladder!
+- Nobody thanks you for sticking your `neck` out!
+- Your `neck` is like a swan... yours very truly.
+- I end up in a fucking `neck` brace for life!
+- Don't tell him i told you--he'd break my `neck`.
+- He broke his `neck` trying to suck his own dick.
+- I'll be there to hear his worthless `neck` snap.
+- Mitchell's going to get it in the `neck` anyway.
+- I wasn't the only one risking my `neck` that day.
+- You have such a pretty, long `neck`, like a swan.
+- You're making all the hairs on my `neck` stand up!
+- But my `neck` hurts... and i have a slight cough...
+- Frankly you really saved my a... my `neck` tonight.
+- I don't see any injury to your `neck`, mr. kaufman.
+- No doubt by now his head is stranger to his `neck`.
+- You know, he's spitting on my `neck` when he talks.
+- Your `neck` can be sliced as fast as anyone else's.
+- After leizburg, he stuck his `neck` out to defend me.
+- A crummy pigeon who's looking to get his `neck` wrung!
+- It's still nearly impossible for me to turn my `neck`.
+- So she still likes him enough to stick her `neck` out.
+- Spock - what are you doing in this `neck` of the woods?
+- Bud... jack thought he was up to his `neck` in all this.
+- Prepare for a crick in the `neck` in sixteen years time.
+- They took some bone from my hip and put it in my `neck`.
+- What makes you think i'd stick my `neck` out for laszlo?
+- Whose `neck` shall i stand on, to make me feel superior?
+- Fucking james ryan, i'd like to wring his fucking `neck`.
+- I haven't wrung a chicken's `neck` in a month of sundays.
+                 

@@ -1,0 +1,100 @@
+---
+title: "awhile in a sentence | awhile example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "awhile"
+---
+- That was `awhile` ago.
+- All right for `awhile`?
+- We hang there `awhile`.
+- He finished `awhile` ago.
+- I want to drive `awhile`.
+- Well, it's been `awhile`.
+- Can you not stay `awhile`?
+- Let's wait `awhile` janet.
+- We disappear for `awhile`.
+- I'd hold that off `awhile`.
+- I'm going out for `awhile`.
+- That'll take them `awhile`.
+- Need to lose myself `awhile`.
+- Want to come in for `awhile`?
+- We'll watch her for `awhile`.
+- Keep ben's for `awhile`, okay?
+- We'll let it run `awhile` yep.
+- Would you sit with me `awhile`?
+- But leave me alone for `awhile`.
+- They bother me once in `awhile`.
+- Will you stay home for `awhile`?
+- Goes on like that quite `awhile`.
+- He's been like that for `awhile`.
+- Steve was all right for `awhile`.
+- Then, after `awhile`, some chemo.
+- I've given up angles for `awhile`.
+- Might wanna let that stew `awhile`.
+- Anyway, she's been with us `awhile`.
+- Does that mean i'm back for `awhile`?
+- He wants to go overseas for `awhile`.
+- I won't be able to talk for `awhile`.
+- So i guess it's goodbye for `awhile`.
+- I think i'll just go out for `awhile`.
+- I just wanted to get away for `awhile`.
+- Like things are going to last `awhile`.
+- Prettiest suspect i've had in `awhile`.
+- Then they aren't so crazy for `awhile`.
+- Then they aren't so crazy for `awhile`.
+- But once in `awhile` i kind of go, woah.
+- I killed some folks quite `awhile` back.
+- I'm going to be going away for `awhile`.
+- Maybe we shouldn't make love for `awhile`.
+- We're on it, but it's gonna take `awhile`.
+- I guess any spot gets boring after `awhile`.
+- But you are tired and you must rest `awhile`.
+- Thinking about giving it a rest for `awhile`.
+- Good concorde ... stay here and rest `awhile`.
+- I'm gonna torture you for `awhile` regardless.
+- I'm jus' gonna set `awhile` an' then go to bed.
+- It's alright for a man to cry once in `awhile`.
+- Even if i could only polish it once in `awhile`.
+- For `awhile` we had this dream we were innocent.
+- Take away his books for `awhile`, and no jello...
+- Meaning we'll have to cool it for `awhile`, right?
+- Why don't you take off your hat and stay `awhile`?
+- Woogie and i went out for `awhile` in high school.
+- Nurse, give leave `awhile`, we must talk in secret.
+- After `awhile`, it just becomes part of the game.
+- I thought you were going to stay with us for `awhile`?
+- Just haven't been this close to toontown for `awhile`.
+- I think after this i'd like to quit people for `awhile`.
+- `Awhile` back he ordered some bibles- -i've brought them.
+- You guys ought to try picking up a phone once in `awhile`.
+- After that, i plan to read some music and rest for `awhile`.
+- Best case scenario, you're back on the payroll for `awhile`.
+- ...but after...`awhile`...you begin to... ...get used to it.
+- It's been `awhile` since somebody wrote a good book in jail.
+- I am a-weary, give me leave `awhile`: fie, how my bones ache!
+- You noticed that no one's been killed or maimed for `awhile`?
+- After `awhile`, you begin to make friends with it, so to speak.
+- I think i'll just lie down `awhile` come up to the fire, honey.
+- It may take `awhile` but you'll be found after we're long gone.
+- But maybe just for `awhile` -- frank, i just like you as a friend.
+- The scary thing is, you probably could have faked it for `awhile`.
+- If anything, after i looked at it `awhile`, it got more interesting.
+- I'm a government employee and i've been watching jerry for `awhile`.
+- If she won't suit your fancy, my friend, then you must wait `awhile`.
+- Took the air right out of me, but i was just unconscious for `awhile`.
+- Try obeyin' the law once in `awhile`, and i won't have to hassle you...
+- When nando died--it was so sudden--i was kind of in shock for `awhile`.
+- The world does turn once in `awhile` brian, even without your permission.
+- Once in `awhile` you sing along with music, but mostly you punish yourself.
+- We both wanted to believe it for `awhile`, but it was all founded on a lie.
+- After `awhile`, for no reason, i'd go over and kiss him and sit in his lap.
+- The broad used to work for one of concannon's partners in new york `awhile` ago.
+- Even if they are iraqis probably all they'll do is take us prisoner for `awhile`.
+- I guess a little place like this would just be a dot on a map to you after `awhile`.
+- It appears that we're going to have to wait `awhile` for any more action here, colonel.
+- Well, first you pick your place, see, then i'd just sit back and watch it for `awhile`.
+- I'll go with you in a while -- judt hold tight `awhile` -- can i go get those mangos now?
+- Oh, the scuttlebutt for `awhile` was he was investigating kennedy-- any idea what he did?
+- You lie down and you'll go to sleep i just need to lie down for `awhile` you're not okay.
+- Since we're just starting out, i thought we could go to a bar... sit and talk for `awhile`.
+                 

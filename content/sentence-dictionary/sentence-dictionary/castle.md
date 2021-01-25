@@ -1,0 +1,69 @@
+---
+title: "castle in a sentence | castle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "castle"
+---
+- Whose `castle` is this?
+- It's your `castle`, man.
+- What's as big a `castle`?
+- To `castle` couer de noir?
+- The shadow of the `castle`.
+- Four-five-five `castle` way.
+- The <u>`castle`</u> cemetery.
+- This is a `castle`, isn't it?
+- The white `castle` has fallen.
+- Have fun storming the `castle`.
+- We get to live in the `castle`?
+- I went up to the magic `castle`.
+- I've just come from the `castle`.
+- A `castle` keep, in medieval times.
+- Thirty men guard the `castle` gate.
+- What knight lives in that `castle`?
+- He's with the prince in the `castle`.
+- We'll never find the baron's `castle`.
+- Did you go to the `castle` with eduard?
+- We were up at the `castle` in scotland.
+- To the demon king's `castle`, of course.
+- All old files are sent up to the `castle`.
+- She was as well known as the `castle` rock.
+- Where do our records go to in the `castle`?
+- Then again yesterday outside `castle` byers.
+- Standing guard over the old `castle`, are you?
+- But the `castle` gate is guarded by thirty men.
+- You gotta get me to the magic `castle` at four.
+- We march on `castle` couer de noir within the hour.
+- Don't they have enough for you to do at the `castle`?
+- How do we find the `castle` couer de noir without her?
+- Old man, what knight live in that `castle` over there?
+- The day he died, eduard was called up to the `castle`.
+- The lengths some people will go to live in a `castle`.
+- This is the `castle` of of my master, guy de loimbard.
+- We stayed up all night building `castle` byers... heda!
+- After all, what girl doesn't want to live in a `castle`?
+- Didn't we pass a `castle` back down the road a few miles?
+- There's an apartment in that area called the `castle` arms.
+- Shepherd's law number 4... you could have taken my `castle`.
+- Maya says that they're already using their blood, `castle` byers.
+- What made you think <u>i'd</u> be able to get you into the `castle`?
+- It is i, arthur, son of uther pendragon, from the `castle` of camelot.
+- How do you plan on finding this here `castle`, if ye don't mind me asking?
+- 'mm ... very nice `castle`, camelot ... very good pig country.... camelot?
+- But an ugly rumor has it that there are strange goings on in this `castle`.
+- I'll be doing it myself and submitting it to the `castle` today or tomorrow.
+- Not against `castle` dugan gate, that has been off the hinges these ten years.
+- `Castle` couer de noir built with magic... simple as death... strong as hate...
+- I am arthur, king of the britons ... can you tell me who lives in that `castle`?
+- You betrayed the duke, stole his wife and took his `castle`, now no one trusts you.
+- Your father is being held in the `castle` of brunwald on the austrian-german border.
+- You've got a `castle` full of racks and ropes and pulleys: go and torture the bitch!
+- Suppose a pretty dame into my `castle` came - and let us say that i was going strong.
+- There's a part of a scotch `castle` over there, but we haven't bothered to unwrap it.
+- But this is a way to get into that `castle`... willow, this is war, not agricul- ture!
+- Find her suitable lodgings -- here -- in the `castle`... and guard her with your life.
+- Herbert ... we built this `castle` on a bloody swamp, we need all the land we can get.
+- I mean, the people were really cool, being the queen of the `castle`, being worshipped.
+- Of course he is -- the `castle` precincts are not the safest part of the city after dark.
+- The `castle` gates were blockaded in the time of the great plague -- it's an escape route.
+- They paid your ransom... tomorrow you will be transferred to their great `castle` at rouen.
+                 

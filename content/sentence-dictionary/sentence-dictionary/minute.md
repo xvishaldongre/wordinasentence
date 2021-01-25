@@ -1,0 +1,107 @@
+---
+title: "minute in a sentence | minute example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "minute"
+---
+- Be back in a `minute`.
+- Be here in a `minute`.
+- But...wait a `minute`!
+- Every `minute` counts.
+- Glenn, got a `minute`?
+- It'll take a `minute`.
+- I won't be a `minute`.
+- Jack, wait a `minute`.
+- Just a `minute`, dear.
+- Just for a `minute`...
+- Let's rest a `minute`.
+- Let's talk a `minute`.
+- Now just a `minute`...
+- See you in a `minute`.
+- Wait a `minute`, boys.
+- Wait a `minute`, whoa.
+- Wait, just a `minute`.
+- Well, wait a `minute`.
+- Won't take a `minute`.
+- You have one `minute`.
+- Bucks a `minute`, beck.
+- Can we have a `minute`?
+- Get dry for a `minute`.
+- He's a joke a `minute`.
+- I be off in a `minute`.
+- I just need a `minute`.
+- I only need a `minute`.
+- Just a `minute`, maxie.
+- Just one `minute`, you!
+- Nurse, wait a `minute`.
+- One `minute`, let's go.
+- Roger, wait a `minute`.
+- The `minute` i saw you.
+- Wait a `minute`, bruce.
+- Wait a `minute`, cates.
+- Wait a `minute` here...
+- Wait a `minute`, kiddo.
+- Wait a `minute`, major.
+- Wait a `minute`, sonny.
+- Wait a `minute`, watch.
+- Wait a `minute`, woman.
+- Wait a `minute`... wow!
+- Wait one damn `minute`!
+- All right, one `minute`.
+- Come up here a `minute`.
+- (gasps) wait a `minute`.
+- Gimme a `minute` here...
+- Have you a `minute` now?
+- Have you got a `minute`?
+- I don't have a `minute`.
+- I'll just be a `minute`.
+- I'll only be a `minute`.
+- In a `minute`... coming?
+- I won't be a `minute`...
+- Just a `minute`, please.
+- Just a `minute`, robles.
+- Just give it a `minute`.
+- Just give me a `minute`.
+- Just hold on a `minute`.
+- Maybe just a `minute`.
+- Not even for a `minute`!
+- Now wait justa `minute`!
+- One `minute` to liftoff.
+- Please, just a `minute`.
+- Stop a `minute`, please.
+- This'll take a `minute`.
+- Wait a `minute`, daphne.
+- Wait a `minute` - guard!
+- Wait a `minute`, mollie.
+- Wait a `minute`, ronnie.
+- Wait a `minute`, walter.
+- Wait... just a `minute`.
+- Whoa -- wait a `minute`.
+- Excuse me for a `minute`.
+- He'll be a `minute`, hon.
+- Hold on a `minute`, dear.
+- It's just for a `minute`.
+- It won't take a `minute`.
+- Jack, hold on a `minute`.
+- Just a `minute`, johnson!
+- Just for a `minute` then.
+- Now just a `minute`, sir!
+- Now wait a `minute`, sam.
+- Okay, give me a `minute`.
+- Right this very `minute`!
+- Stephen, wait a `minute`.
+- Wait a `minute`, charlie.
+- Wait a `minute`, fellahs.
+- We'll just be a `minute`.
+- Well, siddown a `minute`.
+- Will you wait a `minute`?
+- Yeah, give me a `minute`.
+- You stay here a `minute`.
+- All right, for a `minute`.
+- Be with you in a `minute`.
+- Every `minute` of the day!
+- Fuck you, wait a `minute`.
+- Hey... you got a `minute`?
+- I'll be in, in a `minute`.
+- I'll be out in a `minute`!
+                 

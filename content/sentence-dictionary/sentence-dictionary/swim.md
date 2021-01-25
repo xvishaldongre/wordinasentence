@@ -1,0 +1,79 @@
+---
+title: "swim in a sentence | swim example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swim"
+---
+- Wanna go for a `swim`?
+- I can't `swim`, either.
+- I'm going for a `swim`.
+- That's how fish `swim`.
+- Shall we go for a `swim`?
+- We're not here to `swim`.
+- Yes mam... can you `swim`?
+- Didn't bring a `swim` suit.
+- Did you have a nice `swim`?
+- If you drown, it'll `swim`.
+- I bet you can't even `swim`.
+- Yes, of course i can `swim`.
+- Come on--let's take a `swim`.
+- I was going to take a `swim`.
+- One kilometer you can `swim`?
+- I can't -- i can't `swim` -- !
+- Perfect for a `swim`, isn't it?
+- You'd best take a `swim`, jack.
+- Coming to the pool for a `swim`?
+- Come `swim` with me now, vincent.
+- _ at least i don't have to `swim`.
+- Mother tells me you like to `swim`.
+- I'm just warning you, i can't `swim`.
+- That water's cold and i can't `swim`.
+- Well, at least i can `swim` to shore.
+- Now and then, young men to `swim`.
+- Now let's see how good you can `swim`.
+- Oh, who knew cockroaches could `swim`?
+- Our big `swim` meet is in three weeks.
+- Ryan, would you rather `swim` or work?
+- But now - i wonder - i'd sooner `swim`!
+- She doesn't have enough space to `swim`.
+- 88 years old and never learned to `swim`.
+- I'm certainly not going to `swim` across.
+- I'm not just going to let it `swim` away.
+- You sit there and they `swim` around you.
+- Nobody will `swim` here until next summer.
+- Would i `swim` across an ocean for you?...
+- A bunch of us girls are going for a `swim`.
+- Well... do you want to take a quick `swim`?
+- Maybe you'd like a `swim` when we're through.
+- Drank too much, went for a `swim` and drowned.
+- I don't know... why don't we go take a `swim`?
+- All i did was wear `swim` trunks in the shower.
+- He also treks the world to `swim` with crocodiles.
+- I love to `swim`, and i don't mind the cold at all.
+- Let's hope she doesn't expect me to `swim` upstream.
+- In three hundred years...you never learned to `swim`?
+- What's a little `swim` after sticking worms and ogres?
+- Of course he has to `swim` in the same water we all do.
+- Seven, eight minute `swim` each way... not enough time.
+- I never `swim` myself, so the pool tends to go to waste.
+- I suppose i can, sir; are you planning to take a `swim`?
+- I was going to `swim` in the one hundred meter freestyle.
+- We leave our rucksacks on this island and then we `swim`.
+- You set a fish free because it has an ocean to `swim` in.
+- You think a swan's gonna `swim` ass first up main street?
+- Well of course i can `swim`, if the occasion calls for it.
+- I'm still tingling all over from our little midnight `swim`.
+- I won't be able to play the piano, but i could still `swim`.
+- You mind if i take a `swim` in your bathtub before i hit it?
+- Ready to pull down anybody who falls in and can't `swim`.
+- Why don't you come join me for a `swim` and we'll discuss it.
+- We didn't have no pool in the projects...so none of us `swim`.
+- It's just like swimming, norman... you know how to `swim`, don't you?
+- Came all the way down here to jump in and `swim` with the kiddies, huh?
+- Keep enough tension to hold him up, hector, we don't know if he can `swim`.
+- ♪ but i just need a change ♪ but i'm here now, didn't teach you how to `swim`.
+- She wonders why i `swim` to the bottom of a lemondrop every time i see her.
+- They have saltwater glands, they can `swim` across oceans, it's only a matter of time.
+- Because it's sink or `swim` here, pals... she wasn't in the... then she wasn't in the car.
+- I'd jump daisy into the river, and `swim` you both across, where no enemy could follow us.
+                 

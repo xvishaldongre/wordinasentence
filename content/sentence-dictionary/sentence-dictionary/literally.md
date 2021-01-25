@@ -1,0 +1,51 @@
+---
+title: "literally in a sentence | literally example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "literally"
+---
+- `Literally` sit in it.
+- I didn't mean `literally`.
+- It's `literally` unusable.
+- I've `literally` got to run!
+- I mean `literally` dying.
+- `Literally` a thousand times.
+- I'm d. is `literally` massive.
+- I'm `literally` going to kill you!
+- He got the drop on us... `literally`.
+- Wallowing quite `literally` in blood.
+- You mean this `literally`, i take it?
+- Sorta `literally` gets ahead of himself.
+- I `literally` don't care if i live or die.
+- You have a staff of `literally` thousands.
+- I am `literally` begging you not to do this.
+- I mean that `literally` and i mean right now!
+- I think she `literally` fucked me brains out.
+- I'm `literally` and figuratively a tenderfoot.
+- `Literally`, that was the funniest thing ever.
+- Maybe our enemy is, `literally`, already here.
+- Who knew they took termination so `literally`?
+- But where is scott lang, `literally` speaking?!
+- Those `literally` do nothing against gamma rays.
+- Well, where is scott lang, `literally` speaking!
+- I `literally` pieced it together as i went along.
+- I mean `literally` wrote the book on pandoran botany.
+- The power of creation -- it `literally` is genesis...
+- The senator's body is `literally` burning itself out.
+- It means `literally` "small but intelligent creature".
+- What, just something that `literally` says "i'm sorry"?
+- But you could `literally` play football without any feet?
+- He is `literally` conscious and unconscious at the same time.
+- I remember `literally` being startled when the guy spoke to me.
+- Our bodies will be `literally` dying and i mean `literally` dying.
+- It gives us direct access to `literally` hundreds of american collages.
+- A man in a minor altercation `literally` melted the car in front of him.
+- At the cruising altitude of a 747. our bodies will be `literally` dying.
+- We are blessed to live in an age it'll `literally` calcify you from the inside.
+- She is the center of their lives, quite `literally` the mother of their society.
+- Some porn chicks are putting in breast implants bigger than your head, `literally`.
+- You see a deadly sin on almost every street corner, and in every home, `literally`.
+- I got an engraved -- `literally` -- invitation -- with my name -- you're not my list.
+- I'm saying you should `literally` take that as your <u>base</u>, do you know what i mean?
+- V'ger plans to `literally` <u>meld</u> to reduce both itself and the creator to patterns...
+                 

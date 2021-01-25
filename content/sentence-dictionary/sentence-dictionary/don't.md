@@ -1,0 +1,107 @@
+---
+title: "don't in a sentence | don't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "don't"
+---
+- Aw, `don't` get mushy.
+- Aye, but `don't` rush.
+- Baby, `don't` do this.
+- Basquiat, `don't` lie.
+- [beat] i `don't` know.
+- Bombs `don't` unscrew.
+- Booze we `don't` need.
+- But `don't` blame him.
+- But i `don't` have it.
+- But you `don't` agree?
+- C'mon, `don't` be shy.
+- _ `don't` answer that.
+- `don't` argue with me.
+- `don't` ask questions.
+- `don't` be a hero, ok?
+- `don't` be an asshole.
+- `don't` be frightened.
+- `don't` belong to you!
+- `don't` be ridiculous!
+- `don't` be ridiculous.
+- `don't` be sad, barry.
+- `don't` be so grouchy.
+- `don't` be so literal.
+- `don't` be such wimps.
+- `don't` bring that up.
+- `don't` call him that.
+- `don't` call me a bum!
+- `don't` call me honey!
+- `don't` cause a scene.
+- `don't` come in sal's.
+- "`don't` come near me.
+- `don't` deny me, duff.
+- `don't` disappoint us.
+- `don't` do it, evelyn.
+- `don't` do it, norman!
+- `don't` do it, please.
+- `don't` do that again!
+- `don't` do that, okay?
+- `don't` do that to me!
+- `don't` do the finger.
+- `don't` do this again.
+- `don't` do this, andy.
+- `don't` do this to me.
+- `don't` encourage her.
+- `don't` even go there.
+- `don't` even thank me.
+- `don't` even try that.
+- `don't` ever say that.
+- `don't` fall asleep...
+- `don't` feed that dog.
+- `don't` fight anymore!
+- `don't` fight, please.
+- `don't` focus on them.
+- `don't` fuck with him.
+- `don't` get any ideas.
+- `don't` get sore, joe.
+- `don't` get too cocky.
+- `don't` give it to me.
+- `don't` go home, okay?
+- `don't` go over there.
+- `don't` go there, sid.
+- `don't` gotta tell me.
+- `don't` go without me!
+- `don't` grab me, okay?
+- `don't` hang on to me.
+- `don't` hang up on me.
+- `don't` hit the tanks.
+- `don't` hurt the face!
+- `don't` hurt yourself.
+- `don't` know on a map.
+- `don't` leave so soon.
+- `don't` let 'em fight.
+- `don't` let him leave.
+- `don't` lie to me now.
+- `don't` listen to her.
+- `don't` listen to him.
+- `don't` litter my cab!
+- `don't` make me do it.
+- `don't` make me laugh.
+- `don't` mind about me.
+- `don't` move a muscle.
+- `don't` move the baby!
+- `don't` open that now.
+- `don't` play anything!
+- `don't` play innocent.
+- `don't` push me, duff.
+- `don't` recognize him.
+- `don't` run off, jude.
+- `don't` rush me, okay?
+- `don't` say no, jacko.
+- `don't` say that name.
+- `don't` say that word.
+- `don't` screw with it.
+- `don't` sell that out.
+- `don't` smell nothin'.
+- `don't` speak russian!
+- `don't` start, farmer.
+- `don't` sweat it, man.
+- `don't` take anything.
+- `don't` take my daddy!
+                 

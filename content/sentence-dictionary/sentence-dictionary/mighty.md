@@ -1,0 +1,57 @@
+---
+title: "mighty in a sentence | mighty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mighty"
+---
+- I am the `mighty` ape!
+- Toruk makto was `mighty`.
+- `Mighty` decent of you, pal.
+- How the `mighty` have fallen.
+- That's `mighty` black of you.
+- This is `mighty` sweet, paden.
+- Oh, how the `mighty` have fallen.
+- You look `mighty` familiar to me.
+- `Mighty` nice little town, albany.
+- Of course, it was `mighty` writing.
+- They're like -- -- the `mighty` oak.
+- What makes you so high and `mighty`?
+- In your hands, it is a `mighty` weapon.
+- That's `mighty` brave of you, reverend.
+- You seem `mighty` collected about this.
+- All that high and `mighty` militant shit.
+- `Mighty` glad to be there after this.
+- I'd be `mighty` proud if you did, lothar.
+- Well, it does seem `mighty` warm in here.
+- Yes, sir, it's a `mighty` nice fall day...
+- I see what you like, she's `mighty` pretty.
+- We'll be `mighty` glad to have you with us.
+- That was `mighty` charitable of you, claude.
+- Well -- `mighty` elegant house you got here.
+- ... say, that's `mighty` white of you, jabez.
+- But a `mighty` sweet little drop, eh, charley?
+- Well, albany's a `mighty` good insurance town.
+- Lotta these little farmers `mighty` nice fellas.
+- There was a `mighty` duel -- it ranged all over.
+- Well, maybe i- movin' in's `mighty` thirsty work.
+- But i don't know, it's close, it's `mighty` close.
+- Not the romulans and not your `mighty` federation.
+- ♪ a `mighty` problem is our todd ♪ this is my crew.
+- You got some `mighty` fucking fine bad timing adam.
+- Boys, that was some `mighty` fine pickin' and singin'.
+- That's cutting it `mighty` close -- for a perfect fit.
+- You could get `mighty` lonely now that pollux is gone.
+- But this yankee whisky is `mighty` fine, i'll say that.
+- Obviously, all this binary disc shit is pretty `mighty`.
+- If you wanna perform in texas, you give 'em `mighty` mouse!
+- I'm `mighty` tired and i think this crazy project screw that.
+- Mary -- jabez -- you throw `mighty` far, jabez -- almost into the pigsty.
+- If you don't mind my saying, you seem `mighty` familiar with your house boy.
+- I know -- that was `mighty` queer medford -- knew it the minute i tasted it.
+- Well, fust off... name's ethan...now what's so `mighty` fishy about this trail?
+- My plan of lying here pissing myself seems to be working `mighty` fine, thank you.
+- Here you are so high and `mighty`, like you're so different from the rest of us.
+- The heat's on, shortie--and those atlantic breezes are going to be `mighty` welcome.
+- It's just, she's always so nasty to me, i thought, who is she to be so high and `mighty`.
+- Even so, because of our size -- i mean lack of it -- we'll still be cruising `mighty` fast.
+                 

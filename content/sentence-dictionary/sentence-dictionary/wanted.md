@@ -1,0 +1,107 @@
+---
+title: "wanted in a sentence | wanted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wanted"
+---
+- Because i `wanted` to.
+- Even if i `wanted` to.
+- If you `wanted` to go?
+- I guess i `wanted` to.
+- I `wanted` the choice.
+- I `wanted` to ask you.
+- I `wanted` to be snow.
+- I `wanted` to see her.
+- I `wanted` to see you.
+- Just `wanted` his o-2.
+- Maybe you `wanted` to.
+- No, but i `wanted` to.
+- Says he `wanted` food.
+- That's all i `wanted`.
+- They `wanted` a trial.
+- We just `wanted` time.
+- You `wanted` him dead.
+- Anything we `wanted`...
+- He's `wanted` in japan.
+- He `wanted` to kill me!
+- He `wanted` to kill me.
+- I always `wanted` more.
+- It�s what you `wanted`.
+- I've `wanted` a friend.
+- I `wanted` hauser back.
+- I `wanted` to be right.
+- I `wanted` to help you.
+- I `wanted` to kill him.
+- I `wanted` to see if...
+- I `wanted` to tell you.
+- I `wanted` to win, sir.
+- Just like you `wanted`.
+- Just what you `wanted`.
+- Ten bucks she `wanted`.
+- They `wanted` my paper.
+- You `wanted` the money.
+- You `wanted` to see me!
+- You `wanted` to see me.
+- You `wanted` to see me?
+- Because you `wanted` to.
+- Even if you `wanted` to.
+- He `wanted` to marry me.
+- He `wanted` to meet her.
+- He `wanted` to shoot me.
+- I made what he `wanted`.
+- It's what lexa `wanted`.
+- I `wanted` it over fast.
+- I `wanted` it to be you.
+- I `wanted` to apologize.
+- I `wanted` to come here.
+- I `wanted` to marry you.
+- I `wanted` to see you...
+- I `wanted` to, so i did.
+- Just `wanted` to say hi.
+- Listen, i `wanted` to...
+- Said they `wanted` to...
+- She `wanted` everything.
+- She `wanted` to go home.
+- `Wanted` to look you up.
+- What, you `wanted` more?
+- You `wanted` to hurt me.
+- You `wanted` to meet me?
+- She `wanted` to talk.
+- But you `wanted` to talk.
+- Daitz `wanted` the money.
+- He's always `wanted` you.
+- He `wanted` a watch, too.
+- He `wanted` to come home.
+- He `wanted` to tcb alone.
+- It `wanted` to become us!
+- I `wanted` him to see me.
+- I `wanted` no part of it.
+- Just `wanted` to go home.
+- Like you `wanted` a lift?
+- No, i `wanted` to say it.
+- This is what he `wanted`.
+- Where you `wanted` to be?
+- You're `wanted` in admin.
+- You `wanted` castro dead.
+- You `wanted` it that way.
+- You `wanted` to go first.
+- You `wanted` to go on tv.
+- ♪ you `wanted` to see me?
+- Because he `wanted` us to.
+- He's `wanted` for murder.
+- He `wanted` you in anyway.
+- I just `wanted` to say it.
+- I never `wanted` to leave.
+- Is this what you `wanted`?
+- I thought you `wanted` to.
+- It wasn't what i `wanted`.
+- I `wanted` her to like me.
+- I `wanted` that e- ticket.
+- I `wanted` to be an actor.
+- I `wanted` to place an ad.
+- I `wanted` to save geordi.
+- I `wanted` to talk to him.
+- I `wanted` to talk to you.
+- I `wanted` you to be real.
+- No one `wanted` them here!
+                 

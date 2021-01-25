@@ -1,0 +1,107 @@
+---
+title: "color in a sentence | color example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "color"
+---
+- So what `color` is it?
+- That's a good `color`.
+- `Color` a cloud purple.
+- What `color` was it?!!!
+- What `color` were they?
+- Which `color` was that?
+- `Color` me stoked, girl.
+- His hair... any `color`.
+- I had a car that `color`.
+- Same `color` and texture.
+- As a `color`, not as rust.
+- What `color` are my shoes?
+- The `color` of my hair.
+- That's my favorite `color`!
+- The `color` of your hair...
+- What `color` hair she have?
+- What `color` is the wallet?
+- You change `color`, do you?
+- Did you see his hair `color`?
+- It's a great `color` for you.
+- What's your favorite `color`?
+- It's totally not your `color`.
+- Yellow's a bad `color` for me.
+- <font `color`=#ffff2d>yeah, me?
+- It's the `color` of confidence.
+- Like a little `color` portable?
+- Look at this beautiful `color`.
+- Watching television in `color`.
+- What `color` do you like, will?
+- What `color` hair does he have?
+- Does he wear pants this `color`?
+- <font `color`=#ffff2d> how many?
+- <font `color`=#ffff2d>it's okay.
+- <font `color`=#ffff2d>with them?
+- My mom uses `color`-safe bleach.
+- Of course, her favorite `color`!
+- We're supposed to be in `color`!
+- What `color` hair will she have?
+- What's monty's favorite `color`?
+- <font `color`=#ffff2d> excuse me?
+- <font `color`=#ffff2d>it's great.
+- <font `color`=#ffff2d> its wrong?
+- I don't think you have a `color`.
+- I'm not asking about the `color`.
+- Then what is my favorite `color`?
+- What is the make and the `color`?
+- As real as the `color` of my hair.
+- <font `color`=#ffff2d> is that...?
+- <font `color`=#ffff2d> last night.
+- Can you take me to `color` me mine?
+- <font `color`=#ffff2d> just saying.
+- <font `color`=#ffff2d>priority one.
+- Kind of a...robin egg blue `color`?
+- Ooo, you're wonderful this `color`!
+- What `color` eyes did barbara have?
+- What was the `color` of tim's belt?
+- <font `color`=#ffff2d> good morning.
+- <font `color`=#ffff2d>you can do it.
+- He'd lie about his favorite `color`.
+- What `color` is that hedge of yours?
+- What `color` underwear am i wearing?
+- Like what... my favorite `color`... ?
+- The `color` here, see how dark it is?
+- And her specialist subject is `color`.
+- <font `color`=#ffff2d>i'm colonel g.t.
+- <font `color`=#ffff2d>why send twelve?
+- You're looking at `color` and clarity.
+- <font `color`=#20de1b>"there's no time.
+- <font `color`=#ffff2d> are you alright?
+- <font `color`=#ffff2d> quite a reading!
+- <font `color`=#ffff2d> you can proceed.
+- I think that's a pretty `color` on you.
+- No `color`, no sparkle--but dependable.
+- That's a lot of `color` for you, chief.
+- That's the hair `color` in his profile?
+- This is the only `color` they had left.
+- Too many cars, too many `color` tvs ...
+- What `color` were the original hebrews?
+- You've got good `color` in your cheeks.
+- I had a fifty-fifty shot at the `color`.
+- The `color` clashes with your skin tone.
+- <font `color`=#ffff2d>...above the ocean.
+- <font `color`=#ffff2d>alright, lets move.
+- <font `color`=#ffff2d>you hear any words?
+- <font `color`=#ffff2d> everybody, move up.
+- <font `color`=#ffff2d> what you say means?
+- I've never seen blood that `color` before.
+- Unless i get that hair-`color`-naming job.
+- You couldn't have picked a better `color`.
+- <font `color`=#ffff2d> like is it for them?
+- <font `color`=#ffff2d>you'll see soon enough.
+- <font `color`=#ffff2d>you mentioned berkeley.
+- Poor `color` composition, lousy use of space.
+- To matters of race, creed, `color`, religion.
+- You wouldn't have any `color` film, would ya?
+- `Color` in the red wines comes from the skins.
+- Every possible property that `color` can have.
+- Did you see the icky black `color` of her hair?
+- <font `color`=#ffff2d>you want me to chase you?
+- You must have used every `color` in the box.
+                 

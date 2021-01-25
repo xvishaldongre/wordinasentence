@@ -1,0 +1,107 @@
+---
+title: "gotta in a sentence | gotta example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gotta"
+---
+- But you `gotta` do it.
+- Don't `gotta` tell me.
+- `Gotta` take a second.
+- He's `gotta` be a nut!
+- He's `gotta` know why.
+- I `gotta` drop a dime.
+- I `gotta` go now, dad.
+- I `gotta` take a leak.
+- I `gotta` take a piss.
+- I `gotta` talk to her.
+- I `gotta` talk to him.
+- I `gotta` talk to mel.
+- I `gotta` talk to you.
+- I still `gotta` do it.
+- Keaton, we `gotta` go.
+- Look, we `gotta` talk.
+- Oh man, i `gotta` pee.
+- So, i `gotta` ask you.
+- We `gotta` fucking go!
+- We `gotta` have women.
+- We `gotta` think here.
+- Who do i `gotta` kill?
+- Why you `gotta` curse?
+- You `gotta` be joking.
+- You `gotta` be strong.
+- You `gotta` have that.
+- You `gotta` know that.
+- Yo, we `gotta` go now!
+- But i `gotta` be close.
+- Come on, we `gotta` go.
+- `Gotta` de-ice my mask.
+- `Gotta`... get... help.
+- `Gotta` situation here.
+- I `gotta` be free, man.
+- I `gotta` be on my way.
+- I `gotta` be someplace.
+- I `gotta` do it all ...
+- I `gotta` do somethin'.
+- I `gotta` do something.
+- I `gotta` get'em fixed.
+- I `gotta` get home now.
+- I `gotta` get my stuff.
+- I `gotta` get up early.
+- I `gotta` go be a boss.
+- I `gotta` kill an hour.
+- I `gotta` let 'em know.
+- I `gotta` talk to jack.
+- I `gotta` tell ya tony.
+- I mean it's `gotta` be!
+- I no `gotta` new-rosis.
+- Sonny, i `gotta` go...!
+- So you `gotta` grab it.
+- Tell him we `gotta` go.
+- We `gotta` follow them.
+- We `gotta` go straight.
+- We `gotta` keep moving!
+- We `gotta` keep moving.
+- We `gotta` lotta dolls.
+- We've `gotta` get help!
+- We've `gotta` stop her.
+- You `gotta` be careful.
+- You `gotta` be kiddin'.
+- You `gotta` be kidding!
+- You `gotta` be kidding.
+- You `gotta` be kidding?
+- You `gotta` believe me!
+- You `gotta` believe me.
+- You `gotta` blow on it!
+- You `gotta` dig it up!!
+- You `gotta` earn trust.
+- You `gotta` excuse him.
+- You `gotta` get me out.
+- You `gotta` get urgent.
+- You `gotta` girlfrlend?
+- You `gotta` good heart.
+- You `gotta` go with it.
+- You `gotta` keep going.
+- You `gotta` stay alive.
+- You just `gotta` do it.
+- You've `gotta` help me.
+- Angelo, we `gotta` talk.
+- But we `gotta` be smart.
+- But you `gotta` admit...
+- But you `gotta` love me!
+- But you `gotta` see her.
+- Doc, ya `gotta` help me.
+- Eat alone, `gotta` read.
+- Everybody's `gotta` eat.
+- ...`gotta` get in there.
+- `Gotta` go now, ma'am...
+- Hey hugo, we `gotta` go.
+- How dumb you `gotta` be?
+- I `gotta` bounce anyway.
+- I `gotta` bunch of them.
+- I `gotta` get elephants!
+- I `gotta` get the stuff.
+- I `gotta` have an intro!
+- I `gotta` live with her.
+- I `gotta` meet somebody.
+- I `gotta` open the gate.
+                 

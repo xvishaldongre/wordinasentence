@@ -1,0 +1,51 @@
+---
+title: "sandwich in a sentence | sandwich example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sandwich"
+---
+- Here, have a `sandwich`.
+- "where's my `sandwich`?"
+- Can we get you a `sandwich`?
+- I'm making you a `sandwich`.
+- Would you like a `sandwich`?
+- Got a half a tuna `sandwich`.
+- Is that anybody's `sandwich`?
+- I'm going to fix a `sandwich`.
+- Bonnie was eating a `sandwich`.
+- I dropped my `sandwich` in here.
+- May i have a `sandwich`, please?
+- With a peanut butter `sandwich`.
+- Cold lamb `sandwich` with cilantro.
+- Egg `sandwich` and a cup of coffee.
+- Now would you make me a `sandwich`?
+- Choked to death on a ham `sandwich`.
+- You're one `sandwich` away from fat.
+- Well, maybe i will have a `sandwich`.
+- He's got a fuckin' hero `sandwich` here.
+- I had a salami `sandwich`, mrs. swicker.
+- There's a meatloaf `sandwich` in there too.
+- Can i ask you, is this-is this a `sandwich`?
+- Eat a `sandwich` without washing your hands.
+- Jillie, you want a cheese grilled `sandwich`?
+- I'll have a bloody mary and a steak `sandwich`.
+- Who cares what `sandwich` the bitch was eating?
+- If you gave him a `sandwich`, you got half back.
+- I have some `sandwich` fixings if you're hungry.
+- It's called a grilled cheese `sandwich`, you dub.
+- Where i was makin' a jelly and banana `sandwich`?
+- Let's get a `sandwich` and find out about some work.
+- Could you eat a `sandwich` 40 floors above the street.
+- A map of town, a big spring and a tuna fish `sandwich`.
+- Everything is a-okay, but i've gotta get that `sandwich`!
+- You didn't call the `sandwich` joint with a urgent message?
+- You walked in here looking like you just ate a shit `sandwich`.
+- Can a man even grab a `sandwich` before you women start dilating?
+- I'm about to hit you in the head with a peanut butter `sandwich`.
+- We're hurt, we're tired, and a hero ain't nothing but a `sandwich`.
+- After we check you in we'll go to the drugstore and get you a `sandwich`.
+- Then i just went back into the kitchen and finished makin' my `sandwich`.
+- You can't take pictures of him like that�eating a `sandwich`�and with a beard!
+- I sent some liquid soap in a `sandwich` baggie with a message from jesus to mend his ways.
+- Or a spaghetti-filled grilled cheese `sandwich` and shock batons to control the criminals.
+                 

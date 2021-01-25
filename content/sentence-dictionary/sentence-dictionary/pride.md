@@ -1,0 +1,54 @@
+---
+title: "pride in a sentence | pride example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pride"
+---
+- `Pride` and prejudice.
+- Where is your `pride`?
+- `Pride` is his weakness.
+- Take some `pride` in it.
+- I take `pride` in my work.
+- Show some `pride`, hamilton.
+- With ram�n it's ... `pride`.
+- I think i sprained my `pride`.
+- Because i had too much `pride`.
+- Great stars have great `pride`.
+- You're not a lion in a `pride`!
+- 'cause i'm a guy, i have `pride`.
+- Don't choke on your `pride`, sull.
+- ... envy, sloth, `pride` and lust.
+- He said nobody has `pride` anymore.
+- I've got some professional `pride`.
+- `Pride` of a job-well-done... fine.
+- You have committed the sin of `pride`.
+- I have no `pride`, no dignity, no money.
+-  take `pride` in the number you saved.
+- "pioneer's `pride`, mobile log cabins".
+- But there, `pride` comes first, not gluttony.
+- Destroy your career over an issue of `pride`?
+- I advised her, and led her army with `pride`.
+- I have to have some `pride` i can do something.
+- Carry them to england to your king with `pride`.
+- I want to kill my `pride` and give you my blessing.
+- I can't believe we're gonna be in the `pride` parade.
+- You're both disgusting--with your `pride`, your `pride`.
+- No -- a `pride` to know that i can force you to my will.
+- No one can trace anything to me; i `pride` myself on that.
+- Show a little fucking `pride` in what you're doing, buddy.
+- Why should they feel anything but `pride` and contentment?
+- Are you aware of the `pride` there is in what you're saying?
+- Painless is the owner and operator of the `pride` of hamtrack.
+- The only variable is how much `pride` you take in the product.
+- You're good at what you do, so you must take `pride` in it...?
+- You have to get my baby back, she's my `pride` and -- how nice.
+- There won't be a shred of `pride` or decency left for any of use.
+- As if you'd just taken his money, and now all you want is... his `pride`?
+- I'm not happy about having to steal that horse, but i do have my `pride`.
+- They `pride` themselves in making life hard and that's not my cup of tea.
+- Now if you'll follow me, i'll introduce you to the institute's `pride` and joy.
+- It's the `pride` of a job well done, stanley, yes, but it's <u>more</u> than that.
+- It is an up-at-dawn `pride`-swallowing seige that i will never fully tell you about!
+- You `pride` yourself on knowing when someone's lying to you, not telling you the truth.
+- I'm not saying it's a bad thing, in fact, i think it's something we should take `pride` in.
+                 

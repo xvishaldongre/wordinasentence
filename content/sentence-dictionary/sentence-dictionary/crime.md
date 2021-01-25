@@ -1,0 +1,107 @@
+---
+title: "crime in a sentence | crime example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crime"
+---
+- It was a hate `crime`.
+- That ain't no `crime`.
+- What was your `crime`?
+- Still fighting `crime`?
+- That `crime`'s old, man.
+- The time of the `crime`.
+- To genteel `crime`, kid.
+- It'd be a `crime` not to.
+- Partners in `crime`, huh?
+- In ohio, that's a `crime`.
+- It'll be a `crime` not to.
+- You committed some `crime`?
+- It's your `crime` scene now.
+- What `crime` did you commit.
+- Solve the `crime`, of course.
+- This is a `crime` bill, shep.
+- Why, we have no `crime` here.
+- Wanted for a `crime` of murder.
+- When i was at computer `crime`.
+- Your mr. white saw the `crime`.
+- Being obsessive isn't a `crime`.
+- But our `crime` wasn't burglary.
+- God, i hate cold `crime` scenes!
+- Is that such a terrible `crime`?
+- My `crime` is that of curiosity.
+- Perhaps the <u>only</u> `crime`.
+- This is <u>my</u> `crime` scene!
+- Your `crime`... as well as mine.
+- You wanted for a `crime`, ethan?
+- Boss of the world `crime` league?
+- Look at the scene of the `crime`.
+- Might as well commit the `crime`.
+- What `crime` is homer committing?
+- Can we go up to the `crime` scene?
+- This is an official `crime` scene.
+- Waterfront� `crime`� commission� ?
+- Would you like to know my `crime`?
+- You were convicted of the `crime`.
+- You won't be committing a `crime`.
+- Not much time to solve the `crime`.
+- Sha la la la that ain't no `crime`.
+- If it isn't macguff the `crime` dog!
+- Sailor and i been on a `crime` spree?
+- We have two witnesses to the `crime`.
+- Didn't you take it to the `crime` lab?
+- It's a lot more fun to punish `crime`.
+- Where the punishment fits the `crime`.
+- Make it a `crime` not to be a cannibal?
+- So much anger for such a little `crime`?
+- Strolls right back into a `crime` scene.
+- A `crime` was committed in new york city?
+- Here to help you commit internet `crime`.
+- He was part of the juntao `crime` family.
+- The punishment for your `crime` is death.
+- A witness can put me at the `crime` scene.
+- He still writing those `crime` porn books?
+- Would she commit a `crime` over a new sax?
+- Because, because, you know, it's a `crime`.
+- It wasn't a `crime` of jealousy or passion.
+- One year advance technical `crime` analyst.
+- A `crime` is going down and they don't move.
+- I knew it was a `crime` but i did it anyway.
+- Max, there's no `crime`, there's no mugging.
+- They think i became batman to fight `crime`.
+- About 'the `crime` of the century,' remember?
+- To a third party on the night of the `crime`.
+- You wanna do what you do, it's not a `crime`.
+- It'd be a `crime` to just use black and white.
+- Remember, hacking is more than just a `crime`.
+- Yes, to cease to hope is the greatest `crime`.
+- For starters, how about littering is a `crime`.
+- Hanging an innocent for the `crime` of a fiend.
+- If you can't do the time, don't do the `crime`?
+- Solve the freakin' `crime`, be told who did it.
+- Taking evidence, tampering with a `crime` scene.
+- That's a long time for any `crime`, even murder.
+- We have the accused at the scene of the `crime`.
+- As much as she could, at the time of the `crime`?
+- If it's built on a `crime`, they deserve to know.
+- You tell them there's no `crime` in being lonely.
+- It's just one more `crime` you'll have to pay for.
+- May we leave the scene of the `crime` now, please.
+- ...stupid kid who committed that terrible `crime`.
+- It's a `crime` fighting costume, what do you think?
+- You realize, however, that you committed a `crime`?
+- Besides, how could something so lovely be a `crime`?
+- You need to get yourself gone from my `crime` scene.
+- Those people killed my mother for the `crime` oh, no.
+- `Crime` he stands charged with is against your people.
+- I've seen your kind before, the underbelly of `crime`.
+- I was interested in two things: computers and `crime`.
+- That don't cancel out the greatest `crime` in history.
+- The one `crime` i would never commit is pickpocketing.
+- Dewey said this is the worst `crime` they've ever seen.
+- The `crime` scene profile was never entered into vicap.
+- There's no `crime` in giving yourself over to pleasure.
+- Woman, voice-over: on the ark, every `crime`, this way!
+- But not in the investigation of a major `crime`, i hope.
+- I'm takin' your car and goin' back to the `crime` scene.
+- Sir, tyler is innocent of any `crime` against the state.
+                 

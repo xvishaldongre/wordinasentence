@@ -1,0 +1,107 @@
+---
+title: "being in a sentence | being example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "being"
+---
+- `Being` gale weathers.
+- `Being` here, with me.
+- I hate `being` eleven.
+- I'm `being` followed.
+- I'm `being` realistic.
+- I was `being` foolish?
+- I was `being` selfish.
+- She's a human `being`.
+- The angels `being` us?
+- The supreme `being`...
+- We are `being` hailed.
+- You're `being` stupid.
+- You're `being` unfair.
+- Am i `being` too pushy?
+- Are we `being` shot at?
+- Are we `being` watched?
+- `Being` a hero and all.
+- `Being` a professional.
+- `Being` faxed over now.
+- He liked `being` human.
+- He's `being` repressed.
+- He's busy `being` dead.
+- He's just `being` nice.
+- I am `being` exploited!
+- I love `being` an "it."
+- I'm not `being` set up.
+- No i'm `being` serious!
+- Or am i `being` obtuse?
+- Stop `being` defensive.
+- That `being` here what?
+- The purpose `being`...?
+- We are `being` watched.
+- We're `being` followed.
+- You `being` my servant?
+- You're `being` foolish!
+- You're `being` serious?
+- You're `being` tricked.
+- You're `being` useless.
+- About `being` a cowgirl.
+- Am i `being` too subtle?
+- And `being` encouraging.
+- Are you `being` serious?
+- How am i `being` shitty?
+- I hate `being` lectured.
+- I'm `being` a pain, huh?
+- I'm just `being` honest.
+- I'm not a human `being`.
+- I'm not `being` grouchy.
+- I was `being` kidnapped.
+- Just be `being` with me.
+- Now who's `being` cruel?
+- Or am i `being` cynical?
+- Shit `being` number one.
+- You are `being` foolish.
+- You are `being` in luck.
+- You hated `being` alone.
+- You're `being` childish.
+- You're `being` paranoid.
+- You're `being` released.
+- You were `being` scared.
+- I'm `being` punished!
+- `Being` able to get away!
+- For `being` a bootlegger?
+- Guys, we're `being` rude.
+- He's `being` john murphy.
+- I hate you `being` alone.
+- I'm `being` presumptuous.
+- I'm `being` very careful.
+- In lieu of `being` fired.
+- Is this `being` recorded?
+- It's about `being` smart.
+- I've enjoyed `being` man.
+- Like `being` born, maybe.
+- Now who's `being` stupid?
+- Now you are `being` rude.
+- Now you're `being` silly.
+- She's `being` called for.
+- She was `being` symbolic.
+- They're `being` interned.
+- Who's `being` naive, kay?
+- You are `being` relieved.
+- You're `being` defensive.
+- You're `being` emotional.
+- You're not `being` funny.
+- Am i `being` interrogated?
+- Besides `being` very rude.
+- Better than `being` broke.
+- For� not `being` any help?
+- I feel wrong `being` here.
+- I'm `being` terribly rude.
+- I'm just `being` friendly.
+- I'm not `being` defensive.
+- It's like `being` a slave.
+- I was `being` unrealistic.
+- I was just `being` honest.
+- Now you're `being` bright?
+- People are `being` killed!
+- Sir, we're `being` hailed.
+- We're `being` baked alive.
+- What do i wind up `being`?
+                 

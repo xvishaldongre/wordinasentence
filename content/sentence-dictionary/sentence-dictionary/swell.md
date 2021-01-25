@@ -1,0 +1,62 @@
+---
+title: "swell in a sentence | swell example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swell"
+---
+- Have a `swell` party.'
+- He's a `swell` person.
+- That would be `swell`.
+- `Swell`'s here, johnny.
+- Yeah, ain't it `swell`?
+- The aquarium was `swell`.
+- These are really `swell`!
+- Thanks for a `swell` time.
+- Boy, we had a `swell` time.
+- But otherwise it's `swell`.
+- Sure, i think it's `swell`.
+- You'll have a `swell` time.
+- Gosh, there's a `swell` girl.
+- What a `swell` place to work.
+- That's `swell`, missus fusari.
+- Do they.... that's all `swell`.
+- It's a `swell` idea, gallagher.
+- Oh, putting on the `swell`, eh?
+- Gee guys, that's `swell` of you.
+- But i hear it's one `swell` show.
+- It would have made a `swell` story.
+- Gee, it's `swell` to see you, eddie.
+- Diz, you're a `swell` playmate--but--.
+- I think you're `swell` company, knott.
+- It's starting to `swell`, is it painful?
+- Life's `swell` if you don't try too hard.
+- We've certainly been in some `swell` jams.
+- ♪ jingle bell time is a `swell` time ♪ yeah.
+- Without it, we'd all `swell` up like balloons.
+- `Swell` -- only this man doesn't have a garden.
+- It's been `swell`, but i think i'll be going now.
+- That was sure `swell` ... of course it is howard.
+- Yeah, you look like you're having a `swell` time.
+- Careful how you go, we're hitting the `swell` now.
+- I'm beginning to think you're a pretty `swell` guy.
+- A ground `swell`-christian movement, george, you see?
+- You know, doris - you'd make some guy a `swell` wife.
+- That's a `swell` place, they even have a rollercoaster.
+- When the `swell` comes, they're gone, they have to ride.
+- Don't worry honey, i'm sure he'll make a `swell` husband.
+- Oh yes, i think it'd be a `swell` night to go for a walk.
+- But, buzz, you know i never -- say, that was a `swell` idea!
+- That was one `swell` story you had in the paper this morning.
+- I'm having such a `swell` time, i just haven't thought any up.
+- I said it's a good `swell` -- hell of a good `swell` 'bout six feet.
+- The poor boy who marries a rich girl - now there's a `swell` theme.
+- But, buzz -- but he told me you stole that `swell` hoop idea from me.
+- You must have met a lot of `swell` society girls since you've been here.
+- `Swell`...i'll log us both on, and you can get your tron thing running...
+- `Swell`--you've got times square right here--all but the noises-- like it?
+- Now i come to you with a `swell` deal, and the greatest� i want to know why .
+- The nearest hospital was forty miles away, and zoe was continuing to `swell`.
+- It may not sound too exciting to a sconehead like you, but i think it's `swell`.
+- `Swell`, you just showed me a sight lovely to behold, and i'd like to reciprocate.
+- But then i figured out you were a `swell` guy, a little slow maybe, but a `swell` guy!
+                 

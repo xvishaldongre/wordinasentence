@@ -1,0 +1,7 @@
+---
+title: "nationalized in a sentence | nationalized example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nationalized"
+---
+## Unfortunately, we have no example sentences for nationalized                 

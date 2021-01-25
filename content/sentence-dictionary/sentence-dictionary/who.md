@@ -1,0 +1,107 @@
+---
+title: "who in a sentence | who example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "who"
+---
+- Cal knows `who` he is.
+- Dirt... well... `who`?
+- Guess `who` was in it?
+- I am... `who` are you?
+- I don't know `who` i�.
+- I know `who` he isn't.
+- I know `who` sent you.
+- I know `who` they are.
+- I know `who` you mean.
+- I said, "guess `who`?"
+- I said, `who`'s there?
+- Know `who` i am, jake?
+- Look `who` i've found!
+- Moss...`who` told him?
+- Now, `who` else is in?
+- Now, `who` will start?
+- Oh...and `who` is it!?
+- Show him `who` we are.
+- Tell me `who` you are.
+- That's `who` they are.
+- That's `who` you need.
+- Then `who` changed it?
+- Then `who`'s this one?
+- This is `who` you are.
+- We got `who` we could.
+- `Who` am i talking to?
+- `Who` are all those--?
+- `Who` are the britons?
+- `Who` are these folks?
+- `Who` are those girls?
+- `Who` are you anyway ?
+- `Who` are you, anyway?
+- `Who` are you calling?
+- `Who` are you, friend?
+- `Who` are you, master?
+- `Who` are you, please?
+- `Who` are you, sirrah?
+- `Who` could blame her?
+- `Who` could blame him?
+- `Who` did this to you?
+- `Who` did you talk to?
+- `Who` do i gotta kill?
+- `Who` do you work for?
+- `Who` exactly are you?
+- `Who` fuckin' shot me?
+- `Who` gave you a job ?
+- `Who` is he, his name?
+- `Who` is her agent...?
+- `Who` is it raped you?
+- `Who` is it this time?
+- `Who` is pamela landy?
+- `Who` killed manzetti?
+- `Who` locked the door?
+- `Who` makes all these?
+- `Who` makes you happy?
+- `Who` needs this shit?
+- `Who` ordered the tea?
+- `Who`'s been creeping?
+- `Who`'s captain howdy?
+- `Who`'s colson, harry?
+- `Who`'s coming for me?
+- `Who`'s gonna be next?
+- `Who`'s gonna do that?
+- `Who`'s gonna get him?
+- `Who`'s gonna stop us?
+- `Who`'s gonna to that?
+- `Who`'s got the nuke ?
+- `Who`'s got the story?
+- `Who`'s got two bucks?
+- `Who`'s he talking to?
+- `Who`'s my cream puff?
+- `Who`'s on television?
+- `Who`'s protecting us?
+- `Who`'s the clown now?
+- `Who`'s the other one?
+- `Who`'s the song bird?
+- `Who`'s winning, mama?
+- `Who`'s your designer?
+- `Who` the devil is he?
+- `Who` the heck're you?
+- `Who` the hell knows?!
+- `Who` the hell's that?
+- `Who` then, jeremiah??
+- ...`who` they playin'?
+- `Who` <u>is</u> this??
+- `Who` voted for trump.
+- `Who` wants a hot dog?
+- `Who` was the job for?
+- `Who` went back there?
+- `Who`... `who` did this?
+- `Who` will you follow?
+- `Who` woulda thunk it?
+- `Who` would you fight?
+- `Who` wrote this book?
+- `Who` you workin' for?
+- Yes -- `who` spoke up?
+- You know, `who` cares?
+- You know `who` i mean?
+- You know `who` we are?
+- You say `who`'s there.
+                 

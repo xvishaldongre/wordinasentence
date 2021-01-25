@@ -1,0 +1,107 @@
+---
+title: "enemy in a sentence | enemy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "enemy"
+---
+- I am now your `enemy`.
+- Your `enemy` has guns.
+- You are my `enemy`.
+- The `enemy` can see us.
+- Then i kill my `enemy`.
+- We're not your `enemy`.
+- Who was the `enemy`?
+- He's an `enemy` soldier.
+- I don't need an `enemy`.
+- Save it for the `enemy`.
+- She is not your `enemy`.
+- I know who my `enemy` is.
+- The `enemy` is out there!
+- The `enemy` is out there.
+- 42 is befriend an `enemy`.
+- I am not your `enemy`!
+- Are you my `enemy`, indra?
+- The `enemy` is everywhere.
+- The `enemy` is in retreat.
+- In the face of the `enemy`.
+- The `enemy` is on the move.
+- Reapers are not the `enemy`!
+- The daughter of his `enemy`.
+- _ the `enemy` does the same.
+- The sworn `enemy` of florin.
+- And gave them to the `enemy`?
+- Can the `enemy` still see us?
+- It's an `enemy` sneak attack.
+- Kite the `enemy` into a gank.
+- Look they're not our `enemy`.
+- Look they are not our `enemy`.
+- Our real `enemy` is out there.
+- These are the `enemy`'s woods.
+- To our `enemy` to be tortured.
+- You don't like public `enemy`?
+- The heart of his sworn `enemy`.
+- They're friends of our `enemy`.
+- We're listening to the `enemy`.
+- What do you need in an `enemy`?
+- You attack the `enemy` head on!
+- Or you are an `enemy` of wonkru.
+- So she made herself the `enemy`.
+- The `enemy` is not in this camp.
+- We're talking about the `enemy`.
+- You killed our greatest `enemy`.
+- At worst he was a worthy `enemy`.
+- By the `enemy` we're gonna fight.
+- `Enemy` closing on impulse power.
+- First, i kill my `enemy`'s `enemy`.
+- I said... france is your `enemy`.
+- Tell them you're not the `enemy`.
+- The `enemy` is matching velocity.
+- These people are not our `enemy`.
+- To respond to `enemy` aggression.
+- We are in an `enemy` wessel, sir.
+- "`enemy` armada off jersey coast."
+- Not all grounders are the `enemy`.
+- Then you are an `enemy` of wonkru.
+- Cage says the `enemy` knows us too.
+- He said our `enemy` in already here.
+- You're wonkru or you're the `enemy`.
+- From now on, we're on `enemy` ground.
+- If i'm right, dress like the `enemy`.
+- So yvonne's gone over to the `enemy`.
+- That the `enemy` can manipulate time.
+- Against our common `enemy`, grewishka.
+- A warrior needs a war, an `enemy`.
+- Now i'm public `enemy` number one.
+- Another `enemy` to fight, another war.
+- But i believe in knowing your `enemy`.
+- e `enemy` of my `enemy` is my friend.
+- On the ark, we made death the `enemy`.
+- Then you take out the `enemy`'s queen.
+- Well i am here to let that `enemy` go.
+- Let the `enemy` have no power over her.
+- That's your `enemy`, not your audience.
+- The `enemy`, they don't want prisoners.
+- Um... or giving comfort to the `enemy`?
+- You and the prisoners share an `enemy`.
+- You want to weaken the `enemy`, - heda.
+- I don't consider you the `enemy`, ellie.
+- We unraveled in the face of the `enemy`!
+- You can't have a war without an `enemy`.
+- Guinevere, godiva, i sense `enemy` sol...
+- I want to be your ally, not your `enemy`.
+- Jim, that man is an `enemy` of the state.
+- Paul didn't have an `enemy` in the world.
+- But that's just the `enemy`'s perspective.
+- I didn't speak the `enemy`'s language yet.
+- I have to nurse my `enemy` back to health.
+- Keep my terms and i won't be your `enemy`.
+- Half of every loaf of bread to our `enemy`!
+- On the `enemy` while the worms ravage them.
+- But we do have a common `enemy` you're dead.
+- If the `enemy` gets those papers we're lost.
+- Made a deal with our `enemy` oh, my, knight.
+- The primes told you that we're your `enemy`.
+- Share an `enemy`, perhaps even the same goal.
+- The `enemy` has five brigades waiting for us.
+- Either you're wonkru, or an `enemy` of wonkru.
+                 

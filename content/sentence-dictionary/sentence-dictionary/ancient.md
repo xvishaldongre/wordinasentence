@@ -1,0 +1,54 @@
+---
+title: "ancient in a sentence | ancient example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ancient"
+---
+- It's an `ancient` taboo.
+- `Ancient` egyptian trick.
+- That's `ancient` history.
+- Those are `ancient` history.
+- An `ancient` japanese ceremony.
+- The parts about `ancient` rome.
+- You know the `ancient` tongues?
+- They're very `ancient`, you know.
+- Some sort of `ancient` booby-trap.
+- There is an `ancient` saying... hi.
+- It's `ancient` times all over again.
+- Combining `ancient` knowledge with new?
+- You're talking `ancient` history, doug.
+- For everyone else it's `ancient` history.
+- You saying freddy's this `ancient` thing?
+- By learning the `ancient` art of ninjetti.
+- A dark entity -- evil, `ancient` and hungry.
+- They brought `ancient` hockey guy back to life.
+- Chalked just hours ago by `ancient` adolescents.
+- Yeah, yeah if this is another `ancient` farrari .
+- In `ancient` times they said my number was unlucky.
+- In `ancient` times, there was a monster called nian.
+- Smuggling is an `ancient` and respected trade there.
+- Farewell, `ancient` lady; farewell, i will follow you.
+- The `ancient` aztecs knew how powerful this stuff was.
+- This `ancient` shit doesn't have anything to do with me.
+- It's so `ancient` that it doesn't even know its true home.
+- When i discovered this `ancient` cure i knew who to go to.
+- `Ancient` runes-- look at those marks--just like in the movie.
+- I prefer the more `ancient` term, planetologist... noble born.
+- We had lots of snakes in my `ancient` egypt...slimy, slinky things.
+- And by the `ancient` law of the flyer, we should probably get going.
+- Every `ancient` religion had its own myth about the end of the world.
+- The `ancient` masters promised impossibilities and performed nothing.
+- There is a more `ancient` term you might keep in mind -- "noble born."
+- He was aiming at the dark one, for there is `ancient` hatred between them.
+- The name is an `ancient` chinese war mantle meaning "advisor to the king."
+- You make it sound like some remote fuckin' experience in `ancient` history.
+- Her `ancient` face with its metal teeth gleaming inches away breathes hotly.
+- I think we can handle whatever your `ancient` hockey player can throw at us.
+- I began to hitchhike in something akin to geological time: slow, `ancient`, vast.
+- Anyway, just wear some of my things, wear anything you want, most of it's `ancient`.
+- I have an `ancient` name that will bring you preferment when your grandson is a wessex.
+- Let's see... that you can read `ancient` sanskrit without having to sound out the words.
+- Thou shalt be borne to that same `ancient` vault where all he kindred to the capulet lie.
+- When we went to `ancient` rome for deanna's promotion, we threw her to the lions, remember?
+- Black magic ... 'in `ancient` times, thorn was believed to cause sickness, famine and death.
+                 

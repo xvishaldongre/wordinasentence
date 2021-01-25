@@ -1,0 +1,107 @@
+---
+title: "position in a sentence | position example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "position"
+---
+- Po, po, `position`...?
+- What's the `position`?
+- Get back in `position`!
+- Get back in `position`.
+- Get back to `position`.
+- That's their `position`?
+- What is your `position`?
+- Alpha team in `position`?
+- Explaining my `position`.
+- Jockeying for `position`.
+- `Position`, bird of prey?
+- What is your `position` ?
+- One cello `position` open.
+- Yeah, we're in `position`.
+- Everyone, on my `position`.
+- Get everyone in `position`.
+- They're holding `position`.
+- Everybody get in `position`.
+- Get a fix on his `position`!
+- Get back to your `position`.
+- Like to get this `position`.
+- Take your second `position`.
+- We're in a power `position`.
+- What is debbie's `position`?
+- Admiral, we're in `position`.
+- I'm in `position`, scarecrow.
+- Not a tenable `position`, sir.
+- And reinforce their `position`.
+- Snipers can't be in `position`.
+- This is its current `position`.
+- We're aware of your `position`.
+- What `position` did you occupy?
+- Whitman, are you in `position`?
+- Why take an interim `position`?
+- But, i'm not in that `position`.
+- I can understand his `position`.
+- I'm in a `position` to help you.
+- Oks, is your team in `position`?
+- Why put them in this `position`?
+- ...a <u>liaison</u> `position`...
+- Mr. rafferty has that `position`.
+- Same `position` as you, actually.
+- Are moving into `position` already.
+- How about you take your `position`?
+- If this `position` falls, "results".
+- I'm in a `position` to negotiate.
+- Calm down and get in your `position`.
+- India is in no `position` to help us.
+- It is the perfect `position` for you.
+- ♪ you're not in my `position`, diana.
+- Your friends better be in `position`.
+- "a liaison `position` with the opera."
+- Are you dictating my `position` to me?
+- We appreciate your `position`--really.
+- To be put in that kind of `position`...
+- Harper: oks, is your team in `position`?
+- The coast guard has our last `position`.
+- There may be traps near your `position`.
+- They wonder how you know our `position`.
+- Each `position` has two pillboxes nothing.
+- He overstated the department's `position`.
+- I'll stay here and secure this `position`.
+- You are in no `position` to be jealous.
+- Because you're just holding the `position`.
+- Hold `position`, we got movement out there.
+- I'd give anything to be in your `position`.
+- We're in `position` and ready to intercept.
+- You're putting me in a difficult `position`.
+- Doug's in the worst `position` of all: fetal.
+- You will be in a `position` to give it to me.
+- A high-level `position` has just been vacated.
+- For a man in your `position`...an opportunity.
+- Listen, barnett, i understand your `position`.
+- Are you happy with your salary and `position` ?
+- Firing would only've given away our `position`.
+- First you strategically `position` your pieces.
+- How about you shut up and take your `position`?
+- This is not a `position` for a frightened girl.
+- You're in an ideal `position` -- he trusts you.
+- Because, uh, you're just holding the `position`.
+- Luther, continue feeding the gps her `position`.
+- The `position`'s been open for two months and...
+- But they're moving their weapons into `position`.
+- Each marshal has been keeping his own `position`.
+- [sigh] that's what i would do in your `position`.
+- Takeover team is in `position` and accounted for.
+- You put me in an awkward `position`, mr. kessler.
+- But it doesn't put me in too great a `position`...
+- But to be honest, i put myself in that `position`.
+- Velocity is the time rate of change of `position`.
+- Would you describe their `position` as inflexible?
+- Where exactly does that put your `position`...?
+- But eventually, i'm going to be in that `position`.
+- Just fixed our `position` on that river back there.
+- Right now you're in no `position` to ask questions!
+- You are in no `position` to give orders, dr. jones.
+- _ milhouse, make sure you're in `position` tomorrow.
+- Dick, please make a note of our final `position`.
+- Honey, i hope you're not endangering your `position`.
+- We don't exactly have the best bargaining `position`.
+                 

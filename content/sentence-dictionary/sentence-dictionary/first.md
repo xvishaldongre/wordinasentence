@@ -1,0 +1,107 @@
+---
+title: "first in a sentence | first example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "first"
+---
+- `First` and only blow.
+- `First`… every time.
+- `First` time in space?
+- `First` watch is over.
+- `First` you hate them.
+- Her `first` boyfriend.
+- He's doing it `first`.
+- I'll be `first` watch.
+- I want doucet `first`.
+- Love at `first` sight.
+- Love at `first` sight?
+- My work comes `first`.
+- Okay, i'll go `first`.
+- They want him `first`.
+- We'll test it `first`.
+- Wouldn't be a `first`.
+- Your `first` campaign.
+- Your name was `first`.
+- A, i saved you `first`.
+- A tech `first` adopter.
+- At `first` i got angry.
+- At `first` is no doubt.
+- "baby's `first` thong"?
+- Bring benjamin `first`.
+- `First` rate, ain't it?
+- `First` strike options.
+- `First` the pets, otis.
+- `First`, you're a slob.
+- He insulted me `first`.
+- I got the `first` copy.
+- Jason: i'll go `first`.
+- My court, i go `first`.
+- My `first` name's butt.
+- Not if i shoot `first`!
+- Other guy drew `first`.
+- Our `first` phenomenon.
+- Our `first` phone call!
+- Our `first` solid lead.
+- Release `first` safety.
+- So, `first` thing we...
+- That's my `first` name.
+- There's no `first` act.
+- This'll be our `first`.
+- Watch the `first` step.
+- We go at `first` light.
+- Well, `first` of all...
+- We're on `first` watch.
+- Yes, ma'am, at `first`.
+- Your `first` boyfriend.
+- And drop me off `first`.
+- At `first`, it was fine.
+- But `first`, a libation.
+- But i'm going `first`...
+- `First` he's gonna shit.
+- `First` quarter revenue?
+- `First` steeple you see.
+- Get the `first` aid kit!
+- Go back to them `first`.
+- He came the `first` day.
+- His theory came `first`.
+- I'd kill myself `first`.
+- I missed `first` period.
+- I'm leaving him `first`.
+- Is this the `first` one?
+- It is your `first` time.
+- Make it my `first` born.
+- My `first` happy ending!
+- Nice `first` impression.
+- That's the `first` step.
+- The `first` of its kind.
+- The `first` two murders.
+- This is my `first` time.
+- This is the `first` one.
+- What's her `first` name?
+- What's his `first` name?
+- Who wants to be `first`?
+- You can go `first`, bob.
+- But androscoggin `first`.
+- But `first` things `first`.
+- [door beeps] her `first`.
+- `First` bell's a-ringing!
+- `First` floor, northwest.
+- `First` girl i ever knew.
+- `First` give me the heel.
+- `First` it was like that.
+- `First` squad up on line.
+- `First` stop, the plaza.
+- `First` time in new york?
+- `First` world war, right?
+- For my `first` trick, no.
+- Go for the shoes `first`.
+- I get my hostage `first`.
+- I have to finish `first`.
+- I'll get lex out `first`.
+- I missed my `first` shot.
+- Is this your `first` job?
+- I was `first` to respond.
+- Let's cross over `first`.
+- Make it our `first` date.
+- Not that much at `first`.
+                 

@@ -1,0 +1,69 @@
+---
+title: "unfortunately in a sentence | unfortunately example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "unfortunately"
+---
+- `Unfortunately` not, sir.
+- `Unfortunately` i qualify.
+- `Unfortunately` it's bullshit.
+- And `unfortunately`, it's true.
+- `Unfortunately` for me, - mike!
+- It killed them, `unfortunately`.
+- `Unfortunately`, i feel nothing.
+- `Unfortunately`, you were wrong.
+- What do you mean, `unfortunately`?
+- `Unfortunately`, turnips can't talk.
+- `Unfortunately` what he wants is you.
+- `Unfortunately`, echo had other plans.
+- `Unfortunately`, the radiation didn't.
+- `Unfortunately`, it was far too obvious.
+- Now, `unfortunately`, the ship's totaled.
+- But `unfortunately` such was not the case.
+- `Unfortunately`, he'd soundproofed his van.
+- `Unfortunately`, i'll never get the chance.
+- `Unfortunately`, it appears that i need you.
+- `Unfortunately`, they didn't have you guys.
+- `Unfortunately`, he's not their leader, though.
+- `Unfortunately`, i know who the real killer is.
+- `Unfortunately`, once he learned it's a hernia!
+- `Unfortunately`, only one of us is a detective.
+- But `unfortunately`, we don't have enough money.
+- `Unfortunately`, doc, this isn't a social visit.
+- `Unfortunately` most of them have been executed.
+- `Unfortunately` no -- to bad -- tomorrow though.
+- `Unfortunately`, we've got nothing to work with.
+- `Unfortunately`, sir, i will see you all in court.
+- I'm sorry, but `unfortunately` i don't fuck losers.
+- `Unfortunately` my son's not all that they promised.
+- `Unfortunately`, the answer to that you killed them!
+- `Unfortunately`, the worst of 'em are still outside.
+- This is good work... `unfortunately` it's incomplete.
+- `Unfortunately`, while you told that stupid story, dr.
+- `Unfortunately`, you'll have to find out for yourself.
+- `Unfortunately`, carl had only one successful business.
+- But `unfortunately`, there was a fly in the cbd ointment.
+- `Unfortunately` i must now go in, but i leave you my card.
+- But, `unfortunately` for yours truly, that train has sailed.
+- I'd love to, but `unfortunately` i'm expecting some company.
+- But that doesn't matter because, `unfortunately`, we're here.
+- `Unfortunately` i find it much more slippery and elusive place.
+- `Unfortunately`, to my ears, it also sounds highly weaponisable.
+- `Unfortunately`, i have to keep certain parts of my life private.
+- `Unfortunately`, the way things are going, you may get your wish.
+- But `unfortunately`, i have neither the time you get ahead in life.
+- Decay `unfortunately` doesn't limit itself to the denture, mr. baker.
+- Yes, well `unfortunately` i can't just switch the "on" button to "off."
+- Well, almost ... `unfortunately` i do have to punch in by 5.00 every day.
+- `Unfortunately` -- her husband suspected someone very close to the operation.
+- `Unfortunately`, ronald's moving with the speed of a special olympic bobsledder.
+- `Unfortunately` she kept her illness from me until all i could do was mourn her.
+- But, `unfortunately`, you're even less attracted to guys you've never seen before.
+- `Unfortunately`, that's known as a conflict of interest -- and we're very grateful.
+- My evil associates have cautioned against it, so here he is, `unfortunately`, alive.
+- `Unfortunately`, my train is about to leave, and i really must insist you disembark.
+- You're just suffering from delusions that are `unfortunately` part of your condition.
+- `Unfortunately`, you seem incapable of allowing any other opinion but your own - thanks.
+- `Unfortunately` for you and your family, simpson, door stays locked, you know what i mean?
+- Can you please-- but `unfortunately`, putting aside about a thousand variables, which time?
+                 

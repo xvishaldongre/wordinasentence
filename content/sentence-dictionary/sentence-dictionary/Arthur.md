@@ -1,0 +1,51 @@
+---
+title: "Arthur in a sentence | Arthur example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Arthur"
+---
+- I'm screwed, `arthur`.
+- I'm writing, `arthur`.
+- `Arthur` wants to quit!
+- Greetings king `arthur`.
+- My powers fade, `arthur`.
+- A place called `arthur`'s.
+- `Arthur`, you're a machine.
+- | | `arthur` | who was that?
+- ..."how now, cried `arthur`.
+- `Arthur`'s picking me up soon.
+- What do i care about `arthur`!
+- I am a knight of king `arthur`.
+- Tuesday's my day with `arthur`.
+- We don't want to fire `arthur`.
+- `Arthur`, can you keep a secret?
+- Tuesday is my day with `arthur`.
+- I don't want him to fire `arthur`.
+- I am `arthur`, king of the britons.
+- Who the fuck is `arthur` digby sellers?
+- Broken hearts aren't that simple, `arthur`.
+- But king `arthur` was always your favorite.
+- This is from the twins, `arthur` and dashiel.
+- | | `arthur` | i didn't know we had a sir alf.
+- "`arthur`'s been with the tallow works too long.
+- Days of robin of the hood and `arthur` pendragon.
+- `Arthur` fell ill. what the hell are you doing here?
+- All right `arthur`, just a slide of the needle..... dad?
+- Fucking `arthur` digby sellers wrote 156 episodes, dude.
+- | | `arthur` | | well, that was a very silly thing to do.
+- Thou art stronger than harold ... stronger than `arthur`.
+- "[2] he was the last baby my father delivered, `arthur` was.
+- Baxter -- junior executive, `arthur` murray graduate, lover.
+- 'a connecticut yankee in king `arthur`'s court' by mark twain.
+- I heard the same sound at ladysmith, at nukden, port `arthur`.
+- Well, you're a little lacking in that area yourself, `arthur`.
+- Do me a favor, `arthur`, keep him on til i see what's happening.
+- I am king `arthur` and these are the knights of the round table.
+- A connecticut yankee in king `arthur`'s court by samuel l. clemens.
+- It is i, `arthur`, son of uther pendragon, from the castle of camelot.
+- Ok, go to `arthur` avenue; i'm suppose to call when i found somethin'.
+- Go and tell your master that `arthur` from the court of camelot is here.
+- The hound of the baskervilles was an invention of sir `arthur` conan doyle's.
+- I am `arthur`, king of the britons ... can you tell me who lives in that castle?
+- After the show, we could go out on the town -- i've been taking from `arthur` murray.
+                 

@@ -1,0 +1,107 @@
+---
+title: "Richard in a sentence | Richard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Richard"
+---
+- But not me, `richard`.
+- I know that `richard`.
+- It's `richard` ripley.
+- This is `richard` low.
+- How are you, `richard`?
+- It's a gift, `richard`.
+- `Richard`, it's secret.
+- I'm not sick, `richard`.
+- Not for long, `richard`.
+- `Richard` - i saw a fin!
+- I'm not angry, `richard`.
+- Oh, `richard`, i'm sorry.
+- If `richard` doesn't mind.
+- Mr... `richard` stensland.
+- `Richard` was in the army.
+- You use "`richard`" again?
+- Any of them `richard` long?
+- But why my name, `richard`?
+- Taupin, `richard` marshall.
+- `Richard`, i had to see you.
+- I believe in `richard` nixon.
+- It's just the sky, `richard`.
+- `Richard` low got him killed.
+- There is no `richard` taupin.
+- The tomb of sir `richard`?
+- Have you heard from `richard`?
+- You're a sweet man, `richard`.
+- Don't be an asshole, `richard`.
+- This ain't the time, `richard`.
+- Come on, `richard`, i'm serious.
+- Do not tell a lie, `richard` ...
+- `Richard` talked to his parents.
+- `Richard` will never be able to.
+- Can't say that i have, `richard`.
+- I had just been left by `richard`.
+- Let `richard` helms take the fall?
+- The one and only little `richard`.
+- Where the fuck is she, `richard`!?
+- Get up out of the chair, `richard`.
+- I expect more from thee, `richard`.
+- Oh, it wasn't my secret, `richard`.
+- `Richard` do you know why i'm here?
+- Yes, washington sent me, `richard`.
+- Of course, being with `richard`.
+- `Richard`, shut it and keep it down.
+- You are officer `richard` rottovich.
+- `Richard` didn't like my working.
+- Then, there's `richard`'s burrito.
+- My exec, commander `richard` holloway.
+- The father looked just like `richard`.
+- First of all, `richard` is not a creep.
+- `Richard` burton was very good-looking.
+- `Richard` carl in "the spring chicken."
+- `Richard` taupin has become cumbersome.
+- My name is `richard` roma, what's yours?
+- `Richard` nixon's going to be president.
+- `Richard`, they'll find out your record.
+- `Richard`, you know something - exactly.
+- Then you didn't know `richard` later on.
+- What's you think of `richard` and poppy?
+- What we need... is `richard` yellow bird.
+- You remember buddy, don't you, `richard`?
+- Have you told `richard` low about amarillo?
+- It's their first big hit on `richard` nixon.
+- "`richard` dear, i'll go with you any place.
+- Dignan and anthony, this is little `richard`.
+- How about `richard` grayson, college student?
+- `Richard`, `richard`, we loved each other once.
+- See you later -- where's `richard` and julia?
+- Dates back to the crusades and king `richard`.
+- Oh, you'll help him now, `richard`, won't you?
+- `Richard`, victor thinks i'm leaving with him.
+- Charlie, what do you think of `richard` norvik?
+- Congratulations on the math contest, `richard`.
+- He's been `richard` taupin at least since 1967.
+- Meet my father, herbert `richard` greenleaf 1st.
+- `Richard` low is murman and murman is one of us.
+- Better get your little black book out, `richard`.
+- I think it's safe to say `richard` low is murman.
+- `Richard` doesn't know how to live anywhere else.
+- As far as the public knows, `richard` low is dead.
+- I'll get it because i'm a good actress, `richard`.
+- Thou must find thy peace at the center, `richard`.
+- Hawkins isn't the target, `richard` low's the target.
+- Carol and i saw you with that creep, `richard`, today.
+- And it's got pamela stephenson and `richard` pryor in it.
+- Any old where ... but not our little `richard` ... oh no!
+- Save `richard` yip, our witness... what are you gonna do?
+- It was `richard` low's brainchild, or, lack-of-brain child.
+- We couldn't let `richard` go where that idea was taking him.
+- I loved it...he... how'd you like working with `richard` hill?
+- His shield... the inscription on sir `richard`'s shield...?
+- The suspect was george sheldon, the second man `richard` killed.
+- Get up out of the chair, and walk toward the backdoor, `richard`.
+- Slow down a second, you met with low -- i met with `richard` low.
+- I called `richard` scruggs in mississippi... ...they "volunteered."
+- It was the case that got `richard` low and i started in this field.
+- Everything we know about profiling started with `richard` low... no.
+- But `richard`, no, i, i -- -- last night we said a great many things.
+- Have you ever thrown up in the front row of a `richard` marx concert?
+                 

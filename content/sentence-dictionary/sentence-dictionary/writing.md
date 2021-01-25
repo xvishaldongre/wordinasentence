@@ -1,0 +1,107 @@
+---
+title: "writing in a sentence | writing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "writing"
+---
+- By `writing` a letter?
+- I'm `writing`, arthur.
+- I'm `writing` a story.
+- What're you `writing`?
+- Are you `writing` ... ?
+- I saw german `writing`.
+- What are you `writing`?
+- `Writing` words, words!
+- Are you `writing` a poem?
+- It's fun `writing` again.
+- What's the `writing` say?
+- You want it in `writing`?
+- That's what i'm `writing`.
+- What is it he's `writing`?
+- Do you have it in `writing`?
+- What does the `writing` say?
+- What're you `writing`, lois?
+- You appreciate my `writing`.
+- You are `writing` it for me!
+- A non-`writing` producer.
+- Do you ever do any `writing`?
+- This the book your `writing`?
+- What are you `writing` about.
+- `Writing` or climbing or what?
+- But the `writing`'s in russian.
+- Have you got that in `writing`?
+- You told me you were `writing`.
+- I give this `writing` an a-plus.
+- It is a nice piece of `writing`.
+- Mozart is `writing` a new opera.
+- The head man's `writing` a bill.
+- He's `writing` his name in water.
+- I've tried calling and `writing`.
+- Who's `writing` this guy's lines?
+- Look--can't you see i'm `writing`?
+- Their `writing` is semasiográfica.
+- Without even calling or `writing`?
+- I've given up `writing` altogether.
+- Of course, it was mighty `writing`.
+- That's a big book you're `writing`.
+- The officer is `writing` this down.
+- What's *he* doing `writing` a bill?
+- Why aren't you `writing` this down?
+- I'd seen you `writing` in that book.
+- I'm `writing` about professor frink.
+- More than your `writing`'s at stake.
+- Oh, i was just `writing` you a note.
+- She flattered me about my `writing`.
+- What are you `writing` down in here?
+- What are you `writing` in that book?
+- You're `writing` ma all about it.
+- Who's `writing` this dude's dialogue?
+- Why d'you ever bother with `writing`?
+- It is not a comedy i am `writing` now.
+- My `writing`'s too technical, i think.
+- Ya see how he's not `writing` it down?
+- It's about what i'm `writing`, garland.
+- I've been doing some `writing`, though.
+- This is what you'll be `writing` about.
+- Vada, this is an adult `writing` class.
+- You want me to put it all in `writing`?
+- Do you mean the speech you're `writing`?
+- I mean i've tried `writing` and calling.
+- Good kid, smart, he was `writing` a book.
+- I will when you're finished `writing` it.
+- Are you prepared to put that in `writing`?
+- He just sits there, `writing` and `writing`.
+- He still `writing` those crime porn books?
+- I'm `writing` a book on kite construction.
+- That doesn't sound -- my `writing` career!
+- But what i decided to do is some `writing`.
+- Looks like a design, some `writing`, maybe.
+- Why are you `writing` with your right hand?
+- You are `writing` another book, aren't you?
+- Add in the new routines i've been `writing`.
+- Because your `writing` continues, unchecked.
+- But you're the only one i kept `writing` to.
+- It's for school, for summer `writing` class.
+- Start `writing` to a guy, guy in the bricks.
+- You know what it's like, `writing` software.
+- Adelle told me, your `writing` is going well.
+- It looks like he's `writing` everything down.
+- Or maybe a handmade set of `writing` slippers?
+- Telling you all of this, `writing` the book...
+- That's why i took this job -- ghost `writing`!
+- The way he's `writing` is so weird, who knows?
+- `Writing` about it in your journal won't help.
+- They were in the same creative `writing` class.
+- What is it about my `writing` that's so rotten?
+- You're not still `writing` that thank-you note?
+- I wish they'd quit `writing` this shit about me.
+- What are you `writing` about for your thesis?
+- And, `writing` on the walls happens all the time.
+- Besides, didn't you want to start `writing` again?
+- I mean, she was still `writing` about love, right?
+- You wouldn't know the first thing about `writing`.
+- I spent all my time `writing` stuff on outpost 1.0.
+- A girl learns a lot `writing` a second grade report.
+- What's so intelligent about `writing` a requiem?
+- I have trouble `writing` a post card to my children!
+                 

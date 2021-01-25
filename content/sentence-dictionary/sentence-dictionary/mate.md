@@ -1,0 +1,100 @@
+---
+title: "mate in a sentence | mate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mate"
+---
+- Doug, come on, `mate`.
+- He's freezing, `mate`.
+- Where are you, `mate`?
+- It's a "chef's-`mate`."
+- Ten more steps, `mate`.
+- What can we do' `mate`?
+- Come in `mate`, come on.
+- I mean, come on, `mate`.
+- Pick up, `mate`, please.
+- Do you have a soul-`mate`?
+- I've found my soul `mate`!
+- `Mate`, take an extra day.
+- Now, listen to me, `mate`.
+- Ryan taylor, first `mate`.
+- We're not going to `mate`.
+- Can't stop shaking, `mate`.
+- Hello second `mate` barnes.
+- Here... no, really, `mate`?
+- Hey, rob, it's guy, `mate`.
+- I think i love you, `mate`.
+- Nah, all good here, `mate`!
+- Well, sub us, then, `mate`.
+- What you got there, `mate`?
+- I'm not telling you, `mate`.
+- Look, where are you, `mate`?
+- Oh, we're good here, `mate`.
+- No, head up, `mate`, head up.
+- We gotta keep moving, `mate`.
+- Aren't you suiting up, `mate`?
+- I do love a good check `mate`.
+- Just keep your energy, `mate`.
+- Okay, `mate`, you can do this.
+- There's a `mate` of swanney's.
+- We got to keep moving, `mate`.
+- You don't have to ask, `mate`.
+- You `mate` for life, remember?
+- Doug, come on, `mate`, come on!
+- Here, come in, `mate`, come on!
+- We're sending him over, `mate`.
+- Guy to rob, you read me, `mate`?
+- Please, dougie, come on, `mate`.
+- Come on, dougie, come on, `mate`.
+- For the captain and first `mate`.
+- Go ahead, guy, i got you, `mate`.
+- Rob to guy, you up there, `mate`?
+- Stay right where you are, `mate`.
+- You all right back there, `mate`?
+- Come on, `mate`, let's get him down.
+- It was the least i could do, `mate`.
+- Sorry, `mate`, i'll get you another.
+- You just gotta come on down, `mate`.
+- I won't have another `mate` like ona.
+- Oy, `mate`... that was a close shave.
+- You just got to come on down, `mate`.
+- Just stay right where you are, `mate`.
+- Listen, we got a problem here, `mate`.
+- My mutinous first `mate`-- the pistol.
+- Nice and easy, you're tied in, `mate`.
+- Your guess is as good as mine, `mate`.
+- Hey, lawrence how are you doing `mate`?
+- Listen, we got a problem, here, `mate`.
+- My `mate` has been acting very strange.
+- The thing is, i'll need a first `mate`.
+- Come on, `mate`, keep it on, keep it on.
+- He can't be too far ahead of you, `mate`.
+- I didn't see the `mate`... you all right?
+- Look, `mate`, i checked twice, all right?
+- Yeah, my room-`mate` leaves it on the tv.
+- You know, adele penguins pick one `mate`.
+- I'm not gonna be any good in there, `mate`.
+- You guys keep going, `mate`, i'll catch up.
+- She grabbed herself a perfect running `mate`.
+- Gunner's `mate`, third class -- l. johnson, sir.
+- ...like i said, i'd make a boss sparrin' `mate`.
+- Men, like apes, get despondent without a `mate`.
+- All that matters is you're gonna be okay, `mate`.
+- Here, `mate`, that's my hoop, stop playing with it.
+- I don't wanna see you back here a third time, `mate`.
+- I don't want to see you back here a third time, `mate`.
+- Our society might find a place for you and your `mate`.
+- But when we're on my ship, i am master, `mate` and pilot.
+- That's a penalty kick for unsportsmanlike conduct, `mate`.
+- Midshipman first class peter preston, engineers `mate`, sir.
+- The only way we both summit, `mate`, is if we work together.
+- The only way we both summit, `mate`, is that we work together.
+- If you don't have oxygen, `mate`, don't come up, don't come up.
+- Yeah, i know, `mate`, but we're sorting that situation out now.
+- But if it doesn't get better, beck, i'm sorry, `mate`, it's over.
+- `Mate`, i have just had ang dorjee go past me heading down, over.
+- All right, `mate`, we're organizing a team, we're coming to get you.
+- If you think i am going to war without one, you're mistaken, `mate`.
+- Listen to this... 'what are your `mate`'s three most erogenous zones?'
+- You could `mate` don rickles and yoko ono and they're going to have a gorgeous kid.
+                 

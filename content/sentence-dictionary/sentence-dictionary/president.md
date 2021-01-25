@@ -1,0 +1,107 @@
+---
+title: "president in a sentence | president example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "president"
+---
+- Tony: the `president`.
+- Uh, mr. `president`...
+- A bullshit `president`!
+- But, mr. `president`...
+- Go run for `president`.
+- Hello, mr. `president`.
+- He's not a `president`!
+- Him or the `president`.
+- I like the `president`.
+- You're the `president`.
+- Madame vice `president`.
+- Please, mr. `president`.
+- `President` grant is...!
+- Punched the `president`?
+- They have a `president`.
+- This is the `president`.
+- Well, mr. `president`...
+- Perfect, mr. `president`.
+- `President` of his class.
+- The `president` was shot.
+- Well, mister `president`.
+- Whereas, a `president`...
+- Directly, mr. `president`.
+- Just like the `president`.
+- I lived with a `president`.
+- Maybe a `president`'s name?
+- Mr. `president`, - hold on.
+- Thank you, mr. `president`.
+- Two words, mr. `president`.
+- What about the `president`?
+- Be fair, mister `president`.
+- Good night, mr. `president`.
+- That's the vice `president`.
+- The `president`'s in europe.
+- The vice-`president`... who?
+- This is `president` wallace.
+- Did you meet the `president`?
+- I know about the `president`.
+- Jack campbell, `president`...
+- Show this to the `president`.
+- The first female `president`?
+- They went to the `president`?
+- We'll begin with `president`.
+- You can't kill a `president`.
+- Exactly, yes, mr. `president`.
+- Good morning, mr. `president`.
+- How's my favorite `president`?
+- I'm about to, mr. `president`.
+- In the bag, madam `president`.
+- I was asleep, mr. `president`.
+- Let them talk, mr `president`.
+- Oh, just like the `president`.
+- One thing, mister `president`.
+- `President` vetoes works bill?
+- She works for the `president`.
+- Shoot the fuckin' `president`?
+- Tell the `president` to adopt.
+- The `president` is mel gordon.
+- Vice `president` thing, right?
+- Got the `president`'s daughter.
+- He wasn't the `president` then.
+- Is the vice- `president` there?
+- Just a second, mr. `president`.
+- Mr. `president`--*i so direct*.
+- Mr. `president`, it's an honor.
+- Not as long as i'm `president`.
+- So `president` kennedy thought.
+- Then the `president` was right.
+- To swear you in as `president`.
+- Welcome aboard, mr `president`.
+- Yes, thank you mr. `president`.
+- A huge tv shows the `president`.
+- Don't call the vice `president`!
+- Free, if you're the `president`.
+- I'm afraid not, mr. `president`.
+- Is the `president` getting this?
+- It is an honour, mr `president`.
+- Like a senator or a `president`.
+- Make a great, great `president`.
+- Maybe a `president`'s last name.
+- Mr. `president`, we must launch.
+- Standing by for the `president`.
+- Then who killed the `president`?
+- The `president` is safe onboard.
+- What about the vice `president`!
+- I'm vice-`president` of my class.
+- Kitz, the `president`, the i.s.c.
+- Mr. `president`, a real pleasure.
+- Mr. `president`, what a surprise.
+- The `president` is a nice person.
+- What did `president` wallace say?
+- You won't like who's `president`.
+- Boss, the `president`'s been shot.
+- Give the radio to the `president`.
+- He's going to run for `president`.
+- Looks like paul's our `president`.
+- Sir, we stay with the `president`.
+- The `president` has been murdered.
+- The `president` is about to speak.
+- Yes, jimmy was he the `president`?
+                 

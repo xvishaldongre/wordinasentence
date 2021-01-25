@@ -1,0 +1,77 @@
+---
+title: "Dorothy in a sentence | Dorothy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Dorothy"
+---
+- Oh -- ...to `dorothy`!
+- You're `dorothy` boyd.
+- Take care of `dorothy`.
+- Oh - oh, poor `dorothy`!
+- You're not -- `dorothy`.
+- `Dorothy` parker-- sorry.
+- How'd you like `dorothy`?
+- Ah, the `dorothy` chandler.
+- `Dorothy`.... listen to me.
+- ... oh, `dorothy`'s mother.
+- Yes -- how about `dorothy`?
+- `Dorothy`, you're waking up!
+- Hey -- what about `dorothy`?
+- I should call you `dorothy`.
+- We've got to find `dorothy`!
+- But you refused me, `dorothy`.
+- Stay with us, then, `dorothy`.
+- Well, what has `dorothy` done?
+- We must worry about `dorothy`.
+- I'm `dorothy` gale from kansas.
+- `Dorothy` is really my daughter.
+- `Dorothy` told me you were here.
+- `Dorothy` vallens, seventh floor.
+- Homer, `dorothy` isn't a *sailor*!
+- Now you take `dorothy` home and...
+- He gave `dorothy` a coach- and-six.
+- Try to think of nothing, `dorothy`.
+- You have to do something `dorothy`.
+- We ought to try and carry `dorothy`.
+- Try to find out where `dorothy` sings.
+- `Dorothy` -- ah -- dor -- `dorothy` next!
+- Fly to kansas and woo little `dorothy`.
+- Does `dorothy` know her husband is dead?
+- Now, we can't go against the law, `dorothy`.
+- Fine, i just -- another time, okay `dorothy`?
+- You go down and see what's keeping `dorothy`.
+- Far less depressing than `dorothy` parker.
+- Frank- i'm sorry .maybe i better go `dorothy`.
+- For all i know you could hate `dorothy` parker.
+- Frank-- i'm sorry, maybe i better go `dorothy`.
+- `Dorothy` vallens is married to a man named don.
+- Frank is on his way up to `dorothy`'s apartment.
+- `Dorothy` -- what if i'm just not built that way?
+- `Dorothy`, let me tell you something, we are back.
+- No -- now, `dorothy`, dear, stop imagining things.
+- `Dorothy` dandridge, she took pills in, like, 1965.
+- There's only six miss dugans now... poor `dorothy`.
+- In the envelope are tickets to the `dorothy` chandler.
+- He had to have `dorothy` cause her whole life was blue.
+- Is he santa claus who has left a present for `dorothy`?
+- Well `dorothy`, why don't you hand me that chili there.
+- Jazz, meet me at the `dorothy` chandler pavilion tonight.
+- Listen, `dorothy`, don't let hunk kid you about miss gulch.
+- Oh, but aunt em, she hit him over the -- `dorothy`, please!
+- Come along, `dorothy` -- you don't want any of those apples.
+- Oh -- i fell in and -- and zeke -- are you all right, `dorothy`?
+- In your opinion, why did frank kidnap `dorothy`'s son and husband?
+- Now lookit, `dorothy`, you ain't using your head about miss gulch.
+- A party - celebrating father's third murder - hello, `dorothy`.
+- First of all, we're going to the slow club to see `dorothy` vallens.
+- Darling, my guess is that wynant killed julia and `dorothy` knows it.
+- It's terrible to tell you this way but your father's dead, `dorothy`.
+- Don't look all at once...behind the pine...`dorothy` from cabin seven.
+- I think a girl named `dorothy` vallens is in trouble with these people.
+- The man that marries `dorothy` dugan must first kill me -- do you mind that?
+- You know this little tid bit, `dorothy`, and this thing, here, is a neighbor.
+- Indeed, miss `dorothy`, i intend to have his blood as sure as my name's roderick.
+- Now she says she's gonna get the sheriff, and -- seventy -- `dorothy`, please!
+- Mrs. jorgensen, the boy, `dorothy`, macaulay... even morelli... we had to let him go.
+- Please get to your father and send him and the police to `dorothy`'s apartment right away.
+                 

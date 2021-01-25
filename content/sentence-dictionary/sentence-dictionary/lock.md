@@ -1,0 +1,107 @@
+---
+title: "lock in a sentence | lock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lock"
+---
+- Dottie, you `lock` up.
+- I'll `lock` the doors.
+- `Lock` down the exits.
+- That's missile `lock`!
+- We can't get a `lock`.
+- We have target `lock`.
+- Better `lock` and load.
+- `Lock` down, of course.
+- `Lock` this asshole up.
+- Mocky-`lock` showed up.
+- There isn't any `lock`.
+- All right, `lock` it in.
+- I had to pop the `lock`.
+- The door needs a `lock`.
+- A `lock` of hair will do.
+- Hey, second `lock`, guys.
+- I always `lock` my files.
+- `Lock` the door after me.
+- `Lock` the fucking doors.
+- It's an electronic `lock`.
+- Sighs: total brain `lock`.
+- He trusts you to `lock` up?
+- I fitted a `lock` up there.
+- I want him to `lock` me up.
+- Let's `lock` off this room.
+- `Lock` down the hangar bay.
+- `Lock` the door behind you.
+- Why did they `lock` you up?
+- Can you do the `lock` on it?
+- Guys, i've got a `lock` box.
+- I am going to `lock` him up.
+- I forgot to `lock` the door.
+- I have a `lock` on the door.
+- I just helped `lock` him up.
+- I'll `lock` on them, cougar.
+- Let's put him in `lock`-up.
+- `Lock` up and leave the key.
+- Talby was in the air `lock`.
+- That's under `lock` and key.
+- There's no way to `lock` it.
+- Because he put the `lock` on!
+- `Lock` them all away forever.
+- No, but i will `lock` you in.
+- This is the police `lock`-up.
+- You should `lock` your doors.
+- Breakout, break in, `lock` in.
+- Hey, any `lock` can be picked.
+- I'll `lock` him away for good.
+- I told you to `lock` the door.
+- It's not a combination `lock`.
+- "mocky-`lock` is the bogeyman.
+- She mimes an air `lock` valve.
+- The mets are a fucking `lock`.
+- Are you gonna `lock` the store?
+- Did you `lock` the garage door?
+- `Lock` phasers and return fire!
+- `Lock` this door and stay here.
+- Meet me at the main air `lock`!
+- No, no, no, lehigh is a `lock`!
+- Phaser `lock` inoperative, sir.
+- The damn `lock`'s broken again.
+- The `lock`'s on the other side.
+- Why'd you guys `lock` the door?
+- You don't even `lock` the door?
+- Can you `lock` it off behind me?
+- It's time we `lock` coordinates.
+- I `lock` at you and i see bill...
+- `Lock` your legs around my waist.
+- The `lock` is totally demolished.
+- There's some sort of `lock` here.
+- When the `lock` is broken -- yes.
+- Data,`lock` onto that plasma coil.
+- I'll have security `lock` it down.
+- I've got a good `lock` on my door.
+- `Lock` prince roan of azgeda away.
+- Maybe somebody changed the `lock`.
+- Mocky-`lock` is a pain in the ass.
+- Mocky-`lock` wants me where i am."
+- Pick the `lock`, malcolm; pick it.
+- Put a `lock` on that window, girl.
+- Hicks, meet me at the south `lock`.
+- I didn't `lock` the fucking drawer!
+- It's probably a combination `lock`.
+- Why don't you shoot off the `lock`?
+- : all available guards to `lock`-up.
+- It sticks out, so i can't `lock` it.
+- `Lock` the child up with the others.
+- You going to `lock` the video store?
+- I'm down by the emergency air `lock`.
+- `Lock` it is he - is he gonna die...?
+- `Lock` on target and prepare to fire.
+- To justify your crimes, `lock` it up.
+- Why would they want to `lock` us out?
+- Hey, guys, there's a `lock` over here.
+- Why does he have a `lock` on his door?
+- Keys, however, are to `lock` the doors.
+- `Lock` the doors and call your husband.
+- We need to lure it into the air `lock`.
+- Don't look at the dogs, work the `lock`.
+- I changed the `lock` you son of a bitch!
+                 

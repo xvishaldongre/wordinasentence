@@ -1,0 +1,107 @@
+---
+title: "not in a sentence | not example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "not"
+---
+- [beat] i'm `not` deaf.
+- Because he's `not` me!
+- Because i'm `not` one.
+- Because it will `not`!
+- Begged me `not` to go.
+- But i'm `not` gutless.
+- But i'm `not` in this.
+- But i'm `not` invited.
+- But it's `not` enough!
+- But it's `not` enough.
+- But, it's `not` is it?
+- But it's `not`, jimmy.
+- But my name's `not`...
+- But `not` darn likely.
+- But `not` like asians.
+- But `not` me, richard.
+- But `not` that singer.
+- But `not` too ashamed.
+- But `not` to servants.
+- But oh, no, `not` you.
+- But that's `not` true.
+- But that's `not` true!
+- But when you're `not`.
+- But you're `not` luke.
+- Can you walk or `not`?
+- Certainly `not` to me.
+- C'mon, `not` a chance.
+- Copper, `not` silicon.
+- Definitely `not` dead!
+- Did you `not` hear me?
+- Do `not` fuck with me.
+- Do `not` tell me that!
+- Echo, it's `not` real.
+- Father's `not` strong.
+- Giants are `not` real.
+- ...gruber's `not` bad.
+- Happy: it's `not` y2k.
+- He is `not` one of us.
+- He'll `not` escape me.
+- He said `not` to tell.
+- He;s `not` a murderer.
+- He's `not` doing well.
+- He's `not` even there.
+- He's `not` gonna talk.
+- He's `not` my husband!
+- He's `not` on the map.
+- He's `not` our friend.
+- He's `not` registered.
+- He's `not` responding.
+- How can i `not` worry?
+- I am `not` a mechanic.
+- I am `not` going back.
+- I am `not` john wayne.
+- I am `not` that woman.
+- I certainly did `not`.
+- I certainly was `not`!
+- I did `not` bribe him.
+- I did `not` know that.
+- I do `not` like boots.
+- I do `not` understand.
+- I don't see why `not`.
+- I'd rather `not` play.
+- I have `not` said all.
+- I'm blind, `not` deaf.
+- I'm dizzy, `not` deaf.
+- I mean, i guess `not`.
+- I mean - `not` at all.
+- I mean yes, i'm `not`.
+- I'm glad you're `not`.
+- I'm `not` 10, william.
+- I'm `not` a bartender.
+- I'm `not` a gladiator.
+- I'm `not` a good liar.
+- I'm `not` allowing it.
+- I'm `not` a puget deb.
+- I'm `not` at all well.
+- I'm `not` a terrorist!
+- I'm `not` a therapist.
+- I'm `not` aware of it.
+- I'm `not` a wet nurse.
+- I'm `not` a youngster.
+- I'm `not` bugging you.
+- I'm `not` coming back!
+- I'm `not` coming back.
+- I'm `not` coming back!
+- I'm `not` complainin'.
+- I'm `not` complaining.
+- I'm `not` criticizing.
+- I'm `not` embezzling !
+- I'm `not` exceptional.
+- I'm `not` fbi anymore.
+- I'm `not` fucking you.
+- I'm `not` going alone!
+- I'm `not` going alone.
+- I'm `not` gonna do it!
+- I'm `not` gonna do it.
+- I'm `not` helping you.
+- I'm `not` her, clarke.
+- I'm `not` here to beg.
+- I'm `not` -- he's `not`.
+                 

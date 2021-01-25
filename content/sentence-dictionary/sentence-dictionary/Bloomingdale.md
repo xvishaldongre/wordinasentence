@@ -1,0 +1,8 @@
+---
+title: "Bloomingdale in a sentence | Bloomingdale example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Bloomingdale"
+---
+- If that's not a drop or a pickup, i'll open a charge for you at `bloomingdale`'s.
+                 

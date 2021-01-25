@@ -1,0 +1,82 @@
+---
+title: "example in a sentence | example example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "example"
+---
+- As for `example`, what?
+- Some `example` you set.
+- Like what, for `example`?
+- An `example` must be made!
+- That's just one `example`.
+- Well, what, for `example`?
+- Means 'for `example`', ray.
+- Your dr. ido for `example`.
+- `Example`, where's my chest?
+- Am i making him an `example`?
+- In your motorcycle `example`.
+- Just following your `example`.
+- Make an `example` of yourself!
+- You're an `example` to us all.
+- Can't you give me an `example`?
+- Could you give us an `example`?
+- Freddie's the perfect `example`.
+- So kane dies to be an `example`.
+- Such as your own, for `example`.
+- The way she talks, for `example`.
+- For `example`, hunt's disappeared.
+- They will make an `example` of us.
+- An unhappy marriage, for `example`.
+- Make an `example` of the 13th clan.
+- Can you give the court an `example`?
+- I always have to 'set an `example`'.
+- You just had a good `example` of it.
+- Lincoln, we need to set an `example`.
+- You better give me another `example`.
+- That jewel thief movie, for `example`.
+- Good `example` of what i'd like to know?
+- For `example`, why is wanheda still alive?
+- Let's say for `example` - what time is it?
+- Let me give you an `example`.... sexuality.
+- Now, this is a great `example`... - uh-huh.
+- You'll set a good `example` for our people.
+- At what point are we gonna set an `example`?
+- We need to set an `example`, especially now.
+- Who can give me an `example` of an algorithm?
+- The breach in the dorm is an extreme `example`.
+- He went dirty and they made an `example` of him.
+- The shepherd's patience should be our `example`.
+- Your deeds set an `example` for all other knights.
+- For `example`, angelina over there, she's my partner.
+- For `example`, i'm now the one who says "let's ride."
+- For `example`, at this moment the film's out of focus.
+- Now look at this fine `example` of early hindu art ...
+- Occasionally, sure, okay, you got to make an `example`.
+- This superb `example` of this early 17th century master.
+- I know for `example` the sickness that plagues your heart.
+- Or that women are not going to enjoy whiskey, for `example`.
+- But take the-miracle of the loaves and fishes, for `example`!
+- Living by your `example` these years, my life has had meaning.
+- Let harold's worldliness be a warning to thee, not an `example`.
+- The admixture makes her more volatile than -- me, for `example`.
+- So, give me an `example` of a stupid person doing a stupid thing.
+- We had to make an `example` of these pricks that the party was over.
+- Well, i hate business men�particularly if you're a shining `example`.
+- For `example`: you're a young man who thinks he's got someplace to be.
+- As an `example`, i think apple is a very good `example` of that movement.
+- But the `example` of your life helped me in my struggle to be a cowgirl.
+- Well, you've given me a very good `example` of the hiking� hitch-hiking.
+- We supply, for `example`, most of the egg farmers in southern california.
+- Tends to set a bad `example`, i figure i saved them from a big temptation.
+- Thirty seconds, for `example`, you'll tell me you're sleeping with dreiberg.
+- I'm asking you for an `example` of one of these dumb fucks being a dumb fuck.
+- Now, ma -- you just try to set an `example` for me, and keep hold of yourself.
+- You have plants right here in this building, for `example`, that are poisonous.
+- And if you accept the word of the lord... that's me... an `example` must be made.
+- You know what -- it'll set the right `example` for the rest of this administration.
+- For `example`, did you know, according to legend, this coastline used to harbor sirens?
+- It's easy, it runs in my family, take my grandfather, for `example`... how do you do it?
+- For `example`, he's just come back from a <u>fire</u> and he...um... that's a fine house.
+- What'd you say your problem was... aren't you supposed to set an `example` for people...?
+- Oh, the complete works of jacqueline susan, the novels of harold robbins.... for `example`?
+                 

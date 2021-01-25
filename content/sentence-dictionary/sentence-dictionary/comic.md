@@ -1,0 +1,64 @@
+---
+title: "comic in a sentence | comic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "comic"
+---
+- No, not `comic` books.
+- Winner gets a `comic`.
+- Risks and `comic` books.
+- Rich, `comic` book freaks.
+- I'm a `comic` strip artist!
+- And remain `comic` book guy.
+- I own a `comic` book museum.
+- It was a real scary `comic`.
+- Reading dirty `comic` bocks.
+- Soon as i finish this `comic`.
+- The guy in your `comic` books.
+- Do you sell `comic` books here?
+- ♪ that `comic` is noncanonical.
+- I'll send you some `comic` books.
+- I want to return this `comic` book.
+- Wanna go to the `comic` book store?
+- But `comic` books are main business.
+- This isn't a `comic` book store, right.
+- Who put this item in about the `comic`?
+- No, it can't be, because he's a `comic`.
+- What about the rest of my `comic` books?
+- Don't judge a `comic` book by it's cover.
+- I missed you, snarky `comic` book seller.
+- Mr. teeny stole the money, - any `comic`?
+- No, you are going to `comic`-con with me.
+- I mean, how much could an old `comic` cost?
+- `Comic` book guy, my husband is really sorry.
+- ♪ `comic` book sales is a very fragile field.
+- Maybe i can make peace with `comic` book guy.
+- Everything in my life is not `comic` books, okay?
+- They only want one certain kind of black `comic`.
+- Work that up into a `comic` strip and syndicate it.
+- Look, we'll detail your car and fix your `comic` book.
+- This was the `comic` i always wanted most hello there.
+- All right, we got a `comic` who wants to make do it now.
+- I just hang around and talk about `comic` books all day.
+- That place you took me to last night, that `comic` book place.
+- Maybe you're the plucky `comic` relief, you ever think of that?
+- Characters in `comic` books are often attributed special powers.
+- I didn't even know they had stores that just sold `comic` books.
+- Um, we have... kumiko, we are changing the `comic`-con costumes.
+- Hold on, let me show you my favorite `comic` book cover of all time.
+- You lend them your cool stuff, like `comic` books and trading cards.
+- "inner sanctum"... "the shadow" -- nah, 'cause i had my `comic` books.
+- Then i'll write a book and draw the illustrations like a `comic` book.
+- Yeah, you think we just work in a `comic` book store for our dad, huh?
+- Daddy, buddy was up late last night reading little dirty `comic` books.
+- If it wasn't for that `comic` strip of yours, i wouldn't be doing this.
+- Oh, records and magazines and `comic` books are one thing, but tickets?
+- Octavia, the same radioactive man `comic` that we destroyed 3... 2... 1.
+- You ever hear of &quot;superman?&quot; and i don't mean the `comic` book.
+- Man, i always thought stuff like this happened in movies and `comic` books.
+- I was reading this horror `comic` and i guess i go a little carried away... sam!
+- They call him the king pin because he looks like that guy from the `comic` book... big.
+- Yeah, i got the key, so i come here at night, hang out, read `comic` books, play music.
+- I wasn't reading huckleberry finn, i was reading one of those little dirty `comic` books.
+- I've been collecting `comic` books all my life... perhaps you'd like to see my collection?
+                 

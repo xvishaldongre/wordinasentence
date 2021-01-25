@@ -1,0 +1,76 @@
+---
+title: "explanation in a sentence | explanation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "explanation"
+---
+- I need an `explanation`.
+- I want an `explanation`.
+- I demand an `explanation`.
+- You need an `explanation`?
+- 40 after the `explanation`.
+- That's their `explanation`.
+- Gimme another `explanation`.
+- You owe me an `explanation`.
+- Ahem, a word of `explanation`.
+- I want an `explanation` first.
+- All i want is an `explanation`!
+- No `explanation`, just silence.
+- You got a better `explanation`?
+- What was that `explanation`?
+- I know there's an `explanation`.
+- You promised me an `explanation`.
+- But there's another `explanation`.
+- I'm sure that's the `explanation`.
+- I think i deserve an `explanation`.
+- There's got to be an `explanation`!
+- There's got to be an `explanation`.
+- What's the *medical* `explanation`?
+- There's probably some `explanation`.
+- Dr. argon, i demand an `explanation`.
+- I knew there was a sound `explanation`.
+- Yet you have no `explanation` for this.
+- Domini's the only logical `explanation`.
+- Death was the only logical `explanation`.
+- I'm sure there's a logical `explanation`.
+- All he needed was a reasonable `explanation`.
+- There's a logical `explanation` for all this.
+- A miracle is an event without an `explanation`.
+- Come in, please... do you have an `explanation`?
+- Harry invited smithy round for an `explanation`.
+- I suggested a rather unbelievable `explanation`.
+- Have you found a scientific `explanation` for it?
+- The best `explanation` is always the simplest one.
+- What rational `explanation` can there possibly be?
+- Continued did they have any `explanation` for this?
+- Rachel, i've got an expl-- i've got an `explanation`.
+- To a cop, the `explanation` is never that complicated.
+- What difference does it make to find an `explanation`?
+- What the... that dog better have a good `explanation`!
+- Since no one is to blame, i, i demand no `explanation`.
+- An `explanation` is, of course, out of the question.
+- I know, they seem that way, but there's an `explanation`.
+- In science we always look for the simplest `explanation`.
+- Though, of course, there's a more sinister `explanation`.
+- I believe there's a rational `explanation` for everything.
+- 'bout the best `explanation` of a lot of things that happen.
+- Well give me a reasonable `explanation` don't be ridiculous.
+- You better have a pretty good `explanation` for this, selena.
+- There is a medical `explanation` for everything that happened.
+- But there's also a reason- able `explanation` for the opposite.
+- Do you have some `explanation` of what happened in my apartment?
+- Thank you marcel, for that... extremely redundant `explanation`.
+- `Explanation`, mr. decker: why was my phaser order countermanded?
+- I can't possibly allow a remark like that to go without `explanation`.
+- There's only about one `explanation` for a thing like this..got a pin?
+- About ninety five percent of the cases had some technical `explanation`.
+- I'm just trying to find an `explanation` for the continual reappearances.
+- This is after the preface but before chapter one: a word of `explanation`.
+- I think you saw something -- that probably has a very simple `explanation`.
+- She dreamed this would happen... you got a sane `explanation` for what he did?
+- The witness has already stated that miss lawson left without an `explanation`.
+- The only `explanation` for the royal treatment is he did give them radar secrets.
+- There is, of course, another possible `explanation` which i dearly hope is not the case.
+- Now, does a simple argument over phone bills sound like a believable `explanation` to you?
+- I must have covered it with my hand, without realizing it, that's the only `explanation`...
+                 

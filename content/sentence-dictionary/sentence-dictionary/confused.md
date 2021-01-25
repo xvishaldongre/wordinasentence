@@ -1,0 +1,87 @@
+---
+title: "confused in a sentence | confused example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "confused"
+---
+- Just a `confused` man.
+- I'm getting `confused`.
+- I'm just so `confused`.
+- You're very `confused`.
+- A `confused` old person.
+- I'm a little `confused`.
+- ...blake i am `confused`.
+- Yeah, they're `confused`.
+- Don't they get `confused`?
+- ...look, you're `confused`?
+- You mean you're `confused`?
+- You're a little `confused`?
+- I'm sorry, i got `confused`.
+- The silhouette is `confused`.
+- I'm really getting `confused`.
+- Well - i'm a little `confused`.
+- I got a little `confused` though.
+- Guess i'm too `confused` to think.
+- They just stood there, `confused`.
+- I always gets those two `confused`.
+- I'm afraid i'm a little `confused`.
+- I think you're a little `confused`.
+- My people are angry and `confused`.
+- Well, i'm a little `confused` here.
+- You get disoriented and `confused`.
+- Well -- look -- don't be `confused`.
+- Because i am `confused` about things.
+- It was marty's turn to be `confused`.
+- `Confused` when it comes to men...
+- I'm frightened and `confused` and i...
+- Start a magazine for `confused` woman?
+- You've really got me `confused`, cage.
+- You have me `confused` with dan dailey.
+- It's perfectly normal to feel `confused`.
+- I figure that way we won't get `confused`.
+- I don't know, i'm very `confused` right now.
+- I'm `confused` about your past is the thing.
+- That explains why the computer's `confused`.
+- I'm `confused` about a lot of things right now.
+- `Confused` and scared... take cover immediately.
+- Am i `confused` or were we talking about tonight?
+- I could die right now and nobody'd be `confused`.
+- If you're `confused`, best guess... 36 hours, no.
+- I do not know, louise, i think they are `confused`.
+- I was so `confused`, so conflicted, so... unstable.
+- She seems `confused`, irresponsible, overemotional.
+- I dunno, louise, i think they're getting `confused`.
+- He' s `confused`-- nuke won't go to bed with you, eh?
+- I must have gotten it `confused` with something else.
+- I'm sorry, i'm `confused` as to the relationship here.
+- I think you may have us `confused` with another house.
+- Eddie, you must have me `confused` with david selznick.
+- I don't think so, i think she's `confused` about death.
+- I mean, for me it was silly, i was `confused` going in.
+- Sure the boy's outa line, but he's just a `confused` kid.
+- But i can see how you were `confused`, they look a lot alike.
+- I'm `confused` but you know, i don't think he'd ever hurt me.
+- I think that you are a very troubled... `confused` young man.
+- It's stressful, you said it yourselves, it gets you `confused`.
+- I'm sorry, son, but you must have me `confused` with someone else.
+- Last time i saw ann she left here very... `confused`, i would say.
+- Well, your a. buttle has been `confused` with t47/215, an a. tuttle.
+- I've missed him too, but now, every time i see him, i get `confused`.
+- I was just as `confused` and unhappy was before; i did terrible things.
+- He was so `confused` by what i was doing, i don't think he even noticed.
+- I look at you - here - in my town - and i'm `confused`... you know my back.
+- He's very excited and `confused`, but he's not crazy, if that's what you mean.
+- What `confused` us was dr. gonzo's signature on the telegram from los angeles.
+- You must have me `confused` with� you'll never get away with it, miss andrews.
+- I just -- there are a lot of really `confused` people showing up at the office.
+- You have raised the sisters' expectations, you have excited and `confused` them.
+- I get so `confused`... none of the ladies will be able to take their eyes off you.
+- Most of 'em seem troubled, `confused`, but i'd say you knew exactly what you want.
+- Nice ride... well, i�m just a little `confused` right now about why i work here...
+- Maureen looks at phil, `confused`...as if seeing for the first time...it's not phil.
+- Charlie, i'm from the old country, and these american ways get me sometimes `confused`.
+- I know that you must be a little `confused`, but we have a very serious situation at hand.
+- A batter has two tenths of a second to decide whether to swing-- you got me all `confused`.
+- I have taken all those warm, grateful emotions and `confused` them with feelings for you...
+- I was young... `confused`... we didn't handle it the right way... everything... you... say!
+                 

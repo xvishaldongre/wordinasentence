@@ -1,0 +1,105 @@
+---
+title: "obvious in a sentence | obvious example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "obvious"
+---
+- But it's so `obvious`.
+- He's an `obvious` type.
+- It's an `obvious` move.
+- Ah, an `obvious` choice.
+- So, it's `obvious`, huh?
+- Aside from the `obvious`?
+- Do i look that `obvious`?
+- Isn't it like, `obvious`?
+- It's `obvious`, isn't it?
+- Just the `obvious` stuff.
+- You're getting `obvious`.
+- Don't be so `obvious`!
+- It's pretty `obvious` why.
+- That's `obvious`, isn't it?
+- What's the `obvious` stuff?
+- It is intuitively `obvious`.
+- Isn't it incredibly `obvious`?
+- I think it's rather `obvious`.
+- It's `obvious` i don't satisfy.
+- What about the `obvious` remedy?
+- But i'm afraid just as `obvious`.
+- He does the most `obvious` thing.
+- That much is `obvious`, isn't it?
+- His plight is `obvious`, isn't it?
+- It's `obvious` you're not a woman.
+- It's `obvious` i don't belong here.
+- It's `obvious` what you have to do.
+- Seems pretty `obvious`, doesn't it?
+- You there it's `obvious`, isn't it?
+- Her plan is `obvious`, plain as day.
+- It's `obvious`, once i stop to think.
+- I guess it's not that `obvious`, then.
+- Sean ambrose was the `obvious` choice.
+- Would he... it sounds pretty `obvious`.
+- I took it off you for `obvious` reasons.
+- Oh no, rob, that's not `obvious` enough.
+- Unfortunately, it was far too `obvious`.
+- It's the most `obvious` solution: escape.
+- You are more emotional than is `obvious`.
+- I guess it's pretty `obvious` to everyone.
+- It was `obvious` how much he missed lydia.
+- The answer is `obvious` ... then who wins?
+- When a man steps in dung, it is `obvious`.
+- I should have thought that was `obvious` ...
+- You'd better not point out the `obvious`.
+- Hiring nedry was a mistake, that's `obvious`.
+- It's, like, so `obvious` you can't stand him.
+- Couldn't you make it more `obvious` than that?
+- It's so `obvious`... you're after my daughter.
+- But it was pretty `obvious` what she was doing.
+- Elaine, it's `obvious` you've been ignoring me.
+- It's `obvious` they're out to crucify norville!
+- Anything other than the `obvious` bothering you?
+- I told you before, grimes liked to be `obvious`.
+- It's pretty `obvious` to a trained professional.
+- It seems such an `obvious` candidature to us all.
+- It's `obvious` that we're not going to be friends.
+- It's `obvious` the people prefer jim gettys to me."
+- It was `obvious` from the way he first looked at me.
+- Seems like the `obvious` question she's gonna be ok.
+- With a mustache like that, you're an `obvious` narc.
+- I'm surprised you would use such an `obvious` tactic.
+- I should think that would be `obvious` at this point.
+- It's `obvious` you haven't raped anyone in your life.
+- It's been `obvious` from the start, hasn't it, captain?
+- Please, giulia; must you always emphasize the `obvious`?
+- I was the `obvious` choice to chaperone them on the trip.
+- It's `obvious` this fellow williams is impressed with you.
+- Tyler... not an option, for the most `obvious` of reasons.
+- Red herring would have been too `obvious`, don't you think?
+- The rally's a little `obvious` as a target, don't you think?
+- I knew that life didn't add up to the `obvious` when i was 8.
+- Well it's pretty `obvious` you don't want me around any more.
+- They're allowed, but i don't like 'em...for `obvious` reasons.
+- `Obvious` pattern -- all ties in -- what do you mean, frame-up?
+- Just try not to make it so `obvious` that you're crazy about me.
+- Maybe i'm missing the `obvious`, but why aren't we leaving town?
+- Well, bruce, some types are a little more `obvious` than others.
+- It's `obvious` that the girl doesn't want to accompany you, isn't it?
+- Rather an `obvious` question under the circumstances, don't you agree?
+- Why don't you and i have a little talk about the `obvious`... outside.
+- Not to point out the `obvious`, does that mean the knife hit something?
+- Uh, i think a portal to another dimension is gonna be pretty `obvious`.
+- It is our task to assemble the seemingly unconnected into the `obvious`.
+- You put that all together, and what the state is doing becomes `obvious`.
+- My god, we can't even wrap our minds around something as `obvious` as hiv.
+- The `obvious` solution isn't always the only solution... see you tomorrow.
+- I'm double-checking every case, but i don't want to be too `obvious` about it.
+- I couldn't do it at work cause of security or at home for -- `obvious` reasons.
+- It's `obvious` you have no sense of historical perspective, i think we're here.
+- The son who had betrayed and burned him so thoroughly seemed a `obvious` choice.
+- How, uh... how did he know that-- well, i guess he don't care that it's `obvious`.
+- It was quite `obvious` to him last night that she had become emotionally involved.
+- I mean, when you looked at all the other options... it just seemed sorta `obvious`.
+- He covered his tracks far too well, and i think it's `obvious` he's not coming back.
+- The proof... not to state the `obvious`, have you ever considered that you're the problem?
+- Well, not to point out the `obvious`, so, milhouse, it turns out i'm addicted to altruism.
+- You're not someone who lies very easily... so it's `obvious` when you do... at least to me.
+                 

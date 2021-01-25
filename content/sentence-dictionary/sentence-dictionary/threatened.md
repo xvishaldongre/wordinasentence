@@ -1,0 +1,58 @@
+---
+title: "threatened in a sentence | threatened example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "threatened"
+---
+- He `threatened` to kill me.
+- She `threatened` the summit.
+- The general `threatened` me.
+- You `threatened` miss swann.
+- Alie: he's `threatened` by you.
+- They probably `threatened` her.
+- It was because i `threatened` him.
+- Somebody `threatened` my children.
+- `Threatened` to blow my brains out?
+- Come on, i `threatened` a terrorist.
+- He `threatened` to kill us, didn't he?
+- He `threatened` to kill... ...-tiatin'.
+- `Threatened` him several times since.
+- It won't attack unless it's `threatened`.
+- I know all about how you `threatened` him.
+- I'm the best that's ever `threatened` you.
+- I've been `threatened` by better than you.
+- Your daughter's life was just `threatened`!
+- The ministry has `threatened` us with closure.
+- China just `threatened` to destroy their shell.
+- China just `threatened` to destroy their shell.
+- If they feel `threatened`, lot of history here.
+- Why are you people so `threatened` by a woman?!
+- Evolution-of- the-species-at-stake `threatened`.
+- Ain't `threatened` me with a killin' or anything.
+- He became very...i don't know, very `threatened`.
+- He `threatened` to kill her if she ever left him.
+- Perfect tommy's just `threatened` by smart women.
+- Yes, he `threatened` to kill my five year-old son.
+- You haven't `threatened` to take away my books yet.
+- So furious, in fact, they've `threatened` litigation.
+- At dinner, my daughter-in-law `threatened` to kill me.
+- Clarke `threatened` not to help but homer got in, too?
+- Fear of what... you `threatened` to drive her downtown.
+- So, you were trying to save stark when he `threatened` us?
+- You look familiar ... have i ever `threatened` you before?
+- I think he `threatened` to turn them in and they killed him.
+- Have you been `threatened`, if you told the truth, is that it?
+- I mean, even before you `threatened` me with the baseball bat.
+- Whatever it is, it's not human, and i am `threatened` by that.
+- B & w may have `threatened` litigation... cbs is on the block...
+- Clark, stop feeling so `threatened` every time you hear his name.
+- Daddy `threatened` to cut me off without a cent, but i don't care.
+- I went to the tearooms, where edith `threatened` me with a teapot.
+- He's `threatened` to do it, it's been building up in him for months.
+- I have been `threatened`;] mrs. maxwell, my assistant's wife, is crazy.
+- President kennedy `threatened` to smash the cia into a thousand pieces.
+- Crickets go silent when they feel `threatened`, downstairs to the right.
+- The law that `threatened` death becomes thy friend and turns it to exile.
+- I was `threatened` -- i was desperately in need of a certain big sum of money.
+- He watched it, confronted carlos, `threatened` to tell the police about the hotel...
+                 

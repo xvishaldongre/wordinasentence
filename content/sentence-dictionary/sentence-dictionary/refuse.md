@@ -1,0 +1,68 @@
+---
+title: "refuse in a sentence | refuse example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "refuse"
+---
+- But one i must `refuse`.
+- We can `refuse` to talk.
+- We wouldn't `refuse` it.
+- Bruce may still `refuse`.
+- Unless you `refuse`, oleg.
+- `Refuse` this, and you die.
+- I `refuse` to be your slave.
+- They can't `refuse` me bail.
+- It's hard for me to `refuse`.
+- She cannot possibly `refuse`.
+- Mm...mm... and if we `refuse`?
+- I `refuse` to believe they exist.
+- I `refuse` to discuss it further.
+- I `refuse` to turn out like them.
+- I shall `refuse` to perceive you.
+- Today i can `refuse` you nothing.
+- I `refuse` to drive in this country.
+- Please, i beg you, do not `refuse` me.
+- So you `refuse` to answer my questions?
+- I'll make him an offer he can't `refuse`.
+- I `refuse`..that's right..that's right...
+- When did i ever `refuse` an accommodation?
+- When did i ever `refuse`, except one time?
+- I'd be no better than thorwald, to `refuse`.
+- I say this even though you `refuse` let's go.
+- Because you `refuse` to believe she's serious.
+- I'm gonna make him an offer he can't `refuse`.
+- `Refuse` the quest before he accepts the quest.
+- Well, he offered, and i just couldn't `refuse`.
+- Well, i'll make him an offer he can't `refuse`.
+- My father made him an offer he couldn't `refuse`.
+- The ramos family couldn't `refuse` our involvement.]
+- Under these circumstances we might `refuse` to sign.
+- It's a sin against god for me to `refuse` your kindness.
+- Are gonna `refuse` to help us when it comes to narcotics.
+- I just know these norma rae-sinets `refuse` to back down.
+- The promise is the deal will be so good we can't `refuse`.
+- A man can `refuse` only so many invitations from his queen.
+- Gee, with an invitation like that how could a girl `refuse`.
+- I was not given the opportunity either to accept or `refuse`.
+- I'll teach those phony gallery creeps to `refuse` my sculpture.
+- You tellin' us you `refuse` the title of boss of all the bosses?
+- So long as this bitch remains alive, our armies `refuse` to fight!
+- The promise is that the deal is so good that we can't `refuse`.
+- No sicilian can `refuse` any request on his daughter's wedding day.
+- See that sign -- we retain the right to `refuse` service to anyone.
+- The men wear beads and `refuse` to fight--and the woman adore them.
+- All i want is a lie detector test, and you `refuse` to give it to me.
+- That is a socialistic volume which i `refuse` to so much as dust, sir.
+- I `refuse` to answer the question on the grounds it might incriminate me.
+- One day a dead man will `refuse` to return, and that man will be a saint.
+- When you're proud of what you are, you don't `refuse` the label, understand?
+- Because people aren't always what they seem to be and you `refuse` to see that.
+- Before you `refuse` my help, remember i should've known he'd go for that radio.
+- Ever since phil collins did that mtv anti-drug commercial i `refuse` everything.
+- If they `refuse`, we recross the river and attack them here -- at the tourelles.
+- I `refuse` to discuss this ridiculous notion that a ghoul is terrorizing this ship.
+- If someone offered you a place to stay, you wouldn't necessarily `refuse`, would you?
+- A man like you could not `refuse` a poor sick dying helpless man a small cup of water.
+- Not even a king, would `refuse` to take an oath to tell the truth in a matter of faith.
+- Because they know that no sicilian will `refuse` a request on his daughter's wedding day.
+                 

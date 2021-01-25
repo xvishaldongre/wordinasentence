@@ -1,0 +1,107 @@
+---
+title: "broken in a sentence | broken example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "broken"
+---
+- It has a `broken` leg!
+- Sod it, it's `broken`!
+- The curse is `broken`.
+- They must be `broken`.
+- He'd `broken` her neck.
+- His heart was `broken`.
+- The mirror is `broken`.
+- To see what's `broken`.
+- Collar bone is `broken`.
+- Mine's `broken` already.
+- The thread has `broken`.
+- We have `broken` no law.
+- You've `broken` its leg!
+- Have you `broken` it yet?
+- I -- it was `broken` off.
+- It's not `broken`, is it?
+- But expressively `broken`.
+- He's `broken` his pattern.
+- My watch is `broken`, too.
+- The right skid's `broken`.
+- What if i'm just `broken`?
+- I think my leg is `broken`.
+- The thermometer's `broken`.
+- You got any `broken` bones?
+- Alas, the child is `broken`.
+- Damn thing's `broken` again.
+- I haven't `broken` any laws.
+- I think his leg is `broken`.
+- Just like a `broken` record.
+- She would be heart-`broken`.
+- The mirror -- it's `broken`.
+- Uh... the buzzer's `broken`.
+- I think its neck is `broken`.
+- I think i've `broken` a bone.
+- Maybe the antenna's `broken`.
+- Must'a `broken` some records.
+- She died of a `broken` heart.
+- Should have `broken` the bed.
+- That your heart was `broken`?
+- All the windows were `broken`.
+- A precedent is being `broken`.
+- Rules are made to be `broken`.
+- Zoom in on his `broken` heart.
+- Had a `broken` leg, turned out.
+- I don't think they're `broken`.
+- I think i've `broken` my strap.
+- One of mom's cups got `broken`.
+- Only one you've never `broken`.
+- The damn lock's `broken` again.
+- They've `broken` their pattern.
+- You reflect its `broken` heart.
+- Your flat�s been `broken` into.
+- It's a rule that never `broken`.
+- It's as if my quill is `broken`.
+- It was `broken` when i found it.
+- My nose was `broken` four times.
+- Two of his fingers are `broken`.
+- Archer, you're a `broken` record.
+- `Broken` hearts are for assholes.
+- It's about to be a `broken` face.
+- It's been `broken` for two years.
+- I've never `broken` a bone since.
+- Once you got your heart `broken`.
+- Well, actually we've `broken` up.
+- When the lock is `broken` -- yes.
+- You've `broken` off negotiations.
+- How'd you know '`broken` mirrors?'
+- It's just, being `broken` up, hey.
+- The phone company was `broken` up.
+- I don't think anything is `broken`.
+- You gonna get your thumbs `broken`.
+- Jeez, you're like a `broken` record.
+- You've got three `broken` ribs, man!
+- He must have `broken` half his bones.
+- If only the car hadn't `broken` down.
+- I'll just pick up the `broken` glass.
+- Oh ... he's nursing a `broken` heart.
+- Are you sure your stick's not `broken`.
+- Just might be his first `broken` heart.
+- Or i might end up with a `broken` nose.
+- When you've `broken` every other taboo?
+- A couple i'd thought had `broken` him...
+- I threw out the stuff that got `broken`.
+- He said 'tell graham "`broken` mirrors."'
+- Those are the words of a `broken` spirit.
+- I don't see any bruises or `broken` bones.
+- Now you've `broken` the laws of nature!
+- `Broken` hearts aren't that simple, arthur.
+- The man inside was hurt, his body `broken`.
+- `Broken` blood vessels on her right forearm.
+- Irvine's at home with a `broken` collarbone.
+- Or the guy thinks he could get 'em `broken`.
+- This bit here... see there... it's `broken`.
+- You've `broken` all the laws of man, luthor.
+- I suppose you're pretty `broken` up about it?
+- I thought, 'oh shit, somebody's `broken` in.'
+- That's a ptarmigan, feigning a `broken` wing.
+- You don't have a `broken` compressor, do you?
+- You know how many rules you've just `broken`?
+- I'd have to say my spine was `broken`, keyser.
+                 

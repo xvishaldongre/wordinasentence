@@ -1,0 +1,107 @@
+---
+title: "wasn't in a sentence | wasn't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wasn't"
+---
+- But `wasn't` it funny?
+- Exciting, `wasn't` it?
+- Frank `wasn't` 'there.
+- He `wasn't` even hurt.
+- I... that `wasn't` me.
+- It `wasn't` a lunatic.
+- It `wasn't` a tv show!
+- It `wasn't` difficult.
+- It `wasn't` her fault.
+- It `wasn't` his fault.
+- It `wasn't` his fault.
+- It `wasn't` important.
+- It `wasn't` like that!
+- It `wasn't` like that.
+- It `wasn't` our fault!
+- It `wasn't` very nice.
+- I `wasn't` dating him.
+- I `wasn't` her "type."
+- I `wasn't` hiding out.
+- I `wasn't` in the car.
+- I `wasn't` scratching!
+- Only he `wasn't` dead.
+- She `wasn't` diabetic.
+- That `wasn't` a dream.
+- That `wasn't` her toe.
+- That `wasn't` my army.
+- That `wasn't` on fire.
+- That `wasn't` payment.
+- That `wasn't` so hard.
+- There `wasn't` a fire.
+- This `wasn't` my idea.
+- This `wasn't` my plan!
+- `wasn't` i humiliated?
+- `wasn't` that amazing?
+- We `wasn't` far apart.
+- You `wasn't` with her?
+- Zack, it `wasn't` him!
+- Beautiful, `wasn't` it?
+- Bellamy `wasn't` there.
+- But he `wasn't` killed.
+- But it `wasn't` really.
+- But, sir, he `wasn't`.
+- But that `wasn't` finn.
+- 'cause i `wasn't` gone.
+- He `wasn't` his father.
+- It `wasn't` a bad bust.
+- It `wasn't` her mother.
+- It `wasn't` that funny.
+- It `wasn't` your fault.
+- I `wasn't` a guardsman.
+- I `wasn't` a tad stiff?
+- My mom `wasn't` a goat?
+- My ride `wasn't` there.
+- No, i `wasn't` aware...
+- She `wasn't` certain...
+- Sorry i `wasn't` there.
+- That `wasn't` an image.
+- That `wasn't` an offer.
+- That `wasn't` anything.
+- That `wasn't` my fault.
+- That `wasn't` our deal.
+- That `wasn't` the deal.
+- There `wasn't` a party.
+- This `wasn't` the deal!
+- This `wasn't` the plan.
+- Wait, that `wasn't` me.
+- `wasn't` he on tv once?
+- `wasn't` it incredible!
+- `wasn't` that the deal?
+- `wasn't` there a party?
+- Well, i `wasn't` alone.
+- There `wasn't` time.
+- But it `wasn't` a group.
+- Fun though, `wasn't` it?
+- He was hot, `wasn't` he?
+- He `wasn't` a dog lover.
+- He `wasn't` around here.
+- He `wasn't` circumcised.
+- I...i `wasn't` thinking.
+- I knew it `wasn't` true.
+- It was bad, `wasn't` it.
+- It `wasn't` bob's fault.
+- It `wasn't` deep enough.
+- It `wasn't` fast enough.
+- It `wasn't` for nothing.
+- It `wasn't` intentional.
+- It `wasn't` meant to be.
+- It `wasn't` the negroes.
+- It was you, `wasn't` it?
+- I `wasn't` feeling well.
+- I `wasn't` masquerading.
+- No, he `wasn't` kidding.
+- No, it `wasn't`, was it?
+- No, i `wasn't` sneaking.
+- No, that `wasn't` a lie.
+- Oh, i `wasn't` worrying.
+- Only it `wasn't` a joke.
+- Paul `wasn't` into that.
+- She `wasn't` that great!
+- She `wasn't` very clean.
+                 

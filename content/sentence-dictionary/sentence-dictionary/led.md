@@ -1,0 +1,81 @@
+---
+title: "led in a sentence | led example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "led"
+---
+- "i `led` two lives"...
+- I `led` with my right.
+- Should've `led` with it.
+- She `led` us right to you.
+- One thing `led` to another.
+- I should've `led` with that.
+- This magua `led` us into it.
+- Have you ever `led` trackers?
+- You `led` against pike hides.
+- Think of the life mao's `led`.
+- The drummer for `led` zeppelin.
+- They're being `led` by a child.
+- Well, one word `led` to another.
+- You `led` them to the slaughter.
+- He's `led` a very sheltered life.
+- They say you `led` the massacres.
+- So... you `led` against pike hides.
+- They `led` big dave onto the craft.
+- Twenty years i've `led` men to die.
+- She turned around and `led` the way.
+- We saw them being `led` off the ship.
+- Hey… they're being `led` by a child.
+- No... and look where it's `led` you...
+- Don't cane me, sir, i was `led` astray.
+- Do you see a life you might have `led`?
+- Indra `led` a search party to find her.
+- Then they were `led` by his underlings.
+- I bet she `led` you on good, didn't she?
+- That was what we were `led` to believe .
+- What whim `led` white whitney to whittle?
+- These idiots have to be `led` to the water.
+- All left to be `led` like donkeys back home.
+- Hancock acts, he `led` the boston tea party!
+- He `led` us here so we'd have to go on foot.
+- He `led` what i suppose was an orderly life.
+- I advised her, and `led` her army with pride.
+- ♪ woo-hoo-hoo ♪ i'm so glad it `led` me here.
+- Mr friedman `led` me to believe we had a deal.
+- The choices i made have `led` me here as well.
+- You saw what you saw because i `led` you to it.
+- And, of course, the events which `led` up to it.
+- Look -- i'm sorry -- i've `led` everybody wrong.
+- [girls] what whim `led` white whitney to whittle?
+- Well, i think they said i `led` too dull a life.
+- If gruner `led` us away, who'd he lead us away from?
+- All these good people have totally been `led` astray.
+- I have `led` this fight in the war against profanity.
+- I only `led` her into believing i believed she was...
+- It `led` me away from umbrella frames, for one thing.
+- But it `led` to the best thing that ever happened to me.
+- I remembered coit tower and it `led` me straight to you.
+- You `led` me to ray breslin, helped me capture his girl.
+- I don't know how to handle... you've `led` a charmed life.
+- But yet, it's `led` by this small group of passionate people.
+- You gotta get sonny rollins or `led` zeppelin iv, on that shit.
+- You've `led` something of a charmed life haven't you mr. wells?
+- All the clues `led` me here ... spoil the majority shareholders.
+- The shepherd `led` me to her, you don't think... any last words?
+- The ash on the sole of her shoe and the coal dust `led` me to them.
+- You americans discovered the signal, you `led` the decryption effort.
+- Drew `led` me on, but i had no business telling him in the first place.
+- And he `led` a party into the country, and they met the aboriginal people.
+- They're going to say that you enticed marsh -- `led` him down a dark path.
+- You can contact, uh... ♪ small ketchup's friends ♪ `led` by clarke griffin.
+- I `led` a hundred men to his place in granite needle, but it was surrounded.
+- Thanks, but i think i'm gonna stick to my mom, she `led` a fascinating life too.
+- We would have looked for motive and the trail would have still `led` back to her.
+- When you've `led` the kind of life that i have, there are debts that must be paid.
+- You have `led` them from victory to victory in the name of rome and they love you.
+- I `led` the team in rebounds cause it was the only way i could touch the damn ball.
+- You beat a bunch of criminals `led` by a sociopath in a battle how can you be so sure?
+- Alone... but with a murderous fury inside him... which `led` him to kill dozens of people.
+- An- an-and in a way you `led` me on, because i truly believed you were unhappy with hannah.
+- Gruner switched the chip to him, not from him, then he `led` us away again...to chiang cho.
+                 

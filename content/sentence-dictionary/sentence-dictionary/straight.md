@@ -1,0 +1,107 @@
+---
+title: "straight in a sentence | straight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "straight"
+---
+- He kept me `straight`.
+- Keep goin' `straight`.
+- Damn `straight`, it is.
+- Damn `straight` we are.
+- Shoot `straight` ahead.
+- `Straight` for mustang.
+- We gotta go `straight`.
+- You're damn `straight`.
+- You take it `straight`?
+- You want it `straight`?
+- Are my seams `straight`?
+- I can sit up `straight`.
+- I shoot `straight` pool.
+- It's noon `straight` up.
+- Real `straight`, frugal.
+- Stand him up `straight`.
+- `Straight` to the point.
+- We'll set it `straight`.
+- You got that `straight`?
+- 100 feet `straight` down.
+- Give it to me `straight`.
+- He went `straight` to it.
+- `Straight` to the canyon.
+- Get your story `straight`.
+- I'll...take it `straight`.
+- Is not a `straight` up no.
+- It's `straight` economics.
+- I want `straight` answers.
+- Lemme get this `straight`.
+- Let me set you `straight`.
+- Stand up `straight`, girl.
+- Story of yours `straight`.
+- `Straight` ahead and left.
+- Your teeth are `straight`.
+- I'll come `straight` there.
+- Let me get this `straight`.
+- Shut up and fly `straight`!
+- `Straight` for the jugular.
+- Can you keep sam `straight`?
+- Just stare `straight` ahead.
+- Just `straight` to the boat.
+- `Straight` into will's room.
+- `Straight` out to his house.
+- `Straight` shot up the hill.
+- Yeah, nine years `straight`.
+- You can't sit up `straight`.
+- Can you still see `straight`?
+- Get your thinking `straight`.
+- Keep your margins `straight`.
+- So let's get this `straight`.
+- You can't come `straight` in.
+- You decided to be `straight`?
+- Five stories, `straight` down.
+- Help keep his head `straight`.
+- It's coming `straight` for us.
+- It's hard to think `straight`.
+- So let me get this `straight`.
+- Thirty-five, still `straight`.
+- We brought it `straight` here.
+- $100 minimum, `straight` poker.
+- Drive `straight` down to bixby.
+- Give me a vodka, `straight` up.
+- I heard she got `straight` a's.
+- I take a `straight` 15 percent.
+- I will be with thee `straight`.
+- Let's get one thing `straight`.
+- Let's get something `straight`.
+- Now let me get this `straight`.
+- Now you make `straight` for it.
+- No, you can tell me `straight`.
+- So, let me get this `straight`.
+- `Straight` from my gun, fucker.
+- Sweetie, look at me `straight`.
+- You're not thinking `straight`.
+- Frank was... well... `straight`.
+- Help you think `straight`, yeah?
+- He's a pretty `straight`-up guy.
+- It goes `straight` to the heart.
+- I think we should go `straight`.
+- Let me get this `straight`, now.
+- Now, let me get this `straight`.
+- So... lemme get this `straight`.
+- ... `straight` from leaving you.
+- Damn `straight`, it's how i feel!
+- From the bushes `straight` ahead.
+- Get this `straight` in your head.
+- Just getting my facts `straight`.
+- Lady, let me get this `straight`.
+- Let's get things `straight`, bud.
+- Okay, let me get this `straight`.
+- Still coming `straight` and fast.
+- `Straight` from my heart, fucker.
+- `Straight` from my heart, fucker.
+- Are you giving me this `straight`?
+- Fifteen for a `straight` delivery.
+- I slept for three days `straight`.
+- I tell you `straight`: i will not!
+- Keep `straight` on this road here.
+- She is `straight` out of her tree.
+- `Straight` talk only in this room.
+                 

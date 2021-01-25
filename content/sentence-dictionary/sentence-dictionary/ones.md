@@ -1,0 +1,107 @@
+---
+title: "ones in a sentence | ones example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ones"
+---
+- Not the `ones` i'm at.
+- Big `ones`, small `ones`.
+- Dropped two big `ones`.
+- Not unnecessary `ones`.
+- Only the stupid `ones`.
+- The fat `ones` in silk?
+- The `ones` she painted.
+- Well publicized `ones`.
+- White and brown `ones`.
+- Four, nice, deep `ones`.
+- I hate the weird `ones`.
+- Not treating new `ones`.
+- The new `ones` are fine.
+- They're all good `ones`.
+- Those are the `ones` ...
+- All the `ones` he killed.
+- Don't eat the red `ones`.
+- I know which `ones` will.
+- Yeah, all the big `ones`.
+- I've got three big `ones`.
+- Not the `ones` she bought.
+- There, them stripy `ones`.
+- Which `ones` we can smoke?
+- You owe me six big `ones`.
+- Just `ones` this beautiful.
+- The `ones` behind my house?
+- The others, the old `ones`?
+- They ain't the only `ones`.
+- They're pretty good `ones`.
+- And swallows fresh `ones`.
+- Aren't we the chatty `ones`.
+- No, i mean the `ones` there.
+- Stop focusing on the `ones`.
+- The great `ones` ride alone!
+- All the `ones` who say "help.
+- Couldn't get the last `ones`.
+- Good `ones`, yes, mr vereker.
+- I can't find any full `ones`.
+- I don't watch the new `ones`.
+- I'll buy you some new `ones`.
+- None of the important `ones`.
+- Six bad `ones` in mrs. leeds.
+- The `ones` in this town, yes!
+- Trained and untrained `ones`.
+- You mean the `ones` you pity.
+- Even the `ones` that eat fire?
+- Not the `ones` that were lost.
+- Probably all the wrong `ones`.
+- The leader of the dark `ones`?
+- They're the `ones` doing this.
+- We're the `ones` being hunted.
+- Are the `ones` that work there.
+- Book the good `ones` for where?
+- I found some half empty `ones`.
+- The `ones` in the box of files.
+- They got plenty of good `ones`.
+- Top five side one track `ones`.
+- We're not the `ones` in charge.
+- So who are the two lucky `ones`?
+- The best `ones` always copy mac.
+- The other two -- the new `ones`.
+- This town's full o' live `ones`.
+- We are the `ones` who bump back.
+- We're the `ones` who get killed.
+- You can buy new `ones` tomorrow.
+- Replace them with new `ones`.
+- Get nothing but `ones` and fives.
+- I just come in on the big `ones`.
+- Less hook us a couple big `ones`.
+- Salesmen and cops are the `ones`.
+- The older `ones`, they were okay.
+- The `ones` that are left, anyway.
+- You are one of the strong `ones`.
+- You got sign from the old `ones`.
+- The old `ones` were much spookier.
+- Even the `ones` who didn't make it.
+- Even the scary `ones`... just help.
+- How about the `ones` on that shelf?
+- ...no real `ones`... but there are.
+- The paper `ones` get soggy so fast.
+- They're the `ones` who approved it.
+- No, all the good `ones` are married.
+- Send two more of your old `ones` up.
+- We're the `ones` who need more time.
+- Why are there so many failed `ones`?
+- You always hurt the `ones` you love.
+- You like the wild `ones`, don't you?
+- But i'll never forget the old `ones`.
+- General, i've heard some wild `ones`.
+- Here, i found some half-empty `ones`.
+- She left with some bikers big `ones`.
+- The `ones` who brought you home, sir.
+- The survival of the `ones` they love.
+- You're the `ones` thor told us about.
+- But i take little `ones` all the time.
+- The sick `ones` are out there, friend.
+- They're the only `ones` i have of her.
+- Those umbrellas, the `ones` that mist.
+- Too bad you and i are the only `ones`.
+- And the listless `ones` do the binding.
+                 

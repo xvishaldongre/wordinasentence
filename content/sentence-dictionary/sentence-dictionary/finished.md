@@ -1,0 +1,107 @@
+---
+title: "finished in a sentence | finished example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "finished"
+---
+- `Finished` with these?
+- I `finished` my story.
+- I'm almost `finished`.
+- I'm `finished` trying.
+- It's over, `finished`.
+- That's all `finished`.
+- We're `finished` here.
+- I `finished` the boats.
+- I'm not `finished` yet.
+- Is this `finished` yet?
+- Oh, i'm not `finished`.
+- It's not `finished`!
+- He never `finished` her.
+- I'm `finished` at three.
+- I'm `finished` with her.
+- I'm `finished` with you.
+- It's not `finished` yet.
+- You're `finished`, jack.
+- Are you quite `finished`?
+- `Finished` or unfinished?
+- `Finished` your estimate?
+- He `finished` awhile ago.
+- We're not `finished` yet.
+- It'll never be `finished`.
+- The session is `finished`.
+- We're not `finished` here.
+- Are you `finished` surfing?
+- Are you `finished` with me?
+- I never `finished` college.
+- I've bloody `finished` you.
+- Just about `finished`, sir.
+- Just `finished` one script.
+- Looks like he's `finished`.
+- Okay, rick, all `finished`.
+- Stacy and i are `finished`.
+- The unit wasn't `finished`.
+- You're not `finished` here?
+- I'm `finished` with swayzak.
+- They just `finished` supper.
+- It's `finished` with now.
+- Still think we're `finished`?
+- We've just `finished`, pauly.
+- "and they have not `finished`.
+- He `finished` it winter break.
+- He's never `finished` one yet.
+- I haven't `finished` my drink.
+- I have to get this `finished`.
+- It's not `finished` - claudia!
+- She's `finished`, you hear me?
+- The book is almost `finished`.
+- The ship's good as `finished`.
+- Wait, i'm not `finished` yet.
+- You've `finished` the streets?
+- [enola] i'm not `finished` yet!
+- I'm `finished` with that shite.
+- I'm just about `finished`, sir.
+- ...i'm not `finished` yet, mom.
+- We are dead -- it's `finished`.
+- I `finished` all the interviews.
+- I mean, really, it's `finished`.
+- I never even `finished` college.
+- I've `finished` for the evening.
+- Let's get this party `finished`!
+- Meyer just `finished` the books.
+- This conversation is `finished`.
+- What time do you get `finished`?
+- You'll talk when i'm `finished`!
+- Are you quite `finished` with us?
+- Finish her, or you're `finished`.
+- Hold it -- italy just `finished`.
+- I never `finished` school myself.
+- It's over, `finished`, done with!
+- I was too old when it `finished`.
+- Join me once you have `finished`.
+- Nope... never `finished` one yet.
+- You haven't `finished` your beer.
+- You know i `finished` that model.
+- Have you `finished` those reports?
+- Have you `finished` your homework?
+- I haven't `finished` bidding yet.
+- I've almost `finished` the rocker.
+- I won't know till it's `finished`.
+- 'scuse me, just `finished` dinner.
+- Why haven't they `finished` us?...
+- I'm not `finished` - i loved greta.
+- Not before i'm `finished` with you.
+- Only he ain't quite `finished` yet.
+- You `finished` your shower already?
+- I haven't `finished` reading it yet.
+- It's over, `finished` and done with.
+- Sire, the whole opera is `finished`.
+- You're a horse that `finished` last.
+- You said the place isn't `finished`.
+- Call me when you're `finished`, okay?
+- Don't you even see -- i'm `finished`.
+- Be `finished` in four months time.
+- So you're practically `finished`, huh?
+- The revolution would be `finished`.
+- I don't care if you haven't `finished`.
+- I haven't `finished` the first chapter.
+                 

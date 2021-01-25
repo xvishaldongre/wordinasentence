@@ -1,0 +1,107 @@
+---
+title: "Finn in a sentence | Finn example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Finn"
+---
+- `Finn`, don't do this.
+- She needs you, `finn`.
+- You hear that, `finn`?
+- You know, with `finn`.
+- But that wasn't `finn`.
+- `Finn`, you can't move.
+- He wants `finn` to die.
+- Lincoln: with `finn`.
+- All they want is `finn`.
+- `Finn` always does that.
+- `Finn`: come on, clarke.
+- `Finn`: could be more.
+- `Finn`, don't touch her.
+- `Finn`, is he breathing?
+- `Finn`: shut the gate!
+- He's letting `finn` die.
+- Jackson, where's `finn`?
+- `Finn`, we have one bomb.
+- `Finn`: you were right.
+- Put down the gun, `finn`.
+- This would've been `finn`.
+- `Finn`: hurry up, murphy.
+- `Finn`, what is this place?
+- They're waiting for `finn`.
+- You didn't see him, `finn`.
+- Does `finn` know about this?
+- `Finn`: i’d say it worked.
+- `Finn`: seal any openings.
+- I killed `finn` for nothing.
+- So what the fuck's a `finn`?
+- We have to give them `finn`.
+- I just wanted to save `finn`.
+- Man: `finn`, we're leaving.
+- Probably a swede or a `finn`.
+- Where are `finn` and bellamy?
+- Clarke: `finn`, do not move.
+- `Finn` killed innocent people.
+- This isn't a grounder, `finn`.
+- _ `finn`, clarke is a big girl.
+- `Finn`: one of them’s coming.
+- `Finn`, they’re already here.
+- If you don't act now... `finn`?
+- I'll sleep when we find `finn`.
+- _ i'm not keeping busy, `finn`.
+- That doesn't sound like `finn`.
+- Clarke's with `finn`, isn't she?
+- `Finn`: lincoln saved my life.
+- `Finn`: what the hell is that?
+- `Finn` will take you to lincoln.
+- Clarke and `finn` can't save you.
+- `Finn`... - i'm in love with you.
+- Get, get, get... `finn`, don’t.
+- I don't think it matters, `finn`.
+- It's gonna be night soon, `finn`.
+- We all have battle scars, `finn`.
+- I gave it to `finn` to save raven.
+- She used to be, `finn`, come on.
+- There's no perfect answer, `finn`.
+- All this time, you knew `finn` aah!
+- Art supplies in the bunker, `finn`.
+- Bell, what about clarke and `finn`?
+- Clarke and `finn` know these woods.
+- Deliver me the one you call `finn`.
+- Everyone calls me jimmy the `finn`.
+- `Finn`, do you see it over there?
+- `Finn`, that's not a shooting star.
+- For your mom or `finn`, yeah, what?
+- I know you're worried about `finn`.
+- `Finn`: is can’t be the only way.
+- Oh, `finn`, you're joining the band?
+- These people are scavengers, `finn`.
+- They came there to kill you, `finn`.
+- With `finn` around, now we know why.
+- I can't believe they let `finn` come.
+- What i did to `finn` he says it is...
+- Complete the sweep how's `finn` doing?
+- `Finn`: ere’s an ocean to the east.
+- `Finn`: what the hell are you doing?
+- If her people know she has it, `finn`!
+- `Finn` should've been right behind you.
+- I thought you grew out of betty `finn`.
+- I've never been with anyone but `finn`.
+- There are grounders everywhere, `finn`.
+- Tell me `finn` didn't make this for you.
+- What happened to `finn` is not my fault.
+- `Finn`... like, i like laughing at losers.
+- `Finn` wasn't the only one at the village.
+- He was ready to throw `finn` out the gate.
+- Or `finn` would hide behind these walls?
+- You weren't reading huckleberry `finn`.
+- `Finn` doesn't need to know, will, come on.
+- You were playing barbies with betty `finn`!
+- `Finn`: hey, you know what i'd like to know?
+- `Finn` wouldn't be in there dying right now.
+- When he goes for me, monroe goes for `finn`.
+- Don't tell me `finn` finally - thank you.
+- As soon as the fighting starts, `finn`, wait.
+- `Finn` collins... death by clarke, she can't.
+- `Finn`, there's a splinter in your left foot.
+- So, is there a safe way `finn`, let’s move!
+                 

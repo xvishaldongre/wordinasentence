@@ -1,0 +1,107 @@
+---
+title: "license in a sentence | license example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "license"
+---
+- Pick up the `license`.
+- Could lose my `license`.
+- Did he have a `license`?
+- Florida `license` plate.
+- Ast to see his `license`.
+- I just want my `license`.
+- May i see your `license`.
+- May i see your `license`?
+- I could lose my `license`.
+- I don't have my `license`.
+- I just seen the `license`.
+- His `license` or something?
+- Moe has a liquor `license`.
+- You don't have a `license`.
+- It's only for the `license`.
+- Get a new driver's `license`?
+- Check your driver's `license`.
+- Did you get a `license` plate?
+- Here's her driver's `license`.
+- My driver's `license` expired.
+- You switched `license` plates?
+- Did ya get the `license` number?
+- Wanna see my driver's `license`?
+- Let's have your `license`, mister.
+- `License` and registration please.
+- Could i see your `license`, please?
+- Just give me the `license`, please.
+- You got a pilot's `license`, marty?
+- John, he's got my driver's `license`.
+- No `license`, no prints, no warrants.
+- That's my `license` and registration.
+- You think he got my `license` plates?
+- I just got my `license` two weeks ago.
+- Oh, they should revoke your `license`.
+- You have a valid drivers `license`...?
+- ...driver's `license`, social security.
+- I don't have any `license` for him yet.
+- Now let's take a look at your `license`.
+- `License` as a commercial flight officer.
+- They want your driver's `license` number.
+- ...a driver's `license`, things like that?
+- Plus the fucking driver's `license`, frank.
+- They was takin' down the `license` numbers.
+- You don't have a driver's `license`, james?
+- I wrote the `license` number in my notebook.
+- We need you to make kiddie `license` plates.
+- You wanna let me see your `license`, please?
+- I've... may i see your `license`, please?
+- Driver's `license` -- social security number?
+- Lampert's the name on the marriage `license`.
+- You're still trying to -- marriage `license`!
+- 'cause i-i have - i have my-my `license` here.
+- But the photo on his `license` looked familiar.
+- How many points you got left on your `license`?
+- The `license`, which is now in klingman's name.
+- You drive a black bmw, `license` plate srk1339?
+- Your brother should have his `license` revoked.
+- Listen, you can't broadcast without a `license`.
+- ...and a `license` to kill... you are in trouble.
+- ...but if you do, your `license` will be revoked.
+- Can i see your `license` and registration please?
+- I've had my `license` taken away in three states.
+- The more `license` i allow you, the more you take.
+- Lady, is it true you're driving without a `license`?
+- No, he tossed the wallet, but he kept the `license`.
+- Sure... my `license` expired, let's get out of here.
+- Do you think you have free `license` to be insulting?
+- I think that's what it says on my driver's `license`.
+- I was sent up for practicing law without a `license`.
+- If you had a `license`, i bet i'd have seen it by now.
+- I mean did they get your `license` number or anything?
+- The gaming commission would never give me a `license`.
+- You don't have to have a `license` to work in a casino.
+- Now you're gonna show me some kind of driver's `license`?
+- Speaking of which ... you run that `license` plate for me?
+- The roof of the `license`-plate factory needs resurfacing.
+- The significance of "robin 1" on magnum's `license` plate?
+- Go downtown and get a `license` and get married right away!
+- I got, uh, i got a `license` but i have too much hostility.
+- He ain't allowed by law to contrack men without a `license`.
+- He took my driver's `license`, john, he knows where we live.
+- Someone gets a `license` number and it all leads back to you.
+- I'll get you a `license` plate frame saying you speak english?
+- To celebrate, the `license` approval for our air-charter firm.
+- Now you want to blame your fuckin' `license` on me, is that it?
+- You haven't driven in 40 years, you ain't even got a `license`.
+- He's copying down my `license` -- for all the good it'll do him.
+- Bob, are you working on revoking the posts's television `license`?
+- I know guys workin' there for thirty years, don't have a `license`.
+- No, i don't wanna come - yeah, forget about your fuckin' `license`.
+- With a milk pail in one hand and a marriage `license` in the other.
+- You just picked up three penalty points on your driver's `license`.
+- Luckily, i had my driver's `license` or i wouldn't even know my name.
+- Don't you mean "don't need no liquor `license` not taken away from me"?
+- I plant my own flag out here, you ain't gonna need a fuckin' `license`.
+- No, but my dog he's a got millions of them -- have you got a `license`?
+- Thanks for reminding me.. you have nine points left on your `license`..
+- When elliot was reaching for his `license` -- what makes you say that?
+- I needed a pilot's `license` to take the job here, so i got one in six weeks.
+- It's all over, i'm gonna tell you, it's all over, if i don't get that `license`.
+                 

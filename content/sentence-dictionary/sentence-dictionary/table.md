@@ -1,0 +1,107 @@
+---
+title: "table in a sentence | table example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "table"
+---
+- It's not your `table`.
+- It was on the `table`.
+- Red deer `table`, ray.
+- At the `table` of life.
+- Get it off the `table`.
+- Put him on the `table`.
+- Come sit at the `table`.
+- Dinner's on the `table`.
+- _ i'll prep the `table`.
+- I love this `table` too.
+- Put food on the `table`?
+- Put them on the `table`.
+- Your usual `table`, sir?
+- Cards are on the `table`.
+- It's on the `table`, dad.
+- It's the place's `table`.
+- Red deer `table`, walter.
+- That's the press `table`.
+- They walk to the `table`.
+- Could we moovf to `table`?
+- Get away from the `table`.
+- Put him under the `table`!
+- The sodding water `table`.
+- With a lace `table` cloth?
+- I was dancing on a `table`.
+- Put her arm on the `table`.
+- Put the gun on the `table`.
+- "strap her to the `table`."
+- The food is on the `table`.
+- You want it at the `table`?
+- Eat it, it's on the `table`.
+- I've got jews at my `table`.
+- See that `table` over there?
+- Shut up and set the `table`.
+- The `table` was set for one.
+- Your food is on the `table`.
+- It's all on the `table` here.
+- It was on a `table` in there.
+- You people go grab a `table`.
+- I got my money on the `table`.
+- It's all on the `table`, here.
+- Oh, and `table`'s set for six.
+- Place your arm on the `table`.
+- Take that one off the `table`.
+- The best `table` in the house.
+- You lay it out on the `table`.
+- How about if i set the `table`?
+- I could've gotten us a `table`.
+- Put your guns on the `table`...
+- Come on, get her on the `table`.
+- Or a nice little corner `table`?
+- Or have perfect `table` manners.
+- Who was sitting at this `table`?
+- You heard me: leave the `table`!
+- Ben: god, even the `table`'s hot.
+- It's on the `table` by the phone.
+- Write a book about `table` linen?
+- Your eames `table` is incredible.
+- Get'chu at that `table` up yonder.
+- I'll leave it on the `table` here.
+- Is he putting food on the `table`?
+- I think you'll enjoy this `table`.
+- Please have a seat on the `table`.
+- What the hell is red deer `table`?
+- You have to lay it on the `table`.
+- Don't i put food on you're `table`?
+- Here, take this out to the `table`.
+- I'll find your `table` in a moment.
+- Pancakes are on the `table`, homie.
+- We can get this out on the `table`.
+- Your mail's on the kitchen `table`.
+- Alex walks to `table` and undresses.
+- ......come on, let's grab a `table`.
+- It's on the `table` where i left it!
+- Lay her on the `table` and leave us.
+- Oh, look, the `table`'s set for six.
+- The `table` was even set for dinner.
+- All her chips are on the `table` now.
+- Could we have a `table` close to him?
+- Put the antidote on the `table`, lao.
+- What's on the `table` for discussion?
+- I don't wear it at the dinner `table`.
+- I'll bring your food to their `table`.
+- The gloves on the `table` are for you.
+- We'll save you a place at our `table`.
+- Your whole arm on the `table`, miriam.
+- You see that bird at the faro `table`?
+- Suppose they take the `table` away?
+- Betting `table` twelve off the paddock.
+- I've laid out a paint `table` for them.
+- Rick, i'll put my cards on the `table`.
+- This little `table` is one heavy bitch.
+- What d'you mean, take the `table` away?
+- I left money on the kitchen `table`.
+- Can you manage a `table` near the floor?
+- Ooooh, now the cards are on the `table`.
+- Then you should go back to your `table`.
+- He puts food on your `table` and on mine!
+- I'm sorry, i got hot at the crap `table`.
+- It's from satchel mouth at `table` seven.
+                 

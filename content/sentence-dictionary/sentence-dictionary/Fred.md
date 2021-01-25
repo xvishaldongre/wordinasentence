@@ -1,0 +1,68 @@
+---
+title: "Fred in a sentence | Fred example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Fred"
+---
+- Forget `fred` krueger.
+- `Fred` krueger did it.
+- `Fred` krueger's dead.
+- Riddle me this, `fred`.
+- `Fred`'s no good, jason.
+- I like to laugh, `fred`.
+- Anyway, they like `fred`.
+- The boy is happy, `fred`.
+- Feel bad about ol' `fred`.
+- That's not `fred` madison?
+- `Fred` krueger worked here.
+- Old `fred` wasn't up to it.
+- You can rely on me, `fred`.
+- You mean `fred` and ginger?
+- None of my business, `fred`.
+- Pick up a burger for `fred`.
+- Take it away, `fred` wilson!
+- As an unmuddied lake, `fred`.
+- Just tell 'em `fred` sent you.
+- I hereby name this star `fred`.
+- `Fred`, i don't know what to say.
+- I ain't got time, `fred`, honest.
+- `Fred` astaire and what�s her face!
+- I'm just a glorified extra, `fred`.
+- But we're going to hang him, `fred`.
+- You know, `fred`, they sell tickets.
+- Your pop's `fred` dean construction.
+- You saw what happened to `fred` white.
+- It was not `fred` madison in that cell.
+- All right, gwen, alex, `fred`, follow me.
+- Believe me, man; `fred`'ll be no problem.
+- Look kind o' natural, don't they, `fred`?
+- `Fred` can call millie and - that's right!
+- Hopkins can't drink your bathwater `fred`.
+- `Fred`, i worked summer stock with hopkins.
+- Damn, `fred`, you can't give away all those.
+- My vocal cords are fine, but `fred`'s ain't.
+- Wyatt, meet `fred` white, he's town marshal.
+- You ever hear of a man named `fred` krueger?
+- ...`fred`... why's it so goddamn hot out here?
+- I'm going to call `fred` brinkmeyer right now.
+- Where's ... what's-his-name -- `fred` -- susan.
+- If there was any way out... our families, `fred`.
+- By the way, how's `fred` adkins, your old partner?
+- Well my cousin `fred` met this dame from back east.
+- `Fred` krueger did it, daddy, and only i can get him.
+- That's when she started talking about `fred` krueger.
+- `Fred`, i must confess you were a wonderful appetizer.
+- How the hell is `fred` supposed to project a hologram?
+- `Fred`, you and guy need to get that air valve back on.
+- Mom, i want to know what you know about `fred` krueger.
+- I'll think on it... never mind, `fred`.... a hologram...
+- Jack, isn't that `fred` bliffert over there in the blue turtleneck?
+- I count on them for a little bit of stew meat...thank you, `fred`.
+- A cell that was supposed to be occupied by an inmate named `fred` madison.
+- Once we're both back home, perhaps we can help each other out ... `fred`.
+- Wait, `fred`, what about your thing, you know... "digitize me, sergeant chen!"
+- Dude, if it were dancing the way `fred` astaire did it, i'd give it my best shot.
+- She's this frail little thing, and `fred`, i mean `fred` flintstone is this big guy.
+- "i'm sure he's happier here" undercutting my friends, bill mattel and `fred` hasbro.
+- I'm going to see what else i can find out about mr. `fred` krueger where are you going?
+                 

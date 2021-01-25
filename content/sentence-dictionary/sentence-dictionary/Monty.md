@@ -1,0 +1,107 @@
+---
+title: "Monty in a sentence | Monty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Monty"
+---
+- Have you seen `monty`?
+- Miller set `monty` up.
+- `Monty`'s in the shot.
+- `Monty` strikes again!
+- What's wrong, `monty`?
+- What would `monty` do?
+- `Monty` might melt her.
+- `Monty`, where's raven?
+- `Monty`, you're my son.
+- Murphy, `monty`, raven?
+- One of them is `monty`.
+- Clarke left us, `monty`.
+- I'm afraid not, `monty`.
+- `Monty` made sure of it.
+- `Monty`: they're coming.
+- `Monty`, you're with me.
+- Take `monty` and hannah.
+- We'll get this, `monty`.
+- `Monty`, bellamy's right.
+- `Monty`, can you hear me?
+- `Monty`, get out of here.
+- `Monty`, get the cameras.
+- `Monty`, where's jackson?
+- `Monty`... - what happens?
+- She's living with `monty`.
+- ♪ you see me... ♪ `monty`!
+- But everyone dies, `monty`.
+- How's my boy `monty` doing?
+- _ `monty`, can you hear me?
+- `Monty`... - it wasn't her.
+- `Monty`, i've been waiting.
+- `Monty`: what do you think?
+- Octavia: `monty`, get up!
+- You're all set, `monty`.
+- I'll get `monty` and harper.
+- `Monty`, look me in the eye.
+- `Monty`, now's not the time.
+- `Monty`, we're heading home.
+- `Monty`, what are you doing?
+- `Monty`, you're still there?
+- That hannah gave to `monty`.
+- That hannah gave to `monty`.
+- Go to your memorial, `monty`.
+- Hey, `monty`... listen to me.
+- `Monty`... and it's festering.
+- `Monty`'s good with computers.
+- `Monty`... you're gonna be ok.
+- That's where `monty` comes in.
+- `Monty`: just keep him talking.
+- `Monty` would know what to say.
+- Damn it, `monty`, pay attention.
+- He didn't kill `monty` or raven.
+- If it's `monty`, i can stop him.
+- `Monty`, my brother's out there.
+- `Monty`, where the hell are you?
+- `Monty` would be ashamed of you.
+- What's `monty`'s favorite color?
+- Hey... where the hell is `monty`?
+- It's better than `monty`'s algae.
+- That is so sad -- relax, `monty`.
+- Two so far... `monty` and harper.
+- Your father died a hero, `monty`.
+- I know it sucks, `monty`, it's me.
+- I never want to hurt you, `monty`.
+- `Monty`, what... mon... - come on.
+- Oh, it wasn't your fault, `monty`.
+- What do you want from me, `monty`?
+- Where's jasper, `monty`, and maya?
+- But, `monty`, you misunderstood me.
+- `Monty` and harper are coming, too?
+- `Monty`: is this where we're going?
+- `Monty` needed a working wristband.
+- `Monty`, you do not belong in here.
+- As `monty` would say, green is good.
+- `Monty`, can you handle the fueling?
+- "`monty`, i know you're an optimist.
+- `Monty` taught him how to hack, too.
+- Your mother would be proud, `monty`.
+- I'm jordan, `monty` and harper's son.
+- `Monty` can't hack the eye from here.
+- Tell me how you really feel, `monty`.
+- We'll get it open, won't we, `monty`?
+- We lost `monty` and harper 3 days ago.
+- Is that what `monty` would have wanted?
+- `Monty`... hey, it's... then so are we.
+- You should've seen luna's rig, `monty`.
+- Does your mom know you're here, `monty`?
+- `Monty`'s algae is working, we heard it.
+- You work for a drug dealer too, `monty`.
+- And who knows more about `monty` than you?
+- `Monty` says it's easy to use i just, i...
+- `Monty`'s with the other group on level 3.
+- The farmers won't save the world, `monty`.
+- We'll need a hostage to trade for `monty`.
+- `Monty`: what happens when alie is updated?
+- We’re going aﬅer clarke, finn, and `monty`.
+- So that this body would live `monty`, come on.
+- You still haven't answered `monty`'s question.
+- You still haven't answered `monty`'s question.
+- `Monty`... ♪ walking in this high ♪ she's dead.
+                 

@@ -1,0 +1,107 @@
+---
+title: "paid in a sentence | paid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "paid"
+---
+- But `paid` for by moe.
+- I wants to get `paid`.
+- She got <u>`paid`</u>.
+- So you `paid` the guy?
+- If she `paid` you well?
+- I would've `paid` more.
+- And grunting `paid` off.
+- Do you get `paid` a lot?
+- He was `paid` to say so!
+- I got what i `paid` for.
+- I just don't get `paid`.
+- I'm about to get `paid`.
+- I pay you, i `paid` you.
+- You will be `paid` well.
+- I got `paid` by the word!
+- I just `paid` out twenty.
+- I was `paid` to be there.
+- No -- the rent in `paid`.
+- `Paid` for my own ticket.
+- I don't want to be `paid`.
+- I have `paid` the penalty.
+- I `paid` off the mortgage!
+- We don't get `paid` today.
+- You `paid` for my flowers?
+- You `paid` off the doctor.
+- He had the cops `paid` off.
+- I mean, he never `paid` me.
+- It's what i'm `paid` to do.
+- Look, you `paid` your dues.
+- Mostly, i got `paid` a lot.
+- The opera has never `paid`.
+- This minibar is `paid` for.
+- You haven't `paid` the cab.
+- All that reading `paid` off.
+- How much would i get `paid`?
+- Jimi gets `paid` either way.
+- She `paid` with a visa card.
+- You don�t get `paid` at all.
+- That's what i get `paid` for.
+- That's what we're `paid` for.
+- Well, when do you get `paid`?
+- When do we get `paid` off...?
+- Who `paid` you to see me off?
+- You want to be `paid` for ...
+- Getting `paid` for doing shit.
+- It's `paid` for by first bank.
+- I was `paid` well for my work.
+- That's what you `paid` for it.
+- We `paid` attention in school.
+- We're not getting `paid` then.
+- Another client `paid` for that.
+- Hell, i�ve never `paid` for it.
+- I `paid` for it and everything.
+- I would like to get `paid` now.
+- When you're `paid` to be there?
+- You were `paid` to take me out!
+- I ain't `paid` for that neither.
+- I `paid` for that and then some.
+- I `paid` for those guitar cases.
+- We `paid` him a million dollars.
+- We're gonna get `paid` to score.
+- Are you getting `paid`, mr. jung?
+- I never `paid` for it in my life.
+- Tara is `paid` to worry about me.
+- Well, i `paid` a hell of a price.
+- Well, i've `paid` for the ticket.
+- You're not `paid` to be a canary.
+- So, uh, am i still getting `paid`?
+- We already `paid` for the tickets.
+- You `paid` him out in 25s not 20s.
+- Don't worry, you already `paid` me.
+- He said he had the cops `paid` off.
+- How much do you usually get `paid`?
+- I can't comment until i get `paid`.
+- I `paid` extra for it to feel pain.
+- I thought you were a `paid` intern.
+- Not because you're being `paid` to.
+- What if we `paid` you a fair price?
+- Wouldn't go there if you `paid` me.
+- You `paid` me for a lot of reasons.
+- Do we still get `paid` for the week?
+- I knew i wasn't going to get `paid`.
+- I `paid` for half the fuckin drinks!
+- I `paid` you to help me get closure.
+- I think you got what you `paid` for.
+- Looks like we're not getting `paid`.
+- Maybe it wasn't her that `paid` him.
+- She `paid` attention the first time.
+- Finish the job you were `paid` to do.
+- I've never actually `paid` for a car.
+- Well, that's why they `paid` so well.
+- We `paid` 7.2 million dollars for it.
+- You haven't `paid` for these ladders.
+- You're being `paid` to be here today?
+- I'm pretty sure i `paid` for that.
+- 'cause he `paid` 60 bucks to watch it.
+- Giving lectures she's well-`paid` for.
+- I only get `paid` if they're all gone.
+- Weren't you `paid` to get out of town?
+- You `paid` $50,000 for your character?
+                 

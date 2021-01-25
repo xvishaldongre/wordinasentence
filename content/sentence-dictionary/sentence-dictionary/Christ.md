@@ -1,0 +1,107 @@
+---
+title: "Christ in a sentence | Christ example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Christ"
+---
+- `Christ`, it's ho-jon!
+- `Christ`, look at her.
+- `Christ`, look at you.
+- `Christ`, what a mess.
+- I'm the anti-`christ`.
+- Jesus `christ`, bodhi!
+- Jesus `christ`, harry.
+- Jesus `christ`, jerry.
+- Jesus `christ`, joyce.
+- Jesus `christ`, miles.
+- Jesus `christ`, walsh.
+- Oh, jesus h. `christ`!
+- Yeah, jesus `christ` !
+- You... jesus `christ`!
+- Ah, `christ` fantastic.
+- Cassie, thank `christ`!
+- `Christ`, set her free.
+- `Christ`, that's right.
+- `Christ`, what a night!
+- `Christ`, you're a cop.
+- Jesus `christ`, castor.
+- Jesus `christ`, violet!
+- Jesus fucking `christ`!
+- Jesus fucking `christ`.
+- `Christ`, kid, look out!
+- Jesus `christ`, anthony.
+- Oh, `christ`, it's true.
+- Oh `christ`... poor dog.
+- Oh, for `christ`'s sake!
+- Oh, for `christ`'s sake.
+- Oh, jesus `christ`, mom!
+- Thank `christ` for that.
+- `Christ`, ain't they all.
+- `Christ`... keep driving.
+- For `christ`'s sake, why?
+- I'm `christ` he's `christ`?
+- Jesus `christ`, grab her!
+- Jesus jumped-up `christ`!
+- Oh, `christ`, sweetheart.
+- Pop, for `christ`'s sake!
+- So `christ`, call her up.
+- You get the `christ` out!
+- `Christ` almighty, george.
+- For `christ`'s sake, john!
+- I'm not the anti-`christ`.
+- Jake, for `christ`'s sake.
+- Jesus `christ`, what next?
+- Take it for `christ` sake.
+- Through `christ` our lord.
+- `Christ` it was all keaton.
+- `Christ`, who's gonna know?
+- For `christ` sake, get 'em!
+- Jesus h. `christ`, i can't!
+- Oh, jesus `christ`, george.
+- Sally, for `christ`'s sake.
+- What the `christ` was that?
+- `Christ`, can't you hear it?
+- `Christ`, i didn't kill him.
+- `Christ`, i'm getting bored.
+- `Christ`, it's oil of tansy!
+- `Christ`... shu is innocent.
+- For `christ`'s sake get him!
+- For `christ`'s sake... john!
+- For `christ`'s sake, violet!
+- I mean, jesus `christ`, bob.
+- Jesus `christ` you're right.
+- Prophesy to us, oh `christ`!
+- Right... `christ` i'm tired.
+- Walter, for `christ`'s sake!
+- Also our lord jesus `christ`.
+- For `christ`'s sake, why not?
+- Jesus `christ` dewey help me!
+- Jesus `christ` lady... noooo!
+- Jesus `christ` -- what is it?
+- Well...wow... jesus `christ`.
+- Where the `christ` you going?
+- `Christ`, viktor, look around.
+- Her... jesus fucking `christ`.
+- Hurry up, for `christ`'s sake!
+- Jesus `christ` on the cross...
+- Jesus `christ`, say something.
+- Jesus fucking `christ`, diego.
+- Shoot it for `christ`'s sakes!
+- By `christ`, you -- i know you.
+- `Christ`, i don't believe this!
+- `Christ`, i don't believe this.
+- `Christ`, i know how it sounds.
+- `Christ`, i know snoopy miller.
+- He's waiting... jesus `christ`!
+- I'm sorry, `christ`, i'm sorry!
+- Jesus `christ`, he's a natural!
+- My own personal jesus `christ`!
+- So, on to the life of `christ`!
+- `Christ` we're partners in this!
+- `Christ`, you know it's crazy...
+- Jesus `christ`, is she for real?
+- Oh `christ`, i'm the _last one_!
+- Oh `christ`, she got to you too?
+- Thank `christ` we got a witness.
+- You just did, for `christ` sake.
+                 

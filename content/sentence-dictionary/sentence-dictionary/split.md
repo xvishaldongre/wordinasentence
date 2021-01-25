@@ -1,0 +1,107 @@
+---
+title: "split in a sentence | split example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "split"
+---
+- Everybody, `split` up!
+- Okay, we'll `split` up.
+- `Split` personality ...
+- You want to `split` up?
+- Are we gonna `split` up?
+- I'm sorry we `split` up.
+- Your parents `split` up.
+- `Split` it half and half.
+- `Split` town for a while.
+- We better `split` 'em up.
+- I couldn�t `split` you up.
+- So we're gonna `split` up.
+- We'll `split` up the week.
+- You `split` the team, man.
+- Actually i have to `split`.
+- Why don't you just `split`?
+- Why do you think i `split`?
+- Is that when you `split` up?
+- It's `split` the government.
+- Okay, what if we `split` it?
+- This is where we `split` up.
+- I can't, i've got to `split`.
+- Maybe we should `split` up...
+- Tony: sorry, i gotta `split`.
+- We shouldn't have `split` up.
+- We're `split` down the middle.
+- You take pictures and `split`.
+- Head `split` open like a melon.
+- We'll `split` into three units.
+- We'll `split` this place 50/50.
+- You'll have to `split` the fee.
+- As i recall we `split` the check.
+- He was so traumatized he `split`.
+- I wouldn't get ten... ...`split`.
+- Maybe they gave up, `split` town.
+- No-- are you gonna `split` hairs?
+- When he came back they'd `split`.
+- Maybe we should `split` it up now.
+- My old man `split` along time ago.
+- You two didn't `split` up, i hope.
+- Oh, no, we `split` him fifty-fifty.
+- That's the idea -- we `split` them.
+- We `split` up to cover more ground.
+- If anyone gets `split` up, go there.
+- The good news is, `split` the check.
+- Got to `split` up, cover more ground.
+- Indra thinks it could `split` wonkru.
+- I was gonna `split` it with you guys.
+- We should `split` up, but be careful.
+- Nah, we `split` up when jenny was six.
+- You want to `split` your hernia again?
+- Eight-hundred, `split` down the middle.
+- I nearly died when we `split` the bill.
+- Sexy little `split` tail, like you say.
+- We share expenses, we `split` the time.
+- Let's `split` up and stop playing games.
+- We'd cover more ground if we `split` up.
+- A black hole of sadness and `split` ends.
+- Let's just `split` up, cover more ground.
+- `Split`-second tragedy happens every day.
+- Can't you be happy for one `split` second?
+- I'll `split` your fuckin' head open again.
+- He's `split` himself right down the middle.
+- If it sells, we'll `split` it fifty- fifty.
+- If there's no cops around, we just `split`.
+- Is that why you and your friend `split` up?
+- What -- `split` -- the dog's skull open?
+- I know i `split`, and i know how you felt...
+- I `split` 'cause he don't treat me for shit.
+- It's like birdson had a `split` personality.
+- We're supposed to take pictures and `split`.
+- Christ, my head feels like a `split` coconut.
+- How about we `split` the diff... seven-fifty.
+- Just an idea, but let's just fucking `split`.
+- They used to be partners, but they `split` up.
+- Dirty blond hair, `split` down the middle like?
+- Then we'll `split` this valley down the middle.
+- You had a seven-ten `split` in the final frame.
+- You went back to the states when we `split` up.
+- What about obsessively picking her `split` ends?
+- So, halfway down the aisle, i turned and `split`.
+- What i'm proposing is... we `split` it four ways.
+- But now everybody's `split` or got sick or busted.
+- Not enough to `split` five ways kind of a nothing?
+- So if you had a bit more energy we'd stay `split`.
+- So i sold my story to <u>ramparts</u> and `split`.
+- We'll `split` this place 50/50, well, that's good.
+- It's better to `split` up, to increase our chances.
+- Her hair doesn't have as many `split` ends at yours.
+- If i hit the stick too hard, the apple will `split`.
+- Don't make me kick-ya where the good lord `split`-ya.
+- If we `split` up, we can blend in and enter unnoticed.
+- Then she said, "i can't believe you `split` like that!
+- I could take a fishing gaff and `split` your head open.
+- She'll be waiting for you there along with your `split`.
+- I never could believe that tom was a `split` personality.
+- `Split` loads, ♪ some sweet company ♪ why did i grow you?
+- But i bet you didn't say you were going to `split` on him.
+- Here theo, it's the fazeli specialty; a seven-ten `split`.
+- I know you don't want to leave me... `split` it with what?
+                 

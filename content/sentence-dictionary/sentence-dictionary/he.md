@@ -1,0 +1,107 @@
+---
+title: "he in a sentence | he example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "he"
+---
+- A son `he` never knew.
+- A surprise, `he` said.
+- Because `he`'s guilty.
+- Because `he`'s not me!
+- Boy, was `he` burning.
+- ...but `he` found you.
+- But `he` got you here.
+- But `he` never talked.
+- But `he` sent you all.
+- But `he`'s interested!
+- But `he`'s my brother.
+- But `he`'s part of it.
+- But `he`�s a good guy.
+- But tor, `he` no talk.
+- Cal knows who `he` is.
+- Casper, where is `he`?
+- 'cause `he` hates you.
+- Cause `he` was a liar.
+- Conrad, where is `he`?
+- 'course `he`'s coming.
+- Cuz `he` was an apple?
+- Did `he` kill freddie?
+- Did `he` kill himself?
+- Did `he` or didn't `he`?
+- Did `he` say about me?
+- Did `he` say anything?
+- Did `he` used to ... ?
+- Didn't `he` force you?
+- Doctor, `he` is awake.
+- Does `he` have a name?
+- Does `he` have people?
+- Does `he` talk to you?
+- Does `he` work at all?
+- Drew, `he`'s your dog.
+- Eggs `he` asks me for.
+- Gale `he`'s got dewey!
+- God, isn't `he` great?
+- Has `he` been prepped?
+- `He` ain't really new.
+- `He` almost killed me.
+- `He` already did once.
+- `He` bragged about it.
+- `He` called me washee.
+- `He` can hear you now.
+- `He` can read italian.
+- `He` can't take us in.
+- `He` can't turn us in.
+- `He` changed the past.
+- `He` could have tried.
+- `He` couldn't take it.
+- `He` didn't come home.
+- `He` didn't join them.
+- `He` did or `he` didn't?
+- `He` dies by her side.
+- `He` doesn't even eat.
+- `He` doesn't have one.
+- `He` doesn't judge me.
+- `He` doesn't know you.
+- `He` doesn't like you.
+- `He` doesn't remember.
+- `He` doesn't trust me.
+- `He` double you, what?
+- `He` drops in and out.
+- `He` eased himself in.
+- `He` expected me here.
+- `He` failed to escape.
+- `He` follows the wars.
+- `He` gave me his card.
+- `He` gave you his eye?
+- `He` gets too excited.
+- `He` got his deer yet?
+- `He` got hit by a bus.
+- `He` grabbed the cash.
+- `He` had a girlfriend?
+- `He` had cancer, john.
+- `He` had no reason to.
+- `He` had the only gun.
+- `He` has a cop's face.
+- `He` has a little dog.
+- `He` has good teeth...
+- `He` has grown strong.
+- `He` has his doubts...
+- `He` has his uses too.
+- `He` has no heartbeat!
+- `He` has -- something.
+- `He` has to touch her.
+- `He` has to wear them.
+- `He` hates fat people.
+- `He`... `he` forgave me.
+- `He` is a capable man.
+- `He` is a good godson.
+- `He` is doing so well.
+- `He` is evil on earth!
+- `He` is here, my lord.
+- `He` is, mr. torrance.
+- `He` is not one of us.
+- `He` is our only hope.
+- `He` is the situation.
+- `He` is very thorough.
+- `He` just didn't care.
+                 

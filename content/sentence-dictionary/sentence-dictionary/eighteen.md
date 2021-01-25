@@ -1,0 +1,87 @@
+---
+title: "eighteen in a sentence | eighteen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eighteen"
+---
+- He walked `eighteen`?!
+- Maybe `eighteen` grams.
+- `Eighteen`-- and a half.
+- Struck out `eighteen`...
+- When dad was `eighteen`.
+- Waitin' `eighteen` years?
+- But you're only `eighteen`.
+- At `eighteen` percent, okay?
+- `Eighteen` and a half years.
+- I want -- you're `eighteen`.
+- Not until you are `eighteen`.
+- She was `eighteen` years old!
+- `Eighteen` thousand feet, sir.
+- You have `eighteen` of my men.
+- I got `eighteen` dollars, dude.
+- I have `eighteen` more minutes!
+- She looked at least `eighteen`.
+- What's it like to be `eighteen`?
+- Can't drive until i'm `eighteen`.
+- `Eighteen` months in a gamma lab.
+- I'd say at least `eighteen` hours.
+- I got an `eighteen` minute window.
+- `Eighteen` months in the gamma lab.
+- One minute `eighteen` and counting.
+- What happened `eighteen` months ago?
+- I turned `eighteen` over spring break.
+- `Eighteen` of our people were murdered.
+- The fare is `eighteen` credits, please.
+- He's `eighteen` years old, the lucky boy.
+- That's what i said `eighteen` months ago.
+- But she still looks like we're `eighteen`.
+- We haven't had a body in `eighteen` months.
+- `Eighteen` hours into the war and it's over.
+- It's the rolls royce of `eighteen`-wheelers.
+- Twenty-three months, `eighteen` days is all.
+- That means when i'm `eighteen`, you'll be 28.
+- If he ever calls again i'll say i'm `eighteen`.
+- You owe us nine hundred and `eighteen` dollars.
+- There goes five seconds...my record's `eighteen`.
+- `Eighteen` minutes... how long 'til they reach us?
+- It was an accident -- about `eighteen` months ago.
+- You owe wendy nine hundred and `eighteen` dollars.
+- Fourteen dead, eleven wounded, `eighteen` captured.
+- It's hard to believe you're going to be `eighteen`.
+- I don't regret the `eighteen` years we were married.
+- I should say this room is `eighteen` by twenty-five.
+- Her name is felicity, and she just turned `eighteen`.
+- Then we've been away from earth for `eighteen` months.
+- The ship had life support systems for `eighteen` months.
+- We need to launch this ship in under `eighteen` hours...
+- At such-and-such time, an `eighteen`- wheeler will be there.
+- Besides that, the girl's probably `eighteen`, so she's legal.
+- You must understand i discovered her when she was `eighteen`.
+- The event horizon only had life support for `eighteen` months.
+- But there are `eighteen` patients on the ward, mister mcmurphy.
+- I haven't lost a bill in `eighteen` years, don't jinx me, walt.
+- You saw me beat minnesota fats for `eighteen` thousand dollars.
+- You lived in the man's house what-- seventeen, `eighteen` years?
+- I'm doing all your fuckin' legwork -- and it's `eighteen` months.
+- If that's your position, then `eighteen` of your officers will die.
+- Congress didn't move here from philadelphia till `eighteen` hundred.
+- But i have three hundred and `eighteen` days of vacation time coming.
+- My first squadron in vietnam, we lost eight out of `eighteen` planes.
+- Mother sister, you've been talkin' 'bout me the last `eighteen` years.
+- `Eighteen` minutes, and your company catches up on ten years of research.
+- Eight bodies have been stolen in new york within the last `eighteen` months.
+- The night he got clipped, `eighteen` pounds of mickey's heroin went missing.
+- What's the most common cause of death for adults over the age of `eighteen`?
+- Please change course to zero seven four and drop to `eighteen` thousand feet.
+- That's from when they were making `eighteen` thou- sand a week, and no taxes.
+- ... hey, i don't need your charity ... one lousy letter `eighteen` months ago.
+- ...hey, i don't need your charity... one lousy letter `eighteen` months ago...
+- It's an `eighteen` wheel cement mixer that will crush every bone in your body.
+- Hey, you don't happen to have a hundred and fifty dollars i could-- `eighteen`.
+- But besides the operation, we've got to get in at least `eighteen` holes of golf.
+- I started when i was `eighteen`, driving for my uncle cully and his partner, gus.
+- I was `eighteen`, i didn't know any better, and he had something steady to offer.
+- Unconfirmed reports of `eighteen` or so far, but the numbers are all over the place.
+- I do have `eighteen` criminals under sentence of death, but i hold no prisoners-of-war.
+- If that doesn't work, at least by then you'll be `eighteen` and able to do what you want.
+                 

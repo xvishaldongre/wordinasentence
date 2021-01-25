@@ -1,0 +1,66 @@
+---
+title: "emotional in a sentence | emotional example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "emotional"
+---
+- But it was `emotional`.
+- I just got `emotional`.
+- I'm getting `emotional`.
+- You're being `emotional`.
+- We're all real `emotional`.
+- An `emotional` wall, i know.
+- I'm getting all `emotional`.
+- Packs an `emotional` wallop.
+- `Emotional` problems, i hear.
+- Zero `emotional` developments.
+- He has... `emotional` problems.
+- George, don't be so `emotional`.
+- We're a little `emotional` here.
+- What's she so `emotional` about?
+- Consider his `emotional` response.
+- I feel very `emotional` right now.
+- People are so messy, so `emotional`.
+- Mrs. west is a very `emotional` woman.
+- He had wild `emotional` highs and lows.
+- In his case, it's entirely `emotional`.
+- You are more `emotional` than is obvious.
+- An alien that shows `emotional` responses.
+- Okay, you're having an `emotional` crisis.
+- You're speaking of `emotional` investment?
+- You know smokey has `emotional` problems!
+- Ok, so maybe i was a little over `emotional`.
+- You were under tremendous `emotional` stress.
+- Whereas "wet 'n' wild" is an `emotional` journey.
+- This is an `emotional` moment for all of us, okay?
+- All i'm saying is it's an `emotional` time for you.
+- Maybe in a day or so when i'm not so `emotional` ...
+- Lindenmeyer went into an `emotional` shell until was 17.
+- People have different `emotional` levels that -- baloney!
+- Do you have a history of `emotional` problems, mr. wigand?
+- I believe the beverage has provoked an `emotional` response.
+- Because if jerry is powerful and also `emotional`... edmunds?
+- So you got a little over- `emotional` -- but you're fine now.
+- Marcee -- what are you talking about -- "don't get `emotional`."
+- I'm not an `emotional` guy, but... if there is any hope for peace.
+- Whatever this is, it clearly responds to human `emotional` states.
+- I believe the `emotional` chip has overloaded my positronic relays.
+- It was a very `emotional` time for buttercup -- keep your shirt on.
+- If you ask me, you haven't gotten `emotional` enough about this man.
+- It's just... but the other ones have way too much `emotional` value.
+- We don't expect perfect `emotional` control so soon, - are you sure?
+- I don't want to get fucking `emotional` -- you understand, hennessy?
+- It was... it was like the `emotional` part outweighed the physical part.
+- They are brought on by `emotional` factors, and they rarely occur again.
+- He said only another `emotional` shock could do it, and probably wouldn't.
+- I get really bloated and irritable and `emotional` and depressed and... pms.
+- They experience `emotional` disturbances that result in personality changes.
+- Yes, i get extremely `emotional` when assholes put bullets in my mailbox...!
+- Chief, i get everyone's `emotional` here, but there's something you need to see.
+- First rule of business is never get `emotional` about stock, clouds the judgment.
+- I won't stand by and watch my leader get all `emotional` over an animal like you.
+- Is this one of those days when you're in ...whadda call it... an `emotional` abyss?
+- Don't make stuff up, these `emotional` theories, just so you can feel important here.
+- Well, i mean...i know this is an `emotional` moment, but let's not make snap judgments.
+- They have been built to emulate the human in every way except in its `emotional` spectrum.
+                 

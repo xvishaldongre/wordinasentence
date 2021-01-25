@@ -1,0 +1,107 @@
+---
+title: "head in a sentence | head example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "head"
+---
+- Aspirin... fly `head`.
+- Get into their `head`.
+- Go `head` on, breaker.
+- Hey butt-`head`, look.
+- His `head` crushed in.
+- I have a solar `head`.
+- I'm in over my `head`.
+- I tucked my `head` in.
+- I went for the `head`.
+- Just banged my `head`.
+- Keep your `head` down.
+- Morg, use your `head`.
+- Right over the `head`.
+- Shhh, my `head` hurts.
+- Travis and bob `head`.
+- We should `head` over.
+- What's in your `head`.
+- What's in your `head`.
+- You are a `head` case.
+- You're in my `head`...
+- Your `head` is hot.
+- Cut it out butt-`head`.
+- Eat rubber, red `head`.
+- _ get out of my `head`!
+- `Head` 'em out, people.
+- It'll free your `head`.
+- Kill, kill... g'`head`.
+- My `head` is splitting.
+- My `head` is throbbing.
+- No, i mean your `head`.
+- She's turned my `head`.
+- Shot him in the `head`.
+- That's a wolf's `head`.
+- That's on their `head`.
+- The top of your `head`.
+- And i'll `head` back up.
+- Back in my `head`, fats.
+- Battling `head` doctors.
+- But where in the `head`?
+- Don't aim at the `head`.
+- Fell right on my `head`.
+- `Head` nigger in charge?
+- `Head` of the disciples.
+- I'm in your `head`, too.
+- It's daddy, shit-`head`.
+- It went over her `head`.
+- My `head` is killing me.
+- Nigel shakes his `head`.
+- Ow, let go, butt-`head`!
+- Shoot him in the `head`.
+- Shot once in the `head`.
+- They get into my `head`.
+- To find the `head`, sir?
+- Use your `head`, violet.
+- Who's the `head` honcho!
+- With his `head` crushed.
+- Ya panic in your `head`.
+- You're inside my `head`.
+- A bride without a `head`!
+- A little `head`-spinning.
+- `Head` for the fireplace!
+- Hmmm... how's the `head`?
+- I'd `head` for cucamonga.
+- I guess i lost my `head`.
+- I'll tear his `head` off.
+- I said 'frickin' `head`'.
+- My `head` is splitting...
+- Or your brother's `head`.
+- 'phillips `head`,' right?
+- Put it back on my `head`.
+- Put the gun to my `head`.
+- Sheila shakes her `head`.
+- That toby's a hot `head`.
+- The `head` and the heart.
+- The `head` of the studio.
+- The heart and the `head`.
+- Watch his fucking `head`.
+- You're hurting my `head`.
+- You're just in my `head`.
+- Your fuckin' `head`, huh?
+- You should `head` inside.
+- You stupid mullet-`head`.
+- Because it fits my `head`.
+- Brean, shaking his `head`.
+- Check out baby big-`head`.
+- Girder, watch your `head`.
+- `Head` for the wastelands.
+- `Head` out for california.
+- He just bumped his `head`.
+- Herbert shakes his `head`.
+- Hey, my cappuccino `head`.
+- I got it ta my `head` now.
+- I'm the `head` nurse here.
+- Just take it, dick `head`.
+- Like, wrong in the `head`.
+- Lord, how my `head` aches!
+- Put it over your `head`.
+- That was not in my `head`!
+- The ai in clarke's `head`.
+- The world is in my `head`.
+                 

@@ -1,0 +1,53 @@
+---
+title: "rod in a sentence | rod example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rod"
+---
+- Do you have ram `rod`?
+- `Rod`'s not a lunatic.
+- He's not a "hot `rod`".
+- You, too, golden `rod`.
+- Pull your control `rod`.
+- `Rod`, get on the camel.
+- The magazine, ram `rod`?
+- `Rod`, i'm not a rascist.
+- Raising the last `rod` 25%.
+- Dad, i want to see `rod` lane.
+- `Rod` says the sweetest things.
+- It's that hot `rod` joey, right?
+- Jerry, `rod` is very very upset.
+- I found a fishing `rod` up there.
+- It's only a half-hour show, `rod`.
+- What are you doing with me, `rod`?
+- We can still take the offer, `rod`.
+- How well did you know stacy and `rod`?
+- Aren't you forgetting something, `rod`?
+- A long metal `rod` with a battery in it.
+- Wow... "`rod`'s been killed - he got `rod`.
+- I still got your bamboo fishing `rod`.
+- Sorry to wake you, but -- like `rod` lane?
+- This `rod` is a fuckin', embarrassment, carl.
+- "golitsyn" was a lightning `rod`, one of ours.
+- Nancy said they'd had a fight, `rod` and tina.
+- He must have pulled the control `rod` too fast.
+- Is stacy himmler going out with `rod` harbaugh?
+- Pulling that last control `rod`'s not a bad idea.
+- Maybe we should call `rod`, have him come over too.
+- `Rod` didn't kill tina, and he didn't hang himself.
+- I'll hang from the shower `rod` and whistle maytime.
+- You and `rod` will have my total personal attention.
+- Bill, `rod`, wait -- look, `rod`, just get on the camel!
+- I'm sorry, but you're not going to die a virgin `rod`.
+- Although it wasn't a crowbar, it was a `rod`, as i said.
+- Well, `rod`, your agent passed me a note before the show.
+- A large iron `rod` was driven completely through his head.
+- Erlich gimping around in his goddamn hot `rod` is not discreet.
+- Now you're stuck here for the storm... dumb, hot-`rod`... dumb.
+- God bless `rod` and todd and especially my wonderful mentor, a cave.
+- What i don't understand is why they asked marliston if `rod` was a virgin.
+- His patchouli reeking rear might know if stacy and `rod` were really virgins.
+- My dad's gonna let me use the boat and my charm is gonna let me use my `rod`.
+- Gonna get some canned goods�a fishing `rod`, and the rest i'm gonna give away.
+- No, you're -- i'm asking you a question -- why are you doing this to me, `rod`?
+                 

@@ -1,0 +1,7 @@
+---
+title: "internationalizes in a sentence | internationalizes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "internationalizes"
+---
+## Unfortunately, we have no example sentences for internationalizes                 

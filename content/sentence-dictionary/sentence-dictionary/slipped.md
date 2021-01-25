@@ -1,0 +1,54 @@
+---
+title: "slipped in a sentence | slipped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slipped"
+---
+- From a `slipped` disc?
+- It just `slipped` out.
+- God help me, i `slipped`.
+- Just `slipped` your mind.
+- I `slipped` the article in.
+- It just `slipped` your mind.
+- My foot must have `slipped`.
+- Suppose he had `slipped` us.
+- Musta `slipped` or something.
+- Must have `slipped` his mind.
+- It must have `slipped` my mind.
+- It `slipped` my mind completely.
+- You `slipped` on this, remember?
+- Because i `slipped` jimmy a five.
+- I was leaning over and i `slipped`.
+- Please forgive me, i `slipped` on....
+- He `slipped` up, and he's desperate now.
+- Maybe he `slipped` by without checking in.
+- I `slipped` the book in your provision bag.
+- Oh, she's `slipped` out, the little monkey.
+- Three times he `slipped` through our fingers.
+- No ... he's must have `slipped` off somewhere.
+- As he got off the stool, he `slipped` and fell.
+- They just... they just `slipped` out of my hands.
+- I found you after i `slipped` away from sir august.
+- We were playing...she `slipped`...she hit her head.
+- So his toe `slipped` over a little, it's just a game.
+- I `slipped` in a couple of bottles of my latest batch.
+- Maybe the asian design major `slipped` her some opium?
+- No one--she just died--she `slipped` away, that's all.
+- There might have been a word or two that `slipped` by.
+- The deadly nightshade you `slipped` me wore off, sally...
+- "yes, sir," he said, and i `slipped` into unconsciousness.
+- A wife who threw you out the first time your foot `slipped`.
+- Probably `slipped` her moorings, got tangled up in a current.
+- That `slipped` out, i hadn't quite made up my mind to admit it.
+- You `slipped` on a t297 transfer just before lunch, didn't you?
+- It's only a matter of time before they find i've `slipped` them.
+- How many times has he `slipped` past custom, in how many countries?
+- A smooth hitter woulda gone in there, seen it was a wash and `slipped` out.
+- I feel like i `slipped` over some invisible line, that i'm in your world now.
+- We're conversing...oh my, the names of the entire cabinet has `slipped` my mind.
+- He `slipped` off on his own when he found out we were going to raid frank's place.
+- Rob's sly declaration of new classic-status `slipped` into a list of old classics!
+- That's twice this month you've `slipped` deadly night shade into my tea and run off.
+- I don't see how he could've `slipped` you something that the fbi would be interested in.
+- Finch, listen -- stifler `slipped` some sort of laxative in your mocash-chino or whatever.
+                 

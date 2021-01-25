@@ -1,0 +1,66 @@
+---
+title: "served in a sentence | served example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "served"
+---
+- He ever `served` under.
+- I've `served` my ountry.
+- The drink was `served`...
+- This `served` the purpose.
+- You demand to be `served`.
+- He `served` on the goliath.
+- I `served` in iraq, asshole.
+- `Served` on a warm doughnut.
+- I `served` with your old man.
+- See the country you `served`.
+- But i've never `served` a day.
+- Have you `served` in the army?
+- Sweetie... dinner is `served`.
+- You must have `served` in korea.
+- Michael has `served` his purpose.
+- Why am i `served` from the chalice?
+- I thought you `served` misfits here!
+- Let me guess--breakfast is `served`?
+- But all in all it's `served` me well.
+- He `served` his time for what he did.
+- I need the woman i `served` as second.
+- Dinner will be `served`, shortly, dear.
+- I `served` you an espresso at starbucks.
+- They `served` their country doing it.
+- What was `served` to drink in that meeting?
+- Justice may never be `served`, i don't know!
+- Oh, i knew i should've `served` dinner earlier.
+- The country you `served` doesn't exist anymore.
+- Breakfast is `served`; lunch is `served`; dinner .
+- The honor of having `served` the third reich.
+- Let her off the hook, she's `served` her purpose.
+- Sergeant west's `served` for twenty- three years.
+- Doesn't matter, i'm sure justice will be `served`.
+- Something about vengance being best `served` cold.
+- You're being `served` with a subpoena, mr. malloy.
+- I don't want any troops here who `served` under arnold.
+- You know, you -- i've `served` with men like you before.
+- I want a bunch of panthers `served` up on a fucking plate.
+- Anyone who `served` under arnold, i want them shipped north.
+- After that, the stones `served` no purpose, beyond temptation.
+- I `served` in his majesty's army in the french and indian war.
+- That sword has `served` me through many an evil time, ben harper.
+- You've `served` me loyally, year after year, without complaining.
+- There was this other place where they `served` live monkey brains.
+- I `served` seven years in prison for my boss when i was a young man.
+- Revenge is a dish best `served` cold... well, it's payback time, sport.
+- Being in the territories it's up to our discretion how they're `served`.
+- I have `served` his majesty on arrakis long enough for my eyes to change.
+- Mr. o'keefe told us dinner was `served` by a uniformed waiter - a colored man.
+- Yes sir... aw, loosen up, bowman... hey, willie, i got one `served` up for you.
+- Before that i `served` in the army but had to leave due to weakness of the loins.
+- On his prior, he `served` nine months, and he's working on four years' probation.
+- Look around you--all these people have `served` years and years of apprenticeship.
+- We reconvict, your man's looking at 25 years on two counts, `served` consecutively.
+- But you are aware, he `served` in your civil air patrol unit when he was a teenager.
+- It's how you pulled out my chair and nearly `served` high tea the first time we met.
+- Your lungs, they're... happen at any time, and when it does, we need you `served` well.
+- I've `served` 4 commanders as fleimkepa, well, in that case... what have you learned, huh?
+- ... why not just consider my wrist slapped and call me when you feel i've `served` my time?
+                 

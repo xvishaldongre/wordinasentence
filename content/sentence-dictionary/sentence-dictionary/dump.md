@@ -1,0 +1,103 @@
+---
+title: "dump in a sentence | dump example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dump"
+---
+- The carlton's a `dump`.
+- Tell everyone to `dump`!
+- Why don't you `dump` it?
+- Then they `dump` you.
+- `Dump` him at the lights.
+- She's going to `dump` him.
+- Ernie, `dump` him in a cab.
+- <u>i didn't `dump` you</u>!
+- You forgot the fuel `dump`.
+- That `dump` you live in!
+- Potential toxic `dump` site.
+- We've got to `dump` shuttle.
+- `Dump` your gun on the floor.
+- You don't just `dump` people.
+- Oh, peter, i didn't `dump` you.
+- The place we went was a `dump`.
+- Anyhow, i found this `dump`.
+- So tell me why did you `dump` me?
+- Better than this `dump` down here.
+- Here's the secret: `dump` and dig.
+- We can't `dump` him in the street.
+- Look around, this place is a `dump`!
+- They only `dump` the water at night.
+- But i didn�t really `dump` you, did i?
+- Naw, it'd have to work to be a `dump`.
+- Not a `dump`, then, but kind of plain.
+- You `dump` her and i'll give you cash.
+- Why don't you `dump` the mother, henry?
+- A real home, not some tin-plated `dump`.
+- Can't we just `dump` him fast someplace?
+- Some kids found you in a garbage `dump`.
+- Well why don't you clean up this `dump`!
+- I had to `dump` the papers in a trashcan.
+- As soon as we get there you can `dump` me.
+- He's melting it as fast as we `dump` it in.
+- Your clothes are at the city `dump` by now.
+- Open the bag, `dump` everything on the table.
+- You're gonna kill me and `dump` me overboard.
+- Can't get off that shitty `dump` they live on.
+- Well... you could always `dump` her, mr. bebe.
+- That's a good reason to `dump` your girlfriend.
+- Like a fucking heifer took a `dump` in my mouth.
+- Who told you boys you could clean up this `dump`?
+- When they run, they `dump` the vehicle and vanish.
+- Mom, look, if i want to `dump` paul, i'll `dump` him.
+- We're trying to match them with `dump` site bodies.
+- When she reaches me, i'll `dump` out another third.
+- But he had to `dump` the body there to make the move.
+- * so how many rooms am i checked into in this `dump`?
+- So, what, you haven't definitely decide to `dump` me?
+- `Dump` toxic waste, pollute the air, rip up the ozone.
+- You have to `dump` your loved one for another partner.
+- Your only mistake is that you didn't `dump` her first.
+- I can use johnnie's car, `dump` it in lake michigan ...
+- Jack -- no, you `dump` the van, meet me at the airport.
+- If this is just the `dump` site, where did he do the job?
+- Seems like i hear everything that goes on in this `dump`.
+- I get to `dump` the glass of water on someone else's head!
+- You're gonna `dump` your load the second we hit the beach.
+- You're gonna `dump` your load the second you hit the beach.
+- Even though they have paid hard casharoonie for your `dump`?
+- We `dump` jake, we split the money, then you're on your own.
+- I think: he's gonna shoot me and `dump` my body in the river.
+- Now we `dump` jake, split the money, then you're on your own.
+- What-you were gonna `dump` her to date that caitlin chick?
+- Build a competing kiosk in the same escalator `dump`-out zone?
+- Finally he couldn't take it anymore and decided to `dump` her.
+- Sounds like you're taking a `dump` the size of butte, montana.
+- That was before he pulled this 'dick me or i `dump` you' shit.
+- They've only been trying to unload that `dump` for five years.
+- To `dump` the fuel you have to close the circuit for the pump.
+- I'll kill her and `dump` the body where no one will ever find it.
+- Yeah, and you'd probably `dump` the poor guy halfway to katmandu.
+- But you make me want to be, and `dump` it onto the second computer.
+- He's the one who wouldn't let the pilot `dump` the passenger cabin.
+- Pioneers find the red zone and wind up dead this place is a `dump`.
+- But she left out the ones referring to the fuel `dump` at greenwich.
+- I'm sure she'll `dump` me soon and we can go back to being friends...
+- ...it was six months, and she didn't `dump`... what about you, mikey?
+- Because i dislike her too much .. why don't you `dump` the "fat lady?"
+- Usually they carry it long enough to pass some bad checks then `dump` it.
+- When i get back we'll load him in the trunk and `dump` him in the desert.
+- They want to `dump` tiger and have me endorse their damned chariot, right?
+- This is the dumbest fucking shakedown in the history of `dump` shakedowns.
+- You ever take a `dump` made you feel you'd just slept for twelve hours...?
+- The point is, i run this `dump` and i don't know the technical mumbo-jumbo.
+- My office is a `dump`, i answer my own phone...and you�ve seen my pay check.
+- Look, it's really none of my business but why don't you just `dump` this guy?
+- Finch, don't you think it's about time you learned to take a `dump` at school?
+- Why the fuck did you tell veronica that i was going to `dump` her for caitlin?
+- I don't know about you dickweeds, but i gotta go take a nice, long juicy `dump`.
+- Ready to `dump` you the second she had what she needed, interfering little whore.
+- That's all it's gonna take and we could move out of this `dump`, get the real deal.
+- Even if she doesn't `dump` me, which is unlikely, she'd never be able to trust me again.
+- What if - what if you trace the heaviest-traffic routes backwards from the `dump` sites?
+- Looks like somebody took a `dump` in it, that's the worst color job i've -- what about it?
+                 

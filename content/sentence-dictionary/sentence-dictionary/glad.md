@@ -1,0 +1,107 @@
+---
+title: "glad in a sentence | glad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "glad"
+---
+- `Glad` you could come!
+- I'd be `glad` to help.
+- I'm `glad` to hear it.
+- I'm `glad` to see you.
+- I'm `glad` you called.
+- I'm `glad` you're not.
+- I'm `glad` you stayed.
+- I was `glad` to do it.
+- She's `glad` i called!
+- Am i `glad` to see you!
+- `Glad` to meet ya, kid.
+- ...`glad` you came man.
+- I am `glad` to see you.
+- I'm `glad` bill's back.
+- I'm `glad` i didn't go.
+- I'm `glad` i found you.
+- I'm `glad` to meet you.
+- I'm `glad` you did too.
+- I'm `glad` you like it.
+- I'm `glad` you made it.
+- I'm `glad` you made it.
+- I'm `glad` you're here.
+- I'm `glad` you're home.
+- I'm `glad` you're okay.
+- I'm `glad` you told me.
+- I 'm `glad` you waited.
+- I'm so `glad` we agree.
+- They boys'll be `glad`.
+- Ester'1l be very `glad`.
+- Ester'll be `glad`, too.
+- Fine--i'll be `glad` to.
+- `Glad` to meet you, too.
+- `Glad` to see you again.
+- `Glad` to see you awake.
+- `Glad` you made it back.
+- I am `glad` to find you.
+- I am `glad` you came by.
+- I'm `glad` he came, ben.
+- I'm `glad` i caught you.
+- I'm `glad` of it, honey.
+- I'm `glad` to hear that.
+- I'm `glad` you liked it.
+- I'm `glad` you're alive.
+- I'm `glad` you think so.
+- And, frankly, i'm `glad`.
+- `Glad` to have known you.
+- `Glad` you could drop in.
+- `Glad` you could join us.
+- `Glad` you could make it.
+- I am `glad` you are safe.
+- I'm `glad` it helped you.
+- I'm `glad` you're female.
+- I'm `glad` you said that.
+- I'm just `glad` they did.
+- I'm so `glad` i woke you.
+- I'm so `glad` to see you!
+- I'm so `glad` to see you.
+- I'm sure `glad` it's you.
+- Actually he said "`glad`."
+- I'm `glad` about that.
+- Dad, i'm so `glad` i went.
+- `Glad` to get shet of him.
+- `Glad` to have you, david.
+- Hello, `glad` to meet you.
+- I'm `glad` i run into you.
+- I'm `glad` that's settled!
+- I'm `glad` you came, mike.
+- I'm `glad` you could come.
+- I'm `glad` you dropped by.
+- I'm `glad` you stopped by.
+- I'm just `glad` it's over.
+- I'm so `glad` we did this.
+- I'm so `glad` you like it.
+- I'm so `glad` you're here.
+- I'm so `glad` you're safe.
+- `Glad` to see you're awake.
+- I am so `glad` to meet you.
+- I am so `glad` to see you!!
+- I'd be `glad` to, mr. igor.
+- I'm `glad` i killed them...
+- I'm `glad` it's over, zack.
+- I'm `glad` we both know it.
+- I'm so `glad` you're alive.
+- Oh, am i `glad` to see you.
+- We'd be `glad` to have you.
+- Aren't you `glad` to see me?
+- Aren't you `glad` we waited?
+- Boy, am i `glad` to see you!
+- Boy, am i `glad` to see you.
+- But now i'm `glad` i didn't.
+- Gee, i'm `glad` you're here.
+- `Glad` to see you back, lad.
+- I'm `glad` that's over with.
+- I'm `glad` they let you out.
+- I'm `glad` to see you, jack.
+- I'm `glad` you got her back.
+- I'm `glad` you realize that.
+- I'm `glad` you're all right.
+- So am i. i'm `glad` you did.
+- Well, i'm `glad` about that.
+                 

@@ -1,0 +1,56 @@
+---
+title: "starling in a sentence | starling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "starling"
+---
+- Okay, miss `starling`?
+- Every word, `starling`?
+- Then do that, `starling`.
+- Talk about him, `starling`.
+- I do need to see `starling`.
+- Now's your chance, `starling`.
+- `Starling`, we know who he is!
+- Walk me to my car, `starling`.
+- For life life goes on `starling`.
+- No, `starling`, there isn't time.
+- Now's the hardest part, `starling`.
+- I'm bureau for 28 years, `starling`.
+- Increase the pressure on `starling`.
+- `Starling`, clarice m., good morning.
+- Fly back to school, little `starling`.
+- Follow `starling`, stake out `starling`.
+- I want your full attention, `starling`.
+- Do you need a police escort, `starling`?
+- You're playing a piano, miss `starling`?
+- You tell him nothing personal, `starling`.
+- I'm not just some turnkey, miss `starling`.
+- Agent `starling`, would you come with me...?
+- What have they done besides kill `starling`?
+- You got a lot of people love you, `starling`.
+- Do you agent `starling`: do you know <u>god</u>?
+- Well you're far from common, officer `starling`.
+- You can't trust jack crawford or clarice `starling`.
+- He will return to savage our beloved miss `starling`.
+- Looks like town to me... what do you see, `starling`?
+- They botched the fallback plan, they... `starling`...?
+- Oh my... maybe you better come out now, miss `starling`.
+- `Starling`: you've got drumgo, you know her from before.
+- That was just smoke, `starling`, i had to get rid of him.
+- Why do you think he takes their skins, officer `starling`?
+- But sir - do you recall my instructions to you, `starling`?
+- Mmmmm... that's rather slippery of you, officer `starling`.
+- Be on the next plane, `starling`, there's one in 90 minutes.
+- What do you do when you're not detecting, officer `starling`?
+- `Starling` - maybe he lives in this, this belvedere, ohio, too!
+- But this is your report, `starling` - take it as far as you can.
+- I'll give you a chance for what you love most, clarice `starling`.
+- Shut up, `starling`... sir: well, then, you have insufficient information.
+- `Starling` didn't... hey, you know, i never thought of that... give it up.
+- Thank you, sir... `starling` - you've earned back your place in the academy.
+- Clarice `starling` and that awful jack crawford have wasted far too much already.
+- They have a compulsion to boast, these people... do you spook easily, `starling`?
+- I have come, simply, to pay my <u>respects</u> to the great clarice `starling`...
+- But if he knew we have so little time - he offered to help, `starling`, not to snitch.
+- Sir, mr. crawford instructed me - you're out of line, `starling`, and you're off this case.
+                 

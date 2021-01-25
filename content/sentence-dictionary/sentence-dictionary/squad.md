@@ -1,0 +1,78 @@
+---
+title: "squad in a sentence | squad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "squad"
+---
+- It was a kill `squad`.
+- Take the `squad` ahead.
+- This is j `squad`, yes.
+- Apone: `squad`, ten-hut!
+- Private cage, j `squad`.
+- Second `squad`, move up.
+- We'll send a `squad` up.
+- First `squad` up on line.
+- You must be j `squad`.
+- Call the homicide `squad`!
+- First `squad` up, on line.
+- Form a brute `squad` then.
+- Sure, the standby `squad`.
+- Firing `squad`, definitely.
+- Hayes is up in the `squad`.
+- I have cheerleading `squad`.
+- Not bad for bomb `squad`, eh?
+- Ring down to the bomb `squad`.
+- I'm gonna need a `squad` leader.
+- Working whores with `squad` two.
+- Yeah in the trunk of my `squad`.
+- I'm looking for the bomb `squad`.
+- Or it might be the firing `squad`!
+- Second `squad`, what's your status?
+- So there never was a death `squad`.
+- Patch me through to the bomb `squad`.
+- I want you to take a `squad` up there.
+- The ctu suspects a libyan hit `squad`.
+- I've heard stuff about a death `squad`.
+- Jus some girlie things for the `squad`.
+- You're captain of the stand-by `squad`.
+- One private is simply not worth a `squad`.
+- Dial nine-one-one, it's the lobster `squad`.
+- Gillette, bring a `squad` down from the fort!
+- Jackson, looks like you got elias' `squad` now.
+- You ain't a firing `squad`, you piece of shit!!
+- I'm turning your file over to the vice-`squad`!!
+- Now, get me a `squad` car and get me over there.
+- Consuelo's `squad` can take they day off tomorrow.
+- Put her on your `squad` and i'll give you the guns.
+- Wait...um... we're the a-`squad` from lincoln high?
+- Vice `squad`, and meltdown... whole slew of 'em.
+- I'm part of this `squad`... what the hell do you want?
+- You can catch the riot `squad` -- it's just going out.
+- Me and my `squad` of ultimate badasses will protect you.
+- Sir, i needed everyone in my `squad` operational, sir...
+- They think they're some kinda death `squad` around here.
+- All this stuff to pick a football player for your `squad`.
+- Alert `squad` five, but hold them until we know what it is.
+- So you're the "device `squad`"... and you defuse "devices"?
+- I got a `squad` car on the way to the reservation right now.
+- Yesterday, i heard somebody wants to sue the rescue `squad`.
+- What makes you think... you'll make... `squad` leader, rico ?
+- That pal of yours from the vice `squad` wants you to call him.
+- If i did, i probably wouldn't mind talking to the geek `squad`.
+- And then we'll all turn on her and you'll be part of the `squad`.
+- The lieutenant was on the pad along with the rest of the `squad`.
+- If they haven't made you `squad` leader by now, i'm sure you will.
+- Rico, has each member of your `squad` completed a weapons safety check ?
+- I mean no one's dealing with the homicide `squad` yet or anything, right?
+- They got earl williams surrounded -- the riot `squad` has -- in his house.
+- You and i are taking a `squad` up to ramelle on a public relations mission.
+- Elias - you take your `squad` and i'll take tex and francis from your `squad`.
+- He says there you have a choice... you can die by hanging or by firing `squad`.
+- You made `squad` leader on your own, and, hey, you still got me to kick around.
+- We have work to do here, i don't have time to play babysitter to the god `squad`.
+- What the hell were you thinking directing the bomb `squad` team into hot pursuit.
+- You never really use it - you just want the opposing `squad` to know you've got it.
+- You've hated betty since you were in pep `squad` together... nothin' complex about it.
+- This tear bomb went off unexpectedly in the hands of sheriff hartman's bombing `squad`.
+- Take it down to the bomb `squad`, artie- sir, i-- reilly, what the hell happened out there?
+                 

@@ -1,0 +1,66 @@
+---
+title: "firm in a sentence | firm example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "firm"
+---
+- Get a `firm` grip, ma!
+- He resigned the `firm`.
+- Stolen from the `firm`.
+- A `firm`, fair signature.
+- The `firm` took in sixty.
+- That would be a `firm` no.
+- I want a `firm` commitment.
+- My `firm`'ll represent you.
+- So what `firm` you with, pal?
+- Proprietor of a london `firm`.
+- They're a part of this `firm`.
+- Only by a director of the `firm`.
+- I just work for the travel `firm`.
+- She needs a `firm` hand, sherlock.
+- We're a medical `firm`, aren't we?
+- Goble and greer is the `firm` name.
+- For as long as i am with the `firm`.
+- I can stay with the brokerage `firm`.
+- Ok, clarke, `firm` grip on the knife.
+- So you�re not at a non- profit `firm`?
+- Went to work for an investment `firm`.
+- His law `firm`, same one that hired me.
+- The `firm` is thinking about renovating.
+- I can tell we're going to be `firm` friends.
+- He works in a small `firm`, makes a good living.
+- In fact, my `firm` has box seats for the mariners.
+- You've been with the `firm` for nearly nine years.
+- How about taking to uncle larry into the old `firm`?
+- What would a law `firm` want from the new drug czar?
+- You don't bring your personal life into a law `firm`.
+- Don't tell me you started a tech `firm` here before us.
+- His father was `firm` with him but... it's just his way.
+- I didn't realize you keep such a `firm` track of the dead.
+- You want to be at a bigger `firm`, get used to the politics.
+- I can get you a `firm` of private eyes to follow her for you.
+- You'll be in daddy's law `firm` as sure as i'm standing here.
+- I got a call from my `firm` this morning saying don't come in.
+- I just got a job at a new `firm`: "dewey, cheat 'em and howe."
+- They put him in the `firm`, he's married, everything's superb.
+- To celebrate, the license approval for our air-charter `firm`.
+- My `firm` has an office there and i�m going to be heading it up.
+- Young supple breasts, a tight `firm` ass and an uncharted pootie.
+- Did a little check on the consulting `firm` that wrote the report.
+- Tell him to hold `firm` for <u>two hours</u>... coming home with gold.
+- Well, god knows he tried, but i've been rather `firm` with him, mummy.
+- Yours is a very powerful and important `firm` -- it has a lot at stake.
+- The `firm` did some pro bono work for his organization a few years back.
+- I'm john cedar - of the new york `firm` of cedar, cedar, cedar and budington.
+- None of this makes any sense, keep the pressure on it, nice and `firm`, okay?
+- We have never worked a gig together but i am a `firm` believer in preparation.
+- I mean, the `firm`'s got other lawyers, but the magazine's got only one of you.
+- ... we're with franklin, jennings and roberts, the law `firm` handling the estate.
+- `Firm`- i like that, tells me a lot about you- -now why don't you tell me about me?
+- I'm a `firm` believer in the philosophy of a ruling class, especially since i rule.
+- Tell 'em the name of your personal lawyer, his `firm`, his address, and phone number.
+- One mistake -- even a small one in a `firm` like ours -- it could cost him a promotion.
+- Do other lawyers at the `firm` keep pictures of their spouses or fiances on their desks?
+- But i'm a `firm` believer in doing something for your own reasons, not someone else ' s .
+- Let's put it this way, andy: your place in the future of this `firm` is no longer secure.
+                 

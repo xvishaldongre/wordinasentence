@@ -1,0 +1,52 @@
+---
+title: "wasted in a sentence | wasted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wasted"
+---
+- All of it `wasted`.
+- No more `wasted` lives.
+- This chick is `wasted`.
+- Oh man, i'm so `wasted`.
+- That's just `wasted` time.
+- We heard you got `wasted`.
+- Guess i `wasted` your time.
+- Sorry i `wasted` your time.
+- Do i look `wasted` -- asshole?
+- I'm sorry i `wasted` your time.
+- I `wasted` my entire life there.
+- A <u>shuck</u> -- `wasted` a day.
+- I've already `wasted` my whole life.
+- I think we just need to get `wasted`.
+- Like you and me to get them `wasted`.
+- Years of academy training...`wasted`!!
+- Man, think of how much time we `wasted`.
+- But i don't feel like i've `wasted` time.
+- Can you forgive me for my `wasted` life?!
+- Talent is more erotic when it's `wasted`.
+- You've `wasted` enough of my time, fella.
+- Bust up, destroyed and `wasted` in new york.
+- I'm not charging you for the time i `wasted`.
+- Make a medical discovery -- get very `wasted`.
+- People say stupid things when they're `wasted`.
+- I'm sorry to have `wasted` so much of your time.
+- I you `wasted` eight fucking aprons on that guy.
+- You've `wasted` yours on this foul monstrosity.
+- Yes, i'm very sorry to have `wasted` your time, sir.
+- You `wasted` all your bullets so you crawl out there.
+- If there isn't i've just `wasted` the last six months.
+- I `wasted` a whole year of my time with this bullshit.
+- Some gang punk gets `wasted` in front of the tourists.
+- An important part of my life `wasted` between whistles.
+- Now, you two, you both have `wasted` your time and your lives.
+- Have i repined or rebuked you for the way you have `wasted` it?
+- You don't see us getting `wasted`, being useless... happy now?
+- Sorry to have `wasted` your time with such... phyllis, i'm sorry.
+- `Wasted` it than just impossible decisions i sent her back to camp.
+- ♪ right to the morning bell ♪ darn, we `wasted` three digital photos.
+- Then i want to believe it so i don't think i've `wasted` the whole day.
+- We can protect him at the dropship and i `wasted` high school learning german.
+- It's bad enough that you've `wasted` your time with this absurd acting business.
+- Clarice starling and that awful jack crawford have `wasted` far too much already.
+- It's `wasted` time trying to logically figure out the female brain, that's for sure.
+                 

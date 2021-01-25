@@ -1,0 +1,81 @@
+---
+title: "surrender in a sentence | surrender example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surrender"
+---
+- Just don't `surrender`.
+- I can't `surrender` now.
+- `Surrender` your vessel!
+- `Surrender` your weapon!
+- `Surrender` your weapon.
+- Come out and `surrender`.
+- It's time to `surrender`.
+- Or you could `surrender`.
+- To accept your `surrender`.
+- Sybok, you must `surrender`.
+- They will never `surrender`.
+- I instruct you to `surrender`.
+- Please `surrender` your cross.
+- Uhura, signal our `surrender`.
+- You might as well `surrender`.
+- Arkadia will never `surrender`.
+- I `surrender`... are you ready?
+- Octavia will never `surrender`.
+- Octavia would never `surrender`.
+- Why can we not just `surrender`?
+- For the last time -- `surrender`!
+- Never give up, never `surrender`!
+- Octavia will have to `surrender`.
+- All you have to do is `surrender`.
+- `Surrender` is no longer an option.
+- We're not going to just `surrender`!
+- All octavia has to do is `surrender`.
+- I tell you once again -- `surrender`!
+- ♪ you can never `surrender` ♪ - stop!
+- Short of an unconditional `surrender`.
+- You can use that when you `surrender`.
+- Accepting the other side's `surrender`.
+- Haven't seen you since the `surrender`.
+- You mean you wish to `surrender` to me?
+- But for a woman marriage is `surrender`.
+- Or she can `surrender` herself, me, too.
+- Personally, i would like to `surrender`.
+- Don't you think it's time to `surrender`?
+- He orders you to `surrender` this vessel.
+- `Surrender` yourself to your wife's death.
+- If you `surrender` now, you'll suffer less.
+- Take me back, put me to bed; i `surrender`.
+- It is not i who will `surrender`, it is you.
+- `Surrender` yourself... `surrender` yourself...
+- The terms and conditions of your `surrender`.
+- Hell, they'll probably just `surrender` to us.
+- Repeat enterprise surrenders -- we `surrender`.
+- Short of an unconditional `surrender`, nothing.
+- The only way to win out here is to `surrender`.
+- I beg you to consider my terms for your `surrender`.
+- You wouldn't `surrender`, and no one would miss you.
+- Not even you would `surrender` something so precious.
+- The ice nation never stormed this summit and `surrender`.
+- We're just here to negotiate general sarris' `surrender`.
+- I hereby `surrender` my duties as keymaster, give me a beer.
+- Was that the `surrender` signal, the waving of the white flag?
+- Do you think the official network would `surrender` to one man?
+- For 3 generations, short of an unconditional `surrender`, d'oh!
+- Come to think of it, i didn't see you <u>at</u> the `surrender`.
+- Give us a written statement, mathieu, and then we'll `surrender`.
+- Order them to `surrender`, and i promise you won't be court- martialed.
+- I was promised that you'd be allowed to `surrender` 5 years with on skyring.
+- I'll meet you on one condition - i get exclusivity and you `surrender` to me.
+- I'm about to `surrender` the horn of plenty for the horn of gabriel, my boy...
+- If we `surrender`, and i return with you, will you promise not to hurt this man?
+- Your girlfriend used el's powers it doesn't matter, i won't let you `surrender`.
+- We've been roaming the countryside i will hear the terms of your `surrender` nerd.
+- And anyone who did anything to push us bellamy and clarke negotiated a `surrender`.
+- To get back from the tower and down to the cockpit, octavia will never `surrender`.
+- However, if you `surrender` now- spock, you've developed a sense of humor after all.
+- I `surrender` -- yeah, but when your mother came what's the first thing you showed her?
+- First, it's important that you `surrender` to them instead of them catching you running.
+- For 97 years, we have eked out it's how the other team lets you know... they `surrender`!
+- Alert transporter room -- enterprise to reliant: you are ordered to `surrender` your vessel.
+                 

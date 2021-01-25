@@ -1,0 +1,107 @@
+---
+title: "walking in a sentence | walking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "walking"
+---
+- I'm already `walking`.
+- A `walking` pestilence.
+- I'm not `walking` away.
+- I'm only `walking` him.
+- To be `walking` around.
+- I'm `walking`, aren't i?
+- Let's get her `walking`.
+- Only the `walking` dead.
+- I'm `walking` there kris.
+- I shall be out `walking`.
+- `Walking` away, yes, sir.
+- `Walking` his damned dog.
+- `Walking` out on the mob.
+- Am i `walking` different?!
+- Eddie, we're `walking` in.
+- Let's just keep `walking`.
+- Simulated space `walking`.
+- You'll be `walking` funny.
+- You're a `walking` felony.
+- Here we are `walking` away.
+- Oh yeah, why you `walking`?
+- Ready for a `walking` tour?
+- The little `walking` river.
+- You are `walking` the walk.
+- I'm a `walking` anachronism!
+- I'm a `walking` anachronism.
+- Thank you for `walking` him.
+- We're `walking` out of here.
+- You `walking` to the subway?
+- We'll try a little `walking`.
+- You're `walking` and talking.
+- They're `walking` into a trap.
+- No one `walking` on your heels.
+- Should you be `walking` around?
+- So we're `walking` to illinois?
+- There's no `walking` around it.
+- `Walking` corpses are not real!
+- Win the game... stop `walking`!
+- You're `walking` to california?
+- All right, just start `walking`.
+- He was `walking` home from work.
+- "life is but a `walking` shadow.
+- Someone has been `walking` here.
+- To be a `walking` advertisement.
+- We're `walking` down the street.
+- They continue `walking` together.
+- But you are not `walking` there.
+- Let your fingers do the `walking`.
+- She's `walking` toward the screen.
+- We're `walking` down queer street.
+- Are you nuts, `walking` into a gun?
+- If you don't mind `walking` my way.
+- I remember `walking` here, sort of.
+- I want you two `walking` perimeter.
+- Talking's good, `walking`'s better.
+- They're `walking` a fine line here.
+- `Walking` away, never looking back.
+- `Walking` towards a nuclear weapon.
+- We're just `walking` ghosts to her.
+- You mind `walking` a little faster?
+- I told you mason was `walking` shit.
+- Say it again...`walking` in the car?
+- These two are street-`walking` scum.
+- Too much `walking`, not enough dead.
+- When i was `walking` down the aisle?
+- Anya, we've been `walking` for hours.
+- From his lunchtime dog-`walking` job.
+- I have been `walking` for three days!
+- I heard you `walking` around in here.
+- You're a `walking`, talking crock!...
+- She's `walking` back towards the door.
+- We're not `walking` to illinois, okay?
+- All the bears gonna be `walking` today.
+- I feel as if i'm `walking` under water.
+- It's about as exciting as... `walking`!
+- I want you two `walking` the perimeter.
+- So they're `walking` along and smiling.
+- I was `walking` by when i heard a shout.
+- We don't know what we're `walking` into.
+- How's life with the `walking` h-bomb?
+- Fuckin' `walking` around with a big head.
+- I'm not `walking` all the way over there.
+- Jesus, fergus, you're a `walking` cliche.
+- To `walking` forward, to leaning forward.
+- Well, why you always `walking` behind me?
+- We were just `walking` back to the truck.
+- What does this have to do with `walking`?
+- You don't have to keep `walking` with me.
+- I can hear you `walking` around sometimes.
+- So if you ain't booking me, i'm `walking`.
+- ♪ we're `walking` in this lie ♪ thank you.
+- We�ve been `walking` away our whole lives.
+- �ex-tanker who's `walking` on his heels� ?
+- I got out and i just started `walking`.
+- I'll be `walking` out of the bank, unarmed.
+- ♪ i'm `walking` in this cloud ♪ oh, my god.
+- Let's take the rest of this `walking`, huh?
+- Whatever it is, it's `walking` on two feet.
+- You don't even know where you're `walking`.
+- You're `walking` between the raindrops kid.
+                 

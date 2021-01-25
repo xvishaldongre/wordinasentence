@@ -1,0 +1,107 @@
+---
+title: "control in a sentence | control example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "control"
+---
+- `Control`, it's reese.
+- He's out of `control`.
+- How do i `control` it?
+- I have helm `control`.
+- I'm in full `control`.
+- It's out of `control`!
+- It was mind `control`.
+- Now he's in `control`.
+- You, master `control`.
+- A bit out of `control`.
+- Give me back `control`.
+- I can't `control` that.
+- It can't `control` you.
+- Poor impulse `control`.
+- You like the `control`.
+- I don't `control` minds.
+- I'm - i lost `control`?!
+- Pull your `control` rod.
+- Self-`control`, she had.
+- You `control` the space.
+- You lost your `control`.
+- You never had `control`!
+- `Control` your breathing.
+- _ give me back `control`.
+- I got it under `control`.
+- I had it under `control`.
+- I have no `control`, sir!
+- You are out of `control`.
+- Advise approach `control`.
+- Get `control` of yourself!
+- Homer, `control` yourself.
+- Try and `control` this ...
+- Unless you take `control`.
+- I'm in `control` of it.
+- Everything under `control`?
+- If she could `control` her.
+- If she could `control` her.
+- I got this under `control`.
+- I lost my remote `control`.
+- I'm at the `control` oaneh.
+- You have no `control` here.
+- You want to lose `control`.
+- Birth `control`'s important.
+- But you cannot `control` it.
+- Can you `control` your fear?
+- Completely out of `control`.
+- `Control` computer restored.
+- David, don't lose `control`.
+- Ehm... you can `control` it.
+- It's fuckin' outa `control`.
+- It was under `control`, bud.
+- That is out of my `control`.
+- That remote `control` thing?
+- They couldn't `control` him.
+- We've lost bridge `control`!
+- Everything's under `control`.
+- I believe i can `control` it.
+- I'm learning to `control` it.
+- Remember you're in `control`.
+- She got off on the `control`.
+- The damage `control` is easy.
+- When is out of our `control`.
+- Yes, you lost your `control`.
+- You got this under `control`?
+- You're out of `control`, son.
+- About what he can't `control`.
+- `Control` tower, reading, sir.
+- Everything is under `control`.
+- I have no `control` over that.
+- I'll check the `control` room.
+- In l.a. it's out of `control`.
+- It just helps me `control` it.
+- Where's that remote `control`?
+- You got to maintain `control`.
+- You just have to `control` it.
+- Because i was out of `control`.
+- Clarke, she gave you `control`?
+- Hey--i can be out of `control`.
+- I can't `control` what happens.
+- It means they can `control` it.
+- It's still out of my `control`.
+- Maybe not `control` it totally.
+- System motor `control` is good.
+- The `control` board's glitched.
+- This press we cannot `control`.
+- You feel you've lost `control`.
+- You got moonan under `control`?
+- Good argument for gun-`control`.
+- Imagine the police in `control`.
+- I told you to give me `control`.
+- John, lost `control` of himself.
+- Just give up `control` for once.
+- Just try and `control` yourself.
+- Motor `control` is looking good.
+- Ted, go into the `control` room.
+- They `control` everybody's mind.
+- They just learn to `control` it.
+- You can't `control` your dreams.
+- You're out of `control`, curran.
+- I'm taking `control` of the team.
+                 

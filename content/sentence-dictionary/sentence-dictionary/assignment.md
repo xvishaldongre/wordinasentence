@@ -1,0 +1,64 @@
+---
+title: "assignment in a sentence | assignment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "assignment"
+---
+- What's the `assignment`?
+- Any kind of `assignment`.
+- What's your `assignment`?
+- Your `assignment` is lee.
+- It's just an `assignment`.
+- What's my next `assignment`.
+- Then i got this `assignment`.
+- I'm giving her an `assignment`.
+- I'm due on another `assignment`.
+- My first undercover `assignment`.
+- You could pick your `assignment`.
+- What kind of `assignment` is that?
+- He requested a combat `assignment`.
+- Why don't you try the `assignment`.
+- Your first `assignment` was geneva.
+- Does this `assignment` interest you?
+- The next job, the next `assignment`.
+- I got an `assignment` from the paper.
+- This is a very important `assignment`.
+- You're no longer on this `assignment`.
+- Give the `assignment` to somebody else.
+- Your `assignment` is to pick the class.
+- It's a little `assignment` from the ark.
+- What happened to your big "`assignment`"?
+- You're the best `assignment` i ever hand.
+- It's outside the scope of my `assignment`.
+- About your next `assignment`, mrs. peel ...
+- I have to find them -- it's my `assignment`.
+- You will be contacted with the `assignment`.
+- Our platoon has the best `assignment` of all.
+- It was just about a stupid class `assignment`.
+- Think of it as special `assignment`, mrs. peel.
+- And for you a choice `assignment` lexa's orders.
+- Also... this shouldn't be his first `assignment`.
+- I hated my column, but i can do this `assignment`.
+- It was a hard `assignment`, that's why you got it.
+- I'll arrange things with your `assignment` captain.
+- Proof that the horseman slaughters by `assignment`.
+- But nobody smooth-talks his way into my `assignment`.
+- Captain sulu... on `assignment`... anyone seen spock?
+- Does that mean you might have an `assignment` for me?
+- I've never been taken off an `assignment` in my life.
+- Your particular `assignment` requires a special talent.
+- I wanted to know why you messed with my station `assignment`.
+- I've made you with this `assignment`- -don't make me break you.
+- As i was saying, perhaps another macaroon ... next `assignment`?
+- Letting jamie go out, cooking me dinner, -- your next `assignment`?
+- I need you for an `assignment` the chief's given me the go-ahead on.
+- If you don't complete the `assignment`, you'll get a zero for the day.
+- Oh, god -- you're going on `assignment` again ... and you wouldn't be.
+- I was used to hating klingons... that's why i failed in our `assignment`.
+- What lousy luck--i mean your orders... to draw an `assignment` like that!
+- I really think we're going overboard for just a simple school `assignment`.
+- Were you given an `assignment` to follow the activities of longfellow deeds?
+- You can't see past your lousy little `assignment`, sniffing around the pipeline.
+- They wanted to stuff me in levenworth to cover their asses on a botched `assignment`.
+- We have this school `assignment` to write about someone we never met and i chose my mother.
+                 

@@ -1,0 +1,107 @@
+---
+title: "cars in a sentence | cars example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cars"
+---
+- Only four more `cars`.
+- People without `cars`.
+- You mean their `cars`?
+- You can fix old `cars`.
+- He's petrified of `cars`.
+- We don't need two `cars`.
+- Imagine us selling `cars`?
+- Some `cars` sit, you know?
+- These are all your `cars`.
+- The way you handle `cars`.
+- Bought the red `cars`, huh?
+- Some really fast `cars`.
+- And the `cars` are disabled.
+- Fifty `cars` by 8 am friday.
+- I am, and disable the `cars`.
+- All prop `cars` accounted for?
+- It's the same way with `cars`.
+- I've stolen two `cars` before.
+- There's two police `cars` now.
+- We're retiring the red `cars`.
+- Armored `cars` can be hijacked.
+- I wanna import japanese `cars`.
+- Separate everything but `cars`.
+- [13] we don't need forty `cars`.
+- Two `cars` we haven't tried yet.
+- We get whatever `cars` you need.
+- ...we'll gettim in their `cars`.
+- I'll take one of ripley's `cars`.
+- There are no `cars` on this road.
+- There's `cars` back there, right?
+- I am arrested for stealing `cars`.
+- I hear `cars` coming to the house.
+- There're no `cars` on this street.
+- We are selling `cars`, goddamn it.
+- And disable the `cars`' fuel cells.
+- Does it make the `cars` any better?
+- He just wanted to fix their `cars`.
+- Yeah, we'll gettem in their `cars`.
+- These `cars` are stealing our lives.
+- You could have stopped forty `cars`.
+- Everything's changed -- those `cars`.
+- To road test our self-driving `cars`.
+- Wrecked a couple of her mom's `cars`.
+- For everything but stealing `cars` ...
+- How does it happen `cars` are running?
+- I totaled three `cars` in fives years.
+- This is what `cars` used to look like.
+- We park our `cars` in the same garage.
+- He must've siphoned it from the `cars`.
+- I bet they use their garage for `cars`.
+- Some kid's banging toy `cars` together.
+- Too many `cars`, too many color tvs ...
+- I'll ride on the bumper `cars` with you!
+- Our `cars` were seen together in felton.
+- Sell him five `cars` over fifteen years.
+- I've heard `cars` fuck with more harmony.
+- I was driving by -- i saw all the `cars`.
+- There are people in some of these `cars`.
+- I don't know what... `cars`... not issues.
+- Listen, do you know anything about `cars`?
+- People watched the movies in their `cars`?
+- We also gotta get rid of all those `cars`.
+- At my old place, we used to... wash `cars`.
+- Tell them when they get back to the `cars`.
+- I'm looking for some `cars`, expensive ones.
+- That is so awful that they hide your `cars`.
+- We've got several italian `cars` on the list.
+- How can you have a street with no `cars` on it?
+- No credit, no `cars`, no mortgages -- no wives.
+- The chop-shop... where are the stripped `cars`?
+- You had sex with all of these men in `cars`?
+- But the paper ... `cars` don't explode that way.
+- If we could just shut down the `cars`, it's late.
+- Get the plate numbers off everyone of these `cars`.
+- I've boosted `cars`, stole radios, run a few scams.
+- I'm turning the `cars` around in the rest area loop.
+- And i've been reading about these self-driving `cars`.
+- Don't you make enough money giving out `cars` for free?
+- Remember that second wave that showed up in the `cars`?
+- You had to hide when the first police `cars` showed up.
+- He bought the cops fancy `cars`, i don't know what else.
+- He's into kind of little `cars`, that... you got a deal.
+- She says you're the one that sells all the `cars` on tv.
+- Sorta like stealing `cars` and selling'm for parts, huh?
+- You just gonna leave these `cars` sitting here like this?
+- Why eavesdrop on people only when they're in their `cars`?
+- Hey, man, you know they have big balloons built into `cars`?
+- Well, you came to the right place i'm looking at new `cars`.
+- Hotwiring `cars`, rudy, does not qualify as a small business.
+- Just so you know, i think they recalled these `cars` in 1974.
+- You know you've got nothing but `cars` down there in impound.
+- You face the `cars` going in the direction you want to go.
+- Louise, do you think we should change `cars`, get another car?
+- Love of what our country does best: build `cars` 60 years ago!
+- While sam and i take out the back two `cars`... is that right?
+- Laser `cars`, girls with octopus arms, now, how did i know that?
+- The porters say he runs a braced card game in one of the `cars`.
+- The `cars`, the clothes, the houses... well, consider the source.
+- Ask them why they have new `cars` and houses full of new furniture.
+- See, i gotta correlate that money with the `cars` it's being lent on.
+                 

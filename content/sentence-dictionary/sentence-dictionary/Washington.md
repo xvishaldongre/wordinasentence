@@ -1,0 +1,107 @@
+---
+title: "Washington in a sentence | Washington example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Washington"
+---
+- The `washington` post.
+- `Washington` and holt.
+- We're in `washington`!
+- Return to `washington`.
+- `Washington` is perfect.
+- New york or `washington`?
+- Transfer to `washington`.
+- `Washington` and bethel."
+- I'm going to `washington`.
+- Screw george `washington`!
+- Screw george `washington`.
+- We came from `washington`.
+- I'm from `washington`, d.c.
+- I'm moving to `washington`.
+- Network news, `washington`...
+- These girls into `washington`.
+- I called him from `washington`.
+- Yeah, like george `washington`?
+- You have to leave `washington`.
+- We got a call from `washington`.
+- You look like george `washington`.
+- You're going back to `washington`.
+- They booted me out of `washington`.
+- Umm, isn't seattle in `washington`?
+- Yes, `washington` sent me, richard.
+- My methods don't go in `washington`?
+- They went right off to `washington`.
+- Yeah, like, uh, george `washington`.
+- Are you from `washington` originally?
+- Can you just take us to `washington`?
+- `Washington` to philadelphia to here.
+- To `washington` bartholomew hogwallop.
+- `Washington` has black men in his army?
+- He's gonna go to `washington` with this?
+- This is sid courtney, `washington` post.
+- I'm going to work in `washington`, cindy.
+- Is he supposed to be george `washington`?
+- That's why i left, moved to `washington`.
+- Tomorrow, who knows...maybe `washington`.
+- He lives here in `washington`, doesn't he?
+- Since the time of adams--not `washington`.
+- Tomorrow, who knows... maybe `washington`.
+- I heard you wanted to stay in `washington`.
+- Ny times, `washington` post, war, war, war.
+- `Washington` thinks it's too late for that.
+- I didn't know i had friends in `washington`.
+- Then what about this `washington` post crap?
+- We have some mutual friends in `washington`.
+- "in `washington`..." well, pardon me if i do.
+- When are you going back to `washington`, sir?
+- Always discussing the problems of `washington`.
+- I always liked `washington`, it's a pretty town.
+- I graduated from george `washington` university.
+- Thought you were going to `washington`, skipper.
+- Can tell what george `washington` said--by heart.
+- I have a plane to catch... going to `washington`.
+- Yeah, for the fifth time, senator-- `washington`.
+- `Washington`, the french, cornwallis and tarleton.
+- I've been offered a job in `washington` with h.e.w.
+- I assigned you bingham and `washington` to go along.
+- We'll get off in `washington` and hook another ride.
+- I've spoken to `washington`, mrs. lampert -- yes -- ?
+- Oh............ well, not while we're in `washington`.
+- `Washington` ought to teletype us within a few hours.
+- The last time i saw it was when i was in `washington`.
+- `Washington`'s poster child for the criminally insane.
+- If he's never killed outside of `washington` the f.b.i.
+- Why do you think i asked you to meet me in `washington`?
+- I must speak with you before you go back to `washington`.
+- They can take us to `washington` and we can finally score.
+- Uh... we can't leave `washington` 'till we find that chick.
+- I said--i mean--`washington` didn't live to see it finished.
+- I've been hired by your network for the `washington` bureau.
+- Tell mrs. `washington` i am compelled to stay a while longer.
+- How about a float of george `washington` crossing the delaware?
+- Sidney courtney, the financial editor of the `washington` post.
+- Weren't we suppost'a go to `washington` and score or something?
+- His death is registered with the war department in `washington`.
+- He once told me that he could find an honest man in `washington`.
+- Lauren murphy is now a wanted felon in the state of `washington`.
+- Signed, fbi., `washington`, d.c. h. cleary, inspector in charge."
+- You've already met miss pilbow and aides `washington` and warren.
+- If it isn't, why don't we call `washington` on your telephone?
+- I'd like to explain that to my commanding officer in `washington`.
+- I wonder how your boys in `washington` are going to take this one.
+- I can't walk two blocks in `washington` without hearing about "g.i.
+- I'm glad i didn't ask you for "`washington` crossing the delaware".
+- The senator from nevada is here with some people from `washington`.
+- `Washington` has been preaching compromise, compromise, compromise!
+- He also said the kikes and the niggers have taken over `washington`.
+- This was taken when richter was arrested in `washington` state, 1985.
+- Well, martin, i only wear them in `washington` -- that's the trouble.
+- Give me six months and i'll be in `washington` protecting a white guy.
+- Listen, ten thumbs, i'll be on my way to `washington` in half an hour.
+- Wait -- enjoy your flight to `washington` -- it will and you know why?
+- `Washington`'s asked me to attend the funeral as a matter of protocol.
+- This case has sent bells and alarms ringing all the way to `washington`.
+- `Washington` is full of cornpone country pussy -- just ask jesse jackson.
+- When i was sittin' behind a desk in `washington`, it made sense, somehow.
+- Coupla days ago they dug up a body in `washington` heights - mary finelli.
+                 

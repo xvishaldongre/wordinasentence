@@ -1,0 +1,107 @@
+---
+title: "tommy in a sentence | tommy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tommy"
+---
+- I don't know, `tommy`.
+- It's awright, `tommy`.
+- They're good, `tommy`.
+- You promised, `tommy`.
+- What about `tommy`?
+- How 'bout gas, `tommy`?
+- How's it feel, `tommy`?
+- Know something `tommy`?
+- Lemme tell it, `tommy`.
+- She was `tommy`'s girl.
+- Thanks anyway, `tommy`.
+- `Tommy` got four years.
+- `Tommy`, what happened?
+- What the hell, `tommy`?
+- Especially that `tommy`.
+- Get outta here, `tommy`.
+- I sure remember `tommy`.
+- `Tommy` was all over me.
+- `Tommy` went to see him.
+- You be careful, `tommy`.
+- All right, look, `tommy`.
+- I brought it for `tommy`.
+- `Tommy`, we have these...
+- No more `tommy` reina.
+- God, `tommy`, i feel sick.
+- I could hide you, `tommy`.
+- It's really nice, `tommy`.
+- Practice driving, `tommy`.
+- `Tommy` leonard was right.
+- `Tommy` wants him with us.
+- Why's it gotta be `tommy`!
+- Yo' `tommy`, what up, man?
+- `Tommy` ain't done nothin'.
+- `Tommy`, don't fuck around.
+- `Tommy`, jake respects you.
+- `Tommy` jarvis is a killer.
+- To the video shop, `tommy`?
+- Where has it gone, `tommy`?
+- You, for ellie and `tommy`.
+- This here's perfect `tommy`.
+- Yeah, i understand, `tommy`.
+- But only on purpose, `tommy`.
+- Hey, you and `tommy` lasorda.
+- Pedal to the metal `tommy`...
+- `Tommy`... all right, ginnie.
+- Accelerate to mark 4, `tommy`.
+- She likes `tommy` lasorda.
+- C'mon, `tommy` -- fuckin' kid!
+- I saw him... `tommy`, stop it!
+- You remember `tommy`'s shines?
+- Ok, so `tommy`'s got the virus.
+- She calls him `tommy`... mm-mm.
+- `Tommy`, let's put the tape on.
+- You should try it with `tommy`.
+- You won�t regret it... `tommy`!
+- `Tommy`, thanks for coming over.
+- You're such an asshole, `tommy`.
+- `Tommy`, 270 degree turn to port!
+- You're back in the pink, `tommy`?
+- Aw, `tommy`, c'mon, it ain't that.
+- `Tommy` tammisimo sucked big time.
+- Hey, `tommy`, don't go get too big.
+- Rd street pasadena 57 `tommy`, look!
+- `Tommy` reina's hauntin' his dreams.
+- Did they hurt you like that, `tommy`?
+- No, no, wait, wait... `tommy`, `tommy`.
+- Hey... of course you do, `tommy` tune.
+- One chance to tell the truth, `tommy`.
+- `Tommy`, i'm bored shitless over here.
+- `Tommy`, you didn't *bust* out, didya?
+- Keep holding the thruster down `tommy`!
+- I don't waste time with losers, `tommy`.
+- I'm sorry we got you into this, `tommy`.
+- The bad news is... what did `tommy` say?
+- `Tommy` h. and carol are gonna be there.
+- My cousin `tommy` who lives in rochester.
+- `Tommy`, you write like a three-year-old.
+- Was vickie part of the deal with `tommy`?
+- So there's `tommy` stuck with this kitten.
+- How did you know that `tommy` had your dog?
+- Jesus, `tommy`, it ain't science, you know.
+- Oh god... do your best, `tommy`... push it.
+- Sometimes they do somethin' to you, `tommy`.
+- I can't believe `tommy`'s still pissed at me.
+- Look, i'm just tellin' you how `tommy` feels.
+- I want you and `tommy` to stay with my mother.
+- Jesus, you look like fucking royalty, `tommy`.
+- No one thinks you're a piece of shit, `tommy`.
+- You stand to make a lot of money, `tommy` boy.
+- It was like `tommy` was possessed or something.
+- Now i want you to change your clothes, `tommy`.
+- `Tommy`, i promised the babysitter six o'clock.
+- You ever tell her about how it is with `tommy`?
+- It's like the prick saved it all up for `tommy`.
+- With `tommy`'s testimony, i can get a new trial.
+- Do you want `tommy` and me to stay here with you?
+- I walk this way to school with `tommy` tammisimo.
+- Perfect `tommy`'s just threatened by smart women.
+- Request permission to take the hood off, `tommy`.
+- _ `tommy`, carol, everybody who was at the party.
+                 

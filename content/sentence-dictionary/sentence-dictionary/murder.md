@@ -1,0 +1,107 @@
+---
+title: "murder in a sentence | murder example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "murder"
+---
+- For rape and `murder`.
+- I love `murder` games.
+- To prevent a `murder`.
+- That's `murder`, kelly.
+- The charge is `murder`.
+- There's been a `murder`.
+- They didn't `murder` me.
+- This kind of `murder`...
+- Your answer is `murder`?
+- The whore's `murder`?
+- I'll `murder` you myself.
+- It's not `murder`, raven.
+- Short for "`murder` man."
+- He's wanted for `murder`.
+- I'll `murder` that lennon.
+- I tried them for `murder`.
+- I want you to `murder` me.
+- Under arrest for `murder`.
+- I watched him `murder` her.
+- My mom's gonna `murder` me.
+- [she wants to `murder` me.]
+- These lips can be `murder`.
+- Who said this was `murder`?
+- I'm a witness to a `murder`.
+- `Murder` the son of a bitch!
+- That's slavery and `murder`.
+- You faked my dad's `murder`.
+- You helped to `murder` them.
+- But the next one is `murder`.
+- I'm interested in a `murder`.
+- I won't be party to `murder`.
+- `Murder` is the least likely.
+- Sharks don't commit `murder`.
+- They were all about `murder`.
+- You're doing a `murder` case?
+- You're on trial for `murder`.
+- You saw him `murder` someone.
+- Because `murder` ... is bliss.
+- But why would they `murder`...
+- It's only `murder`, inspector.
+- Did you find a `murder` weapon?
+- In the distance was a `murder`.
+- The pr is going to `murder` us.
+- Wanted for a crime of `murder`.
+- Warscheinlich ist der `murder`.
+- Who wants to `murder` trillions.
+- Won't be a party to no `murder`.
+- You're an accessory to `murder`.
+- I'm not gonna go in for `murder`.
+- I've got no stomach for `murder`.
+- I was born to `murder` the world.
+- "krusty is trying to `murder` me.
+- My parents are gonna `murder` me!
+- This is a `murder` investigation.
+- Because of the nature of `murder`.
+- Do you have the right to `murder`?
+- Including rape, pillage, `murder`.
+- I want to arrest you for `murder`!
+- They don't have a `murder` weapon?
+- How did `murder` man find them?
+- Back in your `murder` gear already.
+- Guess what his `murder` weapon was?
+- How do you put a price on `murder`?
+- It's dated the day of the `murder`.
+- I've got a `murder` to investigate.
+- That makes you a party to `murder`.
+- This is manslaughter, not `murder`.
+- You're being charged with `murder`.
+- Armed robbery resulting in `murder`.
+- Did you know he was in for `murder`?
+- That would be `murder`, mr. deckard.
+- Without the `murder` weapon the d.a.
+- He'll `murder` you when he finds out.
+- How do you know there was a `murder`?
+- I sent andy out on `murder` missions.
+- Murderer and `murder` joined by fire.
+- Part of it has to do with a `murder`.
+- She is possibly involved in `murder`.
+- That's how i put a price on `murder`.
+- Who committed `murder` during a test.
+- I will confess to fraud, not `murder`.
+- `Murder` human beings to live forever.
+- That doesn't seem much for a `murder`.
+- I don't think he's capable of `murder`.
+- If you let me do it, i'll `murder` you.
+- It's not `murder` if they go willingly.
+- July's always a big month for `murder`.
+- `Murder` one and armed robbery, thelma!
+- Oh yeah, `murder` museum... sounds fun.
+- They'll get us on accesory to `murder`.
+- This `murder` was in the papers, right?
+- Why would he want to `murder` the girl?
+- Your answer to `murder` is more `murder`.
+- Your daddy never committed no `murder`.
+- A fugitive alert for a `murder` suspect.
+- And you ask me to do `murder` for money.
+- Detective, does it look like a `murder`?
+- Everyone's capable of `murder`, osborne.
+- I know all they know about the `murder`.
+- True, but neither is attempted `murder`.
+                 

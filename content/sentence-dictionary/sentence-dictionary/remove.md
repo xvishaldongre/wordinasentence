@@ -1,0 +1,56 @@
+---
+title: "remove in a sentence | remove example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "remove"
+---
+- But no one to `remove` it.
+- We need to `remove` the flame.
+- We need to `remove` the flame.
+- You `remove` your competition.
+- I'm going to try to `remove` it.
+- `Remove` your weapons, commander.
+- Just don't `remove` the knife yet.
+- Would you `remove` your hat please?
+- You'll have to `remove` your shirt.
+- Once i `remove` her drive, one more.
+- I got them to `remove` the reflection.
+- `Remove` the restraints one at a time.
+- All we have to do is `remove` the scar.
+- Did you `remove` anything in the cellar!
+- "please `remove` your dick from my ass?!"
+- If i `remove` the flame, - no, whoa, whoa.
+- Feel free to `remove` your boots and socks.
+- I'm saying i'll have to `remove` your eyes.
+- If i `remove` the flame, i was protecting you.
+- If something gets in your way you `remove` it.
+- We'll `remove` the breathing tube in a moment.
+- Still, i feel you should `remove` the decanter.
+- `Remove` one of the stones, and that flow splits.
+- The decon shower will `remove` 95% of the radiation.
+- Let him rest in it tonight, and `remove` it tomorrow.
+- If i `remove` myself from arkadia, what are you doing?
+- The cut on your arm -- mind if we `remove` the bandage?
+- Her leg was shattered so they had to, uh... `remove` it.
+- Ok, i could `remove` it, but you need to untie my hands.
+- Your instincts will be to `remove` your hand from the box.
+- I tell you there's nothing else we can do but `remove` them!
+- <i>`remove`... ... the... right arm.</i> you're breaking up...
+- But, for each answer, you must `remove` one article of clothing.
+- Samuel will `remove` his shirt and hold it out the window to i.d.
+- Your husband had the opportunity to `remove` you from harm's way.
+- If you don't want to do it this way, i can `remove` it surgically.
+- Rico, did you give the recruit permission to `remove` his helmet ?
+- We're prepared to `remove` you immediately, should anything go wrong.
+- If you'll be good enough to `remove` those newspapers i'll have a seat.
+- The men here used it for a trap door, so we had to `remove` it temporarily.
+- Renard�s men used it to `remove` this radio tracking device from the warhead.
+- Because skynet knows the russian counter-strike will `remove` its enemies here.
+- 'we will `remove` the iron stove -- the one that was camouflaging the trap door.'
+- Mister welles... would you be so kind as to `remove` any firearms from your person?
+- Then why did you order your man to `remove` his helmet during a live fire exercise ?
+- Once those babies kick in, they're gonna `remove` my organs, and make me a woman!
+- So i get this straight, we gotta go in, bust on this punk and `remove` the heart?
+- Anyway, i've found a new guy who's gonna be able to instantly `remove` the cancer.
+- When a creature shows too much independent thought we `remove` them from the gene pool.
+                 

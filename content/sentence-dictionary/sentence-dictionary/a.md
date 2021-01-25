@@ -1,0 +1,107 @@
+---
+title: "a in a sentence | a example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "a"
+---
+- Ask `a` few questions.
+- `A` son he never knew.
+- `A` sort of bodyguard.
+- `A` speech impediment?
+- `A` story for `a` movie.
+- `A` supercilious race.
+- `A` supernatural high.
+- `A` surprise, he said.
+- At `a` time like this?
+- `A` thousand chariots.
+- `A` toupee that flies?
+- `A` truly good person.
+- `A` "t." you're right.
+- `A` <u>wife</u> would.
+- `A` very rare disease.
+- `A` view of the ocean.
+- `A` wastepaper basket.
+- `A` week ago, at most.
+- `A` week from tonight.
+- `A` well-rounded life.
+- `A` white rolls royce.
+- `A` whole lot of talk.
+- `A` woman's intuition.
+- `A` wonderful history.
+- `A` world like this...
+- Barks `a` blue streak.
+- Be back in `a` minute.
+- Because i'm `a` nurse.
+- Becca, meet `a`.l.i.e.
+- Be here in `a` minute.
+- Bellamy's `a` warrior.
+- Ben: there's `a` door?
+- Best of `a` nightmare.
+- Better bring `a` pole.
+- Blonde as `a` new mop.
+- Bloom like `a` flower?
+- Bob was `a` grown man.
+- Boys... died `a` hero.
+- But `a` fabulous cook.
+- But at what `a` price.
+- But be `a` pal, pally.
+- But even `a` kid lies.
+- But he�s `a` good guy.
+- But i read `a` manual.
+- But she talks `a` lot.
+- But this is `a` party.
+- But...wait `a` minute!
+- But you're `a` coward.
+- But you're `a` doctor.
+- By `a` pleasure droid.
+- By writing `a` letter?
+- Can you love `a` fool?
+- Care to have `a` look?
+- Carl, it's `a` jungle.
+- Carl's `a` fine boy...
+- Cause he was `a` liar.
+- Christ, what `a` mess.
+- C'mere for `a` second.
+- C'mon, have `a` drink.
+- C'mon, not `a` chance.
+- Consider me `a` guide.
+- Could be `a` lot more.
+- Could go `a` long way.
+- Could i have `a` puff?
+- Create `a` connection.
+- Danny: thanks `a` lot.
+- Definitely `a` serial.
+- Did i hear `a` threat?
+- Did you carry `a` gun?
+- Did you have `a` coat?
+- Did you see `a` romeo?
+- Did you see `a` shark?
+- Dirt is `a` violation.
+- Do `a` rally together.
+- Does he have `a` name?
+- Does it have `a` name?
+- Doesn't ring `a` bell.
+- Don't be `a` hero, ok?
+- Don't call me `a` bum!
+- Don't cause `a` scene.
+- Don't know on `a` map.
+- Don't move `a` muscle.
+- Don't touch `a` thing.
+- Do we have `a` future?
+- Do we have `a` garden?
+- Do we have `a` visual?
+- Do you have `a` cross?
+- Do you have `a` fella?
+- Do you have `a` fever?
+- Do you have `a` match?
+- Do you have `a` phone?
+- Do you have `a` point?
+- Do you have `a` scarf?
+- Do you have `a` sword?
+- Do you know `a` marie?
+- Do you need `a` break?
+- Do you want `a` drink?
+- Drop her `a` postcard.
+- _ echo was `a` coward.
+- [edith] `a` scary one.
+                 

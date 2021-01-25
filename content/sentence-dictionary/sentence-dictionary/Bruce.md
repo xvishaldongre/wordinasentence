@@ -1,0 +1,107 @@
+---
+title: "Bruce in a sentence | Bruce example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Bruce"
+---
+- `Bruce`, are you okay?
+- Goodbye `bruce` wayne.
+- Make a choice, `bruce`.
+- That's `bruce`'s money!
+- Wait a minute, `bruce`.
+- You know that, `bruce`?
+- You're `bruce` baldwin?
+- `Bruce` has just awaken.
+- Get `bruce` out of jail!
+- Hello, `bruce`... hildy!
+- How's business, `bruce`?
+- How we looking, `bruce`?
+- Quell problemo, `bruce`?
+- `Bruce` may still refuse.
+- I know it's you, `bruce`.
+- I know you will, `bruce`.
+- Nice to see you, `bruce`.
+- What's going on, `bruce`?
+- How does it feel, `bruce`?
+- I can't help you, `bruce`.
+- `Bruce` -- `bruce` wayne!
+- Remember this, `bruce`!
+- `Bruce` and harriet nyborg.
+- `Bruce`... what's going on?
+- No one blamed you, `bruce`.
+- What if `bruce` finds you ?
+- `Bruce` and harriett nyborg.
+- `Bruce` gave him a sedative.
+- Don't be so cheeky, `bruce`.
+- What hurts so much, `bruce`?
+- `Bruce` and i are very close.
+- I'm counting on you, `bruce`.
+- `Bruce`, we're both murderers.
+- Did two-face call him `bruce`?
+- Don't be embarrassed, `bruce`.
+- Everyone dies, master `bruce`.
+- I don't get you `bruce` wayne.
+- I'm frightened of you, `bruce`.
+- May i have the tapes, `bruce` ?
+- Oh, this is all right, `bruce`.
+- `Bruce` ought to be back by now.
+- Or as `bruce` wayne and hope...?
+- `Bruce` wayne is out of his mind.
+- Where's `bruce` baldwin's wallet?
+- Oh god, `bruce`, you were a child.
+- What am i going to say to `bruce`?
+- Alfred and `bruce` are like family.
+- Hail the all-knowing `bruce` wayne.
+- I'm going to find `bruce`'s mother.
+- The `bruce` is not coming, william.
+- Hildy johnson... oh, hello, `bruce`.
+- I remember my life as `bruce` wayne.
+- I've got to get `bruce` out of jail!
+- I'm sorry, i can't help you, `bruce`.
+- You always carry an umbrella, `bruce`?
+- Look, `bruce`, this is a debt of honor.
+- Uh, selina, this is, uh, `bruce` wayne.
+- Um...i'm pretty sure i'm `bruce` wayne.
+- All right, `bruce`, what do you suggest?
+- `Bruce`'ll be waiting for you in albany.
+- `Bruce` wayne was something i inherited.
+- No, `bruce`, you didn't come between us.
+- Remember, `bruce`, it must be certified.
+- `Bruce` is making the nine o'clock train.
+- I don't know..... what is `bruce` doing ?
+- `Bruce`, i want to spend my life with you.
+- Guess who's got a date with `bruce` wayne?
+- Believe me, `bruce`, i know what i'm doing.
+- Because it was `bruce` lee's fighting style.
+- Listen, `bruce`, you can't come in here now!
+- I'll see she's there, `bruce`, i promise you.
+- Yes, `bruce` -- i'm here -- i know it's late.
+- But, `bruce`, don't keep it in your wallet!...
+- I hear `bruce` wayne is throwing a fundraiser.
+- It needs a woman's heart -- no, `bruce`, dear.
+- `Bruce`..."i don't want to fuck around with you.
+- What would we do with the park with out `bruce` ?
+- Oh, `bruce`, let me see that money hildy gave you.
+- Yeah, i'm looking for above the fold here, `bruce`.
+- Don't let him fool you, `bruce` -- it's only an act!
+- `Bruce`, suppose you examine mr. burns in his office.
+- But i'll make you and `bruce` a business proposition.
+- On a blind tip from `bruce` wayne -- we do have laws.
+- You're so nice, `bruce`, you think everybody else is.
+- No question, mrs. `bruce` is a psycho-bitch from hell.
+- "thunder road," `bruce` springsteen, from born to run.
+- We -- -- you're going to get yourself killed, `bruce`.
+- When you're in combat, he could become `bruce` willis.
+- By tomorrow they'll be calling me mrs. `bruce` baldwin.
+- I've just told you i was busy with mr. `bruce` baldwin!
+- Like, tom and `bruce`, they merged to become one, right?
+- Perhaps ol' `bruce` is in need of a new job opportunity.
+- That is also about the time when `bruce` began refusing.
+- Well, `bruce`, here you are -- certified and everything.
+- Well, `bruce` -- i don't think -- that would be possible.
+- What if we were to put `bruce` into the park as a guest ?
+- I know how you feel, `bruce`, but you've got to forgive her.
+- But for the lonely, the... let me ask you something, `bruce`.
+- `Bruce`, you know i'm mad about you and stop talking like that.
+- Goddamn it `bruce`, you've cost me about thirty dollars so far.
+                 

@@ -1,0 +1,107 @@
+---
+title: "guess in a sentence | guess example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guess"
+---
+- `Guess` i'll be going.
+- `Guess` i'm on a roll.
+- `Guess` it's our turn.
+- `Guess` what today is?
+- `Guess` who was in it?
+- `Guess` you missed it.
+- His violin, i `guess`.
+- I `guess` i knew that.
+- I `guess` i should go.
+- I `guess` it wouldn't.
+- I `guess` i wanted to.
+- I `guess` i was wrong.
+- I `guess` that did it!
+- I `guess` that's a no.
+- I `guess` we woke him.
+- I `guess` you haven't.
+- I `guess` you have to.
+- I `guess` you're okay.
+- I mean, i `guess` not.
+- I said, "`guess` who?"
+- Just lucky, i `guess`.
+- Maybe eve can `guess`.
+- My `guess`... monkeys.
+- Nor quincy, i `guess`.
+- Wait-- let me `guess`.
+- Warm stuff, i `guess`.
+- Well, `guess` what?...
+- Well, sure, i `guess`.
+- Yeah, i `guess` it is.
+- Yeah, sure, i `guess`.
+- Yes, i `guess` he did.
+- Yes, i `guess` i have.
+- And, um ...i `guess`...
+- Best `guess`, mr. sulu.
+- Forty-eight, i `guess`.
+- Good `guess` -- but no.
+- `Guess` i'm just lucky.
+- Help people, i `guess`.
+- Hey karl, `guess` what.
+- I `guess` i am at that.
+- I `guess` i'll die now.
+- I `guess` maybe you do.
+- I `guess` that's right.
+- I `guess` you're right.
+- I `guess` you're,right.
+- Million, by my `guess`.
+- No, don't `guess` i do.
+- See if you can `guess`.
+- So i `guess` that's it.
+- Well `guess` what, cap?
+- Yeah, i `guess` you do.
+- Yes, i `guess` you are.
+- But i like it i `guess`.
+- Compensation, i `guess`.
+- Getting high, i `guess`.
+- `Guess` it's only right.
+- `Guess` who i saw today.
+- `Guess` who <u>i</u> am.
+- He's alright, i `guess`.
+- Hey, `guess` who's here?
+- I don't care to `guess`.
+- I `guess` i deserved it.
+- I `guess` i didn't look.
+- I `guess` i'll be going.
+- I `guess` i'm kind of...
+- I `guess` i owe you one.
+- I `guess` it's mine now.
+- I `guess` it's possible.
+- I `guess` it was damone.
+- It's alright, i `guess`.
+- Just for fun, i `guess`.
+- Married name, i `guess`.
+- More than you'd `guess`.
+- Most kids do, i `guess`.
+- Neither do i, i `guess`.
+- No, good `guess` though.
+- No, i `guess` it's okay.
+- So, i `guess` it worked.
+- So i `guess` satan lost.
+- ...that'd be my `guess`.
+- Too much sun, i `guess`.
+- Well, nobody, i `guess`.
+- Whu -- i `guess` inside.
+- Yeah, i `guess` you are.
+- Yeah, wizard, i `guess`.
+- Yes, i `guess` you were.
+- Can't you take a `guess`?
+- Colonel kurtz, i `guess`.
+- For no reason, i `guess`.
+- `Guess` he talked to you.
+- `Guess` i'm out of a job.
+- `Guess` what score i got?
+- `Guess` what tomorrow is?
+- I could `guess`, however.
+- I `guess` i lost my head.
+- I `guess` i'm used to it.
+- I `guess` it worked, huh?
+- I `guess` i was homesick.
+- I `guess` i was snooping.
+- I `guess` that was right.
+                 

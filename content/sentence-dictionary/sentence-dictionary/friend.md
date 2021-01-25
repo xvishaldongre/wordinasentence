@@ -1,0 +1,107 @@
+---
+title: "friend in a sentence | friend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "friend"
+---
+- Ask his `friend` otan.
+- Benny was my `friend`.
+- Charley's my `friend`.
+- Fictions, my `friend`.
+- He's my best `friend`.
+- He's my `friend`, too.
+- He's not our `friend`.
+- I'm an old `friend`...
+- I'm seeing a `friend`.
+- My `friend` li mu bai.
+- My very best `friend`.
+- My very good `friend`!
+- Nonsense, my `friend`.
+- Patience, my `friend`.
+- Some `friend` you are!
+- Still, 'old `friend`.'
+- The `friend` took off.
+- The people's `friend`.
+- Uh... family `friend`.
+- Vampires, my `friend`.
+- Was he a boy `friend`?
+- What `friend` is that?
+- What kind of `friend`?
+- Where's your `friend`?
+- Who are you, `friend`?
+- Yeah, a good `friend`.
+- You--a `friend` to me?
+- You ain't my `friend`.
+- You and your `friend`.
+- You killed a `friend`.
+- Your `friend`, big al?
+- You were his `friend`.
+- A favor for a `friend`.
+- A `friend` from school.
+- All right, my `friend`.
+- And he was my `friend`.
+- At me `friend`'s house.
+- Can i be your `friend`?
+- Fucking a, my `friend`.
+- Gibberish, my `friend`.
+- Good-bye, old `friend`.
+- He a `friend` of yours?
+- He isn't your `friend`.
+- I executed my `friend`.
+- I just want a `friend`.
+- I'm a banker, `friend`.
+- I'm here as a `friend`.
+- I'm on with a `friend`!
+- I'm your best `friend`.
+- It's not your `friend`.
+- I've wanted a `friend`.
+- Let me ask my `friend`.
+- Lincoln is my `friend`.
+- Maya was your `friend`.
+- Murray was my `friend`.
+- Our `friend` clay shaw.
+- [ray] hey, my `friend`.
+- She's my best `friend`.
+- She's my only `friend`.
+- Thank you, my `friend`.
+- Uh-- a goose, `friend`.
+- Was he a good `friend`?
+- We made a new `friend`.
+- With the same `friend`?
+- Yes...he's my `friend`.
+- You killed my `friend`!
+- You quittin', `friend`?
+- You're a good `friend`.
+- Your `friend` saw them.
+- Your lady `friend` did.
+- A `friend` of delilah's.
+- A `friend` who's a girl.
+- My `friend` barbara?
+- An old, ornery `friend`.
+- But you're his `friend`.
+- Cassandra's my `friend`.
+- Did she have a `friend`?
+- Do i know you, `friend`?
+- Everything, my `friend`.
+- From a `friend` of mine.
+- Have faith, my `friend`.
+- He's a `friend` of mine.
+- His "vacation `friend`."
+- I am your best `friend`.
+- I'm a terrible `friend`.
+- I miss my best `friend`.
+- I'm still your `friend`.
+- Is bembry your `friend`?
+- Is nathan your `friend`?
+- I told you, my `friend`.
+- I was her best `friend`.
+- Lando's an old `friend`.
+- Mmm, new `friend` smell.
+- More than your `friend`.
+- No, i'm just a `friend`.
+- Not this twig, `friend`.
+- Or an intimate `friend`?
+- Our `friend`, the shark.
+- See you later, `friend`.
+- Speak on, dear `friend`.
+                 

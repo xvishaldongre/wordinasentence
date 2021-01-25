@@ -1,0 +1,107 @@
+---
+title: "near in a sentence | near example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "near"
+---
+- "don't come `near` me.
+- It was `near` a beach.
+- `Near` his right hand.
+- Uh, out `near` kerley.
+- I was born `near` here.
+- `Near` the high school.
+- Nobody gets `near` you.
+- No one gets `near` him.
+- She lives `near` eddie?
+- I want to be `near` you!
+- `Near` the courthouse...
+- Could don king be `near`?
+- He's `near` "m" and 34th.
+- I'm not going `near` him.
+- It is not yet `near` day.
+- `Near` the plaza del sol.
+- Right `near` his address.
+- That's right `near` here.
+- We're `near` out of fuel.
+- You have a man `near` it?
+- I shall be `near` at hand.
+- `Near` a large water tank?
+- But he's nowhere `near` it.
+- How `near` is she to death?
+- I wasn't even `near` there!
+- Nowhere the fuck `near` me.
+- Their tent was `near` here.
+- We're nowhere `near` close!
+- He hit damn `near` everyone.
+- It's `near` mount rushmore.
+- I wanted to be `near` mitch.
+- We lived `near` power lines.
+- And we are `near` the marina.
+- _ a statue `near` my village.
+- But they darn `near`... what?
+- For crawling `near` his bowl.
+- Somewhere `near` the capital?
+- Don't go `near` that elevator.
+- My wife never comes `near` me.
+- No one goes `near` that thing.
+- Well, you damn `near` made it.
+- When will it come `near` here?
+- You wanted to be `near` jabez.
+- You will never get `near` her.
+- A damn `near` perfect drug.
+- I don't want it `near` schools.
+- I'm not going `near` any lions.
+- `Near` the beverly hills hotel.
+- Oh -- i'm not `near` ready yet.
+- You think we're `near` the end.
+- But it must be `near` the water.
+- High-rollers won't go `near` it.
+- I couldn't go `near` that woman.
+- It's nowhere `near` the reactor.
+- I was nowhere `near` that niche.
+- You do not want to go `near` it.
+- You live `near` here, don't you?
+- Been gone `near` three years now.
+- From the villages `near` arkadia.
+- He never came `near` my tabloids.
+- Here ... `near` the anoat system.
+- Lives in new york `near` his mom.
+- Somewhere `near` there, isn't it?
+- So `near` we can almost touch it?
+- The stairs are right `near` here.
+- Don't go `near` the bowling alley.
+- I don't want you to go `near` her.
+- I heard it damn `near` killed him.
+- I hear your wedding day is `near`.
+- I'm not going `near` any lifeboat!
+- Only -- you're getting too `near`.
+- You'd never get `near` ingolstadt.
+- Carnivores hunt `near` stream beds.
+- I tell you, i `near` soiled myself!
+- Right here `near` her belly button.
+- Right `near` where my mother works.
+- What else is `near` jordan lake?
+- Even if i'm `near` a fire, i'm cold.
+- I slept too `near` where i fell out.
+- It was on the wall `near` the stone.
+- Luna will never allow me `near` her.
+- Maxie knows i don't go `near` drugs.
+- We gotta be `near` a company by now.
+- His son-in-law damn `near` killed me.
+- ...that boy damn `near` broke my arm.
+- Why you won't let anybody `near` you.
+- A forest `near` the valley of needles.
+- He won't be anywhere `near` that mall.
+- Last time, the bottom `near` came out.
+- Maybe... maybe we were nowhere `near`.
+- Nobody's going `near` star without me.
+- We'll be `near` the in-and-out burger.
+- You're right... it must be `near` now.
+- You slept too `near` where you got in?
+- But the horicane is `near` trapped out.
+- I didn't throw it anywheres `near` her.
+- ..i don't want her anywhere `near` you.
+- Well, vandamm has a place `near` there.
+- You just had a `near`-death experience.
+- Can you manage a table `near` the floor?
+                 

@@ -1,0 +1,76 @@
+---
+title: "appointment in a sentence | appointment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "appointment"
+---
+- Make an `appointment`.
+- I have an `appointment`.
+- My letters of `appointment`.
+- Do you have an `appointment`?
+- ...i've got an `appointment`....
+- Make the `appointment` yourself.
+- Set up an `appointment` at four.
+- Greatest `appointment` ever made.
+- Yes do you have an `appointment`?
+- Do you have an `appointment`, sir?
+- I should've made an `appointment`.
+- Well, can i make an `appointment`?
+- Just call and make an `appointment`.
+- Your `appointment` has been changed.
+- Thank you, but it's an `appointment`.
+- Your `appointment` has been changed."
+- You should see my `appointment` book.
+- Even booking the `appointment`, - hmm.
+- I contrived to miss the `appointment`.
+- We have an `appointment` in hong kong.
+- You have a luncheon `appointment` here?
+- You will make an `appointment`... help!
+- Did you have an `appointment`, sir?
+- You don't have an `appointment`, do you?
+- I have an `appointment` this after- noon.
+- Our doctors are seen by `appointment` only.
+- Did you forget our `appointment`, cornelius?
+- He set up an `appointment` for me to see a man.
+- I already made an `appointment` for later today.
+- Are you asking me for a date or an `appointment`?
+- Sorry--got an `appointment` to play shuffle-board.
+- I've an `appointment` with young winton at 8:30.
+- He wants an "`appointment`" with me after you leave.
+- They want something to say about this `appointment`.
+- But how can you be sure you'll get the `appointment`?
+- I'm sure he'll want to reschedule your `appointment`.
+- Oh, and we need to schedule a doctor's `appointment`.
+- Generally, a follow-up `appointment` no, you wouldn't.
+- What, you have a street `appointment` tonight, sister?
+- Yeah, i had an `appointment` for a pelvic examination.
+- I have an `appointment` with him, right here, right now.
+- Either you call and set up the `appointment`, or i'll call.
+- I got nothing, uh, nothing till my analyst's `appointment`.
+- Keep your `appointment` tonight and call me when it's done.
+- I have a lunch `appointment` at hubert's in fifteen minutes.
+- When i want your advise, keegan, i'll make an `appointment`.
+- Now--if you have an `appointment` elsewhere--i'll excuse you!
+- He had an `appointment` he forgot, he's going to see you later.
+- Now you mustn't miss your `appointment` with your hair-dresser.
+- You've received your `appointment` as enterprise science officer?
+- It's a presidential `appointment` so... until i quit or get fired.
+- I've got an `appointment`, won't take five minutes... you all did.
+- Very well; since my `appointment` he's been made interim director.
+- We've got a doctor's `appointment`-- an evil doctor's `appointment`.
+- We'll just make an `appointment` for you at seattle junior college.
+- I made an `appointment` with father phillip mcnulty at st. bernard's.
+- Well, i do have an orthodontist `appointment` tomorrow for a tune-up.
+- Besides i've got a morning `appointment` tomorrow with elijah's shrink.
+- I had an `appointment` at his office, i think i must have got it wrong.
+- He will take your telephone and address books, your `appointment` books.
+- What i'd like to do, is to make an `appointment` for you at the hospital.
+- At two o'clock we have an `appointment` with none other than roger de bris.
+- I apologize to this body for his `appointment`--i regret i had ever known him.
+- I just wanted to see if my secretary called to confirm your `appointment` tomorrow.
+- Kelson, hold on a second... hi, i'd like to make an `appointment` for peter kelson.
+- Grandpierre asked me about an `appointment` charles had -- on the day he was killed.
+- No doubt my children could make this `appointment` *for* me-- with the greatest ease!
+- Bork, when this is all over, remind me to make you an `appointment` with agent hurley.
+- *now* what am i?--chambermaid to the pied piper of jackson city; *honorary* `appointment`!
+                 

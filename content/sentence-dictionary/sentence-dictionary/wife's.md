@@ -1,0 +1,79 @@
+---
+title: "wife's in a sentence | wife's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wife's"
+---
+- My `wife's` expecting.
+- Gwen, my `wife's` dead.
+- His `wife's` influence.
+- My ex-`wife's` in miami.
+- No, mostly his `wife's`.
+- That's my `wife's` name.
+- Omar, your `wife's` here.
+- Uh, my `wife's` expecting.
+- Your `wife's` gripe sheet.
+- Sell their `wife's` jewelry.
+- Look in your ex-`wife's` eyes.
+- His `wife's` got a year old kid.
+- The `wife's` taking a nap and...
+- My `wife's` going to have a baby.
+- Heard your `wife's` having a baby.
+- Your `wife's` a very lovely woman.
+- His `wife's` pregnant... good luck.
+- My <u>`wife's` having a baby</u>...
+- I got a wife and my `wife's` mother.
+- This was my `wife's` father's place.
+- You told me my `wife's` dying words.
+- You `wife's` made for this business.
+- My `wife's` second cousin is english.
+- Mah `wife's` got this leather satchel.
+- The anniversary of his `wife's` death.
+- His `wife's` jewelry was in the handbag.
+- In fact, uh, my `wife's` pregnant again.
+- You could freeze ice on his `wife's` ass.
+- Of my `wife's` death even more depressing.
+- Surrender yourself to your `wife's` death.
+- It was his first `wife's` favorite picture.
+- They might even sit on your `wife's` chest.
+- I figured my `wife's` boyfriend was taking it.
+- My wife...my `wife's` prescription has run out.
+- I don't want my `wife's` soul having any doubts.
+- I was the cop assigned to your * `wife's` death.
+- My wife... my `wife's` prescription has run out.
+- And my `wife's` in love with a female lumberjack.
+- Carlotta valdes was what: your `wife's` grandmother?
+- Of course, his `wife's` name is sally ann cavanaugh?
+- Why hasn't he gone into his `wife's` bedroom all day?
+- His `wife's` a tramp, but he thinks she's betty crocker.
+- Like the women you slept with behind your `wife's` back.
+- Beg my `wife's` forgiveness before i blow your brains out!
+- Holly ...and his `wife's`, uh, in and out of institutions.
+- What is your `wife's` picture doing by the side of your...
+- His `wife's` in the hospital, has been for a couple months.
+- Yeah, well, if the `wife's` trying to sell it she'll fuck up.
+- Our pastor in sioux falls was caught with his `wife's` sister.
+- Okay... if you're the president, when's your `wife's` birthday?
+- He has his `wife's` jewelry hidden in among his clothes over there.
+- My `wife's` a stickler for protocol, and then what, happily ever after?
+- My `wife's` family is all gone; someone has to look after her interest.
+- You're fucking your `wife's` sister and you hardly been married a year.
+- Bullocks... and because of your `wife's` sacrifice, we need to collect this.
+- If we lose, you could end up having to pay your `wife's` court costs as well.
+- A year here for us has only been that sucked the air out of my `wife's` lungs.
+- I'm thinking about my boy joey and this goddamn fireman my `wife's` seeing.
+- You will never get better if you keep blaming yourself for your `wife's` death.
+- I drew out my `wife's` savings, and if this isn't back by 5:30 i'm a ruined man!
+- My `wife's` picking me up at five-thirty, so that'll give you about three hours.
+- Sleep 'n eat, i was my `wife's` husband and grandchild at one and the same time.
+- The `wife's` family lawyer comes to see the kid, see - to talk over the divorce.
+- Coats, suits, shirts, sox, even his `wife's` -- it doesn't seem to be in any hurry.
+- Marge could use it you think your `wife's` gonna kill you have made you expendable.
+- You know, miles, after my wife -- `wife's` mastectomy -- things were never the same.
+- ...look, pal, it's a tough break, but, uh... well damnit, your `wife's` been pinched.
+- Here's the deal ... my `wife's` pimp knows a guy who works at cedars sinai medical lab.
+- General o'higgins was a close friend of my `wife's` dear father, colonel granby somerset.
+- My `wife's` hair is a wonderful golden yellow, and this time of year it gets even lighter.
+- Suddenly the `wife's` scheming little maid comes in unexpectedly - a very funny situation.
+- I promised five weeks ago that i'd go to the `wife's` birthday party in kenilworth tonight.
+                 

@@ -1,0 +1,7 @@
+---
+title: "tyrannosauruses in a sentence | tyrannosauruses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tyrannosauruses"
+---
+## Unfortunately, we have no example sentences for tyrannosauruses                 

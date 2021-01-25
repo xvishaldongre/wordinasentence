@@ -1,0 +1,107 @@
+---
+title: "french in a sentence | french example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "french"
+---
+- It's `french`, though.
+- Not `french` registry?
+- `French` toast, really?
+- That `french` ain't it?
+- You wanna `french` fry?
+- A `french` alliance?
+- Are you really `french`?
+- `French` fried potatoes!
+- Louis, we were `french`!
+- Oui is `french` for yes.
+- Shit is a `french` word?
+- Well, they are `french`.
+- Shakespeare was `french`!
+- She's `french`, you know.
+- Them `french` fries good?
+- You don't sound `french`.
+- You're `french` ain't ya?
+- Like a bad `french` farce.
+- Oui is `french` for "yes."
+- `French` fries and ketchup.
+- Please excuse her `french`.
+- Sami doesn't speak `french`.
+- They were all `french` guys.
+- But what will the `french` do?
+- Disguised as `french` farmers.
+- Don't you understand `french`?
+- You don't even speak `french`.
+- You `french` women work quick!
+- Caviar, `french` cheese, ham...
+- Must i speak to you in `french`?
+- Yeah, `french` guys from france.
+- `French` toast is gonna come out.
+- It's the `french` secret service.
+- I made `french` toast and sausage.
+- I never touch `french` cigarettes.
+- Isn't that `french` for something?
+- Pardon my `french`, but bull shit.
+- This is <u>`french`</u> champagne.
+- What the `french` call a "homage."
+- Who was that `french` guy, anyway.
+- A maid comes in -- a `french` maid.
+- I'm hanging with the `french` club.
+- Now you've got me talking `french`.
+- She's looking for someone `french`.
+- What did he say to you in `french`?
+- I like them `french`-fried potaters.
+- Still seeing that sexy `french` gal?
+- Can you hand me those `french` fries.
+- Geese-goosing, `french` fry-gravying.
+- The champion of the `french` quarter.
+- When you were a little `french` girl?
+- `French` toast... and mashed potatoes.
+- I didn't know that you spoke `french`.
+- Girls in little `french` bathing suits.
+- How do you say "sommelier" in `french`?
+- Someone who smokes `french` cigarettes.
+- Will you men help us stop the `french`?
+- He doesn't look `french` to me, vincent.
+- Now, let's move on to our `french` exam.
+- Sounds like a `french` word, what is it?
+- `French`, 1920's, attributed to chitarus.
+- I went across to close the `french` door.
+- Said i speak `french` like a spanish cow.
+- To do what the `french` are shamed to do?
+- Louis, are you pro-vichy or free `french`?
+- Now what can i do you for, mister `french`?
+- Sounds `french`--one of those fancy ladies.
+- `French` breakfast puffs above my pay grade.
+- I played charmaine - with a `french` accent.
+- Well, just don't make fun of me in `french`.
+- Because we aren't ready yet for the `french`.
+- What do the `french` love more than anything?
+- So the huron are the servants of the `french`?
+- Would anybody like some `french` tips tonight?
+- The germans and the `french` are gearing up.
+- Shall i teach you `french` while i'm at it, jim?
+- You think it's smart to tell him we're `french`?
+- Then, last night, my dreams were in `french`!
+- I�m `french` but i live in london... ... england.
+- Well, you know, not all algerians speak `french`.
+- `French` people need a visa to enter this country.
+- Good advice for the `french`, not for the english!
+- I am sure you will enjoy the `french` countryside.
+- Me i never really -- and you don't speak `french`?
+- There's a `french` salutation to your `french` slop.
+- Washington, the `french`, cornwallis and tarleton.
+- What�s a `french` private investigator doing here?
+- Where�s the fucking italian, eh, mr `french` hero?
+- Sure do ... my mom's from canada you know `french`?
+- I always wanted to join the `french` foreign legion.
+- I don't appreciate being cooked like a `french` fry!
+- Many things my `french` father cannot do, magua can.
+- Only then will we be able to deal with the `french`.
+- ♪ 'cause you guys and `french` fries ♪ bellamy blake.
+- How many famous `french` film directors can there be?
+- There's a free `french` garrison over at brazzaville.
+- Didn't i ever tell you `french` toast was my specialty?
+- The ones that found the pig hair in the `french` fries?
+- He's `french`, he was just in italy for the competition.
+- May i recommend veuve cliquot '26, a good `french` wine.
+                 

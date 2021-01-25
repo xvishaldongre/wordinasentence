@@ -1,0 +1,107 @@
+---
+title: "Chinese in a sentence | Chinese example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Chinese"
+---
+- [in `chinese`] tell me.
+- [in `chinese`] honeypot.
+- It's a `chinese` legend.
+- [in `chinese`] fall down.
+- You eat `chinese`, right?
+- What `chinese` earthquake?
+- What's a `chinese` heaven?
+- No, `chinese` food is fine.
+- The `chinese` have one goal.
+- The killer wasn't `chinese`.
+- Eileen, `chinese` food again?
+- I brought you `chinese` soup.
+- Why are we speaking `chinese`?
+- They are fighting the `chinese`.
+- A billion people speak `chinese`.
+- [in `chinese`] ms. zhang, please.
+- Say!....anybody up for `chinese`?
+- [shen lo in `chinese`] mr. zhang.
+- The grauman's `chinese` pot bust.
+- Because this is a `chinese` radio.
+- You know, like the `chinese` name?
+- [in `chinese`] don't do that again.
+- [in `chinese`] this way, ms. zhang.
+- [in `chinese`] dad, please trust me.
+- The `chinese` close in five minutes.
+- That's definitely not `chinese` food.
+- Am i speaking `chinese` in this house?
+- I will alert the `chinese` delegation.
+- A `chinese` man discovered electricity.
+- What you got up there, `chinese` bells?
+- You don't speak any `chinese` dialects?
+- It might as well have been in `chinese`.
+- No `chinese` man discovered electricity.
+- Oh, it's a kind of `chinese` fighting...
+- Our friend from the `chinese` restaurant.
+- The `chinese` would never trust us again.
+- Don't you ever touch a `chinese` man's cd.
+- The clock people mistook me for `chinese`.
+- Yeah, i-i was speaking mandarin `chinese`.
+- [in `chinese`] you need to stop doing that.
+- She was a crossbreed, `chinese` and polish.
+- What is the danger from the `chinese`, now?
+- You get massage from `chinese` girl before?
+- `Chinese`, with a briefcase and an umbrella.
+- All the punts lit up with `chinese` lanterns.
+- I got another `chinese` phrase for doolittle.
+- What is that, some kind of `chinese` proverb?
+- Did ya ever see "the `chinese` professionals"?
+- I told you it was pretty weird `chinese` food.
+- I want you to teach me how to speak `chinese`.
+- None of my relatives are `chinese` communists.
+- Whatja do, stop for `chinese` on the way over?
+- Ask the `chinese` mission to leave our country.
+- Order `chinese` for us and meet me the library?
+- What'd they feed you, `chinese` food, right?
+- Overpriced nice apartment and `chinese` takeout.
+- The dalai lama cannot fall into `chinese` hands.
+- But if you do, a `chinese` doctor says i need it.
+- Rizzo, did they have `chinese` food in your time?
+- There's a `chinese` proverb about heaven and hell.
+- Is it the same heaven, or is it a `chinese` heaven?
+- Most of the chamdo region is now in `chinese` hands.
+- His friend says the `chinese` they screw for a while.
+- [shouting in `chinese`] that's enough, that's enough!
+- We call it kepa-she, means hideous snake in `chinese`.
+- "the killer wasn't `chinese`"... cecil stipe was right.
+- We continue to be badly outmaneuvered by the `chinese`.
+- We sent a mission to the `chinese` national conference.
+- Get me those `chinese` language program i asked for.
+- Did you know that fortune cookies aren't even `chinese`?
+- I'd go with you and `chinese` take-out over her any time.
+- "tell me, or i will shoot you in the face," in `chinese`.
+- So anyway, he says, 'whyn't you do what the `chinese` do?'
+- Then he said, "the `chinese` soldiers -- they are coming."
+- Allowing the russians and `chinese` to push the enemy back.
+- [in `chinese`] why are you here instead of looking for her?
+- The most important piece of `chinese` art outside of china.
+- You know, a chigro... part `chinese`, part negro... chigro.
+- When the `chinese` delegation comes out we pick up the pace.
+- [in `chinese`] you were head of security for zhang innovations.
+- I'll stop here so you get grauman's `chinese` in the backgrouns.
+- There's two billion `chinese` - let one of them be your partner.
+- Is that why you and kissinger are negotiating with the `chinese`?
+- All that leaping off buildings and `chinese` fighting and whatnot.
+- Since the `chinese` take-over, who knows what can happen tomorrow?
+- The `chinese` would see such a pact as an open declaration of war.
+- The bloke up there looks a `chinese`, or a mongolian, or something.
+- A prison's still a prison, even with `chinese` silk and chandeliers.
+- No bomb parts found in a three-mile radius of the `chinese` theatre?
+- They sent for the ambassador's personal `chinese` investigator type.
+- A beggar can be called a landlord if he disapproves of the `chinese`.
+- I tell you, those `chinese` were pouncing on me from every direction.
+- Or at least they don't want me grabbed up by the `chinese` or whoever.
+- Would you describe for the court what `chinese` peony root looks like?
+- The voice you're about to hear belongs to the `chinese` military chief.
+- I can't remember much after the `chinese` food that looked like maggots.
+- Why is it necessary for the `chinese` to keep so many soldiers in lhasa?
+- Many who have been invited to dine with the `chinese` do not return home.
+- [in `chinese`] the royal family knows we built this in the hull of a ship.
+- The name is an ancient `chinese` war mantle meaning "advisor to the king."
+                 

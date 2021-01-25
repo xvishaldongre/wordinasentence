@@ -1,0 +1,107 @@
+---
+title: "whole in a sentence | whole example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whole"
+---
+- A `whole` lot of talk.
+- For the `whole` night?
+- I mean, a `whole` lot?
+- In his `whole` career!
+- My `whole` foundation!
+- My `whole` life, kane.
+- A `whole` hatful, mary.
+- A `whole` lot, frankie.
+- Enid ate a `whole` pan!
+- Not a `whole` lot, bob.
+- The `whole` town knows.
+- A `whole` year, in fact.
+- I knew the `whole` maze.
+- I saw the `whole` story.
+- I saw the `whole` thing.
+- No to the `whole` thing.
+- That's my `whole` point.
+- That's the `whole` game.
+- That's your `whole` job?
+- The `whole` eight units.
+- The `whole` summer, man.
+- Well, the `whole` gamut.
+- Against the `whole` town.
+- A `whole` lot of nothing.
+- I want the `whole` thing.
+- My `whole` family's sick.
+- Now i'm a `whole` person!
+- Shoot the `whole` dollar.
+- That's the `whole` point!
+- That's the `whole` point.
+- That's the `whole` story.
+- That's the `whole` thing.
+- This is his `whole` life.
+- Threw my `whole` day off.
+- A `whole` week in bermuda.
+- Fire the `whole` division.
+- I'll call the `whole` pot.
+- I'll take the `whole` set.
+- I'll take the `whole` tin.
+- In fact, her `whole` body.
+- It's been my `whole` life.
+- It�s a `whole` world, sid.
+- Not a `whole` helluva lot.
+- Probably the `whole` city.
+- Take on his `whole` posse?
+- That's the `whole` barrel.
+- The `whole` goddamn story.
+- You're a `whole` new brew.
+- A `whole` week in new york.
+- Has it been a `whole` week?
+- It changes my `whole` body.
+- Joe knew the `whole` story.
+- Lived here my `whole` life.
+- Nerve gas the `whole` nest?
+- That's your `whole` future.
+- That was your `whole` plan?
+- We dumped the `whole` load.
+- You mean the `whole` house?
+- Your `whole` team's fired!"
+- Betty saw the `whole` thing!
+- Change your `whole` persona.
+- I see the `whole` thing now.
+- I was 24 for a `whole` year.
+- I was here the `whole` time.
+- Sandy, scan the `whole` sky.
+- Spent my `whole` life there.
+- There are no `whole` pizzas.
+- There's a `whole` suit here.
+- The `whole` thing was fixed.
+- This `whole` god damn thing.
+- `Whole` country's fucked up.
+- You saved the `whole` party.
+- You've upset my `whole` day.
+- A `whole` crowd of witnesses.
+- In the `whole` goddamn state.
+- It'll flood the `whole` ship!
+- Keep this `whole` area clear.
+- That ain't the `whole` story.
+- The `whole` city has stopped.
+- The `whole` country, in fact.
+- The `whole` thing � painting.
+- This is your `whole` problem.
+- This `whole` thing is a joke!
+- Through the `whole` audience.
+- Yes that's the `whole` point.
+- You'll total the `whole` car.
+- You ruined the `whole` thing!
+- A `whole` week of lovely rain.
+- I just feel... `whole`... now.
+- It looks like a `whole` roast.
+- My `whole` life is a darkroom!
+- Not the `whole` thing, truman.
+- She started the `whole` thing.
+- That's a `whole` 'nother deal.
+- The `whole` disapproval thing.
+- The `whole` dog-and-pony show.
+- The `whole` place would go up.
+- The `whole` thing is my fault.
+- The `whole` town's gone crazy.
+- They own the `whole` building.
+                 

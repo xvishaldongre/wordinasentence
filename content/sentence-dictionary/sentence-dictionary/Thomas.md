@@ -1,0 +1,102 @@
+---
+title: "Thomas in a sentence | Thomas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Thomas"
+---
+- Barnard `thomas` here.
+- `Thomas` wants advice?
+- Oh, `thomas`, her lips!
+- Saint `thomas` aquinas.
+- She loves me, `thomas`!
+- But what about `thomas`?
+- `Thomas` jefferson cole.
+- `Thomas` give you a ride?
+- `Thomas` sandefur... why?
+- I have no claim, `thomas`.
+- What about you `thomas` j?
+- "wickwire, `thomas` dane."
+- Siddown, `thomas`, siddown.
+- What about `thomas` ripley?
+- I can't go without `thomas`.
+- I don't understand, `thomas`.
+- Lieutenant `thomas` wickwire.
+- `Thomas` becker, retired m.d.
+- Yes, `thomas` - i understand.
+- I feel like clarence `thomas`.
+- My `thomas` is a little rusty.
+- That's my son `thomas`'s baby.
+- `Thomas` j, you got something!
+- Where are `thomas` and fedens?
+- Oh `thomas`, a pair of pippins!
+- `Thomas` franklin, an attorney.
+- Yes, `thomas`, that is correct.
+- Father `thomas` should officiate.
+- Hello, `thomas`, how do you feel?
+- Boy, beautiful day, hey, `thomas`?
+- I'm agent `thomas` mackelway, fbi.
+- Now i feel like clarence `thomas`.
+- Take that, paul `thomas` anderson.
+- I don't know anyone named `thomas`.
+- My name is `thomas` jefferson cole.
+- I lost another a year ago, `thomas`.
+- I'm looking for my nephew, `thomas`.
+- I think `thomas` pynchon's a genius.
+- No don't feel like clarence `thomas`.
+- Marty, `thomas` and virginia are here.
+- Cut the doubting `thomas` shit, elaine.
+- I beat `thomas` j in monopoly yesterday.
+- It is, `thomas`, but of good reputation.
+- You knew the subject `thomas` grunemann.
+- You're looking a wee bit green, `thomas`.
+- Hey, since when do you play `thomas` edison?
+- ... oh, claim, that's what `thomas` asked me.
+- We had an interesting talk about you, `thomas`.
+- Your son `thomas` and his wife virginia... who?
+- So mrs. `thomas` said to me, what to do with me.
+- `Thomas` edison knew how to make the light bulb.
+- Agent `thomas` mackelway, crackerjack fbi techie.
+- It's very cold outside today, isn't it, `thomas`?
+- "paasch, james" "pieter, `thomas`" "pos, william."
+- I still think `thomas` pynchon is full of shit.
+- Bob `thomas` is nervous... and god love you for it.
+- The bees killed `thomas` j, and i killed my mother.
+- Well, maybe we should talk ab... ... `thomas`, yeh.
+- I'm serious, `thomas`; i don't want you to get hurt.
+- Sheriff dylan, this is fbi agent `thomas` mackelway.
+- What about dr. `thomas` becker or dr. loel lorenson?
+- Oh, that's probably `thomas` j, i don't wanna see him.
+- That's why it was four years between you and `thomas`.
+- She'd say it to me when i picked on `thomas` or nathan.
+- The writings of saint `thomas` aqu... aquin... that is.
+- Green dragoons came to my home, killed my son, `thomas`.
+- Daddy guess what i beat `thomas` j in monopoly yesterday.
+- Or when he killed `thomas` at the expense of your family?
+- He says he's `thomas` smith and he's calling from the house.
+- Tell `thomas` stick around, i wanna see him about something.
+- At st. `thomas`, it's called the institute for mental therapy.
+- When it was rory's turn to die, and `thomas` was in the way?
+- Because your cousin `thomas` and his wife virginia, they're here.
+- Bob `thomas` has secretly been talking to a european drug company.
+- I think every time i see a climbing tree i'll think of `thomas` j.
+- He would give `thomas` kent the life of viola de lesseps's dreaming.
+- Well, you see, `thomas` i figure the big problem is the supermarkets.
+- Sophie `thomas` mansion -- bedroom -- next </b> domino is asleep in bed.
+- What's a man like you messing around with a black boy like `thomas` for?
+- `Thomas` is dead but you've done nothing for which you should be ashamed.
+- You don't know how to treat a girl like anything but a lady, mr. `thomas`.
+- You son `thomas` and virginia, they come to my house this afternoon... ah?
+- I'm not interested in the latest dating tips from jonathan taylor `thomas`.
+- `Thomas` looked at me straight in the eye and said, "i don't have a father.
+- Vada, something happened to `thomas` j last night, he stepped on a beehive.
+- On march 24, `thomas` sandefur, ceo of brown & williamson had you fired.
+- If this war is about more than `thomas`, it's about more than anne, as well.
+- If you'll excuse me just a moment -- barnard `thomas`, manager of the hotel.
+- I told this to the case officer last week... ...<u>here</u> -- mr. `thomas`.
+- I'm with you, sweetie, but detective `thomas` j. doyle has a pat answer for that.
+- I told mr. `thomas` i didn't know this guy was already married -- i admitted this!
+- Hello, mrs. mathews, my name's `thomas` jones, i'm a state licensed investigator...
+- They've got two kids, a girl about fifteen and a boy younger, jennifer and `thomas`.
+- You are still a maid and perhaps as mistook in me as i was mistook in `thomas` kent.
+- Oh, i'm judy, i go to school with her, i wanted to tell her i'm sorry about `thomas` j.
+                 

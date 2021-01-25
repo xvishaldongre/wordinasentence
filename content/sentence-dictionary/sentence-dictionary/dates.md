@@ -1,0 +1,51 @@
+---
+title: "dates in a sentence | dates example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dates"
+---
+- Even book the `dates`.
+- I have plenty of `dates`.
+- God, i hate blind `dates`.
+- Do you like to go on `dates`?
+- You just changed the `dates`!
+- Ya got a good mind for `dates`.
+- You take all your `dates` here.
+- I'm not crazy about blind `dates`.
+- Take a bag of `dates` and get out!
+- I never know what to do on `dates`.
+- I'm not interested in blind `dates`.
+- Sanford's brother `dates` her cousin.
+- Everything `dates` back to the sixties.
+- Hell, i can't remember `dates` no more.
+- He brings his vacuum cleaner on `dates`?
+- Is that how you get most of your `dates`?
+- You jerk off before all big `dates`, right?
+- You suddenly having trouble getting `dates`?
+- Tell me you jerk off before your big `dates`.
+- All his `dates` have to give him transfusions.
+- `Dates` back to the crusades and king richard.
+- So don juan, you pass out on all your `dates`?
+- I think maybe you've got your `dates` mixed up.
+- I think that we should stop going out on `dates`.
+- And for that… your mother `dates` jocks in hell.
+- Are you having that much trouble gettin' `dates`?!
+- To pop out of toilets to scare couples on `dates`.
+- I'll give you a bag of `dates` for it, nothing more.
+- Well, i guess we're not, since we don't have `dates` .
+- I'm usually nervous myself on first `dates`...but not tonight.
+- Pimps don't get you `dates`, cookie; they just take the money.
+- No `dates` indicated, placed on the shelves in no discernible order.
+- So this brother of yours is hazardous to the health of your `dates`?
+- But you only wore mascara when you and daddy went on romantic `dates`...
+- This is more than fishy, this chick `dates` a dude and he winds up dead.
+- You're so lucky you have george and don't need to go on `dates` anymore.
+- Do you remember when you used to drive me on `dates` with the other boys?
+- I just checked the colony log... directive `dates` six-twelve-seventy-nine.
+- Her name was bridey murphy- and she gives names and `dates` and where she lived.
+- We've got three disappearance cities and `dates`, three parallel discovery cities.
+- We've run simulations, using different vectors and the best `dates` we can assign.
+- Going on alot of `dates` ... seeing lots of men... lots of `dates`.. how have you been?
+- One of our only leads... you had `dates` with both men right before they were killed.
+- Now your mother tells me she is arranging several `dates` for you with some young ladies.
+                 

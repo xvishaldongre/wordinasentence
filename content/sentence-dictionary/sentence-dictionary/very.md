@@ -1,0 +1,107 @@
+---
+title: "very in a sentence | very example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "very"
+---
+- A `very` rare disease.
+- But also `very` young.
+- But i am `very` tense.
+- But i'm `very` stoked.
+- Clever, `very` clever.
+- Er, `very` nice harry.
+- He is `very` thorough.
+- He's `very` realistic.
+- He's `very` `very` sick.
+- He was `very` helpful.
+- He worked `very` hard.
+- I feel `very` strange.
+- I like it `very` much.
+- It's also `very` safe.
+- It's a `very` big one.
+- It ' s `very` curious.
+- It's `very` dangerous!
+- It's `very` exclusive.
+- It's `very` expensive.
+- It's `very` good, eve.
+- It's `very` important.
+- It's `very` organized.
+- It's `very` seductive.
+- It wasn't `very` nice.
+- It was `very` strange.
+- I was `very` charming.
+- I was `very` original!
+- Joyce is `very` upset.
+- My `very` best friend.
+- My `very` good friend!
+- Oh, `very` much... ...
+- Seems `very` familiar.
+- She was `very` groovy.
+- She was `very` pretty.
+- Small, `very` compact.
+- Sounds `very` "cosmo."
+- Sounds `very` violent.
+- Thank you `very` much.
+- That's `very` serious.
+- They're so `very` hot.
+- They're `very` simple.
+- They work `very` hard.
+- This is `very` classy.
+- `Very` arousing women.
+- `Very` good, steed ...
+- `Very` good... yakuza.
+- `Very` much unlike....
+- `Very` outspoken, too.
+- `Very`-- `very` serious?
+- `Very` well, i accept.
+- We are `very` defused.
+- Yes, i'm `very` clean.
+- You are `very` pretty.
+- You're `very`... kind.
+- You're `very` macabre.
+- You're `very` welcome.
+- Your `very` next role.
+- You seem `very` upset.
+- You were `very` lucky.
+- You were `very` upset.
+- Alaska is `very` clean.
+- `Very` well-funded.
+- We're `very` close.
+- A `very` small service.
+- Big chief `very` sorry.
+- He is `very` observant.
+- He must be `very` nice.
+- He's a `very` nice man.
+- He's a `very` sick man.
+- He's doing `very` well.
+- He's still `very` sick.
+- He's `very` mechanical.
+- He's `very` successful.
+- Hopefully, `very` soon.
+- I eat so `very` little.
+- I knew him `very` well.
+- I liked it `very` much.
+- I love eve `very` much.
+- I love her `very` much.
+- I'm a `very` sick girl.
+- I'm `very` competitive.
+- I'm `very` sorry -- me.
+- It is `very` dangerous.
+- It is `very` difficult.
+- It's all `very` normal.
+- It's `very` convincing.
+- It's `very` courageous.
+- It's `very` monotonous.
+- It was `very` silly....
+- It was `very` specific.
+- I want to `very` badly.
+- Just stay `very` still.
+- Not `very` encouraging.
+- Not `very` much, is it?
+- Oh, thanks `very` much.
+- Oh, yeah, `very` tough.
+- Okay, i'm `very` sorry.
+- One `very` small thing.
+- Only at the `very` end.
+- [reality `very` risky.]
+                 

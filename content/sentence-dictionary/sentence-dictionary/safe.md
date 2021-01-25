@@ -1,0 +1,107 @@
+---
+title: "safe in a sentence | safe example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "safe"
+---
+- I'll keep them `safe`.
+- It is not `safe` here.
+- It's also very `safe`.
+- It's ok. we're `safe`.
+- It's perfectly `safe`.
+- I will keep us `safe`.
+- Locked `safe` in here.
+- Madi's `safe` for now.
+- Ok. we're `safe` here.
+- That it's `safe` here.
+- Then you'll be `safe`?
+- They found the `safe`.
+- We'll keep you `safe`.
+- You'll be `safe` here.
+- You�ll be `safe` here.
+- A `safe` place to what?
+- At least you're `safe`.
+- Did you keep it `safe`?
+- It's in a `safe` place.
+- It's ok. you're `safe`.
+- I will keep you `safe`.
+- Maybe... are we `safe`?
+- She is in `safe` hands.
+- She's perfectly `safe`.
+- Shh, you're `safe` now.
+- Skaikru will be `safe`.
+- So, uh, are you `safe`?
+- To find a `safe` place.
+- We'll keep them `safe`.
+- Well, she's `safe` now.
+- Where you'll be `safe`.
+- You are `safe` now, ok?
+- You'll be `safe` there.
+- Your people are `safe`.
+- You told me i'm `safe`?
+- _ arkadia is not `safe`.
+- I'll be `safe` with you.
+- It ain't `safe` for you.
+- It was peaceful, `safe`.
+- Keep `safe` as you pass.
+- Like this, isn't `safe`.
+- Ok, it's `safe` to talk.
+- `Safe` and sound, i see.
+- They're not `safe` here.
+- You know, a fail-`safe`.
+- At least we'll be `safe`.
+- Better `safe` than sorry.
+- He isn't `safe` up there.
+- I am glad you are `safe`.
+- Is it `safe` to move her?
+- It must have been `safe`.
+- It's okay, you're `safe`.
+- Keep the children `safe`.
+- Rather `safe` than sorry.
+- There is a powwow `safe`!
+- They're perfectly `safe`.
+- To be on the `safe` side.
+- You're completely `safe`.
+- All your asses are `safe`.
+- But he knew he was `safe`.
+- Do you think she's `safe`?
+- I don't want to be `safe`.
+- I don�t want to be `safe`!
+- I'm so glad you're `safe`.
+- It's not `safe` out there.
+- It's not `safe`, they say.
+- I want you to feel `safe`.
+- Oh, it's perfectly `safe`.
+- She said it wasn't `safe`.
+- She would never be `safe`.
+- The `safe`'s a simpson 71.
+- To keep each other `safe`.
+- We're `safe`... michael...
+- What `safe` place is that?
+- Why wouldn't he be `safe`?
+- And i seek `safe` passage."
+- And our food `safe` to eat.
+- Are you sure you're `safe`?
+- He would have been, `safe`.
+- I'll find someplace `safe`.
+- Is it `safe` for them here?
+- It's not `safe` down there.
+- It's `safe` for the moment.
+- It was `safe` in the boxes.
+- My princess must be `safe`.
+- No one will ever be `safe`.
+- No, this is the `safe` sun.
+- Please, you're `safe` here.
+- That keeps them all `safe`.
+- Where is the powwow `safe`!
+- Where's the walk-in `safe`?
+- Why should she feel `safe`?
+- I believe it is `safe`, sir.
+- I did it to keep you `safe`.
+- I mean, just to be `safe`...
+- In a `safe` in your bedroom.
+- I never touched that `safe`.
+- In my gun `safe` downstairs.
+- It's a nice, `safe` country.
+- It's not `safe` for us here.
+                 

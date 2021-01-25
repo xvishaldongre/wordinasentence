@@ -1,0 +1,7 @@
+---
+title: "snipping in a sentence | snipping example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "snipping"
+---
+## Unfortunately, we have no example sentences for snipping                 

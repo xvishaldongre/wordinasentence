@@ -1,0 +1,107 @@
+---
+title: "found in a sentence | found example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "found"
+---
+- ...but he `found` you.
+- Charlotte `found` him.
+- El, el, we `found` it.
+- Hey, i `found` a door.
+- I'd a `found` you, ma.
+- _ i `found` a way out.
+- I `found` it... quick!
+- I `found` my stowaway.
+- I `found` you someone.
+- I think we `found` it.
+- Just `found` two more.
+- Look who i've `found`!
+- They `found` the bird.
+- They `found` the safe.
+- We `found` our doctor.
+- We `found` your trunk.
+- What have you `found`?
+- What if he `found` it?
+- You `found` something?
+- I `found` fresh tracks.
+- I `found` it in naples.
+- I... `found` that rock.
+- I `found` the location.
+- I `found` the pentacle.
+- I `found` the treasure!
+- I'm glad i `found` you.
+- I'm lucky i `found` it.
+- I think i `found` it.
+- Lunacharsky `found` it.
+- Suppose he `found` out.
+- They `found` us before.
+- We finally `found` him.
+- You `found` the sliver.
+- You haven't `found` us.
+- Then i `found` this.
+- But i `found` the money.
+- `Found` it my bartletts.
+- He `found` your letters.
+- I `found` another hatch.
+- I `found` a secret room.
+- I `found` a square hole!
+- I `found` something new.
+- I `found` the clitoris!!
+- Is that all you `found`?
+- Oh - i've `found` plums.
+- Or what i `found` there.
+- Raven `found` something.
+- She `found` a boyfriend.
+- She's got to be `found`.
+- She's really `found` it.
+- The plastique i `found`.
+- They `found` an eyelash.
+- They `found` his tracks.
+- They `found` my eyelash.
+- We `found` him, trinity.
+- Yo, look what i `found`.
+- You `found` his mugshot?
+- You `found` my treasure?
+- You `found` the leopard!
+- Your mother `found` you.
+- Check out what i `found`.
+- He `found` us even there.
+- I `found` dickie's rings.
+- I `found` it in the barn.
+- I `found` it on the seat.
+- I `found` lisa henderson.
+- I `found` that byers boy.
+- I `found` that stressful.
+- I know how he `found` me.
+- I said: i `found` a room.
+- It's good you `found` it.
+- I've `found` a new focus.
+- Look, life `found` a way!
+- Remember what we `found`?
+- That's how he `found` me.
+- The limit is not `found`.
+- They came and `found` me.
+- We `found` it in his car.
+- We `found` the originals.
+- Who `found` the evidence?
+- Yep, i `found` something.
+- You hear i `found` jesus?
+- Your new-`found` friends.
+- You've `found` something.
+- `Found` somewhere new.
+- But we `found` each other.
+- Dmt `found` in his system.
+- Have you `found` your man?
+- He `found` them as murman.
+- He `found` you, didn't he?
+- If ed ever `found` out....
+- I `found` him lying there.
+- It's time you `found` out.
+- I've `found` my soul mate!
+- I've `found` someone else.
+- I've `found` them... - no.
+- Later he was `found` dead.
+- Oh, look what you `found`.
+- So you've `found` thorkel?
+- That is how i `found` out.
+                 

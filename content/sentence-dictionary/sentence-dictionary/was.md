@@ -1,0 +1,107 @@
+---
+title: "was in a sentence | was example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "was"
+---
+- At least i `was` here!
+- Because i `was` there.
+- Benny `was` my friend.
+- Bob `was` a grown man.
+- Boy, `was` he burning.
+- But it `was` business!
+- But it `was` horrible.
+- But it `was` my fault.
+- But it `was` too late.
+- But nobody `was` hurt.
+- Cause he `was` a liar.
+- Cuz he `was` an apple?
+- Damn, that `was` fast.
+- Dude, i `was` drugged.
+- Dude, that `was` lame.
+- _ echo `was` a coward.
+- Even if it `was` true.
+- Everything `was` calm.
+- Everything `was` cool.
+- Everything `was` okay.
+- Father `was` a doctor.
+- Frank `was` a no-show.
+- Guess who `was` in it?
+- Happy `was` concerned.
+- Her name `was` eleven.
+- He said i `was` right.
+- He `was` ace's banker.
+- He `was` a good fella.
+- He `was` almost there.
+- He `was` a modest man.
+- He `was` a nice guard.
+- He `was` a nice horse.
+- He `was` a politician.
+- He `was` a scumbag!...
+- He `was` a strategist.
+- He `was` at the scene.
+- He `was` born with it.
+- He `was` carrying her.
+- He `was` fine, then...
+- He `was` here earlier.
+- He `was` in the lobby.
+- He `was` in your room?
+- He `was` just a patsy.
+- He `was` killed today.
+- He `was` only fifteen.
+- He `was` only kidding.
+- He `was` on the phone.
+- He `was` ready for it.
+- He `was` really upset.
+- He `was` sitting here?
+- He `was` there, tatum.
+- He `was` too far away.
+- He `was` very helpful.
+- He `was` watching you.
+- He `was` your brother.
+- His name `was` swifty?
+- How it `was` possible.
+- How long ago `was` it?
+- How long `was` i gone?
+- How the web `was` won.
+- How `was` the concert?
+- How `was` the fishin'?
+- How `was` the funeral?
+- How `was` your day...?
+- How `was` your flight?
+- How `was` your summer?
+- I certainly `was` not!
+- I don't think i `was`.
+- I'd say it `was` down.
+- If he `was` a traitor.
+- I guess i `was` wrong.
+- I knew he `was` alive.
+- I knew it `was` there.
+- I knew where it `was`.
+- I know, i `was` wrong.
+- I never said it `was`!
+- I never `was` anybody.
+- I swear it `was` here.
+- I thought he `was` it.
+- I thought i `was` one.
+- It `was` a compliment!
+- It `was` a dull party.
+- It `was` a good thing.
+- It `was` a good try...
+- It `was` a great city.
+- It `was` a hate crime.
+- It `was` a kill squad.
+- It `was` all bullshit.
+- It `was` all clear ...
+- It `was` all they had.
+- It `was` almost fatal.
+- It `was` a lot of fun.
+- It `was` always swann.
+- It `was` an emergency.
+- It `was` a "pleasure."
+- It `was` a put-up job?
+- It `was` a rush thing.
+- It `was` as he said...
+- It `was` a slow night.
+- ...it `was` a toss-up.
+                 

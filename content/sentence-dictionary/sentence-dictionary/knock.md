@@ -1,0 +1,107 @@
+---
+title: "knock in a sentence | knock example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knock"
+---
+- I said `knock` it off!
+- `Knock` his block off!
+- We'll `knock` him out.
+- `Knock` it off, damone.
+- `Knock` it off, gerald.
+- `Knock` it off, hudson.
+- You wanna `knock` of f?
+- I `knock` things over...
+- `Knock` off that racket!
+- Let's `knock` off early.
+- Or just `knock` us over.
+- `Knock` it off, will you?
+- `Knock` it off, you guys!
+- `Knock` off the grab-ass!
+- Marylin is a `knock`-out.
+- Your mom doesn't `knock`?
+- All right, `knock` it off.
+- Do i `knock` or something?
+- Don't you fucking `knock`?
+- Gonna `knock` down a wall?
+- _ - i said `knock` it off!
+- I didn't `knock` julia off.
+- `Knock` it off, you idiots.
+- `Knock` off that whistling.
+- They usually `knock` first.
+- And you still can't `knock`.
+- Don't you guys ever `knock`?
+- I'm gonna `knock` you dizzy.
+- `Knock` off auto-pilot, ace.
+- She's a `knock`-out, too.
+- I'll `knock` 'em in, charlie.
+- That we `knock` this guy off?
+- Would you two `knock` it off?
+- Come on sheila, `knock`-`knock`.
+- Would you `knock` it off, sam?
+- And `knock` over all the crows.
+- Did you `knock` on the door yet?
+- Hey... don't `knock` librarians.
+- Hey, don't `knock` masturbation!
+- I want to `knock` her guard down.
+- `Knock` it off will you, general?
+- `Knock` them out, we tie them up.
+- That would `knock` my father out.
+- Aw `knock` it off, yer scarin' me.
+- Let 'em `knock` each other bloody.
+- They'll `knock` that headache out.
+- By all means, `knock` yourself out.
+- Don't `knock` it till you tried it.
+- Time comes, we `knock` on the door.
+- Watch you don't `knock` out a fish.
+- I don't mean it as a `knock` either.
+- Nigga, you got `knock` the fuck out.
+- So we're gonna `knock` 'em both off?
+- You're right, let's `knock` it down.
+- Well, boys, i guess we'll `knock` off.
+- You go out and `knock` 'em dead keith.
+- If you can't `knock`, i can't hear you.
+- Or you can let him `knock` himself out.
+- That book will `knock` you on your ass.
+- You didn't give me a chance to `knock`.
+- You `knock` off twenty and then we see.
+- Come on, this stuff will `knock` you out.
+- Next time they walk right up and `knock`.
+- You need to `knock` off the pills, clair.
+- Whatever you're doing, `knock` it off.
+- Don't make me `knock` the piss out of you.
+- Everybody lookin' ta `knock` somebody off!
+- I `knock` him out, and i take his keycard.
+- `Knock` it down in miami, it pops up here.
+- But that'll `knock` out our communications!
+- I ought to `knock` you on your goddamn ass!
+- They write, they even `knock` on your door.
+- `Knock` 'em dead, like your old man used to!
+- `Knock` that boy out soon an' let's go home.
+- Well, i may as well `knock` off for tonight.
+- I bet he could `knock` down a whole building.
+- Newt time then can walk right up and `knock`.
+- Now `knock` it of i'm averting my eyes, lord.
+- I can `knock` a man out with a six inch punch.
+- I know how this wood will sound when i `knock`.
+- I'm lucky they don't `knock` down the building.
+- I'm not too old to `knock` the snot out of you!
+- Never in my twenty-four years, `knock` on wood.
+- They're new to us... just `knock` it off, 'kay?
+- Come on, let's `knock` off and go down to joe's.
+- 'scuse me, partner, but that's a ghetto `knock`.
+- When we `knock` off let's have a bit of a party.
+- Only open the door if you hear my secret `knock`.
+- This is bob sugar, who needs to learn to `knock`.
+- Does anyone ever `knock` over a casket on purpose?
+- Don't mouth me, old man, i'll `knock` yo' out too.
+- I'd `knock` on the door and you wouldn't be there.
+- You want to make it real, just `knock` on my door.
+- They'd like us to `knock` out those batteries, sir.
+- What did you do, `knock` her out, shoot her up... ?
+- Gimme that bag before i `knock` you out and take it.
+- You... you `knock` the code, when you come back, ok?
+- Didn't i tell you to `knock` before you came in here?
+- She's only fourteen... maybe we should `knock` first?
+- A little `knock`-and-talk, making friends in pakistan.
+                 

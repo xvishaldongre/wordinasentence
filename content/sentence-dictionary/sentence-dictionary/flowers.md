@@ -1,0 +1,107 @@
+---
+title: "flowers in a sentence | flowers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "flowers"
+---
+- You brought `flowers`.
+- `Flowers` become fruit.
+- I don't like `flowers`.
+- It's for the `flowers`.
+- Who sent the `flowers`?
+- I brought you `flowers`.
+- Look at those `flowers`.
+- Or maybe these `flowers`.
+- Don't send `flowers`, joe.
+- I bring her `flowers` too.
+- ..the limo.-the `flowers`.
+- You paid for my `flowers`?
+- You promised me `flowers`.
+- Suits, honor and `flowers`.
+- A smaller bowl of `flowers`.
+- Do you appreciate `flowers`?
+- I'll send you some `flowers`.
+- So, `flowers` and sauerkraut.
+- Those `flowers` are too high.
+- Which `flowers` did you order?
+- Many dead `flowers` ... oh.
+- The `flowers` aren't poisonous.
+- Where'd you get them `flowers`?
+- You mean with the `flowers`...?
+- ...and thanks for the `flowers`.
+- Thank you for the `flowers`.
+- You know, bringing me `flowers`.
+- Who sent you the `flowers`, earl?
+- I'll put these `flowers` in water.
+- What am i gonna do with `flowers`?
+- The `flowers`... they're beautiful.
+- Why do `flowers` open their petals?
+- Would you like one of my `flowers`?
+- I take it back, about the `flowers`.
+- Like `flowers` after the snow melts.
+- There were more `flowers` last year.
+- Yeah, i want mandolins, `flowers`...
+- Do you know who frankie `flowers` is?
+- I'll see that she gets the `flowers`.
+- I wanted to bring you some `flowers`.
+- What are you doing with my `flowers`?
+- You arrange those `flowers` yourself?
+- The draft blew over the `flowers`.
+- Those weird `flowers` in the cave?
+- Larry brought me `flowers` last night.
+- You think he's been picking `flowers`?
+- You even steal `flowers` for his grave.
+- He gives jessica the `flowers` and tape.
+- The `flowers`... let's not pick them.
+- I better send meg `flowers` just in case.
+- Meaning-- let a thousand `flowers` bloom.
+- The smell of `flowers`... you were there?
+- Were those `flowers` really for me, brad?
+- Who taught you about `flowers` and herbs?
+- Men sill give women `flowers`, don't they?
+- Oh, by the way - did you get my `flowers`?
+- Thanks for getting rid of those `flowers`.
+- Besides we have a garden full of `flowers`.
+- The `flowers` in thorwald's pet flower bed.
+- I ain't seen fresh `flowers` since my ma died.
+- I don't give a fig about `flowers`, of course.
+- Lloyd, send her `flowers`, write her a letter.
+- I ain't done arranging your `flowers`, egghead.
+- What kind of `flowers` ya want at your funeral?
+- Tell them to send `flowers` to the usual address.
+- The sight of you makes `flowers` seem like dross.
+- Yah -- i brought her some `flowers` this morning.
+- It was a fella that sends you `flowers` every day.
+- Brung you `flowers` and all i gettin's facety back.
+- `Flowers` are continual reminders of our mortality.
+- I've sent her telegrams, i've sent her `flowers`...
+- Jerry, these `flowers` aren't really for me �� yes.
+- A famous actor bringing me `flowers` on my birthday.
+- He's an old friend and his interest is in `flowers`.
+- [mycroft] enough with the bally `flowers`, sherlock.
+- That red sweater with the little `flowers`, i think.
+- If you get mad at me, i gotta give you `flowers`.
+- With your `flowers` and your perfect life... tell me.
+- Since when do `flowers` grow shorter in two weeks?
+- Party favors, `flowers` -- hi dad, hi drew -- you ate?
+- Something about advantage, suits, honor and `flowers`.
+- I just picked them up on the way over... oh, `flowers`!
+- That was nice of that woman to give you them `flowers`.
+- Those `flowers` have been taken up, and put back again.
+- Wait a minute -- she took your grandmother's `flowers`?
+- Here give me the `flowers`, i'll do something with them.
+- If we had known we would have greeted you with `flowers`.
+- What color `flowers` you want me to bring to your funeral?
+- You promised me `flowers` tonight, don't you even remember?
+- `Flowers` incorporate a beauty that i always missed in life.
+- Yeah, that and, like, maybe don't get `flowers` wait, a date?
+- It's clean and airy and quiet -- there are trees and `flowers`.
+- No one's blaming you for it, i hear she's worth the `flowers`.
+- Y'know, even the most beautiful `flowers` still grow from dirt.
+- He made thousands of different `flowers`... you look nice, sweetie.
+- You know -- it's funny but `flowers` only mean one thing to me now.
+- Why, if you're passionate about `flowers`, would you come to london?
+- In the middle of the night -- those `flowers` make me think of a funeral.
+- It's flat... there's no food, no colors ... you can't smell the `flowers`.
+- Jimmy, would you please put those poor `flowers` in water before they die?
+                 

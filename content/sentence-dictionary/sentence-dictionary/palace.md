@@ -1,0 +1,94 @@
+---
+title: "palace in a sentence | palace example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "palace"
+---
+- Thief in the `palace`.
+- Thief in the `palace`?
+- But i get the `palace`.
+- Or buckingham `palace`.
+- Run get to the `palace`!
+- Pancho's taco `palace`...
+- The `palace` is mine now.
+- Outside the `palace` walls.
+- The fun `palace` is a tomb.
+- They gave me this `palace`.
+- We'll head to the `palace`.
+- A tunnel under the `palace`.
+- Should live in the `palace`.
+- _ the `palace` is off limits.
+- To the `palace` at whitehall.
+- Yo, you all seen my `palace`?
+- The chambers of this `palace`.
+- They just opened the `palace`.
+- We have no use for a `palace`.
+- You're wanted in the `palace`.
+- You will go to `palace` there.
+- It's a fuckin persian `palace`.
+- Did he try to enter the `palace`?
+- Rubbing the `palace` in our faces.
+- What, i live in a `palace`, right?
+- I have just come from the `palace`.
+- I have to get back to the `palace`.
+- It's called... the gritty `palace`.
+- He's broadcasting from the `palace`.
+- The `palace` of the legion of honor.
+- We said the `palace` was off limits.
+- Is there a problem with the `palace`?
+- This is the staircase of the `palace`.
+- Fun for a little boy in an old `palace`.
+- We just have to get him to the `palace`.
+- In the machine shop and not the `palace`?
+- That `palace` is... an exploratory group.
+- And raven reyes to meet us at the `palace`.
+- It used to decorate the `palace` of a king.
+- Like take that trip to buckingham `palace`.
+- It is pankot `palace` that kills my village.
+- They're going to attack frank's fun `palace`!
+- To pull our attention away from the `palace`.
+- The taj mahal wasn't a `palace`, it was a tomb.
+- We live in a `palace` - at the end of the world.
+- We'll talk about it over dinner at the `palace`.
+- Should've been delivered to the `palace` already.
+- You always said you wanted to live in a `palace`.
+- Or is it `palace` life that's giving you that glow?
+- We are moving him to the `palace` for his own safety.
+- O, that deceit should dwell in such a gorgeous `palace`.
+- Burning down the `palace` was a bit extreme, - thank you.
+- It comes from the merchant boats straight to the `palace`.
+- It's a big thing for them, it's like... caesar's `palace`.
+- I had the honor of being on guard at the summer `palace`...
+- My `palace` in petrograd... yes, you took that away from me.
+- They came from `palace` and took sivalinga from out village.
+- We found a tunnel that leads to a temple below the `palace`!
+- And panic, locking themselves inside the `palace`, i'm sorry.
+- Now there is new maharajah -- and `palace` is powerful again.
+- In the `palace` as a child, on the train and now ... it's him.
+- I'm gone for half a day, and now the `palace` you dumb turkeys.
+- Hasn't the pankot `palace` been deserted since the mutiny of 1857?
+- She's done well for herself--on her own and all-- a real `palace`.
+- And on our way to the `palace` to kill the people _ - who's crazy now?
+- Michelle, she -- the king has invited her to come live in the `palace`.
+- You think we're dividing their forces, let's take them to the `palace`.
+- Maybe... is that what you're hoping to find at this `palace`, dr. jones?
+- I don't want to sit i think you better sit down the `palace` in new york.
+- Listen, i'm taking applications -- how'd you like to be my `palace` slave?
+- That last night in the `palace`... one boy showed us kindness and courage.
+- I could ask her in the carriage -- but it is more romantic at the `palace`.
+- Or do you still think you're issuing orders from your `palace` in petrograd?
+- Please join us on the `palace` level polaris, that's part of our story, too.
+- He says the british have left the `palace`, which proves kali ma's new power.
+- Kind of a step down from a golden `palace` for an avenger highness or whatnot.
+- It was krishna who made you fall from sky -- so you can got to pankot `palace`.
+- So come home and live rent free, 'stead of that cockroach `palace` you live in.
+- I expect you've got a `palace` and fine clothes and courtiers and plenty of food.
+- You know the villagers also claimed that this `palace` stole something from them.
+- I'm moving him to the `palace` i'm sorry it has to be this way, abby, now come on.
+- Maybe... but how do you explain the thuggee shrine i saw right below the `palace`?
+- When i was a little girl i was taken to the `palace` in vienna, to a garden party.
+- So when's that sebastian-cabot- buckingham-`palace`-looking- butlerhead getting here?
+- You think i want my future children to know their daddy created frank's fun `palace`?
+- Jasper, you're never gonna move past this i just meant this `palace` is sacred to them.
+- According to the flight recorder, i need you to order your people to leave the `palace`.
+                 

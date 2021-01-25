@@ -1,0 +1,107 @@
+---
+title: "colonel in a sentence | colonel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "colonel"
+---
+- `Colonel`, just think.
+- Good night, `colonel`.
+- I'm `colonel` heffner.
+- Holy `colonel` mustard.
+- Thank you, `colonel`...
+- Good morning, `colonel`.
+- How we doing, `colonel`?
+- Are you ready, `colonel`?
+- `Colonel`, it's mccreary.
+- `Colonel` kurtz, i guess.
+- `Colonel` munro sent him.
+- Don't mind the `colonel`.
+- I'm afraid so, `colonel`.
+- Stop worrying, `colonel`.
+- ...there's a `colonel`...
+- This is `colonel` diyoza.
+- He's all yours, `colonel`.
+- Make it snappy, `colonel`.
+- That's billion, `colonel`.
+- We can explain, `colonel`.
+- `Colonel` charmaine diyoza.
+- `Colonel` kurtz, he's dead.
+- Do you see that, `colonel`?
+- Patience, `colonel` arnold.
+- That's the plan, `colonel`.
+- This is `colonel` richards.
+- What's going on, `colonel`?
+- `Colonel`...we're all going.
+- Isn't that right, `colonel`?
+- What do you mean, `colonel`?
+- What will you do, `colonel`?
+- Which one's the `colonel`'s?
+- Chopper coming in, `colonel`.
+- Close shot: of the `colonel`.
+- I talked to `colonel` diyoza.
+- You get the point, `colonel`?
+- `Colonel` blake, have no fear.
+- Hey, stop worrying, `colonel`.
+- Oh, hell--sit down, `colonel`.
+- Thank you for that, `colonel`.
+- We don't trust you, `colonel`.
+- You and the `colonel` go back.
+- `Colonel` anderson this one is.
+- `Colonel` - shooting's no good!
+- You wanted to see me `colonel`?
+- Everything all right, `colonel`?
+- Jarvis: good evening, `colonel`.
+- Didn't they tell you, `colonel` ?
+- I'm here to see `colonel` diyoza.
+- That's it, here we go, `colonel`.
+- ♪ is failing ♪ `colonel`, it's me.
+- Octavia, this is `colonel` diyoza.
+- `Colonel`, we have 5 more hostiles.
+- `Colonel` lee, with your permission?
+- `Colonel` lipnik, if you don't mind.
+- Stop acting like a `colonel`, henry.
+- Tell the `colonel` what you told me.
+- The `colonel` helped me work it out.
+- What are you looking for, `colonel`?
+- _ in the name of survival, `colonel`.
+- Want to say goodbye to the `colonel`?
+- Yes, m. thank you `colonel` everhart.
+- `Colonel`, we have five more hostiles.
+- <font color=#ffff2d>i'm `colonel` g.t.
+- Oh, you don't talk to `colonel` kurtz.
+- [9] close shot: john and the `colonel`.
+- `Colonel` greenhill's compliments, sir.
+- `Colonel` heffner's in full charge now.
+- I have a question for `colonel` diyoza.
+- It isn't my army yet, `colonel` greene.
+- The `colonel` sent a man to pick me up.
+- `Colonel` charles lee... hounds and all.
+- `Colonel`, to f-fight you need strategy.
+- On loan from `colonel` doolittle, is it?
+- `Colonel`, sir, who the hell is this guy?
+- How do you think i got to be a `colonel`?
+- I'm `colonel` "bat" guano, 701 battalion.
+- Look, `colonel`... we're all adults here.
+- `Colonel`, don't you know what's going on?
+- `Colonel`, those are all parts of mahjong.
+- `Colonel`, you're not drunk, are you, man?
+- Come on, `colonel`, let's get out of here.
+- If it's too late-- come on in-- `colonel`.
+- I thought you were bringing the `colonel`?
+- Lieutenant `colonel` henry braymore blake.
+- That's `colonel` dymshitz, on the far side.
+- There's not that much down here, `colonel`.
+- At fort william henry under `colonel` munro.
+- I called my folks, then `colonel` doolittle.
+- I'm waiting for the fucking boat, `colonel`.
+- What's that red ribbon on his arm, `colonel`?
+- `Colonel` dymshitz asked specially to see you.
+- `Colonel` jones thinks it advisable we attend.
+- `Colonel`, those are all tile sets in mahjong.
+- There's no point appealing to `colonel` blake.
+- `Colonel`, shoot the lock off the coke machine.
+- `Colonel`, wait a minute, they may be here now!
+- That's how `colonel` harper lost his little toe.
+- `Colonel` nathanael greene, rhode island militia.
+- First virginia regulars under `colonel` hamilton.
+                 

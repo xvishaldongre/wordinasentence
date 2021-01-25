@@ -1,0 +1,107 @@
+---
+title: "plans in a sentence | plans example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plans"
+---
+- Got `plans` of my own.
+- Gus those are `plans`.
+- I had immense `plans`.
+- Mom and i got `plans`.
+- We have `plans`, ruth.
+- What are your `plans`?
+- I've got other `plans`.
+- A man who `plans` ahead.
+- Do you have any `plans`?
+- What are my `plans` now?
+- But you upset my `plans`.
+- I kind of had `plans`....
+- Annie had no `plans`, huh?
+- I don't my `plans` myself.
+- I told you i have `plans`.
+- It's too late for `plans`.
+- So we can fix the `plans`.
+- Ya got any `plans` for it?
+- You and mom got "`plans`?"
+- And you ruined our `plans`.
+- I know you've made `plans`.
+- I see `plans` within `plans`.
+- Oh, hey, change of `plans`.
+- We had these grand `plans`.
+- All the `plans` we have.
+- He has other `plans` for me.
+- I'll just bring the `plans`.
+- Oh, i don't have no `plans`.
+- We've got some `plans` here.
+- Thanks, but i've got `plans`.
+- Have you made any `plans` yet?
+- There was a change in `plans`.
+- What are your `plans` now, mr.
+- Grandpa has `plans` of his own.
+- I had such big `plans` for you.
+- So i dusted off some old `plans`.
+- Thanks, but... we've got `plans`.
+- There's been a change of `plans`.
+- I want to make `plans` to see you.
+- No `plans` for the weekend, linda?
+- So, i dusted off some old `plans`.
+- Well, hunt, what are your `plans`?
+- What are your `plans` in new york?
+- We have different `plans` for them.
+- Got no `plans`, rayburn, nothing on.
+- I never make `plans` that far ahead.
+- We can discuss the `plans` in lhasa.
+- He had a copy of my original `plans`.
+- Make `plans` for lechter's abduction.
+- What are your `plans` for the future?
+- Yeah, but we-we made so many `plans`.
+- You are interfering with my `plans` !
+- Unfortunately, echo had other `plans`.
+- Well, i'm so sorry, change in `plans`.
+- What are your `plans` for the weekend?
+- I do have `plans` of my own, you know?
+- `Plans` don't last very long in battle.
+- What are your `plans` for this evening?
+- Wonkru know you have my battle `plans`.
+- You guys are gonna screw up my `plans`.
+- You never have any faith in my `plans`.
+- You said you had `plans` of the museum.
+- Change of `plans`, ladies and gentlemen.
+- Leo and durk and i will make our `plans`.
+- Sometimes these `plans` can be dangerous.
+- Your mother has such big `plans` for you.
+- The floor `plans` will be a piece of cake.
+- Annie... annie may have made other `plans`.
+- Have you thought at all about your `plans`?
+- I don't see you coming up with any `plans`.
+- What are your `plans` while you're in town?
+- A lot of people made `plans` before the war.
+- So put your `plans` of my room in the trash.
+- What i mean is...no `plans` at the moment...
+- Yeah, we all love to make `plans`, don't we?
+- He said his `plans` had changed unexpectedly.
+- I disguised myself to sabotage their `plans`.
+- I'm not too concerned with long term `plans`.
+- Or wouldn't that fit into your `plans`, baby?
+- Stay here, go over the `plans` with smirnoff.
+- They made `plans` to meet again next weekend.
+- I was wondering... do you have dinner `plans`?
+- `Plans` don't change... maybe `plans` changed...
+- Something under the floor, not in the `plans`.
+- Well, forgive me for screwing up your `plans`!
+- What kind of professional `plans` do you have?
+- Your `plans` are a little different this time.
+- Do you have `plans` to return soon, dalai lama?
+- Something under the floors, not on the `plans`.
+- You're fucking me, and we haven't made `plans`.
+- You and your boyfriend have big `plans`, do you?
+- You stand me up... - yeah, well, change of `plans`.
+- Are there any `plans`... - for another krusty movie?
+- We've got <u>big `plans`</u> for that body of yours!
+- He's just full of `plans` that aren't gonna work out.
+- I mean, you know, if you don't have... other `plans`.
+- He's got these `plans` - you've got to help me, james.
+- Listen, i don't have any `plans`-- you want some help?
+- Now return to your homes and never make `plans` again.
+- You are always saying how i never make `plans` for us.
+                 

@@ -1,0 +1,107 @@
+---
+title: "drugs in a sentence | drugs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drugs"
+---
+- The `drugs` and stuff.
+- What is it -- `drugs`?
+- Where are the `drugs`?
+- But i don't do `drugs`!
+- I left those `drugs`...
+- It isn't `drugs` is it?
+- Let's get some `drugs`!
+- Like you're on `drugs`.
+- They are using `drugs`.
+- Huh... leon did `drugs`.
+- Well, i'm not on `drugs`.
+- Did mr. marsh use `drugs`?
+- Frida, are you on `drugs`?
+- Never drink or do `drugs`.
+- The money and the `drugs`.
+- You don't deal `drugs`?
+- `Drugs`... then jason came.
+- I think tom was on `drugs`.
+- But no `drugs` in her blood.
+- Have you been using `drugs`?
+- I'm not taking `drugs`, dad.
+- I'm totally against `drugs`.
+- It's not `drugs`, just weed.
+- Are you on `drugs` right now?
+- `Drugs` are bad..." whatever.
+- He's been tested for `drugs`?
+- I don't take `drugs`, anyway.
+- I think he's high on `drugs`.
+- That's your `drugs` speaking.
+- Who told you we deal `drugs`?
+- File a missing `drugs` report?
+- Frances, you're fulla `drugs`.
+- Users of recreational `drugs`.
+- You must not bring in `drugs`.
+- Give 'em `drugs`, psychedelics.
+- They forced me to take `drugs`.
+- And they knew about the `drugs`.
+- But `drugs` is a dirty business.
+- Do you use `drugs`, ms. tramell?
+- I also don't believe in `drugs`.
+- I think i�d rather have `drugs`.
+- You're drunk, you're on `drugs`.
+- How do you know it's not `drugs`?
+- That my `drugs` had gone through.
+- The `drugs` just stopped working.
+- You know where i can get `drugs`?
+- `Drugs` can help suppress symptoms.
+- Like i was on `drugs` or something.
+- There were no `drugs` on that boat.
+- What kind of `drugs` has she tried?
+- You've got 12 more `drugs` to test.
+- Maxie knows i don't go near `drugs`.
+- No cigarettes, no `drugs`, no booze.
+- You spent it on `drugs`, didn't you?
+- He says he just received the `drugs`.
+- Is everybody in this town on `drugs`?
+- Where does the chief get the `drugs`?
+- Do you keep any `drugs` in your house?
+- Learn your `drugs` -- know your doses.
+- Now go sell the safe legal `drugs` mm.
+- Religion, greed, philanthropy, `drugs`.
+- We got a guy who's probably on `drugs`.
+- Do they have any reputation for `drugs`?
+- I'm not looking for analysis or `drugs`.
+- Were you mixed up in the `drugs`, betty?
+- But i think the yellow man is on `drugs`.
+- I think they running `drugs` off tijuana.
+- Jeez, right, then why don't i do `drugs`?
+- Probably from the `drugs` she was taking.
+- That death-warmed over person on `drugs`?
+- That's why you can't stop taking `drugs`.
+- Deal `drugs` in the bathroom-- it's a bar.
+- First it was `drugs`, now it's witchcraft.
+- I never took cocaine or any other `drugs`.
+- I said sex and `drugs` and... punch it in!
+- The police think he was high on `drugs`...
+- They're putting `drugs` in our medication?
+- Now have you been doin' some `drugs` today?
+- Oh, terri ... buying some `drugs`, alright?
+- Sex and `drugs` and hbo is all i ever need!
+- Smell like chemicals...for smoking `drugs`.
+- The tailored dress is our code for `drugs`.
+- Why would someone force you to take `drugs`?
+- These aren't my `drugs`-i just sell them.
+- Don't they deal `drugs` and rape young girls?
+- Maybe you've been taking too many `drugs`.
+- And somehow frank is getting all their `drugs`.
+- I ain't never taken no `drugs`, mister, and ...
+- I think these people are involved with `drugs`.
+- All i know is it ain't `drugs` and it ain't now.
+- Spend it on `drugs` and i'll pull your hair out.
+- That... huh... they just shoot you with `drugs`.
+- I just carried the `drugs` from the chief to sam.
+- So buckle down now and go get mommy some `drugs`.
+- The only place i don't bring my `drugs` is church.
+- We lure him on land and pump him with the `drugs`.
+- If i die... could you throw all my `drugs` out?
+- I'm talking about a cop that's mixed up in `drugs`.
+- These can also be used to move women and `drugs`...
+- We think he might be making a reference to `drugs`?
+                 

@@ -1,0 +1,107 @@
+---
+title: "fixed in a sentence | fixed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fixed"
+---
+- I just got it `fixed`.
+- Naw, it's all `fixed`.
+- We can get it `fixed`.
+- You `fixed` this suit?
+- Did you get it `fixed`?
+- I gotta get'em `fixed`.
+- Who `fixed` your ducts?
+- The engines are `fixed`.
+- I mean it `fixed` itself.
+- Regardless, i `fixed` it.
+- Are indicated and `fixed`.
+- I'm sure my men `fixed` it.
+- Not until my car's `fixed`.
+- `Fixed` up like movie stars.
+- The whole thing was `fixed`.
+- They're `fixed` and dilated.
+- I'll get it `fixed` by a pro.
+- Mom, he just `fixed` our car.
+- Yeah, well, you `fixed` that.
+- How're ya `fixed` for cavalry?
+- I got to get this rig `fixed`.
+- They should have been `fixed`.
+- I pulled in to have it `fixed`.
+- I thought dejesus `fixed` that?
+- Next we have the `fixed` ropes.
+- Remember, get the seat `fixed`.
+- Well, tinnitus can't be `fixed`.
+- How're ya `fixed` for ammunition?
+- I `fixed` him up a million times!
+- Raven will get the radio `fixed`.
+- We need the coolant line `fixed`!
+- Everything broke and i-`fixed` it.
+- It could be, if you `fixed` it up.
+- We're going to get you `fixed` up.
+- Why haven't they `fixed` the gate?
+- Hillary step need new `fixed` rope.
+- Make sure you get that car `fixed`.
+- That's where joe `fixed` the bricks.
+- We'll get you `fixed` up in no time.
+- Yeah, they should have been `fixed`.
+- Even this noble sport's been `fixed`.
+- So now i gotta get my wheels `fixed`.
+- He's in the army and he `fixed` it up.
+- How're you `fixed` in that department?
+- I went to a doctor and had it `fixed`.
+- Scooter told me it couldn't be `fixed`.
+- You let us start make new `fixed` rope.
+- By the way, how're you `fixed` for spys?
+- Give us a few minutes to get it `fixed`.
+- I `fixed` you up a million times, merle!
+- Okay -- book him and get him `fixed` up.
+- How you `fixed` for cabbage this mornin'?
+- I'm gonna get my arm `fixed` out of this.
+- Just tell me when you'll have it `fixed`.
+- Thank god this plate was already `fixed`.
+- But i `fixed` -- where'd you get all that?
+- Give me time to change and get `fixed` up!
+- Well which of those three ya want `fixed`?
+- I'm having the floor `fixed`, who was that?
+- Best to keep your sight `fixed` on our duty.
+- Well it's `fixed`, so you'll have to eat it.
+- Yeah, but how am i gonna get my arm `fixed`?
+- I hope you `fixed` the spare like i asked ya.
+- We're not on the pier yet - it's all `fixed`!
+- How nicely you've `fixed` the table, ninotchka.
+- You went ahead and `fixed` the icefalls, i see.
+- There's no `fixed` ropes above the south summit.
+- Why didn't you call and have the furnace `fixed`?
+- This being after you so carefully `fixed` my suit.
+- You... went ahead and `fixed` the ice post, i see.
+- 'course, i don't know how you're `fixed` for money.
+- Just `fixed` our position on that river back there.
+- You'd better hurry and get yourself `fixed` up too.
+- Getting the yard all `fixed` up for your party, amy.
+- My suit -- beth said she `fixed` it -- you're clear.
+- It can be `fixed` and all... just not in time for....
+- Yeah, i think i gotta get these `fixed` or something.
+- But i'll be okay again as soon as i get it `fixed` up.
+- It cost me $800 and a dime bag just to have it `fixed`.
+- My life was totally crappy, herb, and she... `fixed` it.
+- That's the only way we'll get the place `fixed` up in time.
+- You've `fixed` the barn door after the horse has come home.
+- If i'd known, i'd have `fixed` him up with something better.
+- I'll get these streets `fixed`, if it's the last thing i do.
+- Raven... we'll be on level 5 until the turbines are `fixed`.
+- There was a tear in his suit, but we `fixed` it in the field.
+- There's no `fixed` ropes on the crevasse to hillary step, over.
+- I `fixed` you up with diane troxler and she put out, didn't she?
+- As soon as the engine's `fixed` -- this ship is full of cat hair.
+- It always takes me a little while to get a name `fixed` in my mind.
+- There's no `fixed` ropes on the traverse to the hillary step, over.
+- Then i `fixed` supper for my husband and waited until -- i don't remember.
+- A little more tact... look how nicely she's `fixed` the table -- all for us.
+- I'm just getting around to tellin' you, but i `fixed` your warshin' machine.
+- I thought we'd find a store, get you `fixed` up and then get you some lunch.
+- Shoot, doc, the only one i'm disturbing is that old nurse and her `fixed` ways.
+- I don't know how many times i `fixed` him up... and nothin' ever happens... zilch!
+- He `fixed` hunt up with the phony cia id's, but ... what else does hunt have on us?
+- Remember when you couldn't get your car `fixed` `cause you wanted to get that piano?
+- I want to tell you the super `fixed` the leaky pipes and sealed up that hole in your wall.
+                 

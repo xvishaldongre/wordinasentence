@@ -1,0 +1,107 @@
+---
+title: "travel in a sentence | travel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "travel"
+---
+- I `travel` every week.
+- `Travel` with <u>you</u>?
+- Dreamed of space `travel`.
+- How long did you `travel`?
+- Ok, well, `travel` safely.
+- Thought i'd `travel` some.
+- `Travel` to exotic locales.
+- Well, i'd like to `travel`.
+- How would we `travel` there?
+- I always wanted to `travel`.
+- Time `travel` suit, not bad.
+- `Travel` sucks at this time.
+- You'd best `travel` with us.
+- You must `travel` a lot, huh?
+- Time `travel` test number one.
+- They always `travel` in groups.
+- You mean `travel` by ourselves?
+- Never had much use for `travel`.
+- The whole time `travel` do-over?
+- You know, for when you `travel`.
+- Besides, i always `travel` alone.
+- I can win more -- we'll `travel`.
+- I just work for the `travel` firm.
+- I `travel` under my mother's name.
+- That's right you `travel` so much.
+- "the philosophy of time `travel`".
+- It's safest to `travel` as a widow.
+- Then how is time `travel` possible?
+- We'd `travel` north, my bride and i.
+- Your job is to help people `travel`.
+- She wrote a book about time `travel`.
+- Why don't you go to a `travel` agent?
+- You are a `travel` agent, aren't you?
+- You get to `travel` around and stuff?
+- I wanted to `travel` -- see the world.
+- Providing `travel` papers is illeagal!
+- We can `travel` or anything we choose.
+- I `travel` under my mother's name, too.
+- So you think time `travel` is possible?
+- We're talking about time `travel` here.
+- Do you believe in time `travel`, donnie?
+- No, only the path she chose to `travel`.
+- A formula for faster than light `travel`?
+- Do you think...time `travel` is possible?
+- His `travel` permit was promptly revoked.
+- That's a form of time `travel`, right?
+- He thought we could `travel` down together.
+- I have to have my pictures when i `travel`.
+- It's just a chance to `travel`, see things.
+- Seven fifty a week, plus `travel` expenses.
+- They can `travel` anywhere in the universe.
+- So, theoretically, how do we `travel` there?
+- Allowed me to `travel` from my time to yours.
+- That i would love to `travel` the world with.
+- You forget -- time `travel` is instantaneous.
+- Frank asked me if i believed in time `travel`.
+- I tell you - this is the only way to `travel`.
+- It's called "the philosophy of time `travel`".
+- Are they capable of faster than light `travel`?
+- I'll `travel` wherever russian commissions are.
+- I do not `travel` with peasants and beggars.
+- The basic principles of time `travel` are there.
+- Can i go ahead and make my `travel` arrangements?
+- I think we should `travel` west to the mountains.
+- It's just that i get so nervous before i `travel`.
+- Basically, any movie that deals with time `travel`.
+- What does time `travel` have to do with philosophy?
+- If it's true, `travel` into germany would be banned.
+- Jessica's parents are `travel` agents and -- hi, sam.
+- Not if we strictly follow the rules of time `travel`.
+- They `travel` up and down the coast with the seasons.
+- So they `travel` around from place to place and preach?
+- You just `travel` around, no direction, no steady work.
+- I like to `travel`.... you're always taking time off....
+- So don't mention anything about time `travel` to anyone.
+- The xk101 can `travel` anywhere in the world undetected.
+- ...train `travel` versus plane `travel`, that sort of thing.
+- So you must `travel` a lot with all that pudding you bought?
+- I know it sounds wild, but it's the latest thing in `travel`.
+- Maybe the choir can `travel` -- to schools, and nursing homes.
+- No, evidently you reversed the polarity on his lobal `travel`.
+- The training, the weapons, the `travel` -- ahhhh... of course.
+- Who have to `travel` a long way to get to and from their jobs.
+- You just `travel` around bobby-- no direction, no steady work.
+- I'm gonna `travel` a little bit, so i don't know where i'll be.
+- You'd have to `travel` hundreds of miles through the wilderness.
+- But we are allowed to `travel` to this one to stay for one night.
+- Far as i can tell, a rumor does not `travel` alone for long here.
+- Frankie kept them in the same apartment: it cut his `travel`-time.
+- Meetings and `travel`...whenever they come here, i handle details.
+- You're really going to try this time `travel` in this rust bucket?
+- Figured it would be my last chance, unless they wanted to `travel`.
+- It doesn't `travel` through the air, by breathing, or touching, right?
+- Now, the flea can also `travel` back and forth, just like the acrobat.
+- You see, when you `travel`, everything is small, self-contained-- why?
+- You were the first hibernation failure in the history of space `travel`.
+- They all `travel` here through this wormhole subway system you built.
+- I am ergo the magnificent, and i do not `travel` with thieves and robbers.
+- Think about it: if you `travel` to the past, that past becomes your future.
+- Time `travel`... they're attempting time `travel`... full power, mister data.
+                 

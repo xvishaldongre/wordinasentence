@@ -1,0 +1,107 @@
+---
+title: "ex in a sentence | ex example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ex"
+---
+- They're all `ex`-cops.
+- He's an `ex`-pinkerton.
+- As the `ex` used to say.
+- Just an `ex`-girlfriend.
+- My `ex`-wife's in miami.
+- I see you�ve met my `ex`.
+- I'm just an `ex`-bogeyman.
+- A son by your `ex`-wife?
+- He turns out to be `ex`-cia.
+- I trusted my `ex`, mel, too.
+- She anything like your `ex`?
+- B: doxx your `ex`-girlfriend?
+- My `ex`-husband was a lawyer.
+- The `ex`-ship news' reporter.
+- Athelfiki singenia `ex` amato.
+- Look in your `ex`-wife's eyes.
+- `Ex`-corporal moonby, deserted.
+- Did my `ex`- wife ask you to...?
+- Let's check out her psycho `ex`.
+- Is your `ex`-husband helping out?
+- Dea `ex` machina... you know what?
+- `Ex`...`ex`, `ex`... vada sultenfuss??
+- Hello my would-be `ex`-son-in-law.
+- Is my wife... `ex`-wife... rachel.
+- On my honeymoon with my `ex`-wife.
+- "art's supplies" is for `ex`- cons.
+- It's not a good week for `ex`-cops.
+- Jesus, you sound like my `ex`-wife.
+- I'm getting back with my `ex`-fianc.
+- Guy's an `ex`-cop, thinks he can help.
+- Lester clark jr. my `ex`-partner's son.
+- My `ex`-husband has asked me to dinner.
+- Patchett uses a lot of `ex`-cop muscle.
+- My `ex`-girlfriend was fucking this guy.
+- Can i just say--i totally love `ex`- lax.
+- He's a lot better than your `ex`-husband.
+- It's an edna named after zed's `ex` wife.
+- My `ex`-partner's kid went off the rails.
+- So you want to nail the `ex`- presidents?
+- I have three words for you... `ex`-ac- ta.
+- They did one of these about my `ex`- wife.
+- You remember an `ex`-cop named buzz meeks?
+- �`ex`-tanker who's walking on his heels� ?
+- ...`ex`-husband on the street the other day.
+- He's probably military, maybe `ex`-military?
+- Probably just some exec ducking an `ex`-wife.
+- Others get `ex`-hookers and a trip to arizona.
+- Mr. massey represented my `ex`-brother- in law.
+- He should do it in person ...i mean `ex` person.
+- I think i've just seen my next future `ex`-wife.
+- The `ex`-presidents are the best i've seen, kid.
+- It's not like she'd fed `ex` a six carat diamond.
+- My `ex`-husband works in satellite communications.
+- My money's on the angry daughter or the `ex`-wife.
+- The question is, can you lie to your `ex`- husband?
+- We used it all up-- an `ex`-cop that doesn't carry.
+- She got fed-`ex` to give her a transfer and she left.
+- Another dead `ex`-cop under the house of rita's mother.
+- Thanks very much, sonny-- all the `ex`-vice-presidents.
+- Where would a two-bit `ex`-cop get 18 pounds of heroin?
+- Always on the lookout for the future `ex`- mrs. malcolm.
+- My tenants and my `ex`- husband--goddamn-bless his soul.
+- Her `ex` is one of the wealthiest businessmen in detroit.
+- Your honor, mr. roston is an `ex`-lover of miss lawson's.
+- Hey, kind of giving up christmas day for my `ex`-boss here.
+- Don't deny it, i can smell an `ex`-catholic a mile away.
+- See what happens when you hang out with my `ex`-girlfriends?
+- When i send my `ex`-wife her money, you can lick the stamps.
+- I've got the occupational disease of oversized `ex`-athletes.
+- A contest... ♪ with my best old `ex`-friend ray ♪ all of them.
+- My `ex`, she attached my pay check for child support payments.
+- One night's work and you're free like no `ex`-con's ever been.
+- Now forget about the `ex`-wife and get over to the adams hotel.
+- That's about me and my `ex` dividing up our record collections.
+- My `ex`-boyfriend was about his height, but he was much bulkier.
+- To your `ex`-partner's black site activity, and we sleep better.
+- Do you know how hard it is for `ex` cons to find work these days?
+- Either one of those guys have `ex`-agent pals already in those jobs?
+- I said, what would a bride be doin', on her wedding... `ex`-cuse me?
+- I suppose i got really into wine originally through my `ex`-husband.
+- Watch that one, he's an `ex`-spook for sure, maybe stasi, maybe kgb.
+- An `ex`-junkie, obsessed with death; the perfect candidate for suicide.
+- But every time i turned to ted--my `ex`-husband, he couldn't handle it.
+- For a while she was with this crazy `ex`-green beret guy, running guns.
+- ♪ with my best old `ex`-friend ray ♪ life support on the ark is failing.
+- A maverick `ex`-central service repair man with a grudge against society.
+- If my kids and my wife were always at an `ex`-husband's house, i'd worry.
+- Mr. booker, if i could just `ex` -- i, i don't mean to sound insensitive.
+- I tried to talk to ted-- my `ex`-husband--about it, but he wouldn't listen.
+- My `ex`-husband -- he never accepted me for who i was, just like mother.
+- I want to talk to you now, not as elaine, studio head, but elaine, `ex`-wife.
+- I mean my future.. my `ex`.. my future `ex`.. if she sees you here i'm finished.
+- We got a dead `ex`-cop and a girl who looks like rita hayworth at the nite owl.
+- I mean, maybe fed-`ex` would tell me where she moved -- ed, do you want my advice?
+- I talked to my `ex`, he'll keep denny over christmas and i'll get him this summer.
+- It sounds like "`ex` infera:" "`ex`," from; "infera," the ablative case of "inferi."
+- There's no such thing as "`ex`-cia," john -- they're all ivy league establishment.
+- Mrs. kramer, did you ever work in a job while you were married to your `ex`-husband?
+- It would help if there were some drug or alcohol abuse on the part of your `ex`-wife.
+- News, last night... those guys, the `ex`-presidents... they robbed my bank yesterday.
+                 

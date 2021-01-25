@@ -1,0 +1,107 @@
+---
+title: "future in a sentence | future example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "future"
+---
+- Do we have a `future`?
+- One possible `future`.
+- This is your `future`.
+- To face that `future`.
+- We're in the `future`.
+- That's got no `future`.
+- This is my `future`.
+- Because of the `future`.
+- My `future` is in zalem.
+- Rizzo ti's the `future`.
+- Welcome to the `future`.
+- What about the `future`?
+- What's in your `future`?
+- I end up in the `future`.
+- It concerns his `future`!
+- Send you to the `future`?
+- So, this is the `future`.
+- The `future`, mr. gittes.
+- The wave of the `future`!
+- Was `future` man adopted?
+- What about your `future`?
+- You did, in the `future`.
+- You've seen the `future`.
+- Are we about the `future`?
+- Not in some `future` time.
+- One past and one `future`.
+- Planning for our `future`.
+- *your* political `future`!
+- I have no `future` husband.
+- Is a thing of the `future`.
+- It is the `future` you see.
+- "our `future` is up to us."
+- Tell me about the `future`.
+- That's the `future`, james.
+- That's your whole `future`.
+- The mother of the `future`?
+- The only `future` i've got.
+- Wave of the `future`, dude.
+- 1995 is the `future`, james.
+- About <u>their</u> `future`.
+- Are the `future` of agrabah.
+- I didn't mean this `future`.
+- ... in the distant `future`.
+- It's the `future`, isn't it?
+- No people from the `future`.
+- This is about your `future`.
+- Your past and your `future`.
+- The `future` is up to us.
+- For the jobs of the `future`.
+- I guess -- about my `future`.
+- Or forward into the `future`.
+- The `future` is so beautiful.
+- The truth about the `future`?
+- How can you know the `future`?
+- Lets talk about your `future`.
+- That, my boy, is the `future`.
+- The `future` had to be better.
+- The remans gave me a `future`.
+- How bleak the `future` will be.
+- Quantum energy is the `future`.
+- You might find a `future` here.
+- But this is about your `future`.
+- From nine years in the `future`.
+- I gave him a home, a `future`...
+- I sent him... into the `future`!
+- My `future` is with you, maxine.
+- That money is my whole `future`.
+- We are the `future`... not them.
+- And `future` usses and that's it.
+- You're from the `future` too?
+- But i'm remembering the `future`.
+- How can they arrest `future` man?
+- In the `future`, we'll be better.
+- I see a pulitzer in her `future`.
+- I don't want to know the `future`!
+- I have to think about my `future`.
+- It's the `future` of paleontology.
+- I want the `future` to be unknown.
+- *my* business--this fine `future`!
+- So we'll be good, in the `future`.
+- That you would fight the `future`.
+- The `future` of the common people.
+- These aren't jobs of the `future`.
+- They have the `future` to protect.
+- Why you son of a -- `future` wife?
+- You'll get to the `future` faster.
+- Don't throw away your `future` bud!
+- I didn't say i'm from the `future`.
+- I want to talk about your `future`.
+- Think about your `future` for once.
+- This is the weapon of the `future`.
+- You know, this `future` shit sucks.
+- Ah, i've returned from the `future`.
+- Everybody does that in the `future`?
+- His name's not `future` man, dignan.
+- I'm your `future` husband, remember?
+- Meditating on my financial `future`.
+- The `future` doesn't look different?
+- To have this world be your `future`.
+- Yeah, i'm totally from the `future`.
+                 

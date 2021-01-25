@@ -1,0 +1,107 @@
+---
+title: "cat in a sentence | cat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cat"
+---
+- `Cat` got your tongue.
+- `Cat` got your tongue?
+- That `cat` ain't mean.
+- Was it the same `cat`?
+- `Cat` fight, `cat` fight.
+- Could we take the `cat`?
+- Remember old `cat` iron?
+- It's just a stupid `cat`.
+- "the silver `cat` feeds."
+- He has a `cat` of his own.
+- I've got to feed my `cat`.
+- Ohh... do you own a `cat`?
+- Wait a minute...the `cat`.
+- Curiosity killed the `cat`.
+- I don't have another `cat`!
+- I was talking to the `cat`.
+- What's got into that `cat`?
+- "i want to meet your `cat`."
+- Don't be such a fraidy-`cat`.
+- It's a `cat`... with stripes.
+- People seem to like my `cat`.
+- Sicced his mangy `cat` on me.
+- The silver `cat` feeds... el.
+- You get a `cat`, i get a cut.
+- How are you, you stupid `cat`?
+- Kill the girl, then `cat` up.
+- Like a "`cat`", one could say.
+- The creed `cat`, that's right.
+- You don't own a `cat`, do you?
+- You want me to buy dead `cat`?
+- At least, the `cat` comes back.
+- How did you know i had a `cat`?
+- Look what the `cat` dragged in.
+- My `cat` didn't kill that girl.
+- Talk about the `cat`'s pyjamas!
+- Ayuh...how is your `cat`, louis?
+- If they `cat` you, thank you.
+- I'm just here to feed the `cat`.
+- I'm making his `cat` really fat.
+- I never forget a pussy... `cat`.
+- See you later - he made a `cat`.
+- Where are the sand-`cat` tracks?
+- So how's the `cat` food business?
+- `Cat`, you tie onto this manifold.
+- I'm not wanting a `cat`, she says.
+- You don't want that `cat`, anyway.
+- But you don't keep a `cat`, do you?
+- I'm going to put them on the `cat`.
+- The `cat` can pull <u>any</u>thing.
+- The `cat` lady is eating with cats.
+- Why would a `cat` drag me anywhere?
+- Yes, but-- does she love the `cat`?
+- I ain't never seen a `cat` like you.
+- No `cat` and mouse -- you've got me.
+- Some `cat`'s blocking the periscope.
+- <u>i'm</u> best at driving the `cat`.
+- You know, instead of that `cat` book.
+- For this greek `cat` named ari onasis.
+- Every `cat`'s watching, ain't they?
+- Donna's gonna be angry about her `cat`.
+- This `cat` isn't going to clean itself.
+- <u>i'm</u> making the run to the `cat`.
+- You're not a `cat` toying with a mouse.
+- But when this `cat` fucks her, it hurts.
+- He can't catch her old `cat`, anyway.
+- Everyone's really crazy about dead `cat`.
+- I brought you here to bury ellen's `cat`.
+- I think that's why he's such a bad `cat`.
+- I've been making friends with your `cat`.
+- Looks like that `cat` paid off in spades.
+- Loved that `cat` pretty well, didn't she?
+- 's'okay, i had to go home, feed my `cat`.
+- The `cat` is about to get out of the bag.
+- Human tastes better than `cat`, i promise.
+- Now it is time for my `cat` to be cleaned.
+- Playing `cat`-and- mouse with my poor boy!
+- The silver `cat` feeds... "indiana flyer"?
+- I heard you were back in town, kitty `cat`.
+- Well, well, look what the `cat` dragged in.
+- Call off the `cat` and i'll kill you, veidt.
+- That `cat` number two has an x-ray eyepatch.
+- Every once in a while some `cat` comes to me.
+- `Cat`, that's the lamest idea i've ever heard.
+- Wait, you'll see the `cat` bites his head off.
+- After this one, i'm out, `cat`, you understand?
+- Because his face opened up and he ate my `cat`.
+- He's the only `cat` left that still grooves me.
+- I killed your fuckin' `cat`, you druggie bitch!
+- The silver `cat` feeds, maybe he's sick of cow.
+- They all say the `cat` killed this second girl.
+- Don't need it, i'm a `cat`, i've got five lives.
+- Maybe we could train `cat` to run the projector.
+- You know--edgar allan poe meets felix the `cat`.
+- If i let the `cat` stay, will you go out with me?
+- Not used to this man-woman, `cat`-mouse business.
+- You're a stylish, successful, good looking `cat`.
+- West side got a boy 6'6", 310, moves like a `cat`.
+- Control that `cat` if you know what's good for you.
+- I saw what happened to irena with her `cat` people.
+- We found a litter box downstairs but not the `cat`.
+                 

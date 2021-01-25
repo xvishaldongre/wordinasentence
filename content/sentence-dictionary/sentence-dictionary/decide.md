@@ -1,0 +1,107 @@
+---
+title: "decide in a sentence | decide example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "decide"
+---
+- Did you `decide`, sir?
+- Let the jury `decide`.
+- She couldn't `decide`.
+- When did you `decide`?
+- You `decide`, darling.
+- I say let fate `decide`.
+- No need to `decide` now.
+- What's there to `decide`?
+- I `decide` when it's time!
+- It's not ours to `decide`.
+- Let the audience `decide`.
+- That is for me to `decide`.
+- When did she `decide` this?
+- It is a story, you `decide`.
+- It's not for me to `decide`.
+- Why'd they `decide` to move?
+- I'll `decide` if i go or not.
+- The coin _wants_ to `decide`.
+- Let me know what you `decide`.
+- This isn't for me to `decide`.
+- What ... what must i `decide`?
+- It took me forever to `decide`.
+- I will `decide` the conclusion.
+- That's not for you to `decide`.
+- That would seem to `decide` it.
+- Then you can `decide` about lo.
+- When did you `decide` all this?
+- You have 3 seconds to `decide`.
+- I'll `decide` when to let it go.
+- Oh, so you `decide` to be a cop?
+- Okay, what did we just `decide`?
+- What if i `decide` not to go?
+- Did you `decide` on a runway yet?
+- I guess... `decide` for yourself.
+- It is now that you must `decide`.
+- We `decide` something, that's it!
+- Well, that's for you to `decide`.
+- You have to `decide` on a career.
+- Don't you let her `decide` for me.
+- To have to sit there and `decide`.
+- You have till sundown to `decide`.
+- Let her `decide` the proper suitor.
+- We'll give you an hour to `decide`.
+- I'll `decide` when it's exaggerated.
+- That's something you can't `decide`.
+- `Decide` to take a day off after all?
+- We don't `decide` who lives and dies.
+- Why did you `decide` to deejay again?
+- Why do you get to `decide` it's over?
+- You don't have much time to `decide`.
+- `Decide` who should be dealt with how?
+- How do you guys `decide` who you're...
+- Tell me what it is, and i'll `decide`.
+- We get to `decide` how we should live.
+- We get to `decide` how we should live.
+- Even if we `decide` he belongs in jail?
+- Should `decide` russell's fate, not us.
+- We don’t `decide` who lives and dies.
+- Well -- when did you `decide` all this?
+- I `decide` i'm not going to propose.
+- But we shall `decide` what do with them.
+- I can never `decide` what i like better.
+- I `decide` when... - please set me free.
+- 'it's me or iggy pop, time to `decide`.'
+- That's why you have to help me `decide`.
+- Any time you `decide` to let me in on it.
+- First, we may as well `decide` on gender.
+- Second, you don't have to `decide` today.
+- Then i `decide` if i grant the interview.
+- Till we can `decide` what to do with you.
+- You've got to `decide` that for yourself.
+- I really do-- it's ok. and `decide` later.
+- Then we'll keep driving...you'll `decide`.
+- This - if you `decide` to take the rest.
+- Let the chancellor `decide` what to do next.
+- Actually, stu, julie doesn't get to `decide`.
+- I `decide` what's right in this jurisdiction.
+- I `decide` when i'm done with your boyfriend.
+- We'll `decide` what's a story and what's not.
+- We used to `decide` who would play what role.
+- You have 3 seconds to `decide` how this ends.
+- I'll be gone let them `decide` for themselves.
+- That is for me to `decide`, comrade yakushova.
+- Then i had to `decide` whether to nod or shrug.
+- Let the membership `decide` for themselves, dad.
+- ♪ now when did you last let your heart `decide`?
+- Robert, if that happens, you'll have to `decide`.
+- So why did you `decide` to drive a taxi at night?
+- You have till tomorrow's second moon to `decide`.
+- First, we have to `decide` who gets who, remember?
+- Who are you to `decide` if you should live or die?
+- If you `decide` to do it, make sure you don't miss.
+- It's up to rennie to `decide` what she wants to do.
+- Whatever you and your mom `decide` is fine with me.
+- When did you `decide` you were going to do bleeker?
+- You `decide` what you want and i'll make it happen.
+- So what'd you guys finally `decide` on for the menu?
+- Then `decide` if you want to... stick around or not.
+- Well if ya don't mind, i'll `decide` on my own date!
+- Dad... whatever i `decide`, will it be okay with you?
+                 

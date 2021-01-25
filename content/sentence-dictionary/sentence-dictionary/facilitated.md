@@ -1,0 +1,7 @@
+---
+title: "facilitated in a sentence | facilitated example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "facilitated"
+---
+## Unfortunately, we have no example sentences for facilitated                 

@@ -1,0 +1,107 @@
+---
+title: "date in a sentence | date example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "date"
+---
+- I don't have a `date`.
+- I don't want a `date`.
+- I have a lunch `date`.
+- I'm rob's prom `date`.
+- When's the air `date`?
+- You have a `date` yet?
+- You mean, on a `date`?
+- You're a great `date`.
+- The wedding `date`.
+- I have a `date`, daddy.
+- I'm not here to `date`.
+- I never break a `date`.
+- What fake blind `date`?
+- You can see the `date`.
+- You mean like a `date`?
+- And cancel their `date`.
+- I see my `date` is here.
+- Is the trial `date` set?
+- It's more like a `date`.
+- Just get him the `date`.
+- Not at this late `date`.
+- On a `date` with pilots?
+- She's my `date` tonight.
+- They changed the `date`.
+- What's the `date` today?
+- A hundred bucks a `date`.
+- But not as a `date` `date`.
+- Give me a `date`, doctor.
+- His `date` got convicted.
+- It must be a pity `date`.
+- Make it our first `date`.
+- Out past the `date` line.
+- The `date`'s not set yet.
+- You got a `date` already?
+- You want to `date` again.
+- I actually `date` you?
+- Me with a `date`, too.
+- I'm not allowed to `date`.
+- It's got no day or `date`.
+- Then let's set the `date`.
+- What do you mean a `date`?
+- You'd probably `date` him!
+- You have a bowling `date`?
+- It's only our first `date`.
+- Who's this, mr. `date`-guy?
+- Did you guys used to `date`?
+- I get to `date` joyce byers.
+- I remember our first `date`.
+- Is he asking me on a `date`?
+- I wanna `date` a musician...
+- Must've been a cheap `date`.
+- No, it was our first `date`.
+- Okay, but it's not a `date`.
+- Did we have a `date` tonight?
+- Do you have a `date` tonight?
+- ...got no day, got no `date`.
+- It's not that kind of `date`.
+- I wanted this to be a `date`.
+- No, don't get him the `date`.
+- Oh, i have a luncheon `date`.
+- The `date` was february 1946.
+- They've set the court `date`.
+- We have a `date` every night.
+- What happened to your `date`?
+- You got a big `date` tonight?
+- Are you asking me on a `date`?
+- He used to `date` pat benatar!
+- I can't `date` until she does.
+- I checked your release `date`.
+- I'd like us to go on a `date`.
+- I get to `date`... talk to me.
+- I know the `date` is happens!!
+- Maybe he kills men you `date`.
+- You had a `date` with carlton?
+- You have a `date`, after this?
+- You mean, did i want a `date`?
+- Where might your `date` be?
+- Didn't you use to `date` casey?
+- I have that `date` -- remember?
+- I never `date` outside my race.
+- Let me worry about your `date`.
+- Until your confirmation `date`.
+- Went on a `date` the other day.
+- How long did you `date` caitlin?
+- I guess you would have a `date`.
+- I have a `date` at eight-thirty.
+- I've got a `date` at six thirty.
+- I've got that `date` with brady.
+- Operator, what's today's `date`?
+- The due `date` is on the bottom.
+- This is our first "`date`" `date`.
+- Trevor, i never `date` patients.
+- Are you asking me for a "`date`"?
+- But you never had a first `date`.
+- I didn't just make up the `date`.
+- I'm not that out of `date`, am i?
+- I'm waiting for my dinner `date`.
+- Well maybe you should `date` him.
+- You wanna go on a `date` with me?
+- I don't remember the exact `date`.
+                 

@@ -1,0 +1,76 @@
+---
+title: "cake in a sentence | cake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cake"
+---
+- Piece of `cake`, baby.
+- Thanks for the `cake`.
+- Did you see the `cake`?
+- It's a piece of `cake`.
+- Piece of `cake`, quill.
+- Here's the fruit `cake`.
+- Piece of fucking `cake`.
+- I said, who wants `cake`?
+- The wedding `cake` check?
+- This is a piece o' `cake`.
+- You take the `cake` lloyd.
+- Is that a birthday `cake`?!
+- Is that my birthday `cake`?
+- This was a piece of `cake`.
+- You want a piece of `cake`?
+- I'm eating her crumb `cake`.
+- My `cake` fails are important.
+- We got a birthday `cake`, kid.
+- Is there a girl in that `cake`?
+- There's a piece of `cake` left.
+- You mean this chocolate `cake`?
+- Take some `cake`, why don't you?
+- This `cake` shore is tasty, son.
+- Too much birthday `cake`, right?
+- Would you like a piece of `cake`?
+- It's a real good chocolate `cake`.
+- I want it... you want the `cake`!?
+- I'm going to make you a nun's `cake`.
+- You have to try the chocolate `cake`.
+- We'll have the fruit `cake` for dessert.
+- She's got some fresh orange layer `cake`.
+- Too much `cake` and ice cream, i suppose.
+- Hush... not a word about the `cake`, hear?
+- I need you to pick up the `cake` tomorrow.
+- Leave the rice `cake` outside and go home!
+- Mr. ryan just borrowed my birthday `cake`.
+- One little piece of `cake` won't hurt you.
+- The floor plans will be a piece of `cake`.
+- `Cake` and shish-k-bob, just like you love.
+- Love a little bundt `cake` if you have some!
+- I gotta say this `cake` tastes a little funny.
+- Why don't you choose whatever `cake` you like?
+- If people fail at `cake`, they need to be told.
+- Let's go inside and have a look at that `cake`.
+- But you'd go out with her if you had the `cake`?
+- Every person's got their own kinks, beef-`cake`.
+- If i knew you were coming i'd have baked a `cake`.
+- In a few minutes, right after they cut the `cake`.
+- They had this `cake` somebody else hadn't picked up.
+- I'm going to send him a fruit `cake` every christmas.
+- Hey, there's half a birthday `cake` in the break room.
+- When paul comes home, we can have some birthday `cake`.
+- I didn't have no wedding `cake`, no reception or nothing.
+- I'd just put the knife into the `cake`, and - okay, saunders.
+- You know, your daughter seems... well, wedding `cake` freezes.
+- How long until chocolate `cake` turns into i'm not afraid of you.
+- They'll cut the `cake` in a few minutes...leave right after that.
+- Arnie seemed to enjoy it... hey, where�s that chocolate `cake`...?
+- You're going to stay here until your father gets home and have `cake`!
+- Oh, the goddam party -- it's for the party, dad -- i don't like `cake`.
+- I was going to make him a `cake`... do you want to do something tonight?
+- I am gonna whip you up a homemade birthday `cake` that is gonna blow your mind.
+- Uh, yeah, you mind getting me a piece of that `cake` they're eating down there?
+- Then i saw this bakery store that was still open, so i bought a birthday `cake`.
+- Sorry, bill, have a drink, eat your `cake`, blow out the candles and make a wish.
+- Lubosh filled me in on the legal side of squatting here and it's a piece of `cake`.
+- Now let's see, there's coconut `cake`, date and walnut; i recommend the rum baba ...
+- Now, wouldn't you pray for twenty bucks, a bottle booze an' a piece of that angel `cake`?
+- Those white guys sure shoot up at you like a yeast `cake` if you just cock an eye at them.
+                 

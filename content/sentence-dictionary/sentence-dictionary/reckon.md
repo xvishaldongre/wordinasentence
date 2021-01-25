@@ -1,0 +1,74 @@
+---
+title: "reckon in a sentence | reckon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reckon"
+---
+- Tolerable, i `reckon`.
+- Yes ma'am, i `reckon`.
+- I don't `reckon` i know.
+- `Reckon` she'll make it?
+- I `reckon` i can hear him.
+- Quite a spell, i `reckon`.
+- Yeah, i `reckon` they did.
+- Yes, i `reckon` that's it.
+- I `reckon` i feel all right.
+- Yes sir, i `reckon` it does.
+- I `reckon` if you want me to.
+- Why did he do that, `reckon`.
+- A good deal of it, i `reckon`.
+- `Reckon` they sell toothpaste?
+- How d'you `reckon` that one out?
+- `Reckon` what kind of a feelin'?
+- `Reckon` why they don't like me?
+- What do you `reckon` that's for?
+- You `reckon` they could be dead?
+- I'll get some of them i `reckon`.
+- You don't `reckon` i'd leave you.
+- `Reckon` we could git him *drunk*?
+- Enough to scrape by on, i `reckon`.
+- I `reckon` i didn't know what to do.
+- Do `reckon` i could fit through here?
+- I don't `reckon` i never been in here.
+- How much ammo you `reckon` you'll need?
+- I `reckon` it tastes pretty good to me.
+- Then i `reckon` i'll have to try again!
+- He wanted to go off and play, i `reckon`.
+- It had to come, i `reckon`, soon or later.
+- `Reckon` he hated perfection more than us?
+- That seemed more proper to me, i `reckon`.
+- I don't much `reckon` those minders of his.
+- I `reckon` i'd be safe in promisin' you that.
+- Do you `reckon` you can make me some biscuits?
+- On a balance i `reckon` i'd choose being a cow.
+- But i `reckon` he can lay off doin' it tomorrow.
+- But then i `reckon` it's an occupational hazard.
+- It's gonna hit sometime on the 11th, i `reckon`.
+- It's gonna hit sometime on the 11th, i `reckon`.
+- I `reckon` i can just walk around till the mornin'.
+- I `reckon` it's been ordained this way, brother spoon.
+- I'm pretty handy i `reckon` on lawn mowers and whatnot.
+- I `reckon` i don't care nothin' about bein' a free man.
+- I don't `reckon` any fella's ever wanted to get married.
+- I...i wrote you a letter...`reckon` you didn't get it...
+- I `reckon` i ain't gonna be there in the garage no more.
+- I ain't really thought about it too much i don't `reckon`.
+- I `reckon` they changed their mind about havin' another'n.
+- So `reckon` i'd better go to work and get me a goddam job.
+- Hit tells some things that don't seem right too, i `reckon`.
+- Wherever you�re heading, i `reckon` somebody�ll pick you up.
+- I `reckon` i'm gonna have to get used to them lookin' at me, too.
+- I don't `reckon` you have to go with women to be a daddy to a boy.
+- I `reckon` i'm gonna have to get used to looking at pretty people.
+- Later, listen, i'll - we don't `reckon` time the same way, clarice.
+- `Reckon` so, but we been boozing all day and you work up an appetite.
+- I `reckon` mr. woolridge got me hired on to work for bill cox's outfit.
+- Stay here till mornin' an' then go on over to uncle john's, i `reckon`.
+- I `reckon` if neither one of us is no count it won't make no difference.
+- I don't know... ...how come do you `reckon` the coyotes ain't been at 'em?
+- I `reckon` that the last big crime we had was, what would you say mrs. mckenna?
+- Funny... 'cos they usually `reckon` dogs more than people in england, don't they?
+- I `reckon` i can stand to eat a little somethin' or 'nother at noontime tomorrow.
+- `Reckon` we better begin roustin' 'em out if we aim to get outa here by daylight.
+- If leon�s austrian was looking for you i `reckon` he�d have found you before i did.
+                 

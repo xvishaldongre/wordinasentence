@@ -1,0 +1,71 @@
+---
+title: "statement in a sentence | statement example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "statement"
+---
+- To make a `statement`.
+- A prepared `statement`.
+- You get his `statement`?
+- Can i make a `statement`?
+- Some kind of `statement`.
+- I've seen your `statement`.
+- That's quite a `statement`.
+- We're making a `statement`.
+- I didn't make a `statement`.
+- I just wanted a `statement`.
+- Let's go make a `statement`.
+- A `statement` of purpose... ?
+- Change the mission `statement`.
+- I wanted to make a `statement`.
+- What you have is a `statement`.
+- That was a very bad `statement`.
+- You've got to make a `statement`.
+- He'll give us a sworn `statement`.
+- You heard that girl's `statement`.
+- I'm not here to make a `statement`.
+- I wouldn't mind getting a `statement`.
+- That's a bad quarterly `statement`.
+- I'd like to read a prepared `statement`.
+- I don't have a `statement` at this time.
+- This is all in your `statement`, lara...
+- Dick, you don't have to make a `statement`.
+- It's the only `statement` you need to make.
+- They never even got a `statement` from her.
+- What the hell was that, another `statement`?
+- They took his `statement` and cut him a deal.
+- I want to dictate my `statement` for tomorrow.
+- We're going to insist they take a `statement`.
+- Put down the gun and i'll take your `statement`.
+- So we want to change-up the mission `statement`.
+- Naturally i can make no `statement` at this time.
+- However, i have a little `statement` all prepared.
+- Shit, they haven't even taken your `statement` yet.
+- Will you please take a `statement`... and get her out?
+- I can make no `statement` about manchester at this time.
+- I want to hear what she says at her `statement` tomorrow.
+- I retraced your exact steps according to your `statement`.
+- According to your `statement` you are a short-con operator.
+- I don't know but it makes one hell of an opening `statement`.
+- Give us a written `statement`, mathieu, and then we'll surrender.
+- Look, mr. roundy, why don't you make out a financial `statement`?
+- There is nothing in that `statement` the president can't explain.
+- I'm laying before you the last general `statement` of our concern.
+- I happened to see your consolidated `statement` yesterday, charles.
+- I issued a `statement` yesterday that i've withdrawn my objections.
+- Senator, my client would like to read a `statement` for the record.
+- Behind every ridiculous `statement` is always hidden the true cause.
+- He'll never sign a `statement`, boss, let alone get on a witness stand.
+- My client has already given a `statement` regarding yesterday's events.
+- All right, let's see if you're willing to put that `statement` to a test.
+- ...-cho and a hijack-... ...reconsider that `statement` there, night shift.
+- Okay--we'll take a `statement` from all the gis before they go back to post.
+- That is the most heartless `statement` i ever heard pass between human lips.
+- But you didn't seem nearly so sure in your `statement` to the warren commission.
+- We're going to review all the evidence carefully before making any `statement`...
+- Now, we're informed that you have a `statement` you'd like to read, is that correct?
+- It wouldn't really make a `statement` if i tiptoed out the door...what are you selling?
+- Now, you get over there and get a `statement` out of the old lady, the sister, or the kid.
+- Of course, i sort of promised them i would give out a `statement` when i got through here.
+- You wanna take my `statement`, i'll perform for you, gotta get paid though, gotta get paid.
+                 

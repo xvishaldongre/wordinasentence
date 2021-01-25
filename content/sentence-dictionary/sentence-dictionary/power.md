@@ -1,0 +1,107 @@
+---
+title: "power in a sentence | power example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "power"
+---
+- Iceman, `power` lloyd.
+- Into a `power` source.
+- It gives them `power`.
+- The `power` converter!
+- The `power`'s back up!
+- You get their `power`.
+- Bad bulb or no `power`.
+- Gives you more `power`.
+- He has a `power`-- why?
+- It's not under `power`.
+- The air... the `power`.
+- The `power` cuts, yeah.
+- There goes the `power`.
+- Activating `power` beam!
+- During the `power` cuts.
+- Smithers, `power` lines!
+- There's no more `power`.
+- They'll cut the `power`.
+- They still have `power`.
+- A commander from `power`.
+- Activating `power` scope!
+- Backup `power` activated.
+- Full `power` is restored.
+- I can't get `power`, sir!
+- I don't have the `power`.
+- I just need more `power`.
+- I try to keep my `power`.
+- `Power` is none of these.
+- `Power` over another man.
+- Some kind of `power` cut.
+- The `power` to negotiate.
+- The `power` to the fence.
+- There is `power` in this.
+- We've got a `power` leak.
+- You have no `power` here.
+- Have we still got `power`?
+- It's a total `power` suit.
+- It's their `power` base...
+- Nature ... ... `power` ...
+- Politics is `power`, paul.
+- `Power` you have given me.
+- The `power`'s coming back!
+- Tons of money and `power`!
+- Well, more `power` to you.
+- Why don't we have `power`?
+- Will your `power` outward.
+- You have that `power` too.
+- At a nuclear `power` plant.
+- Because i have the `power`.
+- I do not want your `power`.
+- Including the `power` cuts?
+- The `power` was within you.
+- Who has `power` to do that?
+- You turned off the `power`!
+- Aren't we a `power` company?
+- Be gone you hostile `power`.
+- Conserving `power`, i guess.
+- Continue on impulse `power`.
+- His `power`'s long dried up.
+- I got to get the `power` on.
+- Let's get some `power` here.
+- More `power` to ya, brother!
+- No `power` to the bay doors.
+- She has the `power` to kill.
+- They need a `power` forward.
+- We lived near `power` lines.
+- We're in a `power` position.
+- We've harnessed its `power`.
+- A `power` to manifest things.
+- Can we cut off their `power`?
+- Come on, get in `power` mode.
+- I answer to a higher `power`.
+- I cut `power` to the shuttle.
+- I got a little `power`, sure.
+- In your eyes, that's `power`.
+- ...it has the `power` i need.
+- It's like these `power` cuts.
+- Some kind of `power` failure.
+- They're playing with `power`.
+- They want their `power` back.
+- <u>full `power` damn you</u>!
+- What can my `power` give you?
+- What happened to the `power`?
+- You know those `power` lines?
+- Aux `power` is not responding.
+- Divert `power` and compensate.
+- Girl `power` is where it's at.
+- Now, find your `power` animal.
+- `Power` levels quite low, sir.
+- She has the `power` of vision.
+- The `power` of the press, huh!
+- We can't--it's `power` driven!
+- Well what `power` lines, will?
+- What about `power`, hot water?
+- You have the `power` to do it.
+- You work at the `power` plant.
+- You would misuse such `power`.
+- What about the `power` cut?
+- But the `power` source, zaltar.
+- Can you give me phaser `power`?
+                 

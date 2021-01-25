@@ -1,0 +1,77 @@
+---
+title: "Clarence in a sentence | Clarence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Clarence"
+---
+- Sister mary `clarence`.
+- Really, mary `clarence`?
+- `Clarence` odbody, a-s-2.
+- `Clarence` sent a letter?
+- Good day, mary `clarence`.
+- Mary `clarence`, carry on.
+- Let me speak to `clarence`.
+- Mary `clarence`, could you?
+- Thank you, mary `clarence`!
+- The choir, mary `clarence`.
+- I am sorry, mary `clarence`.
+- Joseph, send for `clarence`.
+- Come on, `clarence`, lets go.
+- Definitely `clarence` darrow.
+- Good morning, mary `clarence`.
+- I feel like `clarence` thomas.
+- I hear you talkin' `clarence`.
+- We have clearance, `clarence`.
+- Do you know a `clarence` worley?
+- Mary `clarence`, don't be silly.
+- Mary `clarence` -- you're alive!
+- Thank you very much, `clarence`.
+- `Clarence` told me all about you.
+- Mary `clarence`, i'm so unworthy.
+- All it says is: "dear `clarence`."
+- `Clarence`, i gotta hand it to ya.
+- Now i feel like `clarence` thomas.
+- No don't feel like `clarence` thomas.
+- Girls, this is sister mary `clarence`.
+- Look, `clarence`, i'm not joe cocaine.
+- Mary `clarence` -- you shouldn't have.
+- The vow of poverty... mary `clarence`?
+- "`clarence` and alabama go to cancoon".
+- `Clarence` says we gotta be hittin' it.
+- Twelve seventy-five from the `clarence`?
+- Mary `clarence`, perhaps you are correct.
+- My name is `clarence`, and what is yours?
+- This shall be your cell, mary `clarence`.
+- Mary `clarence` has a background in music.
+- We sound terrible we need mary `clarence`.
+- What `clarence` wants to do is sell it.
+- `Clarence`, i've got something to tell you.
+- He has a cousin in town -- `clarence` teal.
+- He's a waiter at the `clarence`, poor devil.
+- I thought it was what you wanted, `clarence`.
+- Do you want me to check the weather, `clarence`?
+- How to put it... ah, of course, mary `clarence`.
+- Tell me, mary `clarence`, what were you thinking?
+- Mary `clarence`, please assign a biblical passage.
+- Mary `clarence`, i have given you every opportunity.
+- `Clarence`, just shut up, you're giving me a headache!
+- Mary `clarence`, a convent is not a totalitarian state.
+- Mary `clarence`, that's when many of us took final vows.
+- Surely you are familiar with this practice, mary `clarence`.
+- Gave them the day off.... what happened to `clarence` and...?
+- As of now, and until you leave, you are sister mary `clarence`.
+- I hate the places where you circulate -- the hotel `clarence`...
+- I don't know, `clarence`, "doctor zhivago" is a pretty big movie.
+- `Clarence`... don't expect me to be all broken up over poor drexl.
+- All those in favor of allowing mary `clarence` to select a program?
+- Um, i don't really know this one... mary `clarence`, are you with us?
+- You know, that was a good thing you did for `clarence`, in class today.
+- This is `clarence`'s coke and `clarence` can do whatever he wants with it.
+- `Clarence`, you do a good job with george bailey, and you'll get your wings.
+- But `clarence` and that bitch-whore girlfriend of his brought this all on themselves.
+- Look, i'd help ya if i could, but i haven't seen `clarence` - i have a son of my own.
+- There's only one other pilot who can handle that shuttle and that's `clarence` oveur.
+- Fuck, `clarence`, you killed somebody and you're blowin' it off like it don't mean shit.
+- Mary `clarence`, it is one thing to rabble rouse, to sweep into town and declare a holiday.
+- Say: `clarence`, you are without a doubt, the dumbest motherfucker in the whole wide world.
+                 

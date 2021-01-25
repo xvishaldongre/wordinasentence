@@ -1,0 +1,107 @@
+---
+title: "both in a sentence | both example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "both"
+---
+- Best of `both` worlds.
+- Best of `both` worlds?
+- `Both` are acceptable.
+- `Both` if we're lucky.
+- `Both` of you shut up.
+- `Both`, see you later.
+- If possible -- `both`.
+- I hate `both` parties.
+- I'll take them `both`.
+- I think we `both` can.
+- Then we'll `both` die.
+- They're `both` crooks.
+- We `both` lied to him.
+- You and creasy `both`.
+- You `both` disgust me.
+- You can't have `both`.
+- You'll kill us `both`!
+- You're `both` screwed.
+- A little bit of `both`.
+- Be safer for us `both`.
+- `Both` of you, shut up.
+- Cowards, `both` of you!
+- "for `both` our sakes."
+- Fuck the `both`-of you.
+- I mentioned you `both`.
+- It's from `both` of us.
+- They'll kill us `both`.
+- We're `both` listening.
+- We were `both` injured.
+- Wrong on `both` counts.
+- You're `both` assholes.
+- `Both` in the last year.
+- `Both` now out of reach.
+- `Both` of you right now!
+- `Both`: one, two, three.
+- Get back, `both` of you!
+- How nice for you `both`.
+- I `both` see and am god.
+- I like `both` buildings.
+- I'll kill `both` of 'em!
+- I must kill them `both`.
+- I'm weary of you `both`.
+- I will watch you `both`.
+- Maybe we `both` grew up.
+- Nice to meet you `both`.
+- Now we `both` need help.
+- We `both` made promises.
+- We `both` use that body.
+- We're `both` extremists.
+- We're `both` seein' 'em.
+- `Both` hands on your lap.
+- `Both` of youse--shaddup.
+- Collect from `both` ends.
+- Else beshrew them `both`.
+- Maybe a little of `both`.
+- Maybe we're `both` crazy.
+- Me and peter `both` have.
+- Oh... a little of `both`.
+- She'll need `both` of us.
+- [sigh] we `both` saw her.
+- So we can `both` go home.
+- Thank you, `both` of you.
+- Thank you `both` so much.
+- They's `both` left hands.
+- They were `both` masters.
+- Uh... she'll take `both`.
+- We `both` helped her out.
+- We'll `both` be watching.
+- You're `both` embezzling.
+- You've seen `both` of me.
+- `Both`: human application.
+- `Both` places... you know.
+- Can't have it `both` ways.
+- Good morrow to you `both`.
+- I believe it takes `both`.
+- I gave him `both` barrels.
+- I helped raise you `both`.
+- I want you `both` to stay.
+- Kennedy fired them `both`.
+- Let's go from `both` ends.
+- Or you'll `both` be sorry.
+- So we'd `both` fuck elvis.
+- _ so you've `both` failed.
+- That could help us `both`.
+- They're `both` good at it.
+- They're from `both` of us.
+- They were `both` poisoned.
+- We are `both` from prague.
+- We found 'em `both`, dead.
+- We're `both` good, though.
+- We're `both` in it, harry.
+- You better give me `both`!
+- A lot of 'em choose `both`.
+- You've got `both` axes?
+- Back inside, `both` of you.
+- `Both` you little bastards.
+- Guess we were `both` wrong.
+- He's seen `both` of us now.
+- I care about `both` of you.
+- I guess we're `both` lucky.
+                 

@@ -1,0 +1,107 @@
+---
+title: "Marty in a sentence | Marty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Marty"
+---
+- It'll be fine, `marty`.
+- Uh, hi.... hi, `marty`.
+- You all right, `marty`?
+- Hand me that box, `marty`.
+- Hey, `marty`-- sexy cardy.
+- `Marty`, tell her siddown.
+- Oh, `marty`, thanks a lot.
+- There's brian and `marty`.
+- Are you all right, `marty`?
+- `Marty` and fran are broke.
+- `Marty`'s a good man, brian.
+- You and `marty` had a fight.
+- You're too involved `marty`.
+- I vetted the source, `marty`.
+- `Marty` tried to smile at him.
+- You're in therapy too, `marty`?
+- We gotta ask `marty`, of course.
+- `Marty`, do you see your suspect?
+- `Marty`... got a lot of homework?
+- `Marty`, she's a lonely old lady.
+- `Marty`, what are you doing here?
+- `Marty`'d really like you to come.
+- `Marty`, that would alter history.
+- This is a good deal here, `marty`.
+- You're welcome a million, `marty`.
+- Hello, `marty`, when you come home?
+- `Marty`, the moon wasn't even full!
+- `Marty`, you haven't changed a bit!
+- You got a pilot's license, `marty`?
+- Hey, joe, show `marty` that picture.
+- `Marty`, you haven't been listening.
+- Something i got to ask you, `marty`.
+- When you gonna get married, `marty`?
+- You gave me a heart attack, `marty`.
+- Hello, `marty`, when you coming home?
+- It could have been anything, `marty`.
+- It was `marty`'s turn to be confused.
+- `Marty`, what the fuck are you doin'?
+- Hey, `marty`, come over here a minute.
+- `Marty`, thomas and virginia are here.
+- `Marty` went down to corpus yesterday.
+- `Marty`'s plan is only about efficiency.
+- Look, `marty`, she's not your mother yet.
+- `Marty`, `marty`, you should hear yourself!
+- That was a nice girl last night, `marty`.
+- `Marty`, your mother wants you onna phone.
+- So what are you gonna do tonight, `marty`?
+- <u>`marty`</u>...are we <u>paying</u> you?
+- We get a lot of assholes in here, `marty`.
+- You're reading for the part of `marty`.
+- He stuck his hand out and `marty` shook it.
+- I come here because `marty` needs a friend.
+- Why do you think `marty` came here tonight?
+- `Marty` believed in me and i believe in him.
+- Have you got enough gas to get home, `marty`?
+- For starters, `marty` wasn't martin back then.
+- I called peltzer on my way over here, `marty`!
+- Oh -- `marty` -- what time did you say it was?
+- The future, `marty`, the future is everything!
+- She's more than twenty-nine years old, `marty`.
+- Wat... mitch, th'`marty` rossen, i'm here in...
+- You are dear to me, and you are dear to `marty`.
+- You know, `marty`, you were good in the cyclone.
+- Hey, louise, i want you to meet `marty` pilletti.
+- I know what i said, `marty`- but it's ten past one.
+- `Marty`... no, are you kidding me, bob, not at all.
+- `Marty`, that's louise kelly, inna back seat there.
+- Well, well, he smirked when `marty` opened the door.
+- `Marty`, i don't want you hang arounna house tonight.
+- Your kid brother got married last sunday, eh, `marty`?
+- I gave you the pictures `marty`, what else do you want?
+- Where uncle billy and uncle `marty` got their hair cut.
+- I mean, you got this big house just for you and `marty`.
+- He's vegetarian, doesn't do sports... `marty`, ignore him.
+- `Marty`, let's go downna seventy-second street area tonight.
+- I want you come live with me in my house with `marty` and me.
+- It's my feeling that you really want to buy this shop, `marty`.
+- But i know you didn't see any werewolf the other night, `marty`.
+- Catherine, i want you come live in my house with `marty` and me.
+- That's the first time `marty` ever brought a girl to this house.
+- Meurice... kind of a bleak point of view there, isn't it `marty`?
+- So my mother comes in... how's `marty` been lately, aunt theresa?
+- We need a new title, we need a... `marty`... like dykes and dogs.
+- Look, `marty`, i'm just not a fighter... you're not gonna hurt me.
+- No, marriage is all right for harry, and `marty`, and sam and you.
+- I don't know... oh man, you shoulda come with us last night, `marty`.
+- I'm looking after it while cynthia and `marty` ackerman are in hawaii.
+- Go buy some cellophane, wrap em up, and get a card from <u>`marty`</u>.
+- You're gonna keep an eye on `marty` and ray, make sure nothing happens.
+- After `marty` called me with his latest thrilling tale of wonder, i did.
+- Well, what `marty` you think is gonna be here in this house with a girl?
+- I said, `marty`, how come you're anal and i gotta go to the psychiatrist?
+- Hey, i come home from your house last night, `marty` was here with a girl.
+- This girl said... `marty`, see that my mother is nice and comfortable, eh?
+- So, `marty`, let me tell you about these nurses... waddaya read there, joe?
+- You tell `marty`, aunt theresa, you tell him, "go to the stardust ballroom.
+- Two years ago i was bringing `marty` coffee and he didn't even know my name.
+- You better take this back to `marty` and make sure he knows what you're doing.
+- Abby... something happened with `marty` and ray-- ...for you i answer the door.
+- One of the reasons i love you, `marty`, is that you're almost as crazy as i am.
+                 

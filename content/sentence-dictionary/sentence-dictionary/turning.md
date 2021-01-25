@@ -1,0 +1,107 @@
+---
+title: "turning in a sentence | turning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "turning"
+---
+- It's `turning` around!
+- It's `turning` around.
+- She's `turning` north.
+- I'm `turning` myself in.
+- Mind `turning` that off?
+- Takes a `turning` point.
+- The sun `turning` black.
+- You guys `turning` back?
+- The plane's `turning`....
+- They're `turning` around.
+- Water `turning` to blood.
+- You're `turning` me down?
+- There's no `turning` back.
+- This is `turning` to shit.
+- Weather's `turning` nasty.
+- How many you `turning` out?
+- Like `turning` off a light.
+- Everyone's `turning` colors.
+- Happy tossing and `turning`.
+- I'm `turning` off the alarm.
+- I'm `turning` on the lights.
+- I'm not just `turning` dials.
+- I'm `turning` my back on you.
+- I'm `turning` off everything.
+- `Turning` her into a monster.
+- What are you `turning` in to?
+- I'm `turning` over a new leaf.
+- The air is `turning` into ice!
+- The reels are still `turning`.
+- `Turning` one bullet into two.
+- ...we�re `turning` in circles.
+- I'm just not `turning` them in.
+- `Turning` into regular tycoons.
+- Weather's `turning` quite nasty.
+- Fucked-up bowman's `turning` blue.
+- Everyone's `turning` into a zombie.
+- Poor freud, `turning` in his grave.
+- Why you're `turning` yourselves in.
+- There's no `turning` back from that.
+- Fat sam is `turning` state's evidence.
+- What's the idea of `turning` her down?
+- Father would be `turning` in his grave.
+- I looked in, an' it was `turning` gray.
+- It's a long road that has no `turning`.
+- Pike's `turning` us against each other.
+- They're `turning` it into a witch hunt.
+- This is `turning` into quite a rivalry.
+- Yeah, she's `turning` into a real jerk.
+- Like medusa `turning` people into stone.
+- So i'm telling you we're `turning` back!
+- I'm `turning` in my running shoes to you.
+- Or, like, a `turning` wheel for steering?
+- Got dressed without `turning` on the light.
+- I feel like you're `turning` me into a vcr.
+- Besides, the wind's `turning` with the tide.
+- I'm `turning` the heat on in my car tonight.
+- Yeah, like `turning` into a beautiful woman.
+- `Turning` selfish a creature like chiren.
+- But his own people are `turning` against him.
+- So why are these cocksuckers `turning` on me?
+- It isn't `turning` out like it was supposed to.
+- That nancy's `turning` you into a little pussy!
+- We are not `turning` him over to the grounders.
+- Have i told you how mean you're `turning`, york?
+- I'm `turning` your file over to the vice-squad!!
+- That's why we're `turning` off onto a fire road.
+- All we're doing is `turning` lemon into lemonade.
+- Folks're batshit with the weather `turning` sour.
+- Your gray's in danger of `turning` a little pink.
+- You're the one always `turning` your nose up at me.
+- ...you're `turning` into quite the politician, 007.
+- I'm `turning` the cars around in the rest area loop.
+- Bet i could make some money `turning` ben corbett in.
+- Pardon me miss, but would you mind `turning`... shhh!
+- Now i'm afraid she's `turning` out to be like him.
+- I'm not `turning` people in monty, can you get it off?
+- If i just turn the keys, it's like `turning` off a car.
+- My first crush... and when she's `turning` a blind eye.
+- I could hear you tossing and `turning` all night, kiddo.
+- It's `turning` into woodstock except there's no concert.
+- Of, quote, '`turning` a blind <u>eye</u> to the future.'
+- The mountain men are `turning` your people into reapers.
+- `Turning` back would take just as much time as going on.
+- We are `turning` left to a heading of zero- niner-niner.
+- Radiation killed him, is `turning` bart into a bad person.
+- Well, i'll be -- there's a rig, `turning` in, by the gate.
+- He told me he was `turning` in early... don't kid yourself.
+- Lenny, you're `turning` into some kinda squid-head low-life.
+- Look, mr. desmond, i didn't count on it `turning` this ugly.
+- I wouldn't be surprised if we see more of these `turning` up.
+- ... if your father were alive, i would be `turning` to him now.
+- I'm `turning` lauren over to canadian law enforcement tomorrow.
+- Yeah, i'll miss the trees in central park `turning` in the fall.
+- This is `turning` out to be a walk in the park, do you know that?
+- Mother is determined that this time there's no `turning` back.
+- But i need to know you're serious about `turning` over a new leaf.
+- We both know there's no way you're satisfied just `turning` it on.
+- Madam ... cut to woman `turning`, half in flirtatious conversation.
+- Women like that have a way of `turning` professionals into amateurs.
+- You're `turning` into a yuppie frankenstein, you love money so much.
+                 

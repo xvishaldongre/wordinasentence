@@ -1,0 +1,107 @@
+---
+title: "coffee in a sentence | coffee example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "coffee"
+---
+- `Coffee` on the stove.
+- `Coffee` or something?
+- I don't like `coffee`.
+- Instant `coffee` okay?
+- Or no `coffee` at all.
+- `Coffee` might be nice.
+- Do you want a `coffee`?
+- I don't drink `coffee`.
+- Possibly some `coffee`?
+- You want more `coffee`?
+- You want some `coffee`?
+- Another cup of `coffee`?
+- `Coffee`... two coffees.
+- Good `coffee`, isn't it?
+- I'll bring the `coffee`.
+- I'll make some `coffee`.
+- It's good with `coffee`.
+- Just plain old `coffee`.
+- Make them some `coffee`.
+- Thanks for the `coffee`.
+- Can i buy you a `coffee`?
+- `Coffee`'s warming me up.
+- `Coffee`, that's a laugh.
+- Look, i ordered `coffee`.
+- No -- just `coffee`, gus.
+- You better like `coffee`.
+- Make us some `coffee`?
+- Any of that `coffee` left?
+- Buy you a cup of `coffee`?
+- `Coffee` with some aliens.
+- Here's your `coffee`, jim.
+- I gotta get some `coffee`.
+- Let me buy you a `coffee`.
+- The corinth `coffee` shop.
+- The mustache `coffee` cup.
+- There's `coffee` inside...
+- They better have `coffee`.
+- Want some `coffee` or tea?
+- How fresh is this `coffee`?
+- I could make some `coffee`.
+- I'll fix you some `coffee`.
+- I'll get you some `coffee`.
+- I'm too young for `coffee`.
+- Please drink your `coffee`.
+- Please enjoy your `coffee`.
+- Thank you for the `coffee`.
+- We don't have any `coffee`.
+- We're just having `coffee`.
+- Would anyone like `coffee`?
+- Bring me a cup of `coffee`."
+- Can we get some `coffee`...?
+- "drink `coffee`," said mike.
+- Hot `coffee` or iced `coffee`?
+- How about a cup of `coffee`?
+- I'll have a cup of `coffee`?
+- I'll pour you some `coffee`.
+- I'll take the iced `coffee`.
+- Just half-a-cup of `coffee`.
+- Now, are we having `coffee`?
+- <u>you</u> made `coffee`?...
+- You wanna get some `coffee`?
+- `Coffee` and... on your desk.
+- Eight cups of `coffee` worth.
+- I think i'll have a `coffee`.
+- Let me get you some `coffee`.
+- Maybe over `coffee` sometime.
+- Oh, yes, with the `coffee`...
+- Our mission is `coffee`, tom.
+- Soon as i finish my `coffee`.
+- Would you like some `coffee`?
+- You girls want some `coffee`?
+- They's some `coffee` here.
+- Can i offer you some `coffee`?
+- I don't drink `coffee`, daddy.
+- I�ll go for a cup of `coffee`!
+- Maybe we should have `coffee`.
+- ...me, i don't drink `coffee`.
+- Where d'you want the `coffee`?
+- Are you going to have `coffee`?
+- Get yourself a cup of `coffee`.
+- I don't drink `coffee` anymore.
+- I have `coffee` in the thermos.
+- I'll be back with the `coffee`.
+- I'll make myself some `coffee`.
+- I made a fresh pot of `coffee`.
+- I'm going to drink my `coffee`.
+- I sat outside and had `coffee`.
+- I was lying about the `coffee`.
+- One beer, one `coffee`, thanks.
+- Come on let's get this `coffee`.
+- I just haven't had `coffee` yet.
+- I'll have some `coffee`, please.
+- I'll help you with the `coffee`.
+- I'm going to make some `coffee`.
+- Mom, is there any `coffee` left?
+- That smells like fresh `coffee`.
+- You feel like a cup of `coffee`?
+- But i still don't drink `coffee`.
+- Do you want to get some `coffee`?
+- How to get the teachers `coffee`.
+                 

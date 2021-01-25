@@ -1,0 +1,76 @@
+---
+title: "pussy in a sentence | pussy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pussy"
+---
+- So you do eat `pussy`!
+- Don't be such a `pussy`.
+- Don't `pussy`-out on me.
+- I know you're a `pussy`.
+- `Pussy` love pink rocks.
+- So you won't eat `pussy`?
+- The kurgan was a `pussy`.
+- Are those `pussy`-willows?
+- You back down, you `pussy`.
+- Come on, don't be a `pussy`.
+- Fuckin' sheet metal `pussy`.
+- Isn't this 4215 `pussy` way?
+- You got `pussy`-eatin' mugs.
+- Get up and fight me, `pussy`!
+- Pink sounds like mr. `pussy`.
+- `Pussy`, ass, soft personnel.
+- Go on `pussy`-eaters... laugh.
+- I stuck a flute in my `pussy`.
+- You're such a fucking `pussy`.
+- I never forget a `pussy`... cat.
+- Ain't no man have to eat `pussy`!
+- I never said you was a `pussy`...
+- No need to be a `pussy` about it.
+- They got that fine young `pussy`.
+- Ah, fuck ya then, you big `pussy`.
+- `Pussy` `pussy` `pussy`, indian `pussy`.
+- Don't `pussy` out on me now, marvin.
+- You look like you be eatin' `pussy`.
+- Floyd say he don't be eatin' `pussy`.
+- He just wants to get in your `pussy`.
+- You're such a `pussy`, you know that?
+- What did i raise, a `pussy` for a son?
+- Her `pussy` should be bubble-yum by now.
+- You are such a raving `pussy` sometimes.
+- His daddy taught him how to be a `pussy`.
+- If you ain't a `pussy` - you'll be there.
+- Nam's his freedom man, nam's his `pussy`.
+- There's gonna be some `pussy` there, man!
+- Her system is protected by her '`pussy` virus.'
+- That nancy's turning you into a little `pussy`!
+- Everyone's laughing at you, you fucking `pussy`.
+- The quest for `pussy` is the meaning of life ...
+- Richie, will you do me a favor and eat my `pussy`?
+- Look, fifty thousand dollars buys a lot of `pussy`.
+- Now come out and fight like a real man you `pussy`!
+- Hold on a second, big d. you sayin' you eat `pussy`?
+- I've always had a hankering for blonde `pussy` myself.
+- At least i don't walk the streets like a skunk `pussy`.
+- Lick barney the dinosaur's `pussy` fucking kiddie hour?
+- That'd be some explosive `pussy` he's got his hands on.
+- You didn't ask her out, you're such a `pussy` -- nothing.
+- Didn't look like chicken to me, more like fried `pussy` cat.
+- ...that's an awful long way to go, just to get some `pussy`.
+- She said we look like `pussy` lickers or some shit like that.
+- I'm gettin' `pussy` left, right, up, down, center and sideways.
+- Shit, any nigger say he don't eat `pussy` is lyin' his ass off.
+- You got a letter on your jacket you get that `pussy` in ya lap.
+- Pink, mr. purple, mr. `pussy`, mr. piss... yeah, those guys too.
+- So if i got good grades, i was a `pussy` for not playing football.
+- Smells like shit, but to a male raccoon it smells just like `pussy`.
+- Then, after a while sisters use to gettin' their little `pussy` eat.
+- Washington is full of cornpone country `pussy` -- just ask jesse jackson.
+- How come you know so much about black cocks and so little about white `pussy`?]
+- Yeah, you had a piece of `pussy` on a plate in front of you, you'd probably kill it.
+- Only way you'd get some `pussy` is your bitch dies and wills it to you - and then maybe.
+- There used to be a time when sisters didn't know shit about gettin' their `pussy` licked.
+- I like..i prepare number one dessert.. special for you and `pussy`.. at least i won lunch.
+- I'm sorry, man -- but i ain't ever heard of no brother dying from gettin' too much `pussy`.
+- See smoke from `pussy`, ping pong ball from `pussy`, razor blade from `pussy`; bird from `pussy`.
+                 

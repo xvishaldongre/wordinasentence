@@ -1,0 +1,107 @@
+---
+title: "couldn't in a sentence | couldn't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "couldn't"
+---
+- But `couldn't` you...?
+- `couldn't` be happier.
+- `couldn't` believe it.
+- `couldn't` you change?
+- He `couldn't` take it.
+- I can't... `couldn't`.
+- I `couldn't` buy food.
+- I `couldn't` find you.
+- I `couldn't` hear you.
+- I `couldn't` help you.
+- I `couldn't` possibly.
+- I `couldn't` save him.
+- I `couldn't` see shit.
+- I `couldn't` stand it.
+- I `couldn't` stop him!
+- I `couldn't` stop him.
+- I `couldn't` tell you.
+- It `couldn't` be done.
+- It `couldn't` breathe.
+- She `couldn't` decide.
+- That i `couldn't` say.
+- We `couldn't` risk it.
+- You said i `couldn't`.
+- But i `couldn't` do it.
+- `couldn't` handle them.
+- `couldn't` talk to her?
+- `couldn't` you hear me?
+- I `couldn't` care less.
+- I `couldn't` find jane.
+- I `couldn't` kill buzz.
+- I `couldn't` save them.
+- I `couldn't` save tris.
+- I `couldn't` see her...
+- I `couldn't` stop them.
+- I just `couldn't` stop.
+- No you `couldn't`, sir.
+- She `couldn't` breathe.
+- They `couldn't` have...
+- Could be, `couldn't` it?
+- `couldn't` deal with it.
+- `couldn't` find a thing.
+- He `couldn't` leave her.
+- He `couldn't` say where.
+- I `couldn't` agree more.
+- I `couldn't` ask you to.
+- I `couldn't` believe it!
+- I `couldn't` believe it.
+- I `couldn't` figure out.
+- I `couldn't` find you...
+- I `couldn't` get enough.
+- I `couldn't` get to her.
+- I `couldn't` get you in.
+- I `couldn't` if i tried.
+- I `couldn't` lie to him.
+- I `couldn't`... oh, god.
+- I `couldn't` prevent it.
+- I `couldn't` really say.
+- I `couldn't` write that.
+- I just `couldn't` sleep.
+- It `couldn't` be better.
+- It `couldn't` be helped.
+- It `couldn't` have been.
+- My ancestors `couldn't`.
+- She `couldn't` kill you.
+- They `couldn't` pick me!
+- Why `couldn't` we do it?
+- You `couldn't` even eat.
+- You `couldn't` possibly.
+- `couldn't` even say nazi.
+- `couldn't` get a reading.
+- `couldn't` make them out.
+- `couldn't` sleep, pumper.
+- `couldn't` you get a job?
+- He `couldn't` look at me.
+- He said i `couldn't` win.
+- Hey, you `couldn't` know.
+- I `couldn't` do it, leah!
+- I `couldn't` get him out.
+- I `couldn't` help myself.
+- I `couldn't` resist them.
+- I `couldn't` stop myself.
+- I `couldn't` tell anyone.
+- If we `couldn't` make it.
+- It `couldn't` be outside.
+- It `couldn't` be simpler.
+- Oh, i `couldn't` do that.
+- They `couldn't` break me.
+- They `couldn't` prove it.
+- They `couldn't` stop him.
+- You `couldn't` afford it.
+- You `couldn't` even sing.
+- You `couldn't` go to her.
+- You `couldn't` wound him?
+- You mean, you `couldn't`?
+- But we `couldn't` see him.
+- `couldn't` ask for better.
+- `couldn't` handle it then.
+- `couldn't` keep away, huh?
+- Everything you `couldn't`.
+- Friends i `couldn't` have.
+                 

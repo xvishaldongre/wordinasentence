@@ -1,0 +1,107 @@
+---
+title: "hit in a sentence | hit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hit"
+---
+- Don't `hit` the tanks.
+- He got `hit` by a bus.
+- Hey, terry, i'm `hit`.
+- I knew you'd `hit` me.
+- I'll `hit` you, frank.
+- I'm the one got `hit`.
+- Sorry i `hit` jackson.
+- These boys're a `hit`!
+- They `hit` me and ran.
+- We `hit` a memory cap.
+- You almost `hit` mews.
+- You could've `hit` me.
+- You `hit` for my card!
+- You think mafia `hit`?
+- Direct `hit` - no, sir.
+- `Hit` him or something.
+- `Hit` the lights again.
+- `Hit` your finger, huh?
+- I `hit` the water hard.
+- I'm going to `hit` you.
+- Is he `hit` pretty bad?
+- It's a rip and a `hit`.
+- It's `hit` us all hard!
+- I've hired a `hit` man.
+- I won't ever `hit` you.
+- Remember, `hit`... hey!
+- We didn't `hit` it off.
+- You'll `hit` josephine.
+- You'll `hit` something!
+- You mean who `hit` who?
+- And it `hit` me... yeah.
+- But it was a huge `hit`.
+- He got `hit` by a train.
+- `Hit` makes me sad, too.
+- Hmm... my biggest `hit`?
+- I `hit` it with my cane.
+- Lincoln, you’re `hit`.
+- No wonder you got `hit`.
+- Probably `hit` by a car.
+- They `hit` him too hard.
+- They `hit` other planes.
+- They might `hit` it off.
+- Where did you `hit` her?
+- Where should i `hit` it?
+- You fucking `hit` a cop?
+- You gotta `hit` it here.
+- 1, 2, 8 `hit`, didn't it?
+- Did... did she `hit` you?
+- Haven't `hit` bottom yet.
+- Hey, man -- you're `hit`.
+- `Hit` by a swinging door?
+- `Hit` me for your father.
+- `Hit` those stairs again.
+- I got a `hit` on the car.
+- It's been `hit` by a car.
+- Part of it `hit` her ear.
+- She `hit` it, mr. kastle!
+- We didn't `hit` this one.
+- We won't `hit` the track.
+- What's the biggest `hit`?
+- Ya `hit` or sit, martini?
+- You `hit` the count room.
+- You've `hit` the jackpot.
+- Can i get a `hit` of that?
+- Does johnnie `hit` on you?
+- Everyone `hit` the ground!
+- He's gonna `hit` hometree.
+- I gotta `hit` the library.
+- Just shut up and `hit` me!
+- No, he got `hit` by a bus.
+- They get `hit` by meteors.
+- What about the `hit` list.
+- Willy -- `hit` the lights.
+- You could `hit` one of us.
+- You want a `hit` off this?
+- Clarke: jasper was `hit`.
+- First one to `hit` the bed.
+- He `hit` me, then took off.
+- He's high on my `hit` list.
+- `Hit` points along the way.
+- I been trying to `hit` you.
+- I didn't mean to `hit` you.
+- I don't know what `hit` us!
+- If it was a ship she `hit`.
+- Just cause we `hit` it big.
+- Postal van - day `hit` him.
+- Remember to `hit` 'em hard.
+- Then he got `hit` by a bus.
+- We `hit` every green light.
+- You'll need one more `hit`.
+- You were `hit` on the head.
+- Gonna `hit` that shit again?
+- He could get `hit` by a car!
+- He didn't have to `hit` him.
+- He `hit` damn near everyone.
+- He `hit` like human jukebox.
+- `Hit` a streak when we left.
+- `Hit` me with the newspaper.
+- I didn't `hit` it that hard.
+- She `hit` you with a bottle?
+                 

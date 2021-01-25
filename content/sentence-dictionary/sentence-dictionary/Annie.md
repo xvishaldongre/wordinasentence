@@ -1,0 +1,83 @@
+---
+title: "Annie in a sentence | Annie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Annie"
+---
+- I really like `annie`.
+- `Annie`, i need a file.
+- `Annie`'s a smart lady.
+- Oh, oh... god, `annie`.
+- Well...`annie` for one.
+- How do you know `annie`?
+- I love you too, `annie`.
+- There's no why, `annie`.
+- This is `annie` maclean.
+- What will i tell `annie`?
+- `Annie` had no plans, huh?
+- Good luck to you, `annie`.
+- Look, `annie`, i love you.
+- Max... `annie`...it's max.
+- What's wrong with `annie`?
+- `Annie`, what's the matter?
+- He's a lovely man, `annie`.
+- I keep thinking of `annie`.
+- Oh, he's adorable, `annie`.
+- We'd get `annie` in trouble.
+- We'll get `annie` leibovitz.
+- `Annie`...got an umbrella...?
+- `Annie`, paul's on the phone!
+- Hi, `annie`, laurie... fun-ny.
+- I'm going to miss old `annie`.
+- Oh, you remember her, `annie`.
+- Have you ever seen `annie` hall?
+- Summers are short here, `annie`.
+- With... with `annie`, of course.
+- You remember randy hunt, `annie`.
+- `Annie`, i think you should leave.
+- Well, `annie`, your place or mine?
+- Do you have the musical, "`annie`"?
+- So you came up to see `annie`, huh?
+- They're still our friends, `annie`.
+- Why didn't `annie` stay for dinner?
+- Do you really know `annie` hayworth?
+- I don't know any other way, `annie`.
+- "you bought the wrong paper, `annie`.
+- "dear `annie`: thanks for your letter.
+- I can't write on this paper, `annie`."
+- If i get laid, you won't tell `annie`?
+- Where are you from originally, `annie`?
+- `Annie`, i think we should have a toast.
+- A gull smashed into `annie`'s front door.
+- I think he has a little thing for `annie`.
+- Look, do you have to go back to `annie`'s?
+- `Annie`... `annie` may have made other plans.
+- Anyway, i'm sure `annie` wants her privacy.
+- Aren't you gonna be late for meeting `annie`?
+- I'd like you to be in on everything, `annie`.
+- `Annie`: you stick to the amateur theatricals.
+- `Annie`, come and have a look at this, will ya?
+- `Annie` probably took lindsey out or something.
+- You're ado `annie`, the girl who cain't say no.
+- You're going to be late at the doyles, `annie`.
+- `Annie` -- there's nothing between mitch and me.
+- My name is `annie` wilkes and i'm-- how long...?
+- ♪ because circus clowning ♪ oh, machine gun `annie`?
+- `Annie` has an announcement -- the one in the street.
+- `Annie`, that adds up to a jealous, possessive woman.
+- `Annie`, there's a big lobster behind the refrigerator.
+- Mousing around with some big blonde `annie` on my time!
+- If only i didn't feel guilty asking `annie` to move out.
+- I'll have the usual trouble with `annie` in bed tonight.
+- Start again -- he's alive... oh god, `annie`, i'm so sorry.
+- We have two kids, `annie` and josh... don�t do this, jack...
+- `Annie`, some day you're going to get us all in deep trouble.
+- It's two of the letters in my favorite nurse's name, `annie`.
+- That's where `annie` hayworth lives, she's the school teacher.
+- He�s still learning our ways... fighting�s a part of it, `annie`.
+- You know, `annie`, this book never would have survived without you.
+- If this magazine is so important to you `annie`, why are you in montana?
+- We�ll put `annie` and josh in private schools... are you out of your mind?
+- Paul dragged me into the boys' locker room to tell me... what's wrong, `annie`?
+- I want my pain to go 'way, `annie`-- make it go 'way, please `annie`-- --please...
+                 

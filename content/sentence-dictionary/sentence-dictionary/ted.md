@@ -1,0 +1,107 @@
+---
+title: "ted in a sentence | ted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ted"
+---
+- How 'bout `ted` bundy?
+- I'm `ted`, by the way.
+- Oh you're good, `ted`.
+- `Ted` now denies this.
+- We're grateful, `ted`.
+- Many with `ted` danson.
+- `Ted`, i'm leaving you.
+- Who is `ted` nelson?
+- `Ted` was a good worker.
+- `Ted`, we're taking off!
+- `Ted`, please be careful.
+- `Ted`, you're overworked.
+- After franklin, not `ted`.
+- Eat this spaghetti, `ted`.
+- There you are, `ted`-baby.
+- What are you doing, `ted`?
+- What did you think, `ted`?
+- His name was `ted` casey...
+- Salt's good for you, `ted`.
+- `Ted`, don't be so hostile.
+- Um, hi, i'm `ted` peloquin.
+- We don't allow tipn, `ted`.
+- Maybe she needs help, `ted`.
+- Not when i'm with you, `ted`.
+- Oh, `ted`, please be careful.
+- `Ted` and i are here for you.
+- `Ted` okum doesn't know shit.
+- Welcome to the family, `ted`.
+- I'm not going anywhere, `ted`.
+- She smiles at everyone, `ted`.
+- `Ted`, get a grip on yourself.
+- `Ted`, i've had time to think.
+- That was very well put, `ted`.
+- I thought that was `ted` bundy.
+- `Ted`, can you get that please?
+- `Ted`, have you lost your mind?
+- `Ted` seems to have some ideas.
+- `Ted` -- very, very, very sick.
+- `Ted`, what are you doing here?
+- What will happen to him, `ted`?
+- Don't play games with me, `ted`.
+- I think i was very clear, `ted`.
+- `Ted`, go into the control room.
+- `Ted`'s problem is in this area.
+- `Ted`, i don't want to stay here.
+- Easy `ted`, we're not mining gold.
+- Storm clouds are gathering, `ted`.
+- `Ted`, get her away from the door.
+- `Ted`, there's no time to explain.
+- `Ted`, we've only got ten minutes.
+- The answer is never, `ted`, never.
+- What the-- `ted`, do you love him?
+- A girl after your own heart, `ted`.
+- I guess i've gotta cancel on `ted`.
+- `Ted`, divorce is a terrible thing.
+- `Ted`, what are you talking about?!
+- `Ted`... you're not that far ahead.
+- All is fair in "heaven," `ted`-baby.
+- I have to be honest with you, `ted`.
+- Life must be peachy on planet `ted`.
+- Oh, `ted` i'm so sorry to hear that.
+- A father is nothing but sperm, `ted`.
+- Bill and `ted`'s excellent adventure.
+- Girls left bars with `ted` bundy too.
+- That stalker `ted` got to you, right?
+- Please, thel... `ted`, i just heard...
+- You should definitely call her, `ted`.
+- I've never used the word insane, `ted`.
+- `Ted`, i've got to go...i've got to go.
+- I was sure we'd met, weren't you, `ted`?
+- We'll send you the release forms, `ted`.
+- I mean it `ted`, you're running this one.
+- You can't tell it from a distance, `ted`.
+- Christ, `ted`, i was only four towns away.
+- No one will be laughing at you now, `ted`.
+- `Ted`, joanna's very unhappy and-- things?
+- But `ted`, you're the only... oil pressure.
+- I hope you're enjoying your chicken, `ted`.
+- `Ted`, a toilet's not going to kill anyone.
+- This wasn't your first time, was it, `ted`?
+- `Ted`, i loved you and i'll always love you.
+- `Ted`, we put a lot of love in our business.
+- It's too bad you don't live down here, `ted`.
+- I want that at this stage of the game, `ted`.
+- You know, `ted` said something to me earlier.
+- Earth doesn't have a patent on buttons, `ted`.
+- `Ted`, i don't understand a word you're saying.
+- You should go over and watch some `ted` carson.
+- Or do you have a taste for the good life, `ted`?
+- Yesterday she told me homer, i'm `ted` sarandos.
+- By the way, `ted`, i'm leaving you for simon.
+- Its very nice of `ted` but... we can't accept it.
+- The ozone must be fully depleted on planet `ted`.
+- You mean '`ted` bundy's' finally agreed to leave?
+- But, `ted`, the invitations have already gone out.
+- `Ted`, doctor sandler says you'll be out in a week.
+- `Ted`, i'm the kind of guy who shoots from the hip.
+- Ever since `ted` and joanna moved into the building.
+- Everything is lovely, `ted`, but much too expensive.
+- Look, `ted`, i'm the oldest whore on the beat, okay?
+                 

@@ -1,0 +1,107 @@
+---
+title: "simply in a sentence | simply example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "simply"
+---
+- I was `simply` a pawn.
+- It was `simply` glorious!
+- To put it `simply`, guys.
+- He `simply` said, "please.
+- I `simply` can't leave now.
+- One likes to live `simply`.
+- We were `simply` listening.
+- I'm `simply` quoting the law.
+- We are `simply` his servants.
+- You can `simply` speak to me.
+- Everybody `simply` evaporates!
+- I could `simply` kill you all.
+- I `simply` don't have it, joe.
+- The girl has `simply` vanished.
+- ...has been `simply` unbearable.
+- He `simply` doesn't belong here.
+- I `simply` can't get it to jell!
+- Then we will `simply` alert him.
+- But that's `simply` not possible.
+- It's `simply` too dangerous here!
+- Werewolves `simply` do not exist.
+- I `simply` couldn't understand it.
+- No, one cannot `simply` ignore it.
+- We live `simply`, mr. jimmy and i.
+- I `simply` can not stand that tone!
+- I `simply` called my father's paper.
+- Life is `simply` too precious not to.
+- You just `simply` return what's mine.
+- You `simply` haven't looked properly.
+- All of it is `simply` a state of mind.
+- That's `simply` the way they talk here.
+- `Simply` did not want her arm lopped off!
+- `Simply` put, observation stops movement.
+- So this wasn't `simply` a chance meeting.
+- You `simply` rule from behind the scenes.
+- One private is `simply` not worth a squad.
+- Or `simply` love me... because i love you?
+- As confucius says, "don't `simply` be good.
+- We `simply` make them pay for their crimes.
+- Do we `simply` ask him where he's hidden it?
+- But i can't lose this post, i `simply` can't!
+- I `simply` love the... naturalness of it all.
+- You `simply` lack the strength to wield them.
+- Peter will `simply` escort molly to the villa.
+- Well, you have to `simply` tell me, that's all.
+- Dave, i find your story `simply` not believable.
+- A little too out in the open but `simply` lovely.
+- I like the blues sung `simply`, man and a guitar.
+- In my judgment, you `simply` have no alternative.
+- It'll be better for us if he `simply` disappears.
+- Jerry, you're `simply` going to have to trust me.
+- No, he `simply`... ...what do you expect me to...
+- There are `simply` too many notes, that's all.
+- Hips are `simply` a function of legs, aren't they?
+- Well, usually, they're... `simply` morality tales.
+- In my day, it was `simply` called the double cross.
+- You `simply` raise more money than you really need.
+- I was `simply` attempting to keep the evening light.
+- Then why doesn't he `simply` appoint me to the post?
+- We'll `simply` be restoring their natural evolution.
+- We're `simply` concerned about her...proximity to...
+- If he catches me, it's `simply` a life i do not want.
+- If science is `simply` a means, what then is the end?
+- It's `simply` that i find it incredible, mr. hillyer.
+- I've `simply` accessed your memory for a spokesperson.
+- The numbers `simply` don't mean anything but you must!
+- With all six stones, i could `simply` snap my fingers.
+- He's `simply` unable to submit to any higher authority.
+- I may have, as... as i said, i `simply` don't remember.
+- But finally, i `simply` could not recommend herr mozart.
+- Now tom, you `simply` cannot go to philadelphia tonight.
+- What i'd like, very `simply`, is access to your archive.
+- I `simply` wish to know -- look, i'll be done in a minute.
+- This job requires more than `simply` following the law.
+- But if i can see you, touch you even as `simply` as this...
+- It `simply` deals with unpredictability in complex systems.
+- That marble quarry in the valley is `simply` magnificent.
+- `Simply` get out when they slide the van open and walk to me.
+- Viktor, we `simply` have to talk about "eternity..." why not?
+- I'm not sure... maybe it `simply` exists in the search for it.
+- I made a mistake hiring you- you're `simply` not up to the job.
+- My problem, mr. case, is `simply` that i am a soulless bastard.
+- In our context, it `simply` means infiltration of the democrats.
+- No, samson samoan... no, `simply`, similar... what was that d.j.
+- Viktor, clyde `simply` has to get close to simone in this scene!
+- You thought if you `simply` showed up i might give it to you?
+- I do... it `simply` means that i trust and accept your judgement.
+- When all this is over, we `simply` must get you out of that suit.
+- A lot of it you're `simply` not capable of understanding, not yet.
+- It very `simply` said, "john walker & sons old highland whiskey."
+- By doing so, they have quite `simply` guaranteed their own extinction.
+- For the simple reason i `simply` don't know what you're talking about.
+- We are `simply` respecting the terms of the seventeen point agreement.
+- If you won't accept our proposal, we'll `simply` find someone who will.
+- To you it's the fourth dimension, maybe, to me it's `simply` the truth.
+- We may live in a machine age, but i `simply` can't treat them as equals.
+- I `simply` want you to be aware of this because you'll be happier for it.
+- `Simply` because he eluded your trap, do you think he is more than a man?
+- Then i'll `simply` invite all the robinsons' over for dinner on thursday.
+- All my life i thought i was `simply` a man who didn't believe in any of it.
+                 

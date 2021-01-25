@@ -1,0 +1,107 @@
+---
+title: "air in a sentence | air example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "air"
+---
+- Copy, `air` force one.
+- How many in the `air`?
+- We're on backup `air`.
+- When's the `air` date?
+- He has an `air` bubble.
+- It floats on the `air`.
+- Must be the good `air`.
+- Take him off the `air`.
+- The `air` feels chunky.
+- The `air` is a message.
+- The `air`... the power.
+- Vanish into thin `air`?
+- The `air` is lovely.
+- Apparently i did, `air`.
+- Ask him about the `air`.
+- Bel `air` is restricted.
+- Give these people `air`!
+- How much `air` in yours?
+- Is my wife in the `air`?
+- It was a powerful `air`.
+- Strategic `air` command.
+- The energy in the `air`?
+- This is wonderful `air`.
+- Tunnel/`air` vent - day.
+- We never left the `air`.
+- We've got to get `air`!!
+- How about this `air`?
+- Finally ran out of `air`.
+- I'm as free as the `air`.
+- I want to feel the `air`.
+- Maybe it's an `air` raid.
+- Scott's `air` won't last!
+- Scott's `air` won't last.
+- That's our reserve `air`.
+- The `air` could be toxic.
+- To force it on the `air`?
+- Vanished into thin `air`.
+- What about `air` strikes?
+- You got your extra `air`.
+- You mean the `air` ducts?
+- You wanna get some `air`?
+- [`air` hissing] coagulant.
+- ...cannot go on the `air`.
+- e `air`… smells… sweet.
+- Harbor `air`, do you read?
+- I want it `air`-... great.
+- Lieutenant... `air` force.
+- Oh, the `air` is freezing.
+- This is `air` force one...
+- With dust, upon the `air`?
+- `Air` bubbles in the brain.
+- There's the `air` base.
+- Are they blowing hot `air`?
+- How's the `air` force, tim?
+- Jesus, are we on the `air`?
+- Not if it clears the `air`.
+- Set one side for bel `air`.
+- 's got `air` and leather...
+- Thanks for the fresh `air`.
+- What about the `air` vents?
+- I'll brief you in the `air`.
+- It's ruptured an `air` duct.
+- Talby was in the `air` lock.
+- That's the `air` force base.
+- They've got `air` canisters.
+- Too much toxin in the `air`.
+- What's your `air` situation?
+- Where the hell is `air` one?
+- You're running out of `air`.
+- `Air`... water... your "sun."
+- Hey, how's the `air` in here?
+- How mu `air` will he have?
+- I just want some fresh `air`.
+- I'm gonna build `air` fields.
+- Like a breath of fresh `air`.
+- Or a muthafucking `air` ball.
+- The `air` feels so different.
+- They can't breathe our `air`.
+- They do not want to `air` it.
+- We need `air`, not greetings!
+- Why not put him on the `air`?
+- Your security is `air` tight.
+- `Air` force one, acknowledged.
+- We put `air` in the tires.
+- Because the `air` is too thin.
+- Boy, that was some `air`-raid.
+- Cohaagen knows it makes `air`.
+- He's shutting off the `air`!!!
+- He still gets `air` sick, huh?
+- I think i need a little `air`.
+- She mimes an `air` lock valve.
+- The `air` is turning into ice!
+- The very `air` that i breathe.
+- Think we let out enough `air`?
+- Wait, i'll get you some `air`.
+- Where do the `air` ducts lead?
+- Everything was up in the `air`.
+- Hawaiian `air`, business class.
+- Heating and `air` conditioning.
+- How much `air`-time have i got?
+                 

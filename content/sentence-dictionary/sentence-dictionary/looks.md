@@ -1,0 +1,107 @@
+---
+title: "looks in a sentence | looks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "looks"
+---
+- Hell, he `looks` dead.
+- He `looks` like a cop.
+- He `looks` plenty big.
+- He `looks` up at buzz.
+- He `looks` up quickly.
+- He `looks` vietnamese.
+- `Looks` like a garage.
+- `Looks` like it, yeah.
+- `Looks` like just two.
+- `Looks` like they can.
+- `Looks` like we're it.
+- `Looks` quiet, y'know.
+- `Looks` that way, son.
+- One that `looks` nice.
+- Sure `looks` that way.
+- The soil `looks` thin.
+- This `looks` airtight.
+- This `looks` like fun.
+- Those 'dirty `looks`'.
+- Yeah, it `looks` good.
+- When he `looks` up?
+- Everything `looks` new.
+- Harder than it `looks`.
+- He `looks` so...normal.
+- Hey, this `looks` good.
+- It `looks` awfully bad.
+- It `looks` delicious...
+- It `looks` good on you.
+- It `looks` like a fake.
+- It `looks` like scurvy.
+- It `looks` pretty good.
+- It really `looks` good.
+- `Looks` a little funny.
+- `Looks` like a hold-up!
+- `Looks` like an aurora.
+- `Looks` like a vehicle.
+- `Looks` like the ocean.
+- `Looks` like the tower.
+- `Looks` like tim kobza.
+- `Looks` pretty shallow.
+- She `looks`-- - pretty.
+- Shrugs, and `looks` up.
+- The town `looks` clear.
+- Yeah, `looks` that way.
+- That `looks` like...
+- Because it `looks` good.
+- Boy, that `looks` tasty.
+- Good -- it `looks` fine.
+- I... - it `looks` great.
+- I think it `looks` good.
+- I think it `looks` nice.
+- It `looks` load bearing.
+- It `looks` load-bearing.
+- It `looks` too... empty.
+- `Looks` like a chipmunk.
+- `Looks` like a derelict.
+- `Looks` like zone three.
+- She `looks` at the book.
+- She `looks` just like...
+- She `looks` very scared.
+- The floor `looks` clean.
+- Well, this `looks` nice.
+- Yah, `looks` pretty bad.
+- Your show `looks` great.
+- 'cause is `looks` better?
+- Got her mother's `looks`.
+- He `looks` like a killer.
+- He `looks` like my uncle.
+- He `looks` out of breath.
+- I think she `looks` nice!
+- It `looks` like a branch.
+- It `looks` like a hearse.
+- It `looks` like a renoir.
+- It `looks` like the army!
+- It `looks` like treasure.
+- It `looks` too dangerous.
+- `Looks` just like it did.
+- `Looks` like a submarine.
+- `Looks` like he's got us.
+- `Looks` like it's adrift.
+- `Looks` like you done it.
+- Not as bad as it `looks`.
+- She `looks` like a freak.
+- She `looks` so beautiful.
+- That `looks` pretty nice.
+- The voltage `looks` fine.
+- This `looks` promising ..
+- This `looks` promising...
+- Van patten `looks` puffy.
+- He `looks` perfectly fine.
+- It `looks` familiar to me.
+- It `looks` good like that.
+- It `looks` like motor oil.
+- It `looks` like my cousin.
+- `Looks` like about a mile.
+- `Looks` like a fake to me.
+- `Looks` like he missed ya.
+- `Looks` like he's sulking.
+- `Looks` like it, don't it?
+- `Looks` like it stung him.
+                 

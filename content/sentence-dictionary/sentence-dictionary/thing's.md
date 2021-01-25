@@ -1,0 +1,56 @@
+---
+title: "thing's in a sentence | thing's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thing's"
+---
+- The `thing's` ignorant.
+- `thing's` on autopilot.
+- Your `thing's` with us.
+- Ever'`thing's` okay, boy.
+- The `thing's` out of hand.
+- Damn `thing's` broken again.
+- The `thing's` kind of heavy.
+- Ever'`thing's` cool's can be.
+- One `thing's` for sure, jack.
+- Well, one `thing's` for sure.
+- The whole damn `thing's` loaded.
+- This `thing's` not working, huh?
+- Well, this `thing's` been on tv.
+- Damn `thing's` falling to pieces.
+- This `thing's` actually accurate.
+- This `thing's` not even an adult.
+- Damn `thing's` still in my closet.
+- I mean, this `thing's` in my blood.
+- This `thing's` been here 100 years.
+- At least the `thing's` not that fast.
+- You know what that `thing's` packing?
+- Title's the first `thing's` got to go.
+- That's what this whole `thing's` about.
+- This `thing's` changed itself into a man.
+- Goddam `thing's` ten sizes too big for me.
+- This `thing's` huge... background radiation.
+- That kind of `thing's` all over, i promised you.
+- Anyway, this whole `thing's` my therapist's idea.
+- This `thing's` full name, rank and serial number.
+- I'm not so sure the goddam `thing's` in his heart.
+- That `thing's` not going to hold all three of you.
+- This `thing's` an offense to mechanics everywhere.
+- This `thing's` loaded with internal virus systems.
+- If a `thing's` worth doing, it's worth doing right.
+- That `thing's` been in the bargain bin for six months!
+- This `thing's` on track, looks like it's gonna get done.
+- That `thing's` not going to get us down there fast enough.
+- `thing's` been workin' on me, what they was yellin' about.
+- The whole `thing's` just kinda sad and lame at the same time.
+- That `thing's` got a what, twenty-five, twenty-seven foot neck?
+- You say these `thing's` are made of granite with a steel interior?
+- I couldn't believe... did you see the size of that `thing's` mouth?
+- The poor `thing's` had it tough -- she's in a wheelchair for godsakes.
+- Well, you know, "the whole `thing's` theatre..." that's not bad at all.
+- Apparently, this whole `thing's` built were you trying to take this off?
+- Man i'm with that... you talk as if this `thing's` already been decided.
+- That `thing's` too smart to be hiding any more of its clothes, macready.
+- Mr. bartholomew -- maybe you'd better tell me what this `thing's` all about.
+- How would you describe the sounds we heard coming out of that `thing's` helmet?
+                 

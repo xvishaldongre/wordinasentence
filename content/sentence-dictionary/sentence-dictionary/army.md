@@ -1,0 +1,107 @@
+---
+title: "army in a sentence | army example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "army"
+---
+- General of the `army`.
+- That wasn't my `army`.
+- Learn it in the `army`?
+- Oh, he's in the `army`.
+- The `army` is to blame.
+- Three kids, `army` pay.
+- We have our new `army`.
+- With an inhuman `army`.
+- You in the `army`, yes?
+- You were in the `army`.
+- Where is the `army`?
+- `Army`'d pay for school.
+- I was in the `army` too.
+- The `army` can hang him.
+- The `army` is a problem.
+- The `army` supply lines.
+- The british `army`, sir!
+- They were in the `army`.
+- Turkish `army` up there.
+- We don't need an `army`.
+- `Army` 45, keep updating.
+- Do we have an `army` yet?
+- It looks like the `army`!
+- It's good for the `army`.
+- Nine years in the `army`.
+- Nothing about the `army`.
+- Take on an entire `army`?
+- The `army` gave you that?
+- He was regular `army` too.
+- How big is tibet's `army`?
+- It must be the `army` men.
+- Richard was in the `army`.
+- The `army` did this to me!
+- The `army`, sealin' us in.
+- The `army` will move soon.
+- Typical `army` brat story.
+- It's not a very big `army`.
+- Keeps me out of the `army`.
+- Probably the `army` jacket.
+- We have to stop the `army`.
+- `Army` of chipped arkadians.
+- How'd you get in the `army`?
+- I made enough for an `army`.
+- By an `army` of the 12 clans.
+- I will make an `army` appear.
+- The american `army` is there.
+- The `army`'s almost in range.
+- This is not your damn `army`.
+- Will's a part of that `army`.
+- You learn that in the `army`?
+- You're the head of my `army`.
+- Have you served in the `army`?
+- They'll set the `army` on you.
+- You're not fighting an `army`.
+- You want to take on an `army`?
+- You want your `army` to march?
+- `Army` knife... also from 'nam.
+- Is our sleeping `army` uncaged?
+- I want an all-volunteer `army`.
+- The commander's `army` is, too.
+- They supply the rwandan `army`.
+- The answer is... `army` men.
+- Call your friends in the `army`.
+- How long you been in the `army`?
+- I come back with our own `army`.
+- I'm not going to have an `army`.
+- I'm u.s. `army` media relations.
+- Maybe it's not the `army`, jake.
+- So you're going into the `army`?
+- Take grain away from the `army`?
+- The `army` has this all in hand.
+- In my opinion he saved my `army`.
+- It's an `army` of our own people.
+- The `army` of the twelve monkeys.
+- They'll hafta get past my `army`!
+- To win this war i need an `army`.
+- What, you brought an `army` here?
+- You brought the `army` into rome.
+- You could hide an `army` up here.
+- And she wakes her sleeping `army`?
+- Maybe he's ordering `army` knives.
+- One of them regular `army` clowns.
+- The `army` can survive without me.
+- The `army`'s done something to me.
+- You have chosen to join my `army`!
+- How long until the `army` is ready?
+- I'm doing something for the `army`.
+- Is this what's left of your `army`?
+- Small `army`, from the looks of it.
+- That `army` was sent to protect us.
+- The us `army`: always an adventure.
+- The whole grounder `army` out there?
+- What is the size of our `army`, now?
+- You're a legate in the roman `army`.
+- Marshal an `army` to invade sherabad.
+- The `army` still thinks we got elvis.
+- We might end up in the german `army`.
+- We're all the commander's `army` now.
+- Were you an `army` brat or something?
+- But you... you're not `army`, are you?
+                 

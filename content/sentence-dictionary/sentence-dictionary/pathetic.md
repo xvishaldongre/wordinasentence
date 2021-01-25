@@ -1,0 +1,70 @@
+---
+title: "pathetic in a sentence | pathetic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pathetic"
+---
+- Well it is `pathetic`.
+- You're `pathetic`, man.
+- I'm not that `pathetic`.
+- It's the `pathetic` one.
+- Jeez, you're `pathetic`.
+- Well, that's `pathetic`.
+- Don't call me `pathetic`.
+- Don't i sound `pathetic`?
+- God, that's so `pathetic`.
+- That was truly `pathetic`.
+- She's just so... `pathetic`.
+- You're `pathetic`, wickwire.
+- What a `pathetic` thing i am.
+- You `pathetic` piece of shit.
+- Pretty fucking `pathetic` huh?
+- You must think i'm `pathetic`.
+- Any `pathetic` behavior at all?
+- Well it's `pathetic`, isn't it?
+- God, it's so totally `pathetic`.
+- I guess it's kind of `pathetic`.
+- I'll turn your `pathetic` ass in!
+- On that `pathetic` fake blind date.
+- `Pathetic`, using your sister good.
+- That sounds `pathetic`, doesn't it?
+- What kind of `pathetic` line is that?
+- Isn't this getting kind of `pathetic`.
+- Love... how excruciatingly `pathetic`.
+- It must be just so `pathetic` being you.
+- We risk being `pathetic` and ridiculous.
+- Hey, i didn't mean to call you `pathetic`.
+- Little `pathetic`, maybe, but it's not crazy.
+- I'll make the `pathetic` little crumbs love me.
+- People will become a transitory, `pathetic` lot.
+- ...i guess it seems `pathetic` to a guy like you.
+- I was -- misguided, `pathetic` -- i was very fat.
+- This would be funny - if it wasn't so `pathetic`.
+- I mean, it's sort of `pathetic`, but i planned it.
+- I've already left it, you `pathetic` rebound fuck!
+- Ain't it `pathetic` the way folks talk around here?
+- You'd tell me anything to save your `pathetic` life.
+- Did he frequent those `pathetic` bars on camac street?
+- When clarke killed-- [crying] you're weak, `pathetic`.
+- In all due respect, he sounds kind of `pathetic` to me.
+- It's all part of his `pathetic` attempt to be "the man."
+- In all my years i have never seen anything so `pathetic`.
+- There's something `pathetic` parked in front of my house.
+- Until i was sure my cadet unit my god, you're `pathetic`.
+- Sheila makes a `pathetic` attempt to speed away from theo.
+- Lenny, ,you `pathetic` product of the public school system.
+- I'm going on over there... you're the `pathetic` one, not me.
+- Really, there's nothing more `pathetic` than an aging hipster.
+- I'm just like all the rest of these `pathetic` collector losers.
+- You actually think that a bunch of grounders to his `pathetic` level.
+- Exploiting those drooling, `pathetic` cretins for financial gain -- no.
+- So you weren't involved with him in his `pathetic` attempt to diversify?
+- De nada ... thank-you ... after a while, it became a little `pathetic` ...
+- Since when do you care what happens to a bunch of `pathetic` oasiburgians?
+- Is your life so `pathetic` that this is something you're willing to pay for?
+- I danced with you because you were the most `pathetic` specimen in the place!
+- It's `pathetic`, but it's mine ... six or seven... and you got some italians -- ?
+- Inside of six months - ...but you did it for greed, sidney - and that's `pathetic`.
+- If you thought it would add even the slightest trinket to your `pathetic` collection.
+- I wouldn't pull the trigger if i were you�� you really are `pathetic`, you know that?
+                 

@@ -1,0 +1,76 @@
+---
+title: "Kennedy in a sentence | Kennedy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Kennedy"
+---
+- I'm not jack `kennedy`.
+- `Kennedy`'s a catholic.
+- That was mr. `kennedy`.
+- Who killed `kennedy`...?
+- John fitzgerald `kennedy`.
+- `Kennedy` fired them both.
+- We're all set at `kennedy`.
+- Ever stationed at `kennedy`?
+- So president `kennedy` thought.
+- Only if `kennedy` dumps johnson.
+- I told `kennedy` to go into cuba.
+- ... that was `kennedy`'s screw-up.
+- Was `kennedy` ever discussed, jack?
+- You tell jayne `kennedy` to fuck it?
+- She told me johnson killed `kennedy`.
+- In fact, i admired president `kennedy`.
+- You ever use the bathroom in `kennedy`?
+- But laurie `kennedy` is a total hardbody.
+- He won... and they killed robert `kennedy`.
+- Well, it's the jack `kennedy` syndrome, huh?
+- In some crazy way it got turned on `kennedy`.
+- I think he means the `kennedy` assassination.
+- Why not just shoot `kennedy` coming up houston?
+- In september, `kennedy` announces the texas trip.
+- The white house was full of `kennedy` people then.
+- Hell, `kennedy`'s pissed cuba away to the russians.
+- He's wrong, you know -- about `kennedy`, lbj, truman.
+- It scared president `kennedy`, but he was a brave man.
+- And the white house was paranoid about teddy `kennedy`.
+- I was mr. burns's date for the `kennedy` center honors.
+- Two days after the bay of pigs, `kennedy` called me in.
+- I, unlike senator `kennedy`, have a plan to end the war.
+- Then you're mine and mr. `kennedy` can wait 'til morning.
+- Considering this was will byers and not john f. `kennedy`.
+- When `kennedy` gets to the kill zone, it's a turkey shoot.
+- Remember - `kennedy`, bobby, and king were against the war.
+- I think you care more about john `kennedy` than your family!
+- Dude, we were practically made... take us right to `kennedy`.
+- I tell jayne `kennedy`, "suck my dick or i'll beat your ass!"
+- That sonofabitch `kennedy` is coming back down here tomorrow.
+- Uh ... yeah, well, you know, ma, john `kennedy` went by jack.
+- You know who's behind this, don't you -- it's teddy `kennedy`!
+- You're with jayne `kennedy` and you say "bitch, suck my dick!"
+- We honestly don't give a shit about the `kennedy` assassination.
+- You know the sonofabitch went to law school with jack `kennedy`?
+- As early as '61 they knew `kennedy` was going to change things...
+- Dave, as you know, president `kennedy` was assassinated on friday.
+- It's between nixon and a `kennedy` again, edgar ... who do you want?
+- If they didn't tell `kennedy` about track 2, how did hoover find out?
+- Nobody's gonna beat `kennedy` in '64 with all the money in the world.
+- Mr. `kennedy` made a verbal promise to the russians not to invade cuba.
+- President `kennedy` threatened to smash the cia into a thousand pieces.
+- The goddamned missile crisis united the whole country behind `kennedy`.
+- But why, if `kennedy` is so clean in all this, didn't he cancel track 2?
+- But when john f. `kennedy`'s elected president, men'1l stop wearing hats.
+- 'cause that mother fucker `kennedy` stole that fuckin' election, that's why!
+- "threat to assassinate president `kennedy` in dallas, texas, november 22-23.
+- I take it that you see `kennedy`'s assassination as a special kind of car-crash?
+- I sometimes feel things've gone downhill since john `kennedy` was killed, senator.
+- The la guardia flight�s canceled but i got you out of `kennedy` on united at nine.
+- Y'know you're the only person to ever bring a trial in the murder of john `kennedy`.
+- I was told by this guy at the white house that hunt was investigating teddy `kennedy`.
+- You with some fine bitch, i mean a brick shithouse bitch - you're with jayne `kennedy`.
+- Oh, the scuttlebutt for awhile was he was investigating `kennedy`-- any idea what he did?
+- He'd tell you his granny was in on the `kennedy` assassination if he could dodge a collar.
+- I keep thinking of that day, tuesday the 26th, the day after they buried `kennedy`, l.b.j.
+- I will never give up my tapes to a bunch of `kennedy`-loving harvard democrat cocksuckers!
+- Let us imagine paul when their president `kennedy` was shot, they said it was a black man.
+- Nixon was gonna be one of the great presidents 'til `kennedy` wrecked this fuckin' country.
+                 

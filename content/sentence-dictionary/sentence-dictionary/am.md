@@ -1,0 +1,107 @@
+---
+title: "am in a sentence | am example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "am"
+---
+- Because i `am` pissed.
+- But, i `am` in charge.
+- But i `am` right, yes?
+- But i `am` very tense.
+- Doctor, i `am` gassed.
+- Here i `am`, my angel.
+- Here i `am`, patrizia.
+- How good `am` i doing?
+- I `am` addison dewitt.
+- I `am` afraid so, son.
+- I `am` a man of peace.
+- I `am` a small player.
+- I `am` a suicide risk.
+- I `am` frightened now.
+- I `am` from outa town.
+- I `am` herbert carter.
+- I `am` in great shape.
+- I `am` not a mechanic.
+- I `am` not going back.
+- I `am` not john wayne.
+- I `am` not that woman.
+- I `am` now your enemy.
+- I `am` so proud of us.
+- I `am` talking to her.
+- I `am` the chancellor.
+- I `am` the gatekeeper.
+- I `am` the government.
+- I `am` the great went.
+- I `am` the hunted one.
+- I `am` the mighty ape!
+- I `am`... who are you?
+- I can't read, ma'`am`.
+- I don't know, ma'`am`.
+- I...i can't... `am` i?
+- Know who i `am`, jake?
+- Look, it's three `am`.
+- Louise, i `am` louise.
+- Ma'`am`... - i'm fine.
+- Naturally i `am`, sir.
+- No harm done, ma'`am`.
+- No, ma'`am`, we can't.
+- Oh boy, `am` i pissed.
+- Oh god, i <u>`am`</u>!
+- Or `am`, i should say.
+- Sleep wherever i `am`.
+- So what `am` i saying?
+- That i `am` not rheya.
+- That is... now i `am`!
+- That's because i `am`.
+- Uh, question, ma'`am`.
+- What `am` i, an idiot?
+- What `am` i, a shmuck?
+- What `am` i giving up?
+- What `am` i gonna do?!
+- What `am` i gonna eat?
+- What `am` i hooked on?
+- What -- `am` i -- jon.
+- Where `am` i gonna go?
+- Where the fuck `am` i?
+- Where the hell `am` i?
+- Where... where `am` i?
+- Which now, i `am` one.
+- Who `am` i talking to?
+- Why `am` i doing this?
+- Why `am` i still here?
+- Yes ma'`am`, i reckon.
+- Yes, sir -- ma'`am`...
+- `Am` i as good as they?
+- `Am` i being too pushy?
+- `Am` i correct, bishop?
+- `Am` i gettin' the car?
+- `Am` i glad to see you!
+- `Am` i right, corporal?
+- `Am` i sure about what?
+- `Am` i wrecking my car?
+- `Am` i your manager?...
+- Do you know who i `am`?
+- Even if i `am` fifteen?
+- [gasping] yes, ma'`am`.
+- Hello, what `am` i bid?
+- Hell, you think i `am`?
+- Here i `am`, darling...
+- How `am` i a hypocrite?
+- How `am` i the bad guy?
+- How do you do, ma'`am`.
+- How much `am` i paying?
+- I `am` a chaplain here.
+- I `am` after this race.
+- I `am` all right, mama.
+- I `am` almost an adult.
+- I `am` a man of vision.
+- I `am` a resident here.
+- I `am` being exploited!
+- I `am` born, i grow up.
+- I `am` certain of that.
+- I `am` chief of police.
+- I `am` dealing with it.
+- I `am` glad to see you.
+- I `am` going over here.
+- I `am` going to church.
+                 

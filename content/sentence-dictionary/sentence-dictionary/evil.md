@@ -1,0 +1,107 @@
+---
+title: "evil in a sentence | evil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "evil"
+---
+- He is `evil` on earth!
+- No nun, no `evil` eye.
+- You're `evil`, maxine.
+- Beyond good and `evil`.
+- No, he's really `evil`.
+- You `evil` this morning.
+- Do you believe in `evil`?
+- He was a very `evil` man.
+- It's hanson, he's `evil`.
+- Said i, "thing of `evil`!
+- The man's `evil` himself.
+- You're as `evil` as i am.
+- A servant of `evil` it is.
+- Can i have an `evil` twin?
+- `Evil` is a point of view.
+- I know that you're `evil`.
+- Scourge of darkest `evil`.
+- With good fighting `evil`.
+- You `evil` son of a bitch.
+- But deliver us from `evil`.
+- I feel his `evil` presence.
+- It's a race against `evil`.
+- She gave me the `evil` eye.
+- The `evil` finger's on you.
+- Anybody you think is `evil`?
+- I use it... to fight `evil`.
+- Now is the season of `evil`.
+- Oh, `evil` and, uh... - why?
+- The `evil` starts in pankot.
+- Eve `evil`, little miss `evil`.
+- She said the ship was `evil`.
+- So, `evil` never dies, right?
+- You're disgusting and `evil`.
+- But does that make you `evil`?
+- `Evil`, actually, doctor `evil`.
+- Uses it to contemplate `evil`.
+- Yeah, totally `evil` russians.
+- Classic `evil` villain mistake.
+- Oh wow, a real `evil` canieval.
+- Places are not `evil`, brother.
+- There is such a thing as `evil`.
+- This is `evil` -- `evil`, captain.
+- When `evil` returns so shall we.
+- Also that... not pure `evil`.
+- By an `evil` hunter named cassia.
+- `Evil` is a thing you work at.
+- Because it is `evil`.. total `evil`.
+- Nobody's as `evil` as my brothers.
+- Our son is going to choose `evil`.
+- That's your power, a petty `evil`.
+- The `evil` eye doesn't work on me.
+- But deliver us from the `evil` one.
+- Good and `evil` are only illusions.
+- Hey, here's an `evil` japanese guy!
+- What you did ... it was ... `evil`.
+- `Evil`, i want you to meet your son.
+- "i haven't seen `evil` dead ii yet?"
+- There are varying degrees of `evil`.
+- Don't squander your genius on `evil`.
+- Here billy.. a weapon against `evil`.
+- Am i `evil` because i want to survive?
+- Good or `evil`, what's the difference?
+- Clear that `evil` mud out of your soul!
+- Maybe i've been all wrong about `evil`.
+- The goal of `evil` is to wipe out life!
+- Your `evil` is that you cannot be `evil`!
+- Oh yes, our `evil` empire has collapsed!
+- We are talking about `evil` on two legs.
+- Where hides `evil`, then, in my kingdom?
+- `Evil`, do you really expect them to pay?
+- Good/`evil`, right/wrong, merciful/cruel.
+- They are `evil`, cursed, they matter not.
+- `Evil`, prince charles did have an affair.
+- They say we must pray to their `evil` god.
+- Yeah, except i can't fight `evil` with it.
+- And the consciously `evil` prefer fracking.
+- Then perhaps i believe in `evil` after all.
+- A dark entity -- `evil`, ancient and hungry.
+- I do not stand by in the presence of `evil`.
+- I'm telling you harry is nothing but `evil`.
+- It is your `evil`, who will be sought by us.
+- Most of them `evil` how many people go here?
+- There's an `evil` streak in everybody, rose.
+- This is one majorly beautiful `evil` person.
+- Well... what do you think the `evil` wanted?
+- Bloody and `evil`..but he was better than me.
+- I have no sympathy for either good or `evil`.
+- Jason: so, his `evil` lab has a waiting room?
+- That stuff is like pure, concentrated `evil`.
+- Accumulated `evil`... festering for decades...
+- Come on, guys -- we're fighting against `evil`.
+- `Evil` is powerful, more so every day it seems.
+- I don't know what an `evil` russian looks like.
+- If one believes in good one believes in `evil`.
+- You just have to release the `evil` within you.
+- You might not believe me... and this is `evil`?
+- I have a follow-up visit with the `evil` doctor.
+- You have actual powers which you use for `evil`.
+- Each of us has a destiny, for good or for `evil`.
+- My father, he was -- he was real close to `evil`.
+                 

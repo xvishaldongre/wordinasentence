@@ -1,0 +1,107 @@
+---
+title: "left in a sentence | left example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "left"
+---
+- Because she `left` me.
+- Bottom, `left`, right.
+- He `left` his address.
+- He `left` his sweater.
+- He `left` with sophie.
+- Hey, i'm going `left`.
+- Hey, turn `left` here.
+- I have `left` my wife.
+- I have nothing `left`.
+- I `left` that for you.
+- I'm gonna step `left`.
+- `Left`, `left`, right...
+- `Left` us here to rot.
+- `Left` you this place.
+- My wife had `left` me.
+- She `left` you, nikko.
+- That's why she `left`.
+- The one on the `left`.
+- They all i got `left`.
+- They just `left`, sir.
+- They `left` a hostage.
+- They `left` the stove.
+- They `left` you alone?
+- Those that are `left`.
+- What if i just `left`?
+- You `left` me for him.
+- A little to the `left`.
+- 'bout two hours `left`.
+- But you `left` out how.
+- He `left` me a message.
+- He `left` this morning.
+- He `left` us down here.
+- I am not `left`-handed.
+- I `left` a fingerprint!
+- I `left` four messages.
+- I `left` him a message.
+- I `left` it back there.
+- I `left` those drugs...
+- It's `left` to us guys.
+- `Left` field somewhere.
+- `Left` hand's the past.
+- `Left` me with nothing.
+- No good options `left`?
+- Or what's `left` of it.
+- Second from the `left`.
+- She `left` a while ago.
+- She was when we `left`.
+- The message you `left`.
+- There's no more `left`?
+- They're the far `left`.
+- This is the `left` one.
+- We `left` two days ago.
+- What, it `left` a note?
+- Who's `left` out there?
+- Why haven't you `left`?
+- You `left` me for dead.
+- You play--`left` field.
+- You're drifting `left`.
+- Then you `left` him?
+- Because you `left`, man.
+- Clarke `left` us, monty.
+- Hauser `left` me a note.
+- He `left` that very day.
+- He's got nothing `left`.
+- How much time is `left`?
+- How much you got `left`?
+- I got a few days `left`!
+- I `left` it on the curb?
+- I'm the only one `left`.
+- I shouldn't have `left`.
+- It's `left` to us, guys.
+- It's on the `left`, dad.
+- I've got nothing `left`!
+- I was afraid you `left`.
+- Lester's `left` felicia.
+- No, he `left` last week.
+- Not many skaikru `left`.
+- Now turn to your `left`.
+- Only three rooms `left`!
+- Or what's `left` of him.
+- That's why i `left` him.
+- The one's `left` behind?
+- The one that `left` you?
+- They `left` an hour ago.
+- They `left` me stranded.
+- We never `left` the air.
+- What are we `left` with?
+- What do you have `left`?
+- What if he never `left`?
+- You `left` it in my bed.
+- You `left` me a message?
+- Your wife `left` you.
+- A part she `left` behind.
+- He's `left` the hospital.
+- His `left` jacket pocket.
+- How many aces are `left`?
+- How many `left` goddamit?
+- I have no friends `left`.
+- I `left` mine in the car.
+- I `left` nothing for you!
+                 

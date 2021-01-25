@@ -1,0 +1,59 @@
+---
+title: "Barnes in a sentence | Barnes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Barnes"
+---
+- `Barnes`, you're dead!
+- There's ruth `barnes`.
+- Signed, `barnes`, usn."
+- Yes or no, mr. `barnes`?
+- `Barnes` comes from hell.
+- What can we do, `barnes`?
+- What's going on `barnes`!
+- Is that all, mr. `barnes`?
+- Hello second mate `barnes`.
+- `Barnes` ain't meant to die.
+- The man's gone black, `barnes`.
+- This is clive fenelon-`barnes`.
+- Kettleman, `barnes` and mcgrath.
+- He�s putting on a show, `barnes`.
+- `Barnes` took a bullet right there.
+- `Barnes` believes in what he's doing.
+- `Barnes` got it in for you, don't he?
+- One of `barnes`' duds, luckily for us.
+- That's very pragmatic of you, `barnes`.
+- `Barnes`, where the hell have you been?!
+- I watched your simulation, mr. `barnes`.
+- March you're on chain gang with `barnes`.
+- Only thing can get `barnes`... is `barnes`!
+- ...well, i'm not sure where i -- `barnes`!
+- `Barnes` wouldn't kill two innocent guards.
+- `Barnes`, can you hear me, are you all right?
+- Good morning, sir, i'm chief officer `barnes`.
+- Have you said anything to `barnes` about this?
+- Any way you cut it rhah, `barnes` is a murderer.
+- Goddamn it `barnes` this really steams my onions!
+- Captain `barnes` wants to see you right away, sir.
+- You're not helping my heart condition any, `barnes`!
+- Good afternoon to ya, this is norville `barnes` -- yeah?
+- ...you keep pouring out that suppressing fire, `barnes`.
+- What was `barnes` doing before they cut that cable loose?
+- After you lied to me about telling `barnes` about my past.
+- Which i told `barnes` was attacking -- i don't know, beth.
+- Parker `barnes`, i'd like you to meet crime czar elizabeth deane.
+- I will stake my reputation that `barnes` didn't kill those guards.
+- `Barnes` been shot 7 times and he ain't dead, that tell you something?
+- But there is nobody better qualified to go after sid 6.7 than `barnes`.
+- Don't get worked up -- so who was `barnes` talking to at the last minute?
+- That's also where mr. `barnes` lost his arms to mathew grimes' booby� trap.
+- They don't know shit `barnes`, and chances are we gonna run into something.
+- Well, i just don't know how to thank you, mr. `barnes` -- -- a muncie girl!
+- `Barnes` used to work for him when he was still a cop in the field, remember?
+- I suggest you watch your own asses cause `barnes` gonna be down on all of 'em.
+- `Barnes`, listen to me... there's 5-6 spiderholes back there next to the church.
+- I know they're gonna buy that stock -- ol' satchel-butt... on norville `barnes`!
+- Remember when we first spoke to jerry, `barnes` kept asking for jerry's real name?
+- Four years he been in the field... `barnes` gets killed, his jaws'd go on clacking...
+- Letting a lunatic like parker `barnes` loose in the free world is like lighting a fuse.
+                 

@@ -1,0 +1,107 @@
+---
+title: "center in a sentence | center example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "center"
+---
+- The betty ford `center`?
+- Anything from the `center`.
+- I'll go visit the `center`.
+- You're not at the `center`.
+- I prefer "bowling `center`".
+- At the frankenstein `center`.
+- The `center` counter defense.
+- We're in the `center` ring.
+- It's the `center` of my life...
+- Apartment 1e, rockville `center`.
+- Eating their way to the `center`?
+- I can get you front and `center`.
+- The `center` for disease control.
+- I'm taking over the `center` seat.
+- Sight on the `center` of the mass.
+- To the cucamonga shopping `center`.
+- Johnny, get to the command `center`.
+- You have lasers at a rehab `center`?
+- A real medical `center` for abby.
+- I saw inside of the science `center`.
+- To the redistribution `center` and...
+- You must move away from the `center`.
+- I sell them at the recycling `center`.
+- Well, how about the shopping `center`?
+- At that screen addiction rehab `center`.
+- In the command `center` or in the field.
+- You're not the `center` of the universe.
+- You sure are in the `center` of a storm.
+- I need 5 minutes in the command `center`.
+- Is like a tootsie pop without a `center`.
+- Lisa was the moral `center` of this town.
+- No, this is the `center` of the universe.
+- Your suite's control `center` is rebooting.
+- At the very `center` of celestial existence.
+- Upon the `center`, wheel to the left- about!
+- And picture queen nia's face at the `center`.
+- That's it for news `center` this morning.
+- If this is an addiction `center`, i'm hooked.
+- I know i'm not at the `center` of the bridge.
+- Who spilled bbs i think main `center`'s live.
+- I picked it up in the communications `center`.
+- They're watching us from the command `center`.
+- You try to `center` on the big issues, y'know.
+- Lee walks over to elliot in the `center` aisle.
+- Meet me at rockefeller `center` at six tonight.
+- "plum island animal disease research `center`."
+- But the `center` of the galaxy can't be reached.
+- This is the nerve `center` of operations, janet.
+- I asked, down at the japanese community `center`.
+- They've knocked out the damn automation `center`.
+- You used to hate being the `center` of attention.
+- Lapd data `center` reports a breach on the system.
+- Let me remind you, this is an evil rehab `center`.
+- Pinky's records and disc in the shopping `center`.
+- Thou must find thy peace at the `center`, richard.
+- Aw, oh... can you get us into the command `center`?
+- We should concentrate our strength in the `center`.
+- Combat operations `center`, major mandrake speaking.
+- Elijah price came to visit me at the `center` today.
+- Man, that is buried right in the `center`, isn't it?
+- Welcome to the remote on-site correctional `center`.
+- We'll be <u>the</u> art `center` of summer new york.
+- Intruder scans emanate from the exact cloud `center`.
+- You can't be the `center` of your own world, anymore.
+- They raised enough money to build a day care `center`.
+- I was mr. burns's date for the kennedy `center` honors.
+- Take the getty `center` exit -- make a right onto cisco.
+- That storm `center` hasn't dissipated or changed course.
+- The night before, debi rutlege was found in the `center`.
+- The one up front doubles as an emergency medical `center`.
+- I want him to be front and `center` and to watch everything.
+- Somebody, give it a swat... have we reached the epi-`center`?
+- That's at the manhattan health `center`... we get it at work.
+- I don't think i ever spent half a day in the beverly `center`.
+- I've heard you have a refugee `center` at the airport stadium?
+- We're out in the westgate shopping `center` in enid, oklahoma.
+- I'm gettin' pussy left, right, up, down, `center` and sideways.
+- "computer investigation and infrastructure assessment `center`."
+- Unless i'm dreaming, i think i see irregulars at their `center`.
+- A dominion of death, at the very `center` of celestial existence.
+- I� i musta counted wrong, boss, i� hey, terry, front and `center`.
+- Then we hit the `center` with our main force and cut them in half.
+- Want to go up to the world trade `center` and laugh at new jersey?
+- As soon as you've done that, shut down the communications `center`.
+- To do that, we have to abduct her from the `center` guard the door.
+- That's 'cause you don't like being the `center` of attention, do you?
+- Now, let's see -- do you know the `center` garden at the palais royal?
+- I had to go all the way to the `center` of the galaxy... just to find you.
+- Up on the upper deck is the cockpit and the mission communication `center`.
+- Figures that all the big dinosaurs would live in the `center` of the island.
+- Hmmm... sort of like a horse -- with a horn in the `center` of its forehead.
+- It doesn't seem possible, but - could it be an electrical storm `center` - ?
+- Leadership.... ... to camera `center` no matter whose shot you're blocking...
+- ♪ but we both had a ball ♪ maggie's pre-education `center` will have to close.
+- And at the `center`, there'll be a well, have i mentioned that i hate this idea?
+- I can drop her at the visitor's `center` before i make the boat with the others.
+- Most of the time in sex assaults the bite mark has a livid spot in the `center`.
+- Now take your electro-shock and you'll be back at the space `center` in no time.
+- She is the `center` of their lives, quite literally the mother of their society.
+- Hey, you think this place called alien ed's ufo welcoming `center` is still around?
+                 

@@ -1,0 +1,107 @@
+---
+title: "kept in a sentence | kept example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kept"
+---
+- He `kept` me straight.
+- I just `kept` driving.
+- That i `kept` instead.
+- He `kept` it there.
+- She `kept` it, you see.
+- Because i `kept` a copy.
+- He just `kept` shooting.
+- I could've `kept` going!
+- `Kept` calling me 'sir.'
+- `Kept` it in his wallet.
+- He `kept` his mouth shut.
+- I `kept` my anger inside.
+- I'm sure you `kept` warm.
+- Have i `kept` you waiting?
+- We `kept` it... of course.
+- Who `kept` the other half?
+- I should have `kept` going.
+- Which has `kept` him alive.
+- Your mind `kept` wandering.
+- But he `kept` it to himself.
+- He `kept` asking and asking.
+- I `kept` silent out of rage.
+- So she's `kept` locked away.
+- The beds are `kept` waiting.
+- We `kept` our rep. you dick.
+- It just `kept` repeating?
+- Because she `kept` you alive.
+- Hurricane `kept` you up, too?
+- I just `kept` talking to her.
+- The noise alone `kept` me up.
+- You `kept` us here... to die!
+- Best `kept` secret in alabama.
+- I am sorry to have `kept` you.
+- Has to be `kept` for four days.
+- He `kept` it out of the papers.
+- I just `kept` wiping that dish.
+- The only memento i ever `kept`.
+- You `kept` yelling and yelling.
+- And you `kept` your hands clean.
+- But i `kept` coming back, and...
+- Harry `kept` all my old clothes.
+- He insisted it be `kept` vacant.
+- I can't believe you `kept` them.
+- I `kept` you and rico out of it.
+- It's `kept` us alive, missed me!
+- `Kept` us warm for twelve years.
+- ...truck that `kept` elvis cool?
+- You `kept` the fucking necklace.
+- You `kept` us together, octavia.
+- You should have `kept` your own.
+- And make sure he `kept` his word.
+- `Kept` me thoroughly entertained.
+- Only one thought `kept` me going.
+- The place `kept` changing owners.
+- We `kept` ours in a crockery jar.
+- He `kept` saying he was protected.
+- He `kept` saying, over and over...
+- We `kept` many things underground.
+- I hope you `kept` up your training.
+- It's what will `kept` saying to me.
+- `Kept` talking about a second moon.
+- We `kept` firing - zat-tat-tat-tat!
+- We should have `kept` him upstairs.
+- With all the shit she `kept` doing!
+- Would have `kept` most people busy.
+- Do you see why it was `kept` secret?
+- I ran and ran, but he `kept` coming.
+- I shouldn't have `kept` him with me.
+- It `kept` going off for some reason.
+- She `kept` me from seeing my father.
+- The one he `kept` in his right hand.
+- I was `kept` pretty much in the dark.
+- Talking is to be `kept` to a minimum.
+- Why the `kept` you in solitary, here.
+- You should've `kept` your mouth shut.
+- He `kept` his baton in his right hand.
+- I `kept` them safe during the bombing.
+- He `kept` his promise for twenty years.
+- His body `kept` rejecting gene therapy.
+- That jerk `kept` trying to break us up.
+- The family `kept` it out of the papers.
+- They `kept` us safe from the grounders.
+- This door will always be `kept` locked.
+- But, luckily, raven `kept` titus's book.
+- He `kept` files, close on 250,000 files.
+- I `kept` these people off you, you know.
+- They `kept` him in juvy for a few years.
+- They `kept` this scrapbook of your life.
+- You `kept` searching me last night, sir.
+- You never `kept` any secrets from me?
+- He `kept` on me till i finally said okay.
+- I just `kept` reading them over and over.
+- `Kept` calling it "murder" when i did it.
+- Now we find you've only `kept` it secret.
+- Politics and art must be `kept` separate.
+- Somehow they knew he'd been `kept` alive.
+- The stupid radio `kept` going in and out.
+- They were quiet and `kept` to themselves.
+- This whole time, you've `kept` your head.
+- Why would the zero file be `kept` secret?
+                 

@@ -1,0 +1,74 @@
+---
+title: "female in a sentence | female example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "female"
+---
+- Am i a `female` fog bank?
+- I'm glad you're `female`.
+- Male or `female`, bitch?!!
+- Victim's a white `female`.
+- It's a single white `female`.
+- She was a black `female` cop.
+- The first `female` president?
+- A ewe is a `female` sheep, boy!
+- Never trust a `female`, delmar!
+- Then don't turn `female` on me.
+- But the `female`, she's the key.
+- Zira doesn't want your `female`.
+- How can you tell it's a `female`?
+- I'd been getting a `female` vibe.
+- She's not a `female` impersonator.
+- I had a `female` vagina last night.
+- I need some `female` vagina tonight.
+- `Female` aviator, it just so happens.
+- `Female` caucasian, thirty years old.
+- What do they know about `female` odor?
+- I can't pull up any data from the `female`.
+- They're created by a `female` gynecologist.
+- 'bout eighty percent `female` in greenpeace.
+- ♪ she's a `female` phenomenon ♪ you're sorry?
+- I decided to make a `female` figure after all!
+- Oh -- can't that `female` take no for an answer?
+- You need to tap into your `female` warrior side.
+- And my wife's in love with a `female` lumberjack.
+- A bossy `female` thinking machine is with another.
+- Don't you think it needs a good `female` part?
+- And montgomery burns fires his `female` employees.
+- `Female`... because the jew is essentially `female`.
+- J. edgar's greatest fear: a `female` with a badge.
+- Notice the big one, holding hands with the `female`?
+- That you have difficulty hearing the `female` voice.
+- Where's your pet gorilla and the `female` uncle tom?
+- I see you brought along the `female` of your species.
+- There's, like, one `female` that runs the whole show.
+- The killer could easily be `female` -- basic instinct.
+- Trip, a `female` gynecologist does not a lesbian make.
+- Do you want some juice or coffee or two `female` slaves?
+- Prepare a tear harness for the `female`... stop, please!
+- Spread their terrifying message of `female` empowerment.
+- Come out here for refreshment or `female` company perhaps?
+- As male or `female`, but it is cool that they're girls now.
+- How many `female` scientists have you told they're your hero?
+- Besides, i never knew that any `female` could do this to you .
+- The bridesmaids are my only two `female` relatives under forty.
+- I think we should do something with strong `female` characters...
+- Male and `female` - the moth and the flame - i ought to slug you!
+- Boats are `female`, everyone knows you can't call a boat after a man.
+- By presenting the all-new, all-`female` and we're gonna find her son.
+- Yeah, we're trying to solve the great mystery of the `female` species.
+- But you'll have to take your new friend, the `female` crash-test dummy.
+- I think there's a show it's an all-`female` reboot of itchy & scratchy!
+- The superstar `female` athlete whose mother is nothing but a housewife.
+- That's that's terrific to hear from someone so... feminine, so `female`.
+- All i'm saying is, if they ever make a `female` mr. magoo, a little help!
+- But because i'm a `female`, i get told to calm down and act like a "lady".
+- A `female` hostage, red dress, on the floor in front of the cereal display.
+- Or are you going to ask this `female` to kiss me again and poison me to death?
+- I love being `female` because it, how do you say, allows me to be close to men.
+- I'll tell you what: i should go in there, volunteer to fill up his `female` quota.
+- It's wasted time trying to logically figure out the `female` brain, that's for sure.
+- Now go away, talia and i ] need to huddle... ] yeah, an insane `female` gynecologist!
+- Remote witnesses are hooked in... red ball -- double homicide: one male, one `female`.
+- "the `female`-cycle werewolf will only kill men and never kills someone she truly loves."
+                 

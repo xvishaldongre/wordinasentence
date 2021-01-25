@@ -1,0 +1,65 @@
+---
+title: "series in a sentence | series example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "series"
+---
+- A modified `series` 4800.
+- The bulk of the `series`.
+- Better yet, a tv `series`!
+- It's our road kill `series`.
+- You mean the world `series`?
+- Max, i've got a hit `series`.
+- A `series` of simple gestures.
+- Game six of the world `series`.
+- The 600 `series` had rubber skin.
+- The red sox win a world `series`.
+- Weren't you on a television `series`?
+- That's game six of the world `series`!
+- First showed up in a `series` of i.r.a.
+- Number three, game six, world `series`.
+- This is like the world `series` to you.
+- I was a regular on a couple of `series`.
+- So queens, you psyched for the `series`?
+- We've fused into a major `series`, ross.
+- Worse than the cubs in the '32 `series`.
+- The world `series` is seven games not six.
+- They had a very popular `series` together.
+- This could be worse than the old `series`.
+- That's life-a `series` of down endings.
+- Uh--*i'll* tell ya--world's `series`--a pass!
+- Hey, how 'bout the first game of the `series`?
+- I'm getting my first `series` of hormone shots!
+- In the old `series` we didn't have a convertible.
+- It's still easier to handle than a 1200 `series`.
+- He identified you through a `series` of mug shots.
+- There's a whole `series` -- "i am joe's prostate."
+- Just when you've got tickets to the world `series`.
+- I wanted to find out who was gonna win the `series`.
+- The last symbol in the `series` is called an octonion.
+- For an extended `series` of firefights, not even close.
+- I was just thinking that war is a `series` of goodbyes.
+- You'll write a new `series` -- 'metropolis after hours.'
+- A `series` of bizarre shifts in local weather patterns ...
+- Life, after all, is really just a `series` of challenges...
+- We were the only ones who loved this old `series` hands up.
+- Did you subsequently write a `series` of articles about him?
+- To find your clothes, just solve this `series` of clues: huh?
+- So they tell the kid to throw the world `series`, or else, huh?
+- Well, i'm-i'm gonna take another in a `series` of cold showers.
+- This is a perfect subject for your `series` on young metropolis.
+- He disappeared into that underworld `series` and never came back.
+- So all in all it's going to be an exciting new `series` for us...
+- We got the mgm `series`, astaire and rogers, the judy garlands...
+- Man that's a trippy name, kinda like the warhol mayhem `series`...
+- The world `series` is goin' on right' now an' that's therapy also!
+- It's not a `series` of little boxes that you can line up and count.
+- I can run the image through a `series` of filters, try to clean it up.
+- The red sox blow a chance to win their first world `series` since 1918.
+- There were a `series` of lectures about parapsychology at my university.
+- Every wire transfer gets rocketed through a `series` of multiple switches.
+- Frederick's done this whole new `series` that i'm sure you would really love.
+- `Series` of explosions sever the ring this girl... why so serious, princess?
+- We've heard rumors that you're going to unveil more than just a new `series` tonight.
+- But get this -- beginning in 1984, there was _another_ `series` of murders in springwood.
+                 

@@ -1,0 +1,107 @@
+---
+title: "energy in a sentence | energy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "energy"
+---
+- Department of `energy`?
+- Is a waste of `energy`.
+- It's tangible `energy`!
+- Hey, save your `energy`.
+- The `energy` in the air?
+- Absorbing quantum `energy`.
+- He had the `energy` source.
+- I haven't got the `energy`.
+- I've got a lot of `energy`.
+- There's an `energy` crisis.
+- The `energy` shield is down.
+- Trying to find the `energy`.
+- Unlimited `energy` out there.
+- We can extract that `energy`.
+- What's the biggest `energy`??
+- Just keep your `energy`, mate.
+- Same `energy`, little quicker.
+- Stabilize `energy` reserve!...
+- Keep all `energy` to the armor.
+- Quantum `energy` is the future.
+- Where do you find the `energy`.
+- I got `energy` up the ying-ying.
+- It's the `energy` of lovemaking.
+- The `energy` exits within you...
+- Then why does it say "`energy`"?
+- You're gonna need your `energy`.
+- It's some kind of `energy` field.
+- We need `energy` for our travels.
+- Same `energy` signature as new york?
+- Their weapons require `energy`, too.
+- `Energy` shielding positive function.
+- Of `energy`, knowledge and sparkling.
+- You just have to believe in `energy`.
+- You are the king of negative `energy`.
+- You mean i generate an `energy` field?
+- I mean, i have to conserve my `energy`.
+- The sign says "department of `energy`."
+- What about "essential `energy`" the soul.
+- I am shot from a cannon into the `energy`.
+- Sporadic `energy` readings port side, aft.
+- An apple and banana for extra `energy`.
+- I can't be surrounded by negative `energy`.
+- Takes away its `energy`, and it disappears.
+- You still got plenty `energy` for me, baby.
+- At that age you still got a lot of `energy`.
+- `Energy` of a type entirely un- known to me.
+- There was an enormous neutron `energy` surge.
+- I don't even have the `energy` to try anymore.
+- When they say "`energy`" what do they mean?
+- How can you store an `energy` field within you?
+- I mean the re-channeling of my sexual `energy`.
+- No sound or `energy` sources have been detected.
+- Enough `energy` to hide a ship, wouldn't you say?
+- Praxis is their key `energy` production facility.
+- So if you had a bit more `energy` we'd stay split.
+- The ocean tides are changed into `energy` somehow.
+- Honest to god, i don't know if i have the `energy`.
+- You think there's a good `energy` and a bab `energy`?
+- The more `energy` she uses, the more tired she gets.
+- With the right `energy`, we can stabilize the storm.
+- And then we can send an `energy` pulse into my brain.
+- Let's not put our `energy` into something ridiculous.
+- To simulate the effects of high-demand `energy` draws.
+- They're using this `energy`... at least you could live.
+- I haven't got the `energy` to get out of town that fast.
+- Years, she's been down there absorbing quantum `energy`.
+- `Energy` readings show they have not used the tunnel yet.
+- He calls it the key, and this key emits a great `energy`.
+- I determine my destiny, not some mystical `energy` field.
+- Saavik, you know anything about a neutron `energy` surge?
+- Increased metabolism, high `energy`, improved muscle tone.
+- It would take a lot of `energy` to build a gate like this.
+- Will you-- no, don't... look, can't you feel the `energy`?
+- Have you checked your platinum euridium `energy` shielding?
+- The straw represents the key, which emits a great `energy`.
+- Virginia, i'm flattered you think i got that much `energy`.
+- Fish are very low in fat, which is `energy` inefficient.
+- An unknown form of `energy` of great intelligence and power.
+- But i could teach you the secret of clean, natural `energy`.
+- Just make sure to turn off the power to save `energy` there.
+- We're caught in some kind of `energy` wake from the vortex...
+- We're within visual range of the `energy` distortion, captain.
+- You're talking twice the impact `energy` of .44 magnum hot loads.
+- Some uninterrupted rem sleep to release all this negative `energy`.
+- It's using forms of `energy` our best scientists do not understand...
+- However, none of them appear to have a connection to the `energy` ribbon.
+- With the `energy` from the net, we can program this world anyway we want.
+- It's very important, that the body release the `energy` that builds in it.
+- You have to feel what the wave is doing, accept its `energy`, get in sync.
+- Imprints of their `energy`, my fan club, as you call them, they want power.
+- It just fascinates me that you can spend so much `energy` on someone so dull.
+- The developing organism is using his life `energy`, digesting bone and tissue.
+- There's no way we could generate enough positive `energy` to crack that shell.
+- They each had a 5-hour `energy` drink and a jar of nutella i blow the reactor.
+- With an occasional burger or slice of thrown in for our vitamins and `energy`.
+- <u>we</u> harness `energy` on a small scale by cutting magnetic lines of force.
+- That ribbon isn't just some random `energy` phenomenon travelling through space.
+- We'll see all of our oil reserves depleted, in fact, all of our `energy` sources.
+- Incredibly efficient `energy`... ♪ feel, feel ♪ - _ - _ and wastelanders attacked.
+- She's just a bundle of `energy`, a real treasure... then i guess her case is closed.
+                 

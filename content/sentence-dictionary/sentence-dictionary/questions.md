@@ -1,0 +1,107 @@
+---
+title: "questions in a sentence | questions example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "questions"
+---
+- Ask a few `questions`.
+- Don't ask `questions`.
+- I have no `questions`.
+- `Questions` about sex.
+- Just a few `questions`?
+- Just three `questions`.
+- No further `questions`.
+- You ask me `questions`.
+- I have some `questions`.
+- No `questions` asked.
+- Answer a few `questions`?
+- Don't ask me `questions`.
+- We have some `questions`.
+- We said "no `questions`."
+- What sort of `questions`?
+- You had some `questions`.
+- Are there any `questions`?
+- Don't ask any `questions`.
+- What kinds of `questions`?
+- Asked a lot of `questions`.
+- Got any easier `questions`?
+- I'm asking you `questions`.
+- Then answer my `questions`.
+- Answering a few `questions`?
+- I'm only asking `questions`.
+- `Questions` make me nervous.
+- Could i ask some `questions`?
+- Don't ask stupid `questions`.
+- He just asked me `questions`.
+- You ask a lot of `questions`.
+- You ask too many `questions`.
+- You'll answer my `questions`?
+- You don't ask `questions`?
+- Any `questions`, ask them now.
+- I don't write the `questions`.
+- I have no further `questions`.
+- I'll ask the `questions`, son.
+- It's the `questions` she asks.
+- Sorry, no further `questions`.
+- You just ask them `questions`?
+- You asked dumb `questions`.
+- You ask `questions`, right?
+- Can't ask a corpse `questions`.
+- I'll be asking the `questions`.
+- I've got a million `questions`.
+- So many unanswered `questions`.
+- Can i ask you a few `questions`?
+- Oh, serious `questions` tonight.
+- There are no stupid `questions`.
+- We learn not to ask `questions`.
+- Anyone else have any `questions`?
+- How many `questions` did it take?
+- I got a few nite owl `questions`.
+- I need some `questions` answered.
+- Stop asking rational `questions`.
+- They're bound to ask `questions`.
+- What is this, twenty `questions`?
+- All right, just a few `questions`.
+- God, you ask a lot of `questions`.
+- He's asking everybody `questions`.
+- I forgot we said "no `questions`."
+- I'll ask the `questions`, helmuth.
+- No `questions` about the watchmen.
+- You ask all the right `questions`.
+- You must have tons of `questions`.
+- You sure ask a lot of `questions`.
+- Got a couple `questions` to ask ya.
+- Got to ask a few `questions` first.
+- I have no more `questions` for you.
+- I just have some basic `questions`.
+- I just want to ask you `questions`.
+- It's my job to ask the `questions`.
+- I will answer all your `questions`.
+- What kind of `questions` are these?
+- Where do you get these `questions`?
+- Why do you ask so many `questions`?
+- Are all your `questions` about food?
+- But you asked the wrong `questions`.
+- Don�t stop asking `questions`, okay?
+- Find somebody, ask some `questions`!
+- I just want to ask some `questions`.
+- I want to ask you a few `questions`.
+- This answers one of our `questions`.
+- Those girls were asking `questions`.
+- You equipped for random `questions`?
+- You just want to ask me `questions`?
+- Ask me the `questions`, bridgekeeper.
+- Doll, don't ask childish `questions`.
+- I will be asked a lot of `questions`.
+- Jim, these are not robot `questions`.
+- Then i have concluded my `questions`.
+- Theories to answer these `questions`.
+- What kinds `questions` did cabot ask?
+- I never ask `questions`, you know.
+- Did they ask you a lot of `questions`?
+- Do you always ask so many `questions`?
+- I'd like to ask you a few `questions`.
+- I guess that answers your `questions`.
+- I'm going to ask you some `questions`.
+- I'm here to ask you a few `questions`.
+                 

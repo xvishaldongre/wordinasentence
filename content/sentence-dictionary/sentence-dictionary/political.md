@@ -1,0 +1,65 @@
+---
+title: "political in a sentence | political example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "political"
+---
+- It's getting `political`.
+- You're `political`, then?
+- *your* `political` future!
+- You're `political`, too!
+- Not just my `political` life.
+- This isn't `political`, dick.
+- Pe -- "`political` education."
+- It's some `political` bullshit.
+- More cultural than `political`.
+- Yeah, a good `political` solution.
+- You know me, i'm non- `political`.
+- Put that on your `political` resume.
+- Some `political` dinner or something.
+- All for a couple's `political` points.
+- I don't follow `political` issues much.
+- `Political` education's really his bag.
+- We have this `political` thing tonight.
+- No `political` risk, and big publicity.'
+- Something on your `political` philosophy.
+- Bud, get wise to the `political` realities.
+- `Political` influence and legal protection.
+- Everything's `political`, for christ's sake!
+- Fact number two: you're a `political` junkie.
+- A `political` section man from the us embassy.
+- They can buy more police and `political` power.
+- Thirty years of `political` and social upheaval.
+- Life's work, criticisms, `political` aspirations.
+- The social and `political` problems that brazil has.
+- It's the `political` 'cost of doing business', george.
+- Dirty tricks -- `political` assassinations -- now wait.
+- We lose our `political` contacts and half our strength.
+- I suspect your `political` power as much as i respect it.
+- `Political` assassinations, torture, titus, what is this?
+- Darling, there are so many complaining `political` speeches.
+- Seems there's been some kind of internal `political` shakeup.
+- Even the old man's `political` protection would run for cover.
+- Then what's a big `political` boss like hammett doing in town?
+- Anyway, i'm not `political`, i'm in the entertainment business.
+- Then we've got to figure out an acceptable `political` solution.
+- There are certain people who wanted to use you for `political` ends.
+- Resist its temptations, its rewards, especially its `political` system.
+- It's a `political` sacrifice, that neither would be coming back with me.
+- I'm your `political` advisor, and i'm giving you `political` analysis here.
+- Oh, but with the army behind you, you could become extremely `political`.
+- Soon we may be needing all of out prison space for `political` offenders.
+- Clearly, such interest on their part is of great `political` significance.
+- If there has been a coup and there is no acceptable `political` solution?
+- If he withdraws his army in good order, it will be a serious `political` defeat.
+- Because i think hezbollah is trying to broaden into a `political` party right now.
+- There's girls on the rubber rose who are `political`, but i don't share their views.
+- The first truly global, a-`political` event in history and you can't wait to spin it.
+- I *won't* let you stand there callously and perhaps wreck my whole `political` future!
+- Yes, but we're talking about a dead warehouse employee of no `political` significance.
+- My `political` mentor wouldn't, but i wish she didn't have to kill all those trees.
+- I deal in publishing, entertainment, `political` advocacy, and-- white russian, thanks.
+- To the czech mind, any movement, whether `political` or literary should be underground.
+- I told dennis if he gave me another topic that was `political`, i'd spew burrito chunks.
+- If gandhi had a chef like paul, it would change the whole `political` situation in india.
+                 

@@ -1,0 +1,7 @@
+---
+title: "bulks in a sentence | bulks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bulks"
+---
+## Unfortunately, we have no example sentences for bulks                 

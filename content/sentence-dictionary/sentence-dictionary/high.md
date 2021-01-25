@@ -1,0 +1,107 @@
+---
+title: "high in a sentence | high example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "high"
+---
+- A supernatural `high`.
+- Back to `high` school.
+- Five, six feet `high`.
+- `High`-grade det cord.
+- Do you ever get `high`?
+- Do you get `high`, sam?
+- I got a natural `high`.
+- It still sounds `high`.
+- Near the `high` school.
+- Oxygen gets you `high`.
+- Remember `high` school?
+- She's in `high` school.
+- Ugh, such `high` hopes.
+- Uni `high` tigers, sir.
+- You were really `high`.
+- Aren't we `high` enough?
+- Are you the `high` lama?
+- From `high` school mary?
+- Getting `high`, i guess.
+- She had on `high` heels?
+- That's his `high`, baby.
+- Youthful `high` spirits.
+- Go `high` in the ceiling.
+- `High` time you got back.
+- That price is sky-`high`!
+- That's a `high`-end item.
+- The `high` beams were on.
+- The pitch, `high` heater.
+- The terms are too `high`.
+- The winds are too `high`.
+- Your mom's got up `high`.
+- I'm just in `high` school.
+- Sounds `high`, doesn't it?
+- That's too `high` a price.
+- That's twenty feet `high`.
+- Very `high` an' very fast.
+- Was too `high` to operate.
+- I mean `high` up in it.
+- He's `high` on my hit list.
+- `High` school... remember ?
+- I'm in `high` school, dude.
+- I'm teaching `high` school.
+- Just like in `high` school.
+- Man, this is `high` stakes.
+- My heart rate's sky `high`.
+- Ten thousand sounds `high`.
+- You just think `high` tech.
+- A real `high`-class con man.
+- Fountainhead of `high`-tech.
+- I'll bet you're on a `high`.
+- It's about 4000 feet `high`.
+- ♪ o god on `high` ♪ a.l.i.e.
+- Take us into a `high` orbit.
+- Your heart's already `high`.
+- Bring it left, you're `high`.
+- `High` school, we're talkin'.
+- How `high` are you right now?
+- I think he's `high` on drugs.
+- I went back to `high` school.
+- So where's the `high` school?
+- This fence is `high`-tensile.
+- Those flowers are too `high`.
+- We're very `high` on purpose.
+- Where's dawson `high` school?
+- You went to my `high`-school?
+- Bogey at three o'clock `high`!
+- `High` school physics, luthor.
+- `High`-tech in the wilderness.
+- I did not go to `high` school.
+- I'm home, i'm `high` -- a bit.
+- I studied it in `high` school.
+- I think it's on `high` ground.
+- It's `high` time you tried it.
+- Well, he was about yea `high`.
+- We'll take this `high` ground.
+- We were back in `high` school.
+- Woogie from borrington `high`?
+- A little bit of wind up `high`.
+- Got `high` blood pressure, too.
+- `High` school and college, yes.
+- I'm the `high` king of sanctum.
+- It was unleaded, `high` octane.
+- The building's 600 feet `high`.
+- Went to `high` school with him.
+- We gotta hit the `high`-way!
+- Benjamin franklin `high` school.
+- Come out with your hands `high`.
+- Don't get your hopes too `high`?
+- He has a very `high` connection.
+- `High`-rollers won't go near it.
+- Is this `high` tide or low tide?
+- Riding pretty `high`, ain't you?
+- Where'd you go to `high` school?
+- And take the `high` road with me.
+- Boy, we must be really `high` up.
+- `High`-pressure nervous syndrome.
+- Our fees are ridiculously `high`.
+- The "`high`" lasts several hours.
+- These girls are `high` schoolers?
+- We're ridin' in `high` style now!
+                 

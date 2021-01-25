@@ -1,0 +1,60 @@
+---
+title: "prick in a sentence | prick example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prick"
+---
+- He's a little `prick`!
+- How about that `prick`!
+- Some peeping-tom `prick`.
+- Hey, you fat irish `prick`.
+- They earn with the `prick`.
+- I even touched your `prick`.
+- You fucked up little `prick`!
+- The little `prick` ditched you!
+- I hope this `prick` doesn't run.
+- Look at you, you skinny `prick`.
+- It's because rhodes is a `prick`.
+- She married some english `prick`.
+- Want to get back at this `prick`?
+- 'if you `prick` us, do we not bleed?
+- Dandridge is a condescending `prick`.
+- Yeah, against that `prick` vandemark.
+- Practice enough this week, you `prick`?
+- And, i didn't bring that "`prick`" josh.
+- Oh, this `prick`'s got a sense of humor.
+- What are you... that's it, `prick` lips.
+- You've actually fallen for this `prick`.
+- Mike damone is a no-brain little `prick`.
+- Listen to me, you thankless little `prick`.
+- The sanctimonious `prick` who busted me out.
+- He's a fucking self-righteous, little `prick`.
+- Might find someone's `prick` in a hot-dog roll.
+- That `prick`'s been dodging me for three weeks.
+- That should shore up that `prick` hank drexler.
+- But i got this scagnetti `prick` deep up my ass.
+- It's like the `prick` saved it all up for tommy.
+- Sure as long as you don't bring that `prick` josh.
+- I don't mean to be a `prick`, but that's how i feel.
+- I told the little `prick` your conduct was flawless.
+- God damn it, you fucking virgin `prick`--step outside.
+- He couldn't find his `prick` if he didn't wear y-fronts.
+- He was a `prick` when i was six, and he's a `prick` today.
+- That sneaky `prick` was probably practicing his jai alai.
+- I'm going to miss you -- you're a `prick` in a great way...
+- It's just a `prick` of the finger and a few drops of blood.
+- Some `prick` from stanford that your parents will approve of.
+- Goddamnit, we're just doin' the heavy lifting for this `prick`!
+- I�m sorry i was such a saint before and i�m such a `prick` now.
+- When are you going to catch the `prick` that's doing this, don?
+- But a good fella like you gets stuck with a ball-bustin' `prick`.
+- He's an incredible `prick` but i never learned so much in my life.
+- If he had been under your `prick` you'd have spotted him for sure.
+- You beat on this `prick` enough, he'll tell ya he started the chicago fire.
+- All the fuckin' money i've given that `prick`, he don't even look over here.
+- What i wouldn't give to know what heavy feels like, you insensitive `prick`.
+- You know you're a lyin', low-life, motherfuckin' gambling degenerate `prick`?
+- But d'ya think they'll kick ransom for that little `prick`, assuming we get to'm.
+- Your dad and me ran the whole east coast syndicate you snot-nosed little `prick`.
+- I'm afraid, you'll have to `prick` your finger -- but what's a little pain to a lucky man?
+                 

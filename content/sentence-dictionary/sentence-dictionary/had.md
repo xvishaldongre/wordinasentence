@@ -1,0 +1,107 @@
+---
+title: "had in a sentence | had example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "had"
+---
+- But i `had` to end it.
+- Everybody `had` tents.
+- `Had` a beautiful tan.
+- `Had` a close one, eh?
+- `Had` a dead man once.
+- `Had` me worried, boy.
+- ... `had` regenerated.
+- `Had` some good years.
+- `Had` your name on it.
+- He `had` a girlfriend?
+- He `had` cancer, john.
+- He `had` no reason to.
+- He `had` the only gun.
+- He should've `had` me.
+- I can't -- i `had` to!
+- If we `had` the parts.
+- I `had` a little girl.
+- I `had` a little help.
+- I `had` a lot of that.
+- I `had` a mother once!
+- I `had` him follow us.
+- I `had` immense plans.
+- I `had` my mouth full.
+- I `had` no idea... no.
+- I `had` to be the ham!
+- I `had` to give it up.
+- I `had` to go to work!
+- I have what you `had`.
+- ...it `had` no choice.
+- It `had` to be a trap.
+- It was all they `had`.
+- I've `had` my moments.
+- I've `had` to do this.
+- I wish i `had` a suit.
+- Just `had` a bad fall.
+- Just `had` to be sure.
+- My wife `had` left me.
+- One `had` better legs.
+- She `had` a moustache.
+- She `had` to go - yes!
+- She `had` white shoes.
+- So you have `had` sex.
+- The guy `had` no legs.
+- They `had` a daughter.
+- They `had` no stomach.
+- This man `had` a life.
+- Tonight we `had` meat.
+- We `had` a connection.
+- We `had` an agreement.
+- We `had` a tough year.
+- We `had` our troubles.
+- We just `had` lasagna.
+- What a day i've `had`.
+- What a day i've `had`!
+- Yeah, i've `had` that.
+- You `had` a good spot.
+- You `had` me at hello.
+- You `had` to be quaid.
+- You `had` to tell him.
+- I `had` such hopes.
+- Billy `had` alibis too.
+- But i `had` a landmark.
+- But i `had` her pinned.
+- But i `had` to see you.
+- But we `had` heat baby.
+- `Had` a hooker sent up.
+- `Had` to be dumb panic.
+- `Had` to dash in there.
+- He `had` a knife in me.
+- He `had` a little help.
+- He `had` a motive, too.
+- He `had` a videocamera?
+- He `had` genius in him.
+- He `had` his own style.
+- He `had` to be certain.
+- He's `had` to struggle!
+- He's `had` two strokes.
+- I already `had` braces.
+- I forgot i `had` it on.
+- If they `had` a choice.
+- If they `had` a permit.
+- I `had` a car accident.
+- I `had` a good teacher.
+- I `had` an awful dream.
+- I `had` a roll of film.
+- I `had` bypass surgery.
+- I `had` thought that...
+- I `had` to quit, midge.
+- I `had` to say goodbye.
+- I `had` to talk to you.
+- I have `had` enough!!!!
+- I have `had` the honor.
+- I-i-i `had` a baseball.
+- I know we `had` a plan.
+- I never `had` a choice.
+- I should say you `had`.
+- I think i've `had` one.
+- It's a thought i `had`.
+- I've `had` a tough day.
+- I've `had` it with men.
+                 

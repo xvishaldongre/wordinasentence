@@ -1,0 +1,84 @@
+---
+title: "higher in a sentence | higher example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "higher"
+---
+- Can't you go `higher`?
+- Try a little `higher`.
+- I want to get `higher`!
+- Just a little `higher`!
+- "seek `higher` things."
+- Back to `higher` ground.
+- We need a `higher` rate.
+- Just aim a little `higher`.
+- Mine is a `higher` mission.
+- There's a `higher` standard.
+- Whose ratings were `higher`?
+- I answer to a `higher` power.
+- Mike, we need a `higher` rate.
+- You're `higher` up the ladder?
+- The break up value is `higher`.
+- They're paying a `higher` rent.
+- [coughs] "seek `higher` things."
+- ♪ `higher` and `higher` ♪ help me.
+- Jason: `higher`, `higher`, `higher`.
+- Little bit of wind, up `higher`.
+- Mekum much better, much `higher`.
+- I'd have to roll a 13 or `higher`!
+- Anything rated `higher` than a p.c.
+- The ratings are `higher` than ever.
+- And call yourselves `higher` beings.
+- Coughing's good -- gets ya `higher`.
+- Hang on, get it up, go on, `higher`.
+- Price of zinc's never been `higher`.
+- She's `higher` than a kite right now!
+- Get a `higher` arc on the ball, jamie.
+- We're dedicated to a `higher` purpose.
+- Baby -- i'm going to take you `higher`.
+- We're heading a little `higher` up now.
+- You're just on a `higher` plane, wilson.
+- It gets clearer, the `higher` you hold it.
+- "bringing every state to a `higher` state."
+- I'm ascending to a `higher` level of being.
+- Personally, i think he should aim `higher`.
+- See, we exist on a `higher` plane, you and i.
+- "there is a justice `higher` than that of man.
+- Listen, we got a `higher` purpose here, alright?
+- Yeah hey -- it's all for the `higher` good right?
+- You have been given a `higher` form of happiness.
+- The laws of god are `higher` than the laws of man.
+- Looks like this thing goes `higher` than we thought.
+- ♪ liftin' me `higher`... ♪ why is he wearing a collar?
+- A `higher` calling like getting girls and making money?
+- He's simply unable to submit to any `higher` authority.
+- First commander went into space to seek `higher` things.
+- If i was stopped by anyone `higher` once we were inside.
+- No one's ever try to fly `higher` than base camp before.
+- You know how much `higher` the play level is in the nba?
+- ♪ liftin' me `higher`... ♪ i was the only reasonable one.
+- We evolve to a `higher` level through our lowest behavior?
+- If your expenses run `higher` i hope you'll trust us for it.
+- The climax comes at a `higher` cost; you must sit on my lap.
+- Yeah, just a little `higher` now, i know how you feel, yeah.
+- You screwed up my life just so you could get `higher` ratings.
+- `Higher`, lower, faster, harder, small circles, do the alphabet.
+- The first culture, even from an old strain "seek `higher` things."
+- I'm not gonna argue who's got the `higher` authority here, all right?
+- Notation: obviously `higher` settings can be dangerous to the subject.
+- But i believe he will prove incapable of performing `higher` functions.
+- From the looks of davidson's cable, it might even go `higher` than that.
+- "there is a justice `higher` than that of man--i will be judged by him."
+- Bottom line: she tries to blackmail us, we drop her out a `higher` window.
+- Yeah, he thinks he's evolved to a `higher` plane of existence, or something.
+- Well, by saying that, you're acknowledging the existence of a `higher` power.
+- I assumed they'd start paying me at the `higher` grade on the next pay cheque.
+- Well, fine- -except there isn't a `higher` rated engineer and we both know that.
+- Because it caught my eye when it was in a `higher` price bracket in the listings.
+- "during heat episodes of 2000 kelvin or `higher`, trych breaks down and dissipates.
+- This definitely falls into that `higher` category of art i was speaking of earlier.
+- If they take it out, it doesn't matter are even `higher`, your ability to man: no!
+- Some shall live, some shall die, arbitrarily, sound like any `higher` power we know?
+- Now, come on -- you know i'm not ready for that kind of -- better try a little `higher`.
+- He offered me human blood -- said it would take me `higher` than i've ever been in my life.
+                 

@@ -1,0 +1,85 @@
+---
+title: "nerve in a sentence | nerve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nerve"
+---
+- You have your `nerve`!
+- You lost your `nerve`!
+- Unless she has `nerve`.
+- You got `nerve`, buddy.
+- You got a lotta `nerve`.
+- You gotta lotta `nerve`.
+- I bet i struck a `nerve`.
+- I wish i had the `nerve`.
+- `Nerve` gas the whole nest?
+- The `nerve` of those twits.
+- What a `nerve` on that guy!
+- Lotsa `nerve` and no brains.
+- You've got a lot of `nerve`.
+- Torn acl and pinched `nerve`.
+- Wow, i guess i hit a `nerve`.
+- Takes more `nerve` than i got.
+- Looks like...the optic `nerve`.
+- You people got a lotta `nerve`.
+- Crushed all the `nerve` endings.
+- I seem to have touched a `nerve`.
+- Along the optic `nerve` to the eye.
+- The `nerve` of that son of a bitch!
+- I myself do not possess the `nerve`.
+- But he's completely lost his `nerve`.
+- Chemco's been developing `nerve` gas?
+- Soon as i find the right `nerve` bundle.
+- I didn't have the `nerve` to face the kid.
+- You got a lot of `nerve` - anything today?
+- You have a lot of `nerve` showing up here.
+- Frank, don't you think she's got a `nerve`?
+- Imagine the `nerve` on this son of a bitch.
+- More `nerve` than the doctor, i must admit.
+- If we can go in past the oculomotor `nerve`...
+- Can you believe the `nerve` of this fucking guy?
+- This is the `nerve` center of operations, janet.
+- You got some `nerve` intruding on a man's grief.
+- All the `nerve` endings have repaired themselves.
+- What's yorgi got planned with that `nerve` agent?
+- You've got one hell of a `nerve` siding with him!
+- Radiation can damage the vestibulocochlear `nerve`.
+- You must realize that we've found the main `nerve`.
+- They've got a of `nerve` agent they're gonna unleash.
+- I know this takes a lot of `nerve`, but - who are you?
+- It has to surface to release the `nerve` agent, right?
+- Now -- -- shoot me, goddammit, before i lose my `nerve`!
+- You just leave the `nerve` bundles right where they are.
+- It took me all morning to get up the `nerve` to face you.
+- Pain by `nerve` induction... a human can resist any pain.
+- You had the `nerve` to drive up with that bimbo janet.
+- I just saw a little girl with optic `nerve` damage please.
+- I doubt it was drugs, more likely a problem with a `nerve`.
+- I wonder how he ever got up enough `nerve` to marry my mom.
+- We could follow the optic `nerve` to the corner of the eye.
+- Inertia ... stalin and the cold war... a failure of `nerve`.
+- It i can clear this central `nerve`, that <may> be enough...
+- Probably not, but i still don't have the `nerve` to tell him.
+- Silent night is the name of a top secret binary `nerve` agent.
+- I'd say you've gotten on his main and central `nerve`, mcmanus.
+- It's `nerve` wracking sometimes... women can get you very upset.
+- ... well, i just think she's got a lot of `nerve` showing up here.
+- I say we roll them in there and `nerve` gas the whole fucking nest.
+- So maybe the care and feeding of my `nerve`-endings is my business.
+- If only i had the `nerve` to break up, but it would really hurt him.
+- He had the `nerve` to accuse me i am not playing enough modern music.
+- I need to see if there's any `nerve` damage before we carry you back.
+- The only way to safely dispose of the `nerve` agent is in deep water!
+- He's got his `nerve`, gum-shoeing around here after what you told him.
+- That `nerve` shock can kill -- but it can also restore the damaged mind.
+- On account of you're cold as snow an' don't have no weak `nerve` nor fear.
+- Maybe he does love me -- only he doesn't have the `nerve` to tell his wife.
+- We didn't come all this way to lose our `nerve` at the first little glitch.
+- Since when do sprawl doctors know more about `nerve` rehab than the japanese?
+- The patient is revived from the coma by a violent overwhelming `nerve` shock.
+- You lousy bastard you have the `nerve` to give your whores my telephone number.
+- It don't take no `nerve` to do somep'n when there ain't nothin' else you can do.
+- Well, you've got a `nerve`, following me right into the hotel and up to my room!
+- If you go up the south face, you can catch him, no problem-- you mean the `nerve`.
+- His father still hasn't gotten up the `nerve` to ask him if they fucked him up the ass.
+                 

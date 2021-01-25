@@ -1,0 +1,54 @@
+---
+title: "Jeanne in a sentence | Jeanne example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jeanne"
+---
+- I -- i can't `jeanne`...
+- `Jeanne`... calm down...!
+- `Jeanne`, look behind you.
+- Come on `jeanne`, be honest.
+- You should go home, `jeanne`.
+- `Jeanne`, if you don't mind...
+- `Jeanne`'s been badly injured!
+- `Jeanne`, i beg of you... sign!
+- `Jeanne`... we're not enough...
+- And... what does `jeanne` think?
+- We still believe in you, `jeanne`.
+- There's no sin in charity, `jeanne`.
+- "what are you doing to me, `jeanne`?"
+- But i promised `jeanne` we'd fight on!
+- Here... to help pay `jeanne`'s ransom.
+- `Jeanne`, listen to me very carefully.
+- `Jeanne`, you are not helping yourself.
+- `Jeanne`, you can't leave us like this!
+- Let me clarify things for you, `jeanne`.
+- Playing... `jeanne`... what are you doing?
+- You mean god said, "i need you, `jeanne`?"
+- Yes... `jeanne`, calm down, do you hear me?
+- `Jeanne`, that really makes no sense at all.
+- Sorry `jeanne`... did you both meet already?
+- This is victory, `jeanne`, this is... glory!
+- No... you know what you just signed, `jeanne`?
+- Well no, but... `jeanne`, are you happy at home?
+- I don't understand, `jeanne`... why did you do it?
+- I want to be with him always... `jeanne`, be patient.
+- ... you look wonderful... ah, `jeanne`... come here...!
+- It's not possible... ... the smell of victory, `jeanne`!
+- Yes... tell us, `jeanne`... do you often hear this voice?
+- I realize your anger, `jeanne`, but we must learn to forgive.
+- `Jeanne`... the king has ordered us not to ride with you anymore.
+- I know, `jeanne`... it was the only way to save you from the fire!
+- `Jeanne` wanted to go to compiegne -- we let her -- she got caught.
+- Tell us, `jeanne`... why did you jump from the tower at beaurevoir?
+- Life is a gift, you should know that by now `jeanne` -- a gift from god.
+- `Jeanne`... the man hasn't been paid for six months -- that's his only reward.
+- `Jeanne`, this is -- in fact -- my loyal friend and finest archer, jean d'aulon.
+- So... here is the famous `jeanne`... savior of orleans... terror of the english?
+- `Jeanne` eagels another... paula wessely... hayes - there are others, three or four.
+- Nevertheless... `jeanne` has done so much for us... for the sake of france, charles.
+- `Jeanne`, put yourself in my shoes for a moment -- how would you feel, if you were me?
+- `Jeanne`... get up... this is ridiculous... take mine instead -- here -- smash mine first!
+- No, it's... it's nothing, it's... `jeanne`, you've been badly wounded... not so... easily.
+- All life is precious to god -- even his -- even yours and mine... `jeanne`... let him do it.
+                 

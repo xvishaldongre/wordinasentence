@@ -1,0 +1,107 @@
+---
+title: "told in a sentence | told example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "told"
+---
+- Brian `told` you that?
+- Do what you're `told`.
+- 'forgot' i `told` her?
+- I only `told` you one.
+- I `told` 'em about it.
+- I `told` him the tale.
+- I `told` them no mayo.
+- I `told` you, he will.
+- I `told` you no calls.
+- I `told` you, not now.
+- Kalinsky `told` me ...
+- Moss...who `told` him?
+- Nana parker `told` me!
+- Spooky `told` me so...
+- They `told` me, major.
+- `Told` you i'd switch.
+- `Told` you i was nice.
+- `Told` you to hide it.
+- Well, truth be `told`?
+- You haven't `told` me.
+- Your uncle `told` you!
+- You `told` em it's me?
+- You `told` me nothing.
+- And you `told` me that.
+- Charlie `told` me that.
+- Haven't you `told` him?
+- He said you `told` him.
+- He `told` me about you.
+- He `told` me that were.
+- I know, they `told` me.
+- I'm glad you `told` me.
+- I `told` him not to go.
+- I `told` you about 'em.
+- I `told` you about her.
+- I `told` you about him.
+- I `told` you all along.
+- I `told` you already...
+- I `told` you how it is.
+- I `told` you, i got it.
+- I `told` you -- i quit.
+- I `told` you it's real.
+- I `told` you, remember?
+- I `told` you the facts!
+- I `told` you the rules.
+- I `told` you the truth.
+- I `told` you who i was.
+- I've `told` you before.
+- I've `told` you enough.
+- I wish you'd `told` me.
+- Just like i `told` you.
+- Just what i `told` you.
+- She `told` me about it.
+- She `told` me the name.
+- `Told` you i'd blow it.
+- `Told` you i'd find it.
+- `Told` you i'd survive.
+- `Told` you she'd do it.
+- Who `told` you my name?
+- You haven't `told` him?
+- Your brother `told` me.
+- Your brother `told` us.
+- You `told` me i'm safe?
+- You `told` me no calls.
+- You `told` me that too.
+- You `told` them, hoffy.
+- You've just `told` one.
+- You never `told` me?
+- Ernie `told` this story.
+- Have you `told` someone?
+- He never `told` me that.
+- He `told` me about this.
+- He `told` me everything.
+- He `told` me last night.
+- He `told` me what to do.
+- His parent's `told` him.
+- I'd been `told` as much.
+- I have `told` the truth.
+- I just `told` you... no.
+- I - shep `told` me 8:30.
+- I `told` him to come up!
+- I `told` them i was you.
+- I `told` you everything.
+- I `told` you he's crazy.
+- I `told` you i'd get it.
+- I `told` you, my friend.
+- I `told` you that later.
+- I `told` you to go home.
+- I `told` you to leave.
+- I `told` you... we will.
+- I `told` you what to do.
+- It's what you `told` me.
+- Marge `told` you not to.
+- She `told` him about us.
+- She `told` me i have to.
+- She `told` me yesterday.
+- She `told` us about one.
+- That's all i was `told`.
+- They just `told` you no.
+- `Told` them to fuck off.
+- `Told` you it was eight.
+                 

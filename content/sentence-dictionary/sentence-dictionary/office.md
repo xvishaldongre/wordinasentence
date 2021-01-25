@@ -1,0 +1,107 @@
+---
+title: "office in a sentence | office example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "office"
+---
+- At the field `office`.
+- I robbed the `office`.
+- Milo's in my `office`.
+- See me in my `office`.
+- Step into my `office`.
+- This is your `office`?
+- You see your `office`?
+- As far as the `office`.
+- Get out of my `office`!
+- How's the new `office`?
+- I gave at the `office`.
+- I'll be in my `office`.
+- In the vacant `office`.
+- She's at your `office`.
+- The telegraph `office`.
+- You like your `office`?
+- From your `office`, sir.
+- I'll be in the `office`.
+- In the company `office`.
+- I run that `office` now.
+- Isn't this his `office`?
+- I work in your `office`.
+- Meet me at the `office`.
+- Ticket `office`, please.
+- You may use my `office`.
+- You robbed the `office`.
+- Hey, this is my `office`.
+- I'm not fit for `office`!
+- Is daddy in his `office`?
+- Nice `office` you've got.
+- The one in your `office`?
+- You mean my old `office`.
+- He can smell box `office`.
+- I don't mind the `office`.
+- In mr. sampson's `office`.
+- Left them at the `office`.
+- Ma'am the vacant `office`.
+- No -- not at the `office`.
+- Someone from the `office`.
+- We did it in the `office`.
+- We saw it in the `office`.
+- You came into my `office`.
+- ...you the press `office`?
+- A glorified `office` block.
+- Bishop brophy's `office`...
+- I better call the `office`.
+- I stopped by your `office`.
+- Not since dante's `office`.
+- `Office` of--senator smith?
+- Patrick bateman's `office`.
+- Right here in the `office`.
+- Shall we go to my `office`?
+- The city sealer's `office`!
+- The guy sat in my `office`!
+- The one from your `office`?
+- Bishop brophy's `office` ...
+- Can't it go to any `office`?
+- Can we do it at my `office`?
+- It'll hurt the box `office`.
+- I work in the da's `office`.
+- Jane's the `office` manager.
+- Please come to the `office`.
+- Shelly: get in the `office`.
+- That's probably my `office`.
+- Watch me, `office` albrecht.
+- Blame the damn post `office`.
+- Can we talk in your `office`?
+- Cause it's my `office` party.
+- Come on in the `office` here.
+- Could i use... your `office`?
+- I'll see you at the `office`.
+- I'll see you in the `office`.
+- It's practically my `office`.
+- My husband's at the `office`.
+- Can you get into the `office`?
+- No, i left it in his `office`.
+- That's for skinner's `office`.
+- We left the `office` together.
+- You didn't call the `office` .
+- You're going to the `office`?!
+- At his `office` in the capitol.
+- Can i call you at the `office`?
+- Eddie meyers from the `office`.
+- He works for the post `office`.
+- Hey - the world is my `office`.
+- I wanna see you in my `office`.
+- My uncle's in the war `office`.
+- She went front-`office` on you.
+- Then his `office` will be fine.
+- We'll be up in alan's `office`.
+- Come to my `office`, miss price.
+- Her home `office` was ransacked.
+- Jerry's visits to your `office`.
+- Jezebel, from the post `office`.
+- Someone should rob the `office`.
+- Didn't you run for some `office`?
+- Good morning, sheriff's `office`.
+- I'll be in the `office` tomorrow.
+- I'll keep it in my `office` room.
+- So it's over at jesse's `office`?
+                 

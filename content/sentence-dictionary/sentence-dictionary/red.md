@@ -1,0 +1,107 @@
+---
+title: "red in a sentence | red example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "red"
+---
+- It means `red` dragon.
+- More `red` than green.
+- `Red` deer table, ray.
+- `Red` sox are winning.
+- Well... the `red` bra.
+- What is it with `red`?
+- Approaching `red` zone.
+- Dragon... `red` dragon.
+- Eat rubber, `red` head.
+- I repeat, a code `red`!
+- `Red` alert, mr. scott.
+- That really you, `red`?
+- You have a `red` shirt.
+- Because of `red` grange?
+- But i get a `red` light.
+- I mean, the `red` queen?
+- `Red` meat just like me!
+- That was a `red` light!!
+- There'll be `red` flags.
+- They cause...`red` lips.
+- What's this `red` stuff?
+- Wow, it's the `red` one?
+- Don't eat the `red` ones.
+- Drafted by the `red` sox.
+- I call it the `red` lion.
+- Little `red` riding hood.
+- `Red` deer table, walter.
+- `Red` leader standing by.
+- `Red` sun toxin detected.
+- Taking bets today, `red`?
+- Was `red` grange strange?
+- A `red`-blooded commander.
+- It's supposed to be `red`.
+- Piss on all the `red` sox.
+- Since his beard was `red`.
+- Sounds like a plan, `red`.
+- Two blue, and a `red` one.
+- You're `red` hot, damn it.
+- All `red` light long, baby.
+- Blodreina, the `red` queen.
+- Bought the `red` cars, huh?
+- Clifford the big `red` dog?
+- Do you like blue ... `red`?
+- Frida, grab that `red` one.
+- Hey, `red`, bump me a deck.
+- I'm `red` hot, i'm blazin'!
+- `Red`, and i ain't no punk.
+- Should we be on code `red`?
+- Didn't recognize you, `red`.
+- Don�t jump any `red` lights.
+- I'd eat a lot of `red` meat.
+- No baseball diamonds, `red`.
+- `Red` corn syrup everywhere.
+- That's the `red` ball alarm.
+- The `red` sox were my world.
+- Ok. `red` light, green light.
+- Anybody ever call you "`red`"?
+- Unless they wrote it in `red`.
+- We're retiring the `red` cars.
+- What the fuck, '`red` dragon?'
+- All right, we'll make it `red`.
+- What does make roads `red`?
+- 'bout every other night, `red`.
+- Code `red`, i repeat, code `red`.
+- Didn't you hear our code `red`?
+- I repeat, this is a code `red`.
+- Jesus, `red`, she's just a kid.
+- Just got it on the `red` phone.
+- Seriously, i have a code `red`.
+- The `red` sox are your problem.
+- You drink `red` wine with fish.
+- Amber... -- `red` nose and ears.
+- Feel the `red` sun on your face.
+- `Red`, i found something -- hey.
+- `Red` sox... who's on the mound?
+- Spaghetti with `red` clam sauce.
+- Where the fuck is `red` platoon!
+- You mean the menacing `red` car?
+- You want the `red` or the white?
+- We got rid of the `red` head.
+- Fire `red` particle cannons full.
+- I must only let the `red` rage...
+- I repeat... this is a code `red`!
+- I think you'd look good in `red`.
+- I think you should go with `red`.
+- Just push the `red` button twice.
+- No, slink -- i'm `red` this time.
+- So, you must be the `red` dragon.
+- The `red` sox win a world series.
+- The `red` sun toxin's everywhere.
+- A new outfit bought the `red` car.
+- Does `red` pepper go under r or p?
+- Left...the one with the `red` dot.
+- Like the `red` cross or something?
+- Look at that beautiful `red` meat.
+- `Red`, maybe a deep midnight blue.
+- `Red` sun toxin has been detected.
+- There it is... in `red` and white!
+- We can take her out to `red` rock.
+- What the hell is `red` deer table?
+                 

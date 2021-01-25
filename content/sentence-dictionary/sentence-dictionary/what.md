@@ -1,0 +1,107 @@
+---
+title: "what in a sentence | what example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "what"
+---
+- Before... `what`'s up?
+- Bell, `what` do we do?
+- Boy-- so `what`'s new?
+- But at `what` a price.
+- But `what` about doug?
+- But `what` about gold?
+- But `what` about them?
+- But `what` about this?
+- But `what` can you do?
+- But `what` could i do?
+- But `what` does it do?
+- But, `what` do i know?
+- But `what` if it does?
+- But `what`'s all this?
+- But `what`'s happened?
+- But `what` we believe.
+- Christ, `what` a mess.
+- C'mon, `what` are you?
+- David, `what` is that?
+- Do `what`, mr lombard?
+- Do `what` you're told.
+- Eh, `what`'s all this?
+- Er, `what`'s his name?
+- Exactly `what` i mean.
+- Exactly `what` i said.
+- For `what` it's worth.
+- Good heart, at `what`?
+- Guess `what` today is?
+- Half for doing `what`?
+- He double you, `what`?
+- He'll do `what` i say.
+- Here's `what` we know.
+- He said `what` i said!
+- Hey `what`'s going on?
+- Hey `what`'s with you?
+- Hmm... `what` is this?
+- I did `what` you said.
+- I have this -- `what`?
+- I have to know `what`!
+- I have `what` you had.
+- <i></i> in `what` way?
+- I know `what` he said.
+- I know `what` he says.
+- _ i know `what` it is.
+- I know `what` junk is.
+- I know `what` that is.
+- I know `what` this is.
+- I know `what` you are!
+- I know `what` you are.
+- I know `what` you did.
+- I meant `what` i said.
+- Indra, `what` is this?
+- I see `what` you mean.
+- I speak `what` i feel.
+- Is that `what` i said?
+- Is that `what` you do?
+- It's just `what` i do.
+- It's `what` i deserve.
+- It's `what` i do best.
+- It's `what` i do, man.
+- It's `what`'s in mine.
+- It's `what` they done!
+- It's `what` they want.
+- I... `what` can we do?
+- Jesus, `what` is this?
+- Josie, `what` say you?
+- Just do `what` you do.
+- Just `what` i've read.
+- Knowing `what` i know?
+- Know `what` is hidden.
+- Learn `what` it means.
+- Let's go -- -- `what`?
+- Like `what`, scrabble?
+- Man: `what` is that?
+- Maura, `what` is this!
+- Mike, `what` can i do?
+- My god, `what` a fire!
+- Nancy, `what` is this?
+- Nell, `what` do we do?
+- Not `what` i expected.
+- No, `what` did he say?
+- No, `what` did it say?
+- Now `what` do you say?
+- Now `what`'s her name?
+- Octavia, `what` is it?
+- Oh, `what` a surprise.
+- Oh�`what` have i done?
+- Okay, so `what` is it?
+- Okay, `what` happened?
+- Ok. do `what` he says.
+- Peter, `what`'ll i do?
+- Plus `what` i owe you?
+- Raven, `what`'s wrong?
+- Recall `what` mistake?
+- Save her for `what`?
+- Scottie, `what` is it?
+- Screw `what` dad says!
+- See if they'll `what`?
+- See `what`'s going on.
+- See `what` you can do.
+                 

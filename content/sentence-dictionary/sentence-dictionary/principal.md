@@ -1,0 +1,51 @@
+---
+title: "principal in a sentence | principal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "principal"
+---
+- My `principal`'s boss.
+- I need the `principal`.
+- Bigger than a `principal`.
+- Who's `principal` collins?
+- Thanks, `principal` merkin.
+- `Principal` skinner, - shit!
+- But i- yes `principal` victoria.
+- Didn't `principal` jaffee call you?
+- Hey there goes `principal` collins!
+- `Principal` collins is her boyfriend!
+- She's two-timing `principal` collins!
+- "my dream date with `principal` collins."
+- So did i. i made it with the `principal`.
+- Now you see why he was elected `principal`?
+- Which means `principal` collins is a pirate!
+- C) victoria `principal` sells on that network.
+- `Principal` kelly's about to make an announcement.
+- So could you get us into the `principal`'s office?
+- Bastard nailed the vice- `principal` and a teacher.
+- How would you like to go to the `principal`'s office?
+- I'm supposed to meet the `principal` in half an hour.
+- Now there's the `principal` actor in our little play.
+- `Principal` collins wants us to have our own classroom!
+- Girl was fuckin' the `principal` and two of her teachers.
+- So, are you ready to take me to the `principal`'s office?
+- Shit, `principal` cole, you ain't gonna believe what else.
+- Have you been in contact with the `principal` about your job?
+- Why didn't you tell us your boyfriend was `principal` collins?
+- Lighten up, ian, you sound like a high school vice-`principal`.
+- Yeah, i'm sorry, i was just looking for the `principal`'s office.
+- This big shot here is the `principal` to find you some volunteers.
+- One phone call from the `principal` will take care of that, my dear.
+- Something about showing the world what `principal` collins has done.
+- A statue in front of city hall, dedicated to `principal` dick merkin?
+- Like i said, all this for some twisted, distorted sense of `principal`.
+- She wants us to show the world what a great guy `principal` collins is.
+- No, it was worse than that... what did my son say, `principal` victoria?
+- You are officially relieved of your duties as `principal` of this school!
+- I'm sure this would offend you on `principal` but... could we keep in touch?
+- `Principal` collins is a greater american than george washington will ever be.
+- I was going to show this to the `principal`, but i wanted to talk to you first.
+- Everyone's always a suspect -- the father, the `principal`, the town derelict...
+- Lloyd, when we were in `principal` collins's office, did you see any kind of chest?
+- We're in a smoky nightclub, hoping to catch our `principal` with some big city tart.
+                 

@@ -1,0 +1,86 @@
+---
+title: "younger in a sentence | younger example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "younger"
+---
+- The james-`younger` gang.
+- The `younger` the better.
+- He's my `younger` brother.
+- She's `younger` than i am.
+- Sister older or `younger`?
+- Two years `younger` than you.
+- Well, no `younger` than i was.
+- Daddy, she's `younger` than me.
+- She's much `younger` than i am.
+- You are the `younger` of two...
+- Hey, i feel ten years `younger`!
+- She is much `younger` than i am.
+- This here is the `younger` gang!
+- We're not getting any `younger`.
+- The `younger` men have no respect.
+- I look `younger` without my makeup.
+- ..it happened when i was `younger`.
+- A bit `younger` maybe, but not a lot.
+- So in a sense he's the `younger` man.
+- My dear, i'm not getting any `younger`.
+- We're not getting any `younger`, right?
+- You're not getting any `younger`, mark.
+- Last week i did a guy `younger` than me.
+- They'll all be much `younger` than i am.
+- We yell "we're the `younger`-james gang!"
+- Why aren't we the "`younger`-james gang"?
+- Oh, come on-i mean, i was still `younger`.
+- Didn't you do that when you were `younger`?
+- I was a little `younger` than you, - knife.
+- What were you like when you were `younger`?
+- The `younger`-james gang could be confusing.
+- Bill is all of eight years `younger` than you.
+- Cole `younger`'s going to make everybody rich!
+- It was the `younger` one that was the bad one.
+- Maybe get some `younger` actress for the part?
+- Seems like the whole world's gotten `younger`.
+- The one who was stung when you were `younger`.
+- I was twenty-four - `younger` than you are now.
+- Oh, i shouldn't have... twelve years `younger`.
+- You tell cole `younger` where and when to ride?
+- But your `younger` brother -- what was his name?
+- Jim `younger`, i told you-- i couldn't lose him.
+- Maybe i'll trade you in for the `younger` model?
+- He had a `younger` brother who... was... a...
+- I mean, they just seem so much `younger`, you know.
+- The faster you get doucet, the `younger` you'll be.
+- Well, i played a mean harmonica as a `younger` man.
+- She was going to replace me with a `younger` father.
+- Maybe the present maharajah is a little `younger`?
+- Grace told me you used to ride when she was `younger`.
+- I thought so myself for a time, when i was `younger`...
+- Hello there, you sound `younger` than our usual callers.
+- People are gonna be thinking, "the `younger` james gang?
+- Why, if i were eighty years `younger`, i'd box your ears.
+- Why, i'm just getting ready to turn on the `younger` charm.
+- His `younger` son alexander is also brought into the business.
+- Yes, when i was `younger` i had thoughts about public office...
+- A woman in family way just reminds of spring and my `younger` days.
+- You are much `younger`, and much more handsome, than your pictures.
+- The older one is janet, she's nine, and the `younger` one is morgan.
+- How would you feel if your father married someone `younger` than you?
+- You have three `younger` sisters, two of whom suffer from consumption.
+- Frost's bodycount keeps rising, and i'm not getting any `younger`, am i?
+- When i was `younger` i got into a pretty bad run-in with the wyler boys.
+- Yeah, fell over in the bed with a chick twenty years `younger` than him.
+- I mean, there's three `younger` brothers and only two james brothers here.
+- Louisa was henry's `younger` sister, and she and the baby moved in with us.
+- Pardon the delay, folks, but we had to get mad bob `younger` under control!
+- Said it depressed him every time the `younger` cons called him an old timer.
+- A `younger` man who is not doing too well ... can you figure it out yourself?
+- Let go of my arm... my daddy told me that a `younger` woman would bleed me dry.
+- All the posters and newspapers are calling this bunch the "james-`younger` gang."
+- So you're saying i should leave you alone and go spend time with jimmy `younger`?
+- ... when i was six, my `younger` brother and i -- we went swimming in the pacific.
+- I don't know if we have any `younger` man more respected in our operation than you.
+- They've got two kids, a girl about fifteen and a boy `younger`, jennifer and thomas.
+- So, so, but it was when i was `younger`, so-- this time i really think i have something.
+- I would have these -- i don't know how to describe them -- visions, when i was `younger`.
+- I mean, i'm... god, i gotta be ten years `younger` and you, <u>you</u>... you're y'know...
+                 

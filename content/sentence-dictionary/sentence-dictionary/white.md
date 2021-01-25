@@ -1,0 +1,107 @@
+---
+title: "white in a sentence | white example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "white"
+---
+- A `white` rolls royce.
+- Go ahead, mr. `white`.
+- He's a `white` male...
+- How come it's `white`?
+- Oh, black and `white`?
+- She had `white` shoes.
+- `White`, or deep pink.
+- A "little `white` lie"?
+- Call the `white` house.
+- He coulda been `white`.
+- It needed more `white`.
+- It's the `white` house.
+- There's a `white` wine?
+- They're really `white`.
+- `White` and brown ones.
+- `White` turns to black.
+- A snow-`white` underdog.
+- Black and `white` smoke.
+- Bud `white`'s been here?
+- Got a `white` wife, huh?
+- Tubab means `white` man.
+- `White` sky was on fire.
+- Yeah right, `white` boy!
+- You know a `white` girl?
+- You look good in `white`.
+- You, me and `white`, huh?
+- I read your `white` paper.
+- Then the devil is `white`.
+- The `white` shows through.
+- Victim's a `white` female.
+- `White` house switchboard.
+- `White`'s a mindless thug.
+- Your name is john `white`.
+- You see that `white` door?
+- All `white` men are devils.
+- Except, a "`white` squall".
+- She was as `white` as snow.
+- `White` male, twenty-seven.
+- Wildman the `white` knight.
+- As long as they are `white`.
+- Dinner at the `white` house.
+- Follow the rich `white` man?
+- I was driving a `white` van.
+- Okay, there's a `white` guy.
+- That's a `white` man's book.
+- That's a `white` man's myth.
+- Along with `white` boy there.
+- An egg- `white` omelette.
+- Great `white`, the man-eater.
+- He is entering a `white` van.
+- I ran the `white` house side.
+- It looks like `white`'s game.
+- It's a single `white` female.
+- It was balling `white` girls.
+- Killer's male, `white`, 40's.
+- The `white` man is the devil.
+- `White` house situation room.
+- Why's she seeing bud `white`?
+- I'm playing `white`, remember.
+- The `white` castle has fallen.
+- Think `white` and get serious.
+- Yes... a little `white` house.
+- Everybody knows god is `white`.
+- He don't trust the `white` man.
+- He's `white` and six feet tall.
+- How's your `white` hick sister?
+- Just tell a little `white` lie?
+- Not unlike the `white` stripes.
+- On a black and `white` monitor.
+- Super religious `white` people.
+- We all deserve to wear `white`.
+- Yes... a half-steed... `white`.
+- You know what mr. `white` said.
+- Your mr. `white` saw the crime.
+- A fanciful idea, mister `white`.
+- It ain't `white` boy day, is it?
+- It is like the `white` sickness.
+- I want the coffin to be `white`.
+- Three `white` males shot junior.
+- `White` people with black faces.
+- You liked the `white` of my eye.
+- You mean <u>with `white`</u>...?
+- You think i'm the `white` angel?
+- You want the red or the `white`?
+- A great `white` doesn't fear man.
+- Find susan's killer, mr. `white`.
+- I want you to follow bud `white`.
+- Keep it out of the `white` house.
+- `White` corpuscles -- antibodies.
+- With mr. `white`'s new secretary.
+- But `white` is a valuable officer.
+- Have so many `white` trash idiots?
+- Head for... for the `white` water.
+- Hey, you guys are wearin' `white`.
+- I'm talking about a great `white`.
+- I need to know what `white` knows.
+- Is it because of your `white` gal?
+- It's too `white`, too distracting.
+- Let me do it for you, mr. `white`.
+- That kid's the great `white` hope.
+                 

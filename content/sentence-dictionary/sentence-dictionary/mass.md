@@ -1,0 +1,55 @@
+---
+title: "mass in a sentence | mass example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mass"
+---
+- May i go to `mass`?
+- Too much muscle `mass`.
+- What do you mean "`mass`"...
+- A `mass` murderer, i said no.
+- `Mass`, amherst, b.u.... yeah?
+- As before... metallic `mass`...
+- I'll see you at `mass` tomorrow.
+- Everybody used to come to `mass`.
+- `Mass` production is what does it.
+- Sight on the center of the `mass`.
+- Some rituals used in black `mass`.
+- I will order a `mass` for his soul.
+- Without inducing a `mass` psychosis.
+- There's an art to `mass` destruction.
+- `Mass` hysteria is like a story, nell.
+- `Mass` produced, sequentially numbered.
+- Or shall i come to you at evening `mass`?
+- Right, the child of two `mass` murderers.
+- You're still my favorite `mass` murderer.
+- 'he's some very hotshot surgeon at `mass`.
+- `Mass` murderers, as far as i'm concerned.
+- We had a run in the `mass` murder section.
+- _ will eventually lead to a `mass` die-off.
+- I haven't enjoyed `mass` this much in years.
+- The last `mass` trials were a great success.
+- We will begin `mass` production immediately!
+- My men could have `mass`-produced this by now.
+- I gotta get up for ten o'clock `mass` tomorrow.
+- My men could have `mass`- produced this by now.
+- Parties and `mass` murderers don't go together.
+- That `mass` infection would make us a slave race.
+- Tree toxins, `mass` hysteria, to make life better.
+- A man who deserved a requiem `mass` and never got one.
+- We ain't one-at-a-timin' here, we `mass` communicatin'!
+- `Mass` suicides by popcorn farmers; i could come right to you.
+- We have front row seats for this theater of `mass` destruction.
+- I myself witnessed some form of `mass` neurosis in east proctor.
+- Ninety seven million, minus eight, corrected to `mass` critical.
+- The church is a stone's throw away if you want to come to `mass`.
+- You were not hired for your brains, you hippopotamic land `mass`.
+- A `mass` evacuation by them started about eight o'clock this morning.
+- A `mass` of jelly-like stuff came out of the thing, and caught our torpedo!
+- He couldn't generate enough power for the machine to reach critical `mass`.
+- As almost no one attends `mass`, you will be unable to cause further damage.
+- I mean, do you think the deuterium `mass` might separate from the atomic trigger?
+- I haven't been confessed since easter... or been to `mass`... will you hear me now?
+- The geometry of `mass` infection presents certain conceptual re-evaluations for us.
+- Curious thing is, the `mass` detector says they're too small to carry a deep-space drive.
+                 

@@ -1,0 +1,98 @@
+---
+title: "primes in a sentence | primes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "primes"
+---
+- `Primes` are not gods.
+- The `primes` did that.
+- The `primes` insisted.
+- You kill the `primes`.
+- Blessed are the `primes`.
+- Blessed are the `primes`.
+- 5 dead `primes` in 5 days.
+- They are not our `primes`.
+- Then they make us `primes`.
+- You hated playing `primes`.
+- You're one of the `primes`.
+- Newsflash: you are `primes`.
+- We're guests of the `primes`.
+- If the `primes` have one, i...
+- [sniffles] - death to `primes`!
+- Your `primes` are gone forever.
+- Gather the rest of the `primes`.
+- The answer is death to `primes`.
+- Glory and praise to the `primes`.
+- The `primes` will honor the deal.
+- Why do they think you're `primes`?
+- He defied the will of the `primes`.
+- Thank the `primes` you're ok. gone.
+- They've killed exactly no `primes`.
+- You've only resurrected 5 `primes`.
+- Blessed be the `primes` and sanctum.
+- Jack, my husband, death to `primes`!
+- Oh, my... make way for the `primes`.
+- That's not the will of the `primes`.
+- We've got the `primes` and the guns.
+- And the `primes` will still be `primes`.
+- Made up of 4 families... the `primes`.
+- Miss morality wants us to be `primes`.
+- 6 `primes` must be resurrected tonight.
+- But many still believe in the `primes`.
+- The `primes` knew she was a nightblood.
+- The `primes` want you isolated from us.
+- [electricity buzzing] death to `primes`!
+- For the glory and grace of the `primes`.
+- Believes in the divinity of the `primes`.
+- Banned by the `primes`, so don't quote me.
+- If there are no more `primes` to make dead?
+- The `primes` will save you if you let them.
+- For the glory and the grace of the `primes`!
+- The `primes` told you that we're your enemy.
+- Because if you become `primes` no cell phone.
+- Our little girl became one with the `primes`.
+- That claims that `primes` can now make hosts.
+- But your daughter's not one with the `primes`.
+- You've only resurrected 5 `primes`, excuse me.
+- The last `primes` who went on ice died forever.
+- We invoke the names of the `primes` as we pray.
+- Becca pramheda is your blood, death to `primes`!
+- By the glory and grace of the `primes`, is mine.
+- Once we kill the `primes`, we take over sanctum.
+- I'm sure nelson wants us `primes` here they come.
+- I want them tied up and gagged with the `primes`.
+- What does death to `primes` mean i like this guy!
+- Once we kill their `primes`, we take over sanctum.
+- Daniel, kaylee, and i are the last of the `primes`.
+- Listen, it says "money to burn", save the `primes`!
+- You know i have to warn bellamy about the `primes`.
+- So, now you believe in the divinity of the `primes`?
+- You're not so different from the `primes`, you know.
+- As the `primes` are my witness, i'll bring them back.
+- But if your friend here figured out death to `primes`!
+- Not everyone believes in the divinity of the `primes`.
+- You're free to head back to sanctum with the `primes`.
+- Your scout told us that you had 3 `primes` at the post.
+- For the glory and greatness of `primes`, don't stand up.
+- Homer, we're offering you a promotion death to `primes`!
+- What if i told you that `primes` had a way to save kane?
+- The hosts were honored to become one with their `primes`.
+- What if i told you the `primes` had a way to save kane...
+- According to engineering, and become one with the `primes`.
+- I was bored while they were teaching us about the `primes`.
+- We have a prisoner that claims `primes` can now make hosts.
+- If my death can put an end to the `primes`, don't be afraid.
+- On the whole damn ship, and we used to get death to `primes`!
+- He wants to save them, and they'll die to protect the `primes`.
+- The 3 heads of our fallen `primes`, they're headed down 7th.
+- If the other `primes` had half your balls, you're dead, henderson.
+- If the `primes` can make nightblood, i'm sorry about him, by the way.
+- The `primes` used it to get to space it's what they say before death.
+- Of course, if it serves the glory and the grace of the `primes`... wow.
+- One of the `primes` is showing raven and emori you've got to be kidding me.
+- She's to be supervised at all times of the immortal `primes` took a new body?
+- ♪ he drivin' a drop top cadillac ♪ for the glory and the grace of the `primes`.
+- Now, not surprisingly, believers in the divinity of the `primes` the right thing.
+- I don't know how to tell you this, maybe, but by then, the 12 `primes` could be back.
+- Before your parents to perform routine ship maintenance he's not one with the `primes`.
+                 

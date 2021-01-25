@@ -1,0 +1,84 @@
+---
+title: "Gordon in a sentence | Gordon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Gordon"
+---
+- Jim `gordon` his face.
+- Like you and `gordon`?
+- It's over you, `gordon`.
+- That's so like `gordon`.
+- `Gordon` liddy, you mean?
+- Mr. `gordon`� thanks, joe.
+- A guy named `gordon` liddy.
+- Don't patronize me `gordon`.
+- `Gordon` said you were good.
+- It's herschel `gordon` lewis.
+- Somebody named `gordon` cole.
+- What did `gordon`'s tie mean?
+- I saw her talking to `gordon`.
+- It's not puppy love, `gordon`.
+- The president is mel `gordon`.
+- Those days are over, `gordon`.
+- What's his name, mel `gordon`?
+- Sarah packard... bert `gordon`.
+- You're really twisted, `gordon`.
+- That's just `gordon`'s bad taste.
+- `Gordon`, it's two minutes to close.
+- I'm looking for deejay rob `gordon`.
+- This is not a liquidation, `gordon`.
+- What does he do, this bert `gordon`?
+- That's what `gordon`'s always saying.
+- Maybe he was `gordon`'s <u>pusher</u>.
+- We can survive without `gordon` gekko.
+- I'm sure mr. `gordon` meant no offense.
+- Did `gordon` show you a woman named lil?
+- Doesn't your lighter work, mr. `gordon`?
+- Don't give me a hard time, mr. `gordon`.
+- I met this guy -- `gordon`, bert `gordon`.
+- I saw mel `gordon` in here this morning.
+- I want to ask you a big favor, `gordon`.
+- Tell me, `gordon`--when does it all end?
+- I still don't understand -- mel `gordon`.
+- It is someone by the name or `gordon` cole.
+- Wait a minute, `gordon`�i� get out of here!
+- Hello bud, i'm lisa, a friend of `gordon`'s.
+- I'm not the only one who pays here `gordon`.
+- Actually, `gordon`, you're not gonna do that.
+- `Gordon`, he's always got some angle working.
+- So, how did your conference go with `gordon`?
+- Don't ever put your hands on me, mr. `gordon`.
+- The "triumphant return of dj rob `gordon`?"
+- We're getting no help from flash `gordon` here.
+- `Gordon` is immediately electrified into action.
+- `Gordon` tells me you're a very talented broker.
+- Is detective `gordon` going to be at your house?
+- We feel the bigger concern is `gordon` liddy ...
+- I've got a couple of deals brewing with `gordon`.
+- So mel `gordon` wouldn't want a professional hit.
+- To "joe `gordon`, care of new york mail, new york.
+- He's best friends with jim `gordon` and harvey dent.
+- If you work with `gordon` you learn that right away.
+- I could have deejay rob `gordon` play in my own home.
+- I mean, `gordon` must weigh a good four hundred pounds.
+- The vice-president and treasurer is `gordon` lariviere.
+- They're in that fucking thing for forty hours, `gordon`.
+- * day * `gordon` gano: ♪ day ♪ we have flashback, people.
+- I got things to teach you... how much is enough `gordon`?
+- I just had a little business to settle with mr. `gordon`.
+- Do you know how many orgies i had as a homicide copy, `gordon`?
+- `Gordon` cole... look, norma, i'm in the middle of a rehearsal.
+- Take my truck, take a rest -- stop worrying about mel `gordon`.
+- Commissioner `gordon` was compelled to leave - -very unexpectedly.
+- I'd say that `gordon` is one of the most astute collectors around.
+- Mr. `gordon`, did you take over this place after mrs. lippman died?
+- Commissioner `gordon` thought you might give me your expert opinion.
+- Don't use that tone of voice with me... never mind, i'll take `gordon`.
+- Mel `gordon` had come by to visit lariviere and so now i'm in his office.
+- Yeah aren't you forgetting something `gordon`: rule one, capital reserves.
+- I like you sport, i ever tell you that... `gordon`, call me `gordon` from now on.
+- `Gordon` fucking lightfoot, cat stevens, whoever, that song just fucking kills me.
+- `Gordon`, i worked at bluestar, i know my way around, i have friends there...inside.
+- Because of your information i alerted internal affairs to check out detective `gordon`.
+- `Gordon` what i want--and i never asked you for anything--is to be your co-pilot on this.
+                 

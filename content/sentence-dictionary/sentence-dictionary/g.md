@@ -1,0 +1,107 @@
+---
+title: "g in a sentence | g example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "g"
+---
+- Let's let the `g`.s.e.
+- No zero-`g` space sex.
+- I think that `g`.i.
+- * john `g`. was clever.
+- Kill, kill... `g`'head.
+- Ever try sex in zero-`g`?
+- `G`. anders, my shepherd.
+- Most valuable protégés.
+- W-w-where we `g`-`g`-going?
+- `G`-go on, i'm interested.
+- H and `g`. hi and goodbye.
+- Oh my `g`-d, i'm so sorry.
+- Take me to america, `g`.i.
+- `G` dash d damn it, hammer!
+- Look at me in sector 7-`g`!
+- N-n-no thanks, `g`-general.
+- They `g`-got the wrong guy!
+- Pick up his 100 `g`. no.
+- It's only two hundred `g`'s.
+- Nuffin' `g`. just forget it.
+- They `g`-got the wrong `g`-guy.
+- I'm only allowed "`g`" movies.
+- In the b.`g`., moss, drinking.
+- Or a `g` flat that you played?
+- Take me to the america, `g`.i.
+- Five `g`'s�or i crab the works.
+- I logged outside the `g`.r.a.b.
+- Jay-`g` headphones only $49.99.
+- Oh my `g`-d, i read about this!
+- Oh my `g`-d, you've been robbed!
+- Okay, ten thousand plus a `g`.e.
+- Poor girl... oh my `g`-d. honey!
+- In zero `g` i didn't need my legs.
+- No, bergman... b.e.r.`g`.m.a.n....
+- Oh my `g`-d. and that's wholesale.
+- I heard you're the `g` around here.
+- Earth skills, zero-`g` me course.
+- I have to... he's a `g`-34 don't go.
+- Oh, jesus, get me a 12-lead e.k.`g`.
+- Oh my `g`-d, they want me to anchor.
+- Yeah, the guy owes momo a few `g`'s.
+- You got your zero-`g` certification.
+- Y-you're a `g`-god damn saint, john.
+- B-i-n-`g`-o and bingo was his name-o.
+- I saw a mig do a 4 `g` negative dive.
+- <font color=#ffff2d>i'm colonel `g`.t.
+- Perfect!...get out of sector `g`. now.
+- I'm a soldado in the `g`-wing regiment.
+- Oh my `g`-d. we were having lunch here.
+- I'll get the 50 `g` from the church!
+- Oh my `g`-d, how embarrassing were they?
+- Oh my `g`-`g`-`g`. what did you...do to ben?
+- Oh my `g`-`g`-`g`. what did you... do to ben?
+- ...phase-plasma pulse rifles, r.p.`g`.'s.
+- All that matters is what you `g`-`g`-gave us.
+- Out of spare body parts from dead `g`.i.'s.
+- Oh `g`-d, i'm gonna be someone's bald bitch!
+- Call gerry `g`. in if you think you need him.
+- Oh `g`-d, i'm sorry... you're not really fat!
+- You know the football player, red `g`- grange?
+- I thought maybe i go to college under the `g`.i.
+- Four thirty-seven� that isn't where gerry `g`...?
+- So anyway, chalk up another 180 `g` for the game.
+- "her name is `g`-i-n-a gina and she lo-oooves me."
+- It's hard to l-a-u-`g`-h when your father's dying.
+- You should be like the "`g`" in gnocchi... silent!
+- Shit, leonard, i'm a john `g`. why would i do that?
+- That's right, the real john `g`. over a * year ago.
+- Because becca's serum only combines in zero `g`. pop!
+- M-flat, j-sharp, v, cursive `g`, frank, frank natural.
+- Cheer up, there's a lot of john * `g`'s for us to find.
+- Did that maynard `g`. beatnik give you what you wanted?
+- `G`... or is it like the doctors say, all in your head?
+- Willard, `g`-4 headquarters, reporting as ordered, sir.
+- You're gonna end up owing 60 `g` to a homicidal maniac!
+- War in the balkans, don't mean nothing, till some `g`.i.
+- Tell me about john `g`. you still think he's here, right?
+- You're the youngest zero-`g` mechanic my friend was here.
+- ~don't shoot, `g`-men..." hard up as you are, at your age?
+- You know how many towns, how many * guys called james `g`?
+- How can i find john `g`. when i don't know what's going on?!
+- * his name's james f. grantz, john `g`. check * your tattoos.
+- Jaha: zero-`g` mechanic sorting scrap metal out for ammo, huh?
+- John, where are we `g` -- please be quiet -- oh please, pearl!
+- Oh my `g`-d, this is like asking me for help with your homework.
+- I know i've seen that `g`- string stuff for sale someplace around.
+- M-m-miss r ratched `g`-`g`-`g`-`g`... come on, don't crap out on me now.
+- I can't walk two blocks in washington without hearing about "`g`.i.
+- Ohh... you're the youngest zero-`g` mechanic and return them to us.
+- Ah-ah-ah-are y-y-y-you `g`-`g`-`g`-going t-t-t-to muh-muh-muh-marry her?
+- The guy you're looking for, johnny `g`. that's why you haven't left.
+- Bearing it so we don't have to, they're not getting back to zero-`g`.
+- Well, zip that little pointer right on down to the letter `g`. yeah...
+- That's not good enough, i'll ask the shithead for 280 `g` for the kids.
+- A-b-c -- d-e-f -- `g`-h-i -- don't be silly... nobody's too old to learn.
+- I took a chance on a zero-`g` mechanic yeah, like terry found her daughter?
+- Later on he had an idea to make a city out of a desert stop-over for `g`.i.
+- * feeding you a line of crap about john `g`. * being some local drug dealer.
+- I-i-i-i-i'll `g`-`g`-`g`-go, m-m-mack... yeah, well, let me tell ya somethin'...
+- If you'd have beat us out of fifty `g`'s, you'd have been paid, wouldn't you?
+                 

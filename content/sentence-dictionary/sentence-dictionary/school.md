@@ -1,0 +1,107 @@
+---
+title: "school in a sentence | school example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "school"
+---
+- Back to high `school`.
+- But i've got `school`.
+- Do you go to `school`?
+- For going to `school`?
+- For the `school` kids.
+- I'm going to `school`.
+- I miss grade `school`.
+- I'm still at `school`.
+- What kind of `school`?
+- You still in `school`?
+- A friend from `school`.
+- Mark from `school`.
+- Come by after `school`.
+- How was `school` today?
+- I'm busy with `school`.
+- I'm home from `school`.
+- Just not at `school`...
+- Near the high `school`.
+- New town, new `school`.
+- Remember high `school`?
+- `School` is no problem.
+- See you after `school`.
+- She's in high `school`.
+- Took him from `school`.
+- What's out of `school`?
+- You're at `school` now.
+- You're not in `school`?
+- Army'd pay for `school`.
+- Don't you have `school`?
+- From high `school` mary?
+- Go to `school` tomorrow.
+- Hey, is that a `school`?
+- I did lousy at `school`.
+- Thursday after `school`.
+- ♪ traffic `school` them.
+- Worst case, no `school`.
+- You go back to `school`.
+- Are you back at `school`?
+- At the `school` crossing.
+- Don't you go to `school`?
+- Dr. augustine's `school`?
+- How'd you do in `school`?
+- I failed flight `school`.
+- Just, you know, `school`.
+- Now get back to `school`.
+- She's a `school` teacher.
+- Some prep `school` thing.
+- Where i went to `school`.
+- You walk her to `school`.
+- I care about the `school`.
+- I go to `school`, don't i?
+- I like this `school`, too.
+- I'll take you to `school`.
+- I'm just in high `school`.
+- It's not a charm `school`.
+- I went to public `school`.
+- Maybe go back to `school`.
+- So how was `school` today?
+- Went to `school` with him.
+- You head for the `school`.
+- You should be in `school`.
+- Back to obedience `school`.
+- Can we meet after `school`?
+- Everyone at `school` knows.
+- High `school`... remember ?
+- I asked you about `school`.
+- I got to fix this `school`.
+- I'm in high `school`, dude.
+- I'm teaching high `school`.
+- It's my last `school` year.
+- I went into radio `school`.
+- Just like in high `school`.
+- No talking out of `school`.
+- On my way back to `school`.
+- Parsons `school` of design.
+- Pick you up after `school`.
+- So, `school` going alright?
+- The heathkit's at `school`.
+- Where's the `school` house?
+- Aren't you ever in `school`?
+- Finish `school` first, sean.
+- Five more weeks of `school`.
+- Have a good day at `school`.
+- He was murdered at `school`.
+- I never thought of `school`!
+- I see the `school` up ahead.
+- I thought you quit `school`.
+- Just graduated law `school`.
+- Starting with this `school`.
+- The milton gregory `school`.
+- Where is the `school` house?
+- And sent 'em off to `school`.
+- But i like teaching `school`.
+- Carleton `school` of nursing.
+- Cook `school` -- that did it.
+- Everything's out of `school`.
+- High `school`, we're talkin'.
+- I got in trouble at `school`.
+- I had uhm--`school` business.
+- I'm going to finish `school`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "speaking in a sentence | speaking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "speaking"
+---
+- H-how many, `speaking`?
+- They're not `speaking`.
+- Why are you `speaking`?
+- Room service `speaking`.
+- This is chaz `speaking`.
+- What-are they `speaking`?
+- In a manner of `speaking`.
+- `Speaking` of stupid shit.
+- `Speaking` of which, duck!
+- Reading and `speaking`.
+- At least you're `speaking`.
+- `Speaking` of sandwiches...
+- Am i not `speaking` english?
+- Just a manner of `speaking`.
+- `Speaking` of arrangements...
+- `Speaking` of which, go fish.
+- That's your drugs `speaking`.
+- Why, he's `speaking` english.
+- Eh, mathematically `speaking`.
+- I was `speaking` of earth men.
+- `Speaking` of the vacant post.
+- We're not on `speaking` terms.
+- Why are we `speaking` chinese?
+- And i am `speaking` to you now.
+- In a manner of `speaking`, yes.
+- We're just `speaking` about it.
+- Now there's the poet `speaking`!
+- `Speaking` of green, how's eden?
+- `Speaking` of which, cash'll do.
+- At least you're `speaking` to me.
+- How come she isn't `speaking` up.
+- It's as if it's `speaking` to me.
+- Radioshack, bob newby `speaking`.
+- Slide of woman `speaking` to boy.
+- They aren't `speaking` to anyone.
+- They aren't `speaking` very well.
+- This is your opponent `speaking`.
+- What language are you `speaking`?
+- Financially `speaking`, of course.
+- This is general ripper `speaking`.
+- Yet here we are, still `speaking`.
+- Are you `speaking` to me in a code?
+- Mechanically `speaking`, you could.
+- Security, uh norm, norm `speaking`.
+- She's `speaking` trig for a reason.
+- Strictly `speaking`, it... it's me.
+- This is your supervisor `speaking`.
+- What baby are you `speaking` about?
+- You're `speaking` up for him again?
+- Am i `speaking` chinese in this house?
+- I'll be `speaking` to your supervisor.
+- We were not `speaking`, if you recall.
+- Hello, this is ms. magnuson `speaking`.
+- `Speaking` of feet, fuel's down to 4.0.
+- As if she had been `speaking` all along.
+- Sorry, am i `speaking` too fast for you?
+- This is captain pavel chekov `speaking`.
+- Well, typically `speaking`, they're not.
+- This is your family doctor `speaking` now.
+- Yeah, i-i was `speaking` mandarin chinese.
+- You're `speaking` of emotional investment?
+- Hey, `speaking` of wrong place, wrong time.
+- Theoretically-`speaking`, but what is that?
+- Trust me... they're not `speaking` russian.
+- Proteus for `speaking`, valentine for looks.
+- We can kill them off, chemically `speaking`.
+- Well, i recommend knowing before `speaking`.
+- ...we were `speaking` of my <u>father</u>...
+- `Speaking` of books, let's get you to school.
+- `Speaking` of which... we got what we wanted.
+- We are ready for the `speaking` of the names.
+- But the language he's `speaking` is universal.
+- He's in a tricky spot, emotionally `speaking`.
+- He's in a tricky spot, emotionally `speaking`.
+- `Speaking` of being out of phase with reality.
+- `Speaking` of which - if you'll excuse me ....
+- Wallace egregious residence, mandy `speaking`.
+- But where is scott lang, literally `speaking`?!
+- Dramatically `speaking` it makes perfect sense.
+- If he tries `speaking` to you, what's he doing?
+- `Speaking` of feeding things, what about dinner?
+- Well, where is scott lang, literally `speaking`!
+- `Speaking` of interfacing, i'd love to say hello.
+- But thank you for `speaking` to me as a godfather.
+- Hello, charlie - i didn't know we were `speaking`.
+- I'm `speaking` of the thing that makes us the same.
+- Assuming, they were not `speaking` at the same time.
+- Combat operations center, major mandrake `speaking`.
+- Don't be stupid man... am i `speaking` english here?
+- He is `speaking` about a baggage we never even meet!
+- [`speaking` grounder language] you mean the doctors?
+- `Speaking` of which... maybe he'll get back to work.
+- Are you `speaking` of the worm, or ... the spaghetti.
+- Well kid, i'm `speaking` of...your biological parents.
+- He's `speaking` our language, not the other way around.
+- ♪ ooh, you're the best friend ♪ when he was `speaking`.
+- Skaikru weapon in the hands i wasn't `speaking` to you.
+- `Speaking` of which, that's your nine o'clock in there.
+- When he speaks, i feel like he's `speaking` only to me.
+- You know, alan and i were recently `speaking` of dying.
+                 

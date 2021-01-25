@@ -1,0 +1,57 @@
+---
+title: "sweat in a sentence | sweat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sweat"
+---
+- Don't `sweat` it, man.
+- Don't `sweat` it, baby.
+- Don't `sweat` it, okay.
+- I am jack's cold `sweat`.
+- Hey man, don't `sweat` it.
+- Our palms start to `sweat`.
+- "blood, `sweat`, and canvas".
+- Don't `sweat` it, harrington.
+- Don't `sweat` the small stuff.
+- My `sweat`, my labor, my time.
+- That's good to `sweat` it out.
+- What do you mean, flop `sweat`?
+- `Sweat`, bad breath, everything.
+- That old lady makes him `sweat`.
+- The honest `sweat` of one's brow.
+- When i do sleep, i `sweat` a lot.
+- If you miss one, don't `sweat` it.
+- Until then, don't `sweat` it, huh?
+- Let him `sweat` for a little while.
+- For godsakes, try not to `sweat`.
+- Look at "blood, `sweat`, and canvas".
+- No `sweat`... see you guys in school.
+- In space, no one can hear you `sweat`.
+- Besides, you reek of `sweat` and horses.
+- Look at you, not even breaking a `sweat`.
+- The truth is never let them seeya `sweat`.
+- Then don't `sweat` it, george, you know why?
+- Don't `sweat` it -- we got him by the short hairs.
+- The leather chair was soaked through with `sweat`.
+- You ain't worthy to squeegee this man's back `sweat`.
+- Little beads of `sweat` forming in her naked cleavage.
+- I wouldn't sell you the `sweat` off a dead dog's balls.
+- ` kirk, bathed with `sweat`, suddenly shudders in pain.
+- Don't you know you should never let them see you `sweat`.
+- I `sweat` blood for five years and he checks for spelling.
+- For big daddy, calluses and `sweat` were the mark of a man.
+- I ain't tryin' to break a `sweat` for that sorry ass nigga.
+- But the tiny beads of `sweat` on your upper lip give you away.
+- I've got to save all my `sweat` for my meeting in three weeks.
+- I `sweat` to pay off my father's debts... and he's in his grave...
+- That's the `sweat` of a man who hasn't an honest bone in his body.
+- I'd wake up in a cold `sweat` and want to claw open a vacuum hatch.
+- My daddy never gave me anything without my having to `sweat` for it.
+- People dripping with `sweat`, working in the fields, hardly surviving.
+- The kind of person who plays three sets of tennis but doesn't `sweat`.
+- Well, great, that's no `sweat` -- i play video games better than anybody.
+- You've lost interest...you hardly even `sweat` any more when we have sex.
+- I can make it to texarkana and back in twenty-eight hours... that's no `sweat`.
+- Meanin' like a team of fellas go to work on her and she don't even break a `sweat`.
+- But i had this historic attack of flop `sweat` so they'll never let me another again.
+                 

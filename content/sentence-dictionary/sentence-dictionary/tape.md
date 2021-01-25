@@ -1,0 +1,107 @@
+---
+title: "tape in a sentence | tape example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tape"
+---
+- I'll study the `tape`.
+- Not on `tape`, i mean?
+- `Tape` his mouth shut.
+- What about the `tape`?
+- But it's my new `tape`.
+- Did you see the `tape`?
+- Do you have the `tape`?
+- I'll `tape` it for you.
+- It appears be a `tape`.
+- That's not your `tape`.
+- That's not your `tape`.
+- You watched the `tape`?
+- Did you get your `tape`?
+- I listened to my `tape`.
+- I make it out of `tape`.
+- I'm getting that `tape`.
+- Let's rewind the `tape`.
+- Play the goddamn `tape`.
+- Start the `tape`, lloyd.
+- You've got it on `tape`?
+- Did you make me a `tape`?
+- How'd you get the `tape`?
+- Interesting video `tape`.
+- My monday morning `tape`.
+- 's, you end up on `tape`.
+- You gave them the `tape`?
+- Did you bring that `tape`?
+- She said it on her `tape`.
+- How'd you get it on `tape`?
+- She never gave me a `tape`.
+- You got any `tape` or glue?
+- Did we `tape` the duke game?
+- It could have been a `tape`.
+- It's my voice on the `tape`.
+- Son, let's watch the `tape`.
+- Take the `tape` to the cops.
+- I'm not looking for a `tape`.
+- It looks excellent on `tape`.
+- It's the irish `tape` we want.
+- Neither does his blank `tape`.
+- That's why we made the `tape`.
+- Wait until you see the `tape`.
+- What happened with the `tape`?
+- Are you getting this on `tape`?
+- I say we `tape` him to a chair.
+- On this `tape` it says "donna".
+- That `tape` sucked, by the way!
+- Tommy, let's put the `tape` on.
+- I'd like to make another `tape`.
+- Is that the only `tape` you got?
+- Mantan, we got a show to `tape`.
+- Sacred and occult scotch `tape`.
+- Why don't you let me `tape` you?
+- You see any rain on that `tape`?
+- Car crashes caught on `tape`?
+- Are you sure it's not the `tape`?
+- I want the `tape` and i want him.
+- We've got the `tape` to prove it.
+- And the `tape`, it's... it's tiny.
+- ...and the `tape` will be running.
+- We trade; vig for that `tape`.
+- Goddamit, give me my `tape`, then.
+- I'm not interested in this `tape`.
+- I'm sure there's plenty of `tape`.
+- Iris made me a copy of the `tape`.
+- The high angle shot on the `tape`.
+- Would anybody else see the `tape`?
+- Does it say anything on the `tape`?
+- He watches every "guest" on `tape`.
+- I'm so glad we got that on `tape`!!
+- Is the `tape` incriminating or not?
+- It's like, you looked at my `tape`.
+- Oh i wish i got that one on `tape`.
+- The `tape` recording, is it enough?
+- The `tape` was a basic maxell d-80.
+- We've looked at half of one `tape`.
+- Why don't i just make you a `tape`?
+- You don't need to check the `tape`.
+- I'm not leaving without that `tape`.
+- I had it all on `tape`... found what?
+- I went back and watched the `tape`...
+- We could check the `tape` again, sir.
+- We got you on `tape` making the deal.
+- Here's a `tape` of birdson's exorcism.
+- It's why you couldn't hear the `tape`.
+- Load a new `tape`, turn the camera on.
+- Maybe i'll make you a `tape` tomorrow.
+- Maybe it's this mix `tape` i made you.
+- So...what did you think of the `tape`.
+- Would you like a tiny `tape` recorder?
+- But i'm gonna take back my duct `tape`!
+- Marsh was wearing a cast on the `tape`.
+- There was something else on the `tape`.
+- This is my favorite part of the `tape`.
+- We need to `tape` the interview, suzie.
+- He gives jessica the flowers and `tape`.
+- I just want to see what's on this `tape`.
+- I'm putting a piece of `tape` on my nose.
+- Well, he may `tape` an interview with us.
+- It's a piece of `tape` with my name on it.
+                 

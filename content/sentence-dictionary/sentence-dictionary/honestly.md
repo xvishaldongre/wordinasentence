@@ -1,0 +1,80 @@
+---
+title: "honestly in a sentence | honestly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "honestly"
+---
+- I `honestly` don't know.
+- I must speak `honestly`.
+- `Honestly`, we don't know.
+- `Honestly`, it's no problem.
+- `Honestly`, this isn't mine.
+- `Honestly`, what... who does?
+- I'm just beginning `honestly`.
+- `Honestly`, i hate working here.
+- I started talkin' all `honestly`.
+- Well, i `honestly` feel that way.
+- `Honestly`, it's a little old hat.
+- Oh -- no, they won't - `honestly`.
+- You `honestly` don't know, do you?
+- `Honestly`, why must i even bother?
+- `Honestly`, i think it's great news.
+- In the end, `honestly`, it's hubris.
+- You `honestly` think she'd miss that?
+- `Honestly` david, you're so spineless.
+- You can't `honestly` say you know him.
+- I can `honestly` say i'm a changed man.
+- I `honestly` wish i could... stay, huh?
+- `Honestly`, i don't really feel anything.
+- `Honestly` wrigley, i'm surprised at you.
+- Did you really, truly, `honestly` like it?
+- `Honestly`... new doc's working on a cure.
+- I can `honestly` say that i'm a changed man.
+- I'll tell you something, jez, `honestly` ...
+- `Honestly`, the suites are all about the same.
+- You `honestly` think that's what she meant?
+- Can you `honestly` tell me you wanted that life?
+- You `honestly` expect me to believe all this?
+- `Honestly`, i worry so much about that boy, - yes.
+- I-i `honestly` never intended for this to happen...
+- I mean, `honestly`, how do you keep your food down?
+- `Honestly`, sugar, you can talk more shit sometimes?
+- It's `honestly` more than we can say for the others.
+- Do you `honestly` think this is what kane would want?
+- `Honestly`, i wasn't on location for half this stuff.
+- `Honestly`, what do i have in common with those people?
+- `Honestly`, you look like something out of... pasadena.
+- Can you `honestly` tell me that you feel nothing for me?
+- Barton, `honestly`, only the last couple- i want to know!
+- If you `honestly` trust me, then you'll have to trust me.
+- She's `honestly` unlike anyone i've ever even met before.
+- But coming from you, i can't `honestly` say i'm surprised.
+- But i'm trying to see these things clearly and `honestly`.
+- Do you `honestly` believe that there are enough is that it?
+- `Honestly` harry, he got the mustang, i promise..... shelly?
+- Who�s ever heard of dance lessons for a wedding, `honestly`?
+- `Honestly` though, tell us, what's your favorite scary movie?
+- If you were diane court, would you `honestly` fall for lloyd?
+- `Honestly`, i don't know how you made it through the crusades.
+- ...you're money... ...`honestly`... ...you're like a big bear.
+- Do you `honestly` think that i want to be single and miserable?
+- We `honestly` don't give a shit about the kennedy assassination.
+- Are you `honestly` and truly going to prom with katrina de voort?
+- Do you `honestly` think cole's practice of word association works?
+- `Honestly`, i have never understood vulcan mysticism -- i'm sorry!
+- I'm talking about human beings communicating openly and `honestly`.
+- Doctor, tell me `honestly`, what do i have to do to get out of here?
+- `Honestly`, at this exact second, i thought you were a build-a-bear.
+- You <u>`honestly`</u> think you can explain this to my satisfaction?
+- I `honestly` don't know how i would have handled all this if i were you.
+- I can't say for certain what year it is because we `honestly` do not know.
+- `Honestly`, i'm still trying to figure out what happened to the first mouse.
+- Ever since this jet fiasco, i `honestly` don't know what has gotten into him.
+- Plus, `honestly` i have to get it out the garage before morgan takes it sledding.
+- I'm saying she doesn't have symptoms, `honestly`, i'm just trying to state a fact.
+- Sometimes -- tell me something, `honestly`, you ever have second thoughts about us?
+- You wouldn't want to go out with him anyway, `honestly`, he's such a freak sometimes.
+- But either way, we'll come back for you i `honestly` don't know where you get it from.
+- `Honestly`, it doesn't have that feel to it, but i'll certainly consider the possibility.
+- ...never... tried... a for effort, nick, `honestly`, a for effort and an honorary degree.
+                 

@@ -1,0 +1,83 @@
+---
+title: "knees in a sentence | knees example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knees"
+---
+- Put her on her `knees`.
+- You mean on my `knees`?
+- And get on your `knees`.
+- Get down on your `knees`.
+- Everyone, on your `knees`.
+- My `knees` are killing me.
+- On your `knees` right now!
+- Everybody, on your `knees`!
+- Hands and `knees`, you say?
+- On your `knees`, facing me.
+- Get on your `knees`, clarke.
+- I'm on my hands and `knees`.
+- Kiss the back of my `knees`.
+- They put him on his `knees`.
+- They're ok. on your `knees`.
+- Crawl on my hands and `knees`?
+- Did he get down on his `knees`?
+- Now let's get those `knees` up!
+- Kind of miss my `knees`, though.
+- On her `knees`, i have no doubt!
+- On your `knees` with the others.
+- We will bring him to his `knees`!
+- Get down on your `knees` - do it!!
+- I'm taking you out at the `knees`.
+- Such pretty `knees` for a big boy!
+- We bend our `knees` in submission.
+- Can i beg for mercy--on my `knees`?
+- I get on my `knees` and pray for it.
+- Is on his `knees` in front of ontari.
+- So ain't this just the bee's `knees`?
+- Why's his britches round his `knees`?
+- Have you ever bent your `knees`, malcolm?
+- He didn't get down on his `knees`, i hope.
+- I want you to hold it between your `knees`.
+- The storm last night, i... on your `knees`!
+- Yes... will you come to him on your `knees`?
+- Bring my `knees` up, <u>real</u> hard, yeh?
+- You didn't kiss anyone else's `knees`, did you?
+- I'll never go back to the company on my `knees`.
+- Theo scrambles up the lane on hands and `knees`.
+- You're gonna bring blockbuster to their `knees`.
+- Bell wants us to get down on our `knees` and bow.
+- Get down on your `knees` and kiss this man's feet!
+- Since i got a iron pipe put across my `knees`, man.
+- Say, why don't we get right down on our `knees` now?
+- When he had to get on his `knees` to put my boots on?
+- Do they get down on their `knees`, begging and crying?
+- Sid drops to his `knees` and cradles his damaged hand.
+- Just the man who's gonna see you driven to your `knees`!
+- Now just keep your `knees` together, and you'll be fine.
+- Don't ever get down on your `knees` again, understand?
+- You're the one who's got me on my `knees` in a dark alley.
+- For me, getting down on my `knees` is often a one-way trip.
+- I want to see them on their `knees`, begging for it to stop!
+- 'respected journalist'-- on your `knees`... are you kidding?
+- I oose to ﬁnd consolation they will fall to their `knees`.
+- We believe that this means that the kids hey, on your `knees`!
+- Mr. lipnik, please � get down on your `knees`, you sonofabitch!
+- You think he'd just fall to his `knees` and cry, "yes, i did it.
+- How about getting on your `knees` and communicating with my dick?
+- It's no weirder than that time our `knees` touched under the bar.
+- You want me to fall to my `knees` and start crying like a baby... ?
+- Johnny got down on his `knees` and proposed to me at the grand ticino.
+- The stone walls were high and i'd scrape my `knees` as i climbed over.
+- Forty- five minutes on your `knees` with the dry heaves... you bastard!
+- Sure, you probably stick it in tween her `knees` and think youse there.
+- Don't be too proud; never be too proud to go on your `knees` before god.
+- Cadogan could already have the code put him on his `knees`, and neutralized.
+- He can crawl on his hands and `knees` to china if that's what he wants to do.
+- I - uh - have this weak feeling in my `knees` -- i don't know who you are.
+- He left this fucking bloody morning... jesus, man, my `knees`... ...on holiday?
+- Their best people get down on hands and `knees` begging to be spared a knighthood.
+- You see, father -- i think of running for help, and falling to my `knees` in prayer.
+- Jim, come on, honey, get down on your hands and `knees` and hunt for jasper's easter egg.
+- No need to stop being a lady... quit worrying -- you'll be back on your `knees` in no time.
+- That sounds to me like you were dropping on your `knees` and saying, 'okay, adolf, you win.
+                 

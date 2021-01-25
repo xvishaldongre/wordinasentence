@@ -1,0 +1,89 @@
+---
+title: "fought in a sentence | fought example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fought"
+---
+- Tony you `fought` him.
+- What if they `fought`?
+- I even `fought` in ww2.
+- Tony, you `fought` him.
+- You `fought` for me...?!
+- You `fought` for things.
+- I `fought` for my country.
+- As you `fought` by my side.
+- Because we <u>`fought`</u>?
+- I've never `fought` anyone.
+- He's never `fought` me twice.
+- Well, he's never `fought` me.
+- We saw how she `fought` them.
+- Hid by day--`fought` by night.
+- Well, then, it must be `fought`.
+- I should have `fought` for you.
+- We `fought` our way out together.
+- They `fought` against the indians?
+- You `fought` like a child today...
+- But he never `fought` cassius clay.
+- I `fought` in the second world war.
+- My knights have `fought` my causes.
+- Benedict arnold `fought` here, baby.
+- I `fought` my way out of an embassy.
+- And that's why they `fought` so much.
+- I `fought` in the war, for crissakes!
+- That pasta `fought` hard for its life.
+- You `fought` for yourself, in your name.
+- I `fought` plenty of guys tougher'n them.
+- That's not the country luke `fought` for.
+- When we saw injustice, we `fought` it.
+- I have waited too long, `fought` too hard.
+- I thought only punks `fought` with knives.
+- `Fought` like a demon to develop atom subs.
+- You `fought` against the fascists in spain.
+- After that we `fought` with bows and arrows.
+- He would not stop talking while we `fought`.
+- Wars are not `fought` only by childless men.
+- As children `fought` to the death to lead us.
+- I should've stayed there, `fought` with them.
+- I `fought` for you... and i still fight for you.
+- The rebels have `fought` their way into the city.
+- So you really `fought` one of these things before?
+- He `fought` seventeen major engagements in the war.
+- I haven't `fought` with them, since i started here.
+- In 1936, you `fought` in spain on the loyalist side.
+- I’ve `fought` battles with worse wounds than this.
+- Are you the buljanoff who `fought` on the barricades?
+- Well, i haven't `fought` just one person for so long.
+- You were jealous, you `fought`, he fell, hit his head.
+- The man who `fought` side by side with the wolf of rome!
+- Is about to be `fought` when they removed the second a.i.
+- The finest astronauts `fought` to be posted to this ship.
+- We `fought` and killed in his name... the king of heaven!
+- I've `fought` for you viktor... you want to talk severance?
+- Do you know what they `fought` about that night he went away?
+- I want to give you your freedom, after this battle is `fought`.
+- Ya know, rock, remember when we was kids, we `fought` together.
+- I want the folks back home to understand why we `fought` this war.
+- This war is about to be `fought` looks like the suns are eclipsing.
+- The two best wars this country has `fought` were against the jerries.
+- All one in the same... that is why he `fought` carlotta for your life.
+- I `fought` the war and lost my eyes just so i could give you my change?
+- Your father `fought` at belleau wood, it took him years to get over it.
+- If we'd taken a different path or i hadn't `fought` the man for the ring.
+- Magua was taken as a slave by the mohawks who `fought` for the grey hair.
+- Some that didn't need to be `fought`, there's a woman with him, his wife.
+- There are guest issues to be `fought` out here--or to be argued, at least.
+- He `fought` his way through the trap and carried her body to a secret place!
+- Father... we `fought` and won battles, and now one man defeats all my knights?
+- If you'd `fought` one whit below your abilities i'd have scratched you a good one.
+- Five years past me clan `fought` another over some- thing i cannot even re- member.
+- Miss farmer, is it true you `fought` with the policeman who arrested you last night?
+- I went berserk in every battle i ever `fought` for king harald... you went berserk...
+- Well, you `fought` with them against the french and iroquois, how good were they then?
+- That is the way i'll meet my old- familiar enemy -- death --i have `fought` him before.
+- But i'ii tell you this: the battle of the bush is being `fought` and won by team mackey.
+- `Fought` the war and lost my eyes just so you could come around here and make fun of me.
+- It's time to get thrown from the treehouse... why are you--i `fought` for you with honor.
+- Explain that some jerk in a mask and costume `fought` a mad scientist with four tentacles?
+- The picards that `fought` at trafalgar, the picards that settled the first martian colony.
+- You worked a nice, quiet town, but you `fought` to get here as if your life depended on it.
+                 

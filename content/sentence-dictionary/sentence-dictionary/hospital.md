@@ -1,0 +1,107 @@
+---
+title: "hospital in a sentence | hospital example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hospital"
+---
+- I'm at the `hospital`.
+- I was in a `hospital`.
+- The mental `hospital`.
+- Big `hospital` in ussr.
+- He's in the `hospital`.
+- She's in the `hospital`.
+- Afraid of the `hospital`?
+- He needs `hospital` care.
+- He's left the `hospital`.
+- In the mental `hospital`.
+- It's `hospital` policy...
+- What `hospital` is he in?
+- I'll go to the `hospital`.
+- I'm out of the `hospital`.
+- Is the `hospital` covered?
+- I don' need a `hospital`...
+- Let's go to the `hospital`.
+- She died in the `hospital`.
+- Sent to the city `hospital`.
+- You should be in `hospital`.
+- His patients, the `hospital`?
+- In octavius' `hospital` room.
+- She's in a `hospital` nearby.
+- Then i was in the `hospital`.
+- We made it to the `hospital`.
+- Years ago, in the `hospital`.
+- You're out of the `hospital`.
+- He's in a `hospital` in miami.
+- I tried her at the `hospital`.
+- It's a psychiatric `hospital`.
+- My father's in the `hospital`.
+- One `hospital`, then the next.
+- She'll be going to `hospital`.
+- Somebody in a `hospital` gown.
+- You left me at the `hospital`.
+- You're leaving the `hospital`?
+- Better get him to a `hospital`.
+- Just mail it to the `hospital`.
+- She's afraid of the `hospital`.
+- Shouldn't i be in a `hospital`?
+- They got him to the `hospital`.
+- This man belongs in `hospital`.
+- Yeah, a psychiatric `hospital`.
+- You came out of the `hospital`.
+- He gets cold in this `hospital`.
+- I can' take you to a `hospital`.
+- Just part of `hospital` routine.
+- You meet him at the `hospital`.'
+- Can we get him to the `hospital`?
+- Drop you right at the `hospital`.
+- He was inna `hospital` two weeks.
+- I'll drive her to the `hospital`.
+- I'm taking you to the `hospital`.
+- Is this the community `hospital`?
+- I want you to see our `hospital`.
+- There's no need for a `hospital`.
+- This `hospital`, i'm not kidding.
+- Why did you go to the `hospital`?
+- You're in a `hospital` in london.
+- Had to take him to the `hospital`.
+- He works in a military `hospital`.
+- I'm here from a mental `hospital`.
+- I work out of the `hospital` here.
+- Tell the `hospital` to expect her.
+- We can't take him to a `hospital`.
+- What `hospital` were you going to?
+- You belong in a mental `hospital`.
+- You ever been inside a `hospital`?
+- Can you get me into the `hospital`?
+- He's out of the `hospital` already.
+- He talked to you at the `hospital`.
+- I'd better get you to a `hospital`.
+- I have an office in the `hospital`.
+- I have to go to the `hospital` now.
+- Is this the lying -- in `hospital`?
+- You'll go to the prison `hospital`.
+- That ain't no county `hospital`.
+- Can i go to the `hospital` with you?
+- ...how are things at the `hospital`?
+- I don't want to see your `hospital`.
+- I'll tell the `hospital` no excuses.
+- I'm at the `hospital` with driscoll.
+- I understand he's in the `hospital`.
+- _ opening a `hospital` is one thing.
+- So how are things at the `hospital`?
+- We ain't taking him to a `hospital`.
+- We got a report from the `hospital`.
+- Children's `hospital`, on the double.
+- Come on, we're going to a `hospital`.
+- Dylan's run away from the `hospital`.
+- I started to smoke at the `hospital`.
+- It's not a prison, it's a `hospital`.
+- Junior kim was doa at the `hospital`.
+- They're taking him to the `hospital`.
+- They told me later in the `hospital`.
+- We keep records of `hospital` visits.
+- We've got to get you to a `hospital`.
+- I brought it to you in the `hospital`.
+- We got two officers in the `hospital`.
+- A new pediatric wing at the `hospital`?
+                 

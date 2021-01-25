@@ -1,0 +1,55 @@
+---
+title: "Thelma in a sentence | Thelma example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Thelma"
+---
+- I don't know, `thelma`!
+- He said "okay, `thelma`.
+- For god's sake, `thelma`.
+- Look who it is, `thelma`.
+- I'm warning you, `thelma`.
+- Put a lid on it, `thelma`!
+- `Thelma`, i'm not hostile.
+- `Thelma`, i'm not kidding!
+- It means shut up, `thelma`.
+- Oh, i don't know, `thelma`.
+- `Thelma` kinda took to him.
+- What's not funny, `thelma`!
+- Have another drink, `thelma`.
+- So what's the plan, `thelma`?
+- `Thelma`, i'm going to mexico.
+- We're not giving up, `thelma`.
+- `Thelma`, do you understand me?
+- All right, `thelma`...that's it.
+- That's `thelma` dickinson's husband.
+- Well, what's the big rush, `thelma`?
+- Well, i guess i'd better... `thelma`?
+- Don't play innocent with me, `thelma`.
+- Just stop talkin' to people, `thelma`!
+- Murder one and armed robbery, `thelma`!
+- Aw, shit, `thelma`, he's gonna kill you.
+- I'll call `thelma` and remind her, okay?
+- `Thelma`, please get a hold of yourself.
+- Damnit, `thelma`, don't holler like that!
+- `Thelma`, if i die-- i don't mean a little favor.
+- And...and...henry chapman's girl, was it `thelma`?
+- If i'm not here, you go home with `thelma` and kim.
+- It's like i said, `thelma`, he just loves the chase.
+- `Thelma`, i've lost my wife, i'm not losing my child.
+- You get your ass back here, `thelma`, now, goddamnit.
+- No, `thelma`, i don't give a shit what we have for dinner.
+- For christ sake, `thelma`, is he your husband or your father?
+- Oh yeah, sure, `thelma`, that lantern will come in real handy.
+- Neither do i, `thelma`, but darryl does it, how hard can it be?
+- Y'know something `thelma`--you are the typhoid mary of divorce.
+- I mean, i just couldn't live... `thelma`, that is not an option.
+- We've not gonna get to the cabin till after dark as it is, `thelma`.
+- Look, ted, all i-- all right, `thelma`, you want to know what's going on?
+- I... how'd they find out we're going to mexico, `thelma`, how they know that?
+- There's one thing you oughta understand by now, `thelma`, it's not your fault.
+- `Thelma`, i'm gonna hit the little girls' room, and then we gotta hit the road.
+- Now, `thelma`, that is not... just the look on his face when you... ... it's not funny.
+- Well, not anymore, `thelma`, except for bustin' parole, i haven't done one wrong thing.
+- Only about a hundred people saw you cheek to goddamn cheek with him all night, `thelma`!
+                 

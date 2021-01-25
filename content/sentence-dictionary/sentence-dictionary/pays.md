@@ -1,0 +1,57 @@
+---
+title: "pays in a sentence | pays example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pays"
+---
+- Because it `pays` off.
+- He never `pays` his debts.
+- Who `pays` the rent on time.
+- It `pays` to humor the insane.
+- Nobody `pays` you for yardage.
+- Hey, gi bill `pays` for school.
+- My client `pays` for it anyway.
+- Sal `pays` you, you should work.
+- Who `pays` any attention to him?
+- I told you, the government `pays`.
+- It's what `pays` for your science.
+- Oh you know, whatever `pays` best.
+- One of us `pays` the other for half.
+- It's what `pays` for the whole party.
+- What do you think `pays` for all this?
+- Yes -- and `pays` the rent every month.
+- He `pays` top dollar for the... you see?
+- Either he `pays` now, or you don't do it.
+- I do construction, which `pays` real good.
+- It `pays` to know your way around, oliver.
+- I'm nice to people where it `pays` me to be.
+- I'm not the only one who `pays` here gordon.
+- Nobody comes... nobody `pays` any attention.
+- Price he `pays` for being a scumsucking pig.
+- You get a couple bucks, it `pays` for the ride.
+- But every now and then someone `pays` attention.
+- Now the factory `pays` us to do their dirty work.
+- That is, unless the world `pays` us a hefty ransom.
+- ...he `pays` for the deaths of my wife and daughter.
+- Hey, hon'--this is what `pays` the rent and tuition.
+- It `pays` to be a killer or a whore in this country.
+- `Pays` homeless guys ten bucks a head half the time.
+- That car wash `pays` good, and they're always looking.
+- As in the person who `pays` for your opulent lifestyle.
+- My date always `pays` more attention to you than to me.
+- Say what you like -- no one `pays` the least attention.
+- Who `pays` twenty thousand dollars for a ride to paris?
+- Everyone in the neighborhood `pays` him, even my father.
+- Okay, i'm only a secretary, oaky, but it `pays` the bills.
+- On the salary he `pays` me, i can't make my rent without it.
+- The people's liberation army `pays` for all food and lodging.
+- He checks in, `pays`, picks up the key, but never walks inside.
+- I'll tell you when somebody `pays` me to give a shit and stuff.
+- From million dollar deals to the ten bucks some guy `pays` for gas.
+- Whoever put you up to this either `pays` too well or misinformed you.
+- Nobody `pays` any attention to you if you don't swear every other word.
+- Walter never tells sara the truth about how much he `pays` for these things.
+- You know i think it `pays` to leave juice-making to the trained professionals.
+- Look, that thing about the pliers, i was just doing what the man `pays` me to do.
+- `Pays` his bill promptly, with money earned as a consume jewelry salesman -- wholesale.
+                 

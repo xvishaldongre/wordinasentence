@@ -1,0 +1,59 @@
+---
+title: "acid in a sentence | acid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "acid"
+---
+- I got some `acid` man.
+- Come in, prussic `acid`.
+- Pressurized salt `acid`.
+- Turns off the `acid` fog.
+- Tomorrow, the `acid` test.
+- What about the `acid` bath?
+- That'll neutralize the `acid`.
+- Did he get the `acid` fog down?
+- Hey, it could be nitric `acid`.
+- The occasional `acid` flashback.
+- After he took out the `acid` fog.
+- I can't, the `acid` will pour out!
+- ♪ i say ♪ um... perchloric `acid`.
+- That motherfucker -- `acid`-chewer.
+- Did you take out the `acid` fog yet?
+- I don't think the `acid` fog is down.
+- Don't tell me `acid`'s back in fashion?
+- I don't know, an `acid` hole in a duct.
+- You were burned by some organic `acid`.
+- "and has concentrated `acid` for blood."
+- I need your help on this `acid` fog deal.
+- You heard of a hacker called `acid` burn?
+- Or get high, drop `acid` at a friend's place.
+- Us dying in a cloud of `acid` fog find dante.
+- Did you find the source of the `acid` fog yet?
+- Our friends are safe and the `acid` fog is down.
+- Their parents all dropped `acid` in the sixties.
+- We talk, i told you `acid` fog was our priority.
+- We will, after bellamy turns off the `acid` fog.
+- I met her on the plane and i had all that `acid`.
+- Animals can't manufacture the amino `acid` lysine.
+- Were you burned by `acid`, or something like that?
+- We're getting to the bottom of this `acid` stomach.
+- `Acid` fog, then death by clarke... you want to bet?
+- That old guard likes you, you drop some `acid` on him.
+- I'll tell you what you want to know hydrochloric `acid`.
+- We're co-sponsoring the `acid` rain mixer at the sig ep.
+- Your `acid` fog can't hurt them, octavia, can you hear me?
+- Once bellamy shuts down the `acid` fog we won't expel bart.
+- Lysergic `acid` diethylamide... with a little kicker of my own.
+- You were going to throw him in a tub full of `acid`, weren't you?
+- I never saw anything like that in my life... except molecular `acid`.
+- Christ, if we keep her full of `acid` that's more like two grand a day.
+- To lower their defenses, turn off the `acid` fog, i'd say it's working.
+- And `acid` -- i make koolaid that makes purple owsley come on like piss.
+- I don't know it was made out of driftwood and dipped in sulfuric `acid`.
+- It won't hold up to that `acid`, but aside from that it's pretty strong.
+- It's huge now and must have tremendous amounts of that `acid` in its body.
+- I mean, i assume you don't like women very much, is the `acid` fog disabled?
+- You've got fear and hate in your belly like battery `acid`, all because of me.
+- I don't want you to go alone... have you found the source of the `acid` fog?
+- They can't keep a boatload of `acid` around and blame me for helping make that happen.
+                 

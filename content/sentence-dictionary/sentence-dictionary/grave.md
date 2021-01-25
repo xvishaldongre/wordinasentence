@@ -1,0 +1,75 @@
+---
+title: "grave in a sentence | grave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grave"
+---
+- A `grave`... what else?
+- On my mother's `grave`.
+- Swear on jimmy's `grave`.
+- But i've seen her `grave`.
+- `Grave` where thy victory?
+- He dugged his own `grave`.
+- And we'll dance on his `grave`.
+- I swear on my mother's `grave`.
+- I was in my warm, cozy `grave`.
+- I was just visiting...a `grave`.
+- His `grave` isn't there any more.
+- I better go get this `grave` dug.
+- I gotta show you jason's `grave`.
+- So i want to do him `grave` harm.
+- Her life may be in `grave` danger.
+- I swear it on my mother's `grave`.
+- This was not taken from a `grave`.
+- Poor freud, turning in his `grave`.
+- Have we turned `grave`-robber, then?
+- I think we could be at `grave` risk.
+- Our attendance was a `grave` mistake.
+- Father would be turning in his `grave`.
+- First i must visit my master's `grave`.
+- You can go to your `grave` not knowing.
+- You even steal flowers for his `grave`.
+- "zombie sluts from beyond the `grave`."
+- A friendly voice from beyond the `grave`.
+- I spent all day crawling out of a `grave`.
+- I'd like you to take me to his `grave`.
+- Will i really be able to dig him a `grave`?
+- There is a `grave` disturbance in the force.
+- Then i am only a cabman and a `grave`-robber.
+- Go to jim morrison's `grave` at pere lachaise.
+- You ever come to your father's `grave` anymore?
+- You personally'd be sending him to his `grave`.
+- All that i once loved lies in a shallow `grave`.
+- Bela's returned from the `grave` -- like dracula.
+- I think we should say some words over the `grave`.
+- These heathens probably have an open `grave` for us.
+- They stand at the edge of the `grave` and make jokes.
+- You knew i was sitting on a fresh `grave`, didn't you?
+- You mean you'll, like' dig your way out of the `grave`?
+- Ask for me tomorrow and you shall find me a `grave` man.
+- Thinking i saw freddy in the `grave` feels pretty crazy.
+- In his `grave` there was a cloth or a dress or something.
+- When they died i put them in a `grave` with my name on it.
+- Why is it every `grave` i open holds a new mystery inside?
+- William starks is dead... [beat] i've been to his `grave`.
+- Well, that's great, coming from a glorified `grave` robber!
+- This is real life with consequences you take to the `grave`!
+- About as good as can be expected with one foot in the `grave`.
+- Conklin's reaching out from the `grave` to protect his good name?
+- It was his irresponsibility that drove my husband to his `grave`.
+- She went to her `grave` not believing man had walked on the moon.
+- I sweat to pay off my father's debts... and he's in his `grave`...
+- My father was an alcoholic who drank himself right into the `grave`.
+- Why johnny ringo, you look like somebody just walked over your `grave`.
+- I declare, you'll let that money haunt you to your `grave`, willa harper!
+- The name's rico, at my own father's `grave`, a man deserves some respect.
+- Is there some `grave` impediment which prevents you from taking your vows?
+- "go ask his name--if he be married, my `grave` is like to be my wedding bed."
+- He'll not leave the `grave` -- not since wednesday last when we buried the lad.
+- She'd be alone up there, the fire would go out... damp and cold, like a `grave`.
+- You must say that you went to take some of the roses to your father's `grave`...
+- I have just stopped at mother's `grave`, to say goodbye, before coming to tell you.
+- You might as well be spitting on her `grave` every time you put drugs up your nose.
+- They're uncommon bold, the `grave` robbers -- and the daft doctors who drive them on.
+- They wouldn't dare put us in the same `grave`-- <b>or would they?</b> oh, no i'm not.
+                 

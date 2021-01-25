@@ -1,0 +1,7 @@
+---
+title: "simplicity's in a sentence | simplicity's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "simplicity's"
+---
+## Unfortunately, we have no example sentences for simplicity's                 

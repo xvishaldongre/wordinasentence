@@ -1,0 +1,107 @@
+---
+title: "settle in a sentence | settle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "settle"
+---
+- I want to `settle` up.
+- I won't `settle` down!
+- `Settle` down, alex...
+- `Settle` your affairs.
+- They want to `settle`.
+- All right, `settle` down.
+- We'll `settle` down soon.
+- We'll `settle` it tonight.
+- I'll `settle` for a pardon.
+- Let's just...`settle` down.
+- Liza, `settle` a bet for us.
+- I'd `settle` for being alive.
+- Let us `settle` this tomorrow.
+- We'll `settle` after the hand.
+- Would you `settle` for a boar?
+- Did we `settle` the fish thing?
+- It's time to `settle` accounts.
+- Not before i `settle` with you.
+- Then we `settle` up at the end.
+- We both got scores to `settle`.
+- We're trying to `settle` a bet.
+- Why should i `settle` for that?
+- Your friends can `settle` down.
+- C'mon guys, `settle` down -- ok.
+- Maybe it's time to `settle` down.
+- Would you `settle` for a husband?
+- Would you `settle` for pepperoni?
+- Can't we just `settle` this and...
+- I'll `settle` for a third of that.
+- I'm gonna `settle` down with jess.
+- I want to `settle` things tonight.
+- Only the sword will `settle` this.
+- All right, let's all `settle` down.
+- All right, man, just `settle` down.
+- A place we go to `settle` disputes.
+- How did you `settle` on the amount?
+- You'll have to `settle` for turkey.
+- I mean, i - i want to `settle` down.
+- And `settle` this business for johnny.
+- Get married, have kids, `settle` down?
+- I want you to `settle` on their terms.
+- Marietta, `settle` down now darlin'...
+- You're going to `settle` out of court?
+- I can't <u>afford</u> to `settle` down!
+- I'm thinking it's time to `settle` down.
+- No, i'll `settle` for half that in cash.
+- Did you `settle` things with mr. diebold?
+- I'd `settle` for one the size of a house.
+- Okay -- let's try and `settle` down here.
+- Have you something to `settle` with me?
+- Right now we have other things to `settle`.
+- Not before i `settle` with you, chickenshit!
+- Now `settle` down and explain to me calmly..
+- Would you `settle` for a pg-13 relationship?
+- Don't worry, i'll `settle` up with your boss.
+- Dude, you just gotta `settle` your shit down.
+- I want to find jacqueline to `settle` things.
+- Enough prisoners to `settle` this in the arena.
+- I'm gonna retire or `settle` down or something.
+- Okay, can you guys `settle` an argument for us?
+- But you've come out here to `settle` the strike?
+- Get married and `settle` down after high school?
+- I guess we'll have to `settle` for an execution.
+- Last night, al calls this bookie to `settle` up.
+- Now that i'm alone, i can `settle` down anywhere.
+- "we'll `settle` this at midnight on yellow hill."
+- You thought you'd come and `settle` the score?
+- I want to `settle` this thing and be done with it.
+- Little bill, a whippin' ain't gonna `settle` this.
+- You don't think they'll let us `settle` in canaan?
+- Would sir care to `settle` his bill in advance?
+- I loan a little money out, `settle` some arguments.
+- I'd say this is as good a time as any to `settle` up.
+- Well...i-i think we should wait till things `settle`.
+- What would you require to `settle` this matter today?
+- You know, someday, sarah, you're gonna `settle` down.
+- I'll give you the final bill now so we can `settle` up.
+- How about we `settle` this like we were in the basement?
+- I just had a little business to `settle` with mr. gordon.
+- So tell her to `settle` for the old one in orange county.
+- Dad and i have a surprise for you that will `settle` this.
+- I am going to get laid before i `settle` down on saturday.
+- If you want to `settle` for-- you think i can't learn that?
+- I'm sure i can get her to `settle` quietly for one million.
+- Row twenty-three, section c. i'll `settle` for l.a. county.
+- You `settle` right back, now, and i'll mix you your coffee.
+- Uh, no -- i've never really found the time to `settle` down.
+- Your eminence, there is only one way to `settle` the matter.
+- The archdiocese called, they want to `settle`... her estate...
+- I doubt bourne's in naples to `settle` down and raise a family.
+- I want you to `settle` these troubles with the rosato brothers.
+- If it please your honor, we <u>hope</u> to `settle` this matter.
+- Kind of comparison shop before we `settle` down and get married.
+- The archdiocese called, they want to `settle` ... her estate ...
+- They `settle` into their positions, and prepare to fire and die.
+- Let's `settle` with andy and put this whole tragic mess behind us.
+- Commander, please `settle` a dispute that my crew and i are having.
+- The chair has yet to `settle` the question to its own satisfaction!
+- Look, give me a break, you're going to have to `settle` for her place.
+- You certainly shouldn't `settle` for anything less that you deserve.
+                 

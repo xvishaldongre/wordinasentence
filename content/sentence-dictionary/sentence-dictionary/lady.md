@@ -1,0 +1,107 @@
+---
+title: "lady in a sentence | lady example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lady"
+---
+- Oh my `lady`, my love!
+- Siddown, young `lady`!
+- A daisy for the `lady`.
+- Annie's a smart `lady`.
+- I have seen the `lady`.
+- Listen, young `lady`...
+- The `lady` of the lake.
+- There's no `lady` here.
+- Where's the old `lady`?
+- Why not ask the `lady`?
+- You, a `lady` of title!
+- Your `lady` friend did.
+- A `lady` threw it to me.
+- Don't be stupid, `lady`.
+- Don't have a `lady` cow.
+- For cuttin' up a `lady`.
+- I am a `lady` detective.
+- Like the `lady` herself.
+- Pipe down, brain `lady`!
+- That is one mean `lady`.
+- Who said i was a `lady`?
+- Who's the lovely `lady`?
+- You look sad, my `lady`!
+- Your caboose, my `lady`.
+- You're the lunch `lady`.
+- I don't know you, `lady`.
+- I'm waiting for a `lady`.
+- Is your `lady` beautiful?
+- `Lady` tessier is frigid.
+- Oh nonsense young `lady`.
+- Tell the `lady` to relax.
+- That `lady` is back, sir.
+- That `lady`'s an asshole.
+- Whatever you say, `lady`.
+- What will the `lady` say?
+- You're a nice old `lady`.
+- You're the flower `lady`.
+- He's a real `lady` killer.
+- How doth my `lady` juliet?
+- I heard ya `lady` is wild.
+- Oh lean over here, `lady`.
+- The `lady`�s not a friend.
+- What're you, a bag `lady`?
+- Where is my `lady`'s lord?
+- You the bug `lady`, right?
+- Doctor `lady` make it irey.
+- Do you know this my `lady`?
+- Gonna change, young `lady`.
+- Here's the starring `lady`.
+- How's the beautiful `lady`?
+- I don't hear no fat `lady`.
+- It's no place for a `lady`.
+- Miss `lady` jones..anybody.
+- My `lady`'s country cousin.
+- That's all you got, `lady`.
+- This `lady`'s here for you.
+- Was there an old `lady` --?
+- Where is the little `lady`?
+- Young `lady`, you're drunk!
+- I come for my `lady` juliet.
+- Is that right, young `lady`?
+- I want to work, miss `lady`.
+- `Lady`, don't let him do it!
+- Look, `lady`, that's enough.
+- More `lady` problems, chief?
+- That's dishes, young `lady`.
+- The `lady` from my marriage.
+- Then perhaps for the `lady`.
+- The old `lady` by the swamp.
+- You're a good sport, `lady`.
+- Your pen palls dead, `lady`.
+- A long dress... yeah, `lady`!
+- But she's such a nice `lady`.
+- How d'you do, good `lady` ...
+- I didn't protect him, `lady`.
+- I think the `lady` called it.
+- Jesus christ `lady`... noooo!
+- `Lady` has some deep pockets.
+- `Lady`, i'm here to help you.
+- Not the old `lady` next door.
+- She was a `lady` in distress.
+- That dusky-hued `lady` satan.
+- That's a nice scream, `lady`.
+- You're damaged goods, `lady`.
+- You sure are a pretty `lady`.
+- ...and little `lady` beatrice?
+- But you're a `lady` all right.
+- He is traveling with a `lady`.
+- I didn't make the law, `lady`.
+- `Lady`, try making some sense.
+- Okay, young `lady`, that's it.
+- So, your `lady` live out here?
+- This is not `lady` van tassel.
+- We called her `lady` e. elois?
+- [gunshot] old `lady`... kids...
+- He gets shot by the old `lady`.
+- I'm going out that way, `lady`.
+- `Lady` viola is pious, my lord.
+- Ooo, the little `lady`'s upset.
+- Talk away, `lady` of my dreams.
+                 

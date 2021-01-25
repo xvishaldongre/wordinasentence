@@ -1,0 +1,53 @@
+---
+title: "searching in a sentence | searching example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "searching"
+---
+- They're `searching` my room.
+- `Searching` for a wind break.
+- `Searching` passenger profiles.
+- That makes you keep `searching`.
+- They're `searching` the station.
+- We've been `searching` all night.
+- Don't spend too much time `searching`.
+- I've ordered them to keep `searching`.
+- I'm still `searching` for a "response."
+- It was still `searching` for meaning...
+- What are we `searching` for, mr. spock?
+- That's what serafine is `searching` for.
+- You kept `searching` me last night, sir.
+- Because it's what you're `searching` for.
+- You've been `searching` for it for years.
+- What you're `searching` for is "altruism."
+- `Searching` for it in scavenged technology.
+- Even now it's mentally `searching` to find you.
+- `Searching` for the drunkest skirt in the room.
+- Police are still `searching` through the debris.
+- Something i've been `searching` for all my life.
+- We left a unit in the field to keep `searching`.
+- We're still `searching` for the tunnel entrance.
+- Did he say why you were `searching` for trilithium?
+- I think the word you're `searching` for is "genius."
+- Every day more bounty hunters are `searching` for me.
+- If it was a god, it was `searching` for a greater one.
+- I'm `searching` for patterns in the noise, that's all.
+- I've got men `searching` the building and the grounds now.
+- I've had detectives all over the country `searching` for her.
+- ♪ `searching` for that other high ♪ please don't... no... aah!
+- I have teams `searching` the woods, becca's journal is amazing.
+- I think you're `searching` for answers in all the wrong places.
+- They've got the sacred stones that indy was `searching` for.
+- I know what you're feeling, but they're `searching` the station.
+- I've done a lot of soul `searching` and once again you are right.
+- Excuse me, i think the word you're `searching` for is space ranger.
+- I don't want you drunk out- ta your head `searching` my office ag- ain.
+- I just can't leave without first `searching` those islands, one by one.
+- Either way, what we're `searching` for is here... shields up, captain --?
+- `Searching` for other survivors from the ark, why would we want to leave?
+- All i want is a hug from my mommy `searching` for it in scavenged technology.
+- I didn't think the police went `searching` for people who weren't in trouble.
+- The last thing i need is you going into my room `searching` for this while i'm away.
+- Although a cartoon i feel he shares a universal theme: we are all `searching` for love.
+- I stood alone on the green, `searching` for something, and i started to walk to the church.
+                 

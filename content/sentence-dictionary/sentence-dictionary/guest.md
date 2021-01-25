@@ -1,0 +1,107 @@
+---
+title: "guest in a sentence | guest example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guest"
+---
+- You are a `guest` now.
+- You're a `guest` here?
+- Go ahead, be my `guest`.
+- And take my `guest` room.
+- Another surprise `guest`.
+- Musical `guest`, pitbull.
+- Our other dinner `guest`.
+- You be our `guest`, jack.
+- Where is this `guest`?
+- Stay in the `guest` house.
+- We'll have a `guest` then.
+- When i'm `guest` of honor?
+- You were never my `guest`?!
+- Listen...i'm a `guest` here.
+- You've got a new `guest`.
+- Relax, burn, he's my `guest`.
+- The `guest` of honor at last!
+- Are you a `guest` of the club?
+- Do come and meet your `guest`.
+- Not our mystery `guest` again.
+- Uncle louis, we have a `guest`!
+- Zev, we have a special `guest`.
+- Perhaps he's visiting a `guest`.
+- Surprised he's not your `guest`.
+- This is malcolm, our new `guest`.
+- You're an honored `guest`, eddie.
+- "`guest` of st. katherine's" deal.
+- We welcomed you as our `guest`.
+- He watches every "`guest`" on tape.
+- It's all right -- you're my `guest`.
+- You'll stay the night as my `guest`.
+- He's a `guest` in my house, isn't he?
+- Price didn't make the `guest` list...
+- The `guest` list is quite restricted.
+- Our `guest` today is pierre delacroix.
+- We are having a `guest` for breakfast.
+- Yes, i can help you with your `guest`.
+- This stuff could kill... be my `guest`.
+- If you can figure it out, be my `guest`.
+- Tom -- he's our `guest`, not a prisoner.
+- We -- we have to go to the `guest` room.
+- How's our new `guest` settling in - ?
+- My parents put mine in the `guest` house.
+- That she spills wine over my house `guest`.
+- If it helps bring her back, be my `guest`...
+- You wanna eat through a tube, be my `guest`.
+- Doesn't include touring and `guest` lectures.
+- Now we know how the `guest` list was made up.
+- I'm taking our `guest` down to see her whales.
+- In my house you're a `guest`, not a director-!
+- You, batman -- you're the `guest` of honor!
+- John, call a limousine for our `guest`, please.
+- You'd think i'd never had a house `guest` before.
+- But if i were you, i'd leave our `guest` is awake.
+- I'm looking for a last-minute `guest` for my show.
+- I put her in the `guest` room, just down the hall.
+- You want to be a bum all your life, be my `guest`.
+- But i think my other `guest` may disagree with you.
+- You're a..."`guest`" of the master control program.
+- If any of you would care to join her, be my `guest`.
+- If you're so happy with them, please, be my `guest`.
+- <i>i was asleep in mum's `guest` house.</i> <b> int.
+- I'm the one who got you on mr. cukor's `guest` list.
+- I think my `guest` might be a sharpshooter by trade.
+- I would like to introduce you to our `guest`, dr wu.
+- Oh, leonard, have you met our distinguished `guest`?
+- We have a surprise `guest` star waiting in the wings.
+- You going to send your mystery `guest` an invitation?
+- But you are an honored `guest` of the united states...
+- Come with me to my house and i'll make you my `guest`.
+- `Guest` lists of every a-list party on turnover night.
+- I turned the `guest` bedroom into a writing studio.
+- I was never - i was never your `guest` at the tangiers.
+- Be my `guest`, agent kulok, scrub suits are in the back.
+- What if we were to put bruce into the park as a `guest` ?
+- That mail room kid was the longest lasting "`guest`" yet !
+- I mean -- "two guaranteed `guest` shots for tony clifton"??!
+- Is it okay for the `guest` to see the food before the dinner?
+- If you don't mind driving, i'd like to take you as my `guest`.
+- It's so very kind of you to have me as a `guest` in your home.
+- I distinctly remember striking your name from the `guest` list.
+- I was just wondering where my english house `guest` had got to.
+- I can either walk you home, or you could crash in the `guest` room.
+- I shall take the gentleman to the third floor `guest` suite, ma'am.
+- I told them we're old friends and you were my `guest` at the party.
+- Terry -- i don't believe i know where the upstairs `guest` room is.
+- Dr. jones, in our country a `guest` does not usually insult his host.
+- How'd you make your `guest` list, price: throw darts at a phone book?
+- It's rude not to eat when you're a `guest` in someone's home, clarke.
+- Our `guest` tonight is the extraordinary, talented performer, mantan.
+- You said you'd ask grierson about putting our `guest` somewhere else.
+- You're my `guest` from now on - forever and a day - even unto eternity!
+- He was always a good `guest`, never made a noise, never bothered a soul.
+- There are `guest` issues to be fought out here--or to be argued, at least.
+- However, if you'd like to operate on him yourself right now, be my `guest`.
+- After he left i had a dream that he signed a lease to rent our `guest` room.
+- I gave you a goddamn `guest` list two pages long -- where the hell are they?
+- The baron couer de noir is his `guest` and must be provided with some sport.
+- I once heard itzhak perlman `guest` star with the chicago symphony orchestra.
+- I've already overlooked the fact your name's not actually on our `guest` list.
+                 

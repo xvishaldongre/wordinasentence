@@ -1,0 +1,107 @@
+---
+title: "eight in a sentence | eight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eight"
+---
+- `Eight`, it says here.
+- `Eight` years, though.
+- It took `eight` hours.
+- `Eight` and two thirds.
+- `Eight` forty-two, sir.
+- `Eight` hundred is bid.
+- `Eight`, six, and four.
+- Forty-`eight`, i guess.
+- Not for `eight` months.
+- Twenty `eight` hundred.
+- Ummm -- figure `eight`?
+- `Eight` and twenty-four!
+- `Eight` and twenty-four.
+- `Eight` master bedrooms.
+- `Eight` million dollars.
+- `Eight` o'clock tonight.
+- I need my `eight` hours.
+- Six, `eight` hours tops.
+- The whole `eight` units.
+- Told you it was `eight`.
+- Between `eight` and five.
+- `Eight`, nine months ago.
+- `Eight` thousand dollars.
+- `Eight` with six fathers.
+- Fires the eighty-`eight`.
+- I'll give you an `eight`.
+- I'm `eight` and i get it.
+- It's been `eight` months.
+- Jobs, `eight` to 12 jobs.
+- Let's make it at `eight`.
+- Seven, `eight` years ago?
+- Signing bonus of `eight`.
+- Twenty `eight` years ago.
+- You lasted `eight` weeks.
+- ... a hundred and `eight`?
+- `Eight` mirvs per missile.
+- `Eight`, nine car lengths.
+- How'd we ever win `eight`?
+- I have... `eight`-fifteen.
+- Impact in `eight` seconds!
+- It's only `eight` o'clock.
+- Leo's twenty-`eight`, cal.
+- Seven and `eight` and huh.
+- Steer to one `eight` five.
+- We're `eight` and sixteen.
+- `Eight`, almost nine years.
+- `Eight` o'clock, everybody!
+- `Eight` o'clock in my room?
+- Eighty-`eight` years to go.
+- I'm at marker `eight`-five.
+- I told max `eight` o'clock.
+- I was... `eight` years old.
+- I wear a size `eight`, too.
+- That was `eight` years ago.
+- The `eight` ball challenge?
+- `Eight` -- and seven months.
+- `Eight` quadrillion dollars.
+- Hundred and `eight` already.
+- I don't finish till `eight`.
+- I'd say `eight`, maybe nine.
+- In `eight` years i owned it.
+- I plat it out `eight` units.
+- I wadn't but six or `eight`.
+- Man, i already done `eight`.
+- Okay, pick me up at `eight`.
+- She died when i was `eight`.
+- Twenty-`eight` years, frank.
+- 'bout `eight`, if that suits.
+- `Eight` and a half feet wide!
+- `Eight` cups of coffee worth.
+- `Eight`-thirty in the chapel.
+- `Eight` years is a long time.
+- Five, seven, `eight` dollars.
+- Forty-`eight` hours, old man.
+- I got `eight` thousand yards.
+- I'm thirty-`eight` years old!
+- I've got forty-`eight` hours.
+- There's only seventy-`eight`.
+- `Eight` hundred, give or take.
+- Eighty-`eight` miles per hour!
+- I don't know, `eight` or nine.
+- Like twenty-`eight` years ago.
+- Not see him for `eight` years.
+- Okay--i'll be here at `eight`.
+- Six to six, sometimes `eight`.
+- Uh, ever since he was `eight`.
+- We're home by `eight` o'clock.
+- `Eight` o'clock on the dot.
+- `Eight`, seven, six... ready 4.
+- I'll be on the dock at `eight`.
+- King-five-four gets an `eight`.
+- She's workin' two till `eight`.
+- Shooting at maybe `eight` feet.
+- You have fifty-`eight` seconds.
+- You sold `eight` mountain view?
+- Zoey: try zero-one-`eight`-six.
+- I guess it is `eight` forty-two.
+- I have a date at `eight`-thirty.
+- I've got `eight` hundred pounds.
+- That'll be thirty-`eight` cents.
+                 

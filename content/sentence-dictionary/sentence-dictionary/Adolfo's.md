@@ -1,0 +1,7 @@
+---
+title: "Adolfo's in a sentence | Adolfo's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Adolfo's"
+---
+## Unfortunately, we have no example sentences for Adolfo's                 

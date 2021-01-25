@@ -1,0 +1,65 @@
+---
+title: "stairs in a sentence | stairs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stairs"
+---
+- Up the `stairs`, keith.
+- Go up the `stairs`, judy.
+- Hit those `stairs` again.
+- What, is it the `stairs`?
+- They want you up `stairs`.
+- First door up the `stairs`.
+- The `stairs` are collapsed.
+- The `stairs` are collapsed.
+- So, just guard the `stairs`?
+- I was repairing the `stairs`.
+- Take the `stairs` over there.
+- There are `stairs`, you know.
+- The `stairs` from the street.
+- I think i'll take the `stairs`.
+- Up the `stairs` - down the hall.
+- The `stairs` are right near here.
+- Wait until he is on the `stairs`.
+- Something wrong with the `stairs`?
+- She just slithered up the `stairs`.
+- It's just up the `stairs` we passed.
+- No footsteps coming up the `stairs`.
+- She thinks i fell down the `stairs`.
+- He's heading down the `stairs`, now..
+- I'm sorry we had to take the `stairs`.
+- _ we've got movement up the far `stairs`.
+- How 'bout when you went down the `stairs`?
+- If we go up the `stairs` now, we'll make it.
+- Well, it's one way to get her down `stairs`.
+- He'll probably kick me right down the `stairs`.
+- This one has been nothing but climbing `stairs`.
+- I was going up these `stairs` to hobbs' apartment.
+- Liberty bell's still getting the hang of `stairs`.
+- If you don't mind, use the back `stairs`, all right?
+- I want you to help me take this woman down `stairs`.
+- How many times did you carry my piano up the `stairs`?
+- Just to that place down at the bottom of the `stairs`.
+- Top step of the front `stairs`, there's a loose stone.
+- I was on my way down the `stairs`... alfredo, damn him!
+- I had an accident - i fell down `stairs`... what happened?
+- He crept up these `stairs` and made his way into this room.
+- Right through the kitchen you'll see the basement `stairs`.
+- Let's see you carry six large pies up six flights of `stairs`.
+- Go down the hall, turn left, up those `stairs`, then turn right.
+- We'll go down the `stairs` and out the front door, you understand?
+- Honey, why don't you go up the `stairs` and go look under your bed.
+- I saw him burning on the basement `stairs`, he never reached the top.
+- You said it was an emergency, and i didn't ge- i ran up the `stairs`.
+- Last suspect he took in, butter-fingers dropped her down the `stairs`.
+- There was a guy outside - on the `stairs` - you really need to talk to.
+- When we go down those `stairs`, i want you to scream what you just told me.
+- Oh well, then i'll put some cookies at the top of the `stairs` for you gals.
+- It's up some `stairs` this place, so we'll stick out like balls on a bulldog.
+- I'm the one who brings the devil's brandy... go down `stairs` and play nice...
+- Anyone but me comes down these `stairs`, take em out but try and keep him alive.
+- I was coming down the `stairs`, and there was the watchman lying dead at my feet.
+- That's as much as a page of the back `stairs` gets and that job's only for toffs.
+- Must be all the exercise i get scampering up and down these `stairs` like a wee lamb.
+- There's no `stairs`, there's no exit, it has nothing to do with barb and she's missing.
+                 

@@ -1,0 +1,70 @@
+---
+title: "bug in a sentence | bug example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bug"
+---
+- Brooks ain't no `bug`.
+- Let's `bug` out of here.
+- So the `bug`'s in place?
+- Crushed her like a `bug`.
+- From a chicken, `bug`-wit.
+- It's gonna be a `bug` out.
+- You drink `bug` repellent?
+- You the `bug` lady, right?
+- Get -- the -- `bug` -- off!
+- I didn't want to `bug` you.
+- The room has a `bug` in it.
+- Denning was wearing a `bug`.
+- We're supposed to `bug` out.
+- With the `bug` guy, poached.
+- The `bug` is enchanted surely.
+- You piece-a-shit `bug` zapper!
+- In the meantime don't `bug` me.
+- Here's a few things that `bug` me.
+- I got a planet check on that `bug`.
+- But not a `bug` `bug`-- it's an insect.
+- So go out and kill a `bug` for dizzy.
+- It's gonna `bug` the shit out of harp.
+- Let's just `bug` out and call it even.
+- She's got a bit of a `bug` up her ass.
+- If you've got a `bug` problem-a big one.
+- Looks like a `bug` was in his brain, sir.
+- Because i am your `bug`-eating nude fatso.
+- I'm sorry that `bug` up your ass had to die.
+- But with compassion and insight-- like a `bug`.
+- I'm no more than a `bug` on a windshield to you.
+- You want to `bug` us till we have to lock you up.
+- You know how that can just `bug` a guy, don't you?
+- Is that `bug` juice, or are you just glad to see me?
+- I know this because you're beginning to not `bug` me.
+- It's a...a `bug`...a parasite that infects the brain.
+- Me, i start to `bug` out after too much time out here.
+- So you don't have to `bug` me about that shit anymore.
+- Look, man, let's just `bug` out and call it even, okay?
+- Well, at least you didn't lose your lunch over a `bug`.
+- His children how mind drives work then we're `bug` food.
+- Even if it was a `bug` they would have taken it with 'em.
+- You all of a sudden got this `bug` you had to go surfing?
+- So here's the deal -- i don't `bug` you, you don't `bug` me.
+- Up and down, up and down, until he squashed her like a `bug`.
+- Is this gonna be a stand-up fight, sir, or another `bug` hunt?
+- They can look at me like a `bug` under glass, if they want to.
+- We have a zero `bug` attacking all the login and overlay files.
+- You are her revenge, and every `bug` you kill honors her death.
+- Is this going to be a stand-up fight, sir, on another `bug`-hunt?
+- Even that little `bug` you found in sudbury seems to have taken off.
+- But i don't want to `bug` you if you're trying to write or something.
+- But times have changed, and you been in that `bug` house a long tine.
+- You should've called a few times to `bug` me about your job prospects.
+- What nasty `bug` crawled up your bungus and where the hell are you going?
+- Hunter's making it our job because sandra van ryan's got a `bug` up his ass.
+- I'm the one who gave him the idea for the combination `bug` spray-sun screen!
+- Let's get some armor on her, and the we'll get outa this stinkin `bug` hole !
+- Right out in the car i happen to have some old overalls and a `bug` spraying rig.
+- Look, time was a shot of penicillin could knock off every bloody `bug` in the zoo!
+- But if you even so much as break wind on a country road i'll crush you like a `bug`.
+- You've provided us with a golden opportunity to have both the `bug` and the `bug` killer.
+- This shoshone medicine woman taught me how to make `bug` repellent tea out of tree root.
+- Well, if that's the crop, that must be the gastric caecal... aw, c'mon, it's just a `bug`.
+                 

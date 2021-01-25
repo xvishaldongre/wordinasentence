@@ -1,0 +1,60 @@
+---
+title: "precious in a sentence | precious example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "precious"
+---
+- Jewels are `precious`.
+- You're `precious` to me, rose.
+- Which `precious` homily was it?
+- You're comin' home, `precious`.
+- You have `precious` little time.
+- But my days are `precious` to me.
+- Your `precious` little... my, my...
+- You're both wasting `precious` time.
+- Life is simply too `precious` not to.
+- To get your mom's `precious` picture.
+- You want him on your `precious` earth ii?
+- I didn't break your `precious` clock, roy!
+- I mean it's a life, life is so `precious`.
+- They're so `precious` when they're asleep.
+- To bring you back your `precious` commander?
+- How's your `precious` little school-marm today?
+- We're gonna shoot your `precious` trash can mom.
+- Because i'd rather not waste our `precious` time.
+- This woman is mankind's most `precious` possession!
+- Whether it impacted our `precious` freedoms or not.
+- Dewey kept the trailer and my `precious` baby rufus.
+- Whether it impacted our `precious` freedoms, or not.
+- Not even you would surrender something so `precious`.
+- No, that's,..that's fine is that something `precious`?
+- Are you giving your `precious` child what's true sight?
+- Does my line of work make you uncomfortable, `precious`?
+- You get back to chatting with your `precious` customers.
+- No, you need only take away what is most `precious` to him.
+- You were very careless with our `precious` jewels, my dear.
+- Hey, would you not worry about your `precious` little necks?
+- If i was bianca, it would be, "any school you want, `precious`.
+- Liberty is too `precious` to get buried in books, miss saunders.
+- To tell me life is more `precious` than what i feel for my wife?
+- In naples this was so `precious` it would have bought you a wife.
+- Errand number two, pack some clothes and his `precious` saxophone.
+- But this `precious` depository of your memories is here send riders.
+- A kilo of coca is smaller than a kilo of your `precious` marijuana.
+- Don't let him leave without these new `precious` hours you've got left.
+- ♪ love and marriage, love and marriage ♪ my most `precious` possession.
+- Well look, i know that all you care about is your `precious` mini-bike.
+- You're more than three hundred light years from your `precious` planet.
+- Why are we peddling our `precious` possessions to the world at this time?
+- Go tell your `precious` princess ... luke is dead unless he shows up soon.
+- To take a little puppy and smash its skull...just so `precious`, so beautiful.
+- You're ill, my `precious` and i'm going to give you what you need to get well.
+- Suppose one of your `precious` wards had attempted to walk on water and drowned?
+- I have no intention of ever taking your `precious` daughter out again in her life.
+- It's her fault for not watching over my `precious` son, as if it were her priority.
+- No, i won't wait -- i can't -- every day is `precious` -- every hour -- every minute.
+- Well, her grandparents are down in oklahoma, but that's it... aren't they `precious`?
+- My time's `precious` and i think that's a reasonable price to pay for your sorry life.
+- What if your seven and a half `precious` liters were downloading over the parquet floor?
+- All life is `precious` to god -- even his -- even yours and mine... jeanne... let him do it.
+                 

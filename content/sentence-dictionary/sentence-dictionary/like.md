@@ -1,0 +1,107 @@
+---
+title: "like in a sentence | like example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "like"
+---
+- At a time `like` this?
+- A world `like` this...
+- Because i `like` them.
+- Be friendly `like` us.
+- Bloom `like` a flower?
+- But i `like` to do it.
+- But never `like` this.
+- But not `like` asians.
+- Did it go `like` that?
+- Don't you `like` that?
+- Don't you `like` them?
+- Don't you `like` this?
+- Do you `like` england?
+- Do you `like` it here?
+- Do you `like` massage?
+- Do you `like` my body?
+- Do you `like` my tomb?
+- Do you `like` pigeons?
+- Do you `like` to read?
+- From you, i `like` it.
+- Girl's `like` it slow.
+- Going on... `like`...?
+- He doesn't `like` you.
+- Hell yes, i `like` it.
+- He looks `like` a cop.
+- Him dying `like` that.
+- How did you `like` it?
+- How do you `like` her?
+- I also `like` bananas.
+- I'd `like` to do that.
+- I'd `like` to explain.
+- I'd `like` to go back.
+- I'd `like` to go, sir.
+- I'd `like` to hear it.
+- I'd `like` to see him.
+- I'd `like` to see you.
+- I'd `like` to, thanks.
+- I'd `like` you to try.
+- I do not `like` boots.
+- I don't `like` alarms.
+- I don't `like` coffee.
+- I don't `like` snakes.
+- I don't `like` this...
+- I feel `like` dancin'.
+- I feel `like` dancing!
+- I feel `like` dancing.
+- I feel `like` driving.
+- I feel `like` they do.
+- I `like` depeche mode.
+- I `like` distinctions.
+- I `like` it fine here.
+- I `like` it here, bao.
+- I `like` it on my own.
+- I `like` it very much.
+- I `like` it well done.
+- I `like` mookie a lot.
+- I `like` sagittarians.
+- I `like` that... yeah!
+- I `like` the burgundy.
+- I `like` the cartoons.
+- I `like` these people.
+- I `like` to talk, too.
+- I `like` where i'm at.
+- I `like` you, country.
+- I `like` your stories.
+- I mean, i'd `like` to.
+- I'm just `like` you...
+- In times `like` these.
+- I really `like` annie.
+- Is it `like` eichmann?
+- Is it `like` they say?
+- I swing `like` reggie.
+- It seems `like` anger.
+- It's `like` a pyramid.
+- It smells `like` snow.
+- It sounds `like` madi.
+- It tastes `like` fish.
+- It was `like` a dream.
+- It wasn't `like` that!
+- It wasn't `like` that.
+- Just `like` old times.
+- Just `like` old times?
+- Just `like` that, huh?
+- Just `like` the mcrib.
+- Just `like` the movie.
+- Just `like` the plane.
+- Kind of `like` a 'fro.
+- `Like` a giant shadow.
+- `Like` a glamour girl.
+- `Like` all the others.
+- `Like`, "a lot" a lot?
+- `Like` an old hambone?
+- `Like` a peace treaty.
+- `Like` a person would.
+- `Like` a psychiatrist?
+- `Like` a puff, harold?
+- `Like` a tea ceremony?
+- `Like` a time machine.
+- `Like` audrey hepburn.
+- `Like` chainin' me up?
+                 

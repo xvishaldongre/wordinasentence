@@ -1,0 +1,107 @@
+---
+title: "knife in a sentence | knife example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knife"
+---
+- Gimme the big `knife`!
+- He had a `knife` in me.
+- `Knife` out of you, ok?
+- This `knife` is filthy.
+- Where's the `knife`?
+- No blood on the `knife`.
+- So put the `knife` down.
+- The `knife`'s edge, sir.
+- I can't find the `knife`.
+- It was a butcher `knife`.
+- Cut it off with a `knife`.
+- I'd rather have a `knife`.
+- Only put the `knife` down.
+- He get ya with the `knife`?
+- Madi, put the `knife` down.
+- Mace, the guy had a `knife`.
+- Somebody find him a `knife`.
+- Woman 1: he's got a `knife`.
+- He come at me with a `knife`.
+- Where'd you get that `knife`?
+- Do the thing with the `knife`.
+- How'd i know he had a `knife`.
+- Lincoln, put down the `knife`.
+- Oh, it's not from the `knife`.
+- Some c-4, a map and a `knife`?
+- Army `knife`... also from 'nam.
+- Chrissy, gimme the big `knife`!
+- He's a-comin' with his `knife`!
+- You threw a `knife` at my head!
+- And then slid a `knife` into it.
+- Got in a `knife` fight with him.
+- Love at first `knife` to throat.
+- A `knife` is worse than a bullet?
+- Here's the `knife` to do it with.
+- I cut it on an old rusty `knife`.
+- Once that `knife` is out, hmm.
+- Just don't remove the `knife` yet.
+- With the `knife` she took from me.
+- But you threw a `knife` at my head!
+- Let me see that `knife` i gave you.
+- Roan: put the `knife` down, ontari.
+- Why don't you put the `knife` down.
+- In a guy who stuck a `knife` if you.
+- One of you must pick up the `knife`.
+- Iris was strong, good with a `knife`.
+- Ok, clarke, firm grip on the `knife`.
+- Now he's holding her at `knife` point.
+- Tip of the spear, edge of the `knife`.
+- You stabbed me with a butcher `knife`.
+- You thought he was carrying a `knife`?
+- Did you ever see the lads play `knife`?
+- Well...why did you put a `knife` in it?
+- It could be -- the `knife`, and the saw.
+- Abby, he had a `knife` to his throat, aah!
+- And we're on the `knife`'s edge already...
+- Find that kid and get the `knife` off him.
+- You don't even know whose `knife` that is.
+- I was a little younger than you, - `knife`.
+- Bellamy wouldn't let me take the `knife` out.
+- To recover that `knife` you stuck in my back?
+- He pulled his `knife` and i got to mine first.
+- `Knife` with the not-quite- retractable blade?
+- She likes the sound a sharpie makes - `knife`!
+- The cop who found the `knife` in corvis's car.
+- Put the `knife` down, or i put one in your leg.
+- One second he's fine, then out come the `knife`.
+- Your will and mine as the brush and the `knife`.
+- This `knife` was made of metal from the dropship.
+- The `knife` slices into maureen again...then again.
+- We really stuck the `knife` in her, didn't we, bert?
+- Hey, he should have a weapon, a `knife` or something.
+- No way i could hold a `knife` to tyler's throat, man!
+- Probably lookin' for a good place to stick a `knife`.
+- Tell heywood i'm sorry i put a `knife` to his throat.
+- He was probably just found with a `knife` in his back.
+- That's why i didn't tell lexa you gave me the `knife`.
+- You beat him with a `knife`, he comes back with a gun.
+- He's got more gadgets on him then a swiss army `knife`.
+- They found his fingers on the ground with your `knife`.
+- We can take off the "wanda june" with a butter `knife`.
+- He got a `knife` in me and i laid him out with a shovel.
+- We been earning our keep as respectable `knife` artists.
+- Anyone who grieves will have a turn with the `knife`.
+- That mexican... the one that come at me with a `knife`...
+- If that `knife` is missing, i'll look for it in your back.
+- She's a lot better with that `knife` than *you* is, muddy!
+- Well, why do you always bring the carving `knife` in here?
+- But we have a theory .. did you find the `knife`, sergeant?
+- I'm finally good at something help me with a `knife` wound?
+- She must have a `knife` or something... she hasn't got any.
+- *she* has to twist a `knife` in him, too--the regal jackass!
+- When i see him say "i do," that `knife` will be in my heart.
+- I'd just put the `knife` into the cake, and - okay, saunders.
+- I hear some surfer pulled a `knife` on mr. hand this morning.
+- 'take a little tip from mack the `knife`...' see what i mean?
+- You get a `knife` in yer belly or too much shit in yer veins.
+- He shows up for a battle of wits with a mental butter `knife`.
+- ♪ if you're seeing things running through your head ♪ `knife`.
+- The first time you turn your back, boom, a `knife` right here.
+- *you* taught her, i suppose... she's *good* with that `knife`!
+                 

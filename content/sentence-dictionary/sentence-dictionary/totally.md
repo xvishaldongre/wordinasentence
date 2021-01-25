@@ -1,0 +1,107 @@
+---
+title: "totally in a sentence | totally example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "totally"
+---
+- I'm `totally` serious!
+- It's `totally` insane!
+- It's `totally` unique.
+- Oh, it `totally` does.
+- `Totally` by accident.
+- Yeah, yeah, `totally`.
+- Are you `totally` gone?
+- I'm `totally` over her.
+- He's `totally` unstable.
+- I'm `totally` exhausted.
+- Is that `totally` clear?
+- They're `totally` wrong.
+- `Totally`, by computers.
+- `Totally` selfish of me.
+- We are `totally` booked.
+- You're `totally` bombed.
+- You're `totally` insane.
+- Actually, i `totally` am.
+- And `totally` irrelevant.
+- Are we `totally` screwed?
+- Are you `totally` stupid?
+- He's `totally` -- daniel?
+- I'm `totally` blown away.
+- It's `totally` frostbite.
+- It's `totally` sickening.
+- I wouldn't say `totally`.
+- Oh, we `totally` have to.
+- Are you `totally` insane?!
+- I'm `totally` in the dark.
+- I `totally` heard you did.
+- `Totally` brodacious, bro!
+- We're `totally` committed.
+- You're `totally` rambling.
+- We are so `totally` fucked!
+- Are you `totally` disgusted?
+- I can look `totally` normal.
+- I'll be `totally` wiped out!
+- I'm `totally` against drugs.
+- I'm `totally` freakin' dude.
+- It's been `totally` charted.
+- It's `totally` disease-free.
+- It was `totally` impressive.
+- Killing's `totally` natural.
+- That's `totally` inaccurate.
+- This is `totally` different.
+- `Totally` unrelated victims.
+- He's `totally` out to get me.
+- I don't know about `totally`.
+- I'm, i'm `totally`...stunned.
+- Oh, wait, there `totally` is.
+- This is `totally` irrelevant.
+- I'm sorry, i `totally` spaced.
+- I `totally`, `totally` hate you.
+- It's, like, `totally` tubular.
+- It's `totally` not your color.
+- It's `totally` out of context.
+- I've `totally` gotten over it.
+- My parents are `totally` anal.
+- That camera's `totally` dying.
+- That guy is `totally` amazing.
+- That kid is `totally` meshuga.
+- Yeah, `totally` evil russians.
+- You `totally` never showed up.
+- I said we are `totally` booked.
+- Man, he is `totally` trembling.
+- Maybe not control it `totally`.
+- She was `totally` out on ranks.
+- So now we're `totally` screwed?
+- That camera is `totally` daine.
+- Well, she's `totally` not here.
+- Boy, they `totally` fell for it!
+- God, it's so `totally` pathetic.
+- Something `totally` unexplained.
+- The place is `totally` deserted.
+- This would be `totally` awesome.
+- We'll be `totally` in the clear.
+- Which i can `totally` relate to.
+- He is `totally` crunching on you.
+- It'll `totally` change your life.
+- Jarvis: it's `totally` fine, sir.
+- The lock is `totally` demolished.
+- God, this is `totally` unbearable!
+- We should `totally` hate-watch it.
+- You're `totally` gone, aren't you?
+- [grunting] yeah, `totally` tubular.
+- It's a `totally` different species.
+- I would `totally` love to go there.
+- She denies it `totally`, of course.
+- We have to be `totally` ready then.
+- You `totally` fucked with his head.
+- You're, like, `totally` tubular.
+- But the burning is `totally` normal.
+- He's `totally` unresponsive to pain.
+- I'm telling you, it's `totally` key.
+- I `totally` phoned it in last night.
+- My cd case like `totally` collapsed.
+- Oh, honey, don't be `totally` naive.
+- Okay, that `totally` freaked me out.
+- This is a `totally` barbaric custom.
+- We could `totally` get away with it.
+                 

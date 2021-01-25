@@ -1,0 +1,107 @@
+---
+title: "data in a sentence | data example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "data"
+---
+- But there's no `data`.
+- Stick to `data` entry.
+- They want your `data`.
+- `Data` doesn't breathe.
+- ...i'll talk to `data`.
+- That's flatfoot `data`.
+- Can we correlate `data`?
+- The `data` says it does.
+- Your `data` must be bad.
+- `Data` to captain picard.
+- A bit less florid, `data`.
+- `Data`, are you all right?
+- `Data` syncs automatically.
+- Don't give up hope, `data`.
+- How much of this is `data`?
+- It's nothing personal `data`.
+- Mr. valtane, any more `data`?
+- Our `data` is being prepared.
+- Personal `data` transmitters.
+- To pull `data` off the flame.
+- Wil... `data` was down there.
+- `Data` from the exodus launch.
+- The `data` banks say we fired.
+- We did it by crunching `data`.
+- Engineering and `data` analysis.
+- I checked the `data` banks, yes.
+- It's repairing corrupted `data`.
+- Just get me `data`'s schematics.
+- The `data` could be called pain.
+- `Data`, that was seven years ago.
+- Do you know what this is, `data`?
+- We'll get extra `data` this time.
+- Courage is an emotion too, `data`.
+- `Data`,lock onto that plasma coil.
+- Here's the `data` on the clyde deal.
+- Mister `data`, set a pursuit course.
+- Show me just agatha's `data` stream.
+- That's what made `data` malfunction.
+- They can upload and download `data`.
+- Download the mind, unpack the `data`.
+- Mister worf, accompany `data` please.
+- That was important `data`, shitbirds.
+- `Data` was rehearsing a part in h.m.s.
+- Huh, we don't seem to have her `data`.
+- I'd like to hear that `data`, kaufman.
+- It's just `data` being shifted around.
+- I didn't find that on any of the `data`.
+- I have no proof that it was false `data`.
+- It appears your `data` never got through.
+- The `data` that you copied with your toy.
+- It's a tough ask, not without more `data`.
+- Mr. `data`, scan the planet for lifeforms.
+- Think of the scientific `data` we'll gain.
+- Any sign of `data`, or the borg themselves?
+- False `data` can act only as a distraction.
+- Give me risk analysis based on this `data`.
+- I can't pull up any `data` from the female.
+- Something dr. soong created before `data` .
+- The `data` is in some fucked binary system.
+- Will relay more `data` on subsequent orbits.
+- Yet the `data` banks insist we fired: twice.
+- You have no proof that it was correct `data`.
+- And i redirected the `data` through blue book.
+- `Data`'s desire for a "family" is very strong.
+- Um, he's working, but there's a lot of `data`.
+- All the `data` banks in artoo are still secure.
+- You never know what's over the horizon, `data`.
+- Joey, a garbage file holds miscellaneous `data`.
+- You're becoming more human all the time, `data`.
+- Verifying triminium photon tube... no new `data`.
+- `Data`... haven't you ever just played... for fun?
+- Lapd `data` center reports a breach on the system.
+- Lora, i'm going to stay and run some `data` through.
+- ...you may be doing so on the basis of false `data`.
+- `Data`, is it going to pass near any m-class planets?
+- Mister `data`, i want to know the exact date and time.
+- We just want to retrace `data`'s movements that day...
+- By offering the skaikru a seat the `data` says it does.
+- Have geordi and `data` go over with the next away team.
+- He came to me, told me about the missing `data` stream.
+- I think something is wrong `data`, this isn't the time.
+- Has a microphone, camera and a means to transmit `data`.
+- If this is their ship's `data` banks, where is the crew?
+- For christ sakes, they have volumes of `data` on benjamin!
+- I suggest you find it, using the flight recorder's `data`.
+- We could cross-reference a `data` base on media ownership.
+- `Data`, you're not thinking about using that thing are you?
+- But the `data` needs to be tested, analyzed before -- susan.
+- It's a combined `data` stream based on all three previsions.
+- Your console may not be configured to handle the `data` flow.
+- `Data` indicates that the violent criminals in the group laws.
+- How much of it is `data` and how much of it is negative space?
+- If not for `data`, you'd probably have been re-located by now.
+- According to our `data` banks, this ship fired those torpedoes.
+- All my recent `data` points to something big on the bottom.
+- Then i monitored their incoming outside `data` requests, right?
+- Good crime-scene work, good lab work, good `data`-base analysis.
+- Grief, loss, remorse... `data`... are you sure you're all right?
+- You'd have to design a graphic interface to make the `data` pop.
+- Commander `data` attacked us in the mission scout ship yesterday.
+                 

@@ -1,0 +1,55 @@
+---
+title: "experiment in a sentence | experiment example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "experiment"
+---
+- I was an `experiment`.
+- There you `experiment`!
+- That's the `experiment`?
+- Some kind of `experiment`.
+- You saw this `experiment`?
+- Just a little `experiment`.
+- I'll repeat the `experiment`.
+- Why don't you go `experiment`.
+- This is a fucking `experiment`!
+- What's the larger `experiment`?
+- The `experiment` is in here?
+- Caused by doc ock's `experiment`?
+- I just conducted an `experiment`.
+- Time for you two to `experiment`.
+- Not to `experiment` on those kids.
+- But the `experiment` was a failure.
+- Do a little `experiment` of our own.
+- You're just an `experiment`, freako!
+- He'll try to finish his `experiment`.
+- But life isn't a science `experiment`.
+- I was in the middle of an `experiment`.
+- We're -- conducting a new `experiment`.
+- Also you're too valuable to `experiment` with.
+- Look, this is a scientific `experiment`, okay?
+- There was a thought `experiment` they gave us.
+- Yes, it'll be a very interesting `experiment`.
+- Anyway, i thought we could try an `experiment`.
+- It's an `experiment` with flatworms and a maze.
+- It's part of a larger sociological `experiment`.
+- That's what this `experiment` has all been about.
+- When i sent the remains of my last `experiment` .
+- That's what it was about, the `experiment`'s over.
+- It's kind of my social `experiment` for the summer.
+- Tell you where your little science `experiment` is.
+- He's been stealing my cats to `experiment` on [them].
+- Excelsior, the great `experiment`, is adrift in space.
+- All right, now, now, the `experiment` is not yet complete.
+- I mean, if you want to `experiment`, or whatever -- jesus.
+- I think we should consider cutting the `experiment` short.
+- He was one of those products of a crossbreading `experiment`.
+- It escaped from the lab before we could finish the `experiment`.
+- Should we take the quotes off `experiment` and call it what it is?
+- The only thing octavius cares about is repeating his `experiment`.
+- Well, i'm gonna `experiment` on you for my anatomy class, then go.
+- I must continue a critical `experiment` i was running on the amargosa star.
+- It was a worthy `experiment` -- worthy of you; i was wrong about that part.
+- See, we can't duplicate their type of power so we've never been able to `experiment`.
+- You've been using cryogenics to control the waste from the mouse `experiment`, haven't you?
+                 

@@ -1,0 +1,69 @@
+---
+title: "patients in a sentence | patients example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "patients"
+---
+- They're my `patients`.
+- No, we were `patients`.
+- I have `patients` to see.
+- We've got two `patients`.
+- It is, for the `patients`.
+- His `patients`, the hospital?
+- Trevor, i never date `patients`.
+- You set your `patients` on fire!
+- `Patients` aren't allowed in here.
+- Do you have many `patients`, doctor?
+- It's a big building with `patients`.
+- Not me... all my other my `patients`.
+- On the grounder `patients` in lockup?
+- On the grounder `patients` in lockup?
+- Get this, frank--we got two `patients`.
+- It's sad when `patients` get like that.
+- He fools around with his `patients` too.
+- I've your fellow `patients` to consider.
+- The `patients` are so subdued; so docile.
+- They've got `patients` posing as doctors...
+- Sir, only `patients` are allowed in medical.
+- The three of you weren't regular `patients`.
+- How do you instruct your `patients` to take it?
+- Freud psychoanalyzed `patients` in one afternoon.
+- Mom, i love you, but save it for your `patients`.
+- Scavenging at the mall for the mental `patients`.
+- After i found out she was seeing other `patients`.
+- See you brought one of the `patients` with you too.
+- Rule number one: don't get involved with `patients`.
+- A cou- ple of my `patients` having a little argument.
+- I see many `patients` a day and have an awful memory.
+- Have you saved `patients` as "barely" alive as he was?
+- I don't mind -- `patients` have visitors, not doctors.
+- Or be up past ten or fraternize with other `patients`.
+- `Patients` aren't allowed to enter the... oh, stay back!
+- `Patients` are rationed to one pack of cigarettes a day.
+- Then how do you know if your `patients` are getting better?
+- I can't move my `patients` around to accommodate one person.
+- But there are eighteen `patients` on the ward, mister mcmurphy.
+- This is where the emphysema `patients` come to sneak cigarettes.
+- 13 more `patients`, of life support, maybe 4 now that we're gone.
+- I've got `patients` coming in -- how 'bout another cup of coffee?
+- A death in the doctor's family makes the `patients` doubly uneasy.
+- Our `patients` are decent, non-violent people with a real problem.
+- Y-y-you m-mean th-the pr-president of the p-p-`patients` c-council?
+- Broadneck and the others don't like to deal with `patients` directly.
+- It's late, i'm afraid it's time for my `patients` to prepare for bed.
+- Mister mcmurphy, `patients` are not permitted to run around in towels.
+- `Patients` who can be made well, and you owe them your first consideration.
+- Just to be certain, i wonder if you could show us a list of your `patients`?
+- That's when they found out how badly he was drugging his `patients`... yeah.
+- We still have to get the kill switch only `patients` are allowed in medical.
+- You've already got more `patients` than those other two shrinks combined.
+- I've got an entire hospital to look after, and you have your real `patients`.
+- Well, even without anesthesia i always tell my `patients` to...eh... to relax.
+- What if i told you your `patients` are in real physical danger from their dreams?
+- But you must remember that this is a hospital, and there are many `patients` here.
+- I mean, you're not supposed to tell anyone about your `patients`' problems... are you?
+- At the time, we didn't have the...resources to help our `patients` the way we needed to.
+- `Patients` who've sustained the kind of injuries you have often have dreams of this sort.
+- Used to know a doctor who said he got to know his `patients` better than their wives did.
+- Yes, well, miss ratched feels that you're a disturbing influence on the other `patients`.
+                 

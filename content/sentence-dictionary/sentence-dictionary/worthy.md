@@ -1,0 +1,52 @@
+---
+title: "worthy in a sentence | worthy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "worthy"
+---
+- `Worthy` of your skills.
+- No one's `worthy` of you.
+- Because i wasn't `worthy`.
+- `Worthy` fuckin' adversary.
+- Like a very `worthy` adversary.
+- Paul, it's not `worthy` of you.
+- At worst he was a `worthy` enemy.
+- It means we're `worthy`, i think.
+- Someone `worthy` of respect, lad.
+- `Worthy` deeds were accomplished.
+- But only with a `worthy` opponent.
+- You have been a `worthy` opponent.
+- I pray always to be `worthy` of it.
+- Now stand aside `worthy` adversary.
+- To show i am `worthy` of leadership.
+- Any game `worthy` of being played is.
+- This conversation is not `worthy` of you.
+- You are each `worthy` of your nightblood.
+- You use it justly, you're `worthy` of it.
+- She's getting a captain `worthy` of her.
+- But this year, we have two `worthy` recipients.
+- You're now `worthy` to stand with the rest of us.
+- I suspected it might be `worthy` of your interest.
+- One `worthy` of such a magnificent creature: popo.
+- This is not a `worthy`-- who's in pyjamas, walter?
+- You have not met a man `worthy` of your attention?
+- I, too, only found one present to be list-`worthy`.
+- I watched a binge-`worthy` tv show without my wife.
+- You ain't `worthy` to squeegee this man's back sweat.
+- I think it has merit and is `worthy` of consideration.
+- Then i'm afraid humanity is not `worthy` jesus christ.
+- He is the only one in the world `worthy` of carrying it.
+- I've always wanted a disciple `worthy` of wudan's secrets.
+- Many `worthy` of attention; but valuing is something more.
+- I was chosen because i was the bravest and the most `worthy`.
+- You are not `worthy` enough to look your superiors in the eye.
+- Given only when there's a `worthy`, somebody especially-- uh-huh.
+- If it isn't, then it's not radical and not `worthy` of a look-in.
+- Very, very impressive... no,... like a `worthy` adversary, wesley.
+- It was a `worthy` experiment -- `worthy` of you; i was wrong about that part.
+- I felt like the ghost and you humps aren't `worthy` to swill his backwash.
+- Giulia, that remark is not `worthy` of our twelve years of honest concubinage.
+- Certainly, monseigneur, does not your excellency consider her `worthy` of love?
+- They're in prisons with libraries, they collect clippings, i'm their `worthy` opponent.
+- People need something they can believe in, something `worthy`, and you can give it to them!
+                 

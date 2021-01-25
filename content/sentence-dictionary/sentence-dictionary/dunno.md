@@ -1,0 +1,68 @@
+---
+title: "dunno in a sentence | dunno example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dunno"
+---
+- Eh, i `dunno`... andy.
+- I `dunno`, that's all.
+- I `dunno`... something.
+- I `dunno`... what time?
+- I `dunno` it's anything.
+- Marks, scars, i `dunno`.
+- `Dunno`... flameout maybe.
+- I `dunno`, i... who cares?
+- I `dunno`, must be a king.
+- It's just that, i `dunno`.
+- I `dunno`... cinnamon roll?
+- I `dunno` ... maybe they do.
+- I `dunno` -- she fills gaps.
+- Just listen to -- i `dunno`.
+- I `dunno`... okay, i guess...
+- I `dunno`, but they look nice.
+- I `dunno`... it's complicated.
+- I `dunno`... well call her mother.
+- Oh, i `dunno`... enough, i s'pose.
+- I `dunno`... do you think he knows?
+- I `dunno` ... he's gonna call me...
+- I `dunno` -- i can't figure it out.
+- I `dunno`, maybe five seconds -- ow!
+- I `dunno` what i can do to help you?
+- I `dunno`... you won and was robbed!
+- He was drunk or somethin', i `dunno`.
+- I `dunno` what i'd do with your help.
+- I `dunno`, but he's gonna get creamed.
+- I `dunno`.. hi vada, can you come out?
+- Say what i feel more often, i `dunno`.
+- I `dunno`... what's wrong with her -- ?
+- I `dunno`... you couldn't just hit her?
+- I `dunno`, but i don't think we need him.
+- I `dunno`, but next week is my last class...
+- The moon -- i `dunno` i know you don't know.
+- I `dunno` it's safe to even get out of the car.
+- I `dunno`... we'll ask around as we get closer.
+- I `dunno`... you have that sharp, useless look.
+- I `dunno` about this... what will my mother think?
+- I `dunno`, louise, i think they're getting confused.
+- I `dunno`... would i have to take classes and stuff?
+- I `dunno`, i think it's the symbol for 'human' again.
+- A few days... a few weeks - `dunno`, i can't remember.
+- I `dunno`... a little lift, yeah... well, my pleasure.
+- I `dunno`, probably right up there, based on her resume.
+- I `dunno`, that lady sounded pretty sure... that's good.
+- I `dunno` what to say to you sweetheart, it is what it is.
+- Kay, listen, i `dunno` what got into-- don't worry about it.
+- I `dunno`... ...do you really want us to drive away somewhere?
+- Ambassador to <u>togo</u>, somethin', <u>i</u> `dunno`... he...
+- Tempural-something-mandibular, thing with something, i `dunno`.
+- I `dunno`... they're very sensitive at work about all this stuff.
+- I `dunno`, it's the kind of thing that -- the words won't come out.
+- `Dunno` if they'll go through with it, but i just thought you should know.
+- I `dunno`, i just woke up-- --what happened to the goddamn "witch-watch??"
+- My uncle figured that this week was bad...but about next week...i `dunno`.
+- I `dunno` what he wants from me -- ...are you going to say anything to him?
+- I `dunno`... you looked so... so vulnerable... you told them i raped you -- why?
+- I can see you still got the style, but i `dunno` for sure you still got the edge.
+- Tables've been moved around; the big man's office, i `dunno`, might be upstairs now.
+- Since my wife died...i `dunno`, some- times a little rock and roll fills up night.
+                 

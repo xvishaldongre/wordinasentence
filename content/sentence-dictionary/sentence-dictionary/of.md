@@ -1,0 +1,107 @@
+---
+title: "of in a sentence | of example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "of"
+---
+- Ashamed `of` yourself.
+- A sort `of` bodyguard.
+- As part `of` his plan.
+- As part `of` the crew.
+- A view `of` the ocean.
+- A whole lot `of` talk.
+- Bad choice `of` words.
+- Because `of` the gold.
+- Because `of` you, man.
+- Best `of` a nightmare.
+- Best `of` both worlds.
+- Best `of` both worlds?
+- Bit `of` trouble here?
+- Both `of` you shut up.
+- Bunch `of` damn liars.
+- Bunch `of` others too.
+- But he's part `of` it.
+- But one `of` our kind?
+- By the grace `of` god.
+- By the hour `of` nine.
+- Can all `of` you work?
+- 'cause `of` the storm.
+- Certainly, `of` birds.
+- Champion `of` trenton!
+- Chances `of` recovery?
+- Chief `of` the guards.
+- Children `of` gabriel.
+- Class `of` eighty-six!
+- Clint, son `of` edith.
+- Couple `of` .45 acp's.
+- Courtesy `of` star 69.
+- Did as `of` last week.
+- Done too much `of` it.
+- Drink lots `of` water.
+- El is one `of` us now.
+- End `of` conversation.
+- Enough `of` that crap.
+- Ever hear `of` rwanda?
+- For the love `of` god.
+- Fuck the lot `of` you.
+- General `of` the army.
+- Get 'em out `of` here!
+- Get her out `of` here!
+- Get her out `of` here.
+- Get him out `of` here!
+- Get him out `of` here.
+- Get him out `of` here?
+- Get out `of` michigan.
+- Get out `of` my hotel.
+- Get out `of` my house!
+- Get out `of` my house.
+- Get out `of` my sight.
+- Get out `of` my way.
+- Get out `of` the room!
+- Gettin out `of` dodge.
+- Gimme three `of` them.
+- God `of` my ancestors.
+- Good `of` you to come.
+- Got plans `of` my own.
+- Great balls `of` fire!
+- Hand `of` god, my ass.
+- Heading out `of` town.
+- Heard `of` harry lime?
+- He is not one `of` us.
+- Hell `of` a job, stan.
+- Hello, heap `of` dirt.
+- He's kind `of` a mook.
+- He's one `of` indra's.
+- He's out `of` control.
+- His mama one `of` 'em.
+- How far out `of` town?
+- How heroic `of` you...
+- I am a man `of` peace.
+- I am so proud `of` us.
+- I feel sure `of` this.
+- I get peace `of` mind.
+- I got plenty `of` 'em.
+- I got tired `of` them.
+- I had a lot `of` that.
+- I have lots `of` them.
+- I heard `of` one once.
+- I just let go `of` it.
+- I might `of` known it.
+- I missed all `of` you.
+- I'm just sure `of` it.
+- I'm kind `of` nervous.
+- I'm not aware `of` it.
+- I'm not one `of` them.
+- I'm out `of` my depth.
+- I'm out `of` politics.
+- I'm sick `of` playing.
+- I'm so proud `of` her.
+- I'm so proud `of` you.
+- I'm sort `of` on hold.
+- I'm the next `of` kin.
+- I'm tired `of` puking.
+- In case `of` a scrape.
+- I never heard `of` it.
+- In front `of` the fbi!
+- Instead `of` a girdle.
+                 

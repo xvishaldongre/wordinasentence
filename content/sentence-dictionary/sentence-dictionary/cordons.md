@@ -1,0 +1,7 @@
+---
+title: "cordons in a sentence | cordons example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cordons"
+---
+## Unfortunately, we have no example sentences for cordons                 

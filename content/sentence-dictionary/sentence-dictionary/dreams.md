@@ -1,0 +1,107 @@
+---
+title: "dreams in a sentence | dreams example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dreams"
+---
+- `Dreams` or no `dreams`?
+- I have scary `dreams`.
+- Oh, dream of `dreams`!
+- Or in `dreams` either.
+- Sweet `dreams`, blake.
+- I've had some `dreams`.
+- Usually in my `dreams`.
+- What `dreams` may come?
+- `Dreams` work like that.
+- I have new `dreams` now.
+- I'm having bad `dreams`.
+- It's `dreams` come true.
+- That man in my `dreams`.
+- The `dreams` again, sir?
+- Yes, wonderful `dreams`.
+- Been having bad `dreams`.
+- To follow their `dreams`.
+- Your `dreams` choose you.
+- Your `dreams` live there.
+- He saw me in his `dreams`.
+- How are your `dreams` now?
+- My `dreams` died long ago.
+- She's even in my `dreams`.
+- The greek god of `dreams`.
+- _ and kids in his `dreams`.
+- Childish `dreams`, captain.
+- I'll see you in my `dreams`.
+- Sweet `dreams` to you to!
+- Keep dreaming those `dreams`.
+- Like where--in your `dreams`?
+- Mostly `dreams` i don't want.
+- They taunt me in my `dreams`.
+- What about all your `dreams`?
+- You gave me the bad `dreams`.
+- Don't speak to me of `dreams`!
+- Do you have bad `dreams`, too?
+- Except maybe in your `dreams`.
+- He finds you in your `dreams`.
+- Panhandler of stolen `dreams`.
+- You've made my `dreams` silly.
+- The man from your `dreams`.
+- David, your `dreams` will stop.
+- My `dreams` of marion are gone.
+- Talk away, lady of my `dreams`.
+- To make her `dreams` come true.
+- You don't choose your `dreams`.
+- Been seeing me in your `dreams`?
+- But those are our `dreams`, son.
+- Hey, everybody has bad `dreams`.
+- The answer to all your `dreams`.
+- The 'guardian of good' `dreams`.
+- You can't control your `dreams`.
+- And give him what he `dreams` of.
+- 'i hope your `dreams` come true.'
+- I know you had your own `dreams`.
+- I was having bad `dreams` anyway.
+- That all your `dreams` come true.
+- This is one of my `dreams`, jake.
+- This old one is full of `dreams`.
+- Well all `dreams` come to an end.
+- You forget about those `dreams`..
+- Jesus speaks to me in my `dreams`.
+- This is just shitty pipe `dreams`.
+- You had some scary `dreams`, okay?
+- You remember your `dreams`, grady?
+- But risa, she's still got `dreams`.
+- `Dreams` where i die...in the fire.
+- Every english child `dreams` of it.
+- From there it infects our `dreams`.
+- Pour their hopes and `dreams` into.
+- She says he comes back in `dreams`.
+- What the hell are `dreams`, anyway?
+- Yeah... see ya in my `dreams`, huh?
+- You have to work on their `dreams`.
+- Your `dreams` aren't about freedom!
+- Can you come with me in my `dreams`?
+- I've had these dumb `dreams` lately.
+- Tommy reina's hauntin' his `dreams`.
+- Aw christ, what `dreams` you live on!
+- I get crazy `dreams` and i black out.
+- I wanna know his hopes, his `dreams`.
+- You've never had bad `dreams` before?
+- Back to the homeland of your `dreams`.
+- I've been having bad `dreams`, johnny.
+- Nobody is freer than when he `dreams`.
+- You must have hopes, wishes, `dreams`.
+- How'd you learn so much about `dreams`?
+- I'll never meet the man of my `dreams`.
+- Yeah, i've seen a few of your `dreams`.
+- You have any weird `dreams` last night?
+- All my `dreams` have suddenly collapsed.
+- Do they come in `dreams`, these visions?
+- I don't want to...i have scary `dreams`.
+- I mean, in my `dreams` you ... oh, sorry.
+- But `dreams` don't pay the bills, do they?
+- But i guess technically they are `dreams`.
+- You're in both `dreams` and you're scared.
+- `Dreams` aren't catching, not like measles.
+- I thought i was over the `dreams` for good.
+- There's money to be made, `dreams` to sell.
+                 

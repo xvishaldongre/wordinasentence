@@ -1,0 +1,74 @@
+---
+title: "desire in a sentence | desire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "desire"
+---
+- Odd `desire` for anyone.
+- 'whatever you `desire`.'
+- Whatever you `desire`...
+- A `desire` for more cows.
+- Don't worry, i'll `desire`.
+- That's why i `desire` them.
+- I'll do what you `desire`...
+- Your `desire` is my command.
+- <u>whatever you `desire`</u>.
+- Sometimes your deepest `desire`.
+- Your `desire` for peace is true.
+- Born again of blood and `desire`.
+- I can feel your `desire`, deanna.
+- Odd `desire` for a woman, i guess.
+- I have no `desire` to hurt you.
+- High spirits, `desire`, commitment.
+- I'll give you your heart's `desire`.
+- He doesn't have the `desire` somehow.
+- It proves your `desire` to deceive...
+- Of your `desire` to return to reality.
+- You have a strong unfufilled `desire`.
+- Alex rendered speechless with `desire`.
+- Intelligence... ambition... `desire`...
+- Their slogan's 'whatever you `desire`.'
+- You must `desire` it for me to weave it.
+- I have no `desire` to sacrifice myself...
+- Then it is some service you `desire` of us.
+- Nubile, blonde, wet with `desire`, schwartz.
+- Data's `desire` for a "family" is very strong.
+- The `desire` for vengeance... can be a poison.
+- You'll be a chapter in my memoirs of `desire`.
+- I have no `desire` to cause him any discomfort.
+- To be strong and free... that is all i `desire`.
+- We have a pact - of mutual `desire` and consent.
+- I confess my `desire` for adm is quite "intense".
+- So the freedom you talk about, i too `desire` it.
+- I only `desire` what gives you pleasure, my dearest.
+- My `desire` betrays me, like goosebumps on my flesh.
+- You follow your `desire` freely enough in the night.
+- Lad, you have an unnatural `desire` to pay for things.
+- You could, if you so `desire`, cut it a helluva lot more.
+- I have this overwhelming `desire` to kiss you, ellen brody.
+- Why -- a natural `desire` to help finish the work we began!
+- At your discretion...but first, i `desire` more entertainment.
+- I've never heard you express any `desire` to leave before now.
+- Well i assure you, sir, i have no `desire` to create difficulties.
+- "he who holds the horseman's `desire` will guide his reaping hand."
+- If by "problem" you mean your `desire` for prepubescent girls, yes.
+- ...i have to start pretending i've no `desire` to make love to her.
+- I'm not your judge... nor have i any `desire` to witness the trial.
+- I am the object of this `desire`, and all eyes are on me as i speak.
+- I have no `desire` to see the world again, but if you order me to...
+- It was her `desire` that if she should ever fall, they betrayed you.
+- Whatever the horseman's `desire` is, other than extinguishing lives.
+- Besides, every wholesome thing he might `desire`, he has at charenton.
+- Anything else you `desire` may be discussed in the privacy of your room.
+- You've been very helpful, and you've shown a genuine `desire` to reform.
+- Avariciousness, envy, the `desire` to possess something owned by another.
+- I won't deny my own personal `desire` to turn each sin against the sinner.
+- Personally i think he has a deep, almost pathological `desire` to corrupt you.
+- I can keep a victim alive for weeks... months, if i `desire` it... it's an art.
+- I do not know how to dance the quadrille but, if you `desire` it, i will learn.
+- Yet i would, if i were free to follow my `desire` in the harsh light of day.
+- It's a newly formed individual with a built-in `desire` to protect its own life.
+- I understand, master your own pleasure comes only after mine, when i `desire` it.
+- Your animal strength, your primitive power has surfaced... you are what you `desire`.
+- With each free breath i feel the growing `desire` to make someone suffer for all i lost.
+                 

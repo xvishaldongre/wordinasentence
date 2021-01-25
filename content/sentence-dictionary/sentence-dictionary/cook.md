@@ -1,0 +1,98 @@
+---
+title: "cook in a sentence | cook example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cook"
+---
+- But a fabulous `cook`.
+- I don't fuckin' `cook`.
+- You're going to `cook`.
+- Can i `cook` or can't i?
+- I do not `cook` for them.
+- They're gonna `cook` him.
+- Dude is a big-time `cook`.
+- Good evening, mrs. `cook`.
+- The `cook` quit yesterday.
+- Well, i do love to `cook`.
+- You're a wonderful `cook`.
+- Do you understand '`cook`?'
+- I didn't `cook` up a story.
+- Karen is a dynamite `cook`.
+- We have no `cook`, no maid.
+- We'll `cook` 'em ourselves.
+- I thought i'd `cook` for us.
+- You didn't `cook` breakfast?
+- Avast, there, captain `cook`!
+- `Cook` school -- that did it.
+- I used to know how to `cook`.
+- Bet that would `cook` up nice.
+- I'll `cook` us something here.
+- I'm gonna `cook` him a dinner.
+- Don't you ever `cook` anything?
+- Daddy didn't `cook` it, she did.
+- I'll come and `cook` your meals.
+- All right?...i'll `cook` tonight.
+- It was a james beard `cook` book.
+- Humped yeah -- but can she `cook`?
+- I helped him `cook` the books, ed.
+- She wanted to `cook` me breakfast.
+- She's the best `cook` in the world.
+- You sure are a good `cook`, selena.
+- I just didn't know how to `cook` it.
+- I'll `cook` for a week and clean up.
+- I'm so sorry i didn't get to `cook`.
+- Well, i'll be a son of a sea `cook`!
+- She was a fry `cook` in the cafeteria.
+- Why don't you `cook` whatever's there?
+- You gotta have children to `cook` for.
+- Your sister is an unbelievable `cook`.
+- In a giant oven and tried to `cook` us.
+- She's going to `cook` something for us?
+- You never `cook` anything worth eating.
+- Look, i'm going to `cook` dinner for us.
+- Well, who wants to `cook` for a failure?
+- What are you, a fry `cook` or something?
+- Jasper thinks he can `cook` up - stop it!
+- To fry... to `cook` over direct heat, oh!
+- What do you think i'm after, mrs. `cook`?
+- Do you know the `cook`'s chicken franchise?
+- I haven't decided yet if i'm a good `cook`.
+- I don't know why i even pretend i can `cook`.
+- I never saw anybody `cook` potatoes that way.
+- -- and -- they `cook` and drive the mules.
+- We'll `cook` up some soup and put it in a coke.
+- Everyone knows betty's a wonderful little `cook`.
+- I'd like to show them that i can `cook`, a little.
+- I used to have to go to work and `cook` every day.
+- For nineteen years... you work at `cook`'s chicken?
+- You don't get rich as a `cook`, either, believe me.
+- Gifford mayfair - i'll `cook` your tongue on a spit!
+- No, that's not a date, a date is when i don't `cook`.
+- You give me enough time, i’ll `cook` them real good.
+- Guy was a cross between alistair `cook` and a cuisinart.
+- Well, i gotta say, mrs. `cook`, you're right about that.
+- It feels like i've been on a `cook`'s tour[18] some place.
+- You know that i can `cook` my ass off when i feel like it.
+- Bet you're pretty handy around the house... can you `cook`?
+- Oh really, okay fine look, go `cook`, gimme the goddam keys.
+- Also, we `cook` here, if i weren't so terrified of squirrels.
+- Now, you sayin' you don't know how to `cook` anything at all?
+- We will `cook` inna kitchen and talk like when we were girls.
+- He wouldn't divorce his wife... because she was a great `cook`.
+- ... come along friends, ma stone's a `cook` this side of heaven.
+- This woman can `cook`... my wife said i have to cancel the deal.
+- Since you love to `cook`, maybe it's something we can talk about.
+- You like the way i `cook`...you think i make out a great invoice.
+- She also wants to have a house to clean and a family to `cook` for.
+- But no one ever says anything my mom, she's a pretty awesome `cook`.
+- I used to `cook` for my friends' parties and things back in atlanta.
+- You'll `cook` fresh fish and we'll make love under the coconut trees.
+- I... can i talk to you a second... `cook` and i are almost finished here.
+- As a matter of fact, i'm a pretty good `cook` -- but i'm a lousy housekeeper.
+- Duff - you know those women you used to know-- everything you `cook` is good.
+- Well, your wife doesn't have time to `cook` for me, you know what i'm saying?
+- "four-piece `cook`'s special deep fried with side n' slaw it's out ray-geous"!
+- But if they're building something, - i'm going to `cook` you up in my-- - stop.
+- Chick-- jeff--meet mr. `cook` and mr. griffith-- members of our state headquarters here.
+- We was gonna have cold eatin' tonight, 'cause of the heat, but now, i'm goin' to `cook`!
+                 

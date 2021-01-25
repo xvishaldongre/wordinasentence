@@ -1,0 +1,107 @@
+---
+title: "public in a sentence | public example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "public"
+---
+- Endorse me in `public`.
+- The `public` be damned!
+- The `public` loves him.
+- It's a `public` company.
+- It's `public` knowledge.
+- To the general `public`?
+- That's a `public` course.
+- For the `public` beach....
+- I'd want a `public` phone.
+- I hate `public` transport.
+- Is not `public` urination.
+- I went to `public` school.
+- Neither will the `public`.
+- Connect to `public` access.
+- Right out in `public`, man.
+- Her `public` will demand it.
+- It is a `public` conveyance.
+- It's like a `public` service.
+- Went to the `public` library.
+- But this is `public` property.
+- Has he decided to go `public`?
+- I was at the `public` library.
+- Philadelphia `public` library.
+- Sorry this has to be `public`.
+- There is no `public` offering.
+- You don't like `public` enemy?
+- This is bad `public` relations.
+- I'll be at the `public` library.
+- Please call the `public` lounge.
+- Are you going `public` with this?
+- As `public` school administrator.
+- The `public` has a right to know.
+- The `public` demands justice, sir.
+- You've got the `public` upset, al.
+- As a `public` school music teacher.
+- That hasn't been made `public` yet.
+- The `public` only knows about three.
+- To flaunt your deviance in `public`?
+- At least they can go out in `public`.
+- Fourteen years of `public` service...
+- I never danced before -- in `public`.
+- Josie, i think we should go `public`.
+- Now i'm `public` enemy number one.
+- Welcome to `public` school, my friend.
+- If the `public` cares enough to read it.
+- `Public` scorn carries a terrible sting.
+- The `public` decides who's on that list.
+- Tragic, a `public` outcry, but a number.
+- I never made a dime from `public` office!
+- Nothing heavy, four `public` school guys.
+- We're the only watchdog the `public` has.
+- He's the `public` face of the modern army.
+- I'm making a `public` appearance aren't i?
+- The apes will be hidden from the `public`.
+- As far as the `public` is concerned, it is.
+- I�m overcome by your `public`-spiritedness.
+- `Public` opinion is a funny thing, charles.
+- So don't walk near me in `public`, alright.
+- Ma'am, this is a matter of `public` urgency.
+- Please don't hug me in `public` again, o.k.?
+- She's a prisoner of `public` television now.
+- There isn't enough proof yet to go `public`.
+- This happens to me all the time in `public`.
+- It says �closed to the `public`�, doesn�t it?
+- I've posted riot teams in all `public` areas.
+- ...performing all manner of `public` service.
+- Ross that fella's becoming a `public` menace.
+- A `public` defender could get you off of that.
+- I don't want to hear `public` enemy right now.
+- Well, the `public` attention it would attract.
+- An' meet the `public` in stocking-fucking-feet?
+- Archibald dobbs; certified `public` accountant.
+- Destroy his credibility before he goes `public`.
+- Now you're proposing, in `public`, at a benefit.
+- Contributions and `public` funding have dried up.
+- My `public` expects me to solve the mystery, bob.
+- This is the only time you and i meet in `public`.
+- You don't want to be a `public` nuisance, do you?
+- They sold this lemon to the american `public`.
+- As far as the `public` knows, richard low is dead.
+- I'm responsible for `public` safety around here...
+- The risk to the `public` is unacceptably dangerous.
+- You detonated a bomb in a `public` meeting, jordan?
+- You mean what if the `public` finds out i perspire?
+- Dear mr. macintosh -- vanderhof, `public` relations.
+- I want to know who we give the `public` in contrast?
+- But when it comes out, the `public` will be outraged.
+- I'll *make* `public` opinion out there in five hours.
+- Mr. mulwray felt the `public` should own the display.
+- That's a lot of money to be counting out in `public`.
+- I'd like to see the `public` school system match that!
+- Is that why you slapped my brother around in `public`?
+- No, no, no, 'cause i never shower in a `public` place.
+- She just acts crazed in `public` to keep up the image.
+- There's no evidence until he gives `public` testimony.
+- You ever expose yourself in `public`...shit like that.
+- Not even just to see you, to have lunch... in `public`?
+- You must also do something about the `public` meetings.
+- And already the `public` expects us to know the answers.
+- I pose an unacceptable danger to the `public`, remember?
+                 

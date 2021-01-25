@@ -1,0 +1,107 @@
+---
+title: "drunk in a sentence | drunk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drunk"
+---
+- David, you're `drunk`.
+- Kurtz, you're `drunk`.
+- Sure, you got `drunk`.
+- Tessa, you're `drunk`.
+- What are you, `drunk`?
+- You're a `drunk` fool.
+- You're pretty `drunk`.
+- `Drunk` and disorderly?
+- `Drunk` on brandy wine.
+- I ain't `drunk`, honey.
+- I think you're `drunk`.
+- Or just `drunk` enough.
+- Renfield was a `drunk`!
+- They were very `drunk`.
+- When i'm `drunk` i lie.
+- You're driving `drunk`.
+- He's a mean `drunk`.
+- Are you `drunk`, mulder?
+- I'm not usually `drunk`.
+- Evelyn got homer `drunk`.
+- He is constantly `drunk`.
+- He's getting her `drunk`.
+- Mitchell was too `drunk`.
+- Oh, so now i was `drunk`!
+- They said he was `drunk`.
+- You believe this `drunk`?
+- But don't get too `drunk`!
+- He was `drunk` that night.
+- Kyle lambston's a `drunk`.
+- Moe, i got to get `drunk`.
+- Now i know you're `drunk`.
+- So, why are you a `drunk`?
+- Why would they be `drunk`?
+- I get nathan blind `drunk`.
+- Sweetheart, you're `drunk`.
+- They said you were `drunk`.
+- They try to get me `drunk`.
+- Yeah, blow me, i'm `drunk`.
+- Young lady, you're `drunk`!
+- Are you too `drunk` to come?
+- It's because you're `drunk`.
+- I've `drunk` enough tonight.
+- She was `drunk`, i tell you.
+- You just gonna stay `drunk`?
+- Get really `drunk`, i'm done!
+- He's not `drunk`, he's crazy.
+- It has `drunk` the blue soup.
+- It's just talk, he's `drunk`.
+- Old irishman, always `drunk`.
+- Years ago when i was `drunk`.
+- He was `drunk` as a skunk.
+- But only when she was `drunk`.
+- `Drunk` guys in bars are good.
+- `Drunk` in a bar in mogadishu?
+- I'm lonesome so i'm a `drunk`.
+- I usually get kind of `drunk`.
+- Not to mention you're `drunk`.
+- Some fuckin' `drunk` kill her?
+- Was i very `drunk` last night?
+- You're a `drunk` and an idiot.
+- You're talking like a `drunk`.
+- Besides, you never get `drunk`.
+- Getting `drunk` is no solution.
+- My father was the town `drunk`.
+- That's no `drunk`- rolling job.
+- You must have `drunk` too much.
+- I'm going to try to get `drunk`.
+- She gets sooo `drunk` sooo fast.
+- Yes, i was `drunk`, mr. manning.
+- You're `drunk` and you're angry.
+- You're `drunk`, you're on drugs.
+- You're too `drunk` all the time.
+- Some guy was `drunk` and hit him.
+- When i got you `drunk` yesterday.
+- Why do you play at being `drunk`?
+- You think he's `drunk` somewhere?
+- Aren't you `drunk` enough already?
+- Charlie wasn't `drunk` last night.
+- Forgive me but are you -- `drunk`?
+- I mean... look, you're so `drunk`.
+- I was `drunk` on something then...
+- Reckon we could git him *`drunk`*?
+- We're not supposed to get `drunk`.
+- Do people ever get `drunk` on this?
+- He gets `drunk` a few times a year.
+- You'll wreck doyle, you're `drunk`.
+- � �not yet...� just `drunk` enough.
+- When you drink, you get `drunk`.
+- Babe ought to get him `drunk` again.
+- Fine, but i'm not gonna get `drunk`.
+- He only calls you when he's `drunk`.
+- He's insane or `drunk` or something.
+- I'm not `drunk`... you can trust me.
+- Oh .. not that you ever get `drunk`!
+- Or maybe he's just a little `drunk`.
+- So perceptive, so -- you're `drunk`.
+- What's wrong, mary, are you `drunk`?
+- After you get all `drunk` and loaded?
+- He was `drunk` or somethin', i dunno.
+- Oh, yeah, `drunk` on the corner, man.
+                 

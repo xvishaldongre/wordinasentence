@@ -1,0 +1,107 @@
+---
+title: "hook in a sentence | hook example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hook"
+---
+- Now i'm on the `hook`.
+- You're off the `hook`.
+- He's on the `hook` now.
+- He's off the hiz-`hook`!
+- We'll be off the `hook`.
+- Biting in another `hook`.
+- I let you off the `hook`.
+- You got her on the `hook`.
+- Do i set the goddam `hook`?
+- Come on steven `hook` me up.
+- I'll `hook` you up in there.
+- That lets us off the `hook`.
+- `Hook` us up to a stand-pipe.
+- The worm on the `hook` again.
+- You're off the `hook`, ozzie.
+- I think it's a crochet `hook`.
+- Listen for that `hook`, right?
+- Mickey, you're off the `hook`.
+- Leave your phone on the `hook`.
+- I can't `hook` you up with that.
+- Why don't we `hook` up tomorrow?
+- I'm gonna let you off the `hook`.
+- Less `hook` us a couple big ones.
+- Those are `hook`-and-ring hinges.
+- Are you saying i'm off the `hook`?
+- Fly south -- `hook` up with adrian?
+- `Hook` up the jab, `hook` up the jab.
+- Tom, can you get me off the `hook`?
+- Did you guys `hook` up or something?
+- Don't let me off the `hook` so easy.
+- He's already called me to `hook` up.
+- You gaff with the <u>`hook`</u> end.
+- His weapon of choice... metal `hook`.
+- How'd the two of you `hook` up, then?
+- I always have a couple on the `hook`.
+- That ain't up to me to `hook` you up.
+- I wanted to `hook` up and talk to you.
+- They really want to `hook` up with us.
+- He's trying to take you off the `hook`.
+- Like i say, you wanna `hook` that up...
+- You sure let that frida off the `hook`.
+- Fetch a `hook` -- haul him out of there!
+- You are so not off the `hook` yet, slick.
+- You `hook` up with him, you'll regret it.
+- And sandra bullock they're off the `hook`.
+- Estes came after me with a gaffing `hook`.
+- Come on, old-timer, `hook` the brothers up.
+- We'll `hook` up at billy-boy's pad in an hour.
+- Hey, uh, what's this little `hook` thing on it?
+- Was wondering if you could `hook` a brother up?
+- She says... how did you `hook` up with faith?
+- Let her off the `hook`, she's served her purpose.
+- That `hook` was supposed to hold don't be fooled.
+- He said he wants to meet up at a bar in red `hook`.
+- Income village is the place to `hook` up with hump.
+- Anyway, the reunion's just the `hook` for the story.
+- We'll get off in washington and `hook` another ride.
+- What about that scumbag you just let off the `hook`?
+- I've got an idea, i'll `hook` up with you guys later.
+- Dragging his metal `hook` along the walls, i can do it.
+- My phone's been ringing off the `hook` with job offers.
+- Bellamy... we bait the `hook`... that's flanders' vigil.
+- That is the point... and skipper'll slip off the `hook`.
+- I'm thinking "how can he think with a `hook` for a head?"
+- We'll give him the `hook` on the train, and play him here.
+- You're here with me, you're already on the `hook` for one.
+- A poet with a straight left and a right `hook` - delicious!
+- I mean, okay, you got a goat-guy with a `hook` for a head...
+- `Hook` it up to the phone and drop in five bucks in quarters.
+- But first i gotta know, how'd you `hook` up with chili palmer.
+- If ya don't pay gazzo, ya end up hangin' on the `hook`, right?
+- Where is this canyon house where you're supposed to `hook` up?
+- Maybe that's what you're counting on to get you off the `hook`.
+- Why don't you drop me off at the ren cen, we'll `hook` up later?
+- Doesn't it seem more reasonable to `hook` this up from that angle?
+- You, entrepreneur that you are, tell him you can `hook` him up.
+- If i'm so all-used-up ben, why do you try to `hook` me up non-stop?
+- That's the guy that got us off the `hook` with the "checkov" thing.
+- I'm not going to feel good about this trip until you guys `hook` up.
+- It's been taunting us ... a way to `hook` this helmet into the game.
+- That's years of workin' and sweatin', liftin' and swingin' a `hook`.
+- The `hook` should go just below the head, where the meat is toughest.
+- There hain't nary `hook` in the land smart enough to `hook` mister gar.
+- You got us off the `hook` in the short term, - hey, you need to rest.
+- Brother gets taken downtown, we post bail, `hook` 'em up with a lawyer.
+- So things have definitely improved since i got fitted with this `hook`.
+- You think it looks better to go around dressed up like captain `hook`?
+- I figure the phone is off the `hook`, that's why i come rushing over here.
+- But you're the class officer, wick, and it'd just be weird if we `hook` up.
+- I think you should feint left and high `hook` 'im -- benny, check the eyes!
+- I think they shoot right outta its mouth, `hook` you, and pull you right in.
+- Captain rob is seven feet tall, wears an eye patch, got a `hook` for a hand...
+- With a decisive gesture terry takes the `hook` and sticks it through his belt.
+- I don't like touching fish, how do you pull the `hook` out without touching it?
+- The young girl pulls the shower curtain aside to reveal a robe hung on a `hook`.
+- Going after him before gets you off the `hook` for killing him that's your alibi.
+- Work that jab, work that `hook`, work that jab, okay, take a break, take a break.
+- You remember that guy you told me about ... said he could handle a big `hook`-up?
+- Maxie had me `hook` up a loan-back with him, through an austrian passbook account.
+- She had a feeling about it -- about the last job -- how long i'd get the `hook` for.
+                 

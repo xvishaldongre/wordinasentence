@@ -1,0 +1,107 @@
+---
+title: "prison in a sentence | prison example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "prison"
+---
+- `Prison` visiting day.
+- Is in private `prison`.
+- Not bad for a `prison`.
+- I dined at the `prison`.
+- Wade's in cryo-`prison`.
+- With `prison` record.
+- A `prison` for your mind.
+- Enough to go to `prison`?
+- Soak the `prison` off me.
+- That's a `prison` chapel.
+- Then it will be `prison`.
+- Twelve years in `prison`?
+- You won't go to `prison`.
+- My daddy died in `prison`.
+- The `prison` of belle sur.
+- You ever been in `prison`?
+- He just got outta `prison`.
+- I'll throw you in `prison`.
+- Transfer to a new `prison`.
+- Is `prison` still an option?
+- It's about a `prison` break.
+- Just keep me outta `prison`.
+- That's not good in `prison`.
+- This isn't a `prison`, jane.
+- About rasputin -- a `prison`.
+- I had better sex in `prison`.
+- So i'm not going to `prison`?
+- Band leader or `prison` guard?
+- Isolation is the `prison`, no.
+- That you might go to `prison`.
+- What is he in `prison` for?
+- `Prison` communication systems.
+- The shawshank `prison` library.
+- This isn't a `prison` you know.
+- What about his `prison` record?
+- He means `prison`, mr. laplante.
+- It's been all over the `prison`.
+- I've been in `prison`, remember?
+- Power's out in `prison` station.
+- Out of the `prison` of your mind.
+- You didn't visit him in `prison`.
+- A mutiny on board a `prison` ship?
+- But he doesn't belong in `prison`.
+- Jesus, i don't belong in `prison`.
+- The head shrinker at the `prison`.
+- You don't mean this is a `prison`?
+- Place almost looks like a `prison`.
+- This `prison` gives out $400 suits?
+- We're asking you to go to `prison`.
+- You'll go to the `prison` hospital.
+- Come, you're going back to `prison`.
+- I thought i was in...`prison` again.
+- Twelve years in `prison` is no joke.
+- I'll die if they send me to `prison`!
+- It's not a `prison`, it's a hospital.
+- The `prison` board made the decision.
+- You think you're not in `prison` now?
+- I don't know, he's in a `prison` camp.
+- I thought he might be out of `prison`.
+- For control of the `prison` drug trade?
+- Has she talked with you since `prison`?
+- He's been to the grounder `prison` camp.
+- I had to come to `prison` to be a crook.
+- That man that shot you died in `prison`.
+- What if, god forbid, you go to `prison`.
+- But i didn't put you in `prison`, andrew.
+- I'm not a `prison` kinda guy, miss o'day.
+- I thought he was in `prison`, in england.
+- I was in `prison` for twenty-eight years.
+- Oh... different things, `prison`, movies.
+- You need to see the `prison` shrink, man.
+- Death, natural or not, `prison`, deported.
+- He's dead -- stabbed to death in `prison`.
+- Hitler had all his best ideas in `prison`.
+- I can show you how to get out of `prison`.
+- It has not been used yet in this `prison`.
+- `Prison` was horrible but it was his home.
+- So, he's got a thing for `prison` clothes.
+- Task force, working on the `prison` break.
+- Hell of a way to avoid a `prison` sentence.
+- You belong in a `prison`, not in an asylum.
+- You don't really -- what was `prison` like?
+- You make it sound like a `prison` sentence.
+- Diaries have sent too many guys to `prison`.
+- Elijah muhammad can get you out of `prison`.
+- If they found out, you could go to `prison`.
+- So sal isn't goin' back to `prison`, no way.
+- They run this place like a fucking `prison`!
+- I can't survive in `prison`, sonny... shit...
+- That i find hard to bear -- even in `prison`.
+- It's better than going to `prison` for heresy.
+- Either hell or `prison`, whichever comes first.
+- Every criminal i have put in `prison`, the d.a.
+- Jasper... as devoted to him as you to `prison`?
+- You could get yourself killed go to `prison`...
+- Did you hear about that `prison` riot last week?
+- I've been in and out of `prison` my entire life.
+- Maybe you didn't notice, but this is a `prison`.
+- They had the worst ketchup in `prison`.....uh...
+- You spent all the money while i was in `prison`?
+                 

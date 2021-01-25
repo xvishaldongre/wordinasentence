@@ -1,0 +1,65 @@
+---
+title: "windows in a sentence | windows example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "windows"
+---
+- Are there many `windows`?
+- The `windows` don't open.
+- Wash it to the `windows`?
+- They nailed the `windows`.
+- Your `windows` face south.
+- Ain't no `windows` in here.
+- All the `windows` were broken.
+- Go to your `windows` and yell.
+- That's all the `windows`, dad.
+- Well, i think `windows` stink.
+- What- rub it on the `windows`!
+- He's a `windows` guy then, huh?
+- Don't fall out of any `windows`.
+- I'll shut the `windows` for you.
+- It was like hell with `windows`.
+- Hey, get away from the `windows`!
+- It might be colder by the `windows`.
+- Stealing pumpkins, soaping `windows`.
+- That big asshole nailed my `windows`.
+- The garage `windows` face left field.
+- You're thinking there's no `windows`.
+- At least on the ark, we had `windows`.
+- The eyes are the `windows` to the soul.
+- I don't know--let's break some `windows`.
+- They have such big `windows` at the school.
+- There are no `windows` facing my...exposure.
+- There was water coming in all the `windows`.
+- Why do we always keep the `windows` closed?
+- Run a 60- room hotel with bars on the `windows`.
+- There must be two dozen `windows` on that thing.
+- Did you you get the `windows` in the attic, mitch?
+- Cousins, i want all of you to go to your `windows`.
+- Have you repaired the `windows` of the dormitories?
+- Isn't that against the law, peeking into `windows`?
+- You don't just go around breaking people's `windows`.
+- Old jerko got caught throwing eggs and soaping `windows`.
+- I know windex, for god's sake, i clean my own `windows`...
+- They're in the far corner of the room under the `windows`.
+- Caleb, there's a reason there are no `windows` in this room.
+- Remember the night we broke the `windows` in this old house?
+- They put us in the back of a van with blacked out `windows`.
+- Guess he figured just because we don't have `windows` he did.
+- He'd stand outside the house all day and look in the `windows`.
+- Kelly, i want you to close and lock all the downstairs `windows`.
+- They threw rocks, broke out our `windows`, almost overturned the car.
+- Two-hundred-twenty- two yards from home plate to my garage `windows`.
+- For priya to build something say, mike, hey, get away from the `windows`.
+- He was looking in my children's `windows` and i want you to find him edgar.
+- Just the basics... get away from `windows`, don't look at it... yeah-- get 'em.
+- During the daytime, they just pull down the shades on their `windows` and sleep.
+- Better than spending my life crawling through `windows` in the middle of the night.
+- You telling me you moved in to that big white house with the bars on the `windows`?
+- Damn those carny bolsheviks the other night, throwing bricks at my `windows` -- hmm.
+- It's not fair... looking out their `windows` to see your ass asleep on the streets...
+- There's some film cans in the far corner of the room underneath one of the `windows`.
+- Why... why that's very good, i mean you've gotten the `windows` and arches just right.
+- Choke on this furball: all doors and `windows` are blocked, locked, and electrified!
+- I looked down, and standing there in the street was cosmo, looking up at the `windows`.
+                 

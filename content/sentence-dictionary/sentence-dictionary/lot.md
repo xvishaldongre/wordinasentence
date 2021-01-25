@@ -1,0 +1,107 @@
+---
+title: "lot in a sentence | lot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lot"
+---
+- A whole `lot` of talk.
+- But she talks a `lot`.
+- Could be a `lot` more.
+- Danny: thanks a `lot`.
+- Fuck the `lot` of you.
+- I had a `lot` of that.
+- I like mookie a `lot`.
+- I mean, a whole `lot`?
+- I read a `lot` myself.
+- It bothers me a `lot`.
+- It's a `lot` of money.
+- It was a `lot` of fun.
+- I was a `lot` earlier.
+- Like, "a `lot`" a `lot`?
+- `Lot` of fathers here.
+- Oh i like her a `lot`.
+- On a `lot` of lithium?
+- Sounds a `lot` of run.
+- Thanks a `lot`, buddy.
+- Thanks a `lot`, craig.
+- Thanks a `lot`, linda.
+- Thanks a `lot`, sarge.
+- There's a `lot` on tv.
+- There's a `lot` there.
+- This ain't your `lot`?
+- Yeah i worry, a `lot`.
+- You taught me a `lot`.
+- A `lot` of people died.
+- A *`lot`* of paper!
+- A whole `lot`, frankie.
+- He's been shot a `lot`.
+- He was outside a `lot`.
+- I get a `lot` of calls.
+- I mean a parking `lot`.
+- I owe a `lot` of money.
+- It means a `lot` to me.
+- It's a `lot` to digest.
+- I've seen a `lot`, max.
+- Not a whole `lot`, bob.
+- Okay, i say it a `lot`.
+- Still a `lot` of money.
+- That just hurt a `lot`.
+- That's a `lot` of cash.
+- That's a `lot` of talk.
+- There's a `lot` to see.
+- You say 'fuck' a `lot`.
+- A `lot` of guys like me.
+- A `lot` of improvements.
+- A `lot` of people don't.
+- A `lot` sharper, sefton!
+- Do you get paid a `lot`?
+- He moves around a `lot`.
+- I already cast my `lot`.
+- I deserve a `lot` worse.
+- I'd feel a `lot` better.
+- I have a `lot` of money.
+- I mean, a `lot` like me.
+- I say a `lot` of things.
+- It's in the `lot` there.
+- It's progressed a `lot`.
+- I used to do it a `lot`.
+- Look, i do this a `lot`.
+- Oh... a `lot` of things.
+- Seen a `lot` of islands?
+- Thanks a `lot`, asshole.
+- Thanks a `lot`, freddie!
+- That's a `lot` of hooey!
+- That's a `lot` of money.
+- That's a `lot` of those.
+- There's a `lot` to tell.
+- You know i read a `lot`.
+- A `lot` of people didn't.
+- A `lot` of people saw it.
+- Now `lot` number 103.
+- You love him a `lot`.
+- Anyway, it means a `lot`.
+- A whole `lot` of nothing.
+- He owes a `lot` of money.
+- I did a `lot` of reading.
+- I go backpacking a `lot`.
+- I got a `lot` to protect.
+- I know a `lot` about you.
+- It's a `lot` of pressure.
+- It shifts around a `lot`.
+- I was in a `lot` of pain.
+- Jesus... is that a `lot`?
+- Killed a `lot` of people.
+- Man, you see him a `lot`.
+- On your own a `lot`, huh?
+- Second-raters, the `lot`.
+- So, a `lot` of them, yes.
+- Thanks a `lot`, bigmouth.
+- That's a `lot` of butler.
+- There's a `lot` of blood.
+- There's a `lot` of stuff.
+- Things got a `lot` worse.
+- This is a `lot` of money.
+- Well, this `lot` is full!
+- Yeah, in a parking `lot`.
+- Your art's worth a `lot`.
+                 

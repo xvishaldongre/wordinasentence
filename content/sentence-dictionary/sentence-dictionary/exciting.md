@@ -1,0 +1,76 @@
+---
+title: "exciting in a sentence | exciting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exciting"
+---
+- `Exciting`, wasn't it?
+- Isn't this `exciting`?
+- This is so `exciting`.
+- Do anything `exciting`?
+- It's pretty `exciting`.
+- Nothing too `exciting`.
+- But you were `exciting`.
+- I think it's `exciting`.
+- This is very `exciting`.
+- At first it is `exciting`.
+- It's getting `exciting` now.
+- Might be `exciting` for you.
+- _ - _ and it's so `exciting`.
+- I know, it's very `exciting`.
+- What's `exciting` about this?
+- Why does it sound `exciting`?
+- Doesn't sound very `exciting`.
+- Hollywood is oh so `exciting`.
+- Monkey, this is too `exciting`!
+- Now this is getting `exciting`.
+- Oh, it's an `exciting` time then.
+- This is so `exciting`, i... aagh!
+- These are `exciting` times, henry.
+- Sometimes it gets `exciting` out here.
+- I told you i also have `exciting` news.
+- It's about as `exciting` as... walking!
+- So last night was pretty `exciting`, huh?
+- Last night was very `exciting`, wasn't it?
+- Suppose i'm not `exciting` enough for you.
+- It's as `exciting` as watching fungus grow.
+- Golly i never knew it could be so `exciting`.
+- Joe zack is a good prospect -- `exciting` boy.
+- It ain't too `exciting`, but it's mostly legal.
+- There's absolutely nothing `exciting` about it.
+- `Exciting`, isn't it, imagining how it got there?
+- Glad that's `exciting` for you, my sister is mine.
+- Your honeymoon would've never been this `exciting`.
+- I'd forgotten how `exciting` it is working together.
+- Must be `exciting`, beautiful place, beautiful people.
+- Somehow i never thought your life was this `exciting`.
+- And a less `exciting` version of me has taken my place.
+- Boy, mr. lugosi, you must lead such an `exciting` life.
+- I know i'm not as, as `exciting` as your other friends.
+- I think it would be rather `exciting` to meet a pirate.
+- It looks `exciting` in hologram mode, die, nonbeliever!
+- The last twenty four hours have been really `exciting`!
+- To me it can be as `exciting` as any chase, any gunplay.
+- It must be `exciting` to be a fighter, to be totally free!
+- The idea of you as my adopted brother is very... `exciting`.
+- But this not knowing where you're going is `exciting` anyway.
+- You've been having quite an `exciting` time here, haven't you?
+- Yeah, i like the screaming too... it's so much more `exciting`.
+- I don't think "`exciting`" is the word i'd choose to describe it!
+- So all in all it's going to be an `exciting` new series for us...
+- Bet you didn't know your boyfriend finds a little pain `exciting`.
+- Most people, if they're lucky, live about half an `exciting` life!
+- I'll bet you have `exciting` things happen all the time down there.
+- It must be frightfully `exciting`..how did you guys all get together?
+- Oh, ben -- this is so -- `exciting` -- i'm going up to berkeley today.
+- Everything is new and `exciting`, like your seeing it for the first time.
+- I know it's not `exciting`, i'm sorry to say this will be our last session.
+- It was an `exciting` time for us, those first couple of years after the war.
+- It may not sound too `exciting` to a sconehead like you, but i think it's swell.
+- Would be `exciting` if someone famous did come into the shop though, wouldn't it?
+- I think it's the most `exciting` -- we're going to see things no one ever saw before.
+- I've never thought about it... what was the most `exciting` place you've ever been to?
+- The new technology permits us to do `exciting` things with interactive erotic software.
+- I sneak up behind him, something `exciting`'s well, at least let me get you well, they do.
+- I've walked across a stage a number of times, without `exciting` any particular response...
+                 

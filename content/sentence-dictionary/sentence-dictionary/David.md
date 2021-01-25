@@ -1,0 +1,107 @@
+---
+title: "David in a sentence | David example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "David"
+---
+- `David`, let's go now.
+- `David`, what is that?
+- `David`, you're drunk.
+- Doctor `david` ravell.
+- Now you and `david`...
+- That's great, `david`.
+- That's right, `david`.
+- What is this, `david`?
+- Is `david` dunne there?
+- It's too weird `david`.
+- Of course not, `david`.
+- The full moon, `david`.
+- Where's star, `david`?!
+- `David` berkowitz, 1977.
+- Helena -- how's `david`?
+- I'm gonna hurl, `david`.
+- Is this `david`'s doing?
+- Stop calling me `david`.
+- This `david`'s a friend?
+- This is absurd, `david`.
+- Who am i, `david` blane?
+- Why, thank you, `david`.
+- You didn't tell `david`?
+- `David`, `david`, `david` ...
+- Everything okay, `david`?
+- ♪ ghostbusters ♪ `david`?
+- Uh, yes... sure, `david`.
+- Bobby-- put `david` on it.
+- `David` came up to fix it.
+- `David` died most bravely.
+- Glad to have you, `david`.
+- I need some time, `david`.
+- Isn't that `david` graham?
+- Isn't that great, `david`?
+- It's about me and `david`.
+- Making hutch `david` soul?
+- No, i mean `david` ravell.
+- What's in there, `david`!?
+- Yes, sir... `david` lee...
+- `David`, i promise we will.
+- `David`, please believe me.
+- I like calling you `david`.
+- I've missed you... `david`.
+- `David`, don't lose control.
+- `David`, please be rational.
+- `David`, what are you doing?
+- `David`, what else can i do?
+- His name's `david` stockman.
+- I'm concerned about `david`.
+- Is `david` acting strangely?
+- Mark <u>`david`</u> chapman.
+- Rosa, so you've met `david`?
+- Take your own life, `david`.
+- What do we do here, `david`?
+- A guy named `david` brewster.
+- `David` was right, wasn't he?
+- Don't be an asshole, `david`.
+- Steve arnold... see, `david`?
+- That's what it cost, `david`.
+- What is it with you, `david`?
+- I think you're wrong, `david`.
+- You call your teacher `david`?
+- You will kill people, `david`.
+- `David` hasn't seen him either.
+- `David`, your dreams will stop.
+- What's wrong with him, `david`?
+- What's wrong with you, `david`?
+- It's like you resent us `david`.
+- Oh, `david`, stop being a nanny.
+- Smart move, `david`, smart move.
+- Tuck that shirt in, `david` lee.
+- Voila monsieur `david` warfield.
+- `David` -- you were right, ellie.
+- I want you to bring `david` here.
+- Saavik... is... `david` with you?
+- You keep looking around, `david`.
+- `David` -- especially tiger woods.
+- `David` produced her last picture.
+- I'm asking for your help, `david`.
+- I'm talking about `david` ravell!!
+- I've done the slut thing, `david`.
+- Now i've been thinking -- `david`?
+- The work is getting done, `david`.
+- This isn't going to help, `david`.
+- But you did all you could, `david`.
+- `David`, let me tell you something.
+- `David`, need to ask you something.
+- I s'pose his name's `david` ravell.
+- It isn't working any more, `david`.
+- This is agent `david` halpern, cia.
+- `David`, i appreciate your comments.
+- `David` says he's very so he's very.
+- `David` says jack comes to warn him.
+- I'm not having a nice time, `david`!
+- Let me see it... `david` lee morgan.
+- Not now, `david`, it's time for bed.
+- That's not what i witnessed `david`.
+- What would you have me say, `david`?
+- ♪ cut it... `david`, where you going?
+- `David` has suffered a severe trauma.
+                 

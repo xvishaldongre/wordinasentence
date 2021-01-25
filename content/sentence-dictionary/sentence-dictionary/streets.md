@@ -1,0 +1,93 @@
+---
+title: "streets in a sentence | streets example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "streets"
+---
+- Got me off the `streets`?
+- Just the cross `streets`.
+- Every street, two `streets`.
+- We buy it off the `streets`.
+- The `streets` are a war zone.
+- The `streets` and the getaway.
+- You've finished the `streets`?
+- He was living on the `streets`.
+- People throw up in the `streets`.
+- Throw it down into the `streets`!
+- Madmen are on the `streets`, paul.
+- He just ran out into the `streets`.
+- The `streets` are crawling with 'em.
+- Before the `streets` get too crowded.
+- Have you been out in those `streets`?
+- Those `streets` up in the hills, man.
+- You have to learn it on the `streets`.
+- Charge, then get back on the `streets`.
+- One step from the `streets`, i tell you.
+- There's blood spilling in the `streets`.
+- These people live on the same `streets`.
+- They're hunting people on the `streets`.
+- We're not a bunch of icy `streets` here.
+- I can't be seen on the fucking `streets`.
+- Afraid they'll be bombed in the `streets`.
+- Alex -- no sense messing up the `streets`.
+- Did you know he was back on the `streets`?
+- I can take you off the `streets` for good.
+- ...be responsible for you in the `streets`.
+- We'll vacuum these `streets` if we have to.
+- College girls are one step from the `streets`.
+- Hang on... what do they have on the `streets`?
+- Do you want me to go into the `streets` and beg?
+- The word is out in the `streets` that he's dead.
+- <i>choco grew up on the `streets` of el salvador.
+- Let 'em die on the `streets`, as nature intended.
+- There is sunlight in the `streets` and work to do.
+- In america, the great el barto roams the `streets`.
+- We've both been on the `streets` for the last week.
+- I forgot what it's like to have you on the `streets`.
+- Any place it's safe to walk the `streets` without... .
+- At least i don't walk the `streets` like a skunk pussy.
+- You do not want a guy like that loose on the `streets`.
+- He wouldn't last a day on the `streets` without capture.
+- I grew up in south boston, more or less on the `streets`.
+- More and more people started coming out in the `streets`.
+- But with `streets` that are wide enough i can fit in them.
+- I know top dollar has turned your `streets` into his hell.
+- We want an extra out on the `streets` before it's too late!
+- Children, all lined up in rows, up and down these `streets`.
+- I couldn't walk around in the `streets` without any clothes.
+- I'll get these `streets` fixed, if it's the last thing i do.
+- The way you drove that car, i figured you for the `streets`.
+- You'll stalk the `streets` of london a creature of the night.
+- Who'd want to let in all kinds of riff-raff off the `streets`?
+- Maybe that's why he ended up dead in the `streets` of rome.
+- We have to cordon off the `streets`, then evacuate these houses.
+- Tell them to get people off the `streets` and behind locked doors.
+- You're just going to fly to italy and start combing the `streets`?
+- How did our miss drumgo get... ...spend some time on the `streets`.
+- We don't hang them at home, y'know � just in the `streets`.. hmmmm.
+- Why, they'll be naming `streets` after you -- hildy johnson street!
+- What are you doing running through the `streets` in your underpants?
+- And, since it's only two `streets` away, i suggest we go take a look.
+- I used to walk inna `streets` till three, four o'clock inna mornings.
+- How can i keep making movies when people in the `streets` are starving?
+- These people wander through the `streets` calling out "kill me, kill me."
+- To begin, i put money out on the `streets`, chargin' three points a week.
+- You're acting really- you don't belong on the no, no, no, no... `streets`.
+- All the animals are bold as brass, coming down into the `streets` for food.
+- You've been roaming the `streets` while your mother is god-knows-where?
+- I've been wandering the `streets` day and night trying to find you... yaaa!
+- Night after night we're on the `streets`, busting our humps -- and for what?
+- So she can drive through the `streets` of rome paging the man of her dreams.
+- Ain't it so they got trains up in new york city that run under the `streets`?
+- The public should be happy to co-operate, to get this disease off the `streets`.
+- Alot of action on the `streets` tonight, and nobody bothered to clear it with me.
+- There are the grands boulevards... blasted out of the heart of the old `streets`.
+- A maniac gets hold of my gun and goes all over the `streets` killing people with it.
+- It's not fair... looking out their windows to see your ass asleep on the `streets`...
+- And, how many victims are buried without reprisal while guilty men roam our `streets`?
+- That's it, parading the `streets` ... trailing your coat ... bowling along ... living!
+- I am once more available for dancing in the `streets` and shouting from the housetops."
+- I showed you a glamorous world when i took you off the `streets`... and how you repay me.
+- I'm out on the `streets` looking for work and this bitch is banging some asshole in my bed.
+- All these `streets` round here have these mysterious communal gardens in the middle of them.
+                 

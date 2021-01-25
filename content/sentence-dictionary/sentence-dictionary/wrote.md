@@ -1,0 +1,107 @@
+---
+title: "wrote in a sentence | wrote example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wrote"
+---
+- I `wrote` a few pages.
+- I `wrote` i'm sorry...
+- She `wrote` that tune?
+- Who `wrote` this book?
+- `Wrote` it last night.
+- You `wrote` that...
+- She `wrote`, "love to."
+- The one who `wrote` us.
+- I re-`wrote` it, anyway.
+- I `wrote` him on monday.
+- I `wrote` my play on it.
+- You `wrote` me a letter.
+- You `wrote` that book...
+- He `wrote` a song for me.
+- I `wrote` a song for you.
+- I also `wrote` one part...
+- I `wrote` all his answers.
+- You saw what they `wrote`.
+- You `wrote` this with him?
+- If i `wrote` them, that is.
+- Something...that i `wrote`?
+- You `wrote` bill's scripts!
+- You `wrote` it, didn't you?
+- He `wrote` arlington street.
+- He `wrote` you some letters.
+- Kill him, i `wrote` it down.
+- Then who `wrote` the report?
+- Trent told me he `wrote` it.
+- Beethoven just `wrote` music.
+- He never `wrote` any of them.
+- I `wrote` forty operas alone.
+- I `wrote` that with my heart.
+- Yeh, i `wrote` a couple down.
+- He `wrote` about his daughter.
+- I know, i know who `wrote` it.
+- I `wrote` it years afterwards.
+- Unless they `wrote` it in red.
+- Verse -- verse that i `wrote`.
+- Grant `wrote` the song himself.
+- I didn't know you `wrote` that.
+- I `wrote` my number on the box.
+- I `wrote`, telephoned, nothing.
+- Looks like a hacker `wrote` it.
+- Remember when she `wrote` that?
+- That's all she fuckin' `wrote`!
+- They never `wrote` you nothing?
+- Who `wrote` this piece of crap?
+- He `wrote` me a nice deposition.
+- I even `wrote` you into my will.
+- I just re-`wrote` your contract.
+- So i `wrote` the bullshit essay.
+- Well, you saw what they `wrote`!
+- What do you mean you `wrote` it?
+- But somebody `wrote` those songs.
+- He was deaf when he `wrote` this.
+- I knew you `wrote` about murders.
+- I `wrote` the stone codes inside.
+- One finally `wrote` "wintermute".
+- That's not what i `wrote` to you.
+- Go back and read what you `wrote`.
+- He `wrote` seventeen cookbooks.
+- But... he only `wrote` nine, major.
+- I `wrote` an address in there, too.
+- You really `wrote` this just today?
+- But it's not why i `wrote` the book.
+- Do you have the name i `wrote` down?
+- I `wrote` something special for you.
+- Now, wait a minute -- i `wrote` you.
+- You said how many bonds you `wrote`?
+- I knew tom never `wrote` that letter.
+- She `wrote` a book about time travel.
+- You `wrote` it, all by your own self.
+- Did i ever tell you what tina `wrote`?
+- I'm real upset about what you `wrote`.
+- I think hemingway `wrote` somewhere...
+- I `wrote` down "leaving you in polis."
+- I `wrote` sixty-three songs this year.
+- Our mr. mervin `wrote` a small review.
+- September '97, that's all she `wrote`.
+- You're not the first guy i `wrote` to.
+- You `wrote` me wonderful things, nick.
+- He `wrote` about the seven deadly sins.
+- A user even `wrote` you... that's right.
+- He `wrote` of the hardships, good point.
+- He `wrote` some beautiful piano sonatas.
+- I even `wrote` to him, offering my help.
+- See, i `wrote` something about all this.
+- You are the man who `wrote` this letter.
+- I `wrote` a check for a thousand dollars.
+- Want to bet he `wrote` it down somewhere?
+- '`wrote` this just to run their web site.
+- The real question is who `wrote` the song?
+- `Wrote` you a hundred letters, didn't she?
+- You `wrote` that you had trouble sleeping.
+- My wife `wrote` me she was gettin' married!
+- He `wrote` it to me the day after i saw him.
+- I wanna feel like i did when i `wrote` that.
+- I `wrote` the license number in my notebook.
+- That was almost nine months ago she `wrote`.
+- You `wrote` a play on it, what play is that?
+                 

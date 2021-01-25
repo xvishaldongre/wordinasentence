@@ -1,0 +1,107 @@
+---
+title: "mine in a sentence | mine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mine"
+---
+- Da pleasure be `mine`.
+- I'll open `mine`, too.
+- It's `mine` all right.
+- It's what's in `mine`.
+- I've still got `mine`.
+- `Mine` have passed on.
+- `Mine`'s the eleventh.
+- `Mine` were too small.
+- Now his body's `mine`.
+- Oh, that's not `mine`.
+- So now you get `mine`.
+- The one in the `mine`!
+- They're taking `mine`.
+- What's `mine` is `mine`.
+- Yeah, `mine`'s bigger.
+- You wanna hear `mine`?
+- After he smells `mine`.
+- An invention of `mine`.
+- But it was just `mine`.
+- I'll see you in `mine`.
+- I'll take `mine` to go.
+- It's not `mine` either.
+- `Mine` and my family�s!
+- `Mine` is to be obeyed.
+- `Mine`'s all right too.
+- `Mine` shot a bean bag.
+- `Mine` was cobalt blue.
+- The baseball is `mine`.
+- The pleasure is `mine`.
+- They're all `mine` now!
+- This is part of `mine`.
+- This used to be `mine`.
+- Some of it's `mine`.
+- A new venture of `mine`.
+- But it sticks in `mine`.
+- But they weren't `mine`.
+- Clarke will have `mine`.
+- From a friend of `mine`.
+- Half of them are `mine`.
+- He's a client of `mine`!
+- He's a friend of `mine`.
+- I guess it's `mine` now.
+- I suppose it was `mine`.
+- I tell you she's `mine`!
+- It's a fetish of `mine`.
+- It's a `mine`, isn't it?
+- It's time i made `mine`.
+- `Mine` barely even fits.
+- `Mine`'s broken already.
+- No, no, no, he's `mine`.
+- That wasn't even `mine`.
+- The honor is all `mine`.
+- The pleasure was `mine`.
+- Two of them were `mine`.
+- You're `mine`, you know.
+- A little hobby of `mine`.
+- `Mine` goes with you.
+- Because she was `mine`...
+- I left `mine` in the car.
+- Oh, but it is `mine` too!
+- One's hers, one's `mine`.
+- Rick... debbie is `mine`.
+- She's a friend of `mine`.
+- She's going to be `mine`!
+- Soon, she will be `mine`.
+- The palace is `mine` now.
+- The terms will be `mine`.
+- The world will be `mine`.
+- Well it's in `mine`, too.
+- Well, `mine`'s still out.
+- Well, they're `mine` now.
+- Well, they're not `mine`.
+- Yours, `mine`, all of it.
+- Your words, not `mine`...
+- He drove me to `mine`.
+- Forget her, you're `mine`.
+- He was a friend of `mine`.
+- His secret was `mine` now.
+- I know that i have `mine`.
+- I'll take him over `mine`.
+- It's `mine`, motherfucker.
+- Make `mine` a bloody mary.
+- Maybe `mine`, maybe yours.
+- Me and a friend of `mine`.
+- No, the stones are `mine`!
+- Or `mine` for that matter.
+- That pudding's not `mine`.
+- They're friends of `mine`.
+- This would be `mine`, sir.
+- To see a friend of `mine`.
+- Your unit is `mine` now.
+- Because it isn't in `mine`.
+- He tried to shatter `mine`.
+- It's a specialty of `mine`.
+- It was exactly like `mine`.
+- It was the claymore `mine`.
+- `Mine`, and they never tip.
+- `Mine` is a higher mission.
+- `Mine` is running a saloon.
+- See if `mine` are in there.
+                 

@@ -1,0 +1,63 @@
+---
+title: "Harper in a sentence | Harper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Harper"
+---
+- I'll relieve `harper`.
+- `Harper` can help emori.
+- I may be bald, `harper`.
+- Miller, `harper`, bryan.
+- [beeping] `harper`, wait.
+- `Harper`, watch the hall.
+- `Harper` longer than that.
+- `Harper`'s out there alone.
+- `Harper`, do you see jasper?
+- `Harper`, i need the siphon.
+- `Harper`: uh... grounders!
+- I'll get monty and `harper`.
+- I never thought... `harper`!
+- Is looseleaf `harper` alive?
+- So... you and `harper`, huh?
+- [`harper` laughing] we don't.
+- Uh... without `harper`... no!
+- He's not looking for `harper`.
+- I'm reading her code, `harper`.
+- I'm reading her code, `harper`.
+- What about miller and `harper`?
+- `Harper`, on radio: oks, come in.
+- He was a cool one, that `harper`.
+- Two so far... monty and `harper`.
+- What the-- `harper`: i see one!
+- You killed two men, ben `harper`.
+- `Harper` didn't show for breakfast.
+- `Harper`, let's get this over with.
+- `Harper`, we'll stay here on watch.
+- Monty and `harper` are coming, too?
+- I'm jordan, monty and `harper`'s son.
+- `Harper` didn't show up for breakfast.
+- We lost monty and `harper` 3 days ago.
+- Hey, `harper`, what did they do to you?
+- `Harper`: oks, is your team in position?
+- Oh my god-- and you are looseleaf `harper`.
+- But mose `harper` said... how should i know?
+- `Harper`... - uh... - what's wrong with her?
+- `Harper`'s a guard and a better shot than you.
+- `Harper`'s been eating a little too much algae.
+- That's how colonel `harper` lost his little toe.
+- What's it gonna be, raven's machine or `harper`?
+- Harold ryan and looseleaf `harper` are my friends.
+- I've told `harper` it's to be expected, but, um...
+- They've taken `harper`, and she may already be dead.
+- There are 2,237 people on this ark... [clatter] `harper`.
+- We're gonna play a c. [exhales] you're not helping, `harper`.
+- That sword has served me through many an evil time, ben `harper`.
+- Colonel `harper` and i once shared a treetop with a family of bats.
+- Cadogan gave him meaning, `harper` told me i might find you down here.
+- `Harper`, get some pots from the kitchen, they don't know they're going.
+- I declare, you'll let that money haunt you to your grave, willa `harper`!
+- ♪ but i'm longing to stay ♪ what's it gonna be, raven's machine or `harper`?
+- I can have them ready in 4 months, and that night, marge sold more tubberware `harper`?
+- Reverend `harper` thinks more cross corners folk oughter be in church, sabbath morning.
+- Whatever happened to `harper`, could you direct me to the office of park bench removal?
+                 

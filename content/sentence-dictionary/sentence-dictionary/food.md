@@ -1,0 +1,107 @@
+---
+title: "food in a sentence | food example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "food"
+---
+- Enough `food` for 100?
+- `Food`'s shot to hell.
+- I couldn't buy `food`.
+- Is the `food` alright?
+- Nice `food`, isn't it?
+- Says he wanted `food`.
+- There's `food` inside.
+- We were out of `food`.
+- What about the `food`?
+- ...i meant your `food`.
+- Is the `food` that bad?
+- It's not a `food` baby.
+- Let's grab some `food`.
+- 'cause it's only `food`.
+- Do you want some `food`?
+- For the `food` business.
+- I don't eat junk `food`.
+- I don't want any `food`.
+- I use her `food` stamps.
+- No, fish is a pm `food`.
+- Put `food` on the table?
+- That `food` has spoiled.
+- The king of road `food`.
+- This `food`'s delicious.
+- A `food` truck graveyard.
+- He's my-my `food` taster.
+- I had no `food` or water.
+- I'm sure he's got `food`.
+- Thank you for the `food`.
+- This `food` is excellent.
+- Good suits, good `food`...
+- I'm going `food`-shopping.
+- Rich `food` - it kills me.
+- That `food` you're eating.
+- You just said very `food`.
+- And our `food` safe to eat.
+- `Food`...and you...my f-14!
+- How's the `food` situation?
+- I never think about `food`.
+- Make them a gift of `food`.
+- No, chinese `food` is fine.
+- That's buster's dog `food`.
+- The `food` is on the table.
+- We don't take extra `food`.
+- We'll be `food`, dickheads!
+- Your `food`'s getting cold.
+- All the `food` here is free.
+- Has he been refusing `food`?
+- Hey, what's with the `food`?
+- How's the `food` down there?
+- I brought him `food`, water.
+- I'll take my `food` to go...
+- I'm not eating their `food`.
+- So `food` and communication.
+- This is my favourite `food`.
+- What's your favorite `food`?
+- Your `food` is on the table.
+- The `food` sucks, i know.
+- But i went back to my `food`.
+- Duncan hines' devil's `food`.
+- Eileen, chinese `food` again?
+- Elizabeth what's very `food`?
+- Excuse me, that's our `food`.
+- `Food` doesn't agree with me.
+- I'd better order some `food`.
+- I don't need sleep or `food`.
+- I guess no more `food`, then.
+- Is this all the `food` i get?
+- It's troll's favorite `food`!
+- It takes money to buy `food`.
+- Sticking `food` in his mouth.
+- There's `food` in the fridge.
+- This `food` tastes like shit.
+- Bad `food`, brutal discipline.
+- By eating our `food` supplies.
+- Good `food`, i have good `food`.
+- I also ordered some `food` ...
+- I have a favourite `food` now.
+- Just come for the `food`, man.
+- Maybe it's just a `food` baby.
+- Oh yeah, you don't eat `food`.
+- So `food` and communication.
+- Thai `food` best in the world.
+- The `food` doesn't please you?
+- The `food` lines took forever.
+- They bring me news and `food`.
+- You have my `food` in ya hand.
+- A `food` truck that takes bets?
+- Stealing `food` from benny?
+- Barks at the mention of `food`.
+- Here's some `food` for thought.
+- I have to go out to get `food`.
+- I should get it at `food` city.
+- No coolants to preserve `food`.
+- There must be some `food` here.
+- There's no `food` in the house?
+- There's no `food` in your `food`.
+- We grow most of our own `food`.
+- We're going to get some `food`.
+- We were gonna grab some `food`.
+                 

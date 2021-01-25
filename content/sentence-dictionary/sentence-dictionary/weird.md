@@ -1,0 +1,107 @@
+---
+title: "weird in a sentence | weird example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weird"
+---
+- I feel really `weird`.
+- It's not this `weird`.
+- Kinda `weird`, i know.
+- No, it's `weird`, man.
+- Seems kind of `weird`.
+- Teenagers are `weird`.
+- That's pretty `weird`.
+- They're `weird` names.
+- This just got `weird`.
+- `Weird` beard, though.
+- You're acting `weird`.
+- It's too `weird` david.
+- It was `weird`... no...
+- Something real `weird`.
+- What, it's not `weird`.
+- You make `weird` jokes.
+- Big, `weird`...you know.
+- Call if you get `weird`.
+- Does this sound `weird`?
+- Hi `weird` and tiny huh?
+- I am not acting `weird`!
+- I hate the `weird` ones.
+- Please don't be `weird`.
+- Rich people are `weird`.
+- That's the `weird` part.
+- This is `weird`, mulder.
+- It's `weird`, that's all.
+- It's `weird` to see skin.
+- Now everything's `weird`.
+- Quint... is that `weird`?
+- So, where's "`weird` al"?
+- That's `weird`, isn't it?
+- What's `weird` about him?
+- Fucked-up fucking `weird`.
+- I feel `weird` asking him.
+- What's `weird` about that?
+- Why are you being `weird`?
+- Dad seems a little `weird`.
+- First few days are `weird`.
+- I know that sounds `weird`.
+- I�m compulsive and `weird`?
+- No--<u>this</u> is `weird`.
+- Oh god, this is so `weird`.
+- Oh, it still feels `weird`.
+- Well, it's kind of `weird`.
+- I thought i was `weird`.
+- It's such a `weird` feeling.
+- John... oh, this is `weird`.
+- Lotsa `weird` shit in there.
+- Okay, you're acting `weird`.
+- She's acting `weird`, vince.
+- That's just fucking `weird`.
+- The world's getting `weird`.
+- You got `weird` kids, frank.
+- But something's very `weird`.
+- Can we call you "`weird` al"?
+- Don't you think it's `weird`?
+- He does `weird` things to me.
+- It is really `weird` looking.
+- It's `weird` being the groom.
+- Know what i think is `weird`?
+- No but he got really `weird`.
+- Oh, it was... really `weird`.
+- Okay, this is really `weird`.
+- So it didn't feel... `weird`?
+- `Weird` they didn't chase us.
+- You're acting really `weird`.
+- You're a `weird` little shit.
+- But, then again i was `weird`.
+- Come one, that was so `weird`.
+- Geez, they look kinda `weird`.
+- He's being `weird`, i'm sorry.
+- I don't know - it was `weird`.
+- I mean, it's a little `weird`.
+- This is `weird` without lucas.
+- What do you mean by "`weird`"?
+- You have some `weird` friends.
+- You're making me feel `weird`.
+- Claire's in a `weird` mood too.
+- He'd startin' behavin' `weird`?
+- I knew you were acting `weird`.
+- There's some `weird` shit here.
+- Want to hear something `weird`?
+- I always knew talby was `weird`.
+- It just seems...kind of `weird`.
+- My life was too `weird` for her.
+- The news these days ... `weird`.
+- There's that `weird` dude again.
+- Things are about to get `weird`.
+- You're being `weird` again, see.
+- Damn, that was some `weird` shit.
+- Feeling kind of `weird` actually.
+- I just mean it's `weird` to me...
+- ...i just thought it was `weird`.
+- The term "deliver" is so `weird`.
+- You are an awesomely `weird` cop.
+- 'cause "guard" sounds too `weird`.
+- Dad, i'm starting to feel `weird`.
+- Do you think she's acting `weird`?
+- Even in nam it was always `weird`.
+                 

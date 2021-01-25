@@ -1,0 +1,107 @@
+---
+title: "to in a sentence | to example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "to"
+---
+- Ask her `to` the prom.
+- At least, i used `to`.
+- Attending `to` heroes?
+- Back `to` high school.
+- Back `to` the village.
+- Back `to` your places.
+- Because i wanted `to`.
+- Because you want `to`.
+- Before going `to` bed.
+- Begged me not `to` go.
+- Billy, listen `to` me.
+- But i had `to` end it.
+- But i like `to` do it.
+- But not `to` servants.
+- But there has `to` be.
+- But you get `to` live.
+- Came by `to` see troy.
+- Can i go `to` bed now?
+- Can you talk `to` her?
+- Care `to` have a look?
+- Certainly not `to` me.
+- Close `to` retirement?
+- Come on back `to` bed.
+- Come `to` 45 broadway.
+- Come `to` get you out.
+- Come `to` look around?
+- Come `to` your senses!
+- Coming `to` secure it.
+- Committed `to` memory.
+- Did he used `to` ... ?
+- Didn’t say where `to`.
+- Did she talk `to` you?
+- Did you talk `to` him?
+- Does he talk `to` you?
+- Doesn't hurt `to` ask.
+- Doesn't need `to` fly.
+- Does she want `to` be?
+- Don't belong `to` you!
+- Don't do that `to` me!
+- Don't do this `to` me.
+- Don't give it `to` me.
+- Don't hang on `to` me.
+- Don't lie `to` me now.
+- Don't listen `to` her.
+- Don't listen `to` him.
+- Don�t be nice `to` me.
+- Do you go `to` school?
+- Do you like `to` read?
+- Do you want `to` live?
+- Do you want `to` stay?
+- Do you want `to` stop?
+- Do you want `to` talk?
+- Easy for you `to` say.
+- Enough `to` keep sane.
+- Even if i wanted `to`.
+- Even where `to` start?
+- Food's shot `to` hell.
+- For going `to` school?
+- Frozen `to` the touch?
+- Get her `to` a doctor.
+- Get him `to` the keep.
+- Get them `to` arkadia.
+- Get `to` see you sing.
+- Get `to` the basement.
+- Get `to` the bathroom!
+- Give him back `to` me!
+- Give it back `to` him.
+- Give it `to` her, dad.
+- Give it `to` me, sami.
+- Go back `to` bulgaria.
+- Goddamn you `to` hell!
+- God knows i want `to`.
+- God, listen `to` this!
+- Going nearer `to` god!
+- Going `to` die anyway.
+- Going `to` tell ellie?
+- Goin' `to` see my kid.
+- Gone `to` the policia.
+- Good of you `to` come.
+- Good `to` see you, ma.
+- Good `to` see you too.
+- Got anything `to` say?
+- Go `to` the farmhouse.
+- Go `to` your room now.
+- Got `to` be somewhere.
+- Got `to` get sollozzo.
+- Got `to` get supplies.
+- "got `to` give it up!"
+- Grace, listen `to` me.
+- Guard, `to` the front.
+- Guys ready `to` order?
+- Hand `to` hand combat.
+- Hand `to` hand combat?
+- Harry gave it `to` me.
+- He failed `to` escape.
+- He had no reason `to`.
+- He has `to` touch her.
+- He has `to` wear them.
+- He lied `to` me again.
+- Help me `to` help you!
+                 

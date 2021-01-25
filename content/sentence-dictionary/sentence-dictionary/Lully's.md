@@ -1,0 +1,7 @@
+---
+title: "Lully's in a sentence | Lully's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lully's"
+---
+## Unfortunately, we have no example sentences for Lully's                 

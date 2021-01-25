@@ -1,0 +1,91 @@
+---
+title: "pardon in a sentence | pardon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pardon"
+---
+- `Pardon` me--*this* is.
+- `Pardon` the hour, sir.
+- `Pardon` your brothers.
+- `Pardon` me... miss... ?
+- This is a full `pardon`.
+- I beg your `pardon`, sir?
+- `Pardon` me, was that mr.
+- They gave you a `pardon`!
+- `Pardon` me... my mistake.
+- You'll `pardon` me, norma?
+- I'll settle for a `pardon`.
+- I beg your `pardon`, ontari.
+- <i></i> i beg your `pardon`?
+- `Pardon` my language, ma'am.
+- An official `pardon` from me.
+- I beg your `pardon`, brother.
+- `Pardon` me, but are you okay?
+- They gave you a `pardon`, man.
+- I beg your `pardon` -- fuck it!
+- No, no, `pardon` me, exchange .
+- `Pardon` our sloppy appearance.
+- If you will `pardon` me, madame.
+- I `pardon` myself and the others.
+- This is how i met -- `pardon` me?
+- I beg your `pardon`, epi-zoo-tics?
+- It's a `pardon` from the governor.
+- `Pardon` my french, but bull shit.
+- `Pardon` me... are you an explorer?
+- Beg your `pardon` sir, you are hutu.
+- `Pardon` me while i reach for my beads.
+- I beg your `pardon`, i'm not an asshole.
+- I didn't see our names on that `pardon`.
+- `Pardon` me for bringing these ill news.
+- Excuse me, `pardon`, thank you, excuse me.
+- God `pardon` sin, was thou with rosaline!?
+- The media has caught wind of his `pardon`.
+- `Pardon` me, but why must i do you a favor?
+- I come looking for you to ask your `pardon`.
+- `Pardon` me, but i doubt you can handle her.
+- `Pardon` me, ma'am, can i ask you somethin'?
+- You know that `pardon`= contract you signed?
+- You know� `pardon` me, mr. smith is engaged.
+- "in washington..." well, `pardon` me if i do.
+- I said--shall we get started *now* or-- `pardon`?
+- Now, if you'll `pardon` me, i have to go to work.
+- `Pardon` me for saying so, but you look like shit.
+- You'll `pardon` me if i ask you to kiss my pucker.
+- You've already fulfilled the terms of your `pardon`.
+- Ah, begging your `pardon`, but shouldn't we be going?
+- `Pardon` me miss, but would you mind turning... shhh!
+- Pledge us your `pardon` and we will unite behind you.
+- `Pardon` me, mr. bienstock - can i have my flask back?
+- <u>although</u> it is altered..." i beg your `pardon`?
+- `Pardon` me, the lady has urgent business here with me.
+- Your `pardon`, m'lord, he asked me to come in his stead.
+- `Pardon` me, doctor, i am hearing many calls of distress.
+- Savvy viewers will notice i was gonna suggest a `pardon`.
+- *i* should have been the one to think of it-- `pardon` me.
+- '`pardon` me for being rude, it was not me, it was my food.
+- Eh ... `pardon` me for asking but who's that little old man?
+- You're a drifter, a -- `pardon` the expression -- beach bum.
+- Begging your `pardon`, i was more honest than my holy mother.
+- No, i want to have this marked, mr. - `pardon` me, counselor.
+- `Pardon` me, madam - but what am i to say to the newspapermen?
+- When jeff gets through with taylor, pop-- i beg your `pardon`?
+- Begging your `pardon`, i haven't been down the bowery in years!
+- `Pardon` me� we were just going to bury him when you came along.
+- `Pardon` my glibness trevor but you sound like a raving lunatic.
+- Excuse me, i -- `pardon` me -- and they call them social insects.
+- Neuro-specialists par excellence ...if you'll `pardon` my french.
+- `Pardon` me for addressing you but you insulted him, you know that.
+- I beg your `pardon`, general solo, but that just wouldn't be proper.
+- Howard, you'll serve no more than two years, then he'll `pardon` you.
+- `Pardon` my intrusiveness, but we do have to stick together you know.
+- But you won't talk to him ... if he's convicted, will you `pardon` him?
+- Whatever's out there <u>did</u> flip over a canoe-- i beg your `pardon`?
+- `Pardon` me, m'sieu, but i have the feeling we have met somewhere before.
+- I beg `pardon`, sir, but did you ever find what you were looking for, sir?
+- `Pardon` the delay, folks, but we had to get mad bob younger under control!
+- Grant me, your unworthy servant `pardon` for all my sins... o'lord hear my prey.
+- `Pardon` me, i've had a few things on my mind--like putting this safari together.
+- If you'll `pardon` the expression, that's when you'll see the fur and feathers fly.
+- But if you ever speak out against wonkru again, so, what, we have `pardon` power now?
+- But the man is guilty of sedition and subject to military justice and beyond `pardon`.
+                 

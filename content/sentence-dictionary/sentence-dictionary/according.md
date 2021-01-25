@@ -1,0 +1,107 @@
+---
+title: "according in a sentence | according example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "according"
+---
+- `According` to this tag.
+- `According` to you, yeah.
+- Not `according` to these.
+- `According` to your mother.
+- Not `according` to my charts.
+- Not `according` to his teacher.
+- Not `according` to mrs. rabinow.
+- Not `according` to the computer.
+- Not exactly `according` to plan.
+- This is not `according` to form.
+- At least not `according` to haven.
+- Not `according` to the men in blue.
+- Well, `according` to my book, it is.
+- `According` to my information, today.
+- `According` to this, he's a sick man.
+- `According` to engineering, we kill it.
+- A two man army `according` to interpol.
+- `According` to maya, why, you little...!
+- `According` to you i'm a sexual failure.
+- `According` to my nava-computer, the -- no.
+- `According` to this ... you're already dead.
+- That's proper, sir, `according` to the code.
+- You got no sick time `according` to command.
+- `According` to my calculations, there is not.
+- `According` to my calculations, there is not.
+- `According` to the phone guide he lives here.
+- I don't know, but `according` to this, - amen.
+- `According` to the computer, he paid the price.
+- `According` to their doctor, we have some time.
+- `According` to madi, she's encountered our enemy.
+- It now belongs to you, `according` to baltus.
+- `According` to our tax advisers, she's only so-so.
+- `According` to you, mr. blonde was gonna kill you.
+- `According` to you, this concerns the whole world.
+- `According` to the map, we're just about at school.
+- Exactly `according` to your instructions, mr. kane.
+- Madi... second, `according` to pike's order, - hmm.
+- `According` to the backer's list you raised $60,000.
+- `According` to this, he's in geneva from '76 to '79.
+- `According` to tom, she's a pretty determined woman.
+- The hot leads are assigned `according` to the board.
+- It's just, `according` to everything i've read, will!
+- Presumably yours... that's `according` to st. dallas.
+- Those were your words, `according` to your neighbors.
+- `According` to myth, the earth was created in six days.
+- `According` to cyber stalker.com, he's making us choose.
+- `According` to legend, it left a hole in the woods indra?
+- `According` to our adjustment protocol, octavia, you fool!
+- I retraced your exact steps `according` to your statement.
+- They live `according` to nature, in a never ending summer.
+- `According` to engineering, and become one with the primes.
+- `According` to your statement you are a short-con operator.
+- `According` to our astrometric readings... the year is 2063.
+- `According` to this, there's a dream space how does it feel?
+- `According` to your records when did you prescribe the drug?
+- Ellie, `according` to your physics none of this is possible.
+- `According` to mother, sir august owns half of the highlands.
+- `According` to this, the daughter goes up to stay quiet often.
+- Like all living beings, admiral each `according` to his gifts.
+- `According` to our data banks, this ship fired those torpedoes.
+- Anticipating an invasion by us, `according` to our information.
+- Must be tough living life `according` to a few scraps of paper.
+- Okay, `according` to this, which is exactly why you'll do this.
+- `According` to kristen, they hunted him down; roasted him alive.
+- `According` to military intelligence, it'll be random and light.
+- `According` to the geneva convention -- all i know is he did it.
+- `According` to the soundtrack to hamilton, you were a real jerk.
+- `According` to what we've been able to verify, you've been busy.
+- `According` to the file, the mothership went did she tell you that?
+- Did an exploratory and `according` to them, she needed an overhaul.
+- `According` to my calculations, we should be right under the statue.
+- `According` to shaw, this place and he was a great parent, i assume.
+- `According` to the computer - she died of a drug overdose last year.
+- That'll set off the alarm... - `according` to alexei, - come on.
+- But if you promise me a wedding `according` to my traditions, nancy!
+- Wendigos are great liars and tricksters, `according` to the stories.
+- `According` to civil defense plans from before the war, moe's tavern.
+- `According` to diyoza, our people act as if war is easier than peace.
+- Hydrocarbons are separated `according` to their-- " i mean, it just...
+- `According` to my brother nathan's abormally close with his mother.
+- `According` to the data, all human behavior i'll worry about the science.
+- `According` to this we've completed our exploration of the entire sector.
+- `According` to california law we have a constitutional right to bear arms.
+- `According` to your girlfriend, suzy parker, you and she were at the movies.
+- Where, `according` to st. dallas, j.j. was responsible for the elwell smear!
+- Mr. gorman, `according` to our records you have been unemployed for 36 weeks.
+- `According` to my sources, the world will end on february 14, in the year 2016.
+- Bud, `according` to monk here, you just set a record for the deepest suit dive.
+- For another, `according` to pendergast, the crates were shipped here on a boat.
+- Now.... `according` to the file, krueger was burned to death in a fire in 1968.
+- Anyway, `according` to the sheet, the guy you nailed outside by the car-- come on.
+- `According` to marco polo, the kingdom of china is one of the richest of the world.
+- `According` to the guinness book, you passed the world's record several whacks ago.
+- `According` to security, beauregard put the whittlesley crates in storage area 1012.
+- `According` to the geneva convention, dead prisoners are to be given a decent burial.
+- But i deployed the royal guards `according` to your previous -- i am king, d'artagnan.
+- Good, and `according` to your questionnaire, helmuth, you never joined the nazi party.
+- `According` to caltech, this webber guy was a bonafide genius and a borderline nutcase.
+- `According` to the budget, we laid out that's more than our food bill for a whole year.
+- `According` to the geo-scan, this may be the safest area for the next few kilometers...
+                 

@@ -1,0 +1,107 @@
+---
+title: "assume in a sentence | assume example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "assume"
+---
+- `Assume` this is true.
+- He's okay, i `assume`.
+- I `assume` accidental.
+- One would `assume` so.
+- I `assume` you have one.
+- Oh, you `assume`, do ya?
+- May i `assume` my duties?
+- I `assume` his girlfriend.
+- I `assume` this is on rex?
+- Let's `assume` that it is.
+- Studied acting, i `assume`?
+- I `assume` we need the help.
+- Then let's `assume` i don't.
+- You have met him, i `assume`?
+- You will re-`assume` command.
+- I `assume` you're a carnivore.
+- I `assume` you two were close.
+- I `assume` you want something?
+- We need to `assume` the worst.
+- I `assume` full responsibility.
+- I `assume` you want that to go.
+- I `assume` you still got a shiv.
+- Well, i didn't want to `assume`.
+- You `assume` all the bust risks.
+- I `assume` you have a preference.
+- I can only `assume` he meant you.
+- Because i never `assume` anything.
+- Oh, let's `assume` that they have.
+- So satan will `assume` human form.
+- `Assume` there is something to hid.
+- I `assume` you're the captain, sir.
+- We have to `assume` they have rose.
+- Well you loved him once, i `assume`.
+- So you can `assume` that she had them.
+- Well, i `assume` you let him kiss you?
+- All groups `assume` attack coordinates.
+- For the moment let's `assume` they won't.
+- I `assume` benes knows how to control it.
+- I `assume` you have the magic cd- rom?
+- So i `assume` he will still carrying them.
+- I `assume`, afraid of what he could reveal.
+- I `assume` you can prove that if necessary.
+- I thought i would `assume` a pleasing shape.
+- We have to `assume` they have her, too, now.
+- Now, why in the hell would you `assume` that?
+- Safe to `assume` the retrieval team jonathan!
+- Now -- i `assume` you want to rest, to shower.
+- `Assume` they have only the best of intentions.
+- Spock... admiral, if we were to `assume` these.
+- `Assume` that there are eyes on us at all times.
+- So we gotta `assume` they're coming back, right?
+- Alright, let's `assume` this whole thing is true.
+- I `assume` command of this ship as of 0130 hours.
+- I `assume` she's the virtuoso in that department.
+- We have to `assume` he had romulan collaborators.
+- I `assume` my daughter told you of our conditions.
+- I can only `assume` you're here to kill me anyway.
+- Captain, don't `assume` he's anything like you are.
+- I `assume` you'll fill the...uh, window, with glass?
+- I `assume` a lot of your business is from our people.
+- I `assume` you worked up an appetite with your labor.
+- If he runs, everyone will `assume` he took the money.
+- No, see, clem, i `assume` you fucked someone tonight.
+- But it's safe to `assume`, given they control the key.
+- Then am i to `assume` that he is ultimately incurable?
+- We can `assume` he's back in the water intake passage.
+- I `assume` you're being so delightful because of the vote?
+- There is no reason to `assume` other people were involved.
+- We need to `assume` others will be willing to do the same.
+- We can still `assume` that things are stabilizing on earth.
+- It's very dangerous to `assume` you know what a woman wants.
+- Bryan: sir, we can `assume` her friends have i can't do that.
+- I `assume` she went under, keep telling yourself that, ryker.
+- So i `assume` we're regarding this as just a kind of interlude.
+- I `assume` i'm meant to be some sort of thief-to catch-a-thief..
+- Even if you deny the fbi is there, i will `assume` you are lying.
+- I `assume` it'll take a slug in the brain case to bring him down.
+- I `assume` this is what the factory workers wear at their dances?
+- Only human arrogance would `assume` the message was meant for man.
+- Anyway, i `assume` she signed the highly over rated massey pre-nup.
+- I `assume` in my usual charming manner i've just insulted the host.
+- I hear you were once a cop so i `assume` you've heard od us before.
+- I just `assume` it means you know something bad is about to happen.
+- According to shaw, this place and he was a great parent, i `assume`.
+- We'll have to `assume` they've been assimilated into the collective.
+- I'm going to try and locate redbeard- i `assume` you've heard of him.
+- Because we both want the same thing... what variables can we `assume`?
+- I `assume` you've come to plead for clemency on your husband's behalf.
+- Which i `assume` is impossible to fake, indra... something you're not.
+- Didn't make it to ryker's keep we have to `assume` that she's with him.
+- I `assume` you are making those cartoon noises to attract my attention.
+- We'd `assume` that twenty-five percent of the russian birds get through.
+- If you're not with me, violet, then i have to `assume` you're against me.
+- We must `assume` the machete was an intricate part of the game of hockey.
+- I `assume` somebody up there has made sure no distress signal can be sent.
+- I designed it to amplify what is already there, `assume` flight positions.
+- I have to `assume` the serial numbers on the bowl and cylinder correspond.
+- So, amazing spider-man-- i'll `assume` that's not your given name-- sorry.
+- I `assume` the kids at mount weather are ok. the people, they oughta know."
+- I mean, i `assume` you don't like women very much, is the acid fog disabled?
+                 

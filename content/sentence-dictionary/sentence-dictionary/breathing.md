@@ -1,0 +1,107 @@
+---
+title: "breathing in a sentence | breathing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "breathing"
+---
+- Just keep `breathing`.
+- Deep `breathing` helps.
+- He's still `breathing`!
+- He's still `breathing`.
+- He stopped `breathing`!
+- He stopped `breathing`.
+- Are you yet `breathing`?
+- Finn, is he `breathing`?
+- Is he still `breathing`?
+- Control your `breathing`.
+- Fluid `breathing` system.
+- He stopped `breathing`.
+- Roger: so is `breathing`.
+- She's barely `breathing`.
+- Are you still `breathing`?
+- He's not `breathing`, mom.
+- I'm not `breathing` right.
+- I think she's `breathing`.
+- Try some deep `breathing`.
+- At least we're `breathing`.
+- Because i quit `breathing`.
+- I can hear you `breathing`.
+- I hear her `breathing` now.
+- It's ok. she's `breathing`.
+- No, it's still `breathing`.
+- We need `breathing` room...
+- No `breathing` or snoring...
+- We're all `breathing` it in.
+- [raspy `breathing`] good.
+- You're not `breathing` right?
+- I know it was his `breathing`.
+- You're `breathing` on my head!
+- I can hear you `breathing` too.
+- I don't think he's `breathing`.
+- She's... she's not `breathing`!
+- She was `breathing`, i swear it.
+- Oh, my... oh... keep `breathing`.
+- ♪ your, your `breathing` ♪ hello.
+- I can hear you `breathing`, daddy.
+- If we stop `breathing`, we'll die.
+- Good job we were still `breathing`.
+- Heart rate and `breathing`... normal.
+- Not as long as i'm still `breathing`.
+- Nothing's over while i'm `breathing`.
+- Which nostril am i `breathing` through?
+- Anyone else having `breathing` problems?
+- I imagine it's like `breathing` for you.
+- (`breathing` heavily) that's all you got?
+- He's not `breathing`, he's not `breathing`.
+- I woke to the sound of zoe's `breathing`.
+- Mike... - no, no, she wasn't `breathing`.
+- The bishop is `breathing` down our necks.
+- As a living, `breathing` human with a brain.
+- _ `breathing` for the first time in my life.
+- He's feverish, and his `breathing`'s uneven.
+- If you agree, continue `breathing` normally.
+- Nance, nance, nance... she's not `breathing`.
+- We'll remove the `breathing` tube in a moment.
+- Imbalance, disorientation, labored `breathing`.
+- Now, which nostril are you `breathing` through?
+- Uh... just monty's, [`breathing` heavily] lexa.
+- Because flo said you just heard some `breathing`.
+- Eventually i started to have trouble `breathing`.
+- ♪ he was singin' ♪ i know it was his `breathing`.
+- We could have the fbi `breathing` down our necks.
+- Curse you for `breathing`, you slack- jawed idiot.
+- For now, we have a common goal, she's `breathing`.
+- It's the best way to see if someone's `breathing`.
+- `Breathing` and walking provide the pumping action.
+- You think i don't know my own son's `breathing`?
+- Can't see a goddamn thi.. get your `breathing` down.
+- The only reason why i'm still `breathing`, _ come on.
+- Dj... one thing at a time, let's keep him `breathing`.
+- I heard your `breathing` and thought it might be rain.
+- 4 people in neoprene suits with `breathing` regulators.
+- Grant is on top of her, `breathing` a little too heavy.
+- A little heavy `breathing` is what most of us yearn for.
+- A living, `breathing` actor -- i can't work with a fake.
+- I want you to slow down your `breathing`, take deep breaths.
+- Take a deep breath and realize, that this is me `breathing`.
+- I've got half the british government `breathing` down my neck.
+- Well, i'll tell you what - excuse me for `breathing`, will ya?
+- Filled with man-eating bugs and toxic plants still `breathing`.
+- [`breathing` heavily] am i dreaming, or is that you, harrington?
+- I don't want them `breathing` down my neck while we're in london.
+- You don't even remember to give liberty bell her `breathing` meds.
+- You said that lincoln is [`breathing` heavily] who the hell is this?
+- Are you going to be `breathing` down my neck right 'til the very end?
+- He's `breathing` on his own, but his pupils are completely blown out.
+- The people need a living `breathing` alternative to commodus, a hero.
+- I'm not jacking with armitage and his quacks `breathing` down my neck.
+- It doesn't travel through the air, by `breathing`, or touching, right?
+- Maybe what they're trying to catch likes its dinner to be `breathing`.
+- She's `breathing` a little better, fairly certain your body's in ketosis.
+- Well, we won't need pressure suits, but `breathing` masks are called for.
+- His beings are with the civilization that ascended, `breathing`, reflexes.
+- So if i didn't say you hacked the missile system, she's `breathing` the air.
+- I can no more shut down my own natural defences that you can stop `breathing`.
+- Life slowly seems to return to her, and her `breathing` becomes more peaceful.
+- He said his chakras were jammed and he was `breathing` out of the wrong nostril.
+                 

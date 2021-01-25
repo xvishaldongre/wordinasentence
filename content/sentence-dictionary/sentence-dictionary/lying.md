@@ -1,0 +1,107 @@
+---
+title: "lying in a sentence | lying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lying"
+---
+- I'm `lying` right now.
+- I think she's `lying`.
+- `Lying` piece of shit!
+- `Lying` piece of shit!
+- She knows i'm `lying`.
+- She's `lying`, norman.
+- So my wife is `lying`?
+- Tell me she's `lying`.
+- When were you `lying`?
+- You think i'm `lying`?
+- All right, i'm `lying`.
+- I'm not `lying` to you!
+- I said i'm not `lying`.
+- I think you're `lying`.
+- You `lying` sleazeball!
+- You think he's `lying`?
+- I knew you were `lying`.
+- I'm not good at `lying`.
+- I'm not `lying` for you.
+- It's ok. you're `lying`.
+- My eyes are not `lying`!
+- One computer is `lying`.
+- She's obviously `lying`.
+- Amy's been `lying` again.
+- I thought he was `lying`.
+- Silent bob, am i `lying`?
+- You admit you're `lying`?
+- You're a `lying` bastard!
+- You're a `lying` deviant.
+- He knew you were `lying`.
+- I found him `lying` there.
+- Maybe he's `lying` to you?
+- Now i know you're `lying`.
+- Oh, you think i'm `lying`?
+- I think he's `lying` to us.
+- They're cold, `lying` eyes.
+- You're `lying`, aren't you?
+- I think that you're `lying`.
+- Kaufman's a `lying` bastard!
+- `Lying` would've been worse.
+- Money `lying` on the ground.
+- Those `lying` motherfuckers!
+- We were `lying` in the sand.
+- Why not a `lying` blackfoot?
+- You suck at `lying`, archie.
+- Everyone you know is `lying`.
+- He's `lying` through his ass!
+- Vulcans sleep `lying` down...
+- Why is it just `lying` there?
+- You're `lying` on my bladder.
+- I'm sorry, for `lying` to you.
+- I've been `lying` down enough.
+- Or you could try `lying` down.
+- That's nice...are you `lying`?
+- Try to reef `lying` to me now.
+- Well... are you `lying` to me?
+- What did we say about `lying`?
+- Why do you keep `lying` to me?
+- You're `lying` to your doctor.
+- It was `lying` next to him.
+- And there she was `lying` dead.
+- I can't keep `lying`...killing.
+- I'm just practicing my `lying`.
+- I was `lying` about the coffee.
+- `Lying` to you -- why should i?
+- They're `lying` to save us all.
+- You're `lying`, miss juspeczyk.
+- I'm afraid you're `lying`, mimi.
+- No, mr. conway, i'm not `lying`.
+- Worth `lying` to someone i love?
+- You're `lying` -- c'mon -- what?
+- You said, first, he was `lying`.
+- Always `lying`, saying she's out.
+- And echo finds out i was `lying`.
+- He is still `lying` to your face.
+- He's nothing but a `lying` thief.
+- How do i know you're not `lying`.
+- I believe he is probably `lying`.
+- How do we know you're not `lying`?
+- If you're `lying` to me... really?
+- `Lying`, cheating, manipulating...
+- No -- i'm `lying` to amuse myself!
+- No, it's not true, you're `lying`.
+- Oh, would you stop `lying` mother!
+- Slick as snot and i'm not `lying`.
+- So why are you `lying` to me, man?
+- You're not `lying` to me, are you?
+- Her mother is `lying` on the stage.
+- Is this the `lying` -- in hospital?
+- Are you absolutely sure i'm `lying`?
+- Are you suggesting that i'm `lying`?
+- If i think you're `lying` -- no one.
+- I'm the dumbshit for `lying` to her.
+- It was `lying` where on the balcony?
+- Okay, oh, you `lying` piece of shit!
+- Perhaps be `lying` there waiting - ?
+- Shouldn't you be `lying` down, or...
+- I saw him `lying` buried in his shop.
+- Let's talk about `lying` to yourself.
+- What if he's `lying` about who he is?
+                 

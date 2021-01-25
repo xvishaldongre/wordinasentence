@@ -1,0 +1,94 @@
+---
+title: "Santa in a sentence | Santa example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Santa"
+---
+- At `santa` mira springs?
+- Old `santa` claus there?
+- Photos with `santa`, $40.
+- You killed `santa` claus?
+- `Santa`'s making presents.
+- `Santa`'s village, please.
+- Hey `santa`, where are you?
+- Go, `santa`'s little helper!
+- Hollywood to `santa` monica.
+- Uh, `santa`'s little helper.
+- What's your shpiel, `santa`?
+- How do you like `santa` carla?
+- She the one from `santa` cruz?
+- Welcome to `santa`'s workshop.
+- We'll go to `santa`'s village.
+- Where's my girlfriend `santa`?
+- Hey, i was a mall `santa`, too.
+- Hi, `santa` claus, how are you.
+- Who is this guy, `santa` claus?
+- Best selection in `santa` carla.
+- Does `santa` claus charge juice?
+- Do you believe in `santa` claus?
+- I'm sorry to hear about `santa`.
+- The mission up in `santa` barbara.
+- I don't... fuck you, `santa` claus!
+- Just passing through `santa` carla?
+- He sent for the `santa` rosa police.
+- Tell me, am i fucking `santa` claus?
+- Uh, i mean, `santa`'s little helper.
+- I am a card-carrying seasonal `santa`.
+- What is `santa`'s little helper doing?
+- You're from `santa` maria, mr. watson?
+- There's no need to worry about `santa`.
+- Then maybe i'll head to `santa` barbara.
+- `Santa`'s little helper was a racing dog?
+- A fellow `santa` could not steal christmas.
+- `Santa` carla seems to be full of them.
+- It's from our vineyard up in `santa` maria.
+- `Santa` claus, giving away free toys, - ooh!
+- So, what's our first plan of attack `santa`?
+- Yeah -- it's `santa`'s magic fucking village.
+- Now we wait for `santa` to make his next move.
+- Right-well, `santa` claus will have sunstroke.
+- `Santa` carla has become a haven for the undead.
+- Just find `santa` claus and bring him back to us.
+- See if they've got the 411 on `santa`'s location.
+- Mrs. bundy, you said something about `santa` cruz.
+- Were the `santa` rosa police at your school today?
+- The night we got `santa`'s little helper, remember?
+- Did you ever hear of "the lone rider of `santa` fe?"
+- One of the best producers in `santa` barbara county.
+- It's to play `santa` claus at a small amusement park.
+- It means that `santa`'s gonna fuck hanukkah's shit up.
+- Is he `santa` claus who has left a present for dorothy?
+- Something like this happened in `santa` cruz last year.
+- You say, "`santa`, what am i gettin' for christmas?"
+- I'm the magic man, the `santa` claus of the subconscious.
+- At least he didn't kill `santa` claus with his bare hands.
+- It's above `santa` monica canyon... yeah, soon as you can.
+- Let's take the `santa` rosa turnoff and hit sanford first.
+- You were like `santa` claus and the easter bunny combined.
+- I've heard the mission in `santa` barbara is the place to go.
+- You hear about that crazy white boy who took over as `santa`?
+- Daddy, a little girl was sent to the hospital in `santa` rosa.
+- You're hitting `santa`'s cards and you're taking `santa`'s money!
+- Are you forgetting about the atcheson, topeka and the `santa` fe?
+- Men worked for `santa` anna down there, waited out the civil war.
+- He can sell it, he can snort it, he can play `santa` claus with it.
+- May i make an original and groundbreaking observation `santa` lied.
+- Says some detectives from `santa` rosa'll be there in a little while.
+- I always thought it was one of those myths... like `santa`'s reindeer.
+- I've got to make a stop in vegas, then i'm heading to `santa` barbara.
+- If i go across to `santa` rosa i'll come onto the freeway much earlier.
+- A guy dressed as `santa` has been exposing himself to kids in los feliz.
+- `Santa` carla has no malls, no cineplexes and now i won't even have mtv.
+- There's no telling what this new anti semitic psycho `santa` is capable of.
+- This gal's married to i think a philosophy professor at uc `santa` barbara.
+- What about the christmas benefit when `santa` canceled at the last minute?
+- Here i am bragging my mom is the tooth fairy, and i'm talking to `santa`'s kid!
+- It's like all the fun of a wedding well, i'm getting right in line for `santa`.
+- They don't call me psych ward `santa` for nothing, well, the old murphy's back.
+- He's the guard who lowered the shield papa, sweet papa, may i sit on `santa`'s lap?
+- Fella in `santa` fe told me he sells these as fast as the buffalo can squeeze 'em out.
+- Did you hear about this bordeaux tasting dinner down in `santa` barbara saturday night?
+- It should be once the crime rate like he would ever spend a weekend in `santa` barbara.
+- Lucky for you that my wife and four fair daughters are at the beach in `santa` barbara.
+- Uh, if you're gonna spend this much time with our `santa`, i'm sorry about your father.
+                 

@@ -1,0 +1,107 @@
+---
+title: "he's in a sentence | he's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "he's"
+---
+- Because `he's` guilty.
+- Because `he's` not me!
+- But `he's` interested!
+- But `he's` my brother.
+- But `he's` part of it.
+- 'course `he's` coming.
+- Drew, `he's` your dog.
+- Gale `he's` got dewey!
+- `he's` a big flounder.
+- `he's` a dick, though.
+- `he's` after our skin!
+- `he's` after us again!
+- `he's` a fucking liar.
+- `he's` a good student.
+- `he's` a harmless nut.
+- `he's` a little prick!
+- `he's` * already dead.
+- `he's` a museum piece.
+- `he's` an electrician.
+- `he's` an illusionist.
+- `he's` a patient here.
+- `he's` a peculiar man.
+- `he's` a plague, tony.
+- `he's` a prince freak.
+- `he's` a swell person.
+- `he's` a white male...
+- `he's` bat shit crazy.
+- `he's` been destroyed.
+- `he's` been in before.
+- `he's` been past mars?
+- `he's` busy right now.
+- `he's` called a judge.
+- `he's` coming with us!
+- `he's` coming with us.
+- `he's` comin' up fast!
+- `he's` dead because...
+- `he's` dead, isn't he.
+- `he's` dead, you know.
+- `he's` doing his best.
+- `he's` doing it again.
+- `he's` doing it first.
+- `he's` done it before.
+- `he's` entitled to it.
+- `he's` figured it out.
+- `he's` flowing, gordo.
+- `he's` four feet tall.
+- `he's` freezing, mate.
+- `he's` from argentina.
+- `he's` from st. louis.
+- `he's` fucking insane.
+- `he's` fucking loaded.
+- `he's` given it to us.
+- `he's` giving them up?
+- `he's` going to paris.
+- `he's` gone, chauncey.
+- `he's` gone to dinner!
+- `he's` gonna clean up.
+- `he's` gonna feel bad.
+- `he's` gonna find out.
+- `he's` gonna kill pop.
+- `he's` good, isn't he?
+- `he's` got a good job.
+- `he's` got a gun, sir.
+- `he's` got a nice dog.
+- `he's` got a sickness.
+- `he's` got bare hands.
+- `he's` got principles.
+- `he's` gotta be a nut!
+- `he's` gotta know why.
+- `he's` got the misery.
+- `he's` got the shakes?
+- `he's` having a party.
+- `he's` here, isn't he?
+- `he's` here somewhere.
+- `he's` in an elevator.
+- `he's` in tachycardia.
+- `he's` jerkin' us off.
+- `he's` just an animal.
+- `he's` just confessed.
+- `he's` just exhausted.
+- `he's` just forgotten.
+- `he's` kind of a mook.
+- `he's` losing it, too.
+- `he's` lucky he lived.
+- `he's` more than that.
+- `he's` moved on to tv.
+- `he's` my best friend.
+- `he's` my friend, too.
+- `he's` my subordinate!
+- `he's` never asked me.
+- `he's` nine years old.
+- `he's` no steve young.
+- `he's` not doing well.
+- `he's` not even there.
+- `he's` not gonna talk.
+- `he's` not my husband!
+- `he's` not on the map.
+- `he's` not our friend.
+- `he's` not registered.
+- `he's` not responding.
+                 

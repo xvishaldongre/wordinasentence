@@ -1,0 +1,107 @@
+---
+title: "passed in a sentence | passed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "passed"
+---
+- Mine have `passed` on.
+- Then you `passed` out.
+- You `passed` the test.
+- She's `passed` on, kid.
+- That time has `passed`.
+- We already `passed` it.
+- ...well, that `passed`.
+- But the motion `passed`.
+- Laws were `passed` here.
+- Maybe we `passed` it by.
+- He's `passed` out inside.
+- But you `passed` the test!
+- If ava `passed` or failed.
+- No wonder he `passed` away.
+- She `passed` the polygraph.
+- You `passed` the final test.
+- I `passed` out, but i'm okay.
+- We walked right `passed` him.
+- That time has <u>`passed`</u>.
+- I hardly even knew it `passed`.
+- I think he's just `passed` out.
+- It `passed` something on to me.
+- You just `passed` your nemesis.
+- He `passed` away when i was six.
+- My mother `passed` on years ago.
+- No, tell him i've `passed` away.
+- `Passed` information to octavia.
+- After your parents `passed` away?
+- He `passed` away three years ago.
+- So we `passed` some kind of test?
+- Twenty years have `passed`, wade.
+- We hear how carl...`passed` away.
+- We `passed` a workshop down here.
+- We've `passed` him up right along.
+- I don't know, you just `passed` out.
+- It's just up the stairs we `passed`.
+- `Passed` out on one funky ass blunt.
+- The skynet funding bill is `passed`.
+- Your wire ester - she `passed` away.
+- My husband `passed` away recently ...
+- That low `passed` through last night.
+- They `passed` the 'edge' along to us.
+- The raven `passed` this way hours ago!
+- Why - er -- my husband `passed` away...
+- She `passed` last year in a train wreck.
+- I didn't touch him, he just `passed` out.
+- Just `passed` a pond with some ducks in it.
+- No, but i `passed` by it a couple of times.
+- The commander's spirit must be `passed` on.
+- Have any other people ever `passed` through?
+- We `passed` that carwash twenty minutes ago.
+- You were `passed` out when you got arrested.
+- We'll try to again when the storm's `passed`.
+- You `passed` up a dozen chances to arrest her.
+- As you know, my husband `passed` away recently.
+- Came up here -- had hysterics and `passed` out.
+- It was like you'd `passed` some test, you know?
+- The time has `passed` for men like them and me.
+- When she saw the insects she `passed` out cold.
+- He `passed` away, what is it now, ten years ago.
+- Somebody could've -- i was sort of `passed` out.
+- That's the third motorcyclist that's `passed` us.
+- I don't know, i think i `passed` out or something.
+- Oh, my husband `passed` away almost two years ago.
+- On that night one of our elder nuns `passed` away.
+- You've `passed` me on the street almost every day.
+- He pointed at it before he `passed` out and ...
+- No, your mother did, then i did after she `passed`.
+- This ship should never have `passed` fsa inspection.
+- Easily said... the raven `passed` this way hours ago.
+- You could've at least `passed` the baton on that one.
+- If there's anything i can do to� well, he `passed` on.
+- I think they tell their friends that i've `passed` on.
+- You know, especially after his daddy `passed` and all.
+- And when i opened my eyes, the storm had `passed` okay.
+- Is this a message `passed` on from clergyman steenwyck?
+- I suppose your grandmother's house when she `passed` on.
+- We `passed` it a few blocks back, where the police were.
+- Also heard that you `passed` on that little job in libya.
+- Well, rod, your agent `passed` me a note before the show.
+- It is said they embody the spirits of sailors `passed` on.
+- It's been an hour since we `passed` the airplane wreckage.
+- `Passed` the todd place comin' in... what happened to 'em?
+- When your mom and dad, uh, `passed` away, i had this idea.
+- I certainly did, sir... you sure you `passed` on my message?
+- I must've `passed` out, 'cause i woke up, and you were gone.
+- Mr. president, the probe has `passed` through all quadrants.
+- Excuse me, do you know if we've `passed` nostrand avenue yet?
+- Hasn't been right in the head since her husband `passed` away.
+- But it's `passed` you by and smith here has taken up the slack.
+- I haven't danced with another man since mr. terwilliger `passed`.
+- Yeah, got dead drunk, `passed` out in the bottom of the riverbed.
+- We have good reason to believe that he `passed` you-- you're wrong.
+- You bailed on me, i `passed` out, man, i almost did a jimi hendrix!
+- After my mother `passed`, i came out here ... looking for my father.
+- Soon as we've `passed` tara's rings we'll make the course correction.
+- And, as the years have `passed`, i have watched that promise destroyed.
+- Marge, you ever felt like life has `passed` you by, no, bellamy, please.
+- She was trapped in the wreck for about six hours before she `passed` on.
+- There's only four employees, none of them can tell us who `passed` them.
+                 

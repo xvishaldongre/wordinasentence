@@ -1,0 +1,107 @@
+---
+title: "water in a sentence | water example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "water"
+---
+- Drink lots of `water`.
+- Give her some `water`.
+- He's treading `water`.
+- It's just tap `water`.
+- Listen to the `water`.
+- Take the damn `water`.
+- `Water` logged timber.
+- `Water` pump's busted.
+- To `water` it down.
+- But not `water` sports.
+- Holy `water`'s blessed.
+- How about some `water`?
+- Ice cold still `water`.
+- I hit the `water` hard.
+- I'll boil some `water`.
+- I love boiling `water`.
+- Out of the `water` now!
+- She needs more `water`.
+- Thanks for the `water`.
+- The `water`'s glorious.
+- Warm `water`, no doubt.
+- What about the `water`?
+- But it's on the `water`.
+- But this is not `water`.
+- He doesn't need `water`.
+- May i have some `water`?
+- Running my bath `water`.
+- That `water`'s freezing!
+- You were in the `water`.
+- Ice `water` in her veins.
+- I had no food or `water`.
+- I saw her in the `water`.
+- It'll poison the `water`.
+- It's the goddamn `water`.
+- Myles: `water`… please.
+- Next to the `water` tank.
+- Okay, get in hot `water`.
+- Soil and `water` samples.
+- Two days without `water`?
+- `Water` turning to blood.
+- Your horse needs `water`.
+- Does wood sink in `water`?
+- I need a drink of `water`.
+- Let's go get some `water`.
+- Man: find any `water` yet?
+- Near a large `water` tank?
+- Neat, with a `water`-back.
+- No more `water`, you said.
+- Or floated in the `water`.
+- Sticking with hot `water`.
+- The sodding `water` table.
+- This `water`'s cold again.
+- We're dead in the `water`.
+- What does that `water` do?
+- You make my mouth `water`.
+- You're not in the `water`.
+- A dock next to the `water`.
+- Beer, with ice and `water`.
+- Did she `water` this plant?
+- Get out of the `water` now!
+- I brought you some `water`.
+- I have to get some `water`.
+- No fuckin' hot `water` man.
+- No, i can't in the `water`.
+- No `water` -- what a place!
+- Put it in a cup of `water`.
+- Salt the ham `water`, boys.
+- Shit, we're out of `water`.
+- They don't go over `water`.
+- Today, `water` and shelter.
+- Want some lukewarm `water`?
+- Where's the `water` source?
+- You mean, into the `water`?
+- You've had today's `water`.
+- I brought him food, `water`.
+- Is he afraid of the `water`?
+- I've got `water` in my ears.
+- Prisoner's refusing `water`.
+- `Water` or mineral deposits.
+- You want a drink of `water`?
+- Air... `water`... your "sun."
+- I don't mean the `water`.
+- Can he breathe under `water`?
+- How 'bout a glass of `water`?
+- I just need some `water`, ok?
+- I'm gonna stick with `water`.
+- Isn't this `water` wonderful!
+- Just hold your `water`, okay?
+- More coconut `water`, please.
+- Scotch, light on the `water`.
+- So could you walk on `water`?
+- We are almost out of `water`.
+- Why on the `water` every day?
+- You know how to boil `water`?
+- They `water` their drinks.
+- Can i have a glass of `water`?
+- Don't use all the hot `water`!
+- I can't take `water`, kathryn.
+- Is once again regular `water`.
+- ...like the `water` purifiers?
+                 

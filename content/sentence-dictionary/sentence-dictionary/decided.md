@@ -1,0 +1,107 @@
+---
+title: "decided in a sentence | decided example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "decided"
+---
+- I `decided` to go pro.
+- It has been `decided`.
+- You `decided` for me...
+- You `decided` to leave.
+- I haven't `decided` yet.
+- I `decided` for everyone.
+- I `decided` to trust you.
+- I've `decided`... well...
+- We `decided` to stay out.
+- You `decided` to help me.
+- You `decided` to ruin it.
+- The election `decided` it.
+- They `decided` to no-file.
+- You haven't `decided` yet?
+- I `decided` to call it off.
+- Actually, i've `decided` ...
+- I `decided` to fall in love.
+- It's already been `decided`.
+- I want...a `decided` change.
+- I `decided` not to park here.
+- You `decided` to be straight?
+- Has he `decided` to go public?
+- Look who `decided` to join us.
+- We `decided` to stay with you.
+- Well, i haven't `decided` yet.
+- What you've already `decided`.
+- Anyway i `decided` not to wait.
+- So i `decided` to works nights.
+- I've `decided` to get out there.
+- We `decided` that we're friends.
+- We've `decided`, signor ferrari.
+- Have you `decided` about pilgrim?
+- Have you `decided` to leave john?
+- I `decided` to have hope instead.
+- I've `decided` i'm a transsexual.
+- I `decided` to hide out all night.
+- It should be `decided` regionally.
+- I've `decided` to become a mensch.
+- So i've `decided` to be his coach.
+- So you `decided` to go to america.
+- Bellamy `decided` to bring company.
+- I've `decided` on our first fortune!
+- So i `decided` to just play my part.
+- ...that's what we finally `decided`.
+- Well, so glad you `decided` to come.
+- You have `decided` to leave, moncho.
+- You said: that you have "`decided`."
+- We `decided` we don't need the money.
+- You `decided` to pretend you were me.
+- You've just `decided`, is that right?
+- And you `decided` you wanted the same.
+- `Decided` <u>not</u> not come forward.
+- I `decided` to help out at the asylum.
+- I'm happy you've `decided` to join us.
+- I can't believe they `decided` you won.
+- So, i `decided` to take a few days off.
+- So you `decided` to help him after all?
+- I `decided` to give you one more chance.
+- I've `decided` not to run for president.
+- Just like you `decided` to kill bellamy.
+- Senator paine `decided` this *with* you?
+- So, i've `decided` to make it up to you.
+- You've `decided` a <u>lot</u> of things.
+- I, i `decided` to complicate my life.
+- I'm glad you `decided` to come after all.
+- Max, karen has `decided` it's time to go.
+- I `decided` to let helen run the magazine.
+- I just `decided` i'd suffered long enough.
+- We've `decided` to go to montaldo's place.
+- You've `decided` to get <u>married</u>.
+- But what i `decided` to do is some writing.
+- I haven't `decided` yet if i'm a good cook.
+- We've `decided` that you deserve that, too.
+- Yes -- you've `decided` against the merger?
+- I `decided` to rent that place we looked at.
+- _ i just `decided` i'd suffered long enough.
+- Unless he's `decided` to stay for the night.
+- What do you mean you and my father `decided`?
+- Go on -- finally, roberts `decided` something.
+- I `decided` to make a female figure after all!
+- I `decided` to write a book about a detective.
+- ...in case you `decided` to change your mind.
+- I've `decided` to be a tubberware salesperson.
+- So i finally `decided` to close down the show.
+- Today i `decided` to be a race car driver, no.
+- If you want to know, they've already `decided`.
+- I don't think it was really `decided`, director.
+- I've `decided` to be godfather to connie's baby.
+- I've `decided` to investigate low's plane crash.
+- We `decided` to bring some magic into your life.
+- So you just `decided` to return it to the sender.
+- The doctor can tell, but i `decided` not to know.
+- They `decided`, i `decided` to, to...you love what?
+- We haven't `decided` who's gonna put that on yet.
+- I lay there for a while, then `decided` to get up.
+- I've `decided` that if it is god, it's a sick god.
+- They `decided` to come and see you for themselves.
+- Yeah, mom cut me some slack -- but i `decided` ...
+- As i said, i haven't `decided` what to do, exactly.
+- Before you `decided` to hop in the sack with isaac.
+                 

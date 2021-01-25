@@ -1,0 +1,72 @@
+---
+title: "species in a sentence | species example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "species"
+---
+- For `species` continuity.
+- Such a curious `species`.
+- A curious `species` indeed.
+- Well, they're my `species`.
+- They say we are "`species`."
+- It's to protect the `species`.
+- Can't figure out the `species`.
+- Does your `species` like m&m's?
+- But the `species` must continue.
+- It's how the `species` survives.
+- Mom, they're different `species`.
+- It's a totally different `species`.
+- Then i've discovered a new `species`.
+- To the continuation of our `species`.
+- Hunting tactics of predator `species`?
+- Then i should be with my `species` more.
+- You'll find we're a resilient `species`.
+- And i'm a different `species` than you, no.
+- Maybe they're all protecting the `species`.
+- How many `species` have you cataloged today?
+- Most of them aren't even my <u>`species`</u>.
+- Your `species` eventually _had_ to create me.
+- A new `species` created by man's recklessness.
+- Because we live at another `species`' expense?
+- One individual representing a whole `species`.
+- Your `species` must now be judged through you.
+- Brings upon the final evolution of a `species`.
+- Evolution-of- the-`species`-at-stake threatened.
+- We're in this for the `species`, boys and girls.
+- Wide-eyed romantics are an endangered `species`.
+- Home to five percent of the `species` on earth...
+- To hunt a `species` to extinction is not logical.
+- I've never seen a `species` quite like you before.
+- Originally just another `species` like yourselves.
+- I have the `species` identification on these teeth.
+- Of your entire `species` will become one with ours.
+- Why not give an extinct `species` a second chance?!
+- I see you brought along the female of your `species`.
+- Me and you, wayne, we're not even the same `species`.
+- Is there any other planet where this `species` exists?
+- The debasement of our `species` what else did you see?
+- Is the death of one `species` less tragic than another?
+- There are millions of other `species` on earth, doctor.
+- You know, burke, i don't know which `species` is worse.
+- Is unencumbered by the petty morality of a dying `species`.
+- Well, you've got a croc alright, they're keystone `species`.
+- Human beings are the only `species` let's go over this again.
+- I would never take advantage of a sexually immature `species`.
+- So that we might save ourselves, as the last of the `species`.
+- Like every `species` of insufficient progenitors, he's nesting!
+- This is clearly an important `species` we're dealing with here.
+- I've never encountered a `species` with such mental discipline...
+- Human beings are the only `species` until we get you into surgery.
+- I have never known birds of different `species` to flock together.
+- There's enough difference between our own `species` to prove that.
+- Yeah, we're trying to solve the great mystery of the female `species`.
+- And if i'm right, it could mean that the `species` lee, put down the gun.
+- They're both perching birds, of course, but of quite different `species`.
+- Because there are 8,650 `species` of birds in the world today, mr. carter.
+- In the rare emotion-driven `species` such as your own, i'm so sorry, clarke.
+- Since you were frozen, they've been placed on the endangered `species` list.
+- They are very unhappy about the way their `species` has been treated by man.
+- `Species` flourished in isolation when man and pollution rendered them extinct.
+- You're talking about preservation of the `species`, a hen protecting her young.
+- I hardly think either `species` would have the intelligence to launch a massed attack.
+                 

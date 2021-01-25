@@ -1,0 +1,107 @@
+---
+title: "great in a sentence | great example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "great"
+---
+- "god is `great`," yes?
+- God, isn't he `great`?
+- `Great` american hero.
+- `Great` balls of fire!
+- `Great` one, actually.
+- `Great` stems, though.
+- `Great` stuff, animal.
+- Have a `great` summer.
+- Hey, you look `great`!
+- I am in `great` shape.
+- I am the `great` went.
+- I mean, a `great` guy.
+- Isn't it `great`, son?
+- Isn't it `great`, tom?
+- It's gonna be `great`.
+- It's gonna go `great`.
+- It was a `great` city.
+- I used to tan `great`.
+- Look `great`, don't i?
+- Man, you look `great`.
+- Oh `great`, i ran out.
+- Oh, yes, it's `great`.
+- So far you're `great`.
+- That's a `great` idea!
+- That's a `great` idea.
+- That's a `great` line.
+- That's `great`, david.
+- That's `great`, harry.
+- That's really `great`!
+- That's really `great`.
+- That would be `great`.
+- "the `great` dark sea.
+- This is `great`, puff.
+- This is `great` stuff.
+- _ to the `great` hall.
+- Well, this is `great`.
+- Well you look `great`.
+- With `great` pleasure.
+- Yeah, it's... `great`.
+- Yeah, they're `great`.
+- Yeah, this is `great`.
+- You did a `great` job.
+- You didn't do `great`.
+- You got a `great` ass!
+- You got a `great` mom.
+- You have `great` tits.
+- You're a `great` date.
+- I'm a `great` hero.
+- God, that felt `great`!
+- `Great` moves, day-day.
+- He's got `great` hands.
+- How `great` to see you.
+- I know a `great` place.
+- I learn a `great` deal.
+- I need a `great` favor.
+- I think you're `great`.
+- It'll be `great`, lisa.
+- It's `great` over here.
+- It was a `great` night.
+- It was fucking `great`.
+- I was a `great` beauty.
+- John wayne's `great`...
+- My life is `great` now.
+- No, it's `great`, kids.
+- No, no, it was `great`.
+- Oh god, that's `great`!
+- Oh, no, i feel `great`.
+- Oh, wow, she's `great`.
+- One `great` big coffin.
+- She's got `great` tits.
+- She was `great` though.
+- So `great` to meet you!
+- That ring's so `great`.
+- That's fucking `great`!
+- That's `great`, thanks.
+- That's just -- `great`.
+- That was a `great` day.
+- This is a `great` hill.
+- This is a `great` neck.
+- This is a `great` song.
+- This is `great`, honey.
+- This is `great` rachel.
+- This is `great` reefer.
+- This is really `great`.
+- Well, sherry's `great`.
+- Yeah, my dad's `great`.
+- You look `great`, okay?
+- You look `great` today.
+- You're a `great` thief.
+- You've been so `great`.
+- You were `great`, jake.
+- A bath would be `great`.
+- Ahh, that feels `great`.
+- All right, `great` news.
+- Go back, that's `great`!
+- Goddamn, that's `great`!
+- `Great` concert tonight!
+- `Great`, havana's `great`.
+- `Great` line at the end.
+- `Great` place for lunch.
+                 

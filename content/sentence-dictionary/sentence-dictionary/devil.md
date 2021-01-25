@@ -1,0 +1,107 @@
+---
+title: "devil in a sentence | devil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "devil"
+---
+- The `devil`'s trumpet.
+- The `devil` was in it.
+- Who the `devil` is he?
+- But who was the `devil`?
+- Speak of the `devil`!...
+- The sign of the `devil`.
+- Who the `devil` are you?
+- He was mad, poor `devil`.
+- I am the `devil`, lester.
+- Then the `devil` is white.
+- He laughed -- poor `devil`!
+- I mean the `devil` himself.
+- I think you're the `devil`.
+- Jesus forgives the `devil`?
+- The `devil` wins sometimes!
+- You're a good `devil`, dad.
+- You're the fuckin' `devil`.
+- You `devil`, it's mace, huh?
+- But, this is not the `devil`.
+- Duncan hines' `devil`'s food.
+- She brought the `devil` here.
+- The white man is the `devil`.
+- What the `devil` do you mean?
+- What the `devil` do you want?
+- Some `devil`'s advocate stuff.
+- He said, sing the `devil` away!
+- Oh, let the poor `devil` alone.
+- Sing and the `devil` will flee!
+- That would be `devil`'s needle.
+- You're the `devil`, aren't you?
+- I don't got `devil` blood in me.
+- "prophet still if bird or `devil`!
+- That, and a deal with the `devil`.
+- They made a deal with the `devil`.
+- This one could seduce the `devil`.
+- You're reading the `devil`'s lies.
+- Benes... what the `devil` happened?
+- Idle hands, the `devil`'s workshop.
+- What the `devil` is all this about?
+- She would tempt the `devil` himself.
+- Thanks much, silver tongued `devil`.
+- A demon if the `devil` ever made one.
+- That's the `devil` ringing that bell.
+- Then the `devil` says, "are you gay?"
+- Then the `devil` asks, "do you drink?"
+- Well, that's because he's the `devil`.
+- You just scared the `devil` out of me.
+- A `devil` has the people by the throat.
+- We know that she will rout the `devil`.
+- Where the `devil` should this romeo be?
+- You wanna make a deal with the `devil`.
+- And there you are, you handsome `devil`.
+- Beyond `devil`'s needle, all is unknown.
+- Why the `devil` did you come between us?
+- How do you shoot the `devil` in the back?
+- Still quite a hike to `devil`'s cauldron.
+- I also believe in god and the `devil`.
+- What the `devil` is that supposed to mean?
+- Maybe they went back to `devil`'s cauldron.
+- Welcome to the dark net, the `devil`'s url.
+- We're only an hour from `devil`'s cauldron.
+- What the `devil` do you think you're doing?
+- He's a waiter at the clarence, poor `devil`.
+- What the `devil` has happened to him anyway?
+- Is it some `devil` that crawls inside of you?
+- Now you want to see the `devil` in the flesh.
+- One way of another, the `devil` gets his due.
+- Let's find what the `devil`'s holding them up!
+- Because i won't let the `devil` in this garden.
+- He teaches us that the white man is the `devil`.
+- He has seen the `devil`... looked him in the eye.
+- How in the `devil` did you do the rembrandt then?
+- I concede i was insistent, but how the `devil`...
+- What'd the `devil` give you for your soul, tommy?
+- He's the `devil`'s child... with a face like that?
+- This is sam wilder, marshal in `devil`'s cauldron.
+- But we believe that he sold himself to the `devil`.
+- Yo, man, i think that `devil` guy just got ripped off.
+- If god is everything, then i have seen the `devil`.
+- I know if i had to pick, it'd be "choke," or "`devil`."
+- If one believes in god, one must believe in the `devil`.
+- Sounds like our `devil` dance actually worked this time.
+- If you're the `devil`, why not make the straps disappear?
+- I've set it up to play our sos a monster and the `devil`?
+- What do you know about the trouble in `devil`'s cauldron?
+- No vampire here has discourse with god or the `devil`?
+- Don't do a lot of damage, but it's as fast as the `devil`.
+- Foreign `devil` ... behave... eh, don't take out me lines.
+- I-i know i made a deal with the `devil` to be chief, i do.
+- Elijah muhammad does not say "that white man is a `devil`."
+- If there ever was a `devil` in this county, ike, you is it!
+- You know the `devil` and all his minions are marked that way.
+- Your kind is pure of heart - the `devil` won't dick with you.
+- So, the guy goes to hell and the `devil` says, "do you smoke?"
+- There's no god, there's no `devil`, i hate the god damn world!
+- That miserable, manipulating loathsome she-`devil` of a witch!!
+- The ones that've been raising the `devil` with my fishing boats.
+- You could of been something, archie, but the `devil` got to you.
+- Got the `devil` in it yet folks never seem to hold it to account.
+- What do you think the `devil` is going to look like if he's around?
+                 

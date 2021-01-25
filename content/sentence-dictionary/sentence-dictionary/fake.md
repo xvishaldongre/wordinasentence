@@ -1,0 +1,93 @@
+---
+title: "fake in a sentence | fake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fake"
+---
+- It looks like a `fake`.
+- That film was a `fake`!
+- What `fake` blind date?
+- You think i'm a `fake`.
+- `Fake` it if you have to.
+- How could he be a `fake`?
+- I was going to `fake` it.
+- Nicholas, this is `fake`.
+- Looks like a `fake` to me.
+- Permission to be a `fake`?
+- They sell `fake` memories.
+- Uh, no, no, it's a `fake`.
+- You're a `fake`, john doe!
+- Don't `fake` me out, clark.
+- I told you it was a `fake`.
+- Oh, that tail is so `fake`.
+- You set up the `fake` body.
+- Run away from a `fake` battle?
+- That's right, the `fake` kind.
+- Catherine... at being a `fake`.
+- He also said crow was a `fake`.
+- I wish you would `fake` a laugh.
+- Can you tell which one is `fake`?
+- How do we know it's not a `fake`?
+- I took it from my `fake` husband.
+- `Fake` brains up the yin-yang.
+- Can you `fake` the cerebral output?
+- I'm saying they were always `fake`.
+- On that pathetic `fake` blind date.
+- The problem is you're a big `fake`.
+- I had a feeling it was all a `fake`.
+- Just as charming and just as `fake`.
+- And you're saying his body is `fake`.
+- `Fake`, ...necklace... pearls... 18k.
+- Well... will's body, it was a `fake`.
+- Hey, i invented `fake` i.d.s, alright.
+- I just think he's a `fake`, that's all.
+- Okay, kind of, you know, `fake` nibble.
+- With a phony wife and a `fake` pre-nup.
+- Go on, `fake` it - even if it isn't real.
+- Well, one thing we know: you're no `fake`.
+- It makes you feel like a `fake`, doesn't it?
+- Well you can't `fake` your way through this.
+- A kid can manage it if he wants a `fake` i.d.
+- That's real wood, too, not that `fake` stuff.
+- In intelligence, they're assumed to be `fake`.
+- Yeah, i know; but you're adding `fake` laughs.
+- The storm is `fake`, but the lightening is real.
+- I'm a `fake`, i'm a fraud, i've been living a lie!
+- The kid has no idea that this has all been `fake`.
+- Forcing an algae bloom needs a `fake` flame keeper.
+- It's like the taj mahal of bad, `fake` 50's diners.
+- Your mistake wasn't making something `fake`, daddy.
+- ♪ here's a `fake` i.d., now your name is ben ♪ fine.
+- You're a scary, sick, `fake` who made a big mistake.
+- I have to get this `fake` diary into skinner's house.
+- Her flirting isn't an algorithm to `fake` you out.
+- ♪ every smile you `fake` every claim you stake ♪ uh...
+- Boy, if i ever `fake` my death, they'll really miss me.
+- A living, breathing actor -- i can't work with a `fake`.
+- You can tell me how someone... could `fake` a prevision.
+- Uh, you know, i think i can `fake` my way through a song.
+- I think lipstick looks `fake`, no-ones lips are that color.
+- I've seen a lot of spinals, dude, and this guy is a `fake`.
+- Metro paid him two grand a week to `fake` it with ingenues.
+- This is `fake`, this is `fake` -- `fake`, `fake`, `fake`, all `fake`.
+- We're fine with `fake` -- as long as you don't lie about it.
+- No, what we need to do is start a `fake` special needs class.
+- It's people with no lives watching other people's `fake` lives.
+- It's convenient to `fake` looking for something right now, isn't it?
+- Not like those other people with the `fake` woods in the background.
+- It'll take you less than five minutes to expose her if she's a `fake`.
+- It's just a bunch of `fake` sets, and wooden props, do you understand?
+- Which i assume is impossible to `fake`, indra... something you're not.
+- If you go to anywhere in iraq, there is a lot of `fake` whiskey going on.
+- Like it or not, ontari... a `fake` commander what do we do after the dropship?
+- Ben damon was given a `fake` script because he was only being offered the role.
+- The only thing i knew was that you were a `fake` and i made up everything else.
+- I suppose i always thought -- better to be a `fake` somebody than a real nobody.
+- Their sforza replica was as `fake` as the "gas leak" that supposedly destroyed it.
+- Since we will be the ones performing the heist, our deaths will obviously be `fake`.
+- You got the `fake` blood splattered all over the walls, you got your torture tools...
+- While the world he inhabits is counterfeit, there's nothing `fake` about truman himself.
+- I'd like to believe in fairy tales, but a guy that's `fake` isn't gonna jump off any roof.
+- I just have to push this one button, my sweet moe, there is no way to `fake` what we have.
+- Why, as soon as it comes out it's all a `fake`, you'll be washed up in baseball, won't you?
+                 

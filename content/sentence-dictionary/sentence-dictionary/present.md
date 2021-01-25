@@ -1,0 +1,107 @@
+---
+title: "present in a sentence | present example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "present"
+---
+- I got you a `present`.
+- A graduation `present`.
+- Here's a real `present`.
+- He's from the `present`.
+- `Present` tense, please.
+- The `present` situation?
+- Your `present`'s in here.
+- I brought you a `present`.
+- What engagement `present`?
+- It is my wedding `present`.
+- It's a christmas `present`.
+- No time like the `present`.
+- Your right's the `present`.
+- A heavy christmas `present`.
+- This your `present` address?
+- Honey, i got you a `present`.
+- ...i got a `present` for you.
+- It was a beautiful `present`.
+- This is an amazing `present`.
+- I got you a goodbye `present`.
+- It was a `present` from a guy.
+- That could be her `present`...
+- He got for a wedding `present`.
+- It'll be my good-bye `present`.
+- May i `present` miss ilsa lund?
+- A `present` i picked up for you.
+- Here's your christmas `present`.
+- I came to bring him a `present`.
+- I gave it to you as a `present`.
+- It's asta's christmas `present`.
+- I want this to be the `present`.
+- `Present` me to your colleagues.
+- The universe's `present` to you.
+- Both halves are always `present`.
+- Did you see my `present` for you?
+- It's a `present` from my parents.
+- I've brought a `present` for you.
+- Yeah, fish live in the `present`.
+- What is your `present` salary?
+- I brought you a special `present`.
+- It is kind of you to be `present`.
+- You better go buy him a `present`.
+- Besides, faculty will be `present`.
+- It's part of my birthday `present`.
+- Just a little going away `present`.
+- Mikey loves his birthday `present`.
+- They monitor it from the `present`.
+- You want a name from the `present`?
+- A little parole rejection `present`.
+- At `present` the girls only peck me.
+- Charlotte, may i `present` mr. igor.
+- I brought you a christmas `present`.
+- Is that another christmas `present`?
+- Thanks for the graduation `present`.
+- Excellency, may i `present` my niece.
+- `Present` company excluded of course.
+- Heard about that graduation `present`.
+- There's only one `present` on my list.
+- All right, well, got a `present` for ya.
+- There were no other ships `present`.
+- Groom- - may i have a wedding `present`?
+- It's a birthday `present` for my cousin.
+- I've got a `present` for you... stop it!
+- Well there's no time like the `present`.
+- With no bone or scalp or hair `present`.
+- The plane wasn't a wedding `present`.
+- Look, i can't cry with a faker `present`.
+- At `present` he serves no useful function.
+- I brought a `present` for the lady, there.
+- I'm going to give her a wedding `present`.
+- Oh, uh... they were a `present` from dana.
+- Your former `present` becomes the past.
+- Wedding `present` from katharine's parents.
+- But you're not their big worry at `present`.
+- If i lose, i'll buy you a wedding `present`.
+- So saw my hands off, i left you a `present`.
+- I bought it for you and made you a `present`.
+- I brought a birthday `present` for mr. gekko.
+- I should hate to interrupt my `present` work.
+- This should `present` no significant problem.
+- We didn't have to bring another `present`?
+- Estimating genesis 2.9 hours, `present` speed.
+- For her there is no past, `present` or future.
+- I just got so excited about... your `present`.
+- So isn�t it time you unwrapped your `present`?
+- You will retain your `present` rank of course.
+- He sent me a `present` before he -- sometimes...
+- I have to find a birthday `present` for frances.
+- No... no, it's, uh, it's not really a `present`.
+- Perhaps you could `present` me now, mr. pimenov.
+- Well, hey, did you see your christmas `present`?
+- Well i guess there's no time like the `present`.
+- Your highness, may i `present` madame yakushova?
+- Alright...andy's opening the first `present` now.
+- Go on� a little `present` from your uncle johnny.
+- I think we can `present` some prime numbers here.
+- There should be a psychiatrist `present`, anyway.
+- Without further ado, i `present` the story of us.
+- I opened the `present` you got me from harrison's.
+- Just helping someone tie up a christmas `present`.
+                 

@@ -1,0 +1,7 @@
+---
+title: "spangle in a sentence | spangle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spangle"
+---
+## Unfortunately, we have no example sentences for spangle                 

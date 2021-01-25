@@ -1,0 +1,107 @@
+---
+title: "change in a sentence | change example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "change"
+---
+- Couldn't you `change`?
+- Did you `change` cabs?
+- If i `change` my mind.
+- I'm going to `change`.
+- Nothing will `change`.
+- Or could you `change`?
+- That makes a `change`.
+- To `change` our minds.
+- You can't `change` it.
+- But you won't `change`.
+- Did something `change`?
+- Got any spare `change`?
+- I'm due for a `change`.
+- She won't `change` now.
+- So `change` the poster.
+- But `change` takes time.
+- But that could `change`.
+- Didn't want to `change`.
+- He does not `change` it.
+- I can't `change` either.
+- Things `change`, kundun.
+- Thirty-two and `change`.
+- Why did you `change` it?
+- You got `change` comin'.
+- You told me to `change`.
+- Can't we `change` course?
+- ....`change` subject, ok?
+- I'd call that a `change`.
+- I got to `change` reels!
+- I really should `change`.
+- It's people who `change`.
+- Let me get your `change`.
+- Let's `change` that plan.
+- Maybe i can `change` him.
+- My answer won't `change`.
+- People can `change`, doc.
+- Will it `change` my life?
+- You can `change` in here.
+- You might wanna `change`.
+- If it should `change`?
+- His face doesn't `change`.
+- I can't `change` anything.
+- If you `change` your mind.
+- I had to `change` my plan.
+- Keep the `change` on that.
+- [man 2] vote for `change`!
+- Nothing can `change` that.
+- People can `change` brian.
+- Point is, things `change`.
+- The plan doesn't `change`.
+- Truth is, things `change`.
+- Wardrobe `change`, please!
+- We can `change` our names.
+- Would you `change` things?
+- You can keep the `change`.
+- You know, `change` things.
+- `Change` my mind, you mean?
+- Did you `change` your hair?
+- Don't `change` the subject!
+- Don't `change` the subject.
+- Don't you want to `change`?
+- Go, fo' i `change` my mind.
+- Gonna `change`, young lady.
+- I'll have to `change` them.
+- Let's `change` the subject.
+- Oh, hey, `change` of plans.
+- People `change`...you know.
+- Some things never `change`.
+- This doesn't `change` that.
+- Two you `change` your name.
+- Wait here while i `change`.
+- Will it `change` your wife?
+- You `change` color, do you?
+- You might want to `change`.
+- You want to `change` rooms?
+- But it is going to `change`.
+- Can we `change` the subject?
+- `Change` your whole persona.
+- Dolls never `change` either.
+- I'm trying to `change` here.
+- It'll be a `change` of pace.
+- I want...a decided `change`.
+- Time to `change` her diaper.
+- Trying to `change` the past.
+- Try reading, for a `change`.
+- We can't `change` our state.
+- You can't `change` anything.
+- You can't `change` his will.
+- Aren't you going to `change`?
+- He can't `change` the charge.
+- Let me `change` that for you.
+- Must we `change` the subject?
+- They'll be in to `change` it.
+- They want to `change` things.
+- This will `change` our lives.
+- Well, maybe i'll `change` it.
+- We shall never `change` that!
+- You can't `change` your mind.
+- But we can `change` it, right?
+- Could we `change` the subject?
+                 

@@ -1,0 +1,58 @@
+---
+title: "peel in a sentence | peel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "peel"
+---
+- This is banana `peel`.
+- Elementary, mrs. `peel`.
+- Doctor `peel`, i presume?
+- Ah, brenda ... mrs. `peel`?
+- Aren't we all, mrs. `peel`?
+- Let this world `peel` away.
+- After you -- mrs. `peel` ...
+- ... and by you, mrs. `peel`.
+- Congratulations, mrs. `peel`.
+- Mrs. `peel` ... come quickly.
+- You'll always be mrs. `peel`.
+- Talk to the pipe, mrs. `peel`.
+- Who could that be, mrs. `peel`?
+- How can i help you, mrs. `peel`?
+- Mrs. `peel` had a narrow escape.
+- Yeah, banana `peel`, go head on.
+- You need treatment, mrs. `peel`.
+- That suspect was not mrs. `peel`.
+- Their skin will flake and `peel`.
+- I was growing fond of mrs. `peel`.
+- Have him `peel` the top label back.
+- It's the latest thing, mrs. `peel`.
+- Must i go an calling you dr. `peel`?
+- Not all tradition is bad, mrs. `peel`.
+- I'm so sorry i struck you, mrs. `peel`.
+- Oh, well ... just my type, mrs. `peel`.
+- They're playing your song, mrs. `peel`.
+- It comes down to one thing, mrs. `peel`.
+- This is an official matter, mrs. `peel`.
+- About your next assignment, mrs. `peel` ...
+- The death of peter `peel` was a great loss.
+- I'm just now -- we must hurry, mrs. `peel` ...
+- Perhaps your memory plays tricks, mrs. `peel`.
+- The doors and walls are monitored, mrs. `peel`.
+- Think of it as special assignment, mrs. `peel`.
+- If i just `peel` the skin off, it'll be perfect.
+- Steed asked me to play a hunch: valentine `peel`.
+- I think she really likes you ... where's mrs. `peel`?
+- Under the circumstances, you may call me mrs. `peel`.
+- You can go up to one of those trees and `peel` the bark.
+- You'll like this a whole lot better with the `peel` off.
+- Ask not for whom the telephone rings ... mrs. `peel` -- ?
+- I mean we drank the juice, now we're just licking `peel`.
+- If i'm right, mrs. `peel` is innocent and you have a mole.
+- Someone wants to implicate you in this affair, mrs. `peel`.
+- Very good, mrs. `peel` ... let me guess: wonderland weather.
+- You reek of mrs. `peel`'s black leather ... how did you guess?
+- You know, we saved half a million people from a full-body `peel`.
+- Breaker, this is banana `peel`... and who has access to that floor?
+- The institute ... the funding ... peter `peel` was a first class agent.
+- There, there... common knowledge, mrs. `peel` ... is that written in his shoe?
+                 

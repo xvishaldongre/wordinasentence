@@ -1,0 +1,88 @@
+---
+title: "piss in a sentence | piss example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "piss"
+---
+- I gotta take a `piss`.
+- You'll `piss` him off.
+- ...don't `piss` me off.
+- I `piss` fifteen kilos.
+- I'd rather `piss` glass.
+- I gotta `piss` real bad.
+- I gotta go take a `piss`.
+- `Piss` holes in the snow.
+- Don't that `piss` you off?
+- `Piss` on all the red sox.
+- You are taking the `piss`?
+- Full of `piss` an' vinegar!
+- I think if i just `piss`...
+- You mean `piss` your pants?
+- First, you `piss`-off women.
+- It turns to steaming `piss`.
+- Don't `piss` him off, o'neal.
+- He'll `piss` himself with joy.
+- Then you `piss`-off the south.
+- I used to `piss` in their pools.
+- Till he can't `piss` standing up.
+- We can't drink our `piss` can we?
+- What'd you do, `piss` your pants?
+- Don't `piss` on a gift, tough guy.
+- What did you do to `piss` him off?
+- Jaime -- i've got to take a `piss`.
+- He can't `piss` standing up anymore.
+- Tell "them" to take a flyin' `piss`.
+- Used to `piss` herself all the time.
+- I ain't drinking hot `piss` with you.
+- I'm not trying to `piss` you off, see?
+- But i think that'd just `piss` 'em off.
+- Go figure, i mean, who'd he `piss` off?
+- To `piss` off my mother, and it worked!
+- Wow....huh..."...`piss` and shit..." ok.
+- Hey, `piss`-head, what brings you around?
+- Yeah, if your goal was to `piss` him off.
+- Don't make me knock the `piss` out of you.
+- Did someone `piss` drunk run into your wife?
+- Now you're really starting to `piss` me off!
+- He can't shoot arrows, he can't `piss` smoke.
+- Those guys are really starting to `piss` me off!
+- Get your coat, but don't `piss` the guy off, okay?
+- You don't hit both pumps you just `piss` them off.
+- You think this is the best time to `piss` him off?
+- That's what you said in the last three `piss` pots.
+- I really wanted to, partially just to `piss` you off.
+- You'd make a `piss`-poor lawyer... room 1600, please.
+- At least up there your `piss` will be worth something.
+- Christ, it's not even a poor excuse for rabbit `piss`.
+- You're a `piss`-poor liar for the smartest man i know.
+- You staying for a while or is this just a `piss`-stop?
+- You think you can lock me up in this `piss`-ass prison?
+- I'm in handcuffs and i still scare the `piss` out of you.
+- I was gonna cremate it and... don't `piss` me off, junior.
+- Fun, he's not going away; he's scaring the `piss` outta me!
+- Man, i gotta take a `piss` bad... can i use your head there?
+- She shot him i i think that'd `piss` me off if i were nix.
+- I'd give twice this amount to take a `piss` without it hurting.
+- You shit when we say you shit, and `piss` when we say you `piss`.
+- Pink, mr. purple, mr. pussy, mr. `piss`... yeah, those guys too.
+- Shut up -- shut up -- did you `piss` your fuckin' pants, stanley?
+- They ain't got a pot to `piss` in or a window to throw it out of.
+- You don't need to ask me every time you need to go take a `piss`.
+- I live in riverside, goddammitt and you get to `piss` in the ocean.
+- How long are they going to let the air force `piss` on those bastards?
+- How'd you manage to `piss` off a guy as powerful as francis boutillier?
+- And acid -- i make koolaid that makes purple owsley come on like `piss`.
+- I'd rather die covered in blood, than an old man, lying in my own `piss`.
+- If you were the president, wouldn't that put a little `piss` in your shoes?
+- She's gonna `piss` it all away in about a year, and then where will she be?
+- If you found me steppin' on your crime scene - it might `piss` you off, too.
+- They still have to get up and `piss` in the middle of the night, don't they?
+- You think he's going to believe me if i tell him his `piss`-hole son stole it!
+- If he tries to run, feel free to dissuade him until he can't `piss` standing up.
+- Tell me there aren't customers that annoy the `piss` out of you on a daily basis.
+- ...`piss`-ant paper towels...a bottle of 409...saving up for goin' to the comoros.
+- So you know they were trying to `piss` on your rug-- i'll say it again, all right?
+- You'll be drinking your own `piss`... for the glory of spain... and admiral colon...!
+- Oh, and i, have to `piss` sitting down... like a godamn girly... every fifteen minutes.
+- Just `piss` off to the bahamas and let somebody else employ them, glenda, get jack a drink.
+                 

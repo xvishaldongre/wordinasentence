@@ -1,0 +1,51 @@
+---
+title: "touching in a sentence | touching example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "touching"
+---
+- There's no `touching`.
+- I'm not `touching` you!
+- Not `touching` my face.
+- What a `touching` story.
+- I am `touching` the beast!
+- Stop `touching` his brain!
+- Where is it `touching` you?
+- I'm not `touching` that thing.
+- 'bout not `touching` the switch?
+- Um, i'm not `touching` anything.
+- As far as `touching` things, yes.
+- I like `touching` you--poison ivy.
+- Please not be `touching` me, conor.
+- Our house always needs `touching` up.
+- I think it's rather `touching` really.
+- My leg is `touching` milhouse's dad's.
+- Our chairs are indeed almost `touching`!
+- You kept `touching` me, feeling my thigh.
+- Your mom's not `touching` hers, by the way.
+- I think you're probably `touching` each other.
+- Our hands... our hands were almost `touching`.
+- That's `touching`, elle, but we need an alibi.
+- I don't like people `touching` my blue blanket.
+- I'm not `touching` my film... that's happening.
+- Very `touching`, very academy-of-dramatic arts!
+- I wish you'd quit `touching` me all the time.
+- That they'll start `touching` us inside our heads.
+- He got straight a's without ever `touching` a book.
+- It was `touching` the way you stood by me in there.
+- I...don't think...anybody should be `touching` the body.
+- I thought it was �`touching`�... and �funny.� i have to.
+- So he's got this catalogue of women `touching` themselves?
+- I'll catch him in the bathroom mirror `touching` his scars.
+- See -- nothing's quite `touching` the line -- that's vanity.
+- Hey, hey, you start `touching` me there, i'm gonna start movin'!
+- I gave her a hundred bucks in tips alone -- i said no `touching`.
+- But you do admit to `touching` her, to putting your arm around her.
+- There, the guy... how did you do that, without even `touching` him?
+- Your faith in the veracity of the major media is `touching`, jerry.
+- She started `touching` herself and telling me how much she wanted me.
+- It doesn't travel through the air, by breathing, or `touching`, right?
+- Not by `touching`, or shaking hands, or hugging, using the same toilet...
+- Fran is just sitting there, the spoon in her hand, not `touching` the soup.
+- I don't like `touching` fish, how do you pull the hook out without `touching` it?
+                 

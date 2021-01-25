@@ -1,0 +1,70 @@
+---
+title: "tricks in a sentence | tricks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tricks"
+---
+- Standby... no `tricks`.
+- No `tricks`, walter!
+- I know all the `tricks`.
+- I don't see any `tricks`.
+- I know all your `tricks`.
+- No more `tricks`, edward.
+- Maybe they're not `tricks`.
+- What `tricks` would i pull?
+- I resort to cheap `tricks`...
+- My mind plays `tricks` on me.
+- Can you make them do `tricks`?
+- I've been talkin' to `tricks`.
+- Are you playing `tricks` on me?
+- I'm wise to your `tricks`, lady.
+- You're full of `tricks`, wizard.
+- Your impressive parlor `tricks`.
+- My mind was not playing `tricks`.
+- Did you ever turn `tricks` before?
+- Learnt the `tricks` in camouflage.
+- Like, magic `tricks` or something?
+- No `tricks`, no codes, no messages.
+- Old `tricks` are the best `tricks` eh?
+- You're full of `tricks`, aren't you?
+- He encourages wendy to turn `tricks`.
+- My equations are not parlor-`tricks`!
+- Back to your old `tricks`, eh, tanner?
+- Emotion `tricks` all of us, mrs. rand.
+- I mean you hear, "`tricks` are for kids!"
+- We vere thinking there might be `tricks`.
+- Where'd you learn all those new `tricks`?
+- Okay?...i won't play any `tricks` on you...
+- We still got a few `tricks` up our sleeves.
+- I don't have no `tricks`, i'm not that smart.
+- A girl like that, she don't know any `tricks`.
+- Nope - afraid i'm all out of `tricks` tonight.
+- No `tricks`, no mirrors, nothing up my sleeve.
+- Perhaps your memory plays `tricks`, mrs. peel.
+- Wendell white, how's `tricks`, <u>paesano</u>?
+- Joe, you're not pulling one of your old `tricks`.
+- No `tricks`, no weapons, skill against skill alone.
+- What if i go out on `tricks` - you wanna come along?
+- Can you do any neat `tricks` to prove you're not gas?
+- I'm honored, honeythorn gump... but no more `tricks`.
+- We've no time for `tricks` this day, honeythorn gump.
+- This is one of those interrogation `tricks`, isn't it?
+- Dirty `tricks` -- political assassinations -- now wait.
+- I showed you all my conjuring `tricks`... shh... yes, yes.
+- `Tricks`...jesus... we need fuel, and a couple automatics.
+- Is this another one of those sun tzu �art of war� `tricks`?
+- And for all we know, this is another one of clarke's `tricks`.
+- No more meetings, no more discussions, no more sollozzo `tricks`.
+- Your friend is just, i don't know, into collecting weird `tricks`.
+- Our society sure likes to see its unconventional women do `tricks`.
+- Maybe i'll train it to do little `tricks` for me like your robot does.
+- Four hundred and fifty and i'll cut your throat if you try any `tricks`!
+- I broke the man out of prison -- otis, were you up to your old `tricks`?
+- Well, i believe her mind was playing `tricks` on her, god rest her soul.
+- Tommy, halloween night is when you play `tricks` on people and scare them.
+- If max found out you were turning `tricks` -- what the fuck was that about?
+- Try your `tricks` on me and i'll turn myself back into a snake and bite you.
+- If ye want more `tricks`, i'm your man, but for big questions ye must go elsewhere.
+- Hildy, from this time on no `tricks`, no double-crossing -- everything on the level!
+- Build you up a little, teach you couple little `tricks`'n turn y'out to stud, rat-stuff.
+                 

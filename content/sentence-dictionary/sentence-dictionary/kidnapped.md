@@ -1,0 +1,56 @@
+---
+title: "kidnapped in a sentence | kidnapped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kidnapped"
+---
+- I was being `kidnapped`.
+- She `kidnapped` herself!
+- Homer's been `kidnapped`.
+- `Kidnapped` or something.
+- What if he's `kidnapped`?
+- Daya zhang was `kidnapped`.
+- Why we were `kidnapped`.
+- He `kidnapped` you, kathryn.
+- My... eh... we `kidnapped` it.
+- I know that daya was `kidnapped`.
+- You mean -- they `kidnapped` her?
+- He `kidnapped` them to control her.
+- You want your own wife `kidnapped`?
+- We `kidnapped` noriega out of panama.
+- Was a little girl `kidnapped` recently?
+- What if the bad people `kidnapped` her?
+- I mean she probably `kidnapped` herself.
+- I said i thought she `kidnapped` herself!
+- Is the man who `kidnapped` you there now?
+- Yours `kidnapped` you, mine abandoned me.
+- Frances and charles have been `kidnapped`?
+- I've been `kidnapped` by the village idiot.
+- Has another scientist been `kidnapped` or not?
+- Look, she `kidnapped` her-- we're screwed now!
+- You just set bobby seale up to be `kidnapped`.
+- This guy says she was `kidnapped` last wednesday.
+- A woman was `kidnapped` in eau claire this morning.
+- Hey relax, you think i `kidnapped` him or something?
+- ...so that i could explain i'm being, uh, `kidnapped`?
+- I've been `kidnapped` and brought here against my will.
+- Mrs. haydn... do you know what you were `kidnapped` by?
+- The big fellow's broken in and `kidnapped` your fiancee.
+- Well, as you know, we were `kidnapped` and brought here .
+- That poor woman--that poor slut-- `kidnapped` herself, dude.
+- Creasy saved the little girl that was `kidnapped` yesterday.]
+- Nothing, he's just been sort of, i don't know... `kidnapped`.
+- If he wanted a photographic memory, he shoulda `kidnapped` one.
+- Lucky people don't get `kidnapped` and tortured by psychopaths.
+- I know you do experiments on `kidnapped` little kids, hi, daddy.
+- You're telling me barbara holland was `kidnapped` by russian spies.
+- He's not `kidnapped` he's -- he's just hiding -- he's just -- bennnn?
+- I just knew i was onto something when that taxi driver `kidnapped` me.
+- You said so yourself, dude--she `kidnapped` herself-- yes you're wrong.
+- She was `kidnapped` and brought here two years ago just as we were, bob.
+- Of course i'd be here frantically worrying thinking you must of got `kidnapped`.
+- You're the tallest thing i ever... - where we `kidnapped` you... - joyce, please!
+- The daughter of the chinese ambassador has been `kidnapped` and they asked for help.
+- These girls, `kidnapped` during the last month and sold overseas to the highest bidder.
+- There's no correlation at all between where they're `kidnapped` and where they're found...?
+                 

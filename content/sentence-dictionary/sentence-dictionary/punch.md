@@ -1,0 +1,80 @@
+---
+title: "punch in a sentence | punch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "punch"
+---
+- I'm gonna `punch` you.
+- Spilling some `punch`.
+- That's a good `punch`.
+- You want some `punch`?
+- That little `punch` bag.
+- You call that a `punch`?
+- I oughta `punch` you out!
+- I must have lost my `punch`.
+- What numbers do you `punch`?
+- Now `punch` me again and run.
+- She's gonna get some `punch`.
+- Hey, easy on the `punch` bowl.
+- Then i'll get you some `punch`.
+- Watered down champagne `punch`?
+- I'll build in a counter-`punch`!
+- You want a `punch` in the mouth?
+- Yo, carlos-i'm gonna `punch` you.
+- Did you bring the pie and `punch`?
+- Okay, `punch` that in right there.
+- `Punch` -- come on -- oh, god, no!
+- Is she responsible for the `punch`?
+- I can `punch` you in the nose later.
+- Tell 'em we'll have pie and `punch`.
+- How'd you like a `punch` in the nose?
+- We're not gonna have pie and `punch`!
+- I'm about to come to the `punch` line.
+- Sid and breeze `punch` theo in the face.
+- The kidney `punch` and the rabbit-clout.
+- How would you like a `punch` in the nose?
+- She threw a `punch` at a man on the team.
+- I said sex and drugs and... `punch` it in!
+- ...you're gonna `punch` in a kitten later.
+- How would you like a nice hawaiian `punch`?
+- Do me a favor -- his lungs, `punch` 'em out.
+- I'll have me some of that `punch` there, too.
+- I've never seen anybody `punch` clyde before.
+- I was trying to `punch` his major in the eye.
+- I can knock a man out with a six inch `punch`.
+- How'd you get that `punch` in the stomach, roy?
+- ♪ you got some `punch`, pizazz, yahoo, and how?
+- No, no, no.... we'll `punch` <u>in</u> a kitten.
+- I've seen an agent `punch` through a concrete wall.
+- You're lucky i don't `punch` you right in the face.
+- Get to the `punch` line or your son flunks geometry.
+- This is like a knockout `punch` for warm-bloodedness.
+- You've seen the latest cartoon in `punch`, i take it?
+- I'd like to go back and `punch` the son of a bitch out!
+- It's the ones like us, that don't `punch` back, not us.
+- You wouldn't have landed a `punch` if i didn't let you.
+- Do you always `punch` people first thing in the morning?
+- Brother, i'm gonna `punch` a hole, you follow me through.
+- I think i'll go down and `punch` this editor on the nose.
+- You think francis is going to beat me to the `punch` here?
+- Planter's `punch`, singapore sling, or how about a mai-tai?
+- You see the padre on your way out and he'll `punch` your ticket.
+- In order to dance and to drink `punch` and to be with my friends.
+- You better watch your mouth, man, or i'll `punch` your lights out.
+- I had a lot to do with that little press conference last night-- `punch`?
+- Well, almost ... unfortunately i do have to `punch` in by 5.00 every day.
+- It's just sometimes... sometimes you just gotta `punch` somebody out, y'know?
+- I don't know why, but every time he opens his mouth i want to `punch` him out.
+- It must be the `punch`, and it is stuffy in here -- i feel it a little myself.
+- I'm going to `punch` that bleeker kid in the weiner the next time i see him.
+- If there ain't no war, you can `punch` out, go home, and take up oil painting.
+- Try to `punch` one word or phrase in every sentence -- `punch` one idea a story.
+- If i go see him, he might `punch` me in the kisser, how about a slow one right now?
+- The password is... more people will come if they think there'll be pie and `punch`!
+- Just give us the `punch` line... well, just be careful you don't knock her down, huh?
+- She'd `punch` up her own little world in cyberspace and stay in it for days at a time.
+- It's be best if you got to the point, cause i'm about ready to `punch` you in the face.
+- Gives you enough time to get away from the victim so he doesn't `punch` you in the nose.
+- This is even better than the time the milk duds so you don't `punch` someone in the face.
+- Clean my desk, explain things to our sons, then maybe get shit-faced and `punch` your boss.
+                 

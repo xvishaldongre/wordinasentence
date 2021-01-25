@@ -1,0 +1,107 @@
+---
+title: "cop in a sentence | cop example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cop"
+---
+- He has a `cop`'s face.
+- He looks like a `cop`.
+- He used to be a `cop`.
+- So you're not a `cop`.
+- That's `cop` bullshit.
+- What are you, a `cop`?
+- Why is it a `cop`-out?
+- You got a name, `cop`?
+- Your father the `cop`.
+- Christ, you're a `cop`.
+- Eddie mack, that `cop`.
+- Good `cop`, what a man.
+- He made me for a `cop`.
+- You used to be a `cop`.
+- He's not a `cop` killer.
+- Take your average `cop`.
+- Yes, but he was a `cop`.
+- You fucking hit a `cop`?
+- You're a dirty `cop`.
+- `Cop`-ness, not sex-ness.
+- Don't worry, i'm a `cop`.
+- He killed a `cop`, right?
+- I'm not a `cop` any more.
+- Run a good-`cop`-bad-`cop`.
+- Stay away from the `cop`.
+- Vice `cop` on a homicide?
+- Why'd you become a `cop`?
+- Why not just `cop` to it?
+- You a `cop` or something?
+- At least he's not a `cop`.
+- Good `cop`, dog `cop`, mm...
+- I'm a `cop` from new york.
+- I need her; she's a `cop`.
+- There's a `cop` behind us.
+- You're a celebrated `cop`.
+- Are you a good `cop`, john?
+- How'd it go with the `cop`?
+- I was a big-city `cop` too.
+- You're not a `cop`, either.
+- Here, "town gets top `cop`."
+- I punched a `cop` at a demo.
+- I show a `cop` on horseback.
+- ...metro intelligence `cop`.
+- No, felice, i'm not a `cop`.
+- You're not a `cop` any more.
+- You're not a `cop`, are you?
+- But he was such a good `cop`.
+- Do you know a friendly `cop`?
+- Hey kids, "a `cop` is a rat."
+- Make sure you're not a `cop`.
+- She was a black female `cop`.
+- You killed that `cop` dutton.
+- Frank tells me you're a `cop`?
+- I don't care -- she's a `cop`.
+- One of them <u>is</u> a `cop`.
+- You're a real `cop` i suppose.
+- You want me to trust a `cop`?!
+- A `cop` wouldn't have kneed me.
+- He's not a `cop`, he's a medic.
+- He was a corrupt `cop`, verbal.
+- I'll send a `cop` back for you.
+- That `cop` didn't pull his gun.
+- What about your friendly `cop`?
+- Why'd you ask for a `cop`, ray?
+- Bert, the `cop`, sent this over.
+- Mike flynn's a dirty `cop`, hap!
+- Oh, so you decide to be a `cop`?
+- That `cop`, he keeps watching me.
+- There was a `cop` at the hearing.
+- What do you know about the `cop`?
+- What're you doing, playing `cop`?
+- Why would you want to be a `cop`?
+- You are an awesomely weird `cop`.
+- You're not a real `cop`, are you?
+- I mean, does he look like a `cop`?
+- Keaton was a `cop` for four years.
+- Not much `cop` without 'em, is it?
+- Vincent told you that i'm a `cop`?
+- Want me to imitate a stupid `cop`?
+- You're not really a `cop` anymore.
+- Being a `cop` will be rough on her.
+- I know cops -- and you're no `cop`.
+- I'm a `cop` -- i notice everything.
+- There was <u>no</u> `cop` involved.
+- What do we do with this `cop` here?
+- What the hell kinda `cop` are you?!
+- A `cop`... that's what i always say.
+- I needed to see if you were a `cop`.
+- Nels, don't let that `cop` pass you.
+- Rollo's the reason i became a `cop`.
+- Don't play the `cop` with me, marion.
+- I've been a `cop` for a while, kelly.
+- What's a `cop` wearing a headset for?
+- You're a city `cop`, where's the fbi?
+- [beat] you're the `cop` killer, right?
+- Guy's an ex-`cop`, thinks he can help.
+- Clarke, if we go back, i'm not a `cop`.
+- I'm in a `cop` bar, with jackson maine.
+- Patchett uses a lot of ex-`cop` muscle.
+- _ she murdered those kids, i'm a `cop`.
+                 

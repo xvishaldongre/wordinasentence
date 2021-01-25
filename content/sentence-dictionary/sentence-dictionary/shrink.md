@@ -1,0 +1,59 @@
+---
+title: "shrink in a sentence | shrink example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shrink"
+---
+- To `shrink` that wall.
+- His `shrink`'s trainer.
+- You're a `shrink`, doc.
+- I don't need a `shrink`.
+- It's my `shrink`, really.
+- Tell it to your `shrink`.
+- They can't `shrink` <me>!
+- He sees a `shrink` in l.a.
+- `Shrink` major, not a `shrink`.
+- The `shrink` makes more notes.
+- You still seeing that `shrink`?
+- Fresh from the `shrink` i'd say!
+- I say you should get a `shrink`.
+- Maybe you should see a `shrink`.
+- You're the `shrink`, aren't you?
+- My `shrink` says he's not so bad.
+- So i started going to a `shrink`.
+- You're the `shrink`, you tell me.
+- I wish we could `shrink` for real.
+- Hey, come on, `shrink` time's over.
+- You know what your `shrink` said...
+- They `shrink` when they're marinated.
+- Yeah, well my brother is his `shrink`.
+- Back-to-back sessions with the `shrink`.
+- We have to start looking for a `shrink`.
+- Did you ask walter to get you a `shrink`?
+- No whining on some fish-`shrink`'s couch.
+- You need to see the prison `shrink`, man.
+- I -- oh please, don't `shrink` me, norman.
+- Your `shrink` always gives you bad advice.
+- I fired my `shrink` [rumbling] ok. work fast.
+- So, how'd a `shrink` ever get to be a priest?
+- Don't do that thing... ...that `shrink` thing.
+- Grant, our miniaturizer can `shrink` anything.
+- He doesn't need a friend, he needs a `shrink`.
+- Y'know she admitted she was seeing a `shrink`.
+- Barry, did you ask walter to get you a `shrink`?
+- I don't fuck around with his trainer's `shrink`.
+- How the hell did the man `shrink` like that, dean?
+- That `shrink` -- the one you always wanted me to see?
+- You're a 53 year old `shrink`, what are you gonna do?
+- Oh, you really are in `shrink` mode today, aren't you?
+- You know time heals better than any `shrink` ever can.
+- I didn't ask anyone for a `shrink`, that was someone else.
+- You don't exactly look like a `shrink`, wearin' that dress...
+- Will you call me later to talk about asking walter for the `shrink`?
+- Besides i've got a morning appointment tomorrow with elijah's `shrink`.
+- Really, when we get out of here i'm pretty sure it's `shrink` time for you.
+- This `shrink` school you went to... did you hear about it on an infomercial?
+- I'm your priest, your `shrink`, your main connection to the switchboard of souls.
+- But at three months...the chances of coming back `shrink` dramatically with every day.
+- Anyway, murray has this `shrink`, who also happens to be martin's personal trainer's `shrink`.
+                 

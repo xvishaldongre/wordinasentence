@@ -1,0 +1,104 @@
+---
+title: "suck in a sentence | suck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suck"
+---
+- !</b> `suck` my balls.
+- Can i `suck` your tit?
+- Have a `suck` on that.
+- You can `suck` a fuck.
+- I think you `suck`.
+- I won't have to `suck`.
+- The readings `suck`....
+- Your sales `suck`, don.
+- All these movies `suck`.
+- Hope bad does it `suck`?
+- Your photos `suck`, kid.
+- Did she `suck` your dick?
+- I hope it doesn't `suck`.
+- I'll `suck` your eyes out!
+- Oh `suck` my fucking dick!
+- `Suck` up and get over it.
+- We'd `suck` in everything.
+- You're gonna `suck` today.
+- So, i clearly `suck` at it.
+- `Suck`, `suck`, `suck`, `suck`...
+- But veggie loaf does `suck`.
+- Don't ask me to `suck` you.'
+- I vant to `suck` your blood.
+- I vant to `suck` your money.
+- That wouldn't `suck` either.
+- You `suck` at lying, archie.
+- Don't try to `suck` up to me!
+- Does that mean `suck` my dick?
+- Well, this is going to `suck`.
+- I mean, they do kind of `suck`.
+- Yeah, it would `suck` big time.
+- Yeah, that'll `suck` some power.
+- You're not gonna `suck` my cock?
+- Wouldn't `suck` to have a weapon.
+- You really `suck`, you know that?
+- Andy, they don't think you `suck`.
+- Don't you even... `suck` my dick...
+- Don't you have some dick to `suck`?
+- I also vant to `suck` your twinkie.
+- You're gonna `suck` the first time.
+- I know this world can `suck`, hello?
+- Soggy, a word of advice: you `suck`.
+- Clarke's memories may `suck`, you ok?
+- Oh, please, your life doesn't `suck`.
+- Probably because i `suck` at dancing.
+- She wanted to know about `suck` night.
+- You'd realize you `suck` at both jobs.
+- Someone's got to `suck` out the bullet.
+- I know this world can `suck`, holy shit!
+- Tomorrow he'll have to `suck` a raw egg!
+- And that's why you're gonna `suck` today.
+- I hear they can be kind of a time-`suck`.
+- The abyss will `suck` away your strength.
+- They can `suck` a salt grain off a beach.
+- She'll `suck` your bones like honey- comb.
+- Would you kiss it or `suck` it right away?
+- `Suck`, `suck`, suckity, `suck`, suckity, `suck`.
+- Because if so, you `suck` at being a doctor.
+- Because i never tried to `suck` my own dick?
+- I mean getting a virgin to `suck` your dick.
+- When we start running `suck` up your breath.
+- One ta screw it in and one ta `suck` my cock.
+- I guess my guards don't `suck` after all, huh?
+- They're gettin' ready to `suck` this baby dry.
+- Haven't you ever tried to `suck` your own dick?
+- Well... why did you have to `suck` their dicks?
+- He broke his neck trying to `suck` his own dick.
+- Well, dad, she said she wanted to `suck` my cock.
+- I guess the only thing is `suck` it up... alcohol.
+- It does `suck`, though, which is why it ends today.
+- To `suck` the helium into them thar mylar balloons.
+- That's deep -- -- i know you don't `suck` at acting.
+- Must `suck` going from the penthouse to the outhouse.
+- But, trent, all the parties and bars, they all `suck`.
+- I made them, man.... maybe it's the tags that `suck`....
+- I mean, that would `suck` if you had to go back to rehab.
+- It's, uh, a little different, - `suck`, `suck`, `suck`, `suck`.
+- One day you'll be an old man who likes things that `suck`.
+- I tell jayne kennedy, "`suck` my dick or i'll beat your ass!"
+- I wanted to live deep and `suck` out all the marrow of life!"
+- `Suck` out the infinity stone and help me get my family back?
+- If we let that thing command wonkru, i hope it doesn't `suck`!
+- You're with jayne kennedy and you say "bitch, `suck` my dick!"
+- Well, more than anything else -- -- i'd like to `suck` his cock.
+- Like executing people for stealing you know that means you `suck`.
+- Oh, please tell me, elizabeth, how exactly does one `suck` a fuck?
+- I think i'll make her `suck` my dick, and i'll come all in her face.
+- Having a virgin `suck` your dick, that's basic because there's nothing lost.
+- I know i `suck`, and i held you up for ten rounds -- what happened to boxing?
+- "we went to the woods because we wanted to `suck` all the marrow out of life."
+- Yankees `suck` fantasy camp... well, i am, and he paid me to tell you what to do.
+- You just `suck` people along with your schemes and your scams and your slick act.
+- "that grandpa took off his vine and gave to me to `suck` out of its skin--" thanks.
+- But if we do that, we leave nothing left you do not say "`suck`" at the dinner table!
+- Well, wiggum, i have to say, when i first met you, getting blown up must `suck`, huh?
+- But my partner goes down there to the opera house on `suck` night to book the good ones.
+- "`suck`" is historically a nice word-- sno-cones, your mother's... nice guys finish last.
+                 

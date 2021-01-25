@@ -1,0 +1,82 @@
+---
+title: "crowd in a sentence | crowd example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crowd"
+---
+- I'll join the `crowd`.
+- The `crowd` bought it.
+- The `crowd` goes wild.
+- You attract a `crowd`.
+- `Crowd` always buys it.
+- Don't `crowd` me, craig.
+- Don't `crowd` the house.
+- The `crowd` goes wild!
+- The `crowd` goes wild.
+- The `crowd` had to dig it.
+- The `crowd` was most kind.
+- I saw indra in the `crowd`.
+- Maybe get a better `crowd`.
+- A whole `crowd` of witnesses.
+- The `crowd`'s gonna love this!
+- You're out of the cool `crowd`.
+- You see anything in the `crowd`?
+- Good liquor draws a good `crowd`.
+- I know i'm out of my own `crowd`.
+- Is there a `crowd` in the street?
+- The light, the `crowd`, everything.
+- [`crowd` cheering] vote for all men!
+- Not a bad `crowd` tonight, you know?
+- The `crowd` is really with the movie.
+- She'll never miss you in this `crowd`.
+- The tramp `crowd` round alex, shouting.
+- The whole `crowd` of 'em, two weeks ago.
+- Isn't there a 'bless you' in the `crowd`?
+- There's no people like you in my `crowd`.
+- One into the `crowd`, one into the bunker.
+- The ctu's just opened fire on the `crowd`.
+- This `crowd` wouldn't know the difference!
+- I don't see no `crowd` around you, neither.
+- It's strictly for the fuller brush `crowd`.
+- Oh, mac ran up this little `crowd`-pleaser.
+- Go missiles hot... one into the `crowd`, why?
+- It's too much pressure, it's not his `crowd`.
+- Nobody pickpockets a `crowd` like those guys.
+- ...ready before the morning `crowd` blows in.
+- They enter the `crowd` around the helicopter.
+- Could you just keep that `crowd` back, please?
+- Danny padilla from the sentinel, that `crowd`.
+- I don't like the `crowd` you're mixed up with.
+- There's a `crowd` of 400 strong right outside.
+- You got the attention of the `crowd`, legate...
+- I'm on `crowd` patrol, miss weathers, excuse me.
+- But you'll have the guys to deal with the `crowd`.
+- What do you think that `crowd` is doing down there?
+- You had the `crowd` on your side, are we there yet?
+- Seventy- five percent of your job is `crowd` control.
+- There's a charming `crowd` here tonight, isn't there?
+- You can't do that... listen to the mood of the `crowd`.
+- [`crowd` cheering] sorry, snowball, cats are polarizing.
+- Get security on the perimeter the `crowd` got between us.
+- I got it... ...ready before the morning `crowd` blows in.
+- Smythe, take this `crowd` in there and give them a drink.
+- His reaction synchronizes with a reaction from the `crowd`.
+- The `crowd` was with him, oh, geez, i'm sorry, everyone.
+- Door opens and a `crowd` of cameramen and reporters rush in.
+- It's daylight, during business hours, dealing with a `crowd`.
+- Get him out of here before the `crowd` arrives for the naming.
+- He'll think you're in the `crowd` until the end of the speech.
+- Our friends are behaving like the `crowd` at a public hanging.
+- [`crowd` continues chanting «bellamy»] he's not really a friend.
+- You came here to turn the `crowd` around not make them hate you.
+- The truth is you were running around with a pretty wild `crowd`...
+- So you just brought the old chap out of the `crowd` for his own good.
+- There'd be a whole `crowd` of people around when the trunk was opened.
+- Sid and breeze push him towards the van as the `crowd`'s murmur increases.
+- You want control of the `crowd` -- you can't get it by killing their hero.
+- He will be hidden somewhere out here, probably somewhere low, in the `crowd`.
+- Actually, it's more the plunging head first into the `crowd` part that gets me.
+- It's like the old days, when a carnival barker would try to rile up the `crowd`.
+- Three's a `crowd`, especially if you've got to cut your way through barbed wire.
+- Well, besides cooties and other medical reasons, they're not in the cool `crowd`.
+                 

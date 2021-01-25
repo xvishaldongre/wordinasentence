@@ -1,0 +1,76 @@
+---
+title: "aboard in a sentence | aboard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "aboard"
+---
+- Step `aboard`, carolyn.
+- Conductor: all `aboard`!
+- Well, all `aboard`, max.
+- [conductor] all `aboard`!
+- Good to have you `aboard`.
+- Welcome `aboard`, admiral.
+- Welcome `aboard`, captain.
+- But you invited is `aboard`.
+- Permission to come `aboard`.
+- "`aboard` the s.s. manchuria.
+- Everyone `aboard` young bill?
+- Welcome `aboard`, lieutenant.
+- Good to be `aboard`, gentlemen.
+- There's somebody else `aboard`.
+- Welcome `aboard`, mr president.
+- You're `aboard` the enterprise.
+- Your friend's already `aboard`.
+- It's got a transmitter `aboard`.
+- All `aboard` who's coming `aboard`.
+- He didn't have a dinghy `aboard`.
+- Permission to come `aboard`, sir.
+- We keep a schedule `aboard` ship.
+- All `aboard` - new york, new york!
+- I didn't say i was coming `aboard`.
+- That's why you're staying `aboard`.
+- When we came `aboard`, i had a bag.
+- You're `aboard` the wrong ship, son!
+- I'd like to welcome you all `aboard`.
+- Permission to come `aboard`, captain?
+- Soon's we get some supplies `aboard`.
+- The-stones weren't `aboard` the ship.
+- We don't even have a full crew `aboard`.
+- So carl <u>let</u> him `aboard`, to help.
+- Nobody `aboard` my ship is going anywhere.
+- He never had one... except `aboard` my ships!
+- Request permission to beam `aboard` immediately.
+- Last thing i remember i was `aboard` the chimera.
+- Joe, you don't know how glad i am you're `aboard`.
+- If somebody's `aboard` her already, she ain't ours.
+- Welcome to the grand concourse `aboard` the avalon.
+- But this is the last time we do so while `aboard` her.
+- Only they revealed something wrong `aboard` enterprise.
+- The train's left the station, pal, and you're `aboard`.
+- I'm afraid we do not have any ladies' clothing `aboard`.
+- We are stranded `aboard` the space station to your west.
+- Just give us your coordinates and we'll beam you `aboard`.
+- Three weeks `aboard` a starship and you know it all, huh ?
+- A ship with fifty million dollars in gold `aboard`, adrift?
+- Sensors show five life signs `aboard` the station, captain.
+- We shove off as soon as griff reports all the crew `aboard`.
+- The ship's in pieces and we've less than a skeleton `aboard`.
+- "leaving today for london with conway `aboard` s.s. manchuria.
+- Some time ago, your sister snuck `aboard` this ship to kill me.
+- We'll make arrangements to have you beamed `aboard` at 1930 hours.
+- We even have two seats reserved `aboard` the first commercial moon flight.
+- You deny that your men beamed `aboard` kronos one and shot the chancellor?
+- Khan, listen to me -- if its me you want, i'll have myself beamed `aboard`.
+- She is rumored to be `aboard` her space station polaris, i feel like a walk.
+- Then you and doctor mccoy went `aboard` to make certain the job was complete.
+- Well, now that we're all `aboard`=8a number one, bring the ship before the wind.
+- Whose ship has just come in �� providing he has brains enough to climb `aboard`.
+- Now sit and relax, get some- thing in that flat tummy of yours -- drew's `aboard`?
+- The navy's conclusion regarding the crash of an f-14 `aboard` an aircraft carrier.
+- Sorry about that ... mr helpmann told me you were coming `aboard` - congratulations!
+- What i want to know, is it possible that the smugglers might have taken her `aboard`?
+- You'll stay `aboard` as executive officer... a temporary grade reduction to commander.
+- In the nine days after the last entry, she sailed 700 miles without anyone `aboard`.
+- I don't think we'll find much `aboard` the ship, but it's probably worth looking around.
+- Well, with a shark running loose around the place, i for one won't get `aboard` that raft!
+                 

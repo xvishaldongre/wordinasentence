@@ -1,0 +1,60 @@
+---
+title: "crossed in a sentence | crossed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crossed"
+---
+- Another `crossed` line?
+- You `crossed` the line.
+- `Crossed` at eagle pass.
+- I `crossed` paths with him.
+- It never `crossed` my mind.
+- Sorry if i `crossed` you up.
+- We `crossed` our own tracks.
+- You `crossed` the line, man.
+- It never `crossed` your mind?
+- Then he `crossed` the border.
+- We've `crossed` the threshold.
+- So you know, fingers `crossed`.
+- The barrier must not be `crossed`.
+- The thought had `crossed` my mind.
+- Ice nation has `crossed` the border.
+- I was `crossed`-trained in gunships.
+- You `crossed` the dimension barrier?
+- The second i `crossed` the county line?
+- `Crossed` the bay bridge and here i was.
+- I feel like i've been double- `crossed`.
+- We `crossed` the coast over an hour ago.
+- It's `crossed` my mind from time to time.
+- We shouldn't have `crossed` the boundary.
+- A thing like that `crossed` two continents.
+- This is what we `crossed` a desert to find?
+- Wires got `crossed` between hands and feet.
+- He'll shit if he knew we `crossed` a bridge.
+- Maybe some metaphysical wires got `crossed`.
+- If you're out there... you `crossed` the line.
+- Okay, okay, that `crossed` the line, i'm sorry.
+- But i think the thought has `crossed` your mind.
+- We're all keeping our fingers `crossed` for doug.
+- I scared you -- i `crossed` the line -- no, no, no.
+- Our lives have `crossed` because two lions went mad.
+- Nobody's ever `crossed` the rainbow bridge to asgaard.
+- All we been through, the thought never `crossed` my mind.
+- Has black peter already `crossed` off a few bad children?
+- How come they didn't attack until jasper `crossed` the river?
+- Murphy says he `crossed` a bridge i want two men on the door.
+- There is nothing wrong with uncrossing a few `crossed` wires.
+- Oh, no, never... nothing like that... never `crossed` my mind.
+- The line you've `crossed` is... it's illegal and it's immoral.
+- Can't you see the mayflowers double-`crossed` you... yeah, right.
+- ♪ they just `crossed` the double line ♪ yeah, if we had a keycard.
+- But i don't know... something's `crossed` over in me and i can't go back.
+- Ya not `crossed` eyed or anything... do i look like i have someone special?
+- Based on science, technology, you `crossed` the border into trikru land, whoa!
+- Garfield's girlfriend `crossed` a line last night and she's got to get spayed.
+- A new attack everytime you are `crossed` � everytime you can't get your own way.
+- It must be all the different time zones i `crossed` that makes me feel this weary.
+- Working up tears for a new piece cutaway...you totally `crossed` the line between...
+- I had my fingers `crossed` when they swore me in, but i'm going to tell you the truth.
+- Can you tell my readers more about your star-`crossed` connection with emperor commodus?
+                 

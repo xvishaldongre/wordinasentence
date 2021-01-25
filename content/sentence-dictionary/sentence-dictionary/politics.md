@@ -1,0 +1,73 @@
+---
+title: "politics in a sentence | politics example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "politics"
+---
+- I'm out of `politics`.
+- It's always `politics`.
+- You're into `politics`.
+- You and your `politics`.
+- `Politics` is power, paul.
+- There's no `politics` here.
+- Your business is `politics`.
+- You wanna see my `politics`?
+- It was countries, `politics`.
+- Maybe a career in `politics`?
+- Does anyone know his `politics`?
+- Never in `politics` in his life.
+- `Politics` doesn't interest you.
+- You have no personal `politics`.
+- I'm not interested in `politics`.
+- `Politics` man, fuckin' `politics`.
+- `Politics` is power, nothing more.
+- I don't get involved in `politics`.
+- That's why he went into `politics`.
+- We're beyond `politics` now ... sir?
+- I haven't gotten into `politics` yet.
+- It's `politics` - nothing you can do.
+- They didn't mention `politics` at all.
+- You think this is just about `politics`?
+- In `politics`, however, that is weakness.
+- `Politics` and art must be kept separate.
+- For some, `politics` and religion can mix.
+- Art and `politics`, yeah, art and `politics`.
+- That art and `politics` can't be separated?
+- Don't play `politics` with me, little darlin'.
+- Can i make sly analogies to today's `politics`?
+- It's true, i have a lot of friends in `politics`.
+- Mr. bebe is very concerned about your `politics`.
+- They can't use the john doe clubs for `politics`.
+- You're the one who should be in `politics`, john.
+- But the- i'm not discussing `politics` or economics.
+- Now, personally, i don't care about your `politics`.
+- Connections and `politics`, it's the same everywhere.
+- He doesn't follow the same rules of `politics` you do.
+- I'm not a `politics` guy, with gunners evenly divided.
+- The "old man" plays `politics` harder than anybody else.
+- It'll be all business and `politics`, that sort of thing.
+- I can reveal that i am considering a career in `politics`.
+- I could write you a check right now-- bullshit `politics`.
+- You want to be at a bigger firm, get used to the `politics`.
+- Frankie, you were always interested in `politics`, in history.
+- Whoever said there was life after `politics` was full of shit.
+- Yeah, yeah, art and `politics`, yeah, yeah, i heard all about that.
+- How many times, did you hear me say i was fed up on `politics` and--?
+- Than `politics`, the dying ecosystem, ♪ praise god ♪ "a" is for ralph.
+- She's always been neutral in `politics` and that's not going to change.
+- I've been dealing in earth's `politics` a good deal longer than you have.
+- I insisted for many years on the absolute separation of art and `politics`.
+- Take `politics`, our views on abortion, the death penalty... a light switch.
+- Marcus, you honor me, but i'm a soldier, `politics` scare the hell out of me.
+- Even with the `politics` taken out, this thing would still remain a vulgar farce.
+- Sexual `politics`, racism, the environment, the military industrial... like what?
+- They've got their claws sunk into everything -- finance, real estate, `politics`.
+- I will try my best george but these days i have no time for rallies or `politics`.
+- 30 continued: 23 continued: hard to work up an interest in `politics`, way we live.
+- My only intention whatever i did was to show that music means more than `politics`.
+- Tonight's dinner is amazing, folks: i think we're wasting time with `politics` here.
+- There are a million beautiful girls out there who don't give a damn about `politics`.
+- I thought chivalry was dead as a necessary consequence of gender `politics`... keep it.
+- It's a personal matter which has nothing to do with `politics` or social philosophies....
+- No, i was never a nazi, i have no interest in `politics`, i'm a musician - absolutely not.
+                 

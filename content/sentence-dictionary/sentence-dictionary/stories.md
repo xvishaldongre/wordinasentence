@@ -1,0 +1,107 @@
+---
+title: "stories in a sentence | stories example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stories"
+---
+- I like your `stories`.
+- I hear these `stories`.
+- They like my `stories`.
+- Are those `stories` true?
+- I've read your `stories`.
+- 20 `stories` worth of top?
+- Clarke told her `stories`.
+- My `stories` are annoying.
+- I've got some `stories`....
+- Tell me some war `stories`.
+- Don't make up any `stories`!
+- Do you like scotch `stories`?
+- Oh, he hates ghost `stories`.
+- Five `stories`, straight down.
+- I guess i like your `stories`.
+- I put myself in his `stories`.
+- No war `stories` for this pup.
+- There are many such `stories`.
+- Who will read me my `stories`?
+- My `stories`, not so good, man.
+- There are no `stories` anymore.
+- True `stories` of jesse james."
+- Everybody has `stories` to tell.
+- This is where the `stories` are.
+- All i wanna do is tell `stories`.
+- I tend to play well in `stories`.
+- Let's not tell our sad `stories`.
+- `Stories`... you brought me back.
+- You've heard the `stories` right?
+- Don't invent `stories`; go to bed.
+- Surely you've heard the `stories`?
+- They got their `stories` straight.
+- Why all the time horror `stories`?
+- I heard the `stories` in the guard.
+- Nonsense -- german ghost `stories`!
+- Oh, i've got `stories`, believe me.
+- Then you hit me with war `stories`.
+- You'll hear all kinds of `stories`.
+- Don't tell me fish `stories`, kiddo.
+- The short `stories` of john cheever.
+- It sounds like one of your `stories`.
+- How come you don't have any `stories`?
+- It's supposed to be 22 `stories` tall.
+- On whether the `stories` are all true.
+- Tell me some true `stories` about dad.
+- They tell bedtime `stories` about you.
+- You dry-dive six `stories` and blammo!
+- Listen - all old houses have `stories`.
+- No more `stories` about seals training.
+- Very bad in fact... you tell `stories`?
+- "all you'll have are ordinary `stories`.
+- Hardly two `stories` in the whole place.
+- I'm sorry, it's just you hear `stories`.
+- You like sad `stories` -- you want mine.
+- You ought to write these `stories` down.
+- It's like some of jacqueline's `stories`.
+- We tell `stories` of a place stone-built.
+- Do you love `stories` of kings and queens?
+- You haven't told bedtime `stories` before?
+- About the ghosts... what kind of `stories`?
+- I hated fishing, but i loved his `stories`.
+- My father told me many `stories` about you.
+- Their `stories` are just fear and folklore.
+- We have some real fun `stories` about that.
+- I might have gotten some `stories` mixed up.
+- It's more fun hearin' `stories` in the dark.
+- You know anything about christmas `stories`?
+- Your father ever tell you bedtime `stories`?
+- I heard `stories`, like what happened to you.
+- I suppose `stories` of the thuggees die hard.
+- I was actually raised on `stories` about her.
+- Plays, love `stories`, westerns, dog `stories`.
+- How come you get all the good `stories`, lois?
+- My magazine doesn't pay because for `stories`.
+- Do you think i tell too many `stories` in class?
+- Sounds like another one of your `stories` to me.
+- That's the point, that we all have `stories`.
+- Oh, you know... drink beer, tell ghost `stories`.
+- They tell `stories` to children to frighten them.
+- We both heard `stories` about all the people hmm.
+- I don't like... uh... polish love `stories`... ...
+- It's one of the funniest `stories` -- i'm a nurse.
+- Wow, grampa, your `stories` are really cool today.
+- Dead men, like sunken ships, can tell no `stories`.
+- I've got lots of `stories`, and you don't have any.
+- My mother told me `stories` about it late at night.
+- Or hemingway, when hadley lost all those `stories`.
+- `Stories` with crazy accents and...special effects.
+- I guess neither one of our `stories` was very funny.
+- We got some burrows goin' down seven `stories` here.
+- You will entertain them with `stories` and songs.
+- But you're just like the characters in the `stories`.
+- I'm gonna build skyscrapers a hundred `stories` high.
+- I've read the `stories` - and seen the news coverage.
+- Has nicolet told you any colorful `stories` like that?
+- I could tell you `stories`: cecil b. demille: alright?
+- Octavia is not the girl from the `stories` i told you.
+- I could tell you some `stories` � exactly, charlie!
+- During the trial, you did all those `stories` about me.
+- Quickly, please... tell me one of your funny `stories`.
+                 

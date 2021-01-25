@@ -1,0 +1,107 @@
+---
+title: "guy's in a sentence | guy's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guy's"
+---
+- That `guy's` sad, man.
+- The `guy's` an animal.
+- `guy's` six weeks over.
+- That `guy's` a wacko...
+- This `guy's` a fighter.
+- `guy's` going for $2500.
+- The `guy's` a choir boy.
+- This `guy's` a croupier.
+- You `guy's` pretty good?
+- He knew the `guy's` name.
+- Or the main `guy's` name.
+- The `guy's` a sleaze-bag.
+- The `guy's` full of crap.
+- The `guy's` name is zing.
+- What's that `guy's` name?
+- What's this `guy's` name?
+- `guy's` the toxic avenger.
+- That `guy's` got no right.
+- Fine... that `guy's` great.
+- So the `guy's` not a sicko.
+- The `guy's` bats all right.
+- The `guy's` in a coma, bob.
+- The `guy's` setting you up.
+- This `guy's` on television!
+- This `guy's` on television.
+- `guy's` not a dummy, though.
+- Some `guy's` car hit a tree.
+- The `guy's` a fuckin' moron.
+- This `guy's` gonna kill him.
+- This `guy's` not a murderer.
+- Trust me, the `guy's` dirty.
+- What's this `guy's` problem?
+- The `guy's` a boy scout, bob.
+- The `guy's` a trained killer.
+- The `guy's` working with you.
+- The other `guy's` a frog too.
+- Did you see that `guy's` face?
+- Did you see that `guy's` nose?
+- If the next `guy's` a redneck.
+- I tell ya the `guy's` a phony.
+- The `guy's` a fucking asshole.
+- This `guy's` not a negotiator.
+- This `guy's` only half cooked.
+- Do you think that `guy's` cute?
+- Dude... that `guy's` a lunatic.
+- The big `guy's` room was empty.
+- I mean, the `guy's` dead anyway.
+- Check out the other `guy's` buns.
+- He saved a `guy's` life one time.
+- The `guy's` a full-blown asshole.
+- This `guy's` an eccentric genius.
+- This `guy's` built like a pebble!
+- This `guy's` kinda dorky lookin'.
+- Who's writing this `guy's` lines?
+- I think this `guy's` following me.
+- That `guy's` not going to make it.
+- The `guy's` a thief, he took my...
+- But this `guy's` real damaged goods.
+- It's the `guy's` responsibility too.
+- Jesus -- that `guy's` too damn much.
+- The `guy's` a five and dime grifter.
+- The `guy's` completely out to lunch.
+- The `guy's` not much of a movie fan.
+- Harvey says the `guy's` a sweetheart.
+- Little `guy's` getting' hassled, huh?
+- Because this `guy's` a fucking psycho.
+- `guy's` an ex-cop, thinks he can help.
+- `guy's` looking for a quarter's worth.
+- Holy shit, this `guy's` all fucked up!
+- The `guy's` a frog -- i'm pretty sure.
+- What's this acting class `guy's` name?
+- `guy's` got some serious sex fantasies.
+- That `guy's` crazier'n a shithouse rat!
+- The `guy's` a total stranger, remember?
+- The `guy's` good- looking, rich, witty.
+- What is this `guy's` problem, mr. stark?
+- You don't understand -- `guy's` a c.i.a.
+- `guy's` waxing his mustache at the beach.
+- There's a way to get a `guy's` attention.
+- This `guy's` a fat-assed rotarian gasbag.
+- Yah, this `guy's` smaller than his buddy.
+- You `guy's` are not working with me here.
+- You were ready to bite that `guy's` face.
+- 'cause the `guy's` a customer now, stupid.
+- No.the `guy's` dead.what more do you need?
+- Oh i don't give a shit the `guy's` a slob.
+- Problem is, the `guy's` the invisible man.
+- This `guy's` a first ball fastball hitter.
+- This `guy's` bent enough to think of that.
+- Chink's the `guy's` name, for christ's sake.
+- Fuckin' `guy's` got a vacant lot for a head.
+- Lifted it out of a `guy's` cabin last night.
+- That `guy's` been in there since i got here.
+- Fuckin' `guy's` been saving your ass, albert.
+- Oh come on - the `guy's` going to be a creep.
+- `guy's` involved in a "meet"... how do i know?
+- I had a `guy's` fingers in my asshole tonight.
+- I mean, a `guy's` gotta have a <u>sidekick</u>.
+- I never like it when the other `guy's` human...
+- You don't take a `guy's` kid and then take off.
+                 

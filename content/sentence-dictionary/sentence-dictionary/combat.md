@@ -1,0 +1,51 @@
+---
+title: "combat in a sentence | combat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "combat"
+---
+- Hand to hand `combat`.
+- Hand to hand `combat`?
+- It's a `combat` action.
+- Close quarters `combat`.
+- How many `combat` drops?
+- I want `combat` seating.
+- That's fuckin' `combat`.
+- Followed by fight `combat`.
+- I saw your `combat` photos.
+- Have you ever seen `combat`?
+- Why follow him into `combat`?
+- About wonkru `combat` tactics.
+- Oh, no...it's a `combat` carl.
+- I will never be `combat` ready.
+- How about hand-to-hand `combat`?
+- My whole life has been `combat`.
+- Died in `combat` on his first day.
+- I'm not even trained for `combat`.
+- Each scar marks a kill in `combat`.
+- He requested a `combat` assignment.
+- Hope in the form of glorious `combat`.
+- Hand-to-hand `combat` is the true test.
+- You're lying -- `combat` grade morphine.
+- As towering virtues in `combat`-- five...?
+- Anything to get out of `combat` duty tomorrow.
+- Upham, are you sure you've never been in `combat`?
+- `Combat` operations center, major mandrake speaking.
+- Females in `combat` situations impact unit cohesion.
+- You were never going to let women serve in `combat`.
+- Or dying of thirst, our day of kiosk `combat` begins.
+- When you're in `combat`, he could become bruce willis.
+- In single `combat`, everything we need to stop a.l.i.e.
+- Legend says he told sankara to go forth and `combat` evil.
+- To `combat` bed-wetting, doctors recommend whew, poor kid.
+- Well, since the trauma is not `combat`-related, two weeks.
+- If i didn't know better, i'd swear they'd seen heavy `combat`.
+- That you didn't prepare for by doing your pre-`combat` checks.
+- I wouldn't mind being the first woman to fly a jet fighter in `combat`.
+- The honor was mine until another came to challenge me to single `combat`.
+- You were generally experienced in training men for hand-to-hand `combat`.
+- Well, maybe that's good news - it was never as good as `combat`, but this is.
+- As one of our own who has seen `combat` with the british, your opinion counts.
+- I don't know, but i'm sure i saw she just got through portal security single `combat`.
+- If you look at the <u>backstory</u> -- the guy's coming back from `combat` and torture.
+                 

@@ -1,0 +1,93 @@
+---
+title: "Pete in a sentence | Pete example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Pete"
+---
+- It's not good, `pete`.
+- `Pete` have a brother?
+- You're my man, `pete`.
+- I love you, `pete`!
+- I believed her, `pete`.
+- Just rest easy, `pete`.
+- `Pete`, you're through!
+- I'm always here, `pete`.
+- For `pete`'s sake, calvin!
+- What's your story, `pete`?
+- Yeah... `pete` the english.
+- You fell for it, `pete`.
+- Hey, `pete`... how ya doin'?
+- I'm surprised at you, `pete`.
+- `Pete` takes care of himself.
+- `Pete`, what happened to you?
+- Wonderful to see you, `pete`.
+- Yeah... how ya doin', `pete`?
+- ...i'm not sure that's `pete`.
+- `Pete`, i want to talk to you!
+- We saw you that night, `pete`.
+- Can you get that for me `pete`?
+- I mean it, `pete`... like that!!
+- It's an interesting one, `pete`.
+- Ya still follow the mets, `pete`?
+- What do people call you -- `pete`?
+- Where you been, for `pete` sakes?!
+- We'll go back to his house, `pete`.
+- You're `pete` sothow's nephew, huh?
+- Oh, for `pete`'s - a course they do!
+- Them sigh- reens did this to `pete`!
+- And, `pete` -- it's the only way out.
+- Blind `pete` taught me a great trick.
+- Get down here, where are you, `pete`?
+- Didn't he tell you about blind `pete`?
+- I'm not lou ferigno for `pete`'s sake!
+- `Pete`... 'sides, car's right outside.
+- Unlock 17:a. `pete`, you gotta let go.
+- We can't push old `pete` in this heat.
+- Oh for `pete`'s sake, it's only a joke.
+- Uh, uncle ben, i-- here you go, `pete`.
+- Are you gonna be a man about this, `pete`?
+- I know the likeli-... come on, old `pete`.
+- I'm really glad you're doin' okay, `pete`.
+- That's not what i'm talking about, `pete`.
+- I don't know, `pete`, but for god's sake...
+- I guess so, `pete`, because that's not all.
+- I wish you wouldn't talk like that, `pete`.
+- Come on, `pete`, you ran the px at fort dix.
+- `Pete`'s cousin turned us in for the bounty!
+- Quitcha babblin' `pete` - time to skedaddle.
+- Take those handcuffs off our friends, `pete`.
+- `Pete`, i'm so sorry about what they did to you.
+- `Pete`, can you tell us now, anything about this?
+- See, two years ago, `pete` got hodgkin's disease.
+- We've got `pete` dayton's prints all over this place.
+- Uh, we uh- well if that is `pete` i am ashamed of him.
+- `Pete`, don't be ignorant- well, i'll be a sonofabitch.
+- It's all over the city, `pete` -- well, under it actually.
+- Yeah, two things `pete`, that -- i'm on my way to chicago.
+- `Pete`, i've got a chance to buy jane mckenna's black book.
+- Me and `pete`'ll come under barzini's thumb sooner or later.
+- What're you gonna do with your share of the treasure, `pete`?
+- Alotta people `pete`... alotta people are gonna be very happy.
+- `Pete`... don't... how'd you get in with these fuckin' people?
+- We didn't abandon you, `pete`, we just thought you was a toad.
+- For `pete`'s sake, you're a single man with no responsibilities.
+- You sure weren't acting like the `pete` dayton i've always known.
+- For `pete`'s sake, hildy, they're waiting for the rest of that story!
+- `Pete`, it's a fool looks for logic in the chambers of the human heart.
+- Sorry about that, `pete`, but tailgating is one thing i can't tolerate.
+- Ole `pete` ain't much in the head, but he can lay in there with the wood.
+- You know, it's going to take me a while to get used to calling you `pete`.
+- 'cause we have to clean up before uncle `pete` gets here, a heart-to-heart?
+- `Pete`, there's time before the picture starts, you want to get some popcorn?
+- Reverend jackson `pete` sayer of dumon county, please to make your aquanauts.
+- This is jill, carol, betty, mandy, louise, `pete` over there, and i'm carmen.
+- `Pete`, if j. edgar hoover walked in here wearing a dress, i wouldn't know him.
+- Hello, amy -- was it -- i thought she said, mamie -- for `pete`'s sake, norville!
+- Now take that guilty look off your face, `pete` -- and stop trembling like a horse.
+- What he was talkin' about... how them deputies had the drop on you an' `pete`... no.
+- Sure, `pete` clemenza died of a heart attack, but the rosato brothers gave it to him.
+- Well, `pete`, i just figured it should be the one with capacity for abstract thought.
+- Well, you'n me'n `pete`'n tommy are gonna be the power behind the throne so to speak.
+- `Pete`, uh, i don't want ya to beat yourself up about this thing... aw, that's all right.
+- Now hold on, `pete`, we gotta speak with one voice here - careful with that fire now, boys!
+                 

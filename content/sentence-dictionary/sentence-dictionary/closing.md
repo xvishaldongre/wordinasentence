@@ -1,0 +1,68 @@
+---
+title: "closing in a sentence | closing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "closing"
+---
+- Okay, i'm `closing` up.
+- The bridge is `closing`!
+- It's not `closing`, mike.
+- `Closing` the outer doors.
+- Fifty yards and `closing`.
+- I’m `closing` that door.
+- I'm `closing` the door now.
+- Oh, we're `closing` the door!
+- We're just `closing`, friend.
+- I'm really sad it's `closing`.
+- What am i - the `closing` act?
+- But we show it's not `closing`.
+- They're `closing` the granview.
+- Range 3000 meters and `closing`.
+- `Closing` the gate will kill him.
+- Enemy `closing` on impulse power.
+- That means `closing` the beaches.
+- If i'm `closing` out this account.
+- I feel myself `closing` down again.
+- Wait... 1,000 kellicams, `closing`!
+- He's on your six and `closing` fast!
+- So they're `closing` down the school?
+- I didn't ask for a `closing` argument.
+- Five hundred meters and `closing` fast!
+- I hear they're `closing` that post down.
+- Excelsior `closing` to 4,000 meters, sir.
+- I'm not sleeping, just `closing` my eyes.
+- `Closing` at 20 kilometers, 15 and slowing.
+- Listen, i'm in town tonight on a `closing`.
+- But i can feel the edges `closing` in on me.
+- Fighters `closing` fast - range fifty miles.
+- We're countin -- are you `closing` the case?
+- Kind of like `closing` the door in the floor.
+- Admiral, i have a signal `closing` on the whales.
+- We'll be `closing` down their operation for days.
+- You're `closing` the fucking store to play hockey.
+- A special thanks in the `closing` credits i got it.
+- But don't waste time opening and `closing` hatches.
+- But i... and you can begin by `closing` your mouth.
+- Didn't you take your cut out of the `closing` check?
+- I'm serious this time, i'm `closing` this place down.
+- Cozy girl by a length, backtrack `closing`... come on!
+- I ain't `closing` down with out a good goddamn reason.
+- We're on the verge of `closing` a large navy contract.
+- No standing around, i'm `closing` up this door for later.
+- Last time i saw you, you were `closing` the dropship door.
+- I might have to console him till `closing` time... you see?
+- It's late, they're `closing`... yeah, but we didn't get 'em.
+- Your small convent is in danger of `closing`, reverend mother.
+- Captain, there are five borg ships `closing` in on our position.
+- Our associates in new york were close to `closing` a deal with us.
+- I've got an eight o'clock `closing` tomorrow down on centre street.
+- The captain of the containment crew is `closing` down the main lab.
+- He was my friend -- if i can be of any help -- `closing` his affairs.
+- Too busy `closing` big, important deals� i think i will have a drink.
+- The tear is `closing` on us... impact in fifteen seconds... on screen.
+- _ he said, «get home before the scouts arrive.» i'm `closing` the store.
+- They seemed, `closing` by much two of your friends left earlier mark uh huh.
+- As a "test" and i promise you... you start `closing` again, you'll be on the board.
+- He's `closing` down his operation and this is his way of saying thanks to all of us.
+- I think it's an energy form, sir... that distortion is `closing` rapidly... opinion, sulu?
+                 

@@ -1,0 +1,107 @@
+---
+title: "soul in a sentence | soul example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "soul"
+---
+- I can't tell a `soul`.
+- It's all `soul`'s eve.
+- My `soul` is prepared.
+- Well, bless my `soul`.
+- Body-`soul` and spirit.
+- I give you my `soul`...
+- Still has their `soul`.
+- Don't you have a `soul`?
+- I saw his `soul` wesley.
+- The `soul` of the house.
+- You can't tell a `soul`.
+- Ah, here's a lost `soul`.
+- I think i saw her `soul`.
+- Bart's `soul` is at stake.
+- Do you have a `soul`-mate?
+- I let her sell her `soul`.
+- I've found my `soul` mate!
+- Making hutch david `soul`?
+- ...my `soul` or something.
+- Where is the `soul` stone?
+- But my `soul` has gone mad.
+- I won't ever tell a `soul`.
+- That gripes my `soul`, man.
+- Work's good for the `soul`.
+- You're after my own `soul`.
+- Amen and from my `soul` too.
+- God have mercy on my `soul`.
+- No, i haven't seen a `soul`.
+- I had sold my fucking `soul`.
+- It's not good for the `soul`.
+- May his `soul` rest in peace.
+- My very `soul` is leaving me!
+- Your mother, rest her `soul`.
+- A `soul` -- a `soul` is nothing.
+- A vampire with a human `soul`.
+- I thought i was a lost `soul`.
+- Thanos finds the `soul` stone.
+- I never found the `soul` stone.
+- She did it to save your `soul`.
+- `Soul`, i'm telling you, lotte.
+- You sold your `soul`, remember?
+- He's a machine without a `soul`.
+- I gave up my `soul`, my beliefs.
+- That's off-limits, `soul` patch!
+- You're competitive `soul`, drew.
+- Her `soul`'s gonna be in torment.
+- Put her heart and `soul` into it.
+- She is the `soul` of that statue.
+- `Soul` of honor--on a tight-rope.
+- I know... it's the russian `soul`.
+- John garfield, in body and `soul`.
+- He came back with the `soul` stone.
+- I will order a mass for his `soul`.
+- A `soul` is what gives you feelings.
+- I cannot teach her to have a `soul`.
+- Keep your `soul` sewed to the earth.
+- Of ice coming from my frozen `soul`.
+- Think a `soul` could get lost there?
+- Your `soul` is locked up inside you.
+- And to all who seek the `soul` stone.
+- Anything if his `soul` is true to it.
+- O god, i have an ill-divining `soul`.
+- What if one hasn't a `soul` any more?
+- A little part of his `soul` inside me.
+- I cannot leave alone a `soul` in pain.
+- Let thy `soul` be healed what you say?
+- .... miser stevens' `soul`, mr. stone.
+- A journey into the `soul` of the beast.
+- Clear that evil mud out of your `soul`!
+- I believe your `soul` will be at peace.
+- The eyes are the windows to the `soul`.
+- A single `soul` dwelling in two bodies.'
+- I've always had journalism in my `soul`.
+- Thanos found the `soul` stone on vormir.
+- And i feel like my `soul`'s cracked open.
+- Don't worry, rose, i won't tell a `soul`.
+- <u>and</u> i am its mean, twisted `soul`.
+- What about "essential energy" the `soul`.
+- All you have to do is give up your `soul`.
+- His `soul` black as the ace of spades.
+- She says it would put her `soul` in peril.
+- She's the heart and `soul` of this family.
+- But "love your enemies"... body and `soul`.
+- How much is your `soul` worth if you don't?
+- We have seen the true `soul` of our people.
+- You're fighting for your `soul`, dat's all.
+- I'd rather eat my `soul` on a paper plate...
+- My very best to johnnie... bless his `soul`.
+- What care the bones when the `soul` is free?
+- You got to merge your whole `soul` with god.
+- And if we have a `soul`, yours isn't cracked.
+- But you'd have to swear not to tell a `soul`.
+- It's just david `soul` and ricardo montalban.
+- She gave up her `soul` so we could keep ours.
+- To you, and to all who seek the `soul` stone.
+- [door opens] may god have mercy on his `soul`.
+- We commend the `soul` of our brother departed.
+- The `soul` which comes from god is infinite.
+- I don't want my wife's `soul` having any doubts.
+- Remember that i see into thy `soul` as god sees.
+                 

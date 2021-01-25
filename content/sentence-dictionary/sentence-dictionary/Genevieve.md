@@ -1,0 +1,8 @@
+---
+title: "Genevieve in a sentence | Genevieve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Genevieve"
+---
+- Her name was `genevieve`.
+                 

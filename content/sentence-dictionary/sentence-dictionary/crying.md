@@ -1,0 +1,107 @@
+---
+title: "crying in a sentence | crying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crying"
+---
+- [`crying`] oh, my god.
+- Why were you `crying`?
+- I think i was `crying`.
+- Momma started `crying`.
+- Oh, he's been `crying`!
+- Oh, papo, you `crying`?
+- Wait... she's `crying`.
+- Will you stop `crying`?
+- N'it's a `crying` shame.
+- That's why i'm `crying`.
+- Well, now he's `crying`.
+- You're `crying`, animal.
+- Don't start `crying`.
+- Oh, for `crying` out loud.
+- Stop `crying`, it's ideal!
+- What are you `crying` for?
+- Why was the maid `crying`?
+- [`crying`] for all mankind.
+- Leave the `crying` to brad.
+- Daddy, why are you `crying`?
+- Don't come `crying` to boyd.
+- Jack, for `crying` out loud.
+- No one's been `crying` here.
+- [baby `crying`] what is this?
+- I can't imagine you `crying`.
+- I'm not `crying`, mr. potter.
+- I see her `crying` sometimes.
+- My wife is `crying` upstairs.
+- Soon the baby stops `crying`.
+- I lost my voice from `crying`.
+- You were `crying` like a baby.
+- I-i was `crying` a-and burping!
+- Are--are you `crying`, penelope?
+- Now what are you `crying` about?
+- Most nights you wake up `crying`.
+- She's `crying` out for some help.
+- Stop, or i'll burst out `crying`.
+- There�s no `crying` in starfleet.
+- Uh...that baby�s `crying`... hey!
+- I just don't know... you `crying`?
+- No, she was `crying` her eyes out.
+- Shut your mouth and quit `crying`!
+- With my parents `crying` out here.
+- Look, they're `crying`, on live tv.
+- She won't stop `crying`... why not?
+- [`crying` continues] so, we go back.
+- [`crying`] - it's just a loud noise.
+- Fat little baby, `crying` for mommy.
+- I think she was `crying`... tell me.
+- My girls are `crying`, so fuck them!
+- [`crying` continues] ok. keep moving.
+- `Crying` her eyes out because of you.
+- [`crying`] we can work something out.
+- I can't believe i'm `crying` already.
+- But please don't start `crying` again.
+- [`crying`] oh, i'm so glad to see you.
+- She's `crying` because she's so happy.
+- He'd go `crying` straight to the press.
+- [murphy `crying`] of course she does.
+- But the son is suppose to stop `crying`.
+- It's air force one for `crying` out loud.
+- No sense `crying` when you don't have to.
+- I feel like `crying`... she gave me a pen.
+- Listen -- could you stop `crying`, please?
+- Oh, n'jus what in hell you `crying` 'bout?
+- She was `crying` too hard to say anything.
+- I'm `crying`, and no one's even filming me.
+- I thought i was going to start `crying`!...
+- Then it hits me, and i can't stop `crying`.
+- Your thing is `crying` when you're punched.
+- Everything's so mixed up -- you're `crying`.
+- It's the white house, for `crying` out loud.
+- Pretty much the same reasons i was `crying`.
+- After my father died, `crying` was forbidden.
+- The wife is screaming, the kids are `crying`.
+- We're not gonna start `crying` again, are we?
+- I don't see you `crying` about my drinking it.
+- Those people... - jennifer hayes was `crying`.
+- For `crying` out loud, a kid's driving the car?!
+- I sat in the police station `crying` and `crying`.
+- I wake up this morning, i hear the baby `crying`.
+- Mostly because he was racist, but i'm `crying` now.
+- My aunt lu says i was `crying` all the way through.
+- I've already spent too many hours `crying` over you.
+- I heard someone `crying` -- a woman -- no, thank you.
+- I'm `crying` and i can't stop and they won't go away.
+- They haven't hurt him anymore -- but he was `crying`.
+- Do they get down on their knees, begging and `crying`?
+- Folks always `crying`, white man this, white man that.
+- This is a moment of truth, and you're almost `crying`.
+- When clarke killed-- [`crying`] you're weak, pathetic.
+- She started `crying`, "tim, tim, what's the matter?
+- [`crying`] well, i got to say, i'm a little hurt by that.
+- If you rest the baby on your shoulder, she'll stop `crying`.
+- Then he started `crying` like a baby...wanted me to hold him.
+- I know `crying`'s easy for her but it's a fucking comedy, joe.
+- The man who caused 300 of his own people [`crying`] attack now!
+- No, maybe he's... [baby `crying`] tracy, what are you doing here?
+- So don't expect me back `crying` in your arms any time soon, okay?
+- Honesty, liberal guilt, soul-wringing crap, fathers on tv `crying`?
+                 

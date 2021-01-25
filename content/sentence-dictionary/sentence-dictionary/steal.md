@@ -1,0 +1,107 @@
+---
+title: "steal in a sentence | steal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "steal"
+---
+- She didn't `steal` it.
+- She `steal` the bread!
+- ...to `steal` my girl.
+- What made you `steal`?
+- Where'd you `steal` it?
+- Who'd `steal` her body?
+- Naw, i didn't `steal` it.
+- Now, what did we `steal`?
+- She knows not to `steal`.
+- Who'd he `steal` it from?
+- Why would i `steal` $600?
+- I have nothing to `steal`.
+- Nobody's gonna `steal` it.
+- `Steal` dehaven's thunder?
+- Who'd you `steal` it from?
+- I didn't `steal` the truck!
+- Mm, you want to `steal` it?
+- They catch ya `steal`- ing?
+- You gonna `steal` my truck?
+- He wouldn't `steal` nothin'.
+- I did not `steal` the truck.
+- I'm gonna `steal` something.
+- Raymond, you'll `steal` one.
+- You `steal` from my brother.
+- Could i `steal` you a second?
+- He tried to `steal` our gold.
+- I did not `steal` this truck!
+- Because i-i didn't `steal` it.
+- But i wouldn't `steal` for it.
+- We're going to `steal` a ship?
+- Where did you `steal` the car?
+- Can i `steal` you for a minute?
+- It's in your nature to `steal`.
+- We'll `steal` somethin' to eat.
+- He was trying to `steal` my car!
+- Hey, i didn't `steal` the truck.
+- If she did `steal` that money...
+- Okay, let's `steal` that ledger.
+- I didn't `steal` your journalist.
+- Knowledge of how to `steal` food?
+- Why not just `steal` another one?
+- Did you ever `steal` a car before?
+- How can we `steal` from ourselves?
+- How to `steal` filling from a pie.
+- I did `steal` a squirt of perfume.
+- Tomorrow i'll `steal` you another.
+- You afraid we're gonna `steal` it?
+- You're going to `steal` the leads?
+- `Steal` darryl's fishin' stuff.
+- Are you gonna `steal` my shoes now?
+- I didn't `steal` anything from you.
+- `Steal` something with my daughter.
+- A `steal` at eleven hundred dollars.
+- Didn't you `steal` that one already?
+- What if someone tries to `steal` it?
+- Why would anyone `steal` my luggage?
+- I'm gonna `steal` your life away.
+- Do you know where i can `steal` some?
+- `Steal` an apple, and you're a thief.
+- We could `steal` one of the choppers.
+- Did they `steal` the contracts...?
+- He's not gonna `steal` your discovery.
+- That's all we did, `steal` their ride.
+- What did you have to do, `steal` them?
+- Whoa, whoa, i didn't `steal` anything.
+- You have to `steal` the leads tonight?
+- You know i only `steal` from the best.
+- You want me to `steal` your boyfriend?
+- But i mean, why do you need to `steal`?
+- Emori, who'd you `steal` the boat from?
+- If ray would `steal` this girl from ed.
+- I had a father who knew how to `steal`.
+- I `steal` things in order to sell them.
+- You even `steal` flowers for his grave.
+- You think you can `steal` from me, boy?
+- It's all a trick to `steal` your helium.
+- Do not kill, do not rape, do not `steal`.
+- Who's trying to `steal` some printer ink.
+- Glenn, are you trying to `steal` this car?
+- `Steal` a kingdom, and you're a statesman.
+- A fellow santa could not `steal` christmas.
+- But what he really loved to do was `steal`.
+- She doesn't like me to `steal` from people.
+- I didn't `steal` it, and he wasn't crippled.
+- He said wynant tried to `steal` an invention.
+- Hey, i told you i did not `steal` that truck.
+- I didn't `steal` it, if that's what you mean.
+- I know you didn't `steal` the medicine, kane.
+- I mean, aren't you afraid i might `steal` it?
+- Otis will go above and `steal` some big macs.
+- They'd be happy just to `steal` code forever.
+- He's going to `steal` the giant white diamond.
+- I didn't `steal` anything - you can search me!
+- I don't want anybody to `steal` it from me.
+- You want to `steal` one or just drive your car?
+- If you want to `steal` it, that's your business.
+- I know ... or he'll `steal` it like his brother.
+- She's gonna `steal` that kid for her collection.
+- He came here to `steal` a necklace from a wizard.
+- If he doesn't `steal` a little, he's steeling big.
+                 

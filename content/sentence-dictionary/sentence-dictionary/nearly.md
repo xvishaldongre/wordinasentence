@@ -1,0 +1,100 @@
+---
+title: "nearly in a sentence | nearly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nearly"
+---
+- I `nearly` went crazy.
+- It `nearly` killed me.
+- It's `nearly` bedtime.
+- I was `nearly` killed.
+- You're `nearly` there.
+- Well, `nearly` sixteen.
+- You `nearly` killed us!
+- It is now `nearly` four.
+- I `nearly` stained myself.
+- Like they `nearly` did us.
+- We're `nearly` there, sir.
+- ...`nearly` free of charge.
+- Very `nearly` succeeded.
+- `Nearly` snapped me in half.
+- I'd `nearly` given up on you.
+- The code is `nearly` updated.
+- The code is `nearly` updated.
+- But it's `nearly` two o'clock.
+- We're `nearly` there, lucilla.
+- It's not `nearly` enough, punk.
+- They're `nearly` ready for you.
+- Thorpey `nearly` died laughing.
+- You `nearly` poked my eyes out.
+- `Nearly` blasting me into space?
+- She's been dead `nearly` a year.
+- Tell me you have it `nearly` done!
+- Your disguise is `nearly` perfect.
+- He `nearly` took the rest with him.
+- It's `nearly` autumn..you're in oz.
+- No, sir, it's `nearly` six o'clock.
+- With courage alone he `nearly` won.
+- There's `nearly` 2 million in london.
+- Ain't seen her in `nearly` a year now.
+- I `nearly` had a fucking heart attack.
+- I `nearly` died when we split the bill.
+- I think he `nearly` ruptured his truss.
+- That's not `nearly` good enough for me.
+- I'd say they're `nearly` out of the game.
+- I have been busy, and i am `nearly` there.
+- I `nearly` scored with that little blonde.
+- You've known me `nearly` all of your life.
+- And their guilt... `nearly` destroyed them.
+- I have a new one `nearly` done, and better.
+- Well, it is `nearly` breakfast time anyway.
+- Of course, they weren't `nearly` as bashful.
+- This cocksucker `nearly` burnt my house down.
+- A more advanced race, `nearly` wiped them out.
+- She hasn't said a word for `nearly` two years.
+- You know, her attitude `nearly` drove me crazy.
+- In fact, i `nearly` didn't make it in one piece.
+- Dissed his mamma and he `nearly` threw a tantrum.
+- I mean, it was buzzed `nearly` down to the scalp.
+- Something tells me it won't be `nearly` that long.
+- You've been with the firm for `nearly` nine years.
+- As i said, sergeant, you `nearly` ran into <u>me</u>?
+- The neural pathways aren't `nearly` as sophisticated.
+- I been `nearly` three years in prison and... let's go.
+- It does not feel `nearly` as frightening as it sounds.
+- It's still `nearly` impossible for me to turn my neck.
+- This is the first i've given out for `nearly` a month.
+- You know damn well i `nearly` puke when i look at her.
+- He was found `nearly` ripped to shreds in central park.
+- Half of the water has gone, the rest is `nearly` putrid!
+- He's an idiot, and he's not `nearly` as hard as he thinks.
+- Now, fortunately, we're `nearly` out of the wood, i think.
+- "raban" -- that'll be `nearly` at the back of the alphabet.
+- She `nearly` put a bullet in price right after your "demise."
+- You shouldn't be -- you were `nearly` just killed, sweetheart.
+- Finch, you can be the one to date a `nearly`-dead insane chick.
+- We've `nearly` completed the voyage from earth to your new home.
+- We have been shot at, `nearly` blown up, then show me your fealty.
+- I'm talking about old satchmo `nearly` blew the roof off the joint.
+- Jesus, jon, i `nearly` choked to -- where are we -- the atmosphere.
+- `Nearly` four years... how long where you and dis guy goin' steady?
+- Last time you asked me to come along i `nearly` got a hole in my head.
+- Remember, he was supposed to replace you at `nearly` your current age.
+- Geez, i `nearly` went insane he's like the reincarnation of the buddha.
+- Alright, i didn't, but i `nearly` did, and if i had i'd have been right ..
+- I `nearly` read it a couple of times, okay, so here's what happened, okay?
+- `Nearly` all the good directors here have ambitions to make serious films.
+- The last man `nearly` ruined this place he didn't know what to do with it.
+- But i got up there all the same, and we played for `nearly` twenty minutes.
+- `Nearly` killing octavia... look, she's our only link to what happened here.
+- But you didn't seem `nearly` so sure in your statement to the warren commission.
+- There's a lot of hired guns out here, and not `nearly` enough work to go around.
+- Not to avenge the massacre of our army, it must be hard for you `nearly` all here.
+- I guess when i `nearly` died giving birth to you--that shows how much i don't care!
+- It's how you pulled out my chair and `nearly` served high tea the first time we met.
+- I hope you're pretty `nearly` through with me, doctor, i'm getting a little fatigued.
+- I have found in life that what one wants isn't `nearly` as important as what one needs.
+- [beep] our guns were stolen, `nearly` 50 of them, - yeah, we just have to shut it again.
+- Dr. jones, you know very well that the thuggee cult has been dead for `nearly` a century.
+- Well, anyway, i�i guess `nearly` everybody in the neighborhood came, except the delaneys.
+                 

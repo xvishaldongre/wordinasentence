@@ -1,0 +1,107 @@
+---
+title: "Michael in a sentence | Michael example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Michael"
+---
+- His name is `michael`.
+- `Michael`, i love you.
+- `Michael` - i saw him!
+- `Michael`, is it true?
+- No, `michael`, not me.
+- Paul `michael` glaser.
+- I care about `michael`.
+- I'm `michael` corleone.
+- Is it early, `michael`?
+- It was `michael` myers.
+- `Michael`... help us...
+- `Michael` - look at me.
+- Mr. `michael` corleone.
+- 'd as `michael` hanover.
+- I don't know, `michael`.
+- I understand, `michael`.
+- `Michael` invited me in.
+- `Michael`, take it easy.
+- Yes, `michael`, it does.
+- You know it's `michael`.
+- Have to sleep, `michael`.
+- `Michael`, it's not true.
+- `Michael` just got a job.
+- `Michael`, where are you?
+- It's a miracle, `michael`.
+- I want to reach `michael`.
+- `Michael`, give us a lift.
+- `Michael` - please - just.
+- `Michael`, the sub's dead.
+- `Michael` was kind to her.
+- Ok. `michael`, believe me.
+- Please stop it, `michael`.
+- That's just it, `michael`.
+- We're safe... `michael`...
+- Friends of yours `michael`.
+- God, `michael`... rowan...?
+- I said, skip it, `michael`.
+- It was paradise, `michael`.
+- `Michael` called yesterday.
+- `Michael`-- - good morning.
+- `Michael`... `michael` myers.
+- `Michael`, this is grandma.
+- Oh, god, `michael`, i know.
+- That's so sweet, `michael`.
+- He can't hurt us, `michael`.
+- Lose the earring, `michael`.
+- `Michael`, i'm on the phone.
+- A double for `michael`, tony.
+- At a `michael` bublé concert.
+- Do you love me, `michael`...?
+- Do you understand, `michael`?
+- God, `michael` what am i...?
+- He's gone, `michael`... gone.
+- I'll be all right, `michael`.
+- Jeff wigand, `michael` moore.
+- `Michael` doesn't understand.
+- `Michael`... do what you can.
+- `Michael`, i don't have time.
+- `Michael`, take deep breaths.
+- `Michael`, you lousy bastard!
+- Now, i wanna reach `michael`.
+- Oh, `michael`, wait a minute.
+- Has `michael` myers come home?
+- `Michael` myers is an invalid.
+- `Michael`, what are you doing?
+- My name is `michael` corleone.
+- Roth engineered it, `michael`.
+- What about `michael` corleone?
+- What's with you and `michael`?
+- Why do you hurt me, `michael`?
+- And this is `michael` corleone.
+- It's a school night, `michael`.
+- `Michael`... a bad combination.
+- `Michael` -- get off the phone.
+- `Michael`'s mother had it, too.
+- I didn't choose this, `michael`.
+- `Michael`, are you still in bed?
+- `Michael` myers was his patient.
+- `Michael`'s 17 and carolyn's 16.
+- `Michael`, why must you do this.
+- Mom, `michael` won't talk to me.
+- So much more than `michael` can.
+- Take off your gloves, `michael`.
+- How was your first day `michael`?
+- I want to talk to you, `michael`.
+- `Michael` has served his purpose.
+- `Michael`, i want you to do this.
+- `Michael`, why did you come here?
+- We both talked to her, `michael`.
+- What do you know about `michael`?
+- Accept what's happened, `michael`.
+- What did you to do him, `michael`?
+- But you're not like him, `michael`.
+- [elias' "cloud" playing] `michael`?
+- I am `michael` simonovitch iranoff.
+- Just wasn't enough time, `michael`.
+- Look, `michael`, i'll get him here.
+- `Michael`, come on, don't be silly.
+- Than letts get rnarried, `michael`.
+- Do you have mr. john `michael` kane?
+                 

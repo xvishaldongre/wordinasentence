@@ -1,0 +1,90 @@
+---
+title: "ms in a sentence | ms example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ms"
+---
+- Hey, `ms`. jenzen -- ?
+- Excuse me, `ms`. gayley.
+- What about `ms`. heller?
+- `Ms`. flannery is twisted.
+- Thank you, `ms`. mitchell.
+- I don't know, `ms`. jenzen.
+- `Ms`. blake, how about you?
+- `Ms`. bonafante's attorney.
+- Chance, this is `ms`. hayes.
+- How you doing, `ms`. jackie?
+- `Ms`. yin, and mr. yang aha!
+- Good work today, `ms`. woods.
+- Alright, `ms`. paleontologist.
+- That's for ga... `ms`. gayley.
+- Do you use drugs, `ms`. tramell?
+- Ok, ok. `ms`. ivy to the rescue.
+- [in chinese] `ms`. zhang, please.
+- `Ms`. kensington is her daughter.
+- `Ms`. pomeroy... what's going on?
+- Save your breath, `ms`. thompson.
+- Hi, uh, `ms`. holland, it's nancy.
+- `Ms`. deane, you wanted to see me?
+- `Ms`. laufer gave me a star today.
+- Detective duquette, `ms`. van ryan.
+- I'm sorry to come here, `ms`. grey.
+- [in chinese] this way, `ms`. zhang.
+- You're at the bridge, `ms`. peters.
+- Did you kill mr. boz, `ms`. tramell?
+- Just a quick word, `ms`. langenkamp.
+- `Ms`. heller said not to talk to you.
+- `Ms`. young, are you objectifying me?
+- Yeah, i swiped it from `ms`. rancick.
+- What is it you do, `ms`. mitchell.
+- I believe that... `ms`. lewton's next.
+- Mr. jackson and `ms`. rosco in london.
+- `Ms`. mcclain, i'm francis dollarhyde.
+- But `ms`. fleming, it's just not right.
+- Hello, this is `ms`. magnuson speaking.
+- Tell `ms`. kramer what your daddy does.
+- Don't talk to `ms`. brovlofski that way!
+- I must protect my interests, `ms`. kyle.
+- `Ms`. simpson, you're a very lucky lady.
+- `Ms`. sutton hired you to find the girl.
+- Yeah, `ms`. ratliff was a piece of work.
+- You'll be working with `ms`. kensington.
+- We know you're not stupid, `ms`. tramell.
+- I'm going back to try and find `ms`. marr.
+- `Ms`. magnuson, is jimmy gardner with you?
+- When did you start calling yourself '`ms`.
+- You've been terrorizing `ms`. blaise again.
+- '</i> `ms`. harvey... my name is taryn miles.
+- Further: `ms`. costello is a rebuttal witness.
+- I'm sorry, `ms`. farmer, i just don't get this.
+- I'm going to make this `ms`. pauline thing work.
+- Well, i'll just let you get back to little `ms`.
+- Here, drink some of this... alright, `ms`. connor.
+- I'm an assistant district attorney, `ms`. tramell.
+- "would you like ground pepper on that salad, `ms`.
+- Have you ever seen a dead body before, `ms`. scott?
+- There is no smoking in this building, `ms`. tramell.
+- Well, i'm not hanging out here with `ms`. showtunes.
+- How are your fellow hostages feeling, `ms`. mitchell?
+- `Ms`. heller, mind if i tag along on your field trip?
+- That's a good-looking kid you got there, `ms`. barrett.
+- Donovan actually said the words "good work, `ms`. woods".
+- `Ms`. fleming wants to redefine the high school experience.
+- Oh, i just had the <u>nicest</u> chat with `ms`. dumptruck.
+- You're not going to hurt me are you, `ms`... you were right.
+- Okay -- `ms`. windham, when you uh arrived back at the house?
+- [`ms`. zhang] car manufacturers, steel mills, electrical appliances.
+- She won't even let me stand in front of the microwave or eat red m&`ms`.
+- `Ms`. president, this is communist paranoia right out of war of the worlds.
+- `Ms`. tramell, we'd like you to come downtown and answer some questions for us.
+- That's because `ms`. heller doesn't want you to know this whole thing is a scam.
+- We're part of a special class taught by the lunch lady, er, i mean `ms`. heller.
+- But didn't you avoid contact with `ms`. torres, after you found out she had aids?
+- Alright, browning, you fuckin' warlock... did you know about `ms`. lewton, or what?
+- I'll admit... when dad told me what you said to `ms`. farmer, i laughed my ass off.
+- Athletics -- `ms`. grey -- you work at a school for mutants in westchester, new york.
+- I'm not particularly interested, <u>`ms`.</u> magnuson, in what you think is correct.
+- You're avoiding the question i posed to you at the beginning of the hearing, `ms`. grey.
+- Look `ms`. heller, there's something fishy here, and i don't think it's friday's special.
+- So, what happened to `ms`. caperelli's checking with outside counsel first, all that crap?
+                 

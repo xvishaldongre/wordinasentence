@@ -1,0 +1,107 @@
+---
+title: "hours in a sentence | hours example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hours"
+---
+- At least four `hours`.
+- I'd say three `hours`.
+- In the past 6 `hours`.
+- It's business `hours`.
+- It took eight `hours`.
+- It would take `hours`.
+- Sad `hours` seem long.
+- Two `hours` at prayer!
+- You've got 24 `hours`.
+- You've got 36 `hours`.
+- 24 `hours` on your own.
+- Arrives in two `hours`.
+- 'bout two `hours` left.
+- Just for a few `hours`.
+- We start in 12 `hours`.
+- 20 `hours` on the clock.
+- After `hours` of course.
+- A matter of `hours` now.
+- I been here for `hours`.
+- I keep banker's `hours`.
+- I need my eight `hours`.
+- I�ll give it 24 `hours`.
+- Little over two `hours`.
+- ... maybe three `hours`.
+- Six, eight `hours` tops.
+- That could take `hours`!
+- You're two `hours` late.
+- About 22 `hours` on site.
+- Couple of `hours`, maybe.
+- He'll be out for `hours`.
+- `Hours` a day killed him.
+- I'll give you 24 `hours`.
+- I only had a few `hours`.
+- Just a couple of `hours`.
+- Only a few `hours` later.
+- That was two `hours` ago.
+- The guy could be `hours`.
+- Three and a half `hours`?
+- What `hours` do you work?
+- At least for five `hours`.
+- Couple `hours` from idaho.
+- I was counting on `hours`.
+- Look, it's been 3 `hours`.
+- That was four `hours` ago!
+- We don't have 1.2 `hours`.
+- We leave in a few `hours`.
+- About two `hours` from now.
+- All in the last 24 `hours`.
+- ... and we work my `hours`.
+- For me it was five `hours`.
+- `Hours` later, he was fine.
+- I barely lasted 30 `hours`.
+- I'm not waiting 48 `hours`.
+- It's only two `hours` away.
+- Seventy-two `hours` a week.
+- That was three `hours` ago.
+- These are his peak `hours`.
+- Twenty-five `hours`, eddie.
+- Wears off in a few `hours`.
+- We only have a few `hours`.
+- We've got six `hours` left.
+- Why, that's twelve `hours`!
+- ...will have seven `hours`.
+- 30 `hours` to neptune orbit.
+- A good guy 24 `hours` a day.
+- ...at twenty-thirty `hours`.
+- Can you give me two `hours`?
+- For me, it was five `hours`.
+- Fourteen-fifty `hours`, sir.
+- I'll be back in 137 `hours`.
+- Probably one or two `hours`.
+- Took me about three `hours`.
+- Twelve `hours`, no big deal.
+- Went twelve `hours` nonstop.
+- We talked for a few `hours`.
+- You're good for two `hours`.
+- A few `hours` a week, anyway.
+- At least three `hours` a day.
+- Forty-eight `hours`, old man.
+- Give her a couple of `hours`.
+- I'll give her 3 `hours` tops.
+- It's 50 ladies in 24 `hours`.
+- I've got forty-eight `hours`.
+- I've got twenty `hours` left.
+- No, it could take me `hours`.
+- Not during business `hours` .
+- Reyes, you're 3 `hours` late.
+- This could go on for `hours`.
+- We got a few `hours` to kill.
+- We sent him home `hours` ago.
+- Within the next five `hours`.
+- Yeah, only took five `hours`.
+- Antibiotics every two `hours`.
+- "ay me, sad `hours` seem long.
+- Be there in two `hours`, tops!
+- For `hours` ... do i know you?
+- `Hours` to think something up.
+- I sleep three `hours` a night.
+- That stuff's two `hours` cold.
+- We have two `hours` till dawn.
+                 

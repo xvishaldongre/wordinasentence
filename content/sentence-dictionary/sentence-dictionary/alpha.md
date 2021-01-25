@@ -1,0 +1,64 @@
+---
+title: "alpha in a sentence | alpha example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "alpha"
+---
+- `Alpha`'s not a planet.
+- Do not kill an `alpha`.
+- I will call you `alpha`.
+- That `alpha` is the one.
+- Ahhhhhh -- `alpha` waves.
+- `Alpha` team in position?
+- On course to ceti `alpha`.
+- You're from `alpha`, right?
+- Deck 15, section 21-`alpha`.
+- He was not born the `alpha`.
+- Don't lose hope yet, `alpha`!
+- Mccreary was the `alpha` dog.
+- `Alpha` 1-9er, this is condor.
+- <u>this is ceti `alpha` v</u>!
+- Ceti `alpha` vi has checked out.
+- `Alpha` station, this is polaris.
+- The `alpha`'s a kid named rooney.
+- Right, it's guarded by an `alpha`.
+- That is the `alpha`, their leader.
+- The `alpha` must care for his pack.
+- `Alpha`-delta one is coming out now.
+- Boys and girls, meet planet `alpha`.
+- Jesus jimmy, you at the `alpha` team.
+- What the hell is attack plan `alpha`?
+- `Alpha` team's got two grounders down.
+- I think `alpha` is pretty hard to beat.
+- `Alpha` station, you better be listening.
+- `Alpha` station corridor, they all hate me.
+- `Alpha`-delta two, we've reached the intake.
+- Come in, mother bird, this is `alpha` bravo.
+- Hundreds of your people meet planet `alpha`.
+- But you should know, i'm in `alpha` quadrant.
+- This is `alpha` kilo two four niner calling...!
+- <font color=#26f70f>`alpha` 1-9, this is condor.
+- Target borg ship `alpha` four, port side battery.
+- Everyone else here goes with you to `alpha` station.
+- Look... we go with kane to `alpha` station, i'm here.
+- `Alpha`, my sensors tell me the rangers were too late!
+- The transponder requires a live `alpha` to make it work.
+- Marooned on ceti `alpha` v. he's completely mad, admiral.
+- If `alpha`'s on the ground, maybe other stations are, too.
+- I will spell: charlie hotel india mary echo romeo `alpha`.
+- Set course for ceti `alpha` v and we'll pick up survivors.
+- Monty picked planet `alpha` for us you pay us like interns.
+- Today is gonna be like carrie underwood on `alpha` station?
+- What am i supposed to do if an `alpha` is about to kill me?
+- Ceti `alpha` vi exploded six months after we were left here.
+- On ceti `alpha` v there was life, a fair chance to -- mainly.
+- <font color=#26f70f>(man on comm) `alpha` 1-9, this is condor.
+- Arctic warrior whiskey `alpha` sierra bravo four zero niner two.
+- (screaming) `alpha` kilo two four niner calling calling `alpha` control!
+- So do i. `alpha` station is threatening to open fire just keep backing up.
+- Captain, you have an `alpha` priority communication from starfleet command.
+- When you killed that `alpha`, you inadvertently entered the enemy's nervous system.
+- But eventually, it will crack and his `alpha` pattern will change from this to this.
+- Stick it into the `alpha` and it taps into the wavelength connecting it to the omega.
+- That little black box goes beyond any known conventional radar, it tracks `alpha` waves.
+                 

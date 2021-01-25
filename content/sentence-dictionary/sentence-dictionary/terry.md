@@ -1,0 +1,85 @@
+---
+title: "terry in a sentence | terry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "terry"
+---
+- Hey, `terry`, i'm hit.
+- `Terry`, what's wrong?
+- This `terry` what'sit.
+- You hear that, `terry`?
+- `Terry`, for god's sake.
+- `Terry`, i'm frightened.
+- Are you `terry` bradshaw?
+- `Terry`, you're bleeding.
+- Hey `terry`, what is that?
+- Take it easy now, `terry`.
+- You ratted on us, `terry`.
+- I want to see you, `terry`.
+- `Terry`, did you hear that?
+- I'd get over there, `terry`.
+- `Terry` and chuck were...hurt.
+- Why, `terry`, who said it was?
+- I don't want you here, `terry`.
+- You know who `terry` malloy is?
+- �i was gonna feed 'em, `terry`.
+- `Terry`, you have some visitors.
+- `Terry`� what's happening to you?
+- `Terry` told me about wonder boys.
+- You're `terry` malloy, aren't you?
+- Hi, we're looking for `terry` ives.
+- I� i brought this for you, `terry`.
+- `Terry` turns and approaches nolan.
+- This is my editor, `terry` crabtree.
+- Why didn't chuck or `terry` show up?
+- You know who this `terry` malloy is?
+- `Terry` left his passport in curacao.
+- I just got a call from `terry` haight.
+- `Terry`'s name should be on this wall.
+- `Terry`'s right, i'm the escape hatch.
+- You and `terry` would've gotten along.
+- Neither chuck or `terry` came in today.
+- `Terry` will bust my chops if i'm late.
+- `Terry`, you better stay in for a while.
+- Are you trying to tell me `terry` is too?
+- I wish i didn't have to do this, `terry`.
+- Do you even know who `terry` valentine is?
+- `Terry` miscarried in the third trimester.
+- You and `terry` valentine at twenty paces.
+- You're doin' lovely, `terry`, very lovely.
+- When `terry` was looking for you, oh... oh.
+- A dime, `terry`, a dime for a cup of coffee?
+- You was our first supreme commander, `terry`.
+- `Terry` was telling me about you on the plane.
+- My own daughter arm-in-arm with `terry` malloy.
+- `Terry`'s never going to give you satisfaction.
+- You think `terry` gave me access to her things?
+- She and `terry` had been -- having some trouble.
+- This spunky monkey on my right is `terry` macey.
+- No one at base would pull a stunt like that, `terry`.
+- You can tell `terry` gross is really mad at this guy.
+- This lady, `terry` ives, sounds like a real nut to me.
+- `Terry`, uh, pretends like jane is real, they found us.
+- Well, if your sister's `terry` ives, then, yeah, we do.
+- This `terry` valentine, he's probably a wonderful fella.
+- They feel you've been sort of left out of things, `terry`.
+- I wonder how long she's goin' to hang around, huh, `terry`?
+- `Terry` i can't give you his name unless you have a complaint.
+- If she hadn't a' been `terry`'s woman i would've broke her jaw.
+- It's all right, `terry`, it's all right, everything's all right.
+- I� i musta counted wrong, boss, i� hey, `terry`, front and center.
+- If i was you� � listen, i'm not asking you to do anything, `terry`.
+- `Terry` -- i don't believe i know where the upstairs guest room is.
+- Hey, `terry`, guess who's here... that joker from the commission... .
+- Well don't think this `terry` malloy is any six-toed cockeyed assyrian.
+- Mac, tomorra mornin' when you shape the men put `terry` in the loft.
+- One of those big `terry` cloth jobs, with like embroidery on the pocket.
+- If she's not now, `terry` will make sure she is by the end of the evening.
+- But if you want `terry` to tell you anything, we can’t lose bellamy, too.
+- I'd walk home with a dozen `terry` malloys if i thought they could help me.
+- I took a chance on a zero-g mechanic yeah, like `terry` found her daughter?
+- You gonna take your new arsenal, go visit `terry` valentine, just like that?
+- With a decisive gesture `terry` takes the hook and sticks it through his belt.
+- By the time `terry` got involved, if her people believe she has it, let's go again.
+- Marky, ricky, danny, `terry`, mikey, davey, timmy, tommy, joey, robby, johnny, and brian.
+                 

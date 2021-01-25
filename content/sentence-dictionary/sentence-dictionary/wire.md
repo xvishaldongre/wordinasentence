@@ -1,0 +1,106 @@
+---
+title: "wire in a sentence | wire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wire"
+---
+- Barnett on the `wire`.
+- Where'd you `wire` him?
+- Held together by `wire`.
+- I have to hot-`wire` it.
+- I'm not wearing a `wire`.
+- Where's the damn `wire`?!
+- Here's the `wire` cutters.
+- So you're a `wire` junkie.
+- Here's another `wire`, sir.
+- We pay for `wire` services.
+- Don't pull the green `wire`.
+- Interstate `wire` transfers.
+- Tell 'em to hold the `wire`.
+- I'm pulling the green `wire`.
+- Somebody hit the trip `wire`!
+- You're all `wire` happy, boys.
+- A `wire` transfer of this size?
+- We got the `wire` ya was comin'.
+- I was just fixing a loose `wire`.
+- Wait a minute -- hold the `wire`.
+- We're getting down to the `wire`.
+- Now, this is called a trip `wire`.
+- The `wire` is ten years outa date.
+- They got sticks with `wire` loops.
+- You know how to splice a `wire`?
+- Better `wire` him right away, john.
+- Muffler held on with baling `wire`.
+- Pull anything but the green `wire`.
+- How's he supposed to see the `wire`?
+- I just got something off the `wire`.
+- Well, they're all out on the `wire`.
+- Your `wire` ester - she passed away.
+- This `wire` came while you were gone.
+- `Wire` one of your friends for money?
+- Do you know what a `wire` transfer is?
+- Find the outgoing `wire`, that is hot.
+- When in doubt, pull the yellow `wire`.
+- You hear the vibrations in the `wire`.
+- Here's another `wire` from peter warne.
+- I know what you think about the `wire`.
+- There's another `wire` from peter, sir.
+- There's some `wire` on the second level.
+- Father'd get the `wire` before they would.
+- I've got to get off a `wire` immediately.
+- Ok. got the good `wire` ready to gra on.
+- You send me a `wire` as soon as you arrive.
+- Been a while since i stocked a `wire` store.
+- You have to ﬁnd the `wire` - here, maggie.
+- Listen duke, we're setting up a `wire` store.
+- Look at the ear of the cop... that's a `wire`.
+- They ought to be under the barbed `wire` soon.
+- We bought ya a tap into moe anenberg's `wire`.
+- `Wire` for external input and attach a battery.
+- An international dispatch on the `wire` service.
+- I found some good antenna `wire` for the radios.
+- Wouldn't take much at all to melt ten gauge `wire`.
+- Your father was quite a virtuoso with piano `wire`.
+- Not unless you can `wire` a missle or fix an engine.
+- Our beryllium sphere was painted `wire` and plaster.
+- See we call it "being wired," but there's no `wire`.
+- I'll `wire` you some money if you tell me where you are.
+- What are your orders about this `wire` to san francisco?
+- This kind of satire is a high `wire` act in a gale storm.
+- Clown fleas, high `wire` fleas, fleas on parade... carousel.
+- There's an old saying, when in doubt, cut the yellow `wire`.
+- Yah, it's over the `wire`, it's everywhere, they'll find 'em.
+- Why would he pull at the `wire` if he were committing suicide?
+- Your father choked him to death with a length of piano `wire`.
+- What was iris doing riding around with jeriko wearing a `wire`?
+- You can `wire` home for some money when we get to jacksonville.
+- First town we hit in the morning, you better `wire` your father.
+- He ain't normal, this one... they never -- the `wire`'s showing!
+- Just one little transistor and a circuit `wire` is all it takes.
+- He uses the `wire` too much, he gets off on tape, not on you.
+- Microrecorder for kendall -- didn't have time to `wire` his room.
+- So some psycho `wire`-freak gets to keep running around-- uh unh.
+- Here comes the `wire`... and... backtrack gets up in the last jump.
+- What's this little green `wire` coming out one side of the package?
+- Now follow that `wire` with you, we wouldn't even need dna evidence.
+- To `wire` your car so it would explode when you turned the ignition.
+- Oh, and i got to drill a hole into a board to put the `wire` through!
+- `Wire` it to the western union in oklahoma city, christ, sure... yes!
+- This rabbit'll do anything not to do time, including wearing a `wire`.
+- Can you `wire` me the sixty-seven hundred dollars and i'll pay you back?
+- We'll also need to steal some copper `wire`, it's not like it was before.
+- Do you know how it came about that copper `wire` was invented in scotland?
+- Every `wire` transfer gets rocketed through a series of multiple switches.
+- That the technology was developed for the feds, to replace the body `wire`.
+- Find something: extension cords, rope, `wire`--we'll have to tie them tight.
+- No, but like my dad said, "there's only so many ways you can `wire` a plug".
+- If i can get into the access panel, well, we will, if you will wear a `wire`.
+- Three's a crowd, especially if you've got to cut your way through barbed `wire`.
+- Your right hand, we'd still have a doctor... are you sure it was the trip `wire`?
+- If i'm the only -- automatic five-second deduction, which slips you under the `wire`.
+- Louise, let me call you back after i `wire` it, so you'll know which office to go to.
+- Short of wearing a `wire`, i'll do everything i can to help you throw his ass in jail.
+- If it's got something to do with the `wire`, sooner or later it washes up on your beach.
+- Probably has 12.7mm nose cannon, heat-seeking rockets and `wire` guided missiles, plus...
+- So, i was wondering if you could `wire` me a hundred fifty-dollars so i could get my car.
+                 

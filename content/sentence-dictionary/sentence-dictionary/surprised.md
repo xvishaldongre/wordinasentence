@@ -1,0 +1,107 @@
+---
+title: "surprised in a sentence | surprised example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surprised"
+---
+- I'm a bit `surprised`.
+- `Surprised` to see me?
+- You... `surprised` me.
+- I'm `surprised` at you.
+- Kinda `surprised`, huh?
+- I should be `surprised`?
+- Will she be `surprised`.
+- But you'd be `surprised`.
+- Don't act so `surprised`.
+- I ain't even `surprised`.
+- Oh, you'd be `surprised`.
+- Why am i not `surprised`?
+- You might be `surprised`.
+- I'm `surprised` you could.
+- I wouldn't be `surprised`.
+- Sir - i'm not `surprised`.
+- Won't they be `surprised`?
+- I'm `surprised` to see you.
+- I'm `surprised` at you, tom.
+- I, uh, i'm very `surprised`.
+- I'm `surprised` at you, pete.
+- But are we really `surprised`?
+- I'm `surprised` you still are.
+- Why should you be `surprised`?
+- I'm `surprised` he hasn't left.
+- I'm `surprised` you don't know.
+- Romulan ale -- i'm `surprised`.
+- Well you've `surprised` me too.
+- Wladek, i'm `surprised` at you.
+- You seem `surprised` to see me.
+- I'd be `surprised` if you could.
+- I'm just `surprised` to see you.
+- I wouldn't be a bit `surprised`.
+- `Surprised` he's not your guest.
+- That bear had to be `surprised`.
+- Why, i'm `surprised`, mr. burns.
+- Why was everyone so `surprised`?
+- You'd have `surprised` yourself.
+- You, uh, you may be `surprised`.
+- But you know what `surprised` me?
+- I am `surprised` at you, comrade!
+- I'm `surprised` she let you live.
+- Lenny is gonna be so `surprised`.
+- We've got a `surprised`, heather.
+- You are `surprised` he would lie?
+- I'm `surprised` i didn't kill you.
+- I'm `surprised` maggie isn't here.
+- I'm `surprised`... of course i do.
+- I'm `surprised` she hasn't called.
+- I shouldn't be at all `surprised`.
+- I gotta say, i'm a bit `surprised`.
+- I was `surprised` to get your note.
+- We `surprised` a band of smugglers.
+- I'm `surprised` she listened to you.
+- _ ♪ story ♪ we won't be `surprised`.
+- Y'know what `surprised` me the most?
+- Are you `surprised` at my tears, sir?
+- In fact, you may be `surprised`, aww.
+- I'm just as `surprised` as any of you.
+- Sure was `surprised` to hear from you.
+- You don't have to sound so `surprised`.
+- He'll no doubt be `surprised` to see me.
+- I'm `surprised` he got the votes he did.
+- I'm `surprised` you aren't blind by now.
+- I'm `surprised` you didn't run into her.
+- `Surprised` i agreed to reed's proposal?
+- You can't imagine how `surprised` i was.
+- You'd be `surprised` how often they are.
+- But i'm not `surprised` that it happened.
+- Honestly wrigley, i'm `surprised` at you.
+- I am not `surprised` they'll come around.
+- I even have grandchildren... `surprised`?
+- I mean, i wouldn't have been `surprised`.
+- No, it's i'm just `surprised` you called.
+- He was quite `surprised` that you fainted.
+- I'm `surprised` donna didn't say anything.
+- I was `surprised` at how many people came.
+- I wouldn't be `surprised` if there's more.
+- Never `surprised` by surprise inspections.
+- Are you `surprised` that i know what it is?
+- I'm sorry, i'm just `surprised` to see you.
+- I'm `surprised` they lasted here this long.
+- I'll be `surprised` if we ever start moving.
+- I'm kindly `surprised` to hear you say that.
+- I'm sorry, i shouldn't have `surprised` you.
+- I'm `surprised` to see you out here tonight.
+- I'm `surprised` you didn't come to me sooner.
+- I wouldn't be `surprised` if he was your rat.
+- All those falls, i'm `surprised` you had time.
+- I'm `surprised` you didn't write one about me.
+- I suppose you were `surprised` to get my call.
+- No doubt you are `surprised` at this disguise.
+- Well, that even `surprised` ole moses at fust.
+- You'd be `surprised` what goes on around here.
+- I'm `surprised` captain rob never mentioned him.
+- I'm just `surprised` it didn't happen before now.
+- I'm not `surprised` you thought she was pregnant.
+- But i have to admit, i'm not terribly `surprised`.
+- But you'll be `surprised` how much you understand.
+- Don't look so `surprised`, kings know such things.
+                 

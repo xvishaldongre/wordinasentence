@@ -1,0 +1,51 @@
+---
+title: "cancel in a sentence | cancel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cancel"
+---
+- `Cancel` that, dieter.
+- `Cancel` that meeting.
+- And `cancel` their date.
+- Nobody's saying `cancel`.
+- Just `cancel` the namings.
+- Why can't you `cancel` it?
+- If we `cancel`, gabriel wins.
+- Bridge, `cancel` rescue teams.
+- Now, we could `cancel` church.
+- You call and `cancel` on daly.
+- I'm ready to `cancel` our trip.
+- Let us `cancel` the engagement.
+- You'd better call and `cancel`.
+- Try to `cancel` the last speech.
+- You can call him up and `cancel`.
+- You're scared to `cancel` on daly.
+- I guess i've gotta `cancel` on ted.
+- They'll have to `cancel` their trip.
+- I'll `cancel` every meeting right now.
+- Ricky hendricks has to `cancel` today.
+- Hey, just `cancel` that shit right now!
+- Now he's got them to `cancel` the fair.
+- Of course, you might `cancel` the check.
+- Here on a whim, you `cancel` your car.
+- We'll call right now and `cancel` your cards.
+- Paul, `cancel` your mental appointments, baby.
+- I suppose i can `cancel` the vienna engagement.
+- Liz we've got to `cancel`, we have to put it off.
+- They want to `cancel` the competition for a while.
+- If we prove the forgery we can `cancel` the policy.
+- That don't `cancel` out the greatest crime in history.
+- `Cancel` the roses, i've decided to lie to her instead.
+- I'll `cancel` the reservation, i found the name "zuul" in ...
+- If you can't make that happen, then fucking `cancel` the tour.
+- The <b>moon</b> is almost <b>gone!</b> then `cancel` my order.
+- This woman can cook... my wife said i have to `cancel` the deal.
+- ...`cancel` our leave and send us out on some bullshit mission...!
+- Oh, that reminds me, i've got to call what's- his-face and `cancel`.
+- Well, then `cancel` the meeting, over leaving her, let's go get her.
+- You had the mummy `cancel` all the others scheduled for this session.
+- But why, if kennedy is so clean in all this, didn't he `cancel` track 2?
+- We're gonna `cancel` the rest of the tour, and i'm just gonna be here all summer.
+- I suppose we could `cancel` the fight indefinitely if you are set on fighting green.
+- I hate to disappoint you -- i mean, many happy returns -- but not tonight -- `cancel`?
+                 

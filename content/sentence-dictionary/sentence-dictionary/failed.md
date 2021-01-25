@@ -1,0 +1,69 @@
+---
+title: "failed in a sentence | failed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "failed"
+---
+- He `failed` to escape.
+- He thinks he `failed`.
+- Reactor vent `failed`.
+- I `failed` the physical.
+- James `failed` me again.
+- That's it, you `failed`.
+- I `failed` flight school.
+- Is that why you `failed`?
+- Raven, the plan `failed`.
+- Then, if that `failed`...
+- Face it, freedom `failed`.
+- If ava passed or `failed`.
+- I have never `failed` him.
+- I'm sorry i `failed`, sir.
+- _ so you've both `failed`.
+- But i `failed` the physical.
+- I'm so sorry i `failed` you.
+- Maybe i fucking `failed` you.
+- The safety circuit's `failed`!
+- I'd say diplomacy has `failed`.
+- I've `failed` again, haven't i?
+- It has `failed` in its objective.
+- That's why you `failed` the test.
+- I'm sure you should have `failed`.
+- Abby, kane's kidneys have `failed`.
+- Sir, remote detonations `failed`.
+- I `failed` to resolve the situation.
+- Why are there so many `failed` ones?
+- I tried and `failed`, and so will you.
+- You `failed` miserably, but you tried.
+- Blood must not have blood has `failed`.
+- Only in life... have you ever `failed`?
+- A test, and you `failed`, is that clear?
+- I'm telling you, his stupid plan `failed`.
+- The balloon `failed` to return to the fair.
+- I `failed` you in this he was lexa's choice.
+- The last refuge of the `failed` provocateur.
+- But surely, our mission has not `failed` -- ?
+- You `failed` because you had the wrong dream.
+- I have `failed` my dream, but i will accomplish.
+- Remember five years ago, when your kidneys `failed`?
+- Give this to the guy that `failed` eighth grade math.
+- I’ll make qui work of what you `failed` to do, please!
+- We `failed` because i hesitated when it was time to kill.
+- That was the one area where his memory never `failed` him.
+- ♪ whatever the hell we want ♪ i see you `failed` at that, too.
+- `Failed` to prevent a third night of looting across the country.
+- I kept trying to cover a very modest portion and still `failed`.
+- As long as we're behind the doors, missiles tell us she's `failed`.
+- But it `failed` because it didn't have enough manpower, this is 402.
+- But that means you suspect -- they know they `failed` to kill benes.
+- As a matter of fact, you `failed` to mention that gallagher was a girl.
+- Remember that stupid hippie art teacher who `failed` me sophomore year?
+- At the annual dinner this month you again `failed` to make an appearance.
+- I was used to hating klingons... that's why i `failed` in our assignment.
+- Have `failed` is because the host's neuroanatomy mortgage, college tuition.
+- Uh... it's ok. yeah, you know, i considered it, as you know, clarke `failed`.
+- As a direct result, the peace summit between khrushchev and eisenhower `failed`.
+- Others have had similar actions and they have `failed` just as surely as you will fail.
+- It would explain a great many things -- is it possible their comm system has `failed` -- ?
+- Well, sir, it looks like one aircraft, the "leper colony", `failed` to receive the recall.
+- He `failed` to activate ship's neutron armor as quickly as i'd hoped on our last encounter.
+                 

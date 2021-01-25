@@ -1,0 +1,57 @@
+---
+title: "Corleone in a sentence | Corleone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Corleone"
+---
+- I'm michael `corleone`.
+- Mr. michael `corleone`.
+- Don `corleone` and shit.
+- Hiya, freddie `corleone`.
+- I'm sorry, mrs. `corleone`.
+- What gives, don `corleone`?
+- My name is michael `corleone`.
+- We must go to don `corleone`."
+- What about michael `corleone`?
+- ...with the `corleone` family.
+- And this is michael `corleone`.
+- The `corleone` family, senator.
+- "don `corleone`, give me justice."
+- Are you the son of vito `corleone`?
+- Hiya, mr. `corleone`, i'm sam roth.
+- Mr. `corleone` is johnny's godfather.
+- Mr. `corleone` is johnny's godfather.
+- The `corleone` family would be outcast.
+- No...i would like to walk to `corleone`.
+- I'm michael `corleone`--this is my father.
+- The `corleone` family wants to buy me out.
+- The `corleone` family wants to buy me out?
+- Did you think that could fool a `corleone`?
+- I'm the attorney for the `corleone` family.
+- The `corleone` family wants to buy you out.
+- You and the `corleone` family are evened out.
+- The `corleone` family was like the roman empire.
+- But i must have strict assurance from `corleone`.
+- Did barzini kid you that would fool a `corleone`?
+- Why didn't you say you worked for `corleone`, tom?
+- I represent the interests of the `corleone` family.
+- Don `corleone`, i wish you let me know you was coming.
+- Excuse me, i hope i am not a disturbance, don `corleone`.
+- The `corleone` family don't have that kind of muscle anymore.
+- 'cause as much as i love ya, you're not exactly don `corleone`.
+- We are all grateful to don `corleone` for calling this meeting.
+- You can break off from the `corleone` family and go on your own.
+- The `corleone` family don't even have that kind of muscle anymore.
+- These men are private detectives hired to protect vito `corleone`.
+- This is tom hagen; i'm calling for don `corleone`, at his request.
+- In five years, the `corleone` family will be completely legitimate.
+- Now, mr. `corleone`, you have been advised as to your legal rights.
+- Mr. `corleone` is a man who insists on hearing bad news immediately.
+- The `corleone` family controls two major hotels in vegas; one in reno.
+- But now you come to me and say don `corleone`, you must give me justice.
+- Mr. `corleone`, do you have any hotel interests in the state of arizona?
+- You took freddie in because the `corleone` family bankrolled your casino.
+- Actually, i've come with good news; the `corleone` family has done you a favor.
+- Also we want you to inform michael `corleone` that we can deal directly with him.
+- Your family still carries the name `corleone`, and you will run it like a `corleone`!
+                 

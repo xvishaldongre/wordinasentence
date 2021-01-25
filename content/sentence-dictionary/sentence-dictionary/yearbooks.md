@@ -1,0 +1,7 @@
+---
+title: "yearbooks in a sentence | yearbooks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yearbooks"
+---
+## Unfortunately, we have no example sentences for yearbooks                 

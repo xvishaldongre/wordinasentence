@@ -1,0 +1,52 @@
+---
+title: "operate in a sentence | operate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "operate"
+---
+- Not where we `operate`.
+- I know how they `operate`.
+- Looks simple to `operate`.
+- Was too high to `operate`.
+- They don't `operate` anymore.
+- You ever `operate` a jet ski?
+- You were to `operate` on him.
+- Can `operate` the kill switch.
+- Can `operate` the kill switch.
+- He is <not> going to `operate`!
+- We're gonna `operate` together.
+- We gotta `operate` on trust here.
+- That's how he made me co-`operate`.
+- We can `operate` around these guys.
+- But who would `operate` your camera?
+- It's hard to `operate` in the woods.
+- They `operate` in here all the time.
+- Can we `operate` the crane from here?
+- We don't `operate` like you kgb boys.
+- If i don't `operate` soon, she'll die.
+- They don't like the way you `operate`.
+- How to successfully `operate` that thing?
+- Inspector brimmer fuck how they `operate`.
+- I `operate` out of the chicago o'hare hub.
+- May i `operate` your telephonic apparatus?
+- We won't be able to `operate` them, either.
+- You know you have nice hands, you `operate`?
+- What kind of sick mind would `operate` like that?
+- You'd think he'd be able to `operate` this thing!
+- It won't `operate`, meaning... - we're stuck in here.
+- How to `operate` the stone, he'd have used it to leave.
+- He's the only one who can `operate` this -- who needs gus?
+- Actually of course i won't `operate`, i don't do major surgery.
+- Like you had any idea how to successfully `operate` that thing?
+- `Operate` for piles and while they're there, they unscrew your liver.
+- Should we stop and play nine holes now and `operate` on the kid later?
+- She wanted me to ask you if you would not break your rule and `operate`.
+- Why, he could `operate` on me any old time and i wouldn't even be scared.
+- However, if you'd like to `operate` on him yourself right now, be my guest.
+- When it comes to real action, i can `operate` as good as anybody short range.
+- Where you gonna `operate`, in a few seconds, about two hours outside detroit.
+- That's why we have to `operate` -- before or after what he wanted to tell you?
+- The public should be happy to co-`operate`, to get this disease off the streets.
+- If you co-`operate` with us, you will be on the plane for new york tomorrow... yes?
+- Dr. hardy will `operate` and of course he'll be guided by your wishes in this respect.
+                 

@@ -1,0 +1,107 @@
+---
+title: "yes in a sentence | yes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yes"
+---
+- Blue eyes, `yes`, sir.
+- But i am right, `yes`?
+- Dog eat dog, hi-`yes`.
+- Extra ordinary, `yes`.
+- "god is great," `yes`?
+- He just-- `yes` it is.
+- Hell `yes`, i like it.
+- I hope it will, `yes`.
+- I mean `yes`, i'm not.
+- I think you do, `yes`.
+- I would say so, `yes`.
+- Maybe he'll say `yes`.
+- Oh, `yes`, it's great.
+- Okay, `yes`, i got it.
+- She had to go - `yes`!
+- Sir, `yes` it is, sir.
+- That's it... oh `yes`!
+- To make him say `yes`!
+- Well, actually, `yes`.
+- Why `yes`, mr. dillon.
+- Why, `yes`, of course.
+- `Yes`, are you hungry?
+- `Yes`, but i lost him.
+- `Yes` but i was a boy.
+- `Yes`, call me simone.
+- `Yes`, doctor, i have.
+- `Yes`, dr. louis judd.
+- `Yes`, even in berlin.
+- `Yes`, hal, what's up?
+- `Yes`, he's fine, too.
+- `Yes`, his girlfriend.
+- `Yes`, holiness, i do.
+- `Yes`, i believe i do.
+- `Yes`, i believe that.
+- `Yes`, i can hear you.
+- `Yes`, i can regulate.
+- `Yes`, i guess he did.
+- `Yes`, i guess i have.
+- `Yes`, i have enemies.
+- `Yes` i know all that.
+- `Yes`, i know, i know.
+- `Yes`, i'm holding on.
+- `Yes`, i'm right here.
+- `Yes`, i'm sure it is.
+- `Yes`, i'm very clean.
+- `Yes`, i saw the news.
+- `Yes`, i should think.
+- `Yes`, i suppose i do.
+- `Yes`, it does, kelly.
+- `Yes`, i thought that.
+- `Yes`, it's a miracle.
+- `Yes`, it's a problem.
+- `Yes`, it's beautiful.
+- `Yes`, it's wonderful.
+- `Yes` -- just exactly.
+- `Yes` ma'am, i reckon.
+- `Yes`, matter of fact.
+- `Yes`... maybe it was.
+- `Yes`, miss ratched...
+- `Yes`, mister harding?
+- `Yes`, my dear, he is.
+- `Yes`, now, dusty-bun.
+- `Yes`, she was afraid.
+- `Yes`, sir, commander.
+- `Yes`, sir -- ma'am...
+- `Yes`, swana, you did.
+- `Yes`, tell us, nancy.
+- `Yes`, thank you, sir.
+- `Yes`, that'd be nice.
+- `Yes` -- that is true.
+- `Yes`, that's correct.
+- `Yes`, that's my name.
+- `Yes`, that sociopath.
+- `Yes` -- that's right.
+- `Yes`, this afternoon.
+- `Yes`, this is normal!
+- `Yes`, well, they are.
+- `Yes`, what about him?
+- `Yes` -- who spoke up?
+- `Yes`, `yes`, dr. payne.
+- `Yes`, `yes`, i saw you!
+- `Yes`, `yes`, of course.
+- `Yes`, you are, honey.
+- `Yes`, you are -- i...
+- `Yes`, you do, albert.
+- `Yes`, you fucking do.
+- `Yes` ... you know it!
+- `Yes` -- you're right.
+- Ah, `yes`, here we are.
+- A visual record, `yes`.
+- Clearly, `yes` comrade.
+- [gasping] `yes`, ma'am.
+- I did read that, `yes`.
+- If he can do it, `yes`.
+- If it's cassius, `yes`.
+- I-i-i- `yes`, she will.
+- I mean `yes`, probably.
+- In a day or two, `yes`.
+- I... suppose so, `yes`.
+- Kip's in trouble `yes`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "destroyed in a sentence | destroyed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "destroyed"
+---
+- Can it be `destroyed`?
+- Have been `destroyed`.
+- He's been `destroyed`.
+- I must be `destroyed`.
+- It's been `destroyed`.
+- He must be `destroyed`.
+- It has been `destroyed`.
+- I `destroyed` the embryos.
+- The flame was `destroyed`.
+- So i `destroyed` the flame.
+- Something gets `destroyed`.
+- You `destroyed` his memory!
+- Or march and be `destroyed`.
+- So they've been `destroyed`?
+- But we saw earth `destroyed`.
+- It was `destroyed` on asgard.
+- You said they're `destroyed`.
+- Until the omega's `destroyed`.
+- Your like will be `destroyed`.
+- It would have `destroyed` abby.
+- I cannot let her be `destroyed`.
+- If it was, it's `destroyed` now.
+- It sorta `destroyed` your cabin.
+- Are all the batsuits `destroyed`?
+- But jaha `destroyed` all of them.
+- Do you know what you `destroyed`?
+- I did, i `destroyed` it, i swear.
+- I said the record is `destroyed`.
+- But it `destroyed` my poor mother.
+- Tell me you really `destroyed` it.
+- But they're not `destroyed`, not yet.
+- A 16th century statue was `destroyed`.
+- Because our ship has been `destroyed`.
+- Thanos `destroyed` the quantum tunnel.
+- They told me the earth was `destroyed`.
+- You caused the world to be `destroyed`!
+- You caused the world to be `destroyed`.
+- How many lives have you `destroyed`?
+- I can't believe you `destroyed` my suit!
+- I can't believe you `destroyed` my suit.
+- That appears to have been `destroyed`.
+- Perhaps after we've `destroyed` the thing.
+- You `destroyed` all of chimera at biocyte.
+- And their guilt... nearly `destroyed` them.
+- My master requires the fort be `destroyed`.
+- They could've `destroyed` everything today.
+- Most of your cyber body was `destroyed`.
+- Bust up, `destroyed` and wasted in new york.
+- <u>it `destroyed` the electoral process</u>.
+- That whole level was `destroyed` in the fire.
+- With no regard for the lives you `destroyed`.
+- I thought jaha `destroyed` all the wristbands.
+- It was beautiful there, and we `destroyed` it.
+- I've `destroyed` everything i've ever touched!
+- Shouldn't a drug that powerful be `destroyed`?
+- Atlanta, chicago and philadelphia, `destroyed`?
+- Most of california would have been `destroyed`.
+- The flame that you told cadogan we `destroyed`?
+- He won't stop until you are all `destroyed`.
+- Did you get a look at the stuff you `destroyed`?
+- Eleven civilian vehicles damaged or `destroyed`.
+- He can't use ours-- he's already `destroyed` it.
+- He just `destroyed` our one way off this planet.
+- Our communications equipment's been `destroyed`.
+- The last remaining werewolf must be `destroyed`.
+- Our planet will be `destroyed` by the federation.
+- Not to speak of having my credibility `destroyed`.
+- The poor animal is slated to be `destroyed` today.
+- Earth will be `destroyed` -- just as we saw it.
+- Or, thirdly, have the man's files been `destroyed`?
+- They `destroyed` the simulator room and you with it.
+- When ramesses `destroyed` syria, it was an accident.
+- Considering you `destroyed` the planet of your birth.
+- Memories, at sites like the one you just `destroyed`.
+- The proteus may already be `destroyed`... what is it?
+- Gibarian said he thinks solaris should be `destroyed`.
+- The school would be `destroyed`, and you took it away.
+- You're supposed to have it `destroyed` that years ago.
+- But the computer targeting system has been `destroyed`.
+- I had a moment of confidence, and now it's `destroyed`.
+- That side of town has been `destroyed` in the fighting.
+- Captain miller was able... wasn't that ship `destroyed`?
+- Exactly how many vampires have you actually `destroyed`?
+- Coming full circle and all, they `destroyed` their world.
+- He `destroyed` everything; my life and my ability to live.
+- He `destroyed` himself... my lord... what are your orders?
+- To celebrate how masterfully you `destroyed` roston today.
+- We cannot stay here and allow ourselves to be `destroyed`.
+- When he `destroyed` my ship and slaughtered half my people.
+- You almost `destroyed` the most sensitive deal of my career!
+- You've `destroyed` my life and now you want me to help you?!
+- I'm taking him to the sheriff and make sure he's `destroyed`.
+- Seventeen ships `destroyed`, we don't know how many got away.
+- It would seem that grissom was `destroyed` by an enemy attack.
+- Time to jump off before you get `destroyed` along with garrison.
+- Some of them must've beamed over before we `destroyed` their ship.
+- Best we can tell, mount weather was `destroyed` so what is all this?
+- Anything that gets in the way is an obstacle and must be `destroyed`.
+- When that happened, the good man who was your father was `destroyed`.
+- Because these minority reports are `destroyed` the instant they occur.
+                 

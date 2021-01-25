@@ -1,0 +1,107 @@
+---
+title: "handle in a sentence | handle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "handle"
+---
+- Can you `handle` that?
+- I can `handle` myself.
+- I can `handle` things.
+- I can't `handle` this.
+- I `handle` one client.
+- Just `handle` it, bob!
+- No, i can `handle` it.
+- Tara can `handle` her.
+- The `handle` is heavy.
+- You can `handle` this.
+- Couldn't `handle` them.
+- I'll `handle` the boss.
+- I need a `handle`, man.
+- We can `handle` murphy.
+- I can't `handle` it.
+- I can `handle` the ship.
+- I `handle` the rabble...
+- She's gonna `handle` it.
+- That's a great `handle`.
+- Adlai can `handle` zorin.
+- Can you `handle` that...?
+- I'll `handle` our people.
+- I'll `handle` that later.
+- No, we can `handle` this.
+- Nuthin' i can't `handle`.
+- Yeah, we can `handle` it.
+- You let us `handle` this.
+- Couldn't `handle` it then.
+- `Handle` the fund-raising.
+- I'll `handle` your father.
+- I think i can `handle` it.
+- Let me `handle` this part.
+- The way you `handle` cars.
+- Think you can `handle` it?
+- Can i `handle` this my way?
+- Can we still `handle` this?
+- Can your man `handle` that?
+- He promised to `handle` it.
+- I'll `handle` the sheriffs.
+- Let the heroes `handle` it.
+- Let the police `handle` it.
+- We can still `handle` this.
+- You couldn't `handle` shit.
+- August, i can `handle` this.
+- Ever `handle` a serial case?
+- `Handle` with care, fellas.
+- How many could you `handle`?
+- I can `handle` these clowns.
+- I can't `handle` that thing.
+- I'll `handle` those monkeys.
+- My body can't `handle` this.
+- Okay, you `handle` it, numa.
+- You want me to `handle` him?
+- But she couldn't `handle` it.
+- Can you `handle` it yourself?
+- I couldn't `handle` any more.
+- I knew you could `handle` it.
+- I think we could `handle` it.
+- You sure you can `handle` it?
+- ♪ baby, can you `handle` this?
+- Can you `handle` one of these?
+- Can you `handle` the door gun?
+- I think you can `handle` that.
+- I thought i could `handle` it.
+- It's nothing i can't `handle`.
+- Gotta know how to `handle` 'em.
+- He can't `handle` the medicine.
+- How am i going to `handle` him?
+- I can `handle` this lot easily!
+- I can't `handle` the nightmare.
+- Please -- let me `handle` this.
+- Wonkru will `handle` the pipes.
+- I think i can `handle` that one.
+- Tree, help me find the `handle`!
+- Do you think you can `handle` it?
+- I didn't know how to `handle` it.
+- Let 'em riot, we can `handle` it.
+- No, jackson can `handle` medical.
+- He doesn't `handle` pressure well.
+- How do you want to `handle` sloan?
+- If you can't `handle` her, i will.
+- Maybe we can `handle` it together.
+- Sure, but i'd like to `handle` it.
+- There's a compass in the `handle`.
+- We `handle` it by not handling it.
+- How i `handle` my <u>money</u>!
+- Could he `handle` a direct contact?
+- I can `handle` richie, don't worry.
+- I'd never `handle` a car like that.
+- They put something on the `handle`.
+- Yeah, but nothing i can't `handle`.
+- Benedict, trust me to `handle` this.
+- But we'll let santino `handle` that.
+- How did mrs. tatopoulos `handle` it?
+- I don't think you could `handle` it.
+- Monty, can you `handle` the fueling?
+- She used to `handle` the medication.
+- There's nothing they can't `handle`.
+- Trust me -- i can `handle` anything.
+- You wanted to let sonny `handle` it.
+                 

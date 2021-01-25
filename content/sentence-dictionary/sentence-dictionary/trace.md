@@ -1,0 +1,67 @@
+---
+title: "trace in a sentence | trace example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trace"
+---
+- No one can `trace` it.
+- How can they `trace` it?
+- No `trace` until... now.
+- Check for `trace` radiation.
+- Then you have to `trace` it.
+- There was no `trace` of him.
+- There was no `trace` of them.
+- Yeah, i want 'em to `trace` me.
+- They disappeared without a `trace`.
+- I need you to `trace` a number for me.
+- `Trace` memories in the brain, perhaps.
+- Can we, like, `trace` who made the call?
+- Use it and no one can `trace` it to you.
+- There's no `trace` of alie's code baby...
+- My skip-`trace` turned up two cecil stipes.
+- That we're too stupid to `trace` his calls.
+- The cops could `trace` this call back to you.
+- Sense/net hasn't even been able to `trace` it.
+- They `trace` anything, it'll just lead to him.
+- The pill you took is part of a `trace` program.
+- You think you're going to catch him on a `trace`?
+- There's no `trace` of alie's code it can't be him.
+- They could hardly `trace` them to you, could they?
+- Over time, `trace` amounts of radiation seep inside.
+- You can't `trace` my holographic emitters, captainn.
+- I'm not authorized to `trace` licenses for civilians.
+- Slamming down the phone in the middle of the `trace`.
+- Our job is to `trace` the connections and reveal them.
+- Soon there won't be a `trace` of our troubles... or us.
+- What about the `trace` on his bank account and the guns?
+- How can a big time heart guy leave no `trace` of himself?
+- If your splices hold, you'll use mccoy to `trace` the a.i.
+- No one can `trace` anything to me; i pride myself on that.
+- If i do, you have to get away, disappear without a `trace`.
+- If they start a `trace` it will be to a pic'n'save on pico.
+- How'd you and this detective come to `trace` her to fairvale?
+- Impossible to `trace`, so you don't worry about prints, mike.
+- 10% argon, 85% nitrogen, 5% neon... and some `trace` elements.
+- We're waiting for `trace` evidence results on the rice killing.
+- Trying to `trace` a young girl who's been missing almost a week.
+- We need a man who can enter the matrix and `trace` this saboteur.
+- Whether any `trace` of a host's mind remained after resurrection.
+- Composition of the sand, ...`trace` elements..unique... what is it?
+- ♪ since you've gone i been lost without a `trace` ♪ a new what-now?
+- Ask for a `trace` on a forger and you might wind up at a steel- mill.
+- If he does not work here, then there should be no other `trace` of him.
+- Run a `trace` on the culvert leading off the auto-shop maintenance pit.
+- That was way back yonder when the natchez `trace` was just a dirt road.
+- Tell me where you are, or just leave the line open so i can `trace` you.
+- T.j., run a `trace` on this, see if you can pin down where it came from.
+- I'm picking up `trace` life forms, but i can't get a lock on the location.
+- They removed all physical `trace` of her but they couldn't erase the memory.
+- Captain spock and i will attempt to `trace` these whale songs to their source.
+- Fine-tooth-combed speck's car, the diner: no fingerprints, no `trace` evidence.
+- She was with me when calamity struck, but after i could find no `trace` of her.
+- I sacrificed my baby boy... our helmets showed no `trace` of the stone anywhere.
+- You were our prime suspect, till we trashed your stuff and found no `trace` of it.
+- We figured on it being a magnetic anomaly, but we ran a back-`trace` just to make sure.
+- Hey, smith... we're still venting `trace` gasses, gimme twenty minutes to plug the hole.
+- What if - what if you `trace` the heaviest-traffic routes backwards from the dump sites?
+                 

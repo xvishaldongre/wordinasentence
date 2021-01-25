@@ -1,0 +1,107 @@
+---
+title: "god in a sentence | god example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "god"
+---
+- By `god`, you know it.
+- By the grace of `god`.
+- [crying] oh, my `god`.
+- Death is `god`'s will!
+- For `god`'s sake, why?
+- For the love of `god`.
+- Gabriel, oh, my `god`.
+- `God` are you a chump.
+- `God` dammit, stifler!
+- `God` damnit, electra.
+- `God` damn it you two!
+- `God`, how horrifying.
+- `God`, how time flies!
+- `God`, i don't get it.
+- "`god` is great," yes?
+- `God`, isn't he great?
+- `God`, isn't it awful?
+- `God` knows it worked.
+- `God` knows i want to.
+- `God`, listen to this!
+- `God` of my ancestors.
+- `God`, these are good.
+- `God`, you are so hot.
+- `God`, you are square.
+- Going nearer to `god`!
+- Go with `god`, taylor.
+- Hand of `god`, my ass.
+- Her child -- my `god`.
+- I leave that to `god`.
+- I swear to `god`, jos.
+- It's `god`'s mountain.
+- May `god` be with you.
+- May `god` protect you.
+- My `god`, what a fire!
+- No... wyatt, my `god`!
+- Oh, for `god`'s sakes!
+- Oh `god`, he's got it!
+- Oh, `god`, he's slimy!
+- Oh, `god`... hey, sid.
+- Oh, `god`, i mistimed.
+- Oh `god`, i <u>am</u>!
+- Oh my `god`, it's you!
+- Oh my `god`, jake, no.
+- Oh my `god`, you guys!
+- On `god`'s flat earth.
+- Rachel -- oh my `god`.
+- Rose, oh, thank `god`.
+- So, the work of `god`.
+- Thank `god` for diane.
+- Thank `god`, i'm here.
+- The `god` of the cave.
+- Then there is a `god`.
+- Admiral kirk, my `god`!
+- As `god` as my witness!
+- Easy, easy -- oh `god`.
+- `God` almighty -- whew.
+- `God`, can you hear me!
+- `God` damn it, matthew.
+- `God` damn you to hell!
+- `God`, i can't do this.
+- `God`, i'd love to fly.
+- `God` i hate this area.
+- `God`, i've missed you.
+- `God`, she's beautiful.
+- `God`, that felt great!
+- `God`, that's terrible.
+- `God`, there's a bunch.
+- `God` we were so young.
+- `God`, you're an idiot.
+- `God`, you're gorgeous.
+- `God`, you're so young.
+- `God`, you startled me.
+- Honest to `god`, ruben!
+- I just....`god` dammit.
+- It's good-`god`, ya'll.
+- It's the will of `god`!
+- My `god` ... it's true.
+- My `god`, i understand!
+- My `god`, look at them.
+- Oh `god`, i'm so sorry.
+- Oh `god`, that's great!
+- Oh `god`, what do i do?
+- Oh `god`, where is she?
+- Oh my `god`, a mistake!
+- Oh my `god`, by wolves?
+- Oh my `god`, he's back.
+- Oh my `god`, i'm sorry!
+- Oh my `god`, it's cops!
+- Oh my `god`, it's real.
+- Oh my `god`, oh my `god`.
+- Oh, oh... `god`, annie.
+- Or, `god` forbid, 4:15?
+- Thank `god` for site b.
+- Thank `god`, i got you.
+- That tie's `god`-awful.
+- Then it's `god`, right?
+- You a `god` damn witch?
+- You like playing `god`.
+- You think you're `god`.
+- A `god` to these people!
+                 

@@ -1,0 +1,70 @@
+---
+title: "chasing in a sentence | chasing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chasing"
+---
+- One guy `chasing` you.
+- I'm `chasing` bad guys.
+- Someone's `chasing` him.
+- You're `chasing` a dream.
+- All the time `chasing` it.
+- Nunez was `chasing` dunbar.
+- I'm `chasing` picture books.
+- I was `chasing` a wild goose.
+- Who have we been `chasing`!??
+- I thought you were `chasing` me?
+- Why was the guard `chasing` you?
+- `Chasing` women around the store.
+- She's probably `chasing` butterflies.
+- We have lots of big men `chasing` us.
+- You like `chasing` the dragon, walter?
+- He's not `chasing` and i'm not running.
+- Intagliata was out `chasing` breakfast.
+- You're always `chasing` after something.
+- I've been `chasing` after some other kid?
+- Is this what you've been `chasing` around?
+- I was running and the dog was `chasing` me.
+- But `chasing` you takes up too much of my time.
+- How come you're not `chasing` it down yourself?
+- A scumbag... `chasing` dentists for a few bucks.
+- I was `chasing` after somebody i saw in the salon.
+- You want to go `chasing` barbara zelman, go ahead.
+- Why's he spend all his time `chasing` after me?
+- We can't spend your life `chasing` after fantasies.
+- I actually don't think anyone was ever `chasing` us.
+- I can't stay here all night `chasing` your pain away.
+- You're `chasing` that girl, why don't you just admit it?
+- S.o.p.. that's s.o.p.. let's not waste time `chasing` him.
+- Going after killers isn't the same as `chasing` poachers, eric.
+- We were `chasing` you because you ran, you dumb son-of-a-bitch.
+- I hope you realize what kind of long shot you're `chasing` after.
+- Or even `chasing` us, as the case may be -- just turn right here.
+- `Chasing` me - animals - horrible - thank me next time you see me.
+- I don't like him `chasing` around after you...i don't trust him....
+- I don't want to spend the rest of my life `chasing` after vampires!
+- You're gonna get killed `chasing` after your damn fortune and glory!
+- Just back from the hospital and already you are `chasing` after boys.
+- Wow, a guy in a chevy is `chasing` her and some other guy i can't see.
+- At any other time of year, the guys that were `chasing` us in the woods.
+- I wanted him in mine, not `chasing` through the universe with his father.
+- Those arabs won't be when they start `chasing` you around the sand dunes.
+- What about father lowe `chasing` me in his car and trying to run me down?
+- I'm not growing old `chasing` snails and dying from terminal crotch rot....
+- All that running and `chasing` is making the sleep thing want to come early.
+- Are you too busy `chasing` a few tubes of penicillin to investigate a murder?
+- We should be out `chasing` major violators .. all but .. how <u>you</u> doing?
+- I don't wanna say over the phone, but i think we may be `chasing` the wrong man.
+- Drinking whiskey, `chasing` women and getting beaten up by guys with broken noses.
+- Yes, i'm sure he's been too busy `chasing` his whores to be bothered about my wife.
+- A little birdie whispered in my ear today... about the needle-candy you're `chasing`.
+- It is possible... just possible now, you might have been `chasing` each other around?
+- You spent all those years `chasing` after muggers, and drug dealers, and jaywalkers .
+- If you didn't want me `chasing` him, you shouldn't have taken me to that funeral home.
+- `Chasing` across the universe to obtain what is, i am now certain, a bauble of fiction.
+- Something about this 'not being a job for a wine-sniffing, skirt-`chasing` playboy spy?'
+- We've been `chasing` this deal six months, and now you're gonna chuck it out the window?
+- 18-years of `chasing` dogs; and my lazy ass brother hits the lotto his first time playing.
+- Here i am standing out in the middle of nowhere texas, `chasing` phantom tanker trucks.
+- He escaped from a concentration camp and the nazis have been `chasing` him all over europe.
+                 

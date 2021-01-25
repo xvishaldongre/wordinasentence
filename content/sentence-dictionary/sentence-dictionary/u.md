@@ -1,0 +1,107 @@
+---
+title: "u in a sentence | u example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "u"
+---
+- A <`u`>wife</`u`> would.
+- Come with <`u`>me</`u`>.
+- I don't <`u`>know</`u`>.
+- I think i <`u`>do</`u`>.
+- It's a <`u`>party</`u`>.
+- It's my <`u`>life</`u`>!
+- I <`u`>know you</`u`>...
+- I <`u`>love</`u`> women.
+- I <`u`>tapped</`u`> you.
+- Now, <`u`>why him</`u`>?
+- Oh god, i <`u`>am</`u`>!
+- Right <`u`>at</`u`> him?
+- She got <`u`>paid</`u`>.
+- She <`u`>likes</`u`> me.
+- <`u`>are</`u`> you okay?
+- <`u`>ben</`u`> did this?
+- <`u`>hey watch it</`u`>!
+- <`u`>i don't know</`u`>.
+- <`u`>i have to go</`u`>.
+- <`u`>i wanna know</`u`>!
+- <`u`>oh shut up</`u`>!!!
+- "</`u`> you a fag too?
+- <`u`>you</`u`> did this?
+- What if <`u`>what</`u`>?
+- What is <`u`>this</`u`>?
+- What <`u`>is</`u`> that?
+- What <`u`>is</`u`> true?
+- Who <`u`>is</`u`> this??
+- You are <`u`>dumb</`u`>!
+- <`u`>i'm</`u`> sorry.
+- Are you <`u`>crazy</`u`>?
+- A <`u`>hot</`u`> cartoon.
+- How <`u`>you</`u`> doing?
+- I'll find <`u`>you</`u`>.
+- I'm an <`u`>artist</`u`>!
+- It's <`u`>her</`u`> hand.
+- It <`u`>could</`u`> work.
+- It was <`u`>monday</`u`>.
+- I <`u`>believe</`u`> you.
+- "man from `u`.n.c.l.e."
+- Not <`u`>the</`u`> bible?
+- Of their <`u`>tits</`u`>.
+- On <`u`>land</`u`> maybe.
+- There was <`u`>you</`u`>.
+- The <`u`>other</`u`> one!
+- <`u`>it was a pact</`u`>.
+- <`u`>never</`u`> give up.
+- <`u`>no you're not</`u`>.
+- <`u`>too many ants</`u`>.
+- <`u`>trawl</`u`> with it.
+- <`u`>were</`u`> you, sir?
+- <`u`>where is reed</`u`>?
+- <`u`>yes</`u`>, i'm sure.
+- <`u`>you</`u`> knew that.
+- <`u`>you</`u`> said that.
+- What was <`u`>that</`u`>?
+- Ya bought <`u`>her</`u`>!
+- You da <`u`>shits</`u`>!!
+- You look <`u`>good</`u`>.
+- You <`u`>can't sit</`u`>!
+- You <`u`>don't</`u`> see.
+- About the <`u`>deal</`u`>.
+- But if they <`u`>do</`u`>?
+- But she <`u`>saw</`u`> us.
+- Do it <`u`>yourself</`u`>!
+- Don't you <`u`>dare</`u`>.
+- Do <`u`>you</`u`> know...?
+- Guess who <`u`>i</`u`> am.
+- He's a <`u`>monster</`u`>!
+- I'd <`u`>like</`u`> to be.
+- I'm my <`u`>own</`u`> man.
+- I'm running <`u`>to</`u`>.
+- It isn't <`u`>right</`u`>.
+- I <`u`>did</`u`> care how.
+- I <`u`>enjoy</`u`> my job.
+- I've <`u`>got</`u`> to go.
+- Jesus -- <`u`>perks</`u`>?
+- My <`u`>tail</`u`> itches.
+- N'not <`u`>that</`u`> sad.
+- Not in <`u`>my</`u`> name.
+- Not <`u`>a building</`u`>!
+- Sloan <`u`>real</`u`> men!
+- The old double `u`-turn.
+- The <`u`>mob</`u`>, bobby!
+- They <`u`>will</`u`>, sir.
+- <`u`>after</`u`> this one.
+- <`u`>are you intact</`u`>?
+- <`u`>fuck</`u`> the world.
+- <`u`>she's not here</`u`>.
+- <`u`>to create fear</`u`>.
+- <`u`>we</`u`> killed jake.
+- <`u`>who</`u`> started it?
+- <`u`>why not, jerry</`u`>?
+- We're not <`u`>here</`u`>.
+- We're `u`.s. paratroops.
+- ...who <`u`>are</`u`> you?
+- With a <`u`>shotgun</`u`>!
+- You'll be <`u`>back</`u`>!
+- You <`u`>are</`u`> kareem.
+- Are you <`u`>kidding</`u`>?
+                 

@@ -1,0 +1,107 @@
+---
+title: "witness in a sentence | witness example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "witness"
+---
+- As god as my `witness`!
+- Genie should `witness`.
+- How's our new `witness`?
+- So she did `witness` it?
+- You're a `witness`, doc!
+- You use their `witness`.
+- Find me an eye `witness`.
+- She's the only `witness`.
+- You're the key `witness`?
+- Come `witness` my revenge.
+- I had a `witness` i would.
+- He's badgering a `witness`.
+- You're the `witness`, emmi.
+- I don't know �� a `witness`.
+- I'm a `witness` to a murder.
+- I know what a "`witness`" is.
+- The `witness` is leading him.
+- You're leading the `witness`.
+- Is he related to the `witness`?
+- Thank christ we got a `witness`.
+- This time we got a `witness`.
+- You may call your next `witness`.
+- I had a `witness` disappear on me.
+- I was the made-to-order `witness`.
+- The `witness` will answer, please.
+- You will be a jehovah's `witness`.
+- Counsel is harassing the `witness`.
+- They, uh, they got to my `witness`.
+- Did you `witness` the shoot-out?
+- As charlie steinway is my `witness`.
+- I will allow the `witness` to testify.
+- She's the best damn `witness` we have!
+- Miss costello was a rebuttal `witness`.
+- The `witness` is excused; take him out.
+- The `witness` will answer the question.
+- To be the `witness` for the human race.
+- Okay, better question the next `witness`.
+- Your mother was the only `witness` to it.
+- A `witness` can put me at the crime scene.
+- She's not a suspect, sir, she's a `witness`.
+- To bear `witness` to the miracle of sanctum.
+- He told you that... and i've got a `witness`!
+- I've never seen such a cooperative `witness`.
+- Objection, asking the `witness` to speculate.
+- I'm going to take my `witness`' testimony!
+- Does the `witness` deny the injury took place?
+- Further: ms. costello is a rebuttal `witness`.
+- What do you do when you don't have a `witness`?
+- Your son is a material `witness` to a homicide.
+- It was an accident, but his girl is a `witness`.
+- The police used him as a `witness` in this case.
+- `Witness`' can be convinced they made a mistake.
+- You've got nothing, you don't have a `witness`...
+- I move that the `witness`'s testimony be stricken.
+- I suppose i'm the worst `witness` you've ever had?
+- You broke in my house and i have a `witness` to it.
+- All right, go ahead, get her on the `witness` stand!
+- As the primes are my `witness`, i'll bring them back.
+- But as god is my `witness`, where would they get one?
+- Eduardo ruiz is the only real `witness` against carl.
+- I am sorry for you to have to `witness` this, kundun.
+- Now i got you for a `witness`, i'm going to try again.
+- You mean you need a `witness` in addition to white...?
+- So now i'll proceed with my deposition of my `witness`.
+- We could put you into our `witness` protection program.
+- I don't have the luxury of being a `witness` to tragedy.
+- Okay, i'm a `witness`, but how do you prove who's right?
+- The `witness` is not an expert in racial classification.
+- We will admit the doctor as an 'expert `witness`,' fine.
+- We will admit the doctor as an `expert `witness`,' fine.
+- Can't mr. dowd find his own expert `witness`, your honor?
+- I can't identify him .. coz he thinks you're a `witness`.
+- I'm going to be a `witness` for them in their litigation.
+- Save richard yip, our `witness`... what are you gonna do?
+- The `witness` will substantiate mr. kim's modus operandi.
+- You need a...even if this was true, you need a `witness`.
+- Your honor, the `witness`' response was non-responsive...
+- Aaron should be hearing this so i have an extra `witness`.
+- From what i understand, the eye- `witness` is a drug user.
+- The problem for me is... you're in the `witness` category.
+- An eye `witness` has you outside the dead girl's apartment.
+- I cannot confirm or deny actions which i did not `witness`.
+- I want the crime scene photos and any `witness` statements.
+- You are about to `witness` something few have seen -- watch!
+- Asking `witness` to speculate about deceased's state of mind.
+- I thought she tried to murder a `witness` for the prosecution.
+- Our chief `witness` is a dr. david gruber, you know who he is?
+- This bottle has been a `witness` to the industrial revolution.
+- No you're not � you're glad, because now you've got a `witness`.
+- As god is my `witness`, i have never done anything to that woman.
+- Let the record state the `witness` has identified, diego delgado.
+- The fact that the `witness` is currently a patient is immaterial!
+- The question calls for a conclusion on the part of the `witness`.
+- We have a `witness` who saw you go into the house at four thirty.
+- I've got a babysitting job for a material `witness` on a homicide.
+- If i may be permitted to question my own `witness` in my own way...
+- I'm not your judge... nor have i any desire to `witness` the trial.
+- You're trespassing into the area of `witness` protection, mr. dowd.
+- Four unwarranted shootings, `witness` intimidation, and cocaine theft.
+- I must ask that the counsel be prevented from harassing the `witness`.
+                 

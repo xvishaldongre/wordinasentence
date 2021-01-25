@@ -1,0 +1,8 @@
+---
+title: "fanboy in a sentence | fanboy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fanboy"
+---
+- I sound like some fucking `fanboy`.
+                 

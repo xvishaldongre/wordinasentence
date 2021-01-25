@@ -1,0 +1,107 @@
+---
+title: "Lincoln in a sentence | Lincoln example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lincoln"
+---
+- His name is `lincoln`.
+- `Lincoln`, i'm scared.
+- `Lincoln`, wait, wait!
+- `Lincoln` is my friend.
+- `Lincoln`: with finn.
+- Was `lincoln` with you?
+- I didn't kill `lincoln`.
+- I need to see `lincoln`.
+- ♪ `lincoln`, be careful.
+- `Lincoln` has them, too.
+- `Lincoln`, talk to them.
+- `Lincoln` was my people.
+- `Lincoln`, you’re hit.
+- .this, is mr. `lincoln`.
+- But it's not `lincoln`'s.
+- From my friend `lincoln`.
+- `Lincoln` didn't do that.
+- `Lincoln` knew our rules.
+- `Lincoln`: out of my way.
+- `Lincoln` was a good man.
+- Abe `lincoln`... what... ?
+- `Lincoln`, it's all right.
+- That'll be all, `lincoln`.
+- It's coming in a `lincoln`.
+- `Lincoln`'s recovery was...
+- I'm gonna talk to `lincoln`.
+- `Lincoln`, johnson, harding.
+- People are dying, `lincoln`.
+- Did `lincoln` teach you that?
+- I live in `lincoln` park now.
+- Octavia: you saw `lincoln`.
+- Went in for `lincoln`'s book.
+- `Lincoln` might have a chance.
+- `Lincoln`, put down the knife.
+- Pass them potatoes, `lincoln`.
+- Well, big ol' `lincoln`, sure.
+- `Lincoln`, alabama -- look out!
+- `Lincoln` mark five... six... ?
+- `Lincoln`, where are you going?
+- The day abraham `lincoln` died.
+- Abe `lincoln`... dumbo... - doc!
+- at’s what `lincoln` would do.
+- [explosion] i trust `lincoln`.
+- Finn: `lincoln` saved my life.
+- Finn will take you to `lincoln`.
+- This is our home now, `lincoln`.
+- `Lincoln` taught me how to fight.
+- What else did `lincoln` tell you?
+- `Lincoln` has a kill order on him?
+- There's nothing virtual `lincoln`.
+- Where's your white `lincoln` limo?
+- Kane, `lincoln`, sinclair, it's ok.
+- We're talking about `lincoln` here.
+- `Lincoln`, we need to set an example.
+- `Lincoln`, you need to go to medical.
+- Stripped `lincoln` of his commission.
+- `Lincoln` said that you would help us.
+- `Lincoln`, you must stop the bleeding.
+- He had that big ol' `lincoln` then.
+- Are we really gonna do this, `lincoln`.
+- Kane and `lincoln` are waiting outside.
+- When `lincoln` died, i beat my brother.
+- A guy named jefferson�and `lincoln`.
+- Those people aren't like you, `lincoln`.
+- Was that `lincoln` james i seen run off?
+- You said that `lincoln` had some, too.
+- He's `lincoln`'s friend and their healer.
+- I've been trying to reach him, `lincoln`.
+- `Lincoln` said «scouts.» more than one.
+- `Lincoln` would've wanted you to help us.
+- I have known `lincoln` since he was a boy.
+- I told my mom i would, um... `lincoln`, no!
+- Nyko and `lincoln` will make them see that.
+- You're ok. `lincoln` is still missing, too.
+- Bring `lincoln` to the place i saw him last.
+- `Lincoln` should be here to show us the way.
+- You're not going down by `lincoln`, are you?
+- `Lincoln` would have never brought that here.
+- [yiddish for 'to life'] to abraham `lincoln`.
+- And `lincoln` out yonder grillin' up the corn.
+- It appears we didn't need `lincoln` after all.
+- `Lincoln` had that same stuff at the dropship.
+- Now you know what to watch for... a `lincoln`?
+- Whose people are you defending here, `lincoln`?
+- Even if you can save `lincoln`... - that was me.
+- I see pike putting that gun to `lincoln`'s head.
+- ... musical flatulence... `lincoln`, be careful.
+- I hear they all dress like that at `lincoln` now.
+- The ones in the `lincoln` are your... associates.
+- `Lincoln` is dead, and we will be, too, good luck.
+- We'll have time to get to them, where's `lincoln`?
+- Wait...um... we're the a-squad from `lincoln` high?
+- Lifting `lincoln`'s kill order, clarke and mccreary?
+- Jeffrey, you're not going down by `lincoln`, are you?
+- `Lincoln`'s savable... 300 people in their sleep, no!
+- `Lincoln`'s here because of a disturbance in sick bay.
+- Wouldn't happen to be the `lincoln` memorial, would it?
+- You know, my father, he begged for mercy and `lincoln`.
+- Bellamy: `lincoln`, you don't want to be here right now.
+- If you're wrong... `lincoln`, what the hell is going on?
+                 

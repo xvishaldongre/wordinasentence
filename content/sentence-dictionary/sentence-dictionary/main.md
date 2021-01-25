@@ -1,0 +1,107 @@
+---
+title: "main in a sentence | main example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "main"
+---
+- Begin `main` sequence.
+- Report to `main` gate.
+- Return to `main` quest.
+- That's the `main` idea.
+- Officers to `main` gate.
+- That's the `main` thing.
+- Or the `main` guy's name.
+- Link off the `main` trunk.
+- Report to the `main` gate.
+- I need the `main` wet-wall.
+- It's not my `main` concern.
+- They meet on `main` street.
+- We're in the `main` hangar.
+- For exits off `main` street.
+- Give my `main` man a raise!!
+- It's in the `main` ballroom.
+- The `main` guy got shingles.
+- If the `main` character does.
+- Two `main` players plus three.
+- There's the `main` airlock.
+- Father, i have the `main` part.
+- Like, five on `main`, at least.
+- Meet me at the `main` air lock!
+- I'll bring it on `main` monitor.
+- It's the key to the `main` gate.
+- `Main` house, as fast as you can.
+- The `main` thing is you're happy.
+- The publicity's the `main` thing.
+- Still, it’s the `main` route in.
+- That's the `main` thing, isn't it?
+- The `main` guy, dieter-- from who?
+- We'll do the `main` footage later.
+- Disengage all `main` drive systems!
+- Team two, we're at the `main` gate.
+- This used to be the `main` highway.
+- But comic books are `main` business.
+- _ headed down poplar, toward `main`.
+- `Main` engineering... or the bridge.
+- You see, my `main` concern is nicky.
+- Saving yourself for the `main` event.
+- All coming from a busted water `main`.
+- It's right in the `main` thoroughfare.
+- That's the `main` idea, miss saunders.
+- We've lost the `main` power generator.
+- At the `main` door with our entire army.
+- Um ... you gotta turn off `main` street.
+- I caught an octopus on `main` street.
+- An entire-suite of `main`-frame computer.
+- What do you see as your `main` strengths?
+- That'll be the third one on `main` street.
+- He was trying to spill air from the `main`!
+- How many men to we have at the `main` gate?
+- You know the `main` staircase in the opera?
+- But the `main` one would be i'm tired of it.
+- Restaurant, uh, that's the `main` expansion.
+- `Main` rocket burn in 3, 2... no, no, no, no.
+- That's the, uh, that's the `main` thing here.
+- The prisoners are headed for the `main` gate.
+- Who spilled bbs i think `main` center's live.
+- The `main` thing is: how was lecktor to reply.
+- The `main` character is a guy just like me.
+- But that group has been, in the `main`, subdued.
+- You talking about the opera house on the `main`?
+- Commence attack on thedeath star's `main` reactor.
+- `Main` interference linked to electronic detector.
+- Man, on radio: team two, we're at the `main` gate.
+- Simpson, you have a key to the `main` server room?
+- There's an army outside going for the `main` door.
+- Well, that's the `main` thing--don't you think so?
+- We'll take it slow until we get to the `main` road.
+- You must realize that we've found the `main` nerve.
+- Come, everyone, let us repair to the `main` chamber.
+- Strange, not doin' a run-up on the `main` drive yet.
+- Worf, take your men and seal off `main` engineering.
+- Let's go... which has a door to the `main` server room.
+- So tell me my `main` man... you nervous in the service?
+- Also assigned twenty operatives to watch `main` highways.
+- It was softer'n i thought, that was my `main` impression.
+- You think a swan's gonna swim ass first up `main` street?
+- All arkadia security personnel, report to `main` gate now.
+- Forget it, the `main` thing-- --did you call me a failure?
+- Have a security team meet me at deck four `main` elevator!
+- I'll whisper some of the `main` parts of the story to you.
+- `Main` street's a four-laner, no left turns four to seven.
+- The `main` thing, they're through and - are you listening?
+- Just, if you will, confine yourself to the `main` building.
+- Isn't that the� er� as you put it� `main` order of business?
+- We have partial `main` power... what is working around here?
+- They flood the house... by breaking through the water `main`!
+- Wormhole distortion has over- loaded `main` power systems...!
+- Yeah, it's tough when your cheek- bones are your `main` asset.
+- I'd say you've gotten on his `main` and central nerve, mcmanus.
+- Sir, we've had an unauthorized access into the `main` computer.
+- I thought i'd gotten off the `main`... we have twelve vacancies.
+- Entering the `main` tunnel - ten minutes to target - bore through.
+- Oh, bill... `main` justice is investigating a major new york bank.
+- Then we hit the center with our `main` force and cut them in half.
+- The captain of the containment crew is closing down the `main` lab.
+- The `main` word there, the file heading, translates as: treadstone.
+- I just have to run to the `main` house and give mr. peterson a check.
+                 

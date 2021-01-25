@@ -1,0 +1,107 @@
+---
+title: "sometime in a sentence | sometime example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sometime"
+---
+- Meet again, `sometime`.
+- `Sometime` in the night.
+- I'll tell you `sometime`.
+- You got to go `sometime`.
+- Bring him over `sometime`.
+- We gotta fight `sometime`.
+- You should play `sometime`.
+- You might try it `sometime`.
+- Maybe over coffee `sometime`.
+- `Sometime` yesterday morning.
+- You should try it `sometime`.
+- See you again `sometime` soon.
+- `Sometime`, but not like this.
+- We should go there `sometime`.
+- You gotta come out `sometime`!
+- You want to go out `sometime`?
+- Maybe we'll see you `sometime`.
+- Mayn't i come visit `sometime`?
+- We'll go to the zoo `sometime`.
+- I guess i'll see you `sometime`.
+- Try ruling the world `sometime`.
+- We should have lunch `sometime`.
+- He's bound to find out `sometime`.
+- I'll tell you about it `sometime`.
+- Maybe you can, `sometime`, daniel.
+- Well, we all got to go `sometime`.
+- We should take her out `sometime`.
+- Dela, you should try it `sometime`.
+- We should do that again `sometime`.
+- But i'll give you a call `sometime`.
+- But somebody has to move `sometime`.
+- I'd like to do your hair `sometime`.
+- I'll be over there `sometime` today.
+- I'll do the same for you `sometime`.
+- Stop and smell the roses `sometime`.
+- We'll go out to his home `sometime`.
+- Can i buy you dinner `sometime` soon?
+- Get to the point `sometime` tonight..
+- Got to finish this thesis `sometime`.
+- I'll have to come see you `sometime`.
+- Okay...that would be cool `sometime`.
+- `Sometime` in the late summer of '63.
+- But do stop by for a visit `sometime`!
+- Do you want her to join us `sometime`?
+- General -- we have to talk `sometime`!
+- I'll bring it over tomorrow `sometime`.
+- I've been feeling caged for `sometime`.
+- Maybe we could... get a bite `sometime`?
+- Wait until it happens to you `sometime`.
+- Baby, you've got to tell them `sometime`.
+- I would love to see you again `sometime`.
+- Maybe i'll see you again `sometime`, huh?
+- We'll go to the country `sometime`, okay?
+- Would you... maybe call round `sometime`?
+- ♪ happen `sometime` ♪ - _ i love you, mom.
+- I'll get wally to show me `sometime` then.
+- I wanna hit new york `sometime` this month.
+- Just remember to apologize `sometime` soon.
+- Were you... astronaut, `sometime` taxpayer.
+- Fine -- maybe i'll see you there `sometime`.
+- It gets, um... it gets so lonely `sometime`.
+- I hope we can talk together again `sometime`.
+- Those suns gotta come back <u>`sometime`</u>.
+- We were bound to get around to it `sometime`.
+- You should come over to the studio `sometime`.
+- We have to give him a day `sometime` next week.
+- You got to go out there by yourself `sometime`.
+- ...and shirly, let me sleep with her `sometime`.
+- It's gonna hit `sometime` on the 11th, i reckon.
+- It's gonna hit `sometime` on the 11th, i reckon.
+- Remind me `sometime` to regale you with my lear.
+- What about dinner `sometime`, when you get back?
+- Well, you're going to have to tell him, `sometime`!
+- Did i tell you that `sometime` in the last 24 hours?
+- It's too dangerous.... can i ride one `sometime`...?
+- But, it doesn't last, you have to go back `sometime`.
+- Well, i'll pay you that back `sometime`, mr. hillyer.
+- I said `sometime` it gets so... what'd you say, hon...?
+- You have to tell me what this was all about `sometime`.
+- And-and maybe, um...maybe we could discuss it `sometime`.
+- Maybe you should try it on your friend ronald `sometime`.
+- I met him `sometime` in june of '62 at the masquerade bar.
+- Maybe that means you'd have lunch with me `sometime` then.
+- Ray -- i'd like to get to the club `sometime` before dawn.
+- How do you know he won't wake up `sometime` and follow you.
+- Joel, you should come up to the charles with me `sometime`.
+- Look, you're going to have to start trusting me `sometime`.
+- Perhaps you could, uh, take me to an aa meeting `sometime`.
+- I wish something good would happen on the surface `sometime`.
+- It's always closed... we still have to go in there `sometime`.
+- I was hoping i could get a look at it `sometime` this weekend.
+- Yes - - and that he ought to be up and around `sometime` soon.
+- We're having the wedding `sometime` near the end of the summer.
+- We're going to have to sit down, and talk about that `sometime`.
+- ...everybody gotta die `sometime` red... get back to your foxhole.
+- Look, uh, i was thinking maybe we should go have dinner `sometime`.
+- If you don't mind, perhaps i could pay you another visit `sometime`.
+- It's a quality that might come in handy for a commercial `sometime`.
+- Well, perhaps `sometime` we... ...should love to correct your error.
+- I must take you to an emergency ward `sometime`--on a saturday night.
+                 

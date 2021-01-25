@@ -1,0 +1,83 @@
+---
+title: "maya in a sentence | maya example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "maya"
+---
+- `Maya`: for now, yeah.
+- `Maya` is on our side.
+- `Maya`: happy new year.
+- `Maya` was your friend.
+- Say, is `maya` working?
+- Don't talk about `maya`.
+- `Maya`'s in the kitchen.
+- I really like you, `maya`.
+- That almost killed `maya`.
+- About someone named `maya`.
+- `Maya` took out the cameras.
+- You know a gal named `maya`?
+- Just don't give up on `maya`.
+- `Maya`, give me the injector.
+- I never wanted to hurt `maya`.
+- `Maya` is eminently qualified.
+- You remind him of a... `maya`.
+- I wasn't thinking about `maya`.
+- Jasper saved your life, `maya`.
+- _ `maya`'s been heavily sedated.
+- `Maya`, you're kidding yourself.
+- 6... 5... what does `maya` think?
+- `Maya` can survive on the ground?
+- `Maya`: it's a glitch in my work.
+- `Maya`: what are we dealing with?
+- And about what happened to `maya`.
+- I never meant to hurt you, `maya`.
+- Where's jasper, monty, and `maya`?
+- `Maya`:...and chemically recode it.
+- You fucking told `maya`, didn't you?
+- Hey, i talked to `maya` this morning.
+- I know how you feel, `maya` vie, stop!
+- Well, they don't trust `maya` anymore.
+- `Maya`, you know how dangerous this is.
+- According to `maya`, why, you little...!
+- And `maya`'s numbers are still climbing.
+- `Maya` has something to say first anyway.
+- Don't you see how `maya`'s looking at you?
+- I understand how much `maya` meant to you.
+- You can't be too hard on yourself, `maya`.
+- Did you ever got ahold of `maya` yesterday?
+- `Maya`, we were just on our way to see you.
+- You sure you didn't say anything to `maya`?
+- Compared to what we saw with you and `maya`.
+- I think you're great, `maya` -- always have.
+- I've dealt with these people before, `maya`.
+- Don't worry...about the transformation, `maya`.
+- `Maya`'s decontaminating the surveillance room.
+- Hey, why don't you invite `maya` to the wedding?
+- After what happened to `maya`, - leave her alone.
+- Trey, everybody down there, including you `maya`.
+- _ `maya` has access to everything through her job.
+- Jasper, a warrior doesn't worry it's `maya`, right?
+- There's only 20 minutes of oxygen in `maya`'s suit.
+- [continues scraping] you lied about `maya`'s accident.
+- `Maya`, you were 5. if you don't care about the cause.
+- To the rightful commander, _ `maya`'s death broke him.
+- No negative effects on a woman's health in any way, `maya`?
+- I know, `maya`, but you'll understand when you see this man.
+- Just like he knew i'd do what had to be done to save `maya`.
+- If he's not better by then... how about getting me down, `maya`?
+- `Maya`, for the last time, i will not tolerate these obsessions.
+- `Maya` says that they're already using their blood, castle byers.
+- With the technology you have here, `maya` says he's in quarantine.
+- All the pink in the world can't disguise the irrefutable fact `maya`?
+- She called `maya`, who's not working tonight, so we're all going out.
+- What's `maya` going to think of me now just for associating with you?
+- `Maya`, top of the morning... hmm... seya, with all due respect, get up.
+- Somehow i don't think inviting `maya` to your wedding is the right move.
+- `Maya`'s blood through your system... life was a struggle for the simpson women.
+- This has been a big deal for me, `maya` -- hanging out with you, and last night.
+- About `maya` dying, you know, what i know - okay, um... - how does this even work?
+- `Maya` borrowed the schematics of the vent system i'm just trying to keep us alive.
+- Besides, you wouldn't want your favorite chess partner how about getting me down, `maya`?
+- Father jeremy and deacon john townsend of st. ursula's, and our associate, `maya` larkin.
+- Announcer: `maya`'s blood through your system... our only chance is if we fight together.
+                 

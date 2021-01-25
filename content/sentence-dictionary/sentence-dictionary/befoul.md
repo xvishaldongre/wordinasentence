@@ -1,0 +1,7 @@
+---
+title: "befoul in a sentence | befoul example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "befoul"
+---
+## Unfortunately, we have no example sentences for befoul                 

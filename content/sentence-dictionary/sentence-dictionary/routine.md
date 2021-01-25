@@ -1,0 +1,70 @@
+---
+title: "routine in a sentence | routine example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "routine"
+---
+- It's fairly `routine`.
+- It's `routine`, really.
+- `Routine` stuff really.
+- `Routine`, i assure you.
+- I don't have a `routine`.
+- Like i said, it's `routine`.
+- You said, "fairly `routine`."
+- Oh, just a `routine` mammogram.
+- It's a `routine`, like anything.
+- Just part of hospital `routine`.
+- Just a `routine` inspection tour.
+- Spare me the uncle tom `routine`.
+- I seem to recognize this `routine`.
+- The shit's as `routine` as you get.
+- Yeah, he said it was `routine` too.
+- I don't want to upset your `routine`.
+- I'm doing mommy's old skin `routine`.
+- This severe `routine` is getting old.
+- Unless this is part of the `routine`.
+- Save the mom `routine`, will ya grace.
+- Guy with a `routine` goes and breaks it?
+- Now it's two guys saying it's `routine`.
+- How do you know about my daily `routine`?
+- Meantime, we have to establish a `routine`.
+- This sort of thing will be daily `routine`.
+- Why don't we just cut this `routine` short?
+- How do you know about my daily `routine`?
+- Just like we thought, it's a `routine` problem.
+- Your daily `routine` � you know what's expected.
+- The "old mouth to mouth" resuscitation `routine`.
+- We should case the place, stick to the `routine`.
+- He's programmed to replicate your daily `routine`.
+- The sweep is just `routine`, not even police action.
+- Well, sire, i made some inquiries in a `routine` way.
+- A `routine` maintenance accident forced them to eject.
+- At first, it hardly seemed more than a `routine` fire.
+- The old "mouth-to-mouth" resuscitation `routine`, huh?
+- Let us, uh, stiffly resume our nice, regular `routine`.
+- I thought it was time for a `routine` maintenance check.
+- I did a `routine` once-over, and gave him a sleeping pill.
+- I ought to know my way around that light cycles `routine`...
+- The glib, cavalier `routine`, it really is an act, isn't it?
+- Look... alright, alright, enough with the boy scout `routine`.
+- I was hired in and started to do the boring old work `routine`.
+- ...`routine` calls, they have to click off after a few minutes.
+- But people do have bad dreams when their `routine` is disturbed.
+- It's just a fresh coat of paint on an old broken-down `routine`.
+- You never paid me for that tape with the indian dance `routine`.
+- I pulled the old mother `routine` -- well that just about does it!
+- Sometimes it's just `routine`, sometimes there's been a complaint.
+- Do you know what it is to be tired -- tired of a `routine` existence?
+- Purely as a matter of `routine`, i want to ask the name of your bank.
+- Lornette mason here is just completing our `routine` driver evaluation.
+- You've lied to me twice - i'm sorry, but it will be strictly `routine`.
+- Her majesty's `routine` at osborne house is not as you will remember it.
+- Dad's like doing his up with people `routine`, mom hasn't been saying much.
+- Dr. chilton, i told you - this is just `routine` follow-up on the raspail case.
+- Now take the forceps, and remember, vincent, what we're doing here is `routine`.
+- You guy came up an the computer, so as a matt- er of `routine` we have to check.
+- That's why you need to lead these people god, here comes the oliver twist `routine`.
+- Before your parents to perform `routine` ship maintenance he's not one with the primes.
+- He didn't say it was a "`routine` check-up," he said it was a "`routine` <u>precaution</u>."
+- You were out running this morning, sticking to your `routine`, anybody happened to notice.
+                 

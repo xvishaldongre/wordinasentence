@@ -1,0 +1,72 @@
+---
+title: "location in a sentence | location example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "location"
+---
+- I'm at the `location`.
+- I found the `location`.
+- What's your `location`?
+- Hopefully, a `location`.
+- En `location`, cinq cent.
+- Dell, plot our `location`.
+- `Location` for evacuation.
+- `Location` still uncertain.
+- I was at the old `location`.
+- `Location` was the other half.
+- _ can you confirm a `location`?
+- I can't make out my `location`.
+- I need to know your `location`.
+- Meet me at the other `location`.
+- She goes on `location` tomorrow.
+- I repeat, what's your `location`?
+- It's not a geographical `location`.
+- Maybe we can change our `location`.
+- What's the `location` of the village?
+- It can't pinpoint the exact `location`.
+- Your assigned `location` for evacuation.
+- Mom's `location` shifts, and we lose her.
+- Any word on the `location` of the strodes?
+- I had this idea of shooting on `location`.
+- Make your way to your assigned `location`.
+- I have confirmed the `location`, sir, but...
+- I...i don't know... what is your `location`?
+- Tess, i have your `location`, i can find you.
+- I got the `location` on pym, van dyne and lang.
+- The `location` is the parking structure at lax.
+- Bellamy's out scouting a `location` as we speak.
+- See if they've got the 411 on santa's `location`.
+- I've got the `location` on pym, van dyne, and lang.
+- Honestly, i wasn't on `location` for half this stuff.
+- I need a `location`... behave, and don't get beat up.
+- They're on `location` in arizona, shooting a western.
+- Madison lives two blocks from their present `location`.
+- ♪ it's almost time to go ♪ can you confirm a `location`?
+- Our present `location` seems to be only halfway to irth.
+- They are moving the trial to a high security `location`.
+- Make your way to your assigned `location` for evacuation.
+- But you said the other -- bring it to the other `location`.
+- There is a shuttlebay 948 meters from our current `location`.
+- I now know the `location` of your entire fleet ... you may go.
+- Then send a protection team as soon as we lock the `location`.
+- We believe she's our surest and quickest way of `location` him.
+- If i can discover the `location` i'll call you -- he's a psycho!
+- I prefer to have the sucker die at a more convenient `location`.
+- Signal starfleet that... we have no idea `location` of enterprise.
+- We can send in a plant -- try to get pollux to spill the `location`.
+- This <i>is</i> the most likely `location`-- we're in the wrong place.
+- Start a `location` run and a contact search for future victim leo crow.
+- We don't have much time before mom's `location` shifts and we lose her.
+- I'm picking up trace life forms, but i can't get a lock on the `location`.
+- Sir, i strongly recommend we move you to a secured `location` immediately.
+- He's showing me the `location` of the key the first ship lands in two days.
+- Don't worry, we moved the bridge to a strategically advantageous `location`.
+- [he called me on the cell phone to set a time and `location` for the switch.]
+- By the earth, by the secrets it hides, it can't pinpoint the exact `location`.
+- I simply chose an advisable `location` to await my client's delinquent husband.
+- If we can pinpoint my mom's `location`, then the pod can take me down to get her.
+- That man last night--the one that followed me-- it sounds like a fair `location`.
+- Tracks your `location` to the inch and works directly with--you know... oh my god.
+- You said you knew the `location` of the archeological site where these were found.
+- There's a map in the packet and a note requesting you be discrete about the `location`.
+                 

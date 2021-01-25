@@ -1,0 +1,107 @@
+---
+title: "lawyer in a sentence | lawyer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lawyer"
+---
+- I'm seeing a `lawyer`.
+- My `lawyer` was a bum.
+- Take it to a `lawyer`!
+- He's your `lawyer` too.
+- My `lawyer`, tom hagen.
+- Speak with my `lawyer`.
+- Are you a good `lawyer`?
+- How's the `lawyer` life?
+- I must be your `lawyer`.
+- What about his `lawyer`?
+- You got a good `lawyer`?
+- You're like, a `lawyer`.
+- Her `lawyer` was driving.
+- I recognize his `lawyer`.
+- We'll talk to a `lawyer`!
+- Why do i need a `lawyer`?
+- Grayson - anne's `lawyer`.
+- "hire a `lawyer`," i said.
+- I'm an excellent `lawyer`.
+- I think i need a `lawyer`.
+- Mr. woltz, i'm a `lawyer`.
+- Well, you're the `lawyer`.
+- You don't need a `lawyer`.
+- You like being a `lawyer`?
+- He didn't have my `lawyer`.
+- Or i call another `lawyer`.
+- There was a `lawyer` there.
+- What does the `lawyer` say?
+- Why do you need a `lawyer`?
+- Yeah, the fucking `lawyer`.
+- Miguel will need a `lawyer`.
+- You and mom have a `lawyer`?
+- My ex-husband was a `lawyer`.
+- We're getting you a `lawyer`.
+- I am homer's liar... `lawyer`.
+- I need a `lawyer` immediately!
+- What does your `lawyer` think?
+- What's this `lawyer` business?
+- 'cause you're a labor `lawyer`.
+- I don't need no `lawyer`, do i?
+- I know a good probate `lawyer`.
+- I want a fucking `lawyer`, man.
+- Then do it through my `lawyer`!
+- What have i got a `lawyer` for?
+- After him i picked the `lawyer`.
+- Then try talking to my `lawyer`.
+- You know my `lawyer`, tom hagen.
+- Are you my `lawyer` or theirs?...
+- I'll bet the `lawyer` loved that.
+- You better make it your `lawyer`.
+- He tried to get oswald a `lawyer`.
+- That's what makes a good `lawyer`.
+- I'm his `lawyer` -- he's my client.
+- Let me guess, you're a... `lawyer`.
+- Oh, and jake, your `lawyer` called.
+- That's what makes a great `lawyer`.
+- We should get ourselves a `lawyer`.
+- You couldn't hack it as a `lawyer`.
+- You'll be hearing from my `lawyer`!
+- He's gonna be our `lawyer` in vegas.
+- I got a custody `lawyer` in concord.
+- I want to talk to a goddam `lawyer`.
+- Kalmbach--nixon's personal `lawyer`.
+- China `lawyer`, doctor, i don't care.
+- Did you always want to be a `lawyer`?
+- I was thinking of getting a `lawyer`.
+- Local `lawyer` for dominican dealers.
+- The `lawyer` -- i'm going to see him.
+- What makes you an excellent `lawyer`?
+- I don't need a cause, just a `lawyer`.
+- I said i wanted to talk to a `lawyer`.
+- Look, my cousin maynard is a `lawyer`.
+- My `lawyer` went over this beforehand.
+- So, you're really gonna be a `lawyer`?
+- Yeah, man, my manager and my `lawyer`.
+- You're going to make a great `lawyer`.
+- For chrissake, bernie, your `lawyer`...
+- He's going to be our `lawyer` in vegas.
+- I could try and get a western `lawyer`.
+- I said, "hire yourself a damn `lawyer`.
+- This is my `lawyer`, samuel sutherland.
+- You tell argon he can call my `lawyer`.
+- But they'll have to bring in a `lawyer`.
+- Have you always wanted to be a `lawyer`?
+- I'm done talking until i get a `lawyer`.
+- They wouldn't hire a goddamned `lawyer`.
+- But i never got help from any `lawyer`...
+- The `lawyer` can't tell nothing he hears?
+- Aw, c'mon, vick -- i got a `lawyer`, jake.
+- It's a letter from that `lawyer`, koehler.
+- Their child died, and they got a `lawyer`.
+- The job got thrown to me by this `lawyer`.
+- Don't forget the meeting with the `lawyer`.
+- He was the biggest defense `lawyer` around.
+- I don't think a `lawyer` will be necessary.
+- If you want to, you can call your `lawyer`.
+- The `lawyer`; questadt, he belongs to roth.
+- Why do you think i can't afford a `lawyer`?
+- You've gone and got yourself this `lawyer`.
+- He seemed like a pretty good `lawyer` to me.
+                 

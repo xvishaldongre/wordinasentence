@@ -1,0 +1,53 @@
+---
+title: "cow in a sentence | cow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cow"
+---
+- That's a `cow`, harry.
+- Sort of ... holy `cow`.
+- Don't have a lady `cow`.
+- But this is not a happy `cow`.
+- I'll drop a `cow` on the knave!
+- Just think of it as a big `cow`!
+- Just think of it as a big `cow`.
+- You swing like an impotent `cow`!
+- Don't forget to lift up the `cow`.
+- She's worried about the `cow` now.
+- The `cow` says... for all mankind.
+- It's a `cow`, but a very smart one.
+- So he drags the `cow` backwards here.
+- Some, i guess, but mos'ly `cow` bones.
+- Holy `cow`, i don't gotta know nothing.
+- I've never been on a `cow` farm before.
+- My sister megan, she's a big fat `cow`.
+- I... you fucking `cow`, can't you read?!
+- Said i speak french like a spanish `cow`.
+- The milk `cow` of the aerospace industry.
+- Try to make him some `cow` tea next time.
+- You can't take a `cow` by eminent domain.
+- Well, who told me to take this `cow` path?
+- Anyway, i have bled that `cow` enough paul.
+- We've got a `cow` hanging from a helicopter.
+- ♪ and on his farm he had a `cow` ♪ hey, buddy.
+- The little `cow` is insane -- wallace himself.
+- On a balance i reckon i'd choose being a `cow`.
+- The silver cat feeds, maybe he's sick of `cow`.
+- Try taking a left after the next `cow` pasture.
+- Do you know how much a `cow` costs, comrade iranoff?
+- Wouldn't touch 'em for all the `cow` shit in mexico.
+- Like if i was to hamstring one of their `cow` ponies.
+- Theo henry had two of his fingers bit off by his `cow`.
+- You can't make a hamburger without chopping up a `cow`.
+- You think them boots you got on come from a black `cow`?
+- Here comes the `cow` ca-ca.... who grows more beautiful....
+- Okay, so, what kind of `cow` would you like your milk from?
+- If you just say hello to a lawyer... well, there goes another `cow`.
+- We got one of them fuckers, sheriff, out by `cow` creek, we... nope.
+- If he gets close, you go <u>up</u>, hector, don't you endanger that `cow`.
+- My liquid hijack marlboros and the moon and the `cow` that jumped over it.
+- Is it true that gene simmons had a `cow`'s tongue grafted onto his real one?
+- But feed one little `cow` to a crocodile... nobody <u>lives</u> on this lake.
+- The young bull says, 'hey, why don't we run down the hill and shag us a `cow`?
+- "hang a left at the first `cow` patty, then make a right when you see porky pig".
+                 

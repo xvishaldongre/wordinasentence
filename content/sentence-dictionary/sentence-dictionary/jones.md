@@ -1,0 +1,86 @@
+---
+title: "jones in a sentence | jones example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jones"
+---
+- I'm detective `jones`.
+- `Jones`: we're here!
+- Special agent `jones`.
+- You will, dr. `jones`.
+- Certainly, mr. `jones`!
+- You mean cuervo `jones`?
+- Get me to cuervo `jones`.
+- What do you say, `jones`?
+- My name's indiana `jones`.
+- Miss lady `jones`..anybody.
+- So, it is true, dr. `jones`?
+- You remember alyssa `jones`?
+- Are all of you named `jones`?
+- Eternal life, doctor `jones`!
+- Where's... cuervo `jones`...?
+- Cuervo `jones`' right-hand man.
+- Dr. `jones` -- i want nurhachi.
+- The holy grail, doctor `jones`.
+- Who will speak for iris `jones`?
+- My name is special agent `jones`.
+- Not "supposedly," doctor `jones`.
+- You know something, doctor `jones`?
+- I ain't, goddamnit...it's `jones`!..
+- I don't want any `jones` about this.
+- Yes... nobody leaves cuervo `jones`.
+- `Jones`: they're coming to help us.
+- Where's my father no, doctor `jones`.
+- You don't disappoint, doctor `jones`.
+- `Jones` and swoboda scored in the 8th.
+- Exactly what we have here, dr. `jones`.
+- You did good... `jones`...come with me.
+- Marsco went belly-up on the dow `jones`.
+- Cuervo `jones` wants to unify the island.
+- Coates and `jones` got charges a mile long.
+- This is a different situation, dr. `jones`.
+- I might as well be rowan smith - or `jones`!
+- You've got the wrong `jones`, mister donovan.
+- Colonel `jones` thinks it advisable we attend.
+- Like 'smith' or '`jones` --' what do you mean?
+- Sure you have, only as 'spearchucker' `jones`.
+- Cleon `jones` is gonna get hit in the foot.
+- `Jones` and swoboda are gonna score in the 8th.
+- Cuervo `jones` has more firepower than two armies.
+- You are in no position to give orders, dr. `jones`.
+- Your "jim `jones` kool- aid" that was exactly that?
+- If you don't let go, doctor `jones`, we'll both die.
+- Dr. `jones`, we are all vulnerable to vicious rumors.
+- You never told me you spoke my language, dr. `jones`.
+- Did you discover anything in that tunnel, dr. `jones`?
+- I think that's enough of this nonsense, dr. `jones`...
+- Schulz, the beast of bavaria versus halitosis `jones`!
+- Didn't i warn you not to trust anybody, doctor `jones`?
+- Let me tell you another "bedtime story," doctor `jones`.
+- Number one... "janie `jones`," the clash, from the clash.
+- Real name is sally `jones` or something wooden like that.
+- Although i was going to take you to cuervo `jones`' place.
+- One vinyl recording album: tom `jones`, live at las vegas.
+- You want to stay here, while cuervo `jones` rules the world?
+- Yeah, i got a urgent message for a customer named william `jones`.
+- Cleon `jones` gets hit on the foot - left a scuff mark on the ball.
+- John paul `jones`... you don't understand a thing, do you, admiral?
+- Well, they're kind of busy but it doesn't look like ... tom `jones`?
+- Dr. `jones`, in our country a guest does not usually insult his host.
+- `Jones` had to flee the scene before we could locate the second body.
+- Well, like yourself, doctor `jones`, i have a passion for antiquities.
+- Five minutes... you'll be back over here in five minutes... dr. `jones`?
+- Maybe... is that what you're hoping to find at this palace, dr. `jones`?
+- The navy has been running blockades since the days of john paul `jones`.
+- Pizza, and i been `jones`-in' for a pizza ever since we left st. bernard's.
+- There were a few guys in my class with names like john smith, bill `jones`.
+- They've got short round and i think indy's been -- `jones` isn't in his room.
+- If you're trying to seduce me, dr. `jones`, this is a very primitive approach.
+- The situation is, my man cameron here has a major `jones` for bianca stratford.
+- Listen, this is all too indiana `jones` and the lost city of king tut for me, man.
+- Hello, mrs. mathews, my name's thomas `jones`, i'm a state licensed investigator...
+- Maybe he was a stockbroker who looked at the dow `jones` and opted for early retirement!
+- Dr. `jones`, you know very well that the thuggee cult has been dead for nearly a century.
+- You gonna call over there and say you have a very urgent message for mr. william `jones`.
+- On my word i will pull this trigger, and sink all the way down to davy `jones`' locker!
+                 

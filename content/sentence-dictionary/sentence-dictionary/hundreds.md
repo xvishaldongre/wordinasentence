@@ -1,0 +1,74 @@
+---
+title: "hundreds in a sentence | hundreds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hundreds"
+---
+- Not `hundreds` of them!
+- Yes, `hundreds` of them.
+- All i have is `hundreds`.
+- There's `hundreds` of 'em.
+- There's `hundreds` of them.
+- ere’s `hundreds` of them!
+- He killed <i>`hundreds`</i>.
+- `Hundreds`, thousands of roses.
+- I've killed `hundreds` of women.
+- I've made `hundreds`, thousands.
+- Said he pulled `hundreds` of jobs.
+- It was all in `hundreds`, wasn't it?
+- She was raped...`hundreds` of times.
+- `Hundreds` of your people get off me!
+- I seen `hundreds` of them - all my life.
+- Must be `hundreds` of these skeletons here.
+- `Hundreds` of your people meet planet alpha.
+- Putting `hundreds` of innocent people in jail.
+- Years ago, `hundreds` of ships went down here.
+- _ and they had no idea - `hundreds` of millions.
+- Even if we could kill `hundreds`, i tap, you do.
+- After `hundreds` of years, it has returned to us.
+- What about all the other `hundreds` of prisoners?
+- I spent `hundreds` of thousands of dollars on her.
+- That lab is swarming with `hundreds` of those dogs.
+- That would leave one exit for `hundreds` of people.
+- But `hundreds` of thousands of people will carel oh.
+- Our little acre alone'll net `hundreds` a thousands.
+- We're `hundreds` of miles from where you have to be.
+- He killed at least fifty men, wounded `hundreds` more.
+- He slaughtered `hundreds` of termites single-handedly!
+- We're talking about taking one life to save `hundreds`.
+- Why do moths fly `hundreds` of miles to find their mates?
+- Now you said there were `hundreds` of grounders attacking.
+- There are `hundreds` of kilometers of tunnels under paris.
+- There are `hundreds` of them on shelves around the office.
+- You don't know six `hundreds` plaintiffs' numbers by heart.
+- All this talk about the lamas being `hundreds` of years old.
+- Gold leaf, art nouveau, french, early nineteen `hundreds`...
+- We fill it with monkeybone dolls - <u>`hundreds`</u> of 'em.
+- Mister sanderson, they'll be `hundreds` of thousands of games.
+- And we're already talking about murdering `hundreds` of people.
+- I'm sure you have `hundreds` of guys who are interested in you.
+- You'd have to travel `hundreds` of miles through the wilderness.
+- The cloth -- the buttons -- it looks to be mid sixteen `hundreds`.
+- If we're gonna kill `hundreds` of innocent people, does make sense.
+- Well, so do `hundreds` of others, but still, you might get lucky oh.
+- Who would send a probe `hundreds` of light years to talk to a whale?
+- It gives us direct access to literally `hundreds` of american collages.
+- Listen, cookie, i've been trapped in this burg for `hundreds` of years.
+- `Hundreds` of your people you should have killed me on that battlefield.
+- That's a great story, they came at me from all sides, `hundreds` of 'em.
+- From what we can tell, there are `hundreds` of agents, all over the city.
+- You see, `hundreds` and `hundreds` of years ago the moors conquered sicily.
+- It would take `hundreds` of human brains to supply what's in these fibers.
+- They rejected this, murdering `hundreds` of your people, we got 10 people.
+- Domingo was a slinger, he must have sold to `hundreds` of different people.
+- We spent `hundreds` of thousands of dollars--i was going to make her a star.
+- Here -- -- is just `hundreds` and `hundreds` of miles of cheap desert land.
+- These guys can hatch `hundreds` of offspring in a single clutch of eggs, right?
+- Dr. woodly says he's seen `hundreds` of children permanently injured by football.
+- She murdered `hundreds` of innocent people, what the temperature is in cupertino.
+- From every corner of europe, `hundreds`, thousands, would rise to take our places.
+- I'm responsible for keeping track of `hundreds`, occasionally thousands of dollars.
+- An upgrade for a computer program they killed `hundreds` of our people in that gorge.
+- `Hundreds` are still refusing to come out of the bunker, we don't know what it means.
+- It would take a carefully organized plan, tons of combustibles and `hundreds` of people.
+                 

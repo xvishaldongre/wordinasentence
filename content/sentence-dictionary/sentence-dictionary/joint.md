@@ -1,0 +1,86 @@
+---
+title: "joint in a sentence | joint example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "joint"
+---
+- `Joint`'s pretty dead.
+- We�ll smoke a `joint`.
+- The war in the `joint`.
+- A `joint` interview, eh?
+- I don't run the `joint`.
+- This calls for a `joint`.
+- Anybody know this `joint`?
+- Kids like `joint` custody.
+- They put me in the `joint`.
+- You won't open any `joint`.
+- Leavenworth a tough `joint`?
+- The `joint`'s not open, mac.
+- This is a `joint` operation.
+- Man, i wanna smoke a `joint`.
+- They're all over the `joint`.
+- I though you ran this `joint`.
+- I was in the `joint` with him!
+- Grandma dodi's pork rib `joint`.
+- With half the men in the `joint`.
+- You can't roll a `joint` in here!
+- I just wanna run a square `joint`.
+- Damn nigga, don't jack the `joint`.
+- I'm not running any bookie `joint`.
+- There's always wars in the `joint`.
+- We can't afford to rank the `joint`.
+- Lot of cons helped me in the `joint`.
+- What kind of `joint` are you running?
+- All right, charlie - this the `joint`?
+- The `joint` is crawling with cops now.
+- Every cabby in town knows this `joint`.
+- How's my credit in this `joint` anyway?
+- It's a `joint` interagency task force.
+- Shit, head of the `joint` chiefs of staff.
+- Busted out of some `joint` in florida, huh?
+- What do you do in the `joint` besides pimp?
+- I told her to chill out and smoke a `joint`.
+- To limit `joint` fatigue and tracking error.
+- Come on, spats - we know you own this `joint`.
+- Check please.... wow, you were "in the `joint`."
+- I can't believe you just rolled a `joint` in here.
+- Five years in the `joint` -- that's it for me, man.
+- Oh, come on, anyone in this `joint` pee your pants?
+- Folks around this `joint` love surprise inspections.
+- We cut loose to your `joint` interagency task force.
+- Well, listen, uh... good luck with the `joint`, huh?
+- What would you say to giving them a `joint` interview?
+- I'm trying to organize a boycott of sal's pizza `joint`.
+- You need five years training to handle a `joint` like...
+- Jesus the whole `joint` is half the size of rhode island.
+- I spoke with the `joint` chief when they arrived at norad.
+- You didn't call the sandwich `joint` with a urgent message?
+- Cause i was a code talker in the `joint` and in the war too.
+- So what you doin' with a cat like me in a `joint` like this?
+- Better bring the check now - in case the `joint` gets raided.
+- How 'bout... yo, big black, we needs a name for this `joint`.
+- The blue ox, that's that trucker's `joint` out there on i-35?
+- This magnolia is leaving your sweet smelling vanilla `joint`.
+- You need to get your `joint` worked on, that's what you need.
+- Sal -- i don't know where i'm gonna find a pizza `joint` open.
+- I figure this is it, twenty years in the `joint`, if i'm lucky.
+- One minute you lost your eyes in vietnam, next it's the `joint`.
+- Deltoid makes a grab for alex's `joint` but finds his hand instead.
+- I'm talking about old satchmo nearly blew the roof off the `joint`.
+- Smoke the rest of that `joint`, james, and you can start on the box.
+- He left here about an hour ago and went down to dude finlay's `joint`.
+- They wanted me to make sure none of the other crews robbed the `joint`.
+- A couple eggs and a beer is cheaper than keepin' a dog around the `joint`.
+- Brooks, what's a perceptive fellow like you, doing in a `joint` like this?
+- Somebody sends out a tip that this guy is hiding in molly malloy's `joint`.
+- Say 'the `joint` chiefs are meeting -- we have george weln at the pentagon'.
+- Yes, i do, my fr...it's not me that ripped the `joint` off, i'm doing business.
+- The only other employment you found was in a fast-food `joint`-- -- which lasted.
+- I hear the health department is going to close this `joint` for selling dirty beer.
+- I remember when they raided the gambling `joint` - you know a safe way out... part?
+- General, the `joint` chiefs have just signaled our intent to escalate to the soviets.
+- But there's something cockeyed about that `joint` and i'm going to find out what it is.
+- I feel like a mole in this `joint`, so i guess i might as well come out lookin' like one!
+- I'm usta seein' ya at the gym, but seein' ya here, in my house, it's kinda outta `joint`.
+- The rabbit's wife sings at an underground toon revue `joint` called the ink & paint club.
+                 

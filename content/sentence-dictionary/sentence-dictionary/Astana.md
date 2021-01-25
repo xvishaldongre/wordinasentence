@@ -1,0 +1,7 @@
+---
+title: "Astana in a sentence | Astana example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Astana"
+---
+## Unfortunately, we have no example sentences for Astana                 

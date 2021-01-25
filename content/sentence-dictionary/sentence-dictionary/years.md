@@ -1,0 +1,107 @@
+---
+title: "years in a sentence | years example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "years"
+---
+- Eight `years`, though.
+- Fifteen `years`, yeah.
+- Five `years` from now.
+- Five `years`, i think.
+- Had some good `years`.
+- He's nine `years` old.
+- I'm three `years` old.
+- I thought ten `years`.
+- It's been six `years`.
+- It's been two `years`.
+- It would take `years`.
+- I was six `years` old!
+- I was ten `years` old.
+- Like, ten `years` ago.
+- More than ten `years`.
+- Not for a few `years`.
+- Not for seven `years`.
+- Right, twelve `years`.
+- Seventeen `years` old.
+- Twenty `years`, ma ...
+- You're `years` away...
+- About five `years` ago.
+- A couple of... `years`.
+- Buried 400 `years`?
+- Beyond those 5 `years`.
+- Fifteen `years`, frank.
+- I was here six `years`.
+- Maybe five `years` old?
+- Over forty `years` now.
+- See you in ten `years`.
+- Sixty-five `years` ago.
+- Tommy got four `years`.
+- Twenty-two `years` ago.
+- Two `years` ago, buddy.
+- Two `years` of surgery.
+- Watched it for `years`.
+- Yeah, four `years` ago.
+- You're 15 `years` old!!
+- 230 `years` of memories.
+- After all these `years`!
+- Been there four `years`.
+- Every day for 6 `years`.
+- Five or six `years` ago.
+- ...for ten `years`, now.
+- He died two `years` ago.
+- I'm sixteen `years` old.
+- It's been a few `years`.
+- "it's been five `years`.
+- Of five to ten `years`.
+- Twenty-four `years` ago.
+- Two hundred `years` old.
+- 6 `years` is a long time.
+- About two `years` before.
+- Almost fifty `years` ago.
+- 'bout a thousand `years`.
+- Four hundred `years` old.
+- He was 25 `years` old ...
+- I don't have two `years`.
+- I got five `years` older.
+- I'm fourteen `years` old!
+- I'm only ten `years` old.
+- I spent two `years` here.
+- It only took six `years`.
+- I've had that 15 `years`!
+- I was eleven `years` old.
+- Nine `years` in the army.
+- Nine `years`, just about.
+- Not in a billion `years`.
+- On the ark in 50 `years`.
+- See you in three `years`.
+- Seven, eight `years` ago?
+- Seven `years` to the day.
+- That was two `years` ago.
+- Thirty `years` of misery.
+- Twelve `years` in prison?
+- Twenty eight `years` ago.
+- Two long fucking `years`.
+- Two or three `years` ago.
+- Waitin' eighteen `years`?
+- We drilled for 5 `years`.
+- You were ten `years` old.
+- ...about five `years` now.
+- Another five `years`, huh?
+- Around twenty `years` old.
+- Don't give me six `years`!
+- Five `years` ago, we lost.
+- Five `years` in sing sing.
+- For the last four `years`.
+- For three hundred `years`.
+- He was killed `years` ago.
+- I knew the man 20 `years`.
+- I lost my arm `years` ago.
+- I'm seventeen `years` old!
+- In 76 `years`, me neither.
+- In over a hundred `years`.
+- I was here for 20 `years`.
+- Jesus, is it five `years`?
+- More than 800,000 `years`.
+- No pictures-- two `years`.
+- Not in a thousand `years`.
+                 

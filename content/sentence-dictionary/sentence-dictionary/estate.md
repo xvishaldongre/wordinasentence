@@ -1,0 +1,61 @@
+---
+title: "estate in a sentence | estate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "estate"
+---
+- At the marino `estate`.
+- Me and my real `estate`?
+- Who can run the `estate`?
+- They can have the `estate`.
+- You and your real `estate`.
+- It was my first real `estate` deal.
+- "you need a new real `estate` agent."
+- How long until we get to his `estate`?
+- It must be from a real `estate` agent.
+- She has a legal claim on the `estate`.
+- He owned the `estate` they lived on ...
+- This real `estate`'s about to go buggy.
+- What's going to happen to the `estate`?
+- We'll just be hitting empty real `estate`.
+- The `estate` will provide for your journey.
+- The real `estate` possibilities are endless.
+- The `estate` stuff is pretty straight forward.
+- You do a lot of real `estate` trading, brandon?
+- I've been dealing with that real `estate` thing.
+- You're in town, you're looking at real `estate`.
+- God's real `estate` holdings and tax-free status.
+- His kids are all suing each other over his `estate`.
+- Cooperate and they will be returned to your `estate`.
+- He's an `estate` attorney -- and he's very expensive.
+- I do, uh, probate, real `estate`, title search, uh...
+- The, uh, cynthia branson `estate` was worth how much?
+- Mrs. semple is entitled to one- third of the `estate`.
+- No sign of them yet; but they're still on the `estate`.
+- The real `estate` lady left, she couldn't wait anymore.
+- Real `estate` isn't a bad game such as it is around here.
+- The money in the `estate` was enough to cover your costs?
+- What would joanne braslow need with an `estate` attorney?
+- I had these ideas about how we might progress the `estate`.
+- We've been flying over his `estate` for the past two hours.
+- Mrs. semple is entitled by law to one-third of the `estate`.
+- Or possibly your land, your `estate`, your title, your seat.
+- That was so i could collect her eight million dollar `estate`.
+- The archdiocese called, they want to settle... her `estate`...
+- The archdiocese called, they want to settle ... her `estate` ...
+- A lawyer representing some woman with a claim against the `estate`.
+- From there, caesar has decreed you be given an `estate` in paestum.
+- I know it's not your area... we proceed, representing your `estate`.
+- The men who tried to kill me tonight, will never leave the `estate`.
+- Who stands to gain the `estate` with your father dead and if you die?
+- For a little business meeting -- to settle the `estate` of your late wife.
+- If they got arrested and executed, all their `estate` went to the emperor.
+- You were partners with him on some slag -- uh, newcomer real `estate` thing.
+- Coppers figured he laundered money for the mob before getting into real `estate`.
+- They've got their claws sunk into everything -- finance, real `estate`, politics.
+- Well, well... that monkey and that monkey's `estate` from the children of gabriel.
+- ... we're with franklin, jennings and roberts, the law firm handling the `estate`.
+- We own a construction concern, real `estate` -- even if i knew i wouldn't tell you.
+- I'll sell real `estate`, i don't care,,, but i thought... aren't we changing things?
+- Now all this -- -- west of the fault is the most expensive real `estate` in the world.
+                 

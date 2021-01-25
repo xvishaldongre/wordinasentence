@@ -1,0 +1,55 @@
+---
+title: "enjoying in a sentence | enjoying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "enjoying"
+---
+- `Enjoying` your visit?
+- `Enjoying` the sunshine?
+- `Enjoying` your reading?
+- I am merely `enjoying` it.
+- I'm `enjoying` it, though.
+- `Enjoying` our hospitality?
+- `Enjoying` the tour so far?
+- Are you `enjoying` yourself?
+- I hope you're `enjoying` it.
+- 'cause i'm `enjoying` myself.
+- No, just `enjoying` the view.
+- `Enjoying` the concert so far?
+- You `enjoying` yourself, karl?
+- Oh, she's really `enjoying` it.
+- You're `enjoying` this too much.
+- But they're `enjoying` themselves.
+- You're `enjoying` this, aren't you?
+- I was thoroughly `enjoying` by book.
+- I hear you're not `enjoying` it here.
+- I hope you're `enjoying` the capital.
+- I'm glad i was quite `enjoying` that.
+- Pretend you're `enjoying` the thighs.
+- Quiet evening `enjoying` his new digs.
+- I'd say you're already `enjoying` some.
+- I thought you were `enjoying` yourself?
+- Thanks -- i'm `enjoying` it right here.
+- But i don't want to go, i am `enjoying` it.
+- I hope you're `enjoying` your chicken, ted.
+- I'm `enjoying` my visit with you very much.
+- You don't like to see me `enjoying` myself.
+- Thanks, but i was `enjoying` that dependency.
+- Alvy, you are totally incapable of `enjoying` life.
+- I stay here `enjoying` my schnapps and you go back.
+- It's great to see a woman really `enjoying` her food.
+- Well, how are you `enjoying` your first day on the job?
+- "my dear regina: i hope you are `enjoying` your holiday.
+- Alvy, you're incapable of `enjoying` life, you know that?
+- How is your gold digging whore of a mother `enjoying` bali?
+- This is one job i'm not going to feel guilty about `enjoying`.
+- Tasting and `enjoying` life is the only thing of value we have.
+- We should backtrack... are you `enjoying` the honeymoon planet?
+- The viceroy seems to be `enjoying` a good share of his resources.
+- It shows a banquet in progress, the guests are `enjoying` raw oysters.
+- Um...chris -- just `enjoying` my exhilarating first lacrosse experience.
+- Listen, buddy, i'm really `enjoying` this relationship we got going here.
+- He's out there `enjoying` his golden years, probably wondering where you are.
+- Are you `enjoying` yourself, harry, because i don't know what the hell you're doing.
+- You know, you sound just like a boy who's never-- and i'm talking about `enjoying` myself.
+                 

@@ -1,0 +1,107 @@
+---
+title: "trade in a sentence | trade example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trade"
+---
+- Look, i'll `trade` you.
+- Then we `trade` places.
+- I say we work a `trade`.
+- It's an unusual `trade`.
+- `Trade` fucking secrets.
+- Not `trade`, not defense.
+- `Trade`, your excellency.
+- Anyone wanna `trade` jobs?
+- I'm in a desirable `trade`.
+- `Trade` skills and hobbies.
+- Director of the `trade` mart?
+- Like the first part of `trade`.
+- We don't `trade` lives, vision.
+- We don't `trade` lives, captain.
+- I said poker's an honest `trade`.
+- Like the first part of a `trade`.
+- Where did you learn your `trade`.
+- We `trade`; vig for that tape.
+- I gotta think... `trade` for what?
+- I brought these walnuts to `trade`.
+- You meant -- like a `trade` secret?
+- We need to make the `trade` tomorrow.
+- I'm in the textile `trade` and i know.
+- Only maybe i `trade` a little sharper.
+- Can't `trade` my head in for a new one.
+- For control of the prison drug `trade`?
+- I'll `trade` you my porsche for debbie.
+- Okay, look, we're gonna make a `trade`.
+- Pink" is no big deal, you wanna `trade`?
+- Russell came around on the `trade` bill.
+- Can i `trade` in my car and take another?
+- My people know you didn't `trade` for me.
+- But to go to war over `trade`, over money?
+- We'll need a hostage to `trade` for monty.
+-  we're in the middle of a `trade` meeting!
+- Why did you `trade` a bishop for a knight?
+- After the game, we're going to `trade`.
+- I wouldn't `trade` ya for a brass spittoon!
+- Save you, `trade` my drive for your people.
+- So this was earlier: gettin set to `trade`.
+- We will `trade` as the white man trades.
+- ...are you going to `trade` all night again?
+- Commissar razinin, board of `trade`, moscow.
+- Most of our `trade` is, well ... unofficial.
+- Opening `trade` routes, getting clarke back.
+- You can't go plyin' your `trade` in my camp.
+- That used to be my `trade` from time to time.
+- This is just junk i have for sale or `trade`.
+- But patsy's shop, that's a specialized `trade`.
+- How'd you like to `trade` it for a broken neck?
+- You had a good `trade`, you made a good living.
+- Maybe i'll `trade` you in for the younger model?
+- Tell me again, why did i `trade` flanders for you?
+- Didn't you always say gambling's an honest `trade`?
+- He'll `trade` the krauts for a six-burner gas range.
+- I think my guest might be a sharpshooter by `trade`.
+- Ny superiors: will allow me to make the `trade` now.
+- Smuggling is an ancient and respected `trade` there.
+- It's mostly farming stuff, machines and `trade` goods.
+- I wouldn't `trade` that for any honeymoon in the world.
+- Land the plane and we'll `trade` you hostages for fuel.
+- The guy who used to run the international `trade` mart?
+- I wouldn't `trade` them for another pair, tell you that.
+- Let's `trade` death by freddy for life in a rubber room.
+- You took the rembrandt, i figured it was a fair `trade`.
+- All girls enjoy a little rough `trade` from time to time.
+- That's an even `trade`... a cotton ball for all my blood.
+- They tell me he'll be a great loss to the liquor `trade`.
+- Hell, we've got to `trade` this thing in for a normal bed.
+- So naturally, he covers prostitution and the drug `trade`.
+- What's the name of that commissar on the board of `trade`?
+- This, i don't know, maybe you can `trade` it for something.
+- I `trade` at left, at right and that's dangerous in there...
+- For passengers with engineering and technical `trade` skills.
+- To seal off her `trade` with europe, what has it cost you?
+- More than 40% of her `trade` is with the continent and russia.
+- Soon as i'm back, i'm gonna `trade` that in for a bigger rock.
+- The british are negotiating to make a `trade` for general lee.
+- Hell, i've had days i would gladly `trade` with a whippin' dog.
+- I was assigned to `trade` school when i was just a <u>grub</u>.
+- What i meant was, i'd be willing to `trade` for the photographs.
+- Score with a bank robber the way some women go for rough `trade`.
+- Do the rival gangs compete for control of the prison drug `trade`?
+- I'll `trade` you -- my feminine intuition for a bed for the night.
+- I'm just glad i don't have to ply my `trade` in the wee-wee hours.
+- Want to go up to the world `trade` center and laugh at new jersey?
+- If that makes me look racist, it's a `trade`-off i'll live with, ed.
+- It's only being built to control the ivory `trade`, make men richer.
+- When you marry champagne, clo-clo, you can't `trade` it in for beer.
+- If we have to go to siberia... razinin, board of `trade`, moscow.
+- So bastaldi makes a deal with the feds to `trade` up for his brother?
+- There's something crawford can give me, and i want to `trade` for it.
+- The quiet riot and me are swapping `trade` secrets ... how's it going?
+- You just have to remember... men are like houses and `trade` upwards...
+- But i won't argue - you '`trade` school boys' are all alike, aren't you?
+- She didn't, but she wouldn't be sending us there we can offer a `trade`.
+- Lil' cagey, y'know, don't like t'share `trade` secrets, that type'a thing.
+- Only `trade` comes in here now's just bummers and drovers, just the dregs.
+- We offered to `trade` you for raven, _ you should have more faith, clarke.
+- We offered to `trade` you for raven, - you were just telling it like it is.
+                 

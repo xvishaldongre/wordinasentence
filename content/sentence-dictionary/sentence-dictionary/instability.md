@@ -1,0 +1,9 @@
+---
+title: "instability in a sentence | instability example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "instability"
+---
+- They want `instability`.
+- My readings indicate great `instability`.
+                 

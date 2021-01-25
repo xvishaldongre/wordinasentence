@@ -1,0 +1,63 @@
+---
+title: "circumstances in a sentence | circumstances example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "circumstances"
+---
+- Under the `circumstances`.
+- What kind of `circumstances`?
+- Under the `circumstances`, yes.
+- `Circumstances` have changed, jerry.
+- These `circumstances` are mitigated.
+- Mysterious `circumstances`, and that.
+- Whish the `circumstances` were different.
+- Do not, under any `circumstances` approach.
+- Same `circumstances`, i�d do the same again.
+- Who wouldn't freeze in those `circumstances`?
+- Are there truly no extenuating `circumstances`?
+- Which under the `circumstances` is... unexpected.
+- I think it's very sensible in the `circumstances`.
+- I wish you were here under better `circumstances`.
+- Under no `circumstances` will i be angry with you.
+- Sorry it couldn't be under happier `circumstances`.
+- She's nervous, naturally, under the `circumstances`.
+- Under these `circumstances` we might refuse to sign.
+- Under the `circumstances`, you may call me mrs. peel.
+- But it was, given the `circumstances`, the smart play.
+- I gave a pretty good dream, but `circumstances` arose.
+- Under the `circumstances` your overall health is good.
+- Yeah, well i figure these are unusual `circumstances`.
+- But in normal `circumstances`, he wouldn't be like this.
+- Under other `circumstances` i'd gladly go out of my way.
+- You did remarkably well under difficult `circumstances`.
+- I think you did alright by god under the `circumstances`.
+- Who made it -- or under what `circumstances` it was made.
+- It's a little hard to trust you under the `circumstances`.
+- Under these `circumstances` it's quite a different matter.
+- Under the `circumstances` i'm afraid that will be impossible.
+- See what would happen under, you know, normal `circumstances`.
+- Under no `circumstances` can we bring the time stone to thanos.
+- You would never hurt them under any `circumstances`, would you?
+- Happy to be alive, under any `circumstances`--is that your point?
+- I'd have liked to have known you under different `circumstances`.
+- I mean do you feel like telling me what were the `circumstances`?
+- You expect the unexpected in `circumstances` of that peculiarity.
+- Well, he'll see you, but not at the hotel under any `circumstances`.
+- I am sorry that we could not meet under more pleasant `circumstances`.
+- I don't know, but under no `circumstances` would i talk about it here.
+- Rather an obvious question under the `circumstances`, don't you agree?
+- I did not consider it wise, in the `circumstances`, to tax your nerves.
+- Never, ever, ever, under any `circumstances`, say "i'll be right back."
+- I appreciate the welcome; i wish the `circumstances` were less critical.
+- Under the `circumstances`, general, what would you think they should do?
+- Yeah, must be especially tough to take over under these `circumstances`.
+- Yes, i know, but jurek, jurek... fine, we're fine in the `circumstances`.
+- I'm sorry we couldn't have met in pleasanter `circumstances`, miss mayfield.
+- ...he naturally had to drive as best he could under the, uh, `circumstances`.
+- In fact, she always seems to be turning up in the most unusual `circumstances`.
+- Under the `circumstances` mother didn't see fit, but i think i can get you in ...
+- Well, under the `circumstances`, don't you think we ought to call this thing off?
+- It's too bad we weren't able to meet elsewhere, under different `circumstances`...
+- I thought, perhaps tonight, under the `circumstances`, i might... stay here with you.
+- In view of all the `circumstances`, the commissioner has decided on a legal investigation.
+                 

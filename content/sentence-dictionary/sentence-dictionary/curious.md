@@ -1,0 +1,107 @@
+---
+title: "curious in a sentence | curious example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "curious"
+---
+- I'm `curious`, is all.
+- It ' s very `curious`.
+- The boy was `curious`.
+- Just `curious`, is all.
+- You are only `curious`.
+- You're a `curious` man.
+- But i'm `curious`, rose.
+- I'm `curious` about you.
+- I'm `curious`, not sick.
+- No, no, just `curious`.
+- I'm `curious`, mr. boone.
+- I'm very `curious`, rose.
+- Such a `curious` species.
+- This is `curious`, jason.
+- Aren't you even `curious`?
+- I'm `curious`, mr. kaplan.
+- Just one of the `curious`.
+- No, really, i'm `curious`.
+- A `curious` species indeed.
+- He's always been `curious`.
+- I'm `curious` about bourne.
+- They ought to be `curious`.
+- Well, because i'm `curious`.
+- I'm `curious` if you have it?
+- I thought you were `curious`.
+- Just bein' `curious`, is all.
+- I am understandably `curious`.
+- I'm `curious` about something.
+- I mean, we're kinda `curious`.
+- You're never "just `curious`".
+- Find it interesting, `curious`.
+- I can't afford to be `curious`.
+- You may... find this `curious`.
+- In any event, i'm not `curious`.
+- You're not `curious` about that?
+- I - i'm just `curious`, you know.
+- Maybe i'm just fucking `curious`.
+- Aren't you `curious` about my plan?
+- I guess... you were just `curious`?
+- Though i have to say i'm `curious`.
+- .aren't you `curious` about my plan?
+- I'm `curious` to see what it's like.
+- We must be a `curious` sight to him.
+- You got me pretty fucking `curious`.
+- You humans are very `curious` to us.
+- I'm klingon `curious`, it wasn't you.
+- We're very `curious` about that, too.
+- You find something `curious` in that?
+- I'm just real `curious` like you said.
+- Very `curious`.... well, it was there.
+- A little scared... and a lot `curious`.
+- But you're also `curious` about the man.
+- I'm `curious`, but i don't want to know.
+- Aren't you even `curious` what she wants?
+- He is only `curious` to know who you are.
+- I don't know what makes you so `curious`.
+- I know you must be `curious` to know more.
+- How `curious` ... let me guess -- 'father'?
+- I've always been `curious` about your line.
+- You're as `curious` as the rest of us, pal.
+- Aren�t you `curious` to know about friedman?
+- I'm just `curious` about that kind of stuff.
+- The face turns a `curious` shade of avocado.
+- Women have a `curious` taste for knickknacks.
+- We were a little more `curious` about the fed.
+- I was just `curious` how full of shit you were.
+- That wasn't a proposal -- i was just `curious`.
+- They were all very `curious` about the meeting.
+- By a `curious` coincidence, it's my day off, too.
+- I'm `curious` how you did this with such economy.
+- I'm, uh... real `curious` about your met up here.
+- I was `curious` to know why he had so few pupils.
+- Oh, come on--you must be `curious` how it's changed.
+- I'm sure you're `curious` about what i've been doing.
+- Neither can you, hunt.. aren't you even `curious`?
+- Well, since you're so goddamn `curious`, i'll tell ya.
+- ... what i'm `curious` about are the wilderness years.
+- But aren't you the least bit `curious` about it, doctor?
+- I was just `curious` if what i heard about you is true ?
+- Because i'm getting two things: pissed off and `curious`!
+- But what's `curious` is -- these aren't normal jellyfish.
+- I hope you're not offended by aggressively `curious` men.
+- They could be as `curious` about us as we are about them.
+- I am kind of `curious` to see what's going on in the show.
+- I was just `curious`--you don't do it well, so i wondered.
+- That's funny, i'm feeling a bit `curious` myself right now.
+- This suburban mother with russell was `curious` about earth.
+- Aren't you `curious` to see how your class picture turned out?
+- I suppose i'm just naturally `curious` about a girl like that.
+- A lot of gulf vets have begun to experience `curious` symptoms.
+- It's very `curious` -- i could only find three and a half pair.
+- Probably explains the `curious` feeling of love i have for you.
+- Naturally we're very `curious` to know where it is you come from.
+- I'm as `curious` as the next man... you hear all kinds of things.
+- I'm just `curious` to see if mr. troxell reconstructed anything else.
+- Well, i've never seen anything like it, so... of course i'm `curious`.
+- I'm `curious`, that's all, i have a natural curiosity, it's only human.
+- I thought that...umm...maybe you'd be `curious` about how i turned out.
+- But, admit it, you're real `curious` to know what he's like in the sack.
+- People are always `curious` about that, like what happens when you flush.
+                 

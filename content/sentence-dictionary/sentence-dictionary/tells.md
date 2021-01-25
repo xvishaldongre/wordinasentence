@@ -1,0 +1,107 @@
+---
+title: "tells in a sentence | tells example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tells"
+---
+- Because he `tells` lies.
+- Who `tells` me anything?
+- Never `tells` me nothin'.
+- `Tells` them about it?
+- The rooster `tells` us so!
+- Bible `tells` you that much.
+- He `tells` everyone i'm old.
+- Is that what he `tells` you?
+- She `tells` me to keep away.
+- She `tells` you you're ugly?
+- That's what she `tells` you.
+- No one `tells` me what to do!
+- That's not how he `tells` it.
+- Until guy `tells` them to go.
+- Who `tells` you these things?
+- Frank `tells` me you're a cop?
+- Hana `tells` me you're leaving.
+- Nobody `tells` me these things!
+- No one ever `tells` you that...
+- Pity, it `tells` it like it is.
+- She just `tells` it like it is.
+- Your mother `tells` you this?...
+- I don't care what he `tells` you.
+- Nobody `tells` me to fire anyone.
+- Bettes `tells` me he's doing fine.
+- If he `tells`, it won't come true!
+- She `tells` him how she loves him.
+- That `tells` me you're still torn.
+- You see what this `tells` us, huh?
+- You understand what he `tells` us?
+- Is that what her daddy `tells` her?
+- It `tells` you how to say the line.
+- Mother `tells` me you like to swim.
+- He `tells` me you're very beautiful.
+- Just do what your heart `tells` you.
+- Or aren't you the kind that `tells`?
+- Maria `tells` me that you didn't eat.
+- Something `tells` me this means food.
+- So she `tells` me three times a week.
+- If we can't act on what he `tells` us?
+- ...and he `tells` me to go fuck myself.
+- It `tells` me what every face `tells` me.
+- My husband `tells` me you're in sharks.
+- Until the old man `tells` me different.
+- And it `tells` you what's in your heart.
+- If he `tells` the mountain were alive...
+- Is tony the one that `tells` you things?
+- Sally `tells` me she's in love with you.
+- You do everything the torah `tells` you.
+- You remember what the doctor `tells` us.
+- Nobody `tells` me how to run my property.
+- Now come on, nobody ever `tells` me shit.
+- It `tells` us that he was the last to die.
+- Zimm `tells` you the way it is... or else.
+- Something `tells` me that you are not that.
+- You do it because the torah `tells` you do.
+- It `tells` the story of sankara climbing mt.
+- Something `tells` me we could make you talk.
+- That's not what claire `tells` me about you.
+- Dr. burton `tells` me you know who batman is.
+- It's a clue that `tells` us... to keep going.
+- Renata `tells` me you're going to rent a car.
+- Something `tells` me you've been here before.
+- Don't listen when a man `tells` you something.
+- I bet that's exactly what she `tells` herself!
+- It's a mood ring, it `tells` what mood i'm in.
+- She `tells` this story at every major holiday.
+- This one clue `tells` us three distinct facts.
+- How dare you tell me what god `tells` me to do!
+- Ramon `tells` me you are looking for some mota.
+- That `tells` me something about your character.
+- Gordon `tells` me you're a very talented broker.
+- Sir henry ponsonby `tells` me they are charming.
+- Something `tells` me we got your emergency beat.
+- The dentist `tells` me i'm not covered for caps.
+- The more truth he `tells`, the worse it gets!
+- Something `tells` me you picked up the wrong cup.
+- Somethin' `tells` me it gets harder from here in.
+- Course he did, he `tells` everybody who'll listen.
+- Elliot `tells` me you're fronting for a dirty cop.
+- Everything in my heart `tells` me this isn't true!
+- Something `tells` me it won't be nearly that long.
+- He `tells` her, "bye-bye," and she gets "attacked."
+- Your thumb `tells` the driver that you want a ride.
+- First off, he `tells` me to stop smoking cigarettes.
+- My staff `tells` me it's been mostly drug pushers...
+- She `tells` you how i've been-- you set up on lydia.
+- Something `tells` me you'll break before i die, doc.
+- So hardin `tells` me you're an english major as well.
+- And something `tells` me they won't take you to bardo.
+- She writes pretty regular, `tells` me the family news.
+- So mr. m. calls me in and `tells` me -- paul, get out!
+- The first layer `tells` you i thought you wanted this.
+- Tom here `tells` me there's a problem with the pianos.
+- Tommy `tells` me that capone's coming in from chicago.
+- I feel it -- everything `tells` me -- enough -- enough.
+- My boss `tells` me i have to do more suggestive selling.
+- No... do you believe everything that richie `tells` you?
+- Something `tells` me you don't want to be on tv, friend.
+- Your best friend `tells` you something fairly explosive.
+                 

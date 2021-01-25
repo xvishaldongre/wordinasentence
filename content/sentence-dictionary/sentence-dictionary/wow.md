@@ -1,0 +1,107 @@
+---
+title: "wow in a sentence | wow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wow"
+---
+- Can i just say, `wow`.
+- Oh, `wow`, he made it.
+- `Wow`, a treasure map!
+- `Wow`, that's amazing.
+- Yeah, that's... `wow`.
+- Oh, `wow`, she's great.
+- Oh `wow`, we are fried.
+- Wait a minute... `wow`!
+- `Wow`, she's beautiful.
+- `Wow`... that's a wasp.
+- `Wow`, they really are.
+- `Wow`, it's the red one?
+- `Wow`... read something.
+- `Wow`, sorry about that.
+- `Wow`, that's beautiful.
+- `Wow` you are out of it.
+- `Wow`, you have changed.
+- `Wow`, you just said it.
+- Uh, yeah, that's...`wow`.
+- `Wow`, this is so cool...
+- Has it got a `wow` finish?
+- `Wow`, first week of camp.
+- `Wow`, kev...it's perfect.
+- `Wow`, that is impressive.
+- `Wow`...you clean up nice.
+- `Wow`, you got thrown out?
+- `Wow` just like marco polo.
+- `Wow`, this case is closed.
+- Oh `wow`, i should've known.
+- `Wow`, are you in deep shit.
+- `Wow`, that really is great.
+- `Wow`, this lab looks great.
+- Well...`wow`... jesus christ.
+- `Wow`, i guess i hit a nerve.
+- `Wow`, i have a clitoris too.
+- `Wow`, i love the place, lar.
+- `Wow`, thank god you're here.
+- `Wow`, was it a decoder ring?
+- `Wow` your body's really hot.
+- `Wow`, it's crazy, man, right?
+- Oh `wow`, a real evil canieval.
+- `Wow` - i- maybe we should sit.
+- `Wow`...okay...see you there...
+- `Wow`... stop giving them away.
+- `Wow`, that is one moving story.
+- `Wow`, that's soon -- next week.
+- `Wow`, what a beautiful sunrise!
+- What it makes us do, - oh, `wow`.
+- `Wow`, a lot of people showed up.
+- `Wow`, even the violas are tense.
+- `Wow`, guys, not all at once now.
+- `Wow`, that's... that's fantastic.
+- `Wow`, were you <u>born</u> lucky?
+- That governs repair... tony: `wow`.
+- `Wow` - two guys in the same brain.
+- No, but somebody must have... `wow`!
+- So `wow`, you've got it figured out.
+- `Wow`, honesty really kills a party.
+- `Wow`, i've never seen him like this.
+- `Wow`, you are such a great profiler.
+- `Wow`, you must a found the c.o., eh?
+- `Wow`, you're cute when you're angry.
+- You look, `wow`, uh, how've you been?
+- Could i, like...oh, `wow`...like,uh...
+- I mean...`wow`...off the charts great.
+- Oh, i was just going to... `wow`, man.
+- `Wow`, that must be pretty nice there.
+- `Wow`... you look extremely beautiful.
+- I can run upstairs and get it... `wow`!
+- `Wow`, i didn't expect to see you here.
+- `Wow`, you musta seen some things, huh?
+- Hold onto it-- `wow`... this one's cool.
+- `Wow`....huh..."...piss and shit..." ok.
+- `Wow`... "rod's been killed - he got rod.
+- `Wow`, you're really bustin' my clangers.
+- `Wow`, it's really throwing off some heat.
+- `Wow`, this is really starting to open up.
+- It just came yesterday... `wow`... finally.
+- ... oh `wow`, she doesn't know you're here.
+- Really, `wow`, so it's really a real thing.
+- `Wow`, you can't buy this kind of publicity!
+- Down here all this time by fighting... `wow`.
+- It's just somebody's idea of a joke... `wow`!
+- I've done a lot of interviews, man, but `wow`.
+- `Wow`, you get a whole room in your own house?
+- I just know it happened i can feel it... `wow`.
+- She bore it so that they didn't have to, `wow`.
+- `Wow` ... that's pretty good ... christmastime.
+- `Wow`, we built a whole float in one afternoon.
+- Check please.... `wow`, you were "in the joint."
+- `Wow`, you rock stars are really sensitive, huh?
+- `Wow`, girl, you just made a hundred-dollar sale.
+- Oh, apparently, people with blood like mine `wow`.
+- `Wow`, grampa, your stories are really cool today.
+- `Wow`, i actually feel like less of a fat dork now.
+- `Wow` okay -- you're gonna need to learn how to lie.
+- `Wow`... you just gave me goosebumps, you know that?
+- Sonny comes there and looks at me and just says: '`wow`!'
+- `Wow`, i guess you were home... don't call me ever again.
+- `Wow`!....what have you been doing, rolling around in it?
+                 

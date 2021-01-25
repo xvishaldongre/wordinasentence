@@ -1,0 +1,107 @@
+---
+title: "ain't in a sentence | ain't example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ain't"
+---
+- Brooks `ain't` no bug.
+- Divorce `ain't` final.
+- He `ain't` really new.
+- Honest, there `ain't`!
+- I `ain't` a damn liar.
+- I `ain't` gettin' off.
+- I `ain't` got no eyes.
+- I `ain't` lyin' to ya.
+- I `ain't` no grounder.
+- I `ain't` telling you.
+- It `ain't` *my* fault.
+- It `ain't` that dirty.
+- Like hell you `ain't`!
+- Mink `ain't` my bitch.
+- No, i `ain't` married.
+- Nope, he `ain't` wade.
+- Now i `ain't` worried.
+- Oh, he `ain't` nobody.
+- That `ain't` my scene.
+- That `ain't` no crime.
+- That cat `ain't` mean.
+- That's it, `ain't` it?
+- This `ain't` no photo.
+- This `ain't` the time.
+- This `ain't` your lot?
+- You `ain't` my friend.
+- You `ain't` no indian.
+- `ain't` gonna be moved?
+- `ain't` that hard, son.
+- `ain't` that so, louis?
+- `ain't` that something.
+- `ain't` that something?
+- `ain't` that the truth!
+- `ain't` that the truth.
+- `ain't` that the truth?
+- `ain't` your call, man.
+- First rate, `ain't` it?
+- He's coming `ain't` he?
+- I `ain't` a greedy man.
+- I `ain't` bullshittin'.
+- I `ain't` bullshitting.
+- I `ain't` drunk, honey.
+- I `ain't` even married.
+- I `ain't` getting shit.
+- I `ain't` mad at you...
+- I `ain't` playin' that.
+- I `ain't` your "scout".
+- I mean he `ain't` here.
+- It `ain't` got no stem!
+- It's alice, `ain't` it?
+- No, no, it `ain't` you.
+- Not for me, it `ain't`.
+- That french `ain't` it?
+- There `ain't` no music.
+- This `ain't` happening.
+- This `ain't` your show.
+- Viagra `ain't` working.
+- We `ain't` buying that.
+- We're black `ain't` we?
+- Yeah, `ain't` it swell?
+- ...adrian `ain't` sharp.
+- ...`ain't` it the truth!
+- `ain't` no one seen him.
+- `ain't` that a load off!
+- `ain't` that right, boy?
+- `ain't` that right, now?
+- `ain't` that right, tom?
+- `ain't` that something?!
+- We `ain't` brothers.
+- You `ain't` ashamed?
+- But he `ain't` here now.
+- But i `ain't` got you...
+- Da mayor `ain't` no bum.
+- Fifty yards `ain't` bad.
+- Frightening, `ain't` it?
+- He `ain't` the only one.
+- Hey, i `ain't` cryin'...
+- I `ain't` doing nothing.
+- I `ain't` eaten all day.
+- I `ain't` got a warrant.
+- I `ain't` got the money.
+- I `ain't` got the words.
+- I `ain't` -- got -- you.
+- I `ain't` killed nobody.
+- I `ain't` nobody's punk.
+- I `ain't` no good at it.
+- I `ain't` no movie star.
+- I `ain't` scared of you.
+- I `ain't` the same, ned.
+- I `ain't` waitin', bill.
+- If that `ain't` fate?...
+- It `ain't` safe for you.
+- Jenkins `ain't` no boss.
+- Maybe it `ain't` coming.
+- My ass `ain't` the same.
+- No, he `ain't` familiar.
+- Something `ain't` right.
+- Strawberry `ain't` shit.
+- That `ain't` gonna work.
+- That `ain't` philosophy.
+                 

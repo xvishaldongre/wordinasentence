@@ -1,0 +1,102 @@
+---
+title: "falling in a sentence | falling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "falling"
+---
+- They're `falling` out.
+- He's `falling` for her.
+- We're `falling` behind.
+- I'm `falling` apart here.
+- I'm not `falling` for it.
+- Yours is `falling` apart.
+- Her pulse ox is `falling`.
+- It's not `falling` asleep.
+- My leg is `falling` asleep.
+- What's `falling` apart now?
+- You're all `falling` asleep.
+- You're `falling` in love.
+- I think i'm `falling` asleep.
+- It's kind of `falling` apart.
+- The place is `falling` apart.
+- That was `falling` with style!
+- I'm `falling`... stop fighting.
+- I think we're `falling` in love.
+- This is `falling` -- with style!
+- Damn thing's `falling` to pieces.
+- Epps, my leg is `falling` asleep.
+- I'm not `falling` for that twice.
+- I'm not having you `falling` ill.
+- [rain `falling`] oh, why pretend?
+- You don't see us `falling` apart.
+- I'm `falling` apart, that's funny?
+- I'm `falling` right back to sleep.
+- They had a `falling` out years ago.
+- We are `falling` back on all fronts.
+- We were `falling` in love, remember?
+- What's the matter�are you `falling`?
+- Assassins `falling` from the sky now?
+- Of her `falling` in love and fucking?
+- You're not `falling` asleep, are you?
+- I think i'm `falling` in love with you.
+- It started `falling` out ten years ago.
+- Smart bomb, `falling` through the roof.
+- Fifty degrees below and still `falling`.
+- Got caught on a rock as i was `falling`.
+- "lousy, thank you, i'm `falling` apart."
+- `Falling` bodies in the ecstasy of flesh.
+- `Falling` off rocks, rocks `falling` on me.
+- Even if he's `falling` asleep on his feet?
+- `Falling` down in casinos is little stuff.
+- They kept `falling`, but they kept coming.
+- About one step from `falling` off the edge.
+- My dad's in hell, and he's `falling` apart.
+- Sir, all escorts are down or `falling` back.
+- The feeling of slipping without `falling`...
+- This is like `falling` into a tub of butter.
+- Why would they have a `falling` out over me?
+- [rain `falling`] let me see the tattoo again.
+- This is not what i meant by `falling` asleep.
+- We are `falling` asleep at the wheel, people!
+- God, i hate `falling` asleep in the afternoon.
+- He's crashing... 90 over 50 and `falling`... .
+- They're `falling` out of the skies like flies.
+- You didn't hesitate when clarke was `falling`.
+- Don't think about `falling`, just keep pedaling.
+- Maybe i could reach the ledge without `falling`.
+- [rain `falling`] we have to get him back to camp.
+- A small matter of a mountain `falling` down on us.
+- Dancing is alright; you're `falling` on the floor.
+- The only one who ended up `falling` for it was me.
+- I mean, i been `falling` down a lot and, uh... yeah.
+- You're not `falling` in love with this girl, are you?
+- You seem to have a lot of `falling` outs with people.
+- Indra, it's ok. _ i think i'm `falling` for you, soggy.
+- But the temperature in those sections is `falling` fast.
+- Old place is as good as `falling` down around your ears.
+- I'm the one who can feel my leg, and it's `falling` asleep.
+- We've been negotiating for... uh-oh, am i `falling` for her?
+- When i am `falling` asleep i hear him walking back and forth.
+- Day after day, the one "smart bomb" `falling` into a building.
+- So, if you have a nightmare, for instance like `falling`, right?
+- There are planes `falling` out of the sky, buildings blowing up.
+- Should she use barrette so it doesn't keep `falling` in her face?
+- ♪ do believe that i'm `falling` in love ♪ maybe, maybe not, tv clowns.
+- You need to go back to the school i am `falling` in love with this sport.
+- I know, but so is the enemy -- they're `falling` back -- paris is ours...!
+- Believe it or not, i actually tricked a girl into `falling` in love with me.
+- The nightblood child did not recite the lineage it's ok. you're not `falling`.
+- I love your ass -- now get that `falling` ass into bed before it hits the floor.
+- But least this way i don't have to worry about `falling` asleep and not wakin' up.
+- That the sky is `falling` and when it hits it's gonna be the shitstorm of all time.
+- ♪ do believe that i'm `falling` in love ♪ raven, you're the one that's staying here.
+- You see, father -- i think of running for help, and `falling` to my knees in prayer.
+- I don't blame viktor for `falling` in love with the most desirable woman in the world.
+- Society is `falling` apart, miss farmer, and people have to buckle down, do their jobs.
+- Tell me -- you're so expert on things -- can it be that i'm `falling` in love with you?
+- There's already gonna be talk about how people close to you keep `falling` into canyons.
+- Well, that's what you get for `falling` in love with a guy who's first name is ramblin'.
+- Yeah, why should we let our actual personalities get in the way of us `falling` in love?
+- One shot: one bomb, `falling` though the roof, building coulda been made of <u>legos</u>.
+- Shemp is unaware that anything even happened, other than his stool suddenly `falling` over.
+                 

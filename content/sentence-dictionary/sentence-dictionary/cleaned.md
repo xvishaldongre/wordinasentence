@@ -1,0 +1,68 @@
+---
+title: "cleaned in a sentence | cleaned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cleaned"
+---
+- It has to be `cleaned`.
+- Get your suit `cleaned`.
+- It can't be `cleaned` up!
+- We'll get it `cleaned` up.
+- I know, cuz i `cleaned` it.
+- I sorta got it `cleaned` up.
+- They'd need to be `cleaned`.
+- Let's get `cleaned` up, kyle.
+- If it ain't `cleaned` off?
+- We better get you `cleaned` up.
+- I better get `cleaned` up, then.
+- `Cleaned` up enough to be erotic.
+- I have to get my teeth `cleaned`.
+- What do you mean, '`cleaned` up?'
+- That pretty much `cleaned` me out.
+- Yeah, i really `cleaned` up on him.
+- Having it `cleaned` didn't help, huh?
+- I don't want my windshield `cleaned`.
+- I fed him and `cleaned` up after him!
+- No, i know i don't want it `cleaned`.
+- I woke up, and he'd `cleaned` my room.
+- Well, they must've `cleaned` them off.
+- Have you ever `cleaned` your apartment?
+- He was `cleaned` by two grifters on 47th.
+- Oh you know, `cleaned` the house, cooked.
+- Now it is time for my cat to be `cleaned`.
+- I have to get my teeth `cleaned` this week.
+- Whyn't you get it dry `cleaned` and burned.
+- Looks like you really `cleaned` up your act.
+- For the last time, i don't want it `cleaned`.
+- So, maybe his room hasn't been `cleaned` yet.
+- Did i or did i not offer to have it `cleaned`?
+- We just barely got `cleaned` up in time to open.
+- When was the last time you `cleaned` this place?
+- Well, for a start, you've got to get `cleaned` up.
+- We stopped there... so she could get `cleaned` up.
+- Alice, see if bill has `cleaned` out the boathouse.
+- We want you to get yourself `cleaned` up for the baby.
+- You want to take her to my place and get `cleaned` up?
+- You just think you don't want your windshield `cleaned`.
+- He `cleaned` up the kitchen after stuffing through there.
+- They brought me to their camp, `cleaned` me up, fed me...
+- Why aren't they `cleaned` up before they're brought here?
+- I `cleaned`... oui, bonjour, jean... oui, tr�s bien, merci.
+- I...i wanted to have this `cleaned` up before you got here.
+- I want this place `cleaned` up by the time i get back i know.
+- Oh, yes... we'll get you `cleaned` up, find a suitable gown...
+- Then sam, you and i clean up whatever's left to be `cleaned`.
+- I had a good run turn to shit on me like that - `cleaned` me out.
+- Looks like he's been `cleaned` up and he's decomposing as we speak.
+- Why don't you stop living like a bum and get this place `cleaned` up.
+- In fact, your wounds were `cleaned` and dressed before you arrived here.
+- The three of us `cleaned` up and took him to the post and put him under.
+- I `cleaned` and oiled all your stuff while you was gone... you bet we is!
+- I `cleaned` it all up, but that ain't important... well... what happened?
+- They checked my plugs and `cleaned` my points... h-h-how's it g-g-going, mack?
+- Miss daniel, be sensible, you find another place till we get things `cleaned` up.
+- As soon as our clothes are `cleaned`, they're going to give them back to us, lovey.
+- Nothing, nothing... look, i live just over the street -- you could get `cleaned` up.
+- Oh man, not the sewer, i just had this cape `cleaned`... you have to dial nine first.
+- I -- i `cleaned` up my room, look... and i said my prayers... all of them... and... really?
+                 

@@ -1,0 +1,107 @@
+---
+title: "using in a sentence | using example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "using"
+---
+- Which are you `using`?
+- He's just `using` you."
+- I plan on `using` them.
+- So you're `using` madi?
+- They are `using` drugs.
+- But they're `using` you!
+- Quit `using` your words!
+- Well, i'm not `using` o.
+- What name is he `using`?
+- You're `using` coconuts!
+- He's `using` my playbook.
+- They're `using` the king.
+- Are you `using` minoxidil?
+- He's `using` a cell phone.
+- He's `using` daya as bait.
+- Not while he's `using` me.
+- Perfect, she's `using` it.
+- We are `using` their eggs.
+- Well, i'm not `using` "o".
+- I love not `using` a phone.
+- She was `using` her powers!
+- Have you been `using` drugs?
+- I'm sorry i was `using` you.
+- I was `using` it last night.
+- She's `using` a new perfume.
+- Stop `using` us as examples!
+- Uh...`using` josh like that.
+- `Using` a spoken passphrase.
+- You're not `using` it today?
+- Edmunds, try `using` suction.
+- Now you're `using` that word.
+- Now you're `using` your head.
+- `Using` ludwig van like that!
+- He's `using` you to get to me.
+- You're `using` too much glue."
+- He's `using` the name nicholai.
+- Lecktor wasn't `using` a bible.
+- Not while i'm still `using` it!
+- `Using` your hands is a eat.
+- You're `using` your son's name.
+- Don't you think he's `using` you?
+- I'm not `using` him as an excuse.
+- That's why we stopped `using` it.
+- We've been `using` the back door.
+- You're not `using` oxygen at all?
+- Find out who's `using` that phone.
+- `Using` all dose ten dollar words?
+- Find out who is `using` that phone.
+- Pathetic, `using` your sister good.
+- The board is `using` this poor guy!
+- They're just `using` you, i get it.
+- They're `using` hal for a bird dog.
+- ...`using` lester townsend's house.
+- `Using` my full name won't stop me.
+- But i wasn't `using` the wide angle.
+- I won't be `using` the room tonight.
+- Oh, we're `using` the "l" word, huh?
+- They also tried `using` viral r.n.a.
+- He's `using` the map as a chessboard!
+- I've been `using` since i was twelve!
+- Oh, you're `using` our made-up names.
+- We won't be `using` blanks this time.
+- Nigel, can't you see he's `using` you?
+- `Using` the gulliver to much like, eh?
+- Do we know it's him `using` the beacon?
+- I'm not `using` him again for anything.
+- But he's also `using` it to concentrate.
+- For `using` the metric side of my ruler.
+- If treatments `using` their blood steve?
+- Maybe you're `using` the wrong approach.
+- Oh, i don't know... nobody's `using` it.
+- You planning on `using` that on me, too?
+- You're `using` sex to express hostility.
+- He is `using` adamantium as its core.
+- And you will bow before `using` his name.
+- She's `using` pain to block her memories.
+- They're `using` a very primitive dialect.
+- I'm `using` an old phonographic turntable.
+- She was obviously just `using` you, terri.
+- Why would harry go back to `using` a code?
+- Yep... we're `using` parts we salvaged no.
+- At least somebody�s `using` the damn thing.
+- `Using` a word they don't fully understand.
+- Does she know that's why you're `using` her?
+- So halfdan the black's `using` magic, is he?
+- If you get caught `using` that -- hallelujah!
+- Jaha is `using` the chip to control everyone.
+- Might be a good time to try `using` it again.
+- Ruiz don't like `using` names on cell phones.
+- Jaha is `using` the chips to control everyone.
+- Of airshot `using` his breath to save himself.
+- The key to success is `using` the right tools.
+- Now... they're `using`... to open the gate.
+- Boy, what'd i tell you about `using` that word?
+- How to navigate `using` the stars, how to hunt.
+- Jesus christ, johnny -- you've been `using` me!
+- But i know that if you're `using` these goods...
+- But now...this is what i get for `using` humans.
+- If you're not `using` your arm, can i borrow it?
+- Just bring him to... that place we been `using`.
+                 

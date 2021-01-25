@@ -1,0 +1,107 @@
+---
+title: "command in a sentence | command example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "command"
+---
+- On your `command`, sir.
+- On your `command`, sir.
+- Get back your `command`.
+- 'message from `command`.
+- Strategic air `command`.
+- `Command` says we hold st.
+- Fire only on my `command`.
+- You're still in `command`.
+- Your wish is my `command`.
+- Reliant's `command`... who?
+- Where's the `command` post?
+- Contact starfleet `command`.
+- Your desire is my `command`.
+- Then terminate his `command`.
+- There's a chain of `command`.
+- Who's in `command` out there?
+- You will re-assume `command`.
+- Hold, and fire on my `command`.
+- Indra is not in `command` here!
+- You are my second in `command`.
+- You are now under my `command`.
+- Hmm, inform starfleet `command`.
+- Tight formation on my `command`.
+- Who's in `command` of this ship?
+- `Command` wants him out of there.
+- I'm second in `command`, damn it!
+- Leave my wounds, i `command` you.
+- Please state your core `command`.
+- Transwarp at your `command`, sir!
+- Dr. griffin is still in `command`.
+- Still no word from star `command`.
+- They `command` the utmost respect.
+- Hal, i'm in `command` of this ship.
+- Ok. we're not under your `command`.
+- There are a lot of `command` ships.
+- Whitman to mount weather `command`.
+- Johnny, get to the `command` center.
+- We have to go to the `command` deck.
+- I'll make you my second in `command`.
+- Taylor, you're not in `command` here.
+- `Command` codes, security protocols...
+- Get me through to starfleet `command`.
+- Kill wanheda, and you `command` death.
+- He had `command` of the king's english.
+- I've assumed `command` on this mission.
+- You're in `command` now, admiral piett.
+- Get on the horn with atlantic `command`.
+- I'm in `command` here till chaz returns!
+- In the `command` center or in the field.
+- I want to talk with starfleet `command`.
+- Worf, quantum torpedoes at my `command`!
+- You, personally, are assuming `command`?
+- I need 5 minutes in the `command` center.
+- One is a `command` decision on your part.
+- The veil is ready on your `command`, sir.
+- Your `command` is my wish, princess lili.
+- Like all lieutenants, he covets `command`.
+- I told you to remain on the `command` ship.
+- They're taking your `command`, aren't they?
+- He's strong... a person born to `command`...
+- I am relieving dr. griffin of her `command`.
+- If you think me unfit to `command`, come on.
+- Maybe they've sent air `command` in already.
+- We will never find the `command` nedry used.
+- You got no sick time according to `command`.
+- C'mon, we're wanted up on the `command` deck.
+- Stand down for now and wait for my `command`.
+- We cannot let this creature `command` wonkru.
+- You will `command` the pumps to stop pumping.
+- Are you proposing to transfer `command` to me?
+- I've got to talk to somebody at air `command`.
+- On pharaoh's `command`, a flick of the switch!
+- They're watching us from the `command` center.
+- Do you have everything you need from `command`?
+- Incoming transmission from starfleet `command`.
+- The system `command` processor, it's the brain.
+- I've still got my red line to the air `command`.
+- You can return to your `command` in the morning.
+- Go out to the `command` ship and await my orders.
+- I assume `command` of this ship as of 0130 hours.
+- I know you sent word to the sixth army `command`!
+- That president wallace is no longer in `command`.
+- Her core `command` is to make life better it does.
+- Aw, oh... can you get us into the `command` center?
+- Load torpedo bays, prepare to fire on my `command`.
+- You're doing what i did when i first took `command`.
+- You will take `command` of the 62nd regiment of foot.
+- How many men does cornwallis have under his `command`?
+- I remember when you recommended me for this `command`.
+- I want a `command`, i want my own ship, you do, too...
+- Send to starfleet `command`... do we report this, sir?
+- The army hands you a `command`, you go wherever it is.
+- You know what i mean is that a request or a `command`?
+- All ground units are ready to engage on your `command`.
+- I `command` you, as king of the britons to stand aside.
+- Pierce, i was just on the phone with borough `command`.
+- Pike just relieved me of my `command`, - put her there.
+- You must feel lucky to be assigned under his `command`.
+- I'll have no choice but to obey your `command`, oh, god.
+- Four hours later the captain's relieved of his `command`.
+                 

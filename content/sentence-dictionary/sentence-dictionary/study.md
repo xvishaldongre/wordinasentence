@@ -1,0 +1,107 @@
+---
+title: "study in a sentence | study example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "study"
+---
+- Do you `study` at all?
+- I'll `study` it, will.
+- I'll `study` the tape.
+- We `study` the problem.
+- This is the `study`.
+- But i'm a quick `study`.
+- He comes over to `study`.
+- I suggest you `study` it.
+- You're hear to `study` me.
+- I'm messing up the `study`.
+- `Study` hard and get a "b."
+- What subject do you `study`?
+- This would be my `study`.
+- Did you `study` for the test?
+- I'll call my `study` partner.
+- I want to `study` its habits.
+- Yeah, i `study` world events.
+- Quite a `study` in psychology.
+- Beats `study` hall, doesn't it?
+- Come into the `study` a minute.
+- How about a trig `study` group?
+- Just to `study` and get an "a."
+- So where did you `study` again?
+- What do you `study` in history?
+- Didn't you `study` it in school?
+- Do you wish to `study` medicine?
+- We've got finals to `study` for.
+- Did you `study` under kim greene?
+- I figured we'd just `study` here.
+- I want to, but i have to `study`.
+- More pursuit than `study` lately.
+- This was my father's old `study`.
+- Class, please `study` on your own.
+- I hardly have any time to `study`.
+- Want to come to the `study` group?
+- I would have to `study` the matter.
+- You're a quick `study`, aren't you?
+- I'll sleep in `study` hall, promise.
+- We'll start a private `study` group.
+- You can come directly to my `study`.
+- Ecological `study` for northland oil.
+- I have to `study` it, run some tests.
+- I have to `study` for kaminsky's test.
+- Sorry, i was looking for `study` hall.
+- Whatever you `study`, you also change.
+- What is this, a midnight `study` group?
+- Maybe i should, too-- i've gotta `study`.
+- So, you `study` world events, little one.
+- Case... yeah, miami joeboy, quick `study`.
+- She was a part of some `study` in college.
+- You've done nothing but `study` swordplay?
+- I think it's such a super thing to `study`.
+- It's a <u>serious</u> sociological `study`.
+- Maybe we can `study` together or something.
+- I take radioactive samples and `study` them.
+- Last week you went to a torah `study` group.
+- Well, i need to `study`, and... what's wrong?
+- Worst case, you'll get dissected for `study`.
+- For their `study` on how the heptápodes write.
+- I'm the one who wanted to `study` it.... jake.
+- John made quite a `study` of the whole museum.
+- Shall we hold a seminar to `study` the problem?
+- You might be an interesting subject of `study`.
+- Then what you telling me to `study` in them for?
+- What did you used to `study`, raymond k. hessel?
+- So they did a massive global `study` on masculinity.
+- What, you just let him into your room to... `study`?
+- ... but i still recommend further simulation `study`.
+- Oh, as long as we're here... that's charles' `study`.
+- Didn't you `study` six-dimensional geometry in school?
+- Did you ever `study` anything wasn't part of some con?
+- I'm really... honored to be part of this `study`, jim.
+- Maybe connie went to get some books to `study` up with.
+- That old dream -- `study` us to see what makes us sick.
+- They did exactly one job -- swayzak's manpower `study`.
+- You ask circumspect questions and `study` my responses.
+- Am i barging in on some kind of religious `study` group?
+- Did you `study` decorating, or do you just have a flair?
+- I know a guy who got money from them to `study` eels....
+- Not to `study`, not to bring back, but to wipe them out.
+- Remember when you asked for a `study` on him, i refused.
+- ...there's a pull-out sofa in my `study` if you want it.
+- I'll just take this to my laboratory for further `study`.
+- They're put together by legal minds--after a long `study`.
+- I `study` how life on earth evolved over millions of years.
+- So scientists can come back and `study` it and find a cure.
+- So... me and barbara are gonna `study` at her house tonight.
+- They're gonna `study` me, i have to learn to be one of them.
+- Let's not forget, folks, this is a `study` on sleep disorders.
+- Request computer `study` of soil samples for geological aging.
+- We have a bible `study` meeting tonight if you'd like to come.
+- I'd have to research it, `study` his routines, his security....
+- I understand you've called a meeting to `study` our space ship.
+- I see you look at everything, `study` everything, ask questions.
+- It looked like there would be thousands of characters to `study`.
+- Turned out it's in us to get approval for a sociological `study`.
+- I'm going to see if i can set up a noise-free zone in the `study`.
+- I still have some of those drawings that you'd do in `study` hall.
+- Sometimes i get cranky when i know i have a big test to `study` for.
+- So tell me, exactly which truck driver did you `study` english with?
+                 

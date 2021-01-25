@@ -1,0 +1,107 @@
+---
+title: "deserve in a sentence | deserve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deserve"
+---
+- I `deserve` this shit.
+- I don't `deserve` her.
+- I don't `deserve` you.
+- It's what i `deserve`.
+- You `deserve` to know.
+- I don't `deserve` that.
+- I don't `deserve` this.
+- They `deserve` to know.
+- When they `deserve` it.
+- I `deserve` a lot worse.
+- I `deserve` nice things.
+- I `deserve` to help you.
+- You don't `deserve` dogs!
+- He doesn't `deserve` that.
+- He doesn't `deserve` this!
+- I don't `deserve` to live.
+- You `deserve` to be shown.
+- You didn't `deserve` that.
+- Don't we `deserve` a feast?
+- Do you `deserve` that gift?
+- He don't `deserve` to work.
+- Nothing i didn't `deserve`.
+- She doesn't `deserve` that.
+- You `deserve` a lot better.
+- Did they `deserve` it today?
+- I don't `deserve` valuables.
+- He doesn't `deserve` to live.
+- I `deserve` better than this.
+- I don't `deserve` haagen daz.
+- I think we `deserve` a drink.
+- Not that i `deserve` a medal.
+- We `deserve` a little reward.
+- What if i don't `deserve` it?
+- I can win ... we `deserve` it.
+- Maybe that's what i `deserve`.
+- We don't `deserve` to survive.
+- Maybe i don't `deserve` to win.
+- We all `deserve` to wear white.
+- Didn't debbie `deserve` anymore?
+- That we `deserve` to stay alive.
+- What did i do to `deserve` this?
+- You don't `deserve` cole porter.
+- Besides, maybe they `deserve` it.
+- He doesn't `deserve` my daughter!
+- I didn�t `deserve` her back then.
+- I just know i don't `deserve` it.
+- I just know i don't `deserve` it.
+- I'm not even sure i `deserve` it.
+- You `deserve` better than simone.
+- You `deserve` to pamper yourself.
+- Because they `deserve` to, walter.
+- He doesn't `deserve` your loyalty.
+- I `deserve` it for being an idiot.
+- I won't `deserve` to see it again.
+- We `deserve` each other, don't we?
+- Does she `deserve` anything better?
+- He happens to `deserve` the credit.
+- Hell, we `deserve` to die out here.
+- I don't `deserve` ohashi's respect.
+- I think i `deserve` an explanation.
+- Why do i `deserve` this generosity?
+- Why do i `deserve` your generosity?
+- Agent scully doesn't `deserve` this.
+- Don't we `deserve` better than that?
+- You think you `deserve` the brownie?
+- But you `deserve` the vacation, lois.
+- Don't real americans `deserve` work?"
+- Now, what did i do to `deserve` this?
+- She doesn't `deserve` my forgiveness.
+- `Deserve`'s got nothing to do with it.
+- Do you really think they `deserve` it?
+- Maybe we don't `deserve` to transcend.
+- The man does `deserve` to die, clarke.
+- You don't `deserve` my fucking speech!
+- You don't `deserve` the green destiny.
+- You really didn't `deserve` her, tony.
+- For that, i `deserve` to be robbed?
+- Do you think i `deserve` to wear white?
+- I `deserve` a lot more than that truck!
+- Maybe they `deserve` a place here, too.
+- They `deserve` <u>first-</u> rate care.
+- We... we `deserve` to celebrate, right?
+- You `deserve` to be happy, big brother.
+- You don't `deserve` to hear his wisdom.
+- You two screw-ups `deserve` each other.
+- Billy and his penis don't `deserve` you.
+- You `deserve` to burn for killing priya.
+- You didn't `deserve` me john buckingham.
+- "`deserve`" don't mean shit, little bill.
+- Don't people `deserve` to know the truth?
+- Do you think we `deserve` to be forgiven?
+- I guess i `deserve` that locked door too.
+- Then we let them prove they `deserve` it.
+- You don't `deserve` the shepherd's mercy.
+- You give me more credit than i `deserve`.
+- You so do not `deserve` to be prom queen.
+- Maybe <u>you</u> `deserve` to get slapped.
+- They `deserve` it for what they did to us.
+- You `deserve` better than chet and i'm it.
+- They `deserve` a leader who knows that.
+                 

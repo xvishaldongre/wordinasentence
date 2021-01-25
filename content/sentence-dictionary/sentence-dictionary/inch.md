@@ -1,0 +1,60 @@
+---
+title: "inch in a sentence | inch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "inch"
+---
+- A nineteen-`inch` drill.
+- A glove with six-`inch` blades.
+- Another `inch`, and i'd be dead.
+- I love every square `inch` of it.
+- I think you grew an `inch` or so.
+- The water is only an `inch` deep.
+- Ground's dry about an `inch` down.
+- A d-6 is one `inch` wider than a d-8.
+- Every `inch` of it hot and miserable.
+- It grows out about an `inch` by them.
+- Why is it pulled down half an `inch`?
+- You told us it would grow out an `inch`.
+- That there's a 6-`inch` spike in my neck.
+- Went over every `inch` of that apartment.
+- Each `inch` represents 150 miles... maybe.
+- Don't give 'em a goddamn `inch` on the war.
+- A tall texan with a twenty-nine `inch` waist.
+- Every square `inch` covered, plus all my guys.
+- I can knock a man out with a six `inch` punch.
+- It's grown out more than an `inch`, sweetheart.
+- One-`inch` stuff on a three-number combination.
+- I need lag bolts, especially one `inch` standard.
+- One `inch` over and it would have caught the eye.
+- Preferably steel, about a sixteenth of an `inch`.
+- You're about an `inch` away from insubordination!
+- Oh, this is terrible -- can't budge her an `inch`!
+- I've found a six `inch` fracture in the outer hull.
+- It's less than one ten-thousandth of an `inch` thick.
+- Two `inch` screen... nice to see you again mr. gekko.
+- You didn't hesitate... they never backed you up an `inch`.
+- I have to walk -- by myself -- all the way -- every `inch`.
+- I want every `inch` of the pearl spic-and- span and ship-shape!
+- I'd like an invicta 12-gauge pump with the twenty-`inch` barrel.
+- That's an `inch` of the stuff, imagine what the whole thing'd do.
+- We need every photo-opp, sound-byte and column `inch` we can get.
+- With a thirty-five `inch` bustline in a wet t-shirt with no bra...
+- I'm one of the few who know every `inch` it, now that john is gone.
+- 20 feet, if it's an `inch`... at least you handle the boat all right.
+- Well, it was one of them little bitty two-`inch` screen japanese jobs.
+- They transferred the home movies of both families onto half-`inch` vhs.
+- We've been over every `inch` of this ship and all we've found is blood.
+- Honey - - i would know any randomly selected square `inch` of vicki vale.
+- Not that we are giving in one `inch`, but tell us... what is in your mind?
+- A prisoner who knows every `inch` of this mountain, what do you say, scuzzo?
+- Those are tigers, they have six-`inch` armor, they don't even notice grenades.
+- The clothes--take 'em off-- i want to see every square `inch`-- whatever you want.
+- Tracks your location to the `inch` and works directly with--you know... oh my god.
+- A guy can talk tits til he's dead but the minute you mention an eight `inch` weenie.
+- Yeah, it's like you know every `inch` of each other's souls -- and then you're free.
+- I doubt if people nowadays have knowledge of a victory garden or seen an `inch` worm.
+- I still can't get it out of my head -- an `inch` to the left, matty would still be alive.
+- The hell you aren't, you're comin' with me if i have to drag you every `inch` of the way.
+- Because you have to leave half an `inch` at the tip � to catch the force of the ejaculate!
+                 

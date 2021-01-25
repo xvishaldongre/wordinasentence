@@ -1,0 +1,56 @@
+---
+title: "Karen in a sentence | Karen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Karen"
+---
+- I'll see you, `karen`.
+- `Karen`, where's nancy?
+- I'm so sorry... `karen`!
+- Yeah, `karen` knows him.
+- `Karen`, it's a pleasure.
+- `Karen` is a dynamite cook.
+- Stay away from me, `karen`.
+- What can i do about `karen`?
+- Oh, hey, `karen`, it's joyce.
+- Chili, this is `karen` flores.
+- `Karen` and i had a nice talk.
+- `Karen` - you're a gibson girl...
+- We'll talk another time, `karen`.
+- `Karen`, let me tell you about eve.
+- `Karen`, say hello to chili palmer.
+- I feel sad about `karen` cross, too.
+- So you're gonna call `karen` tomorrow?
+- I used to come here with `karen` cross.
+- Tell `karen`, let's see what she thinks.
+- Max, `karen` has decided it's time to go.
+- Say anything in there about `karen` sisco?
+- We might even be able to get `karen` flores.
+- I had lunch with `karen` not three hours ago.
+- You don't mind if i call you `karen`, do you?
+- I want to talk about the `karen` sumpter case.
+- If `karen` sisco's tailing glenn, we're fucked.
+- Okay, `karen` is expecting you in half an hour.
+- Oh my god `karen` you scared the shit out of me!
+- Same place, the outer thigh, as `karen` sumpter.
+- Her name is `karen` sumpter, from near dell city.
+- `Karen` sumpter was buried, washed up in a flood.
+- I've been thinking about that, about you and `karen`.
+- If you had asked, `karen` probably would have let you.
+- Dammit, `karen` -- i was just... looking for your pulse.
+- This is purely professional curiosity, `karen`, i swear.
+- Give `karen` more wine... ... never have i been so happy.
+- Something with no positive value, `karen`, where's our son?
+- `Karen`, this is sid hudgeons from <u>hush-hush</u> magazine.
+- Lloyd may leave `karen`, but he will not leave `karen` for you.
+- ...so i'm gonna have `karen` take you, 'cause i should be here.
+- `Karen`, i told you not to-- oh-kay... we're a few minutes away.
+- `Karen`'s a good kid, but she's mad at you, because you lied to her.
+- No, eve, i won't forget... `karen`... ... you won't forget, will you?
+- I'll look up at six o'clock - and there he'll be... remember, `karen`?
+- Listen... `karen`, thank you for the casserole, all your christmas lights.
+- `Karen`, i've been with the bureau fifteen years, on all kinds of investigations.
+- That's nice of you to offer, `karen`, but i got all the help i can use right now.
+- Local girl, `karen` murphy, been missing for a couple months, figured for a runaway.
+- You mentioned grotesque, that happened to be grotesque part ii that `karen` flores was in.
+                 

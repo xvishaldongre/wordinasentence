@@ -1,0 +1,53 @@
+---
+title: "article in a sentence | article example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "article"
+---
+- Your `article` sucked.
+- You saw that `article`?
+- Bigger than one `article`.
+- I slipped the `article` in.
+- I read an `article` about this ...
+- Your high school reunion `article`.
+- I saw an `article`... don't you know?
+- Or i'll `article` 15 both your asses.
+- So tell me about the times `article`.
+- Do you know that `article` is accurate?
+- I'm well aware of this asinine `article`.
+- Just tell me about the goddamn `article`.
+- It takes time -- i read the same `article`...
+- There's a journal `article` in this somewhere.
+- I assigned you to read the wikipedia `article`.
+- There was this `article` my friends and i read.
+- Haven't slept since that shit `article` came out.
+- What's jon going to say about that in his `article`.
+- You still writing the occasional magazine `article`?
+- What's jon gonna say about that in his `article`?
+- Well, i'm writing another `article` on the cacophony.
+- See, the `article` says most people die in their beds.
+- Well if there was an `article` about it i'm sure she did.
+- I told you how stupid it was to float the lippman `article`!
+- I went on the internet and found this `article` about you...
+- They printed your `article` on, 'dry verses can dog food'...
+- Bob, don't you realize he's writing another `article` about me?
+- I read a magazine `article` about how to maximize small spaces.
+- It was an `article` in the "times" about a year and a half ago.
+- But, for each answer, you must remove one `article` of clothing.
+- Well, i gathered something from the `article` what eddie sent me.
+- I start to write an `article` and i find myself writing it to you.
+- I'm writing an `article` on quilting for the ladies home journal!
+- Tell the court, bright eyes -- what is the second `article` of faith?
+- I did the proofing so i inserted my `article` in place of rob crane's.
+- Under `article` 184 of interstellar law, i place you both under arrest.
+- I've been assigned to write an `article` about you for the school paper.
+- Not this `article`, not -- you makin' friends with the press, lieutenant?
+- I mean, it's not a half-page `article`, it's a major undercover piece, jos.
+- As a matter of fact, i've already had several phone calls on that `article`.
+- As head of the pta, i am exercising my right under `article` 42 of the pta code.
+- The new york times says addiction is genetic -- i'll e-mail you the `article`.
+- It's s'posed to be just a little story or `article` or something, isn't that right?
+- I know 'cause i just read this `article` in cosmo, and it was about that very thing.
+- I've been telling myself it's the award winning journal `article` i'm going to write.
+- Of course all you have to do is just sign the `article` - by anne schuyler's husband.
+                 

@@ -1,0 +1,59 @@
+---
+title: "trail in a sentence | trail example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trail"
+---
+- How far up the `trail`?
+- We're not leaving a `trail`.
+- Not on this `trail`, i don't.
+- You leave yourself a `trail`?
+- You know, up the jeep `trail`.
+- There it is, the ghost `trail`.
+- Yeah, it's a pretty cold `trail`.
+- Left as a `trail` for us to follow.
+- The baron must have left a `trail`.
+- Please... - banana, and `trail` mix.
+- It's a black diamond `trail`... you think?
+- Goddamn jeep `trail` gets worse every year.
+- [screams] following your breadcrumb `trail`.
+- If you can `trail` him to a remote area do it.
+- Follow the indian `trail` to where the sun dies.
+- It was a cold `trail` and they were moving fast.
+- What `trail` are you trying to throw me off now?
+- Okay, let's backtrack, try to pick up his `trail`.
+- The bodies you left behind on your bloody `trail`?
+- She chose to lock me away there's always a `trail`.
+- I want you to pick up the `trail` where he left off.
+- Blood `trail` just keeps going and going but no body.
+- All you prove is your ignorance about breaking `trail`.
+- I should pass, but i'll `trail` along--i'll take three.
+- He will live, but he will live pike, find their `trail`.
+- I just thought -- that you put a murderer on my `trail`?
+- I know you're good, but all that paper leaves a `trail`.
+- He must have a service record and a paper `trail` some-...
+- Let's head for texas and see if we can pick up the `trail`.
+- Oh, and for some reason this woman leaves no paper `trail`.
+- If johnnie farragut's on our `trail` he'll check those first.
+- So i'm riding up the line aways to pick us out a new `trail`.
+- This is not a thin `trail`, gentlemen, it is a very wide one.
+- I'm calling your office so you can send out a man to `trail` him.
+- We had hounds down at the scene, the footprint `trail` was a bust.
+- You need major four- wheel-drive just to get up that jeep `trail`.
+- You do whatever i say you do or else you put it on the `trail`, son.
+- But he has left a `trail`, and the `trail` is somewhere in those names.
+- You only moved in today and you're already hot on the bloody `trail`.
+- Well, since that time, they've killed one person during their `trail`.
+- We'll leave a `trail` back to 1012 and try to trap the monster in here.
+- If the mounted police pick up our `trail`, they'll come this far at least.
+- Marietta, i was just gonna leave and see if i could pick up their `trail`.
+- Alexandretta... of course... on the pilgrim `trail` from the eastern empire.
+- Well, fust off... name's ethan...now what's so mighty fishy about this `trail`?
+- I give that `trail` blazer five more minutes to show up-- --*five more minutes*!
+- We would have looked for motive and the `trail` would have still led back to her.
+- You've got the only truck in the valley that can make it up that damn jeep `trail`.
+- He'd explain he had to have cash, so there wouldn't be any paper `trail` for the sec.
+- ...that this was our own agent hot on his `trail` for a desperately important reason.
+- I know... but we left the main `trail`... and i can't find any landmarks around here...
+- Pull one of the legs down over your face and let the other leg `trail` behind your head.
+                 

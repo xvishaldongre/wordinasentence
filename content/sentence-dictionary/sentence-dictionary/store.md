@@ -1,0 +1,107 @@
+---
+title: "store in a sentence | store example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "store"
+---
+- Gave away the `store`.
+- Hardware `store` - day.
+- He owns a tile `store`.
+- So i `store` them here.
+- The art supply `store`.
+- The third `store` down.
+- Y'all mind the `store`.
+- Darlene's `store` - day.
+- Sure, go to the `store`.
+- An old appliance `store`.
+- Bummer about the `store`.
+- I'm going to the `store`.
+- Is this an apple `store`?
+- The old video `store`.
+- Darlene's `store` - night.
+- Go open the video `store`.
+- I can't close the `store`.
+- Next to a grocery `store`.
+- Owns the hardware `store`.
+- You're a `store` detective.
+- I have to go to the `store`!
+- What about your new `store`?
+- You work in a video `store`!
+- I'm lonely... at the `store`.
+- This ain't a groc'ry `store`.
+- To the fucking video `store`?
+- Why ain't you at the `store`?
+- But who would run the `store`?
+- Does the company `store` wait?
+- I went to the grocery `store`.
+- Made the `store` feel strange.
+- Then who operated the `store`?
+- We stopped at a porno `store`.
+- Anyway, there was this `store`.
+- Are you gonna lock the `store`?
+- As working in a liquor `store`.
+- You can buy 'em at any `store`.
+- You've gotta watch the `store`.
+- I found it at an outlet `store`.
+- Marie lasalle is in the `store`!
+- They're from the dollar `store`.
+- We bring out the `store` bought.
+- Chasing women around the `store`.
+- How did you get into the `store`?
+- I had to follow her to a `store`.
+- I work in a shitty video `store`.
+- We forgot to stop at the `store`.
+- You can work in a liquor `store`?
+- How are things at the hat `store`?
+- I'm currently running the `store`.
+- I thought it was the drug `store`.
+- Maybe he just went to the `store`.
+- Mookie, no cursing in the `store`.
+- They run a hardware `store` and...
+- Would you know this `store` again?
+- Wanna go to the comic book `store`?
+- Well... the `store` at saltzburg...
+- Send it all back for `store` credit?
+- The department `store` is all yours.
+- This `store` didn't used to be here.
+- Ya know, you were robbing a `store`.
+- You going to lock the video `store`?
+- You know, i was in a record `store`.
+- I work in a shitty video `store`.
+- I could run this `store` in my sleep.
+- Probably see you at the book `store`.
+- Specialty `store` down in sacramento.
+- This keeps up we can start a `store`.
+- Where's the nearest hardware `store`?
+- I had a little problem in one `store`.
+- Somebody has to stay with the `store`.
+- They sent me to the `store` to get it.
+- We own a small family grocery `store`.
+- Who closed the `store` to play hockey?
+- And her wind chime `store` burned down.
+- But i took out a whole grocery `store`.
+- I work at a grocery `store`, all right?
+- This isn't a comic book `store`, right.
+- What department `store` did they go to?
+- I'm in the hudson bay company's `store`.
+- It's some lingerie `store` on the strip.
+- I went into a `store`, i bought a rifle.
+- She works part-time at my dad's `store`.
+- Someone broke into the hardware `store`.
+- Who closed the `store` to attend a wake?
+- I close the damn `store`... for one ball!
+- You work in a convenience `store`, dante.
+- Guess who i just saw, right by my `store`?
+- I'll just wait to see them in the `store`.
+- The `store` will be closed in the interim.
+- Well that's what you see at a toy `store`?
+- You don't see enough of me at the `store`?
+- You live in that house behind the `store`?
+- I've got the key back at my `store`... yep.
+- That fuckin' shooting spree in the `store`.
+- Why don't you go back to the video `store`?
+- You know, you could work in a wine `store`.
+- Been a while since i stocked a wire `store`.
+- I knowed exactly what was in `store` for me.
+- I still needed to case that fucking `store`.
+                 

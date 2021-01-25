@@ -1,0 +1,107 @@
+---
+title: "dying in a sentence | dying example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dying"
+---
+- Him `dying` like that.
+- Is he... `dying` then?
+- Oh, the ark's `dying`.
+- You're body's `dying`.
+- Everyone's `dying`.
+- His `dying` so quickly.
+- I was `dying` in there.
+- No one's `dying` today.
+- I don't plan on `dying`.
+- I mean, `dying` sucks...
+- I'm mimi -- i'm `dying`.
+- I'm not `dying` for him.
+- Polar bears are `dying`.
+- That the ark is `dying`.
+- I'm `dying` for a shower.
+- ...i'm `dying` out there.
+- I said i'm a `dying` man!
+- People are `dying`, ross.
+- People are still `dying`.
+- Someone could be `dying`.
+- The kid's `dying` anyway.
+- You ain't `dying`, he is.
+- I'm `dying` here ... what?
+- My aunt eunice is `dying`.
+- Thank you for not `dying`.
+- The ark is `dying`, raven.
+- They believe he's `dying`.
+- I remember my wife `dying`.
+- Is he `dying` or something?
+- Okay, mank, you're `dying`.
+- People are `dying`, quaid!!
+- About running, `dying` what?
+- Because it's a `dying` city.
+- I mean, it's a `dying` city.
+- Look, my battery's `dying` .
+- People are `dying`, lincoln.
+- Saved the land from `dying`.
+- Your father, he was `dying`.
+- I mean literally `dying`.
+- A woman is `dying` - my wife!
+- Hello, otto ... am i `dying`?
+- He's with his `dying` mother!
+- If they're `dying`, let them.
+- I'm `dying` to hear about it.
+- Oh, he was `dying` for years.
+- People are `dying` out there.
+- Since not `dying` in the war.
+- You ever think about `dying`?
+- Because my mother was `dying`!
+- I thought you weren't `dying`.
+- That camera's totally `dying`.
+- Yeah...but you're not `dying`!
+- 75% of your people are `dying`.
+- I'm `dying` for what i believe.
+- It beats `dying`, mister smith.
+- People are gonna start `dying`.
+- Until they all started `dying`.
+- `Dying` alone would have sucked.
+- Everybody's `dying` to meet you.
+- I don't feel like `dying` today.
+- It's your tomato that's `dying`.
+- But you're `dying`, like any man.
+- We're all `dying` from the start.
+- But if she dies... she is `dying`.
+- But now our home is `dying`, d'oh!
+- For all we knew, you were `dying`!
+- If he hadn't been `dying` himself.
+- My destiny would be `dying` at 20.
+- No one else is `dying` to save me.
+- Our people are `dying` down there.
+- Remind me of what i'm `dying` for.
+- She's `dying` to meet you, auggie.
+- That's `dying` a little every day.
+- Awaken the heart of a `dying` star.
+- Is `dying` seventy miles from here.
+- Well, not <u>`dying`</u>, actually.
+- He told me he was `dying` of cancer.
+- I have cancer and i'm `dying`, soon.
+- I'm `dying` to hear of his reaction.
+- No one's `dying` on my watch, smith!
+- People `dying` down here, aren't we?
+- What's a `dying` giraffe sound like?
+- You told me my wife's `dying` words.
+- And that `dying` kid, "gouthru klir."
+- Because i'm planning on `dying` soon.
+- Do we have a problem with it `dying`?
+- I rest and rest and yet i am `dying`.
+- Thank you for `dying` for our shins."
+- When i arrived, your dad was `dying`.
+- Which one involves me not `dying`?
+- But the brain we now share is `dying`.
+- We now share is `dying`, you know why?
+- But now our home is `dying`, and we no!
+- But this isn't about living or `dying`.
+- If that's true, they're a `dying` race.
+- I was `dying` to see how he'd light it.
+- You'd deny a `dying` man his salvation?
+- Well, i think he was `dying` to open up.
+- Yes... you were the one who was `dying`.
+- But he's never said a word- he's `dying`.
+                 

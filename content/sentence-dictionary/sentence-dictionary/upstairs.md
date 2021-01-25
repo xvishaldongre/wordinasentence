@@ -1,0 +1,107 @@
+---
+title: "upstairs in a sentence | upstairs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "upstairs"
+---
+- Daddy, you `upstairs`?
+- Go `upstairs` i said!!
+- I can call `upstairs`.
+- I never go `upstairs`.
+- That's, uh `upstairs`.
+- I have some `upstairs`.
+- We're going `upstairs`.
+- Boys `upstairs` get hot.
+- I want to go `upstairs`.
+- Oh, that was `upstairs`.
+- Come `upstairs` a moment.
+- I'll take the `upstairs`.
+- It got lonely `upstairs`.
+- Oh - `upstairs`, quickly!
+- `Upstairs` or downstairs?
+- We're `upstairs`, george.
+- He has a room, `upstairs`.
+- How's it going `upstairs`?
+- Let's go `upstairs`, okay?
+- They're coming `upstairs`.
+- You oughta see `upstairs`.
+- I'll mention it `upstairs`.
+- Just really hot `upstairs`.
+- Now go `upstairs` to the...
+- This doesn't go `upstairs`.
+- You called from `upstairs`.
+- Ok, i'll see you `upstairs`.
+- You can watch tv `upstairs`.
+- Can i talk to you `upstairs`?
+- I'll wait for you `upstairs`.
+- Let's go `upstairs`, deborah.
+- My wife is crying `upstairs`.
+- That was peterson `upstairs`.
+- `Upstairs`... mr. lime - yes.
+- Come `upstairs` with me, baby!
+- Daniel, i wanna go `upstairs`.
+- I hear them coming `upstairs`.
+- It's in the `upstairs` closet.
+- I want you to come `upstairs`.
+- The people `upstairs` need us.
+- There's a bathroom `upstairs`.
+- You're `upstairs` at the back.
+- Go `upstairs` and sleep it off.
+- I'll be `upstairs` with andy...
+- I was `upstairs` for a meeting.
+- Could we go `upstairs` and talk?
+- Hardin, get back `upstairs` now!
+- The bachelor party's `upstairs`.
+- He's ready to see you `upstairs`.
+- Jackson's with miller `upstairs`.
+- You gotta get someone `upstairs`.
+- Do you mind if i check `upstairs`?
+- I believe the kegs are `upstairs`.
+- I'll be `upstairs` if you need me.
+- Still be `upstairs` in quarantine.
+- Winnie, `upstairs` in the bedroom!
+- I don't have time to go `upstairs`.
+- Jesus, get `upstairs` and find out!
+- We should have kept him `upstairs`.
+- But that's up to the guy `upstairs`.
+- I found them `upstairs` on your bed.
+- I never saw you -- i was `upstairs`!
+- Mom's trying to keep him `upstairs`.
+- Rachel, take your sister `upstairs`.
+- We finally got him a room `upstairs`.
+- We just got a bomb threat `upstairs`.
+- Charlie's `upstairs` as sore as a pup.
+- I think i left my earrings `upstairs`.
+- I can run `upstairs` and get it... wow!
+- I'll be `upstairs`...if you want to play.
+- There's a computer `upstairs` in med bay.
+- We could do it now, we can go `upstairs`.
+- Come `upstairs` with me and get in my bed!
+- I was looking at that painting `upstairs`.
+- We have antitoxin for everyone `upstairs`.
+- Call `upstairs`, see what you can find out.
+- The guy `upstairs` who's fucking things up?
+- `Upstairs` and downstairs in his nightgown.
+- We've got her `upstairs` in a laundry room.
+- Why don't you two go `upstairs` and change?
+- I'm bringing in some people from `upstairs`.
+- Oh, you have an `upstairs` and a downstairs.
+- Fourteen million dollars `upstairs`, burnham.
+- Remember, my wife is asleep `upstairs`, dear.
+- They're all `upstairs` on the passenger deck.
+- He's `upstairs` with your mom and dr. bennett.
+- Welcome to the capri; my brother's `upstairs`.
+- You know the old man `upstairs` in this house.
+- I just went `upstairs` to see this man lacerda.
+- Then you took her `upstairs` and you raped her.
+- She's `upstairs`.. .the lady who lives up there.
+- That bitch lazarro is getting kicked `upstairs`.
+- Why don't you go `upstairs`... take the day off.
+- They left you `upstairs` to make phone calls?
+- ♪ tell them i won't be long ♪ just... `upstairs`.
+- A woman and a little girl, both asleep `upstairs`.
+- Then i went `upstairs` to put on some dry clothes.
+- We've got an extra room `upstairs` and everything.
+- You've got a man here and the kids are `upstairs`?
+- But not even before, when he was living `upstairs`?
+                 

@@ -1,0 +1,97 @@
+---
+title: "shark in a sentence | shark example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shark"
+---
+- Did you see a `shark`?
+- It's a `shark`'s tooth!
+- Our friend, the `shark`.
+- You've got your `shark`.
+- More so than the `shark`?
+- She's a `shark`, frances.
+- I want that `shark` alive.
+- The `shark` that did this.
+- It was a `shark`, wasn't it?
+- Are they all `shark` victims?
+- I want that `shark`, kathryn.
+- Chicken puff with `shark` fin.
+- No `shark` did that to a boat!
+- No `shark` fin, no camel hump.
+- There's a `shark` in the area.
+- Because schumann's the `shark`.
+- The `shark` will get it for us.
+- I want to see that `shark` dead.
+- That's because i am the `shark`.
+- We're taking that `shark` alive!
+- Who's inside, you or the `shark`?
+- You're the mayor of `shark` city.
+- Look -- `shark` digestion is slow.
+- This tooth is from another `shark`.
+- Yesterday, you were a loan `shark`.
+- Shoveling `shark` shit or something.
+- You getting anything on the `shark`?
+- A great big bloody wonderful `shark`.
+- A `shark` that could be 30 feet long!
+- Please, you come too... to the `shark`.
+- Why don't you throw in another `shark`?
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo.
+- I need more pressure in the `shark` tank.
+- What kind of a `shark` did you say it was?
+- A `shark` got overman, and we got the `shark`.
+- The first time the `shark` came to amity....
+- Didn't they catch the `shark` this afternoon?
+- Um... that `shark` story really happen to you?
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo ♪ what?
+- ♪ baby `shark`, mommy `shark` ♪ refused the test.
+- Her boyfriend lost his foot in a `shark` attack.
+- I don't know what it is, but it's not a `shark`.
+- `Shark` comes out into the net and is hauled up.
+- I want to know if a great white `shark` did this.
+- I'm not going to walk through that `shark` arcade.
+- What if the tiger `shark` were to anticipate a bit?
+- I know that this was probably a great white `shark`.
+- I'm sorry gibbons, you pulled up a `shark` this time.
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo ♪ go on, madi.
+- A lot of 'missing swimmers' are really `shark` victims.
+- I think what we got on our hands is a dead `shark`.
+- No one has seen a `shark` -- no fin, no bites, nothing.
+- She's got it in her head that the `shark` came for him.
+- Why are we way out here, when the `shark`'s back there?
+- A relationship, i think, is-is like a `shark`, you know?
+- If you're looking for a `shark`, you don't look on land.
+- I � wouldn't � wish � it � on � a � maneating � `shark`.
+- Still, it remains to be seen why she invented a `shark`.
+- ♪ daddy `shark`, doo-doo-doo-doo-doo-doo ♪ for your test.
+- If we can cut the ram, the `shark` can pull herself loose!
+- Phillip and i are going down together to kill the `shark`.
+- We had a `shark` attack at south chop this morning, mayor.
+- Before, you were ready to feed this `shark` a hand grenade.
+- Every `shark` in town will be trying to sell you something.
+- No self respecting `shark` is gonna take a bite out of you.
+- ♪ daddy `shark`, doo-doo-doo-doo-doo-doo ♪ - oh, what the hell.
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo ♪ why do they trust you?
+- I wish i could've examined that `shark` they caught... drowning.
+- ♪ mommy `shark`, doo-doo-doo-doo-doo-doo ♪ - marge, you traitor!
+- The bow ram - the sawteeth are holding the `shark` in the break.
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo ♪ i must be in on a joke.
+- Look here -- bull `shark` scraped me while i was taking samples...
+- What you're saying is we have a great white `shark` in the lagoon.
+- There's a kind of a lone `shark`, called, uh... about half of them.
+- I'm not talking about hooking some poor dogfish or sand `shark`.
+- 'when the `shark` bites with his teeth, dear...' i don't like the song.
+- Reef thinks they can clear the `shark` bow so we can pull ourself loose!
+- ♪ baby `shark`, doo-doo-doo-doo-doo-doo ♪ - oh, god, i'm so sick of this.
+- Larry, i don't know how to say this, but i think we got a `shark` problem.
+- There's a `shark`.... as soon as you get us on the island, you got to call in.
+- You have to understand the loan `shark`'s in business the same as anybody else.
+- ♪ mommy `shark`, doo-doo-doo-doo-doo-doo ♪ but pot is for cheeches... and chongs.
+- But you've still got a problem here, there's a `shark` just off the island somewhere.
+- I know what a goddamn `shark` looks like, i've been through it, don't you understand?
+- What did they.... showed them the photo, showed them the goddamn `shark`, big as life.
+- All those people standing in line... a `shark` could have a hundred embryos in its sack.
+- ♪ mommy `shark` ♪ what does it mean that from the antenna position, _ of course you can.
+- Sean wasn't killed by the same `shark`.. dad didn't die because of it...it's all wrong...
+- Well, with a `shark` running loose around the place, i for one won't get aboard that raft!
+- If we could get inside the saucer - use our torches - maybe we could cut the `shark` loose?
+                 

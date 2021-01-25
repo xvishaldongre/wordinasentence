@@ -1,0 +1,107 @@
+---
+title: "break in a sentence | break example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "break"
+---
+- Do you need a `break`?
+- Emori, take a `break`.
+- How's the ice `break`?
+- Oh, give me a `break`!
+- Oh, give me a `break`.
+- To `break` their will.
+- Was it the `break`-in?
+- We can't `break` free!
+- `Break` out the narcon.
+- Don't `break` my heart!
+- Hey, give me a `break`!
+- I can't get a `break`."
+- I'll `break` them, sir.
+- I'm just on my `break`.
+- I never `break` a date.
+- I said a clean `break`.
+- Thanks for the `break`.
+- There was a `break`-in.
+- Why'd they `break` off?
+- A `break` means forever.
+- `Break` a leg, everyone.
+- `Break` and enter, shit.
+- `Break` your encryption?
+- Can't `break` tradition.
+- Gimme a fucking `break`.
+- Give me a `break`, alex.
+- Give me a `break`, pops.
+- Give yourself a `break`.
+- I mean... tough `break`.
+- I need a `break` anyway.
+- It'd `break` your heart.
+- Shit, give me a `break`!
+- We'll `break` our necks!
+- You're gonna `break` it.
+- `Break` it to her gently.
+- Come on, gimme a `break`.
+- Give me a `break`, grady.
+- Give me a `break`, steve.
+- Give me a goddam `break`.
+- He won't `break` off now.
+- How did you `break` that?
+- How do i `break` through?
+- I'm giving you a `break`.
+- It's never gonna `break`.
+- Let's give him a `break`.
+- Like your guitar `break`.
+- Then you `break` the law.
+- They couldn't `break` me.
+- They got a lucky `break`.
+- To `break` into the open.
+- We gotta `break` it open.
+- You'll `break` her loose!
+- You cannot `break` it.
+- Be gone by `break` of day!
+- `Break` it up, god dammit!
+- `Break` it, you bought it.
+- Do you wanna `break` down?
+- Gimme a `break`, will you?
+- Give a guy a `break`, huh?
+- Give me a fucking `break`!
+- Give us a `break`... nick!
+- Hudson, give us a `break`!
+- Hudson, give us a `break`.
+- I'm gonna `break` it down.
+- I tried to `break` it off!
+- It will be a hard `break`.
+- Jesus, give him a `break`.
+- Just make a clean `break`.
+- Murphy gave her a `break`.
+- See you after the `break`.
+- Should we just `break` up?
+- The alliance will `break`.
+- There's been a `break` in.
+- This ice will `break` yet.
+- We need to take a `break`.
+- You wanted to `break` him.
+- `Break` out some rations...
+- Did she `break` your heart?
+- Gimme a `break`, mr. russo.
+- Give me a `break`, sanchez.
+- Give the big guy a `break`.
+- Hey, look, gimme a `break`!
+- I can't you need a `break`.
+- I hope you get a `break`...
+- I'm on `break` from- happy.
+- It's okay to `break`, girl.
+- Look, kid, gimme a `break`.
+- Then they `break` it again.
+- This bitch `break` my nose.
+- To `break` a child's heart.
+- Too much signal `break`-up.
+- Will you give me a `break`?
+- All right, cut me a `break`.
+- Aw--give a feller a `break`.
+- Billy... - i `break` things.
+- `Break` each other's hearts.
+- `Break` each other's hearts.
+- Did you `break` a cup, jack?
+- Give me a `break`, will you.
+- I `break` sinatra's glasses.
+                 

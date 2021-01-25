@@ -1,0 +1,68 @@
+---
+title: "congratulations in a sentence | congratulations example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "congratulations"
+---
+- `Congratulations`, i guess.
+- Hey, man, `congratulations`!
+- `Congratulations`, mrs. peel.
+- `Congratulations`, by the way.
+- `Congratulations` on the deal.
+- `Congratulations`, mrs. kramer.
+- `Congratulations`, dr. santiago.
+- `Congratulations`, mr. ackerman.
+- My god... `congratulations`, sir.
+- `Congratulations`, mr. chancellor.
+- `Congratulations`, you all made it.
+- `Congratulations`, you're a parrot.
+- `Congratulations` to all of you.
+- `Congratulations`, ensign mayo, sir!
+- `Congratulations`, you're a prophet.
+- `Congratulations`, dwight, it's begun.
+- `Congratulations` on reaching level-12.
+- I'd like to offer my `congratulations`.
+- Well... `congratulations` again, vicki.
+- `Congratulations` to you, of course.
+- `Congratulations`, and i really mean it.
+- `Congratulations` on your daring escape.
+- Well, bye you guys... `congratulations`!
+- `Congratulations` on your...recent award.
+- `Congratulations`, skol - good work, eve!
+- Marge, prepare a `congratulations` kebab.
+- Well, `congratulations`, you're a parrot.
+- `Congratulations`, field agent kensington!
+- Dear mozart, my sincere `congratulations`.
+- `Congratulations` to you and your wife.
+- Look at these `congratulations` pouring in!
+- "`congratulations`, marge and homer simpson.
+- Four long years ... `congratulations`, boss.
+- What ha... ... maybe it's `congratulations`.
+- But, hey, `congratulations` on the promotion.
+- `Congratulations` on the wedding, by the way.
+- `Congratulations` on your apprehension of mr.
+- `Congratulations` on your daughter's wedding.
+- I... uh guess `congratulations` are in order.
+- My hands are frozen, `congratulations`, gavin.
+- `Congratulations` on the birth of your son.
+- `Congratulations` on the math contest, richard.
+- `Congratulations` on the curtis fox case, scagnetti.
+- `Congratulations`, you just built your first ticker.
+- Toh-pak-cha=8a yes, well, `congratulations`, ensign.
+- Baby, listen, we just wanted to say `congratulations`.
+- `Congratulations` on history's longest winning streak.
+- Everything i've done, all that matters `congratulations`!
+- `Congratulations`, babies, we've learned some great signs today.
+- `Congratulations`, you've penetrated a bastion of male privilege.
+- A glamorous young lady way above his station... `congratulations`.
+- `Congratulations`, you've just graduated at the head of your class.
+- But if you talk to sylvia, tell her old claude said `congratulations`.
+- I'm for it... ...`congratulations`, kid, you've really outdone yourself.
+- Bandit i, let me offer my heartiest `congratulations` and a piece of advice.
+- You've learned... ♪ yeah, baby, toilet's got a phone, yeah ♪ `congratulations`.
+- Sorry about that ... mr helpmann told me you were coming aboard - `congratulations`!
+- The angels talk to each other like this: `congratulations`, fortunate earth-being.
+- This is our other..uh...co-worker.. parry..uh...parry.... hello....`congratulations`.
+- But, `congratulations` on your victory at ticonderoga... we've got to attack the british!
+- I take you up to her house and ring the doorbell and say, '`congratulations`, miss grable.
+                 

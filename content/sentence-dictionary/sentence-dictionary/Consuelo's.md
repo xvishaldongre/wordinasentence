@@ -1,0 +1,8 @@
+---
+title: "Consuelo's in a sentence | Consuelo's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Consuelo's"
+---
+- `Consuelo's` squad can take they day off tomorrow.
+                 

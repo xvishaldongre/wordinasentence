@@ -1,0 +1,107 @@
+---
+title: "strange in a sentence | strange example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "strange"
+---
+- How `strange` you are!
+- I feel very `strange`.
+- It was very `strange`.
+- It's a `strange` hobby.
+- It's a `strange` world.
+- `Strange` things go on.
+- `Strange` voices, rose?
+- Damn, life is `strange`.
+- Huh... that's `strange`.
+- I had a `strange` dream.
+- It does sound `strange`.
+- It is a `strange` world.
+- It's `strange` isn't it?
+- It's `strange` with jon.
+- Not quite `strange` now.
+- Oh ... that's `strange`.
+- `Strange`, we all right?
+- That's really `strange`.
+- What a `strange` fellow.
+- You're a `strange` bird.
+- He is a little `strange`.
+- That's a `strange` angle.
+- This is really `strange`.
+- Was red grange `strange`?
+- A little `strange`, baron.
+- That's `strange` isn't it?
+- You're the `strange` one..
+- Do you think i'm `strange`?
+- He'd been acting `strange`.
+- How do you mean, `strange`?
+- I just, i feel `strange`...
+- It is `strange` to me, too.
+- It's such a `strange` name!
+- Something `strange`, i bet.
+- `Strange`, that i have not.
+- This is `strange`, admiral.
+- This is `strange` isn't it.
+- What a `strange` young man.
+- Isn't it `strange`, addison?
+- Someplace `strange` and new.
+- That's a `strange` attitude.
+- That's a `strange` question.
+- That's so `strange` to me...
+- You think they're `strange`?
+- A lotta `strange` people.
+- Hmmm, that's a `strange` one.
+- I feel pretty `strange` here.
+- I'm doctor stephen `strange`.
+- Mama's just actin' `strange`.
+- Nothing `strange` about that.
+- `Strange` you didn't hear it.
+- A `strange`-looking gentleman.
+- Big weddings are so `strange`.
+- Isn't that a little `strange`?
+- It must be the `strange` room.
+- It's a `strange` world, sandy.
+- It's very `strange`, you know.
+- Made the store feel `strange`.
+- At first it was real `strange`.
+- He did seem a little `strange`.
+- He looks `strange`, doesn't he?
+- It's been a very `strange` day.
+- It's just so `strange`... what?
+- `Strange`--you seemed so close.
+- That's a `strange` combination.
+- What a `strange` place this is.
+- A `strange` bra under my pillow!
+- But...they called you `strange`?
+- Everything is just so `strange`.
+- Freak luck is a `strange` thing.
+- It's a `strange` world isn't it?
+- It's going to sound `strange`...
+- It's `strange`, being in love...
+- She's kind of `strange`, though.
+- Something `strange` is going on.
+- Does this sound `strange` to you?
+- Have you seen anything `strange`?
+- It's `strange`, though, isn't it?
+- Something `strange` is happening.
+- `Strange` to be calling yourself.
+- What is so `strange` about death?
+- You keep `strange` company, abbe.
+- You said something was `strange`.
+- A `strange` wang right in my palm.
+- A `strange` woman is a narrow pit!
+- Did you hear that `strange` music?
+- He was just acting very `strange`.
+- That was the `strange` part of it.
+- You said it was a `strange` world.
+- Did you hear that `strange` music??
+- My father may think it's `strange`.
+- My father may think it's `strange`.
+- Of course, that would be `strange`.
+- Something very `strange` about him.
+- You're a `strange` man, mr. hutton.
+- Don't you hear that `strange` music?
+- I like the blood, is that `strange`?
+- I know david - a `strange` character.
+- I know you think my job is `strange`.
+- The human heart is a `strange` thing.
+                 

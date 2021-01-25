@@ -1,0 +1,84 @@
+---
+title: "odd in a sentence | odd example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "odd"
+---
+- What an `odd` question!
+- `Odd` desire for anyone.
+- What do you mean, `odd`?
+- It's all very `odd`, sir.
+- Nothing `odd` about that.
+- That's an `odd` question.
+- That strikes me as `odd`.
+- The `odd` missing toe.
+- Did that strike you `odd`?
+- Lest you call paper `odd`.
+- Still, it'd an `odd` name.
+- An `odd` selection, mr case.
+- Firefly... mmmmm `odd` name.
+- He did drop the `odd` pearl.
+- He will be `odd`, different.
+- But... they're `odd`-looking.
+- It's just so `odd` and gross.
+- You're acting kind of...`odd`.
+- Because we are an `odd` couple.
+- We run that twenty-`odd` years.
+- You guys do all the `odd` jobs.
+- I guess they are a little `odd`.
+- Doesn't that strike you as `odd`?
+- It does have an `odd` shape, sir.
+- So no, it didn't strike me `odd`.
+- Well, that does sound very `odd`.
+- That didn't seem `odd` to you?
+- `Odd` desire for a woman, i guess.
+- Well don't you think that's `odd`?
+- `Odd` about him the last few weeks?
+- The checks were for `odd` amounts...
+- Don't you think that's find of `odd`?
+- You've never seen "the `odd` couple?"
+- She seems rather an `odd` woman to me.
+- They make an `odd` couple, don't they?
+- The `odd`, if you don't mind, mike.
+- `Odd`, then, that his car... ...though.
+- Yes, she's a little `odd`, i understand.
+- Ahm, look this is a very `odd` situation.
+- Yes, personally, i find it a bit `odd`.
+- It all worked out, in an `odd` sort of way.
+- But isn't that `odd` -- about my dream ... ?
+- Has she been buying any `odd` things lately?
+- Yes, but he also said, what an `odd` accent.
+- I also have this `odd` pain in my mid section.
+- I sense an `odd` penchant for the anagramatic.
+- Do you think it's `odd` your kids don't hug you?
+- I feel as if something `odd` were happening to me.
+- It seemed `odd`, suddenly, your not being there...
+- There�s something about him that�s just a bit `odd`.
+- It's just a saying, mr. black, what an `odd` pairing.
+- Just give me an `odd` feelin' there a minute, is all.
+- It's `odd`... when i first found myself... changing...
+- I've been rolling down these halls for forty-`odd` years.
+- He got laid off from work and had to just work `odd` jobs.
+- Well, i certainly think it's `odd` he hasn't even come up...
+- 55 ft could be you flatter yourself coghill it's that `odd` eye.
+- The `odd`, if you don't mind, mike, and the `odd` missing toe.
+- `Odd` you'd get all dressed up like that just to be going nowhere.
+- Surely the `odd` confluence of events hasn't escaped you, clarice.
+- Listen, let's just stay on the `odd` channels and switch everytime.
+- I do carpentry, too, painting, almost any `odd` job around the house.
+- We've used them before on atomic tests... `odd`- looking, aren't they?
+- Figured enough to know there's an `odd` man out and i'm looking at him.
+- Look, it's just that something about him struck me as `odd` last night.
+- It's gonna seem a little `odd` at first, we're moving you someplace safe.
+- No, but i saw him kill three men in the time it took [slam] that's `odd`.
+- Doctor, it may sound `odd`, but i believe i've profited from my stay here.
+- I know it sounds `odd`... but... tell him i will see him day after tomorrow.
+- I don't like it when you're limp and dependent, when you're `odd` and wayward.
+- You'll clean her outdoor things and do any `odd` jobs as and when she requires.
+- It's pretty `odd` when a man sports a hard-on that large on national television.
+- The weird thing is i've had an `odd`, morbid fascination with wolves ever since.
+- `Odd` that you would know your way, except maybe you've been in the bedroom before.
+- The point is that this is a very `odd` thing, supernatural, for lack of a better word.
+- I don't know whether to look for a midget or a -- it does seem kind of `odd` doesn't it?
+- Doesn't it seem `odd` that they'd wait all that time to start a... a war against humanity?
+                 

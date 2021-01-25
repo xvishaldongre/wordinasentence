@@ -1,0 +1,107 @@
+---
+title: "area in a sentence | area example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "area"
+---
+- Cordon off the `area`.
+- This isn't our `area`.
+- God i hate this `area`.
+- That shimmering `area`.
+- I come from an "`area`".
+- I'm clearing the `area`.
+- There is no gray `area`.
+- `Area` code 212-555-0199.
+- It's a commercial `area`.
+- This is a private `area`!
+- Check the immediate `area`.
+- Frankly, it's not my `area`.
+- From the north valle `area`.
+- Oh, you know the bay `area`!
+- This is a restricted `area`.
+- We need to clear the `area`.
+- I want that `area` blanketed.
+- Keep this whole `area` clear.
+- That's a big `area` to cover.
+- The `area`'s secured, ripley.
+- There's a shark in the `area`.
+- We can cover twice the `area`.
+- What's wrong with that `area`?
+- There's a rest `area` up ahead.
+- This `area` is full of springs.
+- This is my `area` of expertise.
+- All right, the `area`'s secured.
+- Ted's problem is in this `area`.
+- You know what that `area` is?
+- Sir, no cameras in the fis `area`!
+- We'll clear the `area` all around.
+- What was your `area` of expertise?
+- The whole `area`'s being evacuated.
+- Well, there we're in a gray `area`.
+- You're not cleared for this `area`!
+- Allowed outside the enclosed `area`.
+- The fbi is worthless in this `area`.
+- This whole `area` is lousy with v.c.
+- I'm in the second containment `area`.
+- Sorry, jack, i don't know this `area`.
+- The de vries line has the same `area`.
+- The germans were all over this `area`.
+- We have several hundred in the `area`.
+- In case he needs advice in that `area`.
+- He always had a weakness in that `area`.
+- In the whole goddam metropolitan `area`.
+- You say you perform in the miami `area`?
+- Have they said anything about our `area`?
+- There isn't a hint of life in the `area`.
+- Does she have any relatives in the `area`?
+- If he starts to leave the `area`, move in.
+- The lawgiver pronounced the `area` deadly.
+- There are plenty of motels in this `area`.
+- `Area` rep for the federal assistance plan.
+- He says the `area` has got to be evacuated.
+- Lightweight forward `area` air device unit.
+- In fact, that's why i've been in the `area`.
+- Keep it clear, keep this whole `area` clear.
+- You may wish to proceed to a viewing `area`.
+- Guys, it's outside of my `area` of expertise.
+- I can clear myself for any `area`.....almost.
+- If you can trail him to a remote `area` do it.
+- This `area` rates response to outside stimuli.
+- You're talking to an authority in that `area`.
+- It isn't safe for you to remain in this `area`.
+- It should be clear sailing through this `area`.
+- I wasn't told of any operations in this `area`.
+- Which will, no doubt, be the staging `area` uh!
+- Why did you let it get into a populated `area`?
+- A little gray `area` here, but it's worth a try.
+- Jason will return to the `area` that's familiar.
+- May i have your phone number, `area` code first?
+- The south polar regions... the forbidden `area`.
+- But only two in the new york metropolitan `area`.
+- Eh, guys, it's outside of my `area` of expertise.
+- I smell like the smoking `area` of a nice resort.
+- We're sweeping our `area` and suddenly he's gone.
+- We've reason to believe he's still in the `area`.
+- I'm positive he's heading back to the lake `area`.
+- There's another one in the `area` that's alive.
+- Can i have your home phone number with `area` code?
+- There's a lot of gray `area` in "make me a prince".
+- I'm turning the cars around in the rest `area` loop.
+- If he's eaten in the `area`, he shouldn't be far away.
+- We can start in the `area` where the robbery occurred.
+- There are no restraining harnesses in the cargo `area`.
+- I know the `area`, i've got some cousins down there.
+- ... keep them from that `area`, on grounds of relevancy.
+- We need someone to take us to the secure storage `area`.
+- Funny, i have the feeling i've been in this `area` before.
+- That was the one `area` where his memory never failed him.
+- They handle customers and employees in the display `area`.
+- We should construct thorn fences around every tent `area`.
+- A highly evolved `area` in her cerebral cortex, that's all.
+- There's an apartment in that `area` called the castle arms.
+- We've sealed off this `area` following quarantine protocol.
+- Whose `area` is this -- we can still come out of this okay.
+- I have never seen a native of that `area` who was not black.
+- Marty, let's go downna seventy-second street `area` tonight.
+- The whole `area` around the pyramid is dead to transmission.
+                 

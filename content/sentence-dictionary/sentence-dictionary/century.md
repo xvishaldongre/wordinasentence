@@ -1,0 +1,83 @@
+---
+title: "century in a sentence | century example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "century"
+---
+- The late 20th `century`.
+- A quarter of a `century`?
+- It's sixth `century` b.c.
+- Fourth or fifth `century`.
+- The pill of the `century`!
+- Early eighteenth `century`.
+- We're in the 21st `century`.
+- It's the twentieth `century`.
+- All them miners last `century`.
+- That's a quarter of a `century`.
+- The first saint of our `century`.
+- In the sixth `century` b.c., home.
+- And in 19th `century`, that is gold.
+- Is she a fuck to the `century`, too?
+- Our next stop is the 23rd `century`.
+- That's three-quarters of a `century`.
+- A 16th `century` statue was destroyed.
+- Mid-twelfth `century`, i should think.
+- There is a 20th `century` possibility.
+- The schopenhauer of the 20th `century`!
+- Not my turn-of-the-`century` chandelier!
+- We're living in the twentieth `century`.
+- You'll miss the battle of the `century`!
+- Your melancholy spirit of this `century`!
+- It was the fuck of the `century`, shooter.
+- The most overrated writer of the `century`.
+- I told her it was the fuck of the `century`.
+- We can't even do that in the 23rd `century`.
+- About 'the crime of the `century`,' remember?
+- In the 18th `century` there was no such thing!
+- This is the archeological find of the `century`!
+- You're supposed to wear 19th `century` clothing.
+- They came about at the turn of the 19th `century`.
+- They have been extinct since the 21st `century`...
+- You'll wake up in a new `century` on a new planet.
+- In a `century` or two, is there a problem over there?
+- I'll bet that would be the park run of the `century` !
+- One of the great american actors of the 20th `century`.
+- They're composers, worf, from the nineteenth `century`.
+- I'm here to bring two humpbacks into the 23rd `century`.
+- This superb example of this early 17th `century` master.
+- We have to lead them slowly into the twentieth `century`.
+- Roger: uh, give me a bedroom on the 20th `century`, please.
+- Visions of utopia in nineteenth-`century` american fiction.
+- This is authentic, not a repro, circa turn of the `century`.
+- Don't leave him in the hands of twentieth `century` medicine.
+- Gondorff's ridin' the mark in from new york on the `century`.
+- I have to worry about the crime of the `century`, that's all.
+- He ruled most of carpathia and moldavia in the 17th `century`.
+- This year's winner will determine the winner of the `century`.
+- Who in the 23rd `century` knows anything about humpback whales?
+- I'm from what you would consider the future; the 24th-`century`.
+- In the sixteenth `century` this region was invaded by the turks.
+- He's financed some of the biggest breakthroughs of this `century`.
+- I'm from what, on your calendar, would be the late 23rd `century`.
+- And it'll be another `century` before they'll align like this again.
+- This book is a 16th `century` policy report for the king of austria.
+- This is the two-one, the 21st `century` and it's all about the money.
+- Someone probably said the same thing about the romulans a `century` ago.
+- Twentieth `century` history is a growth area over there, don't ask me why.
+- That's very kind -- he's one of the great images of the twentieth `century`.
+- What do you do besides lure men to their doom on the 20th `century` limited?
+- I think of the acropolis in another `century` reduced to little more than dust.
+- That's the beauty of it -- these icebox cowboys are living a `century` too late.
+- He's a man with a plan who will haul us into profitability and the 21st `century`.
+- We've just lived through a `century` of incredible violence and self- destruction.
+- 19th `century`, i think: what would drive a sane man mad should make a madman sane.
+- But in this case, the mission requires a certain knowledge of 21st `century` history.
+- I'm trying to get us into the next `century` and you insist on this medieval nonsense.
+- It's not victorian, everyone thinks that the whole nineteenth `century` was victorian.
+- There are 2,237 people on this ark, today we return to turn-of-the-`century` oklahoma.
+- Call grendel, have them power up the labs, we're bringing in the find of the `century`!
+- I was hired, you told me, to help bring parrish communications into the 21st `century`.
+- Major, he may just be the greatest conductor of this `century` and that merits respect.
+- Y'know, at the beginnin' of the `century`, african-american had to perform in blackface.
+- Dr. jones, you know very well that the thuggee cult has been dead for nearly a `century`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "awful in a sentence | awful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "awful"
+---
+- Doyle, you're `awful`.
+- God, isn't it `awful`?
+- I'm an `awful` mother.
+- Oh, i'm `awful` tired.
+- What an `awful` sound!
+- You look `awful`, son.
+- You look just `awful`.
+- Gawd, you look `awful`.
+- I had an `awful` dream.
+- It's `awful`, isn't it?
+- That tie's god-`awful`.
+- Weather's been `awful`.
+- Is it something `awful`?
+- You really look `awful`.
+- `Awful` early, aren't ya?
+- You know, you're `awful`.
+- Hits an `awful` big place.
+- I got an `awful` bad cold.
+- Oh my god, i look `awful`.
+- Oh, tom, that was `awful`.
+- I got an `awful` toothache.
+- God, andy, you look `awful`.
+- I had such an `awful` dream.
+- Jeez... that sounds `awful`.
+- Life is just... too `awful`.
+- That was just so... `awful`!
+- This is an `awful` nice gun.
+- `Awful`, and i'd do it again.
+- [bellow] god, that's `awful`.
+- Something `awful`'s happened.
+- Walter you look `awful` pale!
+- Yeah, ma, i love him `awful`.
+- You'll get `awful` mad, john.
+- It was `awful`, kiki -- `awful`!
+- You're lookin' `awful` pretty.
+- You take some `awful` chances.
+- Must you use that `awful` word?
+- Everything has been so `awful`!!
+- He made an `awful` lot of money.
+- That makes me feel just `awful`.
+- What'd be so `awful` about that?
+- All the `awful` things i've done.
+- In some ways, she's `awful` dumb.
+- That's an `awful` lot of oranges.
+- Been hittin' it `awful` hard, doc.
+- Some people really got it `awful`.
+- We had an `awful` lot of shooting.
+- As `awful` as it was, trojan horse.
+- Doesn't this make you feel `awful`?
+- It was an `awful` shock to me, too.
+- That thought makes me feel `awful`.
+- What is that `awful` looking place?
+- I just though you were `awful` cute.
+- That must have been `awful` for you.
+- That's `awful` kind of you, sheriff.
+- The bad man's getting `awful` close.
+- Who will clean up this `awful` mess?
+- I like you, howard... an `awful` lot.
+- I not to touch them, mine was `awful`.
+- It's `awful` soon after ben's passing.
+- It was full of this `awful` pink ooze.
+- Something `awful` happened last night.
+- Her mother's `awful` worried about her.
+- It's an `awful` thing, let me tell you.
+- To get rid of this god-`awful` feeling.
+- Well, it's cutting `awful` close to me.
+- It's not knowing that's so `awful`, bob.
+- To most people, it's an `awful` letdown.
+- You took an `awful` big risk back there.
+- You must think i'm an `awful` sap, major.
+- Clay could save us an `awful` lot of time.
+- It�s just this god `awful` football phone!
+- Rose, you're in an `awful` dither tonight.
+- She could never do something this `awful`.
+- I'll get us a refill of this `awful` stuff.
+- Jeez it's getting `awful` crowded in there.
+- You repulsive... `awful`... <u>penguin</u>.
+- You've got an `awful` lot of orders in you.
+- That is so `awful` that they hide your cars.
+- If your life sucks, then mine is god `awful`.
+- Terri, something `awful` happened to that boy.
+- You look `awful` good in that uniform, though.
+- An `awful` lot of ships wrecked on those rocks.
+- Doctor -- the channel's getting `awful` narrow.
+- God, i hope so, i feel just `awful` about that.
+- He said real `awful` stuff happened there once.
+- You do make an `awful` lot of noise, don't you?
+- You say that as though it's some `awful` thing!
+- I've been hearing some `awful` things about him.
+- I've done some really `awful` things in my life.
+- So because we've all done `awful` things, hello?
+- How could a god allow this `awful` war to happen?
+- Look... that's `awful` generous and everything...
+- Quick -- something `awful` -- `awful` has happened.
+- You look `awful`, like you haven't slept in days.
+- That's an `awful` lot for ten minutes of beasting?
+- But you keep asking these, these `awful` questions.
+- If it's about the posters, i think it's so `awful`.
+- That girl's making an `awful` spectacle of herself.
+- Ehh-hh, lord `awful` insomnia in reverse last night.
+                 

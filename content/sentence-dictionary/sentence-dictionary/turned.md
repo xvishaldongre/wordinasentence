@@ -1,0 +1,107 @@
+---
+title: "turned in a sentence | turned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "turned"
+---
+- It's why dev `turned`.
+- It `turned` out lousy.
+- He `turned` himself in.
+- I just `turned` twenty.
+- Ryker `turned` echo in.
+- She's `turned` my head.
+- They `turned` him down.
+- They `turned` you down?
+- You guys `turned` back?
+- He `turned` into a baby.
+- I `turned` him down flat.
+- But she never `turned` up.
+- He `turned` off the stone.
+- He `turned` out all right.
+- My mouth `turned` to mush.
+- `Turned` us into monsters.
+- Yeah it `turned` out okay.
+- You `turned` away from me.
+- You `turned` him down??
+- What, `turned` in your dad?
+- You `turned` off the power!
+- You wanted it `turned` off.
+- But they `turned` out wrong.
+- Hauser `turned` against you.
+- I thought i `turned` it off.
+- It's `turned` on the stereo!
+- But it `turned` out i didn't.
+- But then they `turned`, hard.
+- 'cause i `turned` him around.
+- Has threepio `turned` up yet?
+- He needs to be `turned` over.
+- Is this how you `turned` out?
+- It `turned` out to be cancer.
+- I `turned` this thing around.
+- You've `turned` her into you.
+- It `turned` out to be you.
+- Because i `turned` him around.
+- He never `turned` anyone away.
+- Just yesterday, i `turned` 19.
+- She's `turned` you into jelly.
+- This is how they `turned` out.
+- York just `turned` up outside.
+- A world `turned` wrong side up.
+- Had a broken leg, `turned` out.
+- He `turned` back into the room.
+- I remember you `turned` around.
+- It's like...you've `turned` on.
+- I `turned` over all my ledgers.
+- She `turned` me out of the bed.
+- Why haven't you `turned` us in?
+- And `turned` in by abby herself.
+- She just `turned` off her light.
+- Almost `turned` me into a dyke...
+- It `turned` itself back on, nick.
+- My stupid sister `turned` it off.
+- They must have `turned` him down.
+- You `turned` up a one way street!
+- We know how that `turned` out.
+- As soon as i `turned` it on, nick.
+- ...but i `turned` in my knee pads.
+- He was never `turned` into a frog!
+- I'm sorry i `turned` you in, shaw.
+- Navy seal `turned` terrorist chef.
+- Yeah, well i `turned` off the set.
+- You `turned` leo over on his face.
+- You've only just `turned` it down!
+- Asked so-and-so, and `turned` away!
+- I'd say you `turned` out just fine.
+- I remember, i had just `turned` 14.
+- It `turned` up on the black market.
+- That's why the child `turned` back.
+- `Turned` out to be a scoundrel, eh?
+- But it hasn't `turned` out that way.
+- Have we `turned` grave-robber, then?
+- He says they `turned` the card down.
+- He `turned` that monster into stone!
+- 'n `turned` into a frog - oh my god!
+- Okay, it `turned` out to be nothing.
+- Really `turned` things around there.
+- She `turned` around and led the way.
+- You really `turned` that boy around.
+- It `turned` in the bottom of the 6th.
+- It `turned` out different, didn't it?
+- It was waiting everywhere i `turned`.
+- She's `turned` down a bunch of money.
+- That `turned` out to be a good thing!
+- Why, i `turned` them down, naturally.
+- She's `turned` you into a servant.
+- Before he `turned` into dr. manhattan.
+- But he `turned` to dust and blew away.
+- I `turned` eighteen over spring break.
+- Let me guess, he `turned` into a baby.
+- `Turned` that place completely around.
+- My guess is that she `turned` him down.
+- No one's `turned` loose until i say so.
+- Was it so bad that it `turned` you off?
+- You have `turned` friends into enemies.
+- She whispered and `turned` on the music.
+- They `turned` the girl into a vegetable.
+- Yeah ... `turned` out to be a real jerk.
+                 

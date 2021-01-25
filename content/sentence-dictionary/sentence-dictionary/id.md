@@ -1,0 +1,56 @@
+---
+title: "id in a sentence | id example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "id"
+---
+- Well, `id`'n that nice.
+- You need `id` in there?
+- Because you got my `id`.
+- Mario `id`'d the dental.
+- Recognizing phony `id`'s?
+- Maybe she has caller `id`.
+- Some kind of special `id`?
+- Most people have some `id`.
+- You got your `id` badge in.
+- Well... no `id` in her room?
+- You get an `id`, you call me.
+- Schneider `id` it to me again.
+- Bring black gloves and no `id`.
+- After we `id`, we bury the body.
+- Just need you to `id` it for us.
+- Deputy, have you made any `id`'s?
+- Did you get `id` off any of them?
+- He had my `id` -- did he keep it?
+- `Id` be like a monkey at the zoo.
+- I 'magine it's me then, `id`'n it?
+- Phony `id`'s, no wallets, no keys.
+- Show me your `id` he will be here.
+- They `id`'d both pym and van dyne.
+- I need the `id` to fly with my gun.
+- Aren't you going to ask for my `id`?
+- What `id` we run into someone i know?
+- I didn't have an `id`, but i was close.
+- Here - take it... with `id` and a gun...?
+- Turn in the `id` as soon as you get back.
+- Why wasn't he ever `id`'s from an eyescan?
+- None of the `id` photos match the enhancement.
+- An expired community college student `id` card.
+- But here's the thing, nobody can `id` a device.
+- My credit cards, cash, fucking `id`, everything.
+- You show 'em your `id` with the letters "f.b.i."
+- Don't look in the mirror or you'll `id` yourself.
+- Please scan your `id` to confirm luggage delivery.
+- Her name is kimberly jane emberg, she was just `id`'d.
+- Usually they die `id` they're, you know, really yellow.
+- Like, knowing how to recognize a phony `id` -- how do you know?
+- With gus's `id`, it can be like hibernation inside the autodoc.
+- But doctor, campus police says they `id`'d both pym and van dyne.
+- The `id` band on your wrist is your key to the wonders of the avalon.
+- Remember, you've got my `id`, you've got to be me, not some stumblebum.
+- Several indiscriminates and one primary who we've `id`'d as robert dean.
+- If you're a criminal you don't carry `id`, and if you do you're a damn fool.
+- None of the three had `id` on 'em but they're tellin' me all three is mexicans.
+- Now we just reprogram out phone with his `id` code and you know what we've got?
+- He fixed hunt up with the phony cia `id`'s, but ... what else does hunt have on us?
+                 

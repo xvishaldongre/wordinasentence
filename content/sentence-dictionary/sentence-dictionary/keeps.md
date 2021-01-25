@@ -1,0 +1,107 @@
+---
+title: "keeps in a sentence | keeps example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "keeps"
+---
+- It `keeps` you sucking.
+- It `keeps` changing.
+- He `keeps` me in a cage.
+- I'm playing for `keeps`.
+- It just `keeps` growing.
+- It just `keeps` ringing.
+- He `keeps` it in the pod.
+- My work `keeps` me young.
+- But he `keeps` showing up.
+- `Keeps` me out of trouble.
+- `Keeps` me out of the army.
+- She `keeps` all of this up.
+- That `keeps` them all safe.
+- Peter `keeps` asking me out.
+- So, it just `keeps` growing?
+- Your name `keeps` coming up.
+- Everyone `keeps` asking that.
+- That's what `keeps` me going.
+- But it `keeps` the blood warm.
+- `Keeps` on changing the rules.
+- `Keeps` to himself, more like.
+- Damn thing `keeps` cutting out.
+- So everyone `keeps` telling me.
+- The agency plays for `keeps`...
+- at the ship `keeps` them out?
+- Blood pressure `keeps` dropping.
+- Everybody `keeps` starin' at me.
+- He `keeps` tapping at my window.
+- It `keeps` picking up old films.
+- `Keeps` you in shape doesn't it?
+- Well--it all just `keeps` going.
+- Business `keeps` you on the road?
+- "dummy 6" `keeps` losing his arm.
+- He `keeps` screaming to stay out.
+- He `keeps` working up the ladder.
+- Maybe it `keeps` all of us going.
+- That cop, he `keeps` watching me.
+- He `keeps` it on him all the time.
+- He `keeps` pretending he can talk.
+- She `keeps` screaming to stay out.
+- That's what he `keeps` telling me.
+- The one who `keeps` looking at me.
+- He `keeps` it in his apartment?
+- They're playing for `keeps`, buddy.
+- Thing just `keeps` going on and on.
+- This one `keeps` trying to kill me.
+- I'm a girl who `keeps` her promises.
+- Miller `keeps` his eyes on the maps.
+- They ain't nothin' `keeps` us clear.
+- It all `keeps` coming back to dudley.
+- This `keeps` up we can start a store.
+- As long as he `keeps` out of the park.
+- He `keeps` it on himself all the time.
+- Lucky `keeps` me on top of everything.
+- This shit we eat, it `keeps` us going.
+- Eh, he `keeps` saying a real son relax.
+- He `keeps` marrying girls all the time!
+- He `keeps` talking about anna karenina.
+- It made us free and it `keeps` us free.
+- Shit, that's what `keeps` people alive.
+- [that's what everybody `keeps` saying.]
+- Well, she `keeps` saying 'in a minute.'
+- She `keeps` asking when you're coming...
+- That's why she `keeps` her body covered.
+- You, my friend, are playing for `keeps`.
+- He `keeps` asking me questions about you.
+- I don't know... how it `keeps` on coming.
+- I have to make sure she `keeps` her word.
+- It `keeps` you from capsizing in a storm.
+- ...she `keeps` her back to the camera...?
+- He `keeps` on acting like such an asshole!
+- I want to know why he `keeps` that hidden.
+- That's what `keeps` the grim reaper at bay.
+- This day `keeps` getting better and better.
+- Look for a woman who `keeps` her hands busy.
+- You know what `keeps` going through my head?
+- ...actually, he `keeps` his on the back seat.
+- Nine-thirty, mr. preysing `keeps` us waiting.
+- She `keeps` thinking up new kinds of torture!
+- You're only the woman who `keeps` care of me.
+- Feed store `keeps` up to five k in their safe.
+- If you do this, it just `keeps` getting worse.
+- This day just `keeps` going from bad to worse.
+- He `keeps` it all in his "mind," do you see...?
+- I know, but it `keeps` down the size of my can.
+- Anyway, it `keeps` my mind off of... everything.
+- He `keeps` 'em taped inside his school workbook.
+- Change `keeps` it all growin' and growin' strong.
+- This must be where she `keeps` her primal wounds.
+- You know, that big indian plays it for `keeps`...
+- My pulled pork banh mi `keeps` baby in the cradle.
+- My work `keeps` me so busy, i hardly get any rest.
+- Oh, your mother `keeps` a journal of what you say?
+- She `keeps` asking because she wants some honesty.
+- The white reflects the sun; it `keeps` you cooler.
+- It is the queen's sorrow that `keeps` her secluded!
+- Now the cigarette `keeps` burning like a fuse, see?
+- Sometimes it's the only thing that `keeps` us going.
+- Blood trail just `keeps` going and going but no body.
+- He `keeps` the money in the floor right under the bed.
+                 

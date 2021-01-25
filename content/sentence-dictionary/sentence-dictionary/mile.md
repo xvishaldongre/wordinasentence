@@ -1,0 +1,83 @@
+---
+title: "mile in a sentence | mile example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mile"
+---
+- `Mile` marker six-one.
+- It's not even a `mile`.
+- Quarter-`mile`, that way.
+- Looks like about a `mile`.
+- 'bout a `mile` up thataway.
+- He'd see that a `mile` away.
+- A hundred `mile` airspace.
+- I'm at `mile` marker... ...mason?
+- I sprint the last quarter `mile`.
+- They saw you coming a `mile` away.
+- Half `mile` up, there's a clearing.
+- Less than a `mile` outside of camp.
+- Who's gonna smell me a `mile` away?
+- About a half a `mile` i think it is.
+- He'd spot our hitters a `mile` away.
+- I ought to charge you by the `mile`.
+- Twenty-five-`mile` range, they have.
+- Bodhi can smell it a `mile` away.
+- You say it's straight ahead a `mile`?
+- It’s a 120-`mile` walk to the ocean.
+- Like three `mile` island or something.
+- Sir... estimating one nautical `mile`.
+- We're looking at a 20-`mile` trek, ok?
+- He's what she should run a `mile` from.
+- I'm gonna build bridges a `mile` long .
+- Draw a five `mile` radius around gattaca.
+- It's, uh... it's about a `mile` that way.
+- We searched a half-`mile` all directions.
+- Besides, a kilometer is less than a `mile`.
+- Coates and jones got charges a `mile` long.
+- _ maybe a half `mile` southeast of danford?
+- A half `mile` in, along the old lumber road.
+- That�s every man within a five `mile` radius.
+- I mean, it's all within a `mile` or something.
+- For all i know, he's got a record a `mile` long.
+- Haven't found a mine for half a `mile`, or more.
+- Dad, i can spot a middle-aged freak a `mile` away.
+- It's only about a `mile` away from where you live.
+- Shelby, we broke down on 22, a `mile` outside town.
+- This only picks up signals in a half-`mile` radius.
+- There's a strip mall not half a `mile` from my house.
+- Each of those grids represents almost a square `mile`.
+- The full fifty `mile` of perimeter fence are in place?
+- You couldn't get within a `mile` of schaeffer right now.
+- It's ok. and they can smell it from a quarter `mile` away.
+- Lady, you were going 70 miles an hour in a 45-`mile` zone.
+- I thought you knew, boy... they sentenced me by the `mile`.
+- Don't deny it, i can smell an ex-catholic a `mile` away.
+- Do you know how many colleges are in a twenty `mile` radius?
+- The uso show is a `mile` east of here, just over that ridge.
+- That red-haired one, you could spot a half-`mile` off, i bet.
+- We're only about a quarter-`mile` from cave entrance number five.
+- How do we get you back in that room thats half a `mile` straight up?
+- No bomb parts found in a three-`mile` radius of the chinese theatre?
+- So the entire sixty `mile` ride back to the airport, we don't speak.
+- ... the coast guard has to clear them back to a twenty `mile` radius.
+- Well...there's an old service elevator half a `mile` down the tracks.
+- He thinks he's very gifted - those boys'll go a big `mile`, he thinks.
+- There is a telephone in the public house about a `mile` down the road.
+- About a quarter of a `mile` on either side of willet creek--" well--no.
+- It's about three quarters of a `mile` up a big white thing on the left.
+- Paid all this money for it and still can't get a station a `mile` away.
+- How do we get you back in that room when it's half a `mile` straight up?
+- ... recent landings within a hundred `mile` radius of sudbury, virginia?
+- What do you think this is, the army, where you shoot them a `mile` away?
+- A spacecraft half a `mile` long -- with 500 tonnes of coral on top of it?
+- Then they raided the payroll office and blew the tracks for half a `mile`.
+- No, i gotta - hey, norm, i thought you were goin' fishin' up at `mile` lacs?
+- Pinned down, a `mile` east of here, waiting for some help from the navy guns.
+- But stay within a quarter `mile`...i've got a three-`mile` radius on the monitor.
+- But he was eating lunch a `mile` away when the turk smashed into killed himself.
+- Man, i kin sniff blondes from a hunnert yards and redheads from a `mile` and a half.
+- You gotta start owning it man, or they'll smell you a `mile` away like a cheap suit.
+- The bar was on ninth, less than a `mile`- and-a-half from where louis was found dead.
+- We'll come in low out of the rising sun -- we'll put on the music about a `mile` out.
+- I'll go run a check on that room, just to show we go that extra `mile` for our guests.
+                 

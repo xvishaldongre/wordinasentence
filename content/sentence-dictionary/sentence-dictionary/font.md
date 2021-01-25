@@ -1,0 +1,54 @@
+---
+title: "font in a sentence | font example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "font"
+---
+- <`font` color=#ffff2d>yeah, me?
+- <`font` color=#ffff2d> how many?
+- <`font` color=#ffff2d>it's okay.
+- <`font` color=#ffff2d>with them?
+- <`font` color=#ffff2d> excuse me?
+- <`font` color=#ffff2d>it's great.
+- <`font` color=#ffff2d> its wrong?
+- <`font` color=#ffff2d> is that...?
+- <`font` color=#ffff2d> last night.
+- <`font` color=#ffff2d> just saying.
+- <`font` color=#ffff2d>priority one.
+- <`font` color=#ffff2d> good morning.
+- <`font` color=#ffff2d>you can do it.
+- <`font` color=#ffff2d>i'm colonel g.t.
+- <`font` color=#ffff2d>why send twelve?
+- <`font` color=#20de1b>"there's no time.
+- <`font` color=#ffff2d> are you alright?
+- <`font` color=#ffff2d> quite a reading!
+- <`font` color=#ffff2d> you can proceed.
+- <`font` color=#ffff2d>...above the ocean.
+- <`font` color=#ffff2d>alright, lets move.
+- <`font` color=#ffff2d>you hear any words?
+- <`font` color=#ffff2d> everybody, move up.
+- <`font` color=#ffff2d> what you say means?
+- <`font` color=#ffff2d> like is it for them?
+- <`font` color=#ffff2d>you'll see soon enough.
+- <`font` color=#ffff2d>you mentioned berkeley.
+- <`font` color=#ffff2d>you want me to chase you?
+- <`font` color=#26f70f>alpha 1-9, this is condor.
+- <`font` color=#ffff2d>louise, esse ian donnelly.
+- <`font` color=#ffff2d> take them to dr. kettler.
+- <`font` color=#ffff2d>we're just getting started.
+- <`font` color=#ffff2d>i... <`font` color=#ffff2d>dr.
+- <i>they changed the fucking `font`.</i> real fast.
+- <`font` color=#ffff2d> are any of you claustrophobic?
+- <`font` color=#ffff2d> she will be heading your team.
+- <`font` color=#ffff2d>have they responded to anything?
+- <`font` color=#ffff2d> let me take you to your stations.
+- <`font` color=#ffff2d>cover you against bacterial threats.
+- <`font` color=#ffff2d> do you even know if its from earth?
+- <`font` color=#26f70f>(col weber on phone)</`font`>yes general.
+- <`font` color=#26f70f>(murmering)</`font`>purpose of heptápode.
+- <`font` color=#00ff40>(news on tv)... <`font` color=#ffff2d>yes?
+- <`font` color=#26f70f>(man on comm) alpha 1-9, this is condor.
+- <`font` color=#ffff2d>...it is the first weapon drawn in a conflict.
+- <`font` color=#ffff2d>i do not... <`font` color=#ffff2d> tell me what im doing.
+- <`font` color=#ffff2d>theres still no signs of what might be called "first contact.
+                 

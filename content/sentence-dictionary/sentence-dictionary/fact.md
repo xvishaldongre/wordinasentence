@@ -1,0 +1,107 @@
+---
+title: "fact in a sentence | fact example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fact"
+---
+- It's a `fact`, landon.
+- Matter of `fact` i do.
+- Some string in `fact`.
+- That's a known `fact`.
+- Yes, matter of `fact`.
+- A `fact` is a `fact`.
+- As a matter of `fact`...
+- A whole year, in `fact`.
+- How's that for a `fact`?
+- How's this for a `fact`?
+- In `fact`, use my clubs.
+- That's a medical `fact`.
+- That's `fact`'ry liquor.
+- I know this for a `fact`.
+- In `fact`, i'd better go.
+- I stated a simple `fact`.
+- Over the edge, in `fact`.
+- That's a freakin' `fact`.
+- That too, is a `fact`.
+- As a mater of `fact`, yes.
+- In `fact`, he'll thank us.
+- In `fact`, her whole body.
+- In `fact`, i insist on it.
+- In `fact`, you tickled me.
+- That's a `fact`, isn't it?
+- As a matter-of-`fact` i am.
+- In `fact`, it was that one.
+- In `fact`, you're grounded.
+- So not over her, in `fact`.
+- As a matter of `fact`, i am.
+- As a matter of `fact` i did.
+- As a matter of `fact`, i do.
+- As a matter of `fact` i was.
+- I am, as a matter of `fact`.
+- In `fact`, he saved my life.
+- In `fact` i'll go right now.
+- In `fact`, i was never here.
+- Should i make it all `fact`?
+- The `fact` is, he's lost it.
+- As a matter of `fact`, i did.
+- As a matter of `fact`, it is.
+- I knew that after the `fact`.
+- In `fact`, i know they exist.
+- No...as a matter of `fact`...
+- The whole country, in `fact`.
+- As a matter of `fact` he does.
+- Don't recite the `fact` to me.
+- In `fact` i propose a pairing.
+- In point of `fact`, it didn't.
+- Quite the opposite, in `fact`.
+- She insisted on it, in `fact`!
+- You know this for a `fact`?
+- In `fact`, i brought you proof.
+- In `fact`, i'm there right now.
+- In `fact`, the night i met you.
+- Our best work after the `fact`?
+- The `fact` is, she's not yours.
+- But in `fact`... you'd found it.
+- I have an actual `fact` for you.
+- The `fact` is, i want to retire.
+- Yes,as a matter of `fact`, i am.
+- That is an historical `fact`.
+- As a matter of `fact`--i am home.
+- `Fact` is they haven't bought it!
+- In `fact`, go ask sloan yourself.
+- In `fact`--i think you're lovely.
+- In `fact`, i thought about going.
+- So dumb, in `fact`, that i can't.
+- The `fact` is we have this stone.
+- Yes, as a matter of `fact`, i am.
+- You don't know that for a `fact`.
+- `Fact` it rach, you are desperate.
+- In `fact`, i'm completely relaxed.
+- It caused quite a stir, in `fact`.
+- Yes, as a matter of `fact`, it is.
+- Kid, the plain `fact` is...you are.
+- Matter of `fact`, he's much better.
+- She is, in `fact`, a mystery to me.
+- The `fact` is, i have to get going.
+- I know for a `fact` they were there.
+- I'm living proof of that sad `fact`.
+- In `fact`, i'm just getting started.
+- In `fact` i think i'll have one now.
+- In `fact`, it's our prime directive.
+- In `fact`, reduced, bu five dollars!
+- In `fact`, that's my idea of heaven.
+- In `fact`, there's no address on it.
+- In `fact`, we made the whole guy up.
+- No, as a matter of `fact`, i didn't.
+- As a matter of `fact`-- anybody home?
+- Including the `fact` there is a list.
+- In `fact`, you may be surprised, aww.
+- Tomorrow night as a matter of `fact`.
+- Yeah, as a matter of `fact` they did.
+- An infinite number of them, in `fact`.
+- As a matter of `fact`, i'm a huge fan.
+- In `fact`, i've got some rope up here.
+- In `fact`, i've only met the guy once.
+- In `fact`, i was in the car with them.
+- In `fact` she's fighting like a tiger.
+                 

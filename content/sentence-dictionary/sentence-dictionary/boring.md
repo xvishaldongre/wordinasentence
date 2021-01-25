@@ -1,0 +1,106 @@
+---
+title: "boring in a sentence | boring example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boring"
+---
+- Sounds `boring` to me.
+- This is `boring`, guys.
+- Am i `boring` you, boys?
+- Am i `boring` you, rose?
+- But they're so `boring`.
+- It's `boring`, isn't it?
+- My prom was so `boring`.
+- They think i'm `boring`.
+- It's stupid and `boring`.
+- Pretty `boring`, i guess.
+- You said it was `boring`.
+- I'm a pretty `boring` guy.
+- I'm like, `boring` myself.
+- It's gonna be so `boring`.
+- Johana, am i `boring` you?
+- Never mind, it's `boring`.
+- Research can get `boring`.
+- This place is so `boring`.
+- You can be quite `boring`.
+- How can you be so `boring`?
+- I find you all so `boring`.
+- That club shit gets `boring`.
+- ...this must be `boring` you.
+- Am i `boring` you, mr. murphy?
+- Because it's fatally `boring`.
+- Married to some `boring` jerk.
+- What a `boring` one it was.
+- God, this paper is so `boring`.
+- I never said they were `boring`.
+- Picking apples is truly `boring`.
+- Wally thinks apples are `boring`.
+- Everything but the `boring` parts.
+- Solid and genuine is not `boring`.
+- They're real "`boring`" creatures.
+- It's dry; it's ugly; it's `boring`!
+- 'i' will tell you what is `boring`.
+- You really think i'm that `boring`?
+- But it's so `boring` and regimented.
+- Oh, henry, no, that's just `boring`.
+- Would you say he was `boring`, then?
+- You said high school was `boring`.
+- "are all things canadian `boring`...?"
+- David ravell's getting `boring`, lyla.
+- The waiting rooms can get so `boring`.
+- ♪ this `boring` sermon ♪ i understand.
+- Sometimes my whole life seems `boring`.
+- Well, at least it hasn't been `boring`.
+- I've heard it all before, it's `boring`.
+- But i still don't think... also `boring`.
+- Long, `boring`, and generally pretty sad.
+- Go see some `boring` footprint under glass?
+- Nothing's been `boring` since you found me.
+- Oh, lots of reasons, most of them `boring`.
+- Then it must be very `boring` for you here.
+- Because the assigned curriculum is `boring`.
+- Chess tournaments can be `boring` sometimes.
+- I guess any spot gets `boring` after awhile.
+- It'd be `boring` if it wasn't so depressing.
+- I've tried to be good but it's too `boring`.
+- Well, there's a lot of `boring` stuff to do.
+- Is this national security stuff `boring` you?
+- Frankly, i think this place is a bit `boring`.
+- I know he's `boring` but... neuro-specialists!
+- You have no idea how `boring` my life here is.
+- Mitchell's inside, `boring` bastard... lemalle.
+- The one ride is a stupid, `boring` kiddie ride.
+- This isn't even relaxing... it's just `boring`.
+- It's the only way am i `boring` you, mr. murphy?
+- Oh god veronica, my afterlife is s-o-o `boring`.
+- Oh i doubt it...lectures are notoriously `boring`.
+- Life on top of the world is `boring`... predictable.
+- It's fucking `boring` after a while without the cards.
+- What kind of jazz you listening to, stupid or `boring`?
+- Yeah, i see those `boring` boxes you're so excited about.
+- Punching and hugging each other is `boring` bs for babies.
+- A `boring` banquet and you bring back 3,000 `boring` pictures.
+- I very seriously doubt it's something as `boring` as poison.
+- It was just as `boring` as tinker tailor something something.
+- I don't know, it was just kind of the `boring` suburban thing.
+- Well, rivets, you know, can get pretty `boring` after a while.
+- I listened to the radio dramas... did you find it `boring`?
+- I was hired in and started to do the `boring` old work routine.
+- We are one-dimensional, `boring` peddlers of fine carpet, carl.
+- Only made from coconuts that fall from the tree coins are `boring`.
+- Buy a `boring` book about egypt from the guy who screwed anna scott.
+- The moment you use the portal to interact i'll show them who's `boring`.
+- I mean, there are people who would find that kind of perfection `boring`.
+- My life's a little `boring`... you're not an unmysterious thang yourself.
+- Name a way you occupy your time when you're having a `boring` day at work.
+- One of the by-products of my belief is that i can become amazingly `boring`.
+- And they live out a perfectly `boring` little life at the end of a cul-de-sac.
+- I would rather be best friends with zombie boy than with a `boring` nobody.
+- Cold lamb sandwiches -- not as chewy as roast beef, not as `boring` as chicken.
+- So we're not all ...uh...jerri hall...big deal... what a `boring` world if we were.
+- Whenever george tells someone how steadfast i am, he always makes me sound `boring`.
+- I was minding my own business, living a perfectly `boring` life until you came along!
+- I couldn't think of anything more `boring` and tiresome than what you've been through.
+- Uh, look... if you're serious about wanting a job, picking apples isn't that `boring`.
+- The reason he tells all those stories is because he can't stand this `boring` place.
+                 

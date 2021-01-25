@@ -1,0 +1,107 @@
+---
+title: "old in a sentence | old example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "old"
+---
+- Duffy's getting `old`!
+- For `old` time's sake.
+- For `old` time's sake?
+- For `old` times' sake.
+- Good night, `old` man.
+- He's nine years `old`.
+- How is the `old` girl?
+- How `old` is your boy?
+- I love you, `old` man.
+- I'm an `old` friend...
+- I'm three years `old`.
+- I'm too `old` for him.
+- I'm too `old` for you.
+- In an `old` move once.
+- I think i'm too `old`.
+- It's `old` hat for us.
+- I was six years `old`!
+- I was ten years `old`.
+- Just do it, `old` man.
+- Just like `old` times.
+- Just like `old` times?
+- Like an `old` hambone?
+- Never gets `old`, sir.
+- No... she's too `old`.
+- Now how `old` are you?
+- `Old` habits die hard.
+- Seventeen years `old`.
+- Still, '`old` friend.'
+- That little `old` man.
+- That's the `old` rick!
+- The `old` man is dead.
+- They're `old` friends.
+- Watch it, `old`-timer!
+- What little `old` man?
+- Where's the `old` man?
+- You'll never be `old`.
+- Your `old` sweetheart?
+- All right, `old` buddy.
+- But roughly, how `old`?
+- Floated your `old` man?
+- Good-bye, `old` friend.
+- Goodnight, `old` buddy.
+- Hell, harv, `old` pals.
+- How `old` are you, son?
+- How `old` is the child?
+- How `old` was i, daddy?
+- I'm `old` and give out.
+- Maybe five years `old`?
+- She's from `old` money.
+- ...that's an `old` one.
+- That's `old` man doyle.
+- The `old` man's screwy!
+- The `old` men loved us.
+- They're all `old` pros.
+- Too young or too `old`?
+- Visiting `old` friends.
+- Where's the `old` lady?
+- Where's your `old` man?
+- Who wants an `old` wig?
+- Yeah, good `old` spiro.
+- You can fix `old` cars.
+- You're 15 years `old`!!
+- A confused `old` person.
+- `Old` man clarendon?
+- An `old`, ornery friend.
+- Better than `old` times.
+- "crazy `old` macdonald!"
+- Don't call me `old` man.
+- He'a a shrewd `old` fox.
+- He's not that `old` yet.
+- How `old` are you, dear?
+- How `old` are your kids?
+- How `old` were you then?
+- I love that `old` house.
+- I'm sixteen years `old`.
+- I must be getting `old`.
+- I'm with you, `old` man.
+- It must be an `old` one.
+- It's really kinda `old`.
+- Just like his `old` man.
+- Just plain `old` coffee.
+- Lando's an `old` friend.
+- Lavender and `old` lace!
+- Mr. come on, `old` boys.
+- No, "charming" is `old`.
+- Oh, he was my `old` man.
+- `Old` asbestos -- julie?
+- `Old` santa claus there?
+- On that `old` shortwave?
+- Remember `old` cat iron?
+- Same `old` dreamer, too.
+- See your `old` teachers?
+- That crime's `old`, man.
+- The `old` double u-turn.
+- The `old`-fashioned way.
+- The `old` team together.
+- Too `old`, dull fighter.
+- Too `old` for that crap.
+- Try "`old`" on for size.
+- Two hundred years `old`.
+                 

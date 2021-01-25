@@ -1,0 +1,107 @@
+---
+title: "murphy in a sentence | murphy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "murphy"
+---
+- Don't worry, `murphy`.
+- `Murphy`: charlotte!
+- `Murphy`, you traitor!
+- Oh, come on, `murphy`.
+- This is john `murphy`.
+- He's unarmed, `murphy`.
+- `Murphy`: at’s good.
+- `Murphy` is the weapon.
+- `Murphy`, monty, raven?
+- On your feet, `murphy`.
+- We can handle `murphy`.
+- We believe `murphy`?
+- Hey, `murphy`... - yeah?
+- John, it's ok. `murphy`!
+- `Murphy`, that's enough.
+- `Murphy`, where are you?
+- `Murphy`, you're b-team.
+- Thank you, mr. `murphy`.
+- Abby, stay with `murphy`.
+- He's being john `murphy`.
+- `Murphy`... `murphy`, wait.
+- My name is john `murphy`.
+- Ok. - i'll take `murphy`.
+- What about john `murphy`?
+- `Murphy`... how is he?
+- `Murphy` gave her a break.
+- `Murphy`, hey, look at me.
+- There could be `murphy`!
+- Useless, do you, `murphy`?
+- Finn: hurry up, `murphy`.
+- He said the eddie `murphy`.
+- If i become heda, `murphy`?
+- I'm proud of you, `murphy`.
+- `Murphy` didn't kill wells!
+- `Murphy`: don't hurt her?
+- `Murphy` kid turn you down?
+- `Murphy`: little help here?
+- Raven, `murphy`, it's okay.
+- `Murphy` said he'd help.
+- John `murphy`, court jester.
+- `Murphy`: 24 and counting.
+- They tortured john `murphy`.
+- This isn't an act, `murphy`.
+- Again, thank you, `murphy`.
+- Dishes, latrine, or `murphy`?
+- `Murphy`: you can't kill him.
+- You're a prime now, `murphy`.
+- Am i boring you, mr. `murphy`?
+- And i need yours for `murphy`.
+- That `murphy` is kind of cute.
+- What about `murphy` and emori?
+- What about raven and `murphy`?
+- You're an epic dick, `murphy`.
+- `Murphy`, get that baton ready.
+- `Murphy`, put pressure on this.
+- `Murphy`: took you long enough.
+- We need to talk about `murphy`.
+- `Murphy`, i need to repack this.
+- `Murphy`'s going to kill jasper!
+- Second man: `murphy` shot her.
+- You got a better idea, `murphy`?
+- You said that `murphy` was fine.
+- [alarm blaring] `murphy`'s right.
+- Did you touch `murphy` yesterday?
+- Like eddie `murphy`'s "the pj's."
+- Raven, `murphy`, find that stone!
+- Tell me about this john `murphy`.
+- We know you're in here, `murphy`.
+- `Murphy`, get this guy some water.
+- `Murphy`, just put the gun down.
+- Raven and `murphy` are in trouble.
+- What are you doing here, `murphy`?
+- Why are you really here, `murphy`?
+- With today's lesson, mr. `murphy`?
+- I just heard `murphy` has jasper.
+- `Murphy`: bring the girl out now!
+- `Murphy`, i know you can hear me.
+- `Murphy` wants a shot at the title.
+- Ok. you're not worthless, `murphy`.
+- Your friend `murphy` has red blood.
+- I know all about you, john `murphy`.
+- Mr. `murphy`, surrounded by bedrock.
+- `Murphy`: whatever the hell we want!
+- Shaw just saved your life, `murphy`.
+- `Murphy`: isn’t that what you said?
+- John `murphy` will think of something.
+- Something bad happened here, `murphy`.
+- You got better things to do, `murphy`?
+- Bellamy, raven, octavia, even `murphy`.
+- Grounders will take care of `murphy`.
+- Man: `murphy`, this is not happening.
+- [`murphy` crying] of course she does.
+- `Murphy`: just you, bellamy, unarmed.
+- Then you know you have alex `murphy`...
+- Where do you think i'm... ok, `murphy`.
+- You're standing where my wife `murphy`!
+- Gabriel and `murphy` control the inside.
+- Hero `murphy`'s kind of freaking me out.
+- John `murphy` knew the truth, he's dead.
+- Just let me take `murphy`, and we'll go.
+                 

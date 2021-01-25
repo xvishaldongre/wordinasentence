@@ -1,0 +1,60 @@
+---
+title: "collection in a sentence | collection example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "collection"
+---
+- For `collection` in north miami.
+- I just play my own `collection`.
+- Where's your shell `collection`?
+- I'm starting my own `collection`.
+- From the beastie boys `collection`?
+- So this is your record `collection`?
+- It's my entire baseball `collection`.
+- We should build a `collection` first.
+- You've got quite a wine `collection`.
+- It's the best `collection` i've ever seen.
+- It will enhance any `collection` of fine art.
+- Hurry up... not much of a `collection` really.
+- More antiques for your `collection` -- cheers!
+- She's going to show me her stamp `collection`.
+- So what gems do you have in your `collection`?
+- You must have an enormous record `collection`.
+- Before you turn into part of this `collection`.
+- Maybe a `collection` somewhere got knocked over.
+- She's gonna steal that kid for her `collection`.
+- The `collection` unit activates when you decouple it.
+- The cash we fleeced off of him was `collection` money.
+- It will be the best of your `collection`, i assure you.
+- We commit no violence, unless... a strange `collection`.
+- I actually have the original 78 of it in my `collection`.
+- Vinkel...you've got quite a `collection` of er-`collection`.
+- This will find a place of honor in our spanish `collection`.
+- You're taking those sats or your cd `collection` is history.
+- A very fine `collection` of very old pieces, don't you think?
+- He shows you his butterfly `collection`, plus the killing jar.
+- The best for the last -- le chef- d'oeuvre de la `collection`.
+- Anthony, we'll get two hundred for the coin `collection` alone.
+- I've tried to pare down my `collection` to the essential... wow!
+- Some of the pieces in your `collection` here are very impressive.
+- Unless you're thrilled by a `collection` of shacks on a hillside.
+- I'm really anxious to get my record `collection` out of storage...
+- This `collection` is as close as he's ever come to an achievement.
+- Because of, you know, dividing up your record `collection` and stuff?
+- We have the largest `collection` of mammals and dinosaurs in the world.
+- I imagine you have a `collection` of punk chestnuts to prove your point.
+- Probably the world's largest <u>reader's</u> <u>digest</u> `collection`!
+- Another day like yesterday and half the `collection` will be on the block.
+- Only about five percent of the museum `collection` is actually on display.
+- He built shangri-la, taught our natives, and began our `collection` of art.
+- Hey, jack, that's an incredible... `collection` of vinyl you have in there.
+- You make it sound i pawed through your priceless `collection` of underwear.
+- Building up my `collection` of refrigerator magnets ... where you been, anyway?
+- I had no idea the museum had a complete `collection` of piranesi's forum sketches.
+- If you thought it would add even the slightest trinket to your pathetic `collection`.
+- When he looks at me he's seeing something more than just a -- a `collection` of atoms.
+- I could do all the cooking and dust your record `collection` and stuff until i get a job.
+- Don't you think there are more important things to talk about than my record `collection`?
+- I've been collecting comic books all my life... perhaps you'd like to see my `collection`?
+- I may have one hindu 78 from the twenties in my `collection`, but it's not really for sale.
+                 

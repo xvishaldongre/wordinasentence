@@ -1,0 +1,107 @@
+---
+title: "sending in a sentence | sending example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sending"
+---
+- Keep `sending` him up.
+- You `sending` me home?
+- I'm not `sending` a car.
+- Just `sending` a message.
+- `Sending` him over, mike!
+- We're still `sending` it.
+- You're `sending` me back?
+- Where are we `sending` it?
+- He's `sending` the scripts.
+- I'm `sending` you the files.
+- They're `sending` me to rome.
+- I'm `sending` you back to hell!
+- We're `sending` him over, mate.
+- We're `sending` people for you.
+- I'm `sending` you into the field.
+- That's not why he's `sending` me.
+- Please stop `sending` us letters."
+- Why's he been `sending` you tapes?
+- We're `sending` them to the ground.
+- Am i forgiven for `sending` for you?
+- They're `sending` someone from rome?
+- Do me a favor �� keep `sending` them.
+- He's `sending` us to the other place.
+- I'm `sending` him to zalem of course.
+- `Sending` mickey cohen up created it.
+- `Sending` what we know back to u.s.t.
+- Well, there's no use in `sending` it.
+- Been `sending` her meals in regularly?
+- We're not `sending` out a search team.
+- We are `sending` transport coordinates.
+- By `sending` a message to the grounders.
+- God, i hate `sending` you to the ground.
+- I'm `sending` bensinger over to see you.
+- `Sending` clarke's code out to everyone.
+- `Sending` clarke's code out to everyone.
+- Why do you think i'm `sending` him home?
+- I'm `sending` a radio call for the boats.
+- `Sending` mac out on a little recon work.
+- `Sending` the fighters first, is that it?
+- Where are you `sending` batboy this time?
+- I'll be `sending` you on a report tonight.
+- Somebody's been `sending` me love letters.
+- I'm not `sending` you on a suicide mission.
+- He ought to pay without `sending` you to beg.
+- I found out they were `sending` you to earth.
+- They'll be `sending` you up there soon enough.
+- Why would the riddler be `sending` me riddles?
+- I am not `sending` it's the same for all of us.
+- I'm `sending` esther to meet you there at once.
+- We're `sending` it up to you as soon as we can.
+- You personally'd be `sending` him to his grave.
+- You're not seriously considering `sending` him?
+- I lied about `sending` the hundred to the ground.
+- We are `sending` it up to you, as soon as we can.
+- We have to stop them from `sending` that message.
+- Your husband is secretly `sending` an army north.
+- Nobody is interested in `sending` a nun to prison.
+- We're `sending` people up to you with tea and o's.
+- Let me tell them we're `sending` them down, but no.
+- You need to know that... she's `sending` a message.
+- It's a novel, and we'll be `sending` it to new york.
+- The people outside are `sending` someone in to talk.
+- From `sending` single malts to boxes that don't open.
+- You're `sending` that spam through my e-mail account?
+- Mom - they're `sending` a bus to take us to the airport.
+- I'm `sending` the exact coordinates on a coded frequency.
+- The french are `sending` a fleet and ten thousand troops.
+- You mean, you're `sending` me to... b- b-boarding school?
+- Otherwise they'll be `sending` someone out to recover you.
+- When i found out they were `sending` prisoners more than me.
+- She's a ho cause she's `sending` her coochie through the mail.
+- Mary has stolen our files and is `sending` them back to people.
+- Mccreary's `sending` patrols, but... they're the mugs you want.
+- ...the whole world's out to get you... ...they're `sending` me.
+- We're `sending` divers into the river now to retrieve the body.
+- Look: the glengarry highland's leads, you're `sending` roma out.
+- They've got no right, `sending` someone to sit on your shoulder.
+- _ kind of like `sending` 100 juvenile delinquents and so are you.
+- Thanks for cleaning my flat and `sending` my money, all right?...
+- That means he's `sending` some guys over here probably right now.
+- Let me tell them we're `sending` them down, and i won't do it now.
+- He convinced pike to let me live we're `sending` them to the ground.
+- They are my right arms; i cannot insult them by `sending` them away.
+- Jam's mom said something about `sending` him to st. bernard's, right?
+- Which is why i'm `sending` you, you're the best field officer there is.
+- I had an idea, an idea for something wick, they're `sending` backup.
+- She didn't, but she wouldn't be `sending` us there we can offer a trade.
+- There is an emergency `sending` apparatus in the forward observation room.
+- Frankly, we're `sending` you because your crimes a lot faster with a motor.
+- I'm chairman of a group that's `sending` a little korean boy through school.
+- I mean, when was the last time you heard of a judge `sending` himself to jail?
+- I'm `sending` up a plain, flat silver one -- with just your initials engraved.
+- That would be like... like `sending` an auto- mechanic to work on the shuttle.
+- `Sending` men up there is bleeding heart crapola from three thousand miles away.
+- You're like a pork chop dolloped with heavy cream -- the abbe's `sending` me away.
+- The white man `sending` the black man into battle... now go kiss your daddy, quick.
+- I'm dead within minutes of landing along with every other soldier you are `sending`.
+- That's why everybody is walking around here `sending` off "you can't have me" signals!
+- Why even in my twilight years would i remotely consider `sending` someone back in time?
+- `Sending` yourself anonymous notes in the mail is one thing -- but who called him today?
+                 

@@ -1,0 +1,107 @@
+---
+title: "forgive in a sentence | forgive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "forgive"
+---
+- `Forgive` me, brother.
+- `Forgive` me, majesty.
+- To `forgive` yourself?
+- You must `forgive` me.
+- It's time to `forgive`.
+- Oh, okay, `forgive` me.
+- Please... `forgive` me.
+- You can't `forgive` me.
+- `Forgive` me, gentlemen.
+- `Forgive` me, my sultan.
+- `Forgive` my indulgence.
+- I'm sorry, `forgive` me.
+- `Forgive` me, my friends.
+- How can you `forgive` me?
+- I'll never `forgive` you.
+- Lis, please `forgive` me.
+- You'd never `forgive` me.
+- Can you ever `forgive` me?
+- ...i `forgive` you darwin.
+- I'm sorry... `forgive` me.
+- Please don't `forgive` me.
+- She'll never `forgive` me!
+- You have to `forgive` her.
+- `Forgive` me, mr. taransky.
+- I can never `forgive` that.
+- I'd never `forgive` myself.
+- I need you to `forgive` me.
+- I will never `forgive` you.
+- Will you ever `forgive` me?
+- Your highness, `forgive`...
+- `Forgive` me for prying.
+- That i do not `forgive`.
+- We `forgive` each other.
+- `Forgive` me, i didn't know.
+- Then you won't `forgive` me?
+- Will you `forgive` yourself?
+- I hope you will `forgive` me.
+- I'm sure he'll `forgive` you.
+- Jack... `forgive` me... lili!
+- My liege ... `forgive` me ...
+- Oh please `forgive` me, papa!
+- Please `forgive` us, russell.
+- She'll never `forgive` you!!!
+- There's nothing to `forgive`.
+- Trying to `forgive` yourself.
+- We `forgive` each other then?
+- You gotta `forgive` yourself.
+- You know why i `forgive` eve?
+- You want me to `forgive` her.
+- `Forgive` my crudity, darlin'.
+- How can you ever `forgive` me?
+- So why can't you `forgive` me?
+- You can't `forgive` for me.
+- God will `forgive` you, marcus.
+- I `forgive` you for everything.
+- But you can't `forgive` for liz.
+- `Forgive` my cultural ignorance.
+- I just... that you `forgive` me.
+- It -- of course i `forgive` you.
+- It's all right, i `forgive` you.
+- Well, i `forgive` you this time.
+- You must `forgive` her, kathryn.
+- _ you think god'll `forgive` me?
+- How can i `forgive` her for that?
+- I can `forgive` you a bestseller.
+- I don't want you to `forgive` me.
+- I `forgive` eve... there they go.
+- I told bellamy i'd `forgive` him.
+- `Forgive` me but are you -- drunk?
+- `Forgive` me, my wife, if you can.
+- `Forgive` me for trying to be nice.
+- Anyway, i hope you can `forgive` me.
+- `Forgive` me, but it makes no sense.
+- `Forgive` me if i don't shake hands.
+- `Forgive` me if i have offended you.
+- I do not expect you to `forgive` me.
+- Please `forgive` me, i slipped on....
+- `Forgive` me, psychiatrists don't cry.
+- `Forgive` the butterfingers, buckaroo.
+- Hi, grierson, `forgive` the war paint.
+- If she knew, she'd never `forgive` me.
+- I'm trying very hard to `forgive` you.
+- I was trying to make her `forgive` me.
+- Listen, i `forgive` you, mr. mccord...
+- You hurt me and i can't `forgive` you.
+- You're never gonna `forgive` yourself.
+- `Forgive` me, i -- i will sit with you.
+- John.... how can you ever `forgive` me?
+- They say they'll `forgive` your crimes.
+- `Forgive` me, father, for i have sinned.
+- _ octavia will `forgive` you eventually.
+- Oh, westley, will you ever `forgive` me?
+- Won't you and mrs. hillyer `forgive` me?
+- Can you `forgive` me for my wasted life?!
+- He's not just gonna `forgive` and forget.
+- Oh god i -- `forgive` me... that is good.
+- So if you `forgive` me, i'll `forgive` you.
+- You're never gonna `forgive` me, are you?
+- You trust me... may god `forgive` you...!
+- Can you... then she'll `forgive` you, too.
+                 

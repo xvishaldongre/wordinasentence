@@ -1,0 +1,107 @@
+---
+title: "gone in a sentence | gone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gone"
+---
+- Can't have `gone` far?
+- Conway's `gone` again!
+- Doug... doug's `gone`.
+- `Gone` to the policia.
+- Have you `gone` crazy?
+- Her things are `gone`.
+- He's `gone`, chauncey.
+- He's `gone` to dinner!
+- How long was i `gone`?
+- My daughter is `gone`.
+- My suitcase is `gone`.
+- The fire's `gone` out.
+- The nanobot is `gone`.
+- The ottawa are `gone`.
+- The star's `gone` out.
+- Wait until i'm `gone`.
+- Where are they `gone`?
+- Zordon... he's `gone`.
+- Then he was `gone`.
+- Are you totally `gone`?
+- Be `gone`, spoiler boy.
+- But the gold is `gone`.
+- Castro would be `gone`.
+- 'cause i wasn't `gone`.
+- Come on -- it's `gone`!
+- He's `gone`, hasn't he?
+- He's `gone` sweetheart.
+- I thought i was `gone`.
+- It's `gone` to the top.
+- Jake griffin is `gone`.
+- Maybe it's long `gone`.
+- That's `gone` long ago.
+- The grounder is `gone`.
+- Then it's `gone` again.
+- They are `gone`, louis.
+- They're already `gone`!
+- To help them is `gone`.
+- Where have they `gone`?
+- Yes, the rum is `gone`.
+- Already come and `gone`.
+- Pym's lab is `gone`.
+- Ben's lighter is `gone`?
+- But where has it `gone`?
+- But *where* they `gone`?
+- Consider it `gone` away.
+- Don't worry, i'm `gone`.
+- _ footprints are `gone`.
+- He was out - and `gone`.
+- I know that it's `gone`.
+- Is the dizziness `gone`?
+- It has `gone` intestate.
+- It's better he's `gone`.
+- It's practically `gone`.
+- Our doctor's `gone` too.
+- The price has `gone` up.
+- They been `gone` a week!
+- They've all `gone` away.
+- This has `gone` too far.
+- What do you mean `gone`?
+- Why have you not `gone`?
+- Yeah, `gone` into rehab.
+- You've `gone` quite mad.
+- Another precedent `gone`.
+- Aw, they've `gone` crazy.
+- Freddy's dead and `gone`.
+- He's long `gone` in lime.
+- I'd `gone` to the limits.
+- I'm `gone` with the wind.
+- Is it `gone` four-thirty?
+- I've `gone` with my aunt.
+- She `gone` like they say?
+- Something's `gone` wrong.
+- Than they've ever `gone`?
+- The mystery's all `gone`.
+- The stu i love is `gone`!
+- <u>thinks</u> i'm `gone`.
+- You'll be `gone`, period.
+- And `gone` when i woke up.
+- Now he's `gone` again.
+- The car's `gone`, too.
+- Be `gone` by break of day!
+- Earth is `gone`, blown up.
+- Everything is `gone`, now.
+- ... front armor is `gone`!
+- Have i `gone` crazy, bill?
+- He's `gone` sailing, alan.
+- I'd have been long `gone`.
+- If he's `gone`, he's `gone`.
+- In an hour they're `gone`!
+- I thought you were `gone`.
+- It's gonna be `gone` soon.
+- Must have `gone` to sleep.
+- My mom was already `gone`.
+- My -- my jetpack's `gone`.
+- No, i mean they've `gone`.
+- Oh, no, that's all `gone`.
+- She can't have `gone` far.
+- That the worms are `gone`.
+- The moon is almost `gone`!
+- Then, what's `gone` wrong?
+                 

@@ -1,0 +1,57 @@
+---
+title: "wing in a sentence | wing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wing"
+---
+- Took him under my `wing`.
+- This `wing` configuration.
+- Till my `wing`[4] went bad.
+- Will you be my `wing`- man?
+- Just stay on my `wing`, sir.
+- Not in this `wing`, actually.
+- Suite 610 in the east `wing`.
+- I was in the psychiatric `wing`.
+- `Wing` five by zero, helm steady.
+- Plan-r to be radioed to the `wing`.
+- This `wing`'s been closed for years.
+- We could have the whole left `wing`?
+- There's a whole `wing` in this house.
+- It decoded as - `wing` attack, plan-r.
+- This is the staff `wing` of the hotel.
+- A new pediatric `wing` at the hospital?
+- I'll say enough to destroy this `wing`.
+- I'm a soldado in the g-`wing` regiment.
+- To a `wing` that's already been searched.
+- The whole `wing`'s devoted ot this program.
+- Has the `wing` confirmed holding at x-points?
+- That's a ptarmigan, feigning a broken `wing`.
+- Don't let it lose us the right-`wing` vote ...
+- I'm just taking the poor girl under my `wing`.
+- Ain't no thing but a chicken `wing`, buttercup.
+- Mr. lebowski is in seclusion in the west `wing`.
+- Ain't nobody here but you and me, chicken `wing`.
+- Joe -- i think you want to go to the west `wing`.
+- `Wing` attack, plan-r. that's exactly what it says.
+- Fourth floor, west `wing`, but stay with your class.
+- `Wing` to cruise configuration... full impulse power.
+- We're here because we're the best flyers in the `wing`.
+- He'll take you under his `wing` at information retrieval.
+- The entire east `wing` will be evacuated within the hour.
+- It's pulling out of vietnam without a right `wing` revolt.
+- The new thing is to care passionately, and be right `wing`.
+- I'm doing a piece on right-`wing` groups, post oklahoma city.
+- It was apparently directed to their `wing` on air- borne alert.
+- You know normally i wouldn't take care over you under my `wing`.
+- The `wing` dimension alone is larger that any aircraft we've seen.
+- General, now that you've done that, i beg you to recall the `wing`.
+- This unaccountable specimen was found in the south `wing` corridor.
+- But then, sir, why have you issued the order: `wing` attack, plan-r?
+- Now, as soon as you do what i told you, have plan-r radioed to the `wing`.
+- Next time give me a couple seconds notice before you `wing` a gag like that!
+- I guess she would let us have the right `wing` if we needed it, wouldn't she?
+- All the newspapers, even the left-`wing` ones wanted the rebellion suppressed.
+- Look, uh, tell- whatta you- are you going with a right-`wing` rock-and- roll star?
+- Over behind the church, you know where i mean over there, it's a red brick `wing`?
+- ♪ hot `wing` sauce is great ♪ i'll give you this little pin from a defunct yacht club.
+                 

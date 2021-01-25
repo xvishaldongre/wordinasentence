@@ -1,0 +1,107 @@
+---
+title: "smoke in a sentence | smoke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "smoke"
+---
+- I only `smoke` cigars.
+- Let the `smoke` clear.
+- No, i want to `smoke`.
+- The `smoke` is poison!
+- We�ll `smoke` a joint.
+- You shouldn't `smoke`.
+- You `smoke` pall mall?
+- He doesn't `smoke`?
+- I `smoke` all the time.
+- Kirsty used to `smoke`?
+- We'll use `smoke` pots.
+- You don't even `smoke`.
+- Black and white `smoke`.
+- Holy `smoke`; h-hello...
+- I don't think i `smoke`.
+- Light `smoke`, low roll.
+- Mind if i `smoke` a jay?
+- `Smoke` screen for what?
+- Y'ever `smoke` any shit?
+- Eric don't `smoke` these.
+- I should like to `smoke`.
+- What brand'd she `smoke`?
+- Anybody see some `smoke` ?
+- I'll go out for a `smoke`.
+- I `smoke` more these days.
+- Since when do you `smoke`?
+- `Smoke`'s as bad as birds.
+- What's he `smoke` in that?
+- Which ones we can `smoke`?
+- You're too old to `smoke`.
+- No thanks, i don't `smoke`.
+- Perhaps it was the `smoke`.
+- `Smoke` as many you'd like.
+- Stay away from the `smoke`.
+- Suzi, you `smoke` after sex?
+- Man, i wanna `smoke` a joint.
+- Nothing, nothing but `smoke`.
+- Well, i really don't `smoke`.
+- Billy, do you have to `smoke`?
+- God, that `smoke`'s poisonous!
+- I swear, i ... didn't `smoke`.
+- I know you `smoke` weed, right?
+- Inhale the `smoke` and hold it.
+- The track star doesn't `smoke`.
+- Would you rather i not `smoke`?
+- You may `smoke` if you want to.
+- I'd like to `smoke` a cigarette.
+- I `smoke` more when i'm unhappy.
+- You should `smoke` some o' this.
+- I came up here to sneak a `smoke`.
+- They `smoke` like men inna saloon.
+- Christ, i don't even `smoke` grass.
+- "one: please don't `smoke` in bed."
+- Sell 'em if you can't `smoke` them.
+- You `smoke` like a fucking lab dog.
+- I had to step outside for a `smoke`.
+- I'm going to go `smoke` a cigarette.
+- I started to `smoke` at the hospital.
+- I used to `smoke` raleigh cigarettes.
+- Moreover -- do you mind if i `smoke`?
+- Okay...you `smoke` hoyo de monterreys.
+- Do you mind if i `smoke`, mr. garrison?
+- Guy your age shouldn't `smoke` so much.
+- The place is about to go up in `smoke`.
+- Yeah, well, they probably `smoke` weed.
+- Yes... you gonna `smoke` the cigarette?
+- You shouldn't `smoke` so many of those.
+- I'd appreciate it if you didn't `smoke`.
+- Sir... ere’s `smoke` in the distance.
+- We got to get her away from the `smoke`.
+- Day 2, you throw 2 away and `smoke` 58 ..
+- Donuts and a `smoke` only get you so far.
+- She doesn't approve of girls who `smoke`.
+- The way you `smoke` that shit is suicide.
+- There's `smoke` off yonder on the horizon.
+- The `smoke`... what you don't know is why.
+- Go ahead and get us something to `smoke` on.
+- I told her to chill out and `smoke` a joint.
+- There any part of the day you don't `smoke`?
+- They'll see the fucking `smoke` from canada.
+- You have to `smoke` so early in the morning?
+- If i want to `smoke`, i'll fucking `smoke`.
+- He can't shoot arrows, he can't piss `smoke`.
+- I don't drink, i don't `smoke`, i don't read.
+- Maybe people want to `smoke` a doob for that.
+- Skin that `smoke` wagon and see what happens.
+- Wonder if you could `smoke` shit out of this?
+- But i'm not worried - because i don't `smoke`.
+- I've been watched so closely, i� holy `smoke`!
+- You could choke on the diesel `smoke` already!
+- You wouldn't have a `smoke` on you, would you?
+- But i like to... and i don't `smoke` that much.
+- I'm serious, you `smoke` too much of that shit.
+- A little `smoke` over the town, but otherwise...
+- I was fifteen -- we used to go there to `smoke`.
+- Doesn't it seem like all the cool people `smoke`?
+- Here, i'll `smoke` one of your futuristic joints.
+- When i grow up, i'm gonna `smoke` like a chimney!
+- Could we salt them, or `smoke` them, do you think?
+- I don't `smoke` dubes and i don't really hang out.
+                 

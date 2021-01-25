@@ -1,0 +1,54 @@
+---
+title: "taxi in a sentence | taxi example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "taxi"
+---
+- I called you a `taxi`.
+- I'll call you a `taxi`.
+- `Taxi`'s been canceled.
+- You and me in a `taxi`.
+- I used to drive a `taxi`.
+- The `taxi` life, you mean.
+- ... and `taxi` fare for me.
+- There's a `taxi` stand here.
+- Be tough to get a `taxi` here.
+- How did i get in this `taxi`?!
+- I have to call another `taxi`.
+- The `taxi`, there was a diver.
+- I'm here with ed over at `taxi`.
+- I suppose you're in your `taxi`?
+- It takes place in a `taxi` stand!
+- Too many `taxi` drivers write plays.
+- What are we going to do, take a `taxi`?
+- Isn't tony clifton going on `taxi` soon?
+- Darlin', i'll take a `taxi` to the hotel.
+- It's not our job to `taxi` drunks around.
+- So why do you want to be a `taxi` driver?
+- There's an empty `taxi` across the street.
+- Do you mind waiting outside for the `taxi`?
+- Well, betsy mam, i drive a `taxi` at night.
+- All right with me, i used to drive a `taxi`.
+- I just bought a new york city `taxi` medallion.
+- So why did you decide to drive a `taxi` at night?
+- I respect a kid who does his homework in a `taxi`.
+- For that service i charge one dollar `taxi` fare.
+- Whoa, easy, trip, this is radio, not "`taxi` driver."
+- I don't think that was any ordinary army `taxi`... mmmnnn...?
+- Why's that `taxi` driver across the street been staring at us?
+- It was his idea to hit the `taxi` service in new york, wasn't it?
+- Yesterday i hired a `taxi` driver to drive me around for an hour.
+- You missed ... luther took a `taxi` to the hotel across the street.
+- I went up to a `taxi` and said "eight rue du bois"... and here i am.
+- It's just that... in these clothes i'd -- i'd prefer to go by `taxi`.
+- A `taxi` driver drove him to the harbor where he boarded a cargo boat.
+- I just knew i was onto something when that `taxi` driver kidnapped me.
+- Then on your next supply run to the mothership, we get to see a `taxi`.
+- Who else would know the `taxi` service that was all fenster and mcmanus.
+- You, uh, you got me outta bed, i ran over here, i couldn't get a `taxi` cab.
+- You tried to run away in my `taxi` but your friend -- sport -- wouldn't let you.
+- Sometimes i feel like callin' a `taxi` to drive me from my bed to the bathroom...
+- I'm supposed to believe that hitting the `taxi` service wasn't his idea he loved her.
+- I don't know... well, betsy mam, i drive by this place here in my `taxi` many times a day.
+- But it just wasn't where i wanted to be so i left as politely as i could and found a `taxi`.
+                 

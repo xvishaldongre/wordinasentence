@@ -1,0 +1,107 @@
+---
+title: "the in a sentence | the example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "the"
+---
+- Ashby gets `the` itch.
+- Ask her to `the` prom.
+- As part of `the` crew.
+- At `the` field office.
+- At `the` montana site.
+- At `the` seven-eleven.
+- A view of `the` ocean.
+- Away from `the` noise.
+- ...babe `the` blue ox?
+- Back to `the` village.
+- 'ban `the` atom tests!
+- Barnett on `the` wire.
+- Barricade `the` gates!
+- Because of `the` gold.
+- Blood's on `the` butt.
+- Blowing `the` walkway?
+- Blow `the` man down...
+- Burn `the` damn thing!
+- Buttfucks `the` cabin?
+- But that's `the` jail!
+- But `the` time is now.
+- But you're `the` gods!
+- By bending `the` knee.
+- By `the` grace of god.
+- By `the` hour of nine.
+- Call `the` coastguard?
+- Calm `the` fuck down.
+- Can we help `the` man?
+- 'cause of `the` storm.
+- Changing `the` sparks.
+- Check `the` eyes, ben.
+- Check with `the` wife.
+- Chicks love `the` car.
+- Chief of `the` guards.
+- Coffee on `the` stove.
+- Come into `the` light.
+- Consider `the` buddha.
+- Contact `the` proteus!
+- Cordon off `the` area.
+- Cover `the` perimeter!
+- Delay `the` procedure.
+- Depends on `the` mind.
+- Did we win `the` game?
+- Did you get `the` job?
+- Did you see `the` gun?
+- Disengage `the` locks?
+- Dismiss `the` company.
+- Does `the` queen live?
+- Do it for `the` paper.
+- Don't do `the` finger.
+- Don't hit `the` tanks.
+- Don't hurt `the` face!
+- Don't move `the` baby!
+- Doubled `the` voltage.
+- Down at `the` station?
+- Down into `the` forum.
+- Do you see `the` kids?
+- Do you want `the` car?
+- Eat in `the` cupboard.
+- Emori, `the` basement.
+- Even book `the` dates.
+- Even chop `the` trees.
+- Even `the` bedspreads.
+- Even `the` camera guy.
+- Except `the` bomb guy.
+- Finish `the` sentence.
+- Following `the` rules.
+- Forget `the` crucifix.
+- Forget `the` election.
+- Forget `the` trapping!
+- For `the` certificate.
+- For `the` housekeeper!
+- For `the` love of god.
+- For `the` movie sound.
+- For `the` school kids.
+- For `the` turing test?
+- For `the` whole night?
+- Four in `the` morning?
+- 'freak at `the` week.'
+- Freezer in `the` back.
+- From `the` inside out.
+- From `the` korean war.
+- Frozen to `the` touch?
+- Fuck 'em in `the` ear.
+- Fuck him in `the` ear.
+- Fuck `the` lot of you.
+- Gave away `the` store.
+- General of `the` army.
+- Gentlemen, `the` past.
+- Get him in `the` tent.
+- Get him to `the` keep.
+- Get in `the` basement.
+- Get in `the` bathroom!
+- Get it all `the` time.
+- Get out of `the` room!
+- Get `the` box, nephew.
+- Get `the` car started.
+- Get them in `the` lab!
+- Get to `the` basement.
+- Get to `the` bathroom!
+                 

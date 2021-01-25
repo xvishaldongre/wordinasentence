@@ -1,0 +1,107 @@
+---
+title: "huh in a sentence | huh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "huh"
+---
+- Beautiful night `huh`?
+- I have to... uh-`huh`.
+- I seem nervous, `huh`?
+- Just a shotgun, `huh`?
+- Just like that, `huh`?
+- Lots of capers, `huh`?
+- Maybe about me, `huh`?
+- New orleans, `huh`?...
+- Nobody's bitch, `huh`?
+- Not a prisoner, `huh`?
+- Not at all, `huh`?!...
+- Not bad though, `huh`?
+- Oh, crabby guy, `huh`?
+- Sad commentary, `huh`?
+- Saw the button, `huh`?
+- She's a beauty, `huh`?
+- Slick graphics, `huh`?
+- So stop trying, `huh`?
+- So you like me, `huh`?
+- Strong stomach, `huh`?
+- That's selfish, `huh`?
+- Together again, `huh`?
+- Uh `huh`, that's good.
+- What about him, `huh`?
+- You're leaving, `huh`?
+- Your secretary, `huh`!
+- You totaled it, `huh`?
+- Fucking amazing, `huh`?
+- Hit your finger, `huh`?
+- I know it's bad, `huh`.
+- I'm helpin' you, `huh`?
+- Isn't that cute, `huh`?
+- It's good pizza, `huh`?
+- It's the rule... `huh`?
+- Just you and me, `huh`?
+- Kinda surprised, `huh`?
+- Look pretty fun, `huh`?
+- Makes you think, `huh`?
+- Some difference, `huh`?
+- Too much glamor, `huh`.
+- Uh-`huh` - in what way?
+- Went to college, `huh`?
+- What about arlo, `huh`?
+- What about this, `huh`?
+- Why do you care, `huh`?
+- Yeah, uh `huh`... yeah?
+- You caught that, `huh`?
+- You make movies, `huh`?
+- Your folks, too, `huh`?
+- You work for me, `huh`?
+- Atomic age stuff, `huh`?
+- Back to the ship, `huh`?
+- Don't ask, baby - `huh`!
+- Everybody's sick, `huh`?
+- Friends of yours, `huh`?
+- Got a white wife, `huh`?
+- Got carried away, `huh`?
+- He's handicapped, `huh`?
+- He's your client, `huh`?
+- He won't get mad, `huh`?
+- Hi weird and tiny `huh`?
+- `Huh`... leon did drugs.
+- `Huh`, right, manifesto?
+- `Huh`... that's strange.
+- I'm being a pain, `huh`?
+- It's pretty cool, `huh`?
+- 'it's up to joe', `huh`?
+- Making ends meet, `huh`.
+- Maybe that works, `huh`?
+- Need some advice, `huh`.
+- Nice college boy, `huh`?
+- No hard feelings, `huh`?
+- Nothin' personal, `huh`?
+- No treasure maps, `huh`?
+- Oh, a ladies man, `huh`?
+- Oh he forced you, `huh`?
+- One a those days, `huh`.
+- See it anymore uh `huh`.
+- So, dead brother, `huh`?
+- So, it's obvious, `huh`?
+- That must be you, `huh`?
+- That's necessary, `huh`?
+- That the big one, `huh`?
+- The sub-basement, `huh`?
+- This story is big `huh`?
+- To preach to now, `huh`?
+- Treat her gently, `huh`?
+- What do i *mean*, `huh`?
+- You spotted them, `huh`?
+- A little bear, `huh`.
+- What about me, `huh`?
+- Cream of the crop, `huh`?
+- Funny coincidence, `huh`?
+- Got your own sign, `huh`?
+- Hey, pretty nifty, `huh`?
+- Hi there... you... `huh`?
+- `Huh`, now we're talking.
+- I guess it worked, `huh`?
+- I stole your beat, `huh`?
+- It's pretty moving `huh`?
+                 

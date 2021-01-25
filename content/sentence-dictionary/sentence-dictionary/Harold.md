@@ -1,0 +1,107 @@
+---
+title: "Harold in a sentence | Harold example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Harold"
+---
+- Do you know, `harold`?
+- Here we are, `harold`.
+- Like a puff, `harold`?
+- Take a look, `harold`.
+- What owners, `harold`?
+- `Harold`, tell the boy.
+- It's sinking, `harold`.
+- Be reasonable, `harold`!
+- Bottles there, `harold`.
+- Call me "sir," `harold`.
+- `Harold` shot every one.
+- `Harold`, where are you?
+- Could you look, `harold`?
+- `Harold` lucretia borgia?
+- `Harold` ryan wants chow!
+- Oh, i am happy, `harold`.
+- Can you hear me, `harold`?
+- `Harold`, can you hear me?
+- No, rob, this is `harold`.
+- Please sit down, `harold`.
+- That's wonderful, `harold`.
+- `Harold`, do you copy, over.
+- `Harold`, do you copy, over?
+- `Harold`, mike, this is rob.
+- Just put it there, `harold`.
+- Mike, `harold`, do you copy?
+- The late mrs. `harold` ryan.
+- Still mrs. `harold` ryan?
+- He's afraid of you, `harold`.
+- Isn't it wonderful, `harold`?
+- "the `harold` ryan fan club."
+- You and `harold` are friends?
+- Anyway, you remember `harold`?
+- Ever drive a hearse, `harold`?
+- `Harold` is out by the garage.
+- `Harold`, this is edith... eh?
+- It is you, isn't it, `harold`?
+- Stay where you are, `harold` .
+- I am `harold` ryan, her husband.
+- Shall i take you home, `harold`?
+- He's a very decent man, `harold`.
+- Tell me about yourself, `harold`.
+- What music do you like, `harold`?
+- You're not bob are you, `harold`?
+- Can i drop you anywhere, `harold`?
+- Oh, it's only a machine, `harold`.
+- You're not going to beat `harold`.
+- `Harold` had got out of queenstown.
+- Were you happy at school, `harold`?
+- `Harold` ... can i get you anything?
+- I'm talking about fucking, `harold`.
+- We are not relating today, `harold`.
+- You were `harold` ryan's third wife.
+- But wait, `harold`, what do you mean?
+- It broke my heart when `harold` died.
+- Okay, `harold` speck: who goes first?
+- Sweeten the tea with honey, `harold`.
+- Furthermore... tell him, `harold`.
+- Oh, `harold`, don't upset yourself so.
+- Ow, `harold` -- mom said not the head.
+- `Harold`--it is not honor to be killed.
+- What kind of car do you have, `harold`?
+- She was one of `harold` speck's victims.
+- My, it's nice to see you again, `harold`.
+- `Harold` has always been a delicate child.
+- "`harold`, the patron saint of taxidermy."
+- `Harold`, dear, stop playing with your food.
+- You're--you're old friends of `harold` ryan?
+- You want to join the `harold` ryan fan club?
+- Edith, i'd like you to meet my son, `harold`.
+- Good idea of yours to come out here, `harold`.
+- Is `harold` interested in, eh, what's going on?
+- `Harold` would come home trumpeting and roaring.
+- `Harold` and maude is my all-time favorite movie.
+- I suppose you think this is very funny, `harold`.
+- `Harold` ryan and looseleaf harper are my friends.
+- Isn't that always how it ends, `harold`--in death?
+- `Harold`, i think you're getting carried away here.
+- You, `harold`, what flower would you like to be?
+- `Harold`, we've got to do something about this life.
+- I am `harold` ryan, of the united states of america.
+- I don't think you have to worry much about `harold`.
+- About forty-five minutes, wouldn't you say, `harold`?
+- But, `harold`, we begin to die as soon as we are born.
+- Give us time, `harold`--to adjust to your being alive.
+- Not now, `harold`... you can't put me down for monday?
+- Tell me, `harold`, do you remember your father at all?
+- Come on, magda it's like that movie `harold` and maude.
+- `Harold`, that picture is almost twenty-five years old.
+- The wife of `harold` ryan is going to marry a pansy next?
+- Thou art stronger than `harold` ... stronger than arthur.
+- I haven't told you, `harold`, how comical i think you are.
+- We're going to nail every last one... `harold`, calm down!
+- `Harold` it won't hurt as much as the sting of a bumblebee.
+- Hey big `harold`, gimme your peaches for the fruitcake man.
+- Fella's name is `harold` speck, travelin' man out of roswell.
+- It was there that `harold` ryan slew the beast of yugoslavia.
+- They got to be looked after... you do what he says, `harold`.
+- Repeat, no o. ang dorjee stashed four bottles there, `harold`.
+- My brother `harold` was about the same age as those kids, john.
+                 

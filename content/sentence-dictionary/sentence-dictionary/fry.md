@@ -1,0 +1,54 @@
+---
+title: "fry in a sentence | fry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fry"
+---
+- You wanna french `fry`?
+- They'll `fry` us for sure.
+- Then you `fry` some garlic.
+- No, no, you're right, `fry`.
+- We got bigger fish to `fry`.
+- You're gonna `fry` yourself.
+- Move 'em to texas, `fry` 'em up.
+- I hope they fucking `fry` us all.
+- Just tell them they can `fry` me!
+- Now bigger fish to `fry`, i guess.
+- You'll `fry` like an egg in there.
+- Extra ketchup, large `fry`, i copy.
+- Gimmie an order of brain deep-`fry`.
+- How much you weigh right now, `fry`?
+- Geese-goosing, french `fry`-gravying.
+- Meanwhile i got badder fish to `fry`.
+- She was a `fry` cook in the cafeteria.
+- The emp will `fry` the wristband, too.
+- Want to `fry` the whole goddamn world.
+- What are you, a `fry` cook or something?
+- `Fry` your brain out soon as look at you.
+- They're going to `fry` me for it, anyway.
+- To `fry`... to cook over direct heat, oh!
+- He'll `fry` in hell for what he did to me.
+- If the splices aren't good, you could `fry`.
+- You could `fry` an egg off that orange, yow.
+- If i'm right, it will `fry` whatever a.l.i.e.
+- Can you make it all in one thing and `fry` it?
+- We've got bigger fish to `fry`, don't we, joe?
+- If you don't, you `fry`.. we've done it before.
+- That means wintermute hired us to `fry` itself.
+- Then i'll `fry` taking this son of a bitch out.
+- He also figured out how to kill the pilot, `fry`.
+- Michael mcdowell says all sewersides `fry` in hell.
+- Then go now--and `fry` with dignity-- sunnyside up.
+- I don't appreciate being cooked like a french `fry`!
+- At school michael mcdowell said she was gonna `fry` in hell.
+- Can't get my nose down...too much load back there.... `fry`?
+- Norris... you stay here... any of them move -- you `fry` 'em.
+- If you like, i can have one of my guards - we're gonna `fry` you.
+- We got bigger fish to `fry`- well that's it boys, i been redeemed!
+- But, case... you need that access code or you'll just `fry` inside.
+- I wonder if we couldn't get bull balls somewhere, and `fry` 'em up.
+- Speaking of tappy heads, we ought to have an old fashion fish `fry`.
+- My uncle was messed up with a bunch of `fry` brains and they went berserk on him.
+- Tell me where the girl is or i swear to you i'm gonna french `fry` this little freak.
+- We know what's been going on at your office boss would `fry` me in hog fat if he knew...
+                 

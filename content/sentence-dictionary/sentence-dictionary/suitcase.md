@@ -1,0 +1,56 @@
+---
+title: "suitcase in a sentence | suitcase example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "suitcase"
+---
+- My `suitcase` is gone.
+- That's her `suitcase`.
+- You seen my `suitcase`?
+- Okay, `suitcase` stowaway.
+- Let me take your `suitcase`.
+- My `suitcase` was vibrating?
+- What's this `suitcase` here?
+- Don't forget your `suitcase`.
+- The maid packed a `suitcase`.
+- Gordo with a black `suitcase`.
+- He's got a `suitcase` on wheels.
+- I just want to find a `suitcase`.
+- This is the `suitcase` you gave me.
+- Seven and a half in each `suitcase`.
+- Right... the `suitcase` was clinking.
+- He took his `suitcase` and everything.
+- Like i would have art in my `suitcase`.
+- My `suitcase`-- here, you can use this.
+- The <u>`suitcase`</u> bomb... ames here.
+- Will there be clothes in the `suitcase`?
+- My `suitcase` - with all my resort clothes.
+- Everyone, find their `suitcase` stowaway now.
+- I need to get my `suitcase` out of the garage.
+- I got a couple of machine guns in my `suitcase`.
+- The gun you're about to find in that `suitcase`.]
+- You can pull someone through what's a `suitcase`?
+- Isn't johnny green in the... ...the `suitcase` bomb.
+- So, pick up your `suitcase` and go get in the truck.
+- He had a `suitcase` and everything, and then he left.
+- Is that her husband just ate her `suitcase` stowaway.
+- All i have to do is grab my `suitcase`, and i'm ready.
+- It's a <u>`suitcase`</u> bomb, and it's .... in canada!
+- So now, did they put your `suitcase` in the wrong pile?
+- Well, let's say you have enough time to get a `suitcase`.
+- You aren't getting rid of me with one fuckin' `suitcase`!
+- If you were in my `suitcase`, you would do the same thing.
+- Tell them there's a `suitcase` of money and you don't want it.
+- ... you don't happen to have a tuxedo in your `suitcase`, do you?
+- But when a `suitcase` vibrates, the throwers have to call the police.
+- I can't leave town now and come back with a `suitcase` full of money.
+- We need your help on this one and that's why that `suitcase` is here.
+- Even when it isn't raining lisa, on this job you carry one `suitcase`.
+- That night he went out half a dozen times with the metal `suitcase`.
+- When she gets here, have that kid of yours help her with the `suitcase`.
+- Can you get this `suitcase` to her parents, if you think it's appropriate?
+- It fits a tuba, a `suitcase`, a dead dog, and a garment bag almost perfectly.
+- You said i'd have to live out of one `suitcase` i'll bet yours isn't this small?
+- Oh, yes -- yes -- that's right -- you're forgetting the check for your `suitcase`.
+- Why would a man leave his apartment three times, on a rainy night, with a `suitcase`?
+                 

@@ -1,0 +1,67 @@
+---
+title: "shift in a sentence | shift example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shift"
+---
+- Come on, night `shift`.
+- I'm late for my `shift`.
+- See you after my `shift`?
+- This is the skank `shift`.
+- Night `shift` was my coach.
+- How did we get this `shift`?
+- He's working a double `shift`.
+- I had the four o'clock `shift`.
+- Seniority gets the day `shift`.
+- Hey, welcome to the night `shift`.
+- Get him to stand up, night `shift`.
+- Well, i'm off to the night `shift`.
+- I'm going to be late for my `shift`.
+- The same `shift` will be on at noon.
+- Caspian, you're on the first `shift`.
+- I've just been given a `shift` change.
+- Got to be on `shift` in a couple hours.
+- I know but i felt like taking a `shift`.
+- Then ... maybe `shift` the conversation.
+- They were left over from the last `shift`.
+- Why do you have to work the double `shift`?
+- Have you got a make-`shift` plywood pillory?
+- He can shape-`shift` into different animals.
+- She's workin' the late `shift` at the hospital.
+- The sands of power `shift` in the storm, hakim.
+- I'd like you to switch to the day `shift`, mike.
+- By the same hand that `shift` your destiny even now.
+- Have i ever called in sick or missed a `shift` once?
+- `Shift` the guilt to men whose pensions are secured.
+- But there's still a couple hours left on the `shift`.
+- I've got a slip movement to install on my next `shift`.
+- Seniority gets day `shift`... you know what that means.
+- Captain, i've been observing the nurses on your `shift`.
+- Get our people, and get back here before `shift` change.
+- He offered me a job driving his hack onna night `shift`.
+- A `shift` change should come through the scheduling office.
+- Maybe i could come by after your `shift`, but come unarmed.
+- They waited until everyone was on `shift`-leave to do this.
+- What happens on the night `shift` stays on the night `shift`.
+- My wife talks to his wife about what `shift` i'm gonna take?
+- About the responsibility now, if you `shift` your weight what?
+- A sort of career `shift`, more in the engineering line of work.
+- Everybody else is either asleep or running `shift` in the auto-shop.
+- Matthew's mother works a hospital `shift`, so i pick him up at school.
+- Steering wheel... gear `shift`... dashboard... police... eh... police.
+- First, as you pick up the knife you `shift` your fork to the left hand.
+- ...-cho and a hijack-... ...reconsider that statement there, night `shift`.
+- What do i use to `shift` the stuff and where in hell am i gonna put it all?
+- My `shift` ends at four, but i couldn't -- i've never felt better in my life.
+- We just did a full `shift`, you can't call shack duty on top of a full `shift`.
+- Every time the james gang strikes, we `shift` a hundred detectives to that area.
+- The next day, i finished my `shift` and met him around back, like we always did.
+- I could always switch to a double `shift` see, he found out that i wasn't clarke.
+- Look, i'll level with you -- i need a little more time -- i got to `shift` gears.
+- ...night `shift`, but you might... ...-hood of you knowin' any prayers is slim...
+- There's a thirty-five member employee rotation going from graveyard to day `shift`.
+- Momentum `shift` ... don't get on those brakes too hard ... get her up on her tires.
+- Helen insists that t.j. be home for dinner... that's why he's on the morning `shift`.
+- Look, after your `shift` tonight, why don't you grab dylan and come stay with me on base.
+- Trouble workin' an eight hour `shift`, watching the kid and whipping up a little bolognese?
+                 

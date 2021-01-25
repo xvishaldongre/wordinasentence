@@ -1,0 +1,107 @@
+---
+title: "missing in a sentence | missing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "missing"
+---
+- Car's still `missing`.
+- Is anything `missing`?
+- What are we `missing`?
+- They are all `missing`.
+- What are you `missing`?
+- The dog's `missing`.
+- And you're `missing` it.
+- I'm `missing` something.
+- Their weapons `missing`?
+- Two are still `missing`.
+- Two votes are `missing`.
+- Will is... is `missing`.
+- Am i `missing` something?
+- His bag is `missing`.
+- Poe's `missing`, too.
+- He's `missing` from here.
+- `Missing` kid, suicide...
+- The `missing` scientists.
+- What am i `missing` here?
+- The odd `missing` toe.
+- How much c-4 is `missing`?
+- I'm not `missing` you yet.
+- `Missing` june 11th, 1992.
+- She knew he was `missing`.
+- She's among the `missing`.
+- Something we're `missing`.
+- Suzie toller is `missing`.
+- There are pages `missing`.
+- Toiletries were `missing`.
+- You're not `missing` much.
+- Beloved daughter `missing`.
+- Oh, the uncle is `missing`.
+- The plutonium is `missing`.
+- We're `missing` everything!
+- We're `missing` the remote!
+- We're `missing` the remote.
+- You're `missing` the point.
+- He was `missing` an arm.
+- But you `missing` something.
+- 'i am not a `missing` link.'
+- Is there anything `missing`?
+- There's something `missing`.
+- A dozen panels are `missing`.
+- He's `missing` is what he is.
+- Hey, i'm `missing` the party!
+- I was tired of `missing` him.
+- Something was just `missing`.
+- Agatha's stream was `missing`.
+- Am i `missing` something here?
+- Am i `missing` somethin' here?
+- File a `missing` drugs report?
+- Which finger was he `missing`?
+- Case of the `missing` marquess!
+- He's `missing` bones and stuff.
+- I'm `missing` the game for you.
+- Looks like we're `missing` two.
+- That's what's `missing` for me.
+- The kids are `missing` out too.
+- My offering was going `missing`?
+- Two of them are still `missing`!
+- We're `missing` two of the kids!
+- You asked me what was `missing`.
+- You think he might be `missing`?
+- A spaceship with a `missing` man.
+- Everything that's been `missing`.
+- There's something `missing` here.
+- Two of his fingers are `missing`.
+- We're `missing` the sig ep party.
+- What do you mean, he's `missing`?
+- You're `missing` a classic party.
+- A puzzle with one piece `missing`.
+- Man `missing` on tier 2, cell 245!
+- The `missing` piece of the jigsaw.
+- You're `missing` the game for us?!
+- Your sister is `missing` how long?
+- He happens to be `missing` fingers.
+- I'm looking for a `missing` person.
+- The park dude was `missing` an arm.
+- All right, but you're `missing` out.
+- `Missing` the way it makes you feel.
+- Not the only things `missing`, nick.
+- We got a local kid that's `missing`.
+- Your completely `missing` the point.
+- Some of the kids are still `missing`.
+- There's another piece `missing` here.
+- We know who stole the `missing` item.
+- We use it to find `missing` children.
+- I have no intention of `missing` it...
+- Like some critical piece is `missing`.
+- My father's loan papers are `missing`.
+- No you said her body's been `missing`.
+- You've found `missing` persons before.
+- "all that's `missing` is your bastard."
+- How many days have they been `missing`?
+- It's `missing` everything that matters.
+- I want him to know what he's `missing`.
+- Okay, but you're `missing` all the fun.
+- There better not be anything `missing`.
+- They don't know what they're `missing`.
+- We're `missing` three and the sergeant.
+                 

@@ -1,0 +1,107 @@
+---
+title: "matters in a sentence | matters example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "matters"
+---
+- Not that it `matters`.
+- That's what `matters`.
+- None of that `matters`.
+- Nothing else `matters`.
+- Nothing here `matters`.
+- Of course it `matters`!
+- Of course it `matters`.
+- You think that `matters`?
+- As it `matters` in battle?
+- Nothing `matters`, anyway.
+- Only the amount `matters`.
+- She is all that `matters`.
+- That hardly `matters` now.
+- That's all that `matters`.
+- I don't think it `matters`.
+- None of that `matters` now.
+- Family is all that `matters`.
+- What `matters` is what you do.
+- Because nothing else `matters`.
+- It is the crown that `matters`!
+- What `matters` is that a.l.i.e.
+- Can you do it when it `matters`?
+- Down here, every life `matters`.
+- None of it `matters`, all right?
+- That's what `matters`, isn't it?
+- But i don't think that `matters`.
+- I don't think it `matters`, finn.
+- It `matters` not, he is thy king!
+- See, these're personal `matters`.
+- What `matters` isn't what's real.
+- What `matters` is we finish this.
+- Which is all that ever `matters`.
+- It's not the press that `matters`.
+- I doubt that it `matters` any more.
+- Morpheus is the one that `matters`.
+- Not that it `matters` to your type.
+- Doesn't look like it much `matters`.
+- I don't think she `matters` anymore.
+- Now, on to more important `matters`.
+- We're rich in what really `matters`.
+- All that `matters` is that you're ok.
+- Obviously, there are 1egal `matters`.
+- That's the only thing that `matters`.
+- What `matters` is... what comes next.
+- How you reach the goal `matters`, too.
+- I have to believe that that `matters`.
+- No <u>single</u> ant `matters`, right?
+- It's missing everything that `matters`.
+- He has more experience in these `matters`.
+- I don't think it really `matters`, hannah.
+- I'll be getting everything that `matters`.
+- It's how you feel about it that `matters`.
+- My memory is good on `matters` like these.
+- None of it `matters` in the city of light.
+- That bit of shine `matters` to me ... why?
+- All that `matters` is what you g-g-gave us.
+- I bow to your expertise in these `matters`.
+- I mean, this can only make `matters` worse.
+- It `matters` how much you can get for them.
+- On the contrary, it `matters` a great deal.
+- The only thing that `matters` is the grail.
+- Is sex the only thing that `matters` to you?
+- If you don't do that, nothing else `matters`.
+- To `matters` of race, creed, color, religion.
+- You are soft -- inside -� where it `matters`.
+- I want you back and that's all that `matters`.
+- What `matters` is that he is your best friend.
+- But who does he trust with sensitive `matters`?
+- The decision we make now is all that `matters`.
+- There are more important `matters` right now...
+- No, but she does, and that's all that `matters`.
+- All that `matters` is you're gonna be okay, mate.
+- Right now, all that `matters` is getting to madi.
+- There are `matters` of immediate - my...mother...?
+- And, as always happens in such `matters`, i did it.
+- But if it really `matters` to you, i'11 call you...
+- If you don�t mind, i do not think he `matters` now.
+- I've come to think that's all that really `matters`.
+- Look down there, tell me what any of this `matters`.
+- Now, now, don't let's be small about such `matters`.
+- Brooding endlessly isn't going to help `matters` any.
+- Green's the only color that `matters` under the hill.
+- I judge military `matters`, captain winthrop, not you.
+- "they" know who "they" are, that's all that `matters`.
+- Personal `matters` that needn't, uh - personal `matters`.
+- Mr. fettes and i have professional `matters` to discuss.
+- Everything i've done, all that `matters` congratulations!
+- No, i had -- some other `matters` to attend to, you know.
+- The only thing that `matters` now are the people we love.
+- I'm here with you ... and that's all that `matters` to me.
+- It `matters`, mr. crawford... other cops know who you are.
+- Then we can act on all internal `matters` without talking.
+- The truth is, we have more important `matters` to discuss.
+- To make `matters` worse, the children of gabriel are here.
+- In `matters` concerning the household, i act on her behalf.
+- Not that it `matters` because i don't work for you no more.
+- She has other `matters` to handle, the 12 clans want a war.
+- You just take care of number one that's all that `matters`.
+- What `matters` is that we're here for andy when he needs us.
+- It's what we <u>think</u> is real--what `matters` is the art.
+                 

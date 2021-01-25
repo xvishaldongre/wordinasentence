@@ -1,0 +1,80 @@
+---
+title: "Italian in a sentence | Italian example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Italian"
+---
+- He can read `italian`.
+- Should we get `italian`.
+- The `italian`, i presume?
+- First, he's not `italian`.
+- Says he's a good `italian`.
+- Their mother was `italian`.
+- One pair of `italian` shoes.
+- You sure he's not `italian`?
+- As i said, he isn't `italian`.
+- I said, is she `italian` girl?
+- Maybe it's an `italian` thing.
+- I looked like an `italian` man!
+- This gents my `italian` knight.
+- She didn't look `italian` to me.
+- We�ve still got the `italian`...
+- Who buys `italian` meat anymore?
+- A type more greek than `italian`.
+- Do people die in `italian` operas?
+- I'm gonna speak `italian` to mike.
+- Until he meets romeo is�`italian`.
+- She don't look like `italian` to me.
+- Only, it's in `italian`... only what?
+- Plenny a nice `italian` girls around.
+- Want to try that new `italian` place?
+- Some `italian` i picked up back there.
+- You think my wife buys `italian` meat?
+- `Italian` is practically the same thing.
+- 'the `italian` stallion,' it's right on.
+- [`italian`-american slang for 'now, go!']
+- How about trying your fine `italian` hand?
+- No one saw me but the `italian` and a dog.
+- How's the `italian` food in this restaurant?
+- The supermarkets don't carry `italian` meat.
+- See, i'm `italian`, but i grew up in tarzana.
+- She could even differentiate `italian` wines.
+- We've got several `italian` cars on the list.
+- How do you say "you're dreaming" in `italian`?
+- She's never been out with an `italian` before.
+- Did we vote in the end for german or `italian`?
+- Ya know, i'm with ya -- `italian`, we're blood.
+- Is he your favourite `italian` film director?
+- As one `italian` to another, i ask you the favor.
+- Shoot, `italian` boys love them some black women.
+- There's a big thing over at the `italian` embassy.
+- Where�s the fucking `italian`, eh, mr french hero?
+- You think i'm just one of those `italian` casanovas.
+- He almost killed an `italian` dude couple months ago.
+- I think they're all in `italian`, but i'll look, yes.
+- You are an old goat, and she has an `italian` temper.
+- Every single one of those pictures is somebody `italian`.
+- I gave her a schaff [`italian`-american slang for 'tap'.]
+- By the way, officially there are no `italian` homosexuals.
+- If it's in `italian`, how will i know what they're saying?
+- Oh, i remember -- i was cooking myself an `italian` dinner.
+- L.t., in this office i'd prefer you say `italian`-americans.
+- They extract it from the urine of menopausal `italian` nuns.
+- And french and `italian`, and i've been in band for 12 years.
+- An `italian` hippie had a car accident and a turk was killed.
+- Well, if he had been `italian`, they could have been shot off.
+- [`italian`- american slang for 'i'm counting on you'] all right.
+- French, scots-irish, `italian`, ...and one-eighth american indian.
+- So i've been playing with this `italian` club the last three years.
+- I read in the newspapers about the `italian` strike and riots in milan.
+- Why didn't he go and direct in america, like that `italian`, toscanini.
+- Yet somehow whenever i'm with you, to young `italian`-american students.
+- I was out there with my cumma [`italian`- american slang for 'girlfriend'.]
+- Well, actually, sire, if you remember, we did finally incline to `italian`.
+- I'll make a quiet `italian` dinner just the way you like it, with spaghetti.
+- [`italian`-american slang for 'i've got to talk to you'] nicky... see that guy?
+- I just couldn't face going to the police by myself when my `italian`'s so rotten.
+- `Italian` bureaucracy -- never one stamp when they can make you line up for three.
+- You've obviously never had your dogs nestled in thousand dollar `italian` loafers.
+- Southpaw, nuthin' -- i'll drop 'im in three -- 'apollo creed meets the `italian` stallion.'
+                 

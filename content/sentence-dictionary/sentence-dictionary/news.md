@@ -1,0 +1,107 @@
+---
+title: "news in a sentence | news example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "news"
+---
+- Bad `news`, gentlemen.
+- Bad `news`, you crazy?
+- But i have big `news`.
+- Is good `news` i sure!
+- So, what's the `news`?
+- What's the bad `news`?
+- Yes, i saw the `news`.
+- Give me the bad `news`.
+- Good `news`, gentlemen.
+- I'm yesterday's `news`.
+- I saw it on the `news`.
+- Isn't that good `news`?
+- It's the `news`, buffy.
+- That's not `news`, zoe.
+- That's the good `news`.
+- You were on the `news`.
+- All right, great `news`.
+- `News` travels fast.
+- Another `news` clipping.
+- Bad `news` from america.
+- Do you watch the `news`?
+- Hey you hear the `news`.
+- How is that good `news`?
+- I have some good `news`.
+- I have wonderful `news`!
+- I'll tell you my `news`.
+- I've got `news` for you.
+- Okay, i got some `news`.
+- Tell me some bad `news`?
+- That's very good `news`.
+- That's wonderful `news`.
+- Well, i have got `news`!
+- Well, `news` of buckley?
+- I got `news` for you.
+- Any `news` about barbara?
+- But dad, it's the `news`.
+- Give me your `news`, zoe.
+- Hey, nelson, good `news`.
+- How is this great `news`?
+- Is this the daily `news`?
+- It's all over the `news`.
+- It's all the same `news`.
+- It's not all good `news`.
+- I've got some bad `news`.
+- Keep watching the `news`.
+- Look, this is the `news`.
+- Marriage is happy `news`.
+- Sir, that's great `news`.
+- Sorry, it's `news` to me.
+- Tell me some good `news`.
+- Tell me your `news`, zoe.
+- That place is bad `news`.
+- That's front page `news`!
+- That's terrible `news`...
+- The bearer of bad `news`.
+- To share the good `news`.
+- Want to catch the `news`.
+- Watch the fucking `news`!
+- Well, that's good `news`.
+- What `news` of the north?
+- You saw the `news` today?
+- Have you heard the `news`?
+- I see you made the `news`.
+- I suspect you have `news`.
+- I've got some good `news`.
+- James has got some `news`.
+- Tell me, is it bad `news`?
+- Well, that's `news` to me.
+- Any `news` you wanna share?
+- But, hey, some good `news`.
+- Don't you watch the `news`?
+- Have you any `news` for me?
+- Here's a `news` flash, ray.
+- I got some more bad `news`.
+- I'm after `news`, as usual.
+- Is the `news` good, or bad?
+- I wish i had better `news`.
+- O honey nurse, what `news`?
+- Well, i got `news` for you.
+- I have more good `news`.
+- Are you watching the `news`?
+- Could we cut all `news` off?
+- Crap `news`, it sounds like.
+- I got some `news`, marietta.
+- I've got some crummy `news`.
+- So...what's the good `news`?
+- Thanks for the jolly `news`.
+- The `news` is not good, kid.
+- What's the wonderful `news`?
+- What's this big, big `news`?
+- Apologies, but i have `news`.
+- But there is some sad `news`.
+- I'm afraid i have bad `news`.
+- Is this really `news` to you?
+- Just got some `news` on bell.
+- Network `news`, washington...
+- Now there's some good `news`.
+- The ex-ship `news`' reporter.
+- There is good `news`, though.
+- Well i've got `news` for you.
+                 

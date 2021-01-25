@@ -1,0 +1,60 @@
+---
+title: "sheila in a sentence | sheila example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sheila"
+---
+- `Sheila` grabs his arm.
+- I brought `sheila` in...
+- I do like you, `sheila`.
+- `Sheila`, what is it?...
+- `Sheila`'ll be at "tops".
+- `Sheila` shakes her head.
+- Theo lets go of `sheila`.
+- `Sheila` and kastle sit up.
+- This looks like `sheila`'s.
+- Too late for what, `sheila`?
+- Buzz follows `sheila`'s gaze.
+- Come on `sheila`, knock-knock.
+- `Sheila` moves closer to theo.
+- `Sheila`, you're going to far!
+- You should look in on `sheila`.
+- Are you fucking with me `sheila`?
+- Theo pulls his eyes off `sheila`.
+- Theo stares into `sheila`'s eyes.
+- `Sheila` pulls out a 5 dollar bill.
+- `Sheila` seems to weigh her answer.
+- She's blaming herself for `sheila`.
+- `Sheila`... stop... go home, `sheila`.
+- Because `sheila` will defend herself.
+- Theo takes `sheila` by the shoulders.
+- Your friend `sheila` brought you here.
+- Bastard... `sheila`, don't go anywhere.
+- `Sheila` comes over to take their orders.
+- I gave `sheila` to him and now she's dead!
+- God damn it, `sheila` isn't gonna believe it.
+- `Sheila` starts to unbutton her bowling shirt.
+- This is `sheila` kastle, my partner's daughter.
+- `Sheila` steps over to the booth with their food.
+- Theo drives away leaving `sheila` standing alone.
+- What the hell did you go doing that for `sheila`?
+- Talk to me, you're talking like that girl `sheila`.
+- `Sheila` told me you played bouncy- bouncy with her.
+- For god's sake `sheila`, you almost had them killed!!
+- I did your dirty work for you `sheila`, now fuck off.
+- I don't want to talk about it... whatiya mean, `sheila`?
+- `Sheila` seems to be trying to tell theo, but is unable.
+- `Sheila` leans over and whispers furiously to her father.
+- `Sheila` makes a pathetic attempt to speed away from theo.
+- `Sheila`... you've been fucking somebody else haven't you?
+- `Sheila` catches sight of theo pulling into the parking lot.
+- Theo takes `sheila` in his arms and kisses her passionately.
+- When i'm with you `sheila`, i don't even think about bowling.
+- Bring the `sheila` 3.2 character module with you... amazing.
+- `Sheila` walks over as the sleazeballs' car pulls out of the driveway.
+- When did you last embarrass a `sheila` wid your cool appraising stare?
+- Kastle pulls out a shiny gold credit card and holds it in front of `sheila`.
+- You played bouncy-bouncy with `sheila`, so i'm gonna play blue-face with you.
+- I think `sheila`'s more interested in dissecting bodies than just admiring them.
+- `Sheila` grabs the bottle from junior, opens it and pours some on her shish kebab.
+                 

@@ -1,0 +1,70 @@
+---
+title: "trapped in a sentence | trapped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trapped"
+---
+- It's `trapped` in there.
+- They could be `trapped`.
+- We were `trapped` inside.
+- I wasn't `trapped` anymore.
+- We're `trapped` in a house.
+- Admiral, you'll be `trapped`!
+- Ju... jesus, we're `trapped`!
+- Oh, i'm `trapped` in a ravine.
+- We're `trapped` in this house.
+- _ `trapped` inside this tin can?
+- `Trapped` behind a pane of glass.
+- Do you want to get `trapped` here?
+- I could be `trapped` here forever!
+- I'm `trapped` in this stupid tube.
+- Are `trapped` inside mount weather.
+- They booby `trapped` her apartment!
+- `Trapped` in the same town forever.
+- I'd hate to get *`trapped`* in here.
+- ♪ `trapped` like rats ♪ i have to go.
+- We're `trapped` by a bunch of fiends.
+- You get `trapped` by your own success.
+- But the horicane is near `trapped` out.
+- We had them `trapped` on the stairwell.
+- You were `trapped` by morgana's sorcery.
+- How long have you been `trapped` in here?
+- I was `trapped` in my cabin for two days.
+- Now i'm `trapped` in his easy payment plan.
+- 47 of us are `trapped` inside mount weather.
+- `Trapped` in the body of a gameshow hostess.
+- A helpless toy...it's...it's `trapped`, buzz!
+- I know, some are `trapped`, usually by money.
+- I'm `trapped` in the hall of vice presidents.
+- So now you're saying my mother `trapped` you?
+- `Trapped` in a 100-year-old car by toxic fog.
+- But we are `trapped` in this dimension forever.
+- Even though we were `trapped` in a tin can hey...
+- I've been `trapped` by miles kastle my whole life.
+- I was `trapped` in it, like an insect in amber.
+- It's as though he'd `trapped` a real cuckoo inside.
+- ♪ you'll be `trapped` ♪ i do when you agree with me.
+- That means that she's `trapped`... god loves diversity.
+- I got `trapped` and you know it, so let's have some rules.
+- All that space out there, and we're `trapped` in this ship.
+- So it's `trapped` in between -- now we have to drive it out.
+- A unit was a block away, and the suspect got `trapped` inside.
+- We're `trapped` in this house forever... with those... people.
+- You could just tell when the supplies were booby `trapped`?
+- I'm `trapped` in my head and everything i love is being erased!
+- We are innocent children and we are `trapped` under starcourt mall.
+- We're `trapped` in the mall and in need of emergency transportation.
+- We're `trapped` in this ice and bedeviled by some sort of... creature.
+- Listen, cookie, i've been `trapped` in this burg for hundreds of years.
+- She was `trapped` in the wreck for about six hours before she passed on.
+- Don't let him catch you behind the machines; if he does, you're `trapped`.
+- I can hear it like a fly `trapped` inside my ear... says its name is oona!
+- Mark said her soul's `trapped` with it -- that's why she can't come to me.
+- Blitzy, handsy, what happens when we're `trapped` in here he's in a good mood.
+- But it's also because i was `trapped` underground and a mill... do you accept?
+- Oh that was... no, i ... she just kind of `trapped` me into giving her a ride.
+- 47 of us are `trapped`... because they don't think they can survive here, do it.
+- It's like he slammed a door in cairo and it `trapped` my fucking hands in tobruk.
+- Everything that's corrupt about it... my father `trapped` it in there just before he died.
+- Jack, it must be so terrible for you, to be `trapped` here on this island, all over again.
+                 

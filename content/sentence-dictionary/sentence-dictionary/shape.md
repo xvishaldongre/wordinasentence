@@ -1,0 +1,105 @@
+---
+title: "shape in a sentence | shape example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shape"
+---
+- I am in great `shape`.
+- She's in fine `shape`.
+- We're in good `shape`.
+- You're out of `shape`.
+- I'm not out of `shape`!
+- I'm not out of `shape`.
+- The `shape` of a three.
+- What `shape` is the scar?
+- You're the wrong `shape`.
+- The `shape` of it all.
+- The `shape` of the anomaly.
+- Because he's out of `shape`.
+- I wouldn't be in this `shape`!
+- She was in pretty bad `shape`.
+- The `shape` doesn't bother me.
+- You're in great `shape`, beck.
+- Doc's just in no kinda `shape`.
+- I said, she's in great `shape`.
+- `Shape` up or ship out, righto?
+- "...what `shape` it will take."
+- You know you're out of `shape`.
+- Good `shape` for an old man, eh?
+- I thought i was in good `shape`.
+- Keeps you in `shape` doesn't it?
+- It does have an odd `shape`, sir.
+- Look, he's in pretty good `shape`.
+- You're not in bad `shape`, really.
+- `Shape`, nothin' -- they're afraid.
+- You're in no `shape` to climb alone.
+- You saw a `shape` ahead of you...
+- Usually it's the `shape` of an arrow.
+- You're in no `shape` to kill anybody.
+- It looks a little bent out of `shape`.
+- You couldn't be in much worse `shape`.
+- Almighty jove in the `shape` of a swan.
+- I gotta keep in `shape` for the ladies.
+- He's admiring the `shape` of your skull.
+- They did have that egg `shape` in common.
+- Aside from my neck, i'm in superb `shape`.
+- My only worry is what `shape` it will take.
+- He can `shape`-shift into different animals.
+- I know you'll whip her into `shape`, scotty.
+- I thought i would assume a pleasing `shape`.
+- It's the same `shape` as... as your drawing.
+- You're a big man, but you're in bad `shape`.
+- He's not in such good `shape` as i am, but...
+- Our yeast paste into the `shape` of a turkey.
+- We're in bad `shape`, benedict, moral is low.
+- Can you imagine what kind of a `shape` i'm in?
+- Come on, `shape` up, get going, you can do it.
+- I was in `shape` before we started doing this.
+- The dude's in bad `shape`... you see his hands?
+- Well, you are in pretty good `shape`, herr rick.
+- Six more years and i would have had that `shape`!
+- I'm afraid the president's not in very good `shape`.
+- It appears to be in the `shape` of bob's big boy, sir.
+- This time, in the `shape` of a mobius strip, inverted.
+- No one, in any way, `shape` or form should be censored.
+- ♪ rockin' in the u.s.a. ♪ - the `shape` of the anomaly.
+- I know what that sound signifies: you're out of `shape`.
+- Look at you; you won't last a day the `shape` you're in.
+- When you see nothing more than a `shape`, you don't shoot.
+- That's the `shape` my hand's gonna be when i hold that thing.
+- When i sacrificed my child hope you guys are in good `shape`.
+- But� i didn't stay in `shape`� and� �i had to take a few dives.
+- [conversations and car horns] which is why we can `shape` them.
+- I can't pretend to be your husband... david's in great `shape`.
+- I want every inch of the pearl spic-and- span and ship-`shape`!
+- You seemed like you were in pretty bad `shape` the other night.
+- I know we're all in strung out `shape` but stay frosty and alert.
+- If your memory was as long as your dick, you'd be in good `shape`.
+- Let me ask you a question: do you think this guy's out of `shape`?
+- Hell, you're in great `shape`, you've got your sense of humor back!
+- All you newmeats gonna have to `shape` up fast and hard on this gang.
+- If i had to work here all day, i'd be bloated and out of `shape`, too.
+- A mountain curved like a woman's back, a plateau the `shape` of an ear.
+- Mac, tomorra mornin' when you `shape` the men put terry in the loft.
+- Buzz straightens out and carefully remolds the bent out of `shape` halo.
+- I've gone this far, and right now i think i'm in better `shape` than you.
+- We picked up a professional car thief in the `shape` of olivia newton-john!
+- Oona... don't cry... please, you mustn't... what `shape` i take matters not.
+- Yes... a little scorching on the upholstery but otherwise all ship- `shape`.
+- Get it into `shape` so when we finish the interview, we can just stick it in.
+- If i can just turn this goddamn garage around, i'll be in pretty good `shape`.
+- They had to `shape` up their employment practices to keep this defense contract.
+- You got all bent out of `shape` as soon as he started dancing with someone else.
+- Since each piece is unique, the `shape` and grain is impossible to duplicate.
+- The earth is in terrible `shape`, we could al die, and besides, sting's doing it.
+- Which makes sense, this `shape`, i saw it on the video tape from halloween night.
+- City people don't give a hoot and a holler about the `shape` of the moon nowadays.
+- In l.a. with his face all bent out of `shape` who you've damaged his movie career.
+- We might not be in this `shape` if we had a real war- time consiglere, a sicilian.
+- I can't see getting married if mr. johnson isn't going to be in tiptop `shape`.
+- Tomorrow... with the caveat that it is not made public in any way, `shape` or form.
+- You said yourself my inventory was in good `shape` - all of my merchandise put away.
+- Isn't zerzura supposed to be protected by spirits who take on the `shape` of sandstorms?
+- He sends his legion in the `shape` of men, to feed on us, to breed his hell on our earth.
+- Six billion people on the planet, you're getting bent out of `shape` 'cause of one fat guy?
+                 

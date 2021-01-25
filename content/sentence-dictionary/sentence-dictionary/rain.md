@@ -1,0 +1,107 @@
+---
+title: "rain in a sentence | rain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rain"
+---
+- ...the `rain` falls...
+- Afraid it might `rain`?
+- It began to `rain`.
+- `Rain` fell like tears.
+- It's gonna `rain` again.
+- Awesome sleet and `rain`.
+- I wish it would `rain`...
+- `Rain` check me, partner.
+- Think it'll `rain` later?
+- Come in out of the `rain`.
+- `Rain` should let up soon.
+- We'll take a `rain` check.
+- Don't `rain` on our parade.
+- Might start to `rain` again.
+- Slow down there, `rain` man.
+- What if it starts to `rain`?
+- Black `rain` will come first.
+- It can't `rain` all the time.
+- Let's get out of this `rain`.
+- There will be no more `rain`.
+- A whole week of lovely `rain`.
+- I'm gonna take a `rain` check.
+- It is `rain` dogs, by the way.
+- It might `rain` on the way.
+- Come in out of the `rain`, bud.
+- `Rain` or shine, sleet or snow.
+- Turns out, i missed the `rain`.
+- With my luck, now it'll `rain`.
+- Well then, i'll pray for `rain`.
+- You see any `rain` on that tape?
+- I'll take a `rain`-check for now.
+- [`rain` falling] oh, why pretend?
+- `Rain` or shine, snow or no snow.
+- So many checks, so little `rain`.
+- The `rain` didn't last very long.
+- Yeah, a lot of `rain` that night.
+- I hear it don't `rain` much there.
+- The `rain` on my car is a baptism.
+- Alie: black `rain` will come first.
+- The tom waits album is `rain` dogs.
+- Yes, the `rain` has been very heavy.
+- Let's find a place out of the `rain`.
+- What's with all the crazy red `rain`?
+- Wherever you are, the `rain` follows.
+- Y'all getting any `rain` up your way?
+- Come `rain`, wind, snow, never budged!
+- Yeah ... you don't have `rain` either?
+- I can't hear my screams over the `rain`.
+- Uh, yeah, i'm gonna take a `rain` check.
+- Prob'ly the `rain` boys from outer space.
+- We lost yesterday on accounta the `rain`.
+- We've gotta burn the `rain` forest, pops.
+- We're gonna `rain` on zimmermann's parade.
+- The `rain` isn't drinkable from the ash.
+- Like the smell of fresh `rain` or something.
+- Go be `rain` man on some other bitch's block.
+- Grandfather say: "it never `rain` every day."
+- I'll go take a look when the `rain` lets off.
+- Me hanging on behind in the `rain` all night?
+- Quite a bit more `rain` than usual this year.
+- [`rain` falling] let me see the tattoo again.
+- The woods were cold and damp from the `rain`.
+- Yes, like `rain` and sun, like cold and heat.
+- Hey, sketchy-- but i'll take a `rain` check...
+- The `rain`... sometimes it gives me the blues.
+- They're gonna come like `rain` that never ends.
+- Can't hear anything through that wind and `rain`.
+- [`rain` falling] we have to get him back to camp.
+- You don't get `rain` like you used to in england.
+- You'd better hurry -- i think it's going to `rain`.
+- She's -- looks like `rain`, steed... hmmm ... close.
+- We did this play at four am, outdoors in the `rain`.
+- I don't want them to worry about a wee bit of `rain`.
+- Even the `rain` that should fall from the sky come on!
+- I heard your breathing and thought it might be `rain`.
+- It looks like `rain` and i don't have a thing to wear.
+- `Rain` dogs is gonna be prettier than you when i'm done.
+- Sorry about... not if you count 'singing in the `rain`.'
+- We're co-sponsoring the acid `rain` mixer at the sig ep.
+- Talk to me when your face is in the history books `rain`!
+- So, `rain` or shine, we will all have smiles on our faces.
+- No, i don't know, daddy, i think the `rain` has obscured it.
+- What i'm about to tell you he eats cereal with `rain` water.
+- He walks in the `rain`, without his hat, and talks to himself.
+- Will and seamus look at each other - the `rain` is letting up.
+- Maybe we'll be lucky this winter and have just `rain`, no snow.
+- They'll be okay if they know enough to stay in outta the `rain`.
+- Listen, miss ladybird, you're here on a `rain` check and i know it.
+- ♪ the bullets flew like `rain` ♪ you'll get this back when you leave.
+- It's a nice story, monty, marge, it's going to `rain` during the show.
+- I hope the wind blows the whole damn thing off and it pours down `rain`.
+- I like the symphony, walks in the `rain`, sunsets, animals and children.
+- That is because it rained recently, the `rain` has obscured the evidence.
+- They're just pissing on us with out even a courtesy of calling it `rain`.
+- He went out several time last night, in the `rain` carrying his sample case.
+- Oh, bless ye the works of the lord in the hail and the storm and the `rain`!
+- Let it be `rain`, please let it be -- walk over to the window ... no, please!
+- Aw, you ain't disturbing me, but it kind of looks like `rain`, don't ya think?
+- We've gotten all we're gonna get out of this place and its starting to `rain`.
+- I'm dying for `rain` - of course i'm dying anyway - but i long to feel `rain` on my face.
+                 

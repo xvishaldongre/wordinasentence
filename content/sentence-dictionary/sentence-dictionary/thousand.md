@@ -1,0 +1,107 @@
+---
+title: "thousand in a sentence | thousand example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thousand"
+---
+- A `thousand` chariots.
+- 'bout five `thousand`.
+- Five `thousand` bucks!
+- Five `thousand` bucks.
+- Five `thousand` leads.
+- I said ten `thousand`.
+- One `thousand` francs.
+- Six `thousand`, right?
+- Two `thousand` francs.
+- A `thousand` apologies.
+- I got seven `thousand`.
+- One hundred `thousand`.
+- One hundred `thousand`?
+- One `thousand` is bid.
+- Passing ten `thousand`!
+- Six `thousand` dollars.
+- Six `thousand` dollars?
+- Tem `thousand` dollars.
+- Ten `thousand` dollars.
+- Two `thousand` dollars.
+- You got ten `thousand`.
+- A `thousand` times more.
+- A `thousand` times over!
+- A `thousand` times, yes!
+- Five `thousand` dollars.
+- Nine `thousand` dollars.
+- One `thousand` at 1,000.
+- Or maybe two-`thousand`.
+- Three `thousand` pounds.
+- 'bout a `thousand` years.
+- Eight `thousand` dollars.
+- Fifty `thousand` dollars!
+- Five-`thousand` per kilo.
+- Forty `thousand` dollars?
+- Get the three `thousand`.
+- Make a `thousand` of 'em.
+- Maybe ... ten-`thousand`.
+- Valued at 350 `thousand`.
+- All right, two `thousand`.
+- Just below ten `thousand`.
+- Not in a `thousand` years.
+- One `thousand`, thank you.
+- Ten `thousand` right here.
+- `Thousand` dollars a game.
+- Three `thousand` miles?...
+- You wanted ten `thousand`?
+- A few `thousand`, at least.
+- And a `thousand` years old.
+- Fifteen `thousand` dollars.
+- He'll see fifty `thousand`.
+- I only want ten `thousand`.
+- Ten `thousand` sounds high.
+- Thirty-`thousand`, i think.
+- Two hundred ten `thousand`.
+- We're two `thousand` short.
+- What ten `thousand` pounds?
+- A couples `thousand` pounds.
+- Altitude fifteen `thousand`.
+- ...forty `thousand` dollars!
+- Fuck 'em a `thousand` times?
+- How about twenty `thousand`?
+- It's ten `thousand` dollars.
+- Roughly five `thousand` men.
+- Thirty-five `thousand`, sir.
+- `Thousand` bucks ain't shit.
+- `Thousand` times, thank you!
+- We landed with a `thousand`.
+- We're sixty `thousand` left.
+- What other sixty-`thousand`?
+- About twenty-four `thousand`.
+- A `thousand` years, and more.
+- 'bout fifty `thousand` times.
+- Five, six-hundred `thousand`.
+- Four hundred sixy `thousand`.
+- I got eight `thousand` yards.
+- Is it really four `thousand`?
+- Like "three `thousand` a ki?"
+- Literally a `thousand` times.
+- Man 1: one `thousand` is bid.
+- Man 1: two `thousand` is bid.
+- Not with a `thousand` swords.
+- Seventeen `thousand` in debt.
+- That's fifty `thousand`, huh?
+- There's four `thousand` here.
+- `Thousand` dollars of reward.
+- Welcome ten `thousand` times.
+- We pay three `thousand` a ki.
+- About five `thousand` dollars.
+- A `thousand` miles off course.
+- A `thousand` times good night!
+- Descend ten `thousand` meters.
+- Eighteen `thousand` feet, sir.
+- For twenty `thousand` dollars.
+- Here's twenty-five `thousand`.
+- I need ten `thousand` dollars.
+- I need twenty-five `thousand`.
+- It's three `thousand` dollars!
+- Man 3: two `thousand` dollars.
+- Ninety-six `thousand` dollars.
+- No, three `thousand` at least.
+                 

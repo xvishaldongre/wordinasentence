@@ -1,0 +1,66 @@
+---
+title: "wood in a sentence | wood example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wood"
+---
+- Hi, this is ed `wood`.
+- Industrial `wood` oil.
+- What's all that `wood`?
+- Nice job on that `wood`.
+- A shitty piece of `wood`.
+- Bits of blood and `wood`.
+- It was a piece of `wood`.
+- Does `wood` sink in water?
+- Let's bring that `wood` in.
+- They are nuts about `wood`.
+- `Wood`, you're on your own.
+- It smelled like that `wood`.
+- Just cover `wood`, maverick.
+- They were looking for `wood`.
+- Feel this, real `wood` paneling.
+- Some debris... `wood`... anything.
+- We told you it was too much `wood`.
+- Just toss it like a scrap of `wood`.
+- What's all that `wood` in there for?
+- Roberts boy hauled `wood`, that's all.
+- The `wood` on the sundeck, everything.
+- Don't worry, homer, i'll chop the `wood`.
+- You know, a rust colored paint or `wood`?
+- So how can we tell if she is made of `wood`?
+- Who do you think put you into meadow `wood`?
+- You don't know me, but my name is ed `wood`.
+- I chop `wood` for the stove five times a day.
+- That's real `wood`, too, not that fake stuff.
+- The matches, the `wood`, my clothes, my skin.
+- After a few weeks, he was carved out of `wood`.
+- I know how this `wood` will sound when i knock.
+- It's made of soft `wood` with a crepe interior.
+- Never in my twenty-four years, knock on `wood`.
+- Greetings, my lady, the green `wood` is honored.
+- It's a piece of `wood` -- it's got nerves in it.
+- Mr. `wood`, this is mr. reynolds, your landlord.
+- Yeh, d. b. oh, just cleaning out the dead-`wood`.
+- This movie's gonna be the ultimate ed `wood` film.
+- You may make your bow from the `wood` of hometree.
+- Steve maybe you better get some `wood` for the fire.
+- It is okay........we will paint the `wood` black, yes?
+- Try to open the lid, try to kick a hole in the `wood`.
+- We found a small fracture in the `wood` of the gunnel.
+- Now, fortunately, we're nearly out of the `wood`, i think.
+- The information we need is embedded in the grain of `wood`.
+- Mr. `wood`, you have bounced your third and final rent check.
+- They were symbols -- carved out of stone or pieces of `wood`.
+- If she ... weighs the same as a duck ... she's made of `wood`.
+- We'll break up the furni... what happens when we run out of `wood`?
+- I aim to learn how to build things out of `wood` one of these times.
+- I've always been partial to `wood` buildin's and cabinets and whatnot.
+- Your father fought at belleau `wood`, it took him years to get over it.
+- Ole pete ain't much in the head, but he can lay in there with the `wood`.
+- Mr. `wood`, do you know <u>anything</u> about the art of film production?!
+- These charlatans -- it's a pity there isn't enough `wood` to burn them all!
+- I think your "written, directed, and starring ed `wood`" credit is a bad idea.
+- 113 continued: it'll be interesting, trying to build a fire without any `wood`.
+- I look at a piano and i see black and white keys, three pedals and a box of `wood`.
+- "...as soon as the sun was up the witch made gretel fetch the `wood` and kindle a fire.
+                 

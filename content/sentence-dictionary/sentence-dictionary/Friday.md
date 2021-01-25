@@ -1,0 +1,107 @@
+---
+title: "Friday in a sentence | Friday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Friday"
+---
+- It's `friday` night...
+- So how 'bout `friday`?
+- It's `friday` the 13th.
+- Probably next `friday`.
+- Donnie... it's `friday`.
+- `Friday`, send him home.
+- Happy `friday` the 13th.
+- So, you summit `friday`?
+- Are you busy on `friday`?
+- By `friday` i ought to...
+- Hey, great game `friday`.
+- I'll pay you on `friday`.
+- I'll see you on `friday`.
+- It�s `friday` night, jane.
+- The funeral's on `friday`.
+- `Friday` the 13th, part 20.
+- Yes-- it was on a `friday`.
+- Fifty cars by 8 am `friday`.
+- First `friday` of the month?
+- He was there `friday` night.
+- She's webster's girl `friday`.
+- Wednesday, thursday, `friday`.
+- `Friday` night is yankee night.
+- `Friday`, what am i looking at?
+- She disappeared `friday` night.
+- You're grounded `friday` night!
+- It's `friday` anyway... and hot.
+- Shall we say dinner on `friday`.
+- Give me a little juice, `friday`.
+- Tell him i asked for it `friday`.
+- `Friday`, what are they firing at?
+- I can't be out late on a `friday`.
+- The plumber's due out on `friday`.
+- Enzo's, `friday`, i meet you there?
+- It's the `friday` before christmas.
+- Only on good `friday` are you free.
+- Picking you up, 7:00 p.m. `friday`.
+- She went to a party `friday` night?
+- This is not my usual `friday` night!
+- We meet `friday`, and i... ...it is?
+- Name the killer in `friday` the 13th.
+- So, you're... you summit on `friday`?
+- We'll be out of the country `friday`.
+- See you `friday` night, if not before.
+- Wednesday, `friday`, sunday, saturday.
+- Just come to the mudd club on `friday`.
+- 'cause we don't have school on `friday`.
+- The regency downtown, thursday-`friday`.
+- Try and live a lifetime before `friday`.
+- What do you say, `friday`, eight o'clock?
+- You tell him i want my money by `friday`.
+- It's `friday`, do you have a date tonight?
+- Last `friday` i told him it wouldn't work.
+- So, uh, i -- i'm not really busy `friday`.
+- So, we'll meet every tuesday and `friday`.
+- Yeah, what are we doing again on `friday`?
+- But, look, we do this every `friday` night.
+- `Friday`, evac anyone south of 43rd street.
+- It's sprawl-mart's huge black `friday` sale.
+- `Friday` is suppose to be a kick-ass day.
+- Have a safe black `friday`, i don't think so.
+- Confirming a social outing for `friday` night.
+- Pick you up `friday`, then my mission in life.
+- Okay... why don't we light candles on `friday`?
+- What are you doing at home on a `friday` night?
+- `Friday`, do me a favor and activate protocol 8.
+- Ok, definitely call them, i'll be back `friday`.
+- Black `friday`: like the purge, but for bargains.
+- Then there's the high school on `friday`' nights.
+- By `friday`, man, or you're fuckin' dead as disco.
+- But it is gonna be the best `friday` of your lives.
+- I... uh... have a date with someone `friday` night.
+- This is `friday`, her riding lesson is on tuesdays.
+- We�re supposed to have dinner with him on `friday`.
+- Oh, `friday` i'm supposed to... those are my orders.
+- Bad enough we got a full moon; it's `friday` the 13th.
+- But, it's going to be the best `friday` of your lives.
+- Freddy's new obsession .. `friday` night at city hall.
+- `Friday` night, at the party - what'd you fight about?
+- Mr. lombardo from packaging wants to meet on `friday`.
+- Well, it's `friday` night and you're a beautiful girl.
+- `Friday`...god, i hate the thought of him home all day.
+- It's `friday`.... danny, please, we don't want to know.
+- To tell you the truth, i haven't seen her since `friday`.
+- But don't worry, harry, i'm still giving you until `friday`.
+- No, we've got to get back `friday` for the rehearsal dinner.
+- Instead of `friday` -- could you possibly switch to thursday?
+- Funny how so many people wanna buy carpet on a `friday` night.
+- I show time of occurrence, `friday` at fifteen-zero-six hours.
+- But unless the will shows up by `friday` midnight, it's theirs.
+- You be at this personnel office, `friday`, three o'clock sharp.
+- As long as you get the hacksaw piece done by `friday`... `friday`?
+- Dave, as you know, president kennedy was assassinated on `friday`.
+- They're getting a very special delivery a week from this `friday`.
+- Next `friday`, if you're not happy, i'll put you on the bus myself.
+- Yikes -- i was hoping to wear this thing to the halford's `friday`.
+- None of us had any sleep since `friday` night... goddamn it, yvonne!
+- Look, sylvia -- instead of `friday` - could we make it thursday night?
+- Hey, i sold my body to satan to clear `friday` at two o'clo... not yet.
+- I was thinking dinner on `friday` with james and meg at the saint mark.
+                 

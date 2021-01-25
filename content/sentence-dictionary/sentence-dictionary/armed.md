@@ -1,0 +1,78 @@
+---
+title: "armed in a sentence | armed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "armed"
+---
+- You cannot be `armed`.
+- Sid 6.7 is now `armed`.
+- We're not even `armed`!
+- What was that, `armed`?
+- Wonkru will be `armed`.
+- At least one is `armed`.
+- No fair, i'm not `armed`.
+- What do you mean, `armed`?
+- The women are `armed`, hal.
+- Watch it punk, i'm `armed`.
+- You sure you ain't `armed`?
+- They're all heavily `armed`.
+- Is your security team `armed`?
+- P-p-p-please, i'm not `armed`.
+- A one-`armed` machinist, oskar?
+- He goes to the theater `armed`.
+- I know most of you are `armed`.
+- My man is `armed`, and so am i.
+- From pouting to `armed` robbery.
+- Six-to-twelve, `armed` burglary.
+- I presume the planes are `armed`?
+- Only our guards are `armed` here.
+- Subject is `armed` and dangerous.
+- You say this guard is `armed`.
+- Three guys, one girl, all `armed`.
+- No `armed` boarding parties either.
+- They're `armed` for bear, buckaroo.
+- `Armed` robbery resulting in murder.
+- Merchant vessels run heavily `armed`.
+- That's twenty `armed` panthers dig?
+- I had to come here under `armed` guard.
+- Murder one and `armed` robbery, thelma!
+- In polis, only the sentries are `armed`.
+- They're `armed` and extremely dangerous.
+- Trust me, you do not want to be `armed`.
+- Pretty good for a one-`armed` nigger, huh?
+- The gate is `armed` with... it takes time.
+- What do you think they will be `armed` with?
+- I want you to set 'em up... `armed` robbery!!
+- Whatever it is, they're `armed` to the teeth.
+- Are these me considered `armed` and dangerous?
+- We were better prepared and better `armed`.
+- Isn't he chairing the `armed` services hearing?
+- Jason bourne is `armed` and extremely dangerous.
+- Your partners are currently `armed` and we're not.
+- The prototype appears to be `armed`, mr. president.
+- `Armed` psychopaths you put back in the battlefield.
+- I guess i might... but like i said, i ain't `armed`.
+- Come on, raymond, i'm a federal officer, i'm `armed`.
+- ... `armed` robbery ... let sal come out, take a look.
+- You're wondering why the scimitar is so well `armed`.
+- _ our daughter is gone, our home is an `armed` encampment.
+- They keep you under drugs out there with `armed` guards...
+- Take every last man: form a boarding party, `armed` heavily!
+- There, `armed` with a quill of my own, i'll commit it to paper!
+- I'd love to stop him, but have you noticed the hundred `armed` men?
+- But then, like you told old andy there, you ain't `armed`, are you, bob?
+- If you ever switch from `armed` robbery to pimping, then you're all set.
+- Faith has persuaded them a pygmie with a sling can kill an `armed` giant.
+- It took me 30 years, standing alone in front of a pack of `armed` beasts.
+- Our information states it came from a small group of `armed`, dissidents.
+- But between them and the water are five libyan guards, all `armed` to the nuts.
+- Look, the `armed` surround the unarmed in a circle and we move as a tight group.
+- Miller, he's back, he was in the tank... ...repeat, we're `armed`... we're `armed`.
+- Right now we got to worry about being `armed` and ready to protect betty shabazz.
+- Sentenced to 18 months in the state penn at rawlins, wyoming for `armed` robbery.
+- You knew were here when you sent an `armed` raiding party sir, she's... she's fine.
+- This is a federal offense, i got kidnapping, `armed` robbery, they're gonna bury me!
+- Well, come on, that's half a dozen `armed` men... you're not going to use it, are you?
+- You're all gonna burn in hell you're miners, is surrounded with `armed` cogs and convicts?
+- 'cause you get `armed` boarders climbing into soviet ships, shots being fired across bows...
+                 

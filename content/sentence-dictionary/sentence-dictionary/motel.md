@@ -1,0 +1,64 @@
+---
+title: "motel in a sentence | motel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "motel"
+---
+- Points at the `motel`.
+- I vote for the `motel`.
+- `Motel`... abby-- sign.
+- Take me to that `motel`.
+- ...drive me to a `motel`?
+- We'll get a `motel` room.
+- You out to buy a `motel`?
+- What `motel` you staying at?
+- Call jake at players `motel`.
+- There's a `motel` out of town.
+- In the house behind the `motel`.
+- I saw a `motel` by the tire fire.
+- Out at a `motel` 6 on cornwallis.
+- I'ii meet you back at the `motel`.
+- Do you have a `motel` or something?
+- I'm meeting lynette at the `motel`.
+- Probably stay at a `motel` tonight.
+- This pageant's like a roach `motel`.
+- Dominick said they're in the `motel`?
+- We'll stop at a `motel` -- kate, scott?
+- I want you to take me to another `motel`.
+- I went out to the `motel`, just got back.
+- I always think of `motel` rooms as lonely.
+- It's a place called shaw's siesta `motel`.
+- At the nearest second best western `motel`.
+- When is your rent coming up at the `motel`?
+- Like pick up some booze and go to a `motel`?
+- Not in no holidays or ramadas or `motel` six.
+- Fan out and work your way back to the `motel`.
+- Hell, this place is `motel` fuckin' six to me.
+- I hate to think of you in that cheesy `motel`.
+- I'm gonna check out of this bourgeois `motel`.
+- Not the `motel`, that's the other end of town.
+- Meet me at the starlight `motel` on sycamore...
+- You know that `motel` on the road west of town?
+- He said he took it to a `motel` in oklahoma city.
+- I don't understand why you had to stay in a `motel`.
+- Got the number of the `motel` out on the old highway?
+- He killed three men in a `motel` in del rio yesterday.
+- We're not going to actually stop at a `motel`, are we?
+- After i leave them, i'll meet you at the `motel`, okay?
+- I've been talking about your mother... about your `motel`.
+- Lynette, just keep your mouth shut until we get to the `motel`.
+- For now, i need your fearsome old habits at the victory `motel`.
+- There is a `motel` downtown, near the machine shop... the suncrest.
+- I ain't about to walk into that roach `motel` and get uncomfortable.
+- This certainly is an improvement on the `motel` an' the coffee shop.
+- We thought, if you didn't mind, we'd go out to the `motel` with you.
+- The el paso police have already started a `motel` and hotel search for us.
+- Tell me about that job in alexandria, dave, the big `motel` you're building.
+- I must have been in more `motel` rooms this week than in the rest of my life.
+- When we leave the ranch, i always hold my breath until i can see the `motel`.
+- He traced her to that `motel`, out on the old highway... mary is lila's sister?
+- Got us a `motel` out highway 5, bringing her own damn sheets, you read that part?
+- If you won't take me to dinner with your parents, i won't meet you at the `motel`.
+- I'll be bringin' the eldo 'round the front of the `motel` at ten tomorrow mornin'...
+- I saw your daddy a coupla years ago, i was up in glenville lookin' at a `motel` site.
+                 

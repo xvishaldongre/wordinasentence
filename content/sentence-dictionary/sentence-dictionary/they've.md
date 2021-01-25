@@ -1,0 +1,107 @@
+---
+title: "they've in a sentence | they've example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "they've"
+---
+- `they've` been tested.
+- `they've` cut into us.
+- `they've` got emerson.
+- `they've` inspired me.
+- `they've` moved house.
+- `they've` taken lyssa.
+- `they've` done a c.a.t.
+- `they've` got it rough.
+- `they've` got millions.
+- `they've` got my amado.
+- `they've` got no proof.
+- For what `they've` done.
+- `they've` all gone away.
+- `they've` been targeted.
+- `they've` got a gatling!
+- `they've` got no chutes.
+- `they've` got something.
+- `they've` tried poisons.
+- Well, `they've` arrived.
+- Aw, `they've` gone crazy.
+- Than `they've` ever gone?
+- `they've` all sent gifts.
+- `they've` closed the set.
+- `they've` got jean-louis!
+- `they've` lost a brother.
+- Maybe `they've` been here.
+- No, i mean `they've` gone.
+- `they've` been kind to me.
+- `they've` come for my car.
+- `they've` done a fine job.
+- `they've` got other mines.
+- `they've` gotta be joking.
+- `they've` had it too soft.
+- `they've` lost everything.
+- `they've` lost nine today.
+- `they've` never been here.
+- Sir, `they've` opened fire.
+- That's what `they've` done.
+- `they've` already launched.
+- `they've` been watching us.
+- `they've` dug up my wife...
+- `they've` given me an idea.
+- `they've` got it all wrong.
+- `they've` gotta be stopped.
+- `they've` hunted us, sorry.
+- `they've` hurt the unicorn.
+- `they've` offered a reward.
+- `they've` picked up henryk.
+- I guess `they've` done okay.
+- So `they've` been destroyed?
+- `they've` accused the e.p.a.
+- `they've` been followin' me.
+- `they've` got air canisters.
+- `they've` got him bewitched.
+- `they've` made their choice.
+- `they've` notified his wife.
+- `they've` taken hostages.
+- Oh, jesus, `they've` stopped.
+- `they've` always hated nixon.
+- `they've` closed the x-files.
+- `they've` got it, i tell you!
+- `they've` set the court date.
+- `they've` taken your clothes?
+- `they've` all been real times.
+- `they've` fucked with my head.
+- `they've` got a book for this?
+- `they've` got steam irons now.
+- `they've` left, keep watching!
+- `they've` ruined my childhood.
+- Yes, everything `they've` got.
+- If `they've` got a german wife.
+- Ten to one `they've` got a man.
+- `they've` been waiting for you.
+- `they've` broken their pattern.
+- `they've` done something to us.
+- `they've` gone potty out there.
+- `they've` got two monsters now.
+- `they've` never done a robbery?
+- `they've` taken over this town.
+- `they've` been in there all day.
+- `they've` got you down as a sap.
+- `they've` hit us on cherry hill.
+- `they've` hypnotized the nation.
+- Well `they've` crawled back out.
+- You see, `they've` been altered.
+- If `they've` looked at the video.
+- So far, `they've` had no success.
+- `they've` become what you wanted.
+- `they've` gone to a better place.
+- `they've` got to be almost there.
+- `they've` had other malfunctions.
+- After `they've` signed their ndas.
+- Because you are all `they've` got.
+- `they've` all developed a fairly .
+- `they've` got more men than we do.
+- What is this new job `they've`...?
+- `they've` been hit by a storm, jan.
+- `they've` been on to you all along.
+- `they've` been told, and they know.
+- `they've` got 900 numbers for that.
+                 

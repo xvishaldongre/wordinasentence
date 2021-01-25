@@ -1,0 +1,64 @@
+---
+title: "blown in a sentence | blown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "blown"
+---
+- I'm totally `blown` away.
+- Earth is gone, `blown` up.
+- I've `blown` money before.
+- We've `blown` the computer!
+- Like they were `blown` away.
+- Should have `blown` already.
+- We must have `blown` a seal.
+- `Blown` the moon out the sky?
+- We- we've `blown` it already.
+- I got `blown` out of the tube.
+- Yeah, i've `blown` school out.
+- A full-`blown` religious revival.
+- I mean, really, i'm `blown` away.
+- It was `blown` up with the plane.
+- The guy's a full-`blown` asshole.
+- In time to be `blown` up, you mean.
+- Ripley, you've `blown` the transaxle!
+- Good way to get your head `blown` off.
+- If i'm wrong then my cover is `blown`.
+- Sir august was `blown` to smithereens.
+- The hydraulic system must have `blown`.
+- You'll get `blown` outta here some day.
+- The power house - they've `blown` it up!
+- You wish you hadn't `blown` the whistle?
+- The planet has been totally `blown` away!
+- We have a full-`blown` red dawn situation.
+- "you wish you hadn't `blown` the whistle?"
+- An oxygen tank must've `blown` on the welder.
+- Old life `blown` away in the blink of an eye.
+- Now you've completely `blown` it with her.
+- I coulda had my head `blown` off and for what?
+- Turbine chamber on number two must've `blown`!
+- With a full-`blown` conspiracy to cover it up?
+- Every fuse in my nervous system has been `blown`.
+- I feel so much better just having `blown` this off.
+- You already almost got your head `blown` to pieces.
+- Were `blown` away by the efficiency of your systems.
+- But what good is a vow if everything gets `blown` away?
+- Somebody in their foreign ministry's `blown` it big-time.
+- I almost got my ass `blown` off twice tonight for nothing.
+- Our little theory from last night just got `blown` to shit.
+- When this is over our bodies may be `blown` to smithereens.
+- Some guy they found in a trunk with his head `blown` off.
+- You've `blown` your chance to participate in this case, kitty.
+- Don't you leave me, the 13th station was `blown` out of the sky.
+- You know we're preparing for a full-`blown` invasion of germany.
+- We have been shot at, nearly `blown` up, then show me your fealty.
+- I wish i hadn't `blown` every dime i ever made into this stinkbomb.
+- He's breathing on his own, but his pupils are completely `blown` out.
+- Not in any pain...the good and bad news of a `blown` out spinal cord.
+- Before black vomit starts its set, don will have his head `blown` off.
+- You're about to get your head `blown` off, you're worried about cancer.
+- Tommy knew he had the virus, like, but never knew he'd gone full-`blown`.
+- If i hadn't `blown` my arms off, mom never woulda started smoking in the first place.
+- The most honest moment in a man's life is the five minutes after he's `blown` a load.
+- Well, wiggum, i have to say, when i first met you, getting `blown` up must suck, huh?
+- Stepped on a booby trap, sir -- got `blown` all to hell -- soldier -- where''s your c.o.?
+                 

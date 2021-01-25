@@ -1,0 +1,107 @@
+---
+title: "quick in a sentence | quick example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "quick"
+---
+- Better eat it `quick`.
+- Duh... that's `quick`.
+- Get a `quick` picture.
+- I found it... `quick`!
+- I'll be `quick`, then.
+- I'm a `quick` learner.
+- ...`quick` in and out.
+- `Quick` -- i'm in love.
+- We can make it `quick`.
+- At least it was `quick`.
+- But i'm a `quick` study.
+- Come up with it `quick`.
+- The `quick` or the dead!
+- You took off so `quick`.
+- Bellamy... `quick`, hide.
+- Can we make this `quick`?
+- Come `quick`, don't call.
+- Oh -- here `quick` -- oh!
+- `Quick`, help me push it.
+- Smart as well as `quick`.
+- Make it `quick`, okay?
+- Can i make a `quick` call?
+- `Quick` -- hide in here...
+- That was `quick` thinking.
+- They can do it... `quick`!
+- You're too `quick` for me.
+- Get another one in `quick`.
+- Give me the phone, `quick`.
+- Is there a `quick` way out?
+- Just as `quick` as you can.
+- Some bicarbonate - `quick`!
+- I'll be as `quick` as i can.
+- No, just do it real `quick`.
+- They respond pretty `quick`.
+- But it was very `quick`, son.
+- Don't worry, i'll be `quick`.
+- Double bourbon, `quick`, huh?
+- `Quick` doesn't mean "ready".
+- `Quick`, everyone to the lab.
+- Well, it happened so `quick`.
+- You got us a room so `quick`?
+- Yes, i had a `quick` bite.
+- Do as dr. grant says, `quick`!
+- I got a `quick` errand to run.
+- It's not gonna happen `quick`.
+- Let's make this `quick`, then.
+- Okay... a `quick` look around.
+- `Quick`, watson, the cookbook!
+- Well, `quick` -- get into bed.
+- You french women work `quick`!
+- All right, but make it `quick`.
+- I'm gonna grab a `quick` slice.
+- Let's get ahold a' her `quick`.
+- Listen, give me a shot `quick`!
+- Tomorrow... as `quick` as that?
+- `Quick`, let me have that money.
+- You put things together `quick`.
+- Get inside `quick`, they'll stop.
+- How about a `quick` lesson, then?
+- I'll be back as `quick` as i can.
+- Lou, lou, `quick`, take a selfie.
+- He came up with it pretty `quick`.
+- How did jack ruby dies so `quick`?
+- Let's get his clothes off `quick`.
+- The power is coming down, `quick`!
+- The toxin is `quick` in this host.
+- Can you give it to me real `quick`?
+- Come `quick`, there's cops outside.
+- I got the `quick`-and-ugly version.
+- I'll fuck you up `quick` two times.
+- Just be `quick` about it, will you?
+- Oh, give me the oil can -- `quick`!
+- So make it `quick`, or i'm leaving.
+- You're a `quick` study, aren't you?
+- You're not as `quick` as i thought.
+- Just a `quick` word, ms. langenkamp.
+- Just popped over on a `quick` visit.
+- That stuff'll kill you `quick`, man.
+- ♪ jack be `quick` ♪ thanks, um... no!
+- Oh, eddie, that was `quick` thinkin'.
+- `Quick`, help me get him on his side.
+- `Quick`-hit technique used by capone.
+- You said there was a `quick` way out!
+- You're going through them `quick`.
+- I'll take a `quick` ride back to town.
+- You've got to be merciful and `quick`.
+- I'd need the cash pretty `quick` there.
+- It's for `quick` boosts we stop we die.
+- I've just got to make one `quick` stop.
+- Well, i'm going to change real `quick`.
+- `Quick` question - do you know who i am?
+- We're just not `quick` to run and boast.
+- What's with you and the `quick` answers?
+- I left so `quick`, but i need to do this.
+- I mean, good in that it was very `quick`.
+- `Quick` hits only -- try to make it last.
+- The answer is no, `quick` enough for you?
+- They're pretty `quick`...fifteen seconds?
+- Uh, excuse me, just one `quick` question?
+- We're trying to get a `quick` court date.
+                 

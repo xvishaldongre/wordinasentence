@@ -1,0 +1,107 @@
+---
+title: "right in a sentence | right example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "right"
+---
+- A "t." you're `right`.
+- (beeping) all `right`.
+- Be `right` there, pop.
+- Bloody `right` i do...
+- Bottom, left, `right`.
+- But i am `right`, yes?
+- Can -- that's `right`.
+- Conspiracy is `right`.
+- Cools you `right` off.
+- Damn `right` i did it.
+- Damn `right` i'm done.
+- Damn `right`, you are.
+- Damn `right` you will.
+- Dickson's all `right`.
+- Do i look all `right`?
+- Dr. santiago, `right`?
+- Get `right` back here.
+- Goddamn `right` i did.
+- Going on `right` here.
+- Go `right` ahead, sir.
+- Go `right` over there.
+- He said i was `right`.
+- He's busy `right` now.
+- He's real all `right`.
+- He's `right` you know.
+- Hey, i'm `right` here.
+- Hey, it's all `right`.
+- Hold it `right` there.
+- How about `right` now?
+- Hudson may be `right`.
+- If that's all `right`.
+- I got my mind `right`.
+- I got the `right` man.
+- I hope you're `right`.
+- I led with my `right`.
+- I’ll be `right` ba.
+- I'll be `right` there.
+- I'm doing all `right`.
+- I'm doing all `right`?
+- I mean... `right` now?
+- I'm happy `right` now.
+- I'm lying `right` now.
+- I'm `right` here, dad.
+- I'm `right` this time.
+- I'm there `right` now.
+- Isn't that `right`...?
+- It don't look `right`.
+- It happens, `right`...
+- It is monday, `right`?
+- It just feels `right`.
+- I trained her `right`.
+- It's all `right` here.
+- "it's all `right` now.
+- It's all `right`, sir.
+- It serves you `right`.
+- It's mine all `right`.
+- It's not `right` away.
+- It's `right` above us.
+- It's `right` this way.
+- It's snowing, `right`?
+- It's the car, `right`?
+- I've been all `right`.
+- I wanna do it `right`.
+- I was `right` there...
+- Jody's always `right`.
+- John, you all `right`?
+- Jokers to the `right`.
+- Josephine was `right`.
+- Left, left, `right`...
+- Let's go, `right` now.
+- Look, i'm me, `right`.
+- Madi, indra's `right`.
+- Maybe they're `right`.
+- Miller, she's `right`.
+- More than all `right`.
+- Near his `right` hand.
+- No, she's all `right`.
+- Not a bit all `right`.
+- No, the boy's `right`.
+- No, we're all `right`.
+- Oh -- i'm all `right`.
+- Oh, well, all `right`.
+- People smile, `right`?
+- Perfectly all `right`.
+- Pritchett was `right`!
+- Reed's always `right`.
+- `Right` at his keypad.
+- `Right`, beck, listen.
+- `Right`... ...come on.
+- `Right` here, partner.
+- `Right` here, why not?
+- `Right` in there, pal.
+- `Right` on the button.
+- `Right` on time, baby.
+- `Right` over the head.
+- `Right`, `right`, `right`.
+- `Right`, `right`, sorry.
+- `Right`, that's `right`.
+- `Right` there, bobbie.
+- `Right` there is fine.
+                 

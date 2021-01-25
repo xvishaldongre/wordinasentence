@@ -1,0 +1,81 @@
+---
+title: "fancy in a sentence | fancy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fancy"
+---
+- Expect nothing `fancy`.
+- Kinda struck my `fancy`.
+- Some `fancy` of 3jane's.
+- Who's the `fancy` broad?
+- `Fancy` meeting you here.
+- Every young boy's `fancy`.
+- I didn't even `fancy` her.
+- Footloose and `fancy` free.
+- Wish ours was that `fancy`.
+- `Fancy` seeing you here, bob.
+- `Fancy` offices, a big home...
+- Caught me trying to be `fancy`!
+- Some kind of `fancy` accountant.
+- This shari is a passing `fancy`.
+- You `fancy` yourself an explorer.
+- What do i need a `fancy` suit for.
+- The one with the `fancy` wallpaper.
+- An ordinary name and a `fancy` name.
+- I... stole... your... `fancy` shoes?
+- It's a `fancy` name for a toothache.
+- But, for a time... a passing `fancy`?
+- I can't understand that `fancy` talk.
+- Hey, what's up with the `fancy` pastry?
+- I'm a walk-on in a `fancy` dress scene.
+- That's a `fancy` way of saying eyewash.
+- You listen to me, you `fancy` city man.
+- Hey, do you `fancy` either of the birds?
+- She lived in a world of her own `fancy`.
+- What you expect but `fancy` damn prices?
+- I'd be so happy if ours was that `fancy`.
+- Well, that seems a harmless `fancy` -- no.
+- About my size, wears a `fancy` two-gun rig.
+- `Fancy` old thing even plays a little tune.
+- Sounds french--one of those `fancy` ladies.
+- I understand you `fancy` yourself an author.
+- What do i need overpriced `fancy` underwear for?
+- Not so soon, my dear, as you may `fancy` perhaps.
+- You're the one thinks that car's so damn `fancy`.
+- I'm tired of his `fancy` name and his `fancy` offer.
+- That big, `fancy` house, and you're here all alone?
+- That sounds like a `fancy` excuse for being a shit.
+- Edward is taking me to some `fancy` place for dinner.
+- `Fancy` waking up every morning with that in your lap.
+- Can you <u>prove</u> one word of all your `fancy` story?
+- He bought the cops `fancy` cars, i don't know what else.
+- When they took daya, where was your `fancy` gun then?
+- Well, yeah, but the tether off it ain't gonna be `fancy`.
+- More `fancy` talk... you want to know what haddonfield is?
+- Nothin' `fancy`, just enough to keep him from coming back.
+- If she has a `fancy` for school-boys, let her take 'em, sir.
+- Not to mention the debt you run up on this `fancy` starship.
+- I don't set a `fancy` table but... the kitchen's awful homey.
+- `Fancy` some lunch after we_re through with this meccano shit?
+- "that `fancy` raspberry filling represents the company's rent.
+- It seems a particular patient of yours has captured his `fancy`.
+- I didn't `fancy` spending my golden years as merely "the friend."
+- I warn you - don't give me a `fancy` price just because i'm rich.
+- Nothing `fancy`, just the plain, hard facts... tell it like it is.
+- I thought you wanted to buy spectacles an' `fancy` clothes an' all.
+- Mine's already been struck, and it doesn't have to be very `fancy`.
+- You had her <u>lie</u> about that... that `fancy`-boy <u>model</u>!
+- Besides, i'm surprised a tough guy like you uses `fancy` electronics.
+- If she won't suit your `fancy`, my friend, then you must wait awhile.
+- Must have been very `fancy`, if he scratched her phone number in gold.
+- We're going to get in his `fancy` car and ride off and leave you behind.
+- We could kill them two an' you could buy your wife one of them `fancy`...
+- You tried to pick this punk off with `fancy` shooting, to keep him alive.
+- Someone told me somebody lookin' like her was at the nothin' `fancy` yesterday.
+- ♪ there is no `fancy` part of it ♪ everything is grounder territory, all right?
+- Just 'cause you belong to some `fancy`-pants club, doesn't make you any less a murderer.
+- I thought you were going to be late- looks like i'm going to have a very `fancy` party...
+- This is an extremely complex case, and we have a lot of `fancy` theories floating around.
+- Anyroad, i only `fancy` listening to you ... that's all but if it worries you ... well ...
+- You spend all this money on beautiful, `fancy` books-- and they're the wrong fuckin' books.
+                 

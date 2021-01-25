@@ -1,0 +1,70 @@
+---
+title: "cents in a sentence | cents example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cents"
+---
+- Here's eighty `cents`.
+- Wages 5 `cents` a box.
+- Here's seventy `cents`.
+- Two and a half `cents`.
+- Fifty `cents` admission.
+- It's thirty-five `cents`.
+- You owe me twenty `cents`.
+- They pain' you fi' `cents`?
+- I'll give you fifty `cents`.
+- It's fifty `cents` admission.
+- Take your fifty `cents` back.
+- Local calls cost five `cents`.
+- You pay seventy-seven `cents`.
+- Still, fifty `cents` ain't bad.
+- Two `cents` worth of shoelaces?
+- That'll be thirty-eight `cents`.
+- You keep the sixty-four `cents`.
+- We're up eight `cents` per share.
+- Thirty-eight `cents` worth of gas.
+- You can have this for ten `cents`.
+- Nothing you'd give two `cents` for.
+- It used to be seventy-seven `cents`.
+- Ten `cents` each, i'll get a dollar.
+- That's one dollar an' twenty `cents`.
+- That it's not all dollars and `cents`.
+- I paid twenty-five `cents` for it, too.
+- May i have twenty-five `cents`, please?
+- They tell us it's gonna be fi' `cents`.
+- I don't want your goddamn fifty `cents`.
+- I'd like to get in my two `cents`' worth.
+- Re-figure it, mr. bernstein, at two `cents`.
+- This is all figured at three `cents` a copy.
+- Eighty `cents` a word--three--six--nine words.
+- You don't want anything for your fifty `cents`?
+- At food city it's ninety-nine `cents`, plus tax.
+- Fool, you're thirty `cents` away from a quarter.
+- He's out fourteen `cents`, and he can't find it.
+- That's right--here's the eighty `cents` for you.
+- The worm eats a few `cents` from each transaction.
+- I sketched portraits there for ten `cents` a piece.
+- Twelve-and-a-half `cents` a piece, you believe that?
+- Most counterfeiters only get ten `cents` on the dollar.
+- Well, fi' `cents` a box ain't much, but a fella can eat.
+- That's what i thought, but it was only 65 `cents` apiece.
+- Bunch of us drunk as coots -- i'll give you fifty `cents`.
+- I must be goin' deaf 'cause i thought ya said, 'ten `cents`.'
+- Listen grayson, i've got 106 bucks and 75 `cents` in the bank.
+- The depositors will be paid one hundred `cents` on the dollar.
+- This is what you want�thirty- nine dollars and sixty `cents`?
+- Ten `cents` a hundred pounds on everything that moves in and out.
+- Would you--could you see your way to cuttin' off ten `cents` worth?
+- So he get's five thousan' there, an' he'll pay fifteen `cents` a hour.
+- But they was a whole lot of us, so the man says two an' a half `cents`.
+- Five `cents`' worth of electricity and you are out of everybody's hair.
+- Oh, hello -- sure i got home all right -- you owe me forty-five `cents`.
+- Also, since we're talking repulsive, j.j. won't like this for two `cents`!
+- I'm fourteen `cents` out, and it took me half an hour to find the mistake.
+- Those are for trusties, unless you got thirty `cents` or two packs of cigs.
+- "will be back in four weeks"-- --that saves you eighty `cents` right there!
+- "hey look, i got a floor lamp and a network tv special for only fifty `cents`!"
+- They're... and you have sixty-eight dollars and thirty-seven `cents` in the bank.
+- With your "prestige" it only takes a minute - ten `cents` worth of american tel and tel.
+- All my limbs put together are worth 7 `cents` a pound--and that's for science and dog meat.
+                 

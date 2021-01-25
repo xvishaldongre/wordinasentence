@@ -1,0 +1,107 @@
+---
+title: "list in a sentence | list example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "list"
+---
+- Is ruiz on the `list`?
+- Let's do the `list`...
+- Oh, it's on my `list`.
+- That's not the `list`.
+- The `list` is so long.
+- They gave me a `list`.
+- A girl on low's `list`.
+- I better make a `list`.
+- I'm on the `list`, man.
+- So they ran our `list`.
+- Did you make the `list`?
+- Take her off the `list`.
+- A long `list` of leeches.
+- Let me get the `list` out.
+- What about the hit `list`.
+- Who else is on the `list`?
+- You know about the `list`?
+- He's high on my hit `list`.
+- I'm last on death's `list`.
+- Sir, the `list` is correct.
+- They're next on the `list`.
+- You were next on my `list`.
+- He ain't on no one's `list`.
+- He's the last on the `list`.
+- Maybe a `list` of employees?
+- You got some kind of `list`?
+- My `list` of regrets is long.
+- Put that on our to-do `list`.
+- Ruiz is always on the `list`.
+- Astricky was holding a `list`.
+- He's on the top of the `list`.
+- I should make a little `list`.
+- I've got a little `list` here.
+- Okay, venice is on the `list`.
+- They don't have a wine `list`.
+- So what else is on this `list`?
+- Well, i made the dean's `list`.
+- What's on your wish `list`, ed?
+- `List` of the people you killed?
+- We're en route to doctor `list`.
+- Are there any more on the `list`?
+- Batteries were not on the `list`.
+- Class schedule, map, book `list`.
+- Snickers, make the `list` happen.
+- So is buddy on your short `list`?
+- This `list` was prepared for you.
+- <u>the `list` is in the open</u>!
+- Give me a `list` of those effects.
+- To being off the disavowed `list`.
+- You gotta build a customer `list`.
+- Just look at this `list` and point.
+- That death is working off a `list`?
+- You seem to be on the wrong `list`.
+- You wanted him to make a `list`!
+- Sure, but is that it for the `list`?
+- You get to die on the dean's `list`.
+- You have a vocabulary `list` for me?
+- You want something off the b `list`?
+- Including the fact there is a `list`.
+- Price didn't make the guest `list`...
+- The guest `list` is quite restricted.
+- They're keeping a `list`, supposedly.
+- What is there on the other `list`...?
+- I had to toss the `list` in the river.
+- Takes diamonds to stay on this `list`.
+- The `list` is long, but distinguished.
+- There's only one present on my `list`.
+- Would you like to see the wine `list`?
+- How can you not like the top 10 `list`?
+- Krieger <u>did</u> have the noc `list`.
+- One more item--not on the check `list`.
+- ♪ here's the final `list` of volunteers.
+- I can scratch this off my bucket `list`.
+- I'd like something off the other `list`.
+- I don't remember that on ingen's `list`.
+- The public decides who's on that `list`.
+- When he finds out you tossed his `list`?
+- I'm giving you a `list` you can stand it.
+- Just a `list` -- it's not finished -- no.
+- No, no, i'll go -- just give me a `list`.
+- Oh, i can probably get you on the `list`.
+- That's because it wasn't on their `list`.
+- But the `list` golitsyn stole was a decoy.
+- I bought everything you put on the `list`.
+- It's like a to-do `list`, but for my life.
+- The waiting `list` is also totally booked.
+- Why should i have to put it on the `list`?
+- I deliver the noc `list`, max delivers job.
+- Not with the wine `list` these people have.
+- Why, it's just my christmas `list`, is all.
+- All right, but i'm going to see that `list`.
+- Because i can deliver the actual noc `list`.
+- It was on my dad's `list` of "things to do."
+- Oh, yeah, you gotta start making the `list`.
+- Correct the actual `list` is safe at langley.
+- I've got one more that wasn't on your `list`.
+- Now we know how the guest `list` was made up.
+- This is only the beginning...`list`...`list`...
+- Well, what's on your wish `list`, little boy?
+- We've got several italian cars on the `list`.
+                 

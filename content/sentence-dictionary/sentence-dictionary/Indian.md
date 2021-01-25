@@ -1,0 +1,89 @@
+---
+title: "Indian in a sentence | Indian example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Indian"
+---
+- Sioux `indian`, right?
+- That, that's `indian`?
+- You ain't no `indian`.
+- I'm the `indian` runner.
+- No sign of the `indian`.
+- The `indian` rope-trick.
+- You're the `indian` fbi.
+- And, that it be `indian`.
+- Gonna find us an `indian`.
+- He claims he's an `indian`.
+- Is your papa west `indian`?
+- I was an `indian`, actually.
+- The `indian` used campfires.
+- You're a sal mineo `indian`.
+- Old- fashion `indian` people.
+- Against a con `indian`'s word.
+- He a black man or an `indian`?
+- It's called the `indian` walk.
+- Sort of be our `indian` guide.
+- The old `indian` burial ground.
+- Somewhere in the `indian` ocean.
+- He's `indian`, he wears a turban.
+- I was sent here cuz i'm `indian`.
+- But -- i am not an... an `indian`.
+- He busted out with a big `indian`.
+- I'd never try to sell an `indian`.
+- Judges like adopted `indian` boys.
+- Pussy pussy pussy, `indian` pussy.
+- He's just a deaf and dumb `indian`!
+- You're the `indian` official, yeah?
+- You say this is an `indian` vice?
+- But this `indian`... how do you know?
+- Do you have any old `indian` records?
+- The `indian`... himself... anybody...
+- Comoros islands in the `indian` ocean.
+- Grandpa, stop doin' the `indian` walk!
+- He's no more an `indian` than i am though.
+- Like collecting shrunken `indian` heads...
+- Are all of these `indian` designs authentic?
+- This is the bear creek `indian` reservation.
+- A lenape `indian` lives in the western woods.
+- An `indian` narcotic we were forced to drink.
+- I've got a little `indian` blood, that's true.
+- No, but i might have some `indian` chief tonic.
+- Follow the `indian` trail to where the sun dies.
+- Some `indian` tracker you turned out to be, tom.
+- Subject -- `indian` -- entering suspect's house.
+- Rooms thirteen and fourteen are on `indian` land.
+- Well, why'd you have to tell that `indian` story?
+- You know, that big `indian` plays it for keeps...
+- My father never told anybody he had `indian` blood.
+- But he still used a few `indian` words around the house.
+- Grandpa reaches says you come from heavy `indian` blood.
+- You know, like weird 1960's `indian` rock n' roll music.
+- He's just a big deaf an' dumb `indian`... hi ya, big boy?
+- He is one of the pillars of the `indian` cinema, my father.
+- I'll tell you what else: don't ever try to sell an `indian`.
+- The lenape `indian` had much to tell once i opened his mouth.
+- I served in his majesty's army in the french and `indian` war.
+- It's just... she's a `indian` an' indians ain't... overfriendly.
+- The "scotsman" has sent one of his `indian` allies to guide you.
+- You and this old `indian` rag-man-- spirit of the north country.
+- You never paid me for that tape with the `indian` dance routine.
+- If you believe what that `indian` said we were fucked either way.
+- When the first wrong was done to the first `indian`, i was there.
+- French, scots-irish, italian, ...and one-eighth american `indian`.
+- You're going to send me into an `indian` casino disguised as a cowboy.
+- Where's all the regulars, crazy jeff cava, the todd sisters, `indian` joe?
+- If i were in the comoros, in the `indian` ocean, where would you be...?
+- Bureau of `indian` annihilation and said i was messin' with your case, man.
+- I don't wanna eat it on an `indian` reservation, three thousand miles from home.
+- Got a map of the environs of the yakima `indian` reservation with your name on it.
+- My papa taught me one thing: don't never bullshit a west `indian` bullshit artist.
+- He's probably in the bedroom now, entertaining his wife with the `indian` rope trick.
+- The only good `indian` is a dead `indian`, does that old adage still hold true out here?
+- That's why we're in a position where we have to bring in an american `indian` agent.
+- They've hired me to run it, we've some interesting exhibits of `indian` arts and crafts.
+- A french & `indian` army out of fort carillon's heading south to war against the english.
+- An `indian` reservation is within the jurisdiction of the federal bureau of intimidation.
+- Grass does that to me, fucks me all up like a crazy `indian`... you really think so... us?
+- The `indian` official who supplied this information did so only on condition of anonymity.
+- We're going into `indian` country, i wanna know what kind of individual is covering my ass.
+                 

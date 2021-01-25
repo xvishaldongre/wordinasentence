@@ -1,0 +1,107 @@
+---
+title: "waste in a sentence | waste example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "waste"
+---
+- Don't `waste` my time.
+- You `waste` your time.
+- Don't `waste` any time.
+- Is a `waste` of energy.
+- It's a `waste` of time.
+- Let's not `waste` time.
+- What a `waste` of time.
+- Why `waste` it indoors.
+- Another `waste` of time.
+- Don't `waste` your time.
+- I'll `waste` you myself.
+- They don't `waste` time.
+- Don't `waste` your tears.
+- I didn't `waste` my life!
+- `Waste` magic on revenge?
+- This is a `waste` of time.
+- We can't `waste` the time.
+- Sorry to `waste` your time.
+- Do not `waste` it... for me.
+- "`waste` of money," he said.
+- A coward, a `waste` of breath.
+- Dad... don't `waste` it pauly.
+- Maybe it's not such a `waste`.
+- Don't `waste` this, little one!
+- Don't `waste` your breath, kid.
+- Don't `waste` your time, harry.
+- Mm, what a `waste` of silicone.
+- Rhah don't `waste` time on you.
+- `Waste` of water if you ask me.
+- `Waste` of money, if you ask me.
+- It's a `waste` of good suffering.
+- Jason: this is a `waste` of time.
+- Physicians are a `waste` of time.
+- They shore don't `waste` no time!
+- We don't have minutes to `waste`.
+- Don't let all this got to `waste`.
+- I don't want to `waste` your time.
+- Don't `waste` time with your queen.
+- ey’re making us `waste` bullets.
+- I thought what a `waste` of silver.
+- Let it go, don't `waste` your time.
+- This argument is a `waste` of time.
+- It would've been a `waste` of parts!
+- ... or lemme guess -- toxic `waste`?
+- She tink lobo is `waste` of my time.
+- We shouldn't `waste` the ammunition.
+- I told you this is a `waste` of time.
+- It's probably just a `waste` of time.
+- Pretending is just a `waste` of time.
+- Such a `waste`... don't play with me.
+- Tell him not to `waste` time calling.
+- I told you this was a `waste` of time.
+- Let's not `waste` these people's time.
+- No, it was a complete `waste` of time.
+- Please don't `waste` my time, comrade.
+- Why should i `waste` my talent on you?
+- You know, it's such a fucking `waste`.
+- Anything else is a `waste` of material.
+- C'mon, don't `waste` my time with that!
+- Don't want to `waste` no time sleeping.
+- I don't know why you `waste` your time.
+- It'd be a `waste` of your time, though.
+- Mike, don't `waste` your time with her.
+- They certainly don't `waste` much time.
+- That ticket is not going to `waste`.
+- Here's my deal -- don't `waste` my time.
+- I don't `waste` time with losers, tommy.
+- It doesn't mean we have time to `waste`.
+- I think it's gonna be a `waste` of time.
+- It's senseless to `waste` any more time.
+- They don't `waste` time... a great deal.
+- Why `waste` your spirit on such rubbish?
+- Too bad we have to `waste` all that time.
+- Mike: you think this is a `waste` of time?
+- What're you gonna do, `waste` your talent?
+- We'd be fools to `waste` it by killing him.
+- We'll find another way to stop the `waste`.
+- Chum -- blood, `waste` meat, fish, anything.
+- I'll lay `waste` to those fools in sherabad.
+- Maybe this is a big fucking `waste` of time.
+- Well, that was a monumental `waste` of time!
+- After god... before the `waste`-paper basket.
+- The biggest `waste` of time since television.
+- We `waste` our time so they know you call me.
+- The mind drive is a terrible thing to `waste`.
+- What a `waste` -- no, superman, of course not.
+- 'cause it's a `waste`, and it's a stupid `waste`.
+- Why do i `waste` my time telling you this stuff?
+- Because i'd rather not `waste` our precious time.
+- If we did, why would we `waste` it on the bridge?
+- She hath, and in that sparing makes huge `waste`.
+- The shell emits no `waste`, no gas, no radiation.
+- This is all too mysterious to `waste` on just me.
+- Why do you shamelessly `waste` my time like this?
+- A mind is a terrible thing to `waste`, lex luthor.
+- I joined the cops to save lives, not `waste` them.
+- Ben: i think this whole thing is a `waste` of time.
+- But don't `waste` time opening and closing hatches.
+- No, they say it came from the `waste` paper basket!
+- No, your going to eat it, or it will go to `waste`.
+                 

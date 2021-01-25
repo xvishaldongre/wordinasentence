@@ -1,0 +1,107 @@
+---
+title: "afraid in a sentence | afraid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "afraid"
+---
+- I am `afraid` so, son.
+- I'm `afraid` so, brad.
+- I was `afraid` to ask.
+- No, she's `afraid` to.
+- Not yet, i'm `afraid`.
+- They are not `afraid`!
+- What, you're `afraid`?
+- Why were you `afraid`?
+- Yes, she was `afraid`.
+- You're `afraid` of me.
+- You're still `afraid`.
+- `Afraid` it might rain?
+- Are you `afraid` of me?
+- Bad luck, i'm `afraid`.
+- Because i was `afraid`.
+- Deathly `afraid` of it.
+- He was `afraid` of you.
+- I know you're `afraid`.
+- I'm `afraid` i don't...
+- I'm `afraid` it's true.
+- I'm `afraid` so, danny.
+- I'm almost `afraid` to.
+- I was `afraid` of that.
+- I was `afraid` of this.
+- No -- i'm `afraid` not.
+- Patrizia, i'm `afraid`.
+- You better be `afraid`.
+- You're `afraid` of her.
+- You're `afraid` of him.
+- You're `afraid` to say.
+- `Afraid` i'd give mitch.
+- Are you `afraid` for me?
+- Are you `afraid` to die?
+- Are you `afraid` to try?
+- Because you're `afraid`!
+- I have been... `afraid`.
+- I'm `afraid` for samuel.
+- I'm `afraid` i'll faint.
+- I'm `afraid` not, monty.
+- I'm `afraid` of nothing.
+- I'm `afraid` to sleep...
+- I'm not `afraid` of her.
+- I'm not `afraid` of you.
+- I'm not `afraid` to die.
+- I was `afraid` you left.
+- Look, don't be `afraid`.
+- Oh, can't, i'm `afraid`.
+- They're `afraid` of you.
+- Well, i'm `afraid` i do.
+- What was he `afraid` of?
+- Yes, i'm `afraid` he is.
+- Yes, i'm `afraid` i did.
+- You humans are `afraid`.
+- You mustn't be `afraid`.
+- You're `afraid` of them.
+- `Afraid` i can't do that.
+- `Afraid` of the hospital?
+- `Afraid` papa will spank?
+- Because she was `afraid`.
+- Don't be `afraid`, carlo.
+- Don't be `afraid` of her.
+- I am `afraid` of nothing.
+- I am not `afraid` of him.
+- I am not `afraid` of you.
+- I'm `afraid`... he's out.
+- I'm `afraid` it is, tess.
+- I'm `afraid` of crashing.
+- I'm `afraid` of who i am.
+- I'm `afraid` so, colonel.
+- I'm `afraid` to be alone.
+- I'm `afraid` to tell you.
+- I was so `afraid` you ...
+- Steed dead, i'm `afraid`.
+- "suddenly i am `afraid`."
+- What are you `afraid` of?
+- What's to be `afraid` of?
+- Why should i be `afraid`?
+- Yes, i'm `afraid` i have.
+- You `afraid` of the dark?
+- You `afraid` of violence?
+- You must not be `afraid`.
+- You're `afraid` of germs?
+- `Afraid` you'd take mitch?
+- Aren't you `afraid` of me?
+- Don't be `afraid`, clarke.
+- Don't be `afraid` of that.
+- I'm `afraid` i can't, sir.
+- I'm `afraid` it may storm.
+- I'm `afraid` she is, baby.
+- I'm `afraid` she's not in.
+- No, i'm `afraid` he's not.
+- No, i'm `afraid` i didn't.
+- Nothing to be `afraid` of.
+- To everyone, i'm `afraid`.
+- Two of them, i'm `afraid`.
+- You `afraid` of these ...?
+- You `afraid` or something?
+- You're not `afraid` of me.
+- `Afraid` of getting caught?
+- He's `afraid` of something.
+                 

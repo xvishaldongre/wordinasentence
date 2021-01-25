@@ -1,0 +1,61 @@
+---
+title: "Rome in a sentence | Rome example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Rome"
+---
+- Welcome to `rome`, sir.
+- But so was `rome`, once.
+- How do we get to `rome`?
+- You still live in `rome`?
+- I've been to `rome`, italy!
+- Come back with me to `rome`.
+- They're sending me to `rome`.
+- What are you doing in `rome`?
+- "... by the emperor of `rome`.
+- The parts about ancient `rome`.
+- In `rome`, about three weeks ago.
+- So the rat's here now, in `rome`.
+- You brought the army into `rome`.
+- For me it was the glory of `rome`.
+- I told you what happened in `rome`!
+- I always had a soft spot for `rome`.
+- They're sending someone from `rome`?
+- We have to ask you to stay in `rome`.
+- Do you think she'll meet me in `rome`?
+- We're waiting for someone from `rome`.
+- Like jumping into a fountain in `rome`!
+- No one in `rome` has ever heard of him.
+- But i want more posters all over `rome`.
+- They found this in dickie's place in `rome`.
+- I lost ten pounds in `rome` alex, are you....
+- No, i'm staying here for a few days, in `rome`.
+- They can't... if this is `rome`... is this `rome`?
+- Every citizen has a right to trial -- this is `rome`!
+- `Rome` was the best thing i ever did, because i did it!
+- That might have been good enough in `rome` last summer.
+- There's a great place when we get to `rome`, batistoni.
+- The man who fought side by side with the wolf of `rome`!
+- I think he's planning on staying in `rome` for a few days.
+- Rendezvous in `rome` starring jack goodman and debbie klein.
+- Maybe that's why he ended up dead in the streets of `rome`.
+- They're always writing to me saying they want to come to `rome`!
+- Today, america is the roman empire and new york is `rome` itself.
+- If i were living in roman times, i would live in `rome`, where else?
+- Hey, when in `rome` -- givin' you a book is like givin' a baby a gun.
+- `Rome` is going to pay tribute -- like a defeated nation begging for mercy?
+- `Rome` is going to pay an allotment to the german tribes on an annual basis.
+- So she can drive through the streets of `rome` paging the man of her dreams.
+- One said they had seen the missing girl in an automobile somewhere in `rome`.
+- She is the one who jumped into that fountain in `rome` last summer, isn't she?
+- You have led them from victory to victory in the name of `rome` and they love you.
+- In `rome`, the gladiators had the opportunity what if the fun one isn't survivable?
+- I'm well aware of how pleasant the weather is in `rome` at the present time thank you.
+- There's a flight to `rome` in two hours and from there its just a short hop to sicily.
+- If you set me free i will find my way back to the army, march on `rome` and depose you.
+- This is the only place in `rome` where i thought -- i believed -- i was wholly in power.
+- Quintus will tell the army that you are being called to `rome` to celebrate your victory.
+- Commodus -- listen to narcissus, listen to the man who has never lost a battle for `rome`!
+- When we went to ancient `rome` for deanna's promotion, we threw her to the lions, remember?
+- Yeah, but at least i knew `rome` was gonna be there when i arrived... you made out alright.
+                 

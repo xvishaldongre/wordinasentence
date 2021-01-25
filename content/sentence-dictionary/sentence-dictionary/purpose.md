@@ -1,0 +1,107 @@
+---
+title: "purpose in a sentence | purpose example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "purpose"
+---
+- The `purpose` being...?
+- What is your `purpose`?
+- You serve my `purpose`.
+- I did that on `purpose`.
+- For the `purpose` of what?
+- This served the `purpose`.
+- To try and find `purpose`.
+- You did that on `purpose`!
+- What is your `purpose` here?
+- You have a `purpose` though!
+- A statement of `purpose`... ?
+- But only on `purpose`, tommy.
+- We're very high on `purpose`.
+- What `purpose` does it serve?
+- What... is your `purpose` here?
+- What `purpose` does this serve?
+- What was her `purpose` in that?
+- You came here with a `purpose`.
+- Tell me your `purpose` on earth.
+- Michael has served his `purpose`.
+- What is your `purpose` in mexico?
+- Are you torturing me on `purpose`?
+- The old queen did it on `purpose`.
+- "what is your `purpose` on earth?"
+- Let's move like we got a `purpose`.
+- What is your one `purpose` in life?
+- Purity of mind, purity of `purpose`.
+- She lost the first one on `purpose`.
+- You have come in here on `purpose`?!
+- They have another `purpose` entirely.
+- We're dedicated to a higher `purpose`.
+- You have to have a sense of `purpose`.
+- That's the whole `purpose` of this zoo.
+- Because, i serve a fine `purpose` alive.
+- Does this conversation have a `purpose`?
+- Our killer seems to have more `purpose`.
+- What's the `purpose` of your visit here?
+- This -- like cancer with a `purpose`.
+- That's not the `purpose` of this mission.
+- What possible `purpose` could that serve?
+- I ask you what is the `purpose` of science?
+- They exposed her to radiation on `purpose`.
+- He shot hisself with a shotgun on `purpose`.
+- I fail to understand your `purpose` in this.
+- Perhaps she didn't kill him on `purpose`.
+- That would have kinda defeated the `purpose`.
+- All right, let's move like we got a `purpose`.
+- I told you, i can't -- you missed on `purpose`.
+- A `purpose` requires an understanding of intent.
+- Listen, we got a higher `purpose` here, alright?
+- What was the real `purpose` behind this venture?
+- Don't you think it kind of defeats the `purpose`?
+- Let her off the hook, she's served her `purpose`.
+- What's the `purpose` behind this line of enquiry?
+- `Purpose` requires an understanding of intent.
+- Does anyone ever knock over a casket on `purpose`?
+- I do not know what `purpose` we were put here for.
+- More `purpose` than victor could ever conceive of.
+- Despite what you think, i don't do it on `purpose`.
+- _ trust me, i know, because i serve a `purpose`, no!
+- Well, at least it turned out to have some `purpose`.
+- Because i think he sent me to your cell on `purpose`.
+- Does everything have a `purpose` where you come from?
+- It is the entire meaning and `purpose` of shangri-la.
+- I've been wondering maybe jack shot him on `purpose`.
+- She means they exposed her to radiation on `purpose`.
+- But that's my calling, my `purpose`, my raison d'etre.
+- I thought the `purpose` of decapitation was to...to...
+- To try and become whole again, try and find `purpose`.
+- Well, after all, he didn't do it on `purpose`, did he?
+- He can be very... charming when it suits his `purpose`.
+- Made specially for that `purpose`, and i will prove it!
+- The machine was designed explicitly for that `purpose`.
+- The man i fell in love with, you did that on `purpose`.
+- You know, i half- think he did this to me on `purpose`.
+- But mama, the room was built expressly for that `purpose`.
+- Mister mcmurphy, the `purpose` of this meeting is therapy.
+- Why would jack hewitt do that, shoot twombley on `purpose`?
+- The `purpose` for feeding is to keep the beasts on our side.
+- You were going to run out off gas on `purpose`, weren't you?
+- <font color=#26f70f>(murmering)</font>`purpose` of heptápode.
+- After that, the stones served no `purpose`, beyond temptation.
+- And i can only serve that `purpose` they're having so much fun.
+- I have found `purpose` here, and the family i could never have.
+- A dead wife to pine for and a sense * of `purpose` to your life.
+- I took it so that tonight your existence might gain a `purpose`.
+- Why should i respect something which has outlived its `purpose`?
+- The `purpose` being i intend to shove it down the son'a's throat.
+- They put us here on `purpose`, is this how you feel all the time?
+- You dropped that earring down the drain on `purpose`, didn't you?
+- You said v'ger's `purpose` was to find and join with the creator.
+- What is your intended `purpose` of your visit to the united states?
+- He must have had some `purpose` in taking the plane away from fenner.
+- My own `purpose` is to save this exceptional creature from mutilation.
+- I have a greater `purpose` you don't have to be a commander to command.
+- I suppose i'm serving my `purpose`, aren't i. i'll ring for the guards.
+- You weren't crazy enough to fail on `purpose` you can't win in florida.
+- Did you really come to meet me on `purpose` or are you lying about that?
+- Did you ever think about killin' yourself on `purpose` like my daddy did?
+- I didn't do it on `purpose`.... bad boy.... where the hell's the beer...?
+                 

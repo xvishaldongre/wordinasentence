@@ -1,0 +1,85 @@
+---
+title: "legal in a sentence | legal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "legal"
+---
+- I'm a `legal` secretary.
+- In a `legal` sense, yes.
+- It's not strictly `legal`.
+- Polygamy's `legal` in utah.
+- Is that weapon even `legal`?
+- It was a `legal` contribution.
+- That's the `legal` department.
+- You didn't get `legal` advice?
+- The `legal` buck blows, memphis.
+- At least not in the `legal` sense.
+- Cannabis is `legal` in this state.
+- Cole, this was a `legal` courthouse.
+- Pushing the `legal` limit even then.
+- I bought him his first `legal` drink.
+- Macready and shilts `legal` services.
+- What i'm gonna do isn't very `legal`.
+- Now go sell the safe `legal` drugs mm.
+- She has a `legal` claim on the estate.
+- You want only the `legal` stuff right?
+- Thanks for the `legal` advice, charley.
+- It's this `legal` term called "divorce."
+- The casino is nothing but `legal` theft.
+- Mm, cannabis is `legal` in this state now.
+- Some kinda `legal` secretary of something.
+- We're covered on `legal` with that, right?
+- Besides, she's still your `legal` guardian.
+- Filmore i was acting under `legal` counsel!
+- Political influence and `legal` protection.
+- That means she's within her `legal` rights.
+- Oh -- ho -- you want `legal` aid against us?
+- But i got to arrange a `legal` defense first.
+- Marge, i've got a `legal` matter to deal with.
+- It ain't too exciting, but it's mostly `legal`.
+- `Legal` problems, you gotta have a good attorney.
+- You got some business that's not exactly `legal`?
+- With all your `legal` expertise, you believe that?
+- You can forget that... wouldn't be `legal` anyway.
+- It makes you wonder about the entire `legal` system.
+- All open and above-board and in due and `legal` form.
+- I had some `legal` training, but... are you a lawyer?
+- "this is a `legal` dispensary, and hope isn't enough.
+- What i did with those companies was perfectly `legal`.
+- Are you threatening me with `legal` action, mr. fabian?
+- Writ large in `legal` escriture, next step is-- uh-huh.
+- Bill, i got some `legal` problems and i... you know why?
+- Here, is this `legal`?...you wanna put it in my account?
+- ...well, if the pay's right and it's `legal` i'll do it.
+- We're getting into some sticky `legal` territories here.
+- I've still got a few `legal` problems back in the states.
+- I didn't pick you because of your `legal` skill, you know.
+- They're put together by `legal` minds--after a long study.
+- Sometimes it's just like a barter thing... is this `legal`?
+- '...with his `legal` wife, the former sally ann cavanaugh.'
+- That's the `legal` limit, so i never brought more than that.
+- There's two kinds of specialty product; `legal` and illegal.
+- Besides that, the girl's probably eighteen, so she's `legal`.
+- He is proud of his job, and even more proud that it's `legal`.
+- I receive 30 per cent just for finance and `legal` protection.
+- We're having a meeting, it's all set up -- fuck `legal` terms.
+- For me, the `legal` principle, involved is copyright infringement.
+- Now, mr. corleone, you have been advised as to your `legal` rights.
+- I could have lied i suppose, but i want this marriage to be `legal`.
+- I want you to get `legal` onto corporate confidentiality agreements.
+- That's the whole reason i'm starting the blonde `legal` defense fund.
+- I'm broke, plus i got `legal` problems... nobody was asking for me, huh?
+- You're going to need plenty of `legal` advice before this thing is over.
+- She's sarah connor, works as a `legal`-- six shots at less than ten feet.
+- Tom, we're going to be legitimate all the way, and you're the `legal` man.
+- I still have to question what the `legal` basis is that supports this, boss.
+- Wasn't `legal` to sell liquor in a glass back then unless you was a club, see.
+- Ouch, my hair... a big `legal` war wasn't going to improve anybody's situation.
+- Charlie, you have no `legal` right not to let this boy know where his father is!
+- Lubosh filled me in on the `legal` side of squatting here and it's a piece of cake.
+- I had the shoe, you said you didn't want, publicity because of your `legal` problems.
+- When they find out what it's carrying, they may not be so interested in what's `legal`.
+- I'm her `legal` guardian, not you or anybody else, and i alone know what's best for her.
+- He wanted you to know the `legal` limit for hexavalent chromium, is .05 parts per million.
+- In view of all the circumstances, the commissioner has decided on a `legal` investigation.
+                 

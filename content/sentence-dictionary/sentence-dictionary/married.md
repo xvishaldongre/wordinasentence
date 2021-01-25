@@ -1,0 +1,107 @@
+---
+title: "married in a sentence | married example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "married"
+---
+- I'm already `married`!
+- I'm a `married` woman!
+- I'm getting `married`.
+- I'm gettin' `married`.
+- I'm `married`, george.
+- I wanna get `married`.
+- No, i ain't `married`.
+- No, i'm not `married`.
+- Now you get `married`.
+- Oh, i'm not `married`.
+- ...or is he `married`?
+- Still `married`, jake?
+- They're `married` now.
+- We're still `married`.
+- You `married` into it.
+- Ah, you were `married`?
+- I ain't even `married`.
+- If i weren't `married`?
+- I'm `married`, ishmael.
+- I need to be `married`.
+- So... you're `married`.
+- Very happily `married`.
+- Well, you're `married`.
+- We're almost `married`.
+- But i'm a `married` man.
+- He `married` his cousin.
+- I `married` a brave man.
+- `Married` boyd aviation.
+- `Married`, making, say .
+- `Married` name, i guess.
+- Peggy sue got `married`!
+- Since you got `married`.
+- So, been `married` long?
+- Then you were `married`?
+- We're getting `married`.
+- We're staying `married`.
+- We used to be `married`.
+- Who's the `married` man?
+- You better be `married`.
+- You ever been `married`?
+- You gonna get `married`.
+- You have been `married`?
+- You `married` me for it.
+- Are we getting `married`?
+- But but you're `married`.
+- But you're not `married`.
+- Get `married`, have kids.
+- I'm already `married` ...
+- So the woman's `married`.
+- We'll get `married` soon.
+- You got `married` to god.
+- You're getting `married`.
+- You're not `married` yet.
+- You see, she's `married`.
+- You should get `married`.
+- Actually, i was `married`.
+- Alice got `married` again.
+- Are you happily `married`?
+- Fucking chick's `married`.
+- Get `married`, apparently.
+- I've been `married` twice.
+- Not like you're `married`.
+- They're getting `married`?
+- We're gettin' `married`--!
+- You `married` her in 1963.
+- After all, we're `married`.
+- Ain't never been `married`.
+- Are going to get `married`!
+- Are you `married`, mr. -- ?
+- Before they were `married`?
+- He's `married`... oh, yeah.
+- I got `married` last night.
+- I'll -- i'll get `married`.
+- I `married` a car salesman.
+- I'm going to get `married`.
+- I wonder if he's `married`.
+- Oh, my god, `married` kids?
+- So why did i get `married`?
+- That's why i `married` you.
+- To be `married`, i suppose.
+- We ain't even... `married`?
+- We ain't `married` no more.
+- Were any of them `married`?
+- When i was first `married`.
+- You are `married`, correct?
+- You going to get `married`?
+- You're a `married` man now.
+- Are you a `married` man, mr.
+- For love, you get `married`.
+- Funny -- you look `married`.
+- Getting `married`, you know.
+- He `married` you, didn't he?
+- How about getting `married`?
+- How long were you `married`?
+- How long you been `married`?
+- I almost got `married` once.
+- I'm a happily `married` man.
+- No, she's getting `married`.
+- Of course she was `married`.
+- Rex was `married` before me.
+                 

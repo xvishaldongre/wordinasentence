@@ -1,0 +1,57 @@
+---
+title: "Americans in a sentence | Americans example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Americans"
+---
+- My fellow `americans`.
+- My fellow `americans`.
+- I -- we're `americans`.
+- Smarter than `americans`.
+- The `americans`, come on!
+- We're fucking `americans`.
+- I don't care about `americans`.
+- Because they're not `americans`.
+- A few `americans` got trained, too.
+- The `americans` were good allies.
+- Don't real `americans` deserve work?"
+- We get the car, find some `americans`.
+- All `americans` think they are cowboys.
+- We find `americans` we'll be all right.
+- Just because he doesn't like `americans`!
+- We are two young, able-bodied `americans`.
+- <i>`americans`</i> getting bombs in the mail.
+- No, you were middle class, like all `americans`.
+- Because most of us here are mexican- `americans`!
+- The `americans` themselves have made it possible.
+- The `americans`, they have weapons from the future.
+- The `americans` say they are escorting a damaged plane.
+- Four cuban-`americans` and this other man, james mccord.
+- They're made by `americans`, based on a japanese recipe.
+- Not only will `americans` believe me, they'll cry for me.
+- The council knows i have opposed fighting the `americans`.
+- Give it time, give it time, and sell it to the `americans`.
+- The fbi computer holds files on twenty million `americans`.
+- L.t., in this office i'd prefer you say italian-`americans`.
+- The `americans`, and the un they have you as a war criminal.
+- Trouble is, you `americans` want everybody to live like you.
+- So you're the one leading the `americans`, i shoulda figured.
+- You're not, as you `americans` say, dragging my leg, are you?
+- Absolutely no effect upon my... `americans` can be fat and poor.
+- Or to sit and let the `americans` cut off our oil and our future.
+- Forget the bumbling `americans`, they will be like all the others.
+- It's sort of rough -- one american squealing on other `americans`.
+- The vietnamese think it's theirs -- i guess the `americans` do, too.
+- You `americans` discovered the signal, you led the decryption effort.
+- Because you young `americans` think the world began when you were born.
+- Something you `americans` don't care about--because you haven't got any.
+- You are trying to say that an american would inform on other `americans`?
+- Most new yorkers never notice it - most `americans` have never heard of it.
+- We gainfully employ african `americans`, in front of and behind the cameras.
+- There's two things i know about life: one, `americans` will never take to soccer.
+- You kill this rug -- we guinneas gotta show these afro-`americans` where it's at.
+- I heard about the two `americans`, i'm so sorry, you must be under great pressure.
+- I know what you whisper to the others, yamamoto -- that the `americans` are strong.
+- Tomorrow we want you to look respectable for fifty million of your fellow `americans`.
+- I don't really think the civilization sending the message intended it just for `americans`.
+                 

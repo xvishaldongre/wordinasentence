@@ -1,0 +1,63 @@
+---
+title: "Jews in a sentence | Jews example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jews"
+---
+- Tell it to the `jews`.
+- They�re german `jews`.
+- Are all `jews` the same?
+- Italians, `jews`, irish.
+- They're still just `jews`.
+- Maybe we're all `jews` now.
+- She's talking about `jews`.
+- I've got `jews` at my table.
+- The `jews` are different....
+- I never said that about `jews`!
+- They don't have `jews` in asia.
+- 'art thou the king of the `jews`'?
+- Do you really want to kill `jews`?
+- I've gotta kill some `jews`, kyle.
+- But the `jews` are obsessed with it.
+- The `jews` aren't the middle, henry.
+- They were `jews`, they had to leave.
+- Yeah, well... you- she hates `jews`.
+- `Jews` don't celebrate christmas, tom.
+- You `jews` are so clever with money...
+- Fuckin' `jews` stick together, don't they?
+- So you could talk about `jews` incessantly?
+- His job was to get rid of `jews` in the arts.
+- I hate the `jews` at least as much as you do.
+- Anyway, the `jews` know where the sentences end.
+- I can tell.... how did you know they were `jews`?
+- If he had no idea, why did the `jews` need saving?
+- Nobody talks about it that much except the `jews`.
+- The `jews` clearly control the media and the banks.
+- I keep hearing you helped a lot of `jews` to escape.
+- Nothingness without end... of course they're `jews`.
+- They're bringing `jews` in from all over the country.
+- At most, two hundred thousand `jews` died in the camps.
+- If you want a modern fascism, you don't mention `jews`.
+- For thousands of years the `jews` are fighting everybody.
+- Just give your speech.... and nothing about `jews`, okay?
+- Look, if you want to kill `jews` on your free time, fine.
+- Aleph... who gets contaminated, the `jews` or the gentiles?
+- These people were all at home hiding `jews` in their attics.'
+- Everybody says what a great benefactor you were to the `jews`.
+- It's got a ritual significance to them, `jews` shoveling snow.
+- You'll pick up the middle on this one - the `jews` and negros.
+- American `jews`, and there's lots of them, what have they done for us?
+- So, fine, it's not that the jew, the `jews` own the media and the banks.
+- `Jews` can no longer own businesses, sir, that's why this one's for sale.
+- He actively opposed the nazis and later on he helped many `jews` to escape.
+- The `jews` are...a poison in the human well.... danny, what about the `jews`?
+- Believe me, adolf hitler couldn't possibly have hated the `jews` as much as i do.
+- When, when hitler was greasing the `jews`, people were saying, "don't get me upset.
+- Plus, and this is just a plus, they kind of look alike - the `jews` and the mexicans.
+- It would be ugly, henry, really ugly ... `jews` and negros don't win elections, henry.
+- They get together with the `jews` and the catholics and elect an irish bleeding heart.
+- The silver `jews` could be good when you're ready to start putting it all behind you...
+- Hitler, goebbels, they talked about `jews` incessantly.... you ever read their diaries?...
+- This is the question, emmi, to all germans: why did the `jews` need saving in this country?
+- Your pals you could call to save a few `jews` when millions of them were being annihilated?
+                 

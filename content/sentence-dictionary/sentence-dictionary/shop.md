@@ -1,0 +1,107 @@
+---
+title: "shop in a sentence | shop example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shop"
+---
+- Close up `shop`, hank.
+- No, not in the `shop`.
+- Slide of watch `shop`.
+- It's a knocking-`shop`.
+- My car's in the `shop`.
+- Hey, stop by the `shop`.
+- Auto-`shop`, you all set?
+- I'm a pawn `shop` rocker.
+- He was down in the `shop`.
+- It's from a thrift `shop`.
+- Machine `shop`'s this way.
+- The corinth coffee `shop`.
+- You weren't in the `shop`.
+- The junior `shop` stewards.
+- To the video `shop`, tommy?
+- Where's the machine `shop`?
+- But it's not for the `shop`.
+- Let me have the `shop` keys.
+- I bought it in a pawn `shop`.
+- So it's a nice little `shop`.
+- This is a respectable `shop`.
+- You know, `shop` for waikiki.
+- We'll take the machine `shop`.
+- You got the keys to the `shop`?
+- George is going to open a `shop`.
+- Get a job in a motorcycle `shop`.
+- Why aren't you at the pet `shop`?
+- What did you say about a pet `shop`?
+- And that's just in one coffee `shop`.
+- He comes and helps out in the `shop`.
+- I'm taking them to the thrift `shop`.
+- I saw him lying buried in his `shop`.
+- Let's hear it for our `shop` steward!
+- My boss wantsa sell his `shop` to me.
+- Take two days to `shop`; one to prep.
+- She'll be at a pawn `shop` in an hour.
+- That's from the machine `shop`, right?
+- Took to the machine `shop` for simone.
+- You know lily, runs the coffee `shop`?
+- Pop leibel owns the argosy book `shop`.
+- Used record `shop` down on turk street.
+- He shut up his apartment and his `shop`.
+- Max, what's a good men's `shop` in town?
+- Or i go to a coffee `shop`, sleep there.
+- You're a fucking bull in a china `shop`.
+- In the machine `shop` and not the palace?
+- Seven dollars in any rock-and-gem `shop`.
+- Then i dropped him off at the cop `shop`.
+- What was that you said about a pet `shop`?
+- "a foul-rag-and-bone `shop`-of- the-heart."
+- Do they sell those here in the gift `shop`?
+- What did you tell her about the `shop` for?
+- Do you know what i was doing in that `shop`?
+- I guess it's all got to do with this `shop`.
+- I don't have your number, stop by the `shop`.
+- I worked here... till they closed the `shop`.
+- Mr. san pedro sula's got an appliance `shop`.
+- Fell out of his nest over by the plate `shop`.
+- I'm trying to get that god damned `shop` open.
+- Waddaya wanna tie yourself down with a `shop`?
+- But patsy's `shop`, that's a specialized trade.
+- The chop-`shop`... where are the stripped cars?
+- You should see the stuff he has in that `shop`.
+- Communications to auto-`shop` go through an f.o.
+- It's up here... ... in the old curiosity `shop`.
+- I used to teach `shop` and eighth grade science.
+- The reactor's beneath the machine `shop` anyway.
+- Auto-`shop`'s sealed, but those boys are cut-off.
+- Chop `shop` consultant; doesn't work on a resume.
+- Did i--damn--did i leave something at the `shop`?
+- If you don't talk `shop`, you can stay for lunch.
+- I go to the blue'n gold barber `shop` in westwood.
+- The man she met in the coffee `shop` this morning.
+- You've been working in that video `shop` too long.
+- Since when did this `shop` become a fascist regime?
+- Since when do you `shop` at the flea market anyway?
+- There's a meeting of the junior `shop` stewards ...
+- Wadda you wanna buy a `shop` for, will you tell me?
+- If i had my own `shop`, they'd leave and come to me.
+- Then sit in the warm sun outside the butcher `shop`.
+- They'll have to go to a `shop` to buy a map, stupid.
+- Back in the machine `shop`, but... - will he survive?
+- Felicia's really interested in the `shop`, isn't she?
+- I gotta have my own `shop`, just out of self defense.
+- I got a line on this pawn `shop` guy over in brooklyn.
+- I should be doing something to get my own `shop` open.
+- Open up an auto `shop` with his uncle up in knoxville.
+- We've got a security camera in this bit of the `shop`.
+- When i wake up, oh, brain surgery in a machine `shop`.
+- It's not something we can go out and comparison `shop`.
+- I'll get the tickets and meet you... in the gift `shop`.
+- I'm gonna open the `shop`, baby, i'm gonna open the `shop`.
+- That barber `shop` quartet was the reason for everything.
+- That scene over at the coffee `shop` today tapped me out.
+- Why would you put a fallout shelter under a porno `shop`?
+- He probably wants to go back and live in mr. cox's `shop`.
+- An abandoned machine `shop`... nice place to build devices.
+- In the `shop` you mentioned something about-- yes -- it is.
+- I had a boy down at the camera `shop` cut them all together.
+- Totally wrong of me to talk `shop` after the day you've had.
+                 

@@ -1,0 +1,107 @@
+---
+title: "movies in a sentence | movies example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "movies"
+---
+- I hate scary `movies`.
+- I mean porno `movies`.
+- I'm here for `movies`.
+- I wanna make `movies`.
+- I went to the `movies`.
+- Television or `movies`?
+- Three kung fu `movies`.
+- You make `movies`, huh?
+- All these `movies` suck.
+- I've seen your `movies`.
+- Three favorite `movies`.
+- What are `movies` about?
+- What are these `movies`?
+- Don't pirate `movies`.
+- Do you even like `movies`?
+- How's the pay in `movies`?
+- Just like in the `movies`!
+- Just like in the `movies`.
+- You oughta be in `movies`.
+- Do you like porno `movies`?
+- Do you like scary `movies`?
+- I brought you some `movies`.
+- I buy their little `movies`.
+- I've seen all your `movies`.
+- Pam grier made the `movies`.
+- You go to `movies` at least?
+- I don't like horror `movies`!
+- I...i'll got to the `movies`.
+- These are big `movies`, fink.
+- I'm only allowed "g" `movies`.
+- Or just going to the `movies`.
+- That's why there are `movies`.
+- That's what `movies` are about.
+- You know, like in the `movies`.
+- B-`movies` from milton's heyday.
+- What were some of your `movies`?
+- You were in the `movies`, right?
+- Gay <u>pornographic</u> `movies`?
+- I do development for tv `movies`.
+- I like laurel and hardy `movies`.
+- Can we watch the monster `movies`?
+- I don't care about `movies` or tv.
+- Let's go to the `movies`...on you.
+- Scary `movies` are great foreplay.
+- Sex - you can learn from `movies`.
+- She went to the `movies` with him.
+- Do you like scary `movies`, sidney?
+- I heard he was doing porn `movies`.
+- I only eat popcorn at the `movies`.
+- The horror `movies` were behind me.
+- These old `movies` are such a hoot.
+- Well, how about these two `movies`?
+- It wasn't like gore `movies` at all!
+- So... how many `movies` you been in?
+- The "citizen kane" of gore `movies`.
+- They're not like the other `movies`.
+- Have you seen a lot of `movies` here?
+- I just held up the same two `movies`.
+- Oh, all hit `movies` are lies, marge.
+- People's `movies` aren't their lives.
+- Yeah, we just watched a few `movies`.
+- You seem to like `movies`, detective.
+- I got bored so i went to the `movies`.
+- `Movies`, books, restaurants, friends?
+- Six straight hours of horror `movies`.
+- I haven't been to the `movies` in ages.
+- I'm not going to make `movies` anymore.
+- Of course life isn't like the `movies`.
+- There's plenty of `movies` around here.
+- Why does anyone want to be in `movies`?
+- Why do you think i got in the `movies`?
+- Yeah, but the kid's seen more `movies`.
+- Baaa, got no time to go to the `movies`.
+- Before it became a star in the `movies`?
+- I mean, it could be `movies`...anything.
+- Sometimes... `movies` mostly bore wally.
+- They show previews for foreign `movies`.
+- Why don't we go to the `movies` tonight.
+- But don't worry about the dirty `movies`.
+- Like one of those mad scientist `movies`.
+- No -- i want to take you to the `movies`.
+- Oh... different things, prison, `movies`.
+- To make all the dog cop `movies` we want.
+- Well, i don't follow `movies` too much...
+- What kind of `movies` do they show there?
+- Why do we remember things in `movies`?
+- Can we talk about the horror `movies` now?
+- Forget it- what are `movies` about, orson?
+- People watched the `movies` in their cars?
+- That's why certain `movies` never got old.
+- The radio'll be after you -- the `movies`!
+- ...there's plenty of `movies` around here.
+- You don't know shit about making `movies`.
+- I mean, you did play me for three `movies`.
+- I thought we were gonna go to the `movies`.
+- Life's not like you saw it in the `movies`.
+- These are not the kind of `movies` i go to.
+- Harry, you think we go to see your `movies`?
+- Not red like in horror `movies`, but brown!!
+- So, toto, how are these home `movies` going?
+                 

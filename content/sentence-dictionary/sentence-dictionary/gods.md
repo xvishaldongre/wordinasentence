@@ -1,0 +1,79 @@
+---
+title: "gods in a sentence | gods example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gods"
+---
+- But you're the `gods`!
+- Primes are not `gods`.
+- ...that we are `gods`.
+- Hot rods of the `gods`.
+- Hey, it's with the `gods`.
+- The words of their `gods`.
+- The `gods` know, i'm tired.
+- For the `gods`, spit it out!
+- `Gods` aren't afraid to die!
+- The `gods` are asleep, erik.
+- `Gods` country, promise land.
+- That's the history of `gods`.
+- The `gods` are shining on me!
+- Yeah, but `gods` love armies.
+- An offering to the `gods`, huh?
+- Well, even `gods` need to sleep.
+- `Gods`, aliens, other dimensions.
+- Nectar of the bowling `gods`, faz.
+-  his was to turn us into `gods`.
+- The `gods` are asleep, king arnulf.
+- Destined to be nearest to the `gods`.
+- The `gods` will never let you return.
+- The second note to wake the `gods`...
+- Even if the `gods` did guide your aim.
+- All of your `gods` will return tonight.
+- Ye `gods` and little fishes, a fireman.
+- But your `gods` are dead hey, come here.
+- We're all `gods`, doctor, any less, too.
+- Dedicated to the worship of false `gods`.
+- He's trying to stop us waking the `gods`.
+- Than worship at the feet of false `gods`.
+- Are you going to let erik wake the `gods`?
+- Orange whip, nectar of the bowling `gods`.
+- But the `gods` played a little trick on me.
+- I'll ask the `gods` to give you life again!
+- Invariably reported seeing us as `gods` no.
+- We came to stop you waking the `gods`, erik!
+- Take the job for the sake of the `gods`, live!
+- Brainwashing them into believing they're `gods`.
+- They lie to them, let them think they're `gods`.
+- I know a thing or two about worshiping false `gods`.
+- Now the `gods` are begging me to make you my son!
+- He's like you, sir, too tough for the `gods` to swallow.
+- For the sake of the `gods`, you're not leading these men?
+- I have some experience with people claiming to be `gods`.
+- Maybe the `gods` can pick up where the medicine left off.
+- Farewell... for the last time... may the `gods` prevent...
+- How can we go on forever writing about `gods` and legends?
+- The `gods` were happy, or as happy as the `gods` can ever be.
+- But -- halfdan wanted to stop you waking the `gods`... so...
+- The `gods` sent us the machine because they took pity on us.
+- When their `gods` return en masse, he said terrorist, right?
+- Was that you were all `gods`... what's that supposed to mean?
+- Because... you're... you're the `gods`.... why should we care?
+- Government knows all about it... chariots of the `gods`, man...
+- You show some bedroom proficiency, and you think you're `gods`.
+- There is something i must ask the `gods`... blow the third note!
+- Perhaps now you realize how difficult stealing fire from the `gods`?
+- We'd be the first living men to set foot in the halls of the `gods`.
+- The same hairy, humorless old `gods` who move you from hither to yon.
+- We fight with ingenious machines and fire, like `gods`, and for nothing.
+- You know those women in the greek mythology that made love with the `gods`.
+- I've entered into their ceremonies - pretended to be possessed by their `gods`...
+- Of everyone in this mountain... when they come after us for killing their `gods`.
+- You raise them from birth to believe you're `gods` we need the rope to get back up.
+- But i did come here and i found it was so simple to let the `gods` speak through me.
+- They need to sacrifice something, y'know, appease the `gods` of war -- mars, jupiter.
+- Anna's a goddess and you know what happens to mortals who get involved with the `gods`.
+- Saginaw, yes, lives have been lost in the worshipping of false `gods` before, whatever.
+- And overthrow their false `gods` actually, i think jordan was just about to tell us one.
+- When you were a baby the `gods` reached down and turned your left arm into a thunderbolt.
+- You are blessed by the `gods` to have a physician and a divine of janus with you tonight.
+                 

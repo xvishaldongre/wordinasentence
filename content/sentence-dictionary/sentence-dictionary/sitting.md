@@ -1,0 +1,107 @@
+---
+title: "sitting in a sentence | sitting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sitting"
+---
+- He was `sitting` here?
+- I was `sitting` there.
+- Oh, he's `sitting` up.
+- `Sitting` next to you.
+- Are you `sitting` down?
+- We're `sitting` pretty.
+- Where are we `sitting`?
+- I'm in the `sitting` room.
+- `Sitting` right behind you.
+- I'm not just `sitting` here!
+- They're just `sitting` there!
+- I'm `sitting` there at dinner.
+- I saw you `sitting` over here.
+- No more `sitting` in this room.
+- ...`sitting` in that courtroom.
+- Three days `sitting` in a cell.
+- We been `sitting` here an hour.
+- Why don't you try `sitting` up?
+- He's `sitting` right over there.
+- He's still just `sitting` there.
+- It's just `sitting` in a bucket.
+- I've been `sitting` a long time.
+- Shouldn't you be `sitting` down?
+- Who was `sitting` at this table?
+- You're `sitting` on your ticket.
+- Who's that `sitting` in your car?
+- Why is he `sitting` up like this?
+- You'll be `sitting` on the right.
+- But `sitting` here, we still know.
+- I'm baby `sitting` for the doyles.
+- Mike: i'm not `sitting` on my ass.
+- No, she was just `sitting` there?!
+- Oh, somebody else `sitting` there?
+- She was just `sitting` on the bed.
+- We're just `sitting` down at mess.
+- We're not `sitting` ducks anymore.
+- Even the birds `sitting` out there.
+- The one that's been `sitting` here.
+- Just `sitting` down to supper, jake.
+- Someone is `sitting` in that window.
+- He's `sitting` two feet away from me!
+- I'm `sitting` on... bad news, george.
+- `Sitting` in the middle of your face.
+- We're `sitting` on sparazza for what?
+- In any way imaginable, `sitting` here.
+- Where were you `sitting` on the train?
+- `Sitting` behind these very same walls.
+- The one that was `sitting` on the dash.
+- We're not `sitting` here 'til november.
+- You see the guy `sitting` on the porch?
+- He's still `sitting` in that damn field.
+- I don't feel like `sitting` still today.
+- I've had one `sitting` around for years.
+- We'd be `sitting` ducks in the freezers.
+- I was just `sitting` here -- it happened.
+- So it's been just `sitting` in the hotel.
+- Well, here we are, `sitting` in my chair.
+- You made no mistake `sitting` next to me.
+- Are we just going to go on `sitting` here?
+- He says he can't with you `sitting` there.
+- It was jus `sitting` there gathering dust.
+- `Sitting` around in that stuffy apartment.
+- The cathedral, all vienna `sitting` there.
+- Why were you `sitting` here, instead of...
+- Barry's not `sitting` cross-legged anymore.
+- Feel like i'm `sitting` at the kids' table.
+- I couldn't leave you `sitting` by the road.
+- I think i'm gonna be `sitting` up with her.
+- The sushi's been `sitting` out for an hour.
+- We're `sitting` right on top of it -- here.
+- A thousand monkeys `sitting` at typewriters.
+- He was `sitting` in a hot tub with a hooker.
+- I mean what are we all `sitting` here for!!!
+- `Sitting` duck stuff... no, i don't like it.
+- The car's just `sitting` there, no activity.
+- Then you'll be `sitting` on the <u>left</u>.
+- Who you `sitting` here to go to war against?
+- You've just been `sitting` here all morning.
+- It is my last wish to be buried `sitting` up.
+- Those same men will be `sitting` on the jury.
+- Who's `sitting` on a million fucking dollars?
+- He's out there playing `sitting` bull with us.
+- They're `sitting` home reading all these lies.
+- Why exactly are we `sitting` here in the dark?
+- You see, i don't like `sitting` on newspapers.
+- "an old stump is good for `sitting` and resting.
+- But the gameboy was just <u>`sitting`</u> there.
+- It looks like somebody is `sitting` in this car.
+- Then what are we doing `sitting` around yapping?
+- Then why the hell are you `sitting` around here?
+- Why, exactly, are we `sitting` here in the dark?
+- I'm `sitting` here with an ant problem, look!
+- Buster and i are `sitting` right here beside you.
+- Or was he `sitting` here, relaxed, at this table?
+- Then, they came up with `sitting` around a radio.
+- The pierce would be a `sitting` duck for the sub.
+- He didn't look like he'd take that `sitting` down.
+- He was `sitting` there, very calm, waiting for me.
+- It's three feet deep, martin he's `sitting` in it.
+- People just `sitting` there using up their oxygen.
+                 

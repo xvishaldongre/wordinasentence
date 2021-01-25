@@ -1,0 +1,65 @@
+---
+title: "holds in a sentence | holds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "holds"
+---
+- Let's hope it `holds`.
+- Love `holds` you to me.
+- Our deal still `holds`?
+- It `holds` three people.
+- `Holds` up a loaded fork.
+- He `holds` out the baggie.
+- What `holds` you back, max?
+- The gunshot `holds` no fear.
+- I hope your tail `holds` out.
+- Let's hope that luck `holds`.
+- The same `holds` true for you.
+- You think she just `holds` it?
+- Ya, that rack `holds` six ties.
+- He `holds` up a giant key chain.
+- That's what `holds` us together.
+- It `holds` a place, takes a vowel.
+- My `holds` are bursting with swag.
+- Our president `holds` the same views.
+- As long as octavia `holds` power, mom.
+- A revolver `holds` six bullets, not eight.
+- It `holds` the secret of this very voyage.
+- If the weather `holds` it might not be so bad.
+- Joey, a garbage file `holds` miscellaneous data.
+- "it is the glue that `holds` the people together.
+- This one `holds` the record for shock treatments.
+- I just hope the battery on this phone `holds` out.
+- Oh -- ...i -- i -- i hope my strength `holds` out.
+- The past, the future, whatever this object `holds`.
+- I'm testing a new spirit gum, to see how it `holds`.
+- But you have a wildness that `holds` me to you, lass.
+- This fella `holds` you hostage, you talk about movies?
+- Soul `holds` a special place among the infinity stones.
+- But maybe with a good start i can hit those hand-`holds`.
+- Why is it every grave i open `holds` a new mystery inside?
+- He thinks if he `holds` on to his money, he will never die.
+- The fbi computer `holds` files on twenty million americans.
+- You're the thing that `holds` everybody around you together.
+- That `holds` the spirits of the commanders, mom, it's coming!
+- We will make our own luck tonight... if phillippe `holds` up.
+- Why should i bribe the woman who `holds` most of my heart?
+- He `holds` the money until mommy shows up, then we close escrow.
+- She `holds` her bloody hand out for all to see, begging for help.
+- "he who `holds` the horseman's desire will guide his reaping hand."
+- To him, adam is just a threat to the terror he `holds` over others.
+- He `holds` that key so tight, he's probably got it stuck up his ass.
+- If this `holds` up, and it very well may not, mike... but, if it did.
+- There's not a man riding the rails who `holds` a candle to meself.
+- Barak is still strong in the north, and tendo `holds` the high passes.
+- "where the cup that `holds` the blood of jesus christ resides forever."
+- Oh, thx... hold me, hold me, thx `holds` her tightly, tears in his eyes.
+- You wouldn't believe this, walter, but bruce `holds` the door open for me.
+- Kastle pulls out a shiny gold credit card and `holds` it in front of sheila.
+- He `holds` her and they lie silently for a moment-- i've felt that way, yeah.
+- If we can access the radio, we can send a message it `holds` the spirit of lexa.
+- You mean to tell me that there is no one who `holds` a special place in your heart?
+- Or what generates the magnetic field that `holds` it up, and how's your "chee-anti"?
+- How is it possible there's people here that `holds` the spirits of the commanders, no!
+- It's the wanting that `holds` body and soul together, and sometimes, the wanting lives on.
+                 

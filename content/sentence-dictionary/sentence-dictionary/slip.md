@@ -1,0 +1,70 @@
+---
+title: "slip in a sentence | slip example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "slip"
+---
+- Tod gave me the `slip`.
+- We `slip` away right now.
+- I let him `slip` away.
+- She didn't just `slip` away.
+- That's how people `slip` up.
+- These things `slip` my mind.
+- Tried to `slip` it by me, eh?
+- How did it all... `slip` away?
+- Drown � i'll try to `slip` out.
+- Look, just `slip` off the raft.
+- If we can `slip` the collars, why?
+- Let yourself `slip` into the role.
+- You just saw my commission `slip`.
+- Waiting for you to make... a `slip`.
+- Each of them can `slip` out separately.
+- I kill everyone, and you `slip` inside.
+- I `slip` my disc, again... oh got damn.
+- He's bound to `slip` up sooner or later.
+- I will not let tod `slip` out of my hands.
+- Edward, it's got your deposit `slip` on it.
+- How did you `slip` into this program, mayo?
+- I find most criminals `slip` up somewhere...
+- Someone should `slip` her some poison sumac.
+- Just, uh, just `slip` the rent under my door.
+- I could have had it, but i let it `slip` away.
+- Why don't i `slip` into something comfortable?
+- My girl's figured out how to `slip` her collar.
+- The `slip`, son, the `slip`; can you not conceive?
+- How would he know i was going to suddenly `slip`.
+- Or i'll `slip` back... what do you want me to do.
+- But i didn't want too much of the day to `slip` by.
+- As you do, the bottle will `slip` from your hands.
+- But rather to initiate them i could use a `slip` cover.
+- But wee spats like us can `slip` through the net, easy.
+- He's too good a sheriff to let you give him the `slip`.
+- I've got a `slip` movement to install on my next shift.
+- To see it `slip` away, and know it's never coming back.
+- That is the point... and skipper'll `slip` off the hook.
+- You weren't nervous and let something `slip` by mistake?
+- It's got to be there by monday morning, no `slip`-up.
+- But first, let me `slip` into something more comfortable.
+- Suppose i `slip` them a few bucks � for the funeral expenses.
+- I'm going find the bedroom and `slip` into something more ruth.
+- Just let your hand drop to your side and let the gun `slip` out.
+- Yes, i have -- haven't you ever seen anybody in a `slip` before?
+- Well, isn't this perhaps a good opportunity to... `slip` her one?
+- So as long as they're hold the pink `slip`, i go where they tell me.
+- Well, we've never actually met, but your name was on the hire `slip`.
+- The pressure only comes when you let the taste `slip` into your mouth.
+- I'd like you to write me out a `slip`, though, proving i came down here.
+- `Slip` up and change into a skirt, else he'll create something terrible.
+- So here's what: you `slip` me a bottle of bourbon, a glass and some ice.
+- No, i'd `slip` out past the hotel district, behind greyhound... would you?
+- I mean, out of state and all... got your pink `slip` and your... all right.
+- The only way we're going to get him is to rattle him -- make him `slip` up.
+- You can `slip` in with the crowds echo, you can't shoot what you can't see.
+- `Slip` it through my tiny hole... don't start -- i'm hungry for a proper visit.
+- `Slip` it to the dog if you have to... do you mind if i talk to you for a moment?
+- ♪ slowly `slip` back inside of my mind ♪ i know how to kill her once and for all.
+- Fella owned this place back then, dix dwyer, he let `slip` to louis that i played.
+- I wonder if it would be all right for me to `slip` in and look around your factory?
+- Unlock your button ... you're going high-cheese, dude -- `slip` it in ... oh, god...
+- You would come here, and on a `slip` of memory four years ago, you'd ruin their lives.
+                 

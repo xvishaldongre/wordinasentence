@@ -1,0 +1,106 @@
+---
+title: "majesty in a sentence | majesty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "majesty"
+---
+- Bravo, your `majesty`!
+- Forgive me, `majesty`.
+- Nothing new, `majesty`.
+- Goodbye, your `majesty`.
+- Regards to her `majesty`.
+- The same, your `majesty`.
+- Thank you, your `majesty`.
+- Very well, your `majesty`.
+- 'fraid not, your `majesty`.
+- I'm talking to his `majesty`.
+- It's highly moral, `majesty`.
+- Who told you this, `majesty`?
+- Your `majesty` is wise in it.
+- "at her `majesty`'s pleasure."
+- In a pasha's harem, `majesty`.
+- May i just do that, `majesty`?
+- An interesting idea, `majesty`.
+- Because his `majesty` wishes it.
+- `Majesty`, this is madame weber.
+- Er, on the whole, yes, `majesty`.
+- It shall be done, your `majesty`.
+- You would do that, your `majesty`?
+- I do not recollect, your `majesty`.
+- I'm sure there is a way, `majesty`.
+- It is all his `majesty` can afford.
+- Please don't worry, your `majesty`.
+- You really like it, your `majesty`?
+- I'm her `majesty`'s highland servant!
+- Into a monk... never, your `majesty`.
+- Well, `majesty`, it is only a comedy.
+- But, `majesty`, this is just a frolic.
+- I am at your disposal, your `majesty`.
+- Because i think her `majesty` is wrong.
+- It's actually quite amusing, `majesty`.
+- Thirty seven, your `majesty`... and you?
+- Your `majesty` what do you love so much?
+- Which few did you have in mind, `majesty`?
+- Will you ask her `majesty` to be patient?!
+- You and me, just as much as his `majesty`.
+- You don't tell her `majesty` how you feel.
+- Your birthday celebration, your `majesty`?
+- Do you want athos arrested, your `majesty`?
+- I grow closer to my target, your `majesty`.
+- I intend to keep you alive, your `majesty`.
+- The cartoon or her `majesty`'s absenteeism?
+- Here here... more champagne, your `majesty`?
+- It is what his `majesty` thinks that counts.
+- Well that's typical of her `majesty`'s army.
+- Your `majesty`, can marge lip-synch with us?
+- It is not a question of liking, your `majesty`.
+- The new world proves expensive, your `majesty`.
+- I am a servant of the his `majesty` the emperor.
+- Those maps belong to his `majesty`'s government.
+- I believe that decision rests with her `majesty`.
+- Your `majesty`, i urge you not to see this woman.
+- Forgive me, your `majesty`, i am about to make it.
+- The freeway's faster, but lacks a certain `majesty`.
+- I agree, `majesty`, but i'm afraid it's not possible.
+- He asks if your `majesty` might grant him an audience.
+- `Majesty`, may i ask you to do me the greatest favour?
+- Oh, your `majesty`, it would be such a tremendous honour!
+- There are just as many notes, `majesty`, as are required.
+- `Majesty`, i don't like to talk against a fellow musician.
+- Well... perhaps you should speak with them, your `majesty`.
+- You do not leave your room until her `majesty` requests it.
+- Your `majesty`... once a musketeer, always a musketeer, eh?
+- Your `majesty` remains at the very epicenter of governance.
+- It is dangerous for you to interpret his `majesty`'s edicts.
+- Your `majesty` -- some men are content to read about things.
+- Always nice to meet one of her `majesty`'s fellow subjects...
+- I remember one birthday of his `majesty`, our beloved czar...
+- Your `majesty` shall mock at me; i cannot speak your england.
+- I served in his `majesty`'s army in the french and indian war.
+- But, sire, your `majesty` would lay paris open to being sacked.
+- Your `majesty` -- no-one should think themselves wiser than me!
+- Perhaps it would be even more serious than that, your `majesty`.
+- Your `majesty`, herr mozart - well, what do you have for me today?
+- But, your `majesty` - what you think, mozart, is scarcely the point.
+- Your `majesty`, if you were king you wouldn't be afraid of anything?
+- If i may, your `majesty`, i would like to offer a dissenting opinion.
+- Her `majesty`'s routine at osborne house is not as you will remember it.
+- I think it is an interesting notion to keep mozart in vienna, `majesty`.
+- Sire, i swear to your `majesty`, there's nothing like that in the story.
+- Excuse me - didn't his `majesty` specifically forbid ballet in his opera?
+- I have served his `majesty` on arrakis long enough for my eyes to change.
+- Well - well we haven't quite received my father's consent, your `majesty`.
+- I recommend her `majesty` uses the covered carriage with a full horse guard.
+- Your `majesty` by and by i come to cease thy strife and leave me to my grief.
+- We are emissaries of her `majesty`, queen cherlindrea, of the land of coshairm.
+- Your `majesty` has had many women -- miss beaufort has accepted our invitation.
+- Your `majesty`, i'm afraid matters of state keep me from attending the ceremony.
+- ... as always, `majesty`... my dear loyal tremoille, i know i can count on you...
+- But your `majesty` should understand -- that my mind will not be changed in this.
+- Did you not know that his `majesty` has expressly forbidden ballet in his operas?
+- ...his `majesty` was quite keen that you should understand -- shut up, would you!
+- I was sent by his `majesty` of spain to inverness as a con- sultant on matters of metal.
+- I mean�your `majesty`, they do not, they have not, but i believe there is one who can ah!
+- Your `majesty` has grasped the outlines of his problem in much less time than it took me.
+- It is for your security that i have come, your `majesty` -- for the security of your honor.
+                 

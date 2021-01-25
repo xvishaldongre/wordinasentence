@@ -1,0 +1,67 @@
+---
+title: "ha in a sentence | ha example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ha"
+---
+- `Ha`... no, mr lombard.
+- Ah, `ha`, `ha`, `ha`... slink!
+- Col freddo che `ha` fatto?
+- `Ha` `ha` ho ho and hee hee.
+- Clarke... - _ - `ha`-`ha`-`ha`!
+- `Ha` un numero di telefono?
+- _ - oh, my... - `ha` `ha` `ha`!
+- Not important -- `ha`-`ha`-`ha`.
+- `Ha`, `ha`, oh, i love you, too.
+- Ah `ha` ... there you are, sam.
+- `Ha`, `ha`, `ha` -- hurry, come on.
+- `Ha` `ha`... we'll see who - shhh!
+- Not funny `ha`, `ha`, funny queer.
+- Now, here's a great one... `ha`!
+- Yeah, `ha`, hell of a night huh?
+- It was a long time ago.- `ha` `ha`.
+- Not funny, `ha`, `ha`, funny queer.
+- Ah `ha`, it's coming off now, sir.
+- My faith in the shepherd, `ha` `ha`!
+- When we do, we'll find `ha` `ha` `ha`!
+- `Ha` `ha`, course you make a lot more.
+- There was definitely a y. `ha` `ha`!
+- But speak english, will ya, `ha` `ha`...
+- Neither do i... `ha` `ha` ho ho hee hee.
+- `Ha` `ha`... she's very nice, apparently.
+- `Ha`-`ha` -- there goes some of me again!
+- `Ha` `ha`, <u>you</u> have been treating.
+- Once they rise up against them, `ha`-`ha`!
+- He's like a man starving, and you -- `ha`!
+- `Ha` `ha` `ha`, that's some idea, a cantaloupe.
+- No, it's more like a leave of- `ha`, `ha`, `ha`.
+- What `ha`... ... maybe it's congratulations.
+- I need to get this done as fast as i can `ha`!
+- Was transferred here to this utopia, `ha`, `ha`.
+- Well, i have more than a few days, `ha`, `ha`...
+- It is an honor to be here on land today `ha` `ha`!
+- Mr. yow, if this door should fall down -`ha` `ha`!
+- `Ha`, `ha` - who are you to be talking about a mask?
+- `Ha`, i never realized how hard it was to describe.
+- Ah, yes, you're the new boy from next door, `ha` `ha`!
+- Il signor ripley `ha` sviluppate tendenze omosessuali?
+- Some party boat skipper who's killed a few sharks... `ha`.
+- `Ha`-`ha`... yeah... what about that road back there, though?
+- `Ha` `ha` `ha` `ha`.... we think there are other cities surviving.
+- Well, maybe it'll only be temporary, but i `ha`--i have to try.
+- `Ha`, `ha`... all right, well, uh i guess you can bring out the pasta.
+- We performed on the beach one summer...`ha`...everything went wrong.
+- Ah -- `ha`... you know, you should think about dating earthmen again.
+- From now on, nothing but water at every meal -- virgin birth -- `ha`!
+- An army that ain't afraid ta die...`ha` `ha` `ha`...'cause it's awreddy daid!
+- They're unarmed, but they won't feel pain, [indistinct shouting] `ha` `ha`!
+- Ho -- ho --ho `ha` -- `ha` -- `ha` -- it's no use screaming at a time like this!
+- Well, it seems there were a couple of frenchmen who went to america... `ha`!
+- There can't be any wrong in this, `ha`... well, i don't do it for just anybody.
+- `Ha`, `ha`, `ha`, `ha` rubbish...now begone...before somebody drops a house on you!...
+- Quando e stata l'ultima volta che il signor ripley `ha` visto il signor greenleaf?
+- `Ha`, she loves telling this story about how when he was two years old, he ran off.
+- `Ha`... well, that's just what we need on a cattle ranch -- a vegetarian from new york.
+- You see, they take the leaves and mash it down until it's kind of a paste - `ha` `ha` `ha`.
+- Well, suit yourself, then...its your decision... `ha` `ha`...a little joke...suit yourself...
+                 

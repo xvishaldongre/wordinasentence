@@ -1,0 +1,7 @@
+---
+title: "waddle in a sentence | waddle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "waddle"
+---
+## Unfortunately, we have no example sentences for waddle                 

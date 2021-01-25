@@ -1,0 +1,107 @@
+---
+title: "boy in a sentence | boy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "boy"
+---
+- Better fortune, `boy`.
+- `Boy`-- so what's new?
+- `Boy`: they're back!
+- `Boy`, was he burning.
+- Carl's a fine `boy`...
+- Especially you, `boy`.
+- Gimme your gun, `boy`!
+- Good `boy`, port hole.
+- Had me worried, `boy`.
+- How old is your `boy`?
+- I've been a bad `boy`.
+- I want our `boy` back.
+- Leon, my little `boy`.
+- Low overhead, m'`boy`.
+- "mad about the `boy`."
+- No, the `boy`'s right.
+- Oh `boy`, am i pissed.
+- Oh `boy`, i'd love it.
+- Sit on my knee, `boy`.
+- Sonny-`boy`, one word?
+- Take it,easy, `boy`...
+- Take that, blue `boy`.
+- That kubelik -- `boy`!
+- The `boy` in the well.
+- The `boy` was curious.
+- The sick `boy` method.
+- Was he a `boy` friend?
+- Watch the road, `boy`.
+- Well goodnight, `boy`.
+- What about your `boy`?
+- What you sayin' `boy`?
+- Why sure, `boy`, sure.
+- Yes but i was a `boy`.
+- You know why, `boy`-o?
+- Your `boy`'s not ugly.
+- You're my brave `boy`.
+- You understand, `boy`?
+- You understand, `boy`?
+- Aaron if it's a `boy`.
+- ..."a `boy` named sue".
+- Be gone, spoiler `boy`.
+- `Boy`, is that smart...
+- `Boy`, that's terrific.
+- `Boy` you looking good.
+- Good evening, my `boy`.
+- Harold, tell the `boy`.
+- Hello, my little `boy`.
+- He's a different `boy`.
+- Run away, stevie `boy`!
+- So you're buzz's `boy`.
+- Take care of our `boy`.
+- That `boy` dies anyway.
+- That `boy`'s a fighter.
+- That `boy` wants me to.
+- The `boy` who was shot.
+- They gave us our `boy`.
+- This `boy`'s different.
+- This `boy` will go far.
+- This is a smart `boy`."
+- Watch it, zombie `boy`.
+- Watch it, zombie `boy`.
+- You are an eager `boy`.
+- Ain't that right, `boy`?
+- A little `boy`, too.
+- Another `boy`, you know?
+- Are you with that `boy`?
+- Ask them why, oh, `boy`!
+- `Boy`, it's hot in here.
+- `Boy` or girl... jordan.
+- `Boy`, that looks tasty.
+- `Boy`, you're funny, ma.
+- Get on your feet, `boy`.
+- He's a very shy `boy`...
+- I am not a 'ewe,' `boy`!
+- If it's a `boy` taylor.
+- I got your `boy` killed.
+- I'm not a `boy` anymore.
+- Is it a `boy` or a girl?
+- I -- what you do, `boy`?
+- Just a local farm `boy`.
+- Kicking that poor `boy`?
+- Look again, billy-`boy`.
+- Lucky throw, fire `boy`.
+- My beautiful baby `boy`.
+- My mouth is shut, `boy`.
+- Nice college `boy`, huh?
+- Normal `boy`'s ambition.
+- Oh, `boy` -- can i, mom?
+- Oh, my good, good `boy`.
+- Or over by `boy`'s club?
+- Permanent package `boy`.
+- Say your prayers, `boy`.
+- That `boy` is dangerous.
+- That `boy`'s got talent.
+- The guy's a choir `boy`.
+- This `boy` is like that.
+- This is the edge, `boy`.
+- What'd you think, `boy`?
+- What's your name, `boy`?
+- Who's your daddy, `boy`?
+                 

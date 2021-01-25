@@ -1,0 +1,67 @@
+---
+title: "fishing in a sentence | fishing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fishing"
+---
+- A giant `fishing` hole.
+- Could be a `fishing` boat.
+- I want you to go `fishing`.
+- He's taking up fly `fishing`.
+- I know what ice `fishing` is!
+- Oh, do you do much `fishing`?
+- We should try `fishing` again.
+- I took you `fishing` here once.
+- Take him `fishing` or something.
+- We got a lot of `fishing` to do.
+- I found a `fishing` rod up there.
+- Looks like the `fishing` was good.
+- <u>then</u> the `fishing` gaff?
+- It was just a `fishing` expedition.
+- Well, there's `fishing` and boating.
+- Take him to the mountains, `fishing`.
+- Yes...i was `fishing` up in the hills.
+- Why don't you just enjoy the `fishing`?
+- You took a `fishing` trip with the boys.
+- I still got your bamboo `fishing` rod.
+- It was after they got back from `fishing`.
+- I hated `fishing`, but i loved his stories.
+- They may just be on a `fishing` expedition.
+- Go deep sea `fishing` in the gulf of mexico.
+- Greg has promised to teach me fly `fishing`.
+- I used to love to go `fishing` with my father.
+- Raimondo... do you enjoy `fishing` underwater?
+- So the `fishing` gaff method wouldn't make sense?
+- So what happened to the barbecues, and `fishing`?
+- My father took me `fishing` here when i was a kid.
+- Our friend, poseidon, didn't use it for `fishing`.
+- We'll go `fishing` and stay away until she's gone.
+- Carl's boat was running, he goes back to `fishing`.
+- Saunders, i've lit cigarettes - big game `fishing`.
+- Yeah -- `fishing` village -- helicopters over there.
+- For every fish he named, he had a `fishing` story.
+- Could he kill a much larger man with a `fishing` gaff?
+- I can't believe that people pay money to go `fishing`.
+- I could take a `fishing` gaff and split your head open.
+- He wants to take mr. san pedro sula and me bass `fishing`.
+- No, we're fixin' to go `fishing` down the etowah next sunday.
+- Are you able to back up this allegation -- or are you `fishing`?
+- Maybe they'll give me a new `fishing` pole, or something useful.
+- The ones that've been raising the devil with my `fishing` boats.
+- The real joke is we never went `fishing`, but we're still `fishing`.
+- It's a `fishing` boat with, in front, a long pole near the surface.
+- We used to go `fishing` and hunting with him when you were so high.
+- Right now she thinks i'm out there on my yacht - deep-sea `fishing`.
+- The `fishing` club that old lady mentioned, the pieces off the flag.
+- I'm snitching three old timers who'll be `fishing` in oregon next week.
+- No one's ever caught a great white except indirectly in `fishing` nets.
+- Maybe next summer he's going to take me hunting with him--and `fishing`.
+- Well, there's some fellows `fishing` at pine summit might be interested.
+- Going fly `fishing` in canada, big client... wanna play some tennis saturday?
+- Gonna get some canned goods�a `fishing` rod, and the rest i'm gonna give away.
+- Think you'd try boarding against his will, and hitting him with a `fishing` gaff?
+- Dad's `fishing` trip, grandma's knee operation, grandma's birthday... ah, beautiful.
+- So the defendant went out `fishing` for the night with <u>no</u> spare battery, hmmn?
+- I walked in yesterday�here he is, standing on a table with a `fishing` pole flycasting.
+- You could go `fishing` with him, play poker with him, you'd never snap in a million years.
+                 

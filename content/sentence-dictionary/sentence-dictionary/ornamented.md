@@ -1,0 +1,7 @@
+---
+title: "ornamented in a sentence | ornamented example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ornamented"
+---
+## Unfortunately, we have no example sentences for ornamented                 

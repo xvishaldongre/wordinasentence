@@ -1,0 +1,107 @@
+---
+title: "damage in a sentence | damage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "damage"
+---
+- What kind of `damage`?
+- `Damage` report, spock?
+- Was there any `damage`?
+- You get brain `damage`.
+- `Damage` report, ensign.
+- No `damage` was done.
+- But where's the `damage`?
+- It causes brain `damage`.
+- Seven points of `damage`.
+- Viruses can `damage` dna.
+- To completely `damage` me?
+- What's your `damage`, man?
+- There is no brain `damage`.
+- Too much internal `damage`.
+- You'll `damage` the armour.
+- How serious is the `damage`?
+- One guy do all the `damage`?
+- We must repair the `damage`.
+- What is the `damage` report?
+- Let it do its `damage` later.
+- The `damage` control is easy.
+- The `damage` was considerable.
+- What's your `damage`, heather?
+- It'll cause even more `damage`.
+- Before he could do any `damage`.
+- The crash did too much `damage`.
+- There's too much brain `damage`.
+- I told you to check for `damage`.
+- Minimal `damage` to the scimitar.
+- Okay, i'll take `damage` reports.
+- This ship took a lot of `damage`.
+- Out assessing the `damage`, but...
+- Structural `damage` at 68 percent.
+- Where it can do the most `damage`.
+- He owes me money for this `damage`.
+- The crash caused too much `damage`.
+- We've done enough `damage` tonight.
+- All that `damage` at the school.
+- Sir, that could `damage`... - do it.
+- The emp will give me brain `damage`.
+- `Damage` to the ark was catastrophic.
+- You already have done immense `damage`.
+- Radiation, cell `damage`, didn't matter.
+- We're getting major structural `damage`.
+- We don't know if we took on any `damage`.
+- Considerable `damage` was done to my ship.
+- Determine extent of `damage`, immediately.
+- <i></i> there's always some brain `damage`.
+- The ship is sustaining structural `damage`.
+- Is there any sort of risk of brain `damage`?
+- There doesn't seem to be any water `damage`.
+- There's still some residual tissue `damage`.
+- Let's have a rundown on the `damage`, lothar?
+- What if she gets brain `damage` or something?
+- You fuck up, you've got to undo the `damage`.
+- Guys, we're sustaining structural `damage`!...
+- They're into the power trip, not the `damage`.
+- Give me a `damage` report on that missile silo.
+- I thought i should check out the `damage` first.
+- Can't people see the `damage` that film is doing?!
+- Did anyone notice there's no `damage` to "b" dock?
+- Did anyone notice there's no `damage` to «b» dock?
+- The truer it is, the greater the `damage` to them.
+- Down to miami and back--how much `damage` can i do?
+- Radiation can `damage` the vestibulocochlear nerve.
+- "one pie to the groin won't do `damage`," they said.
+- Rule two, assess the `damage` and act accordingly...
+- Significant `damage` to the nerves in your left leg.
+- Cool your jets...i'm doing a little `damage` control.
+- Lis, thanks for undoing the `damage` of my good deed.
+- A maintenance accident that didn't cause any `damage`?
+- The hemorrhaging... the neural `damage` is irreparable.
+- We need to run tests to see the extent of the `damage`.
+- Ballistic ... do permanent `damage` to little old ladies.
+- Depending on `damage`, debris...could be a fatal mistake.
+- Don't do a lot of `damage`, but it's as fast as the devil.
+- I just saw a little girl with optic nerve `damage` please.
+- It's good that there was no apparent `damage` to the bone.
+- How much `damage` have you done... and what is yet to come?
+- With the engine `damage`, if you betray us, i will kill you.
+- There is a lot of `damage`, and three, no four, casualties...
+- A direct hit oughta do more than a few weeks worth o' `damage`.
+- I thought you said there wasn't any `damage` done in the crash?
+- Your honor... ...almost nine minutes... causing brain `damage`.
+- The guy probably prevented <u>millions</u> in property `damage`.
+- There were complaints by other guests, and `damage` to his room.
+- Forget about the tissue `damage` you're doing to the heart itself.
+- Listenin' to that music so loud: you tryin' to `damage` your ears?
+- I need to see if there's any nerve `damage` before we carry you back.
+- ...i have to give you this <u>ticket</u> for `damage` to city property.
+- She long ago fully recovered, but the disease did irreparable `damage`.
+- There's four hundred million dollars in `damage` to the city of dallas.
+- What would you say if i told you we could correct your neural `damage`?
+- Between the raindrops, and ripping her out can permanently `damage` her.
+- A rather large contusion, but i don't feel there is any serious `damage`.
+- Don't worry, it won't `damage` it, it'll just give it a little incentive.
+- Borderline malnutrition, but i don't think there's any permanent `damage`.
+- I was the only guy who disagreed with the facts, and i had brain `damage`.
+- All internal repairs completed, and frogmen report exterior `damage` minor.
+- Excepting your late mother... who even knew selina had a brain to `damage`?
+                 

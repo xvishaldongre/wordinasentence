@@ -1,0 +1,56 @@
+---
+title: "device in a sentence | device example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "device"
+---
+- ... a cloaking `device`?
+- It's a tagging `device`.
+- Is it a jamming `device`?
+- Our `device` works perfectly!
+- It's a silicon-based `device`.
+- Don't let her touch the `device`.
+- So what do we do with the `device`?
+- The `device` has stopped responding.
+- Mr. chekov, engage cloaking `device`!
+- 200 feet from where i found the `device`.
+- He had a `device` he called the intruder.
+- This will be a different kind of `device`.
+- Just how easy is it to build a... `device`?
+- Lightweight forward area air `device` unit.
+- Be back by the time you finish the `device`.
+- Then how did he find out about the `device`?
+- This `device` requires a live mimic to work.
+- It has a cloaking `device` that cost us a lot.
+- Superconducting quantum interference `device`.
+- But here's the thing, nobody can id a `device`.
+- A `device` like this was one of the reasons i left.
+- The plasma coil is part of their cloaking `device`.
+- Deliver the `device` now or i will destroy your ship.
+- Why is that soldier strapped to an explosive `device`?
+- Cloaking `device` now available in all modes of flight.
+- Excellent notion- i used the same `device` myself once.
+- Swimming underwater with that oxygen `device` of yours.
+- Just a little `device` of mine... "ay, there's the rub."
+- Then tell me one thing... what does it do, the `device`?
+- This was a `device` we... discovered on an alien planet.
+- A `device` capable of harnessing the power of the stones.
+- Do you have a `device` that will help us do such a thing?
+- He's having a secret `device` constructed for the circus.
+- Homer, we're placing this tracking `device` in your wallet.
+- So you're the "`device` squad"... and you defuse "devices"?
+- Travers was smart enough to bring along a tracking `device`.
+- A `device` that's able to pull select memories one phone call.
+- Report helm: cloaking `device` is stable... all systems normal.
+- The mysterious `device` in our last episo--historical document.
+- Time-warner has a 40 per cent stake in gary's set-top `device`.
+- Arkadia needs to make things right, step away from the `device`.
+- I ignored a primary tactical rule and left him alone with the `device`.
+- Really quite a brilliant `device`, but too flamboyant to seriously produce.
+- Tearing of the middle meningeal artery... an experimental `device`, doctor.
+- Renard�s men used it to remove this radio tracking `device` from the warhead.
+- 'let's explode a hundred megaton geothermal nuclear `device`, just to see it.'
+- The harm done to the music students who used the `device` �� it was not by accident.
+- I assume you must have hidden a `device` in one of the missiles i hurled into the sun!
+- Somehow during the tour, she came into possession of a prototype transmitting `device`.
+                 

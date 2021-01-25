@@ -1,0 +1,107 @@
+---
+title: "spot in a sentence | spot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spot"
+---
+- Dora, take her `spot`.
+- Save my `spot`, ready?
+- You had a good `spot`.
+- Dick, jane, and `spot`.
+- This `spot` right here.
+- Does he have the `spot`?
+- She's in a tight `spot`.
+- How to `spot` a murderer.
+- It's a fine `spot`, ma'am.
+- It's a good `spot` for it.
+- Lisa, you have his `spot`.
+- I made a clean `spot` here.
+- It's like "see `spot` run."
+- I'll `spot` you five points.
+- Must have missed this `spot`.
+- It is quite a sore `spot`.
+- It's a sore `spot` between us.
+- It wasn't difficult to `spot`.
+- Keep your eyes on that `spot`!
+- Egg marks the `spot`� i'm glad.
+- I won't budge from this `spot`.
+- Wish i could find you a `spot`.
+- You're in a rough `spot`, okay?
+- I feel really on the `spot` now.
+- `Spot` lived another four years.
+- This looks like the best `spot`.
+- Every opponent has a weak `spot`.
+- I'm in a bad fuckin' `spot` here.
+- Just `spot` and follow through...
+- Yeah, that really hit the `spot`.
+- You think this is a tight `spot`?
+- It's a record of my little `spot`.
+- Nix has got to have a weak `spot`.
+- All i know is "x" marks the `spot`.
+- Hell of a `spot` to put a business.
+- It had this red `spot` on its back.
+- She drops dead right on the `spot`.
+- That is my least vulnerable `spot`.
+- There's a `spot` a few blocks away.
+- A good batsman will `spot` a googly.
+- But from now on it's lucky's `spot`.
+- He'd `spot` our hitters a mile away.
+- I always had a soft `spot` for rome.
+- My mother stood on this very `spot`.
+- That poor girl is in a tough `spot`.
+- The lighthouse is a make-out `spot`.
+- You think you're in a <u>`spot`</u>?
+- I got a nice safe blind `spot` going.
+- Name your vacation `spot`, goodspeed.
+- Oh, that's a lovely `spot`, isn't it?
+- Radio if you `spot` anyone following.
+- Went for the sweet-`spot` and missed.
+- Why don't you pick some other `spot`?
+- Everybody's got a fucking weak `spot`.
+- Just have to...pick a discreet `spot`.
+- Never let a freshman take your `spot`.
+- Well, we were in a handicapped `spot`.
+- What does the butter `spot` feel like?
+- You're putting me on the `spot`, bill.
+- It's as if we were glued to the `spot`.
+- They are listening, i like this `spot`.
+- Well, he put me in a `spot`, didn't he?
+- Find us a `spot` with less interference.
+- How 'bout a ten `spot` on the line here.
+- I can't `spot` 'em myself but you could.
+- Thanks for putting me in a tough `spot`.
+- There's still a big `spot` on the floor.
+- Clever of you to find this `spot`, betty.
+- He's done some on-the-`spot` refit- ting.
+- How did you `spot` the ambush in torrell?
+- I want you to hide in your secret `spot`.
+- The `spot` we picked to spend the winter.
+- You found a parking `spot` at the marina.
+- Chancellor, sir, i'll take a `spot` in 17.
+- If it were me, i'd kill you on the `spot`.
+- I've got to be in my `spot` every morning.
+- Only i wasn't alone when `spot` came back.
+- Promised me the next `spot` he can wangle.
+- You been sittin' in that `spot` for hours.
+- You need a partner, someone to `spot` you.
+- It is a fine `spot` for a bench, is it not?
+- Third offence: you're sacked on the `spot`.
+- I guess any `spot` gets boring after awhile.
+- I'll even `spot` ya a few points first game.
+- Had a little `spot` next to the yogurt place.
+- Then it wouldn't be a garden `spot` for long.
+- We gotta find a `spot` over on the west side.
+- Chicken would really hit the `spot` about now.
+- He's in a tricky `spot`, emotionally speaking.
+- He's in a tricky `spot`, emotionally speaking.
+- Don't move from that `spot`... max, i'm scared.
+- Well that's only if you're in the wrong `spot`.
+- Went to the `spot` we chose for our settlement.
+- Because there is a `spot` on that stage for you.
+- Clarke... and a `spot` on weekend update on snl.
+- Do they just -- put you on the `spot` like that?
+- Man, all it got to do is find their weak `spot`.
+- Shame you had to `spot` i wasn�t the real thing.
+- That ain't exactly been the lucky `spot` lately.
+- The most wonderful `spot` in all paris -- unique!
+                 

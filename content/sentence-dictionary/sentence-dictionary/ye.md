@@ -1,0 +1,53 @@
+---
+title: "ye in a sentence | ye example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ye"
+---
+- I'll get 'em for `ye`.
+- I'll nay enchant `ye`.
+- Speak then if `ye` must.
+- I'll play ball with `ye`.
+- What want `ye`, girl child?
+- I care for `ye` a good deal.
+- What make `ye` of that, jack?
+- I'm `ye` oldest boy name karl.
+- Have `ye` any comment, killaine?
+- He's got it in for `ye` tonight.
+- Gather `ye` rosebuds while `ye` may.
+- I figured i might cut it fer `ye`.
+- You got somethin' wrong with `ye`?
+- Controlled us, `ye` of little faith.
+- Not so loud, mayhap he'll hear `ye`.
+- You had daniel webster, didn't `ye`?
+- Nolan, me lad, `ye`'re dreamin' again.
+- Well, are `ye` satisfied, mr. mitchell?
+- `Ye` gods and little fishes, a fireman.
+- He wouldn't know what to do without `ye`.
+- If `ye` want to ask, ask jenny greenteeth.
+- I've warned `ye` about that back of yours.
+- I want `ye` to give this to mizz wheatley.
+- See `ye` got two more peeps to your brood.
+- Will `ye` do somethin' for me if i ast you to?
+- You ort not to if `ye` ain't married to somebody.
+- Are `ye` ready for a trip to the scottish die-lands?
+- `Ye` that followeth me shall have the light of life."
+- I didn't figger `ye` rowed that skiff from parkersburg!
+- Think if `ye` sup with the faeries you'll be enchanted?
+- You go in there and you and that doyle eat `ye` dinner.
+- If i ain't around no more, it don't mean i don't care fer `ye`.
+- If `ye` run into trouble, give a yank here and we'll haul `ye` up.
+- He said, "take up thy task, and know `ye` the path of contentment."
+- So if it is charity yer after, then be gone with `ye`, `ye` foul demon.
+- Did your momma tell `ye` never to take food nor drink from the wee folk?
+- How do you plan on finding this here castle, if `ye` don't mind me asking?
+- If `ye`'d wanted a bloody cadillac ya should'a stayed in the bloody states!
+- That much magic i can offer `ye`, a small measure of entertainment at best.
+- Oh, bless `ye` the works of the lord in the hail and the storm and the rain!
+- Knaves and robbers... now, jack-lad, no one's asking `ye` to skewer the worm.
+- I'll sour your milk and bird droppings'll fall from the sky wherever `ye` walk.
+- If `ye` want more tricks, i'm your man, but for big questions `ye` must go elsewhere.
+- ♪ god rest `ye`, merry gentlemen ♪ you can't just... kill everyone and expect... unh!
+- I don't want to be rude, but... it's generally known that -- are `ye` afraid of me wine?
+- ♪ ruble, pound, or deutschmark ♪ then once we're inside the tavern... `ye` of little faith.
+                 

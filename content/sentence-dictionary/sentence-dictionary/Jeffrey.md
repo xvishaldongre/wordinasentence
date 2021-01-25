@@ -1,0 +1,88 @@
+---
+title: "Jeffrey in a sentence | Jeffrey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jeffrey"
+---
+- "up to you, `jeffrey`.
+- I really do, `jeffrey`.
+- Is that you, `jeffrey`?
+- `Jeffrey`, how are you?
+- Have you seen `jeffrey`?
+- You called me `jeffrey`.
+- Hey who's that `jeffrey`?
+- They hurt him, `jeffrey`.
+- You look good, `jeffrey`.
+- You're hiding, `jeffrey`.
+- You're insane, `jeffrey`.
+- Please see him, `jeffrey`.
+- You better not, `jeffrey`.
+- Are you `jeffrey` pommeroy?
+- Don't be fatuous, `jeffrey`.
+- I mean, for good, `jeffrey`.
+- Have you guys seen `jeffrey`?
+- She knew about it, `jeffrey`.
+- `Jeffrey`, breakfast is ready.
+- `Jeffrey` told her last night.
+- My name is `jeffrey` beaumont.
+- This other `jeffrey` lebowski.
+- `Jeffrey`... this is wonderful.
+- Oh god, `jeffrey`, is that you?
+- Alright `jeffrey`, just a minute.
+- Oh god, they hurt him, `jeffrey`.
+- You better be careful, `jeffrey`.
+- That's the whole point, `jeffrey`.
+- Where's all your things, `jeffrey`?
+- `Jeffrey`, when you see your father.
+- Nice to finally meet you, `jeffrey`.
+- She's going '`jeffrey`, `jeffrey`!'
+- Delayed after-eff-- please `jeffrey`.
+- Go dance with your mother, `jeffrey`!
+- I can take care of myself, `jeffrey`.
+- `Jeffrey`, are they important things?
+- `Jeffrey`, `jeffrey`, `jeffrey`, hold me.
+- `Jeffrey`, where you going with this?
+- Not you or `jeffrey` or anybody else.
+- That's the power you have, `jeffrey`.
+- There's got to be some order, `jeffrey`.
+- Actually, i wanna see `jeffrey` pommeroy.
+- Are you going out with `jeffrey` tonight?
+- Hello, uh, my name is `jeffrey` beaumont.
+- `Jeffrey`... `jeffrey` wigand... oh, baby...
+- `Jeffrey` says exactly what's on his mind.
+- `Jeffrey` knows love like he knows macram�.
+- Tell me a little about yourself, `jeffrey`.
+- `Jeffrey`, i don't think you ought to do it.
+- `Jeffrey`, would you call and let them know?
+- `Jeffrey` says audiences love special effects.
+- Huh... look, `jeffrey`, i don't want a partner.
+- I don't actually think `jeffrey`'s gonna notice.
+- Maybe this `jeffrey` guy is...is my real father.
+- My name is `jeffrey` beaumont - i live near you.
+- You are important to a lot of people, `jeffrey`.
+- I guess i would have gotten `jeffrey` to hit you.
+- Nice of you to offer, `jeffrey`, but certainly not.
+- `Jeffrey` mason said it was my idea about the virus.
+- `Jeffrey`, you're not going down by lincoln, are you?
+- What're you doing in my apartment, `jeffrey` beaumont?
+- Well now `jeffrey`, how did you come to get so involved?
+- It's just-- `jeffrey`-- larry sellers, a high-school kid.
+- So, is `jeffrey` really spending the night at your house?
+- Do you think i should tell my dad about `jeffrey` pommeroy?
+- You were running out of steam on the whole `jeffrey` thing.
+- Please tell me, `jeffrey`, what exactly are you going to do?
+- You know dr. mason's son, `jeffrey` mason, don't you, james?
+- Because i'm on a zipline... - i brought `jeffrey` in to cover.
+- I never in a million years would have dreamt it was `jeffrey`.
+- You can't just stay out half the night and carry on, `jeffrey`.
+- Please excuse me a moment, `jeffrey`, and i'll get to the dishes.
+- But `jeffrey`, you'll have to walk over; i need the car this morning.
+- 'just remember you're in training, son' what did `jeffrey`'s dad say?
+- No it's fine, really, uh-- `jeffrey`, you haven't gone to the doctor.
+- Well, `jeffrey`, you found something which is very interesting to us.
+- `Jeffrey`, i don't mean to sound sexist or anything, but can i borrow her?
+- Valedictorian, national merit scholar todd's brother is `jeffrey` anderson.
+- Look, `jeffrey`, you don't really kidnap someone that you're acquainted with.
+- Buffy, i'm gonna tell `jeffrey` you were playing with another man's hebrew national.
+- `Jeffrey` wigand, who's out on a limb, does he go on television and tell the truth?
+                 

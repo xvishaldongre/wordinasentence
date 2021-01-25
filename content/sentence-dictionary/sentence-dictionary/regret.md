@@ -1,0 +1,87 @@
+---
+title: "regret in a sentence | regret example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "regret"
+---
+- You may `regret` that.
+- Loss... pain, `regret`.
+- You will `regret` this.
+- I don't `regret` it.
+- Do you ever `regret` it?
+- That you `regret`, what?
+- Hey, you won't `regret` it.
+- I don't `regret` any of it.
+- I'll `regret` this forever.
+- Don't make me `regret` that.
+- Don't make me `regret` this.
+- I `regret` ever saying that.
+- You won't `regret` this, roy.
+- You won�t `regret` this, sir.
+- Hey, your gonna `regret` this.
+- You only `regret` having lost.
+- Not so well, i `regret` to say.
+- You have nothing to `regret`...
+- You won�t `regret` it... tommy!
+- You'll never `regret` this, ray.
+- I `regret` it is not too familiar.
+- What else makes you feel `regret`?
+- You'll `regret` this, mrs. little.
+- I know that now, and i `regret` it.
+- We `regret` you've become involved.
+- Everybody does things they `regret`.
+- You won't `regret` this, mr. shreck.
+- We'll always `regret` it if we don't.
+- You don't `regret` meetin' your wife?
+- Do not make us `regret` that decision.
+- Do you `regret` not telling the truth?
+- You might `regret` this, mr rothstein.
+- And she doesn't have a single `regret`.
+- Why do i think i'm gonna `regret` that?
+- Do you ever `regret` things you've done?
+- Do you ever `regret` not having a family?
+- The difference is, is that i `regret` it.
+- You hook up with him, you'll `regret` it.
+- I deeply `regret` this unfortunate incident.
+- I'll `regret` it even more if i keep you on.
+- That was a mistake, but i don't `regret` it.
+- You'll `regret` it for the rest of your life.
+- Is there anything you `regret` leaving behind?
+- You won't `regret` this, you're with a winner.
+- The only thing i `regret` is the day i met you.
+- There's not a day goes by i don't feel `regret`.
+- Then we both live to `regret` it, - still jammed.
+- You must `regret` having had the invitation sent.
+- You're gonna `regret` it for the rest of your life.
+- He told me he didn't want to leave me with `regret`.
+- I don't `regret` the eighteen years we were married.
+- Norther, do you ever `regret` not making it to paris?
+- I just don't want you to do something you'll `regret`.
+- She's probably just... shove your `regret` up your ass.
+- I `regret` that i must leave you here, m' lord, m' lady.
+- You're just gonna do something you'll `regret`... hey...
+- I sure as hell don't `regret` missing that damn game.
+- I landed here and i've never had a day of `regret` since.
+- When you `regret` your sins, but not because you love god.
+- I `regret` we have no servants to show you out, herr salieri.
+- When you die you're going to `regret` the things you don't do.
+- Then i will go back in time... and i won't feel `regret` anymore.
+- My only `regret` is that i was never able to be out there with you.
+- Better watch yourself claude, before you say something you `regret`.
+- I don't `regret` givin' up couseling for six years when she got sick.
+- It has no history books... it has no knowledge of sorrow or `regret`.
+- The one thing in life that i definitely don't `regret`...is the choice.
+- And i can get there... did you ever `regret` we can't let her have this.
+- I have regrets will, but i don't `regret` a singel day i spent with her.
+- Bellamy, octavia's not joking you are going to `regret` that, little bitch.
+- There are some things, my dear conway, i deeply `regret` i may not discuss.
+- If that plane leaves the ground and you're not with him, you'll `regret` it.
+- You go back to that goddamn beach, i swear to god i'll make you `regret` it.
+- I apologize to this body for his appointment--i `regret` i had ever known him.
+- A famous man once said -- there is no worse `regret` then a temptation resisted.
+- I don't `regret` being by her side for the last two years when things got real bad.
+- Please...this solves nothing...please.... oh, trash baby, you're gonna `regret` this.
+- Oh you won't `regret` it, young girls don't forget it, lost in their own wilderness ...
+- That it hadn't "worked for him" for quite a while... you know what i `regret` the most?
+- ♪ they're gonna `regret` it, though, big time, when they don't get to share in my glory.
+                 

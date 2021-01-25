@@ -1,0 +1,83 @@
+---
+title: "humor in a sentence | humor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "humor"
+---
+- I don't do drug `humor`!
+- Don't fucking `humor` us.
+- `Humor` me with specifics.
+- A dash of american `humor`!
+- That's his idea of `humor`?
+- Classic aggravation `humor`.
+- Sorry, occupational `humor`.
+- He has a sense of `humor`.
+- It pays to `humor` the insane.
+- There's that sense of `humor`.
+- You're sick, i'll `humor` you.
+- I'll give you a little `humor`!
+- I don't see the `humor` in that.
+- I don't see the `humor` in this.
+- Somebody must be in good `humor`.
+- You guys have a sense of `humor`.
+- I'm glad you find `humor` in this.
+- Do you get any of my witty `humor`?
+- He doesn't respond well to `humor`.
+- He had that funny sense of `humor`.
+- I can be cool, too... with `humor`.
+- Pretend you like me and `humor` me.
+- ...an attempt at `humor`, i suppose.
+- The big one has no sense of `humor`.
+- Adam...dumb question, but `humor` me.
+- I hate a man with a sense of `humor`.
+- You got a wicked sense of `humor`.
+- I admire a man with a sense of `humor`.
+- I don't get the `humor` of that remark.
+- Maybe you haven't any sense of `humor`.
+- That was my sense of `humor`, everyone.
+- This part removes the sense of `humor`.
+- I don't have a sense of `humor`, either.
+- Is this your idea of `humor`, my friend?
+- Oh, this prick's got a sense of `humor`.
+- ... you've quite a sense of `humor`, mr.
+- You want a popsicle, go to good `humor`.
+- But it sure has a nasty sense of `humor`.
+- Preserve a sense of `humor` at all times.
+- Not a real fan of halloween `humor`, will.
+- You want to see something really `humor`?!
+- Death didn't improve your sense of `humor`.
+- Dad, i never knew you had a sense of `humor`.
+- He's just got a sense of `humor`, that's all.
+- Look, `humor` the old man -- just be careful.
+- You know you used to have a sense of `humor`.
+- Have to give him that, had a sense of `humor`.
+- I like his sense of `humor`, though--you know?
+- Allow me the `humor` of listening to your terms.
+- I'm glad you got your sense of `humor` back.
+- Are you tryin' to do some of that polack `humor`?
+- She has always had a very healthy sense of `humor`.
+- You know, you have a wonderful sense of `humor`, son!
+- Actually, i found him to have quite a sense of `humor`.
+- I'm glad to see you haven't lost your sense of `humor`.
+- Miss mayfield, the `humor` of the situation escapes me.
+- You know, i've always loved your sense of `humor`, susan.
+- I guess i'd say... that he doesn't have a sense of `humor`.
+- Well, at least i'm glad to see you have a sense of `humor`.
+- You know, i have always loved your sense of `humor`, susan.
+- Somebody at burpelson has a very perverted sense of `humor`.
+- Here's what we do: we `humor` him, and we make it dirt cheap.
+- Is that your sense of `humor` or are you tryin' to say somethin'?
+- Hell, you're in great shape, you've got your sense of `humor` back!
+- I hope you haven't lost your sense of `humor` ... did you see them?
+- Yet i am still unable to grasp such a simple concept as `humor`.
+- I find a little `humor` really brightens things up around here, don�t you?
+- My philosophy is if you don't have a sense of `humor`, you're better off dead.
+- Because... because -- i mean -- the english have a broad sense of `humor`, but...
+- However, if you surrender now- spock, you've developed a sense of `humor` after all.
+- Sorry, darling...just thought a little `humor` would loosen us all up...you know?...
+- Junebug has a wonderful sense of `humor`, which is just one of her many genetic gifts.
+- You two ought to start a stand-up act, because you're just wasting your `humor` on me.
+- `Humor`... that is a difficult concept ... it is not logical... that was a little joke.
+- Their tv show is filled with toilet `humor` and bad language and is just complete garbage.
+- Trouble with you, jake, is you have no sense of `humor`.... spade's a garden tool.... what?
+                 

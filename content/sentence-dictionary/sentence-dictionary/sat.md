@@ -1,0 +1,80 @@
+---
+title: "sat in a sentence | sat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sat"
+---
+- I `sat` with them all.
+- I just `sat` and listened.
+- Can i use your `sat` phone?
+- The guy `sat` in my office!
+- You `sat` there for an hour?
+- We `sat` and talked, addison.
+- You ain't even `sat` down yet.
+- I `sat` outside and had coffee.
+- '`sat` about the gist of it, doc?
+- `Sat` whatever the hell you want.
+- What `sat` mean exactly, everett?
+- Ever `sat` on the fifty yard line?
+- You know when you `sat` behind me?
+- I `sat` out here for like two hours!
+- Put the `sat` phone next to the radio.
+- Yes, we `sat` together at bell's square.
+- I just `sat` a <u>dance</u> out with him.
+- It was pulsing on your `sat` frequencies.
+- ♪ jack flash `sat` on a candlestick ♪ no!
+- `Sat` there waiting for mf-13 to come up.
+- So you `sat` it out, that's what you did?
+- She just `sat` there, looking right at me.
+- There's a `sat`-line, here dialling china.
+- You `sat` and talked until it was light...
+- I `sat` behind you we'll have to improvise.
+- Well, i `sat` down for a beer and ka- blewey!
+- Yes i did- i `sat` across from her in a mall.
+- He came in, `sat` down and we worked together.
+- He just `sat` there and let me do all the work.
+- I `sat` down with a pencil and added it one day.
+- I `sat` in the police station crying and crying.
+- I `sat` on a yoga ball and drank cucumber water.
+- Did you see it coming when she `sat` us down here?
+- He goes and sits in the chair where nikolas `sat`.
+- We `sat` in b massive traffic jam under an off-ramp.
+- They `sat` right in the kitchen and said it was fine.
+- They use that band for the aquacade spy-`sat` uplinks.
+- You `sat` in front...i saw you there... you know i am.
+- I `sat` in there with her, i thought, what do i do now?
+- ...a day... you just `sat` around drinking orange juice.
+- `Sat` down with a pretty girl and had an ice cream soda.
+- Well, the last time i was up here, that's where i `sat`.
+- I have `sat` in this room and seen the faces of newcomers.
+- You `sat` on your ass and did nothing, - you had no right!
+- I `sat` down over on the other side, and i watched her.
+- So, siddmartha `sat` and `sat` and `sat` and `sat`, - are you ok?
+- Anthony, he `sat` in the car and watched a 4-11 in progress.
+- He took out his gun and `sat` down to watch his home movies.
+- He went to every game and `sat` in the stands with his glove.
+- You forgetting who `sat` next to you for a thousand missions.
+- I `sat` there for an hour and a half, without moving a muscle.
+- So hauser and i `sat` down and invented you: the perfect mole.
+- She said she'd driven to golden gate park and `sat` by the lake.
+- They always `sat` in the back, so they could wave to each other.
+- I'm gonna find a heavy-duty comm `sat` right now, i need your login.
+- Then, i `sat` there, ricky, twenty-two minutes by the kitchen clock.
+- Once i `sat` on a toilet seat at a truck stop and caught hemorrhoids.
+- I could've `sat` tight for the transport, 'til bob came poking around.
+- Remember when we `sat` on that mob guy, that chef, for like six months?
+- I wondered, as i `sat` there... how many other things i'd forgotten."
+- I guess the little guy `sat` in there, waitin' for his buddy t'come back.
+- Then went too far -- he `sat` there and starts mutilating the centerfold.
+- No, he just `sat` there and counted the seconds until the session was over.
+- Something just never `sat` right with me the second time they destroyed it.
+- That cadaverous-looking yegg who `sat` in front of us, just up and took it.
+- I'm a friend of your daughters; well i `sat` with her yesterday at the mall.
+- I `sat` between them at the bronx zoo benefit -- it was better than seconal.
+- `Sat` there a long time, not moving... and i had to leave, to got to the office.
+- You couldn't have done anything more stupid if you'd `sat` down & tried .. bullshit.
+- ... murderer... you know, we should've `sat` down and had us a little heart-to-heart.
+- He is... you `sat` in that coffee shop across from school-- he looks like a terrific kid.
+- Yah, but that trucoat - we `sat` here right in this room and went over this and over this!
+- Well, i `sat` the boy down, looked him straight in the eye, before we knew it, he was gone.
+                 

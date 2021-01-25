@@ -1,0 +1,107 @@
+---
+title: "nurse in a sentence | nurse example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nurse"
+---
+- Because i'm a `nurse`.
+- I'm not a wet `nurse`.
+- I'm just a `nurse`.
+- Calm yourself, `nurse`.
+- I used to be a `nurse`.
+- `Nurse`, wait a minute.
+- This is `nurse` gerhad.
+- Could've been a `nurse`?
+- I got a `nurse` in mind.
+- Better not be my `nurse`!
+- I'm gonna meet a `nurse`.
+- I'm the head `nurse` here.
+- O honey `nurse`, what news?
+- She could've been a `nurse`.
+- Death the end of all `nurse`.
+- You're a `nurse`, aren't you?
+- You should go to the `nurse`.
+- Let go, there's a good `nurse`.
+- My daughter-in-law's a `nurse`.
+- Well, sure, a `nurse` is great.
+- Who taught you be be a `nurse`?
+- D'you find the obstetric `nurse`?
+- Dad was noncom, mom was a `nurse`.
+- Oh, but the `nurse`, she went away.
+- Let me speak to the `nurse`, please.
+- Were taking you back to the `nurse`.
+- Yeah, i'm a `nurse`'s aide at mercy.
+- Yes, when you worked as the `nurse`.
+- But i'm miss jessica's `nurse`, alma.
+- I'd like the `nurse` to be here, too.
+- The `nurse` did a very good job, ben.
+- I'll sign those papers - hey, `nurse`!
+- I'm her ballet master and her `nurse`.
+- That when you stopped being a `nurse`?
+- I'm looking for my wife--`nurse` burbank.
+- I � her letter came to me by the `nurse`.
+- Last time they won, dr. j. was a `nurse`.
+- These pecks make terrible `nurse`- maids.
+- They had an obstetrical `nurse` in there.
+- Good `nurse`, god save you and good night.
+- I have to `nurse` my enemy back to health.
+- You don't have to thank me, i'm a `nurse`.
+- John and `nurse` gates are waiting for you.
+- I'm an electrician, not a wet `nurse`, y'know.
+- Now you're helping to `nurse` it back to life.
+- Riding your motorcycle to the `nurse`'s house.
+- O god!--o `nurse`, how shall this be prevented?
+- Don't stop, `nurse`--i think i'm going to faint.
+- Miss price, the other `nurse` that attended you.
+- There was screaming... a `nurse` was choking me.
+- What the hell kind of a `nurse` are you, anyway?
+- Someone's gonna have to `nurse` him through this.
+- Tell the `nurse` when you've got a few free days.
+- The `nurse` called and said you'd be coming home.
+- We don't have a doctor, but we do have a `nurse`.
+- We got a deposition from the obstetrical `nurse`?
+- I'm calling from professional `nurse` quarterly...
+- It's one of the funniest stories -- i'm a `nurse`.
+- Yes, the roving `nurse`... ...of the procedures...
+- `Nurse`, give leave awhile, we must talk in secret.
+- Being a good muslim, a good `nurse` and a good wife.
+- Could've went to the hospital, had a pretty `nurse`!
+- `Nurse`, thou know'st my daughter's of a pretty age.
+- We know that... she's even taken a job as a `nurse`!
+- When the `nurse` bent over him, he did this to her...
+- But i am going to florida and i do have a new `nurse`.
+- But what was that whole story about him and a `nurse`?
+- I was in the `nurse`'s office, cause i had a headache.
+- And all because i had a visit from a very good `nurse`.
+- Yeah, you ain't half so bad looking for a head `nurse`.
+- `Nurse` humphries was checking my prostate this morning.
+- `Nurse`, who's in charge of operating room preparations?
+- Sweet, sweet, sweet `nurse`, tell me, what says my love?
+- But there are limits... yeah, maybe move that `nurse` in.
+- I'm the day `nurse`... how long have you taken care of him?
+- She's the only `nurse` who isn't testifying for the doctors.
+- A little boy that has escaped from his `nurse` and-- tell me.
+- It's two of the letters in my favorite `nurse`'s name, annie.
+- Dr. larch did those things, and `nurse` edna, and `nurse` angela.
+- Uh...the admitting `nurse`... what difference can that make...?
+- Jesus, that old `nurse` sure wants my ass in a sling, don't she!
+- Uh... the admitting `nurse`... what difference can that make...?
+- So we thought we'd take the day off to `nurse` her back to health.
+- But as a `nurse` i can tell you that it won't be long before he is.
+- ...tell them you're dr. somebody...you have to find this `nurse`...
+- You're really... you, are you the one they told me was the `nurse`?
+- ...tell them you're dr. somebody... you have to find this `nurse`...
+- You told me you had a hysterectomy and he ran off with your `nurse`.
+- I saw them walk on water...' they had an obstetrical `nurse` in there.
+- I think a `nurse` named kalarjian is going to choke isabella to death!
+- When i thought of a `nurse`, i thought of someone hard and impersonal.
+- `Nurse`, come back again; i have remember'd me, thou's hear our counsel.
+- I wanted to be a `nurse`... and why, please tell us, would you think that?
+- Somehow, his blanket always looked like a cape, even the `nurse` said that.
+- I can't believe they didn't expel him after what he did to the school `nurse`.
+- My old man was a bus driver, mom a `nurse`--i was sort of born to it, i guess.
+- Shoot, doc, the only one i'm disturbing is that old `nurse` and her fixed ways.
+- The broad has disappeared... we don't have anything from the `nurse` association?
+- Then we check employees and come up with a male `nurse`, hairdresser, whatever...
+- Get somebody else--get a registered `nurse`-- oh, now--that won't do-- that's right.
+                 

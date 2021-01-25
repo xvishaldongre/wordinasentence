@@ -1,0 +1,71 @@
+---
+title: "France in a sentence | France example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "France"
+---
+- The fields of `france`.
+- Good people of `france`!
+- You mean like from `france`?
+- From deauville -- in `france`.
+- Big berthas, shelling `france`.
+- You're on your way to `france`.
+- He was going to paris, `france`.
+- We're fixing to invade `france`.
+- Yeah, french guys from `france`.
+- I said... `france` is your enemy.
+- It feels like you're in `france`.
+- This is still unoccupied `france`.
+- She's in paris, `france`, right now.
+- When i'm not in the south of `france`.
+- Do you remember that summer in `france`?
+- Maybe take may to `france` or somethin'.
+- This isn't germany or occupied `france`.
+- Hey, you know you can't this in `france`.
+- `France` is going to uphold that ownership.
+- They are a gift from the people of `france`!
+- Let them see who's the true king of `france`!
+- Ilio manzetti...former ambassador to `france`.
+- It is against the laws of god, and of `france`.
+- Unoccupied `france` welcomes you to casablanca.
+- His company went to india, mine went to `france`.
+- In `france` it has caused nothing but bitterness.
+- You know that `france` has recognized the soviet.
+- He is very funny and quite well known in `france`.
+- I saw `france`, and africa, half of south america.
+- Now, precisely what part of `france` are you from?
+- On january 1st, 1814, `france` itself was invaded.
+- You�re a long way from home... europe... `france`.
+- _ - she lived in occupied `france` down here, i do.
+- The new beaujolais' come out in `france` next week.
+- I know that to love you is treason against `france`.
+- This is from a scientist in `france`, madame sconce.
+- We recruit from scotland for our armies in `france`.
+- This fella nicoli's got a record in `france`, walter.
+- I managed to get the president of `france` on the phone.
+- It should be enough to remind you `france` is the enemy.
+- On december 2, 1804, napoleon was made emperor of `france`.
+- But my revelations were for the king of `france`, not for you.
+- There was blue beard in `france` -- jack the ripper in london.
+- All `france` is aghast at this book, yet you've not heard of it?
+- Too bad, man, that blows my chance to be ambassador to `france`.
+- Do you know of any reason why he might have wished to leave `france`?
+- This is `france`, you gotta have french..... god go with you, sister.
+- For the same reason, herr chamberlain, that it was banned in `france`.
+- I don't care if you're from `france` or venus... just take me with you.
+- Tell her you're on your way to `france` and will be back in four weeks.
+- With all due respect, madame, all `france` is familiar with your husband.
+- Even the pope himself does not know who leads the jesuit order in `france`!
+- I contacted ernie roman's manager, he's fighting in `france` the same week.
+- England does not protect me and does not war against `france` on our account.
+- If you asked him why he left `france` i bet he couldn't name one good reason.
+- Tell you what i will do--bet you i find that bracelet before we hit `france`.
+- That is also true, except for one destination, to return to occupied `france`.
+- And something like three-fourths of `france`'s vineyards lost their production.
+- My dear talleyrand, none of the kings of europe bear any friendship for `france`.
+- I mean, with half of `france` in the hands of the english, what have i got to lose?
+- Nevertheless... jeanne has done so much for us... for the sake of `france`, charles.
+- She uses us to war against `france` on her own account... of greed for land and furs.
+- Yet, i cannot break the terms of the capitulation and sully the lilies of `france`...
+- For what i am trying to tell you is that i am the governor general of jesuits in `france`.
+                 

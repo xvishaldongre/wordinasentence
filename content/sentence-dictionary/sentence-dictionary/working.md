@@ -1,0 +1,107 @@
+---
+title: "working in a sentence | working example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "working"
+---
+- Dave -- i'm `working`.
+- Dialysis is `working`.
+- He's `working` for us.
+- I'm `working`, bandit.
+- I'm `working` on it...
+- I'm `working` on that.
+- Or `working` an angle.
+- She's still `working`?
+- Still `working` on it.
+- This is not `working`.
+- We're still `working`.
+- We're `working` here!!
+- We're `working` on it.
+- Yeah you're `working`.
+- You're `working` late.
+- How's it `working`?
+- I'll be `working` late.
+- I think it's `working`.
+- Say, is maya `working`?
+- Viagra ain't `working`.
+- We're `working` analog.
+- Why isn't it `working`?
+- A flaw i'm `working` on.
+- Already `working` on it.
+- I've been `working`.
+- But i'm `working` on it.
+- I'm just `working` here.
+- I'm only `working` here.
+- Is not `working` at all.
+- I've been `working` out.
+- No `working` girls here.
+- Okay, this is `working`.
+- Only when i'm `working`.
+- Well it's not `working`.
+- We're `working` digital.
+- We're `working` on that.
+- `Working` at woolworths.
+- `Working` with leonardo.
+- Been `working` on a poem.
+- But he's `working` on it.
+- But i'm `working` on him.
+- He was `working` a.r.v.n.
+- I'm `working` on it here.
+- I need to keep `working`.
+- It's still not `working`!
+- It's `working` for elvis.
+- So i'm `working` on that.
+- Sorry, i'm `working` now.
+- The phones are `working`?
+- This is a `working` ship.
+- This isn't `working` out.
+- What, `working` security?
+- Who're you `working` for?
+- Why isn't this `working`?
+- `Working` for television?
+- `Working` for unicef now?
+- `Working` on it now, sir.
+- Your tears are `working`.
+- Been `working` for willie.
+- But i'll get it `working`.
+- I had everybody `working`.
+- I like `working` with you.
+- I mean, are you `working`?
+- I'm still `working` on it.
+- I'm `working` my tail off.
+- I'm `working` on a sketch.
+- I'm `working` the problem.
+- It'll be `working` people.
+- She's `working` with carl.
+- What are you `working` on?
+- What, i'm `working`, what?
+- Who are you `working` for?
+- `Working` the danger zone.
+- `Working` with a dead man.
+- Yeah, well it's `working`.
+- Are your legs `working`...?
+- Are you `working` with her?
+- Do you see me `working`...?
+- He�s `working` for someone.
+- How's it `working`, scotty?
+- If she was still `working`.
+- It wasn't `working` anyhow.
+- Remember the `working` man?
+- We were `working` on china.
+- We were `working` together.
+- Your phone isn't `working`.
+- He's always `working` on 10.
+- I'm a `working` girl, right?
+- I'm a `working` stiff, pops.
+- I'm not `working` on a plan.
+- My key card isn't `working`.
+- Nah, just `working` the job.
+- She�s `working` with renard.
+- Six guys `working` for me...
+- That frank was `working` on.
+- The average `working` stiff.
+- They're `working` on it now.
+- What do you mean, `working`?
+- Why are you `working` today?
+- `Working` the premium leads.
+                 

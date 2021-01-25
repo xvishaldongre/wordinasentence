@@ -1,0 +1,75 @@
+---
+title: "model in a sentence | model example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "model"
+---
+- There goes my `model`.
+- Another `model` citizen.
+- Was it an older `model`?
+- It's an experimental `model`.
+- "kathryn is a `model` child."
+- Now, there was a `model` boy!
+- Neuro charged assault `model`?
+- Cyberdyne systems, `model` 101.
+- It's the juarez cartel `model`.
+- I used to `model` for 'em, why?
+- Most of 'em are late-`model`...
+- I was a successful `model` once.
+- No, you're not `model` material.
+- The `model` who went to harvard?
+- Do you often `model` for glaucus?
+- We want you to `model` for a toy.
+- You know i finished that `model`.
+- The house, antiques, your `model`.
+- Oh, adam, the `model` looks so good.
+- She was a semi- professional `model`.
+- So where is your roommate, the `model`?
+- Let's see if she can get my `model` back.
+- If you do this, i'll be a `model` citizen.
+- The tyrell corporation has a demo `model`.
+- It's the `model` you've been saving up for.
+- The ship is a `model`... as big as this!...
+- You're a good `model` but a shitty actress.
+- I'm his goddamn role `model` for christ sake!
+- The ottos are what i'd call `model` citizens.
+- You know, i used to be a high fashion `model`.
+- I built my first `model` here when i was twenty.
+- I guess it was because i was a `model` prisoner.
+- Maybe i'll trade you in for the younger `model`?
+- We're pretty handy with `model` making, too, eh?
+- I cannot take orders from that underwear `model`.
+- I don't want the vibration to weaken the `model`.
+- Why would being a toy `model` and went to heaven.
+- I think grampa was the `model` for these army men.
+- We can't all be `model` citizens such as yourself.
+- Inside, i have seen- a `model`, only as big as this.
+- That i'd be ready to start the berlin `model` today?
+- I didn't know there was gonna be a `model` after ava.
+- Do you think i'm so senile -- you asked me to `model`.
+- I'll tell ya something: it made me a `model` prisoner.
+- I thought the `model` was something obsolete nowadays.
+- Ok. why did i marry the `model` for the town gargoyle?
+- I just got this motorboat - it's an experimental `model`.
+- Was it exactly the same brand and `model` as defendant's?
+- This `model` comes with abs and dual air bags standard.
+- On account of my schofield `model` smith and wesson pistol.
+- When you make a new `model`, what do you do with the old one?
+- Witnesses say some wacko went judge hunting with a late `model`.
+- You know i -- i went to see the skywire `model` in gary's office.
+- But then i started to realize the `model` was some kind of hybrid.
+- She's got some `model` agency guy coming to dinner tomorrow night.
+- Man in new york wants a 9 millimeter smith and wesson `model` 5946.
+- You had her <u>lie</u> about that... that fancy-boy <u>`model`</u>!
+- But really i want to be a `model` - and i am definitely not sellin'.
+- I mean, think about it -- name one blonde intellectual role `model`.
+- Da vinci's "sforza," an equestrian `model` of a never executed statue.
+- Firing shotguns in griffith park from a late-`model` purple mercury coupe.
+- Well you give me the `model` number of the tent i can order you the poles.
+- I got an invitation to `model` for comme de garcons... you wanna do it with me?
+- She took out some time durin' the night, -- in that old `model`-t -- just went?
+- I had the impression...from the `model`... that the two planets were moving as one.
+- That walker colt blew up in his hand... which was a failing common to that `model`.
+- They wanted me to grow up and become a victoria's secret `model` who marries a rock star.
+- She wears her cheap miserable blouse as though it were the latest `model` by schiaparelli.
+                 

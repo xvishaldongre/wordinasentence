@@ -1,0 +1,107 @@
+---
+title: "gentleman in a sentence | gentleman example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gentleman"
+---
+- You are a `gentleman`.
+- He's a `gentleman` too.
+- Julian is a `gentleman`.
+- What `gentleman`, maria?
+- Aren't you a `gentleman`?
+- Good morning `gentleman`.
+- Well, he's a `gentleman`!
+- You're a real `gentleman`.
+- No `gentleman` caller, doc.
+- This `gentleman` or myself ?
+- You should be a `gentleman`.
+- Lloyd was such a `gentleman`.
+- No `gentleman` would do that.
+- O, he's a lovely `gentleman`.
+- A strange-looking `gentleman`.
+- A `gentleman` would offer water.
+- You say that like a `gentleman`.
+- A `gentleman` has to have a code.
+- It's not a bad deal, `gentleman`.
+- Oh, tom, show this `gentleman`...
+- This `gentleman` can have my room.
+- This `gentleman` warn't like them!
+- Once a week you like a `gentleman`?
+- Do what the `gentleman` says, howard.
+- I always said you were a `gentleman`.
+- To make a `gentleman` out of a tramp?
+- Was that being a `gentleman`, jeeves?
+- The `gentleman` has nothing contraband.
+- Don't tell me you're a `gentleman`, max.
+- I can see you're no `gentleman`-- knots!
+- I don't even know what a `gentleman` is.
+- I thought this `gentleman` was a waiter.
+- Montcalm is a soldier and a `gentleman`.
+- To a handsome, older `gentleman`'s head.
+- Would the `gentleman` please cooperate?
+- The `gentleman` stands guilty as charged.
+- A `gentleman` does not discuss his health.
+- It's pretty clear - i'm not a `gentleman`.
+- Smythe, the - er - `gentleman` is leaving.
+- More of a `gentleman`... is he oily or dry?
+- Something no `gentleman` should be without.
+- A rather formidable kind of `gentleman`, eh?
+- I'm not just a bartender, i'm a `gentleman`.
+- I am still due for one `gentleman` of verona.
+- The `gentleman` is a business partner of his.
+- The `gentleman` thinks a mistake's been made.
+- Why don't you be a `gentleman` and ask rosey?
+- `Gentleman`, when you hear an order, sing out.
+- I don't know what the `gentleman`-- yes, *sir*.
+- I'm sort of a non-`gentleman`'s non- `gentleman`.
+- Well, of course, i'm sure you're a `gentleman`.
+- Come on, `gentleman`... "pre-bicentennial babe?"
+- But, like a `gentleman`, he scorned to apologize.
+- Quite the `gentleman`.. you didn't do that badly.
+- Sir, the `gentleman` does not understand english.
+- Of course the `gentleman` has a major credit card!
+- So you're the `gentleman` in room 796, aren't you?
+- As a `gentleman` i counted on you to help my cause.
+- I'm grieved to keep you or any `gentleman` waiting.
+- The men would like to know who this `gentleman` is.
+- Sirrah, i am as good a `gentleman` as any in ireland!
+- You have my word, as a `gentleman` of fortune -- aye.
+- Anyone see a southern `gentleman` carrying a building?
+- Anyone see a southern `gentleman` carrying a building?
+- I thought a `gentleman` was somebody who owned horses.
+- Show the `gentleman` to the chapel - pew number three.
+- This `gentleman`'s son is in your class, dr. hartdegen.
+- He thinks he's in love with you--and he's a `gentleman`.
+- This `gentleman` seems to be getting a lot of attention.
+- I'm just trying to be a `gentleman`, show some respect...
+- Oh, i would never ask your age in front of a `gentleman`.
+- He thinks that i am a `gentleman` and that you are a lady!
+- Of course you are a `gentleman`, an officer and a `gentleman`.
+- If you'd been a `gentleman` you'd have forgotten all about it.
+- It's, uh... it's in reference to that `gentleman` and my wife.
+- Back home he always did try to act like the colored `gentleman`.
+- Or -- what about the old `gentleman` the other night, mr. faber?
+- You're too much of a `gentleman` -- that's the trouble with you.
+- I'll tell you why... another scotch and soda for the `gentleman`.
+- The `gentleman` is dissatisfied with room number five fifty-nine.
+- The `gentleman` who came to the door -- i don't have a boyfriend.
+- Mr clark brandon an almost `gentleman` of almost complete leisure.
+- Your love says, like an honest `gentleman`, where is your mother?'
+- I shall take the `gentleman` to the third floor guest suite, ma'am.
+- So maybe i could find a nice `gentleman` to take you to the movies.
+- For a `gentleman` who was just found holding a bag full of heroin...
+- You robbed the `gentleman` in two fifty-three, five, seven, and nine.
+- Ladies and `gentleman`, mrs. asian design major herself: caitlin bree!
+- Most imposters are -- i don't believe it -- he was a real `gentleman`.
+- The `gentleman` i'm going to have a chat with did very little spoiling.
+- I might've smelled like a sewer, but you could tell i was a `gentleman`.
+- Or, rather, commodore norrington ... a fine `gentleman`, don't you think?
+- However, i know a very distinguished `gentleman` i could recommend to you.
+- I got a call from a `gentleman` who's going to costa rica, or thereabouts.
+- You know, back in the day, grafting was considered a `gentleman`'s racket.
+- A `gentleman` left a message requesting a lunch, but i assured him... what?
+- You `gentleman` can remain here, or... sir -- we won't leave you behind...!
+- Ladies and `gentleman`, we will not <u>treat</u> him like an old shoe, we...
+- Would the `gentleman` be interested in knowing what those people have to say?
+- Did you mean that, what you said before, or were you just being a `gentleman`?
+                 

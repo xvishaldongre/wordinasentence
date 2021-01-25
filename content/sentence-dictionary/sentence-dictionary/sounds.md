@@ -1,0 +1,107 @@
+---
+title: "sounds in a sentence | sounds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sounds"
+---
+- It `sounds` different.
+- It `sounds` like madi.
+- `Sounds` a lot of run.
+- `Sounds` boring to me.
+- `Sounds` like a loser.
+- `Sounds` like a train.
+- `Sounds` like a virus.
+- `Sounds` like singin'.
+- `Sounds` very "cosmo."
+- `Sounds` very violent.
+- Sure `sounds` like it.
+- That `sounds` like me.
+- It still `sounds` high.
+- `Sounds` like a bummer.
+- `Sounds` like a pirate.
+- `Sounds` like a threat.
+- `Sounds` like the hull.
+- `Sounds` like visitors.
+- That one `sounds` good.
+- That `sounds` charming.
+- That `sounds` familiar.
+- That `sounds` like fun.
+- That `sounds` personal.
+- That `sounds` so final.
+- Well, `sounds` like me.
+- Yeah, it `sounds` lame.
+- A car `sounds` sensible.
+- I know it `sounds` easy.
+- It `sounds` like a plan.
+- It still `sounds` gross.
+- `Sounds` great, swanney.
+- `Sounds` very -- normal.
+- That `sounds` promising.
+- That `sounds` wonderful.
+- The point `sounds` fine.
+- Hey, that `sounds` great!
+- I know it `sounds` crazy!
+- I know it `sounds` crazy.
+- I know it `sounds` silly.
+- It `sounds` like a movie.
+- None of it `sounds` good.
+- `Sounds` like a good one.
+- `Sounds` like my husband.
+- `Sounds` perfectly clear.
+- `Sounds` quite beautiful.
+- That `sounds` like titus.
+- That `sounds` ridiculous.
+- Doesn't `sounds` like him.
+- Nah, `sounds` too "needy."
+- Oh, that `sounds` magical.
+- `Sounds` high, doesn't it?
+- `Sounds` like a fair swap.
+- `Sounds` like a good case.
+- `Sounds` like a good idea.
+- `Sounds` like a plan, red.
+- `Sounds` like a racehorse.
+- `Sounds` like a rough one.
+- `Sounds` like a superhero.
+- `Sounds` more like aids...
+- That `sounds` interesting.
+- That `sounds` like dignan.
+- That's `sounds` fine, sir.
+- This `sounds` threatening.
+- He `sounds` almost perfect.
+- I know that `sounds` crazy.
+- I know that `sounds` weird.
+- I know this `sounds` crazy.
+- Jack `sounds` so ... crude.
+- Now that `sounds` like you.
+- She almost `sounds` scared.
+- `Sounds` better and better.
+- `Sounds` like a good story.
+- `Sounds` like a nice night.
+- `Sounds` like a rough time.
+- `Sounds` like i'll have to.
+- `Sounds` like interference.
+- Tell me about the `sounds`.
+- Ten thousand `sounds` high.
+- That `sounds` clear to you?
+- Crap news, it `sounds` like.
+- I know...it `sounds` insane.
+- It `sounds` like... thunder.
+- Jeez... that `sounds` awful.
+- Right, great, `sounds` good!
+- `Sounds` all stress related.
+- `Sounds` like a big company.
+- `Sounds` like a special guy.
+- `Sounds` like a stall to me.
+- `Sounds` like beverly hills.
+- `Sounds` like they knew you.
+- `Sounds` stupid, doesn't it?
+- That `sounds` made up to me.
+- That `sounds` real good sir.
+- That `sounds` so depressing.
+- That `sounds` so great, man.
+- This band `sounds` terrible.
+- This `sounds` long distance.
+- I know what it `sounds` like.
+- Pink `sounds` like mr. pussy.
+- [ray] `sounds` good, abigail.
+                 

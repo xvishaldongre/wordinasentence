@@ -1,0 +1,107 @@
+---
+title: "fire in a sentence | fire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fire"
+---
+- `Fire` all phasers...!
+- `Fire` up all systems.
+- Full stop and `fire` !
+- Great balls of `fire`!
+- It's the `fire` alarm.
+- Man: hold your `fire`.
+- My god, what a `fire`!
+- Nice to have a `fire`.
+- Started an oil `fire`.
+- That wasn't on `fire`.
+- The `fire`'s gone out.
+- The floor's on `fire`!
+- The genie's on `fire`!
+- There wasn't a `fire`.
+- The sun or the `fire`!
+- What `fire` and music?
+- Yankees are on `fire`.
+- He invented `fire`.
+- Fight `fire` with `fire`.
+- `Fire`'s out, isn't it?
+- He said he'd `fire` me.
+- I'm pissin' `fire` man.
+- I will draw his `fire`.
+- The house is on `fire`!
+- They didn't `fire` her.
+- They didn't `fire` her?
+- They want to `fire` me.
+- And the world by `fire`.
+- Anya died in the `fire`.
+- Indra, hold your `fire`!
+- Is there a `fire`, then?
+- It doesn't catch `fire`!
+- Lucky throw, `fire` boy.
+- The night of the `fire`.
+- White sky was on `fire`.
+- Your feet are on `fire`.
+- All right, i'm on `fire`!
+- Did he die in the `fire`?
+- I'll `fire` you tomorrow.
+- I'm not gonna `fire` you.
+- In a `fire`, as i recall.
+- I ordered to hold `fire`.
+- It smelled of the `fire`.
+- Sir, my leg is on `fire`!
+- So, he didn't `fire` you?
+- You can't `fire` on them.
+- A `fire` which never dies.
+- Cease `fire` in chechenia.
+- `Fire` only on my command.
+- `Fire`, or clear out, ice.
+- `Fire` the whole division.
+- He was killed in a `fire`.
+- Is the building on `fire`?
+- I was playing with `fire`.
+- Lestat escaped the `fire`!
+- Oh, it's a `fire` hydrant.
+- Picture 'ball of `fire`.'"
+- Rabbit, `fire` up the pod.
+- Start a `fire`, something!
+- Trudy, `fire` up the ship.
+- You may `fire` when ready.
+- You -- where's the `fire`?
+- You... you breathe `fire`?
+- A doll's legs catch `fire`.
+- All positions, open `fire`.
+- Emori, `fire` up the radio.
+- `Fire` all ventral phasers!
+- `Fire` up those chat rooms.
+- Halt and catch `fire`, boy!
+- I have a nice `fire` going.
+- I think i started a `fire`.
+- It's a total `fire` hazard.
+- Or set the house on `fire`.
+- Sir, they've opened `fire`.
+- There's been a... a `fire`.
+- You're playing with `fire`.
+- He's callin' council `fire`.
+- He's coming from the `fire`.
+- I'm taking `fire`, let's go!
+- No one's going to `fire` us.
+- No: you're <u>on `fire`</u>!
+- Ride like wild `fire`, jack.
+- Scott, `fire` up the, uhh...
+- They're preparing to `fire`.
+- Wake me if there's a `fire`.
+- But in this case - by `fire`.
+- Even the `fire` eater is sad.
+- How did the `fire` fight end?
+- How long until he can `fire`?
+- I'm trying to start a `fire`.
+- It's one of the `fire` doors.
+- The genie's on `fire`, folks.
+- Twenty, twenty-`fire` pounds.
+- What if it catches on `fire`?
+- You go to the council `fire`.
+- But you can't just `fire` him.
+- Could you believe that `fire`?
+- Did we `fire` those torpedoes?
+- Even the ones that eat `fire`?
+- `Fire` is like a living thing.
+                 

@@ -1,0 +1,107 @@
+---
+title: "but in a sentence | but example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "but"
+---
+- Aye, `but` don't rush.
+- `But` 1, 3, 1, 8, & 5.
+- `But` absolutely true.
+- `But` a fabulous cook.
+- `But` alas poor romeo!
+- `But` also very young.
+- `But` are hurons dogs?
+- `But` -- are you sure?
+- `But` at what a price.
+- `But` be a pal, pally.
+- `But` because you did.
+- `But` can't you see...
+- `But` couldn't you...?
+- `But` don't blame him.
+- `But` enough about me.
+- `But` even a kid lies.
+- `But` everything's ok?
+- `But` have never been?
+- ...`but` he found you.
+- `But` he got you here.
+- `But` he never talked.
+- `But` her name is max.
+- `But` he sent you all.
+- `But` he's interested!
+- `But` he's my brother.
+- `But` he's part of it.
+- `But` hey, no prob ...
+- `But` he�s a good guy.
+- `But`, hildy, i can't.
+- `But` how do you know?
+- `But`, i am in charge.
+- `But` i am right, yes?
+- `But` i am very tense.
+- `But` i can save them.
+- `But` i can't be sure.
+- `But` i can't do that.
+- `But` i chose freedom.
+- `But` i covered it up.
+- `But` i don't have it.
+- `But` i had to end it.
+- `But` i have big news.
+- `But`, i have my ways.
+- `But` i heard him say.
+- `But` i just need one.
+- `But` i like to do it.
+- `But` i looked at him.
+- `But` i'm not gutless.
+- `But` i'm not in this.
+- `But` i'm not invited.
+- `But` i'm still alive.
+- `But` i'm very stoked.
+- `But` i'm your cousin!
+- `But` i read a manual.
+- `But` i saw something.
+- `But` i speak english.
+- `But` it can be risky.
+- `But` it can't happen.
+- `But` it could happen.
+- `But` it has pictures.
+- `But` i think this is.
+- `But` it is different.
+- `But` it's all you do.
+- `But` it's bad enough.
+- `But` it's impossible.
+- `But` it's not enough!
+- `But` it's not enough.
+- `But`, it's not is it?
+- `But` it's not, jimmy.
+- `But` it's 'ok'... oh.
+- `But` it's so obvious.
+- `But` it takes longer.
+- `But` it was business!
+- `But` it was horrible.
+- `But` it was my fault.
+- `But` it was too late.
+- `But` i've got school.
+- `But`...i've seen you.
+- `But` later, allright?
+- `But` let's make sure.
+- `But`, lily-- shut up!
+- `But` maybe i'm wrong.
+- `But` maybe that's it.
+- `But`, mr. m. - larry?
+- `But` my life is good.
+- `But` my name is adam.
+- `But` my name's not...
+- `But` never like this.
+- `But` nobody knows it.
+- `But` nobody was hurt.
+- `But` no one else did.
+- `But` no one has keys.
+- `But` not darn likely.
+- `But` not like asians.
+- `But` not me, richard.
+- `But` not that singer.
+- `But` not too ashamed.
+- `But` not to servants.
+- `But` now eat we must.
+- `But` now you're here.
+- `But` oh, no, not you.
+                 

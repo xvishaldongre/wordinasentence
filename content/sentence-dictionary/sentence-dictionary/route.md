@@ -1,0 +1,89 @@
+---
+title: "route in a sentence | route example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "route"
+---
+- Harris, i'm en `route`.
+- Let's walk the `route`.
+- We're en `route` to dr.
+- So whose `route` is this?
+- I took the scenic `route`.
+- Utah's part of my `route`.
+- I took a different `route`.
+- This is the `route` i took.
+- Isn't there another `route`?
+- The sea `route` will take 6.
+- Your `route` is compromised.
+- We're not going that `route`.
+- Which `route` are you taking?
+- You know, on farm `route` 17.
+- That's your other `route`.
+- En `route`, request bravo 410.
+- To open a new `route` to asia.
+- I'm gonna need another `route`.
+- Why don't we take that `route`?
+- You can't take the sea `route`.
+- It looks like a winding `route`.
+- We're en `route` to doctor list.
+- Was `route` 18 your first choice?
+- I-i'll let you read it en `route`.
+- Still, it’s the main `route` in.
+- What about the `route` to the core?
+- We got the travelodge on `route` 41.
+- There's a little place on `route` 190.
+- This is the `route` you're gonna take.
+- What'd you do, take the scenic `route`?
+- You chose the shortest `route`, please.
+- Get the roadblocks set on `route` three!
+- As soon as i've checked over the `route`.
+- This is the `route` approved by triple a.
+- Yeah, and the restaurant's on my `route`.
+- Got a whole `route` planned and everything.
+- I'm taking these guys on the scenic `route`.
+- We're gonna run through the `route` tonight.
+- Who do you think changed the parade `route`?
+- The `route`'s too indirect for anything else.
+- I think you've been taking the scenic `route`.
+- This way, you've got to go the square `route`.
+- A police escort is gonna pick us up en `route`.
+- The final `route` for the railroad is complete.
+- You've been that `route` a little, haven't you?
+- I found a way to re-`route` through the program.
+- Four: she almost died en `route` to the hospital.
+- This isn't the pine tree inn on `route` 81, jack.
+- Might be one of the new putt-putts off `route` 99.
+- If we can't go back, is there an alternate `route`?
+- I had a premonition about the `route` 18 pile up...
+- Maybe it's time to go to the hang-out `route`, john.
+- The best way to get to yankee stadium is `route` 18.
+- The state boys will send word once their in `route`.
+- The anomaly is a wormhole, you sure about the `route`?
+- Meth precursors and the dutch party favors are en `route`.
+- Take a different `route` through camp each time we go out.
+- We're en `route` to you and should be there in three days.
+- I'm gonna be en `route` with a team shortly to relieve you.
+- The most important thing you can have is an escape `route`.
+- When the final float has safely cleared the `route`, - well?
+- We'll have to re-`route` through the port conduit to the apu.
+- We shouldn't go any further till we know the `route`'s secure.
+- I did the 23 hour nose-`route` to the top of el capitan in 6 hours!
+- Like that dad lost our college funds shepherd en `route` to bridge.
+- This was on his sales `route`, so he was through here all the time.
+- That's the only way you can cope with the `route` your life has taken.
+- Assistant deputy director richard low is en `route` with another agent.
+- He forgot all about his `route` and just drove straight to the hospital.
+- But, apparently he comes here every year, always follows the same `route`.
+- General chiang chin-wu, the chinese representative, is en `route` to dromo.
+- We're letting it be known that we're taking the long `route` this one does.
+- Hey, you're a good quarter-horse, kid, but you can't go a `route` of ground.
+- I know...the decision'll clear the way for new planes and `route` contracts.
+- It would take hours to re-`route` the system, and even if i did, i shouldn't.
+- Get online with low, inform him of zero's `route` -- we'll set a trap for him.
+- Send a dcpd blue & white out there, set up a perimeter and tell 'em we're en `route`.
+- Before evening sun sets, i would have his belongings back on `route` 55, that old fox.
+- You do what you have to do, but i�ve called in m. she�s en `route` from london even now.
+- It'll project the `route` through the sewer system onto the inside of the glass as you go.
+- The castle gates were blockaded in the time of the great plague -- it's an escape `route`.
+- We tried the venture capitalist `route` in the valley, but then again who hasn't up there.
+                 

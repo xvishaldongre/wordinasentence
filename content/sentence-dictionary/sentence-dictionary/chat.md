@@ -1,0 +1,56 @@
+---
+title: "chat in a sentence | chat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chat"
+---
+- Time for a little `chat`?
+- We'll `chat` again, then.
+- Did you just say "`chat`?"
+- Fire up those `chat` rooms.
+- This is a fugitive `chat` room.
+- Best time for banal chit-`chat`.
+- Well, i'm off to the `chat` rooms.
+- Its my idea of a man-to-man `chat`.
+- We're just gonna `chat`... for now.
+- I just had a nice `chat` with cecile.
+- I'm so glad we're having this `chat`.
+- Well, i can't talk though -- "`chat`?"
+- What about the `chat` rooms themselves?
+- A quiet little `chat` between gentlemen.
+- I appear to be in the wrong group `chat`.
+- And we can have a little `chat`... please.
+- Just, you know, to `chat` a little, maybe.
+- I am not forgetting your last brief `chat`.
+- Nope - just came by to `chat` are you lost?
+- I think it's his idea of a man-to-man `chat`.
+- Okay, look, she's trying to video `chat` me now.
+- Come on down, let's `chat`.. yeah...pretty gross.
+- The `chat` room isn't open for another five days.
+- One of the top in the country on some `chat` room.
+- Really wish i could `chat`, but i can't so, later.
+- I got into a `chat` room with someone named mydick.
+- Nice to `chat` though bernie - always a subtle joy.
+- We'll have a brief `chat` and he'll finish the yard.
+- Well, we have had a lovely little `chat`, haven't we?
+- You really want to make banal chit- `chat` like that now?
+- But certainly, you're not here to `chat` about my hobbies.
+- I have a few people here, i can't really `chat` right now.
+- Well, i wouldn't mind a quick `chat`, if you got the time.
+- Oh, i just had the <u>nicest</u> `chat` with ms. dumptruck.
+- Eh ... you're a bit old for that sort of `chat`, aren't you?
+- I'd love to stay and `chat`, but i've got to get back to work.
+- Murman and imelda had been slipping into a private `chat` room.
+- You just fucking said "`chat`," that is so -- what are you now?
+- Look, i'm real tired and i'm not interested in fucking chit-`chat`.
+- The gentleman i'm going to have a `chat` with did very little spoiling.
+- This won't be an' interrogation, just a... friendly `chat` to kill time.
+- I read her postings on the horror movie `chat` boards and fell hopelessly.
+- Technically, anyone in a `chat` room can be traced back to a screen address.
+- `Chat` jargon for moving from fantasy to real victims: "i went live last month."
+- Log onto aol, flirt with some married men, head into a private s&m `chat` room .
+- Well, look - what' we gonna do next time -- have a nice long `chat` in the parlor?
+- They don't know how to crack these secret `chat` rooms -- i'll relay this to ciiac.
+- I was having a little `chat` about you just this afternoon -- with our mister duffy.
+- Boy friends of rose, `chat`'s what they were, and why shouldn't she have boy friends?
+                 

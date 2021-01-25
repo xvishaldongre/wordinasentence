@@ -1,0 +1,89 @@
+---
+title: "Luke in a sentence | Luke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Luke"
+---
+- But you're not `luke`.
+- Later for you, `luke`.
+- What you mean, `luke`?
+- Love, cool hand `luke`.
+- You can call me `luke`.
+- We've got to find `luke`.
+- You go on, master `luke`.
+- `Luke`, can i talk to you?
+- `Luke`, something's wrong!
+- `Luke`... what time is it?
+- `Luke`, are you alright?...
+- `Luke`, run away, far away.
+- `Luke`'s got a point... ...
+- They're reasonable, `luke`.
+- You was eyeballin', `luke`.
+- Cool hand `luke` a salesman?
+- `Luke`, don't talk that way.
+- ... `luke`, you must not go.
+- That's our `luke` out there.
+- Now don't get jittery, `luke`.
+- Oh, that's mah darlin' `luke`.
+- You are the last jedi, `luke`.
+- What you talkin' about, `luke`?
+- Those are `luke`'s and mine.
+- `Luke`, you got to listen to me.
+- You cannot hide forever, `luke`.
+- You got your mind right, `luke`?
+- `Luke` ... you are the only hope.
+- We don't have a chance, `luke`...
+- You cut that up fer lunch, `luke`.
+- I love `luke`, i love the children.
+- Bury your feelings deep down, `luke`.
+- He found him in a junk pile ... `luke`!
+- I am `luke` starkiller at your service.
+- Doesn't it look that way to you, `luke`?
+- We'll git that bastid, cool hand `luke`.
+- Well... let me tell you, i'm not `luke`.
+- Your `luke`'s got more guts than brains.
+- `Luke`, you run again and we'll kill you.
+- That's not the country `luke` fought for.
+- This is a dangerous time for you, `luke`.
+- You bet it is ... and `luke`'s out in it.
+- You're no longer so reckless now, `luke`.
+- I hope `luke` made it to the fleet all right.
+- I'm `luke` starkiller, guardian of the bendu.
+- Supposin' you was to backslide on us, `luke`?
+- This `luke` was a pretty good guy, wasn't he?
+- We don't need you to solve our prob... `luke`.
+- But you've been "`luke`" since you were a baby.
+- I guess you haven't told `luke` about that yet.
+- Sometimes i wisht people was like dogs, `luke`.
+- `Luke` starkiller here is leading our expedition.
+- I'm cold ... so cold ... you must survive, `luke`.
+- I'm sure `luke` wasn't on that thing when it blew.
+- I'll tell you, `luke`, and this is between you and me.
+- `Luke`, i will not lose you to the emperor, as i lost vader.
+- Your last one left you when the cops came... and now `luke`.
+- Because when i was little, i had a fat cousin, cousin `luke`.
+- I would hate to see master `luke` develop a short circuit ...
+- "`luke`, at that speed will you be able to pull out in time ?"
+- That ole box collapse and fall apart before `luke` calls quits.
+- You gonna get used to wearing them chains aftera while, `luke`.
+- I can't... it's the... daddy, that's `luke`, can you let him in?
+- We're diggin' and dyin' but our boy `luke` is lovin' and flyin'.
+- We set an ap... we've broken a lot of promises, haven't we `luke`?
+- `Luke`, i'm hopping you can help him see the reality of the situation.
+- Have you told `luke` and the ki... hey, any help you need, we'll cover.
+- `Luke` trumbo... `luke` was a good man who gave his life for his country.
+- She is looking for master `luke`, and assumed he would be here with you.
+- So i have to tell you something in confidence... `luke`'s depo ran late.
+- Go tell your precious princess ... `luke` is dead unless he shows up soon.
+- `Luke`, use the force only for knowledge and for defense, not as a weapon.
+- How do you feel about `luke`'s suggestion that it was just the old plumbing?
+- You've got that room downstairs with the treadmill `luke` never uses anyway.
+- This must be a record of the children who died at the mills, like `luke` said.
+- They want to be with you `luke`, they go to your house to be with their father.
+- Is that because you were masquerading as `luke` trumbo while you were in lawson?
+- `Luke`, you probably don't remember me, roscoe fitts, i'm the grocer here in town.
+- Yore old man, `luke`, wasn't much for stickin' around, but damn it he made me laugh.
+- Look, i want to talk to you about...well...`luke` said to ask you... what did you do?
+- `Luke` was in the shower this morning and annabelle sort of walked in without knocking.
+- They caught up with me right after we split up and they was aimin' to kill you, `luke`.
+                 

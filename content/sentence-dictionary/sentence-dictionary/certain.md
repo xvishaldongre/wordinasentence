@@ -1,0 +1,107 @@
+---
+title: "certain in a sentence | certain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "certain"
+---
+- I cannot be `certain`.
+- He had to be `certain`.
+- I am `certain` of that.
+- She wasn't `certain`...
+- We have to be `certain`.
+- How can you be `certain`?
+- You're `certain` of that?
+- Are you `certain` of this?
+- How can you be so `certain`?
+- We're not `certain`... deal.
+- What makes you so `certain`.
+- You're `certain` he's lucid?
+- Are you absolutely `certain`?
+- Nothing really for `certain`.
+- We do things a `certain` way.
+- You're `certain` on mitchell?
+- I'm quite `certain` you can't.
+- You're `certain` about tomorrow?
+- But of d'artagnan i am `certain`.
+- But you always seem so `certain`.
+- I'm not `certain` about... great.
+- You seem to `certain` she's dead.
+- I can,t get over a `certain` hump.
+- What makes you sound so `certain`?
+- `Certain` photographs guarantee it.
+- I guess it lacks a `certain` style.
+- I'm `certain` she's considering it.
+- I'm glad you're so `certain`, alex.
+- Is to be saved from `certain` doom.
+- You choose a `certain` way of life.
+- All that's `certain` is that we die.
+- I can't be `certain` that you would.
+- I don't think we know for `certain`.
+- I'm not `certain`, mister president.
+- I'm not entirely `certain`, captain.
+- Is if you found a `certain` treasure.
+- ...i'm `certain` it must've happened.
+- So can radiation, `certain` chemicals.
+- They stick mostly to `certain` breaks.
+- We are virtually `certain` it isn't...
+- I'm really backward in `certain` areas.
+- I told you we don't know for `certain`.
+- Are you `certain` this is the right way?
+- But i expect a `certain` amount of pain.
+- I'm not asking you to say for `certain`.
+- It depends to a `certain` extent on him.
+- That you might ask -- i'm not `certain`.
+- There are `certain` punitive measures...
+- You might say it has a `certain` wisdom.
+- You're pretty sure, or you're `certain`?
+- I just got to have `certain` information.
+- Which it's pretty `certain` you wouldn't.
+- You stay `certain`, `certain` in your ways.
+- Are you so `certain` you are away from it?
+- I mean, i lost track at a `certain` point.
+- I've never been more `certain` in my life.
+- That's why `certain` movies never got old.
+- Well, he has to rule out `certain` things.
+- `Certain` friends of yours were named also.
+- `Certain` moves, however, call for a sword.
+- I've never been more `certain` of anything.
+- Of course i did instigate `certain` events.
+- This business requires a `certain` finesse.
+- What gives you that `certain` satisfaction?
+- You have a `certain` modest charm yourself.
+- Death is `certain` if you enter, beware.
+- But first we must have `certain` assurances.
+- You lend a `certain` air of respectability.
+- _ but i got to say, i'm fairly `certain` hey!
+- Are you `certain` she's not with king westley?
+- Beloved, are you `certain` he still wants you?
+- But i got to say, i'm fairly `certain` i know.
+- I remain `certain` that becca went into space.
+- We had given up digging in a `certain` barrow.
+- You're `certain` you can find the way back?
+- But, i'm `certain` it's nothing to worry about.
+- `Certain` ladies make that very easy... vivian.
+- I risk nothing, for i am `certain` to kill him.
+- Not every book, but `certain` ones are flagged.
+- That's right, dude, 1 % `certain`-- no, walter!
+- Men he knew he could march into `certain` death.
+- There's a `certain` amount of information there.
+- He claims a `certain` skill at handling firearms.
+- I feel `certain` my condition runs in the family.
+- Inhibiting `certain` neural pathways from firing.
+- They only want one `certain` kind of black comic.
+- We're 98 per cent `certain` mitchell was murdered.
+- Except, ed, in `certain` situations, it's not, see?
+- You can't know for `certain` that he won't see you.
+- The freeway's faster, but lacks a `certain` majesty.
+- The point is there's a `certain` art to the process.
+- They found my psych results fit a `certain` profile.
+- When you get to a `certain` age, you start wondering.
+- But you are <u>`certain`</u> that he died by drowning.
+- He's been passing `certain` remarks that i don't like.
+- I'm `certain` father will be in better humors by then.
+- I mean, a guy like bubber, he's a `certain` kinda guy.
+- I've never been more `certain` of anything in my life!
+- Perfectly `certain`, because i shall make him tremble.
+- Charenton stands to profit from us both, i'm `certain`.
+                 

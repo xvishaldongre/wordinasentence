@@ -1,0 +1,107 @@
+---
+title: "meant in a sentence | meant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "meant"
+---
+- I `meant` on the post.
+- I `meant` what i said.
+- `Meant` lord or ruler.
+- That's what i `meant`.
+- I `meant` biologically.
+- ...i `meant` your food.
+- I was `meant` for this.
+- That's all you `meant`?
+- This was `meant` to be.
+- Actually, i `meant` you.
+- I knew what you `meant`.
+- I know what you `meant`.
+- I `meant` about my idea.
+- I `meant` he's a doctor.
+- I `meant` no disrespect.
+- It wasn't `meant` to be.
+- Nobody `meant` any harm.
+- That was `meant` for me!
+- It `meant` something.
+- I just `meant` stay cool.
+- I `meant` something else.
+- I `meant` to call... hey!
+- It's `meant` for one man.
+- It's `meant` to be right?
+- You were `meant` to help.
+- He said no--he `meant` no.
+- I just `meant` in general.
+- I `meant`, kill everybody.
+- I thought you `meant` him!
+- Like it was `meant` to be.
+- Not `meant` for transport.
+- That's not what i `meant`.
+- I `meant` every word of it.
+- I never `meant` to imply...
+- Is it `meant` to humble me?
+- It `meant` the world to me.
+- She `meant` nothing to you!
+- That's not what he `meant`.
+- Then that's what i `meant`.
+- Barnes ain't `meant` to die.
+- But it's `meant` a lot more.
+- But `meant` her moving here.
+- I never `meant` to hurt you.
+- I thought it `meant` father.
+- It's `meant` to be clinging.
+- Said it `meant`... good boy.
+- Say it as if you `meant` it.
+- That's not how i `meant` it.
+- Alotta `meant` nothing to me.
+- I knew they `meant` business.
+- I `meant`, you just got here.
+- I `meant` you're into ghosts.
+- It `meant` the world to them.
+- ...that's not what i `meant`.
+- That was not `meant` for you.
+- You `meant`... yes, i'm fine.
+- Could be `meant` as a warning.
+- I know what it `meant` to you.
+- I `meant` to tell you..see ya.
+- No, i `meant` lose his family.
+- No, that's not what i `meant`.
+- So last night `meant` nothing.
+- That's exactly what i `meant`.
+- We are `meant` to be together.
+- We `meant` only to please you.
+- He said it and he `meant` it...
+- I knew exactly what he `meant`.
+- I `meant` all the choices here.
+- I `meant` the other way around.
+- I `meant` to, like, arrest you.
+- It's what i `meant` to bellamy.
+- No, i just `meant`... trust me.
+- No, i `meant` i'm presbyterian.
+- The rest `meant` nothing to me.
+- ...i `meant` the leopard skin...
+- I can only assume he `meant` you.
+- I hope that's not `meant` for me.
+- It's `meant` to make us stronger.
+- They could see that i `meant` it.
+- This is how it was `meant` to be.
+- Wendy and i--we're `meant` to be.
+- We were `meant` to be here, john.
+- What this whole trip has `meant`.
+- I never `meant` to hurt you, maya.
+- I thought that's what you `meant`.
+- No, no, that's not what i `meant`.
+- That isn't exactly what i `meant`.
+- That's not what i `meant`, dignan.
+- The lord `meant` that job for two!
+- I `meant` what i said: join us.
+- Even if it `meant` you being alone.
+- I know how much she `meant` to you.
+- Not even when it `meant` something.
+- You know that's not what i `meant`!
+- You `meant` -- like a trade secret?
+- Is that all my story `meant` to you?
+- I swear i never `meant` to hurt you.
+- Octavia, that is not what i `meant`.
+- I `meant` me, my son and my daughter.
+- I never `meant` it to become my life.
+                 

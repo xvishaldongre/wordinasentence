@@ -1,0 +1,107 @@
+---
+title: "given in a sentence | given example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "given"
+---
+- He's `given` it to us.
+- I have `given` it back.
+- That's his `given` name?
+- ...`given` the situation.
+- Nothing is `given` to me.
+- After all i'd `given` her.
+- It is earned, not `given`.
+- Power you have `given` me.
+- We've `given` you the man.
+- They've `given` me an idea.
+- He's `given` you everything.
+- I have been `given` nothing.
+- Why were you `given` notice?
+- I'd nearly `given` up on you.
+- I've `given` them his profile.
+- Mr. scott, the word is `given`.
+- Have you `given` it any thought?
+- He's `given` you what you asked?
+- Swear it, ethan?...`given` word?
+- That's what you `given` me, see?
+- The earth must have `given` way.
+- The word is `given`: warp speed.
+- I'd just about `given` up on you.
+- Trust is earned not `given` away.
+- You've `given` me the confidence.
+- You've `given` them every- thing.
+- You've never `given` me anything.
+- All the clues you've been `given`.
+- But only what it has been `given`.
+- He's `given` it to the champ here.
+- It's not your `given` name, right?
+- I've `given` up angles for awhile.
+- Ruby was just `given` a new trial.
+- Allah has `given` you a great gift.
+- I could have `given` you the world.
+- I should have `given` him a choice.
+- I shouldn't have `given` it to you.
+- I've `given` myself a real whopper.
+- I've `given` up writing altogether.
+- I've never `given` it much thought.
+- Someone had to have `given` him it.
+- Toons aren't `given` imperfections.
+- We should be `given` all the facts.
+- He's `given` it to sir te as a gift.
+- I've never been `given` a fair shot.
+- I would have `given` her everything.
+- So, have you `given` him "some" yet?
+- You've been `given` a second chance.
+- You've `given` me good usable intel.
+- Farley's `given` you that chance.
+- I'd `given` up trying to find anyone.
+- I haven't `given` you much of a life.
+- Someone must have `given` it to them.
+- They were `given` to me by my mother.
+- You ever `given` an injection before.
+- Bart simpson has not `given` the "gg."
+- Exactly why it should be `given` away.
+- I've just been `given` a shift change.
+- Tapert's `given` us a full confession.
+- We've been `given` a gift here, honey.
+- You've `given` me nervous indigestion.
+- I've `given` my whole life for you.
+- How many of these have you `given` out?
+- I'm sorry - i was `given` this address.
+- I've `given` it alot of thought, major.
+- The emperor has `given` him permission.
+- Those are the options she's `given` us.
+- And we weren't being `given` the credit.
+- And you've already `given` me something.
+- ♪ `given` in the light ♪ you were right.
+- I feel we have all been `given` weapons.
+- I've `given` this a lot of thought, sir.
+- I've `given` you the most well-done cut.
+- I thought you'd `given` up on my picture.
+- This excitement's `given` me an appetite.
+- Use the gifts that allah has `given` you.
+- `Given` all that's happened, i understand.
+- Has my daughter `given` you an answer yet?
+- I'm `given`...hold on, i'm `given` a policy.
+- It's not like you ain't `given` me reason.
+- I've `given` the coordinates to chewbacca.
+- I've `given` you no word to keep, admiral.
+- Respect is earned, greenly, never `given`.
+- But it's only `given` out every four years.
+- I mean, `given` their situation - aye, sir.
+- I've `given` you gallons of free will here!
+- Vader has `given` you to the bounty hunter.
+- You've been `given` a chance to start over.
+- Hell, i would've `given` it to you for free.
+- It's not like you've `given` me much choice.
+- After all, we're `given` life to find it out.
+- They will be `given` the burial they deserve.
+- This was `given` to my sixth host, just gone.
+- I am... grateful for what you have `given` me.
+- I guess she hadn't completely `given` up hope.
+- They wouldn't have `given` up without a fight.
+- We had `given` up digging in a certain barrow.
+- You have `given` up the right to be frivolous.
+- Besides... the information you've just `given`.
+- Firing would only've `given` away our position.
+                 

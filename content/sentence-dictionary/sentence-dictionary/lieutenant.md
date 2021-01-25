@@ -1,0 +1,107 @@
+---
+title: "lieutenant in a sentence | lieutenant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lieutenant"
+---
+- No joke, `lieutenant`.
+- You too, `lieutenant`.
+- Leave me, `lieutenant` !
+- `Lieutenant`, thank you.
+- Okay, `lieutenant` dish.
+- We did it, `lieutenant`.
+- We're not, `lieutenant`.
+- I am `lieutenant` dunbar.
+- `Lieutenant`, am i right?
+- No problem, `lieutenant`.
+- You may go, `lieutenant`.
+- I know that, `lieutenant`.
+- I'll ask the `lieutenant`.
+- `Lieutenant`... air force.
+- Shut it off, `lieutenant`.
+- Since i made `lieutenant`.
+- You may ask, `lieutenant`.
+- Ah, `lieutenant` doolittle?
+- Good evening, `lieutenant`.
+- I missed you, `lieutenant`.
+- Look at them, `lieutenant`.
+- Well, `lieutenant` vitelli.
+- Where are we, `lieutenant`?
+- Better than my `lieutenant`.
+- Is this `lieutenant` dunbar?
+- You heard the `lieutenant` !
+- You tell them, `lieutenant`.
+- Church at ease, `lieutenant`.
+- For the `lieutenant`-comrade!
+- `Lieutenant` jonathan scrimm.
+- `Lieutenant` thomas wickwire.
+- That's a lie, `lieutenant`...
+- That's not all, `lieutenant`.
+- Welcome aboard, `lieutenant`.
+- In you, too, `lieutenant`.
+- Damn you, `lieutenant` toejam!
+- It's about time, `lieutenant`.
+- Nice to see you, `lieutenant`.
+- Remember `lieutenant` orpheus?
+- Simple question, `lieutenant`.
+- Take her in low, `lieutenant`.
+- This is `lieutenant` harding.
+- ...a `lieutenant` james dunbar?
+- Exercise caution, `lieutenant`.
+- I ain't a priest, `lieutenant`.
+- I'm not stalling, `lieutenant`.
+- `Lieutenant`'s bought the farm.
+- That's all i did, `lieutenant`.
+- Where's `lieutenant` barcalow ?
+- You have a `lieutenant` here...
+- You'll ever need, `lieutenant`?
+- Very well, citizen `lieutenant`.
+- We learn by doing, `lieutenant`.
+- Don't you think so, `lieutenant`?
+- He may have a point, `lieutenant`.
+- I'm getting nothing, `lieutenant`.
+- It's not a homicide, `lieutenant`.
+- Let him out of here, `lieutenant`.
+- Lou escobar � he's a `lieutenant`.
+- Mickey c's narcotics `lieutenant`.
+- The bridge is yours, `lieutenant`.
+- What did you expect, `lieutenant`?
+- What do you suggest, `lieutenant`?
+- What's on your mind, `lieutenant`?
+- You heard the order, `lieutenant`.
+- Good morning, `lieutenant` - sorry.
+- So... take her out, `lieutenant`...
+- Everything coposetic, `lieutenant` ?
+- I don't understand it, `lieutenant`.
+- If you will excuse me, `lieutenant`.
+- `Lieutenant` zipp died this morning.
+- The `lieutenant` wants the register.
+- Admiral, this is `lieutenant` saavik.
+- He's playing `lieutenant` dick craig.
+- I'm holding for `lieutenant` beldere!
+- I'm still in the chair, `lieutenant`.
+- It's janitor blake now, `lieutenant`.
+- `Lieutenant`, are you sure it's them?
+- `Lieutenant` pierson, phoenix police.
+- Miss bracken, i'm `lieutenant` exley.
+- That was good headwork, `lieutenant`.
+- You know what they say, `lieutenant`.
+- You'll be a `lieutenant` immediately.
+- Can i ask you somethin', `lieutenant`?
+- `Lieutenant` doolittle, this is talby.
+- `Lieutenant`, i am pleased to see you.
+- That puts you in charge, `lieutenant`.
+- The nite owl was solved, `lieutenant`.
+- You forgot one thing, `lieutenant`.
+- Emmi, this is `lieutenant` david wills.
+- I can't remember offhand, `lieutenant`.
+- Leave the thinking to us, `lieutenant`.
+- `Lieutenant` saavik, you are in charge.
+- Outsiders never withdraw, `lieutenant`.
+- Plot a course for kronos, `lieutenant`.
+- You'll make `lieutenant` inside a year.
+- How about life over death, `lieutenant`?
+- Good job finding the radio, `lieutenant`.
+- I want to talk about `lieutenant` dunbar.
+- I was looking for the `lieutenant` singh.
+                 

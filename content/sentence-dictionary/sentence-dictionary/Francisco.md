@@ -1,0 +1,69 @@
+---
+title: "Francisco in a sentence | Francisco example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Francisco"
+---
+- Back to san `francisco`.
+- This is san `francisco`!
+- Into san `francisco` bay?
+- San `francisco`'s changed.
+- Maybe up to san `francisco`.
+- Moving to san `francisco`.
+- I work out of san `francisco`.
+- It's coming from san `francisco`.
+- I want to try for san `francisco`.
+- He's a san `francisco` private eye.
+- Don't tell me san `francisco`...
+- S. cooper trust, in san `francisco`?
+- She took a flight to san `francisco`.
+- Did you drive up from san `francisco`?
+- He's in san `francisco`, i'm in miami.
+- How did you end up in san `francisco`?
+- I have to get back to san `francisco`.
+- I went to san `francisco` to meet him.
+- If... when we get to san `francisco`...
+- San `francisco`'s a long way from here.
+- What's so important in san `francisco`?
+- I'm in san `francisco` five days a week.
+- You'd have been safe in san `francisco`.
+- My fence in san `francisco` ... 305-4410.
+- I left my heart in san `francisco`... nice!
+- I thought you were living in san `francisco`.
+- Mitch knows lots of people in san `francisco`.
+- So whatta' you going to do in san `francisco`?
+- But i've never fallen into san `francisco` bay.
+- There was this guy he lived in san `francisco`.
+- Well, there's lloyd garroway in san `francisco`.
+- It seems to me that's a san `francisco` exchange.
+- Her father owns a big newspaper in san `francisco`.
+- Miss daniels brought some birds from san `francisco`.
+- So, mccall, how come you ended up in san `francisco`?
+- Greer and goble in the call building, san `francisco`.
+- Something like this: chief of police, san `francisco`.
+- Then you knew mitch in san `francisco`, is that right?
+- What are your orders about this wire to san `francisco`?
+- Tell me, do you share my high opinion of san `francisco`?
+- We bought the last affordable housing in san `francisco`.
+- To begin with, i was bored with my job in san `francisco`.
+- You mean gay old bohemian days of gay old san `francisco`!
+- I'm leonard shelby, i'm from san `francisco` and i'm - teddy!
+- I was seeing quite a lot of him in san `francisco`, you know.
+- Why i've played every theatre from boston to san `francisco`.
+- I'll buy ya the best dinner in san `francisco`...how'd that be?
+- The last time i heard from her she was living in san `francisco`.
+- Some of 'em moved away -- los angeles, sacramento, san `francisco`.
+- He says san `francisco` is just an ant hill at the foot of a bridge.
+- That eddie was dead... ... so i figured i'd stay in san `francisco`.
+- The things a that spell san `francisco` to me are disappearing fast.
+- You can't even get from sausalito to san `francisco` without a lift.
+- I say - your idolatry of margo started in san `francisco`, didn't it?
+- His insurance helped... and there were theaters in san `francisco`.
+- It's lieutenant sam baffert from the san `francisco` police department.
+- They wandered into san `francisco` bay as calves and were brought here.
+- Yeah, but she'll be hitting all that traffic going back to san `francisco`.
+- You don't want to go all the way to san `francisco` in a limousine, do you?
+- I was sort of caught once with a lovely chinese girl out in san `francisco`.
+- There's this guy in san `francisco`, i've made inquiries, everybody says he's the best.
+- After the battle of san `francisco`, look, i don't want your thin mints, all right, kid?
+                 

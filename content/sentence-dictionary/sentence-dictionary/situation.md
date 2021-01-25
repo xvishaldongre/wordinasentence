@@ -1,0 +1,107 @@
+---
+title: "situation in a sentence | situation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "situation"
+---
+- He is the `situation`.
+- We have a `situation`.
+- Gotta `situation` here.
+- Here's the `situation`.
+- What's the `situation`?
+- Improve our `situation`.
+- The present `situation`?
+- This is the `situation`.
+- ♪ we have a `situation`.
+- ...given the `situation`.
+- I got a `situation` here.
+- What is your `situation`?
+- My girlfriend `situation`.
+- So here's the `situation`.
+- We got a `situation` here.
+- How's the food `situation`?
+- It's a pacified `situation`.
+- The `situation` has changed.
+- Unexpected `situation` here.
+- We all know the `situation`.
+- Well what's the `situation`?
+- What's your air `situation`?
+- I'll explain the `situation`.
+- We've got a `situation` here!
+- We've got a `situation` here.
+- White house `situation` room.
+- A `situation` easily remedied.
+- Bit of an awkward `situation`.
+- It is a difficult `situation`.
+- I understand your `situation`.
+- ... my ... social `situation`?
+- Our `situation` is precarious.
+- Why, you know the `situation`.
+- You know about my `situation`?
+- It wasn't the best `situation`.
+- Not in a `situation` like this.
+- What's our weapons `situation`?
+- Just go explain the `situation`.
+- This is a ludicrous `situation`.
+- This is not an easy `situation`.
+- What's the `situation`, leonard?
+- Completely different `situation`.
+- You're closer to the `situation`.
+- Does that clarify the `situation`?
+- Funny `situation`, ain't it, andy?
+- Hey--she's in a tough `situation`.
+- How is your financial `situation`?
+- Now, mack, what's the `situation`?
+- That ought'a help the `situation`.
+- You should admit your `situation`.
+- Our `situation` is most precarious.
+- This is a most painful `situation`.
+- An emergency `situation` has arisen.
+- Hey, cap, we got a `situation` here.
+- I failed to resolve the `situation`.
+- My... ah, `situation` has...changed.
+- Tell someone about your `situation`.
+- This was always a no-go `situation`.
+- We got a rehearsal `situation` here.
+- Frank told me about your `situation`.
+- I'm not happy about this `situation`.
+- It's a buffalo bill-type `situation`.
+- Look, the `situation` hasn't changed.
+- You are in a frustrating `situation`.
+- Good thing in a `situation` like this.
+- It is time to clarify the `situation`.
+- I want to review the iraq `situation`.
+- My outlook on the this `situation` is.
+- The `situation` is critical right now.
+- What seems to be the `situation` here?
+- Guys, we got a vision `situation` here.
+- I just told them the local `situation`.
+- It must be a high priority `situation`.
+- Sorry, but the `situation` has changed.
+- You ever been in a hostage `situation`?
+- You has control over you're `situation`.
+- You're responsible for this `situation`.
+- Ahm, look this is a very odd `situation`.
+- Neal seem to have handle the `situation`.
+- Our `situation` has changed considerably.
+- I'm satisfied with my `situation` for now.
+- Let's upgrade the `situation` to defcon 3.
+- The `situation` is, i'm shot in the belly.
+- We have a full-blown red dawn `situation`.
+- Well, you saved me from a bad `situation`.
+- I just hate to see you in this `situation`.
+- I mean, given their `situation` - aye, sir.
+- Not unusual for someone in his `situation`.
+- Son, i have this `situation` under control.
+- This is a different `situation`, dr. jones.
+- We're heading into a difficult `situation`.
+- What's your assessment of this `situation`?
+- You have to think of it in his `situation`.
+- But we are sorting that `situation` out now.
+- I didn't want to complicate the `situation`.
+- It was quite warranted by the - `situation`.
+- I've assessed the `situation` and i'm going.
+- This is a `situation` that defies judgement.
+- And clearly, this isn't a normal `situation`.
+- Did you straighten out the chair `situation`?
+                 

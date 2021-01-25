@@ -1,0 +1,107 @@
+---
+title: "walk in a sentence | walk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "walk"
+---
+- Can i `walk` you home?
+- Can you `walk` or not?
+- Every time i `walk`...
+- How can i `walk` away?
+- I could always `walk`.
+- I'll `walk` you to it.
+- Is he going to `walk`?
+- Let's go for a `walk`.
+- Take a `walk` with me.
+- Thanks for the `walk`.
+- `Walk` away from what?
+- `Walk` up to the door.
+- Want to take a `walk`?
+- You can barely `walk`.
+- You can't even `walk`.
+- You'll `walk` with me.
+- You're late, i `walk`.
+- You went for a `walk`.
+- Don't `walk` behind me.
+- I could use the `walk`.
+- I'm going for a `walk`.
+- I'm okay--i can `walk`.
+- Let's `walk` the route.
+- Naturally i can `walk`.
+- Now shut up, or `walk`.
+- `Walk` in a gently 'z'.
+- You all let her `walk`?
+- You cast shadow `walk`.
+- As soon as i can `walk`.
+- Can she `walk` or not?
+- He can't `walk`, walter!
+- I'm gonna take a `walk`.
+- I want to take a `walk`.
+- Just to `walk` with you.
+- Let's just `walk`, okay?
+- She must want to `walk`.
+- Should we take a `walk`?
+- So take a `walk`, ben...
+- Take it and `walk` away.
+- They want you to `walk`.
+- Wait -- while we `walk`.
+- Want to go for a `walk`?
+- We'll `walk` the horses.
+- I can't just `walk` away!
+- I just went for a `walk`.
+- It's time to `walk` away.
+- Please don't `walk` away.
+- They `walk` to the table.
+- We just... took a `walk`.
+- We're going for a `walk`.
+- Will i be able to `walk`?
+- You can't `walk` me home.
+- You go back, i'll `walk`.
+- You're just gonna `walk`?
+- You `walk` her to school.
+- A `walk` on the wild side.
+- Close enough to `walk` to!
+- Don't `walk` away from me!
+- He can't `walk` out on us.
+- I'm completing the `walk`.
+- I saw him `walk` her home!
+- I saw him `walk` you home.
+- Just `walk` down that way.
+- Just `walk` down the hall?
+- Some of them can't `walk`!
+- Thought i'd take a `walk`.
+- You can't just `walk` off.
+- You `walk` in and see him.
+- You want me to `walk` you?
+- You want to take a `walk`?
+- All you gotta do is `walk`.
+- I could `walk` out of here.
+- I don't think i can `walk`.
+- I'll `walk` along with you.
+- I think we ought to `walk`.
+- It's just a `walk`-in bank.
+- I've got 20 dogs to `walk`.
+- I `walk` with you to lunch.
+- Just let me `walk` out, ok?
+- Let's just `walk` up there.
+- Must you `walk` so quickly?
+- Want to `walk` to new york?
+- Where's the `walk`-in safe?
+- You are walking the `walk`.
+- You didn't `walk` out here.
+- You `walk` fast, don't you?
+- Because i don't `walk` away.
+- Can you not `walk` so close?
+- He's just been for a `walk`.
+- Is this how i always `walk`?
+- I was just talking a `walk`.
+- Let him fuckin' `walk` back.
+- Let's take a little `walk`.
+- `Walk` slowly to the podium.
+- `Walk` up to the front door?
+- Have him `walk` in backwards.
+- I think i'll go for a `walk`.
+- I would like to `walk` today.
+- May i `walk` with you a ways?
+- So could you `walk` on water?
+                 

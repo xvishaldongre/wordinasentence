@@ -1,0 +1,107 @@
+---
+title: "law in a sentence | law example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "law"
+---
+- Run in with the `law`?
+- It's against the `law`.
+- Is it against the `law`?
+- Lotta `law` around here.
+- The `law`'s on our side.
+- We have broken no `law`.
+- But it *ain't* the `law`.
+- It's almost like a `law`.
+- It's going to be a `law`.
+- It was out to jude `law`.
+- Then you break the `law`.
+- How about `law` and order?
+- My son-in-`law`, carlos...
+- This is the rule of `law`.
+- We're the `law`, ain't we?
+- You know the `law`, hakim.
+- For him, not for the `law`!
+- Kentucky state `law` about.
+- That's the unwritten `law`.
+- You got into harvard `law`?
+- You will respect the `law`.
+- He isn't breaking any `law`.
+- Just graduated `law` school.
+- Let the `law` -- me neither.
+- _ should be above the `law`.
+- Webb's his brother-in-`law`.
+- You broke the rule of `law`!
+- You'd be breaking the `law`.
+- Close the fucking `law` book!
+- I'm simply quoting the `law`.
+- It's a `law` of the universe.
+- It's still against the `law`.
+- It's the `law` that's buying.
+- Must have changed that `law`.
+- Not in the eyes of the `law`.
+- They *are* against the `law`.
+- Another `law` you're breaking.
+- I didn't make the `law`, lady.
+- I'm a fugitive from the `law`.
+- It happens that i'm the `law`.
+- Letter of the `law`, you know.
+- You have the torah, the `law`.
+- I told you about english `law`.
+- My daughter-in-`law`'s a nurse.
+- Your uncle's common-`law` wife.
+- Immutable `law` of the universe.
+- You flunked out of `law` school.
+- You're bound by `law` to follow.
+- He'll still be your son-in-`law`!
+- I can't interfere with the `law`.
+- On the ground, there is no `law`.
+- Who the hell made up that `law`?!
+- Are you in trouble with the `law`?
+- Can't even get the `law` enforced.
+- Hello my would-be ex-son-in-`law`.
+- You missed fourth amendment `law`.
+- First, the `law` is a living thing.
+- How <u>is</u> your mother-in-`law`?
+- My father-in-`law`, he's the owner.
+- My word is the `law`--all powerful.
+- That's against the `law`, isn't it?
+- Then people will respect the `law`.
+- The second `law` of thermodynamics.
+- Try and get it in a court of `law`.
+- Was he a `law` student at the time?
+- As sultan, you may change the `law`.
+- Limped through `law` school instead.
+- So is violating international `law`.
+- You're asking me to break the `law`.
+- Asked me to help her break the `law`.
+- He was convicted in a court of `law`.
+- His son-in-`law` damn near killed me.
+- Let us behave as if my wish is `law`.
+- The `law` says he's gotta do his bid.
+- You wanted by the `law` or somethin'?
+- An officer of the `law`, just like us.
+- Besides, they were breaking the `law`.
+- My father-in-`law` will never give up.
+- Or any other `law` enforcement agency?
+- That shits gotta be against the `law`.
+- We both broke the rule of `law`, okay?
+- Well the `law` is a human institution.
+- You can just make the `law` disappear?
+- Your own `law` decrees it, i'm afraid.
+- But god's `law` is not for us to judge.
+- Finds out his son-in-`law` is involved.
+- His `law` firm, same one that hired me.
+- It's called the `law` of love, asshole.
+- Now, where'd you say you studied `law`?
+- You don't know my mother-in-`law`, boy.
+- I do believe it's against the `law`!
+- I can't believe he's the `law` out here.
+- My brother-in-`law` deep-fried a turkey.
+- Used to be against the `law`, didn't it?
+- Well, to the `law`, you're an accessory.
+- You're ok. when not to follow the `law`.
+- It's back to the `law` of the jungle.
+- Mother, where did you go to `law` school?
+- There's no more `law` and order in malls.
+- Your brother-in-`law` was such a fun guy.
+                 

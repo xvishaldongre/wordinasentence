@@ -1,0 +1,107 @@
+---
+title: "responsible in a sentence | responsible example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "responsible"
+---
+- I am not `responsible`.
+- You're too `responsible`.
+- I'm `responsible` for her!
+- You weren't `responsible`.
+- I feel so... `responsible`.
+- I'm not `responsible`, sam.
+- Somehow i feel `responsible`.
+- I'm not `responsible` for you.
+- I won't be held `responsible`.
+- Who is `responsible` for this?
+- You were `responsible` for her.
+- You know who's `responsible`?
+- I feel `responsible`, mr. welles.
+- I love how `responsible` you are.
+- Parents are always `responsible`.
+- Who's `responsible` for all this?
+- You are personally `responsible`.
+- I'm holding you `responsible`.
+- You think we're `responsible`?
+- He's `responsible` for everything.
+- I ain't `responsible` for no baby.
+- Is she `responsible` for the punch?
+- They're saying he's `responsible`.]
+- What is `responsible` for all this?
+- I'm beginning to feel `responsible`!
+- I'm very much `responsible` for him.
+- You're not being very `responsible`.
+- So i'm `responsible` for the weather?
+- You expect *her* to be `responsible`?
+- You can't feel `responsible` for that.
+- [woman] you were `responsible` for her.
+- How many deaths is he `responsible` for?
+- I'm `responsible` for you now, you know.
+- `Responsible` or not, he blames himself.
+- Yes... so, you'll be `responsible` then?
+- You're `responsible` for this situation.
+- You're so `responsible` it's disgusting.
+- I wish i was never `responsible` for you.
+- I wouldn't feel `responsible` in any way.
+- I'm `responsible` for thousands of people.
+- In order to make a `responsible` decision.
+- Who do you feel is `responsible` for that?
+- ...be `responsible` for you in the streets.
+- It wasn't personal... who's `responsible`?!
+- Like i'm `responsible` for all the smokers!
+- Uh ... `responsible` for the sixth section.
+- You, too, are `responsible` for that death.
+- I am not `responsible` for your assumptions.
+- You've done it again and i am `responsible`.
+- Any man who's `responsible` for other people.
+- I am `responsible` for involving you in this.
+- I'm not `responsible` for all these problems!
+- I'm `responsible` for what happens, you know.
+- People are going to know who's `responsible`.
+- We'll be `responsible` for that, mister worf.
+- I don't want to be `responsible` for his food.
+- I still think he's `responsible` for the smear.
+- He is `responsible` for everything you see here.
+- The carbon-units are not `responsible` for that.
+- You're `responsible` for the external situation.
+- I'm `responsible` for the lives of everyone here!
+- It's me you want, i'm `responsible` for all this.
+- Who is `responsible` for this meshugana behavior?
+- The quail is `responsible` for the quail eggs.
+- [geese honking] and you think we're `responsible`?
+- I'm `responsible` for public safety around here...
+- But couldn't you show the man wasn't `responsible`?
+- I feel personally `responsible` for you being here.
+- I felt somehow i was `responsible` for all of them.
+- I mean, you're `responsible` for building all this.
+- You are `responsible` and you'll always carry that.
+- I mean, i know i'm `responsible` for my own actions.
+- No one is `responsible` for any actions but his own.
+- I will not be held `responsible` for these revisions.
+- Each one of you will be `responsible` for one student.
+- No, it just makes you doubly `responsible` doesn't it?
+- There is no way we can hold you legally `responsible`.
+- I want to know who is `responsible` for this treatment.
+- I got lumbered with the job they were `responsible` for.
+- I know how `responsible`, caring adults parent children.
+- The thing is, i'm `responsible` for the way he's acting.
+- You know i'm `responsible` to your father for your life.
+- But he's not `responsible` for what happened to the ship.
+- I am sick of being the `responsible` one i placed the ad.
+- Marvin gaye is `responsible` for our entire relationship!
+- Who's `responsible` for his pain and suffering this time?
+- Anthony and i are `responsible` for the internal situation.
+- I can't seem to let go of you... we're being `responsible`.
+- You think you're `responsible` for everything that happens.
+- I'm `responsible` for press relations for the flight office.
+- We're not sure... you are `responsible`...what has happened?
+- You are going to be `responsible` for getting me out of this.
+- Something happened tonight and he's sure you're `responsible`.
+- And my mom finds out you three are `responsible`, over and out.
+- But you can't feel `responsible` because she had a car accident.
+- I don't want to be `responsible` for any delayed after- effects.
+- I'm making you all personally `responsible` for his deliverance.
+- There's a lot of lives that i'm `responsible` for... that's all.
+- They're `responsible` for everything that� i don't want it reported!
+- I've isolated a neuro-muscular toxin `responsible` for the paralysis.
+                 

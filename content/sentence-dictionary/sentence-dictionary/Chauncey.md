@@ -1,0 +1,56 @@
+---
+title: "Chauncey in a sentence | Chauncey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Chauncey"
+---
+- He's gone, `chauncey`.
+- Let's blow, `chauncey`.
+- Thank you, `chauncey`...
+- Yes, `chauncey` gardiner.
+- `Chauncey`, there you are.
+- ... good night, `chauncey`.
+- ... you know, `chauncey`...
+- `Chauncey` is so sensitive...
+- Or may i call you `chauncey`?
+- It's all make-up, `chauncey`...
+- Well put, `chauncey` excellent!
+- `Chauncey`, where have you been?
+- Why, that's terrific, `chauncey`.
+- I'm grateful to you, `chauncey`...
+- ... `chauncey`... `chauncey`... good.
+- Reluctant to speak, eh, `chauncey`?
+- Yours, sir - `chauncey` gardiner!
+- `Chauncey`, this is mrs. sophia rowley.
+- `Chauncey`, a name of uncertain meaning!
+- `Chauncey`, i just wanted to wish you well.
+- ... come in, `chauncey` - please come in...
+- Forgive me, `chauncey` - i didn't mean to pry.
+- Oh, `chauncey`, darling... where have you been?
+- Tomorrow, `chauncey`, you will see our gardens.
+- `Chauncey`, up and around this morning, are you?
+- And, please, `chauncey` - don't rush your decision.
+- I'm not hanging around with some dandy named `chauncey`.
+- He's tired, `chauncey` - but he's going to watch you tonight.
+- `Chauncey`, this is mr. dennis watson of the state department.
+- I'll be all right, `chauncey` you go ahead with mrs. aubrey...
+- You're different, `chauncey`... quite different than most men.
+- We have common foes, `chauncey` - kid lawyers and our physician!
+- ... `chauncey`... last night you mentioned an old man, that died.
+- I'm very grateful that you're here, `chauncey`... ... with us ...
+- Shame on you, `chauncey` - you should let me be the judge of that.
+- I've never seen anyone handle the media as well as you, `chauncey`.
+- `Chauncey`, you're always involved in some sort of discussion... no.
+- I'm glad, `chauncey` - i'm glad that you showed so much restraint...
+- So are you, `chauncey` ... ... do you mind my being here, like this?
+- I know you do - you and your television... ... good luck, `chauncey`.
+- Sophie, this is `chauncey` gardiner... and look who you brought with!
+- Mr. president, i'd like you to meet my dear friend, mr. `chauncey` gardiner.
+- I guess it's easier... knowing `chauncey` is here... to take care of things...
+- Kaufman, i'm going to need information on mr. `chauncey` gardiner's background.
+- Now, `chauncey`, i'm afraid you must excuse me - i'm very tired all of a sudden.
+- Why don't you listen to your good friend `chauncey` this is a time to think of life!
+- But you're an exception, `chauncey` - that's what i admire in you, your marvelous balance.
+- I have very few friends, `chauncey`... and benjamin's friends are all quite a bit older...
+- Whose sitting by himself in a room choking his `chauncey` to a bunch of videotapes, graham?
+                 

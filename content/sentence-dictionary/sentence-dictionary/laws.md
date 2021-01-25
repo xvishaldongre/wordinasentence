@@ -1,0 +1,60 @@
+---
+title: "laws in a sentence | laws example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "laws"
+---
+- The `laws` of physics.
+- `Laws` were passed here.
+- Here, there are no `laws`.
+- I haven't broken any `laws`.
+- One of the `laws` of nature.
+- New search and seizure `laws`?
+- I know the `laws` of the night.
+- But the `laws` of physics changed.
+- With weapons, breaking our `laws`.
+- The people that enforce our `laws`.
+- The `laws` and the people of the ark.
+- In accordance to the `laws` of wonkru.
+- "compliant with all `laws` and statutes.
+- Some of the first `laws` of this country.
+- Now you've broken the `laws` of nature!
+- `Laws` don't touch men like thaddeus rains.
+- These `laws` will guide them in your stead.
+- They'll say we broke their `laws` � i know.
+- This thing goes against all natural `laws`.
+- Well, we must keep in mind the dower `laws`.
+- You're violating the `laws` of the universe.
+- You've broken all the `laws` of man, luthor.
+- I have sworn to uphold the `laws` of krypton.
+- They make the `laws`, an' what they say goes.
+- I just pulled over... have i broken any `laws`?
+- I'm subverting all `laws`...gravity...whatever.
+- It is against the `laws` of god, and of france.
+- The governing `laws` of agrabah by royal decree.
+- The `laws` of god are higher than the `laws` of man.
+- Because - monster as i was - i was bound by `laws`.
+- That's all i need, to become one of your in-`laws`.
+- There are unjust `laws` -- as there are unjust men.
+- On a blind tip from bruce wayne -- we do have `laws`.
+- That one of their own in-`laws` laid a dumper on them?
+- Do you know how many different kinds of `laws` we've broken?
+- Cicero was right: was is 'a time when the `laws` are silent'.
+- You don't understand, we have nothing to do with your `laws`!
+- Data indicates that the violent criminals in the group `laws`.
+- Telepathy, telekinesis... - my father didn't write the `laws`.
+- "to enforce the `laws` of my country and protect her interests"?
+- But morals come from the heart, not from rigid rules and empty `laws`.
+- These `laws` have been with us for centuries -- how can you doubt them?
+- ...you break all the `laws` of physics, you think there won't be a price?
+- They don't know it, they don't want it, they got `laws` against the stuff.
+- Calling dropping out of mit to join there are child labor `laws`, you know.
+- But there are `laws` - conventions - tell him you're going to elope with him.
+- There are `laws` we don't understand that bring us together and break us apart.
+- Jerry, listen to me - there are `laws` - conventions - it's just not being done!
+- The `laws`, my `laws`, must bind everyone, high and low, or they are not `laws` at all.
+- A man may need to do that, and find it amusing; but a girl is bound by other `laws`.
+- Or, would you remake our `laws` now that magistrate philipse has given up the ghost?
+- I knew something would happen when they started puttin' up fences and passin' `laws`.
+- My brothers, my brother-in- `laws`, they're always telling me what a goodhearted guy i am.
+                 

@@ -1,0 +1,107 @@
+---
+title: "seriously in a sentence | seriously example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seriously"
+---
+- I'm `seriously` peeved.
+- He takes me `seriously`!
+- `Seriously`, you didn't?
+- We are `seriously` late.
+- But `seriously`, anthony.
+- Mike, `seriously`, don't!
+- Oh, come on, `seriously`?
+- `Seriously`, i have to go.
+- Yeah, but not `seriously`.
+- Dating, `seriously` dating.
+- So... nance... `seriously`.
+- I most `seriously` doubt it.
+- I very `seriously` doubt it.
+- Lucas, come on, `seriously`?
+- `Seriously`, i want to know.
+- `Seriously`, you're amazing.
+- He takes himself `seriously`.
+- `Seriously` bart, i like you.
+- You are `seriously` deranged.
+- He takes his work `seriously`.
+- `Seriously`, don't do it, man!
+- Should we take it `seriously`?
+- Dude, this is `seriously` lame.
+- `Seriously`, i have a code red.
+- Taking it `seriously`... hmm...
+- Ugh... you guys, `seriously`...
+- You're being taken `seriously`.
+- Lucas, come on, `seriously`, no.
+- Marge, don't leave, `seriously`.
+- No, `seriously`... take it easy.
+- The guy is `seriously` not well.
+- You take things too `seriously`.
+- He was hurt, but not `seriously`.
+- So don't take it too `seriously`.
+- You're not taking me `seriously`.
+- You should take this `seriously`.
+- People won't take you `seriously`.
+- `Seriously`, are any of them good?
+- `Seriously`, you deliver the mail?
+- Maybe he takes it very `seriously`.
+- No, `seriously`, how many eclipses?
+- `Seriously` though, think about it.
+- Then start taking them `seriously`.
+- You `seriously` thought let her go!
+- You `seriously` want to go with me?
+- Are you both `seriously` this dense?
+- But `seriously`, phil, look at this.
+- You can't take anything `seriously`.
+- Can we talk `seriously` for a minute?
+- He's `seriously` disturbed... really?
+- I wouldn't take that too `seriously`.
+- Are we `seriously` talking about this?
+- But `seriously`, don't worry about it.
+- Explain everything to her `seriously`.
+- I have to talk `seriously` with you...
+- That was `seriously` warped, veronica.
+- You take yourself way too `seriously`.
+- Because... and, no, `seriously`, don't.
+- `Seriously`, merv, everything is great.
+- That's not the way i... ...`seriously`.
+- Dad, you're not taking this `seriously`.
+- I tend to take these things `seriously`.
+- Oh, `seriously`, "a" for effort, miller.
+- `Seriously`, can we talk about this guy?
+- Can we just get out of here, `seriously`?
+- So, who should i-- taking it `seriously`.
+- You shouldn't always take me `seriously`.
+- You take your money, too `seriously`, bo.
+- He takes his souvenirs pretty `seriously`.
+- I `seriously` doubt that will ever happen.
+- `Seriously`, it's like we're being reborn.
+- `Seriously`, this is, this is really nice.
+- You're not going to take that `seriously`.
+- I `seriously` don't know what got in to me.
+- No one's ever going to take me `seriously`.
+- You shouldn't take it so `seriously`, jean.
+- Don't take it all so `seriously`, ninotchka.
+- I'd take her very `seriously` if i were you.
+- You don't take anything `seriously`, do you?
+- Hey, don't take your disguise so `seriously`.
+- Okay, `seriously`, both you listen ta me now.
+- There is a `seriously` goofy man behind this.
+- There's something `seriously` wrong with her.
+- I'm asking you `seriously`, sarah, a stranger?
+- You can never take yourself `seriously` again!
+- `Seriously`, if you say robin again... - robin.
+- `Seriously`, the '61s are peaking, aren't they?
+- You're not `seriously` considering sending him?
+- ...i mean, doc, the dude is `seriously` deluded.
+- Like, `seriously`, rich people are such suckers.
+- `Seriously`, though: we're going to eat, i said.
+- You're not `seriously` considering his proposal.
+- I don't care if my clothes are taken `seriously`.
+- Smart, yeah, and `seriously` goddamned dangerous.
+- But `seriously`, that's all covered in orientation.
+- `Seriously`, i can just eat a whole bowl of nougat.
+- That's a warning i intend to take very `seriously`.
+- Well, do you think the ship is `seriously` damaged?
+- Why are we even talking about this, `seriously`?
+- Did you `seriously` just say "hitherto undreamt of"?
+                 

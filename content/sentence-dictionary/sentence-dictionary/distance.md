@@ -1,0 +1,76 @@
+---
+title: "distance in a sentence | distance example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "distance"
+---
+- Not from a `distance`.
+- Only from a `distance`.
+- What, 'long `distance`?'
+- In hailing `distance`, sir.
+- I'm calling long `distance`.
+- This sounds long `distance`.
+- `Distance`: three light years.
+- Rear ranks, proper `distance`!
+- In the `distance` was a murder.
+- Nellie, get me long `distance`.
+- Hello...this is long `distance`.
+- It puts me at such a `distance`.
+- Stay within shouting `distance`.
+- It could be twice the `distance`.
+- Front ranks, take your `distance`!
+- Woman [in `distance`]: he's ready.
+- They're really for long `distance`.
+- What is our approximate `distance`?
+- It's jus' till we get some `distance`.
+- Looks like you went quite a `distance`.
+- Can't nobody read minds long `distance`.
+- Sir... ere’s smoke in the `distance`.
+- The thing is, can you go the `distance`?
+- You can't hit a bulb at this `distance`.
+- You can't tell it from a `distance`, ted.
+- Shhh, you be the long `distance` operator.
+- These only tell direction, not `distance`.
+- Came quite a `distance` to visit me, he added.
+- I'll have bearing and `distance` for you, sir.
+- Time, `distance`, nothing could separate them.
+- I mean, i did...but i didn't.. long `distance`?
+- Bring us in to one hundred kilometers `distance`.
+- See it, in the `distance` coming around the turn?
+- I thought you promised to give me some `distance`?
+- Birdy's in the parlor--i'm on long `distance` here.
+- We land at a `distance`, give us time to acclimate.
+- I shoot from the `distance` and if i miss i plastic.
+- Didn't look that way -- you know -- from a `distance`.
+- Keep your `distance` from this house -- and from jamie.
+- Now: what's the shortest `distance` between two points?
+- From a `distance`, the simpsons were the perfect family.
+- `Distance` from reliant... three minutes, thirty seconds.
+- An army within striking `distance` of our beloved capital.
+- He won't see us... we'll just stalk him from a `distance`.
+- Bearing three one zero... `distance`, three hundred meters.
+- Fleet's pulling the battle group back to safe `distance`...
+- I think the lady is wise to keep your love at a `distance`.
+- So this big-shot lawyer calls me long-`distance` from texas.
+- I've got a feeling we're going to go the `distance` with him.
+- The only thing i wanna do is go the `distance` -- that's all.
+- I came here from a long `distance` to stay at the grand hotel.
+- The shortest `distance` between two points... a straight line.
+- The event horizon moved to safe `distance` using ion thrusters.
+- Oh yeah -- i'm expecting a long `distance` call, very important.
+- The more i tried to `distance` myself, the more desperate she became.
+- After i graduated, i called him long `distance` and asked, "now what?"
+- He took it out, went to the phone and called somebody long `distance`.
+- Highly volatile...i recommend we keep our `distance`... eject the core.
+- I am interested only in the shortest `distance` between these two points.
+- Just keep lookin' at me and only think about the `distance` <u>across</u>.
+- When you see where you live from a `distance` it's like a dream, isn't it?
+- Only chance we got is... ... to get more `distance` on 'em and go to ground!
+- Alf stares out through the windshield at the glow of vegas in the `distance`.
+- I figure the `distance` from my window to the school is one hundred and twenty.
+- Just got to go--an' keep a-goin', till we get plenty a `distance` away from here.
+- There, you fix client's `distance`... how much to the bench down there in the park?
+- Stolen switch car, they leave it running at the curb, looks parked from a `distance`.
+- As long as they're connected we can blow them all simultaneously from a safe `distance`.
+- No matter how much `distance` we put between us and this house, i bring with it with me.
+                 

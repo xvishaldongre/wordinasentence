@@ -1,0 +1,107 @@
+---
+title: "turns in a sentence | turns example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "turns"
+---
+- Theo `turns` to leave.
+- Duet `turns` into trio.
+- White `turns` to black.
+- Couple of wrong `turns`.
+- He `turns` on the light.
+- Money `turns` the wheel.
+- `Turns` out, not really.
+- `Turns` off the acid fog.
+- As it `turns` out, - wait!
+- She `turns` away from him.
+- Trio `turns` into quartet.
+- `Turns` the legs to jelly.
+- `Turns` out he's connected.
+- Very nice mitchell `turns`.
+- Chief guard `turns` to alex.
+- He `turns` out to be ex-cia.
+- It `turns` out, i am a joke.
+- It `turns` to steaming piss.
+- And `turns` off when i leave.
+- It `turns` out to be good-by.
+- Minister `turns` and signals.
+- Well as it `turns` out i did.
+- `Turns` out he is king farouk.
+- `Turns` out, i missed the rain.
+- `Turns` out you did me a favor.
+- Clarke's mother, it `turns` out.
+- She goes over and `turns` it up.
+- Maybe they think it `turns` us on.
+- `Turns` out, he was the detective.
+- `Turns` to cast, i saved the play.
+- Half an hour later, who `turns` up?
+- Terry `turns` and approaches nolan.
+- `Turns` out she was his first kill.
+- `Turns` up in a leonard cohen song.
+- Your apology `turns` off the alarm.
+- Her look of delight `turns` to fear.
+- Honora `turns` to pauline and juliet.
+- Theo `turns` and climbs into his car.
+- `Turns` out there is no diabetic mom.
+- Hana `turns`, startled and suspicious.
+- That `turns` out wouldn't help anyway.
+- `Turns` out that was a big difference.
+- One shuts it down, one `turns` arms it.
+- `Turns` out it wasn't a mining mission.
+- `Turns` out, it wasn't a mining mission.
+- To be quite honest it `turns` my stomach.
+- As it `turns` out, i'm here to answer them.
+- But it `turns` out that's not so easy, sam.
+- Five more `turns` and your neck will break.
+- It `turns` out, getting to mike, right now.
+- Kastle `turns` and yells over his shoulder.
+- Strangely enough , it all `turns` out well.
+- Keating said everybody took `turns` reading.
+- Mrs. clifton - katharine `turns`, disgusted.
+- That's what `turns` me on about you, dwight.
+- The face `turns` a curious shade of avocado.
+- How come everybody `turns` out to be a crook?
+- `Turns` out i'm allergic to steel-toed boots.
+- You have no idea how much that `turns` me on.
+- `Turns` out she thought i was brad michaelson.
+- Then if emma `turns` me down will you marry me?
+- What happens to the people that she `turns` in?
+- `Turns` out your wife makes a hell of an outlaw.
+- We will, after bellamy `turns` off the acid fog.
+- Then i was like, oh shit, that `turns` me on.
+- The part where the guy `turns` everything around.
+- It `turns` out lisa did not buy the new saxophone.
+- It's an escher staircase that `turns` in on itself.
+- 'til he `turns` ta dust and blows away on the wind.
+- `Turns` out one's got nothing to do with the other.
+- `Turns` out resentment is corrosive, and i hate it.
+- Woman bites chicken leg, `turns` out to be a mouse.
+- Can i walk you out?she `turns` back to him, a smile.
+- He `turns` over the propeller, the engine cranks up.
+- `Turns` out, resentment is corrosive, and i hate it.
+- `Turns` out they dropped straight out of hyperspace.
+- We could put a tail on them, see how it `turns` out.
+- How come it always `turns` into an argument with you?
+- It's just, `turns` out you're wasting a lot of money.
+- Maureen `turns` to several people who begin to react.
+- Whenever i try to help anyone it all `turns` to shit.
+- `Turns` on lando, the newcomer, with an ominous growl.
+- `Turns` out, i can create whatever i want, twenty-two.
+- `Turns` out she eventually joined the communist party.
+- `Turns` out we've been kicking ass in this little war.
+- What if your girl's theory `turns` out to be bullshit?
+- Course as it `turns` out, i'm not a very good employee.
+- If it works and `turns` you into a host, they took him.
+- See what `turns` up--which i guarantee will be nothing.
+- `Turns` out i'm actually a pretty damn good babysitter.
+- Well... [beat] let me know how your search `turns` out.
+- The whole floor but, it `turns` out, she's not alone.
+- Anyone who `turns` himself in makes a good case for bail.
+- I wouldn't expect it this soon, `turns` people into dust.
+- Now it `turns` out you were only interested in the money.
+- She `turns` it off, and then she has to turn it on again.
+- If i help you, clarice, it will be "`turns`" with us, too.
+- I'll marry you if it `turns` out you have no blood at all.
+- Main street's a four-laner, no left `turns` four to seven.
+- Ties it to the break and `turns` around... do we need him?
+                 

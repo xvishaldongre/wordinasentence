@@ -1,0 +1,107 @@
+---
+title: "happens in a sentence | happens example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "happens"
+---
+- Before that `happens`?
+- It `happens`, right...
+- So what `happens` now?
+- What `happens`, eddie?
+- What `happens` to you?
+- And see what `happens`.
+- `Happens` all the time.
+- It `happens` sometimes.
+- Nothing ever `happens`.
+- What `happens` to them?
+- You see what `happens`?
+- And look what `happens`.
+- Then what `happens`?
+- What `happens` then?
+- You know what `happens`.
+- Actually `happens` to us.
+- It `happens` when i land.
+- Let's see what `happens`.
+- No matter what `happens`.
+- No matter what `happens`.
+- Ok, what `happens`, then?
+- She knows what `happens`.
+- Tell me how it `happens`.
+- That `happens` sometimes.
+- That `happens` to people.
+- What `happens` if you do?
+- What `happens` to marcus?
+- What `happens` when what?
+- What `happens` to her?
+- Before it `happens` to us.
+- It `happens` all the time.
+- I think nothing `happens`.
+- Monty... - what `happens`?
+- Nothing `happens` to boys.
+- That's all that `happens`.
+- Well, what `happens` then?
+- What `happens` on page 87?
+- It `happens` every day?
+- It `happens` to be my name.
+- It `happens` to old people.
+- Let me know what `happens`.
+- What `happens` if i say no?
+- What `happens` if it works?
+- What `happens` if you lose?
+- What if it never `happens`?
+- `Happens` all the time, man.
+- `Happens` a lot around here.
+- If it `happens`, it `happens`.
+- Nothing bad `happens` to us.
+- That's the way it `happens`.
+- This `happens` all the time.
+- What do you think `happens`?
+- What `happens` if you don't?
+- What `happens` in 5 seconds?
+- What `happens` when he dies?
+- What `happens` when you die?
+- What if something `happens`?
+- If it `happens` again, relax.
+- I think that `happens` a lot.
+- It just `happens` to be true.
+- Ok. let's see what `happens`.
+- Shit `happens`, life goes on.
+- This kind of thing `happens`.
+- Whatever `happens` it's over.
+- What `happens` to dunbar now?
+- What `happens` to you and me?
+- What `happens` when you lose?
+- He `happens` to like his head.
+- If anything `happens` to me...
+- I know the date is `happens`!!
+- It `happens` that i'm the law.
+- It `happens` to be how i feel.
+- Let's see what `happens` here.
+- Let whatever `happens` happen.
+- Notice that nothing `happens`.
+- Of course something `happens`.
+- That's not what `happens` now.
+- That's what usually `happens`.
+- What `happens` if we overstay?
+- What `happens` to our enemies.
+- I can't control what `happens`.
+- It `happens` from time to time.
+- Of what `happens` after we die!
+- That `happens` to be the truth.
+- Whatever `happens`, oh, my god.
+- What `happens` if you're right?
+- What `happens` to the schedule?
+- What `happens` to your product?
+- It `happens` all over again.
+- That's the way it `happens`.
+- What `happens` if we say no?
+- What `happens` when they do?
+- But what if something `happens`?
+- It `happens` to me all the time.
+- Just wondered... what `happens`?
+- My number if anything `happens`.
+- That's not the way it `happens`.
+- Ugh, i hate when that `happens`.
+- What `happens` in the next reel?
+- What `happens` to your soldiers?
+                 

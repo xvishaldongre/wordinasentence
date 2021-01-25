@@ -1,0 +1,64 @@
+---
+title: "Russia in a sentence | Russia example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Russia"
+---
+- What part of `russia`?
+- I'll depopulate `russia`.
+- Let me guess, `russia` came up?
+- Our friends in little `russia`.
+- Wait, you're not from `russia`?
+- Or we can't go back to `russia`!
+- There is no privacy in `russia`.
+- So `russia` didn't turn out well?
+- And now `russia` is following suit.
+- Check this out, he's from `russia`.
+- China and `russia` are off the grid.
+- So she had you in jail, in `russia`?
+- You mean you are deserting `russia`?
+- Have we anything like it in `russia`?
+- `Russia` and sudan are following china.
+- It is high time you got out of `russia`.
+- That was no accident he was in `russia`.
+- I have to leave for `russia` immediately.
+- Olaf, what part of `russia` are you from?
+- Good thing germany's closer than `russia`.
+- And kick your sorry asses back to `russia`.
+- This code, it... didn't come from `russia`.
+- Maybe they have horses like this in `russia`.
+- You are something we do not have in `russia`.
+- He says why did you send to `russia` for a wife.
+- One gets a wrong impression of the new `russia`.
+- Why should an aristocrat want to go to `russia`?
+- I don't remember him any more�ma, where's `russia`?
+- Then we can go for the big play -- china, `russia`.
+- In `russia`, we have word for people like you: yeah.
+- After all we have to uphold the prestige of `russia`.
+- But - what do they say in `russia`, general bukharin?
+- I am the duchess swana of `russia`... another `russia`.
+- Not bad for dragging a leaky tub half way to `russia`.
+- Could the mob send oswald to `russia` and get him back?
+- Sent him to `russia`, in and out, no passport problems.
+- Can we expect the same kid of panic here as in `russia`?
+- It launches its icbms against their targets in `russia`.
+- ...they are the tears of old `russia`... see that stone?
+- You stock these things for what, to fend off `russia`?
+- Boys, boys... don't forget `russia` is your mother country.
+- From 1945 to '59 only two u.s. soldiers defect to `russia`.
+- "the life and loves of the grand duchess swana of `russia`"!
+- The moment hitler invaded `russia`, i knew we'd be all right.
+- I'll overnight youse back to `russia`, oh, no, sir, it's free.
+- More than 40% of her trade is with the continent and `russia`.
+- She's going to paris outta sight, outta mind, outta `russia`.
+- If you ever want to get into `russia`, take my advice... confess!
+- With `russia` in the continental blockade, england must collapse.
+- Can i uh okay, as we say in `russia` can i cut a long story short.
+- There were many of these, uh, keys before in `russia`, - shall we?
+- Two hours ago we pulled this audio off a secure channel in `russia`.
+- `Russia` just executed one of their own experts to keep their secret.
+- Two hours ago we pulled this audio off a secured channel in `russia`.
+- Yes, leon... soviet `russia` will put all its might behind this case.
+- Oh, we germans must get used to all climates, from `russia` to the sahara.
+- That's why you're not in `russia` any longer, and that's why you came here this morning.
+                 

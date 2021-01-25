@@ -1,0 +1,107 @@
+---
+title: "history in a sentence | history example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "history"
+---
+- A wonderful `history`.
+- It has some `history`.
+- The rest is `history`.
+- Also i enjoy `history`.
+- We... have a `history`.
+- Hell, look at `history`.
+- `History`, man, `history`.
+- Just calls it `history`.
+- No employment `history`.
+- You know your `history`.
+- Buzz fazeli is `history`.
+- That's ancient `history`.
+- That's `history`, fletch.
+- There might be `history`.
+- For most of its `history`.
+- Game six is `history`,pal.
+- I can make `history` here!
+- We'd start with `history`.
+- You all know my `history`.
+- A `history` of catholicism.
+- I'm just quotin' `history`.
+- Just grab a `history` book.
+- Not that kind of `history`.
+- World `history` since 1945.
+- In the `history` of `history`.
+- I <u>like</u> our `history`.
+- That is how `history` works.
+- This... this is `history`...
+- Those are ancient `history`.
+- We're living `history` here.
+- We've got so much `history`.
+- You'll go down in `history`.
+- I have no sense of `history`?
+- In cartoon women's `history`.
+- It's `history` made allegory.
+- I've read his case `history`.
+- Other one has `history`, too.
+- That's the `history` of gods.
+- Wanna be a part of `history`?
+- He's in my american `history`.
+- He teaches cultural `history`.
+- `History` is on our side, ben.
+- It's dead, and it's `history`.
+- It's not the `history` of man.
+- Ready to go down in `history`?
+- ..the `history`, i don't know.
+- This is u.s. `history`, right?
+- You know how i love `history`.
+- "you'll go down in `history`."
+- A man can change his `history`.
+- `History` i'll only read about.
+- What do you study in `history`?
+- 'cause you don't know `history`.
+- I'm accessing the `history` now.
+- We are the keepers of `history`.
+- A `history` of nazi germany, lou.
+- Because today, we make `history`.
+- I'm not trying to make `history`.
+- It's one for the `history` books.
+- Monday morning, you're `history`.
+- Ready to make a little `history`?
+- Roger de bris presents `history`.
+- They are our link with `history`.
+- This is your `history`, isn't it?
+- Who am i to argue with `history`?
+- Anonymous characters in `history`.
+- First, about the girl's `history`.
+- How's that gonna change `history`?
+- It's not just art, it's `history`.
+- Marty, that would alter `history`.
+- We are born knowing our `history`.
+- `History` is written by the victor.
+- I never was no good with `history`.
+- Making `history`, herb man eater!!!
+- Thanks but i'd better do `history`.
+- We're gonna make `history`, dwight.
+- `History` is written by the victors.
+- Mike: "you'll go down in `history`."
+- No, i mean a crash with a `history`.
+- "sleepless in seattle" is `history`.
+- "this day in springfield `history`."
+- ...yeah, but the hosaka's `history`.
+- A storm blows up and we're `history`.
+- I'm a student of `history`, remember?
+- To ignore your entire past `history`.
+- `History` is a symptom of our disease.
+- She's gonna help me with my `history`.
+- The bad news is the ship is `history`.
+- He's already `history` -- check it out.
+- It gives me a great sense of `history`.
+- You're talking ancient `history`, doug.
+- Who's been giving you `history` lessons?
+- Any `history` of epilepsy in your family?
+- For everyone else it's ancient `history`.
+- He probably has a `history` of this shit.
+- The fabric of `history` is very delicate.
+- The luckiest son of a bitch in `history`.
+- <u>`history`</u>, a hazardous profession.
+- You ever look over this town's `history`?
+- I know something of your `history`, jason.
+                 

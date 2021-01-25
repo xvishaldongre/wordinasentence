@@ -1,0 +1,78 @@
+---
+title: "w in a sentence | w example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "w"
+---
+- `W`-why is he running?
+- `W`-`w`-whatta you mean?
+- Well, then, `w`-who was?
+- `W`... wandering around.
+- `W`-where are you going?
+- `W`-will you be my coach?
+- `W`-`w`-where we g-g-going?
+- `W`-what are these things?
+- `W`-what does he call you?
+- `W`-`w`-what are you doing?!
+- Donald `w`. blackburn, m.d.
+- `W`-well, please be candid.
+- `W`-`w`-`w`-what is it, m-m-mac?
+- `W`-`w`-`w`-which way yuh goin'?
+- All's fair in love and `w`...
+- You r-r-really `w`- wwant...?
+- Jack `w`. donald m. i'm sorry.
+- Uh, uh, `w`-with all my heart.
+- `W`-`w`-well, what about ontari?
+- `W`-`w`-well, what about ontari?
+- But you're... `w`... what is it?
+- `W`-wait a minute, wait a minute.
+- `W`-`w`-what are you talking about?
+- `W`-`w`-`w`-we'll do it another time.
+- `W`-wait, what do you mean unsolved?
+- Tch, `w`-well, for a million reasons.
+- I-i-i'm `w`-`w`-wet... well, shoot, man!
+- Not exactly the stuff of a `w`-2 form.
+- Records, `w`-2s with his name on them.
+- We'll run a t.r.`w`.... no, thank you.
+- `W`... we didn't know how to make one.
+- I'll just leave 'em with the s.`w`.a.t.
+- He kills `w`- first principles, clarice.
+- Never mind... well, `w`-what did you do?
+- `W`-what... am i your first big romance?
+- Uh... `w`-we're going back to the pierre.
+- Lotsa hints-- what'd you get on `w`.house?
+- You know, you know how you take... `w`-why?
+- `W`... whoa, it's ok. at the point of a gun?
+- I `w`- i was gonna be back before she woke up.
+- I can't convince him we don't have a s.`w`.a.t.
+- `W`-`w`-what has that got to do with this maiden?
+- So you hit t to zoom in, and `w` zooms back out.
+- `W`-why are you telling me all this, mr lombard?
+- `W`-`w`-will that do or do you want some m-m-m --?
+- Well...`w`-what kind of people do you like, carla?
+- `W`-`w`-what do, `w`-what do you want to hear from me?
+- I've been offered a job in washington with h.e.`w`.
+- Hey, `w`-why don't you see if he's hiring, you know?
+- So you hit "t" to zoom in, and "`w`" zooms back out.
+- `W`-`w`-we've been, we've been married for four years.
+- You were with the o.`w`.i., weren't you mr. richards?
+- My grandfather snared a shitload of them in `w`.`w`. two.
+- But i `w`- you know, but you know what i want you to do?
+- I fuckin'... oh, man, i really... well, `w`-what happened?
+- Oh, massage stones, copper bracelets, `w`-what are you saying?
+- She thinks i'll make you cut her out of the `w`-`w`-`w`-`w`... will.
+- The alarm will trigger if the system detects any non-`w`.a.s.p.
+- B & `w` may have threatened litigation... cbs is on the block...
+- Deeds, does the name of martin `w`. semple mean anything to you?
+- `W` hy would anyone talk like that you don't believe us, do you?
+- Massacred the army we had sent to protect you, `w`-what else you got?
+- `W`... you explicitly told me to look for a scrappy girl with no poise.
+- Ok, get on this `w`.house guy and do a better job then you did on mccord.
+- What's... you... well, what's the matter, you `w`-wanna go to that party?
+- I...i-i just, uh, `w`-want to browse, uh... what book did you want to buy?
+- You know some- times somebody would like a few min- utes alone with `w`.p.
+- Is newsday a real interview, or just some cute guy you're setting me up `w`...
+- When they want us done, they'll call in the harvard s.`w`.a.t team or some shit.
+- The `w`.c. fields fan club newsletter... oh my god, the national psoriasis foundation!
+- There were three young directors who showed promise in those days: d.`w`. grirrith, c.b.
+                 

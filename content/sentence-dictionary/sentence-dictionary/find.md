@@ -1,0 +1,107 @@
+---
+title: "find in a sentence | find example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "find"
+---
+- Can you `find` it yet?
+- Did you... `find` him?
+- Did you `find` rennie?
+- Go `find` gabriel now!
+- Go out and `find` her!
+- He'll never `find` us.
+- He's gonna `find` out.
+- How did you `find` me?
+- How did you `find` us?
+- How do they `find` me?
+- How will i `find` you?
+- I can't `find` a vein.
+- I can't `find` manolo.
+- I can't `find` my pod.
+- I couldn't `find` you.
+- I hope you `find` her.
+- I hope you `find` him.
+- I'll `find` a way out.
+- I'll `find` it myself.
+- I'll `find` some copy.
+- I'll `find` someplace.
+- I'll `find` something.
+- I'll `find` the money.
+- I'm gonna `find` will.
+- Let's `find` them all.
+- Nobody will `find` us.
+- No, i can't `find` it!
+- One way to `find` out.
+- One way to `find` out?
+- Then we `find` clarke.
+- They don't `find` out.
+- They `find` the radio?
+- This will `find` them.
+- We have to `find` her.
+- We have to `find` him!
+- We'll `find` him, sid.
+- We'll `find` out soon.
+- We need to `find` gus.
+- We need to `find` him.
+- What a `find` you are.
+- Where do i `find` you?
+- Where'd you `find` it?
+- You `find` the source?
+- You'll `find` a hatch.
+- You will `find` a way.
+- Because he'd `find` me.
+- Before they `find` out.
+- But you'll `find` them.
+- Did he `find` anything?
+- Didn't `find` anything.
+- Did you `find` a sword?
+- Did you `find` wilhite?
+- Even `find` this place?
+- `Find` her you dipshit!
+- `Find` out where he is.
+- `Find` the catch basin!
+- `Find` them everywhere.
+- `Find` the right words.
+- Hard to `find` a place.
+- How did they `find` us?
+- How did you `find` him?
+- How did you `find` out?
+- I can `find` it myself.
+- I can't `find` gregory.
+- I can't `find` it, mon!
+- I can't `find` my ball.
+- I couldn't `find` jane.
+- I'd like to `find` out.
+- I `find` that unlikely.
+- I have to `find` kelly!
+- I intend to `find` out.
+- I'll `find` other work.
+- I'll `find` out monday.
+- I'll `find` out though.
+- I'll `find` <u>you</u>.
+- I'll `find` you, leo...
+- I've got to `find` her.
+- I've got to `find` him.
+- I've got to `find` out.
+- I will `find` jack, ok?
+- Maybe you'll `find` it.
+- Open it and `find` out.
+- Someone will `find` me.
+- So what did you `find`.
+- Then fuckin' `find` it.
+- They'll `find` shelter.
+- They'll `find` the guy.
+- To `find` a safe place.
+- To `find` your friends.
+- Told you i'd `find` it.
+- We can't `find` maxine.
+- We `find` 'em, sue 'em.
+- We have to `find` them.
+- Well, let's `find` him.
+- We need to `find` wong.
+- We're gonna `find` him.
+- We're gonna `find` out.
+- What'd you guys `find`?
+- Where can i `find` him?
+- Where do we `find` him?
+                 

@@ -1,0 +1,107 @@
+---
+title: "man's in a sentence | man's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "man's"
+---
+- But the `man's` a fool!
+- It was a `man's` voice.
+- Or a `man's` mentality.
+- The fat `man's` scared.
+- The `man's` hazing you.
+- The old `man's` screwy!
+- This is a `man's` game.
+- `man's` older than sand.
+- This `man's` impossible!
+- I watch the `man's` back.
+- The `man's` evil himself.
+- The `man's` got homework.
+- This `man's` still alive.
+- What's that `man's` name?
+- It's a young `man's` book.
+- The `man's` car you stole.
+- Mary, the `man's` a killer.
+- A `man's` not made of stone.
+- Each `man's` pain is unique.
+- In the other `man's` rectum.
+- `man's` inhumanity to woman.
+- That's a white `man's` book.
+- That's a white `man's` myth.
+- The `man's` a treasure trove.
+- The `man's` got an operation.
+- Break that old `man's` violin.
+- I was not in the `man's` face.
+- Johnny, get this `man's` file.
+- What is `man's` greatest tool?
+- A `man's` gotta go his own way.
+- Cocaine is a rich `man's` drug.
+- I said, the old `man's` screwy!
+- The `man's` a budding cromwell.
+- The `man's` gone black, barnes.
+- If it would save a `man's` life.
+- The head `man's` writing a bill.
+- This `man's` head was beaten in.
+- Would you like the `man's` name?
+- * _ you ruined a `man's` career?
+- I do not live in a `man's` house.
+- I'm nervous--my old `man's` here.
+- It's a `man's` world, mr. booker.
+- N'each `man's` hand's against us.
+- There is a `man's` arm in my bed.
+- A `man's` got to protect his home.
+- Ed, it's just one `man's` opinion!
+- It's just a po' `man's` free base.
+- Nearest ford auto `man's` bristol.
+- Does that excuse that `man's` sins?
+- No, the `man's` a homeless idiot...
+- That `man's` a black angel, sailor.
+- You think about a `man's` feelings.
+- Ain't all these white `man's` books?
+- Another `man's` life in your sights.
+- Ike clanton, old `man's` eldest son.
+- The bad `man's` getting awful close.
+- This `man's` name is robert paulson.
+- "dead `man's` curve," jan and dean...
+- Yeah, a `man's` drink... you kidding?
+- That `man's` name and you blew it.
+- April 12th, very rich `man's` wedding.
+- I ain't dyin' in no white `man's` war!
+- Man, i'm studying in the `man's` book.
+- The `man's` been dead for two seconds!
+- This `man's` going to jump off a roof.
+- That there is your `man's` best friend.
+- The `man's` a menace, plain and simple.
+- The `man's` word is not to be credited.
+- We're playing with a `man's` life here.
+- `man's` as mean and corrupt as they get.
+- `man's` got a right to mull things over.
+- Mr. lipnik, i � kiss this `man's` feet!!
+- We got `man's` business to take care of.
+- It ain't right, but the `man's` drowning.
+- `man's` yesterday may ne'er be"... jesus!
+- Don't you ever touch a chinese `man's` cd.
+- Maybe it'll jar this young `man's` memory.
+- Take away a `man's` only source of income.
+- That gorilla in `man's` clothing-- mcgann.
+- Your madness is another `man's` greatness.
+- But to fuck a `man's` wife behind his back?
+- ...that `man's` takin' his job too serious.
+- Would they do that to a white `man's` city?
+- You gotta admire the `man's` determination.
+- You shouldn't go into another `man's` tent.
+- Believe me, the `man's` gonna be real happy.
+- I will not budge for no `man's` pleasure, i.
+- My `man's` coming to get my ass out of here.
+- This `man's` scared to death to go to court.
+- Why is my life worth more than this `man's`?
+- A `man's` his job and you're fucked at yours.
+- I suppose i had hope for `man's` best friend.
+- Nothing but the very worst in `man's` nature!
+- The `man's` policies, just get off the guard.
+- To put your money in the rich `man's` pocket.
+- We have an enlisted `man's` club at the post.
+- A new species created by `man's` recklessness.
+- Neither god nor `man's` got nothin' on me now!
+- Old `man's` crazy as a rat in a tin shithouse.
+- That guarantees your best `man's` toast mabel!
+                 

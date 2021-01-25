@@ -1,0 +1,107 @@
+---
+title: "patient in a sentence | patient example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "patient"
+---
+- He's a `patient` here.
+- One must be `patient`.
+- The `patient` is dead.
+- My `patient` is waiting.
+- Be `patient`, that's all.
+- But we've been `patient`.
+- I'm a very `patient` man.
+- You said, "be `patient`."
+- As a `patient`, of course.
+- How's our `patient` today?
+- Who killed your `patient`?
+- I don't see that `patient`.
+- Just visiting my `patient`.
+- Not just a `patient` -- me.
+- The `patient` responded.
+- How is the `patient` faring?
+- How's my favorite `patient`?
+- We're going to be `patient`.
+- You are strong and `patient`.
+- You must be `patient` though.
+- He's a `patient` of yours?
+- He was your `patient`, doctor.
+- Sexual battery of a `patient`?
+- You just have to be `patient`.
+- Now you just be `patient`, kay.
+- `Patient` is... ...pre-e-epped.
+- Michael myers was his `patient`.
+- My `patient` had to leave early.
+- Hana and the `patient` are alone.
+- I have to stay with my `patient`.
+- Look, charlie, just be `patient`.
+- She was dr. hagman's `patient`...
+- I can't discuss another `patient`.
+- I had a `patient` a few years ago.
+- It's easy for you to be `patient`.
+- His daughter's a `patient` of mine.
+- 'love is always `patient` and kind.
+- You've been extremely `patient`.
+- Have you been a `patient` at county?
+- Just be `patient` with me, shu lien.
+- Reading the `patient`'s vital signs.
+- The `patient`'s rooms are down here.
+- The `patient` was in great distress.
+- Vinson here is your first `patient`.
+- It's the `patient`'s request, doctor.
+- Be `patient`, my lord, she is dressing.
+- So you wouldn't be a `patient` anymore.
+- Is miss lawson a `patient` of yours?
+- This `patient` is truly <u>sick</u>!
+- He's waited for it, inhumanly `patient`.
+- I don't give a shit about your `patient`!
+- I'm concerned about harm to my `patient`.
+- Maybe you're just getting less `patient`.
+- See miss mofet, an old `patient` of mine.
+- To survive we must focus... be `patient`.
+- [beat] he was my most memorable `patient`.
+- But he's been so `patient` with me, tatum.
+- Will you ask her majesty to be `patient`?!
+- Well i'm not exactly a voluntary `patient`.
+- But your `patient` is legally entitled to it.
+- Maybe you should be a `patient` and sit down.
+- Because i am `patient`, chain-smoking lillian.
+- Be `patient`, for the world is broad and wide.
+- D'you ask the `patient` when did she last eat?
+- I was in the veteran's out- `patient` program.
+- Be `patient`, my lord... you've seen how it is.
+- Susan's `patient` is whom we are talking about.
+- A `patient` pickup and transfer to smith's grove.
+- So i guess henry follett is a `patient` of yours.
+- As soon as we're in the lab, how is the `patient`?
+- Didn't you tell me to be `patient` with my career?
+- You've sworn today the `patient` ate one hour ago.
+- If you'll just be `patient`, i can work things out.
+- Like our ancestors on earth, be `patient` with him.
+- None will meaningfully extend the `patient`'s life.
+- Does this violate the `patient`/doctor relationship?
+- Has the `patient` in twenty-one gotten his tray yet?
+- I've heard so many things, from my `patient`'s door.
+- Wait, you just... you just gotta be `patient`, okay?
+- Be `patient`, my son, and put your trust in the lord.
+- I want to be with him always... jeanne, be `patient`.
+- `Patient` exhibits symptoms of psycho neural overload.
+- She took the `patient`'s history and signed the charts.
+- Dr. danielson, the man we want was never your `patient`.
+- Don't ask me those questions dear, i'm not the `patient`.
+- `Patient` 453 here has been fitted with the new v-chip...
+- Good, `patient`, hard-working, chaste - what did it matter?
+- These cases are harder on the doctor than on the `patient`.
+- Then they weren't created to go after your "`patient` zero".
+- This `patient` has been plagued with temporal lobe seizures.
+- You swore on this form that the `patient` ate nine hours ago.
+- So put away your butcher knives and let me save the `patient`!
+- He's methodical and exacting, and worst of all, he's `patient`.
+- Rule number two: don't get involved with `patient`'s daughters.
+- All i ask is for you to be a little `patient` and a little kind.
+- He's a `patient`, rose... how's your ass been holdin' up, honey?
+- It seems a particular `patient` of yours has captured his fancy.
+- Well now--what seems to be the trouble with the `patient` today?
+- No doctor would presume to diagnose a `patient` he had never met.
+- The fact that the witness is currently a `patient` is immaterial!
+                 

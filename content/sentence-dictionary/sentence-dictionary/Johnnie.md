@@ -1,0 +1,87 @@
+---
+title: "Johnnie in a sentence | Johnnie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Johnnie"
+---
+- Enter `johnnie` walker.
+- He is `johnnie` walker.
+- Caesar, i know `johnnie`.
+- Call me `johnnie`... n.o.
+- Does `johnnie` hit on you?
+- Good old `johnnie` walker.
+- `Johnnie`, what did i say?
+- Why would `johnnie` do this?
+- Boyfriend `johnnie` farragut.
+- Mickey, why is `johnnie` here?
+- You gotta find 'em, `johnnie`.
+- They call it "uncle `johnnie`."
+- Where is this going, `johnnie`?
+- Hey, `johnnie` ... unbelievable.
+- Violet, it's gino and `johnnie`.
+- Is `johnnie` walker for everyone.
+- `Johnnie` ain't going to fuck me!
+- This is between me and `johnnie`.
+- `Johnnie` walker remains the same.
+- Could she be doin' okay, `johnnie`?
+- `Johnnie` hates me like i hate him!
+- Please santos... where's `johnnie`?
+- Listen, `johnnie`, lula just called me.
+- Why didn't you send `johnnie` farragut?
+- All right, now, tell me about `johnnie`.
+- Because i just saw `johnnie` downstairs.
+- `Johnnie` hits on anything in high heels.
+- That that's a bottle of `johnnie` walker.
+- Did you run into `johnnie` in new orleans?
+- Don't talk down to me, `johnnie` farragut.
+- That means he probably will kill `johnnie`.
+- The `johnnie` walker story without cutting.
+- My very best to `johnnie`... bless his soul.
+- Well, `johnnie` walker has clearly survived.
+- For christ's sake, `johnnie`, do what he says.
+- For mixing a ginger ale in a `johnnie` walker.
+- But you went right to `johnnie`, didn't you?...
+- `Johnnie` walker black, breakfast of champions.
+- I even called over at `johnnie`'s, but no answer.
+- `Johnnie` is his son, that's `johnnie` marzzone?
+- But in baghdad, it had to be `johnnie` walker blue.
+- I talked to `johnnie` white at the bar association.
+- You have arrived if you can drink `johnnie` walker.
+- In india, `johnnie` walker has a localized nickname.
+- That's okay, as long as he believes it was `johnnie`.
+- That the most important one here is `johnnie` walker.
+- But `johnnie` runs chicago because gino is his father.
+- In both those films is the bottle of `johnnie` walker.
+- I can use `johnnie`'s car, dump it in lake michigan ...
+- But `johnnie` walker has grown from strength to strength.
+- I keep seein' 'em... now tell me... what is it, `johnnie`?
+- `Johnnie` walker also rode the wave of the british empire.
+- Which is shaped like `johnnie` walker with `johnnie` walker.
+- He needs `johnnie` walker as his companion to keep walking.
+- I'll look after her now... santos... where's j-j-`johnnie`?
+- Mama, was it right for you to sic `johnnie` farragut on us?
+- `Johnnie` walker rode the wave of the industrial revolution.
+- You're now `johnnie` walker, and that's a great achievement.
+- If `johnnie` farragut's on our trail he'll check those first.
+- "he's not married or anything, and he drinks `johnnie` walker."
+- Right now: `johnnie` green, liz butsky, and get me the fad king.
+- Oh, `johnnie` farragut... don't you trust your very own marietta?
+- I go, "hopefully, we'll get an endorsement from `johnnie` walker."
+- `Johnnie`... that's the past... we gotta get on to our future, sugar!
+- That, i think, is the sense of where `johnnie` walker is just now.
+- Which is still on every single bottle of `johnnie` walker to this day.
+- I think basically it's because he thinks `johnnie` is a complete idiot.
+- Ed davies: `johnnie` walker has always been a huge brand here in brazil.
+- Kosar: `johnnie` walker whiskey has conquered much of the western world.
+- Please, santos... you give me your permission to kill `johnnie` farragut.
+- Marie macklin: `johnnie` walker was always that beating heart of the town.
+- He set up shop in london, and he created this myth around `johnnie` walker.
+- That, for me, was that moment that `johnnie` walker really started walking.
+- You did it because you couldn't stand the thought of `johnnie` fucking you.
+- I just love that dichotomy of the scale and availability of `johnnie` walker.
+- And the `johnnie` walker icon has just become a symbol of that in many places.
+- Well, `johnnie` told me you used to drive for clyde and santos... whattya mean?
+- We went over to `johnnie`'s place just to check it out and it was busted up, bad.
+- Caesar ... all right, `johnnie`, you want to play it this way, i can play it this way.
+- Why we'd look like a buncha satchel-ass `johnnie`-come-latelies braggin' on our own midget!
+                 

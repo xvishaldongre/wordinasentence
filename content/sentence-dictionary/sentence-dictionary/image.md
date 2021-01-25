@@ -1,0 +1,76 @@
+---
+title: "image in a sentence | image example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "image"
+---
+- It's all about `image`.
+- That wasn't an `image`.
+- A fairly common `image`.
+- It's a spittin' `image`.
+- It's too big to `image`.
+- Ooh, i like the `image`.
+- Think back to this `image`.
+- Where are we on the `image`?
+- With nothing but an `image`.
+- Cowgirls exist as an `image`.
+- His `image` floats beside me.
+- It's the same `image` - kong!
+- Confirm with trig and `image`.
+- `Image` coming through now, sir.
+- So, you made me in your `image`.
+- I created you in my `image`, puff.
+- He's obsessed with his own `image`.
+- That is a marvelous `image`, walter.
+- Goddamn, you're the spitting `image`.
+- He's knocking the programme's `image`!!
+- `Image` a man that has shaped his time.
+- But you begged me: improve your `image`.
+- I created all of sanctum in its `image`.
+- We make the world -- in our own `image`.
+- What's the last `image` that comes to you?
+- You did create me in your `image`, nathan.
+- You see, this place has an `image` problem.
+- I've lived with that `image` ever since.
+- Thank you for sharing that charming `image`.
+- He said a third wife was bad for his `image`.
+- I don't understand -- now the second `image`.
+- This shocking `image` of repressed femininity!
+- Just showing you the same `image` over and over?
+- The eye retains each `image`, till they combine.
+- This is just fine-tuning and creating an `image`.
+- We are trying to elevate the `image` of cannabis.
+- But i don't think god made man in his own `image`.
+- Good lord -- you're the spitting `image` of... hi.
+- His `image` of you is a possessive, fragile neurotic.
+- How does an `image` like this help us to see that?
+- It seems we <u>all</u> imagine god in our own `image`.
+- It wasn't him but that spleen was a splitting `image`.
+- She just acts crazed in public to keep up the `image`.
+- The memory kind of burnishes the `image`, and... is scary.
+- Part of our `image`, part of our appeal is in our uniforms.
+- The scope matches the `image` with the `image` on your retina.
+- Created in the `image` of man, by the masses, for the masses.
+- I've never seen someone's `image` change so...so drastically!
+- Somebody once said that man makes machines in his own `image`.
+- I had to hurt people to prove to them they had the wrong `image`.
+- Oh, god, i just got an `image` of him making that face are you in?
+- What i can't get out of my mind is the `image` of rene- my nephew.
+- I just wanted to get past this &quot;old school marm&quot; `image`.
+- He was to sound what cezanne was to `image` or at least i thought so.
+- I can run the `image` through a series of filters, try to clean it up.
+- Nothing... she grabbed me, and then there was an `image` on the screen...
+- You and your brother, fighting fires together, helluva `image`, isn't it?
+- You mustn't look at those horrible things, they degrade the human `image`.
+- But i've seen the three hundred hours of your `image` he's got stored away.
+- When i say the word "girl" what is the earliest `image` that you can remember?
+- From solar position, trig & `image` confirms it at approximately eight oh-four a.m.
+- What you're seeing is a computer driven `image` created by photons and forcefields...
+- You have one `image` of your father and it would be wrong for me to go and change it.
+- Your self-`image` started to rub off on me and i ended up thinking that i was strange.
+- The public doesn't have any idea what we do and now you're going to define our `image`!
+- The thermal readings inside the house dropped ten degrees when the `image` was recorded.
+- I need you to put that `image` in your heart and keep it with you, no matter what happens.
+- The choice of words, "squashed flat," juxtaposed against the `image` of a fluffy kitten...
+- Transmit `image` of the alien to starfleet; advise we are attempting further communication.
+                 

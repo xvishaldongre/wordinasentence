@@ -1,0 +1,107 @@
+---
+title: "question in a sentence | question example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "question"
+---
+- I have a `question`...
+- I have one `question`.
+- I'll ask a `question`.
+- My `question` exactly.
+- Oh, stupid `question`.
+- Out of the `question`!
+- Out of the `question`.
+- The `question` is why?
+- There's no `question`.
+- Tis a fair `question`.
+- Uh, `question`, ma'am.
+- What's the `question`?
+- You have a `question`?
+- Can i ask a `question`?
+- I ask you a `question`.
+- Is that the `question`?
+- Its not the `question`.
+- May i ask a `question`?
+- No `question` about it.
+- Still not a `question`.
+- That is the `question`.
+- They'll `question` her.
+- What an odd `question`!
+- What's your `question`?
+- Folks'll ask `question`.
+- I axed you a `question`.
+- Is that your `question`?
+- It's not the `question`.
+- Just an idle `question`.
+- Now that's a `question`.
+- Pirate -- no `question`.
+- That is your `question`?
+- That's a big `question`.
+- That's not a `question`.
+- We ask you a `question`.
+- What is your `question`?
+- What kind of `question`?
+- What's a big `question`?
+- Big `question` that, lad.
+- He asked me a `question`.
+- I asked you a `question`.
+- I forgot your `question`?
+- It's a common `question`.
+- It's a simple `question`.
+- It's out of a `question`.
+- Just one last `question`.
+- Lois i have a `question`.
+- Makes me `question` that?
+- No `question` about that.
+- So what's the `question`?
+- That's a good `question`.
+- That's an odd `question`.
+- That's a `question`, sir.
+- That wasn't a `question`.
+- The '`question`' -- bill.
+- What a stupid `question`.
+- Which `question` is that?
+- Answer the `question`, mr.
+- Depends on the `question`.
+- It's an honest `question`.
+- Look answer my `question`!
+- Now what's the `question`?
+- So, what's the `question`?
+- That is a good `question`.
+- That's a great `question`.
+- That's not the `question`.
+- That's the key `question`.
+- You `question` my motives.
+- Answer the `question`, ash.
+- Asking the same `question`.
+- Can i ask you a `question`?
+- I just have one `question`.
+- Is that a trick `question`?
+- It's out of the `question`.
+- It's posed as a `question`.
+- Just answer one `question`.
+- Just answer the `question`.
+- Lemme ask you a `question`.
+- May i ask you a `question`?
+- Now that is the `question`!
+- She asked you a `question`.
+- The `question` is, are you?
+- We'll skip that `question`.
+- We need to `question` them.
+- What a peculiar `question`.
+- What's the `question` mark?
+- I repeat the `question`.
+- Did you hear the `question`?
+- Go onto the next `question`.
+- I didn't ask any `question`.
+- I don't like the `question`.
+- If i can ask one `question`.
+- I have a `question` for you.
+- I have a science `question`.
+- It is a hacker's `question`.
+- It is out of the `question`.
+- Just asked him a `question`.
+- Let me ask you a `question`.
+- Let me ask you a `question`?
+- One last `question`, doctor.
+                 

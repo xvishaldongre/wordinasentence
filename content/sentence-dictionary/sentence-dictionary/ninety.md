@@ -1,0 +1,53 @@
+---
+title: "ninety in a sentence | ninety example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ninety"
+---
+- `Ninety` five percent?
+- `Ninety` days, suspended.
+- `Ninety`-seven five right?
+- `Ninety`-five miles an hour.
+- `Ninety`-six thousand dollars.
+- `Ninety`-three point four million.
+- We'll be moving `ninety` and over.
+- So you sold `ninety` thousand units.
+- `Ninety` degrees to the left, i hope.
+- I won't take a penny over `ninety`.
+- It's only `ninety` seconds up the line.
+- Just a teensie one �� `ninety`-nine, six.
+- Did you say we saved `ninety` white people?
+- `Ninety`-seven minutes, twenty-seven seconds.
+- The surprise effect is `ninety` percent of it.
+- What are we giving `ninety` per...for nothing.
+- Five thousand three hundred and `ninety` -- no.
+- I've been getting `ninety`-sixes my whole life.
+- At food city it's `ninety`-nine cents, plus tax.
+- It must be administered with `ninety` six hours.
+- Twenty-after-ten and it must be `ninety` already.
+- I'm `ninety`-two years old -- you're taking my money.
+- That means we gotta average `ninety`- four miles per.
+- `Ninety` percent of the foreigners are in for hashish.
+- There was `ninety`-one million - you can stop looking.
+- No, `ninety`-`ninety` percent of them are full of baloney.
+- Yes, but honey - i don't care if it's `ninety` thousand.
+- Which practically means, `ninety` per cent of the voters.
+- Five hundred `ninety` two thousand seven hundred and four.
+- Yeah, no more `ninety`-minute deliveries around the corner.
+- He looks wonderful, jackson... `ninety`-three miles an hour.
+- Twenty-nine `ninety`-five on sale at goldbaum's tv and radio.
+- She's `ninety`-three, she's a writer, and i told her about you.
+- Sixty-five, `ninety`-four-- you <u>have</u> to get out of here!
+- `Ninety` seven million, minus eight, corrected to mass critical.
+- About every `ninety` seconds, the auto- pilot jogs us to the west.
+- After you get settled we can... `ninety`-three, including the sauna.
+- `Ninety` percent of the american people have little or no net worth.
+- `Ninety` percent our sale, we're paying to the office for the leads.
+- The soviets are putting nuclear weapons `ninety` miles away from us.
+- Yeah, well, jim, fact is i've got more than `ninety` days leave coming.
+- About `ninety` five percent of the cases had some technical explanation.
+- Well, you're here for a `ninety`-day observation period, mister mcmurphy.
+- I ain't seen you beaming like this since you broke `ninety` on the blue monster.
+- Highly unusual, the elevator, you will not find this in `ninety` percent of brownstones.
+- You can't take a bill no one knows anything about and discuss it among `ninety`-six men.
+                 

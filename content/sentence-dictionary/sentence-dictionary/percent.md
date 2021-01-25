@@ -1,0 +1,107 @@
+---
+title: "percent in a sentence | percent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "percent"
+---
+- Ninety five `percent`?
+- One hundred `percent`.
+- One `percent` battery.
+- Twenty five `percent`.
+- Fifteen `percent` skim?
+- Seventy five `percent`.
+- That's three `percent`.
+- We get fifty `percent`.
+- Why take ten `percent`?
+- That's thirty `percent`.
+- Forty god damn `percent`?
+- Seventeen `percent`, huh?
+- A hundred `percent` irish.
+- John, john, ten `percent`.
+- You get fifteen `percent`.
+- Managers get ten `percent`.
+- At eighteen `percent`, okay?
+- But nothing's 100 `percent`.
+- No more than seven `percent`.
+- Keep only forty-`percent`?
+- I take a straight 15 `percent`.
+- Mutated by seventeen `percent`?
+- Why only fifty `percent`, ruth?
+- With ten `percent` of the take.
+- Manager's get fifteen `percent`.
+- I thought maybe twenty `percent`.
+- Jesus, george, fifteen `percent`.
+- Ten `percent` of caucasian males.
+- You're a hundred `percent` right.
+- It's approximately four `percent`.
+- Structural damage at 68 `percent`.
+- You gave a bondsman ten `percent`?
+- You're a thousand `percent` right!
+- A ten `percent` raise and benefits.
+- But at nineteen `percent` interest!
+- I'm not a hundred `percent` on that.
+- Some chance at ten `percent` a week!
+- What about the other five `percent`?
+- Why not ask for a hundred `percent`?
+- Up 26 `percent` from the year before.
+- Well, just the seventy-one `percent`.
+- I'd go over twelve `percent` for that.
+- Why not a hundred and fifty `percent`?
+- Juliet's still not a hundred `percent`.
+- We want brooklyn one hundred `percent`.
+- You're our thirty-`percent` partner?
+- One-half `percent` of your compensation.
+- Phaser banks are down to four `percent`.
+- The next ten `percent` on u.s. landfall.
+- Instead of ten `percent`, you get fifteen.
+- ...fifty `percent` of all living creatures.
+- Why we get is thirty `percent` of the load.
+- 'bout eighty `percent` female in greenpeace.
+- I happen to know that he gets ten `percent`.
+- That's a hundred and fifty `percent` a year.
+- You give them thirty `percent` of your loot.
+- I'm with you a hundred and one `percent`.
+- Ninty-nine `percent` of acting is commitment.
+- This answer satisfies me a hundred `percent`.
+- There's a 68.71 `percent` chance you're right.
+- The surprise effect is ninety `percent` of it.
+- The test isn't one hundred `percent` accurate.
+- The idea is, we'll top it by fifteen `percent`.
+- The product's marked up three hundred `percent`.
+- Thirty-five `percent` pure methane gas in there.
+- Home to five `percent` of the species on earth...
+- We pay your fuel costs up front plus ten `percent`.
+- We're down to approximately fifteen `percent`, sir.
+- He was the only one i wasn't a hundred `percent` on.
+- 70 `percent` of the earth's surface is water, norman.
+- Seventy- five `percent` of your job is crowd control.
+- He only scored 40 `percent`, four out of ten criteria?
+- Ninety `percent` of the foreigners are in for hashish.
+- So there's a 20 `percent` chance he's <i>not</i> dead.
+- A ten `percent` comm...why are we giving the rest away?
+- Isn't there a ten to fifteen-`percent` margin of error?
+- No, ninety-ninety `percent` of them are full of baloney.
+- Plus, 40 `percent` of 20 million's a whole lot of money.
+- Twenty-five `percent`, and not one single farthing more.
+- The shipping records aren't a hundred `percent` accurate.
+- At ten `percent`, should be two or three million at least.
+- We'll...alright, twenty `percent`, and fifty bucks a lead.
+- Well, well, well, well, wait a minute, we got 86 `percent`.
+- You don't sound like one hundred `percent` absolutely sure.
+- You're gonna get plenty rich off of this, mr. 40 `percent`.
+- Our presence has got to be one hundred `percent` antiseptic.
+- Yes and if you cut him down, we will give you ten `percent`.
+- A hundred rubles st. petersburg hits 95 `percent` in a month.
+- I get two bucks an hour, minus ten `percent` for a bail fund.
+- We would give you a promissory note... twenty-five `percent`.
+- The thing about icebergs is you only see 10 `percent` of them.
+- You'd lose only twenty `percent` instead of seventy or eighty.
+- That makes me your manager, and managers get fifteen `percent`.
+- Forty-five apiece for you two, ten `percent` finders fee for me.
+- I guess not... after all, mr. roundy, we're paying six `percent`.
+- The other 90 `percent` is below the water where you can't see it.
+- ...we do it all the way, a hundred `percent`, nothing half-assed.
+- I'd say about eighty `percent` of them were at least drug related.
+- She wants to give it to you herself and collect her ten `percent`.
+- That makes the medical bills one hundred `percent` tax deductible.
+                 

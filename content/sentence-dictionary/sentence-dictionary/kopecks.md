@@ -1,0 +1,7 @@
+---
+title: "kopecks in a sentence | kopecks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kopecks"
+---
+## Unfortunately, we have no example sentences for kopecks                 

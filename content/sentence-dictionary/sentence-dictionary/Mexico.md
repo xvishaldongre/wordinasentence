@@ -1,0 +1,107 @@
+---
+title: "Mexico in a sentence | Mexico example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Mexico"
+---
+- I get 'em in `mexico`.
+- You going to `mexico`?
+- New `mexico`'s that way.
+- She ran off to `mexico`.
+- You're going to `mexico`?
+- We have a bus to `mexico`.
+- Were you born in `mexico`?
+- `Mexico` is a large country.
+- All your money's in `mexico`.
+- How far are we from `mexico`?
+- Same as they done in `mexico`.
+- She was never in new `mexico`.
+- Thelma, i'm going to `mexico`.
+- You might want to try `mexico`.
+- We're crossing into new `mexico`.
+- What is your purpose in `mexico`?
+- He did a great thing for `mexico`.
+- I always wanted to see new `mexico`.
+- Just get it to `mexico` by tomorrow.
+- So, i hear you're from new `mexico`!
+- [where are you staying in `mexico`?]
+- You got a bus that goes to `mexico`?
+- I don't want to go to `mexico`, john.
+- Yeah, right... fuck, i love `mexico`.
+- I don't want to go to `mexico`, bobby!
+- Where in `mexico` would you like-- i .
+- Yeah, that's `mexico` showbiz for you.
+- I was in `mexico` this one time-- damn.
+- We did our part, we gotcha in `mexico`.
+- We get to `mexico`, we can have a life.
+- I've never been to the gulf of `mexico`.
+- You went to `mexico` lookin' for cattle.
+- Louise... are we still going to `mexico`?
+- It's all in lock boxes in a `mexico` bank.
+- We could shoot it in `mexico` for nothing.
+- I want a helicopter to take us to `mexico`.
+- Just drive us to goddamn `mexico`, will ya!
+- Go deep sea fishing in the gulf of `mexico`.
+- They probably wanna kill us in new `mexico`.
+- We gotta get our asses into `mexico` tonight.
+- Apparently your friend has gone into `mexico`.
+- I heard you and ratan just came from `mexico`.
+- The whole country picks up and takes `mexico`.
+- This is `mexico`, they do everything backwards.
+- There are plenty of other suppliers in `mexico`.
+- Where in `mexico` would you like-- i ... `mexico`.
+- When you get to new `mexico` you've gone too far.
+- Lie in the back, dad, i'll drive us into `mexico`.
+- We are... "south of the border down `mexico` way."
+- I mean, who runs interdiction on the `mexico` side?
+- It's fun -- and i like living here in new `mexico`.
+- Got caught coming back from `mexico` with some blow.
+- If we re-enter over `mexico`, we just might make it.
+- Wouldn't touch 'em for all the cow shit in `mexico`.
+- The only thing between oklahoma and `mexico` is texas!
+- I already got me a half-a- million sittin' in `mexico`.
+- She didn't come back from `mexico` with cocaine on her?
+- You won't find a better carne asada in all of `mexico`.
+- I just told him if he ever gets to `mexico` to look us up.
+- You behave, get us into `mexico`, and don't try to escape.
+- Laundering narco dollars out of their `mexico` city branch.
+- Oh for chrissakes, everything smells like that in `mexico`.
+- The most important of which, in my opinion, being `mexico`.
+- He has to go to new `mexico` and sit in a lukewarm solution.
+- Right now i need to get those three things into `mexico`.
+- I'm in a customs holding tank in `mexico` city international.
+- Will he go on-camera and talk about the `mexico` city branch?
+- Agent chase, does it appear that they are heading for `mexico`.
+- He was the bank on that shipment outta `mexico` three years ago.
+- It's stuart... he's in `mexico` city... oh, someone took a poll?
+- There were 24 kidnappings in `mexico` city in the last six days.
+- He tell you about that half-million dollars he's got in `mexico`?
+- You and your kids get out of this alive and we get into `mexico`.
+- I want to try to hit `mexico` somewhere not so close to new `mexico`.
+- Went off down to `mexico` or something... you remember jeff rawson?
+- And also through the gulf of `mexico`, came on up through the south.
+- You know, it's the whip -- the one uncle frank got me from `mexico`.
+- Being black, is that a positive or negative for a bodyguard in `mexico`?
+- I need you to find all the secondary roads to `mexico` from oklahoma city.
+- Then one day, he calls and says, 'i'm in love and i'm moving to `mexico`.'
+- Thought there might be a `mexico` connection, el paso and all, but nothing.
+- Yeah, we'll have folks swimming over to `mexico` to work in the sweatshops.
+- I... how'd they find out we're going to `mexico`, thelma, how they know that?
+- That rules out willard, vermont; willard, minnesota... willard, new `mexico`?
+- What if i said i could get drumlin to agree to sell you time in new `mexico`?
+- No, mama, i'm in `mexico`, and we're about to get on an airplane to argentina!
+- When the dudes come out to new `mexico`, they went to wallow in latin glamour.
+- You want to go to `mexico` from oklahoma and you don't want to go through texas?
+- A line stretching from here to `mexico` city -- you will dine with me from now on.
+- I swear to god i won't try to escape and i'll do my best to get you into `mexico`.
+- Yah -- gladys had me order that swan special made from `mexico` in case becky won.
+- Salazar is heading down to `mexico` city next week and i'm not getting left behind.
+- Now every mother with money in `mexico` city wants bigger and better bodyguards.
+- Get you to the west coast, `mexico`, most anyplace, with a few dollars in your jeans.
+- Apparently he was using some campaign cash that was laundered for us through `mexico`.
+- You're so pleased with yourself about getting into `mexico`, you think the job's down.
+- "...eventually do the right thing, all right, everyone, saddle up for juárez, `mexico`.
+- Everything's changed now... now you can do whatever you want, but i'm going to `mexico`.
+- These lands were taken by force from `mexico` in the illegal war of american aggression.
+- I told them you got a half a million dollars in `mexico`, and you want me to bring it here.
+                 

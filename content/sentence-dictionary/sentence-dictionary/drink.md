@@ -1,0 +1,107 @@
+---
+title: "drink in a sentence | drink example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drink"
+---
+- C'mon, have a `drink`.
+- Do you want a `drink`?
+- `Drink` lots of water.
+- `Drink` up, young man.
+- I could use a `drink`.
+- Isn't that my `drink`?
+- "okay, let's `drink`."
+- She buys me a `drink`.
+- Sit down..and `drink`.
+- Want to get a `drink`?
+- What did gino `drink`?
+- You give me a `drink`.
+- We need to `drink`.
+- Another `drink` please.
+- Come on -- one `drink`.
+- Don't, i'll `drink` it.
+- Eat, `drink`, be merry.
+- Good, let's `drink` up.
+- Have a `drink` with me.
+- He drove me to `drink`.
+- I don't `drink` coffee.
+- I just like to `drink`.
+- I'll buy you a `drink`.
+- I'll give it a `drink`.
+- It's the house `drink`.
+- Just give me a `drink`!
+- Let's go for a `drink`.
+- Let's go get a `drink`.
+- Thanks for the `drink`.
+- You don't `drink` coke.
+- All i want is a `drink`.
+- All the kids `drink` it.
+- Can i buy you a `drink`?
+- Can i fix you a `drink`?
+- Can i get you a `drink`?
+- Come on, have a `drink`.
+- `Drink`, `drink`, juanito.
+- How's your `drink`, tom?
+- I can't even `drink` it.
+- I don't `drink` anymore.
+- I know what you `drink`.
+- I'll make you a `drink`.
+- I never `drink` -- wine.
+- Lemme fix you a `drink`.
+- Now finish your `drink`.
+- Shall we have a `drink`?
+- Then you need a `drink`.
+- This is my last `drink`.
+- Will you have a `drink`?
+- You may as well `drink`.
+- You wanna get a `drink`?
+- Did you `drink` and dial?
+- `Drink` from the chalice.
+- Have anything to `drink`?
+- How 'bout a real `drink`?
+- I'll `drink` to your leg.
+- I� why, you must `drink`!
+- Let me buy you a `drink`.
+- Let me get you a `drink`.
+- Let's all have a `drink`.
+- Let's `drink` to fuckin'.
+- Let's `drink` to fuckin'.
+- Let's find you a `drink`.
+- Now let's have a `drink`.
+- Romeo, i `drink` to thee.
+- Shall we `drink` to that?
+- Sit down, have a `drink`.
+- Something to `drink`, dr.
+- Take a `drink`, will you?
+- The `drink` was served...
+- Want anything to `drink`?
+- Whatta you `drink`, then?
+- Would you like a `drink`?
+- You coming for a `drink`?
+- You don't need a `drink`.
+- You don't want a `drink`?
+- You know, have a `drink`.
+- You need to `drink`, too.
+- You never `drink` with...
+- You want another `drink`?
+- I'll `drink` to yours.
+- Buy you a `drink`, maxine?
+- Buy you a `drink` sailor ?
+- "`drink` with your brain."
+- Give the flower a `drink`.
+- I'm off to grab a `drink`.
+- I need a `drink` of water.
+- May i offer you a `drink`?
+- Never `drink` or do drugs.
+- Should i `drink` it first?
+- Thanks... for the `drink`.
+- Thank you for the `drink`.
+- Then don't have a `drink`.
+- They all `drink` too much.
+- Want something to `drink`?
+- We'll `drink` some scotch.
+- What's your `drink`, dude?
+- You better take a `drink`.
+- You don't `drink` "booze".
+- You `drink` bug repellent?
+                 

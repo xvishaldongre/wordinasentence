@@ -1,0 +1,107 @@
+---
+title: "honey in a sentence | honey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "honey"
+---
+- Come with me, `honey`.
+- Don't call me `honey`!
+- For good luck `honey`.
+- "go get 'em, `honey`."
+- `Honey`, are you okay?
+- `Honey`, he's engaged.
+- `Honey`, just breathe.
+- How ya doing, `honey`?
+- I don't know, `honey`.
+- I have to go, `honey`.
+- I missed you, `honey`.
+- I understand, `honey`.
+- Look, i... hi `honey`.
+- Night, night, `honey`.
+- No, `honey`, we don't.
+- Not so rough, `honey`.
+- See you later `honey`.
+- Thanks, robot `honey`.
+- We're coming, `honey`.
+- What's wrong, `honey`?
+- Where are you `honey`?
+- Yes, you are, `honey`.
+- You're right, `honey`.
+- Good thinking, `honey`.
+- `Honey` -- later, okay?
+- `Honey`, she's perfect.
+- `Honey`, she won't d...
+- `Honey`, some crackpot.
+- `Honey`, what happened?
+- `Honey`, you all right?
+- I ain't drunk, `honey`.
+- I know you do, `honey`.
+- I love you too `honey`.
+- Relax, freddie `honey`.
+- This is great, `honey`.
+- Well tell 'em, `honey`.
+- We've only got `honey`.
+- You know what, `honey`?
+- There's the `honey`.
+- Are you hungry, `honey`?
+- Come back to us `honey`!
+- I'm glad of it, `honey`.
+- I'm so sorry, `honey`...
+- I never forget, `honey`.
+- I think she's a `honey`.
+- It's a mistake, `honey`.
+- Need some help, `honey`.
+- No `honey`, i'm alright.
+- Not collapsing, `honey`.
+- Ooh, `honey`, i'm ready!
+- That you, sail, `honey`?
+- Where's it hid, `honey`?
+- Why, `honey` -- come on.
+- Hi, `honey`, how's donna?
+- `Honey` it's to help you.
+- `Honey`, look around you.
+- `Honey`... you all right?
+- I can't do this, `honey`.
+- I'm sorry `honey`, but...
+- They killed him, `honey`.
+- This is, um... - `honey`.
+- What's he doing, `honey`?
+- Where you goin', `honey`?
+- You got a light, `honey`?
+- But `honey`, i'll be good.
+- Don't say "shit," `honey`.
+- Here ya go, `honey`... no.
+- He's just loaded, `honey`.
+- `Honey`, i don't think so.
+- `Honey`, this is thursday.
+- `Honey`, you're exhausted.
+- How was the game, `honey`?
+- I'm really sorry, `honey`.
+- Isn't that right, `honey`?
+- Not very far, `honey`-pie.
+- Raven, `honey`, it's abby.
+- Sammy davis, jr., `honey`.
+- Shhh, `honey`, never mind.
+- Someday `honey`, i will...
+- That has to stop, `honey`.
+- Well sure, `honey`, but...
+- Well, what is it, `honey`?
+- We're right here, `honey`.
+- Aren't you hungry, `honey`?
+- Are you all right, `honey`?
+- But `honey`, i can't sleep.
+- Everything's fine, `honey`.
+- Have a great time, `honey`!
+- Hey, `honey`, look at this!
+- `Honey`, i could sit... no.
+- `Honey`, this is mr. lewis.
+- `Honey`, what do you think?
+- `Honey`, what if i'm wrong?
+- I know it was bad, `honey`.
+- I'm coming to you, `honey`.
+- I'm coming to you, `honey`.
+- It's the pressure, `honey`.
+- O `honey` nurse, what news?
+- Oh, there you are, `honey`.
+- Please, `honey`, let me in.
+                 

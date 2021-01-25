@@ -1,0 +1,58 @@
+---
+title: "plain in a sentence | plain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plain"
+---
+- `Plain` but flavorful.
+- Or just `plain` stupid.
+- You look `plain`, book.
+- It's a `plain` end, see?
+- Just `plain` old coffee.
+- Just `plain` ol' miller.
+- He was just `plain` dumb.
+- We're just `plain` lucky.
+- No, not ugly, but `plain`.
+- Well, it's not very `plain`.
+- That's it, `plain` and simple.
+- Have you just `plain` asked him?
+- Tell me `plain` how they did it.
+- They're hiding in `plain` sight.
+- So let me make something `plain`.
+- They look like `plain` old rocks.
+- Scotch and `plain` water, i think.
+- It's just `plain` bad for you, man.
+- Kid, the `plain` fact is...you are.
+- Her plan is obvious, `plain` as day.
+- Not a dump, then, but kind of `plain`.
+- Now that's just `plain` old hamburger.
+- Surely i have made my meaning `plain`.
+- I just `plain` don't trust him anymore.
+- Is that `plain` enough for you, buster!
+- The man's a menace, `plain` and simple.
+- All this running is `plain` undignified.
+- I'm just a `plain` old soldier at heart.
+- Well, they were right out in `plain` view.
+- I have always asked for `plain` information.
+- Looks like to me you're just `plain` scared.
+- Brad - i'm cold, i'm wet, and `plain` scared.
+- The best-hidden secrets are in `plain` sight.
+- Been so long `plain` forgot how good it feels.
+- They're going to be shot at, `plain` and simple.
+- I just need some time... that's just `plain` silly.
+- It was bad judgment on your part, `plain` and simple.
+- Nordic noir is known for its `plain` language i made it?
+- Only what's on the menu... a number two: `plain` omelette.
+- ... make `plain` the last resting place of the most holy grail.
+- Nothing fancy, just the `plain`, hard facts... tell it like it is.
+- Maybe oswald is what everyone says he is and i'm just `plain` dumb wrong.
+- I'm sending up a `plain`, flat silver one -- with just your initials engraved.
+- But the `plain` fact is we still have... close to... close to... yeah, look at me.
+- Uh... she was wearing a kind of... a flouncy kind of... uh... `plain`... what girl?
+- With two of the angels right there in `plain` sight a- friskin' round with mah boy?
+- How silly of me, it's as `plain` as day... mr. merrick, where did you learn to do this?
+- They were in `plain` sight all the time, but no one ever bothered looking at the envelope.
+- First thing i have to ask myself is, is he playing for me or is he just `plain` playing me?
+- I better get moving here, miss saunders-- everybody else calls you just `plain` "saunders."
+- I was an idiot, `plain` and simple, and i hope you can find it in your heart to forgive me.
+                 

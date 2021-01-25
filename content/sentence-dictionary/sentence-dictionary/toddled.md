@@ -1,0 +1,7 @@
+---
+title: "toddled in a sentence | toddled example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "toddled"
+---
+## Unfortunately, we have no example sentences for toddled                 

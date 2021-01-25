@@ -1,0 +1,107 @@
+---
+title: "Ben in a sentence | Ben example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ben"
+---
+- `Ben`: just let it go!
+- `Ben`: there's a door?
+- Check the eyes, `ben`.
+- Hi mark, cindy, `ben`.
+- I'll shoot you, `ben`.
+- <u>`ben`</u> did this?
+- You want advice `ben`?
+- `Ben`, come on, get up.
+- `Ben`: hey, stop, stop!
+- `Ben`: ovens have fans.
+- I know you liked `ben`.
+- I was there with `ben`.
+- We're going to `ben`'s.
+- `Ben`: did you see that?
+- `Ben`, i'm a man of god.
+- `Ben`, mommies work too.
+- `Ben`'s lighter is gone?
+- `Ben` was looking at me.
+- I'm glad he came, `ben`.
+- So take a walk, `ben`...
+- Are you the killer `ben`?
+- `Ben` never mentioned it.
+- `Ben`: shit, that's cold.
+- Come on, `ben`, hurry up.
+- Don't shout at me, `ben`.
+- Don't you like me, `ben`?
+- I like `ben` very much...
+- `Ben`-- it's like farming.
+- `Ben` likes to be read to.
+- `Ben` -- what's happening?
+- Come on, `ben`, come on...
+- He's a good man, `ben` is.
+- It's not about sex, `ben`.
+- They call me `ben` kenobi.
+- Your friend, `ben` miller?
+- `Ben`: can you shut it off?
+- `Ben`: get on the coasters.
+- `Ben`: it's getting hotter.
+- `Ben`, i wish you wouldn't.
+- `Ben`, take your shirt off.
+- `Ben`: where are you going?
+- Look, `ben` was there, too.
+- The fax is from `ben`, too.
+- Today has `ben` a good day.
+- What are you saying, `ben`?
+- Will benson -- `ben`'s son.
+- You let `ben` geisler down.
+- You're a master chef `ben`.
+- Because, `ben` -- thank you.
+- `Ben`, i'm going to florida.
+- `Ben` listen to me... sugar.
+- I think that thing is `ben`.
+- `Ben` -- how old are you now?
+- `Ben`, when's delly due back?
+- Did `ben` gardner catch this?
+- Gone to `ben` masters' place.
+- I wasn't accusing you, `ben`.
+- Take care of yourself, `ben`.
+- `Ben`: okay, we need one more.
+- Hi, i'm here to pick up `ben`.
+- History is on our side, `ben`.
+- Keep `ben`'s for awhile, okay?
+- `Ben`: oh, my god, that's cold.
+- `Ben`: why are they doing this?
+- Leave it flat, will you, `ben`?
+- Not until `ben` is back inside!
+- Yes, i would like to see `ben`.
+- I've watched you grow up, `ben`.
+- Thanks for the diagnosis, `ben`.
+- `Ben`: god, even the table's hot.
+- `Ben`: jason, what are you doing?
+- `Ben`: what do you want me to do?
+- `Ben`: yeah, where are you going?
+- It's a very pleasant room, `ben`.
+- You killed two men, `ben` harper.
+- `Ben`'s always been a hardass.
+- `Ben`, can i say something to you?
+- `Ben`: get together for body heat.
+- `Ben`: i can't get it any farther.
+- `Ben`: it didn't take me too long.
+- `Ben`, maybe no talking right now?
+- `Ben` where do you have to get to?
+- God `ben` damon was such a hottie.
+- Oh, `ben` gets through everything.
+- `Ben`: i can't feel my extremities.
+- The rangers put `ben` wetzel on it.
+- You're one beautiful fucker, `ben`.
+- `Ben`: i don't know, try not to die.
+- `Ben`: this whole place is bullshit.
+- It's because you're too lazy, `ben`.
+- I can only stay for one drink, `ben`.
+- I can't hold them much longer, `ben`.
+- I don't know how far i can go, `ben`.
+- Now, `ben`, i won't have any of that.
+- The nurse did a very good job, `ben`.
+- `Ben`'s still out there -- get a grip.
+- `Ben` -- this isn't permanent, johnny.
+- Do you agree with `ben`, mr. gardiner?
+- It's awful soon after `ben`'s passing.
+- Yes, `ben` - are you going to die now?
+                 

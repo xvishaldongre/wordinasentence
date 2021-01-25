@@ -1,0 +1,68 @@
+---
+title: "official in a sentence | official example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "official"
+---
+- Okay, it's `official`.
+- Is that an `official` wish?
+- What makes that `official`?
+- What's an `official` cross?
+- An `official` pardon from me.
+- It wasn't an `official` call.
+- Make it `official`, if you like.
+- So it's nothing that `official`.
+- Yeah - it looks real `official`.
+- Is that your `official` response?
+- What's the `official` story here?
+- This is an `official` crime scene.
+- The `official` term is "psychotic".
+- We are here on `official` business.
+- You're the indian `official`, yeah?
+- For my second `official` action, 47.
+- I am only a poor corrupt `official`.
+- He didn't believe the `official` story.
+- I haven't heard an `official` "no" yet.
+- That will make it even more `official`.
+- Dwayne was there, acting all `official`.
+- For the `official` end of your sentence!
+- `Official` business is difficult enough.
+- Or, actually, its `official` non-policy.
+- This is an `official` matter, mrs. peel.
+- And we are `official` at everest base camp.
+- You're a processor of semi-`official` news.
+- The `official` term for it is "clusterfuck".
+- I don't have an `official` response, michael.
+- Most `official` records were lost in the war.
+- For my first `official` action as chancellor, no.
+- I know it's not an `official` designation -- here.
+- The `official` cause of death was a cardiac arrest.
+- Is this an `official` break, or are we taking a five?
+- She’s just strong-willed… that makes it `official`.
+- He's a mucky-muck union `official` from massachusetts.
+- This is the `official` composite of the three precogs?
+- We never told anyone, outside of our `official` report.
+- I'll screw every prison `official` in texas if i have to.
+- I'll be back later for the `official` end of your sentence.
+- Some public `official` skipped a week on his christmas club?
+- Governor yu is a court `official`, and in charge of security.
+- You're the highest law enforcement `official` in the country.
+- Do you think the `official` network would surrender to one man?
+- You'll put on a suit, and you'll meet with an iraqi `official`.
+- I'll need the `official` release orders on my desk sunday night.
+- The `official` inquiry blamed weir's design for the ship's loss.
+- I've read `official` estimates but i wouldn't bet my house on them.
+- A discussion between an american embassy `official` and a un colonel.
+- Convinced all those that needed convincing: you're an `official` dead lady.
+- So that's him-- you'll get `official` notification when i make my decision.
+- And there were these `official` forms saying, like, nothing ever happened, hey!
+- I gather that your efforts on the `official` level were not entirely successful.
+- In order for it to have any power, i think it's gotta be an `official` crucifix.
+- You could say we represent the <u>un</u>`official` view of a well-ordered society.
+- Yeah... jack, come on, there is an `official` department policy about cop killings.
+- Well i got the papers on my `official` up-grading to ags-19 two weeks before we left.
+- Your name change -- they had no `official` enrollment -- "frank" was my mother's father.
+- See the cartouche there, it's the `official` royal seal of seti the first, i'm sure of it.
+- The indian `official` who supplied this information did so only on condition of anonymity.
+- This is an `official` visit, then-- so tell me why i shouldn't make this place off-limits.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ear in a sentence | ear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ear"
+---
+- Fuck 'em in the `ear`.
+- Fuck him in the `ear`.
+- No, no, not the `ear`.
+- Pour it in your `ear`.
+- Cut half his `ear` off.
+- It's this shitty `ear`.
+- Give me the `ear` piece.
+- Watch your `ear`, creek.
+- Cutting off my own `ear`?
+- Part of it hit her `ear`.
+- Don't hurt my `ear` again!
+- No, in your...`ear` piece.
+- You want to lose an `ear`?
+- It's just in one `ear`?
+- But let's play it by `ear`.
+- Here, in front of my `ear`.
+- I still got one good `ear`.
+- That's my trick `ear`, joe.
+- `Ear`, nose and throat man,.
+- He whispered it in my `ear`.
+- Let's just play it by `ear`.
+- Right above your left `ear`.
+- My grandmother's `ear`-muffs.
+- Oh...with his `ear` infection!
+- From your mouth ta god's `ear`.
+- I'm a little deaf in this `ear`.
+- You were a sympathetic `ear`.
+- What do you know about the `ear`?
+- An `ear` infection, chronic thing.
+- What do you know about the `ear`?.
+- That motherfucker cut off my `ear`!
+- On your `ear`, you've got something.
+- She's my `ear` to the investigation.
+- There behind vista, i found an `ear`.
+- There behind vista, i found an `ear`.
+-  yeah, yeah, i get in it in my `ear`.
+- Get that finger out of your `ear`.
+- Hey, no, aw, that's my `ear` bu... ew.
+- He don't have to stick 'em in my `ear`.
+- I was born with this thing in my `ear`.
+- `Ear`-nose-throat meets rabbit-from-hat.
+- There's an insect buzzing in your `ear`.
+- The `ear` is from a missing person maybe?
+- But they've never had a sympathetic `ear`.
+- Watch me stand that old dodo on his `ear`.
+- If you want your `ear` pierced, i'll do it.
+- It's about equilibrium in your inner `ear`.
+- Plays the lute, she has a natural `ear`.
+- He's right about the `ear`, it's hacked off.
+- Imagine: you'll have the `ear` of the media.
+- Here i come, here i come -- where's my `ear`?
+- You made too many demands on the royal `ear`.
+- Look at the `ear` of the cop... that's a wire.
+- The whole police force standing on it's `ear`.
+- She puts a ken head earring in her right `ear`.
+- But why not just put a little lead in her `ear`?
+- Hold the phone to my `ear` -- but don't nudge me.
+- I'm, i'm, i'm, i'm gonna lose hearing in my `ear`!
+- Girl just got stabbed in the `ear` with an ice pick.
+- It was my right, my right, my right or my left `ear`.
+- Maybe i should see an `ear` dahhh -- ever serve time?
+- He really is- he's screaming his opinions in my `ear`.
+- I think it's time we reconsider the in-`ear` monitors.
+- I think you're one step away from cutting your `ear` off.
+- I tried to take my pants off over my head... ...my `ear`.
+- Just keep your `ear` to the phone and don't make a sound.
+- My tongue around the edge of his `ear` is what cured him.
+- Good number of this town's sinners got my `ear`, you know.
+- He cut an `ear` from one of the men, no one else was hurt.
+- Someone would whisper something into my `ear`, a human man.
+- Do that and i'll put all eight inches of this in your `ear`.
+- He puts his hands on me again i'll bury a slug in his `ear`.
+- I don't go round messing about with your `ear`-phones, do i?
+- I haven't heard anything out of that `ear` since i was a kid.
+- Now, i'm not going to wear `ear`- rings, i can tell you that.
+- 'cause they fucking shoot you in the eye, the face, the `ear`.
+- Hey, a big tip doesn't give you the right to crap in my `ear`.
+- Hadn't really gotten started yet � what happened to your `ear`?
+- Please �- i can't explain things like this to your right `ear`.
+- If you see that boy again, bite off his `ear` off like mike tyson.
+- Man, this old free world ain't gonna know which `ear` to stand on.
+- That could be the sign of a damaged `ear` drum, you understand?
+- I'm gonna put a great big, `ear`-to-fucking-`ear` smile on your face.
+- It's `ear`-marked for mirror man and the sphinx... we'll take it...
+- Ac-system 'big-`ear`' telescopic mike with built-in audio processor.
+- She just came in, talked my `ear` off, and took charge of everything.
+- When elektra�s `ear` was delivered to him in the post, he came to me.
+- Just get one hand against each `ear` there--keep his face straight up.
+- A mountain curved like a woman's back, a plateau the shape of an `ear`.
+- Fella named barone turned up just this mornin', throat cut `ear` to `ear`.
+- He slashed the cop's face, cut off his `ear` and was gonna burn him alive.
+- I can hear it like a fly trapped inside my `ear`... says its name is oona!
+- She swept him out the door whispering little french things into his `ear`.
+- Probably marry some rich doctor and never have to work... one in each `ear`.
+- Wake them all, everyone but octavia, someone knows the bunny `ear` technique.
+- Could an `ear` nibble be the thing but i am the chancellor of the ark, - what?
+- He pulls alex's `ear`, pushes him off balance and plants his foot on his chest.
+- I am not asking for alms, but rather the `ear` of a kind man with a noble heart.
+- If i'da been half as scared a that lop-`ear`, i wouldn't a fallen asleep on 'em.
+- Cast winnebago -- next </b> domino rides shotgun with her cell phone to her `ear`.
+                 

@@ -1,0 +1,96 @@
+---
+title: "someday in a sentence | someday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "someday"
+---
+- I'll explain `someday`.
+- Maybe i will `someday`.
+- So will you, `someday`.
+- Just... maybe `someday`.
+- `Someday`, i'll find out.
+- `Someday` honey, i will...
+- You'll thank me `someday`.
+- It will be yours `someday`.
+- Let me teach you `someday`.
+- `Someday` she'll thank you.
+- `Someday` they may be scarce.
+- I'd like to try them `someday`.
+- `Someday` he's gonna be a boss.
+- `Someday`, i'll pay it all back.
+- `Someday` your prince will come.
+- You'll find true love `someday`.
+- You'll get outta here `someday`.
+- `Someday` you'll understand that.
+- And his savior will `someday` lead.
+- It may do the same for us `someday`.
+- I wanna live at the beach `someday`.
+- `Someday` she'll find her happiness.
+- `Someday` you'll thank him for that.
+- `Someday`, you may not mind so much.
+- Could `someday` return to the ground.
+- I'll probably go back to it `someday`.
+- Maybe i'll teach you to play `someday`.
+- Maybe `someday` i'll be your new daddy.
+- I'm going to keep people safe `someday`.
+- Maybe `someday` we can all get together.
+- Mom... maybe we'll get that `someday`...
+- The two of us getting married `someday`.
+- Maybe `someday` you'll tell me your name.
+- `Someday`, scott, this will all be yours.
+- It may come down to us, or them `someday`.
+- Is everything gonna be all right `someday`?
+- Lois, `someday` -- oh, i'm not blaming you.
+- Somebody's gonna figure this out `someday`.
+- `Someday` they'll get what's coming to them.
+- `Someday` this luau is going to be all mine!
+- You could be a good pilot again `someday`...
+- All the same, `someday` you'll lie to laszlo.
+- Can you believe `someday` we'll work for him.
+- He said `someday` he would get his land back.
+- He wants to be working for himself `someday`.
+- Hey, maybe `someday` your band'll play there.
+- We wanted you and jimmy to have it `someday`.
+- I hope `someday` people read your books again.
+- `Someday` perhaps, you might even take charge.
+- Any chance of one of them confessing `someday`?
+- Well, i certainly hope you find him, `someday`.
+- You are really going to be beautiful... `someday`.
+- ...badge `someday`, then you can ask the questions.
+- I knew `someday` someone would make the call on me.
+- Maybe you thought you'd be back this way `someday`.
+- One of these'll send your kids to college `someday`.
+- `Someday` we've got to start transcribing the tapes.
+- `Someday` you'll have a son just like you, jeremiah.
+- You know, `someday`, sarah, you're gonna settle down.
+- You know, `someday` you might appreciate a wife yeah.
+- ♪ you know we're gonna lose it `someday` ♪ it's mine.
+- `Someday`, i think, maybe, she make a very good typist.
+- Yeah, honey, `someday` everything's gonna be all right.
+- `Someday` he'll surface and i'll get him for both of you.
+- `Someday` it's going to be chief larry calling the shots.
+- `Someday` you might want to open up your own studio here.
+- But maybe, `someday`, with more research- can he save her?
+- I pray to all that is holy that she will `someday` return.
+- That `someday`, you're real small, and you've got no time.
+- Please don't tell me "you'll find somebody else `someday`."
+- `Someday`, you gonna smile, and we gonna declare a holiday.
+- `Someday` you're gonna get all the good things you deserve.
+- So... you want to work for a winery or something `someday`?
+- You may `someday` dine at the white house with the president.
+- Maybe we'll get that `someday`... jordan's idea is worth a shot.
+- I'm honored to think i might `someday` speak with such eloquence.
+- My father could only dream that i would be... a general `someday`?
+- You and your egghead friends like she's gonna come home `someday`.
+- I thought, i hope `someday` i have somebody who loves me that much.
+- Maybe `someday` you and i will owe tom had a bandage on his forehead.
+- I was saying...thinking maybe i'd get my own quiz show `someday`, jimmy.
+- ♪ `someday`, sippin' on jim beam, ok ♪ red dress, intelligent expression.
+- I... hey, as the owner of a dog, ♪ you know `someday` ♪ hell, i do it, too.
+- You'll pick it up... and `someday` you'll have no need for that pistol either.
+- He doesn't like it much and i suppose `someday` we'll have to stop calling him that.
+- All they could do was build the empire, knowing that `someday` it would all be yours.
+- Every day for the last five years, i told myself `someday` i would be out here again.
+- Maybe he... as a help to me, when you're acting, it may do the same for us `someday`.
+- `Someday` you may be priests... but only if you learn the scripture chapter and verse.
+                 

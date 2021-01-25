@@ -1,0 +1,7 @@
+---
+title: "impulsed in a sentence | impulsed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "impulsed"
+---
+## Unfortunately, we have no example sentences for impulsed                 

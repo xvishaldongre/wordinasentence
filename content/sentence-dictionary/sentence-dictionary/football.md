@@ -1,0 +1,65 @@
+---
+title: "football in a sentence | football example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "football"
+---
+- Empty as a `football`.
+- `Football` in college.
+- `Football` is my life.
+- ♪ arena `football`'s ♪ ooh!
+- No teammates in `football`?
+- `Football`'s a man-made game.
+- I'm retiring from `football`.
+- Only on the `football` field.
+- She into `football`, you know.
+- Do you like to play `football`?
+- It's that old `football` injury.
+- No, no, on the `football` field.
+- This game isn't like `football`.
+- Now there's a `football` program.
+- Rams... that's `football`, right?
+- No, it's an old `football` injury.
+- Fits better in a `football` helmet.
+- `Football` season's over, veronica.
+- He couldn't play `football` anymore.
+- I was never into `football`, you know?
+- Pretty sure my `football` career is over.
+- How's that `football` story corning along?
+- I guess i'm not quite the `football` type.
+- It�s just this god awful `football` phone!
+- That's where a `football` game would help.
+- `Football` team started practice last week.
+- We didn't come here to talk about `football`.
+- I love ohio `football`, but i hate nightclubs.
+- You know the `football` player, red g- grange?
+- My school records, jack's `football` records...
+- `Football`, chess, maybe even a silly video game.
+- But he won't be playing any more `football` today.
+- Filled with the good `football` colleges, straight kids.
+- But you could literally play `football` without any feet?
+- They threw him a `football` once, he tried to dribble it.
+- All this stuff to pick a `football` player for your squad.
+- I died, and i'm inside the body of this `football` player.
+- I mean, you don't exactly have the build for a `football`.
+- When i'm in high school i'm not going to play any `football`.
+- In a `football` stadium; i think they already know we're here.
+- Harry became a `football` star �� made second team all american.
+- Any way, fate stepped in and took `football` out of the equation.
+- So if i got good grades, i was a pussy for not playing `football`.
+- I wanted to go out for `football`, but mom was afraid i'd get hurt.
+- He's big and plays `football` and will beat the shit out of you.
+- In high school i played `football` because my old man expected me to.
+- He says that when there's a war, everybody goes but `football` players.
+- I do better to sit in the cheap seats with some real `football` people.
+- Haven't you ever seen `football` players after they've won the superbowl?
+- Homer simpson, are you watching `football` get out of this hideous dress.
+- They were children of our leading citizens, stars of the `football` team.
+- His father wants him to join `football` it came for me, and... oh, my god.
+- All the `football` guys are in the lobby, watching, there's even an espn crew.
+- You're saying, don't make the kids a `football`, don't put them through a war.
+- At 8:00 p.m. tonight, there will be an assembly on the `football` field i know.
+- Dr. woodly says he's seen hundreds of children permanently injured by `football`.
+- Woogie was all-state `football` and and basketball and valedictorian of his class.
+- ...see my husband was a big `football` star in college and we were in an accident together.
+                 

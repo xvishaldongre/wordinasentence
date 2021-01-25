@@ -1,0 +1,8 @@
+---
+title: "Barnett's in a sentence | Barnett's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Barnett's"
+---
+- `Barnett's` tough competition.
+                 

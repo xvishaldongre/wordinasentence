@@ -1,0 +1,107 @@
+---
+title: "heaven in a sentence | heaven example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heaven"
+---
+- I believe in `heaven`.
+- I'm going to `heaven`!
+- An angel from `heaven`.
+- Maybe this is `heaven`.
+- Nothing, thank `heaven`.
+- Oh, for `heaven`'s sake.
+- Up to `heaven` be flown!
+- A match made in `heaven`.
+- By `heaven`, i thank you!
+- I'll just go to `heaven`.
+- She's up in `heaven` now.
+- Take a whiff of `heaven`.
+- Back to `heaven` on earth.
+- Deak, for `heaven`'s sake!
+- The real `heaven`, i mean.
+- Well, for `heaven`'s sake!
+- What's a chinese `heaven`?
+- Thank `heaven` that's over!
+- Thank `heaven` you're here!
+- That's my idea of `heaven`.
+- What in `heaven`'s name...!
+- I know where my `heaven` is.
+- In `heaven` now and forever.
+- Could `heaven` be any better?
+- For `heaven`'s sake, why not?
+- `Heaven` is the mustard seed.
+- Stir things up in "`heaven`?"
+- You want to be in "`heaven`?"
+- Creator of `heaven` and earth?
+- No finer drink under `heaven`.
+- God in `heaven`, what is that?!
+- Grammoo said she's in `heaven`.
+- Pleasure from `heaven` or hell.
+- Sounds like terrorist `heaven`.
+- We don't use money in `heaven`.
+- You people believe in `heaven`?
+- Like do you believe in `heaven`?
+- The parking space from `heaven`.
+- When did you fall outa `heaven`?
+- Which is a sin against `heaven`!
+- Why do people get into `heaven`?
+- Are you familiar with "`heaven`?"
+- But, we're all going to `heaven`!
+- I think our son went to `heaven`.
+- Like a marriage made in `heaven`?
+- No wonder it's called "`heaven`."
+- Some believe in `heaven` or hell.
+- Tell me more about `heaven`, son.
+- That's how you get into `heaven`.
+- Now, enter my chariot to `heaven`.
+- Part of it took place in `heaven`.
+- If ever i saw a sign from `heaven`!
+- I stink to high `heaven` right now.
+- Thank `heaven` i found you, berger.
+- All is fair in "`heaven`," ted-baby.
+- In fact, that's my idea of `heaven`.
+- So...got the keys to `heaven`, baby.
+- So, ned flanders gets into `heaven`.
+- A temple, where `heaven` is on earth?
+- So... did you get a look at `heaven`?
+- You used to call it "`heaven` music."
+- Daddy's died and gone to `heaven`, eh?
+- God thought him beautiful in `heaven`.
+- `Heaven` doesn't look like i expected.
+- It stinks to high `heaven` in here.
+- What the hell is `heaven` on earth?
+- But at least you get to go to `heaven`.
+- But don't worry...we'll be in `heaven`.
+- He's going to check out `heaven` first.
+- It looks like `heaven`... you're right.
+- Thank `heaven` you're not on this case.
+- What in `heaven`'s are you looking for?
+- All right, what's your idea of `heaven`?
+- Have you ever even looked at "`heaven`?"
+- He gets a round trip ticket to `heaven`.
+- In `heaven`, shuffleboard is everything.
+- It will guarantee his place in `heaven`.
+- I won't be able to squeeze into `heaven`.
+- Kids, there's only one way into `heaven`.
+- No, we don't believe in `heaven`, doctor.
+- We must make our own `heaven` down below.
+- Why would `heaven` want people like that.
+- The girl i love, she hates "`heaven`."
+- There's no happier thought under `heaven`.
+- We have this new club up here in `heaven`.
+- Chi-chi has gone to doggie `heaven`, bitch!
+- It's that there are many paths to `heaven`.
+- Jim, what is going on, for `heaven`'s sake!
+- Agnes dear, `heaven` is not a place where...
+- Didn't they give you a real leg in `heaven`?
+- Do the people my daddy shoots go to `heaven`?
+- But, hildy -- i can explain -- sure, `heaven`!
+- Cluett, in `heaven`'s name, what got into you?
+- `Heaven` is very much like paradise, they say.
+- I am true -- to my lord, the king of `heaven`.
+- You know, up here in `heaven`, it's beautiful.
+- I'd rather rule in hell than serve in `heaven`.
+- I think folks carry on about `heaven` too much.
+- Because i'm a newspaper woman, `heaven` help me!
+- Do you swear on all the holy saints in `heaven`?
+                 

@@ -1,0 +1,8 @@
+---
+title: "recesses in a sentence | recesses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "recesses"
+---
+- We shall penetrate into the `recesses` of nature.
+                 

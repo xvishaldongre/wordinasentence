@@ -1,0 +1,107 @@
+---
+title: "action in a sentence | action example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "action"
+---
+- I'm ready for `action`.
+- It's a combat `action`.
+- It's time for `action`.
+- You like that `action`?
+- I'll take that `action`.
+- Sir mike, your `action`.
+- We'll get some `action`.
+- All analysis, no `action`.
+- He was killed in `action`.
+- Not a lot of `action` here.
+- We must take `action` fast!
+- What's the `action` around?
+- How about a little `action`?
+- It's an anti-trust `action`.
+- They bring all the `action`.
+- I say we gotta take `action`.
+- I've watched you in `action`.
+- Let's have a little `action`.
+- You know my plan of `action`.
+- I think i'll see hat `action`.
+- It's time for <u>`action`</u>.
+- The time for `action` is now!!
+- Use your karate chop `action`!
+- You looking for some `action`?
+- Is to fight a holding `action`.
+- A scribe for the daily `action`.
+- I'll take half of your `action`.
+- Ya got any `action` on the side.
+- I says, 'what kinda `action`?'
+- I'm not authorizing that `action`.
+- Line on single `action`... 3 to 2.
+- That's where the real `action` is.
+- You wait for me to say '`action`.'
+- I got caught up in the `action`...!
+- This is a police control `action`..
+- We are going where the `action` is.
+- For my second official `action`, 47.
+- Mister affirmative-`action` peacnik.
+- You can catch her in `action` there.
+- A few things about military `action`.
+- ...i'd take more persuasive `action`.
+- You are at the heart of the `action`.
+- Got a little `action` there, eh buddy?
+- Promoting that `action` movie i did...
+- I'll bet this one's seen some `action`.
+- There's still plenty-a `action` around!
+- This is the american dream in `action`!
+- You and lois, you get all the `action`.
+- You don't have a piece of the `action`?
+- Single `action` second, fasanella third.
+- We want some `action` in these pictures.
+- Bond, you and i are both men of `action`.
+- Let me get a little `action` started here.
+- Millimeter pump-`action` grenade launcher.
+- We must take `action` on this immediately.
+- What -- what sort of `action` do you mean?
+- Got tired of thinking-wanted some `action`.
+- Hey guys, you came to watch me in `action`?
+- It won�t just be two weeks out of `action`.
+- File an `action` first thing in the morning.
+- Tell him to stop taking `action`, all right?
+- It's the only way to get into the `action`...
+- We have to figure out a plan of `action` now.
+- Check out the miami vice `action` spectacular.
+- Lotsa `action` on 28th street down there, too.
+- Now how 'bout a little `action` from the kids?
+- Now, i need the `action` and i need the money.
+- The `action` is in the front, not in the back.
+- Do you think this is a wise course of `action`?
+- I might be able to pick up some `action` there.
+- It's to find an `action` that is not automatic.
+- Should i put this on your "`action` item list?"
+- The real `action` is in the developing markets.
+- We supported you because you promised `action`.
+- ...but i cannot authorize that kind of `action`.
+- Gordon is immediately electrified into `action`.
+- I want some numbers to try to get some `action`.
+- You can almost smell the `action` and the money.
+- For my first official `action` as chancellor, no.
+- Mike, why are you cutting me out of the `action`?
+- Usually ann has some serious salt `action` going.
+- Expressing my opinion is not a terrorist `action`.
+- Jerses i want it built up in the daily `action`...
+- No, three brothers of his were killed in `action`.
+- Breathing and walking provide the pumping `action`.
+- He taught me the wires for a piece of the `action`.
+- The sweep is just routine, not even police `action`.
+- To extend our oxygen supply unless we take `action`.
+- It looks like you boys have seen a lot of `action`...
+- That's one thing i think you're good for is `action`.
+- You need to make these your primary "`action` items."
+- Captain tyler flies out of his seat and into `action`.
+- I just know your cross `action` is a plus on our side.
+- I thought only `action` movies had villains like that.
+- Are you threatening me with legal `action`, mr. fabian?
+- I had starred in the hit `action` buddy comedy not bad.
+- Must i take drastic `action` in order to get a hearing?
+- Well, you have the maxine `action` figure to play with.
+- Some `action` in london, 'til it turned nickel and dime.
+- Sometimes the right `action` comes from the wrong reason.
+                 

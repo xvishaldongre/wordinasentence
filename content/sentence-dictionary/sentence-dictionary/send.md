@@ -1,0 +1,107 @@
+---
+title: "send in a sentence | send example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "send"
+---
+- Guy, `send` them boys.
+- How to `send` a bill!!
+- I'll `send` you a box.
+- I mean `send` it over.
+- `Send` me a post card.
+- Did you `send` the car?
+- Hello... `send` him up.
+- I'll `send` you a copy.
+- I'll `send` you a muff.
+- No, i didn't `send` it.
+- `Send` in the soldiers!
+- `Send` some bodyguards.
+- Yah, `send` me back-up!
+- You go, `send` anatoli.
+- Don't `send` me to jail.
+- Friday, `send` him home.
+- I'll `send` my gardener.
+- I'll `send` you a check.
+- I�ll `send` someone out.
+- `Send` in their friends.
+- `Send` in the next girl.
+- `Send` that immediately.
+- We'll `send` a squad up.
+- Where did you `send` it?
+- Where'd they `send` her?
+- You've got to `send` me!
+- Did they `send` you here?
+- I'll `send` your regrets.
+- `Send` him to stalingrad.
+- `Send` somebody with him.
+- `Send` you to the future?
+- Then `send` me with them.
+- Where do you `send` them?
+- But he did `send` me this.
+- Don't `send` flowers, joe.
+- Go on `send` the telegram.
+- Let's `send` out a pigeon!
+- `Send` in the riot police.
+- `Send` out a casting call.
+- `Send` the nimitz back in.
+- Then he didn't `send` you?
+- This girl is a god-`send`.
+- We could `send` a message.
+- We'll `send` a truck down.
+- "you can't `send` me back.
+- You'll `send` me to zalem?
+- You `send` telegrams here?
+- Can i `send` you somethin'?
+- Can it `send` me to hawaii?
+- Did mikhail `send` for you?
+- I'll `send` her right over.
+- I'll `send` them in groups.
+- I'll `send` you a postcard.
+- I'll `send` you her resume.
+- I will `send` back anatoli.
+- "`send` the girl to do it."
+- `Send` to ambassador sarek.
+- They'll `send` more people.
+- Will `send` reinforcements.
+- You have to `send` me back!
+- Going to `send` me to sleep?
+- I will `send` back, anatoli.
+- Joseph, `send` for clarence.
+- No, you'd better `send` him.
+- `Send` out a boarding party.
+- We'll `send` for the police!
+- I'll `send` you some flowers.
+- I told you to `send` it back.
+- Just `send` me a money order.
+- My mother can `send` me some.
+- Now `send` for russell prime.
+- Please, i -- `send` him away.
+- Quite a `send`-off, isn't it?
+- `Send` a truckful to seattle.
+- Then `send` him to taxidermy.
+- I'll `send` a patrol with you.
+- I'll `send` morgan or lambert.
+- `Send` her a card - something.
+- `Send` me a postcard about it.
+- `Send` the book to evidence...
+- Someone'll `send` it on ahead.
+- Uhura, `send` to starfleet hq.
+- You didn't `send` him to rick?
+- If she do not, `send` her back.
+- I'll `send` a cop back for you.
+- I'll `send` in the next victim.
+- I'll `send` it up to langley...
+- I'll `send` the key right down.
+- Is `send` kids into harm's way.
+- Please `send` me back to earth.
+- They'll `send` it through here.
+- You don't `send` this one back.
+- And we `send` a team after kane.
+- Did you `send` anyone out there?
+- I don't `send` you men, anymore.
+- If you can, `send` me a receipt.
+- I'll `send` it to you at glades.
+- In case they `send` another one.
+- `Send` anatoli back with some o.
+- `Send` it to sacramento, john ..
+                 

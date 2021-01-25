@@ -1,0 +1,51 @@
+---
+title: "broad in a sentence | broad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "broad"
+---
+- Stu, k2, `broad` peak.
+- Where is this `broad`?
+- But in `broad` daylight?
+- Who's the fancy `broad`?
+- You cool the `broad` out?
+- How about that snotty `broad`?
+- Jesus, what kinda `broad` are you?
+- In `broad` daylight and everything?
+- Tall her he ran away with a `broad`.
+- Ya never tell a guy about a `broad`.
+- I was making a `broad` generalization.
+- Luca never sleeps over with a `broad`.
+- Wait don't tell me ... is it a `broad`?
+- A truck of lilacs when the `broad` comes.
+- I can barely do this in `broad` daylight.
+- `Broad` daylight, a crowded movie theatre.
+- What is it with you and this `broad` anyway?
+- Makes your shoulders look so big and `broad`.
+- Be patient, for the world is `broad` and wide.
+- He always wanted to die in bed...with a `broad`.
+- Check out the rack on that `broad` in the angora.
+- There's this native `broad` works in the laundry.
+- If you've got "a `broad`" available i'll take her.
+- I want li..., for the `broad`...what does she like?
+- This `broad` hired you, gittes, not evelyn mulwray.
+- Should have never started with this fuckin' `broad`.
+- I have the feeling you guys got the `broad` strokes already.
+- He drowns a `broad` in his car and he can't run for president.
+- Shot three guys to death in a coffee shop in `broad` daylight.
+- That's funny, it don't seem to fit with a tough `broad` like you.
+- An agent is showing me a house up on `broad` beach in ten minutes.
+- A telephone, some `broad` to say "good morning," nothing...nothing...
+- I always loved that mute `broad` that chuck heston was shacking up with.
+- We didn't come here to watch you and that `broad` dance around a may pole.
+- Now this phony `broad`, excuse the language, says she's you, she's hired me.
+- The `broad` used to work for one of concannon's partners in new york awhile ago.
+- A `broad` river divides my lovers--family, duty, fate--as unchangeable as nature.
+- Because... because -- i mean -- the english have a `broad` sense of humor, but...
+- That `broad` you picked up -- did you know she was a us marshal, for christ sake?
+- The `broad` has disappeared... we don't have anything from the nurse association?
+- Jesus, mary, you gotta hear this -- some cop's staking out this `broad`'s apartment.
+- Listen, we can't string this `broad` out indefinitely we got to come up with something.
+- Find out when marty rossen's arriving, get him a bunch of lilacs to send to the `broad`.
+- Hey -- the fact you popped jimmy chin in `broad` daylight proves it wasn't premeditated.
+                 

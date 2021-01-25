@@ -1,0 +1,107 @@
+---
+title: "re in a sentence | re example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "re"
+---
+- A "t." you'`re` right.
+- Barnes, you'`re` dead!
+- Because you'`re` nuts.
+- Bellamy, we'`re` here.
+- Bodies'`re` too fresh.
+- Boiler, we'`re` alive.
+- Both if we'`re` lucky.
+- Boy: they'`re` back!
+- But now you'`re` here.
+- But they'`re` hackers.
+- But when you'`re` not.
+- But you'`re` a coward.
+- But you'`re` a doctor.
+- But you'`re` my child!
+- But you'`re` no pinup.
+- But you'`re` not luke.
+- But you'`re` the gods!
+- Cole, we'`re` outlaws.
+- Come on, we'`re` late.
+- Come on, we'`re` next.
+- David, you'`re` drunk.
+- Don’t ﬁre that's it?
+- Do what you'`re` told.
+- Doyle, you'`re` awful.
+- El, you'`re` bleeding.
+- Even if they'`re` bad.
+- Eve: they'`re` coming.
+- Go on, you'`re` tired.
+- Grimes, you'`re` dead!
+- He knows we'`re` here.
+- Hell, we'`re` farmers.
+- He says you'`re` dead.
+- Hey, hey, you'`re` ok.
+- Hey, we'`re` flexible.
+- Hey, you'`re` limping.
+- Hey, you'`re` melting.
+- I guess you'`re` okay.
+- I hear they'`re` good.
+- I hope you'`re` happy!
+- I hope you'`re` happy.
+- I hope you'`re` right.
+- I know you'`re` there.
+- I know you'`re` tired!
+- I know you'`re` upset.
+- I mean, you'`re` okay.
+- I'm glad you'`re` not.
+- I'm sure we'`re` okay.
+- I'm sure you'`re` not.
+- I said you'`re` fired.
+- I think you'`re` cute.
+- It's a `re`-make, hal.
+- It's ok. we'`re` safe.
+- Joel, you'`re` a liar.
+- Jones: we'`re` here!
+- Kurtz, you'`re` drunk.
+- Like we'`re` a couple.
+- Like you'`re` perfect.
+- Looks like we'`re` it.
+- Maybe they'`re` right.
+- Means they'`re` cured.
+- No, we'`re` all right.
+- Now they'`re` rollin'.
+- Now we'`re` in for it.
+- No, you'`re` his wife.
+- No, you'`re` tripping.
+- Oh shit, we'`re` late.
+- Oh, they'`re` so cute.
+- Oh you'`re` good, ted.
+- Oh, you'`re` pretty...
+- Oh, you'`re` so smart.
+- Okay, we'`re` back in.
+- Ok. we'`re` safe here.
+- One we'`re` producing.
+- Phillip, you'`re` mad!
+- Simon, you'`re` broke.
+- Sir, we'`re` not done.
+- So far you'`re` great.
+- So how'`re` you doing?
+- So they'`re` not mean.
+- So, you'`re` a righty?
+- So you'`re` not a cop.
+- Sure, they'`re` safer.
+- Sure... you'`re` sure?
+- Tell him we'`re` busy.
+- Tessa, you'`re` drunk.
+- The guy we'`re` doing?
+- The hell you'`re` not.
+- Then you'`re` perfect.
+- Then you'`re` staying.
+- These boys'`re` a hit!
+- They'`re` agency, too.
+- They'`re` a liability.
+- They'`re` all ex-cops.
+- They'`re` all in here.
+- They'`re` all over us!
+- They'`re` all staties?
+- They'`re` all too big.
+- They'`re` all yo yo's.
+- They'`re` almost done.
+- They'`re` almost here.
+                 

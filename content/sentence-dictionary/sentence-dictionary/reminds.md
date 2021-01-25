@@ -1,0 +1,53 @@
+---
+title: "reminds in a sentence | reminds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reminds"
+---
+- It `reminds` me of home.
+- `Reminds` me of someone.
+- She `reminds` me of you.
+- `Reminds` me of jennifer.
+- `Reminds` me of old times.
+- Who is it he `reminds` you of?
+- He `reminds` me of ichabod crane.
+- He `reminds` me of the old man...
+- That always `reminds` me of home.
+- He `reminds` me of steve in a way.
+- `Reminds` me of life in the delta.
+- `Reminds` me of my days at whittier.
+- That `reminds` me, mr. mu... uh, sid.
+- It `reminds` me very much of this one.
+- _ she `reminds` me of somebody i know.
+- That `reminds` me, i gotta take a shit.
+- Which `reminds` me, did you get me cash?
+- Which `reminds` me, i need some new kicks.
+- You know what this crater `reminds` me of?
+- This one `reminds` me of my dog, all shaggy!
+- Which `reminds` me, i need a favor from you.
+- He `reminds` me of someone i knew in my youth.
+- So, please, for my sake, oh, that `reminds` me.
+- Well, this place sorta `reminds` me of something.
+- He `reminds` me of you before you got old and ugly.
+- It `reminds` me every day what's waiting out there.
+- Which `reminds` me... she might have used an alias.
+- Besides, he `reminds` me of my least favorite peoples.
+- That mug `reminds` me of a guy with his second dollar.
+- That `reminds` me, i've seen a lot of troubles lately.
+- The boy is in el, u, v. she `reminds` you of yourself.
+- She, uh, `reminds` me a little bit of you ... hello ... hi.
+- Yarr, activism means nothing it `reminds` you of something.
+- Something around the eyes, i don't know, `reminds` me of... me.
+- This cut on my hand `reminds` me that it is nothing to laugh at.
+- Listen, that `reminds` me, i'm having a party for all my clients.
+- It `reminds` me of this one time -- hey, can i ask you a question?
+- A woman in family way just `reminds` of spring and my younger days.
+- Probably `reminds` you of a bad relationship, a nancy drew mystery.
+- Oh, that `reminds` me, i've got to call what's- his-face and cancel.
+- But di, all this food `reminds` me of how much i want to teach our baby.
+- Kind of `reminds` me of that thing you did back in the state legislature.
+- That `reminds` me... have you heard the latest they're telling about the kremlin?
+- Egon, somehow this `reminds` me of the time you tried to drill a hole in your head.
+- `Reminds` me of a young doctor i used to know... you can' t imagine them, jean luc.
+- The, boom, something `reminds` you of her, and you just smile that bittersweet smile.
+                 

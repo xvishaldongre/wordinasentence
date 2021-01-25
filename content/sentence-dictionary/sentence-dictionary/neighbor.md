@@ -1,0 +1,67 @@
+---
+title: "neighbor in a sentence | neighbor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "neighbor"
+---
+- A pin, `neighbor` stone!
+- Oh come, `neighbor` stone.
+- She means your `neighbor`.
+- Jesus, that's my `neighbor`.
+- Let's take our `neighbor` out.
+- Just her `neighbor` and doctor?
+- A `neighbor` saw your car leave.
+- I had a good `neighbor`, george.
+- Just a minute, `neighbor` stone.
+- Those belong to my `neighbor` phil.
+- Well sure, `neighbor`, easy to say.
+- It's married and it's the `neighbor`.
+- You said a `neighbor` heard a ruckus.
+- ...by his vengeful `neighbor`, eugene.
+- I want to be your next door `neighbor`.
+- Tell your `neighbor` that you love them.
+- They're not his `neighbor`, like you are.
+- ...don't look at me like that, `neighbor`.
+- I'm taking your `neighbor` to the country.
+- She's a `neighbor`, i drive her to school.
+- What was that `neighbor` guy doing here?
+- Oh, my large and noisy `neighbor` -- really?
+- So, you are william's wild young `neighbor`?
+- My dear `neighbor` stone, i congratulate you!
+- You were the only `neighbor` i could tolerate.
+- Look here now-- good evening, `neighbor` stone.
+- So, then i coveted my `neighbor`'s riding mower.
+- I talked your `neighbor` out of pressing charges.
+- Victor was not a stranger, he was our `neighbor`.
+- As i left a `neighbor`, an old woman, waved to me.
+- Your `neighbor` -- udall -- is taking care of him.
+- All i need-- just one lock in this `neighbor`- hood?
+- Hey tits, i'm taking your `neighbor` to the country.
+- Who the fuck breaks in through the `neighbor`'s house?!
+- These bushes follow the wall into the `neighbor`'s yard.
+- Here's a potential new `neighbor`, looking at-- mr. simms.
+- I'm going to give my queer `neighbor` a lift to baltimore.
+- What the shit we're doin' with a `neighbor`, i don't know.
+- Grandma and grandpa sent you pictures of a `neighbor` girl.
+- Whatever happened to that old saying "love thy `neighbor`."
+- Our `neighbor` to the north has abused us for the last time.
+- Marvin acme's been my friend and `neighbor` for thirty years.
+- Why, of course, hank -- i've always got time for a `neighbor`.
+- Forget it -- i didn't do it as a doctor -- i did it as a `neighbor`.
+- To turn `neighbor` against `neighbor`, kane lost the election to pike.
+- Yes i had a quickie with the `neighbor` during your last contraction.
+- Don't be a good `neighbor` to her or i'm gonna send you a love letter.
+- It's rather difficult for us to think of another planet as a `neighbor`.
+- Why, if you tore one picket off of your `neighbor`'s fence he'd sue you!
+- Our `neighbor` did not kill his wife, and i...wait, why aren't you dressed?
+- Miss simms was your caretaker and `neighbor` after your mother died in 1980.
+- But as your `neighbor`, i'd like to kick your keester clear around the block.
+- You know this little tid bit, dorothy, and this thing, here, is a `neighbor`.
+- Ahem -- we want to have a little confidential talk with you, `neighbor` stone.
+- If the bugs come upstairs in this `neighbor`-hood, we'll be the first to know.
+- Her `neighbor` drove her, on account of your father was on business in wichita.
+- Hey man, it's the `neighbor`'s house, who breaks in through the `neighbor`'s house?!
+- Anyway, it turns out the genius behind the whole project is your `neighbor`, jim williams.
+- Headlines that grab you by the book bag: ♪ and the `neighbor` guy was ted mcginley ♪ - mm.
+- `Neighbor`, i'd feel better about the damned inconvenience if you'd let me buy you a drink.
+                 

@@ -1,0 +1,103 @@
+---
+title: "bones in a sentence | bones example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bones"
+---
+- Feel it in my `bones`.
+- Let's try dog `bones`?
+- Calm yourself, `bones`.
+- Let's hope so, `bones`.
+- Spock, it's me, `bones`!
+- I can't feel her `bones`.
+- You got any broken `bones`?
+- Found her `bones` last week.
+- No collar `bones`, remember?
+- They was `bones` ever'place.
+- Yes i feel it in my `bones`.
+- I'm so use to seeing `bones`.
+- I feel this kid in my `bones`.
+- `Bones`, these are... charming.
+- He's missing `bones` and stuff.
+- Their `bones` will turn to ice.
+- Maybe he's not out there, `bones`.
+- Some of him� char-broiled `bones`.
+- Where are your skulls and `bones`?
+- Alan, these aren't `bones` anymore.
+- And if so, where are those `bones`?
+- I saw the cut-marks on the `bones`.
+- Their `bones` are in the fireplace!
+- What do you do with the `bones`?
+- So what brings you to l.a., `bones`?
+- We're about dry `bones`, sweetheart.
+- Boiling down half a ton of `bones`...
+- `Bones`, i don't want to be lectured.
+- Got any `bones` that need collecting?
+- He must have broken half his `bones`.
+- You did great, `bones`... just great.
+- `Bones`, are you afraid of the future?
+- Good god almighty, bless your `bones`.
+- Some, i guess, but mos'ly cow `bones`.
+- Because that's where their `bones` are!
+- Are you the guy they called ray `bones`?
+- A faerie festival over a pile of `bones`?
+- Saw `bones` ol' `bones` on top of the hill.
+- This clock, i gave this clock to `bones`.
+- ... brom `bones`... keep still, constable.
+- He knows where all the `bones` are buried.
+- I don't see any bruises or broken `bones`.
+- I made my `bones` on the street, you know.
+- She'll suck your `bones` like honey- comb.
+- You sure it was ray `bones` took the coat?
+- `Bones`, why don't you see what you can do?
+- The `bones` will be there when we get back.
+- What... `bones`, what are we going to sing?
+- It's time to tickle your funny `bones` anya!
+- What care the `bones` when the soul is free?
+- `Bones`... can you give me a quadrant bi-scan?
+- In a world of old rags and `bones`, i like it!
+- They'll pick your `bones` clean before morning.
+- And there won't be enough meat on their `bones`.
+- But we need to know where the `bones` were hidden.
+- If you got an appetite for `bones` and bitterness.
+- Sure, i like a woman with some meat on her `bones`.
+- `Bones` -- mr. sulu... take us home... are you sure?
+- So they boiled his `bones` in sparkling cherry wine.
+- There's 215 `bones` in the human body, motherfucker.
+- They keep the `bones` of all their hosts like trophies.
+- I'm betting those `bones` are gonna do a lot of talking.
+- Most of my muscles are wrapped around the wrong `bones`.
+- Maybe i oughta talk to this ray `bones` character myself.
+- Don't mince words, `bones`; tell me what you really think.
+- It's metastasized in my `bones` and i -- get the fuck out.
+- So the creature's gonna feed wherever the most `bones` are.
+- To think your `bones` might have wound up in the reliquary.
+- Children of all ages, i'd like you to meet... jimmy `bones`.
+- I made my `bones` when you were going out with cheerleaders.
+- So he hacked the tips off and sharpened the exposed `bones`.
+- I am a-weary, give me leave awhile: fie, how my `bones` ache!
+- Yeah, it's tough when your cheek- `bones` are your main asset.
+- Hey, `bones`, looks like you're gonna have a nice scar up there.
+- I don't make no `bones` about where i'm going to spend eternity.
+- I would thou hadst my `bones`, and i thy news: i pray thee, speak.
+- "the vigor with which he made love caused her `bones` to dislodge.
+- Hollow me out so there's nothing left but the skin over my `bones`.
+- I may as well have just said "let me jump your ignorant `bones`."...
+- They have `bones` reinforced with naturally occuring carbon fiber.
+- ...`bones` ol' `bones` so mean and bad, whupped his mamma, shot his dad.
+- I'm wondering how the judge is gonna like my waking up his old `bones`.
+- You know how people with broken `bones` know when there's a storm coming?
+- Anybody else would have jumped my `bones` by now but you're after my soul.
+- `Bones`, you know this stuff is illegal -- 'beware romulans bearing gifts.'
+- Well, it's got huge ... very sharp ... it can jump a... look at the `bones`.
+- Come on, let's blow before lo' gran decides to boil your `bones` for breakfast.
+- George, uh... you're gonna break his little chest `bones`... where is the drug?
+- Once a performance is committed to film, the blood and `bones` are gone anyway.
+- Then your father's a dead man and jimmy `bones` is gonna be around a long time.
+- The occipital fracture is widening... we're going to have to fuse the `bones`...
+- What are you gonna do now if you don't have to dig of dinosaur `bones` any more?
+- Yeah, but what about-- thousand, yes, `bones` or clams or whatever you call them.
+- Jelly's made of gelatin, which comes from `bones`, instead, i saw an open air duct.
+- Please wear one of my `bones` around your neck... we're the good guys here, not you.
+- Somewhere along the line one of your `bones` broke and your mind just broke with it.
+                 

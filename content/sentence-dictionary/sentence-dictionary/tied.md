@@ -1,0 +1,76 @@
+---
+title: "tied in a sentence | tied example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tied"
+---
+- "`tied` and tethered".
+- Ruiz `tied` in out there?
+- My hands are `tied`, ma'am.
+- You're zip-`tied` to a bed.
+- A rock `tied` around its neck.
+- Peter, their hands are `tied`.
+- Her hands and feet were `tied`.
+- Nobody yet -- it's all `tied` up.
+- That's why we `tied` him, dumbass.
+- `Tied` up in the trunk of the car.
+- He's probably getting `tied` up now.
+- What `tied` the room together, dude?
+- You `tied` the cord around its neck.
+- It's `tied` to johnny's c.d., i know.
+- Like you were hog-`tied` or something.
+- Nice and easy, you're `tied` in, mate.
+- Because the mets just `tied` the score.
+- I'm glad i didn't have my tubes `tied`.
+- You were `tied` down and hallucinating.
+- He's liable to be `tied` up indefinitely.
+- He, you know, he `tied` in with the club.
+- Those punks weren't `tied` in with anyone.
+- I just can't stand to see people `tied` up.
+- I am `tied` to the passenger vessel chimera.
+- He says they still have to keep him `tied` up.
+- I know my father would hate to be `tied` down.
+- I've got all my dough `tied` up in this thing.
+- Jaha and the guards are `tied` up in a bedroom.
+- Jaha and the guards are `tied` up in a bedroom.
+- She's `tied` to me, r.l.. we `tied` to each other.
+- We're `tied` for most wins with northglen north.
+- I want them `tied` up and gagged with the primes.
+- So if defendant had `tied` up to deceased's boat.
+- We can't just walk him out `tied` up and bleeding.
+- Because he's not `tied` to the same system we are.]
+- What do you do - you and your tongue-`tied` friend?
+- They `tied` a man to a car and dragged him to death.
+- But gary's `tied`-in to a lot of media conglomerates.
+- The only reason he's screaming is 'cause he's `tied` up.
+- You've got your husband's girlfriend `tied` up in there!
+- Our hands are completely `tied` while they're in the air.
+- You `tied` into a loaded mark on 47th across from maxies.
+- All the forces of the universe `tied` together-- perfectly!
+- I can tell her you're all `tied` up in the projection room.
+- If you're not `tied` up tomorrow, raven's flares will work.
+- Oh, look at those shoes, `tied` so tight with loops so even.
+- This makes three guys ripped apart who are `tied` to her ass.
+- You can't leave me `tied` up out here alone, you fucking faggot!
+- I can't defend you, man, with one hand `tied` behind my back!
+- You want to know how much i got `tied` up in deposits with willie?
+- But wouldn't it be smarter if i went out and kept schulz `tied` up?
+- I've seen too many men ruined or `tied` down or messed up by women.
+- Okay, which of these ties is better they `tied` us to stakes, john.
+- They like the idea, but my hands are `tied` with budget restraints.
+- There's something going on, z -- why do they have you `tied` up here?
+- Deeds `tied` up traffic while he fed a bagful of doughnuts to a horse.
+- We have everything we need... food, water, they must have `tied` them.
+- Everything i have -- everything we have -- is `tied` up in my business.
+- It's the kidnap woman -- the one who was with the guy who `tied` us up.
+- It's gonna get worse and worse god, i hate being `tied` up, ¿accidentes?
+- I was `tied` up that night, too, marge, honey, you've got to be careful.
+- Any more than my safety line snapping after it was `tied` off to the sub?
+- ...ginger's missing and she `tied` amy up and she locked her in her room.
+- Yeah man, it really `tied` the room together-- this was, uh-- i understand sir.
+- Our names will be `tied` together for eternity - his in fame and mine in infamy.
+- Now i can't do it, cause i'm `tied` up, but we get the others to go along -- how?
+- Well sir, it's this rug i have, really `tied` the room together- stay away from me!
+- Put yourself in my place, baxter -- how can i help her -- my hands are `tied` -- for me?
+- You get `tied` up, stick around, distract me, they both bust in and steal my cup of coffee.
+                 

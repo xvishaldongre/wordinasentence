@@ -1,0 +1,107 @@
+---
+title: "concerned in a sentence | concerned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "concerned"
+---
+- Happy was `concerned`.
+- Rick, i'm `concerned`.
+- You're `concerned`.
+- Like you're `concerned`.
+- Should i be `concerned`?
+- I'm a little `concerned`.
+- Where you're `concerned`.
+- I'm `concerned` about you.
+- That's why i'm `concerned`.
+- Why are you so `concerned`?
+- How `concerned` should i be?
+- I'm `concerned` about david.
+- I remember being `concerned`.
+- `Concerned` about his chances?
+- I'm just a `concerned` citizen.
+- Thank you, `concerned` citizen.
+- Why do you look so `concerned`?
+- You must have been `concerned`.
+- I'm `concerned` about her health.
+- You weren't `concerned`, she said.
+- But why be so `concerned` about me?
+- Don't be so `concerned` about them.
+- But, yeah, i'm a little `concerned`.
+- Don't be `concerned` if you still...
+- No, i'm `concerned` with everything.
+- You needn't be `concerned` about me.
+- So far as i'm `concerned`, that's it.
+- The commissioner is very `concerned`.
+- Bob, you don't seem `concerned` at all.
+- I'm just `concerned` about my daughter.
+- People are `concerned` about you, tony.
+- But he was `concerned` about the timing?
+- It's you we're `concerned` about, janet.
+- Aren't you `concerned` about all of this?
+- I'm `concerned` about harm to my patient.
+- That's what you're `concerned` about now?
+- This is why our friend is so `concerned`.
+- We're growing very `concerned` back here.
+- Far as i'm `concerned`, you're a good kid.
+- He was `concerned` that you might find it.
+- Mass murderers, as far as i'm `concerned`.
+- Not so far as i'm `concerned`, you're not.
+- As far as the public is `concerned`, it is.
+- I'm not `concerned` about the child, toddy.
+- Well, maybe i was a little bit `concerned`.
+- Because i'm `concerned` for you, sweetheart.
+- I'm `concerned` about the driver of the rig.
+- It's your security i'm most `concerned` for.
+- She's nobody you should be `concerned` with.
+- I'm not too `concerned` with long term plans.
+- It's not the radiation i'm `concerned` about.
+- Well they always is to the party `concerned`.
+- Al, as far as you're `concerned`, i'm the don.
+- But i'm `concerned` with everything, mr. bebe.
+- I out rank you where discovery is `concerned`.
+- We are `concerned` about more than casablanca.
+- As far as you're `concerned`, he doesn't exist.
+- I'm just as `concerned` as you are about simon.
+- As far as i'm `concerned`, that's america's ass.
+- Because i'm professionally `concerned` about him.
+- Mr. bebe is very `concerned` about your politics.
+- Reverend, you're very `concerned` with the bible.
+- But as far as the records are `concerned`, you do.
+- Remember, you were `concerned` about the beans...?
+- That's all over as far as i'm `concerned`, emmett.
+- As far as i was `concerned`, he behaved like swine.
+- Only it's not so general as far as i'm `concerned`.
+- What i have to say must be said to all `concerned`.
+- We're simply `concerned` about her...proximity to...
+- I mean, the guy is history as far as i'm `concerned`.
+- Yes, but important people are `concerned` about this.
+- You were `concerned`, but you didn't want to show it.
+- I can see you're real `concerned` about your daughter.
+- Because as far as i'm `concerned`, he's a no good fink.
+- But you see, it isn't blarney where you're `concerned`.
+- In honduras, we are not so `concerned` with the method.
+- As far as i'm `concerned`, that son-of-a-bitch is dead."
+- As far as i'm `concerned`, they're just doin' their job.
+- Far as you're `concerned` she's dead, believe it or not.
+- Honey... as far as i'm `concerned`, yes, ma'am, you are.
+- I don't even know why you're still `concerned` over him.
+- If you're `concerned` about him, being an ..."immigrant."
+- Your investors, whom i represent, are deeply `concerned`.
+- David, as far as we are `concerned`, the matter is closed.
+- I must admit to being quite seriously `concerned` for her.
+- I'm very `concerned` about the woman you attended to today.
+- That's important to--to my work--and everybody `concerned`.
+- They're `concerned` that the last kid had the <u>wheat</u>.
+- So as far as i was `concerned`, <u>she's ly-</u> <u>ing</u>.
+- As far as she's `concerned`, i'm just part of the hired help.
+- Basil was very `concerned` to know where you were last night.
+- Oh, as far as i'm `concerned`, clarke, think about charlotte.
+- Seems to me, reverend, you' more `concerned` 'bout your good.
+- 'cause as far as i'm `concerned`, i'm through with newspapers!
+- My boy was taken from me... far as i'm `concerned`, he's dead.
+- I've got more than a right as far as you're `concerned`, susan.
+- So you figured you'd play `concerned` parent for a few minutes.
+- You're `concerned` that maybe i can't be trusted with a secret.
+- As far as they're `concerned` the only good rick is a dead rick.
+- I had no idea there were so many strangers `concerned` about me.
+                 

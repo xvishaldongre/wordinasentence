@@ -1,0 +1,107 @@
+---
+title: "pretend in a sentence | pretend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pretend"
+---
+- So i `pretend` i'm dead.
+- Why would you `pretend`?
+- `Pretend` it's your idea.
+- You can always `pretend`.
+- Can't `pretend` that much.
+- I don't `pretend` to know.
+- Is that true or `pretend`?
+- Let's `pretend` we had one.
+- `Pretend` i'm somebody else.
+- `Pretend` like i don't care.
+- `Pretend` you don't know me.
+- I `pretend` i'm not even there.
+- Just go in there and `pretend`.
+- Or should i `pretend` i'm busy?
+- We don't have to `pretend` now.
+- But i `pretend` it's her friend.
+- `Pretend` you're on a snowboard.
+- So... `pretend` it's not a game.
+- We just don't `pretend` we know.
+- [rain falling] oh, why `pretend`?
+- I don't have to `pretend` anymore.
+- `Pretend` it's an acting job, kid.
+- We'll `pretend` it never happened.
+- I'm gonna `pretend` i heard "amen."
+- Is that a true story, or `pretend`?
+- `Pretend` you like me and humor me.
+- `Pretend` we're just another couple.
+- And `pretend` like it never happened?
+- Can we `pretend` this never happened?
+- I can also `pretend` to be impressed.
+- `Pretend` to write me and reel me in?
+- `Pretend` you're enjoying the thighs.
+- You decided to `pretend` you were me.
+- ♪ i can't `pretend` ♪ hold on!
+- Why not have her `pretend` to find me?
+- I can't `pretend` ♪ this is for you.
+- No need to `pretend` we're inbred hicks.
+- We can't `pretend` this isn't happening.
+- Well, i don't `pretend` to be an expert.
+- Cast members may `pretend` it's illegal."
+- Don't `pretend` you thought this through.
+- Is we're willing to `pretend` come with me.
+- It's best for you to `pretend` that you do.
+- Never to `pretend` to know more than i did.
+- You don't get to `pretend` to be one of us.
+- Now she won't have to `pretend` anymore.
+- I wanted to `pretend` it wasn't happening...
+- So you can `pretend` you're still civilized.
+- ♪ i can't `pretend` ♪ clarke's alive?
+- I don't know why i even `pretend` i can cook.
+- I want you to `pretend` that i'm your mother.
+- I answer the door and `pretend` to be natalie.
+- Sit down and `pretend` you're happy to see me.
+- They'll `pretend` it sounds all right to them.
+- We'll just `pretend` to meet each other again.
+- Don't `pretend` you do anything for me, mother.
+- I am not a `pretend` attorney, yes, marge, yes.
+- I can't just `pretend` that they never existed.
+- Or making madi `pretend` she's still commander.
+- `Pretend` one of my sisters is getting married.
+- `Pretend` to enjoy children's breakfast cereal.
+- You can't `pretend` i love you because i don't.
+- But that... you can't `pretend` no more on that.
+- ♪ i can't `pretend` ♪ may we meet again.
+- Of course, this is more fun than just `pretend`.
+- So we just `pretend` none of this ever happened.
+- Sssssh, be quiet, `pretend` everything's normal.
+- It's hard to `pretend` i'm a beautiful rock star.
+- Won't even `pretend` it isn't a very great favor.
+- Is octavia doesn't `pretend` to feel bad about it.
+- We should call him and `pretend` to be the redhead.
+- So you're saying we just `pretend` is didn't happen?
+- The man you hired to `pretend` to be your boyfriend?
+- And just `pretend` like we're stupid teenagers, okay?
+- Can you at least `pretend` to be like you used to be?
+- Don't `pretend` we shared anything other than fluids.
+- ♪ i can't `pretend` ♪ - all right, calm down!
+- I don't expect you to `pretend` we're still together.
+- ♪ i can't `pretend`... ♪ what else do you see?
+- Used to try and `pretend` i was dreaming all the pain.
+- I can't `pretend` to know what we're dealing with here.
+- And we're just supposed to `pretend` it's not happening?
+- I have to lay the phone down and `pretend` to be asleep.
+- You try, i'm gonna `pretend` they're with somebody else.
+- Just continue your patterns and `pretend` he's not around.
+- ♪ i can't `pretend` ♪ it's not complicated, really.
+- I don't `pretend` to know what's going on inside your head.
+- In the meantime, i'll `pretend` as if we really do have her.
+- Let's not `pretend` mitchell meant anything to either of us.
+- Boys always `pretend` they hate you when they really like you.
+- In which i don't have to `pretend` to be a hand-wringing fool.
+- I can't `pretend` to be your husband... david's in great shape.
+- For your sake, she pretended it wasn't, and i let her `pretend`.
+- `Pretend` you're a missionary saving a colony of cootie victims.
+- Don't `pretend` for a second that you and i don't know the truth.
+- So we should just make `pretend` over the phone that we're dating?
+- I'll just `pretend` i don't know we're on a dock and, i mean, okay.
+- At least i don't `pretend` to be something different than what i am.
+- At least numb-nuts here has the courtesy to `pretend` he likes them.
+- He's the part of the business that the rest of them `pretend` to be.
+                 

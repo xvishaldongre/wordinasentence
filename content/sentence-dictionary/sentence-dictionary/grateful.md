@@ -1,0 +1,89 @@
+---
+title: "grateful in a sentence | grateful example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grateful"
+---
+- I'm `grateful`, frank.
+- They'll be `grateful`.
+- We're `grateful`, ted.
+- `Grateful` to be alive.
+- I was `grateful` to him.
+- Oh, i'm very `grateful`.
+- Just how `grateful` i am.
+- You should be `grateful`.
+- I am extremely `grateful`.
+- I'm `grateful` for the job.
+- Eternally `grateful`, really.
+- Am i s'posed to be `grateful`?
+- I'm terribly `grateful`, sean.
+- We're all `grateful` for that.
+- You know, the `grateful` type.
+- Like a `grateful` dead concert.
+- I am very `grateful` to you.
+- Be `grateful` for small mercies.
+- `Grateful` for your candor, sir.
+- Oh, i am `grateful` to you, sir.
+- We'd be `grateful` for the help.
+- As i said, i was very `grateful`.
+- You should be `grateful`, clarke.
+- I'm `grateful` to you, chauncey...
+- I'm supposed to be <u>`grateful`</u>?
+- You're `grateful`, but you resent me.
+- Stuff you get from `grateful` clients.
+- Well, he knows how `grateful` you are.
+- You helped me out, and i'm `grateful`.
+- They've got lives to be `grateful` for.
+- I'm very `grateful` to you, mrs. kendal.
+- They ought to be `grateful` to have you.
+- I'm `grateful` for what you did... uh-oh!
+- I'm very `grateful` for a little company.
+- Germany... vichy would be very `grateful`.
+- I hope i can show you how `grateful` i am.
+- I suppose i should be `grateful` for that.
+- Good, then all you got to be is `grateful`.
+- Be submissive, modest, `grateful` and brief.
+- A strong and `grateful` ally in the ice queen.
+- I am... `grateful` for what you have given me.
+- I'll bet you have some very `grateful` clients.
+- And watch the sun rise on a `grateful` universe.
+- Yeah, well i don't think you're very `grateful`.
+- It's the mothers that are always `grateful` to me.
+- I am not only `grateful`… second man: i got it.
+- I'd be `grateful`, admiral, if you'd give the word.
+- Indeed, and for that they are eternally `grateful`.
+- The first time i've been `grateful` for coit tower.
+- I've read that it helps preserve i am so `grateful`.
+- You know why the `grateful` dead are always on tour?
+- When this nonsense is over i will be most `grateful`.
+- He'd be `grateful`, he'd take real good care with you.
+- Then she's not even `grateful` enough to thank you.
+- Oh, miss harrison, i'm so `grateful` for your kindness.
+- Did i tell you how `grateful` i am for what you've done?
+- I'm `grateful` for this opportunity to set you straight.
+- I'm very `grateful` for the way you took in my girls here.
+- But i know she's `grateful` for the care you're giving her.
+- Be `grateful` boone's not cutting shirley temple's lawn.
+- I am `grateful` for your hospitality and -- generally known!
+- Mother'll be so `grateful` - she'll probably want to kiss you.
+- We are all `grateful` to don corleone for calling this meeting.
+- But i'm still `grateful` to have you at the helm for three weeks.
+- I'm very `grateful` that you're here, chauncey... ... with us ...
+- We'd be eternally `grateful` if you� at the mercy of a mad pilot.
+- But i want you to know i'm very `grateful` for what you did for me.
+- Frankly, i'm `grateful` we have a little muscle right about now.
+- You seem like a terrific guy, max, and i'm `grateful` for the job...
+- I realise all that, missus, and i'm very `grateful` to all concerned.
+- Actually, i've just come to say how `grateful` i am to you... ...that.
+- I gave him steady employment -- i'll always be `grateful`, mr. luthor.
+- But you've got to be `grateful` for even feeling the little you've be given.
+- She shouts, i stand up for you, you're `grateful`, a bond of trust is established.
+- I oughtn't to presume, but i -- i'm so `grateful` to you -- it's been so marvelous.
+- Unfortunately, that's known as a conflict of interest -- and we're very `grateful`.
+- We're gonna have a bunch of clapped out old hippies blissing on the `grateful` dead!
+- Mr. o'higgins, i cannot say how `grateful` i am for your timely assistance to my wife.
+- Please... frank... and i'm `grateful` for you, frank, especially with those boors around.
+- You expect me to be `grateful` for spending the rest of my life looking over my shoulder.
+- Er... well... we... we... would be terribly `grateful` if you... all... would sing for us.
+- I have taken all those warm, `grateful` emotions and confused them with feelings for you...
+                 

@@ -1,0 +1,107 @@
+---
+title: "order in a sentence | order example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "order"
+---
+- Did you... `order`...?
+- Everything in `order`?
+- Guys ready to `order`?
+- I gave you an `order`!
+- I gave you an `order`.
+- In `order` to breathe.
+- You call that `order`?
+- You're out of `order`!
+- Let me `order` for you.
+- By `order` of city hall.
+- Did she `order` mirrors?
+- It's not a kill `order`.
+- Okay, we'll `order` out.
+- `Order`... what is this?
+- She gave you an `order`.
+- That's a direct `order`.
+- Then `order` me to stay.
+- This is special `order`!
+- Why am i out of `order`?
+- You shoot on my `order`.
+- Abby... give the `order`.
+- Are you ready to `order`?
+- But that was her `order`!
+- I like `order` and logic.
+- I `order` you to shut up.
+- My papers are in `order`.
+- Sarah, `order` a chopper.
+- You're all about `order`.
+- Don't make me `order` you.
+- How about law and `order`?
+- I can't give that `order`.
+- I know what you `order`...
+- Stand by for flag `order`.
+- Well no...inverse `order`.
+- We must have `order` here.
+- We `order` something else?
+- Bring `order` out of chaos.
+- Everything in `order`, sir?
+- I was lucky in the `order`.
+- Martin, this is an `order`!
+- Okay, put these in `order`.
+- So i'll have to `order` in?
+- Can we `order` room service?
+- Captain, belay that `order`!
+- Everything looks in `order`.
+- I gave you a direct `order`.
+- I just wanted to `order` it.
+- Let me just get the-`order`.
+- Mary's a mail-`order` bride?
+- Szybunka, that's an `order`.
+- That's an `order`, sergeant.
+- Fucking out of `order`, that.
+- I'd better `order` some food.
+- In `order` to close the deal.
+- Just send me a money `order`.
+- That's an `order`, commander.
+- Are you ready to `order` here?
+- As my `order` has always done.
+- Delay that `order`, scotty...!
+- Into the `order` of the flame?
+- Which flowers did you `order`?
+- Your court `order`, dr. allen.
+- But i can `order` them for you.
+- He likes to `order` that thing.
+- I got the `order` to shoot him.
+- Indra: it's not a kill `order`.
+- May i take your `order` please?
+- `Order` your men to stand down.
+- That's the `order` of business.
+- Then the `order` came up short.
+- These people supply to `order`.
+- We know there's a kill `order`.
+- Who gave the `order` to attack?
+- You could `order` something in.
+- "bring me a side `order` of mrs.
+- I'm gonna `order` up some stuff.
+- Not necessarily in that `order`.
+- Only when i give you an `order`.
+- `Order` me a pastrami for after?
+- You got a work `order` for that?
+- Here's the `order` for the plows.
+- Homer, `order` anything you like.
+- In `order` to attract the sharks.
+- The `order` needs to be filled...
+- We followed the rules of `order`.
+- Everything seems to be in `order`.
+- I didn't give any `order` to fire!
+- I'll `order` riker to turn around.
+- I was the made-to-`order` witness.
+- Lincoln has a kill `order` on him?
+- The records seem to be in `order`.
+- Will be subject to a kill `order`.
+- You heard the `order`, lieutenant.
+- I'll never `order` you about again.
+- I'll `order` construction to begin.
+- I ordered moe's mail-`order` bride.
+- I will `order` a mass for his soul.
+- I will `order` d'artagnan to do it.
+- Martin won't `order` from the menu.
+- Merely in the interests of `order`.
+                 

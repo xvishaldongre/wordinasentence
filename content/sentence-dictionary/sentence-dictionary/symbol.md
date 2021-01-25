@@ -1,0 +1,51 @@
+---
+title: "symbol in a sentence | symbol example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "symbol"
+---
+- That's their `symbol`.
+- What kind of `symbol`?
+- Is that a new `symbol`?
+- Of our most holy `symbol`?
+- That `symbol` is us -- us.
+- ♪ ah-hoo ♪ clarke's a `symbol`.
+- I've seen that `symbol` before.
+- I can see the last `symbol` now!
+- There's one `symbol` still covered.
+- The cross is a `symbol` of holiness.
+- Their `symbol` for time is everywhere.
+- One gold medallion with peace `symbol`.
+- Buddha is the `symbol` for fat and lazy.
+- I can't tell which is the right `symbol`.
+- You see the `symbol` of "time" everywhere.
+- I recognize the sacred `symbol`, yes, heda.
+- This figure is the `symbol` of the palladists.
+- So it's not a meaningful `symbol`, or anything.
+- Buddha is the `symbol` of luck and good fortune.
+- You mean a `symbol` of someone who doesn't exist.
+- A severed wolf's head on a pike as their `symbol`.
+- I dunno, i think it's the `symbol` for 'human' again.
+- The last `symbol` in the series is called an octonion.
+- It's just a `symbol`, honey - ain't gonna be no weddin'.
+- I don't know, i think its the `symbol` for "human" again.
+- I recognize the sacred `symbol`, - raven... - i'm trying.
+- That `symbol` of progress, that `symbol` of moving forward.
+- Each generic brand circle-o a `symbol` of god's unending love.
+- Ever wonder why the dalmation's the `symbol` of the firehouse?
+- [gunshots] but a donut is the ultimate `symbol` of masculinity.
+- Caused when the correct `symbol` was touched in the right order.
+- They were, in a sense, a sort of a `symbol` of the striding man.
+- The `symbol` does correspond to a dagger i acquired many years ago.
+- Ummm, hootash im... hootash im now what is this last `symbol` here?
+- Do you see the meaninglessness that's why the `symbol` was on the flag.
+- I put $50k into the truck why is there an azgeda `symbol` on the floor?
+- The corset: a `symbol` of repression to those who are forced to wear it.
+- Why else would they have a severed fox head on a spear as their `symbol`?
+- Why else would they have a severed wolf's head on a spear as their `symbol`?
+- And the johnnie walker icon has just become a `symbol` of that in many places.
+- It's just an outward `symbol` of everything that's inwardly wrong in this town.
+- Out of the fire, appears the holy grail - god's highest `symbol` of divine grace.
+- Jane" gives dehaven a `symbol` that taps into the biggest constituency of them all.
+- King of the ice nation, actually, `symbol`, h-e. just because your fat head's on the track.
+                 

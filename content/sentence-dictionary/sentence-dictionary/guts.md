@@ -1,0 +1,82 @@
+---
+title: "guts in a sentence | guts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guts"
+---
+- You ol' sack of `guts`.
+- `Guts` and you, johnson.
+- Spirit and `guts`, chief.
+- You have the `guts`, boy?
+- He hates my fuckin' `guts`.
+- I hate your fuckin' `guts`!
+- Eagle... he hated my `guts`.
+- Have enough `guts` to do it.
+- Spirit and `guts`, remember?
+- We hate each other's `guts`.
+- His `guts` keep spilling out.
+- I hate her `guts`, the bitch.
+- Now just a minute, i� `guts`!
+- It's been eatin' at my `guts`.
+- You got the `guts`, tough guy?
+- C'mon, chief, show some `guts`.
+- I didn't have the `guts` for it.
+- No, change '`guts`' to 'courage.'
+- You got more `guts` than me, baby.
+- What you didn't have the `guts` to.
+- You got a lot of `guts` calling me.
+- He'll break your heart, your `guts`.
+- Man, you must really hate my `guts`.
+- How come you don't hate their `guts`?
+- I don't see no sign of `guts` in you.
+- Mice killing cats, `guts` everywhere.
+- They're gonna blow our `guts` out, man!
+- Your luke's got more `guts` than brains.
+- And she just fucked the `guts` out of you!
+- Lloyd, honey, be a playwright with `guts`.
+- Y'ignorant slope-shouldered sack a `guts`!
+- Go see for yourself, if you got the `guts`.
+- He's got `guts` -- he's vain, and he fights!
+- I wanna see which of you birds has any `guts`.
+- If he moves - blow his `guts` out... cover him!
+- They're gonna think that he spilled his `guts`.
+- Then shut your mouth before your `guts` run out!
+- He didn't have the `guts` to watch them die so...
+- It doesn't matter if it's boy `guts` or girl `guts`.
+- And fuckin' suffritt', you know, fried pigs `guts`?
+- Because they fight with their `guts`, like animals.
+- You don't have the `guts` to make the hard choices.
+- What an honor... you got some `guts` for a rich kid.
+- Guys with beards and beer `guts` ain't quite my type.
+- I didn't have the `guts` to ask when i first came up.
+- We are saying what no one else has the `guts` to say.
+- Hell, we all know what kind of `guts` your people have.
+- Losing my hair and my teeth...and my `guts` and my wind.
+- Or do i have to tell her, cause you don't have the `guts`?
+- I hope you're right, but my `guts` are telling me different.
+- Uh, frankly, i - well i spilled my `guts` about the treasure.
+- He probably hates my `guts`, but i did the best thing for him.
+- You didn't even have the `guts` to go look in the van, did you?
+- I knew he had `guts` but� the complete works of timothy j. nolan.
+- It's a damn good thing he doesn't know how much i hate his `guts`.
+- But they probably stripped its `guts` and crated 'em up, right ... ?
+- It's a damn good thing you don't know how much he hates your `guts`.
+- But before that, i'd like to see heather chandler puke her `guts` out.
+- The man that kills me, i want him to do it because he hates my `guts`.
+- I respect adlai for having the `guts` to risk looking like an appeaser.
+- They cut away the `guts` and brought in another director to add slapstick.
+- Little red riding hood jumps out of the wolf's `guts` with hardly a scratch.
+- Funny how they always want to be your friends after they kick your `guts` out.
+- The mob wouldn't have the `guts` or the power for something of this magnitude.
+- 200-year-old single-malt scotch is to "booze" as foie gras is to "duck `guts`."
+- You were thinking the same thing, just didn't have the `guts` to take the heat.
+- Maybe another time i would have the `guts` to be on my own, but not now i don't.
+- He's just ... trying a little too hard -- it means they hate his freaking `guts`.
+- How would you like to see the `guts` of nine pals splattered all over your plane?
+- And we will either be the generation that sees what you didn't have the `guts` to.
+- But, don't expect me to hang around forever waitin' for you guys to grow some `guts`.
+- That's because you never had the `guts` to go out into the world and stake your claim.
+- The ship's manifest and schematics so we can this isn't about hope, it's about `guts`.
+- I knew him when he had nothing but a brilliant mind and enough `guts` to conquer the world.
+- I'll cut your `guts` no, mother, he's lying... you know, buddy, sometimes you make me sick.
+                 

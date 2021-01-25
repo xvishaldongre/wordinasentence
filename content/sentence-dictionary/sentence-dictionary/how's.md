@@ -1,0 +1,107 @@
+---
+title: "how's in a sentence | how's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "how's"
+---
+- `how's` bob the brain?
+- `how's` it going chef?
+- `how's` it going, doc?
+- `how's` it going, kam?
+- `how's` it going, men?
+- `how's` it going, ray?
+- `how's` pilgrim doing?
+- `how's` she taking it?
+- `how's` that possible?
+- `how's` that, sheriff?
+- `how's` that with you?
+- ...`how's` the client?
+- `how's` the fricassee?
+- `how's` the ice break?
+- `how's` the new place?
+- `how's` this about me?
+- `how's` verdell doing?
+- `how's` your day been?
+- `how's` your marriage?
+- `how's` your new book?
+- `how's` your shoulder?
+- `how's` your war, mac?
+- So...`how's` the knee?
+- `how's` it working?
+- `how's` about it, bart?
+- `how's` business, dave?
+- `how's` gloria's thumb?
+- `how's` it feel, tommy?
+- `how's` it goin', coog?
+- `how's` it look, marge?
+- `how's` kayleigh doing?
+- `how's` the case going?
+- `how's` the new office?
+- `how's` your love life?
+- `how's` your mom doing?
+- `how's` mrs. schulz?
+- Helena -- `how's` david?
+- `how's` business, bruce?
+- `how's` everybody doin'?
+- `how's` everything, gus?
+- `how's` miss jacqueline?
+- `how's` our new witness?
+- `how's` sleeping beauty?
+- `how's` that for a fact?
+- `how's` the case coming?
+- `how's` the lawyer life?
+- `how's` the movie going?
+- `how's` the "warehouse."
+- `how's` this for a fact?
+- `how's` your drink, tom?
+- `how's` your film going?
+- I said `how's` it going?
+- Um, `how's` senior year?
+- What the - `how's` jean?
+- Hi, honey, `how's` donna?
+- Hmmm... `how's` the head?
+- `how's` everything going?
+- `how's` henley hall, gin?
+- `how's` it going in here?
+- `how's` it going, truman?
+- `how's` mr. parker doing?
+- `how's` our throat today?
+- `how's` she deploying it?
+- `how's` the degree doing?
+- `how's` the family, okay?
+- `how's` the print coming?
+- `how's` the stock market?
+- `how's` transocean doing?
+- So `how's` the job going?
+- `how's` it going upstairs?
+- `how's` it hanging, miles?
+- `how's` life treating you?
+- `how's` mama and the kids?
+- `how's` my pregnant chick!
+- `how's` our patient today?
+- `how's` that dog of yours?
+- `how's` that gonna happen?
+- `how's` that sound to you?
+- `how's` the birthday girl?
+- `how's` the dirt business?
+- `how's` the new residence?
+- `how's` the pay in movies?
+- `how's` your sister pearl?
+- `how's` your <u>child</u>?
+- Leonard, `how's` the feed?
+- Ratchet, `how's` it going?
+- So `how's` business today.
+- Well, `how's` your friend?
+- `how's` the diva doing?
+- Hey, man, `how's` it going?
+- Hi again, `how's` it going?
+- `how's` astronaut training?
+- `how's` every little thing?
+- `how's` it coming up there?
+- `how's` it feel to be back?
+- `how's` it going with gail?
+- `how's` it look back there?
+- `how's` it working, scotty?
+- `how's` my boy monty doing?
+- `how's` that even possible?
+                 

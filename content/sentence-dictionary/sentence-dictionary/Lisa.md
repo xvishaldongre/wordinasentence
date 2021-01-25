@@ -1,0 +1,107 @@
+---
+title: "Lisa in a sentence | Lisa example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lisa"
+---
+- Everyone's ok. `lisa`?
+- I'm jesse now, `lisa`.
+- `Lisa`, how could you?
+- More pancakes, `lisa`?
+- Please, it's `lisa`...
+- Uh, i-is `lisa` there?
+- Well, `lisa`, a woman?
+- Everybody loves `lisa`.
+- I killed grady, `lisa`.
+- It'll be great, `lisa`.
+- `Lisa` counts as floor.
+- `Lisa` has a boyfriend?
+- `Lisa`'s been arrested.
+- `Lisa`, take a picture.
+- I'm kenny's aunt `lisa`.
+- Kick `lisa` in the butt.
+- I found `lisa` henderson.
+- `Lisa`'s wearing a dress.
+- Where'd they take `lisa`?
+- `Lisa`, it's your bedtime.
+- `Lisa`'s right over there.
+- `Lisa`, you have his spot.
+- More seitan gumbo, `lisa`?
+- Thank you so much, `lisa`.
+- `Lisa`, what are you doing?
+- To bail `lisa` out of jail.
+- `Lisa`, i did something bad.
+- `Lisa` something... oberman.
+- Even `lisa`'s lemonade stand.
+- Gal gadot reading for `lisa`.
+- I say we have `lisa` simpson.
+- I told you that -- my `lisa`.
+- `Lisa`, just repeat after me.
+- `Lisa`, one week's detention.
+- `Lisa` sherman was my mother.
+- `Lisa`, sweetie, are you okay?
+- `Lisa`, you don't belong here.
+- Marge, `lisa`'s being unusual.
+- Next time, you bring a `lisa`.
+- No `lisa` anderson, detective.
+- What is "we miss you, `lisa`"?
+- Give me the phone book, `lisa`.
+- I knew `lisa` sherman long ago.
+- I'm looking for `lisa` sherman.
+- I've just been so busy, `lisa`.
+- `Lisa`, marge and bart: hooray!
+- `Lisa`, you have to understand.
+- Something on your mind, `lisa`?
+- As important as the mona `lisa`.
+- `Lisa` martin ramos, mr. creasy.
+- My final words are `lisa` sucks!
+- I know you need to please `lisa`.
+- Let me whiten your teeth, `lisa`.
+- `Lisa` doesn't sound sick at all.
+- When we come back, `lisa` did it.
+- How should i know where `lisa` is?
+- Oh, `lisa`, sweetie, you saved me.
+- On `lisa`, i did a little remodel.
+- I thought you'd enjoy this, `lisa`.
+- No, `lisa` -- i don't think he did.
+- She's gonna `lisa`-up a good thing.
+- She told me about `lisa` henderson.
+- I was for `lisa` before it was cool.
+- `Lisa`, i'm sorry, what do you have?
+- `Lisa`, would you join us for lunch?
+- Oh, right, uh, guys, this is `lisa`.
+- What happened to the moaning `lisa`?
+- `Lisa` will be able to save face.
+- She said she was kenny's aunt `lisa`.
+- Would you just paint the mona `lisa`?
+- Everyone, say hello to `lisa` simpson.
+- `Lisa` knows what my back smells like.
+- Okay, `lisa` -- probably you're right.
+- That's `lisa` - i gotta get to school.
+- Why are you both kissing up to `lisa`?
+- Everyone wants to know where `lisa` is.
+- Peggy jane, `lisa` anne and betty jean.
+- There's nothing wrong with you, `lisa`.
+- How do you know shut up about my `lisa`!
+- Now, `lisa`, i know you're a vegetarian.
+- Oh, `lisa`, you're always so suspicious.
+- Every geek here's got a thing for `lisa`.
+- `Lisa` was the moral center of this town.
+- `Lisa` admired him you see that, kids?
+- Like `lisa`, one who may change the world.
+- `Lisa` and i are having some friends over.
+- `Lisa`'s really been looking forward yeah.
+- Moe, `lisa` has offered to pay my bar tab.
+- You could have posed for the mona= `lisa`.
+- 60 miles in the car with `lisa` practicing.
+- For `lisa` to make it through the delivery.
+- `Lisa` -- there's something terribly wrong.
+- Hello bud, i'm `lisa`, a friend of gordon's.
+- `Lisa` simpson, i think your superpower mel!
+- Okay, i'll talk to bart, you talk to `lisa`.
+- She told jody she was kenny's 'aunt `lisa`'.
+- Without the baggage of being `lisa` simpson.
+- But `lisa` simpson is not even a little cool.
+- `Lisa` -- i can't guess what you're thinking.
+- `Lisa`, nothing good ever comes from youtube.
+                 

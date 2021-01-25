@@ -1,0 +1,105 @@
+---
+title: "Robert in a sentence | Robert example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Robert"
+---
+- I don't want `robert`.
+- I'm `robert` beaumont.
+- `Robert`, do you mind?
+- I love you... `robert`.
+- It's useless, `robert`.
+- Just breathe, `robert`.
+- `Robert`... no kidding.
+- Yeah, `robert` del rio.
+- I know horses, `robert`.
+- My name's `robert` dean.
+- Oh, `robert`, i'm sorry.
+- `Robert` asks about you.
+- Sir `robert` de lesseps.
+- `Robert` paulson is dead.
+- It's fine today, `robert`.
+- `Robert` bain, driving me!
+- Mary `robert`, don't panic.
+- `Robert`, we're losing her.
+- What do you want, `robert`?
+- `Robert`-- no "900" numbers.
+- His name is `robert` paulson!
+- I can't explain it, `robert`.
+- That was beautiful, `robert`.
+- This is mr. booker, `robert`.
+- I'm, uh, i'm `robert` redford.
+- Where have you been, `robert`?
+- Bobby-- it's me, `robert` dean.
+- ... and please call me `robert`.
+- I could call `robert`... really?
+- I'm worried about you, `robert`.
+- We wait for `robert` to wake up.
+- Even `robert` e. lee was a loser.
+- `Robert`-- oh, well, that's true.
+- `Robert`, take a look, would you?
+- `Robert`, why aren't you smiling?
+- I hope you feel at home, `robert`.
+- I wanted some fresh air, `robert`.
+- Mary `robert` --with the sopranos.
+- We have to do something, `robert`!
+- What makes it different, `robert`?
+- Will you be leaving now, `robert`?
+- Do you know dr. `robert` towler...?
+- Mary `robert`'s life was in danger!
+- But now that you have it - `robert`.
+- `Robert` rath wants to know my name.
+- This man's name is `robert` paulson.
+- ... all right, `robert`, i'm all yours.
+- He has ways of communicating, `robert`.
+- No more, `robert`... no more needles...
+- `Robert`-- stacy, i found out like this.
+- We are the choices we've made, `robert`.
+- I'll go tell eve about ben now, `robert`.
+- Now don't... `robert` eroica... hi, tita.
+- You and `robert` got great ratings today.
+- `Robert` burke certainly thinks they were.
+- `Robert`, grace isn't adjusting to school.
+- `Robert`, you leave it up these people...!
+- Did you hear about my misfortune, `robert`?
+- He won... and they killed `robert` kennedy.
+- ... `robert`... is there any improvement...?
+- `Robert` muldoon, my game warden from kenya.
+- We must do this sacred thing, mary `robert`.
+- He's dead, because of you... `robert` paulson?
+- Stacy-- i think you should leave now, `robert`.
+- Now goddamit-- this is science-fiction `robert`!
+- It's like something out of a `robert` frost poem.
+- I was in there looking for some `robert` johnson.
+- `Robert`, if that happens, you'll have to decide.
+- Stacy-- do you know what i'm looking at `robert`?
+- Yeah... with `robert` redford, when he was young.
+- You have evidenced great maturity, mary `robert`.
+- It's just that my love for `robert` was different.
+- The second most powerful man is `robert` haldeman.
+- Because i'm at the edge of my capabilities, `robert`.
+- I'm not, like, a `robert` frost lover by any stretch.
+- Perhaps sir `robert` had a word with the man upstairs.
+- Mary `robert`, do you have any idea who those men were?
+- He left most of his things to mama and requested... `robert`!
+- I saw him do "tru" with his sixty foot `robert` morse puppet.
+- But you would have something to gain by killing `robert` king.
+- It's dark by then, unload and `robert`'s your father's brother.
+- I mean i could see myself in movies `robert` de niro had been in.
+- I don't want to mess anyone up... mary `robert`, i've watched you.
+- `Robert`, i hope you don't mind my asking, but i feel like i should.
+- `Robert`, i think you better just... `robert`, let's not be rude, okay?
+- I'm sorry everything's been so confusing, but i have to go, `robert`...
+- Everyone knows everest is a business for you, `robert`, are you kidding?
+- Gentlemen, i give you `robert` conway - england's new foreign secretary.
+- Several indiscriminates and one primary who we've id'd as `robert` dean.
+- Tell me a story with `robert` e. lee in it and maybe i'll pay attention.
+- Young `robert`, we are honored -- you let wallace escape your whole army.
+- Mary `robert`, i am so sorry about last night... we could have been killed!
+- "where did you sleep last night," sure, but by `robert` johnson or by nirvana?
+- I have a wife, yes, and i cannot marry the daughter of sir `robert` de lesseps.
+- `Robert`, i have to tell you something... crashes into a jeep and totals his neck.
+- Sir `robert` tried to deal with the kidnapping with his own...resources, at first.
+- Your best friend, `robert`, an accountant, lost his home and is out on the street.
+- Where i played a murdered police officer `robert`'s lungs filled with fluid this morning.
+                 

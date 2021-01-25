@@ -1,0 +1,107 @@
+---
+title: "relationship in a sentence | relationship example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "relationship"
+---
+- But, our `relationship`.
+- They had a `relationship`.
+- I mean your `relationship`.
+- What's your `relationship`?
+- Stable phase `relationship`.
+- Sacred, close `relationship`.
+- But what's our `relationship`?
+- Clear my `relationship` karma.
+- You and i -- a `relationship`.
+- The whole `relationship` thing.
+- We don't have a `relationship`.
+- Krusty loves our `relationship`.
+- We got a goddamn `relationship`!
+- It's -- a working `relationship`.
+- We have a perfect `relationship`.
+- What is his `relationship` to you?
+- A purely...plutonic `relationship`.
+- A wrong number is a `relationship`.
+- You're in a `relationship` with me.
+- An explicitly sexual `relationship`.
+- My `relationship` with god is my own.
+- See, this is a mature `relationship`.
+- They have a beautiful `relationship`.
+- Have you had any `relationship` since?
+- This is a professional `relationship`!
+- What was your `relationship` with her?
+- Spangler says we have a `relationship`.
+- But our `relationship`'s at a crossroads.
+- Naomi, i really value our `relationship`.
+- Our `relationship` is normal, conforming.
+- Let's see how the `relationship` develops.
+- I just got out of a six-year `relationship`.
+- Now that's a weird `relationship`, isn't it?
+- They wish they had a `relationship` like us!
+- What is your `relationship` to mrs. rexroth.
+- Would you settle for a pg-13 `relationship`?
+- Once this was a `relationship` based on love.
+- That does put a damper on our `relationship`.
+- What is your `relationship` with john bubber?
+- Not some one-nighter, man... a `relationship`.
+- That could put a strain on our `relationship`.
+- To top it all off, you ruin my `relationship`.
+- What was your `relationship` with dr. brenner?
+- You cannot not have a `relationship`, macleod.
+- I just got tmz here to film our `relationship`.
+- Pony, what would you say our `relationship` is?
+- We don't have much of a `relationship` anymore.
+- I wish you and i had a `relationship` like that.
+- Our `relationship` meant a lot to me, too, paul.
+- I yell "geronimo" and jump out of a `relationship`.
+- Mommy goes ballistic and ends their `relationship`.
+- Does this violate the patient/doctor `relationship`?
+- I felt it would bring closure to our `relationship`!
+- I want you to try and make this `relationship` work.
+- Particles co-exist in a stable phase `relationship`.
+- No, i will end my `relationship` with her -- totally.
+- "quick pull off the highway" is not a `relationship`.
+- Because there was a lot of good in our `relationship`.
+- If a `relationship` isn't working, you can't force it.
+- I just think we oughta call this `relationship` quits!
+- I'm sorry, i'm confused as to the `relationship` here.
+- What, exactly, is your `relationship` to mrs. ryan?
+- I always thought it was a more intimate `relationship`.
+- I have a professional `relationship` with rachel banks.
+- One of those 'meaningful `relationship` conversations.'
+- A `relationship`, i think, is-is like a shark, you know?
+- I have a very good `relationship` with all the salesmen.
+- Yes... and did you have a close personal `relationship`?
+- But sooner or later we've got to end this `relationship`.
+- Marvin gaye is responsible for our entire `relationship`!
+- I want our `relationship` to have a strong foundation.
+- I don't understand the germans' `relationship` with music.
+- I just sort of....butchered up the `relationship` somehow.
+- Is there a `relationship` between the worms and the spice?
+- Is this, me and you, like a lawyer- client `relationship`?
+- Mr. roston, what was your `relationship` with miss lawson?
+- What was the nature of your `relationship` with dr. paley.
+- That is very close, a very sacred religious `relationship`.
+- I'm gonna walk outta here, walk right into a `relationship`.
+- Why don't you start by telling me about your `relationship`.
+- How would you define your `relationship` to mrs. rexroth.
+- My lady cosgrove's `relationship` with me was a singular one.
+- Fisher had a less than normal `relationship` with that donkey.
+- I just don't think we should have that sort of `relationship`.
+- She's sacrificed so much to be in this `relationship` with me.
+- You know something, don't think our `relationship` is working.
+- But that's the types of `relationship` you wouldn't understand.
+- Lainey, you know simone and i don't have a real `relationship`.
+- You've compromised me and our `relationship` -- did you get it?
+- My parents had a brief, but intensely fulfilling `relationship`.
+- ...my `relationship` with him made me uniquely valuable to them.
+- And you can have a much more intimate `relationship` with a star.
+- What eventually happened to your `relationship` with miss lawson?
+- Would you tell us the nature of your `relationship` with mr. boz?
+- Yeah, but how long was the `relationship` she was rebounding from?
+- I think that this is leading our `relationship` to a new level.
+- Can you describe the `relationship` between mr. kramer and his son?
+- Is that a pretty accurate description of our `relationship`, tyler?
+- Probably reminds you of a bad `relationship`, a nancy drew mystery.
+- The sergeant discovered this `relationship` and wanted me expelled.
+                 

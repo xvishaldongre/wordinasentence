@@ -1,0 +1,74 @@
+---
+title: "border in a sentence | border example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "border"
+---
+- On the texas `border`.
+- ...across the `border`.
+- The `border` tribe?
+- Look, fuck the `border`.
+- Yeah, i saw the `border`.
+- Over the indiana `border`.
+- Didya look at the `border`?
+- Let us get to the `border`!
+- Then he crossed the `border`.
+- Let's just get to the `border`.
+- Right on the `border` of tibet.
+- I'll get you up to the `border`.
+- The mounties guard the `border`.
+- These woods must be the `border`.
+- It'll get you across the `border`.
+- It's the `border` to the universe.
+- That's over the `border`, general.
+- Ice nation has crossed the `border`.
+- A `border` guard responded to the apb.
+- A little town on the `border`, socorro.
+- And the `border` patrol, and the r.c.m.p.
+- Best trackers either side of the `border`.
+- Everybody on the `border` knows that story.
+- The northern `border`'s gotten a bit hairy.
+- I'm gonna try and get us across the `border`.
+- An intimate `border` with...mechanical skills.
+- Once we cross that `border`, we're on our own.
+- The hittites are trying to cross the `border`.
+- The busiest land `border` crossing in the world.
+- They had every entrance to the `border` covered.
+- We are... "south of the `border` down mexico way."
+- You're going to have to walk back to the `border`.
+- He knows exactly how he's going to cross the `border`.
+- It's against the law to cross the `border` with a gun.
+- Did we ever use those costumes for the `border` patrol?
+- If they get over the `border`, they're gonna let us go.
+- Because there's a `border` you didn't even know existed.
+- I gotta figure a way to get across that goddamn `border`.
+- More money in intelligence on their side of the `border`.
+- We might as well be hauling suitcases across the `border`.
+- _ wonkru will suffer losses at the `border`, echo's right.
+- But they feel a lot safer living over the `border` in el paso.
+- The conference is at camp khitomer, near the romulan `border`.
+- The man we want has the pem, and is across the `border` by now.
+- That'll get us into el paso, which is right next to the `border`.
+- Crossing the `border` this time of night they're a bit particular.
+- The munchkins will see you safely to the `border` of munchkinland.
+- You and your husband will be over the canadian `border` by morning.
+- If you make enemies on both sides of the `border`, you'll end up dead.
+- I'm going to canada but i can let you ride with me up to the `border`.
+- Then there's the rock climbing wall, right at the ice nation `border`.
+- Confirms, there <u>are</u> no nuclear devices on the canadian `border`.
+- He didn't like the idea of comin' back across the `border` but he came.
+- You see, russian tanks are crossing the afghan `border` this very minute.
+- On the `border` of north and south dakota, where the robots murder everyone.
+- They'll probably make a run for the `border`, which would bring 'em this way.
+- Based on science, technology, you crossed the `border` into trikru land, whoa!
+- Have to make a couple of connections, but it will get you across the `border`.
+- Report no repeat no untoward activity along our picturesque canadian `border`.
+- And yell at the `border` guards which we're doing, but it won't be fast enough.
+- The special hats of the special anti-terrorist detachment of the `border` patrol.
+- If i get bail, mister yesil, they say it's easy to cross the `border` into greece?
+- Your father is being held in the castle of brunwald on the austrian-german `border`.
+- They get us across the `border`, they're gonna take us out in the desert and shoot us.
+- Swear to god, on the bible, you won't try to escape and you'll get us across the `border`.
+- The special anti-terrorist detachment of the `border` patrol... what do they <u>do</u>...?
+- You are safer in here with us than wandering around a mexican `border` town all night long.
+                 

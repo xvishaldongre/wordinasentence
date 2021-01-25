@@ -1,0 +1,107 @@
+---
+title: "matter in a sentence | matter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "matter"
+---
+- It doesn't `matter`...
+- `Matter` of fact i do.
+- Ok, a family `matter`.
+- That doesn't `matter`.
+- What does it `matter`.
+- What does it `matter`?
+- Yes, `matter` of fact.
+- But it didn't `matter`.
+- Doesn't `matter` to me.
+- Doesn't `matter` where.
+- Hey -- whatsa `matter`?
+- ...it doesn't `matter`.
+- Nothing's the `matter`.
+- So it doesn't `matter`.
+- Something the `matter`?
+- Such a simple `matter`.
+- Then it don't `matter`.
+- What's the `matter`?...
+- Why does that `matter`?
+- You think you `matter`?
+- A `matter` of hours now.
+- As a `matter` of fact...
+- Aw, what's the `matter`?
+- But it doesn't `matter`.
+- But what is it `matter`?
+- Doesn't really `matter`.
+- It doesn't `matter` now.
+- It doesn't `matter` who.
+- It's a `matter` of time.
+- It would `matter` to us.
+- Life and death `matter`.
+- No `matter` what you do.
+- Nothing is the `matter`.
+- Not that it'll `matter`.
+- Watsa `matter` with you?
+- ... what's the `matter`?
+- What's the `matter` hon?
+- What's the `matter` now?
+- But it wouldn't `matter`.
+- Hey, what's the `matter`?
+- I... it doesn't `matter`.
+- It's a personal `matter`.
+- Look it doesn't `matter`.
+- My name doesn't `matter`.
+- No `matter` what happens.
+- No `matter` what happens.
+- So what does it `matter`?
+- That is another `matter`.
+- Then it doesn't `matter`.
+- Then this won't `matter`.
+- Whatsa `matter` with you?
+- What's the `matter`, boy?
+- What's the `matter`, dad?
+- What's the `matter` dear?
+- What's the `matter` here?
+- What's the `matter`, hon?
+- What's the `matter`, kid?
+- What's the `matter`, leo?
+- What's the `matter`, max?
+- What's the `matter`, sam?
+- What's the `matter`, son?
+- But it don't `matter` now.
+- Does it even `matter` who?
+- Don't `matter` how stumpy!
+- Is something the `matter`?
+- It doesn't `matter`, levi.
+- It doesn't `matter` to me.
+- Juno, what's the `matter`?
+- No `matter` what it takes.
+- Okay, what's the `matter`?
+- Or mine for that `matter`.
+- Something is the `matter`.
+- That doesn't `matter` now.
+- This is a family `matter`!
+- Todd, what's the `matter`?
+- Well, it doesn't `matter`.
+- Well, what's the `matter`?
+- What does it `matter` now?
+- What's the `matter`, baby.
+- What's the `matter`, baby?
+- What's the `matter`, boys?
+- What's the `matter`, dear?
+- What's the `matter`, emmi?
+- What's the `matter`, fats?
+- What's the `matter`, matt?
+- What's the `matter`, otis?
+- What's the `matter`, paul?
+- What- what's the `matter`?
+- Ain't nothin' the `matter`.
+- Annie, what's the `matter`?
+- As a `matter`-of-fact i am.
+- Billy, what's the `matter`?
+- Daddy, what's the `matter`?
+- Doesn't it `matter` to you?
+- Doesn't `matter` how small?
+- Doesn't `matter` who he is.
+- I say -- it don't `matter`.
+- It's a `matter` of respect.
+- `Matter` of life and death.
+- Nah, that doesn't `matter`!
+                 

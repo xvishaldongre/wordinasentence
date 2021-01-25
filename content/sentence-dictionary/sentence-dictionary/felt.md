@@ -1,0 +1,107 @@
+---
+title: "felt in a sentence | felt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "felt"
+---
+- `Felt` a little light.
+- I never `felt` better.
+- I've `felt` it myself.
+- That `felt` redundant.
+- You `felt` obliged to.
+- You must've `felt` it.
+- God, that `felt` great!
+- He `felt` sorry for me.
+- We `felt` his presence.
+- 'cause i `felt` it, too.
+- Haven't `felt` it a bit.
+- You've always `felt` it.
+- Because i `felt` like it.
+- `Felt` that thing-- okay.
+- I `felt` like i owed her.
+- I haven't `felt` like it.
+- I know, i've `felt` it...
+- I think he `felt` it too.
+- I've never `felt` better.
+- I wish i `felt` the same.
+- She makes `felt` wallets.
+- Ain't never `felt` better!
+- But it never `felt` right.
+- I `felt` it... everywhere.
+- I `felt` like it, so what?
+- I never `felt` more alive.
+- How would you have `felt`?
+- I `felt` like a little boy.
+- I know you `felt` for them.
+- It all `felt`...just wrong.
+- Just `felt` a little chill.
+- Somebody `felt` much worse.
+- I `felt` absolutely immoral.
+- This is what it `felt` like.
+- But it just `felt` very real.
+- `Felt` like a large asteroid.
+- I have `felt` him, my master.
+- You know what it `felt` like.
+- Do you know how i `felt`, diz?
+- I `felt` a lot safer having it.
+- I `felt` an end to the craving.
+- I never `felt` so clean before.
+- Never `felt` better in my life.
+- Remember how good it `felt`.
+- But i do remember how it `felt`.
+- Didn't know you `felt` that way.
+- I `felt` like i was suffocating.
+- It `felt` dirty to not tell you.
+- I thought i `felt` mean tonight.
+- Well, how do you think i `felt`?
+- You `felt` something for gustus.
+- You know how i `felt` about her.
+- Don't you think that `felt` good?
+- He said that my hand `felt` good.
+- I `felt` so sorry for him -- who?
+- I never `felt` better in my life.
+- I really `felt` we had something.
+- I... suddenly `felt` such a fool.
+- No, only when she `felt` like it.
+- I guess i just... `felt` i should.
+- I never `felt` so happy, carefree.
+- It `felt` like i was disappearing.
+- It was like nothing i ever `felt`.
+- 200 k and kip's life on the `felt`.
+- I `felt` funny about it afterwards.
+- I `felt` i'd contributed something.
+- I `felt` like she almost killed me.
+- They `felt` like traffic accidents.
+- I've never `felt` better in my life.
+- Saying i `felt` like a poisoned rat.
+- Still, i `felt` something was wrong.
+- `Felt` his liver go on that last one.
+- I haven't `felt` this way in so long.
+- I just `felt` like doing those lines.
+- Is this how my mom `felt` every time?
+- I've never `felt` so strong or happy.
+- You `felt` a little sick, didn't you?
+- Can't you tell me what it `felt` like?
+- It `felt` like an eternity, didn't it?
+- I went as far as i `felt` comfortable.
+- Think i `felt` like a shavetail louie?
+- Well, i've `felt` that way, hadn't you?
+- I `felt` funny about this job right off.
+- I `felt` i needed to get away for a day.
+- I `felt` like i was a scared little kid.
+- I know but i `felt` like taking a shift.
+- It just `felt` safer that way, you know?
+- My father sends his heart `felt` praise.
+- This place never `felt` like one before.
+- I've never `felt` this way about anybody!
+- Jesus, i almost `felt` sorry for the guy.
+- We `felt` they were competent a year ago.
+- I asked if you `felt` like a drink-- what?
+- I `felt` milholland's report in my pocket.
+- I `felt` sad, i put myself on the circuit.
+- I haven't `felt` this good in a long time.
+- In fact, i've never `felt` more protected.
+- I think buddy `felt` kinda bad about that.
+- It's like nothing i've ever `felt` before.
+- It's not just how i `felt` toward jessica.
+                 

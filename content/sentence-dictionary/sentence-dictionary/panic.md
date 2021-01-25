@@ -1,0 +1,67 @@
+---
+title: "panic in a sentence | panic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "panic"
+---
+- Had to be dumb `panic`.
+- Yes, but don't `panic`.
+- Alvy, now don't `panic`.
+- Guys, let's not `panic`.
+- Rule one, don't `panic`.
+- Ya `panic` in your head.
+- There's `panic` and fear.
+- Mary robert, don't `panic`.
+- Okay, homie, don't `panic`.
+- I'm having a `panic` attack.
+- I'm in a `panic` about this!
+- But ya `panic` on the inside.
+- `Panic` won't do us any good!
+- Sit tight, and don't `panic`.
+- First of all -- don't `panic`!
+- There was a moment of `panic`.
+- Now is not the time to `panic`.
+- If we `panic` now, we're done for.
+- Contemplate your... `panic` button.
+- Are you trying to `panic` the women?
+- I think i'm having a `panic` attack.
+- Sheriff, this is no time to `panic`.
+- The locals find out they'll `panic`.
+- More like pure pants-wetting `panic`.
+- She's having a `panic` attack, indra.
+- But there's -- don't `panic`, anthony.
+- Have you ever seen me `panic`, scully?
+- The important thing is not to `panic`.
+- It's a wonder i'm not `panic` stricken.
+- Look, there's no reason to `panic` now.
+- In a `panic`, they try to pull the plug.
+- You know, there's no reason for `panic`.
+- Don't `panic`, i'll join you in a minute.
+- But what did he see that made him `panic`?
+- It doesn't exactly play like dumb `panic`.
+- Ok, don't `panic`; let's think about this.
+- They were afraid it would cause a `panic`.
+- The dragon... what's all the `panic` about?
+- You should have pressed the `panic` button.
+- Don't `panic`... to move you off this planet.
+- Almost everything's been done -- under `panic`.
+- Perhaps i did... until fear turned into `panic`.
+- Chicago, the passengers are beginning to `panic`.
+- Don't `panic` yourself, way too much caffeine guy...
+- I was there, you were the only one who didn't `panic`.
+- Don't `panic`, now, there's no rush... fucking thing!!!
+- Janet made me give you the eye and then `panic`, janet.
+- Can we expect the same kid of `panic` here as in russia?
+- They've heard about the robbery and got `panic`-stricken.
+- And `panic`, locking themselves inside the palace, i'm sorry.
+- Why does the appearance of one mutant send you into a `panic`?
+- All right, i'll grant you a bird'll `panic` in an enclosed room.
+- I thought i'd be `panic`-stricken, want to run away or something.
+- Personally, i think you're getting `panic`-stricken about nothing.
+- Nail him first, be careful he doesn't `panic` and want to shoot somebody.
+- The politicians don't want `panic` headlines spoiling the festival of love.
+- If word gets out before we know what we're going to do, there'll be `panic`.
+- Please tell only who you must, i don't want to be responsible for a `panic`.
+- It's very strange not feeling that stupid `panic` thing inside you all the time.
+- Connie, let's issue statements advising people not to `panic`, to stay home and take cover.
+                 

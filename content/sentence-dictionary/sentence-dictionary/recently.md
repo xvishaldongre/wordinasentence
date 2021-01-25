@@ -1,0 +1,69 @@
+---
+title: "recently in a sentence | recently example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "recently"
+---
+- But not too `recently`.
+- Did you play `recently`?
+- Very `recently`, i'd say.
+- What i did till `recently`.
+- As you so `recently` put it.
+- Any major changes `recently`?
+- Were you `recently` promoted?
+- Have you been back `recently`?
+- Have you been there `recently`?
+- I've been having them `recently`.
+- Somewhat overdoing it `recently`.
+- Where did i hear that `recently`?
+- Where are you from most `recently`?
+- Lot of that going around `recently`.
+- Were you `recently` in the bathroom?
+- We've been getting those `recently`.
+- Handbook for the `recently` diseased.
+- My husband passed away `recently` ...
+- Did you know my mother died `recently`?
+- Was a little girl kidnapped `recently`?
+- Have i said that to you guys `recently`?
+- I mean, has anybody seen her `recently`?
+- So have you seen hubby `recently` ellen?
+- There's been a rash of them, `recently`.
+- Came into a shitload of money `recently`.
+- Have you been x-rayed `recently`, martin?
+- So it was `recently` that you tried this.
+- He came to my mind `recently`, that's all.
+- You almost married `recently`, didn't you?
+- Handbook for the `recently` deceased press.
+- Could you tell me who's driven it `recently`?
+- I returned `recently` from a stay in hospital.
+- As you know, my husband passed away `recently`.
+- Gregor's a spook, or he was one until `recently`.
+- `Recently` he's also left a photo of your mother.
+- My associates did a biopsy on this man `recently`.
+- Look, i'll see if anyone has spotted him `recently`.
+- Had either of them broken up with someone `recently`?
+- Has she been in the same room as a peanut `recently`?
+- Did he `recently` appear to you agitated or depressed?
+- Until `recently` i wasn 't sure what he meant by that.
+- Nothing has occurred `recently` to shake my confidence.
+- This... someone gave that to me, just like, `recently`.
+- We have become aware of these concepts only `recently`.
+- You know, alan and i were `recently` speaking of dying.
+- Has anyone made any threats to either of you `recently`?
+- I met him `recently`, and he wants to be in our picture.
+- I used to love it but my tastes have changed `recently`.
+- Everything he's done `recently` has been peculiar, right?
+- It would've had to have been `recently`-- within a few weeks.
+- We `recently` talked to a number of men who claim to know you.
+- So how do you - have you done any kind of inventory `recently`?
+- Well, you didn't appreciate the severity of it until `recently`.
+- I've had a shock `recently`, and i'm only beginning to get over it.
+- I understand that you have `recently` been given the rank of knight.
+- He was `recently` suspended from school for insulting his gym teacher.
+- That is because it rained `recently`, the rain has obscured the evidence.
+- Have you been exposed to a loud noise `recently`, or did you have a virus?
+- Some person or persons unknown have very `recently` tampered with this ladder.
+- A `recently` opened, cash rich escrow account has been traced back to sparazza.
+- We have `recently` requested mortars, anti-aircraft guns and ammunition from india.
+- That one there is a police officer killed by the mohawks up in canada more `recently`.
+                 

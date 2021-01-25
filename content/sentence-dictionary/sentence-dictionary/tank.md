@@ -1,0 +1,56 @@
+---
+title: "tank in a sentence | tank example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tank"
+---
+- I got a half a `tank`.
+- `Tank` you veddy much.
+- Had my own think `tank`.
+- Next to the water `tank`.
+- `Tank`, charge the e.m.p.
+- Near a large water `tank`?
+- The other `tank` may blow!
+- He broke out of the `tank`.
+- Ran into a `tank` and died.
+- I'll get you another `tank`.
+- `Tank`, load the jump program.
+- His think `tank` thinked it up.
+- Is morpheus still alive, `tank`?
+- Ralph is in-a the lobster `tank`?
+- Sure you'll see some `tank` battles.
+- Via this sensory deprivation `tank`.
+- Drive a `tank` through skinner's house.
+- Out of a privately funded think `tank`.
+- The gas `tank`'s going to go any second!
+- I need more pressure in the shark `tank`.
+- The `tank` will be finished by morning...
+- Okay... have them get it out of the `tank`.
+- An oxygen `tank` must've blown on the welder.
+- Hears the faint distant rumble of the `tank`.
+- Can't believe your `tank`'s dry up at the mill.
+- How long until the assembler `tank` is complete?
+- I mean, you gave your research to a think `tank`.
+- Some people are saying you're going into the `tank`.
+- I'll meet you behind the seal `tank` in half an hour.
+- Once i'm in the `tank`, i won't remember any of this.
+- This little lady drowned her father in a fish `tank`.
+- You think the three in the `tank` come from a test tube?
+- I mean i had an m16, jacko, not an abrams fucking `tank`.
+- Well, if that doesn't stir your `tank`, for a full refund.
+- Exactly five minutes to get dunbar out of that water `tank`.
+- I'm in a customs holding `tank` in mexico city international.
+- Well, if that doesn't stir your `tank`, - how you holding up?
+- `Tank`, i need a pilot program for a military m-109 helicopter.
+- Which is-- they work off the o2 `tank` just like the slice pack.
+- Yeah, but killian built that think `tank` on military contracts.
+- Your friend was messing up my `tank` and messing up my whales...
+- Do you anally rape my mother while pouring sugar in my gas `tank`?
+- It's a privately funded think `tank` called advanced idea mechanics.
+- Go back to whatever toluca lake drunk `tank` boundaries have been set.
+- After all, you didn't personally drain the gasoline out of the `tank`...
+- Well, it's bigger than the `tank` on eligius iii, all right, i'll do it.
+- Dr. mccoy, you, mr. scott and commander sulu will convert us a whale `tank`.
+- They took his name from this little inscription that was stuck on his `tank`.
+- Miller, he's back, he was in the `tank`... ...repeat, we're armed... we're armed.
+                 

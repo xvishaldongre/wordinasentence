@@ -1,0 +1,68 @@
+---
+title: "Hawkins in a sentence | Hawkins example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Hawkins"
+---
+- He runs `hawkins` lab.
+- I think it's `hawkins`.
+- Don't say it, `hawkins`.
+- From the `hawkins` post.
+- It's a map of `hawkins`.
+- Or maybe like `hawkins`.
+- She's from `hawkins` lab.
+- Teacher, `hawkins` middle.
+- We drove over from `hawkins`.
+- Yes, from the `hawkins` post.
+- `Hawkins`' very own chinatown.
+- The `hawkins` chief of police.
+- Uh... police chief, `hawkins`.
+- Name's `hawkins`, eddie `hawkins`.
+- Of a russian child in `hawkins`.
+- That's how you do it, `hawkins`!
+- What if this is `hawkins` and...
+- That we tracked to `hawkins` lab.
+- You gonna walk back to `hawkins`?
+- This is `hawkins` chief of police!
+- What about zero, darryl `hawkins`?
+- `Hawkins` seems pretty lame, i bet.
+- The king of `hawkins` high himself.
+- President of `hawkins` middle av club.
+- There weren't any beaches in `hawkins`.
+- Hudson `hawkins` gets the chair of honor.
+- In `hawkins`, this door had been opened once.
+- ♪ i should've walked away ♪ back to `hawkins`.
+- We want them looking at us - `hawkins` police.
+- Ah, well, welcome to `hawkins` middle, eleanor.
+- This man, `hawkins`, has killed dozens of people.
+- The big bad government baddies from `hawkins` lab?
+- I want you to come work for me at the `hawkins` pd.
+- ♪ life's the same ♪ joyce, this is `hawkins`, okay?
+- `Hawkins` isn't the target, richard low's the target.
+- It's like he's reaching into `hawkins` more and more.
+- What if we were to move out of `hawkins`... together?
+- The once quiet town of `hawkins`, indiana, max, come on!
+- What the `hawkins` police haven't been capable of doing.
+- Darryl `hawkins`, zero, abducted the boy in the men's room.
+- Hi, yes, um, this is nancy wheeler from the `hawkins` post.
+- They're all in southeast `hawkins`, right near jordan lake.
+- The mind flayer, it built this monster in `hawkins`, careful.
+- I'm talking a full-on russian invasion right here in `hawkins`.
+- Don't act like you've never committed a crime before, `hawkins`?
+- ♪ i need two, one for each cheek ♪ we're from the `hawkins` post.
+- Let's give another big hand for the `hawkins` high marching band!
+- Now, mr. `hawkins`, when last in amarillo, where did you get gas?
+- Certainly not in `hawkins`, and certainly not to someone like you.
+- Did you guys know that bob was the original founder of `hawkins` av?
+- He's gotta get to `hawkins`, and he's gotta bring his men right now!
+- Okay, we're looking for anything on the `hawkins` national laboratory.
+- I know that sounds insane, but the russians have infiltrated `hawkins`!
+- Look, if anybody copies, this is jim hopper, `hawkins`' chief... great.
+- I know how hard this is on you, son, a russian spy presence in `hawkins`.
+- I won't shoot a cadogan, "`hawkins` rodents prefer poison: nutjob tells all."
+- ...compton with a fifty-six-year- old petty thief -- woman named simone `hawkins`.
+- Next time they come, you have to fight back they want to expand to east `hawkins`.
+- Of `hawkins` resident barbara holland who died due to exposure what, are you tired?
+- And they're running around the town of `hawkins`, your second home for division iii sports.
+- I've salvaged a few of the healthy plants to use for seeds... well, who owns `hawkins` lab?
+                 

@@ -1,0 +1,107 @@
+---
+title: "department in a sentence | department example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "department"
+---
+- `Department` of energy?
+- Not my `department` ...
+- The police `department`?
+- `Department` of commerce.
+- Hurt feelings `department`.
+- That's abby's `department`.
+- `Department` of enforcement.
+- I'd start a new `department`.
+- The electronics `department`.
+- That's the legal `department`.
+- You're outta the `department`.
+- I joined the fire `department`.
+- The bristo police `department`.
+- The county health `department`.
+- He owned the water `department`?
+- Get the fbi, the fire `department`.
+- It's the `department` of transport.
+- The `department` needs role models.
+- This was your `department`, junior.
+- I had to do it for the `department`.
+- The `department` store is all yours.
+- This about the justice `department`?
+- We are with the police `department`.
+- 'x' `department` special operations.
+- People from outside the `department`.
+- We should call the fire `department`.
+- How're you fixed in that `department`?
+- I'm not calling the fire `department`.
+- In addition to the looks `department`?
+- The `department`'s dental is for shit.
+- The `department` will take care of it.
+- The sign says "`department` of energy."
+- What `department` store did they go to?
+- You work in the insurance `department`?
+- Then it was over the water `department`.
+- The police `department` at merritsville.
+- Because he cares about your `department`.
+- Exploding `department` stores keep me up.
+- Over the water `department`, or over you?
+- Have your `department` make a full report.
+- He overstated the `department`'s position.
+- See where it says 'readers' `department`'?
+- With the head of the english `department`.
+- You--or the vancouver police `department`?
+- Mortgage `department`, first national bank.
+- Protect yourself; protect the `department`.
+- Was the show covered by every `department`?
+- Now i become custody of police `department`?
+- This one's still with the fire `department`.
+- You're looking at the lingerie `department`.
+- `Department` scapegoat on the chief's orders.
+- I work in the immigration `department` there.
+- Walk out and call the sheriff's `department`.
+- Where's the news `department` at this studio?
+- You know who i saw in the dress `department`?
+- You see max cherry in the dress `department`.
+- From the insurance `department` wait a minute.
+- Don't worry about that, that's my `department`.
+- I'm not holding my breath in that `department`.
+- I -- uh -- won't report it to the `department`.
+- Julian cross worked for the water `department`?
+- They caught up with me in a `department` store.
+- I already got that `department` taken care of...
+- I'm gonna take you to the `department` of labor!
+- I'm now in charge of the paralegal `department`.
+- I thought you said cross owned the `department`.
+- I assume she's the virtuoso in that `department`.
+- I'm with the county family services `department`.
+- Is this somehow related to the fire `department`?
+- I take care of the being-fair-to-me `department`.
+- I was signing autographs in a `department` store.
+- Make it alexander's, i like the toy `department`.
+- Now you're in the shit and so's the `department`.
+- Owns a `department` store in des moines, i think.
+- Russ yelburton, deputy chief in the `department`.
+- So, mark's working at the state `department` now.
+- We had a police `department` who was cooperative.
+- But i'm not sure i want to be a `department` head.
+- The senior prom ... mcintire's `department` store.
+- Actually, the art `department` had some ideas on...
+- Fortunately, my needs are met in that `department`.
+- He was a stool pigeon for the justice `department`.
+- I keep thinking that's a fire `department` uniform.
+- If you can clear it with the sheriff's `department`.
+- I've got a friend in the boston police `department`.
+- The problems of the world are not in my `department`.
+- Choices... now the commerce `department`.., choices???
+- Deputy art lewis, jerome county sheriff's `department`.
+- They keep switching us from `department` to `department`.
+- You're not gonna get <u>near</u> the news `department`.
+- He has no business sticking his nose in my `department`.
+- These reports go to the justice `department` eventually.
+- 'didn't mention he was going to the justice `department`?
+- Straightest answer your `department`'s given me all week.
+- You were referred here by the `department` of employment.
+- Does he have a courtesy card from the police `department`?
+- "her singing, happily, is no concern of this `department`.
+- Hollis was the best `department` head the city's ever had.
+- You're still convinced there's a link to the `department`?
+- Actually you're a bit off in the motivation `department`...
+                 

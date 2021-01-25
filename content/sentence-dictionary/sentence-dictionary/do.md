@@ -1,0 +1,107 @@
+---
+title: "do in a sentence | do example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "do"
+---
+- Baby, don't `do` this.
+- Bell, what `do` we `do`?
+- Bill, how `do` you `do`?
+- Bloody right i `do`...
+- Brenda `do` something!
+- But how `do` you know?
+- But i can't `do` that.
+- But i like to `do` it.
+- But it's all you `do`.
+- But what can you `do`?
+- But what could i `do`?
+- But what does it `do`?
+- But, what `do` i know?
+- But why did i `do` it?
+- But you gotta `do` it.
+- Can anybody `do` that?
+- Can't say that i `do`.
+- Can you `do` anything?
+- Did i `do` my part ok?
+- Did you `do` anything?
+- Did you say, "i `do`"?
+- `Do` a rally together.
+- `Do` i look all right?
+- `Do` i make you horny?
+- `Do` i seem different?
+- `Do` i still love you?
+- `Do` it for the paper.
+- `Do` me another favor?
+- `Do` not fuck with me.
+- `Do` not tell me that!
+- Don't `do` it, evelyn.
+- Don't `do` it, norman!
+- Don't `do` it, please.
+- Don't `do` that again!
+- Don't `do` that, okay?
+- Don't `do` that to me!
+- Don't `do` the finger.
+- Don't `do` this again.
+- Don't `do` this, andy.
+- Don't `do` this to me.
+- Don't make me `do` it.
+- `Do` something for me.
+- `Do` they have drinks?
+- `Do` they serve booze?
+- `Do` we have a future?
+- `Do` we have a garden?
+- `Do` we have a visual?
+- `Do` we throw it back?
+- `Do` what, mr lombard?
+- `Do` what you're told.
+- `Do` you believe that?
+- `Do` you believe this?
+- `Do` you ever see him?
+- `Do` you go to school?
+- `Do` you have a cross?
+- `Do` you have a fella?
+- `Do` you have a fever?
+- `Do` you have a match?
+- `Do` you have a phone?
+- `Do` you have a point?
+- `Do` you have a scarf?
+- `Do` you have a sword?
+- `Do` you have ram rod?
+- `Do` you hear me, sir!
+- `Do` you know a marie?
+- `Do` you know, harold?
+- `Do` you know her too?
+- `Do` you know raphael?
+- `Do` you like england?
+- `Do` you like it here?
+- `Do` you like massage?
+- `Do` you like my body?
+- `Do` you like my tomb?
+- `Do` you like pigeons?
+- `Do` you like to read?
+- `Do` you meet someone?
+- `Do` you mind if i `do`?
+- `Do` you miss mallory?
+- `Do` you need a break?
+- `Do` you realize that?
+- `Do` you recognize it?
+- `Do` you remember her?
+- `Do` you remember him?
+- `Do` you remember now?
+- `Do` your thing, baby.
+- `Do` you see anything?
+- `Do` you see her, too?
+- `Do` you see the kids?
+- `Do` you see them yet?
+- `Do` you speak german?
+- `Do` you study at all?
+- `Do` you think i must?
+- `Do` you think she is?
+- `Do` you wanna `do` it??
+- `Do` you wanna go out?
+- `Do` you want a drink?
+- `Do` you want any jam?
+- `Do` you want the car?
+- `Do` you want to live?
+- `Do` you want to stay?
+                 

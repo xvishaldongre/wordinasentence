@@ -1,0 +1,107 @@
+---
+title: "records in a sentence | records example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "records"
+---
+- Sure we keep `records`!
+- There are no `records`.
+- What medical `records`?
+- He `records` it all.
+- Are these all `records`!
+- Tax or business `records`?
+- Artie, no `records`, artie.
+- It's running our `records`!
+- Your `records` wiped clean.
+- Not what the `records` show.
+- I saw the computer `records`.
+- Must'a broken some `records`.
+- Those are all your `records`.
+- We can get medical `records`.
+- You're in the `records` room.
+- Negative on his tax `records`.
+- There were no phone `records`.
+- But what about school `records`?
+- He's the man with the `records`.
+- I want his `records` sent to me.
+- He's got like six gold `records`.
+- Then how about medical `records`?
+- They asked to see my `records`...
+- Town `records` are coming up now.
+- Dental `records` will take longer.
+- The `records` seem to be in order.
+- You do?--with access to `records`?
+- Is she into old `records` and stuff?
+- The rest is barker's bank `records`.
+- This is mr. dorchester in `records`.
+- Do you have any old indian `records`?
+- I was at the hall of `records` today.
+- Someone must've pulled the `records`.
+- The bank `records`, the surveillance.
+- These `records` only go back to 1880.
+- They go through your phone `records`.
+- We keep `records` of hospital visits.
+- What are you gonna do with `records`?
+- I'm not trying to break any `records`.
+- I thought those `records` were sealed.
+- `Records`, w-2s with his name on them.
+- There are no other `records` like that!
+- Has drag city `records`, i know, i know.
+- I looked it up at the hall of `records`.
+- Merely for our `records`, miss mayfield.
+- He's got a lotta `records` up for awards.
+- Neither of which keep purchase `records`.
+- They go to the medical `records` section.
+- We look at hotel `records` and we see oh!
+- Sister... look into the convent `records`.
+- But our `records` were a little against us.
+- I talked to the army's bureau of `records`.
+- Where do our `records` go to in the castle?
+- As long as it `records` i don't give a shit.
+- Empirical, exacting, quantifiable `records`.
+- I didn't see any medical `records` in there.
+- I got some old `records` i want you to hear.
+- They needed dental `records` to identify us.
+- Most official `records` were lost in the war.
+- .. has sarris seen the.. historical `records`?
+- I'm keeping much better `records` now, hannah.
+- They went in to get his psychiatric `records`.
+- Books, `records`, films -- these things matter.
+- My school `records`, jack's football `records`...
+- We've subpoenaed the auction house's `records`.
+- You use computers to probe financial `records`?
+- ...no... ...you want to see the court `records`?
+- Since as long as we've been keeping `records`...
+- That guy from hectic `records` -- what'll we do?
+- That's how you got into homesearchers `records`.
+- The ark found some old `records` that show what?
+- You keep the `records`, or contribute to 'em.
+- I told you the dental `records` will take time...
+- Look... search your own `records`, if you prefer.
+- All this from watching the.. historical `records`?
+- But as far as the `records` are concerned, you do.
+- But first i called the hall of `records` in provo.
+- Do you have any other old `records` besides these?
+- Pinky's `records` and disc in the shopping center.
+- `Records` are those big round black things, right?
+- We seal juvenile `records` until they're deceased.
+- What else do i have, other than `records` and cds?
+- That all these drug middlemen have clean `records`?
+- Don't worry, his `records`'ll sell out now he's dead.
+- Especially with that `records` mess up in church hill.
+- Except through the phone `records` in the dallas jail?
+- I had a hell of a time getting hold of your `records`.
+- You got two minor league home run `records` don't you?
+- I got too much time and money invested in my `records`.
+- Can you dig up their quarantine `records` in this thing?
+- The shipping `records` aren't a hundred percent accurate.
+- So you're producing exclusively for grendel `records` now.
+- This guy, you checked your course `records`, who signed up?
+- Well, then, from now on, i'm gonna start keepin' `records`.
+- We should check the `records`, and, we should talk to lynn.
+- According to your `records` when did you prescribe the drug?
+- How come, i wonder, she don't put out no more new `records`.
+- I went into the "warrants" system and erased your `records`.
+- They upload medical files, school `records`, pharmacy files.
+- I hear the british have his... his archive, files, `records`.
+                 

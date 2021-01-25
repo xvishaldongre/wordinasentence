@@ -1,0 +1,107 @@
+---
+title: "obviously in a sentence | obviously example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "obviously"
+---
+- `Obviously` in denial.
+- `Obviously` there was.
+- `Obviously`, you can't.
+- She's `obviously` that.
+- Well, i `obviously` do.
+- You `obviously` got it.
+- It's `obviously` a code.
+- It was `obviously` bart.
+- No offense, `obviously`.
+- `Obviously` i was wrong!
+- `Obviously` that's over.
+- She's `obviously` lying.
+- Well, yeah, `obviously`.
+- No password, `obviously`.
+- `Obviously`, it happened.
+- It's `obviously` a frameup!
+- `Obviously` the three kids.
+- `Obviously` a superpredator.
+- Well `obviously` not always!
+- `Obviously`, this can't last.
+- Bring darien... `obviously`...
+- But you `obviously` missed me.
+- They're `obviously` nocturnal.
+- This is `obviously` some scam.
+- You're `obviously` mechanical.
+- It's `obviously` a lot of bunk.
+- It's `obviously` an aborticide.
+- `Obviously`, we're both lonely.
+- `Obviously`, some of us haven't.
+- You `obviously` don't read much.
+- `Obviously` it didn't pass muster.
+- `Obviously` someone else knows it!
+- `Obviously`, you have some skills.
+- He's `obviously` no friend of yours.
+- I'm tired all the time, `obviously`.
+- This graveyard is `obviously` phony!
+- We'll keep him in here, `obviously`.
+- Well, you `obviously` don't know me.
+- He was `obviously` able to handle it.
+- `Obviously`, but what's the way out ?
+- `Obviously`, there are 1egal matters.
+- She was `obviously` very sentimental.
+- Well, `obviously` there's no killing.
+- Well, `obviously`, we got to go back.
+- It's `obviously` some sort of prank...
+- Of whom you so `obviously` disapprove.
+- To find the man in black, `obviously`.
+- You're `obviously` in the wrong place.
+- Because `obviously` she existed, right?
+- Not that it <u>worked</u>, `obviously`.
+- `Obviously` it's some kind of screw up.
+- It's `obviously` based on elliot and me.
+- Listen, friend, you're `obviously` lost.
+- They `obviously` have very deep pockets.
+- Gina, you `obviously` need to get fucked.
+- I mean, `obviously`, since swifty's dead.
+- `Obviously`, he found a way to make more.
+- `Obviously`, you don't know me very well.
+- The woman's `obviously` in love with him.
+- `Obviously`, hardin's welcome to join you.
+- `Obviously` the africans hate the indians.
+- She `obviously` doesn't wanna talk to you.
+- She was `obviously` just using you, terri.
+- Well, you're `obviously` making him happy.
+- You and that thug are `obviously` failing.
+- `Obviously` lying... yeah, no, i knew that.
+- `Obviously`, at this time, you weren't sick.
+- `Obviously` i'll do anything to help dickie.
+- Then she's `obviously` not got enough to do.
+- Israel's `obviously` paid off the management.
+- I thought i was, but `obviously` i was wrong.
+- `Obviously` there were others, weren't there?
+- `Obviously` you haven't ... dr. carlson died.
+- She's `obviously` dealt with this guy before.
+- They `obviously` weren't designed for racing.
+- D) brooke is `obviously` hiding something.
+- Why are you doing this `obviously` macho feat?
+- Yeah, well, `obviously` it wasn't meant to be.
+- He's `obviously` setting something up very big.
+- I mean, `obviously` it's all just a- it's okay.
+- `Obviously`, the ghetto-chic is not gonna work.
+- We've `obviously` got the bastards worried now.
+- 'cause this is the cove he `obviously` lives in.
+- It's `obviously` been highly successful for you.
+- `Obviously` you didn't get a whiff of that sock?
+- Mike, you `obviously` tapped into a baby monitor.
+- `Obviously` you're sick if you can act like that.
+- Something you `obviously` have a hard time doing!
+- You were `obviously` getting nowhere with her.
+- But `obviously` you still care what happens to him.
+- That suit stinks and you `obviously` dye your hair.
+- [woman] `obviously`, these guys were professionals.
+- Because, `obviously` they don't watch enough movies.
+- Good dreams, `obviously` -- it's a dream to see you.
+- `Obviously` no one you have to worry about... woody.
+- But the peyote is `obviously` affecting their brains.
+- I'm `obviously` perfect and dustin's `obviously` lying.
+- `Obviously` you don't think so, and i don't know why.
+- Yeah, but `obviously` it was stupid, or he'd be here.
+- `Obviously` he doesn't either and i don't blame him.
+                 

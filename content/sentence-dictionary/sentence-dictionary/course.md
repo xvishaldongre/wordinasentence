@@ -1,0 +1,107 @@
+---
+title: "course in a sentence | course example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "course"
+---
+- '`course` he's coming.
+- '`course` i will, rob.
+- Hold `course`, laredo!
+- No, of `course` not...
+- No... of `course` not.
+- Of `course`, dumpling.
+- Of `course` he didn't.
+- Of `course` i mean it!
+- Of `course` i'm on it.
+- Of `course`, i'm sure.
+- Of `course` i'm upset.
+- Of `course` it counts.
+- Of `course`, it's him.
+- Of `course` i want to.
+- Of `course` i would ..
+- Of `course`, princess.
+- Of `course`, sit down.
+- Of `course` there was.
+- Of `course` they stay.
+- Of `course` they were.
+- Of `course` they will.
+- Of `course` you can't!
+- Of `course` you can't.
+- ...of `course` you do.
+- Of `course` you don't.
+- Of `course` you'll go!
+- Of `course` you never.
+- Of `course` you would.
+- To space, of `course`.
+- Well, of `course` not!
+- Well, of `course` not.
+- Why, yes, of `course`.
+- Yes, yes, of `course`.
+- Your mind of `course`.
+- Freddy of `course`.
+- `Course` not, compadre.
+- `Course` there's a war.
+- '`course` you do, jake.
+- Following new `course`.
+- Improvise, of `course`.
+- Lock down, of `course`.
+- No, no of `course` not.
+- No, of `course` i do...
+- Of `course` he's moody.
+- Of `course` i know you!
+- Of `course` i love him.
+- Of `course` i love you.
+- Of `course` i'm scared.
+- Of `course` i need you.
+- Of `course` i remember!
+- Of `course` i remember.
+- Of `course` it can be.
+- Of `course` it'll work.
+- Of `course` it matters!
+- Of `course` it matters.
+- Of `course` i was hurt.
+- Of `course` i wouldn't.
+- Of `course` not, david.
+- Of `course`, of `course`.
+- Of `course` she's home.
+- Of `course`, what else?
+- Of `course` you didn't.
+- Of `course`, you don't.
+- Of `course` you're not.
+- Oh, yes... of `course`.
+- Oh... yes, of `course`!
+- Set `course` for morag.
+- That's it, of `course`.
+- Well, yes, of `course`.
+- What `course`, skipper?
+- Whitefoot, of `course`.
+- Why, of `course` it is.
+- Yeah, of `course` i am.
+- Yeah, of `course` i do.
+- Yes, cats, of `course`.
+- Yes, of `course` it is.
+- Yes, of `course`... mr.
+- Yes, well, of `course`.
+- After hours of `course`.
+- But of `course` you are.
+- Except mark of `course`.
+- I am joking of `course`.
+- I mean, of `course` not.
+- Just local, of `course`.
+- Meaning me, of `course`.
+- No, no, of `course` not.
+- Of `course`, absolutely.
+- Of `course` he's an ass.
+- Of `course` i did, luis.
+- Of `course` i'd like to.
+- Of `course` i'm serious.
+- Of `course` it happened.
+- Of `course` it's unfair!
+- Of `course` it's unfair.
+- Of `course` i was hurt.
+- Of `course` - of `course`!
+- Of `course`, right away.
+- Of `course`, sweetheart.
+- Of `course` we're ready.
+- Of `course` you can not.
+                 

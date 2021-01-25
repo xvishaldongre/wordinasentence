@@ -1,0 +1,60 @@
+---
+title: "German in a sentence | German example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "German"
+---
+- Do you speak `german`?
+- `German`, is that you?
+- They�re `german` jews.
+- I saw `german` writing.
+- Dad got some `german` jam.
+- Name us a `german` virtue.
+- Please let it be `german`.
+- After all, i am a `german`.
+- Do you understand `german`?
+- How about a little `german`?
+- My `german`'s a little rusty.
+- I'd want it to be in `german`.
+- Ah, that's the new `german` 77.
+- If they've got a `german` wife.
+- By the way, how is your `german`?
+- Nonsense -- `german` ghost stories!
+- A coma car - built to `german` specs.
+- It's full of proper `german` virtues.
+- We might end up in the `german` army.
+- Mind you, it'll have to be in `german`.
+- Kills the last of the `german` riflemen.
+- But i guess you understand `german`, right?
+- What really happened on the `german` front?
+- Frank only responds to commands in `german`.
+- Now you are a subject of the `german` reich!
+- Anything to avoid losing the `german` market.
+- The `german`... hell, you know how skinny is.
+- Yesterday they were just two `german` clerks.
+- Did we vote in the end for `german` or italian?
+- I haven't done anything in `german` since seraglio.
+- Or make me speak `german`, which i can, by the way.
+- Say, an opera in `german` for our national theatre.
+- Then why especially does it have to be in `german`?
+- Were you fighting rats or the entire `german` army?
+- What would we do if a `german` came into the house?
+- Too bad about those two `german` couriers, wasn't it?
+- Well, `german` is earth's closest language to klingon.
+- We could use a good `german` composer in vienna, surely?
+- My real father was a famous `german` composer i miss you.
+- There was this `german` cat an architect in the hospital.
+- Maybe he's a `german` the krauts planted in this barracks.
+- Our duty also is to bring back the best of `german` culture.
+- How do you know you're not `german` if you don't remember anything?
+- You may recall what `german` guarantees have been worth in the past.
+- Half the `german` army's on our tail and you want me to go to berlin?
+- I wish i could invite you all to my house for a nice `german` christmas!
+- You're got to go back to `german` silent movies to find anything like it.
+- Rome is going to pay an allotment to the `german` tribes on an annual basis.
+- We can protect him at the dropship and i wasted high school learning `german`.
+- Your father is being held in the castle of brunwald on the austrian-`german` border.
+- From some `german` cathedral a million years ago: "driving the demons from the mind."
+- Some irish, some `german`, some french, dutch -- the women in my family slept around.
+- Show me the real paris, the part that isn't overpriced and overrun with `german` tourists.
+                 

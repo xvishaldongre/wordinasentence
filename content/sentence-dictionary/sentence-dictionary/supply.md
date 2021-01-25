@@ -1,0 +1,70 @@
+---
+title: "supply in a sentence | supply example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supply"
+---
+- A `supply` room or two?
+- The art `supply` store.
+- The army `supply` lines.
+- Create `supply` and demand.
+- Harass their `supply` lines.
+- The people's `supply` lines.
+- I can `supply` those, oswald.
+- I had a three-month `supply`.
+- To boost our oxygen `supply`.
+- You need to cut her `supply`.
+- Auto `supply`... a broker?
+- A lovely new `supply` of venom.
+- Then we deal with `supply`.
+- Contaminate the water `supply`.
+- These people `supply` to order.
+- They `supply` the rwandan army.
+- To `supply` the motorball game.
+- How's that `supply` line coming?
+- You `supply` the guys to move 'em.
+- Never get high on your own `supply`.
+- It's time for a `supply` run, anyway.
+- They got a steady stream of `supply`.
+- Name your poison and i'll `supply` it.
+- A `supply` depot not too far from here.
+- With an endless `supply` of free booze.
+- I work at dennis brothers fish `supply`.
+- She's afraid of losing her blood `supply`.
+- Lifetime `supply` of pantyhose, or some shit.
+- He owned the entire water `supply` for the city?
+- I'll `supply` all the money and the information.
+- That even our `supply` runs were putting us at risk.
+- To extend our oxygen `supply` unless we take action.
+- Beverly hills -- where's your chief `supply` officer?
+- Well, raven said to wait and see if `supply` evens out.
+- Getting high on your own `supply` like some crack dealer.
+- I'm sure he will `supply` for us a magnificent apartment.
+- Can't have your blood `supply` defending themselves, right?
+- There are <u>agencies</u> that `supply` sitters, nannies...
+- They attempted to rescue a `supply` shuttle bound for titan.
+- We've talked about the `supply` side, but what about demand?
+- Her regular `supply` of drawing pencils has dwindled to nothing.
+- I've had `supply` problems of every kind and ... what's so funny?
+- From the `supply` grid in order to extend life support you should.
+- We got any more of those electronic chess things down in `supply`?
+- When we got 'em lined up, we increase the `supply` a bit at a time.
+- Get these things out of `supply` and meet me over by the snowmobiles.
+- Good questions, deserving answers, of which we are in short `supply`.
+- Linen `supply` business or cement and contract, you know what i mean?
+- From the `supply` grid in order to extend life support where are they?
+- Have any idea what this land'll be worth with a steady water `supply`?
+- Then on your next `supply` run to the mothership, we get to see a taxi.
+- It's got an urm micro reactor for power `supply` probably worth millions.
+- We `supply`, for example, most of the egg farmers in southern california.
+- It would take hundreds of human brains to `supply` what's in these fibers.
+- That i've hot wired the city's entire power `supply` through that catwalk.
+- You're brain is in reverse mode ... cutting off your `supply` of dopamine.
+- But you cannot complete the conquest, so far from your shelter and `supply`.
+- I've phoned every art `supply` retailer and wholesaler in the tri-state area.
+- Bev, give `em a call, find out what bowling alleys they `supply` in this area.
+- Class, let's give an enthusiastic they'd have to have a `supply` for refueling.
+- I suggest you either pay this immediately or lay in a large `supply` of candles.
+- In a catastrophic emergency, we're taking giant, panicked breaths... no, `supply` oxygen?
+- You and your family will be leaving with a `supply` ship returning in the morning to ostia.
+                 

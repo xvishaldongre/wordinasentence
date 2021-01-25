@@ -1,0 +1,107 @@
+---
+title: "none in a sentence | none example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "none"
+---
+- `None` facety, mistah.
+- `None` of that's true.
+- `None` of that's true?
+- `None` of us is ready.
+- There are `none` here.
+- `None` of that matters.
+- `None` of this is fine.
+- `None` of us are, over.
+- No, sir, `none` at all.
+- `None` as far as i know.
+- `None` at all... we won.
+- `None` of... `none` of us.
+- `None` of that happened.
+- `None` of your business.
+- `None` of it is easy.
+- Don't want `none` either.
+- I'll have `none` of that!
+- `None` at this time, sir.
+- `None` i'd like to share.
+- `None` in the wide world.
+- `None` of it sounds good.
+- `None` of these are ours.
+- `None` of us died, right?
+- `None` of us is innocent.
+- Power is `none` of these.
+- `None` of them worked?
+- It couldn't a hurt `none`.
+- It don't bother me `none`.
+- `None` available, captain.
+- Two is one, one is `none`.
+- It's `none` of my business.
+- It's `none` of my business?
+- `None` of that exists here.
+- `None` of that exists here.
+- `None` of that matters now.
+- `None` of this demons crap.
+- `None` that i've ever seen.
+- `None` too discreet, is he?
+- So, you heard `none` of it.
+- Wouldn't profit him `none`.
+- You said there were `none`.
+- By what you preach...`none`!
+- I'm afraid `none` of us can.
+- `None` of it means anything.
+- `None` of my business, fred.
+- `None` of us here wants war.
+- `None` of you could survive.
+- `None` taken - unbelievable.
+- `None` that i've ever known.
+- We have `none` of that here.
+- Wouldn't surprise me `none`.
+- It's `none` of your business!
+- It's `none` of your business.
+- `None` of the important ones.
+- `None` of the neighbors know.
+- `None` of this is going away.
+- `None` of your damn business.
+- They're `none` of them right.
+- Don't be afraid of him `none`.
+- `None` of that mocha nonsense.
+- `None` of that ringin' a bell?
+- `None` that i can detect, sir.
+- That's `none` of their affair.
+- That's `none` of your concern.
+- `None` who go there return.
+- But `none` of this will happen.
+- `None` know that better than i!
+- `None` of the above, thank you.
+- `None` of this accidental shit.
+- `None` of this is making sense.
+- `None` of this was here before.
+- `None` of us has had the heart.
+- `None` of your business, madam.
+- Of exter are like `none` other.
+- That is `none` of our business.
+- That's `none` of your business.
+- Uh, it's `none` of my business.
+- Well, she never gave me `none`.
+- Bonaparte didn't like me `none`.
+- I swear `none` of this was here.
+- Man, you're hot... `none` taken.
+- `None` of it matters, all right?
+- `None` of that mattered, did it?
+- `None` of us ever saw him again.
+- `None` of your fuckin' business.
+- `None` of your twittering larks!
+- Of `none` of your damn business.
+- That is `none` of your business.
+- That's `none` of your bussiness.
+- This is `none` of your business!
+- And we've killed `none` of yours.
+- `None` of them live in hollywood.
+- There ain't `none` in your daddy.
+- It's really `none` of my business.
+- My wife is `none` of those things!
+- `None` of that mumbo jumbo... you?
+- `None` of us is here without shaw.
+- At least, `none` that i'm aware of.
+- It's `none` of my business anymore.
+- It's `none` of your business, okay?
+                 

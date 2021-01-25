@@ -1,0 +1,107 @@
+---
+title: "less in a sentence | less example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "less"
+---
+- `Less` than me is you.
+- `Less` with some luck.
+- Much `less` than that.
+- I couldn't care `less`.
+- I'm `less` than nobody.
+- I'm somewhat `less` so.
+- In ten words or `less`?
+- `Less` than 50%, ma'am.
+- Much `less` go outside.
+- Try `less` appropriate.
+- Work `less`, make more.
+- Neither more nor `less`.
+- In detroit no `less`.
+- `Less` than a week to go.
+- `Less` whores, more skag.
+- Thirty minutes or `less`.
+- A bit `less` florid, data.
+- Don't make it `less` true.
+- In fair weather no `less`.
+- `Less` oprah, more chopra.
+- No, the `less` mystifying.
+- I couldn't be `less` alone.
+- `Less` than thirty minutes.
+- `Less` than two miles away.
+- Much `less` how to get out.
+- There's one `less` tonight.
+- What's `less` clear is why.
+- It'll be a lot `less` scary.
+- `Less` than you would guess.
+- The `less` time, the better.
+- They're worth `less` points.
+- You're `less` confident now.
+- It's much `less` codependent.
+- Nope, i couldn't care `less`.
+- Now i'm a little `less` hurt.
+- They know `less` than you do.
+- You know `less` than nothing.
+- And, of course, `less` dented.
+- Even `less` in monkey dollars.
+- I expected no `less`, captain.
+- I told you, use `less` powder.
+- One `less` naming day to stop.
+- A little `less` than yesterday.
+- '`less` you wanta get drownded.
+- More or `less`... more or `less`.
+- We've got `less` than 30 hours.
+- And that took `less` than a day.
+- Man have been hanged for `less`!
+- She's never been `less` popular.
+- The `less` you know, the better.
+- We've mobbed for `less`, people.
+- You will lose `less` than usual.
+- Believe me, i wish i knew `less`.
+- `Less` hook us a couple big ones.
+- You ought to dress `less` square.
+- Go for `less` literal translation.
+- It's more or `less` how it sounds.
+- More or `less`, we are all afraid.
+- The `less` they're looking at him.
+- You sleep with me `less` and `less`.
+- I like his friends even `less`.
+- It is always `less` with my living.
+- `Less` sensational papers go broke.
+- `Less` than a mile outside of camp.
+- Sit still, look `less` like a meal.
+- We use `less` of the toxin... papa!
+- '`less` the place really is haunted.
+- The `less` i think of it the better.
+- Well, i knew a lot `less` than that.
+- Has a couple of doctorates no `less`.
+- In the middle of the ocean no `less`.
+- And who has slightly `less` of an ego.
+- As myself i'll be a bit `less` subtle.
+- I told you `less` paper, `less` trouble.
+- `Less`, if they don't rest the horses.
+- ♪ `less`... ♪ it's just the beginning.
+- That gives us `less` than three hours.
+- The `less` you're actually gonna have.
+- But nulls, you are `less` than useless.
+- It will make them `less` uncomfortable.
+- Much `less` keep up with my phone life.
+- You make it `less` likely just in time.
+- But alfred's condition is `less` severe.
+- Find us a spot with `less` interference.
+- It may be considerably `less` than that.
+- I took the road `less` traveled, adelle.
+- It will take `less` effort as you learn.
+- The `less` you know about it the better.
+- We're all gods, doctor, any `less`, too.
+- But did it make him any `less` dangerous?
+- I consider it `less` my failure than his.
+- It's `less` than what i would pay a pole.
+- `Less` stress, `less` traffic, better tips.
+- `Less` talking, more looking, ok, jasper?
+- Look around -- they couldn't care `less`.
+- Maybe you're just getting `less` patient.
+- The kill switch again are `less` than 2%.
+- The kill switch again are `less` than 2%.
+- There's even `less` of him than of singh.
+- at bullet was one `less` dead grounder.
+                 

@@ -1,0 +1,62 @@
+---
+title: "gay in a sentence | gay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gay"
+---
+- Hi, i'm sueleen `gay`.
+- Do i look `gay` to you?
+- He said you were `gay`?
+- He's `gay`, by the way.
+- Except... you were `gay`?
+- Your aunt teresa is `gay`?
+- Do you know any `gay` guys?
+- Do you think they're `gay`?
+- How do you know he's `gay`?
+- I thought i was very `gay`.
+- I don't like the word `gay`.
+- He's `gay` - are you jealous?
+- You're not `gay`; you're ten.
+- Hey -- `gay` men know designers.
+- `Gay` <u>pornographic</u> movies?
+- Maybe `gay` isn't the right word.
+- You think <u>i'm</u>... ... `gay`?
+- I get to be one of the `gay` girls.
+- 'swish actor gets the `gay` blade.'
+- Don't you worry about sueleen `gay`.
+- Jesus, are you `gay` enough or what.
+- Come on, that wouldn't make me `gay`.
+- Then the devil says, "are you `gay`?"
+- We're `gay` lovers, what's it to you?
+- He's `gay` -- he isn't brooke's lover!
+- A `gay` tennis player from the forties?
+- Before you ask, no, he�s not `gay`!
+- Are you asking me if i�m `gay` for pay?
+- You know what being `gay` is, don't you?
+- Yeah, i can't believe liberace was `gay`.
+- You survived your first `gay` party intact.
+- Last time i saw you was someplace very `gay`.
+- I show you what problem -- `gay` ends in y. fey.
+- Is -- is your friend crabtree -- is he -- `gay`?
+- Has showed that no one is 100% straight or `gay`.
+- We'd love to transition a `gay` guy into the group.
+- You like that -- `gay` fey -- is that your problem?
+- We were calling you `gay` boy and you got so mad....
+- Well you're a writer, and a lot of writers are `gay`.
+- Do you find it hard to hide the fact that you're `gay`?
+- Man, that is one george michael notch from being `gay`.
+- I was a great dancer... a `gay` lot -� redi, for instance.
+- You mean `gay` old bohemian days of `gay` old san francisco!
+- It's like, for christsakes greg, you're `gay`, deal with it.
+- No, his best part was the cripple `gay` guy that climbed mt.
+- While i'm gone, tell them about our cousin lenny who's `gay`.
+- It sounds `gay`, but guess since you're a girl it's okay, huh?
+- He did leave a cher tape in the pool house once -- enrique's `gay`.
+- That sounds kinda `gay`, but since you're a guy, i guess it's okay.
+- It's a `gay` cruise line, but i'll be, like, wearing a uniform and stuff.
+- A `gay` senator's son who let his sarge get fragged on a training exercise?
+- You mean you didn't have any `gay` thoughts when you were my age... andrew.
+- Anyway, it's hard to live `gay`, that's the right way to say it, in a small town like this.
+- In the years you worked at wyant wheeler, did you ever tell charles wheeler you were `gay`?
+- You're saying the fact that you're `gay` had something directly to do with your promotions?
+                 

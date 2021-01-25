@@ -1,0 +1,53 @@
+---
+title: "Wendy in a sentence | Wendy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Wendy"
+---
+- You talked to `wendy`?
+- `Wendy` give me the bat.
+- Did you see that, `wendy`?
+- Little `wendy` foreground.
+- Put the bat down, `wendy`.
+- Can we give `wendy` a ride?
+- `Wendy`... go away from me.
+- What's the matter, `wendy`?
+- What are you doing, `wendy`?
+- No, they're not from `wendy`.
+- I told you, i was with `wendy`.
+- ] `wendy` ] the truth is a lie!
+- Is `wendy` hood your girlfriend?
+- `Wendy`, i'll come back later. ]
+- `Wendy` and i--we're meant to be.
+- Why are you working with `wendy`?
+- It's an interesting story, `wendy`.
+- `Wendy` is so excited you're coming.
+- `Wendy` maintains her own residence.
+- He encourages `wendy` to turn tricks.
+- I'm in the picture on `wendy`'s wall.
+- I don't like you working with `wendy`.
+- Didn't you think it was funny, `wendy`?
+- I've been thinking, ben, about `wendy`.
+- I hope they know you're not like `wendy`.
+- I think i can get `wendy` to like me now!
+- `Wendy`, let me explain something to you.
+- I think he was sleeping with `wendy`, too.
+- `Wendy` could really give a rats ass about you.
+- You owe `wendy` nine hundred and eighteen dollars.
+- I have been `wendy`'s counter-cousin for some time.
+- We have more in common than you think, `wendy` dear.
+- ] `wendy` ] oh that's right, baby, you're so ] "evil."
+- `Wendy`... how would you like to go get some ice cream?
+- That british dickhole is what's taking `wendy` away from me!
+- ] `wendy` ] you're not evil or dark...you're ] just scared. ]
+- Wait, you're supposed to tell me how to get `wendy` to like me.
+- `Wendy`, don't be afraid to get a little stupid and contagious.
+- ] wichita ] ] you might be right...`wendy`, you're ] fantastic.
+- ] `wendy` ] now remember, people, let's keep ] away from the mountain.
+- I mean, you and ] `wendy`--how are you and `wendy`... ] ] wichita ] complicated.
+- Sorry, `wendy`, but as learning disabilities go, stupidity is often overlooked.
+- I just think we need to talk some things out privately before... not now, `wendy`.
+- `Wendy`, ron and the twins are picking us up at 11:30 to go to brunch at the sheraton.
+- I've looked all over for you, and now you have to tell me how to get `wendy` to like me!!
+- `Wendy`, i have let you fuck up my life so far, but i'm not going to let you fuck this up!
+                 

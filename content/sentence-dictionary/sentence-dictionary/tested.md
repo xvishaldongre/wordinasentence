@@ -1,0 +1,52 @@
+---
+title: "tested in a sentence | tested example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tested"
+---
+- They've been `tested`.
+- But you've `tested` it?
+- We haven't `tested` it.
+- We `tested` the new bomb.
+- Yes, he `tested` the cup.
+- He's been `tested` for drugs?
+- Have you `tested` this theory?
+- You `tested` over a month ago.
+- But it hasn't yet been `tested`.
+- We haven't `tested` the air yet.
+- They never `tested` you, did they?
+- But i `tested` the bills, infrared.
+- You feel bad you `tested` positive?
+- Was it possible i was being `tested`?
+- Time-`tested` alternatives hey, chief!
+- We're being `tested` right now, all of us.
+- Where we will be `tested` to a man, think!
+- They <u>are</u> battle-`tested`, aren't they?
+- It `tested` well with focus groups, all right?
+- Where we will be `tested` to a man, you and me.
+- You've `tested` positive for the hiv infection.
+- Haven't come to get `tested` before now my baby.
+- We will be `tested`, hide somewhere and take cover.
+- It's times like this my temper is `tested` somewhat.
+- But we will be `tested` by the earth, my job is done.
+- All we have to do is survive, but we will be `tested`...
+- It's too late... we already `tested` it on organa major.
+- And, uh, she `tested` positive blood must not have blood.
+- The phoenix office `tested` that hair thirty minutes ago.
+- But we will be `tested` by the earth, aw, he looks scared.
+- I'm being `tested` not to preference the few over the many.
+- But the data needs to be `tested`, analyzed before -- susan.
+- Like i know one of the people got `tested` and was negative.
+- But we will be `tested` by the earth, but we will be `tested`, oh.
+- Do you make your lovers get `tested` before you sleep with them?
+- I made her get `tested` with me because i didn't want to go alone.
+- "if the president moves to deploy the b-2 before it is fully `tested`."
+- The engines, admiral: they've yet to be even `tested` at warp power.
+- But i could feel my heart beating, and i remembered you `tested` my blood.
+- You `tested` negative for all sexually transmitted diseases and infections.
+- Professor brown `tested` the tarp, noting in satisfaction that it was secure.
+- Our ancestors used a missile but we will be `tested`, we sure as hell are now.
+- I just `tested` for one... charles and me went to network on this pilot together.
+- All products carefully chosen and `tested` by you for quality and aesthetic value.
+- Mrs. brovlofski, the v-chip hasn't been fully `tested` yet, it could be dangerous.
+                 

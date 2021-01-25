@@ -1,0 +1,72 @@
+---
+title: "audience in a sentence | audience example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "audience"
+---
+- Let the `audience` decide.
+- Sir, we got an `audience`.
+- That is not an `audience`!
+- Yes -- but the `audience`.
+- Through the whole `audience`.
+- The `audience`... or yourself?
+- But i want you as a `audience`.
+- We have kids in the `audience`.
+- It's a perfect kaufman `audience`.
+- Man, you're losing your `audience`.
+- Your `audience` is way ahead of you.
+- You would be a very good `audience`.
+- The `audience` think it is paint.
+- The `audience` left twenty years ago.
+- An `audience` is people made of flesh!
+- That's your enemy, not your `audience`.
+- What's an `audience` going to tell you?
+- Your act only works with an `audience`.
+- The `audience` was a little off tonight.
+- The `audience` will stain their drawers.
+- Teddy, i brought you an `audience` today.
+- What does he mean by "target `audience`"?
+- Your `audience` hasn't even been born yet.
+- I woke up the `audience` -- like punk rock!
+- Your mom knew how to work an `audience`.
+- Well, i need to see this with an `audience`!
+- We do the show live in front of an `audience`.
+- An `audience` of 200 livestreams _ i saw a man.
+- I thought you liked me being in the `audience`.
+- Spend a little time with our target `audience`.
+- A great big surprise for you and our `audience`.
+- You wanna perform, you gotta have an `audience`!
+- Oh, listen, so the `audience` was a tad restless.
+- To an `audience` that came to see margo channing.
+- Tonight i want you to see him with an `audience`.
+- Maybe for the `audience`, it's just voyeurism?
+- It's part of music, getting used to an `audience`.
+- This is a private affair, no `audience` welcome...
+- The breasts symbolize motherhood, the `audience`...
+- But if i don't do this now, i can get an `audience`.
+- They're your fans, your `audience`- autograph fiends!
+- We have to prepare you for an `audience` with sophie.
+- He asks if your majesty might grant him an `audience`.
+- The `audience` is interested in you, sonny ... not me.
+- Your honor, ladies and gentlemen of the -- `audience`.
+- Hey c'mon, c'mon, what is this, an `audience` or a jury?
+- The `audience` will want its money refunded, believe me.
+- Something we <u>know</u> the `audience` will want to see.
+- Tell him the `audience` shouted his name a hundred times.
+- The `audience` decides who is more deserving of the title.
+- We get a big family `audience` on sundays so it works out.
+- The movie goes on, and nobody in the `audience` has any idea.
+- However, i'm certain that our core `audience` will remain loyal.
+- Besides, if it's too complicated you lose your target `audience`.
+- Is the `audience` to presume that colin and i have done her hair?
+- After all, we've only heard from a small portion of the `audience`.
+- Do you expect marcus to be well enough by morning for an `audience`?
+- We know he re-arranges the kids and husbands into a dead `audience`.
+- Whatta you mean, whose point of view; the `audience`'s point of view.
+- I'm at a stage where the `audience` expects me to constantly shock them.
+- I was in an improv group and asked the `audience` oh, no, what happened?
+- Wherever there's magic and make-believe and an `audience` - there's theater.
+- Sought `audience` with the emperor -- give me back my anonymity, that's all i ask!
+- I wouldn't feel too disappointed at the slimness of your `audience` tonight, mr. igor.
+- I want to give them to the `audience`, and i can give them, i will give them, so shut up!
+                 

@@ -1,0 +1,107 @@
+---
+title: "brain in a sentence | brain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brain"
+---
+- How's bob the `brain`?
+- I'll `brain` that guy!
+- Liquefied his `brain`.
+- I can trust my `brain`.
+- I'm one in the `brain`.
+- Meet the human `brain`.
+- Two minds, one `brain`.
+- You get `brain` damage.
+- Embolism in her `brain`.
+- Pipe down, `brain` lady!
+- There's a giant `brain`.
+- You'll rot your `brain`.
+- It causes `brain` damage.
+- It's not `brain` surgery.
+- Let the `brain` go blank.
+- My `brain` in moe's body.
+- No oxygen to the `brain`.
+- Regard the human `brain`.
+- "drink with your `brain`."
+- Sighs: total `brain` lock.
+- Stop touching his `brain`!
+- That's a gorgeous `brain`.
+- Use your `brain` for once.
+- Well, `brain`-dead anyway.
+- Air bubbles in the `brain`.
+- `Brain` activity returning.
+- Got a `brain`, haven't you?
+- There is no `brain` damage.
+- The `brain` is left unharmed.
+- Two wavelengths, one `brain`.
+- Clarke's `brain` will liquefy.
+- Clarke's `brain` will liquefy.
+- I had monsters on the `brain`.
+- Till you can feel the `brain`.
+- Hey, screw ya `brain` on right.
+- I need to squeeze this `brain`.
+- It's the `brain`'s pain centre.
+- I've as good as got my `brain`!
+- Meeks, you're the `brain` here.
+- Running someone else's `brain`.
+- Top `brain` man in the country.
+- You don't have a `brain` tumor.
+- You put a bullet in my `brain`.
+- It's not `brain` surgery, chuck.
+- No `brain` wave activity at all.
+- There's too much `brain` damage.
+- But the `brain` is left unharmed.
+- Did you just have a `brain`-fart?
+- Drilled in their `brain`, - what?
+- He said he was the `brain` trust.
+- He's showing her his big `brain`.
+- It's not exactly `brain` surgery.
+- Pike put a bullet in his `brain`.
+- You can't have the whole `brain`!
+- Don't fuck with your `brain`, pal.
+- My `brain`'s all kinds of awesome.
+- ...no wine -- bad for ya' `brain`.
+- Your `brain` does the translating.
+- There's no more `brain` powder.
+- `Brain` capacity, 900 centimeters."
+- His emotions must rule his `brain`.
+- If the `brain` dies, the body dies.
+- It's starting to reach her `brain`.
+- Look -- in the `brain`, i tell you.
+- Wow - two guys in the same `brain`.
+- You got that on the `brain`, harry.
+- Biting my `brain`, testing my faith.
+- Gimmie an order of `brain` deep-fry.
+- That money's fucked up your `brain`.
+- The emp will give me `brain` damage.
+- You've got the `brain` of a pancake!
+- You went to those `brain` butchers?!
+- Are you laughing at me, dick-`brain`?
+- Hey, wunderkind, i need your `brain`.
+- The key is a fully developed `brain`.
+- They've done something to my `brain`.
+- We get to peek into doucet's `brain`.
+- You can actually rewire your `brain`.
+- Another 21 until her `brain` is ready.
+- But the `brain` we now share is dying.
+- He bet like a fuckin' `brain` surgeon.
+- He didn't say you had a `brain` tumor.
+- It's all lower-`brain`-stem- activity.
+- Raven's ice bath worked on my `brain`.
+- This chip integrates with her `brain`.
+- We're gonna need a really big `brain`.
+- Lower `brain` function is still intact.
+- The `brain` would know what's going on.
+- The village people rotted your `brain`.
+- Trace memories in the `brain`, perhaps.
+- Your `brain` doesn't function properly.
+- There's something living in his `brain`.
+- A normal, healthy teenage girl's `brain`.
+- Fry your `brain` out soon as look at you.
+- Looks like a bug was in his `brain`, sir.
+- Mike damone is a no-`brain` little prick.
+- `Brain` hemorrhaging leads to stroke, mmm.
+- Can you imagine that `brain` in this body?
+- Didn't leave latin behind in your `brain`.
+- Let's check the real-time `brain` imaging.
+                 

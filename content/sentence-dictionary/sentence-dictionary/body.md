@@ -1,0 +1,107 @@
+---
+title: "body in a sentence | body example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "body"
+---
+- Do you like my `body`?
+- Her `body` pleases me.
+- I saw his dead `body`!
+- Listen to your `body`.
+- Look under the `body`.
+- Now his `body`'s mine.
+- Two minds, one `body`.
+- You're `body`'s dying.
+- `Body`-soul and spirit.
+- For this is my `body`."
+- Here's my `body`, theo.
+- I can't feel my `body`.
+- I see that is a `body`!
+- Oh, you have my `body`.
+- Oh, you mean my `body`.
+- What about this `body`?
+- Who'd steal her `body`?
+- You mean that `body`--?
+- Your `body`, your call.
+- Buckley took the `body`.
+- But the `body` survives.
+- Do you want this `body`?
+- His `body` held it open.
+- I'll prepare the `body`.
+- One tall, decent `body`.
+- The `body` of joan gale!
+- The `body` was embalmed.
+- "the earth is my `body`.
+- To giving up her `body`?
+- We both use that `body`.
+- .. we got a `body` part.
+- And get your `body` back.
+- But now it's `body` time.
+- I gave up my `body` hair!
+- I prefer your new `body`.
+- Is this your last `body`?
+- I want to see the `body`.
+- My brain in moe's `body`.
+- That's not will's `body`.
+- Where's ever'`body` else?
+- You've got `body` issues.
+- I mean `body` temperature.
+- In fact, her whole `body`.
+- It was her `body` of work.
+- Well, over my dead `body`.
+- Who identified the `body`?
+- Ever'`body` got to get off.
+- He showed me shaw's `body`.
+- I kind of like your `body`.
+- It changes my whole `body`.
+- The `body` i took knew her.
+- Well - you'd need a `body`.
+- Your `body` is learning it.
+- You set up the fake `body`.
+- Get the `body` out of there.
+- Her fucking `body` fell out!
+- I have a full-`body` sprain.
+- I mean where on your `body`?
+- "i sing the `body` electric.
+- My `body` can't handle this.
+- My seven `body` orifices????
+- They never found the `body`.
+- What a `body`, what a voice.
+- Why did you want her `body`?
+- You have such a cosy `body`.
+- Your `body` is just healing.
+- Is, is that axe `body` spray?
+- I wear his `body` as my host.
+- My `body` throbbed excitedly.
+- Only your `body` will remain.
+- Over... my... dead... `body`!
+- We just found another `body`.
+- Where the hell is his `body`?
+- Wow your `body`'s really hot.
+- Don't rush ever'`body`, honey.
+- I don't want your dead `body`.
+- I have no `body` to return to.
+- I'm gonna come get the `body`.
+- My `body` isn't strong enough.
+- No `body`, no voice, all mind!
+- Take care of your `body`, yes!
+- There's no fat on this `body`.
+- Touch some part of her `body`.
+- We got a dead `body` in there.
+- You built this `body` for her.
+- A girl with a `body` like mine?
+- Ava's `body` is a good one.
+- Don't you love my sexy `body`?!
+- I brought his `body` back down.
+- I'll give you your `body` back.
+- Incredible `body` hookus pokus.
+- I used my `body` on the guards.
+- Then <u>where's the `body`</u>?
+- They found danny zorn's `body`.
+- Why, buckley stole that `body`.
+- After we id, we bury the `body`.
+- Fuck you, i did the `body` work.
+- He had no half his lower `body`.
+- I, i...to bare my <u>`body`</u>.
+- I'll find someone else's `body`.
+                 

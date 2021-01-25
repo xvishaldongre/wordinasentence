@@ -1,0 +1,107 @@
+---
+title: "men in a sentence | men example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "men"
+---
+- Good `men`, and brave.
+- How's it going, `men`?
+- I been out with `men`.
+- I'm better with `men`.
+- Leave it to the `men`.
+- Many `men` have tried.
+- She understands `men`.
+- Some of rhodes' `men`.
+- Strong `men` also cry.
+- Three `men` in a room.
+- Too good for my `men`.
+- What is it with `men`?
+- Aliases, middle- `men`.
+- How many `men` you got?
+- I've had it with `men`.
+- Khambas are wild `men`.
+- `Men` bought me drinks.
+- The old `men` loved us.
+- Very intellegent `men`.
+- We're three `men` down.
+- You hurt the bad `men`?
+- You `men` are shameful.
+- You `men` make me sick.
+- The `men` know this.
+- Get more `men` up there!
+- Get your `men` to do it!
+- Hell, you're best `men`!
+- Just like your `men` do.
+- Nine `men`, six bullets.
+- One of my `men` is down.
+- Sloan <u>real</u> `men`!
+- So are two of his `men`.
+- The `men` are exhausted!
+- These `men` are cowards.
+- These `men` are experts.
+- The x-`men` are weirdos.
+- Three `men` and a women.
+- What killed those `men`?
+- Who were these `men`...?
+- You `men` remain seated!
+- Can you free these `men`?
+- It's one of doom's `men`.
+- `Men` looked up to him...
+- No two `men` do it alike.
+- Six `men` means six guns.
+- Some `men` get the world.
+- The bad `men` are coming!
+- These `men` you up under.
+- They're reasonable `men`.
+- Those `men` are all dead.
+- Two `men` and some women.
+- We can't spare the `men`.
+- Were the `men` confessed?
+- We're the old `men`, ace.
+- Where are your `men` now?
+- Which bothers some `men`.
+- Why do `men` chase women?
+- You did kill those `men`.
+- You must tell your `men`!
+- For chubby, selfish `men`.
+- Hi-iii... `men` have ways.
+- How many `men` since then?
+- How many `men` you killed?
+- I'm a woman, i like `men`.
+- It must be the army `men`.
+- It's different with `men`.
+- I've got your x-`men` 134!
+- See, `men` always do this.
+- They were different `men`.
+- Two `men` making love... ?
+- Your `men` knew the risks.
+- All white `men` are devils.
+- [and i had my `men` ready.]
+- Don't you ever paint `men`?
+- Fucking `men`, col -- yeah.
+- I'll take your x-`men` 134!
+- I'm looking for some `men`.
+- I'm sure my `men` fixed it.
+- I sent three `men` to webb!
+- It's your `men` back there!
+- Mckendrick's `men` got him.
+- `Men` condone those things.
+- `Men` never get this movie.
+- `Men`, they mostly faggots.
+- Only weak `men` stop there.
+- _ the bad `men` are coming!
+- There are three `men` dead.
+- The regent is adding `men`.
+- They ain't `men`, mae rose.
+- Those `men` were crucified.
+- All the `men` in place, sir.
+- A lot of `men` come in here?
+- But all `men` like me, lois.
+- Does it happen to all `men`?
+- He went to the `men`'s room.
+- I happen to like nice `men`.
+- `Men` who bugger each other.
+- Roughly five thousand `men`.
+- Your `men` came right after.
+- Do all `men` go through this?
+                 

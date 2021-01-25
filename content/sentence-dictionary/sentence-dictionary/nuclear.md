@@ -1,0 +1,92 @@
+---
+title: "nuclear in a sentence | nuclear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nuclear"
+---
+- The `nuclear` reactor?
+- Junk the `nuclear` subs!
+- Like a `nuclear` weapon?
+- `Nuclear` reactor count?
+- "`nuclear` winter" theory?
+- At a `nuclear` power plant.
+- East is the `nuclear` site.
+- At the entire `nuclear` plant.
+- Mike wegman, `nuclear` intern.
+- Soviet sb-9 `nuclear` torpedo.
+- The craft's `nuclear`-powered.
+- `Nuclear` turbine to 75% power.
+- Powered by a `nuclear` reactor.
+- He's got a `nuclear` weapon.
+- This is my `nuclear` consultant.
+- They can't reduce `nuclear` fuel.
+- And madi's in a `nuclear` reactor?
+- North korean `nuclear` specialist.
+- And started their `nuclear` family.
+- Last coal-powered `nuclear` plants.
+- That's a `nuclear` fuel cell, john.
+- Walking towards a `nuclear` weapon.
+- Don't we do `nuclear` testing there?
+- Probably from the `nuclear` warhead.
+- Trying to stop a `nuclear` meltdown.
+- Built to withstand a `nuclear` blast.
+- A `nuclear` rector almost melted down.
+- It's a byproduct of `nuclear` fission.
+- Why it's just one huge `nuclear` bomb.
+- And order them into a `nuclear` reactor.
+- A `nuclear` war and 97 years of weather.
+- Supervising the `nuclear` plant interns.
+- Albania <u>has</u> no `nuclear` capacity.
+- There are no `nuclear` devices in albania.
+- It's a `nuclear`-hardened underground city.
+- You forgot to mention their `nuclear` subs.
+- He's top man in astro and `nuclear` physics.
+- We're talking about a possible `nuclear` war.
+- That dam withstood a `nuclear` war, commander.
+- It was designed to withstand `nuclear` warfare.
+- No, but i liked your book on `nuclear` weapons.
+- He didn't have to worry about `nuclear` weapons.
+- I missed you, `nuclear` ash that looks like snow.
+- Father's an engineer at the `nuclear` power plant.
+- Meaning there may be `nuclear` material down there?
+- Suddenly, a `nuclear` meltdown doesn't seem so bad.
+- That place was built to withstand `nuclear` attack!
+- I killed 4 people in the `nuclear` reactor... quiet.
+- Only two things, scare me, and one is `nuclear` war.
+- The `nuclear` power plants are you out of your mind?
+- The war of the future is <u>`nuclear` terrorism</u>.
+- You're a regular `nuclear` meltdown, honey--slow down.
+- Don't you wonder if there's going to be a `nuclear` war?
+- Your talking about the `nuclear` testing in the pacific.
+- Guard every `nuclear` accelerator on the eastern seaboard.
+- Nothing i can think of -- -- outside of a `nuclear` blast.
+- Not a holocaust -- you'd like to see a `nuclear` holocaust?
+- `Nuclear` reactors could provide power almost indefinitely.
+- Did you really think you could get hold of a `nuclear` bomb?
+- If anyone gets in our way -- we have small `nuclear` devices.
+- But they're just as anxious to avoid a `nuclear` war as we are.
+- Let's hijack some `nuclear` weapons and hold the world hostage.
+- Agents reese and foley, from the `nuclear` regulatory commition.
+- You were waiting for the grounders at the `nuclear` power plant.
+- They've burned him, dipped him in `nuclear` waste -- eight times.
+- I've discovered some serious issues with this `nuclear` plant.
+- Hey, uncle lex, how's the `nuclear` guy goin' to find his way here?
+- The soviets are putting `nuclear` weapons ninety miles away from us.
+- Each of us is wearing an unlicensed `nuclear` accelerator on our back.
+- Slow down the `nuclear` arms race, stop terrorism and world hunger.
+- Confirms, there <u>are</u> no `nuclear` devices on the canadian border.
+- I don't care if i'm the last the `nuclear` power plants i just got home.
+- One of the control rods that slows the `nuclear` reaction down 480 miles.
+- You'd risk worldwide `nuclear` war for your own personal financial gains.
+- Science can make a `nuclear` reactor, but it can't tell us not to build it!
+- David, don't... you can't be seriously considering firing `nuclear` weapons?
+- Home to a `nuclear` power plant and an active volcano, i thought i was tall.
+- They agree, we must launch a counter offensive with a full `nuclear` strike.
+- Books about... let's say, how to build a `nuclear` bomb, or maybe mein kampf.
+- It's been 97 years since a `nuclear` apocalypse all we have to do is survive.
+- 'let's explode a hundred megaton geothermal `nuclear` device, just to see it.'
+- Target... captain, they're firing at a `nuclear` missile silo... in central montana.
+- An area that has been exposed to dozens of `nuclear` tests over the last thirty years.
+- We have recent intelligence that a soviet `nuclear` submarine has docked at cienfuegos.
+- With everything that's been going on up in the world, you bring a `nuclear` weapon in here?
+                 

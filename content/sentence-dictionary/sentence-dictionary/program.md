@@ -1,0 +1,107 @@
+---
+title: "program in a sentence | program example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "program"
+---
+- Part of the `program`.
+- The `program`'s there.
+- Get with the `program`.
+- Is the `program` ready?
+- Stick to the `program`.
+- Stick to the `program`?
+- This `program` is over.
+- What's their `program`?
+- In a computer `program`.
+- We have no such `program`!
+- What a marvelous `program`.
+- Describe `program` function.
+- It's a government `program`.
+- Who is your user, `program`?
+- No... where's your `program`?
+- If he sticks to the `program`.
+- Ray, start the tour `program`.
+- Tank, load the jump `program`.
+- He's not part of the `program`.
+- Another free `program` off line.
+- I've left my <u>`program`</u>...
+- Just like that gospel `program`.
+- Just stop running the `program`.
+- What about my math `program`?
+- He was just a computer `program`.
+- Just go with the `program`--hunh?
+- Now there's a football `program`.
+- The nexus `program` is terminated.
+- Who runs the `program` down there?
+- I'm gonna get you into a `program`.
+- The avatar `program` is a bad joke.
+- You need to get with the `program`.
+- He's not any kind of `program`, sark.
+- Part of the master control `program`?
+- We found the `program` on your laptop.
+- You're gonna blow the whole `program`.
+- Did you `program` her to flirt with me?
+- She's the head of the avatar `program`.
+- Computer `program` that ended the world.
+- Frank's the best pilot in the `program`.
+- Time to `program` the loop so we can go.
+- Did you `program` her to like me, or not?
+- He was a computer `program` for crissake.
+- I mean, i did write the `program` for it.
+- Mark this one for the cerberus `program`.
+- You want me to show it on my tv `program`?
+- How did you slip into this `program`, mayo?
+- It's a security `program` itself, actually.
+- It will likely be a dormant `program`, hey!
+- Keep that tron `program` out of the system.
+- _ mark this one for the cerberus `program`.
+- Since armitage sold them a `program` on it.
+- The whole wing's devoted ot this `program`.
+- But when a `program` gets close to fruition.
+- What is it with you and the space `program`?
+- Right now, we're inside a computer `program`?
+- Then i entered the agency training `program`.
+- Well, yeah, but i went through the `program`.
+- Glad to see you're finally with the `program`.
+- He was leading the cut-backs in the `program`.
+- I was in the veteran's out- patient `program`.
+- "camp crystal lake has a full drama `program`."
+- I was loaned out to a cia- sponsored `program`.
+- The pill you took is part of a trace `program`.
+- I found a way to re-route through the `program`.
+- `Program` set for standard warp entry, captain...
+- This school isn't training you to `program` apps.
+- Get you on an aerobics and free-weights `program`.
+- I'm a `program` from a user that... knows alan...?
+- It's like clarke is running a different `program`.
+- It's like clarke is running a different `program`.
+- It will likely be a dormant `program`, i admit it.
+- I'm in the rabbinic `program` at jts... yeah, uh...
+- You're a..."guest" of the master control `program`.
+- Oh, sure you do, the financial assistance `program`.
+- Anybody's fucks with that `program`, y'break 'em off.
+- Not now, but maybe later, if they like the `program`.
+- Transmit copy of `program` via satellite north uplink.
+- You know that chest expansion `program` you see on tv?
+- I had to...in the games... you've grown, big `program`.
+- We could put you into our witness protection `program`.
+- Get me those chinese language `program` i asked for.
+- He's a consultant to a network tv `program` on profilers.
+- Sure, it says allie reynolds right here in the `program`.
+- I have had to `program` some of the variables from memory.
+- The `program` is called "mommy and daddy talk to animals."
+- Oh, there's no problem; it's our sponsored rides `program`.
+- An upgrade for a computer `program` you described them well.
+- Alan has put together sort of a training `program` i promise.
+- Someone had to `program` it in the first place, didn't they?.
+- "as a part of a religious `program` carried on where's my dad?
+- I can't afford to have an independent `program` monitoring me.
+- Plus i see her every day, we're working on the same `program`.
+- Tank, i need a pilot `program` for a military m-109 helicopter.
+- I want to know if you got the part on that television `program`.
+- She's a computer `program`, but i get to our handsome new pastor?
+- All those in favor of allowing mary clarence to select a `program`?
+- Bobs it's part of st. katherine's new community outreach `program`.
+- I want you to `program` one special command into all these systems.
+- I wonder what subtle form of manslaughter is next on the `program`.
+                 

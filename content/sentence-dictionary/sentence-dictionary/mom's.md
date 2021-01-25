@@ -1,0 +1,83 @@
+---
+title: "mom's in a sentence | mom's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mom's"
+---
+- My `mom's` calling me.
+- I can use your `mom's`.
+- `mom's` gonna kill you.
+- My `mom's` a dyke" too?
+- Your `mom's` boyfriend.
+- `mom's` got the problem.
+- `mom's` not the problem.
+- `mom's` going to hate it.
+- `mom's` good... no, evan.
+- Your `mom's` got up high.
+- But i ate your `mom's` pie.
+- My `mom's` gonna murder me.
+- So you got my `mom's` money.
+- Your `mom's` a fuckin' dyke.
+- My `mom's` making me do this.
+- Oh, my `mom's` picking me up.
+- `mom's` not gonna go for that.
+- My `mom's` a cocktail waitress.
+- One of `mom's` cups got broken.
+- Your `mom's` not around, is she?
+- I thought your `mom's` coming up?
+- You still living at your `mom's`?
+- I don't know... maybe `mom's` nuts!
+- I'm telling you, his `mom's` right.
+- We are not stealing my `mom's` car.
+- ...i mean, my `mom's` got insurance.
+- `mom's` trying to keep him upstairs.
+- Cause her own `mom's` real sick, too.
+- I'm trying to move out of my `mom's`.
+- The only thing my `mom's` never done.
+- To get your `mom's` precious picture.
+- Wrecked a couple of her `mom's` cars.
+- Your `mom's` in here with me, clarke.
+- `mom's` got nothing to say, she's dead.
+- I would never miss `mom's` resurrection.
+- I'm just gonna lend you my `mom's` cosmo.
+- `mom's` expecting you for dinner tonight.
+- `mom's` location shifts, and we lose her.
+- Oh lloyd, you gotta taste my `mom's` pie!
+- Swiped it from my `mom's` desk yesterday.
+- Your `mom's` been through enough already.
+- My `mom's` in surgery every slice a jeter.
+- Well, `mom's` dead, so shut your fly trap.
+- Anything that would break my `mom's` heart.
+- My `mom's` making my favorite meal tonight.
+- The stella booted with your `mom's` wheels.
+- Your `mom's` not touching hers, by the way.
+- You can stay in my `mom's` room if you want.
+- Guess who `mom's` having dinner with tonight?
+- Holy shit man, your `mom's` got good titties.
+- I'm glad `mom's` found a passion, also, $600?
+- My `mom's` reading me harry potter book four.
+- Take one of your `mom's` valium or something.
+- Then there's a chance my `mom's` still alive.
+- Took the kids to his `mom's` for the weekend.
+- You copped 'em from her `mom's` stash anyway.
+- Captain howdy, do you think my `mom's` pretty?
+- The girl's out and i was bringing `mom's` supper.
+- Sure do ... my `mom's` from canada you know french?
+- Hmm... well, i hear his `mom's` room has a fireplace.
+- When `mom's` mad at you, how do you make her not mad?
+- Yeah, `mom's` camille when she gets up in the morning.
+- If `mom's` a psycho, scotty will still be ok, won't he?
+- Keep your voice down dude, my `mom's` around here somewhere.
+- Your `mom's` car has a cb, radar detector and cruise control, check?
+- Oh, christ...ah, yeah...you want to know why `mom's` not here, right?
+- Then she gets busted and it's like... sorry kid, your `mom's` a psycho.
+- We don't have much time before `mom's` location shifts and we lose her.
+- I gave him the impression that there was a fly crawling up my `mom's` leg.
+- Shit, my `mom's` been fucking a dead guy for thirty years; i call him dad.
+- Besides, my `mom's` going to some church meeting and won't be back till late.
+- My dad has left town on a conference and my `mom's` gone with him, deep breath.
+- If we can pinpoint my `mom's` location, then the pod can take me down to get her.
+- A ufo lands in back of your house and puts something in your dad and `mom's` necks.
+- I couldn't stand my dad, but i knew if i moved to my `mom's` i'd never see you again.
+- I've got black and blue marks all over my butt, and my `mom's` getting uptight about them.
+                 

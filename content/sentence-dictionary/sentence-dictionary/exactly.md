@@ -1,0 +1,107 @@
+---
+title: "exactly in a sentence | exactly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "exactly"
+---
+- `Exactly` my thinking.
+- `Exactly` what i mean.
+- `Exactly` what i said.
+- My feelings `exactly`.
+- My question `exactly`.
+- No, no, not `exactly`.
+- 's `exactly` the same.
+- Well... not `exactly`.
+- Where `exactly` is it?
+- Who `exactly` are you?
+- Yes -- just `exactly`.
+- And not `exactly` true.
+- Do just `exactly` that.
+- `Exactly` 15.5 seconds.
+- `Exactly` correct, sir.
+- `Exactly` the opposite.
+- `Exactly` where is she?
+- I don't `exactly` know.
+- I don't know `exactly`.
+- That's `exactly` right!
+- That's `exactly` right.
+- Where `exactly` are we?
+- Do `exactly` what i say.
+- `Exactly` what she said.
+- I'm not sure, `exactly`.
+- It's `exactly` the same.
+- My sentiments `exactly`.
+- Right, right, `exactly`.
+- We don't know `exactly`.
+- Well, no, not `exactly`.
+- Well, not `exactly` s...
+- What `exactly` happened?
+- What `exactly` is wrong?
+- Which is what `exactly`?
+- `Exactly` four steps now.
+- `Exactly` what she wants.
+- Help with what `exactly`?
+- I can tell you `exactly`.
+- It didn't `exactly` cool.
+- What `exactly` did you...
+- What `exactly` do you do?
+- What, `exactly`, is that?
+- Where are they `exactly`?
+- Yeah, `exactly` -- "was"!
+- `Exactly`, but... `exactly`.
+- `Exactly` how do you mean?
+- `Exactly` what i imagined!
+- Horrible... not `exactly`.
+- It wasn't `exactly` a lie.
+- Lingerie... not `exactly`.
+- That's `exactly` my point.
+- Uh, well... not `exactly`.
+- What did he say `exactly`?
+- Which is `exactly` why uh!
+- `Exactly`, that's your job.
+- `Exactly` what do you need?
+- How do you mean, `exactly`?
+- How `exactly` did you hear?
+- I don't remember `exactly`.
+- It was `exactly` like mine.
+- That's `exactly` what i am.
+- That's `exactly` who it is.
+- There's my point `exactly`.
+- What did he say, `exactly`?
+- What did she say `exactly`?
+- What `exactly` did you see?
+- What `exactly` do you mean?
+- What `exactly` is the plan?
+- What is your job `exactly`?
+- Where `exactly` is that?
+- But what `exactly` is wrong?
+- Do `exactly` what i'm doing.
+- Do `exactly` what i'm doing.
+- `Exactly` how do we do that?
+- `Exactly`, miss teschmacher.
+- I'll tell you `exactly` why.
+- Not `exactly` a lightweight.
+- What do you mean, `exactly`?
+- What `exactly` did they say?
+- What `exactly` did you hear?
+- What `exactly` was it about?
+- You look `exactly` the same.
+- `Exactly` as i said it would.
+- `Exactly` how many people no.
+- `Exactly` what happened then?
+- <i>fiji.</i> where `exactly`?
+- I know `exactly` what i want.
+- She looks `exactly` like her.
+- That's `exactly` right, will.
+- That's `exactly` what i mean!
+- That's `exactly` what i said!
+- That's `exactly` what i said.
+- That's `exactly` what i want.
+- That's `exactly` what we did.
+- Want to know what, `exactly`?
+- We're the `exactly` the same!
+- What `exactly` are you doing?
+- What `exactly` is this place?
+- You're `exactly` right, andy.
+- You're `exactly` what i want.
+                 

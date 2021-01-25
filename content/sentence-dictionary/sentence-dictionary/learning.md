@@ -1,0 +1,87 @@
+---
+title: "learning in a sentence | learning example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "learning"
+---
+- For my own `learning`.
+- `Learning` about cuba.
+- I'm `learning` so much.
+- Like `learning` arabic?
+- I'm `learning` the banjo.
+- `Learning` was important?
+- _ they're `learning`, sir.
+- `Learning` my "human" name.
+- `Learning` that it's true?!
+- She's `learning` her lines.
+- Your body is `learning` it.
+- He's `learning` his letters.
+- Hey, i'm `learning` as i go.
+- I think you like `learning`.
+- I'm `learning` to control it.
+- Welcome, `learning` group 38.
+- We should be `learning` this!
+- You're `learning`, my friend.
+- Have faster `learning` curves.
+- `Learning` to master the flame.
+- Not `learning` from them isn't.
+- At least they're `learning` art.
+- We're still `learning`, okay?
+- Now you're `learning` how to lie.
+- You're `learning` a cruel lesson.
+- Are you `learning` how to play it?
+- I'm `learning` a lot about manure.
+- I'm `learning` a lot about people.
+- I'm still `learning`, i know that.
+- She still `learning` about things.
+- That's what you're `learning` now.
+- Had a hard time `learning` to read.
+- Easier than `learning` how to be poor.
+- I'm `learning` a great deal about him.
+- It's not like `learning` to ride a bike.
+- `Learning` to walk is not an easy thing!
+- Are you `learning` how to play the piano?
+- I'm always open to `learning` new things.
+- Maybe it's from all the `learning` today.
+- You're `learning` the hebrew really fast.
+- By `learning` the ancient art of ninjetti.
+- Oh, am i `learning` it faster than you did?
+- Are the children `learning` something, dear?
+- This new `learning` amazes me, sir bedevere.
+- You're `learning` logic and spatial reasoning.
+- I've got 300 years of catch-up `learning` to do.
+- Slowly, incredibly slowly, but you're `learning`.
+- Takes a long time, you know, `learning` the wand.
+- While i'm `learning` name, do you have one for me?
+- You mentioned that he had a `learning` disability.
+- Bart, i've never seen you so engaged in `learning`.
+- I'm `learning` about my son, tom, now he's missing.
+- We're great believers in `learning` from each other.
+- I started `learning` from you in secret when i was 10.
+- You spend all your time just `learning` stuff, huh?
+- "`learning` through repetition" - that's sammy, not me!
+- Marge, the boy just may be `learning` some life skills.
+- A little bit of `learning` and you lay waste to the world!
+- I'm pretty much `learning` not to accept anything anymore.
+- My cpu is a neural-net processor... a `learning` computer.
+- No, i was, i was, i was just <u>`learning`</u> on, it's a...
+- I always thought education was `learning` to think for yourself.
+- I wanted... about the importance of technology-based `learning`?
+- He�s still `learning` our ways... fighting�s a part of it, annie.
+- All of them mixed together, all of them `learning` from one another.
+- I was `learning` to fence, to fight, anything anyone would teach me.
+- I suppose they're still `learning`, that's why they keep moving about.
+- Certainly it's `learning` more about us than we'll ever learn about it.
+- `Learning`, commerce, the arts -- the whole place was buzzing all the time.
+- Sometimes i feel like i'm just `learning` about my mother for the first time.
+- God sometimes i feel like i'm just `learning` about myself for the first time.
+- I come a long way, `learning` to put up with a couple of crazy yankees, but...
+- I don't see how you do it, reading all those books, `learning` all that stuff.
+- I've been `learning` russian, on the dark net, and this says, i said, shut up.
+- We can protect him at the dropship and i wasted high school `learning` german.
+- Sorry, wendy, but as `learning` disabilities go, stupidity is often overlooked.
+- After all, you're `learning` how to be me, i'm not `learning` how to be <i>you</i>.
+- This is about rachel, and you're right, i'm disappointed in her `learning` curve, and...
+- I would like to accuse marge simpson looking forward to `learning` from you, mr. simpson.
+- We play along for now, we might wind up `learning` something about how their world ticks.
+                 

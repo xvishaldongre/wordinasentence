@@ -1,0 +1,107 @@
+---
+title: "knew in a sentence | knew example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knew"
+---
+- A son he never `knew`.
+- Dev `knew` everything.
+- He `knew` about sammy.
+- If you only `knew` ...
+- I guess i `knew` that.
+- I `knew` he'd love it.
+- I `knew` he was alive.
+- I `knew` how to do it.
+- I `knew` it was there.
+- I `knew` where it was.
+- I `knew` you'd hit me.
+- I thought i `knew` it.
+- `Knew` why, didn't ya.
+- They `knew` all of us.
+- They `knew` the risks.
+- You hardly `knew` her!
+- You `knew` about this.
+- You `knew` her, right?
+- You `knew` that place.
+- All of this i `knew`...
+- Aye, i `knew` you were.
+- But i `knew` you would.
+- Everyone i `knew` died.
+- If you `knew`, leon...!
+- I `knew` him very well.
+- I `knew` it, i `knew` it.
+- I `knew` it was renard.
+- I `knew` she was dirty.
+- I `knew` you'd do this!
+- I `knew` you'd hear me.
+- I `knew` you'd make it!
+- I `knew` you fucked it!
+- I `knew` you must have.
+- I saw someone i `knew`.
+- I thought i `knew` you.
+- It's funny, you `knew`.
+- Never `knew` my father.
+- Surely you `knew` that.
+- They `knew` each other.
+- <u>you</u> `knew` that.
+- We already `knew` that.
+- You `knew` i'd say yes.
+- You `knew` me as a kid.
+- You `knew` what i'd do.
+- Be asked me if i `knew`.
+- By god, i wish i `knew`.
+- He `knew` frank sinatra?
+- He `knew` it would work.
+- I fuckin' `knew` better.
+- I hardly `knew` the guy.
+- I `knew` it wasn't true.
+- I `knew` i was a genius!
+- I `knew` the whole maze.
+- I `knew` what you meant.
+- I `knew` you'd like him.
+- I `knew` you'd say that.
+- I `knew` you were crazy.
+- I `knew` you were lying.
+- I `knew` you would come.
+- I `knew` you would, pal.
+- I never `knew` you, dad.
+- I was hoping you `knew`.
+- `Knew` just what to say.
+- She knows i `knew` noah.
+- Which we already `knew`!
+- You already `knew` that?
+- You `knew` a second ago.
+- You `knew` every detail.
+- You `knew` sidney's mom?
+- You `knew` these people?
+- You `knew` those people.
+- You never `knew` why?
+- But this ship `knew`, dj.
+- First girl i ever `knew`.
+- He `knew` swann way back.
+- He `knew` the guy's name.
+- He said he `knew` karate!
+- I'd tell you if i `knew`!
+- I'd tell you if i `knew`.
+- I figured he `knew` that.
+- I `knew` i could con you.
+- I `knew` it all the time.
+- I `knew` it was a set-up!
+- I `knew` this, i `knew` it.
+- I `knew` this was a scam.
+- I `knew` you could do it.
+- I `knew` you'd come back.
+- I never `knew` my father.
+- I never `knew` my mother.
+- I thought i `knew` her...
+- It was like i `knew` her.
+- Jack said you `knew` her.
+- Lincoln `knew` our rules.
+- No one `knew` what to do.
+- See, i never `knew` that.
+- She `knew` it was coming.
+- She `knew` you loved her.
+- That's because he `knew`.
+- What if everybody `knew`?
+- Wish i `knew` you better.
+                 

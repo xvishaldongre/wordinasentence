@@ -1,0 +1,107 @@
+---
+title: "Henry in a sentence | Henry example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Henry"
+---
+- It was wrong, `henry`!
+- If you say so, `henry`.
+- It was `henry` follett.
+- ...fort william `henry`.
+- Say hi to `henry` and...
+- You were right, `henry`.
+- `Henry`'s got our orders!
+- It's your fault, `henry`.
+- Sir `henry` is not alone.
+- It goes from `henry` viii.
+- You got to relax, `henry`.
+- `Henry` chapman's daughter.
+- Hey, that's great, `henry`!
+- Neither does `henry` blake.
+- This is `henry` james film?
+- Uhh ... wong, `henry` wong.
+- Where's your wife, `henry`?
+- This is a bad time, `henry`.
+- What are you saying, `henry`?
+- Good friends with mr. `henry`.
+- `Henry`'s out there with them.
+- What's the rush, john `henry`?
+- Are you a fan of `henry` james?
+- `Henry` morgenthau arranged it.
+- Lonnegan's a fast egg, `henry`.
+- The name of god... no, `henry`.
+- Those men were-- *`henry` hill?
+- Do you remember `henry` birdson?
+- John `henry` patterson, come in.
+- Let's worry about `henry` finch.
+- You're a comfort to me, `henry`.
+- Mr. `henry` has an inside source.
+- "victory at sea," al ... `henry`.
+- You mean you don't know, `henry`!
+- Me and `henry` and... man, on p.a.
+- The abe `henry` double-cross test.
+- These are exciting times, `henry`.
+- Are you afraid to die, mr. `henry`?
+- This is anthony adams, mr. `henry`.
+- You're getting defensive...`henry`.
+- Gal, you're talking to john `henry`.
+- Mr. `henry` pulled that job in 1965.
+- Oh, `henry`, no, that's just boring.
+- Savage `henry` has cashed his check!
+- Stop acting like a colonel, `henry`.
+- The deceased is ... `henry` pekurny.
+- The jews aren't the middle, `henry`.
+- Why don't i take it up with `henry`?
+- Can i ask you something, mr. `henry`?
+- We're not really interested, `henry`.
+- All we need is a couple days, `henry`.
+- Hess farm, `henry`'s place, which way?
+- It's a great moment in `henry`'s life.
+- Well, no rest for the wicked, `henry`.
+- Where did `henry` and dale go hunting?
+- That was-that was `henry` james, right?
+- Why don't you dump the mother, `henry`?
+- You must be some kinda walker, `henry`.
+- I'm sure you'd be great in `henry` james.
+- Let's pray, `henry`; let's pray a little.
+- You knew about that, `henry`, didn't you?
+- You never were cut out for this, `henry`.
+- You're the only friend i've got, `henry`.
+- Gary cooper, james stewart, `henry` fonda?
+- Lieutenant colonel `henry` braymore blake.
+- Mr. `henry` never gave you a test, did he?
+- `Henry`, the pen -- it's a rescue, old boy.
+- They took care of that, thank you, `henry`.
+- Alright, `henry` -- we're gonna go your way.
+- At fort william `henry` under colonel munro.
+- You think i should do `henry` james instead?
+- I didn't ask what your staff thinks, `henry`.
+- Then you're assigned to fort william `henry`?
+- We want to talk to ya about `henry` gondorff.
+- You can protest all you want, `henry`, eleven?
+- You... wha... who are you... where is `henry`?
+- But when i mentioned savage `henry` he freaked!
+- `Henry`, i've been working my tail off on this.
+- How many guys you conned in your life, `henry`?
+- Sir `henry` ponsonby tells me they are charming.
+- Emma, which is it--horace miller or `henry` hill?
+- So i guess `henry` follett is a patient of yours.
+- And...and...`henry` chapman's girl, was it thelma?
+- Pump in two liters of pure oxygen, please `henry`.
+- Uncle `henry`, auntie em, don't let 'em take toto!
+- Sir `henry`, mr brown is standing in the courtyard.
+- You might make `henry` happy......sure, i'll do it.
+- Yes, you always had a good sense of timing, `henry`.
+- We think mr. `henry` maybe -- who's got the car keys?
+- Hey george, write us your john `henry` on this picture.
+- I was wondering, perhaps you'd like to go meet `henry`.
+- Theo `henry` had two of his fingers bit off by his cow.
+- `Henry`, what exactly are these crazed gunmen demanding?
+- Imprisoned and executed by `henry` the second ... maybe.
+- He's chummin' around with a big c named `henry` gondorff.
+- I got a guy named `henry` gondorff i want you to look up.
+- Said you boys took a `henry` off one of mckendrick's men.
+- So is mr. `henry` going to come by and see me or anything?
+- You don't wanna be like john `henry` � fighting the machine.
+- I know, but we all got to work out our own problems, `henry`.
+                 

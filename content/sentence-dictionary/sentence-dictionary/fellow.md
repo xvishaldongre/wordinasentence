@@ -1,0 +1,107 @@
+---
+title: "fellow in a sentence | fellow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fellow"
+---
+- Come on, big `fellow`!
+- `Fellow` about my age.
+- Hello, young `fellow`!
+- Hello, young `fellow`.
+- My `fellow` americans.
+- My `fellow` americans.
+- That `fellow` hurt me.
+- You're a good `fellow`.
+- You're a nice `fellow`.
+- Goodbye, young `fellow`.
+- Good day, good `fellow`.
+- What a strange `fellow`.
+- You're a funny `fellow`.
+- Smart `fellow`, ain't he?
+- Am i like such a `fellow`?
+- What a headstrong `fellow`!
+- You seem a decent `fellow`.
+- Do it for your `fellow` man.
+- Greetings `fellow` insomniac.
+- The massive `fellow`... brom.
+- Can't a `fellow` have a drink?
+- With a `fellow` called wilson?
+- He's really not a bad `fellow`.
+- Just a `fellow` i used to know.
+- Not a chance, my dear `fellow`.
+- That `fellow` got on at baskul.
+- Anything for a `fellow` pilgrim.
+- Hello there, `fellow` hijackers.
+- Greetings `fellow` sheep counter.
+- Sentimental `fellow`, aren't you?
+- This man is a `fellow` clergyman.
+- Ah, you're a sharp young `fellow`.
+- Foul `fellow`, this couer de noir.
+- Hiya, `fellow` ... what were they?
+- Just the `fellow` i wanted to see.
+- I'm listening avidly, `fellow`.
+- The dullest `fellow` imaginable.
+- Can't you say 'hello' to a `fellow`?
+- Clever `fellow` -- almost missed me.
+- It's that doctor `fellow`, isn't it?
+- There's a `fellow` with personality.
+- This `fellow` lives like a hermit...
+- This `fellow` loves inflicting pain.
+- Hey, little `fellow` �� you worry me.
+- Is this malkovich `fellow` appealing?
+- Look at this `fellow`... or this one.
+- Then i'd say you're a lucky `fellow`.
+- You don't make it easy on a `fellow`.
+- You ever hear of this whale `fellow`?
+- As a `fellow` guardsman... marcus, no!
+- He really was a very charming `fellow`.
+- The other `fellow` wasn't even lookin'.
+- I've your `fellow` patients to consider.
+- Rose, you must know who the `fellow` is.
+- So i guess this `fellow` belongs to you.
+- We care about our `fellow` human beings.
+- `Fellow`..." must've been a terrible row.
+- He's a nice `fellow`, but he's a dreamer.
+- I like this `fellow`, like him very much.
+- I'm the `fellow` you slept on last night.
+- I thought he was a big tall fat `fellow`.
+- Quite a brilliant `fellow`... metallurgy.
+- You know, hildy, he's not a bad `fellow`.
+- What about the `fellow` in those pictures?
+- A `fellow` santa could not steal christmas.
+- Who's this interesting looking `fellow`?
+- ♪ and this `fellow` loves to laugh i knew it!
+- Come now, a big, strapping `fellow` like you?
+- You can call that `fellow` in from the front.
+- A `fellow` named brandon has a penthouse here.
+- I hear this michael `fellow` is schizophrenic.
+- The warm feeling of helping your `fellow` man.
+- Your `fellow` hero, untouched... bring him up.
+- He was a nice `fellow` -- i am sorry about him.
+- Bermann thinks he'll be interned, poor `fellow`.
+- He's a decent `fellow`, the president, isn't he?
+- I never met the `fellow` but once at your house.
+- I'm a little worried about this sollozzo `fellow`.
+- It sort of makes a `fellow` lose faith in himself.
+- I've got a real feeling that this is the `fellow`.
+- You're certainly a hard `fellow` to find, sheriff.
+- You see that `fellow` over there in the gray coat?
+- Live and be prosperous; and farewell good `fellow`.
+- That lunatic must have been a very fierce `fellow`.
+- As a `fellow` player on the international stage, mr.
+- He's no more equipped to lead us than this `fellow`.
+- Oh sure, you're biased -- you're a `fellow` muncian.
+- So, what's up, my `fellow` ruthless bader ginsburgs?
+- They just can't stand seeing the other `fellow` win.
+- You remember the `fellow` this morning -- galbraith.
+- Has this `fellow`... ...has he seen the whole family?
+- How are your `fellow` hostages feeling, ms. mitchell?
+- I'm going to keep an eye on that kringelein `fellow`.
+- Evidently the `fellow`'s funny, so he gave him a plug.
+- Well, it's wonderful to meet a `fellow` entrepreneuse.
+- Apparently you can control this malkovich `fellow` now.
+- Boy, that is bad luck to touch a `fellow` with a broom.
+- It seem to have stopped the big `fellow` in his tracks.
+- This `fellow` here bears a striking resemblance to you.
+- Don't understand what harry saw in a `fellow` like that.
+                 

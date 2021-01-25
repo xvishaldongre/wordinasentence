@@ -1,0 +1,107 @@
+---
+title: "sake in a sentence | sake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sake"
+---
+- For god's `sake`, why?
+- For old time's `sake`.
+- For old time's `sake`?
+- For old times' `sake`.
+- It's for their `sake`.
+- Oh, for prime's `sake`.
+- For fuck's `sake`, abbe!
+- For god's `sake`, lilly!
+- For our family's `sake`.
+- Oh, for christ's `sake`!
+- Oh, for christ's `sake`.
+- Oh, for heaven's `sake`.
+- Terry, for god's `sake`.
+- For christ's `sake`, why?
+- For god's `sake`, thelma.
+- For your father's `sake`?
+- For your sister's `sake`.
+- Pop, for christ's `sake`!
+- Deak, for heaven's `sake`!
+- For christ's `sake`, john!
+- For god's `sake` -- go on!
+- For pete's `sake`, calvin!
+- I hope so for your `sake`.
+- Jake, for christ's `sake`.
+- Take it for christ `sake`.
+- Well, for heaven's `sake`!
+- For christ `sake`, get 'em!
+- For our `sake`, i hope not.
+- Look again for fuck `sake`!
+- Oh, for god's `sake`, will.
+- Sally, for christ's `sake`.
+- Spare me, for god's `sake`.
+- For christ's `sake` get him!
+- For christ's `sake`... john!
+- For christ's `sake`, violet!
+- Oh, for god's `sake`...here.
+- Walter, for christ's `sake`!
+- For christ's `sake`, why not?
+- For heaven's `sake`, why not?
+- For the `sake` of one member?
+- Darling, for goodness' `sake`!
+- Hurry up, for christ's `sake`!
+- It's ok. oh, for god's `sake`.
+- Not even for old times `sake`?
+- For god's `sake`... - be quiet.
+- At least for their `sake`... ...
+- Leave us alone for god's `sake`!
+- You just did, for christ `sake`.
+- You know, for old time's `sake`.
+- For christ's `sake`, have a bath.
+- I don't know for christ's `sake`!
+- Maybe it's for old-time's `sake`.
+- Adele for god `sake` please lis...
+- For the `sake` of my grandson.
+- For christ's `sake` don't lose it.
+- For christ's `sake`, they're kids.
+- For god's `sake`, what's happened?
+- He's in chicago, for god's `sake`!
+- Oh for christ's `sake`- listen ...
+- C'mon i can read for christ `sake`.
+- For god's `sake`, forget the money!
+- It's not ruined, for fuck's `sake`.
+- Look at his neck, for god's `sake`.
+- Of course he did, for god's `sake`.
+- Rufus, for christ's `sake`, get up.
+- This is a school, for god's `sake`.
+- With extreme car, for god's `sake`.
+- For christ's `sake`, it's eleven pm.
+- For my `sake`, please deal with her!
+- For your `sake` i hope you're right.
+- For christ's `sake`, would you move!?
+- For god's `sake`, chain this convict.
+- I'm your brother for christ's `sake`.
+- Just for curiosity `sake` that's all?
+- We were in da nang, for god's `sake`.
+- For god's `sake`, keep colson out.
+- For god's `sake`, give her a sedative!
+- For god's `sake`, what happened to me?
+- For god's `sake`, when does this end?!
+- I hope so, commander, for your `sake`.
+- I'm not lou ferigno for pete's `sake`!
+- What's hoover found, for god's `sake`?
+- Where's little bill for christ `sake`?
+- Answer me, for god's `sake`, answer me.
+- For god's `sake`, i've got a boyfriend.
+- For god's `sake`, leave him alone, dad.
+- Oh for pete's `sake`, it's only a joke.
+- Please, for god's `sake`, don't hit me.
+- The paint's still wet for god's `sake`.
+- What'd you tell her, for christ `sake`?
+- For fuck's `sake`, who else would it be?
+- For steve's `sake`, i'm glad, not yours.
+- I'm not fucking angry, for god's `sake`.
+- It's the president, for christ's `sake`!
+- Oh, for god's `sake`, she has the blood.
+- She's an alcoholic, for christ's `sake`.
+- This was all for your `sake`, wasn't it?
+- You've killed an icon, for god's `sake`.
+- But for christ's `sake`, just do it fast!
+- For god's `sake`, tell him i'm on my way.
+                 

@@ -1,0 +1,76 @@
+---
+title: "whore in a sentence | whore example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whore"
+---
+- Fucking redneck `whore`!
+- ...that isn't a `whore`?
+- You, like that, `whore`!
+- The `whore`'s murder?
+- She's no `whore`, marcus.
+- Fuck you too, you `whore`!
+- You fucking little `whore`!
+- Are you a fifty dollar `whore`?
+- Through his `whore` girl friend.
+- All this because of that `whore`!
+- Is it true that you're a `whore`?
+- Fuck you too, you rotten `whore`!!
+- I ain't gonna send no roc `whore`.
+- I gotta use a bad word -- `whore`.
+- No -- she's nothing but a `whore`.
+- The crazy old man and his `whore`.
+- You can say everybody's a `whore`.
+- Just like your slut `whore` mother.
+- To be a `whore` to that gutter rat?
+- Get the fuck off, you little `whore`.
+- It's a real good offer for a `whore`.
+- I ain't some `whore` you brought here!
+- I've never treated you like a `whore`.
+- You'll end up maybe becomin' a `whore`.
+- I'd rather be his `whore` than your wife.
+- The poor `whore`'s suffocating in the heat.
+- Don't ever call a junkie `whore` a crackhead.
+- Coming in here -- you wanna call me a `whore`?
+- And, don't forget the disease spreading `whore`.
+- Listen to your dirty mouth, you fucking `whore`!
+- Must be the famous curb service `whore` � house.
+- Not me... no one will believe your lies, `whore`.
+- Why don't you bring your `whore` home for dinner?
+- I'm not going to ruin my life over a dead `whore`.
+- I'm through with her, she's nothing but a `whore`.
+- Marry the first `whore` who's nice to me, i guess.
+- Caught in an alien `whore` house with my pants down.
+- It pays to be a killer or a `whore` in this country.
+- Look, ted, i'm the oldest `whore` on the beat, okay?
+- You're doing a <u>play</u>... why, you <u>`whore`</u>!
+- Ain't been a week and you already some nigger's `whore`?
+- I know your old man's an alcoholic and a `whore` chaser.
+- See, i've got all this - * about your `whore` of a wife?
+- This `whore` will see your mouth shut forever very soon.
+- A `whore` hiding in the commode filled in all the blanks.
+- Jack you up and string you out like a two dollar `whore`.
+- The great one... i-i didn't mean to say "`whore`," diane.
+- How is your gold digging `whore` of a mother enjoying bali?
+- I'm lonesome so i'm a thief, a fornicator, a `whore`-monger.
+- Well, your "cheap `whore`" is this family's "lovin' mother."
+- You're a `whore` miss daniel, that's the truth of it, right?
+- You liked fucking him, didn't you, you fat little `whore`?
+- You send some hard- headed roc `whore`, and she fucks things up.
+- A lousy `whore` and you're the gum in a hundred million dollar deal.
+- 'she was that little `whore` who hung out at the atomic hoagie shop.'
+- Just a `whore`, i go over there, have a few drinks and get my gun off.
+- Flawless, and still so innocent, not such a `whore` in bed... who is it?
+- I <u>used</u> it--to "`whore` myself out"-- ...you <u>are</u> an orphan.
+- The only time a `whore` should open her mouth is when she's giving head.
+- Ya hope i don't keep acting like a `whore` or i'll turn into one, right?
+- I just thought she might not wanna meet her maker lookin' like a cheap `whore`.
+- You think you're so...but you're just... stop it, stop it, you satanic `whore`!
+- I can tell you that your wife was a fucking `whore` and we can still be friends!
+- Ready to dump you the second she had what she needed, interfering little `whore`.
+- He's gonna call whatever `whore` he's seeing tonight i keep telling you, - octavia.
+- The way i see it he got what he deserved - fornicating with some `whore` a babylon.
+- This here's a lawful contract... betwixt me an' delilah fitzgerald, the cut-`whore`.
+- But clarence and that bitch-`whore` girlfriend of his brought this all on themselves.
+- Why do i dream every night of the `whore` who brought you water on your road to death?
+                 

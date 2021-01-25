@@ -1,0 +1,107 @@
+---
+title: "calling in a sentence | calling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "calling"
+---
+- I'm `calling` in sick.
+- My mom's `calling` me.
+- Stop `calling` me max.
+- That's cold `calling`.
+- Who are you `calling`?
+- Are you `calling` stan?
+- `Calling` us guineas...
+- I'm `calling` it three.
+- I'm `calling` the cops.
+- I'm -- who's `calling`?
+- Paramount is `calling`.
+- Stop `calling` me 'sir!
+- Stop `calling` me that!
+- Stop `calling` me that!
+- Try `calling` me again.
+- Why am i `calling` you?
+- `Calling` the ambulance.
+- I did try `calling` her.
+- I have a `calling` card.
+- I've been `calling` you.
+- Kept `calling` me 'sir.'
+- Stop `calling` me david.
+- Thank you for `calling`!
+- Thank you for `calling`.
+- You `calling` me a liar?
+- For `calling` you a homo.
+- I'm `calling` bret baier.
+- I'm `calling` jim taylor.
+- I'm `calling` the doctor.
+- I'm `calling` the police.
+- Stop `calling` her a kid!
+- Stop `calling` me roger.
+- Stop `calling` me vernon.
+- Why is she `calling` you?
+- You can't keep `calling`.
+- A miss sessions `calling`.
+- I'm `calling` an attorney.
+- I'm `calling` for back up!
+- I'm `calling` it extremis.
+- I was `calling` yesterday.
+- May i ask who's `calling`?
+- This is my `calling`, lee.
+- Who are you `calling` for?
+- Who you `calling` a "boy"?
+- You missed your `calling`.
+- You're `calling` them off.
+- I like `calling` you david.
+- Roger, keep `calling` them.
+- Who can i say is `calling`?
+- You - `calling` me a thief?
+- You're `calling` the shots.
+- Are you `calling` from jail?
+- Are you `calling` from work?
+- Are you `calling` me a liar?
+- I'm `calling` long distance.
+- I'm `calling` the ambulance.
+- I'm `calling` them now, guy.
+- I thought amy was `calling`.
+- Jimmy's `calling` every day.
+- They'll just keep `calling`.
+- Are `calling` themselves now.
+- `Calling` for emilio's macaw.
+- Didn't you hear me `calling`?
+- Don't keep `calling` me that.
+- God, i've been `calling` you.
+- He's just `calling` my bluff.
+- I'm `calling` it rupert bear.
+- I've been `calling` for days!
+- Luis is `calling` me tonight.
+- They're `calling` you "bapu."
+- You `calling` phil and randy?
+- You keep `calling` me dmitri.
+- You're `calling` jake stupid?
+- You try `calling` the police?
+- Stop `calling` me shirley!
+- I'm `calling` it "six crises."
+- Mister, i'm `calling` you out.
+- She's `calling` the shots now.
+- The anomaly's `calling` you...
+- We are not `calling` the cops!
+- Who shall i say is `calling`?
+- Why are you `calling` me here?
+- Why are you `calling` me, zoe?
+- Will is... is `calling` to me!
+- You're `calling` me a stalker?
+- Raven: `calling` ark station.
+- So, what are we `calling` this?
+- Who the fuck are you `calling`?
+- Why isn't anybody `calling` me?
+- Yeah, i been `calling` in sick.
+- You've been `calling` her name.
+- Its `calling` card, if you will.
+- I've been `calling` all morning.
+- I've been `calling` and `calling`.
+- I�m `calling` about the puppies.
+- So don't be `calling` him a rat.
+- They're `calling` him to dinner.
+- They're `calling` me in to work.
+- You're `calling` me on is phone?
+- Do you want me to stop `calling`?
+                 

@@ -1,0 +1,107 @@
+---
+title: "eat in a sentence | eat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eat"
+---
+- Better `eat` it quick.
+- But now `eat` we must.
+- Dog `eat` dog, hi-yes.
+- `Eat` in the cupboard.
+- He doesn't even `eat`.
+- I can't `eat` a steak.
+- I could `eat` a horse.
+- I could `eat` a mahar.
+- I don't `eat` waffles.
+- I don't want to `eat`!
+- I'll `eat` in my room.
+- Just `eat` your loafs.
+- Let them `eat` static.
+- One thing i can `eat`.
+- So you do `eat` pussy!
+- What am i gonna `eat`?
+- What's this one `eat`?
+- When'd she `eat` last?
+- You `eat` like a bird.
+- You `eat`, or you die.
+- `Eat`, drink, be merry.
+- `Eat` our rust, toledo.
+- `Eat` rubber, red head.
+- I `eat` so very little.
+- I want to `eat` better.
+- Let's just `eat`, okay?
+- No, stop, she'll `eat`.
+- Other than to `eat` us?
+- So `eat` just a little.
+- To `eat` their friends.
+- You don't `eat`, sleep.
+- Do i have to `eat` lamb?
+- `Eat` alone, gotta read.
+- Everybody's gotta `eat`.
+- I don't `eat` junk food.
+- Reapers `eat` grounders.
+- Sometimes i don't `eat`.
+- The `eat` a peach album.
+- What did she even `eat`?
+- You couldn't even `eat`.
+- You going to `eat` this?
+- You should try to `eat`.
+- You used to `eat` it up.
+- You usually `eat` alone?
+- But you `eat`, don't you?
+- Don't `eat` the red ones.
+- He wasn't gonna `eat` us.
+- I didn't `eat` any pizza.
+- I don't `eat` vegetables.
+- I don't want to `eat` it.
+- I'll just `eat` my lunch.
+- I'm trying to `eat` here.
+- I think we'll `eat` here.
+- I think we need to `eat`.
+- Mom, you've got to `eat`.
+- Now it wants to `eat` me.
+- So you won't `eat` pussy?
+- Them people got to `eat`.
+- You `eat` anything today?
+- You `eat` chinese, right?
+- All they `eat` is seafood.
+- Come on, we have to `eat`.
+- `Eat` this spaghetti, ted.
+- How are we going to `eat`?
+- Let's just `eat` in peace.
+- Mantan and sleep 'n `eat`.
+- Sure, as soon as we `eat`.
+- Until you `eat` something.
+- You ever `eat` fifty eggs?
+- You gotta `eat` something.
+- You just go home to `eat`.
+- You know, `eat` healthier.
+- And our food safe to `eat`.
+- Are we going to `eat` soon?
+- Did you ever see him `eat`?
+- Don't `eat` at the console.
+- Don't shit where you `eat`.
+- `Eat` shit, thumbtack dick!
+- `Eat` something, would you?
+- He is going to go `eat` it.
+- Hey geraldine, let's `eat`!
+- I `eat` fear for breakfast.
+- I'll `eat` spinach for you.
+- Nigger, i `eat` everything.
+- Oh, no, i'll `eat` at work.
+- People `eat` this stuff up.
+- So i'll `eat` your dessert.
+- We know we can `eat` these.
+- You didn't even `eat` them.
+- You got to `eat` something.
+- Zorin will `eat` him alive!
+- Are you going to `eat` that?
+- Because you `eat`, `eat`, `eat`!
+- But--but how we gonna `eat`?
+- Can we `eat` there tomorrow?
+- Dogs don't `eat` each other.
+- `Eat` it, it's on the table.
+- `Eat` shit and die slowly...
+- How can you `eat` like that?
+- I can't `eat` before a game.
+                 

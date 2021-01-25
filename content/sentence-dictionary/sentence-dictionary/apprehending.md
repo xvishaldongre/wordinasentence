@@ -1,0 +1,7 @@
+---
+title: "apprehending in a sentence | apprehending example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apprehending"
+---
+## Unfortunately, we have no example sentences for apprehending                 

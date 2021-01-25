@@ -1,0 +1,76 @@
+---
+title: "glasses in a sentence | glasses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "glasses"
+---
+- I forgot my `glasses`.
+- Where are my `glasses`?
+- Does she wear `glasses`?
+- Where's those `glasses`.
+- Your `glasses` are nice.
+- We'll fill the `glasses`.
+- Where are your `glasses`?
+- Use the frosted `glasses`.
+- What about your `glasses`?
+- Have you seen my `glasses`?
+- Why am i washing `glasses`?
+- Darling, get some `glasses`.
+- I break sinatra's `glasses`.
+- I think i need my `glasses`.
+- I want mine to wear `glasses`.
+- Oh, i forgot my x-ray `glasses`.
+- This time we need two `glasses`.
+- Why don't you get the `glasses`.
+- Darling, where are the `glasses`?
+- Would ya take off your `glasses`?
+- At least get rid of the `glasses`.
+- Darling, where are the `glasses`?.
+- Not my gloria vanderbilt `glasses`.
+- Two `glasses` of ice water with ice.
+- I... what `glasses` were you wearing?
+- Ray, where do you keep the `glasses`?
+- Or that little guy with the `glasses`?
+- Go wash `glasses` if you don't like it.
+- Weren't you going to get some `glasses`?
+- Well, can't let him see my nudie `glasses`.
+- Were you wearing your reading `glasses`...?
+- Without the `glasses` you're not even ugly.
+- Do you wear eye `glasses` or contact lenses?
+- I usually wear a big hat and dark `glasses`.
+- Just take off the `glasses` -- and it's him!
+- Thanks for your help on the `glasses` thing.
+- Cosmo drank five `glasses` of wine at dinner.
+- Is that whiskey in them `glasses` on the bar?
+- ...lost the screw... my `glasses` fell apart.
+- Now you're squinting like you need `glasses`.
+- Yeah, well, i used to lose my `glasses` a lot.
+- You didn't have to break your nudie `glasses`.
+- I switched `glasses` when your back was turned.
+- Then maybe you should get your `glasses` checked.
+- You didn't wear `glasses` on the 'time' cover!
+- Don't you wear your reading `glasses` to write...?
+- You know how blind you are without your `glasses`.
+- Are these `glasses` a fashion where she comes from?
+- Don't worry about it, we'll get you some `glasses`.
+- Sinatra had gl- you never said sinatra had `glasses`.
+- You see, i have this theory about men with `glasses`.
+- Inside these `glasses` are these slide photographs.
+- I thought you were going to stop wearing your `glasses`.
+- I must be - because your `glasses` are beginning to steam up.
+- When i first met bart, i was just a nerdy kid with `glasses`.
+- He's got millions - he's got `glasses` - and he's got a yacht.
+- What'd you think i was doing out here with these `glasses` on?
+- Oh, i forgot to tell you, they're prescription x-ray `glasses`.
+- They see us dine on empty plates and drink from empty `glasses`.
+- All right, we'll have that and two... two `glasses`, please, heda.
+- You don't remember, a gun to your head, which `glasses` you have on.
+- You must find some `glasses`, small, for the toast, and some plates.
+- Average day, my `glasses` are everywhere -- everywhere i look, `glasses`.
+- Man, you better put them `glasses` back on and take a look at yourself.
+- Always wearing those fucking doofy `glasses`, and driving a station wagon.
+- Didn't you talk to a man here... few days ago... wore `glasses`... he... si.
+- Glenda, you don't offer a man like jack a drink in those piddling little `glasses`.
+- I almost didn't recognize you -- i think i need to get `glasses`; you're all blurry!
+- Yeah, we'd better keep them for now, i'll try and get some `glasses` for tomorrow night.
+                 

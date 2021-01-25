@@ -1,0 +1,107 @@
+---
+title: "serve in a sentence | serve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "serve"
+---
+- Do they `serve` booze?
+- I must `serve` my time.
+- It'd `serve` you right.
+- You `serve` my purpose.
+- It'll `serve` you right.
+- They will `serve` salad.
+- Will you `serve` haggis?
+- We don't `serve` formula.
+- What master do i `serve`?
+- You may `serve` the fish.
+- You `serve` a wicked god.
+- What if they `serve` soup?
+- What master do you `serve`?
+- You can `serve` yourselves.
+- He's supposed to `serve` me.
+- You won't `serve` me either?
+- They don't `serve` wine here.
+- They only `serve` to confuse.
+- What purpose does it `serve`?
+- But what if they `serve` soup?
+- How can i `serve` you in this?
+- How does that `serve` the plot?
+- I `serve` as good a man as you.
+- What purpose does this `serve`?
+- Bobbie and i `serve` anonymously.
+- They `serve` dinner on the flight?
+- Let's not forget to `serve` caesar!
+- Now they must `serve` us or starve.
+- Sorry, sir, we only `serve` coffee.
+- The scimitar will `serve` my needs.
+- Yeah... you `serve` martinis, doncha?
+- You're going to `serve` the shepherd.
+- Wait till i `serve` the meatballs.
+- As long as i `serve` him, i am immune.
+- They told me i was too old to `serve`.
+- One can also `serve` outside a convent.
+- Because, i `serve` a fine purpose alive.
+- Ready to `serve` mankind in the last war.
+- "we don't `serve` your kind around here."
+- What possible purpose could that `serve`?
+- Get over here and `serve` me some samples.
+- Doubt they'd `serve` us saji bowls in jail.
+- _ - for the past and the future we `serve`.
+- The point is we don't `serve` niggers here.
+- We don't `serve` them here and you know it.
+- Gotta protect and `serve` the world, y'know.
+- To `serve` me snacks while i'm on the toilet.
+- What kind of restaurant doesn't `serve` wine?
+- Yeah, that's why they `serve` all night long.
+- But they could be made to `serve` the emperor.
+- I'd rather rule in hell than `serve` in heaven.
+- It has been my greatest honor to `serve` with you.
+- Then, i understand you too `serve` without salary.
+- Get off my stage, out of my sight, `serve` it up.
+- It's my duty to `serve` and protect the next prime.
+- It would `serve` you right if you were left behind.
+- Kobo wouldn't `serve` seven minutes for his oyabun.
+- Yes, but he isn't licensed to `serve` but go ahead.
+- Fine, as long as you don't `serve` chicken that way.
+- "take a fifth step, that we may `serve` the people."
+- _ trust me, i know, because i `serve` a purpose, no!
+- We `serve` the interests of the british people, 007.
+- Would you like some coffee before we `serve` dinner?
+- You were never going to let women `serve` in combat.
+- Maybe i should see an ear dahhh -- ever `serve` time?
+- `Serve` the nuts - i mean, `serve` the guests the nuts.
+- By remembering that i `serve` others, not only myself.
+- I'll make him give his word to `serve` you faithfully.
+- What kinda food they `serve` at this ivy place anyway?
+- In choosing you, i feel that i `serve` my country well.
+- On thursdays, they always `serve` me in the small salon.
+- I `serve` at the indulgence of the goddamn ownership, ed.
+- It would `serve` you right, you ungrateful piece of crap.
+- It's another thing to `serve` them a wake-up cup of drano.
+- I'm here to `serve` life, all you want to do is destroy it.
+- You'll give us an opportunity to `serve` you again, i hope.
+- I'd love to `serve` your balls to those red coats for lunch!
+- And i can only `serve` that purpose they're having so much fun.
+- We `serve` as escort for our grand champion, jack o' the green.
+- "i will follow close behind you and help to `serve` the people."
+- How many places this side of the atlantic `serve` lager and lime?
+- If that little weasel ever walked in here i wouldn't `serve` him.
+- That you had kind eyes, a beautiful voice, do they `serve` booze?
+- We genetically engineered the morlock class to `serve` our needs.
+- We'll `serve` a spicy tuna tamale along with a cheese quesadilla.
+- Here is a bold champion's reward; to `serve` as a dwarf's doorstop.
+- I will `serve` her faithfully, gustus warned me about you, kane, no.
+- Follow me.. life, which you so nobly `serve`, comes from destruction.
+- Howard, you'll `serve` no more than two years, then he'll pardon you.
+- It's kinda hard to `serve` in a town where you don't live, detective.
+- While many who `serve` him have taken and broken his oath many times.
+- Alfie shuffles up to the self-`serve` island and begins wiping it down.
+- As a 'surprise witness' she may only `serve` to rebut direct testimony.
+- As a `surprise witness' she may only `serve` to rebut direct testimony.
+- Dr. venkman, we believe that the purpose of science is to `serve` mankind.
+- I'm sure you will `serve` well in the last war, how the hell did she know?
+- Brian cruikshank -- it would `serve` me right if i got stuck with that one.
+- Now i'm thinking i should just give up, `serve` out my term, what the heck?
+- But if you had any smarts you would realize that i `serve` your purpose as well.
+- I spoke to him with reason and compassion; the tools which `serve` us best here.
+                 

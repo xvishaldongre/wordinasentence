@@ -1,0 +1,77 @@
+---
+title: "Helen in a sentence | Helen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Helen"
+---
+- Good morning, `helen`.
+- I don't know, `helen`.
+- I'm so sorry, `helen`.
+- Okay, thanks, `helen`.
+- Over and out, `helen`.
+- Snap into it, `helen`.
+- Appreciate it, `helen`.
+- Are you there, `helen`?
+- `Helen`, it's mike here.
+- `Helen` still loves you.
+- Come on in here, `helen`.
+- `Helen` to rob, go ahead.
+- This is `helen` carter.
+- `Helen`, do you understand?
+- Whatever you want, `helen`!
+- Ang dorjee, this is `helen`.
+- Rob, this is `helen`, hello?
+- `Helen`'s going to be pissed.
+- `Helen` got it for me in oslo.
+- Rob, come in, this is `helen`.
+- Okay, `helen`, thanks, bye-bye.
+- Why are you so bitter, `helen`?
+- They're not my parents, `helen`.
+- I'm going to work `helen` hudson.
+- It's a weather forecast, `helen`.
+- `Helen` hudson... where you going?
+- `Helen`, i want you to be my wife.
+- Get some weather forecast, `helen`.
+- I'm at the top of everest, `helen`.
+- Let me have some apple pie, `helen`.
+- Guy, this is `helen`, how's it going?
+- `Helen` and i went out for breakfast.
+- `Helen`, tell matt i want to see him.
+- Yeah, `helen` gonna... need some help.
+- If `helen` ever finds out that i� yeah?
+- `Helen`, he's the man from the space ship!
+- I decided to let `helen` run the magazine.
+- This is `helen` wilton, base camp manager.
+- You never even saw a photograph... `helen`.
+- Rob to base, rob to base, how copy, `helen`?
+- He killed barry and `helen` last july fourth.
+- `Helen` -- the killer directly contacted you.
+- `Helen`, on your lists to call is san quentin.
+- I'm on the top of everest, `helen`, we made it.
+- `Helen`, did you ever try competing with a bank?
+- `Helen` -- why don't you and mary go on with clay?
+- `Helen`, you're becoming more beautiful every day.
+- Something to do with `helen`, is what i'm getting.
+- We wait until first light, pack your bags, `helen`.
+- Well, when are you and `helen` going to get married?
+- I don't care if `helen` of troy walked into that bar!
+- I've got to talk to `helen` about this thing with dana.
+- Paul, this is the reverend mother gaius `helen` mohiam.
+- It's always the big verandas with you, isn't it, `helen`?
+- I have to think... `helen`, there's a double agent in my outfit...
+- `Helen`, i'm going to philadelphia, just as soon as the bank closes.
+- Y-yes-- does that include `helen` filmore, united states congresswoman?
+- `Helen` and the rest of the team are already on the way up to base camp.
+- `Helen` just asked me what sort of arrangements we have for the families.
+- `Helen` and the rest of the team are already on their way up to base camp.
+- The other man, the dead man, his wife is a doctor - dr. `helen` remington.
+- And wonkru surrenders... `helen`, is he playing that hurts people like them?
+- Uh, `helen`, i wanted to talk to you a second about sean... that's your job.
+- `Helen`... excuse me, we... she wants me to check the phone booth for a note.
+- `Helen`, hang up, let ruben get on with his work... because i'm all you've got.
+- I'm sorry i came, `helen`, it's just... it's just there's nobody i can talk to...
+- `Helen` insists that t.j. be home for dinner... that's why he's on the morning shift.
+- `Helen`, she sent along your things with a note, and john here, he wrote to the police.
+- I remember when i first met you: little `helen` watts from the wrong side of somewhere.
+- You have to understand... `helen` and i had this strange, intense... experience together.
+                 

@@ -1,0 +1,107 @@
+---
+title: "than in a sentence | than example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "than"
+---
+- Better `than` sinatra.
+- Bigger `than` dejesus?
+- Calmer `than` you are.
+- Deader `than` myspace.
+- Faster `than` cricket?
+- He's more `than` that.
+- He's taller `than` me.
+- I'm faster `than` you.
+- Is worse `than` death.
+- It's more `than` that.
+- It's worse `than` war.
+- Less `than` me is you.
+- More red `than` green.
+- More `than` all right.
+- More `than` ten years.
+- More `than` you think.
+- Much less `than` that.
+- My more `than` sister.
+- Way smarter `than` me.
+- Better person `than` i.
+- Bigger `than` this one.
+- But longer `than` that.
+- Even dumber `than` you.
+- Harder `than` it looks.
+- I'm better `than` that.
+- I'm less `than` nobody.
+- I more `than` liked it.
+- I'm smarter `than` you.
+- Less `than` 50%, ma'am.
+- More `than` co-workers.
+- Much worse `than` otis.
+- Other `than` to eat us?
+- Shit, more `than` that.
+- Sooner `than` the fall.
+- You do more `than` try.
+- A year older `than` you?
+- Better now `than` later.
+- Better `than` any of us.
+- Better `than` old times.
+- Bigger `than` i thought.
+- Closer `than` you think.
+- Easier said `than` done.
+- Fate worse `than` death!
+- Feel better `than` this?
+- Harder `than` i thought.
+- Heavier `than` that now.
+- <i>more</i> `than` that.
+- It's better `than` real.
+- It's bigger `than` that.
+- It's slower `than` hell.
+- It was more `than` that.
+- Man's older `than` sand.
+- More `than` ever before.
+- More `than` you'd guess.
+- More `than` you need me.
+- More `than` your friend.
+- Other `than` your death?
+- Perhaps more `than` one.
+- Stronger `than` we are.]
+- `Than` i have laughed...
+- There's more `than` one?
+- You did more `than` try.
+- You got more `than` one?
+- You're more `than` kind.
+- You're older `than` him.
+- Better late `than` never.
+- Better safe `than` sorry.
+- Better `than` we thought.
+- Easier `than` that, jack.
+- Farther `than` you think.
+- He is better `than` that!
+- He's smarter `than` i am.
+- I need more `than` usual.
+- It was better `than` sex.
+- I was worse `than` lousy.
+- Less `than` a week to go.
+- Maybe sooner `than` that.
+- More powerful `than` you.
+- More powerful `than` you!
+- More sciency `than` that.
+- More so `than` the shark?
+- Not any more `than` i am.
+- Oh, i'm more `than` sure.
+- Rather safe `than` sorry.
+- Smarter `than` americans.
+- `Than` she ever imagined.
+- `Than` they've ever gone?
+- Though nicer `than` most?
+- To be better `than` i am.
+- A better friend `than` me.
+- Better `than` being broke.
+- Bigger `than` a principal.
+- Bigger `than` one article.
+- But no more `than` you do.
+- Can't be worse `than` you.
+- Easier `than` that, buddy.
+- Harper longer `than` that.
+- Is tong older `than` ming?
+- It'll be more `than` that.
+- It's more `than` i've got.
+                 

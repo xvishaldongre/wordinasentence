@@ -1,0 +1,70 @@
+---
+title: "shots in a sentence | shots example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shots"
+---
+- Let's get some `shots`.
+- There were some `shots`.
+- So they call the `shots`.
+- There were `shots` fired!
+- Four `shots` to the heart.
+- He's takin' cheap `shots`.
+- There'll be other `shots`.
+- There weren't any `shots`.
+- I want a few night `shots`.
+- You're calling the `shots`.
+- `Shots` got a lot to mop up.
+- Some miss all their `shots`.
+- My old man calls the `shots`.
+- You'd lose the money-`shots`.
+- Do you guys want some `shots`?
+- She's calling the `shots` now.
+- Two `shots` in the head apiece.
+- Make sure he gets those `shots`.
+- You just had some lucky `shots`.
+- I wouldn't take no cheap `shots`.
+- How many more `shots` do you have?
+- How many `shots` you say you heard?
+- That's six `shots` and two refills.
+- Internal `shots`, temperature spikes.
+- You insist on calling all the `shots`.
+- Lapd's not calling the `shots` anymore.
+- Some big `shots` are having a wild time.
+- I lost him - i heard `shots` - that way!!
+- Single `shots` doesn't mean a fire fight.
+- You did get your tetanus `shots`, i hope?
+- Two of those `shots` were in his armpits.
+- You're the best `shots` of the twenty-fourth.
+- Maybe we can get a few `shots` off beforehand.
+- Two endearing `shots` to the back of the head.
+- A lot of other big `shots` who are up at d.
+- I'm getting my first series of hormone `shots`!
+- Ya make `shots` that nobody's ever made before.
+- Okay, great, grunick -- easy `shots` now -- huh?
+- He identified you through a series of mug `shots`.
+- Fuck `shots`, but the posers don't look like junkies.
+- Hey, you're not settling for the two `shots` are you?
+- They hit him with five `shots`, and he's still alive!
+- You just want me to get `shots` of everything, right?
+- The truth is that i heard between four and six `shots`.
+- I'm going to have a couple `shots` scotch and go to bed.
+- Someday it's going to be chief larry calling the `shots`.
+- You said you were cutting in <u>establishing `shots`</u>!
+- ♪ well i'm ♪ i was going back to camp when i heard `shots`.
+- I mean -- "two guaranteed guest `shots` for tony clifton"??!
+- So we heard some `shots` -- so who says they didn't get away?
+- He kept trying to get me to change my story about the `shots`.
+- I seen him on the tv news a lot with all the other big `shots`.
+- My guys got into the house on the pretext of giving cholera `shots`.
+- I'm saying they're calling the `shots`... you're saying they can think?
+- She's sarah connor, works as a legal-- six `shots` at less than ten feet.
+- Maybe it's all bull, but like you said, stan, they're callin' the `shots`.
+- Those `shots` your associates got off may not have done him too much good.
+- You only heard three `shots` and you are not to talk to anyone about this.
+- Blocking the first two `shots` at the time they occur in the zapruder film.
+- I worked my whole life... dancing on a string held by all those big `shots`.
+- But, you're calling the `shots`, lieutenant, so... however you want it to go.
+- Now these new ones, these "hot `shots`" of yours...what kind of action have they seen?
+- 'cause you get armed boarders climbing into soviet ships, `shots` being fired across bows...
+                 

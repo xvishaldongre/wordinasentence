@@ -1,0 +1,107 @@
+---
+title: "famous in a sentence | famous example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "famous"
+---
+- Why, are you `famous`?
+- He's `famous` for that.
+- It was a `famous` case.
+- Man... you're `famous`!
+- You're `famous` for it.
+- You're so `famous` now.
+- He wants to be `famous`.
+- I kill someone `famous`.
+- The `famous` james bond.
+- He was a `famous` sniper.
+- Who wants to be `famous`?
+- I am going to be `famous`.
+- She was gonna be `famous`.
+- "of the rich and `famous`".
+- It's a very `famous` number.
+- This place becomes `famous`.
+- You're going to be `famous`.
+- He's a `famous` photographer.
+- He would've made us `famous`.
+- Is your `famous` uncle moses.
+- Oh, um, like `famous` quotes.
+- Are you `famous` or somethin'?
+- Or so i could become `famous`?
+- He's going to make me `famous`.
+- I wouldn't mind being `famous`.
+- This movie's gonna be `famous`!
+- Almost as `famous` as the first.
+- Like magic, now you're `famous`.
+- It is so icy-cold to be `famous`.
+- Jack foley, `famous` bank robber.
+- You're pretty `famous` aren't you?
+- Hey you guys are becoming `famous`.
+- We come out free, rich and `famous`!
+- He's going to make us `famous`, lila.
+- Warhol got `famous` doing a soup can.
+- Delivery from sal's `famous` pizzeria.
+- I am hungary's most `famous` emigrant.
+- It's a very `famous` name, mr. dewitt.
+- It's too bad your name isn't `famous`.
+- Snoopy miller, `famous` fight thrower.
+- Yeah, my own personal `famous` person.
+- Maybe at some `famous` xenia landmarks.
+- The director�s supposed to be `famous`.
+- They were from before she got `famous`.
+- It's for shelly's `famous` potato salad.
+- Just think, you're going to be `famous`!
+- The code is a number, a `famous` number.
+- Well, sure, he's rich and he's `famous`.
+- We're all going to be rich and `famous`.
+- You're rich and `famous` and successful.
+- Sal's `famous` pizzeria is here for good.
+- Don't give a damn about the `famous` girl.
+- `Famous` people are usually pretty stupid.
+- But we never had a `famous` mobster before.
+- I've gotten to know someone who's `famous`.
+- Sir, you know what ramelle is `famous` for?
+- With an honest to god ufo, i'd be `famous`.
+- The kafka men are `famous` for it, you know.
+- I'm talking about the `famous` jazz musician.
+- Were there ever any, like, `famous` vampires?
+- Making a couple of `famous` movies like those.
+- This way, he's like <u>my</u> `famous` person.
+- There's a very `famous` painting by titian.
+- Don't you know what caen's `famous` for, sarge?
+- Whoever that person is is going to be `famous`.
+- You're having one of your `famous` hemorrhages.
+- How am i gonna get `famous` if i don't practice?
+- Must be the `famous` curb service whore � house.
+- A `famous` actor who's getting married next week.
+- I know the brunwalds are `famous` art collectors.
+- I'm about to become `famous`...you should see....
+- Not so `famous` any of us have ever heard of him.
+- You gonna open up another sal's `famous` pizzeria?
+- Have many `famous` actors and actresses lived here?
+- A `famous` actor bringing me flowers on my birthday.
+- You're probably the most `famous` couple in america.
+- How many `famous` french film directors can there be?
+- Roberta sparrow was `famous` for her gem collections.
+- What have the `famous` superheroes got that we don't?
+- I bet you've seen a lot of `famous` people come and go?
+- Well save room for mrs. matthews `famous` baked brisket.
+- `Famous` for their beautiful music...and beautiful women.
+- If you have to ask -- excuse me, but -- are you `famous`?
+- My real father was a `famous` german composer i miss you.
+- He told you then his father was a `famous` virologist.
+- When you get `famous`, people start saying your full name.
+- If i win, i'll be the most `famous` girl gamer of all time.
+- I suspect it involves reenactments of `famous` car crashes.
+- You're not too rich, or too `famous` that i can't help you?
+- How come in former lifetimes, everybody was someone `famous`?
+- I'm getting a teacher's pet rep. you're `famous` around here.
+- Because now you're `famous` and he can get something from you.
+- Well, it doesn't just happen, you gotta do something `famous`.
+- Well, no... not really... had some `famous` people in the cab.
+- Then -- i became `famous` and whoever is `famous` is alone...
+- He was a boy riding with the most `famous` outlaws in the west.
+- I have made you `famous`, i am your creation and your monument.
+- You, my friends, are following in some very `famous` footsteps.
+- Most people just want to make money or be `famous` or something.
+- He says she's so `famous` now, maybe vegas will give odds on her.
+                 

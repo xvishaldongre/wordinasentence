@@ -1,0 +1,102 @@
+---
+title: "stones in a sentence | stones example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stones"
+---
+- For infinity `stones`.
+- People throw `stones`.
+- The `stones` are shut!
+- Where are the `stones`?
+- Six `stones` or nothing.
+- Looking for the `stones`.
+- No, the `stones` are mine!
+- The `stones` will be here.
+- He used the `stones` again.
+- The `stones` are connected.
+- We have the `stones`, right?
+- The `stones` are in the past.
+- We'll get the `stones` to you.
+- I'm talking about the `stones`.
+- It was six `stones` or nothing.
+- They opened for the `stones`...
+- Get the `stones`, get them back.
+- I'm sorry, but... the `stones`...
+- Thanos doesn't have the `stones`.
+- There are six `stones` out there.
+- I've never seen the `stones` work!
+- The `stones` are our only way out.
+- By one of the six infinity `stones`.
+- Find the `stones`, bring them to me.
+- He has the power and space `stones`.
+- Six `stones`, three teams, one shot.
+- Two `stones` uptown, one stone down.
+- There are three `stones` in new york.
+- There are two more `stones` on earth.
+- The-`stones` weren't aboard the ship.
+- Two `stones` uptown, one stone, down.
+- What do they know about the `stones`?
+- Look, he still got the `stones`, so...
+- I'm not leaving without those `stones`.
+- We're there for those `stones`, period.
+- Who else is looking for these `stones`?
+- Their `stones` speak...or their markers.
+- I've seen `stones` like the one you lost.
+- I used the `stones` to destroy the `stones`.
+- There were five `stones` in the beginning.
+- These words are like `stones` in my heart.
+- The `stones` are indestructible, oh, wait.
+- You saw what those `stones` did to thanos.
+- Get those `stones` as far away as possible!
+- The case..with the `stones`... where is it?
+- They also search for the last two `stones`.
+- A lifetime ago, i, too, sought the `stones`.
+- To wield not one, but two infinity `stones`.
+- He's not going for one of the other `stones`?
+- The time and mind `stones` are safe on earth.
+- With at least one of the six infinity `stones`.
+- Remove one of the `stones`, and that flow splits.
+- Retrieve four `stones` from the diva plavalaguna.
+- Rough uncut `stones` they get from the syndicate.
+- In order to return the `stones`, you have to survive.
+- It must have at least thirty `stones` - i always did.
+- You were caught trying to steal the sankara `stones`.
+- Near been killed by one of the six infinity `stones`.'
+- With all six `stones`, i could simply snap my fingers.
+- Search the duplicate's memories, for infinity `stones`.
+- Since she has repented, all she does is throw `stones`.
+- Soul holds a special place among the infinity `stones`.
+- A device capable of harnessing the power of the `stones`.
+- Randomly chose two planets connected by anomaly `stones`?
+- The `stones`, cap, we can bring her back, isn't that right?
+- With the `stones` you've collected for me, create a new one.
+- With whoever made the `stones`, for choosing the wrong side.
+- I have heard noises and echoes through the `stones`... quiet.
+- After that, the `stones` served no purpose, beyond temptation.
+- Oh, massage `stones`, copper bracelets, w-what are you saying?
+- We're sitting here like two `stones` and i'm taking to myself.
+- They've got the sacred `stones` that indy was searching for.
+- You ditch it, i'll pick you up, then we'll pick up the `stones`.
+- Antha...your grandmother...her life ended there, on the `stones`.
+- You have to return the `stones` at the exact moment you got them.
+- Whoever built the `stones` that war causes us to do things that...
+- Then i got clarke back, i... [`stones` claing together] mmm.
+- To do that he gave him five sacred `stones` that had magical powers.
+- The infinity `stones` create what you experience as the flow of time.
+- These infinity `stones` each control an essential aspect of existence.
+- Guys, if you pick the right year, there are three `stones` in new york.
+- The english won't let us train with weapons, so we train with `stones`.
+- When she swallows the `stones`, she swallows the poison berries too.
+- When i had the gauntlet, the `stones`, i really tried to bring her back.
+- And these `stones` have been in a lot of different places throughout history.
+- These `stones` have been in a lot of different places throughout history.
+- I was at the `stones` concert in altamount when they killed that guy, remember?
+- Even it i did know where the `stones` were i would never tell somebody like you.
+- I'll help her, i promise, but i think you should tell me where the `stones` are!
+- Soon we will have all five sankara `stones` and the thuggees will be all powerful!
+- I'll give you plenty of rings as soon as i get the `stones` set--what do you think?
+- She was here for 10, every field must be cleared of `stones` who cares if it works?
+- I was restoring some `stones` here in the upper section one day -- and i found this.
+- Walked like a bastard... skippin' `stones` and shit.. that's being obscurest ... who else?
+- On a certain day this wholesaler's gettin' a big shipment of polished `stones` from israel.
+                 

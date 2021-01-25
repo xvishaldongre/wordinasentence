@@ -1,0 +1,107 @@
+---
+title: "could've in a sentence | could've example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "could've"
+---
+- I wish you `could've`.
+- You `could've` hit me.
+- I `could've` done that.
+- `could've` been a nurse?
+- I `could've` helped you.
+- I `could've` kept going!
+- I `could've` saved them.
+- I mean, `could've` been.
+- I `could've` killed them.
+- She `could've` killed me.
+- Who `could've` done this?
+- You `could've` come over.
+- You `could've` killed me!
+- You `could've` killed us.
+- You `could've` asked them.
+- `could've` been her sister.
+- He `could've` called first.
+- It `could've` been someone.
+- That `could've` killed you.
+- You `could've` been killed.
+- "her," i `could've` painted.
+- I `could've` done something.
+- It `could've` been my money.
+- I wish you `could've` met...
+- She `could've` been a nurse.
+- She `could've` had the deal!
+- That `could've` gone better.
+- He `could've` jumped the guy.
+- He `could've` killed somebody.
+- I `could've` been a contender.
+- They `could've` been brothers.
+- You `could've` handwritten it.
+- You `could've` stayed at home.
+- `could've` been allies, clarke.
+- I `could've` gotten us a table.
+- She `could've` died back there.
+- What else `could've` done that?
+- You `could've` escaped anytime!
+- You `could've` killed somebody.
+- Any idea who `could've` done it?
+- I bet mom `could've` helped her.
+- I `could've` handed you to them.
+- Only nixon `could've` done that.
+- We `could've` gone out the back!
+- You `could've` helped my father.
+- You `could've` killed the joker.
+- `could've` used you up here, too.
+- It `could've` happened to anyone.
+- He `could've` died -- i was wrong.
+- I just wish i `could've` got more.
+- Well, that `could've` gone better.
+- You know what `could've` happened?
+- But you `could've` warned me first.
+- Shit honey, you `could've` told me.
+- <u>he</u> `could've` killed eduard.
+- But that `could've` happened to him.
+- You `could've` killed him, you know.
+- You `could've` made me lose my call.
+- I `could've` sworn i heard something.
+- We `could've` shot you from the wall.
+- You `could've` been a contender, huh?
+- He never `could've` outfought santino.
+- They `could've` just found that stuff.
+- Who do you think `could've` done this?
+- He `could've` waited more than 10 days.
+- Well you `could've` at least warned me.
+- But who `could've` ... no, don't say it.
+- He `could've` downloaded into something.
+- I `could've` been the next diane sawyer!
+- I `could've` got more ... if i'd just ...
+- I `could've` had class and been somebody.
+- I wish we `could've` brought him with us.
+- When you `could've` found one in america.
+- `could've` used you in the bunker, clarke.
+- Don't think it `could've` gone any better.
+- Yeah, but that `could've` been covered up.
+- But, he `could've` -- it worked, didn't it?
+- They `could've` destroyed everything today.
+- I don't think i `could've` taken that today.
+- You don't think sam `could've` put it there?
+- Abby, those flashes `could've` been anything.
+- Me and jill `could've` worked this thing out.
+- Well, you `could've` saved yourself the trip.
+- Foster, he `could've` fried the entire system.
+- It's not a `could've`--there <u>was</u>, nick.
+- Maybe you `could've` helped me pass the class.
+- Shame it didn't hit you - you `could've` sued.
+- We `could've` really used you guys down there.
+- You `could've` been a doctor or a lawyer, d.k.
+- You `could've` saved that for the tooth fairy!
+- `could've` been a storybook if he wasn't crazy.
+- He `could've` monitored the calls on a scanner.
+- Maybe i `could've` stopped it, if i'd listened.
+- Who `could've` killed him just as easily as us.
+- Somebody `could've` -- i was sort of passed out.
+- Christ, he `could've` found another rich woman...
+- I `could've` welded myself, but i was... bellamy.
+- At least you `could've` let me go home and change.
+- Could be worse, he `could've` named you reticulum.
+- I `could've` got more... no, no, what, what is it?
+                 

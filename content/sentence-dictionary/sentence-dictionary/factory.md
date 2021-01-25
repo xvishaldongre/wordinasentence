@@ -1,0 +1,58 @@
+---
+title: "factory in a sentence | factory example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "factory"
+---
+- In a pretzel `factory`?
+- That's not `factory` team.
+- `Factory` looks great, folks.
+- You work in a vodka `factory`.
+- Some kind of organ `factory`...
+- You report it to the `factory`.
+- A scene in a smelting `factory`?
+- ...the `factory` won't stop you.
+- A janitor from `factory` station.
+- Three motels and a mannequin `factory`.
+- `Factory` enforcers came looking for hugo.
+- Andy's ice cream `factory`/stairwell - day.
+- It's a `factory` in the northern mountains.
+- Stuff from the `factory` going up to zalem.
+- Your father worked in a mannequin `factory`?
+- ...is against `factory` law and hunter's code.
+- Andy's ice cream `factory`/andy's office - day.
+- Got me an afternoon job at the shirt `factory`.
+- 'this is a `factory` and we each have our jobs.
+- Alright, mum... have a nice day at the `factory`.
+- Now the `factory` pays us to do their dirty work.
+- The guards aren't allowed on the `factory` floor.
+- The only children allowed in my `factory` thanks.
+- They would have found something at the `factory`.
+- What the hell would they want with a gag `factory`?
+- How do i know you don't want to blow up a `factory`?
+- He's going to build a `factory` outside of rochester.
+- ...is a violation of `factory` law and hunter's code.
+- Where the `factory` practice team report to the line.
+- Seems to be information about a `factory` in vancouver.
+- Help, i'm being held prisoner in a puzzle box `factory`.
+- The roof of the license-plate `factory` needs resurfacing.
+- And `factory` girl zoe monroe they seem to prefer stabbing.
+- He claims to have some sort of `factory` in texas, i believe.
+- And `factory` girl zoe monroe - state your name for the record.
+- The dye `factory` was just a front; now it turns a good profit.
+- Kept it in his locker while he was at work in a candy `factory`.
+- I assume this is what the `factory` workers wear at their dances?
+- I do some work up at the merrick mirror `factory`, or i used to...
+- They're `factory` alarms ... easy to get around... for a man with...
+- You want to tell us now a along story of what your `factory` can do.
+- For those kind of wages, i could have built the `factory` in america!
+- My mother's thirty-nine years old and she still works in that `factory`.
+- I think they'll enjoy attending our ribbon cutting at the acme `factory`.
+- She tries to blow up a computer `factory`, but she got shot and arrested.
+- What about the time we hid the missing heiress in the sauerkraut `factory`?
+- I stopped by the mirror `factory` today, you left quite a mess behind there.
+- I wonder if it would be all right for me to slip in and look around your `factory`?
+- By the time we unveil farley's 'faith `factory`' we will have earned our beauty sleep.
+- There's also a business man over by the franklin `factory` district that was questioned.
+- ...you son of a -- consider this my resignation -- now, amy -- worked in a watch `factory`?
+                 

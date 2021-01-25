@@ -1,0 +1,66 @@
+---
+title: "divorced in a sentence | divorced example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "divorced"
+---
+- I just got `divorced`.
+- I'm getting `divorced`.
+- My wives `divorced` me.
+- They're all `divorced`?
+- My folks got `divorced`.
+- But you're -- `divorced`?
+- We're getting `divorced`.
+- Ask my `divorced` sisters.
+- My parents got `divorced`.
+- Yes, but we're `divorced`.
+- My parents are `divorced`.'
+- My parents were `divorced`.
+- So, you `divorced` of what?
+- We were `divorced` by then.
+- `Divorced` nineteen seventy.
+- Your parents are `divorced`?
+- How long you been `divorced`?
+- I was married and `divorced`.
+- I thought you were `divorced`.
+- Marylin rexroth is `divorced`!
+- Or ask my `divorced` mom and dad.
+- Normal people don't get `divorced`.
+- Been `divorced` for a year now, bud.
+- You never `divorced` patty, did you?
+- We're `divorced` -- i'm a free woman.
+- A brick house says you `divorced` him.
+- You were both `divorced`, mrs. kramer.
+- It came to life and `divorced` you.
+- You're either `divorced` or you're not.
+- My wife even `divorced` me over this hunt.
+- He and my mom got `divorced` when i was five.
+- Remember when mommy and daddy got `divorced`?
+- You've been `divorced` for two years already.
+- You were `divorced` five fucking years ago.
+- Daddy said it's bad when people get `divorced`.
+- I mean nobody asked me when you got `divorced`.
+- Mom, lots of people are separated and `divorced`.
+- What do you think happens when you get `divorced`?
+- Do you mind if i... ask you why you got `divorced`?
+- Seems like you `divorced` me same time as your mom.
+- Two is how many times i been married and `divorced`.
+- After mom `divorced` you, did i ask you for anything?
+- Every woman in my life was `divorced` at least twice.
+- Oh, she's been fine with it ever since we `divorced`.
+- He admitted it, and they are now `divorced`, actually.
+- Oh, she's been fine with it, ever since we `divorced`.
+- Surely, you�d have `divorced` him if he disgusted you?
+- The kind that gets `divorced`, but still stay friends.
+- If i hadn't remembered it, i wouldn't have `divorced` you.
+- By the time i got my discharge, though, she was `divorced`.
+- She always said -- "when i grow up, i want to be `divorced`."
+- But then my father `divorced` my mother to marry another woman.
+- Mrs. jorgensen - were you ever `divorced` from chris jorgensen?
+- Got `divorced`, i wasn't gonna work for my father-in-law anymore.
+- George was so impressed he hired him when he `divorced` his second.
+- Nothing, i reconciled with ron, you know, the guy i `divorced` last summer.
+- I dropped out of school, became a mud wrestler, married and `divorced` a jerk.
+- You'd meet doctors, lawyers -- nothing wrong with them necessarily if they're `divorced`.
+- Lucy, you're the only woman i ever knew didn't improve her situation by getting `divorced`.
+                 

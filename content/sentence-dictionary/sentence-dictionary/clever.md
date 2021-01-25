@@ -1,0 +1,73 @@
+---
+title: "clever in a sentence | clever example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "clever"
+---
+- `Clever`, very `clever`.
+- I'm not that `clever`.
+- You know how `clever`?
+- Because she's `clever`.
+- How extremely `clever`.
+- It was really `clever`.
+- * john g. was `clever`.
+- Very `clever`, captain.
+- How devilishly `clever`.
+- A `clever` girl like you?
+- Oh, you're very `clever`.
+- Seemed like a `clever` kid.
+- I admit he is very `clever`.
+- Even if they're not `clever`.
+- I thought they were `clever`.
+- Oh he as `clever` about that.
+- What a lovely, `clever` name.
+- It's too early to be `clever`.
+- The bomb was `clever`, though.
+- Darn `clever`, these armenians.
+- No, but it was very `clever`...
+- You're very `clever`, mr. boone.
+- You're very `clever` with words.
+- A very `clever` deception indeed!
+- That's the `clever` way to do it.
+- That's where he's being `clever`.
+- You are a `clever` woman, doctor.
+- You see, he'd been very `clever`.
+- Don't be `clever` with me, henryk.
+- I'm... you know, the `clever` guy.
+- My quarry grows `clever` with age.
+- Oh, that's `clever`, dr. danielson.
+- `Clever` fellow -- almost missed me.
+- It's never too early to be `clever`.
+- You're very `clever`, aren't you...?
+- Aren't you the `clever` little tongue?
+- You jews are so `clever` with money...
+- Particularly if he were a `clever` men.
+- `Clever` of you to find this spot, betty.
+- That's where you're not being `clever`.
+- He's `clever` and he's cautious in his way.
+- But girls are like that, `clever` and cunning.
+- Can we stop being `clever`, just for a moment?
+- Cut out all this `clever` talk about milicents.
+- He was an indulgent man, but a `clever` warrior.
+- Well, it's nice to know you think we're `clever`.
+- It was `clever` hiding it here, - what are you doing?
+- Let's see if you're as `clever` as you think you are.
+- What�s `clever` is getting someone else to pay for it.
+- In paris a vampire has to be `clever` for many reasons.
+- Rich, `clever`--but if it is to be guenevere, so be it.
+- A `clever` man like yourself -- he can find money anywhere.
+- Kee-rist, you pretty damn `clever` for a skimpy little gimp.
+- Just so you know, jack -- i don't think you're that `clever`.
+- Thinks i'm his nemesis... crawford's very `clever`, isn't he?
+- You know, i've always considered myself a very `clever` girl.
+- If you keep it around, it'll just make you think how `clever` you are.
+- So i'd tell you everything i -- oh `clever`; oh you smart, tricky hick.
+- That was a pretty `clever` trick you did with the hospital's batteries.
+- `Clever` -- i never met anyone with as `clever` a mind and hands as him.
+- He's very very very `clever`, very very brave, and he loves you ever very much.
+- I seen him, the `clever` tit, sneaking looks at it late at night, talking to it.
+- No matter how `clever` he is, he still needs an exit visa, or i should say, two.
+- You're `clever`, louis, but i recognize your interest in me for what it is worth.
+- You think too highly of me, my friend...i am not so `clever`...all i want if a truce...
+- No, sally, viznick's a manipulator, he's `clever`, he has what i call malignant narcissism.
+                 

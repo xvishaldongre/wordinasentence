@@ -1,0 +1,67 @@
+---
+title: "hung in a sentence | hung example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hung"
+---
+- They `hung` up, walter!
+- You're `hung` up again.
+- I'm sorry, she `hung` up.
+- My brother `hung` himself.
+- They just `hung` it on me.
+- _ and then he just `hung` up.
+- No, he just `hung` out there.
+- We're `hung` up on something.
+- Then he laughed and `hung` up.
+- You're gonna get us `hung` up.
+- He really `hung` on, didn't he.
+- Hit my dinger and `hung` 'em up.
+- You `hung` out with bobby vomit.
+- He gave up hope and `hung` himself.
+- We `hung` out last night, remember?
+- I actually `hung` out with him today.
+- Leon could still have `hung` himself.
+- She `hung` out with... do i know you?
+- Albert dekker, 1968, he `hung` himself.
+- Man, somebody really `hung` one on you!
+- I heard the british `hung` him as a spy.
+- Well enough to be `hung` for his murder.
+- You just `hung` a target around her neck!
+- Next time i tell you i'm not `hung` up...!
+- Got sort of `hung` up on her, from what hear.
+- Hey, i `hung` out with danny, pony's manager.
+- When i was a kid the real murderer `hung` up?
+- You sure are `hung` up on people bein' sweet.
+- First place, you'd get `hung` and you know it.
+- I can't believe you `hung` up on me, you dick.
+- I never left a source `hung` out to dry, ever.
+- The word i got is you `hung` up your spurs, man.
+- Took its time, `hung` out... but the air ran out.
+- I can see: you've `hung` the rest of your relatives.
+- Being `hung` upside down and drained for their blood?
+- It'll come out jack lied and the kid'll get `hung` for it.
+- People get all `hung` up on details, but what's the point?
+- Aah, i'm fine... little `hung` over is all... how about you?
+- I know it's silly to get `hung` up on these kinds of things.
+- Remember that guy in the cell next to you who `hung` himself?
+- And if he `hung` on a little longer and... why the resistance?
+- People like myself and my family are left `hung` out to dry.
+- Not more than a year ago, a mob `hung` a man for stealing a horse.
+- 'she was that little whore who `hung` out at the atomic hoagie shop.'
+- I called her a lying bitch and everything else and i `hung` up on her.
+- Two of the horses ran off, but that pinto you're riding `hung` around.
+- Yeah -- you can really get `hung` up on them like the cat in the delta.
+- You just `hung` yourself out to dry for me, i'm not gonna let you down.
+- After krueger's trial she flipped out and `hung` herself, so they thought.
+- He has to be `hung` like a horse, and that's why wilma puts up with his b.s.
+- Yeah but a guy `hung` like a horse would need briefs to keep things in line.
+- You're lucky those tuskens didn't boil you before they `hung` you out to dry.
+- Berkowitz -- "son of sam" -- `hung` around the crime scene, talking to the cops.
+- I `hung` up on somebody else a long time ago, and later on i wished i hadn't of.
+- The young girl pulls the shower curtain aside to reveal a robe `hung` on a hook.
+- An englishman might have thought of that, but a brazilian... leon `hung` himself.
+- He was poisoned, stabbed, shot, `hung`, stretched, disemboweled, drawn and quartered.
+- I know, but i `hung` around, 'cause i figured you'd try an' pull some shit like this.
+- I'd just like five minutes alone with the motherfucker who `hung` that flag upside down.
+- I want those little paint-happy bastards caught and `hung` up by their baby buster browns!
+                 

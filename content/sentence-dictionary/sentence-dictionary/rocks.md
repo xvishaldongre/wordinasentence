@@ -1,0 +1,67 @@
+---
+title: "rocks in a sentence | rocks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rocks"
+---
+- Got lost in the `rocks`.
+- Pussy love pink `rocks`.
+- Champagne on the `rocks`.
+- These are hard as `rocks`.
+- Let's get him some `rocks`.
+- It's just a bunch of `rocks`.
+- It's those `rocks`, up there.
+- Scotch on the `rocks`, right?
+- Oh, they're more than `rocks`.
+- Fezzik, are there `rocks` ahead?
+- They look like plain old `rocks`.
+- For shaping and polishing `rocks`.
+- What i don't have are the `rocks`.
+- Yo, `rocks`, buy us sum wine, man.
+- You see it over the `rocks` there?
+- Guy gets his `rocks` off like this.
+- She went behind those twin `rocks`!
+- I'll get a dewars `rocks`... classy.
+- Let's go inside and grab your `rocks`.
+- Eve: over the `rocks` will be all right.
+- Solid things, like `rocks`, can hurt it!
+- ...but some damn `rocks` on a windowsill.
+- Falling off `rocks`, `rocks` falling on me.
+- We gotta run for those `rocks` over there!
+- Apples .... gravy ... very small `rocks` ...
+- `Rocks`, sand -- those two men who deserted.
+- ...a dewars on the `rocks` and a bud, please.
+- I don't care about `rocks`, i care about you.
+- They were throwing `rocks`, john, just `rocks`.
+- Get the `rocks`, get the `rocks`, get the `rocks`!
+- Just point her at capri and avoid the `rocks`.
+- The blood type on the `rocks` matches suzie's.
+- An awful lot of ships wrecked on those `rocks`.
+- You turn over enough `rocks`... what now, sayer?
+- Uh, maybe i could just buy a couple `rocks` and go.
+- You go in there you're gonna eat it on the `rocks`.
+- I don't care about `rocks`, i care about <u>you</u>.
+- In every leaf, in every tree, the soil, the `rocks`.
+- Hey, i got my `rocks` off, so fuck you in the ass, man.
+- Maybe if i used heavier `rocks` to pull me down faster.
+- This dog will eat anything, she eats `rocks`, anything.
+- Let's see you dive from the top of those `rocks`, giulia.
+- One palm tree, a couple of `rocks`, and a sewage outflow.
+- Had these girls cooked the `rocks` he called the rockettes.
+- Why would someone pull on the `rocks` to get in the cavern?
+- Yeah, it would have to have a slow current, lots of `rocks`.
+- The stone's near... those `rocks`, are the real time killers.
+- Willow `rocks` the baby gently, absently looking at the fire.
+- You mean you never seen a jack daniels on the `rocks` before?
+- All i've had for chow was a packet of pop `rocks` and a yoo-hoo.
+- Do your job, get me a bourbon on the `rocks` and a pack of lucky's.
+- Master, moving `rocks` is one thing, but this is a little different.
+- They threw `rocks`, broke out our windows, almost overturned the car.
+- Those `rocks`, over there... they're the same... this is... central park.
+- You only killed a bunch of innocent people so you could get your `rocks` off.
+- Which we couldn't explore because of `rocks`, because of cross-winds, it's sloppy.
+- If he gets behind them `rocks` we ain't gonna get him... not without we go down there.
+- There's a small village in hampshire, near stonehenge... ... near a bunch of big `rocks`.
+- If they pushed the `rocks` you would have found them on the other side of the cavern wall.
+- What bothers me is that we found the `rocks` from the hole on our side of the tunnel wall.
+                 

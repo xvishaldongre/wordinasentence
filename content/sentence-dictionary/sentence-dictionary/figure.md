@@ -1,0 +1,107 @@
+---
+title: "figure in a sentence | figure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "figure"
+---
+- `Figure` it forgotten.
+- I `figure` it's karma.
+- It's hard to `figure`.
+- We'll `figure` it out.
+- That's what i `figure`.
+- Three more, i `figure`.
+- Ummm -- `figure` eight?
+- You'll `figure` it out.
+- Any historical `figure`.
+- `Figure` she's with him?
+- I can `figure` this out.
+- I couldn't `figure` out.
+- So what do you `figure`?
+- We'll `figure` this out.
+- `Figure` sabu's in there?
+- How do you `figure` that?
+- I can't `figure` him out.
+- I'm watching my `figure`.
+- We can `figure` this out.
+- You guys `figure` it out.
+- Can't you `figure` it out?
+- It's a `figure` of speech!
+- We will `figure` this out.
+- Why you `figure` i'm here?
+- How do you `figure`... hey!
+- Nobody can `figure` it out.
+- They won't `figure` it out.
+- What do you `figure` it is?
+- What do you `figure` to do?
+- A `figure` of st. sebastian.
+- I `figure` we ought to camp.
+- I'll `figure` it out myself.
+- It was a `figure` of speech.
+- They always `figure` it out.
+- They `figure` this shit out.
+- You're not easy to `figure`.
+- Any fool can `figure` it out.
+- Can we `figure` it out later?
+- How do they `figure` in this?
+- I `figure` somebody was home.
+- I got to `figure` this thing.
+- I just can't `figure` it out.
+- No, i `figure` he stays here.
+- We... how long, you `figure`?
+- We'll `figure` out something.
+- We'll `figure` something out.
+- We'll `figure` something out.
+- What kind you `figure` it is?
+- `Figure` it out for chrissake.
+- Forty-two-hundred, i `figure`.
+- I `figure` a couple of months.
+- I will `figure` something out.
+- Mike: let him `figure` it out.
+- So let's `figure` out who did.
+- Think you can `figure` it out?
+- Wait -- i must `figure` it up.
+- We'll `figure` it out in hell!
+- What do you `figure` it to be?
+- When you `figure` on branding?
+- You have a beautiful `figure`.
+- Can't `figure` out the species.
+- `Figure` out what i'm gonna be.
+- Guys, we can `figure` this out.
+- I can't `figure` you out, joey.
+- It's just a `figure` of speech.
+- This is the way we `figure` it.
+- Tilt we `figure` something out.
+- We'll `figure` it out together.
+- We'll `figure` something out...
+- What do you `figure` i owe you?
+- Who is gonna `figure` that out?
+- You didn't write that `figure`.
+- You got a round `figure` on it?
+- Hours to `figure` something out.
+- How you `figure` i'm gonna feel?
+- I gotta `figure` out what to do.
+- I just `figure` the percentages.
+- I'm sure you'll `figure` it out.
+- I'm trying to `figure` this out.
+- I think i could `figure` it out.
+- I was trying to `figure` out mm.
+- There's nothing to `figure` out.
+- There's nothin' to `figure` out.
+- This is for you to `figure` out.
+- We can `figure` it out together.
+- We `figure` out if it's in here.
+- That's just a `figure` of speech.
+- Until we `figure` this thing out.
+- We can `figure` it out, you know.
+- We just gotta `figure` out where.
+- We'll `figure` this out together.
+- We're going to `figure` this out.
+- What is it that i can't `figure`?
+- You are a fine `figure` of a man.
+- And `figure` out where the lab is.
+- This `figure` --she traced it.
+- Because i can't `figure` this out.
+- Doesn't have to `figure` out shit.
+- Hope you `figure` this out, folks.
+- How much did you `figure` to make?
+                 

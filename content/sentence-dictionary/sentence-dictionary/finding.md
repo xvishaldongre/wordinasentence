@@ -1,0 +1,107 @@
+---
+title: "finding in a sentence | finding example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "finding"
+---
+- In `finding` us a cure.
+- By `finding` my parents.
+- I'm not `finding` fault.
+- In `finding` our sister.
+- Oh, in `finding` mother?
+- They're not `finding` us.
+- I'm just `finding` out.
+- `Finding` out where she is.
+- Have any trouble `finding` us?
+- Any trouble `finding` the place?
+- I'm just `finding` this out now?
+- What about `finding` the source?
+- Well, cops are good at `finding`.
+- About not `finding` any bogey men?
+- `Finding` a place to eat at lunch.
+- My business is `finding` peo- ple.
+- Barely `finding` our way through it.
+- `Finding` out the best of each other.
+- `Finding` out who we're dealing with.
+- With pleasure at `finding` the ribbon.
+- You don't like us `finding` your load?
+- It's not easy `finding` love these days.
+- You won't have any trouble `finding` it.
+- You won't have any trouble `finding` me.
+- Good job `finding` the radio, lieutenant.
+- I'm really only now `finding` out myself.
+- I think she's just `finding` that out now.
+- Perhaps, i could assist in `finding` them?
+- I am `finding` it difficult to concentrate.
+- I can't believe what you are `finding` out.
+- You won't have any trouble `finding` a job.
+- It's the gibson, it's `finding` us too fast.
+- They really don't want anybody `finding` it.
+- The reasons for `finding` jacqueline changed.
+- You're my one and only hope in `finding` her.
+- Things got a way of `finding` <u>you</u> here.
+- We don't like `finding` strangers in our home.
+- Supposed to be `finding` a diplomatic solution.
+- When i was `finding` these goodies in the shed.
+- That's more important than `finding` lednov?
+- What's the price of their not `finding` out.
+- But it's like `finding` a diamond in the desert.
+- But you're `finding` that difficult, aren't you?
+- `Finding` your weakness is only a matter of time.
+- `Finding` out who you are gets you out of trouble.
+- And the closer we get to `finding` that second a.i.
+- And the closer we get to `finding` that second a.i.
+- `Finding` the money to buy the company, that's hard.
+- `Finding` the real world to your liking, mr. carter?
+- But how are you `finding` new orleans, senor farragut?
+- He's just `finding` another reason for bumpin' us off.
+- I had a little bit of a hard time `finding` the place.
+- Of his `finding` you silly for thinking of such things?
+- This is where we're `finding` most of the hemorrhaging.
+- `Finding` this package is a thing easier said than done.
+- Odds of anybody `finding` that girl, thirty years later.
+- Boy, these vines sure are good at `finding` all the holes.
+- I have ways of `finding` out about that blasted time bomb.
+- A soul's search: `finding` your true character and calling?
+- Insurance against him `finding` that last case ahead of us.
+- It bothers you, `finding` out i was in there... doesn't it?
+- I'm more worried about `finding` the people who helped them.
+- I think the best part of marrying this guy is `finding` you.
+- That checks out with our `finding`, thank you, mr. dahlberg.
+- I'm `finding` the nearest body of water and climbing into it.
+- It's `finding` good help to run it for you that's the killer.
+- You say `finding` those bodies'll help me, then go find them.
+- The only means of `finding` it is in that safe right there.
+- In the afterlife, you don't have to worry about `finding` work.
+- When it's close to `finding` you you will start having visions.
+- By `finding` this power source of the mimic horde and killing it.
+- `Finding` something abnormal on the street shouldn't be too hard.
+- Nothing is ever better than `finding` out what makes people tick.
+- You tell me what you did that kept you from `finding` your father.
+- Are you ever scared of `finding` a dead body in one of these rooms?
+- To come to terms with `finding` out you're gonna tell me the truth.
+- A soul's search: `finding` your true calling - are you reading this?
+- Imagine my surprise, `finding` him on a liason with a common servant.
+- Wait a minute, you expect to be knighted for `finding` that soupbone?
+- He says he makes a nice finder's fee for `finding` them hot prospects.
+- I think `finding` you's the smartest thing i ever did, for both of us.
+- You'd better start `finding` something else to do with your free time.
+- There's the nopals, the yuccas-- you `finding` lots of cactus and shit?
+- What's the chance of `finding` a nice mature guy once we get to daytona?
+- 'cause we got more important things to do, like `finding` out who did it.
+- Figuring out what kind of music i like and then `finding` me a rare album.
+- How do you plan on `finding` this here castle, if ye don't mind me asking?
+- I couldn't risk you `finding` it, so i had to put them locks on the doors.
+- You'll have a hard time `finding` a woman like that these days -- i would.
+- `Finding` ways for me to die at these things is really your deal, isn't it?
+- I take the man out of argentina - and it was no picnic `finding` him y'know?
+- I like talking to you, though� imagine my `finding` you right on my doorstep.
+- I spent three years `finding` you -- four years training you -- what did i do?
+- We're 20 degrees from `finding` out what comes after death, saving my friends.
+- Isn't it possible that you were traumatized by `finding` the body on the bridge?
+- We have no way of `finding` other stock but i have money for you from the guests.
+- People `finding` out... seeing... that the lapd just flat out executed jeriko one.
+- The 'coffee shop' -- and i said you'd have a hard time `finding` a woman like that.
+- Yeah, but doc, isn't it true they keep `finding` out new things about this disease?
+- Remember in the diary - nancy said that she kept `finding` herself in a boiler room?
+                 

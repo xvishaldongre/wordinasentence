@@ -1,0 +1,56 @@
+---
+title: "Jacqueline in a sentence | Jacqueline example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jacqueline"
+---
+- How's miss `jacqueline`?
+- Is it about `jacqueline`?
+- He's `jacqueline`'s husband.
+- I've come from `jacqueline`.
+- Didn't `jacqueline` tell you?
+- Tell me, how is `jacqueline`?
+- That's `jacqueline`'s sister.
+- Where is `jacqueline` gibson?
+- Her name is `jacqueline` gibson.
+- Following me to find `jacqueline`?
+- `Jacqueline` spoke about you often.
+- I want you to look for `jacqueline`.
+- I was `jacqueline`'s psycho-analyst.
+- Then you know where `jacqueline` is?
+- Has anything happened to `jacqueline`?
+- I saw miss `jacqueline` only a week ago.
+- You don't even know `jacqueline` gibson.
+- It's like some of `jacqueline`'s stories.
+- Good night, `jacqueline` -- good night, mary.
+- I want to find `jacqueline` to settle things.
+- `Jacqueline` is a murderess she killed a man.
+- The reasons for finding `jacqueline` changed.
+- It will make you unhappy to find `jacqueline`.
+- I wanted to get things clear for `jacqueline`.
+- That girl was looking for `jacqueline` gibson.
+- But,mary, you shouldn't mourn for `jacqueline`.
+- I'd make no further attempt to find `jacqueline`.
+- Because i loved `jacqueline` i thought i knew her.
+- People who see miss `jacqueline` never forget her.
+- If `jacqueline` wants money she can come to me herself.
+- Tell me where `jacqueline` is -� we've got to find her.
+- You go back to school - - go back and forget `jacqueline`.
+- Gregory �� you'd better take `jacqueline` with you tonight.
+- You can't make it your life's work looking for `jacqueline`. )
+- You could have told me any time you were `jacqueline`'s husband.
+- You mean miss `jacqueline`'s gone, and you don't know where she is?
+- It doesn't seem right for me to enjoy myself with `jacqueline` gone.
+- No, you draw no secrets from me, as you drew them from `jacqueline`.
+- You introduced `jacqueline` to us -- but how could you tell �- sorry.
+- He was phoning to say that, `jacqueline` is on her way here - good night.
+- If it is true � there's all the more reason for you to find `jacqueline`.
+- Mrs. cortez -� this morning i told her `jacqueline` was no longer under my care.
+- Frances fallon, with her worship of `jacqueline`, has had to follow like a sheep.
+- Yes �� yes, if she made that much impression on you, i'm sure it was `jacqueline`.
+- Mrs. redi, there's one thing �-with `jacqueline` gone, how do you carry on the business?
+- You're willing to jeopardize `jacqueline`'s life in order to satisfy your own curiosity.
+- No...at the morgue they told me a mr. gregory ward had made inquiries about `jacqueline`.
+- Oh, the complete works of `jacqueline` susan, the novels of harold robbins.... for example?
+- Yes �� and i must say i've done very well with it -- perhaps even better than `jacqueline`.
+                 

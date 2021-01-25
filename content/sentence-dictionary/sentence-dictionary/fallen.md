@@ -1,0 +1,61 @@
+---
+title: "fallen in a sentence | fallen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fallen"
+---
+- I've `fallen` in love.
+- Use the `fallen` trees.
+- You must've `fallen` in.
+- I must have `fallen` asleep.
+- How the mighty have `fallen`.
+- The white castle has `fallen`.
+- He's `fallen` asleep, as usual.
+- Jade said you'd `fallen` asleep.
+- Oh, how the mighty have `fallen`.
+- John has `fallen` in love with me!
+- Now you've `fallen` into his trap.
+- She had `fallen` prey to sheidheda.
+- Must have `fallen` out of my pocket.
+- Sort of a `fallen` angel, aren't you?
+- Guess i must've `fallen` back to sleep.
+- I think i've `fallen` in love with you.
+- Our beloved blodreina has `fallen` ill.
+- I've actually `fallen` in love with him.
+- The leaves had `fallen` off in november?
+- You've actually `fallen` for this prick.
+- But the great desert forts have `fallen`.
+- She must've `fallen` asleep at the table...
+- I have robbed a cradle and `fallen` into hell!
+- It thinks you have `fallen` and are powerless.
+- But i've never `fallen` into san francisco bay.
+- I've `fallen` in love with somebody else, lila.
+- After one of the `fallen` tried to take my life.
+- `Fallen` one... we have such sights to show you!
+- As someone who's `fallen` off jasper has a recipe.
+- Now that arkadia has `fallen`, - i'll do anything.
+- Now that arkadia has `fallen`, of lexa kom trikru.
+- Now that arkadia has `fallen`, no, no, it's not that.
+- This is what people who've `fallen` in love look like.
+- It hasn't `fallen` down yet.... don't bother hoagie....
+- But now you have `fallen` behind and we want to help you.
+- My soul was in danger i'd `fallen` from grace get moving.
+- It appears that cecile has `fallen` for her music teacher.
+- Say, you haven't gone and `fallen` for that mug, have you?
+- But since i don't know what the hell use the `fallen` trees.
+- I'd have `fallen` in love with a pilot or a mountain climber.
+- ♪ we are pushed and `fallen` down ♪ and we aren't the problem.
+- I told you, i have a feeling... yeah...you've `fallen` for her.
+- The 3 heads of our `fallen` primes, they're headed down 7th.
+- He's apparently `fallen` out of favor with the klingon high command.
+- I've `fallen` into lakes, out of rowboats, when i was a little girl.
+- Lois, have you ever `fallen` for a guy and he's not like other guys .
+- You're like the false god you worship... `fallen` angels, all of you.
+- And, oh yes, i almost forgot, my daughter's `fallen` in love with death.
+- It is only a few weeks and already half our strong places have `fallen`.
+- Once again, our interests have `fallen` victim to his ridiculous crusade.
+- I've `fallen` in love in a way i've never thought could happen my entire life.
+- If i'da been half as scared a that lop-ear, i wouldn't a `fallen` asleep on 'em.
+- Well now <u>you</u> haven't `fallen` for this silly idea of individuality, have you?
+- In any event, my feelings were hurt when i learned that he had `fallen` for someone else.
+                 

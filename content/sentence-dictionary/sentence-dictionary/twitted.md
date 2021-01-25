@@ -1,0 +1,7 @@
+---
+title: "twitted in a sentence | twitted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "twitted"
+---
+## Unfortunately, we have no example sentences for twitted                 

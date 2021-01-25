@@ -1,0 +1,107 @@
+---
+title: "moved in a sentence | moved example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moved"
+---
+- He's `moved` on to tv.
+- It is `moved` by fate.
+- Or if he's `moved` on.
+- Something `moved` you.
+- The wall just `moved`.
+- They've `moved` house.
+- You and robin `moved`?
+- You just `moved` here.
+- Ain't gonna be `moved`?
+- I think he's `moved`...
+- Maybe the gate `moved`.
+- She `moved` away, okay?
+- There, see, he `moved`.
+- We `moved` it too soon.
+- Oh my god -- it `moved`!
+- Since he `moved` to l.a.
+- And, so, i `moved` out...
+- I'm `moved` beyond words.
+- It `moved` uptown, right?
+- You see, i've `moved` on.
+- He `moved` out last april.
+- I thought you `moved` out.
+- Oh, i... she just `moved`.
+- She could have `moved` in.
+- We `moved` out after that.
+- He `moved` out a month ago.
+- I'm pretty much `moved` in.
+- `Moved` on to plumbing huh?
+- That's why they `moved` on.
+- I guess somebody `moved` it.
+- It's time we all `moved` on.
+- Maybe somebody `moved` them.
+- She done `moved` to detroit.
+- So... you just `moved` here?
+- You `moved` into this block?
+- You `moved` like they `moved`.
+- You still should've `moved`.
+- I hear you `moved` into town.
+- Maybe we should have `moved`.
+- Tell him why we `moved` here.
+- No, don't worry, i `moved` on.
+- They `moved` away the highway.
+- I only thank god i `moved` out.
+- Not since we `moved` to disney.
+- ...you `moved` too, didn't you?
+- You haven't `moved` out yet.
+- Hasn't `moved` for twelve hours.
+- She `moved` here in 'forty-nine.
+- We `moved` rooms because of him.
+- So you're saying she `moved` out.
+- They `moved` down to new orleans.
+- It hasn't `moved` in half an hour.
+- It was just after we `moved` here.
+- `Moved` it to some hotel, i think.
+- The democrats've `moved` to miami.
+- They `moved` to detroit last year.
+- What do you know, they `moved` it.
+- Yeah, but i see you `moved` it up.
+- Is probably because you `moved` in.
+- I understand you just `moved` here?
+- They `moved` you from the diplomat?
+- What's-her-name `moved` to buffalo.
+- I `moved` payroll onto the computer.
+- Just `moved` in with his girlfriend.
+- We just got `moved` up in the world.
+- We `moved` him after the last sweep.
+- Is that why uncle phil `moved` there?
+- Maybe it's time i `moved` to a hotel.
+- We `moved` out here for the quiet.
+- Jasper screamed when they `moved` him.
+- Only i `moved` too fast for you to see.
+- To that girl who `moved` to pittsburgh.
+- Besides, it only began after we `moved`!
+- I told you, her family `moved` to miami.
+- That why you `moved` from the last town?
+- But after my mother died, my dad `moved`.
+- He saw me when i `moved` in for the kill.
+- In truth, i `moved` there when i was two.
+- She's `moved` on, like, beyond our world?
+- That's why i left, `moved` to washington.
+- The government has `moved` to the circus.
+- Hank says danny's `moved` to new york.
+- Maybe you're upset that rachel `moved` in.
+- She might've `moved` ten times since then.
+- Couldn't you have `moved` in with your mom?
+- If you and johnny `moved` in, had a baby...
+- I'm too `moved` by your gentility to speak.
+- I was really very `moved` by the way you...
+- You were disturbed, but ultimately `moved`.
+- I see you've `moved` up from the soft stuff.
+- She `moved` to miami beach twelve years ago.
+- The grounders are gonna think we `moved` in.
+- ...they didn't know what really `moved` her.
+- We `moved` from the countryside into cities.
+- That must be `moved` from point a to point b.
+- I `moved` to new york to work for edward dowd.
+- I was `moved`... give me my goddamn life back!
+- I would've `moved` in when we first found out.
+- I don't think we `moved` more than fifty yards.
+- It didn't work, something `moved` there-- what?
+                 

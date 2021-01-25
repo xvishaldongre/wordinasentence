@@ -1,0 +1,104 @@
+---
+title: "client in a sentence | client example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "client"
+---
+- `Client` got delivery.
+- ...how's the `client`?
+- I handle one `client`.
+- I have a new `client`.
+- It was from a `client`.
+- My `client`... is dead.
+- You're not my `client`.
+- He's a `client` of mine!
+- He's your `client`, huh?
+- Your `client` is guilty.
+- Not my favorite `client`.
+- Representing my `client`.
+- You can't miss a `client`.
+- Another satisfied `client`?
+- I've got a `client` waiting.
+- They make up the `client`�le.
+- It was a gift from a `client`.
+- Another `client` paid for that.
+- He just lost his best `client`.
+- I'm officially `client` facing.
+- My `client`, do you understand?
+- My `client` has ruled that out.
+- My `client` is an entrepreneur.
+- My `client` pays for it anyway.
+- No, i mean - about my `client`.
+- Like an agent with one `client`.
+- I demand a trial for my `client`.
+- You're my entire `client` roster.
+- Another satisfied `client`'s wife.
+- Attornery-`client`, you understand?
+- Hey, hey, the `client` comes first.
+- I'm his lawyer -- he's my `client`.
+- My `client` can't walk, your honor.
+- That's attorney `client` privilege.
+- You're my very first `client` back.
+- I'm with an very important `client`.
+- You're not a `client` anymore, tran.
+- My `client` could make them disappear.
+- Carlos isn't a friend; he's a `client`.
+- He's my `client`, and this is important.
+- Your `client` have a deal in long beach?
+- Hey, evelyn, it's your favorite `client`.
+- Counselor, i will prosecute your `client`.
+- I'd rather have a `client` who's innocent.
+- Okay, in a minute, i'm on with a `client`.
+- Your... `client` is being booked right now.
+- I read the hospital report on your `client`.
+- Are you invoking attorney/`client` privilege.
+- My `client` feels sufficiently dispassionate.
+- Who put my `client` in the hospital for life.
+- I think i prefer to see my `client` privately.
+- I have to meet a `client`... who're you dating?
+- That's the beauty of lawyer/`client` privilege.
+- Counselor, how long have you known your `client`?
+- It's why you attract a `client` like my daughter.
+- My weirdo rich `client` gave this to me as a gift.
+- I need a guide and you need a `client`...and $1000.
+- So, my `client`, uh, homer simpson, is suing youse.
+- There's no way my `client` will go along with that.
+- Your brother was a `client` with our london branch.
+- I have a `client` near here and i...i'm quite early.
+- My `client` doesn't have to take this crap from you.
+- He�s a `client` of mine and a friend of your husband.
+- My `client` proposes a thirty day cooling off period.
+- But i got a `client` lookin' to score some fire power.
+- I wear a gun when i can tell a `client` expects me to.
+- His equipment, trucks, `client` list, the whole shmear.
+- Eddie... a guilty `client`'s not the end of the world...
+- He wants me to take his car and his `client` to baltimore.
+- Is this, me and you, like a lawyer- `client` relationship?
+- I just put that in a `client`'s home, actually, but in red.
+- I would just like to make sure you know who the `client` is.
+- My `client` is being forced to breathe known carcinogens daily!
+- You're not my `client` until you get busted and i bond you out.
+- On top of that, you gained the `client`'s trust and kept it.
+- He's got a `client` now who shot his wife in the head six times.
+- How do they explain your status to the `client` for chrissake?
+- I have to call the `client` and give them a reason why you're late.
+- My `client` is involved in any number of deals at any given moment.
+- Senator, my `client` would like to read a statement for the record.
+- Jesus... what kind of monster `client` have you picked up this time?
+- No `client` has ever seen my face, and i intend to keep it that way.
+- At this point my `client` is still prepared to consider reconciliation.
+- I'll put this past my boss confirm this with my office and my `client`.
+- I never joke about waiving a `client`'s sixth amendment right to trial.
+- My `client` has already given a statement regarding yesterday's events.
+- My `client` is prepared to settle for fifty percent of the marital assets.
+- You'd be my only `client` on that team... you'll always be my hero, jerry.
+- I'm going to miss the lifestyle having you as a `client` has afforded me.
+- You'd better speak to someone too ... or find yourself another `client`!!
+- Going fly fishing in canada, big `client`... wanna play some tennis saturday?
+- I simply chose an advisable location to await my `client`'s delinquent husband.
+- There, you fix `client`'s distance... how much to the bench down there in the park?
+- This case has no connection with any subsequent act my `client` may be charged with!
+- This person i've been seeing is a jam pony `client` who happens to be married-- really?
+- So you wouldn't have any idea how your `client` continues to make so much fucking money.
+- May i remind you that duncan has the <u>`client`</u> arriving at exac... actually, never.
+                 

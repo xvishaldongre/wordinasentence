@@ -1,0 +1,93 @@
+---
+title: "range in a sentence | range example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "range"
+---
+- `Range` twenty meters.
+- At point blank `range`?
+- `Range`, twenty meters.
+- Staying out of `range`.
+- `Range`: 3000 kellicams.
+- The `range` isn't great.
+- `Range`, 5,000 kellicams.
+- We're within `range`, sir.
+- It will double our `range`.
+- We don't have a gun `range`!
+- The army's almost in `range`.
+- Face it, we're out of `range`.
+- Dad, we're well out of `range`.
+- `Range` 500 meters and holding.
+- So someone could be in `range`.
+- `Range` 3000 meters and closing.
+- Are these macaroons free-`range`?
+- Estimate `range`, ship to whales!
+- Is there a firing `range` around?
+- Sir, we're almost out of `range`.
+- What's the `range` of this thing?
+- A ship has entered sensor `range`.
+- Bearing 327, `range` 600 nautical.
+- Mm, that's got a difficult `range`.
+- What's it doing on a rifle `range`?
+- They were executed at close `range`.
+- Twenty-five-mile `range`, they have.
+- It's swallowing short-`range` now, too.
+- Long-`range` bio- sensors are off-line.
+- This was a rifle `range` way back when.
+- Were you longe `range` recon -- sort of.
+- No potential for long-`range` livability.
+- Fighters closing fast - `range` fifty miles.
+- I mean do i have to ride out to the `range`?
+- We sell a dozen a day in this price `range`.
+- It's a bit beyond my... `range`, shall we say.
+- Long-`range` communication is totally screwed.
+- I'll go work out my feelings on the gun `range`.
+- They've got a `range` well over a hundred miles.
+- Name's patrick, i met him at the driving `range`.
+- The rift effects all long-`range` communications.
+- Raven said that we need to get into radio `range`.
+- [door opens] i don't know, he's way out of `range`.
+- He'll trade the krauts for a six-burner gas `range`.
+- Yeah, but we're-- they `range` up to three thousand.
+- Testimonials of that sort are--are beyond my `range`.
+- Camped out by the navi-beacon out on linson's `range`.
+- How much longer for the `range` and power projections?
+- Short `range` scan, mr. chekov... on screen, mr. sulu.
+- You want me to bargain at the high end of our `range`?
+- A phased plasma pulse-laser in the forty watt `range`...
+- Her entire army stopped just outside the veil's `range`.
+- I have never seen such a `range` of romances in my life.
+- The crow is a permanent resident throughout its `range`.
+- There's only one thing it could be... short `range` scan.
+- I mean, either she's out of `range`-- lincoln... - dustin!
+- I'm getting a voice message... wait ... short `range` band.
+- Not that it's a competition, but she loves me 3,000. `range`.
+- We're still thirty-six minutes from transmission `range`, sir.
+- We're within visual `range` of the energy distortion, captain.
+- Get into a tight spot, you'll be out of `range` at forty yards.
+- I'll have long-`range` bombers alerted, loaded and standing by.
+- It's stashed somewhere off in the system ... out of my `range`.
+- How you people fail to grasp the long-`range` significance of this!
+- It looks like louis's friend shot him twice at point blank `range`.
+- We need only to come about, to put them in `range` of the long nines.
+- With the satellite down, we can't transmit over the mountain `range`.
+- I know it's at the high end of our `range` -- stop knowing me so well.
+- ...out to the middle of nowhere last week, out past the ilium `range`?
+- Unidentified aircraft, 40,000 feet msl, `range` 30 miles, bearing 010.
+- At that close `range`, we won't last long against those star destroyers.
+- Sawn-offs are out, tom; people like to have a bit mare `range` nowadays.
+- There was a shooting `range` and a lot of tropical terrain like in cuba.
+- Nothin'... nothin' on this earth could have lived... not at that `range`.
+- I'll bet anything he won't go to town nor he won't ride out on the `range`.
+- They popped-up on the medium-`range` about thirteen twenty-four local time.
+- When it comes to real action, i can operate as good as anybody short `range`.
+- You've been introduced to the symphonic `range` of... ... garden sports, all.
+- Oh, tesla, your 900-pound feet it's also why the `range` in our walkies sucks.
+- Something that changed me to my core, monty: sir, we're almost out of `range`.
+- Do the major items in your house cover around the nine thousand-dollar `range`?
+- Hey, you and i are seein' eye to eye on a whole `range` of issues this mornin'.
+- You go full auto on a guy from close `range`, you're gonna be swimming in blood.
+- Iran, iraq, pakistan, syria, afghanistan... do we have the `range` of renard�s plane?
+- The enterprise is only nineteen hours from communications `range` with the federation...
+- This ship is equipped with fourteen long `range` transporters... are they all useless...?
+                 

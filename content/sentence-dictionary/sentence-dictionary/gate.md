@@ -1,0 +1,107 @@
+---
+title: "gate in a sentence | gate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gate"
+---
+- It's the front `gate`.
+- Report to main `gate`.
+- Sounded like "`gate`."
+- They're at the `gate`.
+- Maybe the `gate` moved.
+- Use the service `gate`.
+- Finn: shut the `gate`!
+- I gotta open the `gate`.
+- I'm going to the `gate`.
+- Nobody uses that `gate`.
+- Officers to main `gate`.
+- Open the goddamn `gate`.
+- The `gate`, i opened it.
+- Okay, where's the `gate`?
+- Outside of this `gate`...
+- Meetin' him at the `gate`.
+- Meet me at raven's `gate`.
+- Report to the main `gate`.
+- The `gate`... brightening.
+- Hotel, hell's `gate` tower.
+- Is this `gate` underground?
+- Remember the `gate` number?
+- Hey, ok. is the `gate` open?
+- That your `gate` down there?
+- They had me from the `gate`.
+- Two just outside the `gate`.
+- Approaching the first `gate`.
+- Your police are at the `gate`?
+- ...and eleven closed the `gate`.
+- And i'll meet you at the `gate`.
+- ey’re heading for the `gate`!
+- It's the key to the main `gate`.
+- Closing the `gate` will kill him.
+- She left the fucking `gate` open.
+- You three, take the front `gate`.
+- I said unlock that fucking `gate`.
+- Man: i want people on that `gate`.
+- No, i don't think it's the `gate`.
+- They should lead us to the `gate`.
+- Why haven't they fixed the `gate`?
+- Did you try going through c-`gate`?
+- Team two, we're at the main `gate`.
+- Thirty men guard the castle `gate`.
+- It must have been some other `gate`.
+- Someone left the goddamn `gate` open.
+- There's a goddamn sign on the `gate`.
+- You opened this `gate` before, right?
+- You don't want us to reach the `gate`.
+- Get the sodding `gate` open now, plank.
+- Last year, el closed the `gate` on him.
+- I left the `gate` open and otis got out!
+- The front `gate` would be best, general.
+- Clarke, they’re taking down the `gate`.
+- The `gate`'s gotta be in there somewhere.
+- He built that `gate` and these damn walls.
+- He was ready to throw finn out the `gate`.
+- So this has nothing to do with the `gate`?
+- The `gate` is armed with... it takes time.
+- How many men to we have at the main `gate`?
+- If we don't have a keycard, open the `gate`!
+- Mr. sulu, set us down in golden `gate` park.
+- The demodogs died when el closed the `gate`.
+- Which is, like, ten minutes from the `gate`!
+- I will put people at the `gate`, in disguise.
+- The `gate` has but one key, and i carry that.
+- The prisoners are headed for the main `gate`.
+- Do you see the `gate` at the end of the field?
+- I... "i saw you waiting there, by the `gate`."
+- Now... they're using... to open the `gate`.
+- But the castle `gate` is guarded by thirty men.
+- Grab your gear and meet at raven's `gate` in 5.
+- Let's head to the `gate` and work our way back.
+- en let’s not let them get through the `gate`.
+- Walked right through the `gate`, past the guard.
+- You're positive he said "`gate`" and not "great"?
+- I always assumed there'd be a `gate` or something.
+- Man, on radio: team two, we're at the main `gate`.
+- I think you'll know when you see him at the `gate`.
+- Tell ames to meet me at the west `gate` in... what?
+- We forget the weirdo and go straight to the `gate`.
+- Can your men at the `gate` hold out for another day?
+- Maybe they saw the open `gate`, who put it in there?
+- The `gate` would have so much power-- uh... definitely.
+- We drew the demodogs away so el could close the `gate`.
+- I opened the `gate` of their pen - but they wouldn't run.
+- Told you you wouldn't be able to see through that `gate`.
+- All arkadia security personnel, report to main `gate` now.
+- It would take a lot of energy to build a `gate` like this.
+- None of your five bar `gate` jumps and over sort of stuff.
+- Well, i'll be -- there's a rig, turning in, by the `gate`.
+- The guy at the `gate`'s outside...says there's a package...
+- We are safe here if they take the `gate`, we’re all dead.
+- U.s. army research laboratory/guard `gate` - jerome - night.
+- I came out of the house and the fucking `gate` was wide open.
+- There's one steel `gate` as you go in but they never lock it.
+- What do you want me to start with -- the golden `gate` bridge?
+- That's a hell of an accomplishment this soon out of the `gate`.
+- If she hates me for the rest of my life, take down the `gate`!
+- Please, general, call and put your policemen back at the `gate`.
+- She said she'd driven to golden `gate` park and sat by the lake.
+                 

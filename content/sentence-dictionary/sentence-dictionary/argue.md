@@ -1,0 +1,69 @@
+---
+title: "argue in a sentence | argue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "argue"
+---
+- Don't `argue` with me.
+- Are we going to `argue`?
+- Never `argue` with a man.
+- Now don't `argue`, hildy.
+- I haven't time to `argue`.
+- Now don't `argue` with me.
+- We can `argue` on the way.
+- This does not `argue` well.
+- I'm too pregnant to `argue`.
+- What did they `argue` about?
+- I'm not here to `argue`, sir.
+- Dammit, don't `argue` with me.
+- We don't have time to `argue`!
+- They'll `argue` the whole time.
+- I wanted you to `argue` with me.
+- I don't want to `argue` with you.
+- Who am i to `argue` with history?
+- Don't try and `argue` with me.
+- I ain't about to `argue` with you.
+- I have no time to `argue`, gillian.
+- It's hard to `argue` with this logic.
+- It's silly of me to `argue` about it.
+- Nobody wants to `argue` with the irs.
+- They'll `argue` exactly the opposite.
+- We don't have time to `argue`, susan.
+- I'd love to `argue` with you sometimes.
+- We don't have time to `argue` about it!
+- Did they `argue` the day before he died?
+- Always got time to `argue` money, huh...?
+- Look, would you `argue` with your doctor?
+- Why do you `argue` with everything i say?
+- Did miss lawson and mr. marsh ever `argue`?
+- Jackie, would you `argue` with your doctor.
+- Come on, lilly, you don't `argue` with bobo.
+- There's no need to `argue` about this again.
+- There's no time to `argue` about this, madi.
+- Jeff likes to `argue` for the sake of arguing.
+- Now don't `argue` with me, you know i'm right.
+- Sis, i don't want to `argue`, stop pressing me.
+- Oh, madi, i'm really not in the mood to `argue`.
+- The story is, the deaths you can't `argue` with.
+- I ain't got time to `argue` with you today, andy.
+- Just get me a coke and don't `argue` with me, ok?
+- How can i `argue` with the captain of the enterprise?
+- I did get to `argue` a case before the supreme court.
+- The guy was polite and didn't `argue` about the price.
+- You can't `argue`... when the good lord calls you home.
+- I know better than to `argue` romance with a french woman.
+- Why don't i set you down here and we won't `argue` about it.
+- Look, gloria and tina didn't come here to listen to us `argue`.
+- I'm not gonna `argue` who's got the higher authority here, all right?
+- But i won't `argue` - you 'trade school boys' are all alike, aren't you?
+- Don't `argue`, goddamnit, just-- what, you growing gills all of a sudden?
+- Of course you'll decide you deserve the bigger one, and who's to `argue`?
+- Hard to `argue` with that, isn't it... how about anything, anything you want to do.
+- Your prime minsters would `argue` that such negotiations should take place in lhasa.
+- Everybody on this job knows it's bullshit but we could never `argue` with the numbers.
+- Hey, can we not stand here and `argue` in front of everybody, 'cause i get embarrassed.
+- Keep following this street, knows better than those of us who have spent don't `argue`.
+- Maybe because you told me you had it, or maybe just because i'm too tired to `argue`...
+- You `argue` with her -- otherwise you're going on a honeymoon with blood on your hands!
+- If we're going to `argue` insanity, we're going to need something a little more concrete.
+                 

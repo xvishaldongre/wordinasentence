@@ -1,0 +1,100 @@
+---
+title: "planned in a sentence | planned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "planned"
+---
+- I `planned` that, too.
+- I hadn't `planned` this.
+- I hadn't `planned` on it.
+- That how you `planned` it?
+- I got it all `planned`.
+- Hardy, they `planned` this.
+- If i've `planned` it right.
+- It was carefully `planned`.
+- We `planned` a trip for her.
+- It's already `planned`, mike.
+- We `planned` this months ago.
+- We use the bomb as `planned`.
+- Things didn't go as `planned`.
+- We always `planned` to use it.
+- Besides, i've `planned` it all.
+- It didn't work out as `planned`.
+- You've got everything `planned`.
+- Is everything ready as `planned`?
+- March 18, just like we `planned`!
+- This isn't the life we `planned`.
+- I `planned` on seeing all my life.
+- It's something can't be `planned`.
+- Or... you may speak, as `planned`.
+- We could have `planned` something.
+- What, do you think i `planned` it?
+- Looks like he `planned`, something.
+- You'd know that if you'd `planned`.
+- I thought you `planned` the evening.
+- It wasn't `planned` or premeditated.
+- The namings will go on as `planned`.
+- I `planned` on catching him, captain.
+- They `planned` it, samuel and kalfus.
+- I thought you had something `planned`.
+- This has been `planned` from your birth.
+- I've got it `planned` to the last detail.
+- Everything's going exactly as we `planned`.
+- Got a whole route `planned` and everything.
+- Have `planned` for their own disappearance.
+- I had `planned` to see them in the morning.
+- She's `planned` it that way from the start.
+- You `planned` this whole thing, didn't you?
+- No, the marriage'll take place as `planned`.
+- She comes with us in the rover as `planned`.
+- That's what it was you `planned`, wasn't it?
+- What i have `planned` requires sheer genius.
+- Everything's proceeding exactly as `planned`.
+- It's all working out, just like we `planned`.
+- No use my saying it wasn't `planned` that way.
+- You `planned` this -- a thermos of hot coffee.
+- I'll tell you what, we always `planned` oh, no.
+- I `planned` this, i `planned` all this, you know.
+- Sometimes everything goes exactly as `planned`.
+- We have no choice but to continue as `planned`.
+- What's yorgi got `planned` with that nerve agent?
+- Have we got a great panel `planned` for you today.
+- I mean, it's sort of pathetic, but i `planned` it.
+- I `planned` the generator for the house next week.
+- I've `planned` this since i was a very little boy.
+- To do that, he has to have `planned` an exit point.
+- Everything he does is `planned` out well in advance.
+- Remember the big talent show you `planned` last year?
+- There are things that i have `planned` with hyman roth.
+- You see, i hadn't `planned` on spending much time here.
+- For a whole wedding to be `planned`, a date must be set.
+- I tell you, this station will be operational as `planned`.
+- I have this whole dead man walking swan song exit `planned`.
+- I take it things didn't much work out the way you `planned`.
+- We'll take off all right, from pad 18 just like we `planned`.
+- `Planned` on going to sea, me and bob, 'til i read jack london.
+- What new, mindless harassments have you `planned` this morning?
+- I take it things didn't much work out the way you `planned`.
+- That part, nick... was `planned` out the day i read your letters.
+- Well, i got it all `planned`... and i'm taking holly off with me.
+- Sitting on the next tree, but i thought this we leave as `planned`.
+- Joe `planned` a robbery, but he's got a blood bath on his hands now.
+- With all due respect, i told you to abort -- didn't go as `planned`?
+- No, no, i hadn't `planned` on going, it's just mickey will be pissed.
+- If that's what god has `planned` for you, that's what's going to happen.
+- Mrs. lampert, i really hadn't `planned` on spending the entire night here.
+- This whole buttle/tuttle confusion was obviously `planned` from the inside.
+- With all due respect, i told you to abort -- didn't go as <u>`planned`</u>?
+- I don't have anything `planned`, turning now to local news, oh, i'm a nothing.
+- If all goes as `planned`, our trial should coincide with the release of stab ii.
+- This is the moment we've `planned` for so many years... moving them is one thing.
+- I'm going to take you to the home to see the girl... that's what i'd `planned` to...
+- I really hadn�t `planned` on giving you your...uh... anniversary gift until tonight.
+- I... what, you think death `planned` for each of us to die in the pile up weeks ago?
+- At least it's better than the total oblivion he'd `planned` for me, your merciful god!
+- Only the princess matters -- -- clearly this was all `planned` by warriors of guilder.
+- That seems to be what it has `planned` -- to have the creator physically present here.
+- You need to press on at all costs, find out what they have `planned` with this "ahab".
+- I `planned` getting you off the hangman's deck -- we're gonna have to talk... fine.
+- But he's `planned` the rest of my life for me and he's never even asked me what i want!
+                 

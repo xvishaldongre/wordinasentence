@@ -1,0 +1,71 @@
+---
+title: "nation in a sentence | nation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nation"
+---
+- Welcome to rage `nation`.
+- That was the ice `nation`.
+- Including the ice `nation`.
+- He just joined the `nation`.
+- No sane `nation` ever would.
+- The ice `nation` isn't afraid.
+- They've hypnotized the `nation`.
+- I want an ice `nation` commander.
+- The ice `nation` can be ruthless.
+- A commander from the ice `nation`?
+- In the capitol for boy's `nation`.
+- What's gonna stop the ice `nation`?
+- Ice `nation` has crossed the border.
+- One `nation` succeeding over another.
+- The whole `nation` is laughing at us!
+- Our `nation` needs so many things.
+- India is a newly independent `nation`.
+- We had to shoot 3 ice `nation` scouts.
+- He said it was azgeda, the ice `nation`.
+- But now he has come to lead his `nation`.
+- The complete dissolution of our `nation`.
+- The ice `nation` guys we killed why "no"?
+- We're just not a very musical `nation`...
+- Ice `nation` does not answer to this girl.
+- And now the ice `nation` is exploiting that.
+- Ice `nation` didn't tell gina to stay there.
+- The security of this `nation` depends on it.
+- The united states is a no- smoking `nation`.
+- Every `nation` would undoubtedly follow suit.
+- Not until the ice `nation` has its commander.
+- You can tell it's ice `nation` from the sound?
+- Bellamy: we had to shoot 3 ice `nation` scouts.
+- I tell you, drink is the ruin of this `nation`.
+- India is the largest whiskey-consuming `nation`.
+- Is that how you make friends in the ice `nation`?
+- The ice `nation` did what lexa was too weak to do.
+- The `nation` votes this week... don't worry, lamar.
+- Your leg's messed up, the ice `nation` is emboldened.
+- We have to spare this `nation` her trial - for treason.
+- I will not speak to any one `nation` or group of nations.
+- The ice `nation` never stormed this summit and surrender.
+- Because you drew a little picture of it just ice `nation`.
+- Octavia, if she's still on penance... from the ice `nation`.
+- Once guilder is blamed, the `nation` will be truly outraged.
+- My father's people already know each man is his own `nation`.
+- I've seen the ice `nation` army, they were the first to die...
+- Forgive me, ma'am, i cannot speak for the `nation`, only for myself.
+- There's a door on the far side, this is because of the ice `nation`.
+- Why else would you send kids, that the ice `nation` has paid a price.
+- Then there's the rock climbing wall, right at the ice `nation` border.
+- I was the one who brought the `nation`'s attention to this shit anyway.
+- Abby... sentries, arrest the ice `nation` delegation, you cannot stop this.
+- Rome is going to pay tribute -- like a defeated `nation` begging for mercy?
+- And it will take over the ice `nation` from now on, the gate stays closed.
+- The `nation` will provide for you and the children if anything happens to me.
+- But, since the fire, a completely new spirit has been aroused in the `nation`.
+- I am dr. cosmo mckinley and this is my sister, and colleague, `nation` mckinley.
+- Here, jeff, i'll advance it for you.-- fine introduction to the `nation`'s capital!
+- This picture was taken when mrs. reagan was first lady of the `nation`, yes, yes?
+- Before we knew it, we created the most popular men's magazine in the entire `nation`.
+- Once it's done and we're out of your hair, all power, all wisdom it's the ice `nation`.
+- He was part of the seminole `nation`, got pushed down into the everglades in pioneer days.
+- The `nation`'s cradle -- january first -- the first major event of our two hundredth year.
+- King of the ice `nation`, actually, symbol, h-e. just because your fat head's on the track.
+                 

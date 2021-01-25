@@ -1,0 +1,64 @@
+---
+title: "period in a sentence | period example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "period"
+---
+- Just `period`, i think.
+- I missed first `period`.
+- Do you like the `period`?
+- You'll be gone, `period`.
+- I'm not getting my `period`.
+- Do not go to fourth `period`.
+- My cardigan sweater `period`.
+- You couldn't do it, `period`.
+- You get fifty a day, `period`.
+- I got my `period` this morning.
+- I think i just got my `period`.
+- That leaves haldeman, `period`.
+- We'll never talk again `period`.
+- Will be in their sleep `period`.
+- That's the only reason, `period`.
+- You got your waiting `period`.
+- Do you wanna skip fourth `period`?
+- Jesus christ she got her `period`.
+- So who do you have first `period`?
+- It's never going to stop, `period`.
+- We're there for those stones, `period`.
+- Go through a three-day waiting `period`?
+- Bullshit...over that `period` of time...?
+- I don't have class until second `period`.
+- I hope so... whew, that wasn't a `period`.
+- Just... well don't you have your `period`?
+- You-you- you must be getting your `period`.
+- We don't have much time until eighth `period`.
+- Lookit, you see the peak `period` ratios there?
+- Unless he makes a move during seventh `period`.
+- What sort of time `period` do you have in mind?
+- It was first `period`, hey, i found the breakers.
+- I don't think we should cover the story, `period`.
+- I never really...went through a... dating `period`.
+- Maybe the blood was from your `period` like before.
+- In fact, we never knew she had any friends `period`.
+- By the way, shouldn't you have had a `period` by now?
+- My client proposes a thirty day cooling off `period`.
+- You'll find it in all the literature of the `period`.
+- You want to skip fourth `period` and go to the ridge?
+- I'm just a man who wants to save his people, `period`.
+- You never seen blood on a chick's sheets from her `period`?
+- Sharing my cigarettes between... - fifth and sixth `period`.
+- The president took her into the oval office, for a `period`...
+- You're there to gather information on their operations, `period`.
+- So much has happened during the `period` of your indisposition, sir.
+- Adolescence is a `period` of life fraught with anxiety and confusion.
+- We kissed at my door and next thing i knew i woke up with my `period`.
+- I haven't had my `period` for three months and my stomach is getting big.
+- Well, you're here for a ninety-day observation `period`, mister mcmurphy.
+- I'm going through a `period` of my life where i just can't be around people.
+- Have you just never had one with kevin -- or have you never had one, `period`?
+- This technique, in certain cases, can re-stimulate life for a limited `period`.
+- Six girls over a `period` of 18 months, and give or take a head or two, the m.o.
+- They know very little about the jurassic `period` they know less about the cretaceous.
+- Back pay covering the `period` of unemployment and... by god you <u>will</u> settle it!
+- No, i think it means, "recall `period` mistake," and the ope is probably the crm-114 code.
+                 

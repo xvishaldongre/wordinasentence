@@ -1,0 +1,57 @@
+---
+title: "attempt in a sentence | attempt example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attempt"
+---
+- An `attempt` to ruin us!
+- Do not `attempt` discussion.
+- It wasn't a suicide `attempt`.
+- The `attempt` on russell's life.
+- Your cunning `attempt` to trick me.
+- ...an `attempt` at humor, i suppose.
+- I wouldn't `attempt` the impossible.
+- So it looks like a burglary `attempt`.
+- This isn't an `attempt` to be gallant.
+- No `attempt` to overpower the terrorists?
+- The elders may not choose to `attempt` it.
+- Will he `attempt` any individual vendetta?
+- Captain, shall we `attempt` to return fire?
+- It was foolishness to `attempt` this portrait.
+- There was an `attempt` on the king's life today.
+- We could `attempt` to find some humpback whales.
+- I'd make no further `attempt` to find jacqueline.
+- They're going to `attempt` another assassination.
+- This is your fifth `attempt` to slay the monster.
+- You won't want to `attempt` to get into my pants.
+- We got word there may be an `attempt` to steal it.
+- Every `attempt` to fight them has ended in failure.
+- What if, just say, there was a kidnap `attempt`?
+- Apparently it was their fourth `attempt` at the dnc.
+- Neither my wife nor i will `attempt` to leave krypton.
+- You must prevail upon him not to `attempt` the journey.
+- It's all part of his pathetic `attempt` to be "the man."
+- Doctor, i `attempt` to conduct my social life discreetly.
+- An `attempt` should at least be made to capture him alive.
+- I will `attempt` to compensate by altering our trajectory.
+- Sheila makes a pathetic `attempt` to speed away from theo.
+- Any `attempt` to get there will be met by overwhelming force.
+- Did the police make any `attempt` to phone you, to follow up?
+- It�s just my rather feeble `attempt` to.... oh, i don�t know.
+- Read what it says: "warning, do <u>not</u> `attempt` to open.
+- Did you notice anything strange before she made the `attempt`?
+- If it really is the event horizon, they'll `attempt` a salvage.
+- It was an early `attempt` to solve the problems of global warming.
+- Taktra rinpoche, i understand there was an `attempt` on your life.
+- Just the same, an `attempt` to recover the grail is currently underway.
+- The first assassination `attempt` was in '60, just before the election.
+- So you weren't involved with him in his pathetic `attempt` to diversify?
+- Either you let murphy die in a doomed `attempt` to save her, - where is he?
+- Captain spock and i will `attempt` to trace these whale songs to their source.
+- How far in one `attempt` -- what's the farthest someone like myself could walk?
+- Our songs, our dreams, our seeds are all just a brave `attempt` to live forever.
+- There are those who `attempt` both at the same time but i find it course and vulgar.
+- Where were you staying before the `attempt` on your life and why can�t you go back there?
+- You know that big scrap hold, but if you `attempt` to replicate biological material, y...
+- You realize, sir, that they will `attempt` to contact admiral kirk and confirm the order.
+                 

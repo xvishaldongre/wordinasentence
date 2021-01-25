@@ -1,0 +1,107 @@
+---
+title: "almost in a sentence | almost example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "almost"
+---
+- He `almost` killed me.
+- He was `almost` there.
+- I `almost` killed you.
+- I can `almost` see it.
+- I feel `almost` human.
+- I'm `almost` finished.
+- It...`almost` got you.
+- It `almost` went well.
+- It's `almost` morning.
+- It's `almost` sunrise.
+- It was `almost` fatal.
+- They're `almost` done.
+- They're `almost` here.
+- This is `almost` 1946.
+- You `almost` hit mews.
+- You're `almost` there.
+- `Almost` a 133 average.
+- `Almost` there, ladies.
+- I am `almost` an adult.
+- I'm `almost` afraid to.
+- I'm `almost` done, sir.
+- It `almost` killed him.
+- It's `almost` midnight.
+- Summer's `almost` over.
+- We're `almost` married.
+- We're `almost` through!
+- `Almost` as good as you.
+- `Almost` the same thing.
+- But it's `almost` lunch.
+- I `almost` believed him.
+- I `almost` saw catalina.
+- I `almost` wish... fine.
+- It's `almost` lunchtime.
+- Oh -- i `almost` forgot!
+- Oh -- i `almost` forgot.
+- Oh, i `almost` forgot...
+- Yeah, `almost`... c.r.s.
+- `Almost` fifty years ago.
+- `Almost` makes you worse.
+- `Almost` no one finds it.
+- I'm `almost` ready - shh!
+- It's `almost` in the bag.
+- It's `almost` like a law.
+- It's `almost` six thirty.
+- Now it's `almost` double.
+- Rover's `almost` charged.
+- (screams) `almost` there.
+- That's `almost` a record.
+- They `almost` killed him.
+- We `almost` got this off!
+- Well, it's `almost` over.
+- We rejected `almost` 100.
+- You `almost` convince me.
+- You're `almost` drooling.
+- `Almost` didn't come back.
+- Haven `almost` killed him.
+- It `almost` like hypnosis.
+- It's `almost` like flying.
+- It's `almost` psychedelic.
+- It's `almost` second moon.
+- It's `almost` ten o'clock.
+- Oh man, i `almost` forgot.
+- That `almost` killed maya.
+- That bag's `almost` empty.
+- The moon is `almost` gone!
+- This war is `almost` over.
+- We're `almost` never here.
+- We're `almost` there, lib.
+- We're `almost` to the sea.
+- Whoops, `almost` had that.
+- Whoops, `almost` lost one.
+- `Almost` a christmas scene.
+- `Almost` isn't good enough.
+- `Almost` took my thumb off.
+- Another week `almost` made.
+- Eight, `almost` nine years.
+- He sounds `almost` perfect.
+- I `almost` didn't wake you.
+- Oh, i `almost` judged them.
+- She `almost` got us killed.
+- She `almost` sounds scared.
+- Tell her i'm `almost` home.
+- They `almost` had us there!
+- We `almost` done, ain't we?
+- Well, we're `almost` there.
+- You `almost` got us killed!
+- You `almost` had me fooled.
+- `Almost` got me in billings.
+- `Almost` out of moon potion.
+- I `almost` got digested.
+- But `almost` time to refill.
+- Enough to `almost` kill him.
+- I `almost` got married once.
+- I'm `almost` done making it.
+- It's `almost` time to leave.
+- Relax, we're `almost` there.
+- She's `almost` all well now.
+- We're `almost` there, amigo.
+- We're `almost` to the stone.
+- You `almost` sound like him.
+                 

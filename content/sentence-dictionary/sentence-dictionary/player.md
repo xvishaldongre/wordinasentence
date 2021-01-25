@@ -1,0 +1,87 @@
+---
+title: "player in a sentence | player example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "player"
+---
+- I am a small `player`.
+- Well, a ball `player`.
+- Who's the top `player`?
+- Can you love a `player`?
+- You're a chess `player`.
+- You a good pool `player`.
+- A sax `player` and a base?
+- Look, you're a `player`...
+- A hired `player` no longer.
+- You're not a team `player`.
+- Where's the hockey `player`?
+- You are a paycheck `player`.
+- What about a record `player`?
+- She married a hockey `player`.
+- You're a pretty good `player`.
+- He said he was a card `player`.
+- Hey, you want a music `player`?
+- I'm really a fabulous `player`.
+- You never were a team `player`.
+- Put a record `player` out there?
+- You got yourself a pool `player`.
+- How's my favorite `player`'s wife?
+- Them boys are real `player` haters.
+- I can't be a pro motorball `player`.
+- One's a pretty good guitar `player`.
+- I was undercover as a tennis `player`.
+- A gay tennis `player` from the forties?
+- Yeah, well my stereo `player` is broke.
+- You have always been a fringe `player`.
+- You-you're a wonderful tennis `player`.
+- I bet you're a damn good poker `player`.
+- Who's your favorite basketball `player`?
+- Ask him if he needs a good tuba `player`.
+- Newmeat looks like a poker `player`, drag.
+- Why would a bit `player` impress a backer?
+- She's the best poker `player` you ever saw.
+- Your boss is quite a card `player`, carver.
+- By the way, i'm not much of a pool `player`.
+- I've got the panasonic portable dvd `player`.
+- I'm meeting a `player` from temple university.
+- You know the football `player`, red g- grange?
+- This baseball `player` you're going out with...
+- He's "sang froid," a world-class poker `player`.
+- My wife is the game `player` in the family, sir.
+- She was a bit `player` in a couple of my movies.
+- You're a terrific chess `player` mr. danvers.
+- For fifty pounds my hired `player` days are over.
+- It's the best thing a motorball `player` can win.
+- Or that you're not even close to a team `player`.
+- The man happens to be a major hollywood `player`.
+- As a fellow `player` on the international stage, mr.
+- No -- i wanted to be a professional hockey `player`.
+- Frances farmer, contract `player`, six- month option.
+- No, it should be 'a hockey `player` with great pecs.'
+- That's lubosh, the greatest fiddle `player` in prague.
+- All this stuff to pick a football `player` for your squad.
+- Every few years they choose a `player` that can be beaten.
+- I died, and i'm inside the body of this football `player`.
+- I thought maybe you could play it for me on your `player`.
+- So they let you tote that record `player` down there, huh?
+- I wanted you to be the best baseball `player` in the world.
+- No, jor-el, the baseball `player` that came from porto rico.
+- She's going out with this baseball `player` -- greg barnett.
+- One `player` for this round, and i'm asking you to step down.
+- My dad had, like, a victrola, you know, an old record `player`.
+- For three years now, i've been living with a saxophone `player`.
+- Thinks he's some `player` cuz he hustles dope and stolen hubcaps.
+- It's about a ball `player`, a rookie shortstop that's batting 347.
+- Look for specific things, like `player`'s ages... stuff like that?
+- Sit down, o'connell, sit down, we could use another good `player`.
+- Anyway, big billy needed another `player` so he yelled into the stands.
+- It's like i'm a basketball `player` or a... you know, like i'm someone.
+- One is a cello `player` in the opera and the other a street-car conductor.
+- I think we can handle whatever your ancient hockey `player` can throw at us.
+- I was wondering where they're going to get another tuba `player` for the band.
+- Now, anne, you remember how much it cost to get rid of that baseball `player`?
+- At a time when no-one's job is safe, it really identifies you as a team `player`.
+- I would like to do a speech by a writer who commands the heart of every `player`.
+- Any minute now those gorillas may be up here - that's when i was a saxophone `player`.
+- To be the wife of a poor `player`?--can i wish that for lady viola, except in my dreams?
+                 

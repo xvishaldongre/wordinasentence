@@ -1,0 +1,107 @@
+---
+title: "contract in a sentence | contract example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "contract"
+---
+- It's in my `contract`.
+- I've got a `contract`.
+- Is that the `contract`?
+- The fucking `contract`!
+- You signed a `contract`.
+- Is there a `contract`?...
+- That's in the `contract`.
+- Who's got the `contract`?
+- Your `contract` went out.
+- The `contract` was stolen.
+- Now ve sign the `contract`.
+- `Contract` players at metro.
+- He stole another `contract`.
+- It's a `contract` violation!
+- You got a record `contract`?
+- Yeah, it's in the `contract`.
+- A `contract` it is, two years.
+- I never signed the `contract`.
+- I need this highway `contract`.
+- That and a fat, new `contract`.
+- Are you breaking the `contract`?
+- I just re-wrote your `contract`.
+- It means a breach of `contract`.
+- They didn't get your `contract`.
+- But let's look at the `contract`.
+- Sign 'em to a big fat `contract`!
+- You're not renewing my `contract`.
+- Because he took a `contract` on you.
+- I want a run of the play `contract`.
+- Looks like i just lost a `contract`.
+- We were under government `contract`!
+- You've never *seen* this `contract`.
+- You have a `contract` with your wife.
+- Your `contract` went out to the bank.
+- Your dad never signed his `contract`.
+- A long-term `contract` with no options.
+- Is this a `contract` violation, mr. cobb?
+- The man who hired me for this `contract`.
+- But a first `contract`, it's an exception.
+- She wants out of her `contract`, mr. bebe.
+- Or his signature would be on the `contract`.
+- You know that pardon= `contract` you signed?
+- Asked me if there was a `contract` out on 'im.
+- If only you'd remained true to our `contract`!
+- I gotta keep you alive--it's in my `contract`.
+- I wouldn't worry too much about this `contract`.
+- They say the yakuza has a `contract` out on you.
+- Trying to break our `contract` again, mr. stone?
+- He came down after the game with a `contract`.
+- ...as long as you know it's not in your `contract`.
+- I signed the termination `contract` for baer/grace.
+- One night in a year i left a `contract` on my desk.
+- So he's personally issued the `contract` on israel?
+- A `contract` means getting all chances on your side.
+- How old were you when you had your first `contract`?
+- Now how did you know that `contract` was on my desk?
+- Frances farmer, `contract` player, six- month option.
+- I turned the `contract`, eight units eighty-two grand.
+- We're on the verge of closing a large navy `contract`.
+- A simple gesture that binds you to a `contract` - yeah.
+- The company's already agreed to pick up your `contract`.
+- There's this million-page `contract` -- do they show it?
+- If bain hadn't taken the `contract` on me, would you have?
+- We'd like to talk to you about taking over his `contract`.
+- That the company has agreed to pick up your `contract`?
+- Barton, capitol pictures wants to put you under `contract`.
+- Hopin' you could tell me if there's a `contract` out on me.
+- No, you're under `contract` and you're gonna stay that way.
+- Our `contract` guys are working on the kross pension funds.
+- But your `contract` stipulates a max budget of 500 thousand.
+- He stole the `contract` knowing that i would come after him.
+- The bonus on the `contract` for you was one million dollars.
+- Uh, i don't think that's in my `contract`... no it couldn't.
+- So you haven't got a `contract` to get stolen or so forth.
+- Average price of $47 a share and $4 per `contract` for the call.
+- Now we hope you'll sign a `contract` to appear five times a year.
+- What's this supposed to mean: "we have a `contract` of depravity.
+- No, that young lady has a `contract`, and she's going to honor it.
+- He did...with a crowbar...you know the rules on a broken `contract`.
+- Linen supply business or cement and `contract`, you know what i mean?
+- I did not-- and you say you never signed this `contract` with mr. allen?
+- He's now in the process of negotiating for a `contract` here in sicily...
+- Look, mr. bebe, you can hold me to my `contract`, but you can't break me.
+- Gimme a second here... tidwell... arizona `contract`... new glass cabinet...
+- I bought it for him -- all the stuff he was using, it was in his `contract`.
+- I hear you're meeting with the studio lawyers to get out of your `contract`.
+- It's not an age thing -- i guess -- i don't -- it's all in the `contract`.
+- It says in the `contract` i can have a lock fitted - is there a problem angela?
+- Convicts, `contract` killers, murde... you wanna find out about rats, ask a rat.
+- If she was so keen on getting him in here, why wouldn't she sign the `contract`?
+- They had to shape up their employment practices to keep this defense `contract`.
+- I try to be good; the only thing i care about is... <u>forget</u> the `contract`.
+- Are you willing to give me your son in exchange for an extension of our `contract`?
+- This here's a lawful `contract`... betwixt me an' delilah fitzgerald, the cut-whore.
+- Mr. shaw, have you ever been a `contract` agent with the central intelligence agency?
+- You can never work in the business again with this `contract`, because he will find you.
+- That would translate to government guaranteed `contract` in excess of 35 million dollars.
+- My next `contract`'s gotta bring me the dollars that'11 last me and mine a very long time.
+- So i simply made sure the japanese consortium received the systems integration `contract`.
+- The `contract` would have been mine, but bain took it from me as he took the previous one.
+                 

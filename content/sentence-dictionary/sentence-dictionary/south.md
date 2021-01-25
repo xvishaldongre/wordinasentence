@@ -1,0 +1,107 @@
+---
+title: "south in a sentence | south example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "south"
+---
+- Like the `south` here.
+- I'm just going `south`.
+- `South` dakota - north?
+- Went to `south` dakota.
+- And ptah to the `south`.
+- I 95, north and `south`.
+- I'm from `south` dakota.
+- Over the `south` summit.
+- What if it goes `south`?
+- Why the `south` latrine?
+- `South` foxhole all done?
+- He went `south` yesterday.
+- It's `south` of salisbury.
+- Maybe i'm too far `south`.
+- This isn't `south` africa.
+- Your windows face `south`.
+- Not down `south` you don't.
+- (pm) of the `south` summit.
+- Rapid city, `south` dakota.
+- Girls trip to `south` korea.
+- I'm at the sheraton `south`.
+- You're at southglen `south`?
+- Boy, that is the real `south`.
+- Just below the `south` summit.
+- Just below the `south` summit.
+- `South` foxhole, report now.
+- `South` of here, past chimayo.
+- Then you piss-off the `south`.
+- We're going to `south` africa!
+- You coming to `south` america?
+- You go north, i'll go `south`.
+- `South`-east ridge as well.
+- Jasper: `south` hallway's clear.
+- She went back to `south` africa.
+- `South` dakota - but on the top.
+- Come on, boy, let's kick `south`.
+- It's different in `south` africa.
+- [the address is 147 `south` rane.
+- They're in the `south` stairwell!
+- We'll go `south` and cut her off.
+- For everyone in the `south` woods.
+- I'm talking north pole to `south`.
+- Not far from here, `south` boston.
+- Oh... `south` georgia, antarctica.
+- The host of the old `south` hotel.
+- Yeah, he went `south` ahead of us.
+- At the `south` col that we can use.
+- Fly `south` -- hook up with adrian?
+- He's just below the `south` summit.
+- Hicks, meet me at the `south` lock.
+- Take your people and scout `south`.
+- They all go `south` for the winter.
+- Uh, it's a deep `south` expression.
+- Sure as hell not in the `south`.
+- Got the imax team, `south` africans.
+- I can't go all the way down `south`.
+- If things go `south`, you unplug me.
+- Just `south` to baltimore, maryland.
+- `South` american insurgency tactics.
+- The breeze could be gusting `south`.
+- There's no oxygen at `south` summit.
+- Bottles of gas at the `south` summit.
+- I can't go back to southglen `south`.
+- They practically own `south` america.
+- Bart and i are going to `south` korea.
+- Go relieve monroe on the `south` wall.
+- Josh and i are going to `south` coast.
+- My guards are from `south` africa, mr.
+- `South` african women are very sporty.
+- When i'm not in the `south` of france.
+- You are cleared for `south` departure.
+- You must come from pretty far `south`.
+- Do you remember much of `south` africa?
+- Somewhere in `south` america, i forget.
+- Still waiting for the `south` africans.
+- Back in `south` africa... long time ago.
+- Don't forget the `south`, sir, the west.
+- From here, we go `south` to the red sea.
+- I think i can make it to `south` boston.
+- The first blow'll come from the `south`.
+- What do you think about `south` america?
+- You've done your homework, mrs. `south`.
+- From seoul, `south` korea to springfield.
+- Richmond is not all the way down `south`.
+- We got movement outside the `south` wall!
+- Three nights charleston, `south` carolina.
+- Another one, but it's from the `south`.
+- Friday, evac anyone `south` of 43rd street.
+- In `south` africa the numbers were small...
+- Maybe it'll swing `south` like the last one.
+- There's oxygen at the `south` summit, right?
+- My ma told me to head `south` past that rock.
+- One's from india, one's from `south` america.
+- The `south` africans were laid out at camp 3.
+- We're still waiting for the `south` africans.
+- Climbers back from the `south` col last night.
+- We have a settlement 50 miles `south` of here.
+- Emily's going `south` next week with the child.
+- Storm, rogue, -- you take the `south` entrance.
+- Bartender said there are motels `south` of here.
+                 

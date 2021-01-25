@@ -1,0 +1,53 @@
+---
+title: "uses in a sentence | uses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "uses"
+---
+- He has his `uses` too.
+- Nobody `uses` that gate.
+- `Uses` it to contemplate evil.
+- My mom `uses` color-safe bleach.
+- Seymour never `uses` semicolons.
+- Everybody `uses` a different name.
+- Hey, ok if gordy `uses` your old gear?
+- He `uses` people and -- he was a loser.
+- Patchett `uses` a lot of ex-cop muscle.
+- It `uses` sound waves to pulverize rock.
+- My wife `uses` it, the kind with a brush.
+- Nobody `uses` delayed-fuse mines anymore.
+- `Uses` one of his wishes to set him free.
+- But this thing `uses` it for <u>blood</u>.
+- He smashes the mirrors and `uses` the pieces.
+- He `uses` women; he lets them kill themselves.
+- It `uses` an alphabet, same as english, - guys!
+- He `uses` them the way other men use their fists.
+- We have to stop him before he `uses` the nanobot!
+- A jedi `uses` the force for knowledge and defense.
+- The more energy she `uses`, the more tired she gets.
+- He `uses` his personality as a form of birth control.
+- Billion people in china, and everyone `uses` my phone.
+- He's such a rest actor, and nobody `uses` him anymore.
+- Memory capture `uses` a laser-guided neural interface.
+- My partner `uses` these every time we have intercourse.
+- He `uses` castles...plural -- then says "can't move me."
+- It's the gun that nigga on "new york undercover" `uses`.
+- The answer is something to do with how he `uses` the mirrors.
+- He `uses` the wire too much, he gets off on tape, not on you.
+- Besides, i'm surprised a tough guy like you `uses` fancy electronics.
+- Well, where mr carroll `uses` the word 'love', i look for a new word.
+- The usual motivation doesn't apply to him, nor the way he `uses` them.
+- The answer is... ♪ wonderful you ♪ how come no one `uses` these things?
+- His cryo-suit `uses` diamond enhanced lasers to keep him at zero degrees.
+- Before you find too many `uses` for these books would you read some to me?
+- He `uses` you to get a line on ordell, make a case, then take him federal.
+- I recommend her majesty `uses` the covered carriage with a full horse guard.
+- There's 80 some `uses` for this stuff, something like five hundred products.
+- You've got that room downstairs with the treadmill luke never `uses` anyway.
+- There's a certain kind of wounded young man who `uses` his oddness to get laid.
+- I hear he's got a whetstone and chisel, and he `uses` them to sharpen his teeth.
+- God cares nothing for the man he denies and nothing either for the man he `uses`.
+- `Uses` it to upload our minds by then, this mild ankle sprain should be good as new.
+- She `uses` us to war against france on her own account... of greed for land and furs.
+- How many innocent lives have you sacrificed, whenever she `uses` her powers, she gets weak.
+                 

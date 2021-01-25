@@ -1,0 +1,77 @@
+---
+title: "elevator in a sentence | elevator example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "elevator"
+---
+- He's in an `elevator`.
+- This is an `elevator`.
+- In the same `elevator`.
+- Where's the `elevator`?
+- We're in the `elevator`.
+- Yeah, and an `elevator`.
+- `Elevator` in switzerland.
+- Why is there no `elevator`?
+- And maxie the `elevator` man.
+- Check the fucking `elevator`.
+- Don't go near that `elevator`.
+- No `elevator` either and shit.
+- The `elevator` wasn't working?
+- I got pinched in the `elevator`.
+- It's some kind of....`elevator`.
+- Let me walk you to the `elevator`.
+- You waved to me in the `elevator`.
+- But el gordo missed the `elevator`.
+- I'm approaching the `elevator` now.
+- I remember you...in the `elevator`.
+- The `elevator` shaft is just ahead.
+- Applejack's stuck in the `elevator`?
+- You got an `elevator` in this house?
+- I'd better get back to my `elevator`.
+- I'll walk you back to the `elevator`.
+- So you got pinched in the `elevator`.
+- Come on, there's a service `elevator`.
+- The `elevator` shaft is our only way in.
+- You'll have to take the next `elevator`.
+- Sir, can you hold that `elevator`, please!
+- I'm walking towards the `elevator`'s, janet.
+- She's in the `elevator` heading toward ethan.
+- That `elevator` has the capacity for 32 people!
+- If `elevator` stops, use emergency... " why not?
+- Just a little trick i picked up in the `elevator`.
+- Oh, great, we're going to die to `elevator` music.
+- And rorschach dropped him down an `elevator` shaft.
+- But the first time i saw you was in the `elevator`.
+- Say, did your ears pop coming up in the `elevator`?
+- Ya know, i was trying to hold the `elevator` for you.
+- It blows up and pulls the diver up like an `elevator`.
+- Once we're up, you blow the `elevator` and then climb.
+- Would i like to get her on a slow `elevator` to china.
+- I've wanted to since i first saw you in the `elevator`.
+- The `elevator` disaster downtown on the news last night.
+- Which is very nice because it has the service `elevator`!
+- Have a security team meet me at deck four main `elevator`!
+- There's just an `elevator` that drops you halfway to hell.
+- This `elevator` will experience a momentary lapse in gravity.
+- The only mistake is that they didn't kill us in the `elevator`.
+- I got our scepter in the `elevator` just passing the 80th floor.
+- We sort of met in the `elevator` -- pop, this is important to me.
+- Take the radio, stay down here in the lobby, watch the `elevator`.
+- I feel like i'm on an `elevator` how the hell does he know about...
+- You see we have a picture of them from the `elevator` security cam.
+- Well...there's an old service `elevator` half a mile down the tracks.
+- We took out the `elevator` _ i tried to stop her, but i lost control.
+- Five, four, three, we're on an express `elevator` to hell, going down.
+- By the power vested in me, i herewith declare this `elevator` out of order.
+- I'm about to get off the `elevator` -- doc, just - don't, how close are you?
+- For god's sake, the only way i can get from one `elevator` to the other is to jump.
+- He's dead batore he's oft the `elevator` get me a trephine tray - anesthesia - stat!
+- I wasn't told about this until marie informed me as soon as i got off the `elevator`.
+- You see, this `elevator` will stay on the surface i'll never be able to pay that bet.
+- We took out the `elevator` once our friends are safe, they're going to shallow valley.
+- So we went in the room, and then it turned into an `elevator`, for what happened to us.
+- You know, you're the only one around here who ever takes his hat off in the `elevator`.
+- Did you shoot them on the `elevator`, as they were on their way up here to eat us alive?
+- Highly unusual, the `elevator`, you will not find this in ninety percent of brownstones.
+- Some assholes on the `elevator`... are these bitches on a permanent smoke break or what?
+                 

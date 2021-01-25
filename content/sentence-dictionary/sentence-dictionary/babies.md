@@ -1,0 +1,78 @@
+---
+title: "babies in a sentence | babies example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "babies"
+---
+- I mean, people `babies`?
+- You guys are such `babies`.
+- You mean `babies` with you?
+- Agnes, how are `babies` born?
+- Isn't that how `babies` come?
+- The `babies` love that stuff.
+- `Babies` need a lot of things.
+- Grown men cried like `babies`.
+- Would'ya look at this `babies`?
+- They're always tormenting `babies`.
+- Some of them smell.. `babies` smell.
+- There's time for more `babies` later.
+- Does she know anything about `babies`?
+- Some people collect beanie `babies`...
+- Where do you think `babies` come from?
+- That makes good `babies` start to grow.
+- Baby, there are beautiful `babies` here.
+- It was after the war; we needed `babies`.
+- I'd like to jerk and press those `babies`.
+- I don't know where good `babies` come out.
+- Don't be ridiculous, these are my `babies`.
+- I went and looked at some `babies` just now.
+- I don't shoot `babies` and i don't kiss guns.
+- It's that lsd und his verdampter `babies`!...
+- Get a job, get married, start having `babies`.
+- I mean people `babies`...they grow inside you?
+- If they're only `babies`, then you pick 'em up.
+- You gotta get out with some beautiful `babies`.
+- `Babies` cry because they're afraid of the dark.
+- Don't worry, these `babies` are built for speed.
+- I haven't had a lot of experience with `babies`.
+- I heard they give away `babies` like free ipods.
+- Mostly...little `babies`, but...not exclusively.
+- But marge always told me it's always the `babies`.
+- They got a bungalow and lots of beautiful `babies`.
+- How i'd love to fix those `babies` but� nice fellows.
+- See any stars, politicians, deliver any `babies` yet?
+- Well, you being here, so our `babies` can be friends?
+- It�s where `babies` go when their parents are at work.
+- Oh, you mean you...fix the hearts...of little `babies`?
+- I've always wanted to take one of these big `babies` in.
+- Punching and hugging each other is boring bs for `babies`.
+- Most all the `babies` i delivered were from local families.
+- They are not `babies`, maria, merely "human possibilities".
+- She doesn't even know how `babies` are born, let alone made.
+- There are children, `babies`... are you gonna kill children?
+- There's going to be test tube `babies` and heart transplants.
+- Congratulations, `babies`, we've learned some great signs today.
+- If i could put this over, your mrs. burke can have six `babies`!
+- Goldsmith's gonna be plenty pissed at losing one of her `babies`.
+- Gunshot wounds, fixing `babies`--if you can pay he can handle it.
+- Seems like the hospital might've scrambled the `babies` somewhere.
+- Tee, the beautiful `babies` don't work wednesdays midnight to six.
+- Listen to me, baby, there are going to be beautiful `babies` there.
+- No wonder... wait... agnes... agnes how do you feel about `babies`?
+- Not in my time... has anyone ever broken in to where the `babies` are?
+- I thought that if `babies` were on the plane, the plane couldn't crash.
+- The simplest thing in the world: i want to have a lot of `babies` with you.
+- She said she wanted to be by my side and have inter-racial `babies` with me.
+- But all the `babies` were crying, and i thought they knew something i didn't.
+- `Babies` amateurs 2 hopeless i right, right, cross with the left, spin and turn!
+- I tell you, there's something about the premature `babies` of alcoholic mothers.
+- People who fall in love and have `babies` and occas- sionally are very happy.
+- Soldiers there murdered old folks, women and `babies`, and dumped 'em in a trench.
+- To the destruction of mount weather we're both pregnant with big moose's `babies`.
+- You're heading up the division in charge of `babies` for mr. and mrs. simon kurtz.
+- Alright, the one on the airplane had an accident, but usually `babies` don't smell.
+- Once those `babies` kick in, they're gonna remove my organs, and make me a woman!
+- Then, if i don't have any `babies` to deliver-- are you planning on working tomorrow?
+- Men, human men, put them on their, uh -- penises -- to protect against having `babies`.
+- Go on out and get married and have a lot o' `babies`�but stay out o' newspaper business!
+                 

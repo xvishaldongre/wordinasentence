@@ -1,0 +1,75 @@
+---
+title: "expensive in a sentence | expensive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "expensive"
+---
+- It's very `expensive`.
+- Hey, cabs are `expensive`.
+- It's much too `expensive`.
+- That's an `expensive` gun.
+- It's a... very `expensive`.
+- It can get real `expensive`.
+- It's a very `expensive` car.
+- ...and your `expensive` ship.
+- Was it `expensive`, the beer?
+- That must've been `expensive`.
+- Which is insanely `expensive`.
+- They are very `expensive` here.
+- This is an `expensive` service.
+- Children are damned `expensive`.
+- Yes ... and not too `expensive`.
+- But posters are very `expensive`.
+- You know, i'm pretty `expensive`.
+- Hey, hey, this stuff is `expensive`!
+- I know it's `expensive`, - jonathan!
+- It's not as `expensive` as you'd think.
+- Dartmouth's too big and too `expensive`.
+- Film making can be pretty `expensive`...
+- It seems like an `expensive` undertaking.
+- ...a rather `expensive` piece of hardware.
+- Don't that get kind of `expensive`, cap'n?
+- They're `expensive` but you can afford it.
+- For one thing, you like `expensive` things.
+- I found that a very `expensive` hobby, too.
+- I always thought that stuff was `expensive`!
+- I mean, this trip sounds really `expensive`.
+- I'm looking for some cars, `expensive` ones.
+- You mean, like a lot of `expensive` jewelry?
+- Do you know how `expensive` it is down there?
+- Yeah, and there's no business as `expensive`.
+- God, these apartments are super `expensive`...
+- Cause she's going to be very, very `expensive`.
+- The new world proves `expensive`, your majesty.
+- Of course, it would be an `expensive` picture...
+- The picture laid an egg, a great `expensive` bomb.
+- You're talking about a very `expensive` risk here.
+- I... the-the tincture is more `expensive`, i guess.
+- Everything is lovely, ted, but much too `expensive`.
+- Remember -- spike owes you an `expensive` dinner.
+- What do you hope to buy with this... `expensive`?
+- He's an estate attorney -- and he's very `expensive`.
+- I called as soon as i heard... tuition�s `expensive`.
+- Well, this place is too `expensive` so you've had it.
+- Won't those two years in court be `expensive` for you?
+- Hola, bienvenido hola, juanito then they're `expensive`.
+- You've got an `expensive` razor girl on me for a reason.
+- Not too `expensive` -- i'm not a lady of leisure anymore.
+- This place is getting `expensive` too, used to be twelve.
+- They're too `expensive` a toy for two children to play with.
+- I'm covered in very `expensive` egyptian mud -- hardly naked.
+- But you see, it's a very `expensive` bag--one has to be careful.
+- They're noisy, they're messy, they're sticky, they're `expensive`.
+- You know... it's getting `expensive` my analyst... for her analyst.
+- Jesus, i mean, come to think of it socks are pretty `expensive` now.
+- Goddamn-it, joseph, you own two mansions, ride in an `expensive`, tory coach!
+- Yes, but we have not much money, and traveling is so `expensive` and difficult.
+- The bank has an `expensive` security system; metal detectors and x-ray machines.
+- Now all this -- -- west of the fault is the most `expensive` real estate in the world.
+- Cost a nice penny, too, especially that goddamned phone: gregor had `expensive` tastes.
+- Information like that is very `expensive` and you don't have the balls to pay the price.
+- Mr. kringelein will take room number one-seventy-six, one of our most `expensive` rooms.
+- That's the problem with `expensive` tastes... the more you got, the more you got to lose.
+- This trip is so `expensive`, and mom and dad don't care, that brings me joy in this world.
+- But, don't you find it - i mean apart from everything else - don't you find it `expensive`?
+                 

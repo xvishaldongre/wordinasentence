@@ -1,0 +1,107 @@
+---
+title: "proof in a sentence | proof example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "proof"
+---
+- `Proof` he's declawed.
+- You've got no `proof`.
+- But you've got `proof`!
+- They've got no `proof`.
+- But you have no `proof`.
+- Do you have any `proof`?
+- Intuition is no `proof`.
+- It's an integer `proof`.
+- He is living `proof`.
+- I don't need any `proof`.
+- I just never had `proof`.
+- But you have no `proof`.
+- Ellie, you're the `proof`.
+- Why give her real `proof`?
+- I'll give then `proof`!
+- `Proof` of a unified field.
+- Then we've got our `proof`.
+- Tom didn't ask for `proof`.
+- We've got plenty of `proof`.
+- How much `proof` do you want?
+- It's fool `proof`, basically.
+- Look, it isn't `proof`, okay?
+- That's `proof` mary was here!
+- You should see it as `proof`.
+- Did they show you any `proof`?
+- We don't have `proof` of that.
+- What more `proof` do you need?
+- Your bullet-`proof` waistcoat.
+- But his provocation is `proof`.
+- But i need documentary `proof`.
+- In fact, i brought you `proof`.
+- What kind of a `proof` is that?
+- I need more `proof`, that's all.
+- The `proof` had his throat slit.
+- Bullet `proof` vests don't bleed.
+- Give me time to get some `proof`.
+- I don't have any `proof`, palmer.
+- The only `proof` is those bodies.
+- I've found no `proof` he's around.
+- We don't have any `proof` of that.
+- Push and twist, it's child `proof`.
+- Anything over 45 `proof` burns well.
+- I'm living `proof` of that sad fact.
+- We get some `proof`, then tell them.
+- Whatever happened to bullet `proof`?
+- Do you have any `proof` of this girl?
+- He was wearing a bullet `proof` vest.
+- I have no hard `proof` of any of this.
+- Page `proof` of a book i'm working on.
+- `Proof` that what i told you was real.
+- Nothing she saw is `proof` of anything.
+- But it would be conjecture, not `proof`.
+- How could you come here without `proof`?
+- Unless i have `proof` how can i be sure?
+- Well, actually, <u>you</u> have `proof`.
+- I have no `proof` that it was false data.
+- I've found no `proof` he was ever around.
+- The ship's supposed to be meteor-`proof`.
+- Elegant `proof` of intelligence, isn't it ?
+- There's no real `proof` that tobacco -- no.
+- I have to caution you it's not fool-`proof`.
+- There isn't enough `proof` yet to go public.
+- Without the body we have no physical `proof`.
+- You don't need `proof` when you got instinct.
+- You have no `proof` that it was correct data.
+- Yeah, he had a fool-`proof` scheme, all right.
+- Do you have any `proof` of your employment, mr.
+- What do you want with our scan-`proof` lockers?
+- Believing in something without `proof` is crazy.
+- If i'm gonna blow this up -- i need hard `proof`.
+- There must be some `proof` that exists right now!
+- This on top of the scratches... isn't it `proof`!
+- What if taylor is exactly the `proof` you needed?
+- In the end, i still wouldn't have any `proof`.
+- Embalming people with coffee - eighty-six `proof`.
+- What a gruesome `proof` of the power of the press!
+- `Proof` that the horseman slaughters by assignment.
+- How much more `proof` that he's a traitor do we need?
+- Not just theory and equations-- experimental `proof`.
+- You're offering a deal because you've got no `proof`.
+- Got any `proof` on your butt-probin' aliens yet, murray?
+- But, uh, faith is believing in something without `proof`.
+- We've no `proof`, of course, but we rather think so, yes.
+- Because i need more definite `proof` than this man's word!
+- Then why did your king believe in you without any `proof`?
+- You believe everything they've told you - without `proof`!
+- That's `proof` enough right there of what we're up against.
+- The zapruder film is the `proof` they didn't count on, lou.
+- But if you need `proof` -- what are you going to do, castor?
+- Now suppose you `proof`-read page ten while the water boils.
+- 'cause if they can't find no paper they ain't got no `proof`.
+- You graduating this year will be `proof` that miracles happen.
+- ... we shall need some `proof` of your having resided here, mr.
+- But how convenient that the `proof` of his arrival has vanished?
+- What is the `proof` that a divine spark exists in the simian brain?
+- The messenger said this is both `proof` homer, i found my birth mom!
+- I'm just pumping gas over here, they said they wanted `proof`, right?
+- The hospital is yours; i want it tight, fool-`proof`, 24 hours a day.
+- They have to believe `proof`-positive that their lives are in danger.
+- But i'll tell you, if you ever wanted `proof` god is a man, this is it.
+                 

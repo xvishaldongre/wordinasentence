@@ -1,0 +1,107 @@
+---
+title: "card in a sentence | card example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "card"
+---
+- Did you get my `card`?
+- He gave me his `card`.
+- Send me a post `card`.
+- You hit for my `card`!
+- Your `card` says hutu.
+- I'll need a `card`.
+- I got my report `card`.
+- Just bring your `card`.
+- She took my key `card`.
+- I have a calling `card`.
+- I mean your hole `card`.
+- It's a brand new `card`.
+- Everyone's in the `card`!
+- Okay, who wants a `card`?
+- You're out of the `card`!
+- But-- give him the `card`.
+- I just gave him my `card`.
+- I just need my key `card`.
+- You have a `card` in here?
+- I gave you my `card` there.
+- I'm a credit `card` junkie.
+- Not even a birthday `card`.
+- Sent me a christmas `card`.
+- Can we be out of the `card`?
+- I have his `card` somewhere.
+- It is just a regular `card`.
+- My key `card` isn't working.
+- Or a social security `card`?
+- She paid with a visa `card`.
+- [we have an atm bank `card`.
+- For that credit `card` stuff?
+- Here's your admission `card`.
+- He sent me a birthday `card`.
+- I don't have a credit `card`.
+- Let's see paul owen's `card`.
+- So you took killian's `card`.
+- Spare me the race `card`, oj.
+- He returns to the `card` game.
+- Send her a `card` - something.
+- What'll i do with this `card`?
+- You asked me about the `card`.
+- You like ... left me a `card`?
+- A lousy ten-dollar `card` game.
+- He said he was a `card` player.
+- Hey, how 'bout a `card` for me?
+- I just read your report `card`.
+- Paul, give me your amex `card`.
+- The `card` says so, doesn't it?
+- They deactivated my key `card`.
+- Tim, fill out the alarm `card`.
+- Your `card` won't work anymore.
+- All it takes is a credit `card`.
+- Its calling `card`, if you will.
+- Just put it on my credit `card`.
+- Let me see your identity `card`.
+- You turn in your library `card`?
+- My home number is on this `card`.
+- Name's right there on the `card`.
+- You just ripped my `card` in two!
+- `Card` filing and cabinet dusting.
+- Every warhead has a locator `card`.
+- I have my senior lifesaving `card`.
+- Oh yeah, thanks... take the `card`.
+- This is not some `card` club, 'kay?
+- Will this be cash or credit `card`?
+- Credit `card`, cell phone, aaa `card`?
+- He says they turned the `card` down.
+- It's a carlton fisk baseball `card`.
+- Now this is just a signature `card`.
+- I don't have a goddamn credit `card`.
+- I'll have to run your `card` off now.
+- Can i get that credit `card` from you?
+- I am a `card`-carrying seasonal santa.
+- Let's run a printout on `card` entries.
+- My business `card` reading "associate."
+- That club sucks, they `card` everybody.
+- Well, he doesn't have his green `card`.
+- You sure you want to throw that `card`?
+- But there's a `card` game under the bed.
+- He's waitin' for you in the `card` room.
+- Oh yeah, let me give you another `card`.
+- We'll just sell another baseball `card`.
+- You lost all our money in a `card` game?
+- You sign the `card`, you got to chip in.
+- On an index `card` with some bacon on it.
+- The one who gave you her business `card`.
+- All `card`- board, all hollow, all phoney.
+- I'm going to sound like a hallmark `card`.
+- I've got every credit `card` ever printed.
+- Well, just until i get my pga tour `card`.
+- You came here to give me my report `card`?
+- Credit `card` orders to dummy corporations.
+- It's from jan. you can't look at my `card`.
+- You know, i really should take your `card`.
+- Your boss is quite a `card` player, carver.
+- Best of all, mr. burns signed my `card`.
+- I'm sorry, but they turned down your `card`.
+- I'm sorry, sir, this `card`'s been declined.
+- Just put the rest on my father's day `card`.
+- Just tell me who the bank `card` belongs to.
+                 

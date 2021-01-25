@@ -1,0 +1,60 @@
+---
+title: "degrees in a sentence | degrees example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "degrees"
+---
+- Bearing 328 `degrees`.
+- Latitude 47 `degrees`.
+- `Degrees` and dropping.
+- Three college `degrees`.
+- By west 77 `degrees`, hey.
+- 10 `degrees` from meltdown.
+- Maybe a couple `degrees` over.
+- Gotta be ten `degrees` out there.
+- It must be ten `degrees` in here.
+- It's eight `degrees` off its axis.
+- It's a hundred `degrees`... ...gear?
+- There are varying `degrees` of evil.
+- Ninety `degrees` to the left, i hope.
+- Bring their college `degrees` in here!
+- Now let's move 35 `degrees` southwest.
+- There are `degrees` of truth, officer.
+- Fifty `degrees` below and still falling.
+- Never let it reach fifty degre-`degrees`.
+- Three `degrees` from the central azimuth.
+- The temperature is 1,490 `degrees`, - hey!
+- Three `degrees` off the comets trajectory!
+- It's like eighty `degrees` in this hallway.
+- So reaction temperature is fifty `degrees`.
+- North 38 `degrees`, 54 minutes, .25 seconds.
+- Optimum approach angle is fourteen `degrees`.
+- Longitude 48 `degrees` 06 minutes -- okay, #2.
+- Add five `degrees` to each satellite coordinate.
+- It's shifted a good hundred and eighty `degrees`.
+- My visual says sunny skies and seventy `degrees`.
+- I didn't kill him -- what happened to "`degrees`"?
+- It's going to be over one-hundred `degrees` today.
+- It's hot, moron, only a hundred `degrees` in here.
+- The temperature's up 50 `degrees` from the surface.
+- Vocasity 4000 `degrees` is usually the point of....?
+- There are `degrees` of truth, officer, always `degrees`.
+- Bud, that water's only a couple `degrees` above freezing.
+- Yeah, my knee got folded about 90 `degrees` the wrong way.
+- Give me the `degrees` first, followed by minutes and sec...
+- There's something out there called 73 `degrees`, look into it.
+- But it�s twenty `degrees` outside... fine, she�s the kid�s dog.
+- If the core reaches 1,500 `degrees`, well, where are you going?
+- The sun will heat that thing to over 450 `degrees` within seconds.
+- Willing to bet my life that it's a good deal under fifty `degrees`.
+- You can see the various commendations, honorary `degrees`, et cetera.
+- His cryo-suit uses diamond enhanced lasers to keep him at zero `degrees`.
+- Right standard rudder, z plus five `degrees`... uhura, hailing frequencies.
+- We're 20 `degrees` from finding out what comes after death, saving my friends.
+- If the core temperature reaches 1,500 `degrees`, echo, it's ok. we've got this.
+- One-four `degrees`... ...make your approach vector negative fourteen `degrees`...
+- 283 `degrees`... 15.2 kilometers... we'll stick together till we get orientated.
+- It's coming from ascension 6 minutes 32 seconds, declination -39 `degrees` 2 seconds.
+- The thermal readings inside the house dropped ten `degrees` when the image was recorded.
+- All with advance `degrees` in xenobiology and out to conquer every disease in the quadrant.
+                 

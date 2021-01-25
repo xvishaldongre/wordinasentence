@@ -1,0 +1,81 @@
+---
+title: "brilliant in a sentence | brilliant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brilliant"
+---
+- You'll be `brilliant`.
+- He's a `brilliant` man.
+- You are so `brilliant`.
+- Come on--be `brilliant`.
+- He's really `brilliant`.
+- This one is `brilliant`.
+- What a `brilliant` idea.
+- I think it's `brilliant`.
+- It's fucking `brilliant`!
+- He's a `brilliant` doctor.
+- That's a `brilliant` idea!
+- He's `brilliant`, isn't he?
+- That's fucking `brilliant`!
+- You were `brilliant` today.
+- You - you're `brilliant`...
+- What a `brilliant` diagnosis!
+- Who had that `brilliant` idea?
+- Yes, i think it's `brilliant`.
+- Lord cornwallis is `brilliant`.
+- Because it's a `brilliant` film.
+- `Brilliant` enough to catch you.
+- He's really `brilliant` and all.
+- Oh, craiggy, that's `brilliant`!
+- This shit's fucking `brilliant`.
+- Now, that's a `brilliant` answer.
+- And `brilliant` deductive thinker.
+- `Brilliant`, `brilliant`, `brilliant`.
+- He's pretty `brilliant`, actually.
+- How `brilliant` do you have to be?!
+- It's a completely `brilliant` plan!
+- This is either crazy, or `brilliant`.
+- Destroys that `brilliant` mind of hers?
+- My gosh, those commies are `brilliant`!
+- You're a `brilliant` conversationalist.
+- Quite a `brilliant` fellow... metallurgy.
+- This has turned into a `brilliant` escape!
+- Chiren's surgical technique was `brilliant`.
+- I was `brilliant`, or at least boringly sane.
+- He has a `brilliant` military record, i'm sure.
+- All i'm saying is she's a `brilliant` scientist.
+- Smithers, do you realize how `brilliant` this is?
+- You'll come up with one of your `brilliant` ideas.
+- He does talk like one, but i think he's `brilliant`.
+- No, you were `brilliant` i shouldn't have done that.
+- To generate an emp, which is freakishly `brilliant`.
+- They can send their heartless `brilliant` boy-critic.
+- A `brilliant` man would find a way not to fight a war.
+- All i'm saying is that she is a `brilliant` scientist.
+- Beauty... a `brilliant` career... a wonderful husband.
+- `Brilliant`, vivid, something made of music and fire...
+- He was giving the most `brilliant` little concert here.
+- Terrence was one of the most `brilliant` men i've known.
+- With a little editorial guidance it could be `brilliant`.
+- In the shock of this `brilliant` move, i forgot something.
+- Christoph was a `brilliant` programmer, but very eccentric.
+- You think he caught any of them because he was `brilliant`?
+- After our hero had killed wynant, he got a `brilliant` idea.
+- We get ivan into the comets path-- billy, that's `brilliant`!
+- I haven't read "eternity forever" but i know it's `brilliant`.
+- I have a plan -- and you may rest assured that it is `brilliant`!
+- You're going to be a remarkable director, a `brilliant` director.
+- He was the most `brilliant` law enforcement individual i ever met.
+- I had a `brilliant` plan -- all worked out -- work of genius, it was.
+- `Brilliant` -- unless they were close enough to see the cab pull away.
+- The `brilliant` and evil arch enemy who fights the hero with his mind.
+- I suspected only someone as `brilliant` as dick low could find these guys.
+- Really quite a `brilliant` device, but too flamboyant to seriously produce.
+- But he was singularly the most `brilliant` student i ever had in a classroom.
+- Well, it's brilliantly written, but then everything you write is `brilliant`.
+- I'm so excited to see this film - dustoffvarnya is such a `brilliant` director!
+- `Brilliant` analyst of recent history and a world authority on the berlin airlift.
+- `Brilliant` idea... but to be really effective, why not send a whole army of virgins?
+- But they were ruled by passionate men, while metternich was ruthless and `brilliant`.
+- I knew him when he had nothing but a `brilliant` mind and enough guts to conquer the world.
+                 

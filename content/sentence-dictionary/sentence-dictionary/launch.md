@@ -1,0 +1,80 @@
+---
+title: "launch in a sentence | launch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "launch"
+---
+- You `launch` that pod.
+- Five total to `launch`.
+- We are go for `launch`.
+- How long until `launch`?
+- We can't `launch` today.
+- I'll schedule the `launch`.
+- Initiate `launch` sequence.
+- She got the `launch` codes.
+- Unauthorized ship `launch`.
+- Computer: 3, 2, 1, `launch`.
+- `Launch` the da vinci virus?
+- Prep the clark for `launch`.
+- He'll `launch` it from there.
+- Those are the `launch` tubes.
+- Data from the exodus `launch`.
+- Why would he `launch` an a.i.?
+- Mr. president, we must `launch`.
+- I got nothing, no `launch` codes.
+- Those missiles ready to `launch`.
+- Emergency parachute `launch` ramp.
+- Witnesses saw a dropship `launch`.
+- In solitary until `launch` tomorrow.
+- I've suspended the `launch` sequence.
+- She's hacking nucular `launch` codes.
+- Let's get this ship ready to `launch`.
+- We can `launch` a third wave, admiral.
+- We still don't have the `launch` codes.
+- We are not missing that `launch` window.
+- _ missile `launch` in t-minus 15 minutes.
+- We could `launch`, but we'll be dead abby.
+- We'll `launch` off the carriers from there.
+- Seal the doors, begin the `launch` protocol.
+- We should be ready for `launch` momentarily.
+- We'll give you a heads up before we `launch`.
+- No matter what happens, you `launch` that pod.
+- Automated missile `launch` sequence commencing.
+- For the `launch` party for our couples' perfume.
+- If they `launch` it, i know how to bring it back.
+- That's like setting the `launch` codes all zeros.
+- I saw a ship `launch` not more than 20 minutes ago.
+- Vicky, it's not a space shuttle `launch`, it's sex.
+- We have to `launch` his ship by tomorrow afternoon.
+- To not be able to `launch` missiles how's the party?
+- Was manually sealed before the `launch` from our side.
+- They'll turn the ship into the wind before we `launch`.
+- Through the kitchen, can we `launch` without that part?
+- We need to `launch` this ship in under eighteen hours...
+- This `launch` should be delayed why wasn't she with lexa?
+- Raven: we need to `launch` those flares asap what message?
+- Computer: missile `launch` in t-minus 4 minutes and counting.
+- Computer: missile `launch` in t-minus 7 minutes and counting.
+- Look, if we want to `launch` product next year, i need stark.
+- Computer: missile `launch` in t-minus two minutes and counting.
+- I'm about to `launch` a brand new magazine called "exposed!"
+- In return for a guarantee that we will not `launch` an attack an them.
+- You're not going to `launch` anything until... picard's first officer.
+- The hostess of this `launch` party, since the first phone call, i guess.
+- They agree, we must `launch` a counter offensive with a full nuclear strike.
+- Conglomerates're lined up to finance the `launch` of the remaining satellites.
+- There's a fantail `launch` out there that won't make it beyond the breakwater.
+- Yes, and maybe `launch` the boat and blow it too... if the others are injured.
+- We don't have the manpower or the resources to `launch` that kind of a campaign.
+- All we have to do is `launch` the da vinci virus, and then they'll all be put away.
+- I don't know... do you think is was a good idea to `launch` an attack on a holy day?
+- We can't just assume they're standing by to receive skywire 12 months from `launch`.
+- I hardly think either species would have the intelligence to `launch` a massed attack.
+- It's been completely vaporized... and without it, there's no way to `launch` the ship.
+- Well, if we get the rockets to `launch`, that's a cynical way to go through life, john.
+- You were too weak to do what had to be done, and they've begun their `launch` protocol.
+- So that if i could have activated the `launch` -- well, lex luthor would've hit the spot.
+- Well, um... funny thing, your penguins... they're not responding to the `launch` command.
+- It's always good luck to `launch` something with champagne; a battleship... or an evening.
+- Commissioner, we both know the mercury shuttle needs another month of pre-`launch` testing.
+                 

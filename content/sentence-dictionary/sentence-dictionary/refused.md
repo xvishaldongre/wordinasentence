@@ -1,0 +1,54 @@
+---
+title: "refused in a sentence | refused example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "refused"
+---
+- You `refused` a cigar.
+- You've always `refused`.
+- He `refused` to share them.
+- But you `refused` me, dorothy.
+- Then he `refused` to marry her.
+- I have, and i have `refused` it.
+- Some material i `refused` to do.
+- Who `refused` to give up on you.
+- He couldn't, or `refused` to pay.
+- They `refused` to give me their names.
+- Lexa `refused` to let me hunt her down.
+- Oh, it's that kid who `refused` a dare.
+- To perform the procedure, he `refused`.
+- But still, ignatius `refused` to recant.
+- But you `refused`, and now, i'm screwed.
+- `Refused` to recant his christian faith.
+- She's `refused` to say a word to anyone.
+- Butchering anyone who `refused` to kneel.
+- Let me guess, they `refused` reeducation?
+- You `refused` to comply with a direct order.
+- ♪ baby shark, mommy shark ♪ `refused` the test.
+- He has `refused` the last three suggested "guests".
+- He killed me the day he `refused` to pay my ransom.
+- I just flat `refused` to tell her who the daddy was?
+- I absolutely `refused` the house and the bomb shelter.
+- I'll go tell the shepherd that you `refused` his order.
+- When i asked you to do this favor for me you `refused`.
+- Remember when you asked for a study on him, i `refused`.
+- Butchering anyone who `refused` to kneel, he's a criminal.
+- Yes, that's true, but he `refused` to give the nazi salute.
+- But he `refused` to give the nazi salute in front of hitler.
+- I got a better idea, or that you've `refused` them 30 times?
+- If you had `refused` we'd have begun this with somebody else.
+- He never asks a second favor when he's been `refused` the first.
+- He never asks a second favor when he has been `refused` the first.
+- Was it for this that i `refused` to endorse dr. bertrand's mouthwash?
+- Well, he was very ill and he `refused` to go see a doctor and well...
+- They `refused` to alter course and the 747 would not answer our hails.
+- Honor that is freely accorded to courage, may be `refused` obstinacy...
+- I don't know what happened here, lexa `refused` to let me hunt her down.
+- The doctor `refused` to come and when he got back, this is what he found.
+- Octavia, if i'm right, my mom `refused` the treatments, and it killed her.
+- Your father wisely `refused` to believe this, choosing hope over selfishness.
+- I told you to leave or die, you `refused`, and now you may have killed us all.
+- Pentangeli `refused`, and came to me, asking for permission to eliminate them.
+- He locked himself in his room and `refused` to talk except through a crack in the door.
+- Is it true that you've `refused` treatment the truth is... you're fine until you're not.
+                 

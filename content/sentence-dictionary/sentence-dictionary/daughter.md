@@ -1,0 +1,107 @@
+---
+title: "daughter in a sentence | daughter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "daughter"
+---
+- I saw your `daughter`.
+- My `daughter` is gone.
+- My `daughter`, rachel.
+- Rachel, my `daughter`.
+- Thank you, `daughter`.
+- Thank you, `daughter`.
+- That is my `daughter`.
+- They had a `daughter`.
+- This is my `daughter`.
+- To his own `daughter`?
+- Where's my `daughter`?
+- A `daughter` in oregon.
+- My `daughter`, too.
+- I think so, `daughter`.
+- It's for my `daughter`.
+- Sarah, my `daughter`...
+- Sweet `daughter` death.
+- Without his `daughter`.
+- He has a `daughter`.
+- I'm your `daughter`.
+- Go find your `daughter`.
+- I'm not your `daughter`.
+- It's for our `daughter`.
+- It's my `daughter`, man.
+- It was his `daughter`'s.
+- She's my `daughter` too!
+- They took my `daughter`.
+- Be brave, my .`daughter`.
+- `Daughter` escaped again.
+- Do you have a `daughter`?
+- Julian cross' `daughter`.
+- She's my `daughter`, tom.
+- Tell it to my `daughter`.
+- This was your `daughter`.
+- Where is your `daughter`?
+- You killed my `daughter`.
+- Your `daughter`'s around.
+- Marry your `daughter`.
+- Do you love my `daughter`?
+- Interview your `daughter`.
+- John: my `daughter`... no.
+- Now where's my `daughter`?
+- The milkmaid's `daughter`?
+- This here's my `daughter`!
+- This is for my `daughter`.
+- What about her `daughter`?
+- At your `daughter`'s house.
+- Beloved `daughter` missing.
+- But i took your `daughter`.
+- He has a `daughter`, right?
+- Henry chapman's `daughter`.
+- I care about my `daughter`.
+- I made for your `daughter`.
+- My `daughter` was a virgin!
+- To tmy wife and `daughter`.
+- To your `daughter`'s party.
+- Where's my damn `daughter`?
+- You're beamen's `daughter`.
+- About your `daughter`, jane?
+- A friend of my `daughter`'s.
+- I love your `daughter`, sir.
+- Is my `daughter` in the key?
+- Is your `daughter` in where?
+- Let's go see our `daughter`.
+- Like father like `daughter`.
+- My `daughter` died long ago.
+- My `daughter`, i ask only...
+- My `daughter` is down there.
+- My maid ramona's `daughter`.
+- Natasha, `daughter` of ivan.
+- The `daughter` of his enemy.
+- This is hope, my `daughter`.
+- Your `daughter`'s all right.
+- Did your `daughter` write it?
+- Especially king�s `daughter`.
+- Gamora, `daughter` of thanos.
+- I am going for my `daughter`.
+- I need to find my `daughter`.
+- Like mother, like `daughter`.
+- She already has a `daughter`.
+- You can't keep my `daughter`.
+- You got a wife, a `daughter`.
+- Your `daughter`'s been taken.
+- As in `daughter` of agamemnon?
+- Had a two-year-old `daughter`.
+- He wrote about his `daughter`.
+- Let me speak to my `daughter`.
+- Then i fucked your `daughter`.
+- We have a `daughter` together.
+- What, `daughter` are you busy?
+- Don't do this to my `daughter`!
+- Godfather, i have a `daughter`.
+- Got the president's `daughter`.
+- I'm working for his `daughter`.
+- My `daughter`-in-law's a nurse.
+- Our `daughter` is dead, chiren.
+- Then you let the `daughter` go.
+- This was my `daughter`'s house?
+- Where's my wife and `daughter`?
+- Your `daughter` is still alive.
+                 

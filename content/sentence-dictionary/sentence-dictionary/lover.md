@@ -1,0 +1,61 @@
+---
+title: "lover in a sentence | lover example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lover"
+---
+- I'm with you, `lover`.
+- Ah yes, a music `lover`.
+- Does she have a `lover`?
+- He was a...good `lover`?
+- He wasn't a dog `lover`.
+- Wit, swordsman, `lover`.
+- You're a nature `lover`.
+- Do you have a `lover` now?
+- What's your name, `lover`.
+- She's his only true `lover`.
+- Marla doesn't need a `lover`.
+- Treacherous `lover` of peace!
+- It was a `lover` or a husband.
+- ...no... he's my `lover`... huh?
+- What goes on up at `lover`'s lane?
+- Did you get this from your `lover`?
+- Dude, i'm a `lover`, not a fighter.
+- Not your husband, wife, or `lover`.
+- But only if we bring her `lover` back.
+- He's gay -- he isn't brooke's `lover`!
+- I'll keep `lover` boy here entertained.
+- Artie, you are the greatest `lover` ever.
+- A son is a poor substitute for a `lover`.
+- I have not been so angry friend, `lover`?
+- Tell `lover` boy i'll pay him i feel good.
+- Does that mean the jew is the better `lover`?
+- From a rich old man who used to be my `lover`.
+- You'll find yourself another rich old `lover`.
+- I'm sure he's a better `lover` than i ever was.
+- You're not my `lover`; you're a monstrous rou�!
+- You're a part time `lover` and a fulltime friend.
+- Did you keep a picture of your `lover` on your desk?
+- You know, with your `lover` boy from risky business?
+- I'm not, like, a robert frost `lover` by any stretch.
+- She's using you to channel some dead lesbian `lover`.
+- You're not bad yourself... you are an amazing `lover`.
+- I didn't shoot my wife, and i didn't shoot her `lover`.
+- Well baines the music `lover`, i never would have known.
+- Your honor, mr. roston is an ex-`lover` of miss lawson's.
+- Haven't you ever watched your child or your `lover` sleep?
+- Baxter -- junior executive, arthur murray graduate, `lover`.
+- The opinion of a scorned `lover` is hardly an objective view.
+- Now you play the peevish `lover`, stung by jealousy and betrayal.
+- He's a `lover` of love-- every bit an international man of mystery.
+- I was an excellent wife, a partner, a `lover`, a hostess and a friend.
+- Do you expect me to believe that your `lover` brought you here tonight?
+- I would like to be the `lover` again -- me, in a boat, with the girl...
+- Tell `lover` boy i'll pay him of the traditional orthodox marriage papers.
+- Are there people other than your previous `lover` that you have fantasized about?
+- You are a `lover`; borrow cupid's wings, and soar with them above a common bound.
+- We spent a night talking and hugging in a corn field, but he was hardly my `lover`.
+- Didn't miss lawson come home one day and find you in bed with your male `lover`?
+- Your singing career seems all but nonexistent, and your married `lover` wants you dead.
+- So give me a sign that a `lover` makes you look around the one you've found is back again.
+                 

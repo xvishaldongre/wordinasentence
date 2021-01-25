@@ -1,0 +1,54 @@
+---
+title: "killers in a sentence | killers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "killers"
+---
+- They're born `killers`!
+- Ever see natural born `killers`?
+- These things are `killers`, man.
+- Ok. grounder `killers` one and all.
+- The `killers` and the thieves shit!
+- What if the `killers` didn't see her?
+- So what've you got on tuggle's `killers`?
+- I think i'd like to meet these `killers`.
+- The girl, lestat - vampires are `killers`.
+- There are `killers` with palms like a baby.
+- I heard you had a good bunch of `killers` here.
+- We were afraid those `killers` might come back.
+- Aren't most serial `killers` seemingly harmless?
+- Now there's _two_ serial `killers` on the loose.
+- Most serial `killers` keep some sort of trophies.
+- Naw, i play for the chocamunga cracker `killers`.
+- Catching `killers` was a means to an end for them.
+- I don't screw and fuck with `killers` and junkies.
+- Some women like dobermans -- these were `killers`.
+- The `killers` and the thieves are at your service.
+- There are 3 escaped `killers` in this compound now.
+- You and mallory may be `killers`, but you're not insane.
+- Serial `killers` tend to hunt within their own ethnic group.
+- Re-educating trained `killers` in the ways of polite society.
+- The stone's near... those rocks, are the real time `killers`.
+- You decided to forgive the `killers`, so i can disappear next?
+- Going after `killers` isn't the same as chasing poachers, eric.
+- Why is it you have this special rapport with multiple `killers`?
+- We never seen him up against any... like these ones... `killers`.
+- No conscripts, no impressed recruits, just professional `killers`.
+- Better let your flaps down, these roads are `killers` when they're damp.
+- If trusting you means trusting those fuckin' `killers`, i can't do that.
+- Once all of you are cured, you'll each get warriors, thieves, `killers`.
+- We're not ruling out the possib- ility of three copycat serial `killers`.
+- How do you find closure when her `killers` are still running around out there?
+- How come serial `killers` have two names, but lone gunman assassins have three.
+- I hope the cracker `killers` pay well 'cause if not, back to the ghetto you go.
+- Convicts, contract `killers`, murde... you wanna find out about rats, ask a rat.
+- Most serial `killers` are attractive--slightly off white males in their twenties.
+- The mayor and chamber of commerce don't want tv announcing `killers` on the loose.
+- Low felt koessler was more interested in career advancement than catching `killers`.
+- You'll find that some of them have been credited to other `killers`, some years ago.
+- There's an estimated 270 serial `killers` currently active in the us at any given time.
+- If we did, the `killers` are here; if we didn't, whoever altered the data banks is here.
+- I saw him on a talk show once, talking about these `killers` like they were his friends.
+- If my surmise is correct these boots will cling to the `killers`' necks like tiberian bats.
+- Power-control `killers` usually fantasize about their actions long before they commit them.
+                 

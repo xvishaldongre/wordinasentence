@@ -1,0 +1,7 @@
+---
+title: "basilicas in a sentence | basilicas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "basilicas"
+---
+## Unfortunately, we have no example sentences for basilicas                 

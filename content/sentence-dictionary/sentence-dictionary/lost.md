@@ -1,0 +1,107 @@
+---
+title: "lost in a sentence | lost example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lost"
+---
+- But people get `lost`.
+- But then i `lost` her.
+- 'cause i `lost` twice.
+- I have `lost` my gift.
+- I `lost` a wife today.
+- I -- `lost` something.
+- I `lost` thirty there.
+- I `lost` twenty bucks.
+- I'm `lost` in ecstasy!
+- I'm sorry, i'm `lost`.
+- I think we `lost` 'em.
+- It's okay.. we `lost`.
+- I've `lost` a brother.
+- I've `lost` my napkin.
+- I was a `lost` secret.
+- Sanctum has `lost` us.
+- So you `lost` the job.
+- They `lost` their son.
+- Yes, but i `lost` him.
+- You look `lost`, hank.
+- You `lost` me, dudley.
+- You `lost` the charge?
+- You `lost` your nerve!
+- You've `lost` it, aim.
+- Then i `lost` that.
+- You fuckin' `lost`!
+- Because i `lost` twice.
+- Cole `lost` his temper.
+- He has `lost` his mind.
+- I just `lost` my money.
+- I `lost` my typewriter.
+- I `lost` sight of that.
+- I `lost` stabilization.
+- I predict we're `lost`.
+- I think we `lost` them.
+- I thought i `lost` you.
+- I've already `lost` it.
+- I've `lost` everything!
+- Lives have been `lost`.
+- Parts of it got `lost`.
+- Someone `lost` the key.
+- They `lost` 400 people.
+- Utopia is `lost` to me.
+- We've `lost` thousands.
+- You just `lost` wonkru.
+- You `lost` faith in me.
+- All right, we're `lost`.
+- And then, we all `lost`.
+- We've `lost` ordell.
+- Another paradise `lost`.
+- Clarke, i've `lost` her.
+- Daniel boone's *`lost`*!
+- Got `lost` in the rocks.
+- ...i got `lost`, mister.
+- I `lost` a brother once.
+- I'm - i `lost` control?!
+- I think you `lost` this.
+- It `lost` its magnetism.
+- Jasper's `lost` someone.
+- She has the `lost` key!?
+- So i guess satan `lost`.
+- You `lost` your control.
+- You `lost` your husband.
+- Your brother got `lost`.
+- You've `lost` your mind.
+- You we're `lost` at sea.
+- Ah, here's a `lost` soul.
+- I've `lost` a button.
+- Now i've `lost` that.
+- And then i `lost` my mom.
+- Then i `lost` my mom.
+- You've `lost` weight.
+- Face it, z, we're `lost`!
+- Have i `lost` you, steve?
+- Have ya `lost` it woman?!
+- How many have you `lost`?
+- I guess i `lost` my head.
+- I just `lost` my balance.
+- I `lost` my mother today.
+- I `lost` them in the war.
+- I'm `lost` in space here.
+- I thought i'd `lost` him.
+- I thought i'd `lost` you.
+- I told you to get `lost`.
+- I've `lost` number three.
+- ...i've `lost` something.
+- `Lost` everyone on board.
+- _ `lost` you in the stew.
+- `Lost` your golden goose.
+- `Lost` your wife so soon?
+- Not since you `lost` him.
+- They've `lost` a brother.
+- We `lost` touch with her.
+- We've all `lost` someone.
+- We've `lost` a colleague.
+- You think we `lost` them?
+- You've `lost` everything?
+- Alex, i've `lost` my mind.
+- I'm a little `lost`...
+- Coz of something i `lost`.
+                 

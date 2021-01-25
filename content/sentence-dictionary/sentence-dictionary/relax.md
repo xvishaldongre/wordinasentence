@@ -1,0 +1,107 @@
+---
+title: "relax in a sentence | relax example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "relax"
+---
+- Everybody can `relax`.
+- `Relax`, miles, jesus.
+- This will `relax` her.
+- Well, you can `relax`.
+- Will you guys `relax`?
+- You make them `relax`.
+- Now just `relax`, okay?
+- Pino, `relax`, will ya.
+- `Relax` a little, okay?
+- `Relax`, freddie honey.
+- `Relax`, i was teasing.
+- I don't need to `relax`.
+- Tell the lady to `relax`.
+- You go ahead and `relax`.
+- You just need to `relax`.
+- I'm going down to `relax`.
+- Mike, you need to `relax`.
+- `Relax` -- you're gaining.
+- Would you `relax`, please?
+- You got to `relax`, henry.
+- Bob, andy needs to `relax`.
+- It's not my job to `relax`.
+- Just `relax`, please `relax`!
+- `Relax` there, spoiler boy.
+- Will you just `relax`, mon?
+- I need you to `relax`, okay?
+- `Relax`, we're almost there.
+- `Relax`, you'll live longer.
+- Well, just `relax`, will ya.
+- If it happens again, `relax`.
+- Look--just `relax`, will you?
+- `Relax`, burn, he's my guest.
+- `Relax`, we brought the cash.
+- You' oughta learn to `relax`.
+- <b>hey, guy, `relax`, put out!
+- I'd love to `relax` some time.
+- Miette, come here and `relax`.
+- Why don't you fucking `relax`?
+- You `relax` up there, ya hear?
+- It's new year's eve -- `relax`.
+- `Relax`, dick, it's just me ...
+- The doc says you gotta `relax`.
+- Why don't you `relax`, frankie?
+- I just have to `relax` a little.
+- That is so sad -- `relax`, monty.
+- C'mon, `relax`, drink your beer ..
+- Come on, `relax`... hi...hi there.
+- Oh, go ahead, pour it on, `relax`.
+- `Relax` guy, hell is for children.
+- What can i do to make you `relax`?
+- Die fighting for your home `relax`.
+- Just `relax` and enjoy your coffee.
+- Just `relax` and enjoy your coffee.
+- `Relax`.... where do i pull off...?
+- Tonight i want to `relax` with you.
+- Wish someone would help me `relax`.
+- Hey `relax`, i'm not gonna break it.
+- `Relax`, let technology do the work.
+- `Relax`, mulvihill, glad to see you.
+- `Relax`, this guy owes me a big one.
+- `Relax`, this is going to be strong.
+- I'm tryin' to `relax` and look at tv.
+- `Relax` ... it was fifteen years ago.
+- `Relax`, no one's gonna recognize us.
+- You--uh--you better `relax`, senator.
+- 215 continued: 175 continued: `relax`.
+- I am here to `relax` and clip coupons.
+- `Relax`, i've been giving him lessons.
+- That's another reason you can `relax`.
+- Are you sure because... honey, `relax`.
+- Eh, he keeps saying a real son `relax`.
+- Hey, `relax` man, i'm a brother shamus.
+- Come on -- `relax` -- give them a drink.
+- Just `relax` and let your mind go blank.
+- `Relax` a minute, tell me what happened.
+- `Relax`, you need to chill the fuck out.
+- What can i do to make you `relax`, baby?
+- It's time to `relax` and enjoy your stay.
+- Let's just `relax` about having children.
+- `Relax` marine, you're making me nervous.
+- You're never yourself, you never `relax`.
+- How'm i gonna `relax` standing on a mine!?
+- I want you to close your eyes and `relax`.
+- Let's `relax` tonight, just the two of us.
+- Just `relax` and don't worry about a thing.
+- Luther, `relax`, it's worse than you think.
+- You eat, you talk for a while, you `relax`.
+- I'm worried that all this blackmail `relax`.
+- Now why don't you just lie down and `relax`.
+- `Relax` morty, i think your mom is wonderful.
+- `Relax`, tell me everything, i'm your friend.
+- Whenever he touches me, i just can't `relax`.
+- You've got to `relax`, baby, you're paranoid.
+- To help you `relax`... please... what are they?
+- I need to `relax` on what little down time i have.
+- `Relax`, seymour, `relax`... c'mon, seymour, please?
+- `Relax`, vernon... you've got a gun, motherfucker.
+- We've come to get you out of here... just `relax`.
+- I want you to go home and `relax` the best you can.
+- Who wonkru was at war with a few days ago, `relax`.
+                 

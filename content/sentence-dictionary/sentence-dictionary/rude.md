@@ -1,0 +1,55 @@
+---
+title: "rude in a sentence | rude example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rude"
+---
+- Okay, that was `rude`.
+- That was `rude` of me.
+- Not `rude` or anything.
+- Guys, we're being `rude`.
+- Now you are being `rude`.
+- You are a `rude` bumpkin!
+- Besides being very `rude`.
+- I'm being terribly `rude`.
+- Was someone `rude` to you?
+- I didn't mean to be `rude`.
+- I mean, you're very `rude`.
+- I'm overbearing and `rude`.
+- I'm sorry, that was `rude`.
+- Or your `rude` friend dies.
+- You are being `rude` again.
+- But god, people can be `rude`.
+- I didn't mean to be so `rude`.
+- No, i don't want to be `rude`.
+- I'm being `rude` now, aren't i?
+- Now you're being `rude`, shorty.
+- I don't mean to be `rude`, but...
+- It's not postmodern -- it's `rude`.
+- It's `rude` to talk about religion.
+- O deadly sin, o `rude` unthankfulness!
+- You're impertinent, `rude`, sarcastic.
+- Don't worry, you were quite `rude` enough.
+- They're going to think i'm awfully `rude`.
+- He told me, he preferred to eat the `rude`.
+- Like many of the needy, they were `rude`.
+- Mr. nygma, you'll forgive me for being `rude`.
+- Sure... maelcom's a `rude` boy, right, maelcom?
+- It's just that-- you're sort of a `rude` person.
+- So if i seem strange or `rude`, that's probably...
+- We turn the sound down on her and say `rude` things.
+- I don't mean to be `rude`, you know what must be done.
+- I don't want to be `rude`, but this is all pretty lame.
+- 'pardon me for being `rude`, it was not me, it was my food.
+- Look, clarke, i don't mean to be `rude`, but... bellamy, no.
+- Personally, i think he's filthy, `rude` and a complete scoundrel.
+- Excuse me, i hope this isn't `rude`, but aren't you marion davies?
+- It's `rude` not to eat when you're a guest in someone's home, clarke.
+- Look, i don't mean to be `rude`, but this is not as easy as it looks.
+- Robert, i think you better just... robert, let's not be `rude`, okay?
+- It is too rough, too `rude`, too boisterous, and it pricks like thorn.
+- Anyone ever teach you it's `rude` you followed diyoza into the anomaly.
+- Jack, i don't want to be `rude`, but these men have brought a lot of money with them.
+- I don't want to be `rude`, but... it's generally known that -- are ye afraid of me wine?
+- Pooh-bear, i don't mean to be `rude`, but i get the feeling you aren't taking me seriously.
+                 

@@ -1,0 +1,51 @@
+---
+title: "couch in a sentence | couch example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "couch"
+---
+- This `couch` is wrong.
+- You give me `couch`-space.
+- Things a `couch` would say!
+- Every night, on the `couch`.
+- First time in a grav `couch`?
+- It's not a "married `couch`."
+- I was napping on the `couch`.
+- Keep me off the `couch`, doc.
+- Lay on that `couch` right now!
+- Except the `couch` on his lawn.
+- Go sit over there on the `couch`.
+- 2... so i'll sleep on the `couch`.
+- You'd be off the `couch` in no time.
+- Give me five minutes on that `couch`.
+- Hannah thought you'd like my `couch`.
+- I slept on this `couch` for nothing?!
+- No whining on some fish-shrink's `couch`.
+- Well... the `couch` would be all right...
+- You, uh... you want the bed or the `couch`?
+- Oh, god no, i made him sleep on the `couch`.
+- You want to put him on your `couch`, norman.
+- Just trying to get comfortable on your `couch`.
+- You'll get some sleep on the `couch` out there?
+- It just so happens we have a vacancy on the `couch`.
+- The `couch`-lock is strong on this one, - clarke, no.
+- It's like we're living in the painting over our `couch`.
+- Maybe you should sleep this one off on the `couch` here?
+- I thought i told you to stay hidden behind the `couch`, cat!
+- All right, i'll just grab my pillow and sleep on the `couch`.
+- They're playing games behind the `couch` ... what about them?
+- Just take me to the `couch`... let me take you to the hospital.
+- On tv ya always get that asshole that jumps behind the `couch`.
+- You don't have to sleep onna `couch` inna living room like here.
+- I am going to find myself, 30 years from now, still on this `couch`.
+- Part of my job is to sit on a `couch` and try and figure things out.
+- Guess they wanted to go home and curl up on the `couch` with the dog.
+- Now she's just an old lady, sleeping on her daughter-in-law's `couch`.
+- I didn't have to lie down on the `couch`, alvy, she had me sitting up.
+- [resolutely, for her own benefit] it's christmas eve, and i have a `couch`.
+- Stay down, marcie, sit back down on that `couch` -- i didn't hear anything.
+- Whether or not we were... ... if we still we're thinking of redoing the `couch`.
+- We got here, you fell asleep on the `couch` and i covered you up and came to bed.
+- I spent a year sitting next to my grandma on the `couch` watching wheel of fortune.
+- I don't know, they look pretty happy to me... mr. smith - -- the "complimentary `couch`."
+                 

@@ -1,0 +1,85 @@
+---
+title: "sailor in a sentence | sailor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sailor"
+---
+- Do me a favor, `sailor`?
+- I do trust you, `sailor`.
+- Where's the `sailor` man?
+- Buy you a drink `sailor` ?
+- `Sailor` ain't a murderer.
+- `Sailor`... lula loves you.
+- `Sailor` moon and the moon.
+- I can't take this, `sailor`.
+- Lula and `sailor` been here.
+- `Sailor`, i really couldn't.
+- What's your name, `sailor` ?
+- Lula's gone off with `sailor`.
+- `Sailor`... as simple as that.
+- How can you say that, `sailor`?
+- `Sailor`, what are we gonna do?
+- I got it figured good, `sailor`.
+- It's just another case, `sailor`.
+- We'll make a `sailor` of you yet.
+- Homer, dorothy isn't a *`sailor`*!
+- I want you to get rid of `sailor`.
+- `Sailor` ain't a boy no more, mama.
+- That man's a black angel, `sailor`.
+- I'll make a `sailor` out of you yet.
+- The `sailor`'s omen of good fortune.
+- What time's `sailor`'s train get in?
+- If you mean `sailor`, mama, yes i am.
+- Red sky at night, `sailor`'s delight.
+- `Sailor` and i been on a crime spree?
+- You know, he was formerly a `sailor`.
+- Mama, `sailor`'s in deep trouble here.
+- Think i'm a spy in a `sailor`'s uniform?
+- You want to stick around here, `sailor`?
+- One bad car accident... oh god, `sailor`.
+- ...`sailor` ripley... can i talk to lula?
+- Red sky in morning, `sailor` take warning.
+- `Sailor`, you are somethin' else, honey...
+- Well, you ain't let me down yet, `sailor`.
+- Grandmama said how `sailor` murdered a man.
+- I'm gonna stay here in this room, `sailor`.
+- `Sailor`, that ozone layer is disappearin'.
+- Why'd she have to go and do that, `sailor`?
+- The world's gettin' worse, i think, `sailor`.
+- He is a `sailor` on the pirate ship "revenge."
+- My toenails gotta dry first anyways, `sailor`.
+- You up to somethin' with bobby peru, `sailor`?
+- I'd stand by you, `sailor`... through anything.
+- I never knew about the `sailor` the- ory, ross.
+- Really, `sailor`, it ain't nothin' against you.
+- That guy `sailor` came around this afternoon...
+- God, `sailor`... that's the night my daddy died.
+- Hey, `sailor` boy, you wanna fuck lula's mama?...
+- `Sailor` and lula are headed west, and guess what?
+- I hope she's a good `sailor`.... we'll buy you one.
+- That's some big secret you been carryin', `sailor`.
+- You're terrible crude sometimes, `sailor`, you know?
+- It's me who's wastin' time, `sailor`, bein' with you.
+- Oh, `sailor` you're so aware of what goes on with me?
+- Yeah, it's a real problem for me, `sailor`, you know?
+- `Sailor` always liked that havana brown's pig pickin'.
+- You want me to shoot `sailor` in the brains with a gun.
+- What'll it be like in california, `sailor`, do you think?
+- So `sailor`, our histories have been somewhat intertwined.
+- I won't say nothin' to the police about `sailor`, i promise.
+- I saw mama up in her room with santos... no, `sailor` darlin'.
+- Your shipment of `sailor` hats arrived this morning by freight.
+- Far's i can tell, `sailor` was entire clean prior to that involvin' lula.
+- Six months investigation, & the nearest we got, we thought he was a `sailor`.
+- Couple of swedish `sailor` cells just gang divided a virginal cheerleader cell.
+- Santos... you kill that `sailor`, otherwise he's gonna turn my baby against me.
+- You tell me `sailor`, who could come up with shit like we're seein' these days?
+- I know what volition means, and that's why i want `sailor` ripley off the planet!
+- Anythin' interestin' in the world come out of somebody's weird thoughts, `sailor`.
+- Isn't it fashionable any more to put on a `sailor`'s cap with the name of the yacht?
+- She's forgiven you of all these things... you love her... don't be afraid, `sailor`.
+- Listen, mckenna about your wife: if i had known she was married-- you a `sailor` man?
+- I want you to take care of `sailor`, so he won't ever be able to bother my baby again.
+- It showed a girl trying on a `sailor`'s uniform while saying, "gee, i wish i were a man!
+- Listen, mr. mckenna, about your wife: if i had known she was married-- you a `sailor` man?
+                 

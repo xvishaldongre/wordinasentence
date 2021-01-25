@@ -1,0 +1,101 @@
+---
+title: "wash in a sentence | wash example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wash"
+---
+- `Wash` up and go home.
+- `Wash` your hands now.
+- I got to `wash` it out.
+- Kareem's in the `wash`.
+- I go `wash` clothes.
+- Take off the `wash`.
+- Go and `wash` your face.
+- You have to `wash` them.
+- It won't `wash`, pumpkin.
+- Packet of `wash` n dri's.
+- Shall i `wash` these out?
+- `Wash` it to the windows?
+- About car `wash` protocol?
+- `Wash` her's more like it!
+- You can't `wash` that off.
+- He didn't `wash` his hands.
+- I'm going to `wash` up now.
+- It's a morality car `wash`.
+- Where should i `wash` them?
+- I just wanta `wash` my hand.
+- I'll have to `wash` one out.
+- I have to `wash` and eat.
+- That don't `wash` with daisy.
+- `Wash` his poultices for him?
+- We don't `wash` 'em, ya know.
+- We will `wash` this in blood.
+- `Wash` off the rest of harris.
+- You `wash` 'em, you break 'em.
+- I'll `wash` them in the morning.
+- No, i forgot to `wash` my hands.
+- She's going to `wash` your jeep?
+- You guys can `wash` the mud off.
+- Is there a place i can `wash` up?
+- Spray and `wash`. that's the one.
+- Don't forget the car `wash`. deal.
+- Do you `wash` your hair every day?
+- I'll `wash` behind my ears for you.
+- Leave it -- i'll `wash` it for you.
+- George -- i'll have mary `wash` you.
+- I `wash` my hands or the whole thing.
+- You forgot to `wash` my purple shirt.
+- Every time i `wash` the car, it rains.
+- Go `wash` glasses if you don't like it.
+- I'd `wash` that out with some iodine...
+- Over there in the dry `wash`. last week.
+- `Wash` it down with the vegetable broth.
+- You sprung for the undercarriage `wash`?
+- I'll dry it up here when i `wash` it next.
+- At my old place, we used to... `wash` cars.
+- May i use your bathroom to `wash` up a bit?
+- Please don't `wash` your hands in the sink.
+- Want me to take 'em up and `wash` 'em good?
+- Laura didn't `wash` her hands before dinner.
+- Shit, you wouldn't even `wash` up for weeks.
+- Well, at least i can `wash` this filthy hat.
+- I don't trust you to `wash` behind your ears.
+- If you `wash` out, i make it so that -- sorry.
+- Somebody's going to have to `wash` mrs. young.
+- As long as i never have to `wash` dishes again.
+- Just to heat enough water to `wash` this stuff!
+- Well, instead of a haircut, how about a `wash`?
+- Do you `wash` your hands before you type things?
+- She used to `wash` her lingerie in my bathwater.
+- Copped a tin of altoids at the car `wash`. mints?
+- He's trying to get doctors to `wash` their hands.
+- I'm in a car `wash`. well, let's see what we get.
+- I'll `wash` the dishes and -- what did i tell you?
+- Some shit, suffice it to say, just don't `wash` out.
+- So `wash` your face and phone my place it'll be o.k.
+- Help `wash` down all them pills they'll be giving you.
+- It'll never `wash`. pardoning them means we're guilty.
+- That car `wash` pays good, and they're always looking.
+- I'm afraid you won't be able to `wash` it off this time.
+- Ermelinda says you `wash` the same shirt out every night.
+- I just needed a `wash` and set, a `wash` and set, that's all.
+- There's an all- night car-`wash` in the airport service area.
+- How much poon do you think you get in the car `wash` business?
+- I couldn't wait till i got home last night and `wash` my hair.
+- Now run along like a good boy and see that you `wash` up properly.
+- Pooh, you don't `wash` much do you, judging by the horrible smell.
+- Who are you and why do you know so much about car `wash` protocol?
+- You tried to `wash` it out earlier, but i can still smell the urine.
+- I remember when you was running that car `wash` and couldn't make it go.
+- To ellie) you will remember to `wash` your hands before you eat anything?
+- Now get your tail out of here and go `wash` those dishes, and stop crying!
+- Some kid i wouldn't let `wash` my mercedes is in my house, shooting at me.
+- Why can't i `wash` the ashes from my forehead, year after year after year?
+- All we were going to do is eat and `wash` the dishes -- now, wait a minute.
+- A smooth hitter woulda gone in there, seen it was a `wash` and slipped out.
+- Want to `wash` the car, or are you doing a little spying in your off hours?
+- I'm going to show you how to `wash` this tile and then you're going to do it.
+- I figured it could only have painful associations for `wash`. how's this a plan?
+- Now you boys hurry along and `wash` up for breakfast... you too, mister mcmurphy.
+- Jack... shovellings out driveways, work in a car `wash` - any of that appeal to you?
+                 

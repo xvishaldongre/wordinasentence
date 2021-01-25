@@ -1,0 +1,107 @@
+---
+title: "plus in a sentence | plus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plus"
+---
+- `Plus`, two test runs.
+- `Plus` what i owe you?
+- There's a `plus` side?
+- `Plus` belts and boots?
+- What's well `plus` good?
+- `Plus`, i got kicked out.
+- `Plus` the man can drive.
+- Cost three million `plus`.
+- `Plus` tony fucking levin?
+- `Plus`, i called you a cab.
+- `Plus` where's huggie bear?
+- `Plus` a well-balanced diet.
+- `Plus` the usual fifty cash.
+- A-`plus` zoology 101, clarke.
+- Wholesale `plus` three grand.
+- Mais �a pourrait faire `plus`.
+- `Plus` some leather furniture.
+- Two main players `plus` three.
+- Well, look at the `plus` side.
+- A day of life, `plus` change...
+- `Plus` he's, like, not my type.
+- `Plus` the same deal as before.
+- A dollar sixty-nine, `plus` tax.
+- I give this writing an a-`plus`.
+- Okay, ten thousand `plus` a g.e.
+- `Plus` names, addresses and i.d.
+- $2.99 `plus` one dollar is $3.99!
+- `Plus` the release of the family.
+- `Plus` i got <u>real</u> problems.
+- `Plus` we'll have a back-up timer.
+- 20 million, `plus` attorney's fees.
+- `Plus`, i've got things on my mind.
+- Little `plus` sign, squiggly letter.
+- `Plus` first and last month deposit.
+- `Plus`, there's the statute problem.
+- `Plus` they offer me a lot of money.
+- Two `plus` two does not equal three.
+- It was warriors `plus` 6 this morning.
+- `Plus` is positive, minus is negative!
+- Well, `plus` the money ain't that bad.
+- `Plus`, i always wanted to visit texas.
+- `Plus` jen- nifer had raven black hair.
+- `Plus`, their habits are rather filthy.
+- I get one hundred a day `plus` expenses.
+- I'll get the money back, `plus` interest.
+- `Plus` some guys whose food i don't like.
+- `Plus`, you'd probably melt your face off.
+- That was smarts and ten `plus` on the job.
+- Yeah, there's that pink `plus` sign again.
+- `Plus` the fucking driver's license, frank.
+- `Plus` you have nothing else to do all day.
+- Seven fifty a week, `plus` travel expenses.
+- `Plus`, i love these old black collectibles.
+- `Plus`, it's a time-honored rite of passage.
+- `Plus` what you'd get if you did the hedges.
+- That `plus` an unauthorized spacewalk, yeah.
+- Well, you see, you were smithers' `plus` one.
+- Every square inch covered, `plus` all my guys.
+- `Plus` i'd like to meet this partner of yours.
+- `Plus`, i got something better than a cadillac.
+- `Plus` the earrings are worth three times that.
+- `Plus`, the hysterics are getting on my nerves.
+- At food city it's ninety-nine cents, `plus` tax.
+- Of that `plus` sign he's always carrying around.
+- `Plus` i'll give you 25% of what i make tonight.
+- `Plus`, i'm popular... you want to be popular...
+- `Plus`, it ended my marriage -- sure i loved it!
+- I'll pay you four hundred a day, `plus` expenses.
+- `Plus`, my guys won't let anyone in without them.
+- `Plus`, near as i can tell, shall we say tonight?
+- `Plus` the victims weren't random solid citizens.
+- The `plus` sign looked more like a division sign.
+- Unlisted age, `plus` "youthful mind," equals old.
+- I own a place called kirby paint and title `plus`.
+- We will pay you double your rates `plus` expenses.
+- We pay your fuel costs up front `plus` ten percent.
+- `Plus` she skateboards, so she's pretty awesome.
+- ♪ ♪ i feel alive instead of live-`plus`-three ♪ yes.
+- `Plus`, at the most, three suits, a thousand apiece.
+- `Plus` an extra hundred if you get me to lax on time.
+- `Plus` a whole mess of lumps removed from my breasts.
+- I'd figure roughly... ...your car `plus` five hundred.
+- I just know your cross action is a `plus` on our side.
+- `Plus` the forty to mason... how many letters is that?
+- `Plus` a trust fund to provide for the boy�s education.
+- `Plus`, it's way classier than blowin' your brains out.
+- That's why i quit college... `plus` i'm a lazy bastard.
+- I don't owe anybody 2,000 clams `plus` interest, stupid.
+- Oh, the old moloko-`plus` first, would you not say good.
+- `Plus`, 40 percent of 20 million's a whole lot of money.
+- `Plus` you're liable to bust a spring in karl's head.
+- I'm offering you ten grand `plus` expenses to do my wife.
+- `Plus` savings bonds that still pay 37%, anything at all.
+- Sweet revenge `plus` maybe a bit of vigorish off your end.
+- My usual fee, `plus` a bonus if i come up with any results.
+- `Plus` every time i get jammed-up, gary has an inspiration.
+- `Plus`, i've never really felt able to open up with anyone.
+- `Plus` we should get a few stray expat_s looking for kafka.
+- Your boy's looking at ten years, `plus` the concealed weapon.
+- A six man security force, `plus` a member of our butler staff.
+                 

@@ -1,0 +1,64 @@
+---
+title: "dreaming in a sentence | dreaming example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dreaming"
+---
+- I was `dreaming` again?
+- Thought i was `dreaming`.
+- Waybe you were `dreaming`.
+- Gordo, i wasn't `dreaming`.
+- I thought i was `dreaming`.
+- I was `dreaming` about you.
+- Tell me i'm not `dreaming`.
+- You must've been `dreaming`.
+- Keep `dreaming` those dreams.
+- Oh, i get it; i'm `dreaming`!
+- No, you're not `dreaming`.
+- Kenny, tell me i'm `dreaming`.
+- Must have been day-`dreaming`.
+- What are you `dreaming` about?
+- I've been `dreaming` about you.
+- What were you `dreaming` about?
+- I've been `dreaming` about this.
+- You weren't `dreaming` about me.
+- `Dreaming` of the day i'd escape.
+- Is it true -- i am not `dreaming`?"
+- Bobby, you've been `dreaming` again.
+- Are you `dreaming` in their language?
+- Like lucid `dreaming` only not as fun.
+- What are you `dreaming`, little angel?
+- I'm not sure if i'm `dreaming` or... well?
+- I've been `dreaming` about you, my friend.
+- A voice ... what were you `dreaming` about?
+- You weren't thinking...you were `dreaming` !
+- How do you say "you're `dreaming`" in italian?
+- I must have been *`dreaming`* of kissing someone.
+- You ever read about the balinese way of `dreaming`?
+- You think you're `dreaming` me, like you dream her.
+- He was `dreaming` -- the rem patterns prove that.
+- How can you be here... you must have been `dreaming`.
+- I keep `dreaming` about it but i just can't remember.
+- I've been `dreaming` about that smile, ashley mercer.
+- Thousands of refugees being packed you're `dreaming`.
+- I mean i'm `dreaming` about going all out, crazy shit.
+- Used to try and pretend i was `dreaming` all the pain.
+- I feel i've been `dreaming` since the unicorn was killed.
+- No -- don't you see -- crawling -- you're `dreaming`, willie.
+- I've been `dreaming` about a hot bath for the last six months.
+- [breathing heavily] am i `dreaming`, or is that you, harrington?
+- So, still `dreaming` up designs the rest of us will have to fix?
+- Unless i'm `dreaming`, i think i see irregulars at their center.
+- Ten cc's of this shit and you won't be `dreaming` about anything.
+- He would give thomas kent the life of viola de lesseps's `dreaming`.
+- I was `dreaming` -- oh, no -- can't tell -- how embarrassing for me.
+- You can't stay in here all day `dreaming` about heroin and ziggy pop.
+- It allows the user to be fully alert and mobile while he's `dreaming`.
+- Would we have radium and x-rays without someone first `dreaming` we could?
+- You think oppenheimer was `dreaming` about mushroom clouds before the war?
+- It's better you go home still `dreaming` about your kitty cats and puppy dogs.
+- Trevor if someone is talking from a sleep state they are obviously `dreaming`.
+- That ain't no crime and left from my `dreaming` was a feeling of un-nameable dread.
+- You ever have the feeling that you're not sure if you're awake or still `dreaming`?
+- You're on so much of it, you could be asleep and `dreaming` even with your eyes wide open.
+                 

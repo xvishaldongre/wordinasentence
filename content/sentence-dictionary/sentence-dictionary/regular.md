@@ -1,0 +1,100 @@
+---
+title: "regular in a sentence | regular example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "regular"
+---
+- I call that `regular`.
+- `Regular`, human scum.
+- At `regular` intervals.
+- He a `regular` customer?
+- It's a `regular` college.
+- This your `regular` ride?
+- He was `regular` army too.
+- It's just a `regular` day.
+- `Regular` slaughter house.
+- Just the `regular` tune-up?
+- So i got `regular` tickets.
+- You want diet or `regular`?
+- He's a `regular` whiz at it.
+- It is just a `regular` card.
+- A `regular` all-american guy?
+- He's a `regular` humanitarian.
+- Is once again `regular` water.
+- Turning into `regular` tycoons.
+- What's up, `regular`-sized man?
+- Why'd you see him so `regular`?
+- Menthol, `regular`, ultra-light.
+- We have `regular` sessions, too.
+- I didn't bring `regular` clothes.
+- I'm bypassing `regular` channels.
+- It's a `regular` "marching band".
+- I could stand something `regular`.
+- One of them `regular` army clowns.
+- `Regular` hours are eight to five.
+- Hides 'em with his `regular` loads.
+- Pierce isn't like `regular` people.
+- See you thursday... `regular` time.
+- They're `regular` at town meetings.
+- You're a `regular` sherlock holmes.
+- Just a `regular` old... mud carrier.
+- They look just like `regular` people.
+- It's nice to know i'm a `regular` guy.
+- Not your `regular` street muck, is it?
+- I don't have `regular` classes anymore.
+- Ignore the `regular` order of training.
+- Not `regular` lasers, not the big kind.
+- I had a `regular` job for a while, days.
+- I mean it's a `regular` paper, you know.
+- I was a `regular` on a couple of series.
+- So can we consider you a `regular`, sir?
+- We're a `regular` working-class tragedy!
+- You're a `regular` einstein, aren't you?
+- Now are you going to get a `regular` job?
+- Bean out there is going to be a `regular`?
+- My `regular` enforcers will be inadequate.
+- It was probably just a `regular` bad dream.
+- The pay won't be grand, but it's `regular`.
+- No, walking around, like `regular` people...
+- The three of you weren't `regular` patients.
+- He's just a `regular` guy't needs help, honey.
+- A-yeah, i'm a `regular` benedict cabbage-patch.
+- You're a `regular` little detective, aren't ya?
+- Anything and everything - he was a `regular` crow.
+- Make sure they're changing your diapers `regular`.
+- On a `regular` basis, if you get my drift... yeah?
+- But if it's just a `regular` bum, you pass them by.
+- I just don't know many `regular` girls, that's all.
+- Stay out of my way and do what a `regular` kid does.
+- My boyfriend ditched me... are you a `regular` there?
+- She writes pretty `regular`, tells me the family news.
+- This is getting to be a `regular` monkey and dog show.
+- You get yourself a `regular` job, as satan's disciple.
+- You're a `regular` nuclear meltdown, honey--slow down.
+- Just a `regular` boyfriend who doesn't go nuts on me...
+- Let us, uh, stiffly resume our nice, `regular` routine.
+- Who'd have thought they'd both be a size 138 `regular`.
+- A `regular` housewife in need of empowerment, and now...
+- Tell me, are you a `regular`, candy, in this computer club?
+- `Regular` storage procedure... the same as the other food...
+- Ma said it's like a lawyer only the hours are more `regular`.
+- Used to be a `regular` off and on, hasn't been in in a while.
+- That son of a bitch is a `regular` eli whitney on a lawnmower.
+- Her `regular` supply of drawing pencils has dwindled to nothing.
+- The `regular` flight is scheduled for oh three hundred tomorrow.
+- My `regular` daily rate -- $200, whether we catch him or not.
+- Well, outside of your `regular` fee, how much extra will it cost?
+- Listen hawk, this might be hard to believe, but i'm a `regular` joe.
+- My uncle al took off the `regular` muffler and put on a cherry bomb.
+- Most dangerous thing in the world: a `regular` joe, in over his head.
+- Most of them murdery, but, you know, a `regular` dork and a girl one.
+- Oh really - you must remember me from when i was a `regular` customer.
+- They see an...a `regular` guy can, you know, follow impossible dreams.
+- Arlyn, just tell me, did jane have a dumper, one of her `regular` johns?
+- It was not my intent -- you're a `regular` god damn acrobat, aren't you?
+- Fifty or so, white, `regular` build, needed a shave -- that's all i remember.
+- Cause this guy's got a `regular` job, no way he comes up with fifty grand in cash.
+- Why if they was given over to wickedness in a `regular` way... for what they done?
+- And i'm the only one who knows the passphrase, what happened to `regular` detention?
+- You're in the red-hot center of big business and i thought you were a `regular` joe.
+                 

@@ -1,0 +1,7 @@
+---
+title: "whitings in a sentence | whitings example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whitings"
+---
+## Unfortunately, we have no example sentences for whitings                 

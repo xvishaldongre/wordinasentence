@@ -1,0 +1,107 @@
+---
+title: "everything's in a sentence | everything's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "everything's"
+---
+- But `everything's` ok?
+- `everything's` a blur.
+- `everything's` a nail.
+- `everything's` so neat.
+- `everything's` okay now.
+- `everything's` so retro.
+- `everything's` too hard.
+- No, `everything's` fine.
+- Now `everything's` fine.
+- `everything's` all right.
+- `everything's` all right?
+- `everything's` fine, pop.
+- `everything's` so simple.
+- Now `everything's` clear.
+- Now `everything's` weird.
+- Oh, `everything's` fine.
+- Well, `everything's` set.
+- `everything's` better now.
+- `everything's` fine, kids!
+- `everything's` free there.
+- `everything's` goin' good.
+- `everything's` my problem.
+- Yeah, `everything's` fine.
+- `everything's` fine, honey.
+- `everything's` going wrong.
+- `everything's` ten dollars.
+- I think `everything's` set.
+- `everything's` free up here.
+- `everything's` phony... who?
+- `everything's` all right now.
+- `everything's` fine except...
+- `everything's` gonna be fine.
+- `everything's` out of school.
+- `everything's` under control.
+- He's sorry, `everything's`...
+- I think `everything's` ready.
+- Sweetie, `everything's` fine.
+- `everything's` back to normal.
+- `everything's` been shut down.
+- `everything's` gonna work out.
+- But now `everything's` changed.
+- `everything's` worked out good.
+- Well..`everything's` closed up.
+- Yeah, `everything's` different.
+- You'll see, `everything's` fine.
+- But `everything's` gonna be okay.
+- `everything's` so stiff and dead.
+- I think `everything's` okay here.
+- `everything's` gonna be all right.
+- `everything's` gonna be all right.
+- `everything's` going to be alright.
+- Guys, `everything's` bad over here.
+- It's okay, `everything's` okay now.
+- So `everything's` set for tomorrow?
+- With you, `everything's` next week.
+- Yeah, `everything's` under control.
+- But `everything's` encrypted, so no.
+- `everything's` going to be so great!
+- Look, `everything's` going your way.
+- Pretending like `everything's` okay.
+- `everything's` changed -- those cars.
+- `everything's` going to be all right.
+- `everything's` going to be beautiful.
+- `everything's` gonna remain the same.
+- Make sure `everything's` cleared out.
+- `everything's` breakfast all the time.
+- `everything's` coming along just fine.
+- It's just `everything's` so different.
+- It's ok. `everything's` under control.
+- No need, `everything's` under control.
+- Ssshh... `everything's` gonna be okay.
+- Yes, `everything's` all right, edward.
+- Please make sure `everything's` packed.
+- Everything... `everything's` so funny...
+- `everything's` botherin' me, that's all.
+- Tell your secretary `everything's` fine.
+- `everything's` gonna be okay, sweetheart.
+- `everything's` going exactly as we planned.
+- I don't know - `everything's` all mixed up.
+- I think `everything's` going pretty well...
+- `everything's` gonna freeze, the big freeze.
+- `everything's` political, for christ's sake!
+- `everything's` so mixed up -- you're crying.
+- Inside the lamp, `everything's` like, brass!
+- Just get up slowly like `everything's` cool.
+- `everything's` connected, all along the line.
+- `everything's` gonna be okay... cut me loose.
+- `everything's` proceeding exactly as planned.
+- Hippy, you think `everything's` a conspiracy.
+- Oh, `everything's` the same size, same price.
+- We sell -- `everything's` on the fucking run!
+- `everything's` being done but it's not enough.
+- `everything's` fine... you seem a little edgy.
+- `everything's` upside down and backwards here.
+- He says `everything's` fine, but i don't know.
+- Receipts and bills and... `everything's` here.
+- Sweetheart, `everything's` gonna be all right.
+- We're in the place, `everything's` going fine.
+- Yeah, but `everything's` always in transition.
+- Almost `everything's` been done -- under panic.
+                 

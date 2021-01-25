@@ -1,0 +1,81 @@
+---
+title: "powers in a sentence | powers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "powers"
+---
+- Its `powers` are strong.
+- My `powers` fade, arthur.
+- The `powers` of darkness!
+- Your `powers` are quaint.
+- He has `powers` as we do .
+- She was using her `powers`!
+- You have mag- ical `powers`.
+- (armour `powers` down) jarvis.
+- By the `powers`, you're right!
+- Don't try your `powers` on me.
+- My `powers` don't work on you.
+- `Powers`, i expect them to die.
+- I have no extraordinary `powers`.
+- Danger `powers`, personal effects.
+- Do they have any special `powers`?
+- He has all of superman's `powers`.
+- I'd better use my psychic `powers`.
+- It says here, name danger `powers`.
+- They have great `powers` of vision.
+- Actually, my name's austin `powers`.
+- `Powers`, i'm the destructacon 5000.
+- Austin `powers` is getting too close.
+- I didn't know you had psychic `powers`.
+- The bosses always have special `powers`.
+- Your `powers` are greater than you know.
+- Like you, she has extraordinary `powers`.
+- Hey austin `powers`, it's me, mick jagger.
+- Or maybe even just a suit, with no `powers`.
+- Maybe you've just got `powers` of precognition.
+- You have actual `powers` which you use for evil.
+- Let's start with these strange `powers` of yours.
+- If i possess that, my `powers` would be unlimited.
+- You've got `powers` you've only just begun to tap.
+- Your `powers` are inconsequential compared to mine.
+- `Powers`, my job is to acclimate you to the nineties.
+- I would even like a suit with minimal `powers`, you know?
+- Loses a third of their `powers` fighting karate scorpion?
+- Ok, austin danger `powers`: one blue crushed-velvet suit.
+- You've not reckoned with the `powers` of faerie medicine.
+- It takes away their `powers`, reduces them to human beings.
+- Scott, i want you to meet daddy's nemesis, austin `powers`.
+- Making the world a frozen hell is beyond me modest `powers`.
+- I have created the ultimate weapon to defeat austin `powers`.
+- Its ambitions exceed its `powers`, but it doesn't realize it.
+- You're meddling with `powers` you cannot possibly comprehend.
+- I would even like a suit with like minimal `powers`, you know?
+- You can't do jack shit... unless you learn your evil `powers`.
+- Characters in comic books are often attributed special `powers`.
+- I want you to use all your `powers`, all your skill, as you love me.
+- To do that he gave him five sacred stones that had magical `powers`.
+- You must concentrate your `powers` for when they are needed most.
+- Ah... you don't even have any `powers`, you're just super good at air.
+- ... my god, i only wish that benjamin had your recuperative `powers`...
+- By taking over their brains using its highly-developed psionic `powers`.
+- The `powers` of evil in our dimension if i get to 3, i'll be at the glow.
+- I'm just trying to demonstrate how careless max is with eleven's `powers`.
+- These automated strumpets are the perfect bait for the degenerate `powers`.
+- You wouldn't happen to be teaching them how to use their `powers` to -- math.
+- `Powers` hinted that oswald could've given the russians enough data to hit it.
+- I doubt you can hear me on this piece-of-crap radio... use your `powers`, okay?
+- Yes, chief - eight other foreign `powers` have put gardiner under surveillance.
+- Your girlfriend used el's `powers` it doesn't matter, i won't let you surrender.
+- But surely rogers isn't -- as always, your keen `powers` of perception astound me.
+- Merlin, the `powers` of summoning, the true name of the charms of doing and undoing.
+- I mean, how do you know every idea i've had that's even better than spoiler `powers`.
+- `Powers`, i'm sure you'll enjoy watching the curtain fall on the third and final act.
+- I use my `powers` to change your country, one block at a time, one building at a time.
+- One credit card receipt for swedish- made penis enlarger pump, signed austin `powers`.
+- One warranty card for swedish-made penis enlarger pump, filled out by austin `powers`.
+- A being has come to earth with `powers` far beyond those of anyone member of the craft.
+- `Powers`, i look forward to working with you, but do me a favor and stop calling me baby.
+- `Powers`, but let me be perfectly clear with you, perhaps to the point of being insulting.
+- With all your `powers`, you are content to be ridiculed, laughed at... that is my destiny.
+- How many innocent lives have you sacrificed, whenever she uses her `powers`, she gets weak.
+                 

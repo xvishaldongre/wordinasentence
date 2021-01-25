@@ -1,0 +1,98 @@
+---
+title: "finger in a sentence | finger example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "finger"
+---
+- Don't do the `finger`.
+- Your `finger`, please.
+- Hit your `finger`, huh?
+- It's for your `finger`.
+- He smelled his `finger`.
+- It's `finger`-lickin' good.
+- The evil `finger`'s on you.
+- I'm not into `finger` foods.
+- Why do you need my `finger`?
+- I just dislocated my `finger`.
+- I see a ring on your `finger`.
+- Which `finger` was he missing?
+- He has had his `finger` removed.
+- You're gonna break his `finger`?
+- You cut off your little `finger`?
+- You can turn that `finger` around.
+- Got him wrapped around my `finger`.
+- Leland... look at this `finger` here.
+- A fist, one `finger`, and two fingers.
+- Get that `finger` out of your ear.
+- You don't have to lift a `finger`.
+- Go back to your dna `finger`-printin'.
+- Something rigid the size of my `finger`.
+- Oh, i wasn't pointing my `finger` at you.
+- Only god can point the `finger`, loretta.
+- Just froze off all it's `finger` and toes.
+- When he flicks you away with one `finger`.
+- You don't know where that `finger`'s been!
+- I can't even put a band-aid on my `finger`.
+- I hold up my `finger` like "wait a second".
+- That centurion wouldn't lift a `finger`.
+- You lay a `finger` on her and i'll kill you.
+- We think we've got our `finger` on the buyer.
+- And... my `finger`�s on the trigger, you hear!
+- Figured it was worth losing a `finger` or two.
+- It's like having an eleventh `finger` removed.
+- Looks like somebody cut off his ring `finger`.
+- Next time i'll cut off more than his `finger`.
+- You're gonna `finger` me as soft on terrorism?
+- I think you just put your `finger` on it, i do.
+- I don�t think so, thank you... `finger` food...?
+- He's gonna lose a `finger` eating eggs like that.
+- Agent desmond, would you hold the `finger` for me.
+- He was dead long before we laid a `finger` on him.
+- Is my `finger` supposed to be wrapped around that?
+- Anything happens to huey it ain't gonna be a `finger`.
+- We make three `finger` lids and sell them on the beach.
+- It's like she's always worrying the end of her `finger`?
+- Monkey `finger` sniff sponsorships but even heroes fall.
+- Nobody can buy you a prayer, if i put the `finger` on ya.
+- I can't put my `finger` on it, but everything's a bit off.
+- There's the clear mark of a wedding ring on your `finger`.
+- But you�re going to stand there and point a `finger` at me?
+- It's just a prick of the `finger` and a few drops of blood.
+- You do it the old fashioned way -- you give 'em the `finger`.
+- I can't put my `finger` on it -- oh, well that's easy: i'm hot.
+- Monkey `finger` sniff t-shirts, sucks, but i'm dealing with it.
+- Notice my `finger` is clicking the mouse - a grandchild's love.
+- Stick your `finger` in the hole, and out comes a tootsie roll!'
+- I could never put my `finger` on it-something just wasn't right.
+- I used to complain to the city but they never lifted a `finger`.
+- She's got the family six- carat on her bony, unpolished `finger`.
+- You want to get into a `finger` pointing contest about character?
+- I swear to god if you lay a `finger` on her i'll fucking kill you!
+- Do you remember when will fell off his bike and broke his `finger`?
+- He had more talent in his `finger` than you have in your whole body.
+- I know you left school early to throw your middle `finger` up at me.
+- Scottie... why don't you just stick your `finger` in and stir it up.
+- I saw `finger` blades just like krueger's come out of jason's chest.
+- Those people almost drowned on that boat and you didn't lift a `finger`.
+- You could lift one `finger` and save her ass and you won't even do that?
+- So how come i love you most when you stick your `finger` in your chin...?
+- There appears to be a contusion under the ring `finger` of her left hand.
+- Every time you don't give me an answer, i'm going to cut off one `finger`.
+- I want to die knowing it is one the `finger` of the women my son loves.
+- But it's my own brother they're askin' me to `finger`� and johnny friendly.
+- It was my `finger` that pulled the trigger, but i'm not morally responsible.
+- No one even knew they were goin' out till she had that ring on her `finger`.
+- What the hell you gonna do when snyder rushes his `finger` right to lonnegan?
+- The hungarians were going to buy the one guy that could `finger` soze for them.
+- All you got to do is turn it on your `finger`, close your eyes, and make a wish.
+- You can tell something about him or we wouldn't have found the `finger` print...
+- I give you permission to point your `finger` at me and say "it was all his idea."
+- No way is he gonna let anybody walk out of that house alive, who can `finger` him.
+- The whole time you were a drunk, did i ever point my `finger` at you and talk shit?
+- Just keep your `finger` off the button till she's way away from the ship, that's all.
+- Jaha: how sure are you that the debris "monkey smells `finger` and falls out of tree."
+- For you, i wouldn't lift a `finger` -- but for her, i'll fix a little something to eat.
+- I'm afraid, you'll have to prick your `finger` -- but what's a little pain to a lucky man?
+- Harold--i want you to sit down in the chair, and not lift a `finger` until norbert is gone.
+- Minnesota fats's got more character in one `finger` than you got in your whole skinny body.
+                 

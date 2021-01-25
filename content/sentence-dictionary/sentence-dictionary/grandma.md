@@ -1,0 +1,68 @@
+---
+title: "grandma in a sentence | grandma example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "grandma"
+---
+- `Grandma`, look at me!
+- I'll miss you, `grandma`.
+- `Grandma` was still alive.
+- It was my idea, `grandma`.
+- Your `grandma` said, "no."
+- How old is `grandma` death?
+- Michael, this is `grandma`.
+- That was `grandma`'s quilt.
+- It's time for tea, `grandma`.
+- I come to `grandma`'s funeral.
+- I'm being such a `grandma`....
+- You'll love my `grandma` rosa.
+- `Grandma` dodi's pork rib joint.
+- As if it mattered to a `grandma`!
+- Cause you miss `grandma` so much.
+- `Grandma` death will teach me how.
+- I had a dream that `grandma` died.
+- We have to go see `grandma` death.
+- Do you know who `grandma` death is?
+- I'm the world's greatest `grandma`.
+- `Grandma` made me the cutest outfit.
+- They... dead `grandma`, is that you?
+- `Grandma` comes to visit me sometimes.
+- I gotta get some smokes for `grandma`.
+- I learned that at my `grandma`'s knee.
+- You're the world's greatest `grandma`.
+- I'll call `grandma` back and apologize.
+- You are the world's greatest `grandma`.
+- At least i got to see you and `grandma`.
+- I won't be dating her `grandma` anymore.
+- `Grandma` did stunt work for pearl white.
+- My `grandma` helped me get the words right.
+- All right, `grandma`� stop calling me mother!
+- I was just going to visit my `grandma` again.
+- I think her `grandma` had another heart attack.
+- So i guess your grandpa and `grandma` know her.
+- Except she live on the hill and got a `grandma`.
+- Grandpa, `grandma`, i want to tell you something.
+- `Grandma`, would you teach me how to make strudel?
+- Home is here in `grandma` and grandpa's new house.
+- What does `grandma` think you do at your meetings?
+- I need what's locked inside your `grandma`'s memory.
+- Right, 'cause your `grandma`'s smarter than ya think.
+- `Grandma` and grandpa sent you pictures of a neighbor girl.
+- I'm so touched you think i'm the world's greatest `grandma`.
+- You know, when you and `grandma` are gone, the family's gone.
+- But they think church is for `grandma` -- we could change that.
+- Hey, quit apologizing, you're starting to sound like `grandma`.
+- It's your `grandma`'s strudel that's kept this family together.
+- I like `grandma`'s cooking.... where's the lady who brings the soda?
+- This guy's been ripping off `grandma` and grandpa for seventeen years.
+- But you always let me.... come on, sweetheart.... watch me, `grandma`....
+- She skips the saturday morning trip to `grandma`'s even when she's not hungover.
+- Maybe i'm so pissed i'd twist the next off my own `grandma` to get out of here.
+- I spent a year sitting next to my `grandma` on the couch watching wheel of fortune.
+- Dad's fishing trip, `grandma`'s knee operation, `grandma`'s birthday... ah, beautiful.
+- How can you even mention spaghetti- o's after eating `grandma` rosa's dinner tonight?
+- Oh, come on--you and `grandma` think anybody who works with their hands is a peasant.
+- You were a monkey.... don't be such a `grandma`...i was always climbing something....
+- Visiting your `grandma` on the lake, driving into the tomahawk for some scotch and slots.
+- If your `grandma` is who she says she is, she was wearing the diamond the day titanic sank.
+                 

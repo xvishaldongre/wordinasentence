@@ -1,0 +1,107 @@
+---
+title: "drive in a sentence | drive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drive"
+---
+- Better let me `drive`.
+- Come on, i'll `drive`.
+- George can `drive` us.
+- I `drive` a fork-lift.
+- I'll `drive` you home.
+- In this flash `drive`.
+- Into the mind `drive`.
+- They `drive` me crazy.
+- They took his `drive`.
+- `Drive` down the block.
+- I know how you `drive`.
+- Joyce, please, `drive`!
+- Just `drive`, gregoire.
+- Just `drive` me around.
+- Let's `drive` to vegas!
+- Let's go for a `drive`.
+- She'll `drive` herself.
+- They'd `drive` us away.
+- 6522 cherry oak `drive`.
+- Can i `drive` the plane?
+- Can you `drive` me home?
+- Come on, let me `drive`.
+- Don't think and `drive`.
+- I'll `drive` you down...
+- It's not a long `drive`.
+- Just `drive` toward him.
+- Let me `drive` you home.
+- No, i've got to `drive`.
+- Can you `drive` this car?
+- ...`drive` me to a motel?
+- `Drive` safely, you hear?
+- Hey, you want to `drive`?
+- I'll just `drive` my car.
+- It's a four hour `drive`.
+- I used to `drive` a taxi.
+- I want to `drive` awhile.
+- Nice night for a `drive`.
+- Plus the man can `drive`.
+- We're doing this `drive`.
+- We work on rodeo `drive`.
+- Why can't i `drive` home?
+- Will you `drive` me home?
+- You'd better `drive` him.
+- You're not gonna `drive`.
+- `Drive` an old jalopy?
+- Where did you `drive`?
+- `Drive` me to the durando.
+- For supplies, you `drive`.
+- God, you `drive` me crazy.
+- I don't `drive` a minivan.
+- I like your `drive`, hugo.
+- I'll `drive` you, darlin'.
+- I'll even let you `drive`.
+- It can `drive` you schizo.
+- It would `drive` me crazy.
+- Like a four wheel `drive`.
+- Okay, vaughn, you `drive`.
+- Stand by for warp `drive`.
+- Take out her mind `drive`.
+- That's the old `drive`-in.
+- We're going for a `drive`.
+- You `drive` like a maniac!
+- `Drive` on up to chino.
+- I'm gonna `drive` you home.
+- I only saw theo `drive` up.
+- That's a heck of a `drive`.
+- We coming to dopey `drive`.
+- You didn't `drive` her mad.
+- You do know how to `drive`?
+- You `drive` a hard bargain.
+- You want me to `drive` you?
+- But you know how to `drive`?
+- Can you `drive` me back now?
+- Damn, that's a long `drive`.
+- Does it `drive` itself, too?
+- ... do you `drive` this, mr.
+- Gabor will `drive` you back.
+- Gabriel took out my `drive`.
+- It's a long `drive` up here.
+- Now let me `drive` you home.
+- Shut your mouth and `drive`!
+- To back up onto the `drive`.
+- <u>i'll</u> have to `drive`!
+- We don't need it to `drive`.
+- Why `drive` when we can fly?
+- You can `drive` a guy crazy.
+- You gonna `drive` out there?
+- You're not going to `drive`!
+- You're not going to `drive`.
+- Are you sure you can `drive`?
+- But that's an hour's `drive`.
+- Eleanor, how was the `drive`?
+- God, do i want to `drive` it.
+- Good... you up for a `drive`?
+- I even taught him to `drive`.
+- It's time for my new `drive`.
+- I wanted to `drive` you home.
+- Pull the `drive`-in speakers.
+- Would you like me to `drive`?
+- You couldn't `drive` her out.
+                 

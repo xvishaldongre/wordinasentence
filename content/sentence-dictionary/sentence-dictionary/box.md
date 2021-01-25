@@ -1,0 +1,107 @@
+---
+title: "box in a sentence | box example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "box"
+---
+- Get the `box`, nephew.
+- I'll send you a `box`.
+- I will open the `box`.
+- Uh, where's the `box`?
+- Wages 5 cents a `box`.
+- What's in the `box`???
+- You know how to `box`?
+- Anyway, open the `box`.
+- From this `box` here...
+- Gimme that other `box`.
+- We're in a metal `box`.
+- I can sell my `box` set.
+- In a `box` under my seat.
+- It's just a puzzle `box`.
+- We call it the sky `box`.
+- We must force that `box`.
+- Hand me that `box`, marty.
+- He can smell `box` office.
+- Inside this `box` forever.
+- Or kip goes in that `box`.
+- That's the donation `box`.
+- Hippy's on the bitch-`box`.
+- The `box`... you opened it.
+- Guys, i've got a lock `box`.
+- I... can i carry your `box`?
+- Ice cream truck/`box` - day.
+- It'll hurt the `box` office.
+- I've opened pandora's `box`.
+- Splashing milk in her `box`.
+- We heard in the black `box`.
+- A `box` of fortune cookies...
+- That black `box` in our cell?
+- What's in the `box`, general?
+- Where did you get this `box`?
+- You were his what, his `box`?
+- Give 'em a `box` of macanudos.
+- I'm not gonna `box` myself in.
+- The answer's not in the `box`.
+- There's a `box` in the pantry.
+- What do you have in the `box`?
+- You can put those in my `box`.
+- Except that i've got the `box`.
+- I wrote my number on the `box`.
+- The ones in the `box` of files.
+- We got `box` loads of evidence.
+- Do you know where fuse `box` is?
+- I found them in your file `box`.
+- In jerry's safety deposit `box`.
+- We better get it into the `box`.
+- Do you know what's in that `box`?
+- She could have been a gray `box`.
+- The creatures the `box` set free.
+- What's the little black `box` do?
+- Your daughter's in the sky `box`.
+- Ain't jemima on the pancake `box`?
+- Just the grub `box` and bed rolls.
+- Your little jack-in-the-`box` gun.
+- She don't know how to `box`, i bet.
+- The `box` next to it is ammunition.
+- Bombing at the `box` office bellamy.
+- ...the `box` can change their lives.
+- To interact with another gray `box`?
+- You know something about this `box`.
+- You'll find joan gale in that `box`.
+- I bought you a four-six exacta `box`.
+- It didn't come out of a cereal `box`.
+- This place is a goddamn tinder `box`.
+- We got some chicken in the ice `box`.
+- You rented an automated litter `box`.
+- You see the lever on the green `box`?
+- 770 471 is the number of a call `box`.
+- Can't put the truth back in the `box`.
+- Hell, i can get you the mayor's `box`.
+- I'm guessing you got a `box` too, huh?
+- On the black `box` of the exodus ship.
+- She was connected up to a voice `box`.
+- Then where is she -- in the ice `box`?
+- Found them in the `box` with the cards.
+- I want this `box` rigged with a beacon!
+- You check up on the `box` office girls.
+- Aren't you supposed to be in that `box`?
+- "for always thinking outside the `box`."
+- It all seemed to make sense until `box`.
+- You know, the `box` and the chain thing.
+- I got shells too, `box` and a half, tops.
+- The `box` had to be opened to let me out.
+- First, i conceal myself within this `box`.
+- Send her a `box` of candy from blum's, $10.
+- Cartman, over zere, is the electrical `box`.
+- Gifford - that `box` glued to your hands...?
+- No employees, no directors, just a po `box`.
+- That's all that's been on the `box` all day.
+- Because i didn't call home a cardboard `box`?
+- Put this cash in your safety deposit `box`...
+- Alright... susan, get buckingham on the `box`.
+- He's got two million in the `box`, am i right?
+- I brought my treasure `box` for show-and-tell.
+- The cable will terminate in a big, gray `box`.
+- We use the kind in the green and yellow `box`.
+- Yeah, it's this `box`, it has pictures, sound.
+                 

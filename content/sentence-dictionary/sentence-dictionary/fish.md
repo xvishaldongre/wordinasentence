@@ -1,0 +1,107 @@
+---
+title: "fish in a sentence | fish example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fish"
+---
+- It tastes like `fish`.
+- Fermented `fish` sauce.
+- That's how `fish` swim.
+- ...what kind of `fish`?
+- For the `fish` handlers.
+- No, `fish` is a pm food.
+- She's all your's `fish`.
+- The co-pilot had `fish`.
+- What a beautiful `fish`.
+- What about my `fish`?
+- `Fish`, i'm really sorry.
+- The `fish` saved my life.
+- There's all these `fish`!
+- You may serve the `fish`.
+- You're not even a `fish`!
+- You don't want the `fish`.
+- Do you hear buzzing `fish`?
+- I came to feed your `fish`.
+- It is a good story, `fish`.
+- Some powdered jelly `fish`.
+- That `fish` smelled strong.
+- Uh, we both like to `fish`.
+- We got bigger `fish` to fry.
+- Every `fish` tastes the same.
+- How am i gonna land a `fish`?
+- It's the oily `fish` tonight.
+- Speaking of which, go `fish`.
+- Catch another `fish` tomorrow.
+- `Fish` are creatures of habit.
+- `Fish`... ... brussel sprouts.
+- I ever made you kiss a `fish`.
+- Shut up about the damn `fish`!
+- The `fish` ain't biting today.
+- The trout... ...like a `fish`.
+- Well, what `fish` do you seek?
+- You saw the `fish` man, right?
+- Bigger `fish` want to eat them.
+- Did we settle the `fish` thing?
+- I can't even keep `fish` alive.
+- I want you to fix these `fish`!
+- This is a mammal, not a `fish`.
+- You drink red wine with `fish`.
+- He caught an uncatchable `fish`.
+- It's not a woman, it's a `fish`.
+- I was in the `fish`-market play.
+- Maybe you're right about `fish`.
+- No... did you `fish` in messina?
+- Of course it smells like `fish`.
+- Same thing from `fish` and game.
+- Thass why all the `fish` are up.
+- Where we first found the `fish`.
+- I'll have the special `fish`.
+- Would you like to try the `fish`?
+- Yeah, `fish` live in the present.
+- Nothing like eating `fish` sticks.
+- Now bigger `fish` to fry, i guess.
+- I don't know how to `fish`, louise.
+- Jordan... come back, camera `fish`!
+- Lady, we better `fish` or cut bait.
+- To the point of killing the `fish`.
+- Watch you don't knock out a `fish`.
+- You're barking up the wrong `fish`.
+- Big `fish` in a small pond, he says.
+- Don't tell me `fish` stories, kiddo.
+- You made a goddamn feathered `fish`.
+- Meanwhile i got badder `fish` to fry.
+- Uh, yes, uh, thank you, super-`fish`.
+- For instance, i don't eat `fish` eyes.
+- It's all fuckin' flyin' `fish` filet!!
+- What the fuck do you care, new `fish`?
+- Did you ever eat `fish` heads and rice?
+- He could name every `fish` in the lake.
+- Rumor has it you're a real cold `fish`.
+- That's what i told the `fish` i caught.
+- There were piranha `fish` in the water.
+- Von scherbach has caught the `fish`.
+- Doctor rumack, mister hammen ate `fish`.
+- Don't worry, i won't get another `fish`.
+- I work at dennis brothers `fish` supply.
+- Nobody in america eats `fish` in the am.
+- The expression is "land this `fish`."
+- I gotta make a report to `fish` and game.
+- No whining on some `fish`-shrink's couch.
+- What are you trying to say to me, `fish`?
+- Why wouldn't you eat a `fish` eye, harry?
+- You are a strange `fish`, little brother.
+- The expression is "landing the `fish`."
+- `Fish` are very resilient animals you know.
+- I'm going to hire quint to kill the `fish`.
+- Is that the `fish` you won at the carnival?
+- Kid, you were a big `fish` in a small pond.
+- Over the `fish` of the sea, where are they?
+- She has a `fish` bone caught in her throat.
+- That's why i don't ever eat `fish` eyes.
+- Chum -- blood, waste meat, `fish`, anything.
+- Don't you always have white wine with `fish`?
+- I saw a guy eat a `fish` eye once in seattle.
+- The gulls were after your `fish`, mr. sholes.
+- Instead of a big `fish` it's... who knows?
+- My father used to `fish` with a barrel of ale.
+                 

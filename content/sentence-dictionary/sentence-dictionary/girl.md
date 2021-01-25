@@ -1,0 +1,107 @@
+---
+title: "girl in a sentence | girl example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "girl"
+---
+- `Girl`'s like it slow.
+- How is the old `girl`?
+- I don't have a `girl`.
+- I had a little `girl`.
+- Is he with the `girl`?
+- Leave a `girl` behind?
+- Like a glamour `girl`.
+- Like kissing a `girl`.
+- Never mind the `girl`!
+- Now, that's my `girl`.
+- Our son with a `girl`?
+- She's a vassar `girl`.
+- So you got the `girl`.
+- The `girl` needs help.
+- The `girl` worries me.
+- There's this `girl`...
+- This `girl` on a dock.
+- ...to steal my `girl`.
+- What about the `girl`?
+- What'd the `girl` say?
+- You're a silly `girl`.
+- You're quite a `girl`.
+- A `girl` has to fit in.
+- A `girl` on low's list.
+- A `girl` would be nice.
+- A little cyborg `girl`.
+- A little `girl`, chief.
+- But you a grown `girl`.
+- Did he harm the `girl`?
+- Er, the `girl`, i mean!
+- He's bringing a `girl`?
+- I have a little `girl`.
+- I'm a very sick `girl`.
+- Must be billy's `girl`.
+- Nice `girl` - no ghost.
+- See, i met this `girl`.
+- She's my little `girl`.
+- She was tommy's `girl`.
+- Step aside, sky `girl`.
+- That `girl`'s an idiot.
+- That's a good `girl`...
+- That would be a `girl`.
+- The `girl` and the kid.
+- The `girl`'s dryin' up!
+- The `girl`, was it her?
+- The new `girl` is here.
+- This mayfield `girl`...
+- To show you the `girl`?
+- Were you a good `girl`?
+- What about that `girl`?
+- Where's the `girl` now?
+- Who's the lucky `girl`?
+- You brought the `girl`!
+- You enjoyed the `girl`?
+- "you know what, `girl`?
+- Your `girl`'s a menace.
+- You wanna czech `girl`?
+- A friend who's a `girl`.
+- Boy or `girl`... jordan.
+- But you're not a `girl`.
+- Color me stoked, `girl`.
+- Don't get cocky, `girl`.
+- Hello, eddie's `girl`...
+- Is it a boy or a `girl`?
+- I slept with the `girl`.
+- It doesn�t, dear `girl`.
+- I've never had a `girl`.
+- Mace... you're a `girl`.
+- Now... that's my `girl`.
+- One in the `girl`'s leg.
+- Poor little rich `girl`.
+- Rush your mouth, `girl`.
+- Send in the next `girl`.
+- She must be some `girl`.
+- She was a little `girl`.
+- Take care of the `girl`.
+- Thank you, melty `girl`.
+- That poor little `girl`.
+- The `girl`'s got rhythm.
+- There is a `girl` there.
+- This `girl` has a child?
+- To the `girl` who waits.
+- Were you a disco `girl`?
+- Where is the old `girl`?
+- Who's the little `girl`?
+- You can have the `girl`.
+- You got a `girl`-friend?
+- You got a little `girl`?
+- You in the back, `girl`!
+- You know a white `girl`?
+- You shoot like a `girl`.
+- A clever `girl` like you?
+- Be my good `girl` and go.
+- Did you find your `girl`?
+- First `girl` i ever knew.
+- I have a `girl` up there.
+- I'm going for the `girl`.
+- I'm looking for a `girl`.
+- I'm sorry for the `girl`.
+- I'm that `girl`'s fianc�.
+                 

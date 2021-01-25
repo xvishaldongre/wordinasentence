@@ -1,0 +1,53 @@
+---
+title: "agents in a sentence | agents example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "agents"
+---
+- Federal `agents`, ma'am.
+- Two `agents` died today.
+- You're not fbi `agents`.
+- Well, we're fbi `agents`.
+- She's one of our `agents`.
+- `Agents` duncan, mackelway.
+- Only we call them `agents`.
+- What about the other `agents`?
+- `Agents` who died in the field.
+- That makes three `agents` lost.
+- Vanessa's one of our top `agents`.
+- You know about booking `agents`...
+- Marcee -- this is one of our `agents`.
+- Gaming `agents` are all over the place.
+- Think she really killed those `agents`?
+- Find out how and why these `agents` died.
+- We've lost enough `agents` for one night.
+- This morning three soviet `agents` arrived.
+- That's where they used to get us `agents` from.
+- `Agents` just started grabbing us and stuff... jesus!
+- Jessica's parents are travel `agents` and -- hi, sam.
+- I didn't want any of those `agents` near my place.
+- The `agents` -- this line is tapped so i must be brief.
+- It's a bunch of young `agents` and it's at a restaurant.
+- You mean <u>i've</u> lost enough `agents` for one night.
+- Mercenaries -- `agents`, traitors -- they put out caches.
+- He wants to prove that his yuppie `agents` are making good.
+- You go see `agents` -- or equity calls, open casting calls.
+- Milo, you told me those doj `agents` are all over the place.
+- Even if you somehow got inside, those are `agents` holding him.
+- `Agents` reese and foley, from the nuclear regulatory commition.
+- The `agents` who have worked out here say its like going into nam.
+- These are highly trained `agents` overreacting without just cause.
+- Have federal `agents` jump out of the bushes with court orders?
+- The whole kit and caboodle of 'em are british intelligence `agents`.
+- I gotta move 45 `agents` from all over the country into l.a. alright?
+- You're talking about two `agents` in a regional office in louisville.
+- From what we can tell, there are hundreds of `agents`, all over the city.
+- See, your fingerprints are now on the murder weapon of four fbi `agents`.
+- Colonel richards here has had a dozen `agents` on these cases for over a year.
+- A dozen press `agents` working overtime can do terrible things to the human spirit.
+- They will teach my story to other `agents` on "do not do this" day in agent school.
+- I'll make it up to you -- we watched his father get dragged away by federal `agents`.
+- And these `agents` were trying to shoot us-- you're pretending like everything is okay.
+- The fbi doesn't have a monopoly on `agents` infiltrating enemy organizations, my friend.
+- There is a ship, in the hong kong harbor... tell me why they killed the customs `agents`.
+                 

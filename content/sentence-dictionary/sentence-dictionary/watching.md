@@ -1,0 +1,107 @@
+---
+title: "watching in a sentence | watching example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "watching"
+---
+- He was `watching` you.
+- I been `watching` you.
+- Is anybody `watching`?
+- I was `watching` that!
+- Maybe he's `watching`.
+- Nobody was `watching`?
+- They're `watching` us.
+- You're `watching` t.v.
+- Everyone is `watching`!
+- `Watching` on the cctv.
+- Were you `watching` me?
+- I saw you `watching` me.
+- They were `watching` me.
+- What are you `watching`?
+- You'll be `watching` me.
+- I'll keep `watching` her.
+- I'm `watching` milos die.
+- I'm `watching` my figure.
+- I've been `watching` you.
+- Keep `watching` the news.
+- Madame may be `watching`.
+- My people are `watching`.
+- We'll both be `watching`.
+- (grunts) she's `watching`.
+- Mekum, `watching`, smirks.
+- The police are `watching`.
+- They're `watching` us now.
+- When i go bird-`watching`.
+- Who's `watching` the baby?
+- Who's `watching` the door?
+- With the world `watching`.
+- He's `watching` television.
+- I couldn't help `watching`.
+- "oh, someone's `watching`."
+- People might be `watching`.
+- They've been `watching` us.
+- We're `watching` it happen.
+- Are you `watching` the news?
+- Been `watching` too much tv.
+- By `watching`, he's learned!
+- Haven't you been `watching`?
+- I'll be `watching` over you.
+- Nobody's `watching` my show.
+- No one's `watching`, anyway.
+- The children are `watching`.
+- They're `watching` you, neo.
+- You `watching` the ballgame?
+- Hey, we were `watching` that.
+- I'll be `watching` you close.
+- I think someone's `watching`.
+- You think they're `watching`?
+- Because no one was `watching`.
+- I've been `watching` you work.
+- They've left, keep `watching`!
+- Think zimmermann's `watching`?
+- He's `watching` the other door.
+- He's `watching` us like a hawk.
+- I know they were `watching` me.
+- I wasn't `watching` television.
+- She's `watching` the car again?
+- They're already `watching` you.
+- They're `watching` him closely.
+- `Watching` television in color.
+- Well, i've been `watching` you.
+- You're `watching` an old movie.
+- He's `watching` sanderson's kid.
+- I'm `watching` it on television.
+- I've been `watching` you change.
+- Neighbors are `watching` for it.
+- The group `watching` television.
+- ...`watching` us drink his beer.
+- You've been `watching` the film.
+- Are you `watching` a porno movie?
+- Because i've been `watching` you.
+- He was `watching` letterman, huh?
+- I was `watching` you `watching` me.
+- Mister riddle was `watching` you?
+- Oh, they're `watching` all right.
+- She knows we're still `watching`.
+- She was `watching` me <u>die</u>.
+- That cop, he keeps `watching` me.
+- `Watching` my mother heal people.
+- I know he's `watching` us now.
+- But they're `watching` everything.
+- I'll be `watching` you, young man.
+- I thought you were `watching` him.
+- I was `watching` in the rear view.
+- Just remember, i'll be `watching`.
+- The boss is `watching` us... what?
+- We're `watching` the movie, harry.
+- Did you like it; me `watching` you?
+- It's mostly just for `watching` tv.
+- Like i said; i been `watching` you.
+- People `watching` you all the time.
+- We are `watching` my fucking movie.
+- With you clowns `watching` my back?
+- You've been `watching` too much tv.
+- _ ♪ all our eyes are `watching` you.
+- Brad and i are `watching` the house.
+- So i started `watching` your father.
+                 

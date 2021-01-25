@@ -1,0 +1,107 @@
+---
+title: "honor in a sentence | honor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "honor"
+---
+- It's quite an `honor`.
+- We rest, your `honor`.
+- I have had the `honor`.
+- In your `honor`, nigel.
+- It would be an `honor`.
+- We `honor` their lives.
+- Your `honor`, i object.
+- Your `honor` -- please!
+- "`honor`, " if you like.
+- I'm sorry, your `honor`.
+- Objection, your `honor`!
+- Objection, your `honor`.
+- Objection, your `honor`!
+- Objection, your `honor`.
+- Or `honor` or composure.
+- Thank you, your `honor`.
+- Thank you, your `honor`.
+- The `honor` is all mine.
+- There's `honor` in that.
+- We object, your `honor`.
+- Well, yes, your `honor`.
+- Your `honor`, i'm scared.
+- "your `honor`, i object!"
+- Duty isn't always `honor`.
+- Seven years, your `honor`.
+- When i'm guest of `honor`?
+- Do you accept this `honor`?
+- Four `honor` medals... gci.
+- I'd consider it an `honor`.
+- I'll bury him with `honor`.
+- It would be `honor`, brock.
+- Suits, `honor` and flowers.
+- It's an `honor` for me, sir.
+- It's an `honor` to meet you.
+- Joseph miller, your `honor`.
+- `Honor`, strength, and unity.
+- I'll put you on your `honor`.
+- The guest of `honor` at last!
+- The highest `honor` is death.
+- Yes, but will you `honor` it?
+- Your `honor`, this is absurd.
+- Nothing further, your `honor`.
+- That's even a greater `honor`.
+- _ the `honor` should be yours.
+- They have the post of `honor`!
+- Congressional medal of `honor`.
+- It's an `honor` to receive you.
+- Mr. president, it's an `honor`.
+- It will be a book in my `honor`.
+- Now i `honor` you with my faith.
+- With pleasure... and an `honor`.
+- He just got off the `honor` farm.
+- Soul of `honor`--on a tight-rope.
+- The primes will `honor` the deal.
+- The whole `honor` and duty thing.
+- Your reputation does you `honor`.
+- Blodreina gave that `honor` to me.
+- <i></i> this is an <u>`honor`</u>.
+- It is an `honor` to have you here.
+- It's an `honor` to meet you lance.
+- It was self-defense, your `honor`.
+- Now, your `honor`, may i show you?
+- So much for `honor` among thieves.
+- Your `honor` must lower his voice.
+- Your `honor`, that's not fair -- !
+- It was an `honor` to work with you.
+- Mr. whale, this is such an `honor`.
+- My client can't walk, your `honor`.
+- She's an `honor` student at parker.
+- This--this is a great `honor`, sir.
+- Men who know the meaning of `honor`.
+- Thank you for this `honor`, my dear.
+- The palace of the legion of `honor`.
+- The prosecution rests, your `honor`.
+- You will `honor` your promise to me!
+- You would `honor` me by translating.
+- Serving with you has been an `honor`.
+- That's `honor` enough for a lifetime.
+- Way to `honor` your brother's memory.
+- We just discovered him, your `honor`!
+- In `honor` of our guests this evening.
+- The man is a psychopath, your `honor`.
+- They do it to `honor` the dead, ellen.
+- They'll have a parade in your `honor`.
+- Harold--it is not `honor` to be killed.
+- Look, bruce, this is a debt of `honor`.
+- One more thing, your `honor`... arline?
+- Thank them for this incredible `honor`.
+- Thank you, your `honor`, i'll continue.
+- The world isn't about `honor`, anymore.
+- Your `honor`, may i approach the bench?
+- For defending my `honor` this afternoon.
+- I do not, your `honor`, however-- i see.
+- So i'm giving you the `honor` bold move.
+- Hudson hawkins gets the chair of `honor`.
+- Making it through was kind of an `honor`.
+- So tell me, to what do i owe the `honor`?
+- If you `honor` them both, you <u>must</u>.
+- My `honor`, that's what i'm fighting over.
+- Would you do us the `honor` of joining us?
+                 

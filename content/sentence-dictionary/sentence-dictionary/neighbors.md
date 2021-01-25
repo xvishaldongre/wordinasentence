@@ -1,0 +1,56 @@
+---
+title: "neighbors in a sentence | neighbors example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "neighbors"
+---
+- We're `neighbors` now.
+- The `neighbors` from hell.
+- Well, i'm the `neighbors`.
+- None of the `neighbors` know.
+- Do not talk to the `neighbors`.
+- Our `neighbors` gave me a ride.
+- `Neighbors` are watching for it.
+- Yeah, the `neighbors` might see.
+- Are we being `neighbors` for now?
+- To investigate your `neighbors`, no!
+- Let's just say that we're `neighbors`.
+- Suppose the `neighbors` heard the noise?
+- Loudly, so that the `neighbors` can hear.
+- `Neighbors` said they heard a lady scream.
+- Promise you'll be nice to the `neighbors`.
+- Just introducing myself to the `neighbors`.
+- These ain't strangers, they're `neighbors`.
+- Your `neighbors` are here, for fuck's sake.
+- America told me your `neighbors` are coming?
+- For our new `neighbors` from eastern europe.
+- Well i guess we're `neighbors` for this trip.
+- Looks like we're knee `neighbors`, huh, buddy?
+- It says the `neighbors` are getting suspicious.
+- They don't know, i sent them to the `neighbors`.
+- Austria was weak, and it's `neighbors` were strong.
+- I guess you don't get bothered by `neighbors` much.
+- Same job, same `neighbors`, same shit over and over.
+- We're new in the neighborhood, gonna be `neighbors`.
+- Those were your words, according to your `neighbors`.
+- We can talk to `neighbors` to see what bars he frequents.
+- _ he's incredibly generous to his friends and `neighbors`.
+- We were `neighbors` for a couple for weeks on sutton place.
+- Is that the `neighbors`', or... engineering needs 6 months no.
+- Probably get a lot of complaints from the `neighbors` -- heh...
+- Boss, some of those men are my `neighbors`, they know i'm tutsi.
+- `Neighbors` heard them screaming at each other for like two hours.
+- If your `neighbors` didn't mind, how'd you get put out of business?
+- Some `neighbors` called said they heard screaming and a loud crash.
+- We oughta take some of this, give it to our `neighbors` in liberty.
+- The `neighbors` over there said the guy spent day and night out here.
+- We'll let the house, and the lands too; plenty of willing `neighbors`.
+- Whaddizit, you, how's your day, our gallant international `neighbors`...?
+- Keeps to himself, and none of the `neighbors` got close to him, or his wife.
+- Apparently we're `neighbors` - my house is two blocks from yours in montreal.
+- A body's got to be humble even if he knows that he's better'n his `neighbors`.
+- One of your `neighbors` is adamant your home has exceeded its approved height.
+- We know you don't want to bring pain and misery to your friends and `neighbors`.
+- I understand from your `neighbors` that all [them] cats are making noise at night.
+- Because it's loud enough so the `neighbors` don't complain, that's how come i know.
+                 

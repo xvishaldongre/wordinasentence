@@ -1,0 +1,54 @@
+---
+title: "dope in a sentence | dope example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dope"
+---
+- But not `dope`... people.
+- What's the `dope`, sheriff?
+- He looked like such a `dope`.
+- Thai `dope` best in the world.
+- You must think i'm some `dope`.
+- Any `dope` yet on how he got out?
+- I was trying to score some `dope`.
+- The money wasn't there for `dope`.
+- I don't know anything about `dope`!
+- I'm lonesome so i'm a `dope` fiend.
+- You figure him for a `dope` runner?
+- You want to be a `dope` like me?
+- I'd have been a great `dope` addict.
+- Real protection.&gt;&gt; not `dope`.
+- They forced me to take a `dope` test.
+- I used to run a lot of `dope` for him.
+- Some `dope` might use it as an ashtray.
+- You know who put the `dope` in your bag?
+- I want to lie low till i get the whole `dope`.
+- You're coming with me, you great white `dope`!
+- He's-he's-he's not a `dope` addict or anything.
+- We know, but our man says no way on the `dope`.
+- The pigs are gonna start flooding us with `dope`.
+- She <i>knew</i> me from some bullshit `dope` bust.
+- `Dope`, liquor, hookers that look like movie stars.
+- What're you talking about -- i'm not a `dope` fiend!
+- Your friend here's been tellin' us about `dope` fiends.
+- What about the `dope` paragraph in mr. christy's letter?
+- Drugs judge, they're gonna flood west oakland with `dope`.
+- Look, if you really wanna score some `dope`, i got the guy.
+- I see the usual gang of misfits and `dope` addicts are here.
+- Your boyfriend fucked me, smoked my `dope`, then shopped me.
+- Guy scores `dope` and dollar from ripping off other drug dealers.
+- Thinks he's some player cuz he hustles `dope` and stolen hubcaps.
+- Everything is `dope` and whores; the gambling is left to last.
+- Yeah, then some `dope` to take the edge off at the end of a long day.
+- Sleeping in the park, smoking `dope` and sticking tulips up their ass.
+- Scratch this thing an you'll find they wanted a `dope` here for two months.
+- You get cancer, your hair falls out, but you <u>do</u> get to smoke `dope`.
+- If it was a `dope` deal, where's the `dope`, if it was a hit, who called it in?
+- Steering a poor `dope` up blind alleys for that grafting taylor mob is low enough.
+- But now you've strayed from your area of expertise -- `dope` -- into street assassins.
+- Sid, why would a guy like pierce patchett get involved with running `dope` and hookers?
+- Look, we're kind of.... you know, sonny, i used to `dope` a lot, and i was into dipping?
+- They make `dope` out of chemicals... they sell it on the street for millions of dollars.
+- Such as sitting in a darkened room, watching videos, drinking, smoking `dope` and wanking.
+- A boy who lies through his teeth, buys demonic records, and smokes the `dope` just like you.
+                 

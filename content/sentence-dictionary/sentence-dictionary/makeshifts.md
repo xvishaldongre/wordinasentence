@@ -1,0 +1,7 @@
+---
+title: "makeshifts in a sentence | makeshifts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "makeshifts"
+---
+## Unfortunately, we have no example sentences for makeshifts                 

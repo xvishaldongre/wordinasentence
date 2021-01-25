@@ -1,0 +1,107 @@
+---
+title: "war in a sentence | war example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "war"
+---
+- From the korean `war`.
+- He'll stop that `war`.
+- How's your `war`, mac?
+- Is the `war` worth it?
+- Is winning this `war`.
+- It's worse than `war`.
+- One last `war`, raven.
+- The cold `war`'s over.
+- This is a `war`, wade.
+- This is `war`, clarke.
+- You were in the `war`?
+- He's got the `war`.
+- A `war` you could stop.
+- Course there's a `war`.
+- I am `war`, i am death.
+- It was after the `war`.
+- Just like in the `war`.
+- Maybe the `war`'s over.
+- Test, `war`, test, `war`.
+- That was another `war`.
+- That was another `war`.
+- The cold `war` is over.
+- The last `war` is here!
+- The `war` in the joint.
+- Time to end this `war`.
+- Trying to stop a `war`.
+- `War` finds me willing.
+- `War` is not all black.
+- We have a `war` to win.
+- We're already at `war`.
+- We're at `war`, clarke.
+- We start another `war`?
+- Because this is a `war`.
+- For what, another `war`?
+- He just ended the `war`.
+- He's not going to `war`.
+- He was a `war` reporter.
+- In someone else's `war`.
+- "make algae, not `war`."
+- The real `war` is in us.
+- There's a `war` on, man!
+- This is an act of `war`.
+- To start the last `war`.
+- Until the `war` is over.
+- `War` to end all wars...
+- We declared `war` again?
+- Who does not know `war`?
+- Why do they go to `war`?
+- Yes, i was in the `war`.
+- A real shit-eatin' `war`.
+- Cold `war`'s over, jerry.
+- First world `war`, right?
+- His people win the `war`.
+- I lost them in the `war`.
+- It isn't much of a `war`.
+- It was after the `war`...
+- I was stopping the `war`.
+- Make `war` to the camera.
+- My scar is a `war`-wound.
+- No one called it a `war`!
+- ...that�s our `war` room.
+- They're losing the `war`.
+- `War` is brewing, clarke.
+- `War`, more dead friends.
+- We can prevent the `war`.
+- We're readying for `war`.
+- We were losing the `war`.
+- Will we be in this `war`?
+- Will we ever be in `war`?
+- And our last `war` begins.
+- Especially during a `war`.
+- So, what about this `war`?
+- "the country is at `war`."
+- The great `war`, you know.
+- There is a `war` going on!
+- This isn't just our `war`.
+- This `war` is almost over.
+- Who only understand `war`.
+- Who only understand `war`.
+- Why do people go to `war`?
+- You have to fight a `war`.
+- Came here before the `war`.
+- Go back to your `war` tent.
+- If not, it's all out `war`.
+- If not, it's all-out `war`.
+- Singer's return from `war`.
+- [sniffles] `war` is coming.
+- Tell me some `war` stories.
+- There was a `war` going on.
+- Think we're going to `war`?
+- This is not the last `war`.
+- To fight a two-front `war`.
+- Tomorrow we plan our `war`.
+- You have to stop the `war`.
+- You watched the gulf `war`.
+- All these were in the `war`.
+- But now it's our `war` room.
+- Can't let you start a `war`.
+- I committed no `war` crimes.
+- I'll win your `war` for you.
+                 

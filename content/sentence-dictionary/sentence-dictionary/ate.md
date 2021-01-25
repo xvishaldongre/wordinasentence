@@ -1,0 +1,104 @@
+---
+title: "ate in a sentence | ate example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ate"
+---
+- I already `ate` lunch.
+- Oh, daddy `ate` yours.
+- They `ate` them alive!
+- We already `ate` them.
+- Enid `ate` a whole pan!
+- But i `ate` them anyway.
+- "dad `ate` all the pie."
+- She never `ate` a slice.
+- Thanks, i already `ate`.
+- I `ate` a guy last night.
+- Otan `ate` the damn chip.
+- But i `ate` your mom's pie.
+- Not one dog `ate` pup corn.
+- He... `ate` a balanced diet.
+- It's what the pioneers `ate`.
+- You `ate` without me already?
+- I `ate` it, too, and i'm fine.
+- That madi and i already `ate`.
+- Yes, my family `ate` dripping.
+- It's probably something i `ate`.
+- It's time somebody `ate` *them*.
+- You `ate` two baclavas, right?
+- I almost forget when i `ate` last.
+- You mean they `ate` each other up?
+- He never `ate` the pre-nup, did he!
+- I `ate` breakfast and went shopping.
+- I can't believe they still `ate` it.
+- If you `ate` at the tip top you did.
+- I `ate` a dog when i was in thailand.
+- She `ate` a pistol for lunch one day.
+- He `ate` the whole fucking light bulb.
+- Maybe gregoire and the witch `ate` it.
+- Once, when i was six, i `ate` a radio.
+- That's what `ate` handsome tom's face.
+- Well, uh, you know, she `ate` the gun.
+- Well, we `ate` everything without you.
+- We ain't `ate` nothin' since yestidday.
+- Doctor rumack, mister hammen `ate` fish.
+- Like i actually `ate` dinner last night.
+- Only the poorest families ever `ate` it.
+- She `ate` a meal that would choke a pig!
+- He really did, he `ate` his little niece.
+- You `ate` with her and worked with her...
+- I don't care what the damn pioneers `ate`.
+- Means you `ate` before you came down here?
+- Since the snake that `ate` three pool balls.
+- There was this old man that `ate` his niece.
+- How did you feel when you `ate` this guy?
+- I could have waited until he `ate` your head.
+- Because his face opened up and he `ate` my cat.
+- The chart said she `ate` nine hours prior to...
+- The people who `ate` had to watch you're right.
+- All right, who `ate` the last piece of cheesecake?
+- Four years ago you swore she `ate` nine hours ago?
+- In the evenings, he always `ate` at another table.
+- Ok, sorry... maybe the great pumpkin `ate` 'em up.
+- You've sworn today the patient `ate` one hour ago.
+- You `ate` most of your food already, too... no.
+- I killed him... and cut him and `ate` all of him...
+- The birds shat on him and the bees `ate` him alive!
+- Actually, i got this spider bite� your dog `ate` it.
+- You mean, you think someone `ate` part of the brain?
+- Is that her husband just `ate` her suitcase stowaway.
+- 5 minutes ago, this thing `ate` a leaf out of my hand.
+- If your sister `ate` the spinach, you `ate` the spinach.
+- Now tell me if that isn't the best pie you ever `ate`.
+- Party favors, flowers -- hi dad, hi drew -- you `ate`?
+- I'm pretty sure i `ate` a pine cone _ we're retreating.
+- Including things that `ate` or were eaten by a chicken.
+- Your ma wouldn't let us leave until we `ate` something.
+- I'm by myself today, `ate` my lunch outta the microwave.
+- As i said, only poor people -- your family `ate` dripping?
+- I `ate` his liver with some fava beans and a nice chianti...
+- That jewish atomic clock stuff `ate` up a lot of our budget.
+- I `ate` somethin' at a restaurant that made me a little sick.
+- We `ate`, that's eating, sharing an important physical event.
+- You swore on this form that the patient `ate` nine hours ago.
+- You walked in here looking like you just `ate` a shit sandwich.
+- A monster `ate` carl, but because carl's inside him, look at me.
+- Randy says there are five more cases, and they `ate` fish, too.
+- Her son `ate` the whole fucking light bulb and she said i was crazy.
+- I `ate` a burger in the afternoon and a steak and a half with gregory.
+- That was melkonis... it `ate` hunter... look... what did it do to you?
+- We had everything: we `ate` good, we slept late, we had money to burn.
+- We've been losing them at with my head on your shoulder it `ate` my shorts!
+- Her sister said she `ate` one hour prior to admittance...she... why is that?
+- After we `ate`, we left jennifer and ginger alone and we took a ride to talk.
+- Her sister said she `ate` one hour prior to admittance... she... why is that?
+- I... rosebaby blossom, these are the most delicious candied yams i ever `ate`!
+- You got the admittance form says patient `ate` nine hours prior to admittance.
+- `Ate` your <u>life</u>, ruin'd your <u>culture</u>, but... no, i didn't think so.
+- I've got to admit, that was a damn sight better than "the dog `ate` my homework".
+- Not surprisingly, she `ate` her food, excused herself... that's the last they saw her.
+- He `ate` his fill, and was forced to continue eating... till his body rejected the food.
+- I `ate` breakfast at nine, was pukin' up pigs in a blanket like a sick dog by ten thirty.
+- What if you only `ate` foods that were good for you and you worked out everyday for a year?
+- Are you saying somebody threw these things in with our guy, and they slowly `ate` him alive?
+                 

@@ -1,0 +1,89 @@
+---
+title: "physical in a sentence | physical example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "physical"
+---
+- No `physical` evidence.
+- I failed the `physical`.
+- In the `physical` sense.
+- His `physical` condition.
+- Some of it is `physical`.
+- The `physical` changes.
+- It's a `physical` reaction.
+- The `physical` act of love.
+- But i failed the `physical`.
+- Let's get to the `physical`.
+- No `physical` harm intended!
+- It's only a `physical` problem.
+- Lamagra isn't a `physical` being.
+- The `physical` substance of love.
+- A permanent `physical` disability?
+- `Physical` activity makes me so sad.
+- Okay, champ, `physical` therapy time.
+- I've got my final `physical` tomorrow.
+- How do you feel about `physical` labor?
+- It's beyond mere `physical` attraction.
+- But it's not just `physical` loneliness.
+- This is going to become very `physical`.
+- Anything it samples by `physical` contact.
+- Backup in case the russians get `physical`.
+- I'm getting a strange meta-`physical` buzz.
+- I would caution against `physical` therapy.
+- She said they create a `physical` response.
+- What's fascinating is that it's `physical`.
+- Is it a `physical` thing, or a mental thing?
+- Not only `physical`, but also psychological.
+- With no `physical` evidence, what do we have?
+- Without the body we have no `physical` proof.
+- Maybe i should get a real complete `physical`.
+- _ from the bonds of `physical` and spiritual pain.
+- `Physical`, mental prowess you've never dreamed of.
+- ...it's just a question of his `physical` condition.
+- You need to put on your "`physical` fitness" outfit.
+- I don't have to take a `physical` in your space ship?
+- I'll take the lead and handle the `physical` threats.
+- An hour for those... maybe another for the `physical`.
+- Just five years in the hands of `physical` therapists.
+- I'm not really the `physical` type -- thank you, alfred.
+- Didn't she have any `physical` examinations in this time?
+- I wonder how that... show me his `physical` sensory level.
+- ...found no `physical` evidence of the creature you describe.
+- There can never... ever... be anything `physical` between us.
+- Very treacherous -- `physical` and metaphysical levels, both.
+- We ate, that's eating, sharing an important `physical` event.
+- We need outfits for the "`physical` fitness" number -- a.k.a.
+- We need to give you a `physical`, so we know what got zapped.
+- What was mr. marsh's `physical` condition prior to his death?
+- Do you have any other `physical` evidence, that we can look at?
+- They are not known for their `physical` or intellectual prowess.
+- What if... what if you don't have `physical` pain, it's lincoln.
+- You didn't have any pre-existing `physical` conditions, did you?
+- Gonna have the same `physical` needs and limitations a human has.
+- Some injuries, spiritual or `physical`, can be excruciating to me.
+- You don't abandon somebody because they have a `physical` problem.
+- Her little sister, baby d. she's the one that gets real `physical`.
+- That instant `physical` intimacy really brings two people together.
+- If i had everything i need, i wouldn't be going to `physical` therapy.
+- Yes... what if--what if you don't have `physical` pain, and he smiled.
+- They called me for my `physical` so i figured the navy had better food.
+- It was... it was like the emotional part outweighed the `physical` part.
+- Then why were you willing some of it is `physical` from injuries or age.
+- `Physical` perfection, charm and wealth tossed over for a dowdy spinster.
+- ♪ go, oh, oh ♪ honey, i signed us up for `physical` therapy this afternoon.
+- They removed all `physical` trace of her but they couldn't erase the memory.
+- First, no way does frida have the `physical` strength to tear a guy to shreds.
+- It is to understand a single `physical` phenomenon, or to understand them all?
+- Dr. chilton at the asylum will go over the `physical` procedures used with him.
+- Prior to this feeling, were you comfortable having `physical` contact with him?
+- What if i told you your patients are in real `physical` danger from their dreams?
+- We have the ability to change the color, odor, and `physical` property of cocaine.
+- The star's destruction has had numerous astro-`physical` effects within this sector.
+- Well, i tried sneaking in after college, but they found breasts during my `physical`.
+- I'm afraid that no `physical` harm must come to him as long as he inhabits the vessel.
+- I've never actually seen simone up close, touched her, been in her `physical` presence.
+- The intention to act violently is accompanied by strong feelings of `physical` distress.
+- Actually, i was a good deal older when we arrived... in terms of my `physical` condition.
+- Some weren't found for weeks and any `physical` evidence had been meticulously wiped clean.
+- They had `physical` symptoms -- headaches -- sensitivity to light -- what kind of problems?
+                 

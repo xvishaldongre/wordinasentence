@@ -1,0 +1,85 @@
+---
+title: "arrested in a sentence | arrested example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "arrested"
+---
+- Nobody `arrested` him!
+- She's been `arrested`.
+- Lisa's been `arrested`.
+- My sister was `arrested`.
+- You ever been `arrested`?
+- I thought you `arrested` me.
+- You want 'em all `arrested`?
+- Have you `arrested` the girl?
+- So he got himself `arrested`.
+- Did your uncle get `arrested`?
+- So first i'm `arrested`, right?
+- They have just been `arrested`.
+- Nobody's going to be `arrested`.
+- The danvers have been `arrested`!
+- I am `arrested` for stealing cars.
+- I want them `arrested` and hanged!
+- You `arrested` me on the ark, huh?
+- You're going to get us `arrested`.
+- He couldn't get `arrested` as a boy.
+- I never got `arrested` for burglary.
+- Reting rinpoche has been `arrested`.
+- Say we've `arrested` a good suspect.
+- Yeah, and gotten yourself `arrested`!
+- They could both be dead or `arrested`.
+- They've `arrested` janina and andrzej.
+- I'm sorry i got your father `arrested`.
+- They've `arrested` her and four others.
+- To the ground, i got myself `arrested`.
+- When you `arrested` me on the ark, huh?
+- Please don't have me `arrested`, please!
+- You get `arrested` again, i'll kill you.
+- She wanted you `arrested` for harassment.
+- Steve couldn't get `arrested` as an actor.
+- Call the police... have them `arrested`!...
+- Do you want athos `arrested`, your majesty?
+- Your friend amon goeth has been `arrested`.
+- Doug's been `arrested`, he's in big trouble.
+- You were passed out when you got `arrested`.
+- You porked his wife the day he was `arrested`.
+- Clarke, i'm sorry i got your father `arrested`.
+- Dude, our moms `arrested` terrance and phillip!
+- That policeman who `arrested` me, the one i bit!
+- They `arrested` the plotters and their families.
+- I mean i been `arrested` a few times, who hasn't?
+- They `arrested` him before he could bring it back.
+- Hey, do you even know how i got `arrested` on the ark?
+- They `arrested` a pierce patchett on an extortion scam.
+- He was `arrested` in new york last year for trafficking.
+- Of course you can check to see if she's been `arrested`.
+- When you're `arrested` -- you're allowed one phone call?
+- There's no procedure for that until she's been `arrested`.
+- They only `arrested` that poor soul because he's japanese.
+- She called the police and they came over and `arrested` me.
+- The grandmother hears it and finds out he's been `arrested`.
+- Could we have altered her destiny when we had her `arrested`?
+- [door closes] but if anyone finds out, you could be `arrested`.
+- I only realised what was really going on when i got `arrested`.
+- Those letters were not found on ugarte when they `arrested` him.
+- That's correct, doc ... `arrested` on an assault charge five times...
+- This was taken when richter was `arrested` in washington state, 1985.
+- Only thing messed me up this time was getting `arrested` in the baths.
+- If my son or daughter-in-law finds you here, they'll have you `arrested`.
+- She tries to blow up a computer factory, but she got shot and `arrested`.
+- If they got `arrested` and executed, all their estate went to the emperor.
+- I shoulda let ya go and gotten yourself `arrested` for passin' false notes.
+- Why haven't you `arrested` him or killed him or done whatever it is you do?
+- I'd be `arrested` and gagged, declared insane and hospitalized... maybe worse.
+- If you were one hundred percent sure it was peter you would've `arrested` him.
+- A man was being `arrested` by the military police; probably an urban guerrilla.
+- You guys were `arrested` this morning, but none of you have last night's clothes.
+- Fine, no, not really, they `arrested` my cousin, but jurek says they'll let him out.
+- Miss farmer, is it true you fought with the policeman who `arrested` you last night?
+- Your mom will be `arrested` at work, she'll be handcuffed, and later, strip searched.
+- I've just `arrested` a couple of important birds and i want to take their confessions.
+- If you walked out on the street, you wouldn't get 100 yards without being `arrested`.
+- I think what eddie wants to say is -- that guy they `arrested` -- he was the wrong g-guy.
+- Here i can get away with shit that would get me `arrested` anywhere else in the world.
+- Everybody who touches that thing gets busted, i can't afford to get `arrested`, i'm sorry.
+                 

@@ -1,0 +1,74 @@
+---
+title: "advantage in a sentence | advantage example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "advantage"
+---
+- I have the `advantage`.
+- I took `advantage` of you?
+- No `advantage` there, kid.
+- It's an unfair `advantage`.
+- I can't take `advantage`....
+- Now people take `advantage`.
+- He... took `advantage` of me.
+- Yeah, we got one `advantage`.
+- But we do have one `advantage`.
+- I would take `advantage` of it.
+- You took `advantage` a mistake?
+- And every geographic `advantage`.
+- But you took `advantage` of that.
+- Snow's to their `advantage`, kid.
+- Taking `advantage` of an old man.
+- That's when you take `advantage`.
+- My father and i have an `advantage`.
+- You're taking `advantage` of a minor.
+- I don't want her taken `advantage` of.
+- Taking `advantage` of the long weekend?
+- They revere us -- it is an `advantage`.
+- I'd be taking `advantage` of <u>you</u>!
+- Maybe they did take `advantage` of her!.
+- Taking `advantage` of every possibility?
+- Then we have the home field `advantage`.
+- You have the momentary `advantage`, sir.
+- Why would they give up their `advantage`?
+- He had the `advantage` of living next door.
+- You're one of us now...take `advantage` of it.
+- And then they tried to take `advantage` of her.
+- I hate when people take `advantage` of tourists.
+- That people really take `advantage` of, you know?
+- I think we should take full `advantage` of it.
+- I'm not the one taking `advantage` of drunk girls.
+- How dare this person take `advantage` of my weakness.
+- Something about `advantage`, suits, honor and flowers.
+- Also for sports like baseball it can be an `advantage`.
+- I won't ever take `advantage` of you in that way again.
+- Tell her i lied, that i didn't take `advantage` of her.
+- Your conversation has one marvelous `advantage`, swana.
+- Did you really believe we would give up our `advantage`?
+- Raven, that ship is their biggest strategic `advantage`.
+- A frenchman too honest to profit by that `advantage`.
+- I took `advantage` of you and worst of all, i'm not alone.
+- Now you see the `advantage` of a little man in a big coat.
+- Ask my mother, i love it when people take `advantage` of me!
+- I took unfair `advantage` of your patience and understanding.
+- I would never take `advantage` of a sexually immature species.
+- Babe brother and his wife are taking `advantage` of a situation.
+- If we're going to play arcade, i want every `advantage` possible.
+- Plasma coils...is there any way we can use that to our `advantage`?
+- All right...but understand, i don't like being taken `advantage` of.
+- Is it wrong to take `advantage` of one child's feelings like always?
+- I don't think i'd be much good in a war... ...take `advantage` of me.
+- I can't believe she's doing this -- taking `advantage` of him this way.
+- Evidently i credited you with an `advantage` greater than i should have.
+- Now that the coffers are open, you might as well take `advantage` of me.
+- He doesn't know if this guy is shaking you down or taking `advantage` of you.
+- Can't you see what she's done to you -- she's taking `advantage`, mocking you.
+- I will not support it, but i do not intend to take `advantage` of their danger.
+- It's questionable whether there's any `advantage` to be had from that direction.
+- With their numbers `advantage` and training... and believe me, i know marriage law.
+- But there are certain men who would try to take `advantage` of a situation like this.
+- And, i believe, we have also discovered an opportunity to gain a tactical `advantage`.
+- There's a cure around the corner, and he plans to be around to take `advantage` of it."
+- Remember, you do have the luxurious `advantage` of being able to sustain your son's life.
+- Because although our talents are small and peculiar, we use them to their best `advantage`.
+                 

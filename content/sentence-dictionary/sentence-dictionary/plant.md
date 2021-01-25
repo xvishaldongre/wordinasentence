@@ -1,0 +1,94 @@
+---
+title: "plant in a sentence | plant example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "plant"
+---
+- I don't need a `plant`.
+- From local `plant` life.
+- He owns the ice `plant`.
+- We call it mace `plant`.
+- Everyone needs a `plant`.
+- I'll `plant` a garden!
+- At a nuclear power `plant`.
+- Did she water this `plant`?
+- Let me guess, `plant` girl?
+- Come on down to the `plant`.
+- I bought the entire `plant`.
+- Can you not touch my `plant`?
+- Let me see the `plant` press.
+- And you're gonna `plant` corn.
+- At the entire nuclear `plant`.
+- We've got a nice `plant` here.
+- You work at the power `plant`.
+- Hey, get away from the `plant`.
+- Where did you `plant` the c-4?!
+- `Plant` your feet one at a time.
+- ♪ and work nights at the `plant`.
+- How 'bout that furniture `plant`?
+- I have work to do at the `plant`.
+- `Plant` your feet, one at a time.
+- Used to be a meat-packing `plant`.
+- You see i have to `plant` my tree.
+- Recombinant animal `plant` patterns.
+- The `plant`'s infected with a virus.
+- You're overloading the power `plant`.
+- Mister myers it is a chemical `plant`!
+- `Plant` them next time, draw a charge.
+- ♪ the kodak `plant` closed ♪ - ew, no.
+- What's it going to do, being a `plant`?
+- To the seeds we'll `plant` together.
+- Are you with `plant` security, sergeant?
+- Greenhouses could maintain `plant` life.
+- Supervising the nuclear `plant` interns.
+- You ever been near a meat packing `plant`?
+- e tunnel on the right the power `plant`.
+- His man was killed at the printing `plant`.
+- And i mean very good... to `plant` that gun.
+- How do we know they didn't `plant` it there?
+- I'm beginning to feel like a potted `plant`.
+- One in new york, one at the printing `plant`.
+- I'll `plant` a thumper, that should divert it.
+- My `plant` manager is somewhere on this train.
+- These `plant` fibers are loaded with hormones!
+- It's an old power- `plant` - a steam generator!
+- We need to get you one of those `plant` misters.
+- Well, so much for the tour of our humble `plant`.
+- You don't kill somebody you're trying to `plant`.
+- Father's an engineer at the nuclear power `plant`.
+- Professor scott, i'm dr. nichols, `plant` manager.
+- But the smarter move is to `plant` a charge no way.
+- We'll clear the trees and `plant` within the month.
+- Would you consider hiring her at the power `plant`?
+- Oh -- you must know me -- kringelein at the `plant`.
+- So next crop what ya do is `plant` ya some soy beans.
+- To sever his hand and use it to `plant` fingerprints.
+- Only `plant` forms were built into the genesis matrix.
+- The `plant` can get by without me for a little longer.
+- `Plant` it, animal, and grow us a chicken for christmas.
+- The krauts wouldn't `plant` two stoolies in one barrack.
+- Do we `plant` him on the outer circle or start a new one?
+- I want somebody very good, very safe to `plant` that gun.
+- Whatever killed beauregard may have lived on this `plant`.
+- All right, you soda-squirting hypocrite, i'm not a `plant`!
+- I'm the one, does the face `plant`, this falls apart, not you.
+- You were waiting for the grounders at the nuclear power `plant`.
+- I've discovered some serious issues with this nuclear `plant`.
+- I want the treatment `plant` licenses to be top priority right now.
+- We just `plant` a little of the money on dwayne, and it's all ours.
+- We can send in a `plant` -- try to get pollux to spill the location.
+- This could be one of the last remaining samples of an unknown `plant`.
+- A lady has some property next to a pg&e `plant` that pg&e wants to buy.
+- I `plant` my own flag out here, you ain't gonna need a fuckin' license.
+- Then we'll drive back to her apartment and i will `plant` myself there.
+- Lina, you said if i was going to `plant` a bomb, i should -- beth shalom?
+- Home to a nuclear power `plant` and an active volcano, i thought i was tall.
+- Asked us to use the `plant` here in the building -- to ease the gold outflow.
+- Tobacco is a `plant`, and it needs the same loving care you'd give an orchid.
+- Who needs a curator of `plant` biology in a museum with one exhibit on plants?
+- So i went down to the `plant`, clarke, i need you to tell me you better grow up!
+- They go back home to keep their families alive, stay into the spring to `plant`.
+- I've been right here all the time, putting olive oil on my rubber `plant` leaves!
+- We recovered that from the shredder -- the `plant` disposal and incinerator system.
+- When we got back to the dropship and no one was there, i told you to `plant` your feet.
+                 

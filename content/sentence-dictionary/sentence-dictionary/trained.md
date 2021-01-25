@@ -1,0 +1,85 @@
+---
+title: "trained in a sentence | trained example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trained"
+---
+- I `trained` her right.
+- `Trained` as you were?
+- But they `trained` me to.
+- Get this clown `trained`.
+- Where were you `trained`?
+- She wasn't `trained` here.
+- The best i ever `trained`.
+- You're `trained` for this.
+- I am a `trained` performer.
+- I `trained` in for 6 years.
+- I `trained` those men myself.
+- Just `trained` and untrained.
+- The guy's a `trained` killer.
+- `Trained` and untrained ones.
+- Eluding my `trained` fighters?
+- He was `trained` in frankfurt.
+- I am a `trained` method actor.
+- I was `trained` by a level 12.
+- You're not `trained` for that.
+- But will he be house-`trained`?
+- Keep the camera `trained` on...
+- That's what i `trained` her for.
+- You're a `trained` psychiatrist.
+- I'm not even `trained` for combat.
+- They're `trained` as kids, y'know.
+- You have not been fully `trained`.
+- A few americans got `trained`, too.
+- How well are you `trained` in music?
+- I have `trained` jedi for 800 years.
+- I've been `trained` as a bus driver.
+- I was crossed-`trained` in gunships.
+- This country `trained` me to kill...
+- Every last one `trained` to kill.
+- You're either `trained` or untrained.
+- Is that what you were `trained` to do?
+- These guys are `trained` to be ghosts.
+- I `trained` for 5 years to pass as one.
+- That's why he was `trained` in russian.
+- Horace'll perform like a `trained` seal.
+- `Trained` me to be a stealth operative.
+- He was the best i ever `trained`, you know.
+- I `trained` for 15 years under 2 disciples.
+- This is what you're `trained` to do, right?
+- Are you `trained` in the ways of the desert?
+- Yes, hi i'm laura, i'm a `trained` counselor.
+- He knew that girl, `trained` her i'm guessing.
+- What i've gone through -- he's well-`trained`.
+- It's pretty obvious to a `trained` professional.
+- My own counsel i'll keep on who is to be `trained`.
+- I would say he's been `trained` to resist telepathy.
+- You'll be cross-`trained` on all of them eventually.
+- And diyoza and echo were `trained` as elite warriors.
+- Just put an agent in with us -- a `trained` specialist.
+- We're `trained` to deal with these kinds of situations.
+- We've been `trained` to deal with situations like this.
+- They're brought here to be `trained`, yeah, it's a date.
+- Guarded by thousands of highly `trained` soldiers it's not.
+- Put this whole camp, bellamy... just like i `trained` them.
+- He's `trained` -- conditioned -- they're built to disappear.
+- That's what they're `trained` for -- just a surgical strike.
+- You need to seek the help of a `trained` -- never mind that!
+- I... do you know how many girls i've `trained` to be slayers?
+- Re-educating `trained` killers in the ways of polite society.
+- You mean about the cubans getting `trained` north of the lake?
+- There's a kid at school says we should've imprint-`trained` him.
+- She can't get the job she's `trained` for and it pisses her off...
+- These are highly `trained` agents overreacting without just cause.
+- Warriors `trained` since childhood wow, there's no steering wheel.
+- They are disciplined, well-`trained` and have a charismatic leader.
+- It was my specialty, sir, i `trained` several thousand over the years.
+- You're `trained` a certain way when you're a kid and you can't change.
+- I mean you might as well go around with a sign, 'slayers `trained` her.'
+- We all know who `trained` homer--his credentials are as good as mine are.
+- I'm not `trained` to deal with a monster, a supernatural creature like that.
+- You know i think it pays to leave juice-making to the `trained` professionals.
+- Only 'cause my mom `trained` me to, with a man... any man, all men -- corn dog!
+- I�m afraid the only pups currently available at such notice are brown and `trained`.
+- Who could love a man who keeps jumping through burning hoops, like a `trained` poodle?
+                 

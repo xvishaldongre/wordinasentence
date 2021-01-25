@@ -1,0 +1,68 @@
+---
+title: "lad in a sentence | lad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lad"
+---
+- `Lad`, i'm a busy man.
+- It's three a.m., `lad`.
+- Each to his fate, `lad`.
+- I'm proud of you, `lad`.
+- No false modesty, `lad`.
+- You have me word, `lad`.
+- Big question that, `lad`.
+- Don't be offended, `lad`.
+- That's a tautology `lad`.
+- There's the spirit, `lad`.
+- Glad to see you back, `lad`.
+- What can i do for you, `lad`?
+- What's this all about, `lad`?
+- You're resourceful, my `lad`.
+- What's goin' on in here, `lad`?
+- Not at all, `lad` -- not at all.
+- Child seems to take to the `lad`.
+- Someone worthy of respect, `lad`.
+- I'm still just a `lad` myself.
+- `Lad`, may i have a word with you?
+- You're narco, `lad`, not homicide.
+- Patrick, me `lad`, i'm ahead of you.
+- He's a good `lad` -- bright and able.
+- Nolan, me `lad`, ye're dreamin' again.
+- Pottle, who told the `lad` this story?
+- The summer is young yet, little `lad`.
+- Been telling you that all along, `lad`.
+- Best get down close to the moat, `lad`.
+- Why, jack-`lad`, she likes you, is all.
+- Nevertheless, i was there for the `lad`.
+- Aye, `lad`... we've little else to go by.
+- What are <u>you</u> doing here, my `lad`?
+- Speak to this `lad`, al, ... to mr. falco.
+- All your friends, there's a good `lad`.
+- Think there be truth only in beauty, `lad`?
+- There was something special about the `lad`.
+- Dear `lad`, what does winter bespeak but death?
+- There be no finer victuals than worm flesh, `lad`.
+- Here's a true story about a young `lad` named john.
+- Listen, `lad`, i built this kingdom up from nothing.
+- You'll have a long, long rest in the tomb, me `lad`.
+- Are we keeping secrets from each other, little `lad`?
+- So you're the bright `lad` that's never been scooped!
+- `Lad`, you have an unnatural desire to pay for things.
+- Well, what's the matter `lad`, are you feeling alright?
+- Tis rare to find an honest `lad` in this troubled world.
+- One day, `lad`, all this will be yours ... oh, i see, right.
+- The police have the poor unfortunate `lad` in the bridewell.
+- No, when i was but a tender `lad`-- ever met walter winchell?
+- Faith, i think you are a `lad` that's likely to keep your word.
+- I sensed the play in you `lad`, but this can no longer be play.
+- All right, all right -- here -- everything -- did you hear me, `lad`?
+- Now, `lad`, just because it don't point north don't mean it don't work.
+- `Lad`, i admire your refusal to testify and your loyalty to your partner.
+- Nay, `lad`, we're here to collect a weapon you'll need fighting the baron.
+- Knaves and robbers... now, jack-`lad`, no one's asking ye to skewer the worm.
+- In faith, i believe you are not; for a `lad` i never saw more game in my life.
+- He'll not leave the grave -- not since wednesday last when we buried the `lad`.
+- ... and that's what your gonna get, `lad`: the most powerful kingdom in this island.
+- Seems to be some sort of vaulted chamber up ahead... tis a delicate operation, `lad`.
+- You should have let us know, `lad`, not that we're not very pleased to see you again.
+                 

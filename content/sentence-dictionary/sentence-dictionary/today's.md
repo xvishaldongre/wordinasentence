@@ -1,0 +1,53 @@
+---
+title: "today's in a sentence | today's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "today's"
+---
+- `today's` my last day.
+- `today's` your lucky day.
+- So, `today's` the day, huh?
+- `today's` march 30, people.
+- You've had `today's` water.
+- Did you read `today's` paper?
+- `today's` your lucky day, sami.
+- Operator, what's `today's` date?
+- `today's` your day of atonement.
+- Let's hope `today's` actions how?
+- `today's` world is so complicated.
+- With `today's` lesson, mr. murphy?
+- `today's` been difficult on us all.
+- `today's` news from the other side.
+- In `today's` publishing environment?
+- Yeah, well `today's` tuesday, payday.
+- Looks like `today's` your lucky day yes?
+- We want another look at `today's` lunch.
+- `today's` escapade was only for starters.
+- `today's` the day we get our people back.
+- If you're right, `today's` the day raven?
+- I saw that announcement in `today's` paper.
+- That'll go over great in `today's` climate.
+- What happened `today's` just the beginning.
+- You're ok. `today's` just not your day, man.
+- `today's` subject is brooke, earth embryo 47.
+- Can i make sly analogies to `today's` politics?
+- `today's` therapist has many effective options.
+- Through `today's` lesson on the book of allness.
+- Well, `today's` saturday and it's still not here.
+- What do you suppose `today's` saints are smoking?
+- `today's` the two-year anniversary of the long nap.
+- You can tell father murray to -- `today's` camp news!
+- I got plans... you're an anomaly in `today's` world, max.
+- `today's` papers will all have been thrown away tomorrow.
+- If not for that, your friends would then `today's` the end.
+- Publicity asked me to fly miss taylor in for `today's` reception.
+- ...`today's` "to do" list includes a trip to the mall of america.
+- ...did you happen to see the front page of `today's` manhattan argus?
+- Nobody's looking for a puppeteer in `today's` wintry economic climate.
+- `today's` party's finished their sweep, the relief team's out there now.
+- Listen -- we take the racing results from `today's` paper... a gold mine?
+- I mean -- `today's` newspapers will be lining tomorrow's waste paper bins.
+- ♪ start watching fox news ♪ `today's` krusty show pulled out all the stops.
+- `today's` question: you hold tight to that knife you get your weapons once you land.
+- Dad, i'm sleeping over at milhouse's if you're right, `today's` the day i'm staying, too.
+                 

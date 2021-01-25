@@ -1,0 +1,107 @@
+---
+title: "dig in a sentence | dig example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dig"
+---
+- I `dig` my own graves.
+- Not if it can't `dig`.
+- We need to `dig` more.
+- We will have to `dig`.
+- "well worth the `dig`!"
+- You gotta `dig` it up!!
+- You're up on `dig` dug.
+- But `dig` this, sweetie.
+- We have to `dig` deeper.
+- You got to `dig` it out.
+- You'll really `dig` her.
+- You really "`dig`" them.
+- I can `dig` this music...
+- Travis, look, i `dig` it.
+- `Dig` the square wardrobe!
+- Gold `dig` him for a meal?
+- The crowd had to `dig` it.
+- This is my man, you `dig`?
+- I `dig` that about you.
+- And, you `dig` up our dead.
+- `Dig` deep, doug, `dig` deep.
+- `Dig` the pit, i don't know.
+- Go back to dallas and `dig`.
+- I know i can...`dig` deeper.
+- It's no good to `dig` it up.
+- `Dig` out this hole a little.
+- I don't `dig` half the words.
+- You heard the ant -- `dig`!!!
+- You know i despise `dig` dug.
+- All i know is, we gotta `dig`.
+- But we can't just `dig` it up!
+- Get up off your ass and `dig`!
+- So you two `dig` up dinosaurs?
+- Kuato's gonna `dig` it out.
+- I don't got no daddy, you `dig`?
+- `Dig` the new suit, mrs. wheeler.
+- If we say mole, you `dig` a hole.
+- But i'd `dig` goin' to california.
+- Here's the secret: dump and `dig`.
+- I `dig` him, but he scares me too.
+- That'd make the feds `dig` deeper.
+- Well, we gotta `dig` him up again.
+- I can `dig` out of the slicer trap.
+- You `dig` that rat out of the hole?
+- Where in hell meyerling `dig` you up?
+- From the look of the shovel, we `dig`.
+- That's twenty armed panthers `dig`?
+- Well--let's `dig` up the preacher, kid.
+- You gonna `dig` up that lady's husband?
+- Got to get me some motown jams, `dig` it?
+- 'cause we `dig` ya, man -- gimme a dollar.
+- I'm still tops on centipede and `dig` dug.
+- They bring him here to `dig` in the mines.
+- We'll stop here, `dig` out a snow shelter.
+- Yeah, they `dig` him up and cart him back.
+- He's got plenty of room out there to `dig`.
+- Where'd you `dig` up this shit-bird anyway?
+- Will i really be able to `dig` him a grave?
+- `Dig` this you assholes and `dig` it good!
+- I cannot `dig` any further in zis direction!
+- She's got that snooty vibe i know you `dig`.
+- They `dig` for the gems to support our cause.
+- Let me tell you something: i `dig` your work.
+- I can `dig` you being uptight about rita and utah.
+- You told me you found it on a `dig` down in thebes!
+- Before you know it, you gotta `dig` a few more holes.
+- Let's just `dig` in and wait for things to cool down.
+- Meanwhile, `dig` up whatever dino velvet films you can.
+- We'll go back and `dig` our graves behind the ramparts!
+- You mean you'll, like' `dig` your way out of the grave?
+- Can you `dig` up their quarantine records in this thing?
+- I think i read he was working on a `dig` around nineveh.
+- Couldn't `dig` one out of your hat some place, could you?
+- I told you to go behind the words and `dig` out the truth.
+- What's that fellow over there trying to do - `dig` it out?
+- An' if i miss, `dig` in and try your best to slow the fall.
+- Suppose you `dig` up something - well - discreditable to harry?
+- Even if they did, you can't get 750,000 points on `dig` dug.
+- We might be able to `dig` out a couple of suez survivors for you.
+- I hate to do this, but i've got to have time to `dig` up some help.
+- Z...if we don't make it...i just want you to know.... let's `dig` in!
+- Well, maybe i should `dig` around in other people's clothes for money.
+- But if i `dig` it out myself i can use it where it'll do the most good.
+- I bet those science chicks really `dig` that big cranium of yours, huh?
+- They're gonna `dig` up stuff from your past, they're gonna throw it at you.
+- But if you want me to stick around, maybe `dig` where the cops don't look...
+- Every time anyone writes anything about me -- they'll `dig` up these photos.
+- Hey, you know, what can i say, i `dig` those cute little sweaters she wears.
+- I can -- what do the kids say these days -- "`dig` where you're comin' from."
+- The thorns would `dig` into my legs and cut my thighs as i lowered myself down.
+- What are you gonna do now if you don't have to `dig` of dinosaur bones any more?
+- Hey, mattie, `dig` into the morgue and send up all the art you have on joan gale.
+- `Dig` up some ice from the kitchen and let's not waste any time -- preliminary-wise.
+- You just tell me what you want to look at and i'll be glad to `dig` 'em out for you.
+- Go down to the morgue and `dig` up anything you can find on past incidents of -- but .
+- It's no `dig` on you, archer, but this story is hot and you're no longer on top of it.
+- I tell him what i know, he's going to `dig` up something...you got an alibi last night?
+- Get a couple of guys to `dig` a hole in the desert, then let 'em show you where it's at.
+- So is our ability to `dig` through your memories, you're the reason i'm a prisoner here.
+- They are gonna look under every rock, `dig` up every flaw, every mistake you've ever made.
+                 

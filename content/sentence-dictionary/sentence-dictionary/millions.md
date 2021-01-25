@@ -1,0 +1,79 @@
+---
+title: "millions in a sentence | millions example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "millions"
+---
+- `Millions` of dollars.
+- `Millions` will suffer.
+- They've got `millions`.
+- It's gotta be `millions`.
+- `Millions` down the drain.
+- His novels sell `millions`.
+- Tens of `millions` of dollars.
+- `Millions` - if anybody wants it.
+- `Millions` of people almost killed.
+- `Millions` in cash and bearer bonds.
+- To save how many `millions` of people?
+- And cost tens of `millions` of dollars.
+- In your case, `millions` of vietnamese.
+- `Millions` upon `millions` upon `millions`!
+- In my case, `millions` of reactionaries.
+- Those pennies are costing me `millions`.
+- You could be owed `millions` of dollars.
+- `Millions`, stephen -- and sexual favors.
+- You think i left `millions` on the table?
+- `Millions` of people would've been killed!
+- There are people here making `millions`.
+- We've been listening for `millions` of years.
+- `Millions` would die of cold and hunger alone.
+- The book sales alone will be worth `millions`.
+- _ and they had no idea - hundreds of `millions`.
+- They say citizen barras has put away `millions`.
+- Twenty `millions` and you don't know how to dunk.
+- Not a hundred thousand francs, but `millions`.
+- Shoot, it's gotta be in the `millions`, maybe more.
+- When you kill `millions`, you're called a conqueror.
+- I demand -- professor scott, if you'll -- `millions`?
+- They accumulate `millions` by taking loss after loss.
+- You have made `millions` off the story of her murder.
+- I just inspired `millions` of people to join your army.
+- There are `millions` of other species on earth, doctor.
+- When lisa's making `millions` of dollars i'd like that.
+- There's still `millions` of possible combinations, wait.
+- ...and selfless actions, you did save `millions` of lives.
+- I study how life on earth evolved over `millions` of years.
+- `Millions` of volts...discharged in random directions...
+- If this deal goes south, i'm ruined -- i'll lose `millions`.
+- Every time you breathe, you kill `millions` of tiny organisms.
+- He's got `millions` - he's got glasses - and he's got a yacht.
+- `Millions` of people around the world get on busses every day.
+- A show - that gives hope and joy and inspiration to `millions`.
+- The guy probably prevented <u>`millions`</u> in property damage.
+- ...remo and the guys used to hang out and count their `millions`.
+- Those specimens are worth `millions` to the bio-weapons division.
+- Before it crashed, they dumped three cases filled with `millions`.
+- Then it was dirty accountants that tried to walk away with `millions`.
+- A fan club with a worldwide membership in the `millions` -- also bogus?
+- No, but my dog he's a got `millions` of them -- have you got a license?
+- You thought he should be using it to cure cancer, not making `millions`.
+- It's got an urm micro reactor for power supply probably worth `millions`.
+- There're `millions` of tons of glacier ice continue moving day and night.
+- It's what keeps him from being crushed by the consciousness of `millions`.
+- `Millions` of creatures, each with his assigned task, all pulling together!
+- If not, the `millions` of earthlings you protect will pay for your defiance.
+- Could be she's just a nice, respectable girl -- there are `millions` of them.
+- There are `millions` of tons of glacial ice continually moving day and night.
+- I find it difficult to believe that i've come `millions` of miles -- old, yes.
+- That luminous water -- it takes its gleam from `millions` of tiny dead bodies.
+- `Millions` of intelligences in one consciousness... and now we're a part of it.
+- Look, those two specimens are worth `millions` to the bio-weapons division, right?
+- Meantime, it cost `millions` to get me looking like this... you'll have to prove it.
+- You setting culture, art and music against the `millions` put to death by your pals?
+- Everything is the same, george, except instead of thousands, you are making `millions`.
+- But if that comes out, there's gonna be a war, boy - `millions` of people are gonna die.
+- They make dope out of chemicals... they sell it on the street for `millions` of dollars.
+- A return to the `millions` of people who have never forgiven me for deserting the screen.
+- There's `millions` o' bees out there jus' waitin' fer' a general ta lead 'em on ta vict'ry!
+- Your pals you could call to save a few jews when `millions` of them were being annihilated?
+                 

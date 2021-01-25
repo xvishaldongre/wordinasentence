@@ -1,0 +1,107 @@
+---
+title: "came in a sentence | came example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "came"
+---
+- `Came` by to see troy.
+- I `came` in the front.
+- I `came` through, man.
+- I `came` to see merle.
+- I `came` to see swann.
+- I `came` to visit you.
+- It just all `came` up.
+- Skirt just `came` off.
+- We `came` to buy a cd.
+- Yeah, whoops i `came`.
+- You `came` from paris?
+- You `came` home to us.
+- A few things `came` up.
+- Christmas `came` early.
+- Christmas day `came`...
+- Daddy, you `came` back!
+- ...glad you `came` man.
+- Greg never `came` home.
+- No one `came` any more.
+- She always `came` back.
+- She `came` again today.
+- They never `came` back.
+- We `came` here to stay!
+- You `came` back for me.
+- You `came` to my party.
+- Agent `came` by the bar.
+- `Came` back to life.
+- When he `came` home.
+- Captain rob `came` back?
+- He `came` the first day.
+- He just `came` this way.
+- His theory `came` first.
+- I am glad you `came` by.
+- I `came` for my clothes.
+- I `came` to say good-by.
+- I `came` to say goodbye.
+- I `came` to talk to you.
+- I'm glad he `came`, ben.
+- It `came` from the sand.
+- It `came` from your hip.
+- She `came` here in 1888!
+- So you `came` after all.
+- The sun `came` up today.
+- We `came` to invite you.
+- Who `came` in after you?
+- You `came` for that too?
+- You `came` on a bicycle?
+- You `came` to rescue me?
+- Then it `came` to me.
+- `Came` to the wrong town.
+- Hey, something `came` up.
+- I `came` for the wedding.
+- I `came` from there, too.
+- I `came` looking for you.
+- I `came` over to see you.
+- I'm sorry this `came` up.
+- It `came` certified mail.
+- It `came` from the heart.
+- Maybe he never `came` in.
+- My orders `came` through.
+- Oh...i `came` close once.
+- Something `came` through.
+- That's why i `came` back.
+- That's why i `came` here.
+- They `came` and found me.
+- To get what i `came` for.
+- What else `came` with it?
+- You `came` by last night?
+- You `came` to tuck me in.
+- A man `came` by the house.
+- Then he `came` anyway.
+- Brookfield just `came` in.
+- `Came` by to check on you.
+- `Came` over the satellite.
+- David `came` up to fix it.
+- He `came` here to kill us!
+- I `came` back to help you.
+- I `came` for paul as well.
+- I `came` here to save you.
+- I `came` to agrabah early.
+- I `came` to him on my own.
+- I `came` to save your ass.
+- I `came` up with that one.
+- I did what i `came` to do.
+- I'm glad you `came`, mike.
+- I remember when he `came`.
+- It `came` from the camp.
+- I, umm, `came` to see you.
+- I was called and i `came`.
+- 'just `came` out that way.
+- Nick, he just `came` back.
+- Oh, you -- `came` on back.
+- She `came` to me for help.
+- So, i `came` back for you.
+- Something `came` up, okay?
+- ...that's why i `came` in.
+- This `came` for you today.
+- We `came` from washington.
+- We'll say it `came` today.
+- You `came` back for these?
+                 

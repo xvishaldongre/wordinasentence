@@ -1,0 +1,86 @@
+---
+title: "lousy in a sentence | lousy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lousy"
+---
+- Fifteen `lousy` bucks.
+- It turned out `lousy`.
+- You're a `lousy` shot.
+- He was a `lousy` chief.
+- I did `lousy` at school.
+- I was worse than `lousy`.
+- It's `lousy`, that's what!
+- What a trip i was `lousy`.
+- And you're a `lousy` coder.
+- Maybe he was a `lousy` shot.
+- Ohhh, that's `lousy` scotch!
+- It's a `lousy` fifteen kilos.
+- Michael, you `lousy` bastard!
+- My timing always was `lousy`.
+- I'm `lousy` with bullets here.
+- A `lousy` ten-dollar card game.
+- One big `lousy` x like our flat.
+- You know i'm `lousy` with words.
+- You `lousy`, coldhearted bastard.
+- But give me just one `lousy` hour.
+- I just took some `lousy` pictures.
+- I have one job on this `lousy` ship.
+- This whole area is `lousy` with v.c.
+- Before we go back to our `lousy` car.
+- That `lousy` do-gooder, he ruined it.
+- Some kinda `lousy` b-b-balinese temple.
+- Dry, academic, afraid of women, `lousy`.
+- "`lousy`, thank you, i'm falling apart."
+- You fucked my freedom for a `lousy` job.
+- Yeah... only the room service is `lousy`.
+- All i'm doing is feeling `lousy` about it.
+- A bunch of `lousy` little spic car thieves.
+- ♪ they're just `lousy` with loyalty to ali!
+- Ugh... while yours are `lousy` with pockets!
+- You made a `lousy` deal - ten for the world?
+- Poor color composition, `lousy` use of space.
+- Are you really not just a `lousy` private eye?
+- But they got here first, the `lousy` bastards.
+- Don't you think i feel `lousy` about this too?
+- Tell me, who's gonna use your `lousy` freeway?
+- Listen, we look pretty `lousy` out there, right?
+- If you're here to fire me, your timing's `lousy`.
+- ...don't like airlines, `lousy` unions... a comer.
+- He was a `lousy` writer, but he was a good husband.
+- Thanks, guy, but...she's got a `lousy` personality.
+- Today, i'm offering you a `lousy` job at a `lousy` wage.
+- I wish i could tell everybody that ann's a `lousy` lay.
+- That `lousy` attitude that got us here in the first place.
+- You know and i know that hobbes was a `lousy` teacher, eh?
+- Why would i be upset, a `lousy` game but a magnificent law.
+- She makes `lousy` spaghetti... ...have a nice day mr. stone.
+- You `lousy` yella-bellied low-down skunks- the hell you say!
+- ♪ gonna flip the bird to `lousy` kids' tv ♪ we have a bedroom?
+- The man's getting out of prison and he's having a `lousy` day.
+- `Lousy` utility companies ... they're the same wherever you go.
+- I hope those rangers put that `lousy` lowlife out of his misery!
+- Then he dumped me on earth with a wife and a `lousy` job and ...
+- This gives you a chance for real survival in a very `lousy` world.
+- A `lousy` whore and you're the gum in a hundred million dollar deal.
+- I'm not gonna give up everything i got for a `lousy` 50,000 dollars.
+- He was a `lousy` gambler... sure, why not, money's the sex of the 80's.
+- How do ya expect the eight `lousy` spots i've got to compete with that?
+- There's no island on these co- ordinates - not even a `lousy` fog-bank.
+- What `lousy` luck--i mean your orders... to draw an assignment like that!
+- It's a `lousy` job, but - the only reason i stay is for the health benefits.
+- As a matter of fact, i'm a pretty good cook -- but i'm a `lousy` housekeeper.
+- ... hey, i don't need your charity ... one `lousy` letter eighteen months ago.
+- ...hey, i don't need your charity... one `lousy` letter eighteen months ago...
+- It was pretty `lousy` of me, i guess, to be a child at the same time you were.
+- We're talking a `lousy` million five u.s. nice place to start, don't you think?
+- You `lousy` bastard you have the nerve to give your whores my telephone number.
+- You can't see past your `lousy` little assignment, sniffing around the pipeline.
+- Well, it's an interesting place... tell you the truth, i think the food is `lousy`.
+- You're `lousy` with a spear, oh, what, staying awake for 72 hours, so, we've got...
+- I tried it once... fourteen years ago... 'i was a `lousy` husband and a worse father.
+- No more `lousy` restaurants, no more clipping coupons, no more shoveling snow... jack.
+- This `lousy` mug, with all the money in the world, has had two or three nasty affairs.
+- Great idea -- pointing a `lousy` dart gun at some nut with a high-powered hunting rifle.
+- I got 750 grand coming in from the coast, and i'm not gonna blow it for a `lousy` 14 gees.
+                 

@@ -1,0 +1,75 @@
+---
+title: "winter in a sentence | winter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "winter"
+---
+- I tried `winter` once.
+- Sleep in the `winter`.
+- Yes, `winter`'s coming.
+- "nuclear `winter`" theory?
+- They can survive `winter`.
+- `Winter` has come at last.
+- Oh, but the `winter`'s fun.
+- On how to survive `winter`?
+- It's our version of `winter`.
+- He finished it `winter` break.
+- Is it summer or `winter`, erik?
+- You have survived the `winter`.
+- But it gets cold in `winter`....
+- Yes, i see... fall and `winter`.
+- Course, that's more for `winter`.
+- He's been home sick all `winter`.
+- He's sick for good this `winter`.
+- It's going to be a long `winter`.
+- Why is it `winter` now, and dark?
+- What would he do come `winter`?
+- They all go south for the `winter`.
+- Well, `winter`'s far behind us now.
+- If we want to harvest before `winter`.
+- Working outside in the `winter` sucks.
+- Water mains usually go in the `winter`.
+- You know, like from `winter` to spring.
+- You'll see a lot of deer this `winter`.
+- I have to spend every `winter` in kauai.
+- The spot we picked to spend the `winter`.
+- I don't like the `winter`, all right, amy.
+- Perhaps martha will join me this `winter`.
+- I will blanket the city in endless `winter`.
+- Dear lad, what does `winter` bespeak but death?
+- I've thought hard about you this past `winter`.
+- You can always enroll for the `winter` quarter.
+- `Winter` with the delaware, my father's cousins.
+- They got snowbound one `winter` in the mountains.
+- Very few people are both a summer _and_ a `winter`.
+- Set out some of our `winter` rations a little early.
+- The kids have no `winter` clothes... take this, joey.
+- We had a terrible `winter` last year, didn't we, sam?
+- Paulie's been a little sick all `winter`...he was home.
+- We're sorry... you want to freeze to death all `winter`?
+- Look, matchy-matchy... a chance to live through `winter`.
+- None of the other bedrooms are heated during the `winter`.
+- The world outside is cursed, plunged into eternal `winter`.
+- Francis, may i ask whether you wear warm `winter` underwear?
+- It must be one of the worst nights we have had this `winter`.
+- Jack is going to take care of the overlook for this `winter`.
+- He slew a unicorn and plunged the world into eternal `winter`.
+- Things get tough next `winter`, you'll have somethin' to wear.
+- I have `winter` camp until four, then ballet until five thirty.
+- Maybe we'll be lucky this `winter` and have just rain, no snow.
+- She brought me up here last `winter` and the next day she died.
+- There is spring and summer, but there is also fall and `winter`.
+- Do you really want to go and live in that hotel for the `winter`?
+- One `winter` here and we'll be shipping him south, in a *coffin*!
+- Raven, your chances of reaching cold in the `winter`, hot in the summer.
+- Except for last `winter` when the fuel bills kept going up and up and up.
+- Got me thinking of this perimeter man, froze all his fingers one `winter`.
+- One day last `winter`, he went out by himself for a run down the mountain.
+- The torrances are going to take care of the overlook for us this `winter`.
+- Cooped up in here you die of heat in the summer and of cold in the `winter`.
+- Ah, `winter` in ohio is especially rough if you've got an appetite for color.
+- Yes, but i've spent the last `winter` studying all the great battles of history.
+- I'm headed for the `winter` garden theater in new york, and i think i'd better get going.
+- I handled enough of those red pills to put everybody in new jersey asleep for the `winter`.
+- Napoleon would simply spend the `winter` in moscow and continue the campaign in the spring.
+                 

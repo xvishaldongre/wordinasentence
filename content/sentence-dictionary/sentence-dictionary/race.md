@@ -1,0 +1,107 @@
+---
+title: "race in a sentence | race example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "race"
+---
+- A supercilious `race`.
+- He hates all my `race`.
+- I am after this `race`.
+- Go be a `race` car driver.
+- I mean he's of your `race`.
+- It's a `race` against evil.
+- Who saved the human `race`.
+- It's a `race` to the bottom!
+- Joey used to `race` pigeons.
+- `Race` you back to my place?
+- Welcome to the human `race`.
+- We're a `race` bred for war.
+- Wiping cut the human `race`!
+- I am saving the human `race`.
+- Let's `race` for some- thing!
+- Spare me the `race` card, oj.
+- I lost him in the last `race`.
+- I never date outside my `race`.
+- You're a traitor to your `race`.
+- I'm not gonna `race` him, though.
+- We'd `race` into the dining hall.
+- What're you gonna do, `race` 'em?
+- That the human `race` stays alive.
+- It believes it's the master `race`.
+- No, more like a formula `race` car.
+- We're the last of the human `race`.
+- But there's, like, zero mind-`race`.
+- Defender of the human `race`... amen.
+- Don't lecture me on `race` relations.
+- We can save the human `race` together.
+- We can save the human `race` together.
+- You had the whole human `race` pegged.
+- If that's true, they're a dying `race`.
+- No `race` should be a slave to another.
+- Of the second dawn of the human `race`.
+- The human `race` was already surviving.
+- To be the witness for the human `race`.
+- Let me remind you who is the new `race`.
+- Together, we will save the human `race`.
+- But what if we encounter an alien `race`?
+- He fell during a `race` and got trampled.
+- Is the human `race` now ready to join us?
+- It sounds like a `race` car motor idlin'.
+- No, daniel -- they are not `race` horses.
+- To the transcendence of the human `race`.
+- We have the right to preserve our `race`!
+- Access to what's left of the human `race`.
+- It was sent here to save the human `race`.
+- We're all that's left of the human `race`.
+- Whoever said the human `race` was logical?
+- Hocker's death almost caused a `race` riot.
+- We are all that's left of the human `race`.
+- Saving the human `race` by migrating - what?
+- We're deciding the fate of the human `race`.
+- Am i gonna go off and be a `race` car driver?
+- Nobody is going to wipe out the human `race`.
+- Raven... we are the last of the human `race`!
+- ...that simpleton is holding back the `race`.
+- To matters of `race`, creed, color, religion.
+- A more advanced `race`, nearly wiped them out.
+- Today i decided to be a `race` car driver, no.
+- You `race`, you win, you come back right here.
+- Kept the human `race` alive during the ice age.
+- She never lost a `race` while you were skipper.
+- You couldn't win an egg and spoon `race`, eric.
+- I still gotta `race` the rest of the money first.
+- It was a `race` out the door and your mother won.
+- Nothing has caused the human `race` more trouble.
+- That mass infection would make us a slave `race`.
+- Sully, how does it feel to betray your own `race`?
+- The human `race` return to earth... you're family.
+- We came across the stars to save the human `race`.
+- 1... kept the human `race` alive during the ice age.
+- If one man represents the entire human `race`... no.
+- I mean, it is the rest of the human `race` after all.
+- That the fate of the entire human `race` is at stake.
+- We're building a sanctuary for the human `race` here.
+- In that case... _ the end of the human `race` is here.
+- Please... why do we have to `race` for heaven's sake?!
+- Whatever's left of the human `race` will be wiped out.
+- The ark has kept what's left of the human `race` alive.
+- The future of our `race` runs through your bloodstream.
+- The human `race` deserves to transcend incredibly sexy.
+- We are the last of the human `race`, "for all mankind."
+- Hey... not when the end of the human `race` is at stake.
+- Like, end-of-the-human-`race`-as-we-know-it kind of bad.
+- Hot tip, rubber biscuit in the third `race` at arlington.
+- You're the future of the human `race`, this isn't eating.
+- You saw a part of what the `race` needs in the beginning.
+- [kiss] this thing and get on with saving the human `race`.
+- You think maybe i'm the one who wiped out the human `race`?
+- Everyone of his `race` is born knowing the day of his death.
+- Join your war to save the human `race` music as mathematics.
+- We did what we had to so that the human `race` could survive.
+- We'll take the first `race` where the odds are 4-1 or better.
+- Or even a `race` memory, stored in the collective unconscious.
+- Monday afternoon a sailboat `race` will be held at the cesspool.
+- Of the human `race` alive, and everyone leﬅ on board will die.
+- Because `race` has always been a sensitive issue in this country.
+- It seems you're the key to the transcendence of the human `race`.
+                 

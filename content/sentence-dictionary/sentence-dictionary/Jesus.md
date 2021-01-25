@@ -1,0 +1,107 @@
+---
+title: "Jesus in a sentence | Jesus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jesus"
+---
+- At `jesus`'s concerts.
+- I worked on-- `jesus`!
+- `Jesus` christ, bodhi!
+- `Jesus` christ, harry.
+- `Jesus` christ, jerry.
+- `Jesus` christ, joyce.
+- `Jesus` christ, miles.
+- `Jesus` christ, walsh.
+- `Jesus` creeping shit!
+- `Jesus`, i believe it.
+- `Jesus`, i don't know.
+- `Jesus`, look at this.
+- `Jesus`, that lynette!
+- `Jesus`, what is this?
+- Oh, `jesus` h. christ!
+- Oh, `jesus`, `jesus`....
+- Oh, `jesus`, please...
+- Oh `jesus`, stoner!...
+- Put it all on `jesus`?
+- Relax, miles, `jesus`.
+- Yeah, `jesus` christ !
+- You... `jesus` christ!
+- Come on... oh, `jesus`.
+- `Jesus` christ, castor.
+- `Jesus` christ, violet!
+- `Jesus`, don't do that!
+- `Jesus` fucking christ!
+- `Jesus` fucking christ.
+- `Jesus`, it's freezing!
+- `Jesus`, it's freezing.
+- `Jesus`, she's jammin'.
+- `Jesus`, this is major.
+- `Jesus`, what a bundle.
+- `Jesus`, what an idiot.
+- `Jesus`, what happened?
+- `Jesus`, you are a fag.
+- `Jesus`, you know what?
+- `Jesus`, you scared me.
+- Look at this...`jesus`.
+- Mi `jesus` esta muerto!
+- Oh, `jesus`... come in.
+- Oh `jesus` of nazareth.
+- A bunch o' `jesus` nuts?
+- Eleven thirty - `jesus`!
+- `Jesus` christ, anthony.
+- `Jesus`, did i say that?
+- `Jesus`, open your eyes!
+- `Jesus`... take it easy.
+- `Jesus` -- <u>perks</u>?
+- ... `jesus`... what for?
+- `Jesus`, where's hallie?
+- `Jesus`, would you stop?
+- `Jesus`, you're caustic.
+- `Jesus`, you're the man!
+- `Jesus`, you were great.
+- Oh, `jesus` christ, mom!
+- Hey, guys... oh, `jesus`.
+- `Jesus` all right enough!
+- `Jesus`, ann, get a life.
+- `Jesus` christ, grab her!
+- `Jesus`... is that a lot?
+- `Jesus`, jack can't read.
+- `Jesus` jumped-up christ!
+- `Jesus`, mary and joseph.
+- `Jesus`, rudy -- guard!!!
+- `Jesus`, they're serious.
+- `Jesus`, you were skinny.
+- Oh, `jesus`, this is bad.
+- Please... `jesus`, man...
+- You hear i found `jesus`?
+- I -- `jesus`, you alright?
+- `Jesus` christ, what next?
+- `Jesus`, give him a break.
+- `Jesus`... give it a rest.
+- `Jesus`, is it five years?
+- `Jesus`, kevin, rub it in.
+- `Jesus`, look at this guy.
+- `Jesus`... oh, right away.
+- `Jesus`, that's beautiful.
+- `Jesus` was also a hebrew.
+- `Jesus` would've loved it.
+- `Jesus`... you're leaving.
+- New york police - `jesus`.
+- Oh `jesus`... name's norm.
+- Oh mary mother of `jesus`.
+- But i liked `jesus`' style.
+- Fellas... you know-`jesus`!
+- He'd be perfect as `jesus`!
+- `Jesus`, are we on the air?
+- `Jesus`, everyone's moving.
+- `Jesus` forgives the devil?
+- `Jesus`... fuck, that hurt.
+- `Jesus` gale what happened?
+- `Jesus` h. christ, i can't!
+- `Jesus`, look at that wall.
+- `Jesus`, the hell happened?
+- `Jesus`... this is inhuman.
+- `Jesus`, tom, do they work?
+- `Jesus`...what do you want?
+- No... no doctor... `jesus`!
+                 

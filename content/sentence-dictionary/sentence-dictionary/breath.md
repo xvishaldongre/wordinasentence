@@ -1,0 +1,107 @@
+---
+title: "breath in a sentence | breath example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "breath"
+---
+- Shortness of `breath`.
+- `Breath` would quicken.
+- Focus on your `breath`.
+- It feels like `breath`.
+- Not a `breath` of wind.
+- ♪ take a deep `breath`.
+- Took her last `breath`.
+- Just hold your `breath`.
+- Don't hold your `breath`.
+- He looks out of `breath`.
+- I won't hold my `breath`.
+- You sound out of `breath`.
+- You heard me, nad `breath`.
+- "first, the `breath` of god.
+- I've only one `breath` left.
+- I couldn't catch my `breath`.
+- Like a `breath` of fresh air.
+- Slow down, take a `breath`...
+- We could smell it's `breath`.
+- You're wasting your `breath`.
+- A coward, a waste of `breath`.
+- Just let me catch my `breath`.
+- You've got wiener `breath`.
+- Don't waste your `breath`, kid.
+- Just save your `breath`, wayne.
+- Take a `breath` and let it out.
+- Take a `breath`, take a `breath`.
+- Take a deep `breath` for me?
+- It's just a `breath` with sound.
+- Sweat, bad `breath`, everything.
+- Take a `breath` and just say it.
+- Makes your `breath` like garbage.
+- Now, take a deep `breath` for me.
+- Rolls his eyes, takes a `breath`.
+- Save your `breath` for the climb.
+- Save your `breath`, ms. thompson.
+- So i've been wasting my `breath`?
+- Take a deep `breath` and hold it.
+- Hold your `breath` and we'll pull.
+- I can't even take a deep `breath`.
+- We'll talk -- i'm out of `breath`!
+- I can sea its `breath` in the cold.
+- I heard him take his last `breath`.
+- The `breath` of god... what's that?
+- Ah, a `breath` of the promised land!
+- Do i have bad `breath` or something?
+- How long can you hold your `breath`?
+- Take a `breath` and then let it out.
+- You're wasting your `breath`, woman.
+- We'll know -- in the next `breath`...
+- He muttered under his `breath`, "jew."
+- Take a deep `breath` and count to ten.
+- For christ sakes girl, take a `breath`.
+- I hate it when you `breath` on my head!
+- Hold your `breath`, dad... sean, wait...
+- I mean, i could feel his `breath` on me.
+- Do you not see that i am out of `breath`?
+- Greet the dawn with the `breath` of fire!
+- Can i just catch my `breath` for a second?
+- Mr. king, i think -- take a deep `breath`.
+- Why don't you hold your `breath`, instead?
+- I want to tell you with my last `breath`...
+- We're a `breath` away from losing this war.
+- They're gonna be holding their `breath`, no!
+- When we start running suck up your `breath`.
+- With every `breath` we shall hunt them down.
+- Did you catch a whiff of their `breath`?!
+- ♪ every `breath` you take ♪ is it all linked?
+- It's building up with every `breath` we take.
+- Holding your `breath` is not the hardest part.
+- Of airshot using his `breath` to save himself.
+- Suppose you didn't have to hold your `breath`?
+- The `breath` had almost totally left her body.
+- Your `breath` has been a little funky all day.
+- I'm not holding my `breath` in that department.
+- Nell... please, nell... take a deep `breath`...
+- How long do you think she can hold her `breath`?
+- We may be in trouble, i can't catch my `breath`.
+- Just stop smashing shit and take a deep `breath`.
+- John, i doubt you've ever drawn a stupid `breath`.
+- No warmth, no `breath` shall testify thou livest .
+- Dizziness, shortness of `breath`, sweating palms...
+- No, because her `breath` smells like a horse's ass.
+- <u>somebody</u> areound here sure has bad `breath`!
+- I mean, who can say where baby's `breath` should go?
+- As long as you draw `breath`, you can turn it around.
+- Just remember, hold your `breath` as long as you can.
+- Whatever you say, lord grumpy of the morning `breath`.
+- Let your soul rise to eternity with your last `breath`.
+- No way, death-`breath`, that was too intense for thunder.
+- Er, bad `breath`, colourful language and a feather duster!
+- Your life is not a blink of my eye, not a single `breath`.
+- He's so...it's too much...and i can't...i can't `breath`...
+- His fingernails are longer, but he always has bad `breath`.
+- Take a deep `breath` and realize, that this is me breathing.
+- Yes, i could smell it on his `breath`, like i can on your's.
+- Did kat tell you she dumped you because of your funky `breath`?
+- All right, john, just take a `breath`, let's think about this...
+- Now let's take one deep `breath` of this classy place holy shit!
+- Take a deep `breath`, let it out slowly and tell me who you are.
+                 

@@ -1,0 +1,7 @@
+---
+title: "disembarkation in a sentence | disembarkation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "disembarkation"
+---
+## Unfortunately, we have no example sentences for disembarkation                 

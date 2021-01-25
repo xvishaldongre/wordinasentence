@@ -1,0 +1,68 @@
+---
+title: "deny in a sentence | deny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deny"
+---
+- Didn't even `deny` it.
+- Don't `deny` me, duff.
+- You don't `deny` that.
+- Don't try to `deny` it.
+- They have to `deny` it.
+- She refuses to `deny` it.
+- I `deny` his every charge.
+- Do you `deny` these events?
+- I'll `deny` ] everything. ]
+- I'm not going to `deny` it.
+- I won't `deny` i was ambitious.
+- Well, i shall `deny` him to you!
+- Do you `deny` that you called me?
+- You `deny` you said these things?
+- Anything you want to `deny`, mike?
+- If you `deny` me my wedding night.
+- Well, at best you might `deny` it.
+- Why would you `deny` it if it was?
+- If you tell diyoza, i'll `deny` it.
+- Of course you're going to `deny` it.
+- We cannot confirm or `deny` anything.
+- You'd `deny` a dying man his salvation?
+- If you were vice you couldn't `deny` it.
+- `Deny`, and you must be purified by pain.
+- The more you `deny`, the more they print.
+- I'll `deny` having said this, but they do.
+- Then somebody'd better `deny` it publicly.
+- Why would you want to `deny` that to anyone?
+- Does the witness `deny` the injury took place?
+- Does that mean you `deny` what he says is true?
+- Do you `deny` that there's an attraction between us?
+- I like harry, but i can't `deny` he sweats a little.
+- Well, i - you `deny` enterprise fired on kronos one?
+- Monty... why would you want to `deny` that to anyone?
+- True magic which even you will not be able to `deny`.
+- Of course, they still had time to `deny` my promotion.
+- You can no longer `deny` your husband it's not a joke.
+- You do not `deny` having killed this man, miss desmond?
+- I can't `deny` it, anymore than you can `deny` who you are.
+- I see a young man trying desperately to `deny` who he is.
+- What, and `deny` myself the only pleasure i get from him?
+- To `deny`; there <u>is</u> no report of albanian activity.
+- I cannot confirm or `deny` actions which i did not witness.
+- I don't `deny` that you might make out some kind of a case.
+- Don't `deny` it, i can smell an ex-catholic a mile away.
+- I'll `deny` it on the stand... you guys are gonna have kids.
+- You've got a legitimate complaint, roy, i don't `deny` that.
+- I do not `deny` its beauty, but it is a waste of electricity.
+- But if you'd just let me explain -- are you going to `deny` it?
+- You'll try hard to `deny` it; you're quite likely to destroy it.
+- Even if you `deny` the fbi is there, i will assume you are lying.
+- Two, you have the letters of transit, now don't bother to `deny` it.
+- But i don't `deny` there are times i wonder about things i won't have.
+- I could `deny` i had those credit cards on the plane with me, laplante...
+- I won't `deny` my own personal desire to turn each sin against the sinner.
+- You `deny` that your men beamed aboard kronos one and shot the chancellor?
+- We also tell them if they go public about it, we `deny` it and the deal is off.
+- I `deny` your grace's accusations, and beg you to say how you have been cheated?
+- You see, i thought i could `deny` my feelings-- is this supposed to be an apology?
+- You can `deny` it all you want, but it will not make one fucking bit of difference.
+- You continue to `deny` yourself every benefit this mission has to offer... another time.
+                 

@@ -1,0 +1,107 @@
+---
+title: "eh in a sentence | eh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eh"
+---
+- Bermuda... rich, `eh`?
+- Doesn't satisfy, `eh`?
+- `Eh`, i dunno... andy.
+- `Eh`, what's all this?
+- Had a close one, `eh`?
+- You got it back, `eh`?
+- Bit of a pervert, `eh`?
+- But close enough, `eh`?
+- Dog psychologist, `eh`?
+- `Eh`... normandy beach.
+- How did he do it, `eh`?
+- No hard feelings, `eh`?
+- Security officer, `eh`?
+- She `eh`... interferes.
+- You're a teacher, `eh`?
+- A joint interview, `eh`?
+- `Eh` we're from vermont.
+- Not a bad thought, `eh`?
+- Oh ding dong bell, `eh`?
+- Oh, you trust him, `eh`?
+- Sneaking up on me, `eh`?
+- You're scared now, `eh`?
+- A little too tight, `eh`?
+- Beautiful all over, `eh`?
+- Kimberly burroughs, `eh`?
+- Smart for your age, `eh`?
+- What are you to do, `eh`?
+- You're that sleepy, `eh`?
+- You�ve been around, `eh`?
+- An old acquaintance, `eh`?
+- As for the guilty... `eh`?
+- Ay-`eh`...they was here...
+- `Eh`... five dollars more.
+- Not a big music fan, `eh`?
+- Oh, she bit her dog, `eh`?
+- Stuffed and mounted, `eh`?
+- `Eh`, he's got a low fence.
+- `Eh`, if the bootie fits...
+- It's crazy this year, `eh`?
+- _ just an expression, `eh`?
+- Look after that suit, `eh`.
+- Oh, she's coming, `eh`, ma?
+- Pressures on, `eh` proximo?
+- So, `eh`, you never saw me.
+- Um, `eh`, i don't think so.
+- You remember nothing, `eh`?
+- Do i have to kill you, `eh`?
+- `Eh`, i'll call them myself.
+- `Eh`, it'll stop on its own.
+- `Eh`, we'll see how it goes.
+- Information retrieval, `eh`?
+- It's a terrible shock, `eh`?
+- Looting and pillaging, `eh`?
+- Anything for art, `eh`, paul?
+- `Eh`, kind of a package deal.
+- `Eh`, no, it's just too hard.
+- `Eh` -- she's -- what's this?
+- `Eh`, what's come between us?
+- `Eh`, where's my grandfather?
+- I... `eh`... can't explain...
+- Need medical attention, `eh`?
+- No hard feeling, `eh`, chum ?
+- Not bad for bomb squad, `eh`?
+- Oh, trying to frame me, `eh`!
+- So you're from new york `eh`?
+- They'd put you in jail, `eh`?
+- Tried to slip it by me, `eh`?
+- What's this blue stuff, `eh`?
+- A bird in a gilded cage, `eh`?
+- `Eh`, mathematically speaking.
+- Harold, this is edith... `eh`?
+- It might be someone new, `eh`?
+- My... `eh`... we kidnapped it.
+- Nothing that can eat it, `eh`?
+- Pretty groovy jumbo jet, `eh`?
+- So what did we do to you `eh`?
+- So you're stuck with me, `eh`?
+- You wanted to say hello, `eh`?
+- `Eh`, bien -- i am not a thief.
+- `Eh`, that's the game we're in.
+- Oh, putting on the swell, `eh`?
+- Pretty enlightened, `eh`, kids?
+- Retire with a bang, `eh`, e.j.?
+- That should cheer him up, `eh`?
+- Worries about his mother, `eh`?
+- Don't do that to me again, `eh`?
+- `Eh`, mickey, it's getting late.
+- Full of useless thoughts, `eh`?"
+- Good shape for an old man, `eh`?
+- No, but between the lines, `eh`?
+- Nothing of any importance, `eh`?
+- Oh no, i, i...`eh`...i couldn't.
+- Saving a lady in distress, `eh`?
+- The banks are out of luck, `eh`?
+- We know how this was done, `eh`?
+- You've had a better offer, `eh`?
+- Ay-`eh`...made out i was crazy...
+- Better find our bonus baby, `eh`?
+- `Eh` - formerly a school-teacher.
+- `Eh`, there's only three of them.
+                 

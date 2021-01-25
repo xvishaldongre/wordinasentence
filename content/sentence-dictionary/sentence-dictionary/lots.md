@@ -1,0 +1,107 @@
+---
+title: "lots in a sentence | lots example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lots"
+---
+- Drink `lots` of water.
+- I have `lots` of them.
+- `Lots` of capers, huh?
+- `Lots` of people were.
+- He has `lots` of disks.
+- I take `lots` of taxis.
+- `Lots` of institutions.
+- `Lots` of people do it.
+- `Lots` of street busts.
+- Maybe `lots` of things.
+- She has `lots` of maps.
+- With `lots` of ketchup?
+- I have `lots` of drinks.
+- I have, `lots` of times.
+- `Lots` must a died, too.
+- Yes... `lots` of things!
+- I got `lots` of presents.
+- `Lots` of guests, anyhow.
+- Now: `lots` n lotsa cash.
+- Okay, there's `lots` more.
+- There are `lots` of kinds.
+- I've seen `lots` of people.
+- `Lots` of people have guns.
+- We gave you `lots` of help.
+- Yeah, and `lots` of onions.
+- Hope you have `lots` to say.
+- `Lots` of building going on.
+- There are `lots` of reasons.
+- We got room for `lots` more.
+- `Lots` of drops to drink.
+- It's okay, i got `lots` more.
+- `Lots` of activity in havana!
+- `Lots` of provocation lately.
+- There are `lots` of reason...
+- We've heard `lots` about you.
+- Play `lots` of contact sports?
+- `Lots` more where he came from.
+- `Lots` of dirty little secrets.
+- `Lots` of people drink perrier.
+- Or could mean `lots` of things.
+- He's got `lots` of friends here.
+- Oh, `lots` of things, i suppose.
+- You have `lots` of ideas, right?
+- `Lots` of the kids hang out here.
+- Oh, we've got `lots` of pictures.
+- So do i. i've got `lots` of time.
+- There's `lots` of footage of you.
+- `Lots` of stations are closed.
+- There's `lots` of men around here.
+- Drink tea -- there's `lots` of tea.
+- I bet you did `lots` of bad things.
+- I like a place with `lots` of life.
+- There's `lots` of ways we can help.
+- We need nightmares - `lots` of 'em.
+- We've still `lots` of things to do.
+- Hey, there's `lots` i can teach you.
+- I'm seeing...snow... `lots` of snow.
+- Jesus, there's `lots` of everything.
+- `Lots` of carrot juice, little lady.
+- `Lots` of it, universal donors only.
+- Weirdness, my boy, and `lots` of it.
+- `Lots` of my clients are rich guys...
+- We have `lots` of big men chasing us.
+- I have this effect on `lots` of women.
+- `Lots` of guys are making salad bowls.
+- Sure, danny, it will be `lots` of fun.
+- There's `lots` nicer places than mars.
+- The yard was big with `lots` of grass.
+- `Lots` of actresses come from brooklyn.
+- Don't worry, i've got `lots` of friends.
+- There's `lots` funny about it, actually.
+- Twelve programmes, `lots` of stock film.
+- But `lots` of our people don't read, man.
+- Jos�, my ace, `lots` of transshipment.
+- Do they have `lots` of sluts in las vegas?
+- I got `lots` of bills come again next day.
+- There's `lots` of pageantry going on here.
+- They's `lots` of queer goings on up there.
+- Oh, `lots` of reasons, most of them boring.
+- Oh, that's all right, i've got `lots` more.
+- You know i seen you `lots` of times before.
+- As a yuppie, i'm making `lots` more friends.
+- Ezra, i'm `lots` better than you're used to.
+- Haven't you met `lots` of new people before?
+- Huh... i�m sure there�d be `lots` of takers.
+- It must be difficult having `lots` of wives.
+- Oh, you see `lots` of freaky stuff in a cab.
+- Sherman, i've done `lots` of favors for you.
+- I mean we have `lots` of, um, trees and such.
+- That person will ask you `lots` of questions.
+- There are `lots` of kids you still know here.
+- He has `lots` of time since he's been retired.
+- Mitch knows `lots` of people in san francisco.
+- Very classy stuff, `lots` of technique- check.
+- `Lots` of girls willing take their clothes off.
+- There were `lots` of kids in and out... y'know.
+- The woman's session has `lots` of lively debate.
+- Where the parking `lots` were behind the stores.
+- I'm used to `lots` of things, i work at wal-mart.
+- `Lots` of men don't speak to their wives all day.
+                 

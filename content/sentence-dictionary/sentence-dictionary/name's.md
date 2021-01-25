@@ -1,0 +1,107 @@
+---
+title: "name's in a sentence | name's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "name's"
+---
+- But my `name's` not...
+- Her `name's` mayfield.
+- His `name's` armitage.
+- My `name's` kurtzweil.
+- My real `name's` norm.
+- The `name's` plissken.
+- * your `name's` teddy.
+- Her `name's` stephanie.
+- My first `name's` butt.
+- My `name's` john klute.
+- My `name's` mr. orange.
+- That `name's` familiar.
+- "hi, my `name's` ginger.
+- Hi, my `name's` lindner.
+- His `name's` jason dean.
+- His `name's` mark swarr.
+- My `name's` johnny utah!
+- My `name's` joyce byers.
+- My `name's` robert dean.
+- My `name's` scott roper.
+- My `name's` tom grunick.
+- My `name's` will graham.
+- `name's` colleen sutton.
+- But the `name's` pearson.
+- My real `name's` blanche.
+- The `name's` baby herman.
+- His `name's` kevin mccall.
+- My `name's` dick halloran.
+- My `name's` george bailey.
+- My `name's` george kovich.
+- My `name's` guy danielsen.
+- My `name's` holly martins.
+- My `name's` indiana jones.
+- My `name's` not christine.
+- Oh jesus... `name's` norm.
+- See if his `name's` on it.
+- My `name's` hawkeye pierce.
+- My `name's` larry mitchell.
+- Um, well, my `name's` mike.
+- Vivian, my `name's` vivian.
+- Her `name's` alice for sure.
+- His `name's` david stockman.
+- My first `name's`--clarissa.
+- My `name's` jerry woolridge.
+- So your `name's` not gorsky.
+- But my `name's` daniel stone.
+- My `name's` lowell bergman...
+- The `name's` william whacker.
+- Her `name's` lorelei ambrosia.
+- His `name's` harry sultenfuss.
+- My `name's` holly... holly 13.
+- Your `name's` freddy something.
+- It's `name's` a christmas carol.
+- `name's` hawkins, eddie hawkins.
+- The `name's` baker -- all right.
+- Yeah, her `name's` kavlova, why?
+- `name's` hammond, reggie hammond.
+- `name's` right there on the card.
+- You know, my `name's` not spooky.
+- By the way, the `name's` fletcher.
+- My `name's` salvatore...and yours?
+- Sorry, the `name's` adam canfield.
+- I s'pose his `name's` david ravell.
+- My `name's` clementine, by the way.
+- Actually, my `name's` austin powers.
+- Gabriel, my `name's` clarke griffin.
+- His `name's` not future man, dignan.
+- I told you my `name's` chili palmer.
+- Your `name's` billy, billy hargrove.
+- His `name's` frank mackey -- it's ok.
+- Well...his real `name's` edward lyle.
+- Remembering one `name's` bad enough...
+- Your `name's` carpenter -- that right?
+- Your `name's` donnie something, right?
+- My `name's` dorota, i'm jurek's sister.
+- My `name's` been in the papers too much.
+- Her `name's` sandy ... she's quite pretty.
+- My `name's` not woody, it's haw-haw... well.
+- His `name's`, um, curtis... curtis hardapple.
+- My `name's` arbogast, private investigator...
+- Funny--her `name's` not on the passenger list.
+- Hope you'll forgive me for� my `name's` sondra.
+- My `name's` clayton and i'm looking for someone.
+- My `name's` i'm sure he'll be sorry to hear that.
+- `name's` patrick, i met him at the driving range.
+- I think his first `name's` ray--i have to see him.
+- To avoid them, but... my `name's` warburton parker.
+- Well... it's possible they think my `name's` bobby.
+- My `name's`- don't worry, doc, it's not your problem.
+- Well, put 'er there, billy boy, my `name's` mcmurphy.
+- If my `name's` ben, how come you don't call me son?
+- Let me go, let me go, you creeps... my `name's`, penny!
+- We're gonna tell all these new people my `name's` rico?
+- It's still impressive by my standards: my `name's` john.
+- Her `name's` kristen, but i suppose you've never seen her?
+- * his `name's` james f. grantz, john g. check * your tattoos.
+- His real `name's` randy collins and he works at the feed mill.
+- Kinda like david and what's-his-`name's` whole fucking family.
+- It'd be so embarrassing his `name's` wally brown .... great guy.
+- My `name's` marge gunderson - naw, i... executive sales manager.
+                 

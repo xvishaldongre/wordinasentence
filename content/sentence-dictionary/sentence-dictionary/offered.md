@@ -1,0 +1,84 @@
+---
+title: "offered in a sentence | offered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "offered"
+---
+- He `offered` you money?
+- I `offered` the bounty.
+- Max `offered` to stake me.
+- We `offered` them refunds.
+- He even `offered` me a job.
+- They've `offered` a reward.
+- `Offered` rewards, everything.
+- How much is the wife `offered`?
+- Maybe they `offered` her money.
+- Has anybody `offered` to buy it?
+- I apologized, i `offered` to help.
+- My aunt in australia has `offered`..
+- `Offered` the pope one of his whores.
+- Rose is being `offered` to the woods.
+- Wouldn't take it if it was `offered`.
+- Eight hundred is `offered`, thank you.
+- Anyway, he `offered` me a silver cloud.
+- Honey, have they `offered` you the job?
+- I was `offered` that job as a waitress.
+- You haven't been `offered` it, have you?
+- A friend of mine `offered` me a job here.
+- Has anyone `offered` you anything to eat?
+- It was my problem, you `offered` no help.
+- Moe, lisa has `offered` to pay my bar tab.
+- He's new in town so i `offered` my services.
+- I `offered` her, ma, she don't want nothing.
+- I `offered` you the world, - i got that beat.
+- Well, he `offered`, and i just couldn't refuse.
+- They've `offered` you a thousand dollars a week.
+- Alex `offered` to share his room, unsolicited....
+- That they have `offered` double your standard fee.
+- I've been `offered` a job in washington with h.e.w.
+- I'd sure like that favor you `offered` a while back.
+- When we faced extinction, i `offered` a solution.
+- If their leader had `offered` you the deal... - check.
+- Ruth mchibbon `offered` to pick you up at the airport.
+- He `offered` me a job driving his hack onna night shift.
+- I wanted you to be here when i `offered` paden your job.
+- Daddy's `offered` me jobs at some of his other companies.
+- Before too long you'll be `offered` a command of your own.
+- I `offered` my help this morning and sedman turned me down.
+- I was broke, the guy `offered` me the hash and... just what?
+- After i did "dracula," the studio `offered` me "frankenstein"!
+- But i think he should be `offered` the ambassadorship to iran.
+- I `offered` her seats for the opera... you haven't seen her yet?
+- The guy `offered` me the hash-- ...it just seemed like easy money.
+- Vance `offered` me the head of finance position at the new office.
+- Last i heard you were `offered` a posi- tion in the west somewhere.
+- Leonard, you `offered` to help when you saw what this guy did to me.
+- He said he lived here, and he `offered` to make a reservation for me.
+- He's always `offered` the same high quality meals at competitive prices.
+- I sensed he was in trouble, so i `offered` to put him up for a few days.
+- No one has but lost by it... ...his family has `offered` a large reward.
+- Then why don't you take the job that louie netz `offered` you at boeing?
+- On the other hand, since you insist, if you `offered` me a cold lemonade.
+- It wouldn't fucking matter if i `offered` you one hundred million dollars.
+- We `offered` to trade you for raven, _ you should have more faith, clarke.
+- Hitler himself `offered` you a beautiful house and a personal bomb shelter.
+- We `offered` to trade you for raven, - you were just telling it like it is.
+- Then he `offered` me one million dollars to walk away, to quit the business.
+- <u>someone</u> `offered` three million dollars bounty on dr. lechter's head.
+- I'll figure something out... how come you `offered` to drive me in this mess?
+- The irs wanted to go after him, and this deal `offered` them the opportunity.
+- Ben damon was given a fake script because he was only being `offered` the role.
+- Which is why they `offered` me the gig, because i can link with tommy's avatar.
+- He `offered` to set me up for life, and like a fool, well, i... nobody's a nobody.
+- Now, any of these guys been `offered` jobs in corporate security after they retire?
+- The las vegas police department has `offered` to make a generous financial donation.
+- If someone `offered` you a place to stay, you wouldn't necessarily refuse, would you?
+- Well i...i did get `offered` one place but i just wanted to be off by myself a spell.
+- You'd worry that something was wrong if congress `offered` you unconditional support.
+- But if he knew we have so little time - he `offered` to help, starling, not to snitch.
+- A friend of mine `offered` me a job doing a little work installing a show in a gallery.
+- If any of you men think you can come busting in here- i've `offered` you some warm broth.
+- If they `offered` it to me today, it is real for her, are now keeping us from that dream.
+- The crime commission has `offered` a reward of ten thousand dollars for williams' capture.
+- He `offered` me human blood -- said it would take me higher than i've ever been in my life.
+                 

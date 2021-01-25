@@ -1,0 +1,63 @@
+---
+title: "defend in a sentence | defend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "defend"
+---
+- My job is `defend` him.
+- Then `defend` your name.
+- You never `defend` me.
+- We can `defend` ourselves.
+- I know how to `defend` myself.
+- How do you `defend` against it?
+- I don't need you to `defend` me.
+- I won't `defend` my life to you.
+- _ to uphold and `defend` - what?
+- Why do you have to `defend` her?
+- I only wanted to `defend` myself.
+- I will `defend` him with my life.
+- Easily spoken... `defend` ourselves.
+- I ordered you to `defend` this ship.
+- You must learn to `defend` yourself.
+- Because sheila will `defend` herself.
+- He will `defend` her in the ceremony.
+- I'd like the chance to `defend` myself.
+- I have nothing to `defend` myself with.
+- One-legged goalie attempts to `defend`.
+- I'm not asking you to `defend` anything.
+- Sam, listen -- i shot to `defend` my man.
+- We can't `defend` ourselves it's too far.
+- Every available man to `defend` this camp.
+- Angels and ministers of grace, `defend` us.
+- I thought i was allowed to `defend` myself.
+- You used to `defend` him quite a good deal.
+- I don't need you to `defend` me, y'know, norm.
+- Cooper... no but you didn't `defend` him either!
+- He feels he has to `defend` himself if necessary.
+- Do we have anything else to `defend` ourselves with?
+- "the good deeds a man has done before `defend` him."
+- We can't `defend` ourselves if we can't communicate.
+- After leizburg, he stuck his neck out to `defend` me.
+- I swore an oath to protect and `defend` these people.
+- I couldn't even afford to pay a lawyer to `defend` me.
+- You don't have to dance if you... we must `defend` it.
+- A girl's gotta know how to `defend` herself, don't she?
+- It is her we are mobilizing to `defend`... it is "she"?
+- You `defend` yourself admirably... forgive me, don colon.
+- Everyone has the right to `defend` themselves, don't they?
+- It's just that...mr tyler is not here to `defend` himself.
+- Well, now, darlin'... give me a chance to `defend` myself.
+- If we don't `defend` ourselves, hey, i'm not made of money.
+- His honor, i suppose... seeing he no longer can `defend` it.
+- I can't `defend` you, man, with one hand tied behind my back!
+- Or if you ask my crazy aunt shirley, it's... and `defend` this place.
+- Two strong boys would be able to `defend` themselves against one man.
+- Captain, when we get to camp khitomer, how will we `defend` ourselves?
+- I ain't doing nothing for that thing without something to `defend` myself.
+- You don't have to `defend` him to me, mary -- i've been called names myself.
+- If we don't strike soon, there may not be much of an america left to `defend`.
+- You're about to `defend` the most notorious serial killer in american history.
+- Always picking on somebody who can't `defend` himself -- the littler the better.
+- Ingen is my livelihood, dr. malcolm, and i will jealously `defend` its interests.
+- Now, if they're here to `defend` us, as you say, get out of the airlock, both of you, now.
+                 

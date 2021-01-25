@@ -1,0 +1,7 @@
+---
+title: "mattocks in a sentence | mattocks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mattocks"
+---
+## Unfortunately, we have no example sentences for mattocks                 

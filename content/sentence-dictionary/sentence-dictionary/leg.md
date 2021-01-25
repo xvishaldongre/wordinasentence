@@ -1,0 +1,107 @@
+---
+title: "leg in a sentence | leg example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leg"
+---
+- It has a broken `leg`!
+- Watch your `leg`, dad.
+- Stick it in your `leg`.
+- The `leg` got infected.
+- Break a `leg`, everyone.
+- `Leg` of lamb this time?
+- Lift up your pant `leg`.
+- One in the girl's `leg`.
+- Tie it to steve's `leg`.
+- Your `leg` will be fine.
+- You've broken its `leg`!
+- Are you pulling my `leg`?
+- God i love a young `leg`.
+- I'll drink to your `leg`.
+- Sir, my `leg` is on fire!
+- But my `leg` is very sore.
+- I think i busted my `leg`.
+- My `leg` is not very sore.
+- He amputated his own `leg`?
+- I got a bullet in my `leg`.
+- I think my `leg` is broken.
+- My `leg` is falling asleep.
+- Swanney fucks his `leg` up.
+- This `leg`, dougy, come on.
+- What happened to his `leg`?
+- I think his `leg` is broken.
+- My `leg`'s stiff as a board.
+- This `leg`, dougie, come on!
+- He wants me to break a `leg`?
+- I like a fried chicken `leg`.
+- Right, his `leg`'s going now.
+- I can't feel my goddamn `leg`.
+- I supposed you'd like a `leg`.
+- Had a broken `leg`, turned out.
+- Well, tell me to break a `leg`.
+- Your `leg` is never gonna heal.
+- Gaia's gonna keep her `leg`.
+- Let's shake a `leg`, ladies.
+- That's gonna make my `leg` heal?
+- You mean one `leg` on each side?
+- Epps, my `leg` is falling asleep.
+- What are you doing on that `leg`?
+- I'm gonna get me a peg-`leg` baby.
+- Joey, what happened to your `leg`?
+- What's the matter with your `leg`?
+- Your `leg` must be getting better.
+- You try doing this one good `leg`.
+- Because his `leg` touched your car.
+- I busted his `leg` with a shovel...
+- I don't know if i can with my `leg`.
+- I know a guy who only has one `leg`.
+- What's wrong with your `leg`, daddy?
+- Do you want me to take his `leg` off?
+- Let them go -- `leg`'s all banged-up.
+- My grandson fell and broke his `leg`.
+- She got one `leg` out from under him.
+- She should be able to keep the `leg`.
+- You're not okay, your `leg`'s a mess.
+- Your `leg`'s just gonna slow us down.
+- My `leg` is touching milhouse's dad's.
+- She told me about that european `leg`.
+- You ain't goin' nowhere on that `leg`.
+- Because there's an arrow in your `leg`.
+- By the way what happened to your `leg`?
+- Maybe because you're shot in the `leg`.
+- We gotta start taping it to your `leg`.
+- A `leg` is stuck out and alex goes down.
+- Cut his pants up the `leg` to the groin.
+- How about i put one in your `leg` please.
+- She'll put a splint on that injured `leg`.
+- What happened to your `leg` there officer?
+- I'm all but lame from the bite on my `leg`!
+- You don't have a fucking `leg` to stand on.
+- Between that and my wooden `leg` i'm a mess.
+- Didn't they give you a real `leg` in heaven?
+- I thought i was-- drive off your back `leg`.
+- Why do you think they call him jangle `leg`?
+- You can shoot him in the `leg` or something.
+- He's about as straight as a dog's hind `leg`.
+- This damn `leg` just won't act right no more!
+- You break your `leg`, i'll have to shoot you.
+- You could just make a splint, bind the `leg`.
+- A broken `leg` and twelve melted rolls of film.
+- But not anymore, - no way, not with el's `leg`.
+- Couple grand or more'd give you two a `leg` up.
+- Put the knife down, or i put one in your `leg`.
+- 10 seconds, or i'll put one in jasper’s `leg`.
+- But they put their pants on one `leg` at a time.
+- My `leg` can bear my weight, not the both of us.
+- Ya, but you can't do the shuffle with one `leg`.
+- Jefferson's done a wonderful job with that `leg`.
+- What'm i dragging my bum `leg` all over town for?
+- I know your `leg` is cramping, but you can't move.
+- You should give it to someone with only one `leg`.
+- He strained his `leg` so that it pains him to ride.
+- If i can get a tourniquet around your `leg`, sorry.
+- Woman bites chicken `leg`, turns out to be a mouse.
+- Effective immediately: `leg` of yam and wagyu beets.
+- Good, keep your weight off that `leg`, mr. gardiner.
+- Significant damage to the nerves in your left `leg`.
+                 

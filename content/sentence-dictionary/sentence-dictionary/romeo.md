@@ -1,0 +1,58 @@
+---
+title: "romeo in a sentence | romeo example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "romeo"
+---
+- But alas poor `romeo`!
+- Did you see a `romeo`?
+- Go say hello, `romeo`.
+- Like `romeo` and ethel?
+- `Romeo` will answer it?
+- Come, what says `romeo`?
+- Did `romeo` have a name?
+- Like `romeo` and juliet.
+- `Romeo`, i drink to thee.
+- Signior `romeo`, bon jour!
+- That's the thing, `romeo`.
+- My `romeo` has let me down.
+- Wherefore art thou `romeo`?
+- Why, `romeo`, art thou mad?
+- Oh no... no... you're a `romeo`.
+- Having romance problems, `romeo`?
+- `Romeo`?--he gave it to henslowe.
+- Thou art consortest with `romeo`?
+- `Romeo` tango zulu1 this is tower.
+- Until he meets `romeo` is�italian.
+- Art thou not `romeo` and a montague?
+- `Romeo` and juliet--just a suggestion.
+- Did `romeo`'s hand shed tybalt's blood?
+- What sadness lengthens `romeo`'s hours?
+- Where the devil should this `romeo` be?
+- `Romeo` and ethel the pirate's daughter.
+- `Romeo` montague, a young man of verona.
+- What sadness lengthens `romeo`'s hours?"
+- Nay, gentle `romeo`, we must have you dance.
+- You know, back in hungary, i played `romeo`!
+- I gave shakespeare two sovereigns for `romeo`!
+- `Romeo` tango zulu, do you have the president?
+- He wants `romeo` for ned and the admiral's men.
+- This is `romeo` tango zulu changing call signs.
+- Three words, dear `romeo`, and good night indeed.
+- Come loving black-browned night give me my `romeo`.
+- You should have known better than to write, `romeo`.
+- `Romeo` and ethel the pirate's daughter�almost finished?
+- Uncle, this is that villain `romeo`, a montague, our foe.
+- I will spell: charlie hotel india mary echo `romeo` alpha.
+- That very night shall `romeo` bear thee hence to mantua.
+- O, `romeo` that she were an open ass, and thou a poperin pear!
+- You `romeo`'s sure pay a high price sometimes - anyone i know?
+- Tower, alert air traffic, `romeo` tango zulu is now air force one.
+- Look at this, all of a sudden everybody's a fuckin' `romeo` around here.
+- His name is `romeo`, and he's a montague; the only son of your great enemy.
+- Well, you have made a simple choice; you know not how to choose a man: `romeo`!
+- It's the oldest story in the book, the ageing `romeo` jealous of the young buck.
+- By malign fate, the message goes astray which would tell `romeo` of the friar's plan.
+- O `romeo`, doff thy name, and for that name which is no part of thee take all myself.
+- `Romeo`, good night: i'll to my truckle-bed; this field-bed is too cold for me to sleep.
+                 

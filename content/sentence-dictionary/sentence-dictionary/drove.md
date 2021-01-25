@@ -1,0 +1,102 @@
+---
+title: "drove in a sentence | drove example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drove"
+---
+- `Drove` into superior?
+- I just `drove` around.
+- He `drove` me to drink.
+- You just `drove` by it.
+- She `drove` me to court.
+- Then he `drove` me home.
+- My work `drove` him away.
+- He `drove` me to mine.
+- ...but i `drove` her away.
+- Said it `drove` her crazy.
+- I `drove` my car up a tree.
+- Look -- i `drove` you home.
+- He `drove` off without her...
+- "oh, you know who i `drove`?"
+- We `drove` over from hawkins.
+- I just `drove` in from kansas.
+- It-it `drove` coppola to wine.
+- I just `drove` in this morning.
+- That's what `drove` him insane.
+- You `drove` him to his torment.
+- Cabbie `drove` around all night.
+- Funny, we just `drove` right in.
+- We `drove` all the way out here.
+- We `drove` out into the desert .
+- I `drove` over and you were gone.
+- Somebody `drove` by and shot him.
+- All right, i `drove` to the beach.
+- `Drove` me crazy when we were kids.
+- Freddie `drove` me back in his car.
+- I just `drove` to seattle and back.
+- Well, he `drove` it into the river.
+- The curse `drove` you to gather this?
+- Those girls `drove` off because of you.
+- He `drove` his first two wives to drink.
+- I `drove` -- i `drove` mrs. robinson home.
+- I `drove` twelve hours straight through.
+- Don't you know you `drove` everybody mad?
+- I love that i `drove` you to violence.
+- I accidentaly `drove` into a seven-eleven.
+- I also remember you `drove` your car here.
+- We just `drove` 2,000 miles in four hours.
+- I used to carry a gun when i `drove` a cab.
+- Did you see the way those girls `drove` off?
+- The day i left you i just `drove` and `drove`.
+- He `drove` you to your mama's, and then what?
+- So signor miles `drove` away and you did what?
+- George was adorable but it `drove` me crackers.
+- It's the car she `drove` in "eternity forever".
+- Later, i `drove` to his house to confront them.
+- You know, her attitude nearly `drove` me crazy.
+- You just `drove` a fucking customer away, barry.
+- Who `drove` the ice cream... you did help a little.
+- Yeah, she's the girl who `drove` the bus in "speed."
+- After three years she remembers what the guy `drove`?
+- They `drove` her and the kids to north tahoe airport.
+- He didn't stay on though and they `drove` off together.
+- That man who `drove` by so fast, the one you yelled at.
+- Were not you the lady who `drove` my car off yesterday?
+- You `drove` me nuts with this for three days, now do it!
+- I got back in the car and i `drove` home to sleep it off.
+- Wasn't it full when you `drove` to brewster this morning?
+- Yeah, but what happened after she `drove` off with glenn?
+- He told me that crain `drove` his workers to early deaths.
+- How did you find out dave ferrie `drove` to texas that day?
+- She wanted me to drive her home so i -- i `drove` her home.
+- Because he `drove` jessica insane -- deliberately -- coldly!
+- The way you `drove` that car, i figured you for the streets.
+- I'm sure he knew about us -- and i'm sure it `drove` him mad.
+- They had a fight that night, she `drove` away, she was upset?
+- Well, he certainly wasn't dead when he `drove` off in his car.
+- It was full of water when i `drove` by here three days ago.
+- I `drove` all day and all that night, and i didn't go anywhere.
+- No, he was so hammered that he `drove` the police cruiser home.
+- Yes, they knew of your first contact, so they `drove` her below.
+- Your words `drove` bouchon to -- oh, i'm to be blamed now, am i?
+- He `drove` around for a long, long time... driving and driving...
+- It was his irresponsibility that `drove` my husband to his grave.
+- ♪ `drove` my chevy to the levee but the levee was dry ♪ i'm sorry.
+- The bow `drove` half through her, but she sealed herself right up.
+- A story about a guy who `drove` his car off a cliff in a snowstorm?
+- ♪ `drove` my chevy to the levee but the levee was dry ♪ pretty cool.
+- We're talking four, five years ago, back when i `drove` a trans- am.
+- A taxi driver `drove` him to the harbor where he boarded a cargo boat.
+- Then dolores `drove` on and turned onto the marlowe road, as usual.
+- He forgot all about his route and just `drove` straight to the hospital.
+- He `drove` me to school in the morning and picked me up in the afternoon.
+- I got it from a drug dealer who only `drove` it 5 times in as many years.
+- The morning after pearl harbor, he `drove` down to st. louis to reenlist.
+- He prefers the pronoun "they", i hit the road and `drove` as far as i could.
+- Her neighbor `drove` her, on account of your father was on business in wichita.
+- Surely st. michael had so fine a blade when he `drove` the serpent from heaven.
+- Oh, ahh, oil change, i...ehh...i just `drove` in from chicago and uhh...nice hair.
+- Mom, this is the guy that `drove` us home that afternoon we were stuck on the highway.
+- We `drove` all the way down to klan country 'cause you heard a couple of guys talking?
+- Last fall, i `drove` you from the palm beach county jail to the federal courthouse, twice.
+                 

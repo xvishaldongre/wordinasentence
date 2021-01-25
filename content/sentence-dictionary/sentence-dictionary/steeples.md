@@ -1,0 +1,8 @@
+---
+title: "steeples in a sentence | steeples example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "steeples"
+---
+- God save you before you turn into poor `steeples` over there.
+                 

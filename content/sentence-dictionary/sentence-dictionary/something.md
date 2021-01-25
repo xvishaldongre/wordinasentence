@@ -1,0 +1,107 @@
+---
+title: "something in a sentence | something example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "something"
+---
+- Brenda do `something`!
+- But i saw `something`.
+- Coffee or `something`?
+- Did i say `something`?
+- Do `something` for me.
+- Grab onto `something`.
+- He has -- `something`.
+- He's onto `something`.
+- I brought `something`.
+- I do feel `something`.
+- I do know `something`.
+- I'll find `something`.
+- I -- lost `something`.
+- I owe you `something`.
+- It's `something` else.
+- It's `something` more.
+- Know `something`'s up.
+- Let me do `something`.
+- Make `something` else.
+- Need `something` else?
+- No, `something` worse.
+- Picked up `something`?
+- Rommel or `something`.
+- Say `something`, paul!
+- Say `something`, theo.
+- `Something` back home?
+- `Something` for burns.
+- `Something` is coming.
+- `Something` like that.
+- `Something` like that?
+- `Something` like this.
+- `Something` maybe big.
+- `Something` moved you.
+- `Something` not... us.
+- `Something`'s come up.
+- `Something` so bad...?
+- `Something`'s up wi...
+- _ `something`'s wrong.
+- `Something` they need?
+- `Something` tugged us.
+- `Something` upset you.
+- `Something` was there.
+- `Something` was wrong.
+- There was `something`.
+- They want `something`.
+- You *did* `something`!
+- You found `something`?
+- A dress or `something`.
+- Ain't that `something`.
+- Ain't that `something`?
+- A skirt or `something`.
+- Did he say `something`?
+- Did i miss `something`?
+- Did `something` change?
+- Did `something` happen?
+- Do `something`, gorman!
+- Gonna have `something`?
+- Got `something` for me?
+- Got `something` to say?
+- He did say `something`.
+- Hey, i got `something`.
+- Hit him or `something`.
+- I did feel `something`.
+- I dunno... `something`.
+- I gotta do `something`.
+- I heard `something` ...
+- I made you `something`.
+- Isn't that `something`?
+- I tell you `something`.
+- It must be `something`.
+- It must do `something`.
+- It's doing `something`.
+- I've got `something`...
+- Know `something` tommy?
+- Let me see `something`.
+- No -- `something` real.
+- Oh, here's `something`.
+- Please say `something`.
+- Promise me `something`.
+- Say... say `something`.
+- `Something` about barb.
+- `Something`, anything .
+- `Something` else, then.
+- `Something` goes wrong.
+- `Something` in an hour.
+- `Something` in an hour.
+- `Something` mi trabajo.
+- `Something` real weird.
+- `Something`'s going on.
+- `Something`'s in there.
+- `Something` the matter?
+- `Something` went wrong.
+- So, that's `something`.
+- Talk about `something`.
+- Tell 'em `something`--!
+- To `something` greater.
+- Well, it's `something`.
+- We must do `something`.
+- We try `something` out.
+- Yes, `something` was...
+                 

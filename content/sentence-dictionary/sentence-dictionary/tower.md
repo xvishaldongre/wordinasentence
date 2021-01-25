@@ -1,0 +1,86 @@
+---
+title: "tower in a sentence | tower example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tower"
+---
+- Looks like the `tower`.
+- They hate this `tower`.
+- Get me the radio `tower`!
+- Back to the eiffel `tower`.
+- Brody's riding his `tower`.
+- Here... the eiffel `tower`.
+- He's at the uplink `tower`.
+- Hotel, hell's gate `tower`.
+- It's spread to the `tower`.
+- We're going up the `tower`.
+- It looks like trump `tower`.
+- Stealing the eiffel `tower`?
+- You didn't blow the `tower`.
+- An island called `tower` bay.
+- Control `tower`, reading, sir.
+- It's up there, on the `tower`.
+- Just like trump `tower`, then.
+- Let me see... eiffel `tower`...
+- Lukla `tower`, we're doing fine.
+- Honey, sing it for judge `tower`.
+- Perhaps even live in the `tower`.
+- Romeo tango zulu1 this is `tower`.
+- Well, you're a `tower` of support.
+- I am looking for the eiffel `tower`.
+- That's the eiffel `tower` strip club.
+- Uh, `tower`, we got a problem up here.
+- We're going up the `tower`, madeleine.
+- Hang a left at the amalgamated `tower`.
+- Be unto her o' lord a fortified `tower`.
+- `Tower`, air force one has been boarded.
+- Jessie, i reached the top of the `tower`.
+- The uplink `tower` down at the other end.
+- To relay with the russians' radio `tower`.
+- That up-link `tower` down at the other end.
+- They took her and the flame to the `tower`.
+- When that fog lifts, take the `tower` down.
+- You fell out of the tall `tower` you creep!
+- He knows where the eiffel `tower` is, olsen.
+- He said the `tower`, but he's on comb bluff?
+- You can pick it out, a `tower` on the strip.
+- Let's go hock loogies off the eiffel `tower`!
+- Five leagues from here is the eastern `tower`.
+- Hey, gabe, we're flyin' off the `tower` today.
+- No... just down the street, the amigo `tower`.
+- He'll draw every light from every goon `tower`.
+- Go for the power regulator on the north `tower`.
+- As if the proud `tower` of my genius has collapsed.
+- Take the others to the water `tower` for the night.
+- The first time i've been grateful for coit `tower`.
+- It's apartment 1009, south `tower`, starliner towers.
+- The baron's forces are besieged in the south `tower`.
+- Well, that's why edgar never got down off that `tower`.
+- I remembered coit `tower` and it led me straight to you.
+- She jumped from the top of a `tower` into a frozen moat!
+- You know what happened to the `tower` of babel, don't you?
+- An unassembled one-of-a-kind battery-powered radio `tower`.
+- I don't know... ♪ a `tower` that casts a shade ♪ not for you.
+- I've got a sharpshooter up on the water `tower` just in case.
+- The reason why you get to play doctor in your ivory `tower`.
+- Well, listen, ginger's over here at the leaning `tower` with me.
+- I am interested in the eiffel `tower` from a technical standpoint.
+- `Tower`, alert air traffic, romeo tango zulu is now air force one.
+- When you got there, he pushed her off the `tower`, was that it?
+- Tell us, jeanne... why did you jump from the `tower` at beaurevoir?
+- Over at the processing station...sublevel 'c' under the south `tower`.
+- If i don�t get to the boa before he gets to maiden�s `tower`, m is dead.
+- A patient sleepwalks out of a security ward up to a `tower` with no access.
+- But if i can get to the `tower` that broadcasts it, blindfolds on, gentlemen.
+- All i need is a relay `tower` on the ground i will, but i'm allergic to myself.
+- I mean, what was he doing up on the `tower` with a girl who could barely climb?
+- Yes -- it was the `tower` again... and the bell, and the old spanish village...
+- You see, i've been very lonely in my isolated `tower` of indecipherable speech.
+- To get back from the `tower` and down to the cockpit, octavia will never surrender.
+- A gang of terrorists seized the eiffel `tower` in paris give it another ten minutes.
+- Didja ever go to the top of old man larson's feed `tower` and look out over the town?
+- This ship, it's crazy: trying to go faster'n light, that's like the `tower` of babel.
+- When we go through the next gate you'll have 30 seconds to take out the `tower` guard.
+- And has access to a super-powered handcrafted radio `tower`, what did we... talk about?
+- Imagine, for once in our lives we were in paris and we never went to the eiffel `tower`.
+                 

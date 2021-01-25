@@ -1,0 +1,87 @@
+---
+title: "cigarette in a sentence | cigarette example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cigarette"
+---
+- Gimme the `cigarette`.
+- Give me a `cigarette`.
+- You got a `cigarette`?
+- A `cigarette`, see?
+- Can i bum a `cigarette`?
+- ...get me a `cigarette`.
+- Here have a `cigarette`.
+- Your `cigarette` -- out.
+- Anyone got a `cigarette`.
+- Can i have a `cigarette`?
+- Put out that `cigarette`.
+- Want another `cigarette`?
+- `Cigarette`, miss schmidt?
+- Do you have a `cigarette`?
+- Do you want a `cigarette`?
+- It's for your `cigarette`.
+- Sure... got a `cigarette`?
+- Anybody have a `cigarette`?
+- Could i have a `cigarette`?
+- Have you got a `cigarette`?
+- Get rid of your `cigarette`.
+- Would you like a `cigarette`?
+- I need a `cigarette`... hello.
+- I put a `cigarette` out in it.
+- ...uh, uh, `cigarette` holder.
+- Gimme a goddamn `cigarette`!!!!
+- Can you put the `cigarette` out?
+- I'd like to smoke a `cigarette`.
+- I'll show you `cigarette` burns!
+- Feels like a `cigarette` lighter.
+- May i have a `cigarette`, please?
+- The orange glow of a `cigarette`.
+- Have you gotta `cigarette` father?
+- Who's got my goddamn `cigarette`!?
+- I say, will you have a `cigarette`?
+- They're called "`cigarette` burns."
+- A blindfold, `cigarette`, noseplugs?
+- I'm going to go smoke a `cigarette`.
+- I'm relaxed--light your `cigarette`.
+- Pal, get me a `cigarette`, will you?
+- Givvem a `cigarette`... where are we?
+- I like--really need a `cigarette`, too.
+- It has the taste of a dead `cigarette`.
+- Tuck the `cigarette` in like this, see?
+- Yes... you gonna smoke the `cigarette`?
+- I'll take a `cigarette` if you have one.
+- It's my first `cigarette` in over a year.
+- When do i get `cigarette` priveleges back?
+- That `cigarette` burns out, your time is up.
+- One `cigarette` a week, who smokes like that?
+- She touches me down there with a `cigarette`.
+- Yeah, just a `cigarette` got in a wastebasket.
+- I don't usually read private `cigarette` cases.
+- Well, listen, i'm gonna get a `cigarette`, okay?
+- I have, i don't know, maybe a `cigarette` a week.
+- Now the `cigarette` keeps burning like a fuse, see?
+- Subways... perfume... `cigarette`... ... cologne...
+- Everyone's all upset about fucking `cigarette` burns.
+- I ain't goin' in that vat to fish out no `cigarette`!
+- You don't give me a `cigarette` till i tell you more.
+- The police found a marijuana `cigarette` in your home.
+- Yeah, and i'm never going to smoke another `cigarette`.
+- I love this jacket and that `cigarette` holder of yours.
+- She gives me a `cigarette`, my balls feel like concrete.
+- The `cigarette` girl in new vegas was an undercover cop.
+- You're done, come down, we're going to smoke a `cigarette`.
+- I mean you being a star and me being just a `cigarette` girl.
+- Let me refund your `cigarette` money, and we'll call it even.
+- But on every guard's chest,they left one marlboro `cigarette`.
+- I'm not taking a `cigarette` break, jackass, just give me one!
+- It was the last `cigarette` you and your two buddies ever had.
+- Used to put the `cigarette` in this thing and smoke it that way.
+- What is all this "nick" stuff -- nick would you like a `cigarette`.
+- If i had a nickel for every `cigarette` your mom smoked, i'd be dead.
+- The cornsilk `cigarette` harold gave thee behind the store this morning.
+- I was putting my change in my purse when i saw him get out a `cigarette`.
+- Yeah, that `cigarette` ain't hard to find when you're properly undressed.
+- If you could get to the point... you wouldn�t have a `cigarette`, would you?
+- Them people drinkin' that cider, they don't know there's a `cigarette` in there!
+- ...`cigarette` girls... and naturally - he was writing a special sunday piece on...?
+                 

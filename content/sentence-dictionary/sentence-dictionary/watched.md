@@ -1,0 +1,107 @@
+---
+title: "watched in a sentence | watched example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "watched"
+---
+- I `watched` you do it.
+- So i `watched` europe.
+- Are we being `watched`?
+- `Watched` it for years.
+- We are being `watched`.
+- You `watched` the tape?
+- I `watched` her grow up.
+- I `watched` you grow up.
+- Ever `watched` a man die?
+- I've `watched` in wonder.
+- I `watched` him die, laz.
+- I `watched` my mother die.
+- Nope, never `watched` any.
+- I `watched` him murder her.
+- When they `watched` at all.
+- You `watched` the gulf war.
+- We might be being `watched`!
+- I've `watched` you in action.
+- I `watched` 'em do it, joyce.
+- I only `watched` what i could.
+- You stood there and `watched`.
+- ... like we're being `watched`.
+- Three hundred people `watched`?
+- `Watched` it with some friends.
+- You know what i just `watched`?
+- I've `watched` you grow up, ben.
+- ...while she `watched` the kids.
+- You could of `watched` it on tv.
+- I've `watched` you once or twice.
+- Said he `watched` the whole thing.
+- I `watched` from behind the stands.
+- I `watched` her eat the watermelon.
+- Scarface, i have `watched` scarface.
+- She `watched` her mom get butchered.
+- Thorwald knows he's being `watched`.
+- I'm the one who `watched` the show...
+- I `watched` it's all over everywhere.
+- I went back and `watched` the tape...
+- The fbi `watched` every move he made.
+- Yeah, we just `watched` a few movies.
+- I've `watched` you for a couple weeks.
+- I waited for lenny before i `watched`.
+- That's how many people have `watched`.
+- This one i have `watched` a long time.
+- I just stood there and `watched` him...
+- But i know i don't like being `watched`.
+- I `watched` your simulation, mr. barnes.
+- At least i `watched` "dog day afternoon!"
+- Then i did my laundry... `watched` 20/20.
+- Once they `watched` me for like two hours.
+- People `watched` the movies in their cars?
+- Truman, i've `watched` you your whole life.
+- I've `watched` a lot of cop shows in my day.
+- More than likely he never even `watched` it.
+- You thought that's why people `watched` cbs?
+- I've `watched` you grow up from a little boy.
+- I've `watched` you, mayo, and you don't mesh.
+- I accidentally `watched` a 30 rock by mistake.
+- I rolled the car in...and i `watched` it sink.
+- I've been `watched` so closely, i� holy smoke!
+- You `watched` the apple fucking-dumpling gang?!
+- Have you ever `watched` a commercial being made?
+- To know that he `watched` this... this atrocity.
+- I `watched` them make love through the keyhole.
+- I haven't `watched` the sun set in a million years.
+- I `watched` a binge-worthy tv show without my wife.
+- And then `watched` russian dashcam videos all night.
+- I've `watched` you torture yourself you won a fight!
+- I `watched` ti-joseph and it was exactly two ounces.
+- Let's just say you're being closely `watched`, george.
+- I `watched` my parents have this big fight, really big.
+- Haven't you ever `watched` your child or your lover sleep?
+- How can i do anything if i'm being `watched` every second?
+- She was 60 and mexican and she `watched` my kids for free.
+- I sat down over on the other side, and i `watched` her.
+- The closer i `watched`, the more the fault came into focus.
+- We just `watched` jam's mom torch our fuckin' kiss tickets!
+- Anthony, he sat in the car and `watched` a 4-11 in progress.
+- As to laszlo, we want him `watched` twenty-four hours a day.
+- Comforted, and `watched` over... whether you like it or not.
+- Every day he came home and `watched` that dog until he froze.
+- It's ok. aunty o. i slit a man's throat and `watched` him die.
+- Look, baby, i've `watched` you create yourself out of nothing.
+- He built cheap domes and `watched` their kids turn into freaks.
+- He `watched` the whole thing happen - - recognize the beat cop?
+- I planted seeds and watered them and `watched` everything grow.
+- ♪ we `watched` it rise and fall ♪ have you lost your damn mind?
+- "because you `watched` an '80s show featuring a monster..." hey.
+- Treated me like a thug, `watched` me like a hawk, mistrusted me.
+- It's about data i've `watched` him with the b-9 and i'm troubled.
+- I don't want to mess anyone up... mary robert, i've `watched` you.
+- So i `watched` her, made a little home movie, a little family film.
+- I `watched` the evacuation on tv, so much for the thousands of people.
+- And, as the years have passed, i have `watched` that promise destroyed.
+- How'd you like it if someone sneaked into your house and `watched` you.
+- I always feel like i'm being `watched` and i shouldn't embarrass myself.
+- I `watched` each of them take on an agent and i `watched` each of them die.
+- I `watched` your mind work, heard your dirty thoughts -- it was the mall.
+- Or the monster who would have `watched` him die we can't wait any longer.
+- You `watched` her grow old and die -- and there was nothing you could do.
+                 

@@ -1,0 +1,107 @@
+---
+title: "closer in a sentence | closer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "closer"
+---
+- I have to get `closer`.
+- I need to get `closer`.
+- Just a little `closer`.
+- Can we move in `closer`?
+- `Closer` than you think.
+- Don't come any `closer`!
+- Don't come any `closer`.
+- Well, you were `closer`.
+- Don't come any `closer`!!!
+- It's going to be `closer`.
+- Sarris' ship h37c `closer`?
+- Claudia dear, come `closer`.
+- It's okay if i sit `closer`?
+- Hodges, pierce come `closer`.
+- Now, i must... look `closer`.
+- We're `closer` to the source.
+- Amanda: come on, get `closer`.
+- Don't come any `closer`, abbe.
+- I should have parked `closer`.
+- Sheila moves `closer` to theo.
+- Would you like a `closer` look?
+- I really want us to be `closer`.
+- There were others much `closer`.
+- They're not moving any `closer`.
+- Can you get it a little `closer`?
+- `Closer` to death was eliminated.
+- We're `closer` to the other side.
+- You're `closer` to the situation.
+- Getting `closer` every minute.
+- Don't come any `closer` for a sec.
+- I'm not any `closer` than you are.
+- I think you should sleep `closer`.
+- Are you any `closer` to a decision?
+- Shall we move `closer` to the fire?
+- Something "`closer` to the ground."
+- You're `closer` to her than anyone.
+- Burt and heather's place is `closer`.
+- Sounds like they're getting `closer`.
+- I think the ground's getting `closer`.
+- Keep a `closer` eye on her -- and him.
+- Move the candle `closer`, i can't see.
+- Just tell me who's `closer` to the wall?
+- Take off her gag and bring her `closer`.
+- The communists have never been `closer`.
+- Who is `closer` to the wall, joey or me?
+- And read the bible a little bit `closer`.
+- How much `closer` would you say you were?
+- That's cutting it `closer` than you know.
+- Good thing germany's `closer` than russia.
+- It was `closer` to seven hundred thousand.
+- To land any `closer` would risk detection.
+- `Closer` to where the reapers hand us over.
+- I grow `closer` to my target, your majesty.
+- I want to get a `closer` look at the place.
+- They're still out there, circling `closer`.
+- I figured... maybe you need a `closer` look.
+- Just sit here and watch them coming `closer`?
+- Only if it's no `closer` than a hundred feet.
+- She might have to get a job `closer` to home.
+- Turn it off.... then don't come any `closer`.
+- He said it brought him `closer` to the engine.
+- I'd like something much `closer` to the water.
+- Are you sure you wouldn't like a `closer` look?
+- Bring it `closer` so that i might join with it.
+- Colorado's `closer` all right, what's it to be?
+- I dunno... we'll ask around as we get `closer`.
+- Well, if you must know, they could be `closer`.
+- What i've experienced is `closer` to awakening.
+- Juno just wanted a `closer` look at kimber here.
+- Well, each time he comes in `closer`, like this.
+- Keep your friends close and your enemies `closer`.
+- One step `closer` and i'll shove this up your ass!
+- We're like sisters -- we're `closer` than sisters.
+- And the `closer` we get to finding that second a.i.
+- And the `closer` we get to finding that second a.i.
+- We'll have to get `closer` for a more detailed scan.
+- `Closer` you get to the water, the bigger things get.
+- Wearing their clothes makes me feel `closer` to them.
+- I'll go... whoever they are, they're getting `closer`.
+- Must go faster, it's getting `closer` - must go faster!
+- When you get `closer` you see it for what it really is.
+- `Closer` and `closer` �- until they bite into your throat!
+- Gonna try to get a `closer` shot of * beavis & butthead.
+- After nine years of marriage, we were `closer` than ever.
+- From that moment on, homer and i had never been `closer`.
+- But they've moved on- -they're getting `closer` to sidney.
+- Jason you think you could-get any `closer` to those mines?
+- The `closer` i watched, the more the fault came into focus.
+- We know how this...all i'm saying, put a `closer` on the job.
+- But it doesn't get us any `closer` to removing those missiles.
+- Come `closer` then, jack, that i might give you proper thanks.
+- Except to say - you're close, you're `closer` than you think...
+- The more ballast we keep `closer` to the rear tires... bullshit.
+- ♪ alors on danse ♪ and we're one step `closer` who are you people?
+- If he's out there, we might be able to get a `closer` look at him.
+- Shit, doc, any `closer` and we're gonna need a rubber... foredecks.
+- If we had `closer` relations, there wouldn't be any misunderstandings.
+- I hardly move, yet it keeps coming all the time -�`closer` and `closer`.
+- You believe the year is 1997 when in fact it is much `closer` to 2197.
+- For as we enter the vortex and move `closer` ... let us wish him peace.
+                 

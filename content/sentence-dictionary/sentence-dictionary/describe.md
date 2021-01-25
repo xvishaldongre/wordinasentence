@@ -1,0 +1,67 @@
+---
+title: "describe in a sentence | describe example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "describe"
+---
+- I can't `describe` it.
+- Can you `describe` her?
+- Can you `describe` them?
+- `Describe` what you see.
+- It's hard to `describe`.
+- `Describe` program function.
+- How would you `describe` him?
+- Tell me, `describe` it to me.
+- Can you `describe` it, deanna?
+- You can't `describe` him at all?
+- How would his son `describe` him?
+- You can also `describe` its cure.
+- `Describe` him to someone like me.
+- Maybe you can't even `describe` it.
+- I can't `describe` what i'm feeling.
+- Can you `describe` these now-memories?
+- Doesn't <u>begin</u> to `describe` it.
+- Then how would you `describe` him, beth?
+- Would you `describe` tim that way, grace?
+- I don't think i could really `describe` it.
+- Can you `describe` to us what it is you see?
+- That's as good a way as any to `describe` it.
+- Would you `describe` those years as happy?
+- Why don't we `describe` it in the brochure.
+- Why don't we `describe` it in the brochure?
+- `Describe` for me your first sexual experience.
+- `Describe` in a sentence how you feel about me.
+- Real quiet... and how would you `describe` him?
+- Do you want to wait to hear me `describe` death?
+- I don't think that's how i would `describe` him.
+- I mean, you heard him `describe` these episodes.
+- Would you `describe` their position as inflexible?
+- Would you `describe` your husband as an alcoholic?
+- Ha, i never realized how hard it was to `describe`.
+- How would you `describe` your sex life with miss lawson?
+- The way you `describe` him doesn't really do him justice.
+- What you `describe` is called fal tor pan - the refusion.
+- I suppose western mythology would `describe` him as a fury.
+- Dad, you were born to `describe` tv at a fourth-grade level.
+- ...found no physical evidence of the creature you `describe`.
+- No that really doesn't `describe` -- do you know who that is?
+- That's a helluva way to `describe` the bargain of a lifetime.
+- You know, blonde, thin, whatever... how'd they `describe` her?
+- I don't think "exciting" is the word i'd choose to `describe` it!
+- So how will we `describe` it, if we choose to `describe` it at all?
+- Can you `describe` the relationship between mr. kramer and his son?
+- Would you `describe` for the court what chinese peony root looks like?
+- A certain "moral flexibility" would be the best way to `describe` it...
+- I didn't have a picture or nothin' so i had to `describe` you to the guy.
+- There are chapters in this book that `describe` the stuff i've been seeing.
+- Adventure consultants offer something beyond the power of words to `describe`.
+- I just can't give the baby to people who `describe` themselves as "wholesome."
+- You can `describe` it and name it after yourself: "the woodly galloping crud."
+- Adventure consultants offers something beyond the power of words to `describe`.
+- How would you `describe` the sounds we heard coming out of that thing's helmet?
+- Tell you what -- go over to the missing persons bureau and `describe` your mother.
+- `Describe` how you'd reach over and unzip his greasy jeans, then take out his penis.
+- How was eduard ... would you `describe` your relationship with the dead man as close?
+- Anything else unusual about him you'd be able to `describe` in a court of law, willie?
+- I would have these -- i don't know how to `describe` them -- visions, when i was younger.
+                 

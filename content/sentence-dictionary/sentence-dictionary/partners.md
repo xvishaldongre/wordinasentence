@@ -1,0 +1,60 @@
+---
+title: "partners in a sentence | partners example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "partners"
+---
+- We are not `partners`.
+- We don't do `partners`.
+- `Partners` in crime, huh?
+- Yes, they were `partners`.
+- I don't fuck my `partners`.
+- I don't need any `partners`.
+- We're `partners`, aren't we?
+- We were more than `partners`.
+- We're `partners`, baby, sorta.
+- He killed two of my `partners`.
+- An unlikely group of `partners`.
+- Christ we're `partners` in this!
+- We ain't `partners` any more, jesse?
+- We will be `partners`, mr. fennyman!
+- You wanted to be `partners` with me?
+- Since you two are `partners` and all.
+- Jimmy's `partners` think i set him up.
+- Last thing we want is extra `partners`.
+- These are your new training `partners`.
+- We're `partners` here -- c'mon, man ...
+- He always makes money for his `partners`.
+- Joe cantwell, he's one of the `partners`.
+- Probably lookin' for sparrin' `partners`.
+- I don't know, myra, i never had `partners`.
+- The `partners` want to know how it's going?
+- When did this happen, that we're `partners`?
+- You change `partners`, you change the rules.
+- How long have your dad and i been `partners`?
+- Ned an' the kid, my `partners`, are they... ?
+- They used to be `partners`, but they split up.
+- We're `partners`, him and i, business `partners`.
+- What's a little hate between business `partners`?
+- How many other silent `partners` are there, frank?
+- Your `partners` are currently armed and we're not.
+- Look at that; both `partners` go down together.
+- One of the `partners` spotted a lesion on my forehead.
+- We've been `partners` a long time now, haven't we buzz?
+- None of this information got to the managing `partners`.
+- I'll even go fifty fifty, we're `partners` aren't we?
+- I know ya need sparrin' `partners` -- i'm very available.
+- We're in this together and i need to know who my `partners` are.
+- Billy, go ahead, break it... don't give me this, we were `partners`.
+- ... interview every employee, support staff, associates, `partners`.
+- Well, there's a thing about `partners`, about being somebody's partner.
+- Why, i'm here to see my `partners`, gregor, the boys in the russian mafia.
+- You were `partners` with him on some slag -- uh, newcomer real estate thing.
+- I use it to test the resilience of my potential `partners` in psychopathology.
+- Why don't you join me and the `partners` for lunch tomorrow in the dining room?
+- The broad used to work for one of concannon's `partners` in new york awhile ago.
+- My `partners` and i are trying to secure start up capital for a small tech company.
+- I plan to bring a wrongful termination suit against charles wheeler and his `partners`.
+- Our friend in miami is the only one left, because he always made money for his `partners`.
+- Hey, don't mistake me for one of your `partners`, i'd like to make retirement in one piece.
+                 

@@ -1,0 +1,107 @@
+---
+title: "guards in a sentence | guards example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guards"
+---
+- Chief of the `guards`.
+- Those aren't `guards`.
+- Attention all `guards`.
+- But they have `guards`.
+- `Guards` are behind me.
+- Where are the `guards`?
+- You will take `guards`.
+- Don't tell the `guards`.
+- `Guards`, take him away.
+- My `guards` are useless!
+- They bribe the `guards`.
+- 25 `guards`, and 12 crew.
+- Bribe one of the `guards`?
+- Neither have the `guards`.
+- Six library `guards`, raw?
+- `Guards`, surround him now.
+- I grease the kraut `guards`.
+- Oh, the coldstream `guards`.
+- She's got `guards` with her.
+- `Guards`, let me out of here!
+- `Guards`, take the prisoners.
+- He's captain of the `guards`.
+- Your `guards` will get there.
+- All `guards` to the wall, now!
+- `Guards`, we need another one.
+- The `guards` turn a blind eye.
+- What happened to the `guards`?
+- It wasn't the sanctum `guards`.
+- I used my body on the `guards`.
+- Distribute them to the `guards`.
+- `Guards`' station's right there.
+- How'd you get past the `guards`?
+- Jafar's `guards` on every corner.
+- Medical, two `guards` down, look.
+- Only our `guards` are armed here.
+- `Guards`, take them to lockup now.
+- How did you get past the `guards`?
+- Lexa's `guards` will be here soon.
+- Six `guards` dead -- c'mon, champ!
+- The `guards` have their hands full.
+- This is a big day for the `guards`.
+- Which is why we need more `guards`.
+- : all available `guards` to lock-up.
+- Our `guards` at their door, danford?
+- There's `guards` all over the place.
+- How am i gonna get past the `guards`?
+- I didn't kill the transport `guards`.
+- More walls, more bars, more `guards`.
+- No more protection from the `guards`.
+- The `guards` will be back any second.
+- <u>i'll</u> worry about the `guards`.
+- You'll need to distract the `guards`.
+- All i have to do is call the `guards`.
+- My `guards` are from south africa, mr.
+- We know you didn't kill those `guards`.
+- You'll never make it past the `guards`.
+- Josie, bring your `guards` and let's go.
+- One of the `guards` must have leaked it.
+- They capped two `guards` on a road gang.
+- You kill octavia, the `guards` kill you.
+- You said they didn't have night `guards`.
+- 3-headed dog that `guards` the underworld.
+- Barnes wouldn't kill two innocent `guards`.
+- I had to sneak by the `guards` to get here.
+- Maybe we can drop some on the `guards` huh?
+- We are less ready, but so are his `guards`!
+- Last chance before i call the `guards` yeah.
+- We can just wait for my `guards` to find us.
+- There is no way parker killed those `guards`.
+- Besides, he has the `guards` and all the guns.
+- If the `guards` did this, we can file charges.
+- If you can't spare the `guards`, all the time.
+- I guess my `guards` don't suck after all, huh?
+- From now on, only trikru `guards` the prisoner.
+- Jaha and the `guards` are tied up in a bedroom.
+- Jaha and the `guards` are tied up in a bedroom.
+- The `guards` say they've never seen him before.
+- You saw the faces of her `guards` we need that.
+- `Guards` was always considered to be pretty good.
+- Sid 6.7 told me after he killed the two `guards`.
+- The `guards` aren't allowed on the factory floor.
+- What you gotta worry about first is the `guards`.
+- The two `guards` you left behind are dead already.
+- I'm very sorry ... did you kill all those `guards`?
+- My `guards` have orders to... sweet batarang jesus.
+- Let's hope the null `guards` are more easily swayed.
+- Nurses, governesses, chaperones, even body-`guards`.
+- When the `guards` break down the door, i'll be there.
+- Lobby's protected by five `guards` on rotating patrol.
+- Maybe we could have children with the prison `guards`.
+- Are your `guards` really going to kill a helpless girl?
+- Cooper, choose one of the elite `guards` to deliver it.
+- What if the children of gabriel took out your `guards`?
+- But you got three `guards` who... shit, what am i doing?
+- `Guards` are double-strengthen and on alert station-wide.
+- They keep you under drugs out there with armed `guards`...
+- If any `guards` come by, make a sound like a dying giraffe.
+- You're still wearing the uniform of the coldstream `guards`!
+- You think i didn't notice that some of my `guards` are gone?
+- Yeah, those poor old `guards` need all the help they can get.
+                 

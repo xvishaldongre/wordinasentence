@@ -1,0 +1,56 @@
+---
+title: "Susie in a sentence | Susie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Susie"
+---
+- That's alright `susie`.
+- Right here in old `susie`.
+- See you tomorrow, `susie`.
+- Name so `susie` barrington.
+- It's cold out here, `susie`.
+- Let my `susie` rest in peace!
+- `Susie`'s not a virgin anymore.
+- No, i don't think i am, `susie`.
+- When was `susie` around here last?
+- You haven't seen `susie`, have you?
+- Of our beloved oak tree, old `susie`.
+- Hunsecker give `susie` credit for that.
+- I think he's got a hard-on for `susie`.
+- What's this boy got that `susie` likes?
+- No, i wouldn't... take it easy, `susie`.
+- But he isn't going to like this, `susie`.
+- But you didn't do much about it, `susie`.
+- Lou, `susie`, i'm going with my gut here.
+- `Susie`, what did you find out on oswald?
+- He's been spying on me for weeks, `susie`.
+- Why don't we hear what `susie` has to say?
+- `Susie`, there's nothing wrong with dallas!
+- `Susie`, you're an assistant d.a., remember.
+- I'm trying to get `susie` to stand up to you.
+- `Susie`, watch the language, would you please.
+- `Susie` lied to me - she'll see that boy again.
+- `Susie`, you're very much in my thoughts today.
+- Do you ever wonder what happened to us, `susie`?
+- `Susie`, as always, is free to say anything she thinks.
+- `Susie`, i told you i didn't approve of that boyfriend.
+- <u>`susie`</u>... oh, hell... how 'bout a cold drink...?
+- No, i won't... `susie`, i like this new attitude of yours.
+- Yes - it ended - then there was `susie` - that ended, too.
+- `Susie`'s stuff is colorful, but... to frame him, obviously.
+- J.j., steve isn't... `susie` likes to keep her girlish secrets.
+- I think a rat died behind the wall... my `susie` was a good girl!
+- I'm here as an average joe, who happens to love your sister `susie`!
+- `Susie`, whatever problems you have with j.j. - i didn't invent them!
+- You told me that your boy was washed up with `susie` hunsecker, didn't you?
+- I can't be yours either, `susie`, and encourage him to go on pulverizing you.
+- Listen, i know you hate having to sit home because i'm not `susie` high school.
+- I couldn't do that, `susie`... steve, i... `susie`, i was there for our sake, too.
+- See, `susie`, a man doesn't do the hard time and just pick up where he left off.
+- You in a mood, `susie`, to run over to milgrim's later and buy a few new frocks?
+- First i want to go on record as saying that my `susie` was a virgin when she died.
+- If i can trust my eyes, and i think i can, `susie` knows all about your dirty work.
+- Maybe i have a little more respect for this country's institutions than you do, `susie`.
+- Oh, i don't blame `susie` - i guess mr. kane didn't think so well of `susie`'s art anyway.
+- Because i won't be the accomplice of your sick ego - and the way it's crippled `susie`...?
+                 

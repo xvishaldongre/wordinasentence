@@ -1,0 +1,107 @@
+---
+title: "asking in a sentence | asking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "asking"
+---
+- I'm `asking` for real.
+- Stop `asking` me that.
+- Excuse me for `asking`.
+- He was `asking` for it.
+- I'm sorry for `asking`.
+- Stop `asking` everyone.
+- Thank you for `asking`.
+- You're `asking` me out.
+- You're `asking` me why?
+- Are you `asking` me out?
+- He was `asking` for you.
+- I'm not `asking` you to.
+- That's all i'm `asking`.
+- That's why i'm `asking`.
+- They're `asking` for it.
+- Uh, are you `asking` me?
+- Well, i'm just `asking`.
+- Why are you `asking` me?
+- Are you `asking` me that?
+- I know what i'm `asking`.
+- I'm not the one `asking`.
+- Nobody's `asking` you to.
+- No one's `asking` you to!
+- What are you `asking` me?
+- What are you `asking`?
+- I been `asking` everybody.
+- I feel weird `asking` him.
+- I'm `asking` how you feel.
+- I'm `asking` you a friend.
+- I'm `asking` you to leave.
+- Is that `asking` too much?
+- I've been `asking` around.
+- I was just `asking`, bill.
+- Just do what i'm `asking`!
+- She was `asking` about us.
+- Are we hacking or `asking`?
+- `Asking` the same question.
+- George, he wasn't `asking`.
+- He's been `asking` for you.
+- I'm `asking` you questions.
+- I'm just `asking`, what if?
+- I wasn't `asking` for more.
+- So why are you `asking` me?
+- You're not really `asking`.
+- He kept `asking` and `asking`.
+- I'm `asking` why you did it.
+- I'm `asking` you here, wade.
+- I'm only `asking` questions.
+- Is he `asking` me on a date?
+- Man `asking` me for a break.
+- Peter keeps `asking` me out.
+- That's why i'm `asking` you.
+- That�s all i�m `asking` for.
+- Why do you keep `asking` me?
+- Will you stop `asking` if...
+- Calm down, i'm just `asking`.
+- Dad -- i'm `asking` how much.
+- Everyone keeps `asking` that.
+- I'm `asking` you as a friend.
+- I wasn't `asking` permission.
+- Okay, thank you for `asking`.
+- Sorry, but i wasn't `asking`.
+- What are you `asking` me for?
+- Why are you `asking` me this?
+- Are you `asking` me on a date?
+- Fuck you for `asking` me that.
+- If you don't mind my `asking`.
+- I'm not `asking` you anything.
+- Look who you're `asking` here.
+- Raven reyes `asking` for help?
+- Will they take `asking` price?
+- You're `asking` the wrong guy.
+- Are you `asking` me a question?
+- `Asking` for their nightbloods?
+- But dad, i'm `asking` about me.
+- I'll be `asking` the questions.
+- You're `asking` the wrong girl.
+- Anyway, she was `asking` for it!
+- But i'm `asking` you to do this.
+- I'm `asking` you, as a...friend.
+- I'm just `asking` you about dad.
+- I'm only `asking` for one thing.
+- Is that what you're `asking` me?
+- It was you who did the `asking`.
+- They're `asking` forty thousand.
+- Why do you all keep `asking` me?
+- You jus' `asking` to be handled!
+- Are you `asking` me for a "date"?
+- Are you `asking` me to marry you?
+- I'm just `asking` how it's going.
+- I'm not `asking` about the color.
+- I'm not `asking` you to marry me.
+- I'm not `asking` you to thank me!
+- I'm only `asking` what you think.
+- Stop `asking` rational questions.
+- That's not what i'm `asking` for.
+- Why are you `asking` me all this?
+- Why do you keep `asking` me that?
+- Ah, but, we're `asking` about you.
+- Are you `asking` me out to dinner?
+                 

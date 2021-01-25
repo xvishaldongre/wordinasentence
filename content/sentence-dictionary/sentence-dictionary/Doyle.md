@@ -1,0 +1,62 @@
+---
+title: "Doyle in a sentence | Doyle example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Doyle"
+---
+- `Doyle`, you're awful.
+- Please `doyle`, don't.
+- This is `doyle`, jeff.
+- Goodnight, mrs `doyle`.
+- That's old man `doyle`.
+- The joey `doyle` thing.
+- `Doyle`'s the name, sir.
+- This is `doyle`'s house.
+- What about you, `doyle`?
+- He don't want to `doyle`.
+- I'm just give out, `doyle`.
+- Yes, i know howard `doyle`.
+- `Doyle`, once around the park.
+- His name is `doyle` hargraves.
+- `Doyle`'s had a real hard life.
+- Get me marylin rexroth `doyle`.
+- `Doyle`, can i see you a minute?
+- I know you� you're edie `doyle`.
+- This is not your house, `doyle`.
+- `Doyle` will make your life hell.
+- You're forgetting howard `doyle`?
+- My brother howard `doyle` got you.
+- Why don't you do the same, `doyle`?
+- You'll wreck `doyle`, you're drunk.
+- Karl, this is my boyfriend, `doyle`.
+- I hate `doyle` to tell me what to do.
+- `Doyle`, don't you lay one hand on her.
+- Did mr. `doyle` think i stole this case.
+- I have no idea what howard `doyle` eats.
+- You ain't drunk drivin' are you `doyle`?
+- `Doyle` wouldn't really kill you, would he?
+- It's not your house, `doyle`, it's linda's.
+- Seems like `doyle`'s wormed his way back in.
+- You've only been playin three hours, `doyle`.
+- I'd rather him be mama's boyfriend than `doyle`.
+- Don't go home tonight and stay with that `doyle`.
+- Marylin was friends with howard and amanda `doyle`.
+- You go in there and you and that `doyle` eat ye dinner.
+- For a minute, `doyle` almost had me convinced i was wrong.
+- I'm trying to find out just what happened to joey `doyle`.
+- But he's not able to do anything to `doyle`, he's funny you know.
+- Howard `doyle` made you think that because of what you did to me.
+- She came into my office and signed a pre-nup with howard `doyle`.
+- `Doyle` -- are you interested in solving a case, or making me look foolish?
+- The hound of the baskervilles was an invention of sir arthur conan `doyle`'s.
+- The local priest and this `doyle` girl are getting up a meeting in the church.
+- You, and you friend `doyle` -- did you hear from him again -- since he left?
+- Frank, why don't you go off and play in your room if `doyle`'s gonna talk nasty.
+- If he hadn't been a numbers runner for `doyle` lonnegan, it woulda been perfect.
+- I'm with you, sweetie, but detective thomas j. `doyle` has a pat answer for that.
+- Excuse me, mr. `doyle`, if i could just borrow your charming fiancee for a moment.
+- Miles, how nice of you to see us -- may i introduce howard d. `doyle` of `doyle` oil.
+- That dern `doyle` is in a bad way again with that drinkin' and bein' mean to folks.
+- Anyhow, `doyle`'s gonna try and tease you and be mean to you to show off to his friends.
+- It was in her favorite handbag -- and, mr. `doyle`, that can lead to only one conclusion.
+                 

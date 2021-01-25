@@ -1,0 +1,53 @@
+---
+title: "civil in a sentence | civil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "civil"
+---
+- I'm a `civil` attorney.
+- The loyal `civil` servant.
+- You violated my `civil` rights!
+- You're not `civil`, you're glum.
+- It's an old `civil` war cemetery.
+- Just trying to be `civil` dwayne.
+- In calcutta it's like `civil` war.
+- Right by the `civil` defense sign?
+- Is a `civil` war waiting to happen.
+- They just asked a `civil` question.
+- There's a very doubtful `civil` war.
+- Don't you dare to be `civil` with me!
+- Fine, but the `civil` terrorism unit?
+- He was in my `civil` air patrol unit.
+- If there's a `civil` rights violation.
+- Of the supplement to the `civil` granary.
+- Your `civil` rights have been overridden!
+- It's a `civil` war between the vietnamese.
+- This is, as you pointed out, a `civil` war.
+- Because i was `civil`, now you're complaining.
+- `Civil` war is always the cruelest kind of war.
+- I said, who wants to see a `civil` war picture?
+- Wasn't he a decorated general in the `civil` war?
+- I tried to keep things nice and `civil`, you know.
+- This is pastor collins, director of `civil` defense.
+- We won't suspend the `civil` rights of the good people.
+- ♪ rejoice, rejoice ♪ where the south won the `civil` war.
+- He had chaos and `civil` war and hatred between the races ...
+- Remember that, duffy, and keep a `civil` tongue in your head.
+- But i moved down south to work in the `civil` rights movement.
+- Michael, you represent drug dealers, not `civil` libertarians.
+- There is a new `civil` rights initiative he wants to talk about.
+- Men worked for santa anna down there, waited out the `civil` war.
+- I appreciate you takin' the time to see a poor ol' `civil` servant.
+- The `civil` rights movement was running a voter registration drive.
+- It was right around your `civil` war, i think, when i was here last.
+- According to `civil` defense plans from before the war, moe's tavern.
+- I warned you `civil` defense people to be ready if you have to evacuate.
+- The south lost the `civil` war, but they still seem to get all the glory.
+- But it was the `civil` war -- in angola -- and he was in it for the money.
+- Christ, val, maybe she's not your type, but you could, at least, be `civil`.
+- It's supposed to go off, and all we should hear are `civil` defense broadcasts.
+- Just have the car ready to go if i call or if the `civil` defense warning comes on.
+- But you are aware, he served in your `civil` air patrol unit when he was a teenager.
+- I've been `civil` with you you wouldn't give it to her [sighs] we have to know the truth.
+- He files suit, says he has no choice in what they serve and it violates his `civil` rights.
+                 

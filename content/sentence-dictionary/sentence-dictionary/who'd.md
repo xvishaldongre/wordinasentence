@@ -1,0 +1,63 @@
+---
+title: "who'd in a sentence | who'd example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "who'd"
+---
+- `who'd` steal her body?
+- `who'd` have thought it?
+- Okay... `who'd` you meet?
+- `who'd` he steal it from?
+- `who'd` want to fuck her.
+- `who'd` want to hurt him?
+- `who'd` you think it was?
+- `who'd` make such a thing?
+- `who'd` want to harm joey?
+- `who'd` you steal it from?
+- `who'd` believe it but you?
+- `who'd` you have lunch with?
+- `who'd` you ever do a favor for?
+- So, `who'd` you go to lunch with?
+- Well, `who'd` you get married to?
+- `who'd` like to go and find otis?
+- `who'd` you butcher at the house?
+- `who'd` you say was gonna get him?
+- `who'd` ever think, to look at you?
+- `who'd` pay him that kind of money?
+- Besides... `who'd` look after her?
+- Emori, `who'd` you steal the boat from?
+- Go figure, i mean, `who'd` he piss off?
+- Who needs it -- `who'd` you wanna call?
+- Now `who'd` go and do... somebody broke in.
+- Somebody `who'd` been to this island before.
+- I wondered `who'd` been giving me a bad name.
+- `who'd` you call - the william morris agency?
+- But `who'd` would want to - the nightmare juice!
+- Someone `who'd` look the part as well as play it?
+- All i see is a man `who'd` say anything not to die.
+- I don't know anybody `who'd` be interested in that.
+- If gruner led us away, `who'd` he lead us away from?
+- `who'd` jenny get it off of -- this grass or whatever?
+- I'd be bugging myself, edgar ... `who'd` get the tapes?
+- `who'd` have thought they'd both be a size 138 regular.
+- `who'd` you call on the phone back at the booking station?
+- I don't even know a jew `who'd` have the balls to say that.
+- They'd be better off with someone `who'd` never flown before.
+- `who'd` want to let in all kinds of riff-raff off the streets?
+- ...the yellow ribbon, but who, `who'd` profit from <u>that</u>...
+- `who'd` have thought that two guys from such different worlds oh!
+- Anybody `who'd` drop an atom bomb on a city has to be pretty dumb.
+- Does that sound like a guy `who'd` start shoveling cocaine up his nose?
+- You described this "crazy-kooky" family `who'd` be a million laughs on tv?
+- `who'd` have thought such a spent body can still boast such a fertile mind?
+- I'll find another man `who'd` have thought it'd be good to see the dropship?
+- If you could be count chocula, frankenberry or trix the rabbit, `who'd` you be?
+- Afraid of any woman `who'd` give mitch the only thing lydia can give him -- love.
+- I know where you can find any number of naked girls `who'd` love to hop on board.
+- I'm what you made me -- a cheap reporter `who'd` give up her soul for a story!...
+- There are too many people `who'd` just as soon step on your face as look at you.
+- There are people in central services `who'd` love to get their hands on harry tuttle.
+- Not spaghetti, not meatloaf, `who'd` have thunk we'd turn into an old, married couple?
+- There's a machinist outside `who'd` like to thank you personally for giving him a job.
+- `who'd` ever thought that goofy oswald kid would pull off a stunt like an assassination?
+                 

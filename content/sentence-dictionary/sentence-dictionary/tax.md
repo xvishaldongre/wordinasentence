@@ -1,0 +1,62 @@
+---
+title: "tax in a sentence | tax example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tax"
+---
+- Social security `tax`!
+- It's a `tax` write off.
+- No state sales `tax`!
+- Can't get a `tax` record.
+- `Tax` or business records?
+- "ooh, corporate `tax` cuts.
+- A `tax` write-off, actually.
+- I consider it "asshole `tax`."
+- I got to pay `tax` on the car.
+- Negative on his `tax` records.
+- A dollar sixty-nine, plus `tax`.
+- It was `tax` shelters, wasn't it?
+- Yeah, like al capone on `tax` day.
+- Delinquent property `tax` notice...
+- Honest like al capone on `tax` day.
+- Tolls, `tax`, tip ... it all adds up.
+- Old flames are like old `tax` returns.
+- Without that `tax` money, who's he with?
+- It's a `tax` write off for john c. mccay.
+- I got you out of those bad `tax` shelters.
+- Stocks, securities, `tax`-free municipals.
+- The `tax` breaks they so desperately need.
+- This is somebody's personal `tax` -- try al.
+- Losers have to pay the winner's income `tax`.
+- They didn't sign their goddamn `tax` returns!
+- At food city it's ninety-nine cents, plus `tax`.
+- God's real estate holdings and `tax`-free status.
+- Just saving the `tax`-payers the cost of a trial.
+- According to our `tax` advisers, she's only so-so.
+- Hello the income `tax` have caught up with us at last.
+- I understand this concern on behalf of the `tax`-payers.
+- And those checks or whatever it is for the income `tax` man.
+- He declared frequent flyer miles on his income `tax` return.
+- I�ve got your accounts - you don�t owe much `tax` for last year.
+- Have you checked out the `tax` bill on your father's farm lately?
+- That makes the medical bills one hundred percent `tax` deductible.
+- Oh, it's got a few head of cattle for atmosphere and `tax` purposes.
+- Then if you figure your `tax` wrong, you pay out of your own pocket.
+- Tv option, that's a dollar twenty, makes nine eighty-six plus `tax`.
+- `Tax` records, everything -- you planning on going somewhere, eduardo?
+- I did not consider it wise, in the circumstances, to `tax` your nerves.
+- You're acting like the thing from another `tax`-bracket; it's too weird.
+- You'd think he'd have more important things to do with `tax` payer dollars.
+- Because you know the voters are still waiting for that middle class `tax` cut.
+- Look, i'll give you five grand if you can document your `tax`-exempt status....
+- Besides, you're probably gonna be too busy with the franchise `tax` board anyway.
+- No, i celebrate at the beginning of my corporate `tax` year which is march first.
+- Jesus, i'll-my accountant will write it off as a `tax` deduction, i'll pay for it.
+- I believe on your last job you executed a `tax` collector in kontum, is that right ?
+- Mary, whenever it's possible, `tax`- deductible or not, i want to see deductible you.
+- Besides, when you say i make `tax`- deductible excuses you make me out a criminal.
+- Lord, either make this interesting because of those corporate `tax` cuts we all wanted?
+- Room and `tax` has been picked up by cardiff giant, as well as one fifty in incidentals.
+- I've got no address -- last known or otherwise -- no `tax` returns for the last five years.
+- Thank you, it's so rewarding to imagine my `tax` dollar finding its way to you, you fucker.
+                 

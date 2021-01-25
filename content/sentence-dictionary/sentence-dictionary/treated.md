@@ -1,0 +1,72 @@
+---
+title: "treated in a sentence | treated example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "treated"
+---
+- I `treated` you better.
+- You `treated` me like shit.
+- You're being `treated` well.
+- I'd be `treated` like a king.
+- To be `treated` with respect.
+- He `treated` you like garbage.
+- I `treated` hatch like a pawn.
+- You `treated` me with respect.
+- Your condition can be `treated`.
+- I wanna be `treated` as an adult.
+- O. i'm still `treated` like dirt.
+- They `treated` me, y'know... nice.
+- But you have `treated` me that way.
+- He's been `treated` and reevaluated.
+- Perhaps i `treated` you too harshly.
+- I'm sorry i `treated` you mean today.
+- I `treated` you like a son or nephew.
+- Sport never `treated` me bad, honest.
+- I've never `treated` you like a whore.
+- He `treated` me as if i were a child...
+- Modred has `treated` with the dark ones.
+- You can say i `treated` him well, too.
+- You don't get `treated` badly here do you?
+- Assure them that you're being well `treated`.
+- Carl junior `treated` him like a white person.
+- `Treated` like some kind of lab rat, you know?
+- He's being `treated` for bone cancer at the v.a.
+- She ain't been `treated` decent for a long time.
+- I don't think we're being `treated` fairly, lois.
+- Look, i know i `treated` her bad -- that's a lie.
+- I felt as if i were being `treated` like a person.
+- Perhaps you think you're being `treated` unfairly.
+- Goddammit, i expect to be `treated` like and artist.
+- He just wouldn't have `treated` the horse this time.
+- Mr. buckley thinks you `treated` him a little rough.
+- Tell them i'm being `treated` better than i deserve.
+- Ugh, i can't enjoy seeing animals `treated` like this.
+- Maybe even `treated` him... you think so, too, don't you?
+- They're egyptians, they should be `treated` as egyptians.
+- I don't get `treated` at all, but hey, don't worry about it.
+- You 're thinner...you can tell you've not been `treated` well.
+- He's a tough case, but i want him `treated` in the usual manner.
+- I want you to treat me the way a girlfriend should be `treated`.
+- `Treated` me like a thug, watched me like a hawk, mistrusted me.
+- Y'know, i `treated` him better than any other probie i ever had.
+- When i tell him how you `treated` me, he'll push your face in.
+- I've never been `treated` that way, and i'm not going to start now.
+- Nobody ever said on their death bed -- "i `treated` myself too well."
+- Without the nasal spray we would have still `treated` it as a poisoning.
+- You want to stop being `treated` like a criminal, you won't feel a thing.
+- All the waste gets `treated`, broken-down, and flushed out into the swamp.
+- Dr. thompson, just so the jury knows, you never `treated` deborah ann kaye.
+- You go around here expecting applause for the way you `treated` this child.
+- Somethin' you should'a done to that woman long ago... how she `treated` you.
+- The girls are being `treated` as victims, said police sergeant amos milburn.
+- They are very unhappy about the way their species has been `treated` by man.
+- Until we come up with something, this'll be `treated` as first degree murder.
+- How was i to know they had to be `treated` with bellerophon within twenty hours?
+- You yourself hardly `treated` john with much loving kindness when he first arrived.
+- Mr. harris, a guest of yours, is a guest of ours and shall be `treated` accordingly.
+- Well, i wouldn't go so far as to call him nice, but he's `treated` me pretty decent.
+- You see the way i'm `treated` around here -- but have you ever stood up for me once?
+- Those hospitals can be so impersonal - why, it might be hours before you are `treated`...
+- Behavior that greatly increases but i did dare to think i would be `treated` with respect.
+- In my seven years on this committee, i've never seen a downed aviator `treated` like this.
+                 

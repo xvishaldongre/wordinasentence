@@ -1,0 +1,62 @@
+---
+title: "orange in a sentence | orange example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "orange"
+---
+- My name's mr. `orange`.
+- Maybe an `orange` juice.
+- Milk and `orange` juice.
+- You have `orange` whips?
+- You like `orange` whips?
+- He had an `orange` hat on.
+- Well maybe `orange` juice.
+- What about my `orange` juice?
+- I'm not a big fan of `orange`.
+- Numero deux, duck a l'`orange`.
+- `Orange` juice -- probably not.
+- You look like an `orange` worm.
+- All right, this... code `orange`.
+- Is my face still `orange` to you?
+- Then one day there's an `orange`.
+- The `orange` glow of a cigarette.
+- Roger's pants are sunrise `orange`.
+- You look so sad... and so `orange`.
+- A case of `orange` drink, which we drank.
+- She's got some fresh `orange` layer cake.
+- `Orange` whip, nectar of the bowling gods.
+- His hair was `orange`... first thing i did.
+- This is `orange`, from real seville oranges.
+- Yep, we had 'em in `orange` crates all over.
+- You could fry an egg off that `orange`, yow.
+- They marinate it in lemon and `orange` juice.
+- I've never had `orange` whips, i'm from akron.
+- You stay here and babysit `orange` and the cop.
+- Or the most popular gift this year, an `orange`.
+- Do you want an apple, or do you want an `orange`?
+- Well, milk and `orange` juice'll do quite nicely.
+- The `orange` one -- what about the `orange` one?
+- God, daniel, i'm not going to make agent `orange`.
+- Lots of `orange` juice--oceans of `orange` juice.
+- See what happens when i don't have my `orange` juice?
+- Yeah, and you drank yours like it was `orange` juice.
+- ...a day... you just sat around drinking `orange` juice.
+- At the time i thought, how cool, an `orange` sweatshirt.
+- So tell her to settle for the old one in `orange` county.
+- No, wait -- let's go crazy -- i'll have an `orange` juice.
+- See you all bright and shiny in your `orange` jumpsuit.
+- Me and mr. `orange` jumped in the car and mr. brown floored it.
+- Mr. brown, mr. white, mr. blonde, mr. blue, mr. `orange`, and mr.
+- No -- they're too busy pinching `orange` squash from the milkman.
+- And suddenly she's glowing from the inside out, kind of a bright `orange`?
+- Before you got here, mr. `orange` was askin' me to take him to a hospital.
+- Yeah that long hairy `orange` and black bastard i found in the ammo crate.
+- Like that finnish stuff, `orange` vodka -- put your lips around this one, bill.
+- _ yeah, i got my camera, and he says, ...and the `orange` sherbert and chocolate.
+- In that `orange` sweatshirt i would come to know so well and even hate eventually.
+- Mrs. dreyfuss, can i borrow some coffee -- and maybe an `orange` and a couple of eggs?
+- I feel like when i was a kid and my mother sent me to school in `orange` corduroy pants.
+- We'll see how wonderful it is after you spend the next twenty years making agent `orange`.
+- Breeze pulls an `orange` whip out of a paper bag and carefully places it on the coffin lid.
+- But i can't keep you on staff if you turn every pta meeting into an agent `orange` cover up.
+                 

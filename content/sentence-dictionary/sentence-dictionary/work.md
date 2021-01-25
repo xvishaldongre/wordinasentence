@@ -1,0 +1,107 @@
+---
+title: "work in a sentence | work example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "work"
+---
+- Can all of you `work`?
+- Cause it won't `work`.
+- Dialysis won't `work`.
+- Does he `work` at all?
+- Doesn't `work` on you.
+- Don't `work` too hard.
+- Don't you `work` here?
+- Dude, watch me `work`.
+- Ever `work` with vets?
+- Excellent `work`, joe.
+- Good `work`, number 1.
+- Hey, will this `work`?
+- If we `work` together.
+- I had to go to `work`!
+- I just fnished `work`.
+- I'll call from `work`.
+- I'm late for `work`...
+- I need this to `work`.
+- I should be at `work`.
+- It's important `work`.
+- It's not gonna `work`.
+- I've got `work` to do.
+- I've read your `work`.
+- I want to `work` this.
+- I `work` bank robbery.
+- I `work` better alone.
+- I `work` for patchett.
+- I `work` for the city.
+- I `work` hard for you.
+- I `work` with animals.
+- I `work` with retards.
+- Leave the `work` here.
+- Maybe it would `work`.
+- My `work` comes first.
+- Nick, it won't `work`.
+- Please make it `work`.
+- So, the `work` of god.
+- Terrific `work` today.
+- That's a day's `work`.
+- That `work` with rats.
+- They got `work` to do.
+- They `work` very hard.
+- This plan will `work`.
+- To debunk your `work`.
+- To `work` for drumlin.
+- We'd be out of `work`.
+- Welcome to `work`, ed.
+- Well, it won't `work`.
+- We'll `work` it out...
+- We will `work` it out.
+- We `work` in the dark.
+- What house you `work`?
+- What `work` do you do?
+- When i get off `work`.
+- Who do you `work` for?
+- Will this even `work`?
+- `Work` better for you?
+- `Work` up an appetite.
+- You i can `work` with.
+- A growing `work` force?
+- All `work` and no play?
+- Don't go to `work`.
+- Awesome `work`, really.
+- But the `work` is done.
+- Did is `work` out okay?
+- Does that thing `work`?
+- Do you `work` tomorrow?
+- Excellent `work`, puff.
+- For one night's `work`.
+- Genesis doesn't `work`!
+- Go back to your `work`.
+- Hey, it doesn't `work`?
+- I can make this `work`.
+- I have to go to `work`.
+- I just `work` for them.
+- I know how they `work`.
+- I'll find other `work`.
+- I'll see you at `work`.
+- I'm at `work`, asshole.
+- I'm looking for `work`.
+- I'm not here to `work`.
+- I never made it `work`.
+- It didn't `work` dewey.
+- It's gonna `work`, dad.
+- It <u>could</u> `work`.
+- It won't `work` on you.
+- I `work` at seligman's.
+- I `work` for city hall.
+- I `work` too, you know.
+- No, let's go to `work`.
+- No, that didn't `work`.
+- Of course it'll `work`.
+- Ready to get to `work`.
+- She still `work` there?
+- So, how does it `work`?
+- So you'll be at `work`?
+- That could `work`, yes.
+- The plan didn't `work`.
+- They rarely `work` out.
+- This just won't `work`.
+                 

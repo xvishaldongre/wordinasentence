@@ -1,0 +1,107 @@
+---
+title: "closed in a sentence | closed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "closed"
+---
+- The door was `closed`.
+- You can't be `closed`.
+- Allright it's `closed`!
+- Never `closed` my eyes.
+- No sir, we're `closed`.
+- This case is `closed`.'
+- It's `closed`... `closed`.
+- Or maybe a `closed` one.
+- The session is `closed`.
+- The subject is `closed`.
+- You `closed` the portal.
+- Case and casket `closed`.
+- That window was `closed`.
+- The drugstore's `closed`?
+- They've `closed` the set.
+- With `closed`-off people.
+- I `closed` the cocksucker.
+- The dog track is `closed`.
+- This place is `closed` up.
+- "`closed`, `closed`, `closed`."
+- My house has been `closed`.
+- She just `closed` her eyes.
+- To section 17 are `closed`.
+- Wow, this case is `closed`.
+- You `closed` him yesterday.
+- You don't want it `closed`?
+- `Closed` down two years ago.
+- Eyes `closed`, mind a blank.
+- I mean, the zoo is `closed`.
+- The door has to be `closed`.
+- The place is to be `closed`.
+- I `closed` my christmas club.
+- They've `closed` the x-files.
+- Why are the shutters `closed`?
+- The house will not be `closed`.
+- These proceedings are `closed`.
+- Well..everything's `closed` up.
+- ...and eleven `closed` the gate.
+- Of course not, they're `closed`.
+- We've been `closed` for a while.
+- I believe the flight is `closed`.
+- Right now let's keep it `closed`.
+- So the case is `closed`, so what?
+- The whole section's `closed` off.
+- Lots of stations are `closed`.
+- It's not healthy with it `closed`.
+- The shield doors must be `closed`.
+- Found out and `closed` them down...
+- I'm sorry, earth is `closed` today.
+- I think you `closed` the bar again.
+- The theater is henceforth `closed`.
+- Thought you two were file-`closed`.
+- You `closed` it, didn't you, grace?
+- From now on that window is `closed`.
+- The house is completely `closed` up.
+- This wing's been `closed` for years.
+- We now consider the matter `closed`.
+- I `closed` a sale today, without len.
+- ♪ the kodak plant `closed` ♪ - ew, no.
+- Who `closed` the store to play hockey?
+- Broke their hearts when we `closed` up.
+- How long can i afford to stay `closed`?
+- Last year, el `closed` the gate on him.
+- The office is `closed` for the evening.
+- We had a little... you `closed` a deal.
+- ...men every time i've `closed` my eyes?
+- The case is on its ass, you're `closed`.
+- Who `closed` the store to attend a wake?
+- It's fun dancing with your eyes `closed`.
+- Lane's `closed` big fellah, league night.
+- And jack it to a `closed` system mm-hmm.
+- I can't stand being in `closed`-in places.
+- The store will be `closed` in the interim.
+- I don�t think so...building�s `closed` pal.
+- I `closed` the old stuff, i can do it again.
+- The demodogs died when el `closed` the gate.
+- There was a car in the lot when we `closed`.
+- The theatres are all `closed` by the plague!
+- Where'd you hide the 'beach `closed`' signs?
+- You're kind of `closed` mouthed, aren't you?
+- Exactly how long has the bijou been `closed`?
+- It says �`closed` to the public�, doesn�t it?
+- I worked here... till they `closed` the shop.
+- Most of these books are on the `closed` shelf.
+- The mess hall will be `closed` you have a job.
+- This deal should have been `closed` weeks ago.
+- Why do we always keep the windows `closed`?
+- But soon, these gates will be `closed` forever.
+- I'm afraid we're `closed` for the evening, too.
+- With the iris `closed`, i can't heat the metal.
+- Yes, the obelisk but it's `closed` for repairs.
+- All's i know is it's gonna be a `closed` coffin.
+- Otherwise the clinic would've `closed` long ago.
+- From the greatest `closed` circuses in the world.
+- Yeah... they `closed` me down for a coupla weeks.
+- Asking the wrong guy -- wasn't me who `closed` it.
+- Not just a `closed` minded redneck, but a monster.
+- Which means the video store is ostensibly `closed`.
+- If anyone tries to come in, tell 'em we're `closed`.
+- It's `closed` now, but i'm borrowing it for an hour.
+                 

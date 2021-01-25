@@ -1,0 +1,107 @@
+---
+title: "hall in a sentence | hall example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hall"
+---
+- _ to the great `hall`.
+- I work for city `hall`.
+- Behind the dance `hall`.
+- By order of city `hall`.
+- Hitler's `hall` monitor?
+- I'll wait in the `hall`.
+- Harper, watch the `hall`.
+- How's henley `hall`, gin?
+- I live across the `hall`.
+- Just go watch the `hall`.
+- Throw it down the `hall`.
+- Where's your `hall` pass?
+- It's just down the `hall`.
+- Just walk down the `hall`?
+- She's in the great `hall`.
+- Telephone's in the `hall`.
+- You'll wait in the `hall`?
+- Do they go to henley `hall`?
+- He saw us at tammany `hall`.
+- He's not at juvenile `hall`.
+- Let's go to the mess `hall`.
+- On that chair in the `hall`.
+- Cooper heads down the `hall`.
+- Down the `hall` on the right.
+- Is where miss `hall` comes in.
+- There's a guy down the `hall`.
+- About going to the mess `hall`.
+- Beats study `hall`, doesn't it?
+- Don't turn out the `hall` light.
+- Have you ever seen annie `hall`?
+- Up the stairs - down the `hall`.
+- And lead them to the mess `hall`.
+- Change and meet me in the `hall`.
+- I'm just the `hall` monitor here.
+- Response team to the mess `hall`.
+- We'd race into the dining `hall`.
+- You mean that leaves miss `hall`.
+- `Hall` likes me bathed and shaved.
+- Is your room just down the `hall`?
+- The mess `hall` has a trash chute.
+- Why do i have to watch the `hall`?
+- I'll get them into the mess `hall`.
+- Well not far, just down the `hall`.
+- You in a dance `hall` or somethin'?
+- I'll sleep in study `hall`, promise.
+- [man] delivery from ferndell `hall`.
+- That's a kind of a big dance `hall`.
+- I was at the `hall` of records today.
+- The kitchen is right down the `hall`.
+- Besides, suzi's right down the `hall`.
+- Sorry, i was looking for study `hall`.
+- The office is right across the `hall`.
+- I have the apartment across the `hall`.
+- I vent the oxygen from the mess `hall`.
+- Just be back for the birth, rob `hall`.
+- They're putting it on at henley `hall`.
+- Well, my wife, ester's down the `hall`.
+- You could have gone to juvenile `hall`.
+- Hey you're the guy from down the `hall`.
+- I looked it up at the `hall` of records.
+- Just, be back for the birth, rob `hall`.
+- Down that `hall`, ninth door on the left.
+- How are things going down at city `hall`?
+- I think she's coming down the `hall` now.
+- You going out for the henley `hall` play?
+- I've always wanted to play carnegie `hall`.
+- Out in the `hall`, a couple of minutes ago.
+- Um, down the `hall`, first door on the left.
+- You take that `hall` and i'll take this one.
+- I'm trapped in the `hall` of vice presidents.
+- It's the last door at the end of this `hall`.
+- Oh, lord, the dance `hall` girl at bunty's...
+- Rock & roll `hall` of fame with no pearl jam!
+- I been saying we need a camera in this `hall`.
+- I'll be right down the `hall` if you want me .
+- Like that report you did on "our town `hall`."
+- That creep down the `hall` phoned the manager.
+- The bathroom is down at the end of the `hall`.
+- The mess `hall` will be closed you have a job.
+- The seven year olds insomniacs `hall` of fame?
+- This mess `hall` was designed to lock down no.
+- Do you wanna be a `hall` monitor all your life?
+- How do you feel about forty kilos, miss `hall`?
+- I thought i might donate it to the mess `hall`.
+- What's a sea-gull doing around the city `hall`?
+- 10 minutes, or everyone in the mess `hall` dies.
+- I think you need to get your ass to town `hall`.
+- 's in the `hall` that were blaring all the time.
+- As we invite death into this `hall`, we honor it.
+- You can pick it up at the window down the `hall`.
+- You looking for that place in the `hall` of fame?
+- But first i called the `hall` of records in provo.
+- I put her in the guest room, just down the `hall`.
+- Baby joker, he just got out of juvenile `hall`.
+- I'm gonna go in the `hall` and get a bucket of ice.
+- Carry me to freedom: the modem in the `hall` closet.
+- Move the prisoners from the lab to the great `hall`.
+- Now, let's just you an' me trip on down that `hall`.
+- Water fountain's through that door, down the `hall`.
+- With more power, i could-- let's talk in the `hall`.
+                 

@@ -1,0 +1,77 @@
+---
+title: "traffic in a sentence | traffic example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "traffic"
+---
+- I direct `traffic`.
+- ♪ `traffic` school them.
+- A `traffic` intersection?
+- Maybe it's the `traffic`.
+- `Traffic` will be smooth.
+- I was a `traffic` analyst.
+- Maybe there was `traffic`.
+- I can't help the `traffic`.
+- Look at all this `traffic`.
+- Is the `traffic` heavier now?
+- The `traffic` was pretty loud.
+- `Traffic` will be a nightmare.
+- Better `traffic` reports on am.
+- First a `traffic` intersection.
+- Make jokes about the `traffic`.
+- Try not to lose it in `traffic`.
+- <u>fuck</u> the `traffic` light.
+- Sandy, contact `traffic` control.
+- You blaming me for the `traffic`?
+- `Traffic` tickets gone to warrant.
+- We `traffic` in stolen technology.
+- You know, just checkin' `traffic`.
+- I couldn't face all this `traffic`.
+- The `traffic`... where is everyone?
+- They felt like `traffic` accidents.
+- No, it's a... it's a `traffic` thing.
+- What does he direct besides `traffic`?
+- Low enough to relay internet `traffic`.
+- The `traffic` guy, on the science beat.
+- As though they were `traffic` accidents?
+- Less stress, less `traffic`, better tips.
+- The `traffic` takes some getting used to.
+- What did they want with a `traffic` warden?
+- Probably half a dozen `traffic` convictions.
+- We'll hit all that bridge `traffic` at 59th.
+- You know what the `traffic`'s gonna be like?
+- I'm still in my cab -- jammed up in `traffic`.
+- You got caught in the `traffic`, or something.
+- Sorry i'm late... `traffic` was a motherfucker.
+- There seemed to be ten times as much `traffic`.
+- All this shit caused by a random `traffic` stop.
+- I mean, you handle some pretty rough `traffic`, huh?
+- We sat in b massive `traffic` jam under an off-ramp.
+- You need to turn left here... at the `traffic` light.
+- He'll go up the back, too much `traffic` in the front.
+- Where was this `traffic` when i was driving to church?
+- It's about an hour, 40, with `traffic` till we get there.
+- The `traffic` in drugs will be permitted, but controlled.
+- I've found that i enjoy burying myself in heavy `traffic`.
+- Find another island where there ain't so much....`traffic`.
+- It's not like he's some goddamned air `traffic` controller!
+- Okay, that's bumper to bumper `traffic` on the hillary step.
+- Okay, that's bumper-to-bumper `traffic` on the hillary step.
+- Maybe a busy pedestrian and `traffic` intersection in a city.
+- I sent telegrams, i guess the military `traffic` held them up.
+- I'm not reading any starfleet com `traffic` in this entire sector.
+- Tower, alert air `traffic`, romeo tango zulu is now air force one.
+- Sixth, you got delivery trucks blocking `traffic` at herald square.
+- Deeds tied up `traffic` while he fed a bagful of doughnuts to a horse.
+- I'm a very light sleeper, `traffic` noise keeps me wide awake all night.
+- In my city, we would keep the `traffic` in the dark people, the colored.
+- What with all the cash, i think i could go with conspiracy to `traffic`.
+- It rains, car crash stops `traffic`, you say "how could this happen to me?"
+- Should be light `traffic` that time of day... the bank guard carries a .38.
+- Yeah, but she'll be hitting all that `traffic` going back to san francisco.
+- We ain't exactly in what you'd call your high `traffic` neighborhood either.
+- I mean, christ, it was rush hour and the `traffic`'s practically standing still.
+- All this `traffic`, new buildings, prosperity... where have the years gone, daddy?
+- With all the `traffic` on your rooftop these days... it took me a while to get in here.
+- What if - what if you trace the heaviest-`traffic` routes backwards from the dump sites?
+                 

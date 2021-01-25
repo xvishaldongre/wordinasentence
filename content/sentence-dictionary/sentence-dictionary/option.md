@@ -1,0 +1,65 @@
+---
+title: "option in a sentence | option example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "option"
+---
+- It’s not an `option`.
+- It's our only `option`.
+- It's the only `option`.
+- That's not an `option`.
+- Can't isn't an `option`.
+- That is not an `option`.
+- You tell me the `option`.
+- This is your `option`?
+- Cryo is the only `option`.
+- Okay, that's one `option`.
+- That is not an "`option`."
+- There is a third `option`.
+- That was our last `option`.
+- There is one more `option`.
+- Is prison still an `option`?
+- That's just not an `option`.
+- The tunnels are an `option`.
+- Give me another `option`... mm.
+- I'm proposing a third `option`...
+- I repeat - it is not an `option`.
+- I signed-up for the stock `option`.
+- Surrender is no longer an `option`.
+- That is not an acceptable `option`.
+- You realise that's not an `option`.
+- Bustin' out alone was not a `option`!
+- For me, clothes are just an `option`.
+- Y'have the `option`... what about me?
+- We all had the same `option` as blake.
+- Monthly lease, with an `option` to buy.
+- Yes sir, there sure is an `option` here.
+- You just said ontari wasn't an `option`.
+- You just said ontari wasn't an `option`.
+- ...of kittens... a wider `option` of what?
+- Well, then, that's the `option` we choose.
+- Right now, a band-aid is the best `option`.
+- I prefer `option` 3... - do you realize this?
+- Ontari's no longer an `option` for the flame.
+- Ontari's no longer an `option` for the flame.
+- Yep... minh... oh man... we've got no `option`.
+- All we can do now is determine our best `option`.
+- I don't know if i explained about the tv `option`.
+- ...you pick the `option` with the applicable rate.
+- Pulling the plug from the ground is not an `option`.
+- Frances farmer, contract player, six- month `option`.
+- Maybe going back to school will be an `option` one day.
+- If there's a tv in the room, you got to pay the `option`.
+- The autodoc has an `option` called stabilize and suspend.
+- Give us an `option` on your stock and resign as president.
+- Tyler... not an `option`, for the most obvious of reasons.
+- Visitors tend to find the second `option` more convenient.
+- Can't stand working and porn doesn't seem like a good `option`.
+- I mean, i just couldn't live... thelma, that is not an `option`.
+- Tv `option`, that's a dollar twenty, makes nine eighty-six plus tax.
+- I don't feel like doing an `option` paper on the rest of my life, jordan.
+- An invasion... we have high confidence in the expanded air strike `option`.
+- Our best `option` is to commence the strikes before the missiles are operational.
+- We've got to have an `option` of some sort... there's got to be a way out of this.
+- We're talking, my dear, about a calculated risk, which is the only `option` left to us.
+                 

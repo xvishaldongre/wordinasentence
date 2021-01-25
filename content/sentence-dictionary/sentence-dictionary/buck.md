@@ -1,0 +1,65 @@
+---
+title: "buck in a sentence | buck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "buck"
+---
+- A `buck` eighty a pound.
+- C'mon, throw in a `buck`.
+- More bang for the `buck`.
+- Where's timmy and `buck`?
+- It's gonna be okay, `buck`.
+- That's a `buck`-twenty-five.
+- Yeah, and i'm `buck` rogers.
+- We'll kill us a `buck` today.
+- Yeah, and he's `buck` rogers.
+- Only suckers `buck` the tiger.
+- Wait for the `buck` to return?
+- We made a `buck` since midday.
+- The legal `buck` blows, memphis.
+- Here's your `buck`, mr. twombley.
+- I tracked this one, a big `buck`.
+- Two boxes of double-ought `buck`.
+- I'll bet a `buck` you don't do it!
+- Half a `buck` i'd put him in jail...
+- Just watch out for those `buck` teeth.
+- Can't make a `buck` without my leopard.
+- It must be about a `buck` and half now.
+- I'm just a dude trying to make a `buck`.
+- But i ain't doing no more `buck` dancing.
+- Hey--you're into me for a `buck` already.
+- He'll chase a `buck` straight into jersey.
+- I just clip a `buck` here and a `buck` there.
+- To lax, pasadena, then i can make a `buck`.
+- We could talk to `buck`... one word to i.a.
+- How do you know they were shot down, `buck`?
+- Sweet job like that worth at least a `buck`.
+- A young `buck` like you must be good at that.
+- That's what this `buck` said...maybe he lied.
+- Listen to you trying to pass the `buck` again.
+- Come out the same way you went in: `buck` private.
+- Of course, i need not <u>add</u> - aw, `buck` up.
+- Has the biggest... `buck` teeth in all of missouri.
+- He thinks he can `buck` everybody and make it on his own.
+- I'll need it--gave my last `buck` to the bedroom steward.
+- I not only say it, i'll back it up twenty `buck`'s worth.
+- I'm the president and as they say 'the `buck` stops here.'
+- Yeah, yeah� here's half a `buck`, go have yourself a ball.
+- Let the rest of the world beat their brains out for a `buck`.
+- I got a hunch, joe `buck`, it's gonna be easier for you than most.
+- They can even press the last drop of nature out of a mohawk `buck`.
+- I'll be damned if i'm gonna sit around and pass on the `buck` again.
+- Larry, i'm a businessman, trying to make a `buck` like anybody else.
+- But you must treat general "`buck`" schmuck with the respect due him.
+- Thirty from thirty-four equals four, or my name's not "`buck`" schmuck!
+- Cough up the `buck`, ya cheap bastard, i paid for your goddamn breakfast.
+- I spotted this `buck`, then i heard the gun go off and twombley was gone.
+- One twenty-`buck` trick and he's already the biggest stud in new york city.
+- I'll put you inside 30, 35 yards of a `buck` the first four hours of the season.
+- It's the oldest story in the book, the ageing romeo jealous of the young `buck`.
+- I'm joe `buck` from texas and i'm gonna buy you a drink, what do you say to that?
+- Lucy's going on seventeen now... what you saw was a `buck` wearin' lucy's dress...
+- You get me close to a big `buck` by ten, kid, there's another hundred bucks in it.
+- Your furry friend thought he'd make a `buck` or two telling the papers where i was.
+- Me neither...but this `buck` claimed he was a big war chief with the nawyecky comanches.
+                 

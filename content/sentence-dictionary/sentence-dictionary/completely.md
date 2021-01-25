@@ -1,0 +1,107 @@
+---
+title: "completely in a sentence | completely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "completely"
+---
+- Trust me `completely`.
+- "i `completely` agree."
+- It's `completely` baked.
+- It's `completely` inert.
+- To heal me `completely`.
+- I'm `completely` serious.
+- I'm `completely` stunned.
+- It's `completely` secure.
+- You're `completely` safe.
+- I `completely` understand.
+- I'm `completely` adjusted.
+- It's not `completely` dry.
+- I understand `completely`.
+- She's `completely` gifted!
+- That's `completely` crazy.
+- To `completely` damage me?
+- He's `completely` innocent.
+- He's `completely` obsessed.
+- I'm `completely` fucked up.
+- I mean `completely` played.
+- `Completely` hot for me.
+- `Completely` out of control.
+- He's `completely` zoned out.
+- I lost my head `completely`!
+- I repressed it `completely`.
+- It's `completely` edematous.
+- Local `completely` isolated.
+- You are `completely` unfair.
+- You're `completely` crazy!!!
+- "i'm `completely` fucked up."
+- I'm going `completely` crazy.
+- Lost, just `completely` lost.
+- Now, i owned it `completely`.
+- Sorry, i'm `completely` lost.
+- You are `completely` relaxed.
+- You're `completely` demented.
+- You're `completely` reliable.
+- I agree with you `completely`.
+- I-i-i understand `completely`.
+- It's `completely` unrealistic.
+- You can trust me `completely`.
+- You're `completely` p-whipped.
+- Daddy understands `completely`.
+- I understand `completely`, sir.
+- She is `completely` ncommitted.
+- That ' s `completely` adorable!
+- They're `completely` automated.
+- He just `completely` ignores me.
+- It slipped my mind `completely`.
+- She was `completely` hysterical.
+- That i'm not `completely` human?
+- We're not `completely` helpless.
+- We were `completely` unprepared.
+- You've `completely` made his up!
+- `Completely` different situation.
+- I disagree with you `completely`!
+- My wife is `completely` innocent.
+- She's `completely` untrustworthy.
+- Are you going `completely` mental?
+- I `completely` forgot to tell you!
+- I'm `completely` in the dark here.
+- In fact, i'm `completely` relaxed.
+- I wanted to be loved `completely`.
+- I would `completely` support that.
+- Not `completely`, but pretty much.
+- Sorry, i'm `completely` fucked up.
+- A man in love, `completely` shaken.
+- Ann, you are `completely` paranoid.
+- But not `completely` inconceivable?
+- Canada is `completely` overwhelmed.
+- It's a `completely` brilliant plan!
+- Teasing you is `completely` unfair.
+- The sultan trusts him `completely`.
+- We're `completely` self-supporting.
+- You are so `completely` unbalanced.
+- You're being `completely` neurotic.
+- I'm going to be `completely` honest.
+- It `completely` went out of my mind.
+- It's got to be `completely` perfect.
+- I've `completely` lost their signal.
+- That we're `completely` defenseless?
+- The guy's `completely` out to lunch.
+- The house is `completely` closed up.
+- We'll withdraw support `completely`.
+- Yet she's `completely` out of reach.
+- Your `completely` missing the point.
+- And, that is `completely` due to you.
+- But he's `completely` lost his nerve.
+- `Completely` clothed and untouchable.
+- Everything is `completely` connected.
+- Have you `completely` lost your mind?
+- I'm totally and `completely` serious.
+- It is changed - changed `completely`.
+- Lenny, have you lost it `completely`?
+- Like a `completely` different person.
+- Michael can be `completely` insane...
+- Now there you are `completely` wrong.
+- You're `completely` out of his reach.
+- Because we're `completely` mismatched.
+- `Completely` and ridiculously screwed.
+                 

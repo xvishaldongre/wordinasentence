@@ -1,0 +1,107 @@
+---
+title: "empty in a sentence | empty example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "empty"
+---
+- `Empty` as a football.
+- On an `empty` stomach.
+- The cellar is `empty`.
+- This place is `empty`.
+- Your heart is `empty`.
+- Is your time so `empty`?
+- It looks too... `empty`.
+- I thought it was `empty`.
+- It's so dark and `empty`.
+- Better `empty` my bladder.
+- That bag's almost `empty`.
+- Their offices are `empty`.
+- They're `empty`, dr. weir.
+- Look at this `empty` glass.
+- Pass me the `empty` bottle.
+- But look -- an `empty` tomb?
+- I mean it's fucking `empty`.
+- My cup is `empty`, trust me.
+- So...the station is `empty`?
+- That we have become `empty`.
+- A man whose life was `empty`!
+- I think the house is `empty`.
+- This is `empty`, just coming!
+- The ringer can't look `empty`.
+- I found some half `empty` ones.
+- I thought this as `empty` tomb.
+- It's just been `empty` a while.
+- It was `empty` when i found it.
+- The big guy's room was `empty`.
+- That's it, we're `empty` ma'am !
+- We thought that camp was `empty`.
+- You're afraid of an `empty` ship.
+- Hey, hey... an `empty` fairground.
+- This place `empty` as a tomb, mon.
+- I saw a man whose life was `empty`.
+- It�s late and the place is `empty`.
+- We have now two `empty` bunks here.
+- Your word "`empty`" makes me laugh.
+- I can't fight on an `empty` stomach.
+- I thought this was an `empty` house.
+- It's just that i hate `empty` rooms.
+- Yeah i'm running on `empty` anyways.
+- Then we're going to back `empty`.
+- Here, i found some half-`empty` ones.
+- `Empty` 'em 'till they're almost flat.
+- I `empty` bedpans and bring 'em lunch.
+- I had to `empty` my damn gun into him.
+- Than when i wake up in an `empty` bed.
+- They were `empty`... what it be judge.
+- I'll bring this back when it's `empty`.
+- The cubicle across from you is `empty`.
+- We know the briefcase was `empty`, man.
+- We make it, or we go back `empty` handed.
+- Why d'you think these seats were `empty`.
+- Burglars looking for an `empty` apartment.
+- There's an `empty` taxi across the street.
+- To disappear to some `empty` greek island.
+- We'll just be hitting `empty` real estate.
+- How about over there...that `empty` memory?
+- I didn't sign up to go home `empty` handed.
+- I never discuss love on an `empty` stomach.
+- I thought it was all `empty`, but it isn't.
+- There's a tiny door in that `empty` office.
+- The `empty` shells are crushed and trampled.
+- When she did show up, it was `empty`-handed.
+- They have this `empty` house near this creek.
+- You'd be killing yourself to an `empty` house.
+- `Empty` the gun onto the table, very carefully.
+- Here, here -- can't work on an `empty` stomach.
+- It must be fair old size, suppose it's `empty`?
+- Alright, flesh-peddler, let's see `empty` hands!
+- Does that look like a man whose life is `empty`?
+- Alex does so, and continues to `empty` his pockets.
+- There was an `empty` cab right outside my building.
+- Go away, i -- i just left the garden, it was `empty`.
+- Saw the world that night -- random, `empty`, hideous.
+- He's got an `empty` stomach and it's gone to his head.
+- I am happy to say that this bag is officially `empty`.
+- You've never had an `empty` moment in your whole life.
+- A large stretch of `empty` space with no place to hide.
+- When i return home `empty`-handed, many shall mourn.
+- If the house is `empty` again, i don't know -- terrible.
+- You'll never pass that exam on an `empty` stomach, kara.
+- No... no, it's so... `empty`... please... give it back...
+- You mean to tell me you hijacked me with an `empty` gun?!
+- I had no idea until i came home and the house was `empty`.
+- God, she's going to kill me... this bottle is half-`empty`!
+- Only the echo of their voices remains in this `empty` hall.
+- You don't go out with a loaded gun, you `empty` the barrels!
+- In case of fire, how long will it take to `empty` this place?
+- Now i see only an `empty` shell whom others call a 'success.'
+- In a theater full of `empty` seats, why did you sit by me?
+- A single car accident on an `empty` road in midlothian, texas.
+- Dallas, your mouth is as big as a basket and twice as `empty`!
+- Don't do that...sooner or later you'll be left `empty`-handed.
+- And, in a theater full of `empty` seats, why did you sit by me?
+- I don't know what her sorrow is, but her life's an `empty` one.
+- Maybe you could just adios the dishes and `empty` the trash.
+- They see us dine on `empty` plates and drink from `empty` glasses.
+- How do you expect me to ring a curtain down on an `empty` stomach?
+                 

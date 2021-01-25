@@ -1,0 +1,61 @@
+---
+title: "swimming in a sentence | swimming example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swimming"
+---
+- You've been `swimming`?
+- He's a `swimming` appetite.
+- I've been `swimming`, merv.
+- Morning `swimming` lessons.
+- They got a `swimming` float.
+- No, joe, i'm `swimming` here.
+- So you want to go `swimming`?
+- I love that you're `swimming`.
+- I've been `swimming` at the y.
+- How was your `swimming` lesson?
+- He doesn't seem to be `swimming`.
+- Then you better start `swimming`.
+- All the man did was go `swimming`!
+- There's an indoor `swimming` pool!
+- Why isn't he out `swimming` around?
+- O-kay, you guys can come `swimming`.
+- Just like going `swimming`, isn't it?
+- They got to `swimming` and splashing.
+- It means it's too cold to go `swimming`.
+- Maybe we could go `swimming` or something.
+- "but i don't want to go `swimming`, norman.
+- `Swimming`, you know, like in water, moron.
+- I went `swimming` and prepared a new vehicle.
+- Right now it's `swimming` in your bloodstream.
+- Zip-zap-zorp and we'll be `swimming` in sauce.
+- Actually, he was a big college `swimming` star.
+- I have been `swimming` in blood my entire life.
+- It's like i've been `swimming` in muddy waters.
+- At least we could go `swimming`, lie on the beach.
+- Besides piano and `swimming`, what else do you do?
+- Please, it's real hot, maybe we can go `swimming`?
+- I got to check them out next time we go `swimming`.
+- He'd gone `swimming` and dived headfirst into a rock.
+- It said in the paper he drowned in a `swimming` pool.
+- Looks like we're `swimming` to the anomaly after all.
+- She was `swimming` at the ymca pool when it happened.
+- If you don't take it, we'll be `swimming` in a minute.
+- I think we'll take our tea down by the `swimming` pool.
+- `Swimming` underwater with that oxygen device of yours.
+- You shouldn't go `swimming` after, for at least, what?
+- "mommy, we're going out to the ocean -- to go `swimming`."
+- We'll be `swimming` laps in the same pool jean harlow did.
+- We'll just be `swimming` in the stuff, you know what i mean?
+- It's like not seeing the goodyear blimp in a `swimming` pool.
+- Yeah, there's an olympic size `swimming` pool up on the roof.
+- You can go back to bed...or lois might let you go `swimming`.
+- It was insured--how about that `swimming` lesson i promised you?
+- We'd be `swimming` in hosts, is for you to follow in my footsteps.
+- It's just like `swimming`, norman... you know how to swim, don't you?
+- Yeah, and so will i be if i start `swimming` in that blackass jungle.
+- I gotta watch you `swimming` back and forth on tv all night long, don't i?
+- Yeah, we'll have folks `swimming` over to mexico to work in the sweatshops.
+- You go full auto on a guy from close range, you're gonna be `swimming` in blood.
+- ... when i was six, my younger brother and i -- we went `swimming` in the pacific.
+                 

@@ -1,0 +1,107 @@
+---
+title: "window in a sentence | window example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "window"
+---
+- Just a dirty `window`.
+- Look out the `window`.
+- Look out that `window`.
+- Starboard `window` bay.
+- Her `window`'s open.
+- By the `window` perhaps?
+- I look out the `window`.
+- Now there is a `window`.
+- That `window` was closed.
+- Look out of that `window`.
+- Mind if i open a `window`?
+- Something with a `window`.
+- Sorry about your `window`.
+- You went out the `window`.
+- I saw him out the `window`.
+- I saw it from the `window`.
+- I didn't break that `window`!
+- In marshall field's `window`?
+- Look-- how pale the `window`.
+- Someone was at that `window`.
+- Standing next to my `window`.
+- Crawling through the `window`.
+- For a `window` of three weeks.
+- I grow it on my `window`-sill.
+- It must've hit the `window`...
+- Keep in front of the `window`.
+- Duh, rolling down the `window`.
+- I hate to ask about a `window`.
+- I'll go right out the `window`.
+- No hovercraft out the `window`.
+- She jumped out of the `window`.
+- So as not to blow the `window`.
+- You're a `window` rattler, son.
+- You threw a man out a `window`!
+- Buzz leans in the open `window`.
+- Come to my `window` at midnight.
+- He keeps tapping at my `window`.
+- I have a small `window` of time.
+- I saw the globe in the `window`.
+- .. to throw out of the `window`.
+- He's at `window` 15, upper level.
+- There's one called....`window`...
+- They threw him out that `window`.
+- Two floors up, one `window` over.
+- Broke every `window` in frankfurt.
+- I got an eighteen minute `window`.
+- Just keep that out of my `window`.
+- Put a lock on that `window`, girl.
+- The young girl runs by a `window`.
+- Took it out the bathroom `window`.
+- I can't even fly out of a `window`!
+- I didn't see you from the `window`.
+- Kicks the bars out of the `window`.
+- She pushed him out of the `window`.
+- You tossed my hat out the `window`.
+- A `window` onto the human condition?
+- From now on that `window` is closed.
+- Someone is sitting in that `window`.
+- We can get out through the `window`.
+- Would you mind opening the `window`?
+- This thing goes out the `window`.
+- [enola] see that `window` over there?
+- I'm not much on rear `window` ethics.
+- You got the wrong `window` again, man.
+- But i can throw it out of the `window`.
+- Maybe i could jump out of the `window`.
+- An exhaust system or a `window` is code.
+- Don't throw my clothes out the `window`!
+- Do you want an aisle or a `window` seat?
+- Go on in there and wait at the `window`.
+- Ivan flew out the `window` and went bam.
+- We are not missing that launch `window`.
+- Got my chair, got my `window`, i'm great.
+- Marcus -- i've seen this `window` before.
+- Out the `window`...buzz, you're a genius!
+- He left the `window` open when he came in.
+- What light through yonder `window` breaks?
+- Don't block the `window`, sizzle chest.
+- I keep seeing him staring out his `window`.
+- I thought i saw something out the `window`.
+- Then `window`, let day in and let life out.
+- You could practically see into my `window`.
+- Did you see what i meant about the `window`?
+- He comes in the `window`, we maybe grab him.
+- Motherfuck a `window`, radio raheem is dead.
+- You want me to open a `window` or something?
+- Did you take a look at the bathroom `window`?
+- When you change your mind, open your `window`.
+- Yeah, i think we're gonna get a good `window`.
+- You have a `window`, but you have to move now.
+- Because they gots a `window` with a dogs in it.
+- I looked out the `window`, and it was the moon!
+- You were listening outside the parlor `window`.
+- Chris berringer was parked outside the `window`.
+- Procedure went out the `window` a long time ago.
+- So i want you at the side `window` by the hedge.
+- There was an elm tree outside the `window` then.
+- We'll lower it out of the `window` with pulleys.
+- I busted their `window`, they didn't do anything.
+- I don't spend much time looking out the `window`.
+                 

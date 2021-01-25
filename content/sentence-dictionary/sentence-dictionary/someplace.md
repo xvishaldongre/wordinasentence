@@ -1,0 +1,107 @@
+---
+title: "someplace in a sentence | someplace example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "someplace"
+---
+- I'll find `someplace`.
+- Pull over `someplace`.
+- I gotta be `someplace`.
+- Put her in `someplace`!
+- Right here `someplace`.
+- `Someplace` else, then.
+- He's around `someplace`.
+- He went off `someplace`.
+- It was `someplace` else.
+- We're going `someplace`.
+- Gotta be here `someplace`.
+- `Someplace` called elmo's.
+- I'll find `someplace` safe.
+- You stand `someplace` else.
+- Have i seen you `someplace`?
+- I'm thinking of `someplace`.
+- Let's just find `someplace`.
+- `Someplace` strange and new.
+- We go `someplace` dangerous.
+- You got `someplace` in mind?
+- Or go `someplace` in a hurry.
+- You can think of `someplace`.
+- You got `someplace` to sleep?
+- Could we sit down `someplace`?
+- Or st. louis, `someplace` new.
+- `Someplace` nice for a change.
+- I got to be `someplace` anyway.
+- Those bats got out `someplace`.
+- `Someplace` they won’t follow.
+- You stand `someplace` else, man.
+- I could wait for you `someplace`.
+- Is there `someplace` we can talk?
+- We're going to go `someplace` new.
+- Get up on your roof or `someplace`!
+- `Someplace` where no one knows her.
+- I know he's around here `someplace`.
+- I want to try `someplace` different.
+- Make a decent life `someplace` else.
+- We have to get her `someplace` safe.
+- It's either here or `someplace` else.
+- Gotta get the doctor `someplace` safe.
+- We just need `someplace` safe to stay.
+- You guys got `someplace` better to be?
+- Well, stick your nose `someplace` else.
+- Can't we just dump him fast `someplace`?
+- Figure we'll go have supper `someplace`.
+- He's down in `someplace` called positano.
+- I wish i didn't have to live `someplace`.
+- Just keep it `someplace` safe, but handy.
+- Let's leave this town and go `someplace`.
+- Well, i'll have to look `someplace` else.
+- You got `someplace` more important to be?
+- I didn't know you wanted to go `someplace`.
+- Look, you want cheese, go `someplace` else.
+- People always call a madhouse "`someplace`."
+- I need to know this job is going `someplace`.
+- Last time i saw you was `someplace` very gay.
+- You can navigate, just from `someplace` safe.
+- We're going `someplace` you never been before.
+- Were you a resident or on a staff `someplace`?
+- Is there `someplace` she said she wanted to go?
+- Uri geller must be on the premises `someplace`.
+- We were gonna give you a ride `someplace`, man.
+- Vincennes, is there `someplace` you'd rather be?
+- If it isn't on you, it's around here `someplace`.
+- I suggest that we get ourselves `someplace` safe.
+- And think of `someplace` else, she just overdosed.
+- Can i take you `someplace` to hear something nice?
+- If you want company... you have `someplace` to be?
+- ...that way we have `someplace` to go when we cut.
+- Ross it's got to be `someplace` you can sneak into.
+- I'm putting these `someplace` you'll never find them.
+- Take a right on 59th... we'll put it `someplace` else.
+- Especially if you want to leave `someplace` in a hurry.
+- After this is buttoned up we could meet `someplace` else.
+- Aren't you supposed to be buried in new york `someplace`?
+- Meeks is probably in rio or `someplace` like that by now.
+- Wouldn't it be better if you put her in... `someplace`...
+- Michael's around `someplace`... we're all alone, aren't we?
+- `Someplace` in this dust bowl i can get something to drink?
+- Sure, that's the right way... at john hopkins or `someplace`.
+- You mean it's just lying around `someplace` -- all that cash?
+- Okay, look, i need to be alone with you, `someplace` not here.
+- There's supposed to be a don knotts movie on here `someplace`.
+- Let's go `someplace` private, murman, i have something for you.
+- It's just breaking and entering, unless we take 'em `someplace`.
+- If it didn't happen in louisville, it'd happened `someplace` else.
+- I know i've seen that g- string stuff for sale `someplace` around.
+- And, if i must, as soon as we find `someplace` safe, i know you do.
+- I'll need an office on the grounds; `someplace` to store my things.
+- Great, but i got to be `someplace`, is it something that gets worse?
+- For example: you're a young man who thinks he's got `someplace` to be.
+- He kept mom on the side y'know, cause he was married `someplace` else.
+- I'm sure we can find you `someplace` else... why are you defending him?
+- Then they'd know that we found `someplace` he was a teacher on the ark.
+- You've gone away from me, ro... `someplace` i don't know how to get to.
+- If we can't verify what you say `someplace` else, we don't print it.
+- It's gonna seem a little odd at first, we're moving you `someplace` safe.
+- Do you suppose we stopped `someplace` during the night and changed pilots?
+- So, do you guys want to do something, go `someplace` or something like that?
+                 

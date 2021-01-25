@@ -1,0 +1,107 @@
+---
+title: "could in a sentence | could example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "could"
+---
+- As well as it `could`.
+- But it `could` happen.
+- But what `could` i do?
+- `Could` be a lot more.
+- `Could` go a long way.
+- `Could` i have a puff?
+- `Could` it be spock's?
+- `Could` we try it now?
+- Glad you `could` come!
+- He `could` have tried.
+- How bad `could` it be?
+- How `could` i go away?
+- How `could` i help it?
+- How `could` i miss it?
+- How `could` it happen?
+- How `could` they know?
+- How `could` you do it?
+- I `could` always walk.
+- I `could` be anything.
+- I `could` be mistaken.
+- I `could` die in here.
+- I `could` eat a horse.
+- I `could` eat a mahar.
+- I `could` go with you.
+- I `could` hang myself.
+- I `could` hardly play.
+- I `could` have it all!
+- I `could` lose my job.
+- I `could` never reach.
+- I `could` sponsor you.
+- I `could` stay and go.
+- I `could` use a drink.
+- I'd clap if i `could`.
+- If you `could` help...
+- It `could` be a trick.
+- It `could` be nothing.
+- It `could` be worse...
+- It `could` get better.
+- It sure `could`, yeah.
+- I wish i `could` know.
+- I wish i `could` stay.
+- I wish you `could`'ve.
+- Laura said we `could`.
+- Lisa, how `could` you?
+- Maybe you `could` try.
+- My heart `could` stop.
+- Or `could` you change?
+- Or we `could` do that.
+- So we `could` be free.
+- Then he `could` be mr.
+- They `could` kill you.
+- This `could` be close.
+- We `could` cut a demo.
+- We `could` save lives.
+- We did all we `could`.
+- We got who we `could`.
+- Well -- i `could` try.
+- Well, you `could` try.
+- What `could` go wrong?
+- Who `could` blame her?
+- Who `could` blame him?
+- You `could` hear them?
+- You `could` just quit.
+- You `could` leave him.
+- You `could` stop this.
+- You `could`'ve hit me.
+- A war you `could` stop.
+- But i `could` be wrong.
+- `Could` be an assembly.
+- `Could` be interesting.
+- `Could` be one of them.
+- ♪ `could` come to this?
+- `Could` have fooled me.
+- `Could` it be a glitch?
+- `Could` it be the crew?
+- `Could` this be a trap?
+- `Could` we have a word?
+- `Could` you believe it?
+- `Could` you... be nice.
+- `Could` you buy me one.
+- `Could` you fill me in?
+- `Could` you kneel down?
+- `Could` you locate him?
+- `Could` you spell that?
+- Didn't think i `could`.
+- He `could` be anywhere.
+- How `could` it be true?
+- ... how `could` i what?
+- How `could` you forget?
+- I `could` have, though.
+- I `could` just go home.
+- I `could` kill you now.
+- I `could` pass for six.
+- I `could` rip it apart.
+- I `could` surprise her.
+- I `could` use a shower.
+- I `could` use the bump.
+- I `could` use the walk.
+- I `could`'ve done that.
+- It `could` be anything.
+                 

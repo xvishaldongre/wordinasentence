@@ -1,0 +1,107 @@
+---
+title: "open in a sentence | open example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "open"
+---
+- Don't `open` that now.
+- Here's an `open` book.
+- I can `open` the door.
+- I have my eyes `open`.
+- I'll `open` mine, too.
+- It's an `open` ticket.
+- I will `open` the box.
+- Keep your eyes `open`.
+- L.a.'s an `open` city.
+- Mike, `open` the door.
+- `Open` the outer door.
+- `Open` this damn door.
+- `Open` up here, folks.
+- The door won't `open`.
+- Then `open` the doors!
+- Tore `open` her skull.
+- We `open` the barrier.
+- Why's the door `open`?
+- You like to `open` me.
+- Anyway, `open` the box.
+- But i didn't `open` it!
+- Diana, `open` the door!
+- Frank would `open` you.
+- Get that door `open`.
+- Go ahead and `open` it.
+- Hey, there - `open` up!
+- I'm going to `open` it!
+- I said `open` the door.
+- Jack, `open` the doors.
+- Let's `open` the lines.
+- Ok. let's `open` it up.
+- `Open` and above board.
+- `Open` it and count it.
+- `Open` it and find out.
+- `Open` the damn door!
+- `Open` the hangar door!
+- `Open` the... not what.
+- Please `open` the door.
+- Raven, `open` the door!
+- Should i `open` it now?
+- Tessa, `open` the door.
+- They're not `open` yet?
+- We have to `open` them!
+- Her window's `open`.
+- Channel `open`, captain.
+- C'mon, betty, `open` up!
+- Don't `open` your mouth!
+- Don't `open` your mouth.
+- Get these grates `open`.
+- Hey the door was `open`.
+- His body held it `open`.
+- I gotta `open` the gate.
+- Jesus, `open` your eyes!
+- Lando, `open` the hatch.
+- Ok. rcs valve... `open`.
+- `Open` the door, vickie.
+- `Open` the goddamn door!
+- `Open` the goddamn gate.
+- `Open` the reactor door.
+- `Open` your eyes, james.
+- Please `open` his mouth.
+- Remember -- `open` mind.
+- That's `open` to debate.
+- Willie, `open` the door!
+- You can't `open` it yet.
+- His eyes were `open`.
+- Gabriel, `open` the door!
+- Gabriel, `open` the door.
+- I'm gonna hold it `open`.
+- Is that job still `open`?
+- Jackson, `open` the door.
+- Lindsey, `open` the door!
+- Marcus, `open` your eyes.
+- May i `open` my eyes now?
+- My door is always `open`.
+- My life's an `open` book.
+- Not with my mouth `open`.
+- `Open` the door, will ya?
+- `Open` the fuckin things.
+- `Open` your eyes, dammit!
+- `Open` your fucking eyes!
+- See if you can `open` al.
+- Sure ... can i `open` it?
+- The back door was `open`.
+- The door was `open`, sir.
+- The front door is `open`.
+- The windows don't `open`.
+- To break into the `open`.
+- We gotta break it `open`.
+- You left the door `open`.
+- Keep your eyes `open`.
+- Can you `open` that panel?
+- Do not `open` these doors.
+- Don't `open` any of them !
+- Go `open` the video store.
+- He's holding `open` house.
+- I guess we just `open` it.
+- I'm an `open` target, dan.
+- It's like an `open` sewer.
+- I will `open` the plastic.
+                 

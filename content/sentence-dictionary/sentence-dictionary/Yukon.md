@@ -1,0 +1,9 @@
+---
+title: "Yukon in a sentence | Yukon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Yukon"
+---
+- Take me to the `yukon`.
+- Inside a day we could be on the `yukon`.
+                 

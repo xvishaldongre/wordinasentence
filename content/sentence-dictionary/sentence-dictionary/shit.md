@@ -1,0 +1,107 @@
+---
+title: "shit in a sentence | shit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shit"
+---
+- Can't remember `shit`.
+- Fuck dat honky `shit`.
+- Fuck that `shit`, man.
+- He's bat `shit` crazy.
+- How the `shit` are ya?
+- How this `shit` works?
+- I couldn't see `shit`.
+- I deserve this `shit`.
+- I don't give a `shit`!
+- I don't give a `shit`.
+- It wrinkles my `shit`.
+- Jesus creeping `shit`!
+- Just the legit `shit`.
+- Lying piece of `shit`!
+- Lying piece of `shit`!
+- My `shit` is together.
+- Now, we, uh... `shit`!
+- Oh `shit`, superlifer!
+- Oh `shit`, we're late.
+- Say, bill... `shit`...
+- She�s tough... `shit`!
+- `Shit` and fried eggs.
+- `Shit`, here he comes.
+- `Shit`... is that all?
+- `Shit`, i, uh... `shit`!
+- `Shit` o dear, julian.
+- `Shit`, that is solid.
+- `Shit`, that was fast.
+- That's my diet `shit`.
+- This `shit` isn't bad.
+- This `shit`'s sketchy.
+- Wait, `shit`, no arms.
+- Well, it's for `shit`.
+- Who needs this `shit`?
+- Yeah, i give a `shit`.
+- You don't draw `shit`.
+- You don't know `shit`!
+- You don't know `shit`.
+- You're full of `shit`!
+- You're full of `shit`.
+- ...and gives me `shit`.
+- Cut the `shit`, flynne.
+- Don't `shit` a shitter.
+- Fuck that `shit`, jack.
+- Fuck this angel `shit`.
+- Gonna be le hot `shit`.
+- Holy `shit`, we did it!
+- I ain't getting `shit`.
+- I don't do that `shit`.
+- I live for this `shit`.
+- I `shit` on all o' you.
+- It's a piece of `shit`.
+- It was you, you `shit`.
+- Kid is a little `shit`.
+- Like a piece of `shit`?
+- Like `shit` they would.
+- Never mind that `shit`.
+- Now he's a real `shit`.
+- Oh `shit` it's my cell!
+- Racist piece of `shit`.
+- Rocky's full of `shit`!
+- `Shit`, are you behind.
+- `Shit`, more than that.
+- Stephanie, holy `shit`.
+- That's actually `shit`.
+- That `shit` is nothin'.
+- That was -- oh, `shit`.
+- The `shit` gets wacked.
+- They don't have `shit`.
+- They're full of `shit`.
+- This `shit` is intense.
+- What's the...oh `shit`!
+- A beat-to-`shit` ak?
+- Because i give a `shit`?
+- Break and enter, `shit`.
+- Did you see that `shit`?
+- Don corleone and `shit`.
+- Don't start that `shit`.
+- First he's gonna `shit`.
+- Goddamn rats and `shit`!
+- Hulk was dumb as `shit`.
+- I'm running this `shit`.
+- It is a piece of `shit`.
+- It's daddy, `shit`-head.
+- I've never... no `shit`.
+- Just bruises and `shit`.
+- Look, man, it... `shit`.
+- Money don't mean `shit`!
+- Oh `shit`, the meltdown.
+- Oh `shit`, what's today?
+- Oh, what is this `shit`?
+- `Shit` being number one.
+- `Shit`, give me a break!
+- `Shit` is a french word?
+- `Shit`, this is a dream.
+- `Shit`, we just started.
+- Strawberry ain't `shit`.
+- That's some cold `shit`.
+- That's some good `shit`.
+- The fuck is that `shit`?
+                 

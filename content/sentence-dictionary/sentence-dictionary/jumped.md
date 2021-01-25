@@ -1,0 +1,67 @@
+---
+title: "jumped in a sentence | jumped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jumped"
+---
+- Is `jumped` on by one.
+- You `jumped` the line.
+- You wouldn'ta `jumped`.
+- Jesus `jumped`-up christ!
+- Maybe i `jumped` the gun.
+- They saw where i `jumped`!
+- He `jumped` into the ocean.
+- The copilot `jumped` third.
+- He could've `jumped` the guy.
+- She `jumped` out of the window.
+- We should have `jumped` his ass.
+- You can tell mama i `jumped` out.
+- But del `jumped` in and grabbed me.
+- He `jumped` out of the god damn car!
+- No wonder you `jumped` in the river.
+- They `jumped` the shuttle off-world.
+- I can't believe he just `jumped` you.
+- So he got mad and he `jumped` on her.
+- They just `jumped` you out of the blue?
+- I could say you `jumped` when i came in.
+- People `jumped` ship at the last moment?
+- You went up in the plane and `jumped` out.
+- From there, it `jumped` i don't know, cath.
+- Where the guy `jumped` and you almost fell.
+- You cut a loud fart, he `jumped` three feet.
+- The last time i `jumped` i forgot to clock it!
+- So when you `jumped`, you wanted to kill yourself?
+- Uncle al- holy-`jumped`-up-baldheaded-jesus-christ!
+- It won't matter that we `jumped` the line for you.
+- I can't even tell you why dobbs `jumped` me yesterday!
+- I `jumped` in a patch of fog, and nobody could see me.
+- She `jumped` from the top of a tower into a frozen moat!
+- You're right, mr. depinto, and maybe i `jumped` the gun.
+- If everyone `jumped` off a bridge, young lady, would you?
+- It's like the death wave `jumped` over the entire valley.
+- Long ago, a young man's parents were ill, so he `jumped`.
+- I `jumped` in the river to save you so i could get my wings.
+- ♪ living in a material world ♪ the fire `jumped` our valley.
+- If all the kids `jumped` off a bridge, would you do that too?
+- Someone `jumped` on your car with their butt... that's right.
+- When you `jumped` in the bay, you didn't know where you were.
+- Me and mr. orange `jumped` in the car and mr. brown floored it.
+- You couldn't improve the world if the building `jumped` on you!
+- I know you're going to jump on me -- like nero `jumped` on poppea.
+- That guy denny, had `jumped` bail in another state, he's dangerous...
+- Forgery, embezzlement, two drug convictions, plus she `jumped` parole.
+- `Jumped` straight into her arms and said, will you marry me, yes or no?
+- ♪ love that was new to you ♪ two weeks ago, i would've `jumped` at that.
+- Anybody else would have `jumped` my bones by now but you're after my soul.
+- I was so mad i ran out the back way and `jumped` into the first car i saw.
+- My liquid hijack marlboros and the moon and the cow that `jumped` over it.
+- He `jumped` through hoops for the machine before we moved him up to the bench.
+- She is the one who `jumped` into that fountain in rome last summer, isn't she?
+- When the plane was hit, the crew chief and the radioman `jumped` close together.
+- Locked him in room but he escaped us and `jumped` ship during night at singapore.
+- Nuwanda recited poetry to gloria and she `jumped` all over him... right, nuwanda?
+- A couple years ago, i woulda `jumped` at fifty thousand dollars possible financing.
+- Some guys from ninth avenue `jumped` fanucci today; slit his throat from ear to ear.
+- Looks like those boys are headed south, so they weren't the same ones that `jumped` me.
+- Threw on the emergency, `jumped` the seat and fucked her brains out -- what do you think!
+                 

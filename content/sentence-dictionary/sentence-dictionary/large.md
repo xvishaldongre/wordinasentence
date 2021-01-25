@@ -1,0 +1,107 @@
+---
+title: "large in a sentence | large example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "large"
+---
+- As `large` as castles.
+- Alexander de `large`, sir.
+- Big feet -- `large` shoes.
+- How `large` is your brood?
+- Near a `large` water tank?
+- The three hundred `large`.
+- `Large`, icy, nonalcoholic.
+- A `large` glass of milk.
+- He is still at `large`, sir.
+- Mexico is a `large` country.
+- Felt like a `large` asteroid.
+- I need a `large` polo mallet!
+- So, i lent you twenty `large`.
+- He comes from a `large` family.
+- Then get a `large` cash advance.
+- I hope you like `large` weddings.
+- Do you need a `large` sum of money?
+- Extra ketchup, `large` fry, i copy.
+- ...well, i've got a `large` family.
+- That's an extra two-hundred `large`.
+- But two of them are still at `large`.
+- It's called `large`-celled carcinoma.
+- `Large` bore's for shit on small game.
+- Because you have `large` resources.
+- Perhaps with a `large` step or two.
+- Not while the joker's still at `large`.
+- The boys and i will take a `large` pie.
+- While i slept, i said, "extra `large`."
+- My generosity is not so `large` as that.
+- We'll go in through that `large` breach.
+- A friend owns a `large` security company.
+- Although we do have a `large` business...
+- It is `large` and on the front with bath.
+- Asians are by and `large` real dependable.
+- The heels on these shoes are very `large`.
+- Ever shod a horse with a hoof this `large`?
+- Orwell's here and now, he's living `large`.
+- ...was occupying a `large` part of lebanon.
+- I have a `large` drawing room all to myself.
+- I've arranged for a `large` police presence.
+- Oh, my `large` and noisy neighbor -- really?
+- The reapers can't take a force this `large`.
+- Why aren't you pushing the `large` sizes?
+- Five `large`, in the drawer right over there.
+- Sixty for small and seventy-five for `large`.
+- They had a `large` chunk of the garbage file?
+- It would be too `large` for the deceased's well.
+- It's `large` enough... filter system number four.
+- One `large` tub of popcorn, please, extra butter.
+- Snatches up an exercise book from a `large` pile.
+- That's how congress--or any `large` body--is run.
+- Well, these are the checks for the `large` cases.
+- It's not exactly what i'd call a `large` turn-out.
+- Their brain pans aren't `large` enough for such...
+- A `large` mushroom and pepperoni with extra onions.
+- Roughly five times that in the building at `large`.
+- Vigils are a surprisingly `large` part of this job.
+- But i can read signs if the print is `large` enough.
+- We got two ships and a `large` assortment of morons.
+- After a rough fight, ya' nothin' but a `large` wound.
+- For that he gets 200 `large` ... sound it out for me.
+- If i ever won a pot that `large` the boat would sink.
+- I'm carrying quite a `large` sum in travelers checks.
+- Tell me, miss west virginia - was she a `large` girl?
+- We have monitored a `large` explosion in your sector.
+- Several `large` reserve bids have been placed on them.
+- We're on the verge of closing a `large` navy contract.
+- A `large` stretch of empty space with no place to hide.
+- `Large` men with guns will appear... that's comforting.
+- What's `large`, but as light as air and can't be moved?
+- Writ `large` in legal escriture, next step is-- uh-huh.
+- He says he'll pay me quite `large` to do the hooker.
+- You're not really as `large` and useless as you seem.
+- Weapon was a `large` caliber-- give me the short version.
+- A `large` iron rod was driven completely through his head.
+- Guy owes me fifteen `large` and takes off, i go after him.
+- Honey -- i can't find those `large`- size hefty trash bags!
+- Inform him the fee is seventy-five `large` for your return.
+- Well, dad, we haven't found any holes in the `large` bowel.
+- The `large` estates are being confiscated and redistributed.
+- Even though it was too `large` f... couldn't get on the boat.
+- The speedometer was `large` and easy to see from where i was.
+- A `large`, red-brick house with a curved, tree-lined driveway?
+- Let's see you carry six `large` pies up six flights of stairs.
+- Your priest, your postman, your teacher, the world at `large`.
+- My company has taken out a very `large` insurance policy on me.
+- The master of a `large` plantation just south of new orleans...
+- There's a `large` vessel out about ten miles to the north-west.
+- I vaguely recall a `large`, angry man, and someone called norton.
+- I suppose some `large` version of this ac transformer could exist.
+- Danny "chickenshit" flynne trying to go `large` right under our noses.
+- Is there any `large` place that has a strong current of water flowing?
+- Currently, the king pin is a very `large`-type pole stuck up our asses.
+- He thinks that a `large`-scale magnetic field could be built - a prank.
+- No one has but lost by it... ...his family has offered a `large` reward.
+- A rather `large` contusion, but i don't feel there is any serious damage.
+- Two women, one white and one black, as long as they have `large` breasts.
+- That a man's attitude determines to a `large` extent how his life will be.
+- There's been some very `large` talk behind my sleeping back, and no error.
+- Helping me buy enough food and supplies to fill several `large` trucks.
+                 

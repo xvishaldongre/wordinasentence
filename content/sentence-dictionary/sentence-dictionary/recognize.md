@@ -1,0 +1,107 @@
+---
+title: "recognize in a sentence | recognize example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "recognize"
+---
+- Don't `recognize` him.
+- Do you `recognize` it?
+- I `recognize` him now.
+- Didn't `recognize` you.
+- Do you `recognize` him?
+- They'll `recognize` me.
+- Did you `recognize` him?
+- I `recognize` this ship.
+- Don't you `recognize` me?
+- He didn't `recognize` me.
+- I didn't `recognize` you!
+- I didn't `recognize` you.
+- I `recognize` his lawyer.
+- I `recognize` what he is.
+- You don't `recognize` it?
+- You don't `recognize` me.
+- You `recognize` that guy?
+- I think i `recognize` you.
+- They won't `recognize` me.
+- He didn't `recognize` shit.
+- [how do i `recognize` him.]
+- Didn't `recognize` you, red.
+- Do you `recognize` my voice?
+- Nobody will `recognize` you.
+- You wouldn't `recognize` me.
+- She seemed to `recognize` me.
+- I didn't even `recognize` you!
+- No one's gonna `recognize` us.
+- How could they `recognize` you?
+- <i>i</i> don't `recognize` you.
+- This man didn't `recognize` me.
+- But won't people `recognize` me?
+- Gee, i didn't `recognize` you...
+- I didn't `recognize` your voice.
+- I mean, did you `recognize` him?
+- I `recognize` some of this tech.
+- Rachel will `recognize` the car.
+- Would you `recognize` him again?
+- You might `recognize` the names.
+- And i don't even `recognize` him.
+- `Recognize` these two characters?
+- Sir, do you `recognize` anything?
+- Didn't you `recognize` him, dopey.
+- I don't... `recognize` this place.
+- Starting to `recognize` a pattern?
+- Tell me you `recognize` me, arnie.
+- Where no one would `recognize` us.
+- You probably don't `recognize` me.
+- I `recognize` the classic symptoms.
+- I seem to `recognize` this routine.
+- The eyes, you `recognize` the eyes.
+- But how could i not `recognize` you?
+- I thought you didn't `recognize` me.
+- I wonder who'll `recognize` us first?
+- Relax, no one's gonna `recognize` us.
+- I hardly `recognize` you with a beard.
+- Thelonious... do you `recognize` this?
+- You'd `recognize` it if you tasted it.
+- Carlton won't even `recognize` her now.
+- I don't `recognize` that constellation.
+- Sorry i didn't `recognize` you earlier.
+- You don't `recognize` your best friend?
+- I know i `recognize` you from somewhere.
+- You walk in there, they `recognize` you.
+- I didn't `recognize` him without his rug.
+- You `recognize` this piece of wool, kurt?
+- Hello, natalie, you `recognize` the voice?
+- I `recognize` you only as my son, no more.
+- They'll `recognize` it's not your husband.
+- Do you `recognize` me without the lipstick?
+- He wants us to `recognize` <u>his</u> hand.
+- I `recognize` the sacred symbol, yes, heda.
+- What do you `recognize`, names or faces?
+- Did you `recognize` the voice of the caller?
+- No one will `recognize` us in our disguises.
+- Don't you even `recognize` your old pal jack?
+- I couldn�t believe you didn�t `recognize` me.
+- Yes -- and tell me if you `recognize` anyone.
+- Beauty is there and we have to `recognize` it.
+- He was murdered -- you do `recognize` it then?
+- I don't `recognize` half the faces at meetings.
+- Oh, please, just tell me if you `recognize` me!
+- Simone, i `recognize` the shirt you're wearing.
+- That it's hard to `recognize` hope, it'll pass.
+- I can `recognize` a cry for help when i see one.
+- You know, someone else might `recognize` her.
+- In a year or two, you won't `recognize` this town.
+- You know, i `recognize` that passage in your book.
+- Did you `recognize` the son-of-a bitch who got away?
+- Not being stupid, you're equipped to `recognize` it.
+- I've seen your picture, that's how i `recognize` you.
+- Sir, i'm flattered that you even `recognize` my name.
+- Is there a prob-... do you `recognize` this young man?
+- Almost didn't `recognize` you with your hair like that.
+- The weirder part is i think actually i `recognize` you.
+- I `recognize` the sacred symbol, - raven... - i'm trying.
+- If i would even `recognize` him if i saw him on the street.
+- Thanks, but we don't `recognize` "brunch" as an actual meal.
+- I almost didn't `recognize` him -- haven't seen him in years.
+- I `recognize` you from the news photographs, monsieur laszlo.
+                 

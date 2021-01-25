@@ -1,0 +1,107 @@
+---
+title: "amazing in a sentence | amazing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "amazing"
+---
+- Grace, it's `amazing`.
+- He's pretty `amazing`.
+- It's `amazing`, josie.
+- She's `amazing` in it.
+- That kid is `amazing`.
+- The tech is `amazing`.
+- Wasn't that `amazing`?
+- With `amazing` bodies!
+- Wow, that's `amazing`.
+- Dad, this is `amazing`.
+- Fucking `amazing`, huh?
+- It's an `amazing` gift.
+- Like captain `amazing`?
+- Lois, you're `amazing`.
+- Of the `amazing` place.
+- On the `amazing` place.
+- This is `amazing`, man.
+- Your form is `amazing`.
+- Finally, it's `amazing`.
+- It is kind of `amazing`.
+- Oh, that's so `amazing`.
+- This place is `amazing`!
+- You're `amazing`, olsen.
+- I know, i look `amazing`.
+- It's `amazing`, isn't it?
+- Trevor, that's `amazing`.
+- Well ain't you `amazing`.
+- You're `amazing`, jehuda.
+- "grace, comma, `amazing`."
+- That's what was `amazing`.
+- Yes, i'm pretty `amazing`.
+- You're an `amazing` woman.
+- His curiosity is `amazing`.
+- Goddamn stephen's `amazing`.
+- Mr. scott, you're `amazing`.
+- Seriously, you're `amazing`.
+- Well, he's really `amazing`.
+- It's `amazing` stuff, really.
+- That she's fucking `amazing`.
+- The resemblance is `amazing`.
+- This is an `amazing` present.
+- Vera was an `amazing` spirit.
+- What about captain `amazing`?
+- A little `amazing`, of course.
+- `Amazing`, and.... terrifying.
+- ... he's an `amazing` officer.
+- It's just... you're `amazing`.
+- That guy is totally `amazing`.
+- This preacher is so `amazing`.
+- You look absolutely `amazing`.
+- `Amazing` you made it this far.
+- Welcome to the `amazing` place.
+- I bring the most `amazing` news.
+- I must admit, this is `amazing`.
+- That's a pretty `amazing` story.
+- That's the `amazing` part of it.
+- You have the most `amazing` bum?
+- My father must've been `amazing`.
+- Uh, that sounds really `amazing`.
+- I'd shake hands, but... `amazing`.
+- Pretty `amazing` girl, you've got.
+- Then, an `amazing` thing happened.
+- `Amazing`, he didn't even say "if".
+- Well, she's a pretty `amazing` girl.
+- Well, whoever did this is `amazing`.
+- Norman... harvey says he's `amazing`.
+- Sounds like an `amazing` coincidence.
+- _ i bet he's an `amazing` kisser, too.
+- God, it's so `amazing` to be back home.
+- Guy perkins and his `amazing` lemmings.
+- What did you do with captain `amazing`?
+- It's really `amazing` what you're doing.
+- It's `amazing` these things weren't done.
+- It's an `amazing` place, don't you think?
+- See, i also have this `amazing` strength.
+- To be part of the `amazing` place family.
+- It's `amazing` how homer draws people out.
+- Ladies and gentlemen, the `amazing` place!
+- Her name is clementine and she's `amazing`.
+- He's a 75 year old `amazing` guy, isn't he?
+- Something `amazing` has happened to maggie.
+- He's really `amazing`, this insane old lech.
+- God, if this is true this is like, `amazing`!
+- We'd have had `amazing` children, you and me.
+- It's `amazing` how easily the scalp comes off.
+- There's this `amazing` comix store in seattle.
+- It's `amazing` what you can accomplish by mail.
+- Mademoiselle sultenfuss and the `amazing` dr. j!
+- ♪ `amazing` grace ♪ and think it's a real person.
+- She's everything else -- `amazing` woman, mother.
+- Something even more `amazing` for the second act.
+- We're entering an era of `amazing` breakthroughs.
+- We want you for season 48 of the `amazing` place.
+- Buddy, this is `amazing`, you wouldn't believe it.
+- You're `amazing`... what are you doing mr. parker?
+- It's `amazing` how much activity is going on today.
+- It's the most `amazing` insect nest i've ever seen.
+- Why should you pick us to be on the `amazing` place?
+- You're doing an `amazing` and selfless thing for us.
+- You're like the most `amazing` girl i've ever dated.
+                 

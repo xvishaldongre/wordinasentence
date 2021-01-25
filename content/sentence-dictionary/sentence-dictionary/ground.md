@@ -1,0 +1,107 @@
+---
+title: "ground in a sentence | ground example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ground"
+---
+- Ohio is cold `ground`.
+- We go to the `ground`.
+- Put it on the `ground`.
+- We're at `ground` zero.
+- Whose burying `ground`?
+- You're on the `ground`.
+- Back to higher `ground`.
+- He can hold his `ground`!
+- Just, hold your `ground`.
+- Everyone hit the `ground`!
+- It's her feeding `ground`.
+- That's the `ground` rules.
+- What's under the `ground`?
+- Any word from the `ground`?
+- Are you on a `ground` unit?
+- He's not at `ground` level.
+- If you lie on the `ground`.
+- I got them to the `ground`.
+- It's not just the `ground`.
+- It's not shifting `ground`.
+- Right down to the `ground`.
+- Sir, `ground` has movement.
+- The happy hunting `ground`.
+- They're under the `ground`!
+- To make it to the `ground`.
+- You sound...`ground` up...?
+- Get us down to the `ground`.
+- Money lying on the `ground`.
+- Since reaching the `ground`.
+- To get back to the `ground`.
+- From getting to the `ground`.
+- I'll get him to the `ground`.
+- It's headed for the `ground`.
+- Produce deep in the `ground`.
+- Take jackson to the `ground`.
+- These are the `ground` rules.
+- `Ground` it and `ground` it.
+- Before we get to the `ground`.
+- Bring the ark to the `ground`?
+- Bring the ark to the `ground`.
+- But i'm going to the `ground`!
+- I think it's on high `ground`.
+- Our first day on the `ground`.
+- To conditions on the `ground`.
+- We'll take this high `ground`.
+- Bellamy: we're on the `ground`.
+- Don't let 'em off the `ground`.
+- It's his old stamping `ground`.
+- The `ground` is our birthright.
+- The `ground`, that's the dream.
+- The old indian burial `ground`.
+- Bring the ark to the `ground`.
+- Bring the ark to the `ground`?
+- `Ground` me for the entire year?
+- `Ground` teams 2 and 3, move in.
+- It's a lot of `ground` to cover.
+- Mea station is on the `ground`.
+- The `ground` they're digging in.
+- Burned a village to the `ground`.
+- I got to lay some `ground` rules.
+- I'm on the `ground` with the 100.
+- Just another day on the `ground`.
+- Maya can survive on the `ground`?
+- Mecha station is on the `ground`.
+- Ok. you've softened the `ground`.
+- On the `ground`, there is no law.
+- To make the `ground` safe for us.
+- To me this is holy `ground`, man.
+- Yeah, vibrations in the `ground`.
+- `Ground`'s dry about an inch down.
+- I used to paint the `ground`, too.
+- That's a lot of `ground` to cover.
+- There's no middle `ground` at all?
+- We got a lot of `ground` to cover.
+- You're being sent to the `ground`.
+- And keep this ship on the `ground`.
+- But don't let 'em off the `ground`.
+- Follow me then to plainer `ground`.
+- He did something with the `ground`.
+- I'm transmitting from the `ground`.
+- I want to see the nesting `ground`!
+- Louise, we need get `ground` today.
+- Something "closer to the `ground`."
+- We're sending them to the `ground`.
+- We split up to cover more `ground`.
+- Let's burn that lab to the `ground`.
+- That mess on the `ground` is brains.
+- The other girls are in the `ground`.
+- To get us back down to the `ground`.
+- Um... bring the ark to the `ground`?
+- We need to get to the high `ground`.
+- We separated to cover more `ground`.
+- You're being sent to the `ground`.
+- You’re being sent to the `ground`.
+- But the place burned to the `ground`.
+- Could someday return to the `ground`.
+- From now on, we're on enemy `ground`.
+- Got to split up, cover more `ground`.
+- I propose we burn it to the `ground`.
+- The key to surviving on the `ground`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "supposed in a sentence | supposed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supposed"
+---
+- I'm not `supposed` to.
+- It's `supposed` to be.
+- I'm not `supposed` to...
+- It was `supposed` to be.
+- Weren't we `supposed` to?
+- Who i'm `supposed` to be.
+- You're not `supposed` to.
+- I'm `supposed` to call in.
+- It isn't `supposed` to be.
+- It's `supposed` to be red.
+- `Supposed` to be charming.
+- I'm `supposed` to care.
+- I'm `supposed` to care?
+- He's `supposed` to be here.
+- How am i `supposed` to act?
+- I'm not `supposed` to know.
+- I'm not `supposed` to tell.
+- It was `supposed` to be me.
+- What am i `supposed` to do?
+- You're `supposed` to guess.
+- Am i `supposed` to know him?
+- He is `supposed` to help me.
+- He's `supposed` to serve me.
+- How am i `supposed` to know?
+- She's `supposed` to have it.
+- `Supposed` you dropped dead.
+- We're `supposed` to bug out.
+- What am i `supposed` to say?
+- What was i `supposed` to do?
+- He was `supposed` to meet me.
+- How was i `supposed` to know?
+- I'm `supposed` to be running.
+- `Supposed` to be cold, right?
+- Was that `supposed` to be me?
+- We're `supposed` to tell him.
+- What are we `supposed` to do?
+- What's it `supposed` to mean?
+- What's that `supposed` to...?
+- What's that `supposed` to me?
+- What was i `supposed` to say.
+- Where am i `supposed` to eat?
+- Who am i `supposed` to shoot?
+- You're `supposed` to kill me.
+- Are you `supposed` to be here?
+- I ain't `supposed` to be here.
+- I'm not `supposed` to be here.
+- I'm `supposed` to be in tahoe.
+- I `supposed` you'd like a leg.
+- It never was `supposed` to he!
+- Least you're `supposed` to be.
+- So what am i `supposed` to do?
+- They're `supposed` to see you.
+- This was `supposed` to be a...
+- Was it `supposed` to be funny?
+- We're not `supposed` to judge.
+- We're `supposed` to be asleep.
+- We're `supposed` to be honest.
+- We're `supposed` to land soon.
+- What am i `supposed` to sense?
+- What am i `supposed` to think?
+- What are you `supposed` to do?
+- When i'm really `supposed` to.
+- You're `supposed` to get hurt!
+- Am i `supposed` to feel better?
+- What am i `supposed` to do?
+- He is `supposed` to live there?
+- I'm not `supposed` to call you?
+- I'm where i'm `supposed` to be.
+- Is that `supposed` to be funny?
+- Is that `supposed` to scare me?
+- It wasn't `supposed` to happen.
+- Maybe you're not `supposed` to.
+- That's `supposed` to be a girl!
+- The woman's `supposed` to stop.
+- Was this `supposed` to help me?
+- What's that `supposed` to mean?
+- What's this `supposed` to mean?
+- What was i `supposed` to think?
+- You're `supposed` to be inside.
+- You're `supposed` to fasten it!
+- You're `supposed` to make time.
+- You were `supposed` to show up.
+- Are we `supposed` to be up here?
+- But am i `supposed` to know you?
+- He's `supposed` to be very good!
+- How, he's `supposed` to be dead!
+- How were you `supposed` to know?
+- I'm `supposed` to fall for that?
+- I'm `supposed` to ... trust you?
+- Not `supposed` to talk about it.
+- So what are we `supposed` to do?
+- `Supposed` to meet someone here?
+- That's not `supposed` to happen.
+- That's `supposed` to explain it?
+- We're not `supposed` to be here.
+- We're not `supposed` to do that.
+- We're `supposed` to be in color!
+- What are we `supposed` to do...?
+- What is that `supposed` to mean?
+- What's that `supposed` to mean?!
+                 

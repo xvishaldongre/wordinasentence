@@ -1,0 +1,72 @@
+---
+title: "spring in a sentence | spring example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spring"
+---
+- I graduated last `spring`.
+- ... `spring` and summer...
+- I'm laying a `spring` trap!
+- The number is `spring` 3100.
+- In the `spring` when he melts!
+- Death is like `spring` training?
+- It's going to be a long `spring`.
+- They're not waiting for `spring`!
+- But after `spring` comes the fall.
+- The same `spring` we had in paris.
+- I'll `spring` you as soon as i can.
+- I turned eighteen over `spring` break.
+- That's another thing... it's `spring`.
+- Finally we got the `spring`, didn't we?
+- Richard carl in "the `spring` chicken."
+- You know, like from winter to `spring`.
+- You mean your not going to `spring` me?
+- Then `spring` and summer again... ...
+- Calvin klein's `spring` line is atrocious.
+- Oh, i don't sleep on no `spring` mattress.
+- They were slaughtering the `spring` lambs?
+- It's a `spring` day... you don't feel cold?
+- So what's going on with the `spring` dance?
+- Yeah ... we're gonna paint in the `spring`.
+- I remember `spring` break of my senior year.
+- There's more than one way to `spring` a trap.
+- But it's almost `spring` break, and i'm bored.
+- Having `spring` break ruined by will readings?
+- If they didn't reduce it, how'dja `spring` me?
+- They're keeping him on a stick until `spring`.
+- How bad could `spring` break in los angeles be?
+- I guess he's feeling the `spring` a-coming, too.
+- He's not exactly what we call "a `spring` chicken".
+- The fashions this `spring` are very becoming to her.
+- While here i sit eating christmas cheese in `spring`.
+- Abbott and i used to do a lot of that in the `spring`.
+- It's just a fresh start--kinda like `spring` training.
+- There's something about the `spring` that's just cool.
+- A map of town, a big `spring` and a tuna fish sandwich.
+- Have a safe trip ... and ... paris in the `spring`!
+- You see, it was `spring` in venice, and i was so young.
+- I got it after i was mugged in the subway last `spring`.
+- Plus you're liable to bust a `spring` in karl's head.
+- Only because..it's `spring`..chalk it up - to `spring` fever.
+- We get ourselves some tail and we're talking `spring` break!
+- Remember what that place looked like on a sunny `spring` day?
+- `Spring` comes an' skinny don't have them ponies, i'm gonna...
+- So what was the first week of `spring` vacation withdrawl like?
+- There might be an opening for a manager at salem next `spring`.
+- Bleeker and i were going to go to gettysburg for `spring` break.
+- There is `spring` and summer, but there is also fall and winter.
+- You do, and the `spring` thaw is going to be worth a lot of cash!
+- This we know is carol delview from tampa, found her last `spring`.
+- A woman in family way just reminds of `spring` and my younger days.
+- Last `spring` i happened to walk past a house that i had once patronized.
+- Everything's `spring`-loaded, even if the power's out it's fully functional.
+- The point is that i don't think napoleon will sit in moscow until the `spring`!
+- They go back home to keep their families alive, stay into the `spring` to plant.
+- So if you're not willing to `spring` for it, you might as well not bother to look.
+- Congress thinks that the british are going to ride right over us come `spring`.
+- `Spring` is here the sun will shine mary patrick -- do you remember the dixie cups?
+- Whenever we got local merch, we'd usually send it to palm `spring` or arizona... la.
+- You are fair as the first new flower of `spring`... tell me i'm fair, as you did the hag.
+- Now, i worked late for you this mornin', and you didn't wanna `spring` for over-... ...it.
+- Napoleon would simply spend the winter in moscow and continue the campaign in the `spring`.
+                 

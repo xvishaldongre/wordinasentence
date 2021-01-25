@@ -1,0 +1,107 @@
+---
+title: "moving in a sentence | moving example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "moving"
+---
+- I said, stop `moving`.
+- I saw that `moving`...
+- It's the `moving` van.
+- They're `moving` away.
+- Your hair is `moving`.
+- Bastaldi's `moving` up.
+- Come on, keep `moving`.
+- I think we're `moving`.
+- `Moving` like molasses!
+- The trees are `moving`.
+- They're `moving` apart.
+- We gotta keep `moving`!
+- We gotta keep `moving`.
+- We should get `moving`.
+- Why isn't he `moving`??
+- Better keep `moving`....
+- I'd say you're `moving`.
+- I'm `moving` to seattle.
+- `Moving` place to place.
+- Stop `moving` right now.
+- Too many `moving` parts.
+- Would you mind `moving`?
+- You gotta keep `moving`.
+- You got to get `moving`.
+- It's pretty `moving` huh?
+- It's true, it's `moving`.
+- I've got to get `moving`.
+- We need to keep `moving`.
+- Why aren't they `moving`?
+- You got to keep `moving`.
+- You�re `moving`... paris?
+- But we gotta get `moving`!
+- He saw you `moving` yours.
+- He's `moving` his fingers!
+- I'm `moving` in next week.
+- Let's keep `moving`, baby.
+- `Moving` along quite well.
+- Where are you `moving` to?
+- You've gotta get `moving`.
+- Can we chance `moving` him?
+- I'm `moving` to washington.
+- It's inside a `moving` car.
+- Jesus, everyone's `moving`.
+- `Moving` everything around.
+- We have to keep `moving`.
+- We've got to keep `moving`.
+- You mean we're `moving` in?
+- As long as we keep `moving`.
+- But meant her `moving` here.
+- Dad's all the time `moving`.
+- `Moving` is a family affair.
+- Ok, you gotta stop `moving`.
+- Shouldn't we be `moving` on?
+- We're `moving` through time.
+- We're `moving` you tomorrow.
+- You got to keep on `moving`.
+- You were `moving` your feet.
+- `Moving` is hard for anybody.
+- Sharks have to keep `moving`.
+- They're `moving` pretty fast.
+- We gotta keep `moving`, mate.
+- Well, we better get `moving`.
+- We're `moving` you to a cell.
+- About us `moving` in together.
+- `Moving` to san francisco.
+- But you've gotta get `moving`.
+- Come get it and keep `moving`.
+- It must have stopped `moving`.
+- My dream is you keep `moving`.
+- Then we better get `moving`...
+- We got to keep `moving`, mate.
+- Besides, we're `moving` anyway.
+- But you gotta keep on `moving`.
+- Come on, get `moving`, dammit!!
+- Guys, we need to keep `moving`.
+- I thought she was `moving` out!
+- Let's just keep `moving`, okay?
+- Need to keep `moving`, come on.
+- Will you quit `moving` around?!
+- Yes, we'd like to get `moving`.
+- But it indicates we're `moving`!
+- Maybe you should be `moving` on.
+- They're not `moving` any closer.
+- We're going to be `moving`, son.
+- We're going to be `moving` soon.
+- When's captain nemo `moving` in?
+- Wow, that is one `moving` story.
+- You are not `moving` to a hotel.
+- Clarke, we have to keep `moving`.
+- I'm `moving` this book to viking.
+- Just keep driving, keep `moving`.
+- Let's get `moving` with this net.
+- `Moving` on doesn't mean running.
+- We need to get them `moving` now.
+- But, you got to get `moving`, rob.
+- Come on, we have to keep `moving`.
+- He knows i'm `moving` away, right?
+- Just to get things `moving`, baby.
+- No, we're `moving` you off campus.
+- She could be `moving` money, guns.
+                 

@@ -1,0 +1,107 @@
+---
+title: "kinda in a sentence | kinda example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kinda"
+---
+- I `kinda` need it now.
+- It's `kinda` far away.
+- `Kinda` clammy though.
+- `Kinda` weird, i know.
+- That's `kinda` freaky.
+- What `kinda` business?
+- He's `kinda` cute, hmm?
+- It is `kinda` romantic.
+- Junior prom... `kinda`.
+- `Kinda` surprised, huh?
+- What `kinda` job is it?
+- He just `kinda` gurgled.
+- It's really `kinda` old.
+- `Kinda`, actually, yeah.
+- `Kinda` struck my fancy.
+- My mouth is `kinda` dry.
+- Still, feel `kinda` bad.
+- Yeah, it's `kinda` nice.
+- I `kinda` like the quiet.
+- I'm `kinda` borrowing it.
+- `Kinda` easy to remember.
+- Fine, but `kinda` thirsty.
+- He `kinda` wanders around.
+- I `kinda` like it up here.
+- I think it's `kinda` cool.
+- `Kinda` flattering really.
+- `Kinda` tough on the butt.
+- What `kinda` talk is that?
+- It's actually `kinda` nice.
+- It's `kinda` hard this way.
+- It's `kinda` outta the way.
+- I was `kinda` hoping, yeah.
+- `Kinda` do it like a hobby.
+- Me, i'm `kinda` aggravated.
+- Oh... `kinda` the same way.
+- That's `kinda` good, right?
+- Thelma `kinda` took to him.
+- What do you mean '`kinda`?'
+- He's alright, `kinda` corny.
+- He's got that `kinda` money?
+- I `kinda` screwed things up.
+- Just `kinda`' filthy is all.
+- `Kinda` took us by surprise.
+- Look `kinda` like preachers.
+- They love this `kinda` shit.
+- What `kinda` twisted animal.
+- I `kinda` feel sorry for him.
+- I'm hit `kinda` bad, i think.
+- It's `kinda` money, actually.
+- Some `kinda` deal goin' down.
+- This is `kinda` short notice.
+- Geez, they look `kinda` weird.
+- I mean, we're `kinda` curious.
+- `Kinda` wanted to talk to you.
+- What `kinda` beer do you like?
+- What `kinda` bullshit is this?
+- Doc's just in no `kinda` shape.
+- I gotta have some `kinda` life!
+- I `kinda` hoped you'd say that.
+- It just `kinda` became a habit.
+- Unless it `kinda` gotcha going.
+- What `kinda` music do you like?
+- I'm `kinda` feeling nuts myself!
+- In a dinosaur `kinda` way, yeah.
+- `Kinda` funny, though, isn't it?
+- Map is `kinda` dirty, monster...
+- Still, it must be `kinda` rough.
+- That's the `kinda` dame she was.
+- Was it some `kinda` macho thing?
+- What `kinda` trash talk is that?
+- Yeah, it would be `kinda` great.
+- Do i look like that `kinda` girl?
+- This guy's `kinda` dorky lookin'.
+- I says, 'what `kinda` action?'
+- I `kinda` overheard you and peter.
+- Jesus, what `kinda` broad are you?
+- Just `kinda` goin' back and forth.
+- `Kinda` early for christmas, bugs.
+- `Kinda` makes you think, you know?
+- That's alright, i'm `kinda` tired.
+- Then what `kinda` stuff can we do?
+- ...what `kinda` dog is this again?
+- Yeah, well i `kinda` figured that.
+- You got some `kinda` inside track?
+- Is this uh... jazz `kinda` singing?
+- What the hell `kinda` cop are you?!
+- Would be `kinda` neat if they were.
+- I `kinda` wish i didn't remember it.
+- `Kinda` anxious to get to it are ya?
+- ...what `kinda` car's jasmine drive?
+- Which is `kinda` what i'm going for.
+- You think i'm that `kinda` sombitch?
+- But you know what, i `kinda` like it.
+- Don't you think that's `kinda` funny?
+- That's ro... that's `kinda` romantic.
+- Yeah, the dj's `kinda` whack, though.
+- So i `kinda`, y'know, i'm thinkin' no.
+- We never did this `kinda` shit before.
+- But i do `kinda` feel like an ass-hole.
+- I don't know, i'm `kinda` swamped here.
+                 

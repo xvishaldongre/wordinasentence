@@ -1,0 +1,62 @@
+---
+title: "male in a sentence | male example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "male"
+---
+- He's a white `male`...
+- Hey, you're anti-`male`.
+- `Male` or female, bitch?!!
+- White `male`, twenty-seven.
+- Killer's `male`, white, 40's.
+- On anything `male` that moves?
+- `Male` reporter: hey, mr stark.
+- Typically `male` point of view.
+- It's that whole `male` ego thing.
+- I used to sing with `male` bands.
+- Is this the protective `male` talk?
+- `Male`, weight in excess of 240 kg.
+- Waiter, busboy, maitre-de -- `male`.
+- Have you ever been with a `male` band?
+- I'm white, `male` and over twenty-one.
+- `Male` to... you mean out of business.
+- Except the one that you had was `male`.
+- Have i trespassed on a `male` prerogative?
+- Oh frank, i'm not anti-`male`, i'm anti- you.
+- So we'll just make it without that she-`male`.
+- You know mom, it's okay to have `male` friends.
+- As opposed to anything `male` that doesn't move?
+- I guess you could say i'm the new american `male`.
+- I'm not gonna take your `male` dominance bullshit!
+- My guess is `male`, somewhere in his 40's or 50's.
+- It's a `male` myth about feminists that we hate sex.
+- It's every red-blooded, heterosexual `male`'s dream.
+- What, asian `male` 18 to 30, black hair, brown eyes?
+- In the villa where i'm at, we have a `male` gardener.
+- `Male` diff breather, approximately 30, houston and a.
+- "the most interesting person i know is a white `male`."
+- You have some serious `male` on `male` intimacy problems.
+- You aren't a `male` monster, that man is but you aren't.
+- You think those `male` cops are going to understand that?
+- Don't spoil the symmetry -- you have to have a `male` cop.
+- Anderton here, and this unidentified `male` out the window.
+- As `male` or female, but it is cool that they're girls now.
+- I have heard of the arrogant `male` in capitalistic society.
+- Are you human beings or are you some kind of `male` monsters?
+- Yeah, man, `male`, significant other, whatever the fuck i am.
+- Congratulations, you've penetrated a bastion of `male` privilege.
+- `Male` and female - the moth and the flame - i ought to slug you!
+- Smells like shit, but to a `male` raccoon it smells just like pussy.
+- I'm a `male` synchronized swimmer and i'm looking for representation.
+- My papa has never allowed me even to have a pet of the `male` gender.
+- `Male` hostage, jeans and blue checked shirt, three feet to her right.
+- Escort everyone's favorite she-`male` over here nice and peaceful-like.
+- I'm not in the habit of carrying around photographs of my `male` friends.
+- The truck is registered to dennis james rooney, white `male`, twenty-two.
+- Let me tell you, honey, midgets are the best kept secret in `male` companionship.
+- Then we check employees and come up with a `male` nurse, hairdresser, whatever...
+- Didn't miss lawson come home one day and find you in bed with your `male` lover?
+- This show was created, conceived by you, a non-threatening african- american `male`.
+- Remote witnesses are hooked in... red ball -- double homicide: one `male`, one female.
+- The `male` was stabbed so hard the killer broke off the tip of the knife in his spine.
+                 

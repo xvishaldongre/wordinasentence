@@ -1,0 +1,107 @@
+---
+title: "does in a sentence | does example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "does"
+---
+- But what `does` it do?
+- But what if it `does`?
+- `Does` he have a name?
+- `Does` he have people?
+- `Does` he talk to you?
+- `Does` he work at all?
+- `Does` it have a name?
+- `Does` she want to be?
+- `Does` that say xanax?
+- `Does` that scare you?
+- `Does` that upset you?
+- `Does` that worry you?
+- `Does` the queen live?
+- `Does` this look weak?
+- Everybody else `does`.
+- How deep `does` it go?
+- How `does` he breathe?
+- How `does` that sound?
+- I only hope he `does`.
+- It `does`, doesn't it?
+- It `does` indeed, max.
+- No, but caesar `does`.
+- Oh, it totally `does`.
+- Some, everyone `does`.
+- Suppose nobody `does`.
+- That's what he `does`.
+- The house `does` that.
+- What `does` it matter.
+- What `does` it matter?
+- What `does` lois know?
+- What `does` "oh" mean?
+- What `does` that mean?
+- What `does` that mean?
+- What `does` this mean?
+- Where `does` she live?
+- Why `does` he want it?
+- Yes, it `does`, kelly.
+- Neither `does` she.
+- What `does` he see?
+- Cbs `does` not do that.
+- `Does` a number on him.
+- `Does` bella come here?
+- `Does` he live up here?
+- `Does` it happen often?
+- `Does` it -- keep time?
+- `Does` kate live here?!
+- `Does` pat have a tart?
+- `Does` she get a prize?
+- `Does` she, goddamnit??
+- `Does` she have a name?
+- `Does` that bother you?
+- `Does` that excite you?
+- `Does` that include me?
+- `Does` that make sense?
+- `Does` that please you?
+- `Does` that thing work?
+- `Does` the seven count?
+- He `does` have a point.
+- How deep `does` it get?
+- How `does` it feel, mr.
+- How `does` it play out?
+- How `does` one do that?
+- How `does` that happen?
+- I swear that it `does`.
+- Nobody `does` all that.
+- Now, what `does` he do?
+- So, how `does` it work?
+- Somebody always `does`.
+- So what `does` he want?
+- So who the fuck `does`?
+- Sure, everybody `does`.
+- Well, what else `does`?
+- What `does` sidney say?
+- What `does` that mean ?
+- What `does` that mean?!
+- What `does` that prove?
+- What `does` that spell?
+- What `does` this prove?
+- Which `does` not exist.
+- Who `does` these books?
+- Whoever took it `does`.
+- Why `does` she do this?
+- Why `does` that matter?
+- Look what he `does`!
+- As `does` what you fear.
+- `Does` a jet make noise?
+- `Does` any of this help?
+- `Does` anyone want this?
+- `Does` he have the spot?
+- `Does` he know you know?
+- `Does` he speak english?
+- `Does` his own printing.
+- `Does` it act as a drug?
+- `Does` it belong to you?
+- `Does` it ever shut off?
+- `Does` jackie know this?
+- `Does` she have a lover?
+- `Does` she wear glasses?
+- `Does` that about do it?
+- `Does` that ever happen?
+                 

@@ -1,0 +1,107 @@
+---
+title: "radio in a sentence | radio example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "radio"
+---
+- Oh, yeah, the `radio`.
+- Still `radio` silence.
+- They find the `radio`?
+- And i need the `radio`.
+- Blocks `radio` signals.
+- Get me to that `radio`.
+- Monitoring the `radio`.
+- What about the `radio`?
+- Are they on the `radio`?
+- Did kane take a `radio`?
+- I listen on the `radio`.
+- Played the `radio` loud.
+- Raven, on `radio`: gina?
+- [ray on `radio`] status.
+- Their `radio`'s out too.
+- Try to use your `radio`.
+- What about the `radio`?!
+- Answer the `radio` zebra.
+- Complete `radio` silence.
+- Don't answer the `radio`.
+- Get me the `radio` tower!
+- Oh, i had the `radio` on.
+- One spotter on a `radio`.
+- There's still no `radio`.
+- The songs on the `radio`.
+- Dennis, `radio` the bikes.
+- Have you tried to `radio`?
+- I heard it on the `radio`.
+- I'll `radio` if she comes.
+- I told you on the `radio`.
+- Let's turn on the `radio`.
+- Louise, shoot the `radio`.
+- Mother... `radio` silence.
+- Oh, it's a `radio` beacon.
+- Paul wunder, wbai `radio`.
+- Put us on `radio` silence!
+- The `radio` rig is inside.
+- We don't need the `radio`.
+- Why do you need a `radio`?
+- Emori, fire up the `radio`.
+- In `radio` we're different.
+- I went into `radio` school.
+- Man, on `radio`: copy that.
+- `Radio` said negative five.
+- `Radio` was never the same.
+- So what is that--a `radio`?
+- The `radio`'s on the fritz.
+- We keep in `radio` contact.
+- He's out of `radio` contact.
+- He was a `radio` technician.
+- Hey, what about the `radio`?
+- I told you, `radio` silence!
+- I want that fucking `radio`!
+- Put your `radio` on silence!
+- So, it's a... a ham `radio`.
+- The ah... the `radio`'s out.
+- Earl, you get on the `radio`!
+- Just heard it on the `radio`.
+- Oh, it's not my `radio`, sir.
+- Still no luck on the `radio`?
+- We came here for the `radio`.
+- All but their `radio` station.
+- Chekov, break `radio` silence.
+- Give me the `radio`, jasper.
+- I helped you find the `radio`.
+- Just `radio` for help, okay???
+- Turn that fucking `radio` off!
+- What's wrong with the `radio`?
+- And you listen to that `radio`.
+- Cut all `radio` communications.
+- I'll come back for the `radio`.
+- It's been all over the `radio`.
+- Then, the `radio` went dead.
+- Different man, on `radio`: yeah.
+- Don't you listen to the `radio`?
+- Everybody has their own `radio`.
+- Gina, on `radio`: gina to raven.
+- I'll `radio` you once it's done.
+- Just turn the `radio` on and go.
+- Octavia, on `radio`: roger that.
+- Tried to get you on the `radio`.
+- You broke the `radio`, remember?
+- Bellamy on `radio`: i see them.
+- Get my mother on the `radio` now.
+- Harper, on `radio`: oks, come in.
+- "i can't get beth on the `radio`.
+- I'd worry more about the `radio`.
+- Raven will get the `radio` fixed.
+- She has a police `radio` scanner.
+- Twelve young, answer the `radio`.
+- We have a `radio` like this, too.
+- We lost `radio` contact with him.
+- Because this is a chinese `radio`.
+- Bishop: (on `radio`) that's right.
+- Give the `radio` to the president.
+- On the `radio` they say it's good.
+- What if the `radio` stops working?
+- Your `radio` check is affirmative.
+- Her `radio` would've worked better.
+- I didn't touch the fucking `radio`!
+                 

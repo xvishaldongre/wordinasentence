@@ -1,0 +1,83 @@
+---
+title: "thousands in a sentence | thousands example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thousands"
+---
+- Not by the `thousands`.
+- We've lost `thousands`.
+- There's `thousands` of 'em!
+- And `thousands` of citizens.
+- Must be `thousands` of them.
+- Built to sustain `thousands`?
+- I got `thousands` of players.
+- It's `thousands` of years old.
+- Hundreds, `thousands` of roses.
+- I opened `thousands` of brains.
+- I've made hundreds, `thousands`.
+- They get `thousands` of letters.
+- There are `thousands` of pesetas.
+- I see `thousands` of marching men.
+- This is `thousands` of miles away!
+- Son... there's `thousands` of them.
+- We have `thousands` of such caches.
+- Not by two eyes, but by `thousands`.
+- I've seen `thousands` of photographs.
+- `Thousands` drank themselves to death.
+- In `thousands` of interstellar flights.
+- This capsule will slaughter `thousands`.
+- ... `thousands` and `thousands` of people.
+- I've spent `thousands` on psychiatirists.
+- I'm responsible for `thousands` of people.
+- Tens of `thousands` killed before sundown.
+- Which means `thousands` of tons of rubble.
+- You have a staff of literally `thousands`.
+- There's `thousands` of units like this one.
+- Yeah--`thousands`, and right in my back yard.
+- This is tens of `thousands` of fucking dollars!
+- Happening everywhere, on `thousands` of planets.
+- `Thousands` and `thousands`... as many as my cats?
+- We've existed this way for `thousands` of years.
+- I spent hundreds of `thousands` of dollars on her.
+- On imprisoning and torturing `thousands` of people.
+- To a city with `thousands` and `thousands` of people.
+- We had our atomic wars -- `thousands` of years ago.
+- But hundreds of `thousands` of people will carel oh.
+- Our little acre alone'll net hundreds a `thousands`.
+- `Thousands` of people did die, just different people.
+- `Thousands` of refugees being packed you're dreaming.
+- There must be `thousands` of white vans in this state.
+- They'll be dead by the `thousands` before this is done.
+- The place where `thousands` of their people were killed.
+- For `thousands` of years the jews are fighting everybody.
+- Of a city filled with `thousands` of people monty's algae.
+- One death instead of `thousands`, why isn't she waking up?
+- Who are you to question `thousands` of years of evolution?
+- Guarded by `thousands` of highly trained soldiers it's not.
+- I have `thousands` of memories but none of them are mine...
+- Freeing stravanavitch is gonna get tens of `thousands` killed.
+- I have killed `thousands` of other animals as well--for sport.
+- Mister sanderson, they'll be hundreds of `thousands` of games.
+- It looked like there would be `thousands` of characters to study.
+- We got to where the geese were and there were `thousands` of them.
+- He made `thousands` of different flowers... you look nice, sweetie.
+- Kane, who went into that ship, said he saw `thousands` of eggs there.
+- I watched the evacuation on tv, so much for the `thousands` of people.
+- You realize, of course, that `thousands` of swords have been collected.
+- The radioactivity could not penetrate a mine some `thousands` of feet deep.
+- We spent hundreds of `thousands` of dollars--i was going to make her a star.
+- It's made them break a migratory pattern that goes back `thousands` of years.
+- We're not even two hundred strong yet... but we got 'em guessing `thousands`.
+- I could always figure people out, they killed `thousands` of people safety on.
+- Now how's this motherfucker wake up after `thousands` of years in the ice, huh?
+- Back on that planetoid is an alien ship and on that ship are `thousands` of eggs.
+- From every corner of europe, hundreds, `thousands`, would rise to take our places.
+- Dumping `thousands` of gallons of water down the toilet in the middle of a drought.
+- I'm responsible for keeping track of hundreds, occasionally `thousands` of dollars.
+- We're at war, and a warrior does not mourn they're almost full, `thousands` of tons.
+- Everything is the same, george, except instead of `thousands`, you are making millions.
+- They are all duchesses here... `thousands` of duchesses... and i am going to tell them.
+- There are plenty of girls who would give `thousands` of dollars to have your auburn hair.
+- As you know, the kothoga lived outside civilization on the tepui for `thousands` of years.
+- And all of a sudden `thousands` of robins flew down and brought this blinding light of love.
+                 

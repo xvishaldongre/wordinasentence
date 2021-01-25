@@ -1,0 +1,62 @@
+---
+title: "becomes in a sentence | becomes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "becomes"
+---
+- It `becomes` what he is.
+- It `becomes` an addiction.
+- It `becomes` what you are.
+- Alex `becomes` a bit weepy.
+- He `becomes` frank sinatra.
+- This place `becomes` famous.
+- The experience `becomes` real.
+- That stability `becomes` chaos.
+- But what `becomes` of our souls?
+- What `becomes` of young masbath?
+- A few days `becomes` a few years.
+- `Becomes` how long were we asleep?
+- It `becomes` apparent he is insane.
+- The u.s. `becomes` a giant pharmacy.
+- It's so bad she `becomes` a werewolf.
+- The more powerful alie `becomes` mmm.
+- He `becomes` irrational� who is that?!
+- My confusion `becomes` your confusion.
+- Eventually, the few `becomes` the many.
+- West `becomes` east, all things change.
+- Slowly, your gang `becomes` your family.
+- The caterpillar `becomes` the butterfly.
+- The more likely that scenario `becomes`.
+- Where you come from `becomes` important.
+- Where your every fantasy `becomes` real.
+- If it `becomes` annoying, you let me know.
+- Your former present `becomes` the past.
+- The moment when contact `becomes` possible.
+- At a pressure this low, oxygen `becomes` toxic.
+- She `becomes` what she thinks they wanted to be.
+- The correspondent `becomes` "ghosted," invisible.
+- If we start now, all of america `becomes` a target.
+- God forbid one of your generals `becomes` commander.
+- After awhile, it just `becomes` part of the game.
+- Mr. alexander `becomes` frenzied as the speech progresses.
+- How many people would it take... before it `becomes` wrong?
+- "the orb `becomes` like a star, but i'm a circus clown now.
+- It `becomes` self-aware at 2:14 a.m. eastern time, august 29.
+- Sometimes, a persona can just... it `becomes` a trap, you know?
+- Now the itching `becomes` burning... heat, upon heat, upon heat.
+- The more real it `becomes`, the more desperately they want it.
+- Then a stupid old gardener - quartet `becomes` quintet, and so on.
+- If a situation `becomes` volatile, you will find a way to quell it.
+- I am harry james' son, and will act as `becomes` my name and quality.
+- So sam goldfish `becomes` sam goldwyn and david selznick `becomes` david 0.
+- The law that threatened death `becomes` thy friend and turns it to exile.
+- You put that all together, and what the state is doing `becomes` obvious.
+- Think about it: if you travel to the past, that past `becomes` your future.
+- You cross the line...today `becomes` yesterday...or tomorrow, i forget which.
+- Life slowly seems to return to her, and her breathing `becomes` more peaceful.
+- You must break when the strain `becomes` too great, or you will harm yourself.
+- Wake me, of course, if anything `becomes` in the slightest degree doubtful.
+- It's as if you are saying the closer you get to evil, the less evil it `becomes`.
+- Now my understanding is that 20 hours after exposure, the victim `becomes` infectious.
+- Let us go back in before the night of celebration `becomes` a night of me killing my son.
+                 

@@ -1,0 +1,91 @@
+---
+title: "burns in a sentence | burns example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "burns"
+---
+- C. montgomery `burns`.
+- Something for `burns`.
+- Huzzah for mr. `burns`!
+- To major `burns`' tent.
+- [door opens] it `burns`!
+- Oh, and, uh, mr. `burns`?
+- Oh, h-hello, mr. `burns`.
+- What about this, `burns`?
+- You can't bluff me, `burns`.
+- Therefore, it `burns` slower.
+- You're c. montgomery `burns`.
+- Hemp clothes `burns` like paper!
+- I'll show you cigarette `burns`!
+- Say, what's happened to `burns`?
+- Why, i'm surprised, mr. `burns`.
+- I think mr. `burns` is depressed.
+- Mr. `burns`, why did you do this?
+- He made his `burns` backdrafts.
+- He has come to help mister `burns`.
+- "mur, this new kid `burns` my ass."
+- They're called "cigarette `burns`."
+- Anything over 45 proof `burns` well.
+- `Burns` just called a staff meeting.
+- Major `burns` is far from satisfied.
+- Mr. `burns` -- get out of here, you!
+- That there frank `burns` is a menace.
+- We'll take a chance on that, `burns`.
+- But no one knows the real mr. `burns`.
+- Mr. `burns` will take questions later.
+- Which brings us to montgomery `burns`.
+- "with regards, c. montgomery `burns`."
+- Don't worry about what mr. `burns` says.
+- Look, mr. `burns`, the pod was her idea.
+- She's got bondage `burns` on her wrists.
+- Hello, post... mr. walter `burns`, please.
+- Simpson, mr. `burns` is a fortune 500 ceo.
+- He must have dropped it in `burns`' office.
+- If this thing `burns` us, i take that heat.
+- No, they're just powder `burns`, thank god.
+- The paper -- and being mrs. walter `burns`.
+- Best of all, mr. `burns` signed my card.
+- That cigarette `burns` out, your time is up.
+- That's absurd on the face of it, mr. `burns`!
+- The wind blows... the fire `burns`... leeloo?
+- Oh, did you -- care for the poem, mr. `burns`?
+- 'cause nothing `burns` around here, that's why!
+- I saw a soldier come in with radiation `burns`.
+- `Burns` almost completely away when you light it.
+- You're lucky mr. `burns`'s gun was 200 years old.
+- And montgomery `burns` fires his female employees.
+- The man with the `burns`, i need to sneak a smoke.
+- 12 times in the past 15 years oh, my god, it `burns`!
+- Bruce, suppose you examine mr. `burns` in his office.
+- Everyone's all upset about fucking cigarette `burns`.
+- I don't think i've ever seen you without mr. `burns`.
+- Two women inna same kitchen, anna house `burns` down.
+- You let our people out of the mess hall - it `burns`.
+- By all means, thank you are you upset with mr. `burns`?
+- I don't use my wife for business purposes, mr. `burns`!
+- I was mr. `burns`'s date for the kennedy center honors.
+- Then in mister `burns`' quarters he tried to kiss me.
+- You phone me as soon as mr. `burns` has given you his check.
+- You've got the radiation `burns`, i've got the gunshot wound.
+- We need to run this through vicap, search for similar `burns`.
+- Mr. `burns` is heavily medicated as long as we have each other.
+- What's the matter, mr. `burns` -- don't you understand english?
+- For a minute, i thought maybe walter `burns` was at the back of it.
+- Why, your language is shocking, mr. `burns` -- positively shocking!
+- Blain... ... just like the others... no powder `burns`, no shrapnel.
+- I know a lot of men who didn't do anything till they met walter `burns`.
+- What if the real criminal mastermind was billionaire montgomery `burns`?
+- `Burns`, you're guilty of obstructing justice and so is the morning post.
+- I don't want to see your heart broken when this case crashes and `burns`!
+- Yeah, i've got jim hopper-- he almost made ken `burns` quit the business.
+- Go back to their apartment with them and treat her for second-degree `burns`.
+- I don't care how many of these people i told you, you'll see him when he `burns`.
+- The `burns` were all lit in outlets surrounded by double firebreaks in the walls.
+- Dick `burns` got a phone call this morning from someone wanting information on you.
+- I will diminish mr. `burns` opened a portal to another dimension thanks, sweetheart.
+- If you're a good observer, you must have observed by now that frank `burns` is a jerk.
+- About that chest-cutter... major `burns` will be out of your tent in twenty-four hours.
+- Oh, mr. `burns` is more comfortable at home that does not celebrate christopher columbus.
+- They use an optical transfer ink from india that `burns` red -- the real ink `burns` black.
+- Listen, bruce, i don't want walter `burns` to use me, but i'm perfectly willing to use him.
+                 

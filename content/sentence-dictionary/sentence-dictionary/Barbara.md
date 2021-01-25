@@ -1,0 +1,67 @@
+---
+title: "Barbara in a sentence | Barbara example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Barbara"
+---
+- `Barbara` stanwyck.
+- My friend `barbara`?
+- `Barbara` holland's car.
+- My `barbara` was killed.
+- Any news about `barbara`?
+- `Barbara` chose it for me.
+- Well, i do `barbara` rush.
+- Do you know `barbara` jean?
+- I'll not see her, `barbara`.
+- Yes, `barbara`... `barbara`...
+- Her hair, i do `barbara` rush.
+- I'll tell you what, `barbara`.
+- Uh, they found `barbara`'s car.
+- Yes, `barbara`, i shan't forget.
+- The mission up in santa `barbara`.
+- She's got <u>photos</u>, `barbara`.
+- What color eyes did `barbara` have?
+- This argument you and `barbara` had?
+- If he's alive-- - then `barbara`.
+- `Barbara` isn't really me niece, sir.
+- I know you're seeing `barbara` baxter.
+- Why not put `barbara` jean on with him?
+- Into something for `barbara` stan- wyck.
+- Then maybe i'll head to santa `barbara`.
+- `Barbara`, you can put the kids to bed now.
+- `Barbara`'s a perfectly good name, isn't it?
+- I'll be buried in my yard next to `barbara`.
+- My daughter, `barbara`, died when she was six.
+- `Barbara` and i worked very hard on this house.
+- They have a commitment with `barbara` stanwyck.
+- And `barbara`'s got nothing to do with it, okay?
+- My hair...what color hair did `barbara` have?
+- `Barbara` maitland, sweetie, you just listen now.
+- If he's alive, there's a chance `barbara` is, too.
+- You want to go chasing `barbara` zelman, go ahead.
+- It was on such a night as this that `barbara` died.
+- What about this so-called "`barbara`" character?
+- One of the best producers in santa `barbara` county.
+- `Barbara` sees this girl, tries to help her, perhaps.
+- Seeing you fighting to survive, you killed `barbara`.
+- Perhaps `barbara` was exposed to some dangerous toxins.
+- Will and `barbara`, and that monster, they're this flea.
+- Good night...`barbara`... good night, mother, good night.
+- Er, you're not going to keep calling her `barbara`, are you?
+- So... me and `barbara` are gonna study at her house tonight.
+- Yet another triumph for adam and `barbara` in the afterlife.
+- I've heard the mission in santa `barbara` is the place to go.
+- The way we figure it, `barbara` flies to boston twice a week.
+- You're telling me `barbara` holland was kidnapped by russian spies.
+- I've got to make a stop in vegas, then i'm heading to santa `barbara`.
+- `Barbara` stanwyck, susan hayward - of course, they're just movie stars.
+- That's what you said about janet, and beth, and `barbara` -- no, really.
+- This gal's married to i think a philosophy professor at uc santa `barbara`.
+- `Barbara` -- you might want to pencil in a little face-time with your daughter.
+- I know every last step `barbara` took that day, i don't want to do that anymore.
+- Of hawkins resident `barbara` holland who died due to exposure what, are you tired?
+- Did you hear about this bordeaux tasting dinner down in santa `barbara` saturday night?
+- It should be once the crime rate like he would ever spend a weekend in santa `barbara`.
+- Lucky for you that my wife and four fair daughters are at the beach in santa `barbara`.
+- Yeah, but you're the only one who if will and `barbara`... that's what you do to demons.
+                 

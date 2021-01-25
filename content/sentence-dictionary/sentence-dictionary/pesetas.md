@@ -1,0 +1,8 @@
+---
+title: "pesetas in a sentence | pesetas example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pesetas"
+---
+- There are thousands of `pesetas`.
+                 

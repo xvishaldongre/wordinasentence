@@ -1,0 +1,107 @@
+---
+title: "past in a sentence | past example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "past"
+---
+- Gentlemen, the `past`.
+- He changed the `past`.
+- He's been `past` mars?
+- In the `past` 6 hours.
+- The `past` six months.
+- Everybody has a `past`.
+- Go down `past` the bar.
+- I'm long `past` saving.
+- Just `past` boise city.
+- Left hand's the `past`.
+- No, 1995 is the `past`.
+- No, i mean your `past`.
+- Oh, uh, i snuck `past`.
+- The `past` is the `past`.
+- For the `past` few days.
+- Go out 29 `past` toby's.
+- She's hiding her `past`.
+- Someone from the `past`.
+- There's only the `past`.
+- Walter likes the `past`.
+- We didn't get `past` it.
+- You gotta get `past` it.
+- Out `past` the date line.
+- But what about the `past`?
+- It's a quarter `past` ten.
+- I walked right `past` you.
+- One `past` and one future.
+- What's `past` is prologue.
+- Armor of `past` commanders.
+- His name is a `past` tense?
+- I can't get `past` that ai.
+- I can't think `past` today.
+- Nothing in the `past` hour.
+- The `past` fifteen minutes.
+- We need to get `past` them.
+- I just have to get `past`...
+- [lestrade] barely `past` 20.
+- Only if they get `past` you.
+- Only if they get `past` you.
+- Trying to change the `past`.
+- You're living in the `past`.
+- Your `past` and your future.
+- I have a terrible `past`.
+- _ because he's in the `past`.
+- I wouldn't put it `past` him.
+- My reputation, `past` repair.
+- The stones are in the `past`.
+- We're way `past` 750 leagues!
+- You and me, we�re the `past`.
+- You are from the `past`, yes?
+- It's a quarter `past` two now.
+- It's so far in the `past` now.
+- Nobody gets `past` elmer here.
+- South of here, `past` chimayo.
+- We can't change what's `past`.
+- But we can get `past` all that.
+- Dead... and you are the `past`.
+- He won't get `past` the shield.
+- "no inmates `past` this point."
+- There's a name from the `past`.
+- We're way `past` inappropriate.
+- You gotta let go of the `past`.
+- Because the `past` is immutable.
+- Enough churning over the `past`.
+- How'd you get `past` the guards?
+- My god, a voice from the `past`!
+- Well, you know about his `past`.
+- Without a `past` we are nothing.
+- You can tell me about my `past`.
+- Go `past` me, heading down, over.
+- It's ten minutes `past` midnight.
+- Just ride me up `past` the rooms.
+- Just some... guy from the `past`.
+- Let's not think about the `past`.
+- They'll hafta get `past` my army!
+- We should leave the `past` alone.
+- You have a `past`, i have a `past`.
+- Dude, can we just get `past` that?
+- How did you get `past` the guards?
+- I don't think your `past` is dead.
+- I have to go back into the `past`.
+- Maybe we can move `past` that now.
+- No, no, no, we're way `past` that.
+- A lot's changed in the `past` year.
+- I do not often think of the `past`.
+- Never evolved `past` reptile phase.
+- Perfect pastor's pysterious `past`.
+- You have a rather checkered `past`.
+- You'd be up way `past` your bedtime.
+- You're living in the fucking `past`.
+- You wanted it done... to get `past`.
+- I'm way `past` asking permission.
+- My `past` is no worse than yours.
+- How am i gonna get `past` the guards?
+- They'll have to come right `past` us.
+- To ignore your entire `past` history.
+- You always want to change the `past`.
+- You mean our `past` as in me and sid.
+- Allow a man his version of the `past`.
+- How were we supposed to get `past` it?
+                 

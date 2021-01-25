@@ -1,0 +1,107 @@
+---
+title: "one's in a sentence | one's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "one's"
+---
+- Maybe no `one's` home.
+- No `one's` gonna show.
+- No `one's` gonna talk.
+- No `one's` here today.
+- No `one's` that funny.
+- This `one's` a lay-up.
+- This `one's` brighter.
+- I'm no `one's` bitch.
+- No `one's` dying today.
+- No `one's` forcing her.
+- No, this `one's` on us.
+- This `one's` different.
+- _ - this `one's` yours.
+- Lee, this `one's` on me.
+- No `one's` ever escaped.
+- No `one's` following us.
+- No `one's` following us.
+- The `one's` left behind?
+- This `one's` out of ink.
+- This `one's` ready, too.
+- Which `one's` the pilot?
+- No `one's` there now?
+- But this `one's` special.
+- No `one's` asking you to!
+- No `one's` discussing it.
+- No `one's` perfect, kate.
+- No `one's` that powerful.
+- No `one's` worthy of you.
+- `one's` hers, `one's` mine.
+- _ phase `one's` complete.
+- That `one's` still alive.
+- This `one's` interesting.
+- This `one's` my favorite.
+- No `one's` ever said that!
+- No `one's` going anywhere.
+- No `one's` leaving anyone.
+- `one's` in butte, montana.
+- First `one's` the clincher.
+- No `one's` gonna blame you.
+- No `one's` making you stay.
+- This `one's` better anyway.
+- This `one's` for australia.
+- This `one's` gonna be easy.
+- This `one's` got to be her.
+- This `one's` on me, though.
+- Which `one's` the antidote?
+- He ain't on no `one's` list.
+- I'm the `one's` got the gun.
+- I told you, no `one's` home.
+- No `one's` been crying here.
+- No `one's` going to fire us.
+- No `one's` keeping him here.
+- No `one's` picking up there.
+- No `one's` watching, anyway.
+- This `one's` a thoroughbred.
+- This `one's` for both of us.
+- This `one's` mine, sky girl.
+- Which `one's` the colonel's?
+- Which `one's` your building?
+- Yes, the first `one's` fine.
+- No `one's` coming to get you.
+- Okay, this `one's` for china.
+- Thirty `one's` and two ten's?
+- This `one's` from charleston.
+- Um, this `one's` my favorite.
+- Well, this `one's` yours now.
+- No `one's` forcing me to stay.
+- No `one's` getting that film!!
+- No `one's` gonna recognize us.
+- `one's` for a modeling agency.
+- Put on the young `one's` suit.
+- Excessive love of `one's` wife.
+- How's the spotted `one's` milk?
+- No `one's` ever done it before.
+- This `one's` head is a toaster!
+- [bellow] - i'm no `one's` bitch.
+- I mean, `one's` been up everest.
+- No `one's` forcing you to watch.
+- Of course, this `one's` a gimme.
+- This `one's` for mrs. farren.
+- But this `one's` sorta left over.
+- I hope no `one's` claustrophobic.
+- No `one's` ever done that before.
+- No `one's` forcing you to listen.
+- No, this `one's` for real, peter.
+- The honest sweat of `one's` brow.
+- This `one's` gonna blow you away.
+- We were the only `one's` on deck.
+- I'm the `one's` got the big stick.
+- No `one's` asking you not to work.
+- No `one's` gonna hurt you no more.
+- I'm the `one's` going to close 'em.
+- It's ok. no `one's` gonna hurt you.
+- No `one's` asking you to come back.
+- No `one's` getting in through here.
+- No `one's` getting in through here.
+- No `one's` heard of chuckie roeder.
+- Owwww... no `one's` saying you did.
+- Hey, this `one's` mine, this button.
+- No `one's` been down there in years.
+                 

@@ -1,0 +1,71 @@
+---
+title: "Lou in a sentence | Lou example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lou"
+---
+- She's damn good, `lou`.
+- Our work is done, `lou`.
+- `Lou`, she will kill you.
+- What do you think, `lou`?
+- I've lost my faith, `lou`.
+- There's two of 'em, `lou`!
+- Is it this aisle, `lou`-is?
+- We need some towels, `lou`.
+- Let's get outta here, `lou`.
+- Did you tell him that, `lou`?
+- Do me a favor, will you, `lou`?
+- I've heard of blue `lou` boyle.
+- `Lou`, you were in the marines.
+- That the bottle `lou` gave you?
+- Hello, `lou`, angie come in yet?
+- It raises the metabolism, `lou`.
+- `Lou`, meet me at 1412 adelaide.
+- A history of nazi germany, `lou`.
+- `Lou`, `lou`, quick, take a selfie.
+- What the heck's she doin', `lou`?
+- `Lou` escobar � he's a lieutenant.
+- Gee, `lou`, i'm doing the best i can.
+- Are you giving me an ultimatum, `lou`?
+- I'm not `lou` ferigno for pete's sake!
+- ...jenner... jenson, emy `lou` jenson.
+- We need to find more witnesses, `lou`.
+- Now we'll have to subpoena them, `lou`.
+- "oh, i suppose it was my friend `lou`."
+- You know what they're doin' now, `lou`.
+- We just lost `lou`, stu, and john taske.
+- Betrayed by `lou` and, uh, the other guy.
+- `Lou`, susie, i'm going with my gut here.
+- Maybe he never ordered the weapon, `lou`.
+- Maybe we should just call it a day, `lou`.
+- We just lost `lou`, stuart and john taske.
+- `Lou` sklaroff, vin badalato, dave montell.
+- Anyway, i had `lou` read your script for me.
+- "is it this aisle `lou`- is, is it that one?"
+- But that's a fair description, isn't it `lou`?
+- `Lou`, stuart, and john taske just turned back.
+- Oh, `lou`, you got to teach my wife to do this.
+- We are worse than sand in a hot dog, eh, `lou`?
+- Just not very well, dankest cell we've got, `lou`.
+- You know, my feelings haven't dissolved yet, `lou`.
+- I know what you're going through with ferrie, `lou`.
+- He was � well, i didn't actually call him, `lou` did.
+- Hey, `lou`, when's the festival for saint know-it-all?
+- Fat `lou`, bring the ship to the following coordinates.
+- I will not have any damned ultimatums put to me, `lou`.
+- Well, geez, `lou`, i wouldn't say that i liked-liked him.
+- The zapruder film is the proof they didn't count on, `lou`.
+- Fat `lou`, we're changing courses for the solaras space lab.
+- Drexl had an association with a fella named blue `lou` boyle.
+- You should thank `lou` and i for the wedding car -- a '63 buick.
+- Well, i hope she wasn't too much of a disappointment to you, `lou`.
+- We're going back into the case, `lou` - the murder of the president.
+- Well, `lou` the cop and his sister were gonna go, i'm not that crazy.
+- We all need to make room for someone else's ideas, `lou`, especially me.
+- Isn't covered by insurance anymore, prithee keep shooting, goodman `lou`.
+- I work as a counsel for mr. blue `lou` boyle, the man your son stole from.
+- I'm not sure i agree with you a hunnert percent on your policework, there, `lou`.
+- Then you've seen the scene where arnold schwartzenegger is talking to `lou` ferigno.
+- All these new volunteers, any one of them could be... you just need some sleep, `lou`.
+- Look at me, a writer in the room and i'm askin' `lou` what the goddamn story should be!
+                 

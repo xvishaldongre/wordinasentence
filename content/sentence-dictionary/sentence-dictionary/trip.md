@@ -1,0 +1,107 @@
+---
+title: "trip in a sentence | trip example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trip"
+---
+- It�s a one way `trip`.
+- Oh, i'm sorry, `trip`.
+- One round `trip` each.
+- One round-`trip` each.
+- We're taking a `trip`.
+- A field `trip` to moma.
+- His wife took a `trip`.
+- How was your `trip`...?
+- I got a `trip` to mars.
+- It was a long `trip`...
+- Ok. have a good `trip`.
+- Taking a little `trip`?
+- That i made the `trip`?
+- This place is a `trip`.
+- It's a `trip`, you know?
+- You mean, like a `trip`?
+- Have a nice `trip`, mama.
+- One way, or round `trip`?
+- You're goin' on a `trip`?
+- You're planning a `trip`?
+- For one round-`trip` each.
+- This is a business `trip`!
+- This isn't a field `trip`.
+- What a `trip` i was lousy.
+- You should go on a `trip`.
+- Did you have a good `trip`?
+- It's a pretty short `trip`.
+- So how long is this `trip`?
+- We call it an "ego `trip`".
+- A `trip` is what we'll take.
+- A `trip` to the outer rings.
+- Girls `trip` to south korea.
+- How was your `trip` to mars?
+- Sixteen minute round `trip`.
+- `Trip`, you fuckin' asshole.
+- We planned a `trip` for her.
+- Enjoy the rest of the `trip`.
+- I won't be making the `trip`.
+- She couldn't make the `trip`.
+- Somebody hit the `trip` wire!
+- This `trip` to the valley.
+- A `trip` to china sounds nice.
+- I'll pay the rest next `trip`.
+- Did you have a pleasant `trip`?
+- I'm ready to cancel our `trip`.
+- Tell her to have a nice `trip`.
+- This `trip` better be worth it.
+- We're going on a "long `trip`".
+- "a `trip` to china sounds nice."
+- A `trip` to china sounds nice...
+- I made you these for the `trip`.
+- I want you to go on this `trip`.
+- She's off on a `trip` somewhere.
+- You just won a `trip`, you dolt!
+- For peter, that's a short `trip`.
+- I have a long `trip` ahead of me.
+- No, no, i didn't `trip` over her.
+- No, this is my first `trip`, doc.
+- Our last `trip` before you leave.
+- She still packing for her `trip`?
+- To keep him still for the `trip`.
+- Was this `trip` really necessary?
+- What this whole `trip` has meant.
+- You going on a `trip` mr. parker?
+- You realize this is a day `trip`.
+- First prize is a `trip` to moscow!
+- How was your `trip` to the quarry?
+- I had to arrange about the `trip`.
+- Now, this is called a `trip` wire.
+- They're afraid to make the `trip`.
+- This `trip`'s gonna cost how much?
+- I'm thinking about taking a `trip`.
+- It'll save you another `trip` back.
+- Just think of it as a field `trip`.
+- Then it's a day's `trip` to sonora.
+- A fast `trip` right down the ladder.
+- Doug, maybe we should take a `trip`.
+- Hope you have a good `trip`, george.
+- I told ya this was a one way `trip`.
+- Spend it on your `trip` to katmandu.
+- They'll have to cancel their `trip`.
+- Why don't we take a `trip` together?
+- I thought this `trip` was a bust.
+- Take a little `trip` with them...
+- Did you bag any geese on this `trip`?
+- I really hope you have a nice `trip`.
+- Is there time to make another `trip`?
+- It's a pretty long `trip` to mercury.
+- I've made the `trip` dozens of times.
+- Maybe she wanted a free `trip` to la.
+- Sure you do, it's been a long `trip`.
+- Take a `trip` to the butterfly field?
+- He'll be looking for the `trip` wires.
+- Look, i make this `trip` all the time.
+- Not so long that you `trip` over them.
+- Out of you for the rest of the `trip`.
+- There won't be any rest of the `trip`.
+- We really couldn't afford this `trip`.
+- You're payin' for my `trip`, browning!
+- I wanted you all to have a good `trip`.
+                 

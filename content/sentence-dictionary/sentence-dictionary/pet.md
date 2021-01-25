@@ -1,0 +1,54 @@
+---
+title: "pet in a sentence | pet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pet"
+---
+- Simon has a new `pet`.
+- Which one is your `pet`?
+- Banister's `pet` project.
+- Mammoth--go `pet` the kitty.
+- Oh, listen to teacher's `pet`.
+- You can `pet` him if you want.
+- It's a wonderful `pet` to have.
+- What is she, your little `pet`?
+- You know you want to `pet` her.
+- Why aren't you at the `pet` shop?
+- Do you want me to `pet` your head?
+- It's marcia vaughn's `pet` charity.
+- What did you say about a `pet` shop?
+- Domino is feeding her `pet` goldfish.
+- Transdermals and `pet` suppositories.
+- I'd show her my `pet` trees and things.
+- You `pet`'s pissed i killed its brother.
+- That's a nice `pet` you got there, bishop.
+- What was that you said about a `pet` shop?
+- The flowers in thorwald's `pet` flower bed.
+- Abbott and me were judges at the `pet` show.
+- `Pet`--my stomach couldn't hold a bird seed.
+- You going to bury him in the `pet` sematary?
+- He's probably going up to the `pet` sematary.
+- I have but one `pet` cause, today: ban the bat.
+- Xavier wanted to keep her alive as a little `pet`.
+- If i didn't send you, you can `pet` him if you want.
+- Where's your `pet` gorilla and the female uncle tom?
+- ...the `pet` wrangler suggested it..he's also got a...
+- Ever take a look at the women who work in `pet` stores?
+- I don't know what `pet` name thorwald had for his wife.
+- But what if he dies and has to go to the `pet` sematary?
+- Who is reincarnated as his partner's `pet` saint bernard.
+- Okay, i want you to lift your hand -- and `pet` the snake.
+- Oh, by the way, another `pet` theory of yours just blew up.
+- I'm getting a teacher's `pet` rep. you're famous around here.
+- No, no--believe me, `pet`--this is *most* urgent-- hello, hello.
+- Look, doctor, this isn't one of your `pet` porpoises we're after.
+- Jason, my `pet` �� i'm a good boy, but no one listens to what i say.
+- My papa has never allowed me even to have a `pet` of the male gender.
+- I'm warning you -- you can't keep a wild animal as a `pet` around children.
+- Certainly, there is nothing so easy to like as a `pet` and they are quite silent.
+- I think i did it because your daughter ain't ready for her favorite `pet` to die.
+- Oliver's `pet`, i'm sure it would be the first thing he'd grab if we ever had a fire.
+- Well, it sort of got to be--from jeff just pullin' splinters and things-- a `pet` shop?
+- I dreamed he got hit by a car and you and mr. crandall buried him in the `pet` sematary.
+- One of the plagues on members of congress--office-seekers, cranks, people with `pet` bills.
+                 

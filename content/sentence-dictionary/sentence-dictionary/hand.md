@@ -1,0 +1,107 @@
+---
+title: "hand in a sentence | hand example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hand"
+---
+- `Hand` of god, my ass.
+- `Hand` over them keys.
+- `Hand` to `hand` combat.
+- `Hand` to `hand` combat?
+- I made them by `hand`.
+- Just give me a `hand`.
+- My `hand` is too weak.
+- Near his right `hand`.
+- Use your other `hand`!
+- Your right-`hand` man.
+- Destiny takes a `hand`.
+- Get your `hand` off me.
+- `Hand` me those pliars.
+- I can't feel my `hand`.
+- I held it in my `hand`.
+- It's all out of `hand`.
+- It's <u>her</u> `hand`.
+- Left `hand`'s the past.
+- Let me see your `hand`!
+- Let me see your `hand`.
+- Love, cool `hand` luke.
+- They're `hand`- picked.
+- Where your `hand` goes.
+- You may kiss my `hand`.
+- Ash, `hand` her the bow.
+- Count 'em on one `hand`.
+- `Hand` over your dinner.
+- I got a terrific `hand`.
+- I haven't laid a `hand`.
+- I'm holding your `hand`!
+- I'm holding your `hand`.
+- I need a `hand` here....
+- Lower your right `hand`.
+- Now `hand` that on back!
+- Sorry about this `hand`.
+- We got it second-`hand`.
+- Where's the `hand`- off?
+- Your `hand` is bleeding.
+- Hey, give me your `hand`.
+- I said, shake her `hand`.
+- It's in the other `hand`.
+- Watch his `hand` careful!
+- `Hand` in handcuffed `hand`.
+- `Hand` me that adjustable.
+- `Hand` me that box, marty.
+- Hunter warrior off `hand`.
+- I shall be near at `hand`.
+- I think i broke my `hand`.
+- So, what's in your `hand`?
+- The thing's out of `hand`.
+- The two go `hand` in `hand`.
+- Upper right `hand` corner?
+- You're `hand` is bleeding.
+- You're shaking his `hand`!
+- Then he held my `hand`.
+- Could you give me a `hand`?
+- He died at anothers `hand`.
+- Honora pats steve's `hand`.
+- I have to `hand` it to you.
+- I'm not shaking his `hand`.
+- I think that is its `hand`.
+- It's your `hand`, buckaroo.
+- No, no, first, your `hand`.
+- Theo releases sid's `hand`.
+- The reapers `hand` us over.
+- Well i'll `hand` it to you.
+- With his gun of the `hand`.
+- You have an unusual `hand`.
+- You, on the other `hand`...
+- Clarke, can i have a `hand`?
+- Cool `hand` luke a salesman?
+- `Hand` over the case, stark.
+- His goddamn `hand` twitched!
+- His `hand` looks like a paw.
+- I had it right in my `hand`!
+- I just wanta wash my `hand`.
+- It could be anyone's `hand`.
+- I think i've found a `hand`.
+- Just `hand` up on the bitch!
+- Listen, give me your `hand`.
+- Now come on, take my `hand`.
+- One `hand` washes the other.
+- Put your `hand` in my pants.
+- She didn't `hand` you to me.
+- Uh, that's your left `hand`.
+- Why don't we... last `hand`.
+- Beer in `hand` by five after.
+- Come on, give me your `hand`.
+- Give -- me -- your -- `hand`!
+- How did you hurt your `hand`?
+- I even held one in my `hand`.
+- I'm done holding your `hand`.
+- I turn my `hand` against him.
+- I want it here, in my `hand`.
+- Move your `hand` to the left.
+- One `hand` washing the other.
+- Our `hand` was always forced.
+- Please pick the other `hand`.
+- Raise a `hand` to me and... .
+- Then they `hand` me sollozzo.
+                 

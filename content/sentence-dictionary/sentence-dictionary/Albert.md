@@ -1,0 +1,59 @@
+---
+title: "Albert in a sentence | Albert example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Albert"
+---
+- Yes, you do, `albert`.
+- `Albert` is getting fat.
+- "`albert` lucas trumbo."
+- How'd you know `albert`?
+- `Albert`, come back here.
+- Here, `albert`, not there.
+- `Albert` explain it to him.
+- You heard of `albert` milo.
+- `Albert`... `albert` and ethel.
+- Yes... `albert`, why tylenol?
+- `Albert`'s got the stomach flu.
+- Nick, vince, `albert` and john.
+- Do you want to be dead, `albert`?
+- So he's in the next one, `albert`.
+- The world is a hologram, `albert`.
+- You've heard of `albert` einstein?
+- You're a great architect, `albert`.
+- `Albert`'s gonna get me my job back.
+- `Albert` einstein plays shuffleboard.
+- Prince `albert` is at windsor, ma'am.
+- You can't get away from me, `albert`.
+- Just watch what `albert` has prepared.
+- `Albert` dekker, 1968, he hung himself.
+- `Albert`'s gonna hump the coup de ville.
+- Do you know a man called `albert` swift?
+- You wanna get caught spying on `albert`?
+- `Albert` milo walks in from another room.
+- Didn't you read "not about `albert` milo?"
+- Give `albert` einstein here the nobel prize.
+- Fuckin' guy's been saving your ass, `albert`.
+- You'll be designing monuments soon, `albert`!
+- Do you know a man called `albert` swift, eric?
+- Prince `albert`, my husband, had typhoid fever.
+- Prince `albert` was going to build a bench here.
+- The fuck do you have goin' on with sam `albert`?
+- No, i want the nsa to get caught spying on `albert`.
+- Mr. appleton, do you know an "`albert` lucas trumbo?"
+- We're gonna lead `albert` by the nose to one conclusion.
+- I know, but... fuckin' guy's been shooting slants, `albert`!
+- No, i didn't, does `albert` swift still live over the ferry?
+- In the timeless words of squire `albert`... just like always!
+- I work for senator sam `albert` and i was given jerry's name.
+- Sometimes -- i feel that brown is all i have left of `albert`.
+- Excuse me... you said earlier that mary `albert` just moved in.
+- You know, jayne mansfield, james dean, `albert` camus... really?
+- There's `albert`'s d.c. office address and his phone's identity code.
+- She might do it, `albert`, but you can't fuckin' tell me that she does!!!
+- Another thing, `albert`, when the next murder happens you will help me solve it.
+- I heard you been puttin' it to `albert` sellers that works over at the funeral home.
+- I thought that with your assistance we could have the premiere at the `albert` hall.
+- Just tryin' to be professional, but no... you look like mush mouth from fat `albert`.
+- Also, melinda, please don't tell anybody at the store that `albert` was here tonight, okay.
+                 

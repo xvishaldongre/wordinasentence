@@ -1,0 +1,107 @@
+---
+title: "murdered in a sentence | murdered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "murdered"
+---
+- You `murdered` her!
+- That he was `murdered`.
+- We `murdered` our baby.
+- You `murdered` by boss.
+- Or `murdered`, like nix.
+- Somebody `murdered` him.
+- They `murdered` delilah.
+- `Murdered` many children.
+- You `murdered` my misery.
+- You `murdered` trillions!
+- He `murdered` eladio cruz.
+- He `murdered` the first 3.
+- He was `murdered`, father!
+- Miggs has been `murdered`.
+- Someone's been `murdered`.
+- Well...why `murdered` man?
+- Who had `murdered` clarke.
+- You `murdered` 381 people.
+- Her doctors `murdered` her.
+- No, `murdered`, thelonious.
+- She will not be `murdered`.
+- Somebody's been `murdered`.
+- The man `murdered` a prime.
+- He was `murdered` at school.
+- They `murdered` my soldiers.
+- Girl mysteriously `murdered`.
+- Her doctors `murdered` her. )
+- She may have been `murdered`!
+- 320 people will be `murdered`.
+- The captain's been `murdered`.
+- They think you `murdered` him.
+- You who `murdered` my brother.
+- You haven't `murdered` anybody.
+- You `murdered` innocent people.
+- You `murdered` your own people.
+- They think he's been `murdered`.
+- You `murdered` that girl, eddie.
+- A young girl has been `murdered`.
+- What if you `murdered` all of us?
+- He was `murdered` last sunday.
+- Mother, you've just `murdered` me.
+- The president has been `murdered`.
+- Your mother `murdered` her mother.
+- Then, who `murdered` the old crone?
+- I `murdered` my parents, mr. kelson.
+- Under the body of a `murdered` woman.
+- That means he `murdered` his wife?
+- It looks like somebody `murdered` him.
+- The police think they were `murdered`.
+- Yeah what's this, `murdered` elephant?
+- You shot me and `murdered` my friends.
+- Because you `murdered` half the planet.
+- Eighteen of our people were `murdered`.
+- It is possible this man was `murdered`.
+- It's where thanos `murdered` my sister.
+- I want to get a look at `murdered` man.
+- _ she `murdered` those kids, i'm a cop.
+- Senselessly `murdered` just minutes ago.
+- So he `murdered` 11 people in one night.
+- Someone `murdered` carl in the mensroom!
+- You don't think she `murdered` mitchell.
+- 1... murphy `murdered` two of our people.
+- An old friend of mine has been `murdered`.
+- It's a film... of a girl being `murdered`.
+- It's where... thanos `murdered` my sister.
+- But not one of them said he was `murdered`.
+- Grandmama said how sailor `murdered` a man.
+- You think she's better than `murdered` man?
+- Her husband was `murdered` by edgar sonrisa.
+- I should tell you... he has been `murdered`.
+- Balliol was `murdered` in a church yesterday.
+- He was `murdered`... after that i fell apart.
+- They `murdered` her, mrs. mathews, i'm sorry.
+- Being `murdered` in cold blood isn't nonsense.
+- He was `murdered` -- you do recognize it then?
+- Nobody reprieved that policeman he `murdered`.
+- Gerald is the man you `murdered` in the subway.
+- The woman who owns it was `murdered` last night.
+- This is a movie showing a girl being `murdered`.
+- She happens to think the last one was `murdered`.
+- The man who `murdered` leo walked like a wasi'cu.
+- We're 98 per cent certain mitchell was `murdered`.
+- It's been many years since jade fox `murdered` him.
+- You do that and you'll have `murdered` your father.
+- I'm not suggesting you `murdered` anybody, you know.
+- You told me vader betrayed and `murdered` my father.
+- That's where sarah darling was `murdered` last night.
+- You `murdered` my husband, because he would not bend.
+- You've `murdered` us all you egomaniacal sonofabitch!
+- If she's so innocent, how come she `murdered` a child?
+- She was `murdered` by hanoi shan on our wedding night.
+- Why are our witnesses being bought off and `murdered`?
+- Three people `murdered` in there in the last six weeks!
+- Another girl was `murdered` last night right near there.
+- It's something to do with the man you saw `murdered`.
+- I mean he `murdered` someone and did time back in boston.
+- I think there's a very real chance no one was `murdered`.
+- You heard the tutsi cockroaches `murdered` our president.
+- 25, the same number of disciples that you have `murdered`.
+- I don't know what to say... ray thinks she was `murdered`.
+                 

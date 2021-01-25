@@ -1,0 +1,107 @@
+---
+title: "bought in a sentence | bought example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bought"
+---
+- I `bought` her in '66.
+- I never `bought` that.
+- I think i `bought` it.
+- The crowd `bought` it.
+- We `bought` this boat.
+- `Bought` a little time.
+- He `bought` the statue.
+- I `bought` the tickets.
+- Men `bought` me drinks.
+- Ya `bought` <u>her</u>!
+- You `bought` this boat?
+- `Bought` at the airport.
+- I `bought` it, didn't i?
+- I `bought` that for you.
+- It `bought` us some time.
+- Maybe i just `bought` it.
+- The report king `bought`.
+- They `bought` her speech.
+- You `bought` this for me?
+- You `bought` us time how?
+- Break it, you `bought` it.
+- Not the ones she `bought`.
+- You've `bought` me enough.
+- `Bought` the red cars, huh?
+- He `bought` a boy of yours.
+- He has `bought` me for you.
+- I admit, i can be `bought`.
+- I `bought` him a watch too.
+- We `bought` baseball cards.
+- We just `bought` the story.
+- Well, somebody `bought` it.
+- I `bought` a typewriter.
+- `Bought` it on the way over.
+- I already `bought` a ticket.
+- I `bought` the entire plant.
+- I `bought` us plane tickets.
+- We `bought` him in kentucky.
+- I `bought` it in a pawn shop.
+- Viktor `bought` me that time.
+- You think she `bought` it?
+- `Bought` himself a pocketbook!
+- `Bought` the bottle, didn't i?
+- Do you think they `bought` it?
+- Have you `bought` your ticket?
+- I `bought` it fair and square.
+- I `bought` pizza and macaroni.
+- My father `bought` this place.
+- We've `bought` you some fruit.
+- A week ago, i `bought` a rifle.
+- I `bought` a couple of tickets.
+- I just `bought` one for myself.
+- I just `bought` us some time.
+- Larry `bought` himself cologne?
+- Lieutenant's `bought` the farm.
+- Mr. sampson `bought` it for me.
+- Never `bought` a fucking thing.
+- So you never `bought` any land.
+- The one you `bought` at school.
+- I `bought` them for my daughter.
+- I see you `bought` some napkins.
+- One that she'd `bought` herself?
+- We bring out the store `bought`.
+- You `bought` the fucking ticket.
+- Your cousin shirley `bought` it.
+- A friend of mine `bought` a boat.
+- Fact is they haven't `bought` it!
+- I `bought` into it ten years ago.
+- I just `bought` us a few minutes.
+- Nobody `bought` a paper that day.
+- You `bought` her some time, kola.
+- A new outfit `bought` the red car.
+- I `bought` it for you, not dickie.
+- She `bought` my sister's business.
+- But i just `bought` a good blanket.
+- I `bought` it for the square dance.
+- I `bought` you a lot of new things.
+- The guy who `bought` you that ring.
+- They `bought` themselves more time.
+- I `bought` all of your penguin crap.
+- I ran out and `bought` flea collars.
+- I should have damn well `bought` it.
+- I `bought` him his first legal drink.
+- I `bought` you a four-six exacta box.
+- She `bought` the same story we did...
+- The boy you said my brother `bought`!
+- "you `bought` the wrong paper, annie.
+- I `bought` it especially, mrs. rieper.
+- The american people `bought` that war.
+- You wouldn't have `bought` this dress.
+- I `bought` the farm, didn't i, johnny ?
+- I don't know why she `bought` me a tie!
+- I `bought` him a trip to bermuda once...
+- I `bought` it for him, for his birthday.
+- It reminded me of you, so i `bought` it.
+- I went into a store, i `bought` a rifle.
+- People `bought` it, and it succeeded.
+- `Bought` the ranch, though, i grew up on.
+- Dad `bought` cemetery plots at oak ridge.
+- I `bought` 200, we've launched 12 so far.
+- This picture-- `bought` and p-p-paid for.
+                 

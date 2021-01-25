@@ -1,0 +1,107 @@
+---
+title: "crew in a sentence | crew example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "crew"
+---
+- As part of the `crew`.
+- Let's go, tree `crew`!
+- This is my `crew` now.
+- What about the `crew`?
+- All i need is a `crew`.
+- Could it be the `crew`?
+- 25 guards, and 12 `crew`.
+- The lives of your `crew`?
+- No, this is flight `crew`.
+- That's what the tv `crew`.
+- They got your `crew`, too?
+- Compliments to your `crew`.
+- Let me introduce my `crew`.
+- The `crew` is still asleep.
+- Are you passenger or `crew`?
+- I want to examine the `crew`.
+- That's what your `crew` said.
+- The `crew` is dead, dr. weir.
+- Besides, you have more `crew`.
+- Over there on the meat `crew`.
+- He wasn't deep into the `crew`.
+- Someone who killed your `crew`?
+- This `crew` looks after its own.
+- Because you are also tree `crew`.
+- Consider him part of your `crew`.
+- `Crew` wake-up process initiated.
+- For you, and your gallant `crew`.
+- If not for all the `crew` powder.
+- Killed the `crew` and passengers.
+- Maybe one of the original `crew`?
+- Something came up, og tree `crew`.
+- Your camera `crew` is standing by.
+- You still haven't seen any `crew`?
+- I should be eating with the `crew`.
+- Most of the `crew` is already dead.
+- Saavik where is the reliant `crew`?
+- Some `crew` you got ... go to them.
+- So where is the rest of the `crew`?
+- That `crew` jacket all these years.
+- Where is the `crew` of the reliant?
+- Can't we wake up some of the `crew`?
+- First -- have you found me a `crew`?
+- The passengers and `crew` evacuated.
+- Why don't we ask the eligius `crew`?
+- Give me a minute to inform my `crew`.
+- I believe you know my trainee `crew`.
+- All i ask is that you spare my `crew`.
+- The `crew` gift is just a t-shirt.
+- I'm here on behalf of the `crew`, sir.
+- You already killed the first `crew`...
+- You said you wouldn't kill the `crew`.
+- Elaine, you're a member of this `crew`.
+- So eddie, don't we need a sound `crew`?
+- Our protest `crew` is called bossy riot.
+- We don't even have a full `crew` aboard.
+- What about you, you got a `crew` already?
+- You think she's sailing without a `crew`?
+- I could use someone like you on my `crew`.
+- The `crew`'s in a secure hibernation room.
+- Our `crew` is made up of asgardian families.
+- We need to know what happened to the `crew`.
+- We're going to need a containment `crew`.
+- I don't want to go where the last `crew` went.
+- So the mothership `crew` could determine wait.
+- I've told the `crew` to contact their families.
+- Killing every member of the `crew` except shaw.
+- Since when are level 11s on maintenance `crew`?
+- "...to rescue the `crew` and salvage the ship."
+- Why should the rest of your `crew` have to die?
+- Yes... well, i hope the `crew` got back safely.
+- Cargo like this could make a `crew` think twice.
+- His whole `crew` is going to be looking for him.
+- That little blonde groupie with the film `crew`?
+- Give all the guys in your `crew` a piece of that?
+- Must have been very tempting to the whole `crew`.
+- Where is the film `crew` from the british museum?
+- ♪ a mighty problem is our todd ♪ this is my `crew`.
+- Mathesar, i need you to prepare pods for my `crew`.
+- The 'artificial lifeform' is a member of my `crew`.
+- You'll see for yourself... and so will your `crew`.
+- You think i should hang around more with the `crew`?
+- I think you know my `crew`... <u>we are klingons</u>!
+- Right now, i care only for the safety of this `crew`.
+- All we want back is the lowliest member of our `crew`.
+- `Crew` pod room access requires special authorization.
+- I don't know, but whatever it is, it's not the `crew`.
+- I would recommend a maintenance `crew` in this sector.
+- Jack gave hisself up for the sake of his loyal `crew`.
+- Sometimes kill the `crew`; other times - torture them.
+- The `crew` and i are in trouble and we need your help.
+- You only had one `crew` on the date rape piece, right?
+- I think at least some of the `crew` went a little nuts.
+- The `crew` couldn't survive unless they were in stasis.
+- Would you prefer it bit off the leg of a `crew` member?
+- If this is their ship's data banks, where is the `crew`?
+- I need a team of 4 from the bunker's maintenance `crew`.
+- Then there's you... because you killed one of my `crew`.
+- Because the `crew` thought he'd gone down with the plane.
+- Hired himself a `crew`, promised each man an equal share.
+- As you all know by now, we have an addition to our `crew`.
+                 

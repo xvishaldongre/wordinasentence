@@ -1,0 +1,55 @@
+---
+title: "wave in a sentence | wave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wave"
+---
+- To `wave` at your dad?
+- `Wave` that flag, hero.
+- It's the genesis `wave`!
+- Just you and the `wave`.
+- You `wave` to the press.
+- The `wave` of the future!
+- The first `wave` is small.
+- The first `wave` is small.
+- The `wave` was seven feet.
+- Can you isolate the `wave`?
+- `Wave` of the future, dude.
+- What a gnarly `wave`, dude.
+- I'm sorry, the first `wave`?
+- No brain `wave` activity at all.
+- Don't `wave` your hands about!
+- Are you going to ride that `wave`?
+- Have you never heard of new `wave`?
+- The second `wave` has not returned.
+- Caitlin's on the same `wave`-length?
+- We can launch a third `wave`, admiral.
+- Don't you think you should at least `wave`?
+- An emergency, a tidal `wave`, an earthquake.
+- You'll be on the beach with the first `wave`.
+- If they don't ruin him at cambridge -- `wave`!
+- `Wave` your little wand and he's one of us now.
+- So don't shake hands; just a friendly `wave` ah!
+- Darling, you must encourage the troops -- `wave`!
+- A `wave` of radioactive fire taller than any tree.
+- I'm feeling this `wave` of relief, now listen here.
+- As soon as the second `wave` returns, we will withdraw.
+- It was like a `wave` breaking over him, a `wave` of fire.
+- Remember that second `wave` that showed up in the cars?
+- It's like the death `wave` jumped over the entire valley.
+- A `wave` of radiation that'll kill everything in its path.
+- Johnnie walker also rode the `wave` of the british empire.
+- Johnnie walker rode the `wave` of the industrial revolution.
+- They always sat in the back, so they could `wave` to each other.
+- Bateman their early work was a little too new `wave` for my taste.
+- But -- but the xk 101 also works on a radio `wave` control system.
+- Everybody understands you `wave` the white flag, you wanna be friends.
+- When the baby is born, we'll go out in my back yard and `wave` to you.
+- The genesis `wave` started a life clock ticking for him and the planet.
+- You have to feel what the `wave` is doing, accept its energy, get in sync.
+- Or else it's night, or you're in the sun, or you're in the trough of a `wave`.
+- Captain, their call is being carried on an amplification `wave` of enormous power!
+- The gangbangers'll spread like a `wave` through this city and burn it to the ground.
+- We'll `wave` the fifty dollar application fee if you list a friend and put her address.
+- He can't just `wave` his little wand in the air and make a plausible defense materialize.
+                 

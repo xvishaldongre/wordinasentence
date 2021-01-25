@@ -1,0 +1,53 @@
+---
+title: "supper in a sentence | supper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "supper"
+---
+- It's time for `supper`.
+- No, for `supper`, late.
+- Come on back to `supper`.
+- It'll spoil our `supper`.
+- I'll have it for `supper`.
+- Makin' steaks for `supper`.
+- They just finished `supper`.
+- Will you have `supper` here?
+- Can i have my `supper` please?
+- I wanna have `supper` waitin'.
+- It's just `supper`, r.l., shit.
+- But it's breakfast for `supper`.
+- Make 'em sing for their `supper`.
+- I'll be home in time for `supper`!
+- I wouldn't mind a havin' `supper`.
+- Maybe ma'll have pork for `supper`.
+- We're throwing him a last `supper`.
+- Just sitting down to `supper`, jake.
+- You fainted last night after `supper`.
+- You've missed `supper`, but no matter.
+- It must be the most marvelous `supper`.
+- Figure we'll go have `supper` someplace.
+- You've got time before the `supper` show.
+- You're going to have to earn your `supper`.
+- If you hurry, you'll make the `supper` show.
+- I didn't want to spoil our `supper`... uh-oh.
+- I see bartha gave you cold tongue for `supper`.
+- The girl's out and i was bringing mom's `supper`.
+- I'm invited to have a late `supper` at your house.
+- `Supper` - yacht - after the show - i'll tell her.
+- Rose is a lot better, i just gave her her `supper`.
+- The chalice used by christ during the last `supper`.
+- She had an awful hunger... so i made her some `supper`.
+- But as long as you've made us `supper`, we may as well eat it.
+- The primary goal is to keep ourselves from becoming their `supper`.
+- After you change, if you're not busy elsewhere, we can have `supper`.
+- `Supper` getting cold, cos you two are out there heads under hoods ...
+- He's somewhere... yeah, having `supper` with the mrs. she's over there.
+- Isn't there something we can do about `supper` -- or making the beds?
+- Then i fixed `supper` for my husband and waited until -- i don't remember.
+- But we don't want to get him too close -- we'll have roast pork for `supper`.
+- She'll take a light `supper` alone in her private drawing room and retire early.
+- What am i supposed to do about `supper` with you traipsin' around with that fag?
+- I'd like her to have a little `supper` with me on my yacht after the show tonight.
+- Vaughan wants to have a little `supper` over at his house and we could invite her.
+- When the `supper` had ended, he took the cup, again he gave you thanks and praise.
+                 

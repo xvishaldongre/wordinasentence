@@ -1,0 +1,53 @@
+---
+title: "alert in a sentence | alert example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "alert"
+---
+- I want them on `alert`.
+- Red `alert`, mr. scott.
+- : solar flare `alert`.
+- Shall i `alert` dr. mccoy?
+- All systems are on `alert`.
+- All disciples, stay `alert`.
+- Repeat, a bright boy `alert`.
+- There is a perimeter `alert`.
+- `Alert` seventy-fifth rangers.
+- I'll `alert` the bong monkeys.
+- This is a solar flare `alert`.
+- `Alert` starfleet headquarters.
+- ...but stay frosty and `alert`.
+- Then we will simply `alert` him.
+- I am trying to `alert` you, here.
+- Should we `alert` the sith lords?
+- Whoa, whoa, whoa, spoiler `alert`.
+- I want the entire staff on `alert`.
+- I will `alert` the chinese delegation.
+- A fugitive `alert` for a murder suspect.
+- We have to immediately `alert` that plane.
+- Got the brothers here in full `alert` mode.
+- <cardiac red `alert`> we're stopping the heart.
+- I get an `alert` whenever anyone's getting rich.
+- I am aware of what a condition red `alert` implies.
+- Chaz, i've got something here on my security `alert`.
+- You triggered a biohazard `alert` to keep people away.
+- Guards are double-strengthen and on `alert` station-wide.
+- `Alert` squad five, but hold them until we know what it is.
+- As soon as we get somethin' we'll let you `alert` the media.
+- They're no way to predict who's susceptible, so stay `alert`.
+- Roan: trust me, right now your friend titus radiation `alert`.
+- You have to be `alert`, and the <u>public</u> has to be `alert`.
+- It was apparently directed to their wing on air- borne `alert`.
+- We got a major creep `alert` and we're just going down the list.
+- I know we're all in strung out shape but stay frosty and `alert`.
+- Tower, `alert` air traffic, romeo tango zulu is now air force one.
+- It allows the user to be fully `alert` and mobile while he's dreaming.
+- Let's go to arcade and celebrate... your `alert` successor... logan-6.
+- Keeping my body fit, keeping my mind `alert`, keeping my landlord appeased.
+- But castro's on `alert` and we're flying attack planes over their sites, on the deck.
+- There are major rail disruptions in the south, two airborne divisions are on `alert`.
+- It also says here -- that you are `alert`, astute, and quite imaginative -- swap them?
+- I forgot what real coffee tastes like... then all we can do is stay mobile and `alert`.
+- But with this movie and two difficult stars -- i wanted to be `alert` for your visit today.
+- `Alert` transporter room -- enterprise to reliant: you are ordered to surrender your vessel.
+                 

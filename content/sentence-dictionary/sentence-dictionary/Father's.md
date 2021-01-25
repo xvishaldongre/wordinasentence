@@ -1,0 +1,107 @@
+---
+title: "Father's in a sentence | Father's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Father's"
+---
+- `Father's` not strong.
+- It was her `father's`.
+- They're my `father's`.
+- Your `father's` badge?
+- My `father's` dead too.
+- This was my `father's`.
+- His `father's` dead.
+- For your `father's` sake?
+- Maybe even my `father's`.
+- It was my `father's` idea.
+- My `father's` still alive.
+- `Father's` looking for you.
+- His `father's` dead, right?
+- I'm your `father's` friend.
+- My `father's` the preacher.
+- Yeah, it's your `father's`.
+- Your `father's` right, cal.
+- Then your `father's` a wimp.
+- ♪ what's my `father's` name?
+- Your `father's` got no ears!
+- I can try my `father's` safe.
+- Lauren's `father's` involved.
+- What is your `father's` name?
+- He's got his `father's` looks.
+- My `father's` in the hospital.
+- Old friend of your `father's`.
+- What was your `father's` name?
+- You're `father's` on the holo.
+- _ i hear his `father's` loaded.
+- You have your `father's` style.
+- He goes to my `father's` church.
+- He said that `father's` in town.
+- His `father's` the manager, sir.
+- You heard my `father's` message.
+- Gwendolyn's `father's` buying it.
+- He says that his `father's` hurt.
+- He was my `father's` best friend!
+- His `father's` name was franklin.
+- My `father's` .600 nitro express.
+- My `father's` family was wealthy.
+- This was my `father's` old study.
+- Go against your `father's` wishes?
+- I was a friend of your `father's`.
+- I was a friend of your `father's`.
+- My `father's` watch, it's working.
+- My `father's` watch, it's working.
+- That's your `father's` diary, ann.
+- A `father's` words you never heard?
+- Darling, your `father's` all right.
+- My `father's` sick, you understand?
+- I simply called my `father's` paper.
+- No one can take my `father's` place.
+- This was my wife's `father's` place.
+- Your `father's` alive and all right.
+- Your `father's` been asking for you.
+- Your `father's` executive secretary.
+- Your `father's` injuries were fatal.
+- Another stupid idea of my `father's`!
+- `Father's` plan is finally in motion.
+- I'm an old friend of your `father's`.
+- Including your `father's`, i believe.
+- Wolfi, i think your `father's` tired.
+- Your `father's` condition is serious.
+- Her `father's` sheriff of taos county.
+- Jake, this is your `father's` bedroom.
+- Let's get her over to your `father's`.
+- My `father's` loan papers are missing.
+- Your `father's` rules no longer apply.
+- No more attempts on my `father's` life.
+- By the way, how is your `father's` side?
+- It's my `father's` birthday--that's all.
+- Long ago -- before my `father's` father.
+- 'my `father's` house has many mansions.'
+- Her `father's` showing signs of improving.
+- Like i said, she's not my `father's` case.
+- Ok. let's get her over to your `father's`.
+- Townsend, he had some of `father's` books.
+- My step-`father's` going to tear you apart.
+- Daya's `father's` connected to this too?
+- I blamed you because my `father's` dead ooh.
+- I can't keep spending your `father's` money.
+- Just put the rest on my `father's` day card.
+- My room is right above my `father's` office.
+- Not to his `father's`; i spoke with his man.
+- We were all like that on my `father's` side.
+- Your `father's` inside, doing some business.
+- Crunch--my `father's`--you going to kill him?
+- Your mother's dead but your `father's` alive.
+- But your `father's` thinking is old fashioned.
+- I've sewn my `father's` wounds more than once.
+- Your brother's dead...your `father's` dead....
+- Your `father's` men are still looking for you.
+- Your `father's` the new headmaster at oakwood.
+- After your `father's` death, you were orphaned.
+- Don't invite danger into your `father's` house.
+- Kay, my `father's` way of doing things is over.
+- My `father's` diary is on his desk like always.
+- My `father's` put me in touch with an attorney.
+- You ever come to your `father's` grave anymore?
+- After your `father's` murder, you were orphaned.
+                 

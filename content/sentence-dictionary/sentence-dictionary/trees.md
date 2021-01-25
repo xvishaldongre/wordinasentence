@@ -1,0 +1,107 @@
+---
+title: "trees in a sentence | trees example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "trees"
+---
+- Even chop the `trees`.
+- Grass, crops, `trees`.
+- The `trees` are moving.
+- The `trees` are taller.
+- Use the fallen `trees`.
+- What about the `trees`?
+- Stay out of the `trees`.
+- The tall `trees`... where?
+- Archers, watch the `trees`.
+- They get goofy over `trees`.
+- They're just goddamn `trees`.
+- ere are `trees` everywhere.
+- The grounders use the `trees`.
+- They're shrubs, small `trees`.
+- You need `trees` for an avenue.
+- Like the burls on maple `trees`.
+- The `trees` are getting thinner.
+- Um, that's not how `trees` work.
+- There's grounders in the `trees`.
+- He's studying us from the `trees`.
+- Join me in sparaying some `trees`.
+- The rest of you, into the `trees`!
+- To the tvelfth `trees` on pandora.
+- "`trees` and plants give us shade.
+- What are the `trees` saying today?
+- Hell, i like the `trees`, you know?
+- In the shadow by those two `trees`.
+- I saw the grounders in the `trees`.
+- The `trees` shade them from the sun.
+- Dead, consumed by the `trees` by now.
+- There's `trees` in the forest, limbs.
+- You gotta listen to the `trees`, man.
+- Any more `trees` i need to know about?
+- See them two big `trees` across there?
+- I'd show her my pet `trees` and things.
+- Shady `trees`, i will not kneel i know.
+- Do you not hear the wind in the `trees`?
+- They can always grab oranges off `trees`.
+- Why are you looking at the `trees`, baby?
+- Ford, guys like you don't grow on `trees`.
+- Mountains, prairie land, `trees`, streams!
+- But outside they've got `trees` around them.
+- I mean we have lots of, um, `trees` and such.
+- No more damn `trees`, just pale, blue water.
+- By molecular vibrations in the air and `trees`.
+- My arers are in the `trees` no more screens.
+- The pebbles forgive me, the `trees` forgive me.
+- We could have pink lawns and blue `trees` ... oh.
+- I don't know about you but i see a lot of `trees`.
+- On the other side of the `trees`, there's a beach.
+- Those `trees` were very young when i first arrived.
+- To the fourth connections to the `trees` around it.
+- We'll clear the `trees` and plant within the month.
+- Down there, through those `trees`, follow the river.
+- I read that `trees` are the cause of global warming.
+- It may be just a cricket or a critter in the `trees`.
+- People can live with it, but it gives `trees` asthma.
+- They're used to people in `trees`, not in a clearing.
+- We'll find somewhere where the `trees` aren't so bad.
+- You know why those guys just get cats out of `trees`?
+- If you need a motor-car, you pluck it from the `trees`.
+- Lying around in the sun - palm `trees` - frying fish...
+- They took elly kedward out to the same kind of `trees`.
+- You would stare at the tops of the `trees` so intently.
+- Let's hope the same goes for the `trees` on this planet.
+- You can go up to one of those `trees` and peel the bark.
+- Of course, the plants enrich the soil around the `trees`.
+- We've got some food on the `trees`, thank the lord again.
+- We need to take cover in the `trees` before they get here.
+- There's somebody in the house, jack... stay in the `trees`.
+- But since i don't know what the hell use the fallen `trees`.
+- Dug out of the ground to preserve the `trees`, [whispers] ok.
+- High-frequency tone generators don't grow on `trees`, clarke.
+- It's clean and airy and quiet -- there are `trees` and flowers.
+- But they teach us that we lived in caves and swung from `trees`.
+- Electro chemical communication between the roots of the `trees`.
+- The little `trees`, the little fellas that the storm didn't see.
+- Yeah, i'll miss the `trees` in central park turning in the fall.
+- Tell 'em half goes to sally two `trees` if i ain't back in a week.
+- Those `trees` were sacred to omaticaya in a way you can't imagine.
+- Was dying to be in the krusty business, it's given off by `trees`.
+- But he's dead now because of you, not watching the `trees` with you.
+- With a view of `trees`, he said, or even water... can we swing that?
+- You'll cook fresh fish and we'll make love under the coconut `trees`.
+- The islands are covered with `trees`, filled with blossoms and fruits.
+- The `trees` are flak--antiaircraft fire from those geeks on the ground.
+- Goddamn writers -- all they do is use up `trees` and ruin people's eyes.
+- Maybe we better stay in under the `trees` till dark -- we got his yater.
+- Driving their cars into `trees`... puking on the sidewalk... stupid shit!
+- Fresh air, `trees`... just like you were upset when we took your village.
+- I like the ways the `trees` are, all the different ways the `trees` are too.
+- It's got `trees` and bushes here -- outside nothing but cement and asphalt.
+- We better hope the `trees` get her ♪ i lie awake and watch it all ♪ so do we.
+- You should look at our contretemps this way: we've got shade `trees`, thank the lord.
+- My political mentor wouldn't, but i wish she didn't have to kill all those `trees`.
+- But even though they end up crooked, they're still `trees`, just like the straight ones.
+- I see `trees` all around me, the ark has kept what's left of the human race alive, mike.
+- When that happens, the `trees` release a toxin that... you say the dam gives them power.
+- Of all the people who have been born... and have died... while the `trees` went on living.
+- That the oozing sap from pine `trees` on earth made it longer than most in this crazy biz.
+                 

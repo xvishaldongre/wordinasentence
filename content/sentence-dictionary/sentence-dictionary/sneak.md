@@ -1,0 +1,66 @@
+---
+title: "sneak in a sentence | sneak example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sneak"
+---
+- We'll have to `sneak` in.
+- Bastard, `sneak`, quitter.
+- Fuck that, i'll `sneak` in.
+- `Sneak` out in the morning.
+- It's an enemy `sneak` attack.
+- I want to `sneak` in tonight.
+- Just don't `sneak` up on 'em.
+- `Sneak` up behind me like that.
+- How i `sneak` away for cap-naps?
+- I hope you can `sneak` out okay.
+- I need you to `sneak` out again.
+- `Sneak` in and hide and observe.
+- I always `sneak` in a second one.
+- I came up here to `sneak` a smoke.
+- How'd you `sneak` up like that?
+- Hey, can you `sneak` me on the lot?
+- You know you don't have to `sneak`.
+- `Sneak` him back inside the beltway.
+- Don't `sneak` up on people like that!
+- Old jerko found a way to `sneak` out.
+- Don�t ever `sneak` up on me like that!
+- C'mon, we can always `sneak` a big mac.
+- Maybe we could find a way to `sneak` out.
+- I had to `sneak` by the guards to get here.
+- I had no right to `sneak` in on you like that.
+- You said do i let girls `sneak` into my house.
+- We caught him trying to `sneak` back into camp.
+- The man with the burns, i need to `sneak` a smoke.
+- Ross it's got to be someplace you can `sneak` into.
+- Then why did they try and `sneak` in the back door?
+- He makes me `sneak` around to see my own friends!
+- `Sneak` out the other way, and go back to your theatre.
+- How could you `sneak` around in the bushes wearing that?
+- We'll sit in back and `sneak` away as soon as it's over.
+- Then we seen him... ...`sneak` in and we decide to come up.
+- Mcconnell used to `sneak` in my dorm room drunk every month.
+- I used to `sneak` in their yard and steal their strawberries.
+- Maybe i can try and `sneak` away some time tomorrow morning...
+- I can't go back and i can't `sneak`, feel back enough as it is.
+- We'll `sneak` up and steal that book right out from under them.
+- Maybe we can `sneak` out a window -- i was <u>there</u>, dennis!
+- This is where the emphysema patients come to `sneak` cigarettes.
+- I'm not covering for you when you `sneak` out to call dominos.
+- He's with a bunch of guys who want to `sneak` into the city tonight.
+- You mis'able little `sneak` thief... you got light fingers, everett.
+- But i might be able to `sneak` into the office if they're not around.
+- If you had what you wanted at home why did you `sneak` into their yard?
+- Jack, i'm as conniving as they come, but a `sneak` attack is just wrong.
+- Do you just `sneak` in real fast or hide out till the store closes or what?
+- I just thought, you know, we'd `sneak` a big mac on mommy, like we used to.
+- I hear he's staying at this house, so i `sneak` in, wait for him to come home.
+- You played the `sneak` behind my back -- made up all sorts of lies against me!
+- Let's you and me `sneak` out all by ourselves� look out for my lipstick, stewart.
+- Looks like you're working awful hard i have to `sneak` my headshot onto the wall.
+- This is the home of the `sneak` attack, the stab in the back, the -- unbelievable.
+- So you thought you could `sneak` in my window and we would have a little bump-bump.
+- Cause i thought glen was gonna `sneak` out to see your lunatic daughter, that's why.
+- Do you actually think i would `sneak` in here and read your book without asking you?
+- I `sneak` up behind him, something exciting's well, at least let me get you well, they do.
+                 

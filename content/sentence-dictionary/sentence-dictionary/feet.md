@@ -1,0 +1,107 @@
+---
+title: "feet in a sentence | feet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feet"
+---
+- Five, six `feet` high.
+- He's four `feet` tall.
+- I'm three `feet` away.
+- Maybe 50 `feet` or so.
+- Not from forty `feet`.
+- On your `feet`, fella.
+- On your `feet` maggot!
+- You've got big `feet`.
+- He has educated `feet`.
+- On your `feet`, maggot!
+- On your `feet`, murphy.
+- On your `feet`, people!
+- She's four `feet` tall.
+- Get on your `feet`, boy.
+- I have two right `feet`.
+- My `feet` are throbbing!
+- They wait at 180 `feet`.
+- Thirty `feet`, at least.
+- You getting cold `feet`?
+- Your `feet` are on fire.
+- 100 `feet` straight down.
+- About 60 `feet`, admiral.
+- ...at least seven `feet`.
+- Get them on their `feet`.
+- Man: pick up your `feet`.
+- She landed on her `feet`.
+- The seat's got my `feet`!
+- 3,000 `feet`, we gotta go!
+- Big `feet` -- large shoes.
+- I'll be back on my `feet`.
+- I said get on your `feet`!
+- I said get on your `feet`.
+- Just over six `feet` tall.
+- That's twenty `feet` high.
+- The wave was seven `feet`.
+- You've got cold `feet`.
+- `Feet` from the front door.
+- I always land on my `feet`.
+- Try to land on your `feet`.
+- You know she has no `feet`!
+- Hey look at this, no `feet`!
+- How did she lose her `feet`?
+- I'm at your `feet`, darlin'.
+- I'm giving him a few `feet`.
+- I'm very light of my `feet`.
+- It's about 4000 `feet` high.
+- Length, 22 `feet`, 8 inches.
+- Not my 36-`feet` chandelier!
+- Not on your `feet` too much?
+- Twenty, maybe thirty `feet`.
+- Watch your hands and `feet`.
+- You were moving your `feet`.
+- Eight and a half `feet` wide!
+- It's hard on the `feet`, huh?
+- Keep their `feet` covered up.
+- Eighteen thousand `feet`, sir.
+- I'm guessing nine `feet` long.
+- Keep both `feet` on the floor.
+- One hundred and twenty `feet`.
+- ♪ on his journey of 40 `feet`.
+- Said i had very pretty `feet`.
+- Secure their hands and `feet`.
+- See, i can think on my `feet`.
+- This time get your `feet` set.
+- A hundred and sixty-two `feet`.
+- Who's `feet` is she on now?
+- Her hands and `feet` were tied.
+- He's white and six `feet` tall.
+- Look ten `feet` into the water.
+- Nine hundred `feet` to surface.
+- Shit, he's puking on my `feet`!
+- Shooting at maybe eight `feet`.
+- That was at least seven `feet`.
+- The building's 600 `feet` high.
+- Twenty-one `feet`, four inches.
+- You're fifty `feet` in the air!
+- I got `feet` of clay too, buddy.
+- It's just cold `feet`, isn't it?
+- Nine `feet` -- ten -- that's it.
+- Plant your `feet` one at a time.
+- Well, you p-puked on his `feet`.
+- All right, get him on his `feet`.
+- And fall 15 `feet` to the street.
+- I'd say about thirty `feet`, sir.
+- Look at "hell ten `feet` square".
+- Plant your `feet`, one at a time.
+- Three thousand `feet` of granite.
+- We should have padded her `feet`.
+- You have to stand on your `feet`.
+- You�re sweeping me off my `feet`.
+- �� as long as my `feet` held out.
+- ...my `feet` are hurtin�... hello!
+- Ohhhhbaby, i am dead on my `feet`.
+- Quake knocked you off your `feet`.
+- That roof is over ten `feet` high.
+- This is...it's about fifty `feet`.
+- A man with an empire at his `feet`.
+- Because he's not forty `feet` tall.
+- ♪ i fall below my `feet` ♪ i'm not.
+- When he should be six `feet` under?
+                 

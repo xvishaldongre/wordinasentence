@@ -1,0 +1,69 @@
+---
+title: "agency in a sentence | agency example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "agency"
+---
+- I run a temp `agency`.
+- They're `agency`, too.
+- The `agency` fucked him.
+- Your `agency` is secure.
+- Through a rental `agency`.
+- But the `agency` set it up.
+- There's the `agency` issue.
+- One's for a modeling `agency`.
+- Only the `agency` of servants.
+- That's how the `agency` works.
+- The `agency` plays for keeps...
+- Why did you leave the `agency`?
+- It was implanted by the `agency`.
+- Man, you never leave the `agency`.
+- Inter- `agency` cooperation and all?
+- Surrounded by the `agency`'s finest.
+- You two from the poliakoff `agency`?
+- But the `agency` always runs the show.
+- Or any other law enforcement `agency`?
+- Central intelligence `agency` -- c.i.a.
+- I'm with the national security `agency`.
+- Shaw, oswald, the cubans - all `agency`.
+- How long have you worked for the `agency`?
+- There are `agency` regulations about this.
+- You went from high school to the `agency`?
+- Then i entered the `agency` training program.
+- We were buddies in the `agency` back on mars.
+- Who'd you call - the william morris `agency`?
+- Get me the william morris `agency` in new york.
+- Ya can't start an ad `agency` on fifty dollars!
+- You've heard of the national security `agency`?
+- Signed: lovington detective `agency`, charleston.
+- So the penetration could be from any one `agency`.
+- To be more specific, he was wanted by this `agency`.
+- You'd never believe half the shit the `agency` does.
+- We just got the fire and ice account at the `agency`.
+- All the girls in the `agency` get a grand a night.
+- I've already been warned by the `agency`, mr. whoever.
+- Send a wireless at once, "lovington detective `agency`.
+- See, we're not even sure which `agency` harry works for.
+- Why shouldn't i work for the national security `agency`?
+- You were the head of the national intelligence `agency`!
+- The same way everyone does; the government, the `agency`.
+- They're putting together an `agency` oversight committee.
+- I'm with an `agency` that specializes in fuckin magicians.
+- They're the finest detective `agency` in the country, sir.
+- I've given thirty years and two marriages to this `agency`.
+- ...central... intelligence... `agency`... where in government?
+- How do you think the `agency` gets people to do their bullshit?
+- What the federal emergency management `agency`'s real power is?
+- I represent the environmental protection `agency`, third district.
+- She's got some model `agency` guy coming to dinner tomorrow night.
+- In the meantime, your `agency` will continue at current levels of funding.
+- People were scared, the `agency` was respected, and i got laid every night.
+- A couple of fuckin' hick mountain boys beat the man no law `agency` ever could.
+- Last week an `agency` field officer went to make a buy from a russian national.
+- Your department contacted our `agency` regarding information on sarah williams.
+- So she stays on ice with everyone else i mean, this is a state government `agency`.
+- Mr. shaw, have you ever been a contract agent with the central intelligence `agency`?
+- You'll have to wait until we reach the `agency`...fall in behind the column... where?
+- We believe this could have only happened with help from someone inside the `agency`...
+- That he knew an `agency` in california that, on his recommendation, would handle me.
+                 

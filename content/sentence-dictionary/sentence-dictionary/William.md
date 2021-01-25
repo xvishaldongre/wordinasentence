@@ -1,0 +1,87 @@
+---
+title: "William in a sentence | William example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "William"
+---
+- I'm not 10, `william`.
+- `William` munny, yeah.
+- It's `william` thacker.
+- So, `william` randolph.
+- `William` f. kinderman.
+- ...fort `william` henry.
+- Yes... `william` harcourt?
+- Dr. `william` e. b. dubois.
+- You're not `william` starks.
+- Jackie, i'm `william` starks.
+- The name's `william` whacker.
+- You can't be `william` starks.
+- That's just a dream, `william`!
+- What is it, `william` randolph?
+- My name is major `william` cage.
+- Take care of `william` and susan.
+- You're going to be ok, `william`.
+- Scotland is `william` wallace.
+- I'm never going to be "`william`".
+- Uh, `william`... uh... hendershot.
+- The bruce is not coming, `william`.
+- `William`, you're not making sense.
+- I'm sure `william` has some friends.
+- You have nothing to fear, `william`.
+- You're one of `william`'s kids, huh?
+- Cut to the chase, `william` randolph.
+- Think what the play means, `william`.
+- `William`, i'd like you to meet david.
+- There, there... shhh... poor `william`!
+- I tried to warn you, `william` randolph.
+- You are `william` taupin, aren't you?
+- `William` - he asked me to meet him here.
+- `William` has just turned down anna scott.
+- `William` would you... hey, i need a room.
+- At fort `william` henry under colonel munro.
+- So, you are `william`'s wild young neighbor?
+- That's the nature of all progress, `william`.
+- Then you're assigned to fort `william` henry?
+- Who'd you call - the `william` morris agency?
+- `William` taupin seems to have left his mark.
+- A vehicle registered to a `william` s. hudley.
+- Get me the `william` morris agency in new york.
+- You may have known my father, `william` starks.
+- We also need a fucking money counter, `william`!
+- "paasch, james" "pieter, thomas" "pos, `william`."
+- Major `william` cage, united states military media.
+- They found `william` starks' body dead in the snow.
+- I have come to beg for the life of `william` wallace.
+- Margaret, take `william` and susan to the river shed.
+- Who's the guy with `william` blake and the tigers, eh?
+- `William`, that is just another facet of my delusions.
+- You helped set up my partner, sergeant `william` wade.
+- Probably one of the few he knew him as `william` turner.
+- Put your eyeballs back in your head, `william` randolph.
+- There was a time when `william` parrish liked the truth.
+- Yes, you both think `william` bloom is a very smart man.
+- `William` starks is dead... [beat] i've been to his grave.
+- `William`, we've been studying hard, i really know my stuff.
+- I think, sir `william` cosgrove, you have had too much drink.
+- Then why don'tcha get `william` f. buckley to kill the spider?
+- Yeah, i got a urgent message for a customer named `william` jones.
+- Look, if `william` morris doesn't come through - hello, mr. morris?
+- So tell my lady, `william` shakespeare waits for her in the garden!
+- Tell `william` parrish how you betrayed him at a secret board meeting.
+- You're the one killed `william` harbey an' robbed the train over...
+- Gentlemen who can ride and shoot colonel durnford... `william` vereker.
+- I made sir `william` cosgrove's acquaintance as usual at the play- table.
+- Or should i say, 'brother'; `william` claims you as a member of his family.
+- `William`, i can't indulge these delusions, even when you're in this state.
+- Just a little, when we were looking up information about `william`'s father.
+- When you break off your engagement to martha curtis, i'll divorce `william`!
+- `William` says now you have requested a british commission, why not colonial?
+- Answer me only this: are you the author of the plays of `william` shakespeare?
+- It could be contaminated... and this is mission specialist dr. `william` weir.
+- You're making a big -- edgar `william` jacobi, aka `william` edgar bright, a.k.a.
+- Sir, doesn't this "`william` rubin" strike you as - i don't know - kind of vague?
+- That is `william` blake's 'the great red dragon and the woman clothed with the sun.'
+- Sir `william` cosgrove, with his complication of ills, was dying before us by inches.
+- It's great of you to let `william` and susan stay at the house until he gets on his feet.
+- You gonna call over there and say you have a very urgent message for mr. `william` jones.
+                 

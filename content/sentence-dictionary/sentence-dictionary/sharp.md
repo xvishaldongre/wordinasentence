@@ -1,0 +1,58 @@
+---
+title: "sharp in a sentence | sharp example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sharp"
+---
+- Blade's razor `sharp`.
+- Keep a `sharp` eye out.
+- They must stay `sharp`.
+- ...adrian ain't `sharp`.
+- That's a `sharp` jacket.
+- The claws are `sharp`...
+- This guy is very `sharp`.
+- Eleven forty-two, `sharp`.
+- She's `sharp` as a marble.
+- I don't know - a `sharp` pain.
+- I met a man with `sharp` nails.
+- No... `sharp` -- you look great.
+- Ah, you're a `sharp` young fellow.
+- It's as `sharp` as it's gonna get.
+- Oh, you're `sharp` as a tack, elden.
+- You're just `sharp` as a razor blade.
+- There is a catch, ♪ go ♪ eyes `sharp`.
+- Sometimes i'm so `sharp` it's frightening.
+- There's nothing `sharp` in there, is there?
+- I dunno... you have that `sharp`, useless look.
+- More metal... `sharp` edge... don't touch that.
+- I want it to be `sharp` and hard, with a human face.
+- M-flat, j-`sharp`, v, cursive g, frank, frank natural.
+- No... and you're supposed to be sensitive and `sharp`.
+- Won't attack us, that they'll respect i need something `sharp`.
+- You be at this personnel office, friday, three o'clock `sharp`.
+- Get yourself a good `sharp` stake and drive it through his heart.
+- But it also casts into `sharp` relief that which i have not achieved.
+- Besides, i've got to be on my corner at eight `sharp` tomorrow morning.
+- It's tom `sharp` and two other fellers -- oh, glory -- where's my pants?
+- Double-tough and `sharp` as they come, and you get what you want or else.
+- The blade is at a `sharp` upward angle, uh... and are already desecrating.
+- Unless maybe you want to find out just how `sharp` these nails really are.
+- For two-hundred i got a nice rubber band and a real `sharp` nail in back...
+- God bless you and, as i like to say, so, mike, you seem like a `sharp` tack.
+- Well, it's got huge ... very `sharp` ... it can jump a... look at the bones.
+- No weirder than a `sharp`, young, good- looking woman working in a lumberyard.
+- But one can still keep a sword `sharp` riding out in the name of the king's law.
+- Miss simpson, was that an f `sharp` if there is any fluid leaking from the wound.
+- Checkout time is twelve `sharp`, only you can forget that on account you're a rez.
+- How fucking razor `sharp` and cutting edge and ahead of it's time this concept is?
+- I'll be pushed for time so meet me in the hotel lobby at seven forty-five `sharp`.
+- `Sharp`, shiny teeth -- and they creep up to your bed -- tell me about them, thea.
+- There's just so much pushing i can take and i think... sick old women are `sharp`.
+- There's a saying- so-and-so was better than a poke in the eye with a `sharp` stick.
+- Cute little rascal until it flicked out that red tongue, and those two `sharp` fangs.
+- I miss the days when circuses had elephants i just need something `sharp` and sterile.
+- I'm no expert on the subject, but i've read some pretty `sharp` ideas the big boys have.
+- Every metro captain agrees that he's their top `sharp`-shooter and most likely to succeed.
+- I can't live like you do -- all your machines and -- cold metal and `sharp` corners -- no.
+- A razor `sharp` litigator, a genuine leader, gifted at bringing out the very best in others.
+                 

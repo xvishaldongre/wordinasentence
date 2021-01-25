@@ -1,0 +1,107 @@
+---
+title: "director in a sentence | director example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "director"
+---
+- Oh yes, the `director`.
+- The mission `director`.
+- He's - he's a `director`.
+- He's a woman's `director`.
+- I'm marge, the `director`.
+- It's about the `director`.
+- Roman bridger, `director`.
+- <u>i'm</u> the `director`!
+- Certainly, herr `director`!
+- Certainly, herr `director`.
+- My first day as `director`.
+- With that moron `director`.
+- Because i am the `director`.
+- General `director` preysing!
+- The `director` of our opera.
+- Deputy `director` of the cia.
+- `Director` of the trade mart?
+- Mac's a fantastic `director`.
+- This is our choir `director`.
+- You're a <u>`director`</u>...
+- How shall one say, `director`?
+- We got a new `director` today.
+- I'm a `director` sid, i direct.
+- You think you are a `director`?
+- Deputy `director`, get out, sir.
+- Only by a `director` of the firm.
+- How often do you test, `director`?
+- They think i offed the `director`.
+- No, i was merely a `director` here.
+- Some museum `director` disappeared.
+- The `director` of "glen or glenda."
+- What are you doing, herr `director`?
+- Coach, athletic `director` somewhere.
+- I want a hot, young white `director`.
+- Mac's a pretty great `director`, joe.
+- I'm gonna have to call the `director`.
+- I'm gonna have to call the `director`.
+- I'm a `director`-actor-writer-producer.
+- The `director`�s supposed to be famous.
+- Oh, i wish i felt like a great `director`.
+- Who's the deputy `director` of the f.b.i.?
+- Can you refresh my memory, herr `director`?
+- And listened to the `director` commentaries.
+- Hell hath no fury like a `director` scorned.
+- I - i don't think you have, herr `director`.
+- Deputy `director` koessler doesn't want zero.
+- In my house you're a guest, not a `director`-!
+- He's heard you're looking for a new `director`.
+- The best commercial `director` in the business.
+- The `director` was not... ...universally loved.
+- We found his spit in the dead `director`'s eye.
+- Deputy `director` koessler was "out to get him."
+- He's a deputy assistant `director` of the f.b.i.
+- I don't think it was really decided, `director`.
+- Is he your favourite italian film `director`?
+- He had his eye on the `director`'s job, even then.
+- Hello, i am, uh, film `director` guillermo del toro.
+- My brother's a `director` of that bank, mr. mccoy...
+- This is pastor collins, `director` of civil defense.
+- How would you like to be assistant to the `director`?
+- I was general manager and `director` of new products.
+- Then they all think <u>they're</u> a `director`...
+- I was a `director` of corporate development at pfizer.
+- Roger de bris is the worst `director` that ever lived.
+- The deputy `director` here, he believes in tough love.
+- Your `director` and your co-star of your current movie.
+- I've been trying to speak with deputy `director` koessler.
+- No `director`, no production company wanted to take it on.
+- You this `director` was doing a film here, burke dennings?
+- You've been so busy with that `director`, i never see you.
+- Look, i'll even let you choose your own musical `director`.
+- Uh, there is nothing a `director` can do on set that's wrong.
+- Besides, i think the `director` of the museum is expecting you.
+- Why did you leave that stuff in about you being the `director`?
+- You've helped me become what every `director` should be: there.
+- I'll probably be the `director` of several worthwhile charities.
+- And a first-time `director`, but show business is based on risks.
+- You're going to be a remarkable `director`, a brilliant `director`.
+- The `director` has actually ripped out a huge section of my music.
+- Very well; since my appointment he's been made interim `director`.
+- I have the `director`'s word, there will be no action against them.
+- Dear mr. largo, i am the musical `director` uh, well, it's just okay.
+- I think you both know my `director` of genetic research, susan storm.
+- A black `director`, y'know what he's gonna do given the subject matter?
+- Assistant deputy `director` richard low is en route with another agent.
+- Jack crawford answers to the `director`, and the `director` answers to me.
+- They cut away the guts and brought in another `director` to add slapstick.
+- So, start talking or my first work as a `director` will be your death scene.
+- You criticized the deputy `director` to his face and you still have a badge?
+- The casting `director`, she starts crying... "big brother", "little brother"?
+- Don't worry about me, mr. general `director` pryesing -- worry about yourself.
+- I mean, it's probably a honeymoon couple or a company `director` or something.
+- I've just learned something that might be of interest to you, herr `director`.
+- I'm so excited to see this film - dustoffvarnya is such a brilliant `director`!
+- Another day in paradise with julie-your-tour-`director`...miss psychotic episode.
+- The writer writes, the `director` directs, and the actress...' i'm sorry, frances.
+- Why are <u>you</u> the most qualified `director` for the christine jorgensen story?
+- There's nothing i enjoy more than watching a `director` ok. we've got to keep moving.
+- Her room -- oh -- i see, mr. preysing -- i understand, mr. general `director` preysing.
+- To doctor marcus, the civilian `director` of the experiments on space laboratory regula i.
+                 

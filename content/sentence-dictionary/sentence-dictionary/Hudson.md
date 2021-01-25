@@ -1,0 +1,68 @@
+---
+title: "Hudson in a sentence | Hudson example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Hudson"
+---
+- `Hudson` may be right.
+- `Hudson`, run a bypass.
+- Knock it off, `hudson`.
+- `Hudson`: stopping them.
+- Hicks: `hudson`, look out!
+- `Hudson`: four more weeks.
+- `Hudson`, give us a break!
+- `Hudson`, give us a break.
+- It's your friend `hudson`.
+- `Hudson`: five meters, man.
+- `Hudson`: it's blocked, man.
+- `Hudson`: that's right, man.
+- `Hudson`, you got the point.
+- Ripley: `hudson`, stay cool!
+- Today we found a '48 `hudson`.
+- We heard from doctor `hudson`?
+- `Hudson`: i don't believe this.
+- You secure that shit, `hudson`.
+- Nobody does it better, `hudson`.
+- Apone: `hudson`, tracker on line.
+- I'm going to work helen `hudson`.
+- Rounds on "d." `hudson`: come on.
+- Helen `hudson`... where you going?
+- I told you not to call me `hudson`.
+- How come you're so up on dr. `hudson`?
+- The vanity of this man, `hudson` hawk.
+- I don't care if you are short, `hudson`.
+- I'm in the `hudson` bay company's store.
+- You re not "some guy" anymore, `hudson`.
+- `Hudson` hawkins gets the chair of honor.
+- `Hudson`, see if you can get their c.p.u.
+- The whole `hudson` would be open to them!
+- `Hudson` had a birthday party, i am sienna.
+- `Hudson`, i'm afraid i'm sticking with god.
+- `Hudson`: (on radio) sir, we got the c.p.u.
+- Your friends at warren, putnam and `hudson`.
+- <u>you</u> called <u>us</u>, doctor `hudson`.
+- You want me to fetch your slippers, `hudson`?
+- Have you discussed the note with dr. `hudson`?
+- `Hudson`, see if you can get their cpu on line.
+- `Hudson`, just deal with it because we need you.
+- Just remember, `hudson` hawk is an evil, evil man.
+- You'd better just start dealing with it, `hudson`.
+- Wrote it in the waiting room of the `hudson` bay store.
+- `Hudson`: uh, sir, uh, we have a negative situation here.
+- Every penny we earn comes from what we send down the `hudson`.
+- I need you to help interrogate the burglar in `hudson`'s place...
+- Oh `hudson`, i was worried you weren't going to drop by.... said.
+- Oh `hudson`, i'm a sister of the catholic church as well as an agent.
+- The only people who called me that were the nuns at... oh `hudson`...
+- No way he's going to get nominated west of the `hudson` with a new wife.
+- I could determine if he were dead <u>before</u> he went into the `hudson`.
+- My nickname's `hudson` hawk, but don't call me `hudson`, not even as a joke.
+- I was just about to advise the inspector here not to show dr. `hudson` the note.
+- Especially late in the day... sir, doctor `hudson` and i see a pattern develop...
+- Ma'am, please get out of your vehicle... we've put a tap on dr. `hudson`'s phone.
+- The prowler in `hudson`'s apartment turns out to have a meeting with a suspect...
+- In the back of a nineteen and thirty- one stretch `hudson` with a big ole' trailer.
+- `Hudson`, don't you understand... oh, i must have put too much ethyl-chloride in it.
+- `Hudson`, god's given you a gift for cat burglary, you can t just... well, forget about it.
+- Rather than spend the war in a french prison hulk in `hudson` bay, they'd fight to the end.
+                 

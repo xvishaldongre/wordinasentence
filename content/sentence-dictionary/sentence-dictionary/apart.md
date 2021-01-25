@@ -1,0 +1,107 @@
+---
+title: "apart in a sentence | apart example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "apart"
+---
+- I tore people `apart`.
+- Rip `apart` her bonds.
+- Tearing me -- `apart`.
+- We wasn't far `apart`.
+- I could rip it `apart`.
+- They'll rip us `apart`.
+- They're moving `apart`.
+- Everything fell `apart`.
+- It's tearing us `apart`!
+- Stop tearing me `apart`!
+- They'll tear us `apart`.
+- Carlton was torn `apart`.
+- I don't wanna be `apart`.
+- I'm falling `apart` here.
+- Start pulling it `apart`!
+- Yours is falling `apart`.
+- Or you fall `apart` alone.
+- We tore the place `apart`.
+- I'll beat you both `apart`.
+- What's falling `apart` now?
+- `Apart` from those shotguns.
+- Nothing can tear us `apart`.
+- You will fall `apart` again.
+- Don't you fall `apart` on me.
+- It's kind of falling `apart`.
+- She's gonna tear mom `apart`.
+- That would rip janet `apart`!
+- That would rip janet `apart`.
+- The alto nido `apart`- ments.
+- The place is falling `apart`.
+- You've torn the unit `apart`.
+- They want to drive us `apart`.
+- Bob... it's tearing me `apart`.
+- I think your brains come `apart`.
+- My nerves are being torn `apart`.
+- Shut up or i'll tear you `apart`.
+- They'll have to take you `apart`.
+- What if everything falls `apart`?
+- You don't see us falling `apart`.
+- I'm falling `apart`, that's funny?
+- We only live a few blocks `apart`.
+- You can't just force them `apart`.
+- He used to tear this place `apart`.
+- Lian and omar, three years `apart`.
+- Like joe and i were ripped `apart`.
+- One of the abscesses broke `apart`.
+- We have to tear this place `apart`.
+- We've never been `apart` that long.
+- You're tearing this family `apart`.
+- Some people fall `apart` in a pinch.
+- Like you and she were ripped `apart`.
+- It's easy to fall `apart` in a crisis.
+- You were never `apart`, you and clive.
+- e ark would break `apart`, anything?
+- Fuckin' tear him `apart`, wipe him out!
+- I'd of taken wilson `apart` that night!
+- She came `apart` like a house of cards.
+- This is permission to take her `apart`.
+- Was he funny-looking `apart` from that?
+- If everything else falls `apart`, maybe.
+- I started to say we're drifting `apart`.
+- "lousy, thank you, i'm falling `apart`."
+- Chief, i swear, we tore that bus `apart`.
+- I think you and i need some time `apart`.
+- How do you tell those two `apart`, anyway?
+- So, you still picking `apart` cockroaches?
+- What do you burn, `apart` from witches?
+- Michael, you and i are light years `apart`.
+- My dad's in hell, and he's falling `apart`.
+- My step-father's going to tear you `apart`.
+- It's like i was coming `apart` at the seams.
+- Maybe debris from a moon that broke `apart`.
+- He was murdered... after that i fell `apart`.
+- Let me go, don amalio, i'll tear her `apart`.
+- ...lost the screw... my glasses fell `apart`.
+- No, this isn't me tearing myself `apart`, ok?
+- If i can't tell they `apart` - how can he?
+- Did she say how far `apart` the pains were?...
+- I don't want to have you watch me fall `apart`.
+- I think that we should spend some time `apart`.
+- But a true nightblood could tear wonkru `apart`.
+- I know... a lot of things fell `apart` up there.
+- Like bein' ripped `apart` by a gorilla, maybe...
+- Then two fall showings -- twenty blocks `apart`.
+- ...`apart` from the top men on the contest board.
+- Her legs pulled `apart` in a kind of sexual pose.
+- Seems like his brain just fell `apart` in pieces.
+- You fall `apart` when you don't get your own way.
+- Your black hole damn near ripped my ship `apart`.
+- I really, like... our parents are drifting `apart`.
+- Maybe it was just its time to finally fall `apart`.
+- Some people have been trying to keep us `apart`.
+- You know, it's ok to fall `apart` a little, octavia.
+- Well, i say lets tear this place `apart` for weapons.
+- Dr. argon, everything's starting to come `apart` here.
+- Then they'll want to tear me `apart`, i saw something.
+- Everything falls `apart` when you grow old, eh, claude?
+- But, you know, `apart` from that, i'm doing pretty good.
+- Did your king give you other wealth `apart` from horses?
+- Son of a bitch tears 'em `apart` just to eat the oxygen.
+                 

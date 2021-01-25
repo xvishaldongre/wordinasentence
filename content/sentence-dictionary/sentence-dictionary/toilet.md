@@ -1,0 +1,81 @@
+---
+title: "toilet in a sentence | toilet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "toilet"
+---
+- I'll put in a `toilet`.
+- No, the `toilet` is pricey.
+- I can peddle `toilet` paper.
+- But you gotta use a `toilet`.
+- Did you fix the `toilet` yet?
+- I put a memo in the `toilet`.
+- Room with a `toilet`, got it.
+- Letting him use your `toilet`?
+- Then who flushed the `toilet`?
+- They too use the `toilet`, ed.
+- I flushed it down the `toilet`.
+- I made it go down the `toilet`.
+- What's with the `toilet` paper?
+- I'll have to go to the `toilet`.
+- It's written on `toilet` tissue.
+- So your life is in the `toilet`.
+- Just a combo shower and `toilet`.
+- My mouth is running like a `toilet`!
+- Issue the `toilet` paper tear as a...
+- Why not just bring the whole `toilet`?
+- He's used my `toilet` a thousand times.
+- The jap car industry is in the `toilet`.
+- I can always flush you down the `toilet`.
+- I'm out, you're giving me `toilet` paper.
+- Seven hundred dollars, down the `toilet`!
+- Did you `toilet` paper the johnson's house?
+- Ted, a `toilet`'s not going to kill anyone.
+- That `toilet`'s just the tip of the iceberg.
+- Then i just may flush you down the `toilet`.
+- To serve me snacks while i'm on the `toilet`.
+- I caught him flushing pills down the `toilet`.
+- About the mother bear in the `toilet` paper ads.
+- Not whether he wads of folds his `toilet` paper.
+- Say-what kind of `toilet` paper you got back there?
+- Guy's got a fucking pink `toilet`, for christ's sake.
+- Why have you put a `toilet` and a bed in your garage?
+- You know what you can get off a `toilet` or doorknob?
+- She's on the `toilet` at 4:00 a.m. and you sit on her.
+- Look, i'm not drinking out of one more `toilet` no hope.
+- What, and watch all my earnings go... down the `toilet`?
+- Yeah, when you fell your head smacked the `toilet` hard.
+- This japanese `toilet` is the first kind voice good idea.
+- I thought i'd make the `toilet` but... anyway, i got sick.
+- You ever wonder why your career's in the fucking `toilet`?
+- His whole life went straight down the nearest `toilet`.
+- Obviously some asshole in hong kong flushed him down a `toilet`.
+- The other chick's giving my best man a blow job in the `toilet`.
+- They'd cut my balls off and flush them down the fucking `toilet`.
+- We got eggs, water balloons, and a dozen rolls of `toilet` paper.
+- He'll be looking in his `toilet` bowl every time he pulls the chain.
+- The `cares about people like me' numbers are really in the `toilet`.
+- Once i sat on a `toilet` seat at a truck stop and caught hemorrhoids.
+- I prayed in saloons, i prayed in the street, i prayed an the `toilet`.
+- What would you say if i told you the `toilet` just blew up in my face.
+- I watch everything else in my life go straight in the `toilet`, for you.
+- He says you scare him so much he must go to the `toilet` in his trousers.
+- Not by touching, or shaking hands, or hugging, using the same `toilet`...
+- We lifted seven fairly good prints from miss mayfield's `toilet` articles.
+- Don't worry, he's probably passed out with his head in the `toilet` by now.
+- Do you think the average storm trooper knows how to install a `toilet` main?
+- Hey, don't squish it, and after it's dead, flush it down the `toilet`, okay?
+- Look, i'm a lawyer and -- do you see a `toilet` here you think is really me?
+- Do you happen to have an unenclosed `toilet` in close proximity to a kitchen?
+- You've learned... ♪ yeah, baby, `toilet`'s got a phone, yeah ♪ congratulations.
+- In the bathroom in my mother's room, the `toilet` was next to an old wooden table.
+- Dumping thousands of gallons of water down the `toilet` in the middle of a drought.
+- I don't want my brother coming out of that `toilet` with just his dick in his hand.
+- Ne ask that you sell individual squares of `toilet` paper for a mere nickel a piece.
+- No matter how many times i leave the `toilet` seat up, she forgets and puts it down.
+- Seems like i'm always pulling you out of some goddamn `toilet` or other, doesn't it?
+- At the very best, we're a `toilet` stop on your way to disneyland, so you hate people.
+- Now it's minimal wage and there ain't nothin' but a army cot and a `toilet` back there.
+- What's insane is the fact that micheal here put a fucking girl's head through a `toilet`.
+- Their tv show is filled with `toilet` humor and bad language and is just complete garbage.
+                 

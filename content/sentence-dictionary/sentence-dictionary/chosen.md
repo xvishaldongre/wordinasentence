@@ -1,0 +1,57 @@
+---
+title: "chosen in a sentence | chosen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "chosen"
+---
+- I've already `chosen`.
+- That you are `chosen`?
+- You have been `chosen`.
+- Another will be `chosen`.
+- But who would be `chosen`?
+- How are your leaders `chosen`?
+- `Chosen` to go to the graveyard?
+- You have `chosen` to join my army!
+- So glad you've `chosen` to join us.
+- Out of gratitude for being `chosen`.
+- From pursuing your `chosen` profession.
+- Buffy... aren't i, like the `chosen` one?
+- It seems you have `chosen` your own fate.
+- Her spirit has `chosen` you to become agh!
+- I don't want to be the `chosen` one, okay?
+- That's not the word i would have `chosen`.
+- I do, however, believe that i was `chosen`.
+- Only the `chosen` one could have done that.
+- Would you really have `chosen` differently?
+- But, buffy, you're the guy, the `chosen` guy.
+- You're a very lucky boy to have been `chosen`.
+- You've `chosen` to call them that, right, sir?
+- What does he think of your `chosen` line of work?
+- I've `chosen` to forgive him so that i can move on.
+- Then perhaps the spirit hasn't `chosen`, after all.
+- And... and... because it's the game you've `chosen`.
+- You are the `chosen` custodians of the big-ass bump!
+- Madam has `chosen` a funny time for such a funny joke.
+- A few wisely-`chosen` guilt tactics and they'll be ours.
+- He has the teacher i would have `chosen` for myself.
+- "many are called, few are `chosen`", that kind of thing.
+- Her spirit has `chosen` you to become i hope you're right.
+- Meaning, it looks like his victims are `chosen` at random.
+- For reasons i cannot fathom the omaticaya have `chosen` you.
+- I was `chosen` because i was the bravest and the most worthy.
+- You are the `chosen` few who have heard the message it was you.
+- You have been `chosen`, like each of us, and she gives you these?
+- She -- the one you have `chosen` -- she feels as much for you?
+- You are the `chosen` few who heard the message it is sugar on ice.
+- You're a good man... she was right to have `chosen` you... leeloo..
+- God has `chosen` thee to survive ... did he have to die for me to get it?!
+- The next thing i say must be perfectly `chosen` take her to the machine shop.
+- We fight, hurt each other, then perhaps the spirit hasn't `chosen`, after all.
+- Salvatore, if you had `chosen` to be with me, you'd have never made your films.
+- The press has `chosen` to take a very unfavourable view of what we tried to do.
+- If it were up to me, i would have `chosen` our cave, but... hey, how's it going?
+- All products carefully `chosen` and tested by you for quality and aesthetic value.
+- Had it been my choice, all those years ago, i would have `chosen` you for my king.
+- "today you have a rare opportunity to make a big difference in your `chosen` field.
+- Ooh, another embarrassment for the teabag, while the `chosen` one is still well under par.
+                 

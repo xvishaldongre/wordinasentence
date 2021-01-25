@@ -1,0 +1,85 @@
+---
+title: "secure in a sentence | secure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "secure"
+---
+- Coming to `secure` it.
+- How can i be `secure`?
+- Is the floor `secure`?
+- Is the floor `secure`?
+- I want to `secure` it.
+- All doors are `secure`.
+- `Secure` the perimeter.
+- `Secure` them jail time.
+- Transport ship `secure`.
+- Your agency is `secure`.
+- And `secure` the hatches.
+- In 3... exit is `secure`.
+- It's completely `secure`.
+- Your base isn't `secure`?
+- Please `secure` all doors.
+- The place wasn't `secure`.
+- Are the prisoners `secure`?
+- Transport ship is `secure`.
+- I'll `secure` the perimeter.
+- `Secure` another sinex drop.
+- `Secure` internet transfers.
+- The locks are fail `secure`.
+- Sergeant, `secure` the boat !
+- These phones aren't `secure`!
+- `Secure` their hands and feet.
+- This building is not `secure`.
+- My footing is not too `secure`.
+- You `secure` that shit, hudson.
+- Head still `secure` to the neck.
+- On a `secure` channel, 3 clicks.
+- Sir, the hangar bay is `secure`.
+- The place is no longer `secure`.
+- A more `secure` work environment.
+- This place is no longer `secure`.
+- You are quite sure it's `secure`?
+- You legacy is no longer `secure`.
+- Now `secure` a sinex drop reading.
+- I thought we had `secure` frequency.
+- Strike team's coming to `secure` it.
+- Your reputation is `secure`, scotty.
+- Safe and `secure` is how we want her.
+- Scotty: are the whale tanks `secure`?
+- When i `secure` the line, come on up.
+- Hal, check all airlock doors `secure`.
+- Keeping the keys `secure` is your job.
+- That gives me a very `secure` feeling.
+- This is a very `secure` establishment.
+- Chase: sir, the hangar bay is `secure`.
+- She wanted a more `secure` environment.
+- This place just ain't `secure` anymore.
+- Monk, schoenick... `secure` the package.
+- Now is the time to `secure` your epitaph.
+- Hal, have pod arms `secure` the component.
+- I'll stay here and `secure` this position.
+- The crew's in a `secure` hibernation room.
+- I'm just asking you to `secure` the perimeter.
+- Please buckle up and `secure` any loose items.
+- All the data banks in artoo are still `secure`.
+- At last, i have really a `secure` living for us.
+- Can you sally forth and `secure` us some more mead?
+- And i need to `secure` some funding for my expansion.
+- The more `secure` he feels, the more chances he'll take.
+- We need someone to take us to the `secure` storage area.
+- We shouldn't go any further till we know the route's `secure`.
+- Would `secure` the safety of our people... maybe they caught him.
+- If you shoot too high and miss, then everybody feels more `secure`.
+- Two hours ago we pulled this audio off a `secure` channel in russia.
+- When the crates were put in `secure` storage, they were out of reach.
+- They'll keep the plants in `secure` lock up while the studies are made.
+- Acting out can take many forms, pass out the weapons and `secure` the ship.
+- Lexa had markings on her back make sure you protect the `secure` entry out.
+- Better move these crates to the `secure` storage area where they'll be safe.
+- Professor brown tested the tarp, noting in satisfaction that it was `secure`.
+- `Secure` the building and i will arrange alternative safe storage immediately.
+- I believe they were attempting to `secure` another thanksgiving is in the books.
+- My partners and i are trying to `secure` start up capital for a small tech company.
+- The mcc, as we call it, can place clear and `secure` phone calls to anywhere on earth.
+- Let's put it this way, andy: your place in the future of this firm is no longer `secure`.
+                 

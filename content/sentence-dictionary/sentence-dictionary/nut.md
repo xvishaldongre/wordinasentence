@@ -1,0 +1,53 @@
+---
+title: "nut in a sentence | nut example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nut"
+---
+- He's a harmless `nut`.
+- He's gotta be a `nut`!
+- You crazy, crazy `nut`!
+- You're a fucking `nut`.
+- You're the fucking `nut`.
+- You're eating a zarg-`nut`.
+- `Nut` crunching gut splinters.
+- Schulz, you're off your `nut`!
+- They call me a fucking `nut`.
+- You want i `nut` him in the boat?
+- I thought, maybe you were a `nut`.
+- Some `nut` who wanted to kill him.
+- Well, you know, sir, he's a `nut`.
+- Either i'm off my `nut`, or he is .
+- He can tell you're an animal `nut`.
+- You just called me a fuckin' `nut`.
+- Blow up a building and blame a `nut`.
+- You're a tough `nut` to crack, dylan.
+- His movie `nut` mind has snapped, sid.
+- I think i've seen this `nut` somewhere.
+- The little `nut` is happy, she found mr.
+- You remember that `nut` in the hockey mask?
+- I am going to get my `nut` on this trip, miles.
+- Yeah, but what if some `nut` pulled gun on you?
+- ...that army `nut` job to save your narrow butt?
+- Oh, there's some `nut` peace petitioner over there.
+- Conklin might've been a `nut`, but he wasn't a mole.
+- A `nut` who don't listen to nobody or respect nobody?
+- This lady, terry ives, sounds like a real `nut` to me.
+- This `nut` case goes out on a ledge and it's my fault?
+- We won't make the `nut` unless we have unlimited credit.
+- Venza's such a `nut` job, we're bound to pick him up soon.
+- Or some kind of `nut` case who -- we don't exactly know, sir.
+- Why'd i get involved with this fuckin' `nut` in the first place?
+- I mean, i'm with you on this, conklin was a `nut`, but a traitor?
+- Well, let's go see if the `nut` that runs this place can help us.
+- As long as you don't act like a fuckin' `nut`, we'll be just fine.
+- You start talking to greta garbo and tyrone power like a `nut`!
+- Before you go unconscious i want you to get this through your `nut`.
+- Now you're free coco-`nut`, that is, aah... rcs thrust pressure good.
+- Sorry to ruin your trip to the city, but we got a real `nut` on our hands, frank.
+- You fucking freaked out movie `nut` psychos.. oh, sid, you�re sounding desparate.
+- No more sneaking around the hills with his fucking `nut` gun like some loony tune.
+- No, we're gonna watch an episode 'shewblasters is disrupting the heated `nut` business.
+- Great idea -- pointing a lousy dart gun at some `nut` with a high-powered hunting rifle.
+- You called me a fuckin' `nut`, and where i come from, that stops the train on its tracks.
+                 

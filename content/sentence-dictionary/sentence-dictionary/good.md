@@ -1,0 +1,107 @@
+---
+title: "good in a sentence | good example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "good"
+---
+- A truly `good` person.
+- Biometrics are `good`.
+- Black's always `good`.
+- But he�s a `good` guy.
+- But my life is `good`.
+- Did pretty `good` too.
+- Feeling `good`, arnie.
+- For `good` luck honey.
+- God, these are `good`.
+- `Good` boy, port hole.
+- `Good` day, gentlemen.
+- `Good` enough for you.
+- `Good` evening, louis.
+- `Good` heart, at what?
+- `Good`, let's get out.
+- `Good` luck, brooksie.
+- `Good` luck with that.
+- `Good` luck, you know?
+- `Good` luck, yourself.
+- `Good` marrow, father!
+- `Good` men, and brave.
+- `Good`, moral compass.
+- `Good` morning, girls.
+- `Good` morning, helen.
+- `Good` morning, james.
+- `Good` morning, lotte!
+- `Good` morning, lovey.
+- `Good` morning, madam.
+- `Good` morning madame.
+- `Good` morning, major.
+- `Good` morning, swana.
+- `Good` morning walter!
+- `Good` morning, wanda.
+- `Good` night, colonel.
+- `Good` night, darling.
+- `Good` night, gabriel.
+- `Good` night, my love.
+- `Good` night, old man.
+- `Good` night, orlando!
+- `Good` night, signore.
+- `Good` of you to come.
+- `Good` - thanks lloyd!
+- `Good`, then let's go!
+- `Good` thing in a man.
+- `Good` thinking, duke.
+- `Good` thinking marge.
+- `Good` to see you, ma.
+- `Good` to see you too.
+- `Good` work, number 1.
+- Had some `good` years.
+- Have a `good` holiday.
+- Have a `good` holiday?
+- He has `good` teeth...
+- He is a `good` godson.
+- He's a `good` student.
+- He's `good`, isn't he?
+- He's got a `good` job.
+- He was a `good` fella.
+- Hey andy, `good` show.
+- How `good` am i doing?
+- I always smell `good`.
+- I bet you'd be `good`.
+- I can be a `good` pig.
+- I can hear you `good`.
+- I feel `good` anyways.
+- If it's `good` advice.
+- I hear they're `good`.
+- I know it's no `good`.
+- I'll go -- `good`-bye.
+- I look `good` tonight.
+- I love a `good` panel.
+- I'm no fucking `good`.
+- I'm no `good` at this.
+- I'm not a `good` liar.
+- Is `good` news i sure!
+- Is it the `good` room?
+- Is that `good` enough?
+- Is that `good` or bad?
+- It's a `good` thought.
+- It's a no-`good` town.
+- It's `good` marketing.
+- It's not `good`, pete.
+- It's very `good`, eve.
+- It was a `good` thing.
+- It was a `good` try...
+- Jess--you look `good`.
+- Just the `good` stuff.
+- Looking `good`, billy.
+- Maggie, are we `good`?
+- Makes you feel `good`?
+- Marge, `good` morning.
+- My very `good` friend!
+- Now that feels `good`.
+- Oh, pity feels `good`.
+- Oh, that's not `good`.
+- Oh, this is so `good`.
+- Oh you're `good`, ted.
+- Paulie's a `good` kid.
+- Pretty fucking `good`.
+- Really, really `good`.
+                 

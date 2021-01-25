@@ -1,0 +1,107 @@
+---
+title: "opening in a sentence | opening example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "opening"
+---
+- The door is `opening`.
+- I'm `opening` the book.
+- It's `opening` weekend.
+- I'm `opening` up a path.
+- `Opening` pod bay doors.
+- `Opening` night, lillian.
+- I'm `opening` the side door.
+- `Opening` docking bay doors.
+- We have to answer `opening`.
+- It's `opening` me to a death.
+- We're `opening` a restaurant.
+- `Opening` the door to save me?
+- There's an `opening` up ahead.
+- `Opening` it was the easy part.
+- We're gonna miss the `opening`.
+- East docking bay door `opening`.
+- I just keep myself `opening` up.
+- Sir, the door -- it's `opening`.
+- You remember `opening` the door?
+- We'll be coming to the `opening`.
+- You won't be `opening` in london.
+- An `opening` up front at checkout.
+- Not `opening` some zoom-boom room.
+- She called it `opening` new doors.
+- I can't be `opening` my own bottle.
+- _ `opening` a hospital is one thing.
+- So now we have no `opening` speaker?
+- Would you mind `opening` the window?
+- I came up with the perfect `opening`.
+- We need your help `opening` a bunker.
+- `Opening` the tunnel triggered it.
+- We have an `opening` for a new member.
+- With orlando `opening` the doors, ooh!
+- You're playing the tarakoss `opening`.
+- Aybe we ought to postpone the `opening`.
+- Like `opening` out of town, but terrifying.
+- Who do you like in the `opening` game, sam?
+- Delay the `opening` and we lose the theater.
+- `Opening` trade routes, getting clarke back.
+- I can't wait to hear your `opening` argument.
+- This is where it was -- the tunnel `opening`.
+- Tomorrow morning, before the store `opening`.
+- We don't want to miss the `opening` ceremony.
+- Hey, taber, who's pitching the `opening` game?
+- That nag paid off at just the `opening` price.
+- That's why they keep postponing its `opening`.
+- We need you to turn and look for an `opening`.
+- Been on the road `opening` for "midnight hore".
+- Not on the `opening` night, wouldn't look right.
+- Than getting a divorce or `opening` a bookstore.
+- The niece of the czar `opening` the door for us.
+- There's no reason to call off the `opening` now.
+- Alright...andy's `opening` the first present now.
+- There's always `opening` on one fleet or another.
+- We're going to an `opening` at the opera tonight.
+- You expect me to miss that for an `opening` night?
+- But don't waste time `opening` and closing hatches.
+- I see the earth `opening` up and swallowing us all.
+- Just really `opening` up, and he never called back.
+- Every seat for the `opening` has been sold at vienna.
+- I'm getting in that room, and i'm `opening` that safe.
+- `Opening` up just a little wouldn't kill you, ya know.
+- All of his advertising announced the `opening` tonight.
+- I know you don't like the commotion of `opening` night.
+- He wrote the `opening` chapter, on 'the berlin airlift'.
+- It's the number two variation of the tarakoss `opening`.
+- Thirty-second `opening` in the roof and a 250-foot drop.
+- If we go north and you're wrong, your eyes are `opening`.
+- The `opening`'s still too small, we'll never get through!
+- I'm not `opening` a door that specifically warns me not to.
+- If this is what you really want, before `opening` the hatch.
+- Coming back to the ground, `opening` the bunker, i should go.
+- I don't know but it makes one hell of an `opening` statement.
+- I thought `opening` too quickly was a fatal mistake in chess.
+- We'll start tonight at the grand `opening` of the metro club!
+- But perhaps tonight, over dinner...i've just had an `opening`.
+- It's not just about `opening` up your pores, know what i mean?
+- There's a much bigger thing going on than tonight's `opening`.
+- After the bad `opening` that night the old boy was pretty blue.
+- There might be an `opening` for a manager at salem next spring.
+- I hear you and harry are planning on re-`opening` the bijou.
+- `Opening` the box was my final act of exploration, of discovery.
+- We're `opening` another store, big dave's annex, there on garson.
+- I don't... um, tell owens that the russkies are `opening` the gate.
+- They insert things into any `opening` in their body... any `opening`.
+- You know, everyone's so excited about the bijou re-`opening`... oh.
+- There's a slot for a boss loader on the new pier we're `opening` up.
+- We are not leaving until we have everything ready for the `opening`.
+- You missed the `opening` of the new picture but i'll go back-- hey, kid.
+- I can't believe they have him for the `opening` act and not the headliner.
+- There's a fine `opening` for a fellow like you in the city sealer's office.
+- It's `opening` night of the last depressing week of l. b. jefferies in a cast.
+- Jim, there's a little hokey-pokey wax museum `opening` up down on 14th street.
+- ...as long as they're ready for the `opening` i don't care, just tell them that.
+- [in english] honey, `opening` plants outside of china may not play so well here.
+- Specifically, in my punching hands `opening` your letters in case they got picked.
+- Gallagher, that guy just dropped by to give us a great `opening` for the third act.
+- I'm in close with these guys, it isn't easy, but slowly they're `opening` up to me.
+- Riding to hounds - - `opening` of the opera - - inauguration balls - they do indeed.
+- The boston... have computer search for anyone that's used that `opening` against me.
+                 

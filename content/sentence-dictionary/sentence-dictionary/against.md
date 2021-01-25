@@ -1,0 +1,107 @@
+---
+title: "against in a sentence | against example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "against"
+---
+- Turn it `against` her.
+- Up `against` the wall!
+- `Against` the wall now.
+- Defense `against` what?
+- Get `against` the wall!
+- Her word `against` his.
+- It's `against` the law.
+- Up `against` that wall.
+- `Against` each other?...
+- Back `against` the bars.
+- Is it `against` the law?
+- Stands `against` us all.
+- `Against` the whole town.
+- Is `against` your people.
+- It's `against` my nature.
+- It's `against` the rules.
+- Not pulling `against` me.
+- All `against` carl's will?
+- Blake, `against` the wall.
+- Tucked `against` the wall.
+- Anything `against` zippers?
+- It's a race `against` evil.
+- Was `against` lexa, not us.
+- Wouldn't bet `against` her.
+- Don't hold it `against` him.
+- Hauser turned `against` you.
+- I'm totally `against` drugs.
+- I'm up `against` a deadline.
+- I wouldn't bet `against` it.
+- Like in `against` all flags.
+- Not `against` spats colombo.
+- She held that `against` you?
+- Your word `against` my word.
+- A phobia `against` truth!
+- Not just `against` billy.
+- A war `against` the railroad.
+- It's still `against` the law.
+- I turn my hand `against` him.
+- Machetes `against` artillery.
+- There's no case `against` me.
+- They *are* `against` the law.
+- What's he got `against` me...
+- You led `against` pike hides.
+- `Against` a con indian's word.
+- I won't hold it `against` you.
+- Queen nia moves `against` you.
+- What can we do `against` them?
+- You saw what i'm up `against`.
+- How do you defend `against` it?
+- Isn't that `against` the rules?
+- It was his word `against` mine.
+- They have plotted `against` me!
+- ...what's he got `against` you?
+- Who is this war `against`, sam?
+- You've sinned `against` us all.
+- Did i say a thing `against` her?
+- The wind will be `against` us...
+- They're conspiring `against` me.
+- Which is a sin `against` heaven!
+- Who are you revolting `against`?
+- Your body... `against` all odds.
+- But don't hold that `against` me.
+- Go out and prove it `against` me!
+- N'each man's hand's `against` us.
+- Put your back `against` the door.
+- Why not, `against` your religion?
+- `Against` this we have no defense.
+- Besides, it's `against` the rules.
+- Go `against` your father's wishes?
+- I ain't got nothing `against` god.
+- I don't want to run `against` you.
+- I'm not `against` marriage per se.
+- Is she `against` you getting help?
+- It's nothing `against` you, tracy.
+- So work with me, not `against` me.
+- Then cross-check `against` zavitz.
+- They can stand `against` anything!
+- They fought `against` the indians?
+- Too many people are `against` him.
+- We know you came up `against` 'em.
+- You're up `against` the wrong man.
+- Are you with me... or `against` me?
+- Because you'll use it `against` me.
+- But not flush `against` the tunnel?
+- I don't want 'em used `against` us.
+- I'd strongly advise `against` that.
+- Last time, it was me `against` him.
+- Miller, put him `against` the wall.
+- Not enough `against` their shields.
+- So... you led `against` pike hides.
+- That's `against` the law, isn't it?
+- There are no charges `against` you.
+- Tore it up `against` st. anthony's.
+- You were leaning `against` his car.
+- I will not be plotted `against`!
+- Brace your back `against` the shelf.
+- I said it was `against` my religion.
+- It's `against` my better judgment...
+- Let it scrape `against` the boulder.
+- Man `against` nature, right travers.
+                 

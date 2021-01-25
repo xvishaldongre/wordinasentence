@@ -1,0 +1,105 @@
+---
+title: "jealous in a sentence | jealous example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jealous"
+---
+- You're just `jealous`.
+- He might get `jealous`.
+- You're still `jealous`.
+- A `jealous` woman, right?
+- Are you `jealous` of him?
+- I'm not `jealous` or mad.
+- I think you're `jealous`.
+- Who said i was `jealous`?
+- He got a little `jealous`.
+- Tim's `jealous`, you know?
+- What's to be `jealous` of?
+- You're all just `jealous`.
+- Because you were `jealous`.
+- He's `jealous` and worried.
+- They were `jealous` of him.
+- To make your son `jealous`.
+- If you're `jealous`... what?
+- Ninotchka, you're `jealous`.
+- And you have to be `jealous`.
+- He's gay - are you `jealous`?
+- I'm `jealous`, i'm so skinny.
+- Truth is...i was ..`jealous`.
+- Why shouldn't i be `jealous`?
+- I'm not `jealous` of the dogs.
+- I've no right to be `jealous`.
+- Why are you so `jealous`, boy?
+- You're not `jealous`, are you?
+- I can't be `jealous` of batman.
+- I've never been this `jealous`.
+- Johnny rico, you're `jealous` !
+- ...am starting to get `jealous`.
+- He'll be ok. you were `jealous`?
+- I think he's `jealous` of havel.
+- Apparently he was crazy `jealous`.
+- Belinda's a very `jealous` person.
+- I'm not a `jealous` woman, oliver.
+- She's a little `jealous`, i think.
+- You're even `jealous` of the dogs.
+- I think you guys are all `jealous`.
+- I think you were `jealous` what?...
+- You're not just `jealous`, are you?
+- Are you trying to make me `jealous`?
+- I'm not `jealous`, and i don't care.
+- Oh, now don't get all `jealous`, ed.
+- You aren't `jealous`, are you dodge?
+- Last night i was furiously `jealous`.
+- Says you were `jealous` and suspicious.
+- Deep down, i guess i was just `jealous`.
+- It means you're `jealous`, climb right up.
+- Perhaps the young girl is a bit `jealous`.
+- You make all the other salesmen `jealous`?
+- You are in no position to be `jealous`.
+- But mark -- a `jealous` boyfriend gone mad.
+- Maybe she got `jealous` of johnny boz, too.
+- I guess i'd just be `jealous` if i were him.
+- Well... she's an extremely `jealous` person.
+- About me being `jealous` and, like, obsessed?
+- He's `jealous`, yes, but <u>that</u> `jealous`?
+- I'm sorry, but dana's a very `jealous` person.
+- You're just `jealous` 'cos the girl picked me.
+- Now suddenly he gets `jealous` if i have a date.
+- They were all lame though, so i wasn't `jealous`.
+- He gets `jealous`; he- if you could, i'd � barton.
+- I think we're making some of the locals `jealous`.
+- I never thought i'd be `jealous` of your handicap...
+- Annie, that adds up to a `jealous`, possessive woman.
+- Well, a lot of people are `jealous` cause he's loaded.
+- You were `jealous`, you fought, he fell, hit his head.
+- Amy wasn�t just `jealous`...she was sad and lonely.
+- Lori, i don't believe it...you're `jealous` of a dream!
+- You're just `jealous` 'cause it ain't happening to you!
+- You're just `jealous` of santos cause he's sweet on me.
+- You told her that people are `jealous` cause i'm loaded?
+- They're just disgusting, `jealous`, bottom-feeding swine.
+- Gerron out of it, you're only `jealous` 'cause you're old.
+- Yeah, i'm `jealous` of mtv faggots who are named after animals.
+- God, don't act so `jealous` i only talked to him for two minutes.
+- Maybe she was `jealous` because she saw you go up to steve's room?
+- You're just `jealous` it was me in the trunk with her and not you.
+- Tell you one thing though, timothy leary will be `jealous` as hell.
+- I, i don't want to admit it, but, you know, i was `jealous` of pony.
+- No, she didn't... she never got `jealous` before... she got excited.
+- That you were `jealous`, and he was worried about what you might do.
+- Bein' in love with you like i am brings out that ugly `jealous` side.
+- Maybe she was hot for steve and killed them both in a `jealous` rage.
+- You see mrs. friedman, the butcher's wife, she'll be `jealous` of you.
+- Not to mention the fact that every last one of them is `jealous` of you.
+- Valentine, listen to me ... you know, i believe she's actually `jealous`.
+- Mama says it's because he's `jealous` i belong to my daddy instead of him.
+- I was always `jealous` web mimms got to go off and fight with you and cole.
+- So... are you alone, or are you just using me to make someone else `jealous`?
+- The slimy bastard who's going to do it for you... you're a `jealous` man jake.
+- I think you're `jealous` that i'm a genuine freak, and you have to wear a mask!
+- Thanks to time dilation, it's just, i was `jealous` at first, and... and angry.
+- It's the oldest story in the book, the ageing romeo `jealous` of the young buck.
+- She was asking about you earlier, rick, in a way that made me extremely `jealous`.
+- Ok and one of them jane mckenna -- she blows a little `jealous` of bree - you know?
+- Oh, i used to love celebrity, all i wanted was for my friends to be `jealous` of me.
+                 

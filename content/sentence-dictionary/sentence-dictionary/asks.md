@@ -1,0 +1,54 @@
+---
+title: "asks in a sentence | asks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "asks"
+---
+- Eggs he `asks` me for.
+- Robert `asks` about you.
+- She's the one he `asks` for.
+- But he `asks` the impossible.
+- It's the questions she `asks`.
+- Alm�sy `asks` al auf in arabic.
+- She `asks` that you pass within.
+- He `asks` about you all the time.
+- Do you like it when he `asks` you?
+- Our society `asks` "can we do it?"
+- Nobody ever `asks` you about you, huh?
+- Then the devil `asks`, "do you drink?"
+- He `asks` when he can come to visit you.
+- What if he `asks` where i got the money?
+- If anyone `asks` about simone -- okay, dad.
+- If you love her, you must do what she `asks`.
+- If she `asks` me any question i want to tell her.
+- No matter how many questions your old man `asks`.
+- White bread `asks` for cocaine, i take his money.
+- If she `asks` what it's about, don't tell her.
+- It's critical that you do whatever ambrose `asks`.
+- If anyone `asks` where i am, i've left the country.
+- If he `asks` me something, i tell him what i think.
+- I have a different story for every woman who `asks`.
+- If he `asks` my advice, i don't know what i will say.
+- He `asks` if your majesty might grant him an audience.
+- Nobody ever `asks` me to do shit like this for people.
+- If ralph `asks` you to give him a bath, you know what?
+- But every day she `asks` her boss to pray i don't fuck up.
+- Suppose she `asks` you why you didn't come home last night?
+- ...and one day, this sweet girl calls me, `asks` me to lunch.
+- He never `asks` a second favor when he's been refused the first.
+- If anyone `asks`, we're escorting the prisoner back to her cell.
+- If anybody `asks`, tell them the truth-- your family disowns you.
+- He never `asks` a second favor when he has been refused the first.
+- Sally if he `asks` me again, i'm gonna tell him i returned it all.
+- I mean, my wife comes to me and `asks` me for twenty-five thousand.
+- Keith, if anybody comes in here and `asks` for me, you let me know.
+- It's like an order or something... and no one -- no one -- `asks` me.
+- Answer when the governor `asks` you a question you filthy young swine!
+- We're standing at the airport saying goodbye and she `asks` me to stay.
+- All i gotta do is get 'em together and make sure my old man `asks` her out!
+- So the guy `asks` him where he's got all this money all of a sudden, right?
+- Little johnny's teenage sister `asks` her mother if she can go out on a date.
+- Every time someone `asks` you to do something, you always say, tell junior to do it.
+- This white guy walks in about one o'clock, `asks` if we have a discount for alcoholics...
+- Lemme give you some advice, if she `asks` you to dance, make sure her brother's not around.
+                 

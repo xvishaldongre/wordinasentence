@@ -1,0 +1,107 @@
+---
+title: "driver in a sentence | driver example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "driver"
+---
+- Is that your `driver`?
+- Shoot at the `driver`.
+- Elliot -- our `driver`.
+- I'm your limo `driver`.
+- He was harry's `driver`?
+- I'm designated `driver`.
+- The `driver` was killed.
+- Go be a race car `driver`.
+- Do not talk to the `driver`.
+- I'm not that bad a `driver`.
+- Get a new `driver`'s license?
+- He's a very careful `driver`.
+- Caesar calls him the `driver`.
+- Check your `driver`'s license.
+- Here's her `driver`'s license.
+- Like you bus `driver` to dere?
+- My `driver`'s license expired.
+- The `driver` got knocked cold.
+- Did the `driver` really freeze?
+- I'll report it to the `driver`.
+- Just a good old human `driver`.
+- Only show this to the `driver`.
+- That's why i'm a good `driver`.
+- They saw you kill the `driver`.
+- You hassling my `driver` again?
+- Wanna see my `driver`'s license?
+- I'll have to talk to the `driver`.
+- So the `driver` knows where to go?
+- What am i, a retired bus `driver`?
+- Hey, the `driver` knows billy idol.
+- I'm always the designated `driver`.
+- I've been trained as a bus `driver`.
+- You know, you're not a bad `driver`.
+- How you doing, norm, avatar `driver`.
+- John, he's got my `driver`'s license.
+- Our `driver` has drunk too much wine.
+- Hey, once a `driver`, always a `driver`.
+- ...`driver`'s license, social security.
+- <i>the `driver`'s name was locus fender.
+- When you get to omaha, ask the `driver`.
+- So why do you want to be a taxi `driver`?
+- They said it wasn't the `driver`'s fault.
+- They want your `driver`'s license number.
+- We came and... the `driver` of my ship...
+- Back in the `driver`'s seat again, doctor?
+- ...a `driver`'s license, things like that?
+- Plus the fucking `driver`'s license, frank.
+- You don't have a `driver`'s license, james?
+- I'm concerned about the `driver` of the rig.
+- Than why don't you talk to the bus `driver`?
+- Am i gonna go off and be a race car `driver`?
+- `Driver`'s license -- social security number?
+- Michael, his `driver`'s an aussie, new to me.
+- Some fleet `driver` for bell just got cut up.
+- The `driver` will... 'salt lake city, please.
+- You know what makes a good get away `driver`?
+- Now he's got his `driver` following me around.
+- Today i decided to be a race car `driver`, no.
+- Harry often said what a careful `driver` he was.
+- [i need a `driver` to drive samuel, the father.]
+- How much you pay this joker... this cab `driver`?
+- Your thumb tells the `driver` that you want a ride.
+- I assure you, sir, david is a very careful `driver`.
+- Received first `driver` permit 1967 in philadelphia.
+- I think that's what it says on my `driver`'s license.
+- Whoa, easy, trip, this is radio, not "taxi `driver`."
+- Here, `driver`, take this lady back where she belongs.
+- I been in iron mountain for two years, truck `driver`.
+- Mi-chi-gan `driver` li-see-ens... jennyhaydn... money?
+- Remember how her brother's a truck `driver` down there?
+- Considering your `driver` has a sledgehammer for a hand.
+- Now, don't tell me you fell in love with a bus `driver`!
+- Now you're gonna show me some kind of `driver`'s license?
+- You got a girl, doesn't even have a `driver`'s lic- ense?
+- Don't talk to me like that in that bus `driver` wig, girl.
+- Car and a `driver`, mr. brean, the westgate, now, please...
+- Ten and two o'clock, like they taught you in `driver`'s ed.
+- He took my `driver`'s license, john, he knows where we live.
+- Hey, don't- uh, don't worry, i'm a very- a very good `driver`.
+- Why's that taxi `driver` across the street been staring at us?
+- When you get on the bus here, the `driver` will take this part.
+- And ask the `driver` to let you off at prairie stop, highway 41.
+- The concept is that every `driver` is matched to his own avatar.
+- But i asked the `driver` to drop me here instead of at the hotel.
+- Yesterday i hired a taxi `driver` to drive me around for an hour.
+- I host an open mike and i played a fuckin' bus `driver` in a movie.
+- Wilkins' `driver`'s got the flu, so he asked me to fill in for him.
+- You just picked up three penalty points on your `driver`'s license.
+- So tell me, exactly which truck `driver` did you study english with?
+- Luckily, i had my `driver`'s license or i wouldn't even know my name.
+- A taxi `driver` drove him to the harbor where he boarded a cargo boat.
+- I just knew i was onto something when that taxi `driver` kidnapped me.
+- ...i'm a car thief, a drunk `driver`, and i murdered a man for revenge.
+- Lornette mason here is just completing our routine `driver` evaluation.
+- When the car stops i run over to the `driver` and put a gun to his head.
+- When you get to salt lake city, ask the `driver`, 'las vegas, please'...
+- That cop, the human, he was the one who killed anderson and the `driver`.
+- Oh... ...it's kind of a strange time to be calling... max, the cab `driver`!
+- My old man was a bus `driver`, mom a nurse--i was sort of born to it, i guess.
+- The `driver`, all them trunks standing open like that... something's going on here!
+                 

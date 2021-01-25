@@ -1,0 +1,107 @@
+---
+title: "sad in a sentence | sad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sad"
+---
+- Don't be `sad`, barry.
+- Just so `sad`, really.
+- Kind of a `sad` story.
+- `Sad` commentary, huh?
+- `Sad` hours seem long.
+- That guy's `sad`, man.
+- Yet you look so `sad`.
+- Beautiful but so `sad`.
+- You seem `sad`, spooky.
+- But i'm-i'm still `sad`.
+- Hit makes me `sad`, too.
+- I'm so damn, damn `sad`.
+- N'not <u>that</u> `sad`.
+- `Sad` and fat and alone.
+- Well, this is too `sad`.
+- Well, you look... `sad`.
+- You look `sad`, my lady!
+- Ain't that a `sad` truth.
+- Does that make you `sad`?
+- Oh, that's a `sad` story.
+- What's made you so `sad`?
+- You see, i'm a `sad` man.
+- Don't that make you `sad`?
+- I'll never be `sad` again.
+- Makes me `sad` it was her.
+- Oh, it's a `sad` business.
+- You know how `sad` i'd be.
+- This makes you "`sad`"?
+- Proms always make me `sad`.
+- I could tell you were `sad`.
+- I think it's `sad`... uh-uh.
+- But there is some `sad` news.
+- Especially with `sad` people.
+- Even the fire eater is `sad`.
+- Knew it would make you `sad`.
+- She's a little `sad`, is all.
+- Shot in the back, very `sad`.
+- I'm very `sad` about that.
+- "ay me, `sad` hours seem long.
+- I'm really `sad` it's closing.
+- Maybe i'm just a little `sad`.
+- That makes me feel real `sad`.
+- I'm just so unbelievably `sad`.
+- Stop sounding so fucking `sad`!
+- This is `sad` news, be it true.
+- Aren't the hugely wealthy `sad`?
+- God, stacy, it's not that `sad`.
+- Here's the `sad` truth about me.
+- It is a great and `sad` tragedy.
+- It's so beautiful ... and `sad`.
+- You'll be getting me `sad` next.
+- But i don't let myself get `sad`.
+- Don't use very `sad`, use morose.
+- Let's not tell our `sad` stories.
+- That is so `sad` -- relax, monty.
+- Wh--, it-it-it-it, it's so `sad`.
+- Whatta you- whatta you `sad` about?
+- You look so `sad`... and so orange.
+- I feel `sad` about karen cross, too.
+- I'm living proof of that `sad` fact.
+- Physical activity makes me so `sad`.
+- When he died, my mother was so `sad`.
+- But i'm really `sad`, and i need help.
+- So let's hear this week's `sad` story.
+- This sounds `sad` as a weeping willow.
+- But there's a `sad` catch to the story.
+- I'm real `sad` you don't approve of me.
+- It's a very `sad` business, i tell you.
+- It's `sad` when patients get like that.
+- Jacob, the one who looks kind of `sad`?
+- Those boys, those `sad`, raging boys...
+- Well, that makes a `sad` sort of sense.
+- You like `sad` stories -- you want mine.
+- A great man like you should not be `sad`.
+- But i'm the only one with my `sad` story.
+- Long, boring, and generally pretty `sad`.
+- The rabble, it�s me... huh... it�s `sad`.
+- Blonde, beautiful, and `sad`--and nowhere.
+- He says you are very `sad` ridiculous man.
+- I felt `sad`, i put myself on the circuit.
+- I'm feeling a little `sad` myself tonight.
+- I don't want old `sad` bastard music either.
+- It's okay to be `sad` that your dad and i...
+- What kind of `sad` future are we two making?
+- I'm not `sad`, no, i owe the captain my life.
+- Okay, remember, if anyone sees us, look `sad`.
+- They don't know whether to be `sad`, or angry.
+- Here's a very `sad` song about the world today.
+- Is someone `sad`-snacking when he drives alone?
+- Yes, do you think that's why he looks so `sad`?
+- Besides, what's there to be `sad` about, anyway?
+- They are `sad`, solitary creatures, rarely seen.
+- You looked...`sad`, and i had to sit down a minute.
+- I've been pretty `sad`, but i think my dad is worse.
+- I know... my heart is `sad`... but my feet are happy.
+- "it is what makes him `sad` and what makes him want."
+- Yes... the beautiful carlotta... the `sad` carlotta...
+- Amy wasn�t just jealous...she was `sad` and lonely.
+- But wait... how `sad` -- well, it bothered me somewhat.
+- But i'm already `sad` -- by tomorrow it will have faded.
+                 

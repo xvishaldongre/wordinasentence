@@ -1,0 +1,107 @@
+---
+title: "run in a sentence | run example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "run"
+---
+- Can you `run` an i.d.?
+- Don't `run` off, jude.
+- I can't `run` anymore.
+- I `run` a temp agency.
+- I `run` a tight house.
+- It won't `run` a week!
+- I've already `run` it.
+- Let 'em `run` upriver.
+- `Run`, definitely `run`!
+- `Run` in with the law?
+- Sounds a lot of `run`.
+- Then what, `run` away?
+- They'll `run` you out.
+- They never `run` away.
+- They wouldn't `run`...
+- We gonna `run` or not?
+- We `run` the pictures.
+- [bellow] clarke, `run`!
+- Did you see them `run`!
+- Don't `run` away, bill.
+- Go `run` for president.
+- Hudson, `run` a bypass.
+- I'll never `run` again.
+- `Run` away, stevie boy!
+- `Run` sequence, unit 3.
+- She what `run` you off?
+- Um...i've got to `run`.
+- We don't have to `run`.
+- Well, you `run` on now.
+- What makes sammy `run`?
+- What's a chickie-`run`?
+- Why did you `run` away?
+- Why would i `run` away?
+- You have to `run`, now.
+- Got `run` over by a car.
+- Hey, let him `run` wild.
+- I don't `run` the joint.
+- I don't `run` the scams.
+- I `run` that office now.
+- I've got to `run` along.
+- I've got to `run`, jeff.
+- I've `run` out of words.
+- Mapping `run`, sector 7.
+- Now `run` along, daniel.
+- Now `run` along darling.
+- Ok. you can still `run`!
+- On a good `run`... yeah.
+- Ooh, hey, i gotta `run`.
+- `Run`, don't `run`, what?!
+- `Run` get to the palace!
+- `Run` of the mill seams.
+- `Run` this plan by them.
+- Sure we could `run` him.
+- Then we `run` like hell.
+- They don't `run` around.
+- Trusted to `run` it all.
+- Twenty `run` from four?!
+- Who you `run` loads for?
+- Why would we `run` away?
+- You tried to `run` away.
+- You've got to `run`, ok?
+- All right, `run` 'em off.
+- But i will... `run` away!
+- Did you `run` into lilly?
+- Flew a `run` to new york.
+- I'll `run` it down, jeff.
+- I'll `run` out right now.
+- I `run` down the numbers.
+- It's time to `run` away."
+- Listen, i've gotta `run`.
+- `Run` a good-cop-bad-cop.
+- `Run` as fast as you can.
+- That's our turtles `run`.
+- Then we can `run` for it.
+- Unless you whiskey `run`.
+- What if he doesn't `run`?
+- While he makes the `run`.
+- Who can `run` the estate?
+- You want to `run` for it?
+- How long did it `run`?
+- Cept she can't `run` away.
+- He used to `run` the nasa.
+- Hey, don't `run` away now.
+- I got a business to `run`.
+- I'm glad i `run` into you.
+- Let someone else `run` it.
+- Oh, what did i `run` into?
+- `Run` and don't look back.
+- `Run` with the herd kenny.
+- The `run`'s getting worse.
+- Who are you people, `run`!
+- You can't `run` out on me.
+- You `run` in streaks, pal.
+- You `run` out of chinamen?
+- You will not `run` me out.
+- Before he started to `run`.
+- Don't try to `run`, maggot.
+- He was `run` over by a car.
+- I can `run` out and get it.
+- I `run` an honest business.
+                 

@@ -1,0 +1,107 @@
+---
+title: "real in a sentence | real example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "real"
+---
+- As `real` as you wish.
+- Echo, it's not `real`.
+- Giants are not `real`.
+- He seems `real` sweet.
+- He's `real` all right.
+- He's `real` bad, nick.
+- I can be `real` stiff.
+- I got the `real` deal!
+- I'll talk `real` slow.
+- I'm asking for `real`.
+- In `real` life, dummy.
+- ..in the `real` thing.
+- Is this `real`, candy?
+- Is this really `real`?
+- It feels so.. .`real`.
+- It's a `real` episode.
+- It's `real` important.
+- It that mother `real`?
+- It was so `real`, dad.
+- I want `real` respect.
+- Josie, this is `real`.
+- My `real` name's norm.
+- Oh yeah, `real` funny.
+- That's my `real` name!
+- This isn't for `real`.
+- This time it's `real`!
+- You're a `real` buddy.
+- You're a `real` sport.
+- All of it, it's `real`.
+- But it is hyper-`real`.
+- But not `real` hip-hop.
+- For `real`, point-five.
+- He's a `real` gardener!
+- I know you `real` well.
+- I mean a `real` animal.
+- Is that a `real` place?
+- I think they're `real`.
+- I told you it's `real`.
+- It's `real`, you moron!
+- I used `real` hot dogs.
+- <i>you</i> were `real`.
+- No, it's `real` classy.
+- No -- something `real`.
+- Now he's a `real` shit.
+- Now i got a `real` job.
+- Oh my god, it's `real`.
+- Only the `real` stiffs.
+- She's the `real` mccoy!
+- She was a `real` asset.
+- Something `real` weird.
+- The fan club is `real`.
+- They were `real` clear!
+- Well i'm `real` scared.
+- What's a `real` denial?
+- What's his `real` name?
+- With a `real` reporter.
+- You got `real` ability.
+- And gave me `real` meds.
+- But it has to be `real`.
+- Get in the `real` world.
+- Here's a `real` present.
+- How `real` does it feel?
+- How `real` does it seem?
+- I gotta piss `real` bad.
+- I mean the `real` mccoy.
+- I mean the `real` money.
+- I'm not a `real` batter.
+- I'm `real` low on money.
+- I'm `real` sorry, laura.
+- I need something `real`.
+- Is it `real`, this time?
+- Is that her `real` name?
+- I thought he was `real`!
+- It's better than `real`.
+- It's `real` strong like.
+- Loop around `real` fast.
+- Me and my `real` estate?
+- Okay, `real` good, then.
+- `Real` cheerful, clarke.
+- `Real` straight, frugal.
+- She has a `real` spirit.
+- Sloan <u>`real`</u> men!
+- That feels `real` to me.
+- That's his `real` asset.
+- That's the `real` money.
+- The matrix isn't `real`!
+- The `real` trapper john?
+- The `real` war is in us.
+- This place isn't `real`.
+- What's your `real` name?
+- You are the `real` shit.
+- You got `real` problems.
+- You're a `real` man now.
+- You're not a `real` man?
+- A `real` shit-eatin' war.
+- Are you sure it's `real`?
+- But at least it's `real`.
+- But at least it's `real`.
+- But this can't be `real`.
+- Faith is the `real` work.
+                 

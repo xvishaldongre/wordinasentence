@@ -1,0 +1,107 @@
+---
+title: "deep in a sentence | deep example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "deep"
+---
+- Beauty is skin `deep`.
+- `Deep` breaths, dougy.
+- How `deep` does it go?
+- It's in pretty `deep`.
+- White, or `deep` pink.
+- Your pain runs `deep`.
+- Abby: ok, how `deep`?
+- `Deep` breathing helps.
+- `Deep` breaths, dougie.
+- `Deep` down, gut check.
+- .`deep` in your heart .
+- How `deep` does it get?
+- Is that `deep` or what?
+- ♪ take a `deep` breath.
+- You have to cut `deep`.
+- Four, nice, `deep` ones.
+- How `deep` does this go?
+- I feel it `deep` inside.
+- I'm showing `deep` cold.
+- It wasn't `deep` enough.
+- That was fucking `deep`.
+- `Deep` and slow, big guy.
+- `Deep` down, i know that.
+- `Deep` down, you're good.
+- I am in such `deep` shit.
+- Just take `deep` breaths.
+- The bridge is too `deep`.
+- I'm really in `deep` shit.
+- Maybe a `deep` freeze too.
+- Try some `deep` breathing.
+- Dig `deep`, doug, dig `deep`.
+- Drenched `deep` in sadness.
+- He's just a `deep` sleeper.
+- Wow, are you in `deep` shit.
+- `Deep` breaths, `deep` breaths.
+- He's in to `deep` to respond.
+- Lady has some `deep` pockets.
+- Michael, take `deep` breaths.
+- Produce `deep` in the ground.
+- It's 2224 `deep` dell place...
+- This place is a `deep` freeze.
+- Yes, the mole's `deep` inside.
+- Your scars run `deep`, jasper.
+- But this thing goes `deep`, ed.
+- He wasn't `deep` into the crew.
+- How `deep`'s the drop-off here?
+- I have never really dug `deep`.
+- I'm in real `deep` shit, jimmy.
+- Too `deep` to anchor out there.
+- We're in `deep` shit over here.
+- Take a `deep` breath for me?
+- `Deep` breaths, dougie, hang on.
+- I mean cleaning up, knee-`deep`.
+- She's entering `deep` sleep now.
+- So `deep` they'll never find it.
+- You're thinking `deep` thoughts.
+- Ah, my roots here are too `deep`.
+- But `deep` down, he's a good kid.
+- Now, take a `deep` breath for me.
+- Take a `deep` breath and hold it.
+- The water is only an inch `deep`.
+- `Deep` down i'm a good person?
+- I can't even take a `deep` breath.
+- I can't tell how `deep` it goes.
+- Is that going to be `deep` enough?
+- Now take `deep` breaths, and push.
+- Red, maybe a `deep` midnight blue.
+- It must be knee-`deep` in evidence.
+- The sea is lovely, dark and `deep`.
+- Uh, it's a `deep` south expression.
+- �we�re in `deep` trouble,� he said.
+- Do you have any `deep` dark secrets?
+- Gimmie an order of brain `deep`-fry.
+- He's in `deep` shit right about now.
+- Breathe `deep` -- keep ya chin down!!
+- Bury your feelings `deep` down, luke.
+- See how `deep` and rich the red runs?
+- You think i am in so `deep` i forgot?
+- I came to a place of `deep` silence...
+- Mama, sailor's in `deep` trouble here.
+- Take a `deep` breath and count to ten.
+- You look very `deep` when you do that.
+- I know how `deep` her pockets are, ken.
+- You have to be able to see that `deep`.
+- `Deep` down, i guess i was just jealous.
+- I was working a drug ring, `deep` cover.
+- My brother-in-law `deep`-fried a turkey.
+- They obviously have very `deep` pockets.
+- We're gonna be in some `deep` shit here.
+- You seem to always be in `deep` thought.
+- Danny: well, it's probably really `deep`.
+- Down `deep`, people were deeply affected.
+- Eber's `deep` conditioner every two days.
+- "thoughts that lie too `deep` for tears."
+- We use it if we need to go really `deep`.
+- You keep on saying "`deep`" and "deeply."
+- As for him, we buried him good and `deep`.
+- Mr. king, i think -- take a `deep` breath.
+- I goes `deep`, and involves the government.
+- The truck fell into a very `deep` crevasse.
+                 

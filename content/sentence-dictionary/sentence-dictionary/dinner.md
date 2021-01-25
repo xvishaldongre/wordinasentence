@@ -1,0 +1,107 @@
+---
+title: "dinner in a sentence | dinner example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dinner"
+---
+- He's gone to `dinner`!
+- I'll wager a `dinner`.
+- _ i made the `dinner`!
+- I was having `dinner`.
+- We can go to `dinner`.
+- I'11 make `dinner`.
+- `Dinner`'s in the oven.
+- I'll come for `dinner`.
+- So what's for `dinner`?
+- That was your `dinner`!
+- Then come for `dinner`.
+- Was i at that `dinner`?
+- `Dinner` in ten minutes.
+- `Dinner`'s on the table.
+- Geoff, `dinner`'s ready!
+- Hand over your `dinner`.
+- To be home for `dinner`.
+- We'll all have `dinner`.
+- What rehearsal `dinner`?
+- `Dinner`'s in the warmer.
+- Go kill me some `dinner`.
+- I gotta go make `dinner`.
+- I'm cooking you `dinner`.
+- It was a lovely `dinner`.
+- Our other `dinner` guest.
+- Ready for `dinner`, brad?
+- So i brought us `dinner`.
+- You're late for `dinner`!
+- You staying for `dinner`?
+- Can you stay for `dinner`?
+- `Dinner`... and what else?
+- Do you want some `dinner`?
+- Even the `dinner` tonight.
+- I asked her to `dinner`...
+- I could use some `dinner`.
+- I'll see you for `dinner`.
+- Let's have `dinner` first.
+- Let's talk after `dinner`.
+- You want to have `dinner`?
+- `Dinner` when you land.
+- At least stay for `dinner`!
+- `Dinner` at my place then ?
+- `Dinner` at the river cafe.
+- How about `dinner` tonight?
+- How about havin' `dinner`?"
+- I'll take care of `dinner`.
+- I'm gonna go grab `dinner`.
+- It's not `dinner` time yet.
+- Mom made a little `dinner`.
+- Now, what time is `dinner`?
+- Oh, hi -- how was `dinner`?
+- Shall we stop for `dinner`?
+- Your `dinner` was canceled.
+- `Dinner` at the white house.
+- `Dinner`'s just about ready.
+- I don't stay after `dinner`.
+- I will have my `dinner` now.
+- Listen, what about `dinner`?
+- Ray wanted to have `dinner`.
+- So have `dinner` without me.
+- Strictly `dinner` and dance.
+- Tea would spoil my `dinner`.
+- Thank victoria for `dinner`.
+- Are we dressing for `dinner`?
+- Chase is coming for `dinner`.
+- `Dinner` first, then dessert.
+- Earth skills before `dinner`.
+- Feel like the dog's `dinner`.
+- I'll snare some for `dinner`.
+- Is hooper coming to `dinner`?
+- Sit down, finish my `dinner`.
+- These are my `dinner` guests.
+- To get through this `dinner`.
+- Did you have `dinner`, father?
+- Don't you want `dinner` first?
+- I'm gonna cook him a `dinner`.
+- I'm sitting there at `dinner`.
+- I, uh... changed for `dinner`.
+- Man: cocktail before `dinner`?
+- Sweetie... `dinner` is served.
+- Up for a celebration `dinner`?
+- "what about fucking `dinner`?"
+- What do you want for `dinner`?
+- What time is `dinner`, mother?
+- Will you be back for `dinner`?
+- Will you join me for `dinner`?
+- Come, let's return to `dinner`.
+- `Dinner` will be ready shortly.
+- I want to be home for `dinner`.
+- Just `dinner` and dance, right?
+- Letty, `dinner`'s almost ready.
+- My `dinner` guests are waiting.
+- We will be here until `dinner`!
+- What did you have for `dinner`?
+- Will you have `dinner` with me?
+- You going to stay for `dinner`?
+- You want to get `dinner` later?
+- `Dinner` with brock leviathan...
+- Especially around `dinner` time.
+- Hey, what about sunday `dinner`?
+                 

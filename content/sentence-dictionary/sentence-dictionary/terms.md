@@ -1,0 +1,90 @@
+---
+title: "terms in a sentence | terms example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "terms"
+---
+- I accept your `terms`.
+- Those are the `terms`.
+- Those were the `terms`.
+- But i have a few `terms`.
+- The `terms` are too high.
+- The `terms` will be mine.
+- Time in `terms` of m.p.h.
+- These `terms` don't apply.
+- Were the mid-`terms` hard?
+- Diyoza's `terms` for peace.
+- First name `terms`, surely!
+- I mean define your `terms`.
+- What are your `terms`, sir?
+- I get my boxing `terms` mixed.
+- We're not on speaking `terms`.
+- The `terms` you and i agree on?
+- Things to come to `terms` with.
+- From now on, we dictate `terms`.
+- You said there were new `terms`.
+- Those are extremely harsh `terms`.
+- Two `terms`, one in italy, one here.
+- Do you want to hear my `terms` or not.
+- I don't want us to end on bad `terms`.
+- I want you to settle on their `terms`.
+- Then i'd ask you what your `terms` are.
+- It only works if you're on good `terms`.
+- Otis stood on good `terms` with the man.
+- Only you want love on your own `terms`. "
+- You have calculated in `terms` of hunger.
+- Keep my `terms` and i won't be your enemy.
+- That answer is a contradiction in `terms`.
+- What about in `terms` of medical expenses?
+- The `terms` and conditions of your surrender.
+- But what about the effect of the other `terms`?
+- The crown "negotiating" the `terms` of service?
+- Allow me the humor of listening to your `terms`.
+- "and we will make them over in our own `terms`."
+- Don't think of it in `terms` of right and wrong.
+- And then work out `terms` for sharing the valley.
+- But it was weird in `terms` of what happened next.
+- I am prepared to accept the `terms`, mr. newcombe.
+- "a toast then, jedediah, to love on my own `terms`.
+- The commander's changing the `terms` of the summit.
+- I can negotiate the `terms` of their relocation.
+- I beg you to consider my `terms` for your surrender.
+- Two `terms`; one in italy, one in the united states.
+- Yes -- that will reproduce the first- order `terms`.
+- You've already fulfilled the `terms` of your pardon.
+- In layman's `terms`, it means you're not coming home.
+- In layman's `terms`, it means you're not coming home.
+- As you know, the `terms` of martial law so many people.
+- Those weren't the `terms`, i need for them to break up.
+- Those are the only `terms` anybody ever knows, his own."
+- I've been told off in no uncertain `terms` all over town.
+- ♪ running around banging your drum ♪ those are my `terms`.
+- Have you heard the `terms` of the seventeen point agreement?
+- It was a matter of forming the request in the proper `terms`.
+- We're having a meeting, it's all set up -- fuck legal `terms`.
+- We need to make peace with the grounders, those are my `terms`.
+- You finished the film on your own `terms`, that's what matters.
+- How long were you and eduard -- as long as it's on their `terms`.
+- People have had their jail `terms` reduced, into these damn woods.
+- To come to `terms` with finding out you're gonna tell me the truth.
+- What killed those men can't be identified in simple medical `terms`.
+- This is not what we have worked out in `terms` of presented behavior.
+- We are simply respecting the `terms` of the seventeen point agreement.
+- Well, sir, in purely arithmetic `terms`, since when does six equal one?
+- Does the chief of the canadas believe the english will keep the `terms`?
+- ...that is going to explode... let me put it in easy `terms`, aristotle.
+- Under the `terms` of the truce, well, check out these twin caterpillars.
+- Bay area's become quite a hornet's nest in `terms` of subversive activities.
+- Do this for me; you make the peace with the rosato brothers on their `terms`.
+- I didn't know we was still referring to this platoon in `terms` of squads sir.
+- We've been roaming the countryside i will hear the `terms` of your surrender nerd.
+- I'm ... uh, i think it's time we begin to think in `terms` of cutting our losses.
+- Yeah, a fight broke out here and-- to convince them to honor the `terms` that we set.
+- No, um, i kind of came to `terms` with myself, i realized i had done what i had to do.
+- Are you threatening me, because i'm sure that's a violation of the `terms` of your bail.
+- In `terms` of land value out in hinkley, mr. masry, we feel it's a more than fair price.
+- Actually, i was a good deal older when we arrived... in `terms` of my physical condition.
+- Yet, i cannot break the `terms` of the capitulation and sully the lilies of france...
+- I have decided to accept the principle of a negotiation; the `terms` are not established.
+- You know, of course, unless something comes up get out, we take the bridge, lexa's `terms`.
+                 

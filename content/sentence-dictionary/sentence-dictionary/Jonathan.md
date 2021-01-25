@@ -1,0 +1,72 @@
+---
+title: "Jonathan in a sentence | Jonathan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jonathan"
+---
+- It's `jonathan` byers.
+- `Jonathan`, just come.
+- `Jonathan`'s with him.
+- She's with `jonathan`.
+- Let me try, `jonathan`!
+- Not so much `jonathan`.
+- God damn it, `jonathan`.
+- `Jonathan`, i'm right...
+- Do something, `jonathan`!
+- Hey, `jonathan`, wait up.
+- `Jonathan`, stop talking.
+- Just go home, `jonathan`.
+- Maybe `jonathan`'s right.
+- `Jonathan`, that's enough.
+- `Jonathan`, where are you?
+- Now `jonathan` masbath.
+- Do you like `jonathan` now?
+- `Jonathan`, i'm right here!
+- `Jonathan`'s night to pick?
+- Wait, `jonathan`, `jonathan`!
+- Cynthia, this is `jonathan`.
+- How is `jonathan` holding up?
+- `Jonathan`... we're too late.
+- Lieutenant `jonathan` scrimm.
+- While we still can, `jonathan`!
+- That was... that was `jonathan`.
+- `Jonathan` quayle higgins ... no.
+- So why are you dating `jonathan`?
+- Guys-- `jonathan`, get off of him!
+- I figured `jonathan` would take you.
+- I know it's expensive, - `jonathan`!
+- `Jonathan` was such a beautiful man.
+- `Jonathan`, we've talked about this.
+- That is not good enough, `jonathan`.
+- I gave `jonathan` all my money for...
+- Kawakita and `jonathan` stay with me.
+- Or the old lady is nuts - `jonathan`?
+- So, `jonathan`, how was the pull-out?
+- It is not the electricity, `jonathan`.
+- To pay for `jonathan` to go to school!
+- `Jonathan` jr. that's got a ring to it.
+- Please, i need you to stay, `jonathan`.
+- Don't just stand there gapin' `jonathan`.
+- I'm serious, `jonathan`, i can't be late.
+- `Jonathan` and i were into more than sex.
+- `Jonathan`, you have to make sure he's up!
+- You promised the people truth, `jonathan`?
+- `Jonathan`, `jonathan`... - i'm sorry, linda.
+- Tell `jonathan` not to pick anything scary.
+- Where does `jonathan` want to go to college?
+- Safe to assume the retrieval team `jonathan`!
+- Get his gun and his walkie talkie, `jonathan`.
+- `Jonathan` and the princess skipped yesterday.
+- I need everything on the `jonathan` white case.
+- That isn't what i -- don't brag now, `jonathan`.
+- If you're willing to do what it takes `jonathan`!
+- You're shopping for bear traps with `jonathan` byers.
+- `Jonathan`... don't watch that with your wife, either.
+- I really don't need a `jonathan` byers pep talk right now.
+- Inspecting repairs to the hull, but i heard him, `jonathan`.
+- Jamie kurth, `jonathan` edmunds-- i'm not a witch, you're all crazy!
+- The last of your kind to stand before us... becca... nancy and `jonathan`.
+- I'm not interested in the latest dating tips from `jonathan` taylor thomas.
+- Because you couldn't take `jonathan` byers... when there's room in this bunker.
+- Yeah, i was thinking, "`jonathan` byers, if i shoot you, i won't get the answer.
+                 

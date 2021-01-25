@@ -1,0 +1,89 @@
+---
+title: "Doug in a sentence | Doug example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Doug"
+---
+- But what about `doug`?
+- `Doug`, come on, mate.
+- `Doug`... `doug`'s gone.
+- Hang in there, `doug`.
+- Good evening... `doug`.
+- It's not funny, `doug`.
+- No way `doug`, i can't.
+- Step at a time, `doug`.
+- What about you, `doug`?
+- `Doug`'s just behind me.
+- I'm not going in `doug`.
+- Rob, is `doug` with you?
+- Hey -- `doug` stallworth?
+- We're out of gas, `doug`.
+- `Doug`, are you all right?
+- How long does `doug` take?
+- Rob can, but `doug` can't.
+- Dig deep, `doug`, dig deep.
+- `Doug`, let's go, hurry up!
+- Hey `doug`, where you been?
+- One step at a time, `doug`.
+- `Doug`, what's he up to?
+- Hey `doug`, you want a beer?
+- What's `doug` do in chicago?
+- Now help me out here, `doug`.
+- Thank you, thank you, `doug`.
+- `Doug` hylton... veronica!
+- `Doug`, you're too late, okay?
+- Good minutes, `doug`, come on!
+- `Doug`, come on, mate, come on!
+- `Doug`, i can't just leave you!
+- Forget it `doug`, it's no good.
+- I'm not staying out late `doug`.
+- I sent a letter to `doug` today.
+- `Doug`, nobody tried to kill you.
+- Jesus `doug`, they'll execute us!
+- I'm not leaving you behind, `doug`.
+- `Doug`, maybe we should take a trip.
+- Or `doug` schenken - what about him?
+- `Doug`, haven't seen you for a while.
+- `Doug` you said you wouldn't be long.
+- No, `doug`, we can't give you more o.
+- Does `doug` care that you're seventeen?
+- `Doug` is just coming over the horizon.
+- I don't wanna spoil it for you, `doug`.
+- It's all my fault, i'm so sorry `doug`.
+- No, i'm not leaving you behind, `doug`.
+- "to the love of my life, love, `doug`"?
+- You're talking ancient history, `doug`.
+- Well, you're working three jobs, `doug`.
+- It was a condition of getting `doug` out.
+- Sorry katka, but i'm with `doug` on this.
+- There's no way i'm leaving `doug` behind.
+- `Doug`...you wouldn't shoot me, would you?
+- I'll be here till i get a visual on `doug`.
+- No, `doug`, come on, you're coming with me!
+- `Doug`'s been arrested, he's in big trouble.
+- `Doug`'s in the worst position of all: fetal.
+- `Doug`... you call this a paranoid delusion?!
+- Rob, what is `doug`'s state of consciousness?
+- We're all keeping our fingers cross for `doug`.
+- `Doug` i can't, i've got to be at work by eight.
+- What do you do when you're not climbing, `doug`?
+- We're all keeping our fingers crossed for `doug`.
+- But `doug`...there's something i want you to know.
+- That's true `doug`, writers are supposed to write.
+- These men were going to kill me... oh god, `doug`.
+- `Doug`'s right, there's too much crap in this town.
+- Give'em a break `doug`, all it takes is a little work.
+- The fact is, hauser volunteered to become `doug` quaid.
+- I'll be here till i get a visual on `doug`, over and out.
+- `Doug`'s just behind me, i left him behind to scoot forward.
+- I'm telling you, `doug`, your brain won't know the difference.
+- I thought you loved me `doug` but all you want from me is sex.
+- Just as soon as i see `doug`, we'll be heading back down, over.
+- Before i met `doug` i chased after every guy i thought was cute.
+- `Doug` sees beyond that stuff to what the person inside is like.
+- It's all over between us, `doug`, i'm sorry, but that's the truth.
+- `Doug` well, there's tons of empty buildings - why don't we get one?
+- Why don't we just take the whole damn building, brick by brick `doug`.
+- Now: the waterford merchant's association, of who i am council... `doug`...
+- Listen, `doug` took the rap for us all so grab your coat 'cause you're going.
+                 

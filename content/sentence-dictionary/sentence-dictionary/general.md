@@ -1,0 +1,107 @@
+---
+title: "general in a sentence | general example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "general"
+---
+- `General` of the army.
+- Just one, `general`...
+- The `general` is here.
+- `General` savitzky.
+- Cut the `general` crap.
+- The `general` is right.
+- There was no `general`.
+- What's that, `general`?
+- Yes, `general` formica.
+- Hey, it's the `general`.
+- I admire you, `general`.
+- To the `general` public?
+- Yes, `general` savitzky?
+- `General` charles cabell.
+- `General` greene is here.
+- `General` handyman, yeah.
+- `General` jim beam, then.
+- It's not a he, `general`.
+- That's `general` gavin's.
+- I just meant in `general`.
+- Just the facts, `general`.
+- That's the `general` idea.
+- You're `general` kenobi?!?
+- `General` randall's orders.
+- Good to see you, `general`.
+- I am that blood, `general`.
+- In `general`, i'll see you.
+- It's beneath any `general`.
+- N-n-no thanks, g-`general`.
+- That's the `general` alarm.
+- You betcher ass, `general`.
+- You'll find out, `general`!
+- Are you `general` bonaparte?
+- `General` assembly building.
+- `General` director preysing!
+- `General` lee, welcome back.
+- `General` salazar was there?
+- I'm just tired in `general`.
+- I went to see the `general`.
+- That was the `general` idea.
+- The `general` threatened me.
+- This is `general` splattin'.
+- What do you mean, `general`?
+- What's up, `general` ripper?
+- You mean a `general` strike?
+- It's this `general`, salazar.
+- Paging for `general` randall.
+- ...that's the `general` idea.
+- Well, call `general` mcaddie.
+- What's in the box, `general`?
+- Any last words, `general` lee?
+- `General` jack d. ripper, sir.
+- Marital problems in `general`?
+- Wasn't that `general` salazar?
+- `General` brody's very pleased.
+- I thought you were a `general`.
+- The `general` will see you now.
+- Unofficially, `general` greene.
+- `General`, can i ask a question?
+- `General` webb can burn in hell.
+- I want the `general` to see him.
+- Sounds like a russian `general`.
+- So what do we do, `general` lee?
+- It's been a long time, `general`.
+- Knock it off will you, `general`?
+- But, `general`, we're on our toes.
+- `General` textbook on the subject.
+- He's on the fleet `general` staff.
+- I see... just a minute, `general`.
+- That is the `general` idea, yes...
+- That's over the border, `general`.
+- This is `general` ripper speaking.
+- I want to talk to `general` ripper.
+- Now if you'll excuse me, `general`.
+- That's difficult to say, `general`.
+- That's the idea, `general` schmuck.
+- The pentagon, wasn't it, `general`?
+- What about just rats, in `general`?
+- `General` lee is detained captain...
+- In the meanwhile -- look, `general`!
+- Well, look at you, a `general`, huh?
+- `General`, i've heard some wild ones.
+- I out-coached that `general` hammond.
+- Shall we call the attorney `general`?
+- Well... only in a very `general` way.
+- What have you got in mind, `general`.
+- What's the gun for, `general` ripper?
+- `General` gasparilla's army...my army!
+- `General` osvaldo tamarindo y ramirez.
+- `General` shang, the pleasure is mine.
+- `General`, stick to the point, please.
+- `General` -- we have to talk sometime!
+- Mr. bernstein is my `general` manager.
+- Worm," and no "worm-master-`general`!"
+- Would you like some coffee, `general`?
+- Major lavallette to see you, `general`.
+- The surgeon `general` of beverly hills.
+- You got the `general` right in the ass.
+- But he works for the attorney `general`.
+- Mike's our attorney `general` down here.
+                 

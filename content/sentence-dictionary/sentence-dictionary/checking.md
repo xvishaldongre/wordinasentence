@@ -1,0 +1,79 @@
+---
+title: "checking in a sentence | checking example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "checking"
+---
+- I'm `checking` on that.
+- `Checking` out a theory.
+- `Checking` the place out.
+- I was `checking` you out.
+- I was just `checking` in.
+- `Checking` out your place.
+- I've done some `checking`.
+- `Checking` the locks again?
+- `Checking` <u>them</u> out.
+- I'm just `checking` on will.
+- I was `checking` the cables.
+- Just `checking` is out, huh?
+- But you're `checking` it out.
+- `Checking` in...karla wilson.
+- Been `checking` your messages?
+- But they're `checking` it out.
+- I'll do all the `checking` up.
+- We're `checking` that out too.
+- `Checking` out the competition.
+- He's `checking` every carriage.
+- Just `checking` out the lights.
+- `Checking` up on my friend, harry.
+- Just `checking` up on your family.
+- What, are you `checking` up on me?
+- "`checking` every northbound train.
+- I should be `checking` on the boat.
+- Start `checking` around the quarter.
+- `Checking` the western boundary line.
+- Just `checking` -- keep out of sight!
+- `Checking`........ a real criminal....
+- Just `checking` to see if you're here.
+- Everybody's `checking` their shoelaces.
+- I got more fruit that needs `checking`.
+- Just a minute, hold it, i'm `checking`.
+- Maybe he slipped by without `checking` in.
+- Ready to transmit -- `checking` connection.
+- I did some `checking`, she's a hematologist.
+- I see you're `checking` out the merchandise.
+- They were `checking` out the renquist front.
+- (breathlessly) i'm just `checking` on the suit.
+- `Checking` the bacterial levels in the station.
+- He's down `checking` a buoy in the bay channel.
+- I want to open a `checking` account - sit down.
+- Four seconds from... just `checking`, young sir.
+- Oh, just `checking` something for an old friend.
+- He's `checking` out a meteorite that hit near him.
+- I'm `checking` out anybody who lives like desalvo.
+- You and me are `checking` the other ways in and out.
+- `Checking`... who signed as his "sponsoring officer"?
+- Do you find yourself `checking` and re-`checking` locks?
+- I got a man from headquarters `checking` up on it now.
+- I'm freezing here, thank you for `checking`, can i go?
+- We're `checking` every cellular account in the county.
+- I did some `checking` on that carter stevens character.
+- I want you two with trackers, `checking` the corridors!
+- Nurse humphries was `checking` my prostate this morning.
+- I'm sorry, we're sorry, just `checking` out your fly laptop!
+- Oh, i was just `checking` the, ah... ...you know, lookin' in.
+- He should be `checking` in any moment -- is the doctor anywhere?
+- `Checking` out psychiatric hospitals for his personality profile.
+- ... they're `checking` the ratings...uh... why is this putz on the air...
+- We're `checking` the entry log, alibis, grudges... a man's dead, detective.
+- I'm gonna do some `checking` - see if i can put any of this together... how?
+- I'm double-`checking` every case, but i don't want to be too obvious about it.
+- I've looked through your file and done a little `checking`, and i know it all.
+- I know `checking` into your life was inexcusable... don't flatter yourself.
+- Maybe you're just `checking` your stash, man on radio: ey’ve broken through!
+- Pretty soon i'm going to start `checking` the mirror to see if i'm turning green.
+- What you're doing here is `checking` for color density as it thins toward the rim.
+- So, what happened to ms. caperelli's `checking` with outside counsel first, all that crap?
+- I've got some final preparations to take care of�� `checking` his watch, he stops suddenly.
+- There's these two bulls on top of a hill `checking` out some foxy cows in the meadow below.
+                 

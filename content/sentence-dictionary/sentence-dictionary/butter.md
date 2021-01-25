@@ -1,0 +1,58 @@
+---
+title: "butter in a sentence | butter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "butter"
+---
+- Leave the `butter` out?
+- No...just the `butter`.
+- Peanut `butter` and jelly.
+- Till i find my `butter` tub.
+- Used like `butter` on bread.
+- Would you pass the `butter`?
+- I used two sticks of `butter`.
+- Peanut `butter` and jellyfish.
+- Its slices armour like `butter`.
+- The h�agen- dazs `butter` pecan?
+- They put `butter` on everything.
+- With a peanut `butter` sandwich.
+- Baked with a `butter`-lime glaze.
+- 'laura scudder's peanut `butter`'.
+- More than you love peanut `butter`?
+- We can still use my `butter` money.
+- A little `butter`, right, not a lot?
+- I would prefer some peanut `butter`.
+- What does the `butter` spot feel like?
+- I like apple `butter` not `butter` `butter`.
+- Why do you love peanut `butter` so much?
+- Ray, my man, this steak is like `butter`!
+- With `butter`, if they got any.... great!
+- Listen, stupe - no `butter` and no pastry.
+- I made a loaf of peanut `butter` and jelly.
+- Look - no `butter`, no pastry, and no sugar!
+- Remind me-- put some `butter` on it--or ice?
+- This is like falling into a tub of `butter`.
+- It's like sweet and sour, and salty `butter`.
+- You wanna tip me, best do it in `butter` beans.
+- One large tub of popcorn, please, extra `butter`.
+- Fresh squash, tomatoes, some okra, `butter` beans.
+- Peanut `butter` and jelly with the crusts cut off.
+- He does, a little spot where the `butter` had been.
+- I'd like to get an order of...um...peanut `butter`.
+- Even the spinal bone... sliced as smooth as `butter`.
+- What does that have to do with the price of `butter`?
+- We can take off the "wanda june" with a `butter` knife.
+- ♪ yours has `butter`, mine has possum gravy ♪ i'm home!
+- I'd like to try the peanut `butter` chocolate swirl, please.
+- Isn't this better than haagen-dazs `butter` pecan ice cream?
+- Do you still want the peanut `butter`, bread and cigarettes ?
+- He shows up for a battle of wits with a mental `butter` knife.
+- He's eatin' steak and corn with `butter` and green beans and...
+- I'm about to hit you in the head with a peanut `butter` sandwich.
+- You act like you never had peanut `butter` before -- peanut `butter`.
+- We had peanut-`butter` sandwiches and apples and honey at snacktime.
+- We'll put in a great nugget of `butter`, plenty of pepper and salt...
+- Last suspect he took in, `butter`-fingers dropped her down the stairs.
+- But i gotta say, peanut `butter` and chocolate, come on, hard to beat that.
+- Courtney, you're going to have the peanut `butter` soup with smoked duck and mashed squash.
+                 

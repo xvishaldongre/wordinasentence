@@ -1,0 +1,107 @@
+---
+title: "they in a sentence | they example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "they"
+---
+- As soon as `they` can.
+- Before `they` kill us.
+- Boy: `they`'re back!
+- But `they`'ll be back.
+- But `they`'ll kill us.
+- But `they`'re hackers.
+- But `they` were wrong.
+- Didn't `they`, duffy?!
+- Did `they` follow you?
+- Do `they` have drinks?
+- Do `they` serve booze?
+- Even if `they`'re bad.
+- Eve: `they`'re coming.
+- Here `they` are again.
+- Here `they` are, then.
+- How could `they` know?
+- How do `they` find me?
+- How `they` goin', kid?
+- How would `they` know?
+- I feel like `they` do.
+- I hear `they`'re good.
+- I know `they` hate me.
+- I know `they` made me.
+- I know who `they` are.
+- Is it like `they` say?
+- I think `they` got me.
+- It's what `they` done!
+- It's what `they` want.
+- It was all `they` had.
+- Looks like `they` can.
+- Man `they` got pissed.
+- Maybe `they`'re right.
+- Means `they`'re cured.
+- Now `they`'re rollin'.
+- Of course `they` stay.
+- Of course `they` were.
+- Of course `they` will.
+- Oh, `they`'ll be fine.
+- Oh, `they`'re so cute.
+- See if `they`'ll what?
+- Something `they` need?
+- So `they` built bombs.
+- So `they` druv us off.
+- So `they`'re not mean.
+- Sure, `they`'re safer.
+- That's all `they` are.
+- That's all `they` get?
+- That's how `they` are.
+- That's how `they` met.
+- That's what `they` do.
+- That's who `they` are.
+- Then `they` can watch.
+- The type `they` marry.
+- `They` all i got left.
+- `They` are everywhere!
+- `They` are invincible!
+- `They` are my friends.
+- `They` are not afraid!
+- `They` are struggling.
+- `They` ate them alive!
+- `They` better be fast.
+- `They` bloody hurt me.
+- `They` bring me stuff.
+- `They` call him names.
+- `They` can be saddled.
+- `They` can make hosts.
+- `They` can't hear you.
+- `They` can't hurt you.
+- `They` can't lose two.
+- `They` can't touch us.
+- `They` care about you.
+- `They` check in alone?
+- `They` come after her.
+- `They` come after you?
+- `They` confide in him.
+- `They` could kill you.
+- `They` didn't have it.
+- `They` didn't like it!
+- `They` didn't like me.
+- `They` didn't make it.
+- `They` didn't make it.
+- `They` didn't tell me.
+- `They` didn't want me.
+- `They` do, my brother.
+- `They` don't find out.
+- `They` don't go there!
+- `They` don't have any!
+- `They` don't kill you!
+- `They` don't know him.
+- `They` don't know you.
+- `They` don't use guns.
+- `They` don't want him.
+- `They` don't want you.
+- `They` drive me crazy.
+- `They` expect results.
+- `They` find the radio?
+- `They` fired everyone.
+- `They` found the bird.
+- `They` found the safe.
+- `They` gave me a call.
+                 

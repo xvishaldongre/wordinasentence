@@ -1,0 +1,68 @@
+---
+title: "mercy in a sentence | mercy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mercy"
+---
+- Yeah, no `mercy` here.
+- _ i don't want `mercy`.
+- We're at their `mercy`.
+- And you call it `mercy`.
+- They gotta have `mercy`!
+- Tender mother of `mercy`.
+- Lord have `mercy` on joey.
+- God have `mercy` on my soul.
+- `Mercy`... is to die quickly.
+- No prisoners, no `mercy`, amen.
+- We can't afford `mercy`, either.
+- Mother of god ...have `mercy` ...
+- Until then, she's at his `mercy`.
+- Do you believe in `mercy` killing?
+- "he may have `mercy` on them all."
+- Please, show `mercy`, - good luck.
+- Can i beg for `mercy`--on my knees?
+- It was a `mercy`-killing after all.
+- There is no god of `mercy`, father.
+- Will he show `mercy` to my country?
+- You'll beg for `mercy` in a second.
+- Strength without `mercy` is nothing.
+- Yeah, i'm a nurse's aide at `mercy`.
+- He is in our midst and at our `mercy`.
+- I'm at the `mercy` of your sex glands!
+- If you want `mercy`, nancy's different.
+- In your `mercy` and by your grace, ooh.
+- In any event, i will not beg for `mercy`.
+- Let's get back to the shepherd's `mercy`.
+- You don't deserve the shepherd's `mercy`.
+- I understand... of <u>`mercy`</u>...off...
+- This is dear `mercy` and thou sees it not.
+- You leave me at the `mercy` of my enemies.
+- If you tell the truth, she will show `mercy`.
+- If you want `mercy`, i am not a leader, jaha.
+- Promise us `mercy` and deliver destruction...
+- That angel of `mercy`, he ain't a she, is he?
+- [door opens] may god have `mercy` on his soul.
+- I will offer you a chance for `mercy` as well.
+- Then as knight to knight i can offer you `mercy`.
+- If you wanted to show `mercy`, that is your choice.
+- So he may once again believe in thine divine `mercy`.
+- Have `mercy` on this child ... let this child live ...
+- You know, my father, he begged for `mercy` and lincoln.
+- Let it be to thee a token of `mercy` unto everlasting life.
+- Plead guilty and throw yourself on the `mercy` of the court.
+- Mother, i only -- may the lord have `mercy` on you, walt spoon!
+- You know there is no room for love or `mercy` in hunter's code.
+- We'd be eternally grateful if you� at the `mercy` of a mad pilot.
+- I tell ya, there's an angel of `mercy` standing out there, turkle.
+- Please, abby, it's been so long - did he show your mother `mercy`?
+- Today the businessman is at the `mercy` of kid-lawyers from the sec.
+- No `mercy` will be shown toward the murderer who turned up in peking.
+- Rome is going to pay tribute -- like a defeated nation begging for `mercy`?
+- Show `mercy`... oh thou great king... and win the respect of your own people.
+- I mean the lodovico street bridge isn't exactly on the way to `mercy` general.
+- It would be a `mercy` to spare her the suffering she causes herself and others.
+- The thing is, cameron -- i'm at the `mercy` of a particularly hideous breed of loser.
+- We can't raise more... we can only place ourselves at the `mercy` of your generosity.
+- You know, my father, he begged for `mercy` ♪ hallelujah ♪ water that's at the quarry.
+- ... will perry ... jesus `mercy`, that's charlie higgins, dave laller ... then i love it.
+                 

@@ -1,0 +1,60 @@
+---
+title: "union in a sentence | union example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "union"
+---
+- The sidekicks' `union`!
+- I haven't got a `union`.
+- `Union` carbide in japan.
+- What's at `union` station?
+- You should start a `union`.
+- Head towards `union` station.
+- The `union` don't run my house.
+- The `union` ain't gonna like it.
+- In a bathroom in `union` station.
+- What has it got me, your `union`?
+- And come together in holy `union`.
+- I'm reportin' this to my `union`!!
+- Are we talking to a `union` spokesman?
+- Let's consummate our fiendish `union`!
+- What about, ah, non-`union` occupations?
+- You're gonna have some `union` problems.
+- You got in the `union`, you got an agent.
+- Like the western `union` boys used to do...
+- To symbolize this `union`, could be useful.
+- We met in graveyards to build that `union`!
+- Evan twombley, the `union` boss who got shot.
+- Nathan's memory lives on in our sacred `union`.
+- The bus depot here has a western `union` thing.
+- I don't want to join your goddamned `union`.
+- Get parker at the `union`-leeds - the exchange .
+- Kris kringle `union`, local 5732. girl problems.
+- In the first place, i'm paying you `union` scale.
+- Now don't start talking against the `union` again.
+- It is the perfect `union` of mind, body and spirit.
+- This miserable wilderness is a state of the `union`.
+- Western `union` must have gotten the names reversed.
+- He's a mucky-muck `union` official from massachusetts.
+- It should've been a `union` demand from the beginning.
+- The soviet `union` collapsed without a shot being fired.
+- You tell me to start a `union`, i'm blowing your head off.
+- You gotta be a member of a `union`, no `union` card - no job.
+- It can't miss, unless the western `union` dicks get onto it.
+- Sir, your dinner with the `union` leaders begins in an hour.
+- Now we had one of them `union` men 'round here coupla years ago.
+- Scottie, remember the day you lost that hostage in `union` square.
+- I guess your father's not a `union` representative on that company.
+- Wire it to the western `union` in oklahoma city, christ, sure... yes!
+- We got a partner downtown runs the central office of the western `union`.
+- If i may so bold as to say something - did you ever hear the word "`union`"?
+- The `union` bosses say unless we take bellmoth's offer, it'll only get worse.
+- It's likely there are people in the `union` who don't want twombley to testify.
+- Might get drummed out of the pornographer's `union`, and then where would i be?
+- Oh so god's like western `union` and he just dropped us a couple million bucks?
+- I think the only think you've left out are our relations with the soviet `union`.
+- But you don't pull a strike when the bosses want it -- so they can smash your `union`.
+- To join the `union`, you gotta get the job, but you don't get the job without the card.
+- I don't under-- that's because your `union` bosses <u>are</u> those guido mother-fuckers.
+- You're the one who got him out of the soviet `union` was it still in bio- weapon business.
+                 

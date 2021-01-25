@@ -1,0 +1,107 @@
+---
+title: "scared in a sentence | scared example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "scared"
+---
+- Daddy you `scared` me!
+- He's running `scared`!
+- I'm `scared` shitless.
+- I think he's `scared`.
+- I think i `scared` it!
+- Jeez, you `scared` me.
+- Lincoln, i'm `scared`.
+- She was just `scared`.
+- That kid was `scared`.
+- Why were you `scared`?
+- Are you `scared` of me?
+- But i'm `scared` telly.
+- Don't be `scared`, kid.
+- Don't look so `scared`.
+- I know you're `scared`.
+- I think she's `scared`.
+- It's ok to be `scared`.
+- It's ok to be `scared`.
+- Jesus, you `scared` me.
+- Of course i'm `scared`.
+- She should be `scared`!
+- Steve `scared` 'em off?
+- The fat man's `scared`.
+- Well i'm real `scared`.
+- Damn right i'm `scared`.
+- Do not be `scared` of...
+- Don't be `scared`, boys.
+- I ain't `scared` of you.
+- I'm not `scared`, buddy.
+- Now i'm really `scared`.
+- Or are you too `scared`?
+- She looks very `scared`.
+- Walter, you `scared` me.
+- Why are you so `scared`?
+- You're `scared` now, eh?
+- You were being `scared`.
+- You were `scared`, jake!
+- ey should be `scared`!
+- He's `scared` of the kid.
+- I admit it, i'm `scared`.
+- I'm not `scared` anymore!
+- I'm not `scared` of them.
+- I'm `scared`... be quiet!
+- I've been so `scared`...!
+- Oh, you weren't `scared`.
+- They're `scared` tonight.
+- What are you `scared` of?
+- Your honor, i'm `scared`.
+- You `scared` me to death.
+- You think i was `scared`?
+- Anybody could be `scared`.
+- Don't be `scared`, walter.
+- Get lost, you `scared` me.
+- I guess i'm just `scared`.
+- I'm `scared`, that's what.
+- Now i'm `scared` shitless.
+- Who you `scared` of, dave?
+- Because i'm still `scared`!
+- I can tell he was `scared`.
+- I'm more `scared` than you.
+- I think it's just `scared`.
+- It's scary, it `scared` me.
+- I was just `scared` is all.
+- `Scared` to make a mistake.
+- She almost sounds `scared`.
+- That's why you're `scared`.
+- Wanted to see him `scared`.
+- Were you `scared` up there?
+- A `scared` enough one might.
+- I admit it - i was `scared`!
+- I didn't say i was `scared`.
+- I know you've been `scared`.
+- I'm hungry and�and `scared`.
+- I'm sorry if i `scared` you.
+- `Scared` of oswald, are you?
+- What are you so `scared` of?
+- What's to be `scared` about?
+- You ain't `scared` of sethe.
+- I'm not `scared` of you, max.
+- I think we `scared` them off.
+- I was `scared` then, not now.
+- I was so `scared`, so `scared`.
+- Judging by how `scared` i am.
+- She's just `scared` and cold.
+- So, you're `scared`--so what?
+- You had me `scared` to death.
+- You're not `scared`, are you?
+- Arlyn page, that `scared` you.
+- But what i get `scared` again?
+- I know you're `scared` to die.
+- I think you `scared` them off.
+- It's all right to be `scared`.
+- It `scared` the shit outta me.
+- Just your pappy `scared` some.
+- Maybe she was really `scared`.
+- You `scared` another one away.
+- You `scared` me half to death.
+- Got no right to be so `scared`.
+- He isn't just `scared` anymore.
+- He's `scared` to death of them!
+                 

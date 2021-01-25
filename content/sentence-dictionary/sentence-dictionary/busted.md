@@ -1,0 +1,98 @@
+---
+title: "busted in a sentence | busted example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "busted"
+---
+- Okay, you `busted` me.
+- Water pump's `busted`.
+- You guys got `busted`.
+- Your balloon `busted`?
+- Till they got `busted`.
+- You `busted` me, miles.
+- The intercom's `busted`.
+- I think i `busted` my leg.
+- No, we never got `busted`.
+- You wanna get us `busted`?
+- I can't get `busted` again.
+- They `busted` me last week.
+- We'd get `busted` fer sure.
+- My walkie talkie's `busted`.
+- Have they ever been `busted`?
+- His walkie talkie's `busted`.
+- Yeah, but the van is `busted`.
+- I thought you guys were `busted`.
+- He `busted` out with a big indian.
+- My gear is `busted` up pretty bad.
+- We see a brother getting `busted`.
+- I `busted` her once for possession.
+- I `busted` his leg with a shovel...
+- White boy even got `busted` for it.
+- And i hate it that you got `busted`.
+- It was her coke i got `busted` with.
+- Kim got `busted` at 19 for burglary.
+- It was the other guy who `busted` me.
+- All coming from a `busted` water main.
+- `Busted` my cheek but i can still see.
+- Hey, two hearts got `busted` last time.
+- We got a `busted`-in cold vault inside.
+- Hadley `busted` his head up pretty good.
+- I thought he `busted` you a couple times.
+- We `busted` frank antonucci on possession.
+- `Busted` out of some joint in florida, huh?
+- `Busted` for sexual assault: march 22, 1970.
+- `Busted` his buns on a narcotic's violation.
+- The sanctimonious prick who `busted` me out.
+- I know i screwed up gettin' `busted` in here.
+- Just need a little nap... plumb `busted` out.
+- This is flynn... the one who `busted` me out.
+- If they're not `busted` now, they're gonna be.
+- 's `busted`... did you play arcade last night?
+- But he's never been `busted` on a major felony.
+- He's already `busted` the springs in two chairs.
+- He `busted` casanova and sent the crooks packing.
+- I `busted` their window, they didn't do anything.
+- Tell duke to do him ahead of the `busted` spleen.
+- Buncha guys in red suits `busted` in, they'll say.
+- But now everybody's split or got sick or `busted`.
+- He's been a rat since he got `busted` in pittsburgh.
+- Then i `busted` this strung-out little teeny-hooker.
+- Finn: i got to know what you two did to get `busted`.
+- Then i got `busted`... he didn't even stick up for me.
+- You get `busted` again, you go back in a two-tine loser.
+- But after he was `busted` they crawled into the woodwork.
+- You're wrong about this, i could get `busted` on the spot.
+- He's never been `busted`... goddamn it, i said take him in.
+- C'mon, rufus, you've been `busted` twice for felony hacking.
+- He `busted` the back window with his feet, and fled on foot.
+- He kin eat `busted` bottles and rusty nails, any damn thing.
+- They get `busted`, they know somebody who can bond them out.
+- He's got a record of 459's and he was `busted` on possession.
+- His head was all `busted` open so's you could see the inside.
+- A feller can't just go around with run-down, `busted` watches.
+- You're not my client until you get `busted` and i bond you out.
+- I'm `busted` up for you, but jesus, what the hell are you doing?
+- Ten years, ten years i `busted` my ass for that fat rat bastard.
+- If i was a cop, a real cop, i'd have `busted` you a long time ago.
+- It was right after that, ray got suzie `busted` and sent her away.
+- Then you got `busted` and i called you in here and laughed at you!
+- Nobody'd ever heard of him until he `busted` casanova frankenstein!
+- Well, we were playing with them and i `busted` this guitar onstage.
+- In 1985 you were flying for twa and got `busted` for carrying drugs.
+- Christ, the way you `busted` up the place, you're doing worse already.
+- If you're `busted`, it could take a long time to get you re-patriated.
+- The firing pin's `busted` - the - don't waste time talking about that.
+- Wipe that sad-assed look off your face before you get us all `busted`.
+- You think that's all we `busted` -- you should see... maybe in sonora.
+- Then she gets `busted` and it's like... sorry kid, your mom's a psycho.
+- 'cause if he `busted` you, you'd play hell bonding out of federal court.
+- I just want a big guinea with a `busted` up face to give him a deep bench.
+- 'bout the same time i `busted` doucet i tried to nail this big-time dealer.
+- I probably woulda `busted` on you too... and what a shame that woulda been.
+- The radio's still `busted`, so me can forget about the space man for today.
+- He `busted` me, third offense, gave me a choice: work for him or do fifteen long.
+- We went over to johnnie's place just to check it out and it was `busted` up, bad.
+- I even got to figurin' them gypsies `busted` in and done off with all three of 'em.
+- Besides, what better way to not get `busted` than to date the cop who's investigating you.
+- Everybody who touches that thing gets `busted`, i can't afford to get arrested, i'm sorry.
+                 

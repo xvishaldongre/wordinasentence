@@ -1,0 +1,70 @@
+---
+title: "negative in a sentence | negative example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "negative"
+---
+- Don't be so `negative`!
+- `Negative` for laun.
+- `Negative` to positive.
+- Always the `negative`...
+- Hannah: `negative`, sir.
+- Radio said `negative` five.
+- That's a `negative`, starck.
+- My blood type is `negative`...
+- `Negative` on his tax records.
+- Let's cool the `negative` vibes.
+- `Negative` helm control, captain!
+- You've got a `negative` attitude.
+- Look at this `negative` ad he did.
+- `Negative` attention is attention.
+- Were there any `negative` aspects?
+- How much of it is `negative` space?
+- I don't think it's `negative` five.
+- Man, on radio: that's a `negative`.
+- I saw a mig do a 4 g `negative` dive.
+- Seeing that his type is o `negative`.
+- No, i didn't mean to sound `negative`.
+- Plus is positive, minus is `negative`!
+- You are the king of `negative` energy.
+- Peter, your blood-type is ab `negative`.
+- That's an extremely `negative` response.
+- Charlie you saw a mig push `negative` 4g?
+- Apone: (on radio) ah, that's a `negative`.
+- <u>`negative`</u>, golitsyn�s on the move.
+- Why do you always focus on the `negative`?
+- I can't be surrounded by `negative` energy.
+- May we rsvp in the resoundingly `negative`?
+- 800,000 for the `negative` and all the prints.
+- Are there any `negative` aspects to this game?
+- You know that was like a quadruple `negative`?
+- I need the `negative` and every existing print.
+- It will reduce the level of `negative` feedback.
+- `Negative`, on surface... a manufactured object.
+- This is about her `negative` attention, not mine.
+- This afternoon, i declassified `negative`, polaris.
+- You're always pointing out my `negative` qualities.
+- I scanned it at arecibo; `negative` results, always.
+- My father's o positive and my mother...a `negative`.
+- `Negative` copy on that, pham, check your frequency.
+- `Negative` thinking makes everything more difficult.
+- He was in a 4g `negative` dive and you were on his six?
+- `Negative`, no reserve beryllium sphere exists onboard.
+- Well, the good news is that the results are `negative`.
+- Hudson: uh, sir, uh, we have a `negative` situation here.
+- Do you remember anything i've said that wasn't `negative`?
+- Of all the runes, thorn had the most `negative` influence.
+- No `negative` effects on a woman's health in any way, maya?
+- Quit being so `negative`, guy; 'course we're gonna make it.
+- Like i know one of the people got tested and was `negative`.
+- How much of it is data and how much of it is `negative` space?
+- Look, andrea, i'm sure he'll test `negative` for brain disorders.
+- I'm studying the effect of `negative` reinforcement on esp ability.
+- Some uninterrupted rem sleep to release all this `negative` energy.
+- So there's no problem -- i can have the rights, the `negative` too?
+- Being black, is that a positive or `negative` for a bodyguard in mexico?
+- You tested `negative` for all sexually transmitted diseases and infections.
+- It's amazing what excellent en- largements you can make from the `negative`.
+- One-four degrees... ...make your approach vector `negative` fourteen degrees...
+- "there is something `negative` about the place..." what the hell are you trying to say?
+                 

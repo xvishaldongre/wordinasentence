@@ -1,0 +1,57 @@
+---
+title: "Freddy in a sentence | Freddy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Freddy"
+---
+- `Freddy` of course.
+- Catch you later `freddy`!
+- `Freddy`'s dead and gone.
+- `Freddy` -- that's right.
+- It's all right, `freddy`.
+- Yeah... `freddy` krueger.
+- How 'bout `freddy`, jason?
+- I'm `freddy` riedenschneider.
+- `Freddy` ching's, in crenshaw.
+- `Freddy`'s real and he's back.
+- I took a meeting with `freddy`.
+- Well, your brother, `freddy`...
+- Your name's `freddy` something.
+- But i think `freddy`'s after him.
+- I've heard you call him `freddy`.
+- Hey `freddy`, what's goin' on boy.
+- She told us the story of `freddy`.
+- Steady... `freddy`, for all i know.
+- He's heavy in the halls... `freddy`?
+- I thought you'd killed `freddy` off.
+- `Freddy` took a meeting with charlie.
+- This better not be some `freddy` joke.
+- Six years ago `freddy` killed my friends.
+- You saying `freddy`'s this ancient thing?
+- We're getting you `freddy` riedenschneider.
+- Why does `freddy` all of a sudden need you?
+- I though `freddy` was just an old town story.
+- Now you know who and what `freddy` really is.
+- No, c'mon, `freddy`, let's have this out & over.
+- It's actually been giving me `freddy` nightmares.
+- I've never call- ed ross "`freddy`" in my life ..
+- The question is, what happened to `freddy`'s body?
+- Well, see, he's gotten used to being `freddy` now.
+- A man, or a boy with a deep, y'know, `freddy` voice.
+- Who better to resurrect `freddy` than his creator?
+- `Freddy`'s new obsession .. friday night at city hall.
+- Let's trade death by `freddy` for life in a rubber room.
+- Thinking i saw `freddy` in the grave feels pretty crazy.
+- `Freddy` riedenschneider is good, but he's not a magician.
+- Catch you later, `freddy` t .. my pleasure .. who's popeye?
+- I mean, i asked `freddy` if he wants a different bodyguard.
+- Maybe `freddy` can't get to new kids without someone like me.
+- Someone `freddy`'s got to get by before he can enter our world.
+- Kristen was the last child left of the people who killed `freddy`.
+- I do you a favor and take `freddy` in when you're having a bad time.
+- If `freddy`'s loose, i mean, in your script, where's he going to go?
+- It was `freddy`, and he's coming back for seconds, thirds, and fourths.
+- We had a little argument, `freddy` and i, so i had to straighten him out.
+- Six weeks of this, and you're surprised you've got `freddy` in your dreams?
+- For ten years he's been imprisoned as `freddy` by the story of nightmare on elm street.
+                 

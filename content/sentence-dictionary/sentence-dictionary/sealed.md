@@ -1,0 +1,59 @@
+---
+title: "sealed in a sentence | sealed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sealed"
+---
+- Have them `sealed` off.
+- Voice: airlock `sealed`.
+- He�s `sealed` himself in.
+- It's `sealed` from above.
+- Containment door `sealed`.
+- I want this room `sealed`.
+- We're in a `sealed` bunker.
+- Inside of a `sealed` bunker.
+- You `sealed` off the system.
+- `Sealed` off, brick by brick.
+- The reactor door is `sealed`.
+- In hermetically `sealed` rugs.
+- Secondary containment `sealed`.
+- The computers `sealed` the room.
+- The door's `sealed` from inside.
+- The turks musta' `sealed` it up.
+- When the inner door is `sealed`.
+- The base is to be `sealed` tight.
+- Voice: containment door `sealed`.
+- These are supposed to be `sealed`.
+- I want all these passages `sealed`!
+- Yes, sir, i `sealed` the room myself.
+- I thought those records were `sealed`.
+- Leading to section 17 will be `sealed`.
+- Skaikru `sealed` the door and our fate.
+- Not in a `sealed` vessel like an artery.
+- I heard wigand's deposition got `sealed`.
+- It appears to be a magnetically `sealed`.
+- Corporal, i want this loading lock `sealed`.
+- I seen the bodies before they `sealed` 'em up.
+- Vacuum-`sealed` globe ... shouldn't take long.
+- And... and now-- the section doors are `sealed`.
+- Mr. chekov, i ordered spock's quarters `sealed`!
+- Tell it to me in there and my lips are `sealed`.
+- Auto-shop's `sealed`, but those boys are cut-off.
+- Everything on this module is locked and `sealed`.
+- I help him escape, but they've `sealed` the city.
+- One of those nice long manila envelopes--`sealed`.
+- It was in the cava and the hole `sealed` itself off.
+- This portal is mine and must be `sealed` up forever.
+- No way, it's `sealed` - if she's in there she's dead.
+- Was manually `sealed` before the launch from our side.
+- When slim canfield's lips are `sealed`, they're `sealed`.
+- You just `sealed` it off; it can't get to that section.
+- "springtime for hitler," signed, `sealed` and delivered.
+- It's `sealed` on both sides, so you'd have pressurization.
+- Seeing dulli after fourteen years `sealed` the deal for me.
+- We've `sealed` off this area following quarantine protocol.
+- May he rest in peace... you have already `sealed` the coffin?
+- The bow drove half through her, but she `sealed` herself right up.
+- The files are in a `sealed` room and the university are under strict orders to stay away.
+- I want to tell you the super fixed the leaky pipes and `sealed` up that hole in your wall.
+                 

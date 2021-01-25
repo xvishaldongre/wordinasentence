@@ -1,0 +1,52 @@
+---
+title: "kissed in a sentence | kissed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kissed"
+---
+- Dude, she `kissed` me.
+- I `kissed` those girls.
+- The way he `kissed` you.
+- `Kissed` a lotta tadpoles.
+- `Kissed` her on the cheek.
+- You just `kissed` that girl.
+- She `kissed` you, didn't she?
+- Don't you like being `kissed`?
+- Have you ever `kissed` anyone?
+- I grabbed him and `kissed` him!
+- I've just never `kissed` a guy.
+- Have you been `kissed` tonight?!
+- I found out she `kissed` some guy.
+- I remember i `kissed` your hair.
+- Still angry that i `kissed` ya, huh?
+- You still haven't `kissed` her yet ?
+- I `kissed` her while she was laughing.
+- What'd you feel when you `kissed` him?
+- I `kissed` shirley felder on the teeth.
+- When i finally get `kissed`, i'll know.
+- I never even `kissed` mama on the mouth.
+- I never `kissed` you with a beard before.
+- I don't believe that you `kissed` no girls.
+- Yes... you want to know how i `kissed` him?
+- Our boats practically `kissed` in the harbor.
+- The girl that you `kissed` when we got there.
+- Um, he `kissed` me goodnight and that was it.
+- I don't know... more like when i `kissed` sam.
+- Do you remember the first time i `kissed` homer?
+- I `kissed` my boyfriend's brother on television!
+- So, how does it feel to be `kissed` by two women?
+- When i `kissed` you i betrayed the russian ideal.
+- I `kissed` the polish lancer too... before he died.
+- When i'm bein' fucked, i like to be `kissed` a lot.
+- I think you're like the best girl i've ever `kissed`.
+- You just fucking `kissed` a guy right in front of me!
+- Is it ever embarrassing, having your bum `kissed` in public?
+- I thought you did on account of you `kissed` me the other night!
+- Scottie -- ...we stood there and i `kissed` her for the last time.
+- We `kissed` at my door and next thing i knew i woke up with my period.
+- If you've never `kissed` a guy, we got bigger problems than the underwear.
+- Monty, it's 1935, i hope you `kissed` your wife well this morning, there you go.
+- So i was thinking about what you were saying - y'know, about really being `kissed`?
+- I've been jinxed from the word go -- first time i was ever `kissed` was in a cemetery.
+- He `kissed` her and played with her titty, and i don't see anything so great about that.
+                 

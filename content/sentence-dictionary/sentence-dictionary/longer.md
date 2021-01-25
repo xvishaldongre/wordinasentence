@@ -1,0 +1,107 @@
+---
+title: "longer in a sentence | longer example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "longer"
+---
+- But it takes `longer`.
+- Commander no `longer`.
+- I'm no `longer` a man!
+- She suffered `longer`.
+- But `longer` than that.
+- The `longer` she lives.
+- A little `longer`, paul?
+- He no `longer` digs her!
+- That's no `longer` true.
+- A little `longer` for me.
+- How much `longer`, shuri?
+- I am no `longer` a child.
+- But not for much `longer`.
+- Can i stay a bit `longer`?
+- 'can't waits any `longer`.
+- Harper `longer` than that.
+- I can't wait any `longer`.
+- I'm no `longer` loitering.
+- I thought it was `longer`.
+- No `longer` interested me.
+- Was no `longer` available.
+- We are no `longer` slaves.
+- A hired player no `longer`.
+- Come on, how much `longer`?
+- That's gotta take `longer`.
+- We can't wait any `longer`.
+- We were no `longer` of use.
+- Can no `longer` protect you.
+- Can no `longer` protect you.
+- He no `longer` works for me.
+- `Longer` than that, i think.
+- Relax, you'll live `longer`.
+- She can hold a bit `longer`.
+- We can't wait much `longer`.
+- I can wait a little `longer`.
+- I can wait `longer` than you.
+- `Longer` if you keep talking.
+- Can't take this much `longer`.
+- He no `longer` roars or spits.
+- I can't hold on much `longer`!
+- It's not getting any `longer`.
+- I will take a little `longer`.
+- Well, not much `longer` to go.
+- I'll stay here no `longer`.
+- Why i no `longer` need you!
+- But i can't do it any `longer`.
+- But without will take `longer`.
+- Can't i stay a little `longer`?
+- Help is no `longer` on the way.
+- How much `longer` do you think?
+- My nails keep getting `longer`.
+- My name is no `longer` carjack.
+- They are no `longer` my heroes!
+- Will no `longer` be possible.
+- Jasper can't wait much `longer`.
+- She's no `longer` under my care.
+- Sorry it took a little `longer`.
+- That unit no `longer` functions.
+- The place is no `longer` secure.
+- But it will drive us no `longer`.
+- How much `longer` is it gonna be?
+- How much `longer` will this last?
+- I couldn't have... much `longer`.
+- I'll be here a few days `longer`.
+- Just for a little while `longer`.
+- Miss -- so run a little `longer`.
+- She can't hold him much `longer`.
+- So be stubborn a little `longer`.
+- This place is no `longer` secure.
+- You legacy is no `longer` secure.
+- Dental records will take `longer`.
+- He's not gonna last much `longer`.
+- How much `longer` is the campaign?
+- It shouldn't be too much `longer`.
+- Perhaps i no `longer` need to try.
+- Remember, skiers stay up `longer`.
+- Take a picture, it lasts `longer`.
+- We want you to live `longer`, dad.
+- Ask them to wait a little `longer`.
+- No `longer` of use are they to you.
+- Plan on a `longer` visit next time.
+- Surrender is no `longer` an option.
+- Take it easy, you'll live `longer`.
+- They can wait `longer` than we can.
+- This door won't last much `longer`.
+- She no `longer` believed in god.
+- Can't you stay a bit `longer`, paul?
+- Gabriel is no `longer` your concern.
+- I'm no `longer` a danger to society.
+- It's taking `longer` than i thought.
+- Jasper: i can't run much `longer`!
+- No `longer`'n we can get acrost her.
+- Tom hagen's no `longer` consigliere.
+- Usually, it takes a little `longer`.
+- I will suffer for it no `longer`!
+- Anyway he isn�t with us any `longer`.
+- Boy: can't take this much `longer`.
+- How much `longer` is this gonna last?
+- I can't hold out on you any `longer`.
+- I can't hold them much `longer`, ben.
+                 

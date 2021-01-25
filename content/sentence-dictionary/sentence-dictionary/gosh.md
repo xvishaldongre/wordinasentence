@@ -1,0 +1,62 @@
+---
+title: "gosh in a sentence | gosh example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gosh"
+---
+- `Gosh`, you look nice.
+- Oh, `gosh`, i'm sorry.
+- `Gosh` - is he all right?
+- Oh, `gosh`, i don't know.
+- Oh my `gosh`, here it is!
+- Oh, my `gosh`, thank you!
+- `Gosh`, i loved that show.
+- `Gosh`, you had me fooled.
+- Oh, my `gosh`, everything!
+- `Gosh`, i wanted to be there.
+- `Gosh`--that'll be something!
+- `Gosh`, that's a pretty name.
+- `Gosh`, there's a swell girl.
+- [lestrade grunts] oh, `gosh`!
+- Oh, my `gosh`, it's bearable.
+- `Gosh`, i miss you, dusty-bun.
+- It's not my `gosh` darn fault!
+- It's quite all right-- `gosh`!
+- `Gosh`, you look pretty tonight.
+- I'm your uncle for `gosh` sakes.
+- My `gosh`, do i have to prove it?
+- By `gosh`, time flies, doesn't it?!
+- Oh, `gosh`, you... [enola] come on!
+- `Gosh`, letty, this is a great place.
+- `Gosh`, pop--head of the boy rangers!
+- `Gosh`, what do you suppose .that is?
+- My `gosh`, those commies are brilliant!
+- Oh, mi `gosh`, even he walked out on me.
+- `Gosh`, i'm sorry, we better get in line.
+- `Gosh`, what was everybody talking about?
+- `Gosh`, you didn't mention the big clue...
+- The `gosh`-darn world will be out to lunch!
+- Oh my `gosh`, these are just to scare people.
+- `Gosh`, she looks better every time i see her.
+- `Gosh`, didn't he say anything positive at all?
+- I'm sorry... oh my `gosh`, are you george mccord?!
+- Oh, my `gosh`, i can hardly keep track these days.
+- Well--`gosh`--that--that isn't "particulars," is it?
+- Oh my `gosh`, why didn't you say something earlier...
+- Oh, `gosh`, of course -- no one put me up to anything.
+- The intention of registration act - `gosh`, i hope so.
+- For `gosh` sake, eve, take your foot off the chair!
+- `Gosh`, i could kill you, but then you'd miss my party.
+- Oh, neat... oh, that's very nice, `gosh`, thanks a lot.
+- Then echo, raven, murphy, kane, your mom... oh, `gosh`.
+- My `gosh`, and for a while there, i was attracted to you.
+- Oh my `gosh`, i don't think she's even wearing underwear!
+- `Gosh`, they don't give you much room around here, do they?
+- `Gosh`, if only we could find kat a boyfriend... that's a shame.
+- My `gosh`, alvin, was i supposed to object every time you did that?
+- By `gosh`, them stiffs are get- tin' heavier and more of 'em every day.
+- `Gosh` all hemlock - you know, she ought to have somebody to play with.
+- And, `gosh`, you'd really like a nice man to settle down with, abby, listen.
+- You know, my brother and i have been playing together, `gosh`, i don't know.
+- One day about a month ago... `gosh`, you really went through a crisis, you know that?
+                 

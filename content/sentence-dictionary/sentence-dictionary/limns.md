@@ -1,0 +1,7 @@
+---
+title: "limns in a sentence | limns example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "limns"
+---
+## Unfortunately, we have no example sentences for limns                 

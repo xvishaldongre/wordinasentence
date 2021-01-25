@@ -1,0 +1,53 @@
+---
+title: "holes in a sentence | holes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "holes"
+---
+- You fucking ass-`holes`.
+- I have five face `holes`.
+- Piss `holes` in the snow.
+- I blew 'em full of `holes`.
+- Who owns the 'rat-`holes`.'
+- Some `holes` can't be filled.
+- These two `holes` are yours...
+- How did those `holes` get there?
+- What's with digging the `holes`?
+- No coffee, just doughnut `holes`.
+- You eat the `holes` out of donuts.
+- There are no `holes` in my research.
+- You were drilling these `holes`...?
+- It's got so many `holes` in it, the d.a.
+- That's half a movie, with `holes` in it.
+- Bullet `holes` are usually a big clue.
+- Your shoes have lace `holes` but no laces.
+- Blade ferrets their rat-`holes` out, i map them.
+- Unless the sheriff gets too close and he `holes` up.
+- Before you know it, you gotta dig a few more `holes`.
+- Since i met you, i don't dream about `holes` anymore.
+- It's out by the pumping station, shot full of `holes`.
+- It's one of those chic <u>yuppie</u> gathering `holes`.
+- I know i hate swiss cheese, the `holes` make me nervous.
+- Boy, these vines sure are good at finding all the `holes`.
+- Blind people feeling around for bullet `holes` in the wall.
+- I played 18 `holes` of golf with his father just last week.
+- Well, dad, we haven't found any `holes` in the large bowel.
+- My god, man, drilling `holes` in his head is not the answer.
+- What was all that stuff about enlarged `holes` and tight cracks?
+- It'll take a little longer, but there won't be any `holes` in it.
+- I'm old enough to tell when people are acting like total a-`holes`!
+- Besides, i can't believe you'd kill me for a field of empty `holes`.
+- With all those `holes` nels pumped in i knew you wouldn't suffocate.
+- Another bobo justus to slap you around and burn `holes` in your hands.
+- Should we stop and play nine `holes` now and operate on the kid later?
+- Then they cut all kinds of `holes` in her head and sucked out the blood!
+- Talcott doesn't usually show up at the office 'till after his 18 `holes`.
+- He would make me presents of stuffed fish and helmets with `holes` in them.
+- People start digging `holes` in this county, there's no telling what'll come up.
+- But besides the operation, we've got to get in at least eighteen `holes` of golf.
+- There's some bad `holes`, man, and the cracks -- water's coming through the cracks.
+- Got a lot of `holes` in the desert, and a lot of problems are buried in those `holes`.
+- Little dirty `holes` the bastards drill in the wall so they can watch a lady undress.
+- The buzz burger has three `holes` cut in the middle to make it look like a bowling ball.
+- We're just going to have to spend a little time filling in the `holes` in your research.
+                 

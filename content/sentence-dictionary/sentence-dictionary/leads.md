@@ -1,0 +1,107 @@
+---
+title: "leads in a sentence | leads example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leads"
+---
+- Five thousand `leads`.
+- Hi, gale, any `leads`?
+- See where she `leads`.
+- They took the `leads`?
+- It `leads` onto a roof.
+- The `leads` are coming.
+- They stole the `leads`.
+- I've seen those `leads`.
+- Re-configure the `leads`?
+- That i stole the `leads`?
+- Were the `leads` insured?
+- He `leads` with his heart.
+- It `leads` to the surface.
+- Two hands `leads` to three.
+- Did the `leads` come in yet?
+- Fuck marshaling the `leads`.
+- Working the premium `leads`.
+- You have to get the `leads`.
+- How many `leads` have we got?
+- I'm giving you three `leads`.
+- It `leads` farther than that.
+- She `leads` those voices, yes.
+- I'm hired to watch the `leads`.
+- What'd you do with the `leads`?
+- ... which `leads` to the grail?
+- George willis... ...any `leads`?
+- The `leads` come in, i'll let...
+- What did you do with the `leads`?
+- Don't you have any `leads` at all?
+- I can't close these `leads`, john.
+- I got to get out of these `leads`.
+- You're going to steal the `leads`?
+- We certainly don't have any `leads`.
+- Were the `leads`... down the street.
+- Any `leads` i get, they're all yours.
+- Now, what did you do with the `leads`?
+- That `leads` to war against my people.
+- You have to steal the `leads` tonight?
+- What great cause `leads` you to me?
+- It `leads` to another place- the nexus.
+- The glengarry...the premium `leads`...?
+- These are their `leads`, their sources.
+- Just give me two of the premium `leads`.
+- Marshal the `leads`...marshal the `leads`?
+- Murray told me: the hot `leads`... john.
+- That `leads` to an antenna on the ground.
+- The `leads` are assigned randomly... why?
+- This road, it `leads` straight to kuwait.
+- Brain hemorrhaging `leads` to stroke, mmm.
+- Is that some, some, some purloined `leads`?
+- The antenna `leads` have been disconnected.
+- And the one under the lake `leads` to bardo.
+- Just make him think you're following `leads`.
+- That `leads` to an antenna on the ground, ok?
+- Dave, you know that's where this road `leads`.
+- `Leads` a young man-john-into the dining room.
+- Which `leads` us to the mysterious, lost file.
+- Cases, `leads` -- they don't matter, rorschach.
+- She `leads` a charmed life, that little one ...
+- We've got a couple `leads` on him to check out.
+- It's technical, but, um, he already has `leads`.
+- All that i'm saying, that you're wasting `leads`.
+- But if revenge `leads` to war... where is octavia?
+- On fucking deadbeat magazine subscription `leads`.
+- Then he `leads` us to the power stone, is that it?
+- Farmer loving the pig she `leads` to the slaughter.
+- How did bill react to the `leads` you've developed?
+- Now you know that sort of thing `leads` to anarchy.
+- The hot `leads` are assigned according to the board.
+- It `leads` straight down to the bridge and the river.
+- Which `leads` me to why i�m here at such a late hour.
+- And then he `leads` us to the power stone, is that it?
+- Which `leads` me to the second thing you need to know.
+- Chief guard briskly `leads` the way for alex and escort.
+- He `leads` a group of slayers, under the leopard banner.
+- I want `leads` that don't come right out of a phone book.
+- And the question is, that out of hell `leads` up to light.
+- If you tell me what you did with the `leads`, we can talk.
+- If you tell me where the `leads` are, i won't turn you in.
+- It `leads` to some kind of ranch in the middle of nowhere.
+- But from now on, any `leads` on this case go to pluchinsky.
+- Now, he's got the `leads`, he goes in business for himself.
+- We found a tunnel that `leads` to a temple below the palace!
+- I go in, four fucking `leads` they got their money in a sock.
+- One way or another, the path that we're on `leads` to thanos.
+- Someone gets a license number and it all `leads` back to you.
+- We'll go to lunch, the `leads` won't be up for... oh, christ.
+- "...you have to believe in yourself..." give me some `leads`.
+- Yeah, uh, i got some pretty good `leads`... where's my father?
+- Senior environmental engineer, and it all `leads` back to here.
+- He can't kill us in la cause that `leads` to too many questions.
+- Look: the glengarry highland's `leads`, you're sending roma out.
+- The one on sanctum `leads` here, so maybe it was just like that.
+- The `leads`, the overhead, the telephones, there's lots of things.
+- Whips off her pinny as herbert `leads` juliet into the dining room.
+- You want me to break into the office tonight and steal the `leads`?
+- Ninety percent our sale, we're paying to the office for the `leads`.
+- With what, john, they took the `leads`... aren't you going out today?
+- He's got the good `leads`... what are we, we're sitting in the shit here.
+- You're saying a fella could take and sell these `leads` to jerry graff.
+                 

@@ -1,0 +1,107 @@
+---
+title: "eve in a sentence | eve example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "eve"
+---
+- `Eve`: they're coming.
+- It's all soul's `eve`.
+- It's very good, `eve`.
+- Maybe `eve` can guess.
+- Merry christmas `eve`.
+- Not `eve` my own life.
+- Think about it, `eve`!
+- How nice for `eve`.
+- `Eve` and i have to go.
+- `Eve` is going to stay.
+- I love `eve` very much.
+- `Eve`: i shall, leonard.
+- `Eve`, listen carefully.
+- `Eve`, the psychic pimp.
+- I'll check with `eve`...
+- `Eve`: thank you, porter.
+- This is `eve` harrington.
+- `Eve`: thank you, phillip.
+- It's been too long, `eve`.
+- No... no, excuse me `eve`.
+- This is, uh.... hi, `eve`!
+- `Eve`: i just lost my head.
+- `Eve`: you didn't get hurt.
+- It's christmas `eve`, jack.
+- Would you adam n' `eve` it.
+- `Eve`: but not endanger you.
+- `Eve` dear, this is addison.
+- `Eve`, she strangled a baby!
+- `Eve` was incredibly modest.
+- What can i offer you, `eve`?
+- `Eve` evil, little miss evil.
+- I would like to escort `eve`.
+- You don't like `eve`, do you?
+- You know why i forgive `eve`?
+- By the way, `eve`'s last name.
+- I'm so sorry for you, `eve`...
+- But tonight is christmas `eve`!
+- Have you forgotten about `eve`?
+- It's 8:00 p.m. christmas `eve`!
+- It's new year's `eve` -- relax.
+- That's very interesting, `eve`.
+- Waddaya doing new year's `eve`?
+- `Eve`: thank you for everything.
+- Margo, this is `eve` harrington.
+- Oh, by the way - i'm `eve` rand.
+- We open ours on christmas `eve`.
+- Adam and `eve`, meet the serpent.
+- I forgive `eve`... there they go.
+- It's been a real pleasure, `eve`.
+- Your name is not `eve` harrington.
+- `Eve`: better take your things off.
+- Karen, let me tell you about `eve`.
+- Miss `eve` kendall is expecting me.
+- How 'bout we check with `eve` first?
+- I hope you mean what you say, `eve`.
+- I remember you from christmas `eve`.
+- `Eve` did mention the play, you know.
+- I've been looking for you, too, `eve`.
+- You know tomorrow is new year's `eve`.
+- You'll need them for new year's `eve`.
+- But, `eve`, i would-- i'm leaving, too.
+- Look closely, `eve`, it's time you did.
+- The christmas `eve` of destruction -- !
+- You know, `eve` -- don't get mad, okay?
+- `Eve`: over the rocks will be all right.
+- Give `eve` harrington job in you office.
+- God took a rib from adam and made `eve`.
+- I can't believe `eve` said those things!
+- I want everybody to shut up about `eve`.
+- You were about to tell me about `eve`...
+- Congratulations, skol - good work, `eve`!
+- Darling, i didn't promise `eve` anything.
+- `Eve`: you did it rather well, i thought.
+- Good god, `eve` - you'll freeze out here.
+- I'll go tell `eve` about ben now, robert.
+- I hate going out on new year's `eve`, too.
+- It - it was very thoughtful of you, `eve`.
+- `Eve`: i just didn't know what i was doing.
+- I'm sure you underestimate yourself, `eve`.
+- It's halloween `eve` and time for our show.
+- It's new year's `eve` and i want a martini!
+- One of them being this is new year's `eve`.
+- You know, it being christmas `eve` and all.
+- `Eve`, if you'll let me, i can -- goodnight!
+- Just shut up about `eve`, that's all i want.
+- `Eve`... why don't you start at the beginning?
+- It's christmas `eve`, fran -- let's not fight.
+- Ben is very ill, `eve` - i've seen that before.
+- Meeks was with sue lefferts on christmas `eve`.
+- Thank you, `eve` - i like this house very much.
+- In case you hadn't figured, it's christmas `eve`.
+- I've worked, uh, christmas `eve` and thanksgiving.
+- The frat house is having a new year's `eve` party.
+- `Eve` thank you for tonight...and for the kiss.
+- How is the "date night" idea going over with `eve`?
+- I'd like to take jamie to dinner on new year's `eve`.
+- It was when adam fell for `eve` in the garden of eden.
+- For gosh sake, `eve`, take your foot off the chair!
+- `Eve` ... jon, if i'm not there, he will be tipped off.
+- `Eve` harrington will be among them... was she that bad?
+                 

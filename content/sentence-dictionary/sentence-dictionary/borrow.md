@@ -1,0 +1,84 @@
+---
+title: "borrow in a sentence | borrow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "borrow"
+---
+- Then he'll `borrow` it.
+- Can i `borrow` the suit?
+- Can i `borrow` something?
+- Hey, can i `borrow` this?
+- I'm gonna `borrow` a car.
+- I need to `borrow` these.
+- Let me `borrow` your car.
+- Can i `borrow` five bucks?
+- I'll `borrow` it from you.
+- `Borrow` whatever you like.
+- May i `borrow` your pencil?
+- Could i `borrow` your guitar?
+- Do you mind if i `borrow` it?
+- You want to `borrow` the car?
+- You mind if i `borrow` this one?
+- I'm just gonna `borrow` the suit.
+- He tried to `borrow` money from us.
+- Now i'll have to `borrow` your key.
+- But can i `borrow` your dud grenade?
+- It's no good when you `borrow` them.
+- Look, can i just `borrow` your car?!
+- You didn't `borrow` laura's mercedes?
+- Can i `borrow` a piece of your chicken?
+- Can i `borrow` your towel for a minute?
+- If a man cannot earn, he must `borrow`.
+- If he don't `borrow`, he don't work.
+- Let me `borrow` her dossier for a while.
+- No, i didn't `borrow` laura's mercedes.
+- What if i wanted to `borrow` those keys?
+- I'm going to `borrow` susan for a second.
+- Mrs. stanwyk, may i `borrow` this picture.
+- All we wanted to do is `borrow` some sugar.
+- Excuse me, but i need to `borrow` your god.
+- Hannah, i have to `borrow` some more money.
+- I `borrow` it without telling him.... what?
+- But i must `borrow` it for one last mission.
+- Do you think i could `borrow` your limousine?
+- I need to `borrow` her for a strategy session.
+- If you're not using your arm, can i `borrow` it?
+- Judas e. priest, who did you `borrow` that from?
+- Why don't you return this car and `borrow` mine?
+- Any time you want to `borrow` it again, just ask.
+- Brad probably has some trunks you can `borrow`...
+- Boy, would i like to `borrow` a cup of that sugar.
+- First i see if hannah will let me `borrow` her car.
+- Leon didn�t come here to `borrow` money for prints.
+- Well, we could `borrow` a couple from mrs. simpson.
+- Listen, you can `borrow` any of my clothes you want.
+- Oh yeah, that's what he wants to `borrow`, this guy.
+- Uh...um...i mean uh, can we `borrow` a cup of sugar?
+- Anyway, i was wondering if i could `borrow` your car.
+- Dick, can we `borrow` mrs. torrance for a few minutes?
+- We'll `borrow` your thirty million to buy those options.
+- You can't just "`borrow`" my car for a couple of months!
+- You see, i didn't really have permission to `borrow` it.
+- But the boss let's you `borrow` some money if you need it.
+- It seems to me that girl would let you `borrow` her pancreas.
+- Probably wants to `borrow` my lesson plans from last semester.
+- So take a walk, ben...i'm going to `borrow` susan for a second.
+- Go ahead, it's your funeral... are you sure i can `borrow` this?
+- We could `borrow` some clothes from the girls in the chorus - no.
+- Hey my brother, can i `borrow` a copy of your 'hey soul classics'?
+- I'd like to `borrow` your car and take a look at it in the morning.
+- Sorry, buddy, i'm clean outta change... can you `borrow` me a dime?
+- Sorry to interrupt, but, uh, may i `borrow` michael, lucas and dustin?
+- Right, he's... not what you think-- larry, can i `borrow` your car keys?
+- Then with jake out of the way you could `borrow` two-hundred dollars.
+- Jeffrey, i don't mean to sound sexist or anything, but can i `borrow` her?
+- And... you're gonna get impatient, but...i have to `borrow` some more money.
+- I tried to `borrow` a gun from chad, but-- because i was yellow, i guess-- why?
+- You are a lover; `borrow` cupid's wings, and soar with them above a common bound.
+- But if there is a way... we could `borrow` on that land and put the money to work.
+- Excuse me, mr. doyle, if i could just `borrow` your charming fiancee for a moment.
+- As it is, i was forced to `borrow` your academy savings to buy the new 'droids.'
+- You see, if you shoot pool with some employee here, you can come and `borrow` money.
+- He and nikko don't even get on together... m.j., i'm going to have to `borrow` ruben.
+- Mrs. dreyfuss, can i `borrow` some coffee -- and maybe an orange and a couple of eggs?
+                 

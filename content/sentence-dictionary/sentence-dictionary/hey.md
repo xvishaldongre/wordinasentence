@@ -1,0 +1,107 @@
+---
+title: "hey in a sentence | hey example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hey"
+---
+- But `hey`, no prob ...
+- Careful -- `hey`, you!
+- `Hey`, abby needs you.
+- `Hey` andy, good show.
+- `Hey`, are you hungry?
+- `Hey`, baby mccaffrey.
+- `Hey`, bryan, i'm out.
+- `Hey`, bubber, c'mere!
+- `Hey`, buffy... mmkay.
+- `Hey` butt-head, look.
+- `Hey`, can i help you?
+- `Hey`, come here, guy.
+- `Hey`, cool it walter.
+- `Hey`, don't blame me!
+- `Hey`, don't thank me.
+- `Hey`, don't touch me.
+- `Hey`, findley's here.
+- `Hey` fuck you damone.
+- `Hey`, go easy, tatum.
+- `Hey`, guys, i'm home.
+- `Hey`, `hey`, slow down.
+- `Hey`... `hey`, wake up.
+- `Hey`, `hey`, you're ok.
+- `Hey`, how about that!
+- `Hey`, i found a door.
+- `Hey`, i got a mother.
+- `Hey`, i got this one.
+- `Hey`, i loved it too.
+- `Hey`, i'm going left.
+- `Hey`, i'm right here.
+- `Hey`, iris, you okay?
+- `Hey`, it's all right.
+- `Hey`, it's pizza day.
+- `Hey`, josie, hold on.
+- `Hey`, let's sit down.
+- `Hey`, listen, listen.
+- `Hey`, listen to me.
+- `Hey`, listen to this.
+- `Hey`, look at this...
+- `Hey`, ma, look at me!
+- `Hey`, mr. cunningham.
+- `Hey`, ms. jenzen -- ?
+- `Hey`, neal, you okay?
+- `Hey`, ouch, damn it!!
+- `Hey`, pretty, pretty.
+- `Hey`, pretty woman...
+- `Hey`... see anything?
+- `Hey`, she's ticklish!
+- `Hey`, sit in the car.
+- `Hey`, take your time.
+- `Hey`, terry, i'm hit.
+- `Hey`, that's whacked!
+- `Hey` there, chalmers.
+- `Hey`, there she is...
+- `Hey`, the terminator!
+- `Hey`, time violation.
+- `Hey`, turn left here.
+- `Hey`, wait take this.
+- `Hey`, we're flexible.
+- `Hey` what's going on?
+- `Hey` what's with you?
+- `Hey`, where'd you go?
+- `Hey`, where's claude?
+- `Hey`, where you been?
+- `Hey`, will this work?
+- `Hey`, you look great!
+- `Hey`, you're limping.
+- `Hey`, you're melting.
+- `Hey`, you smell that?
+- `Hey`, you still here?
+- I can't... `hey`, `hey`.
+- Oh, god... `hey`, sid.
+- <u>`hey` watch it</u>!
+- Well, `hey`, whatever.
+- Yeah you did... `hey`!
+- ...a little, uh, `hey`!
+- All right - `hey` you!!
+- Ben: `hey`, stop, stop!
+- [distorted] `hey`, `hey`.
+- `Hey`, a little hustle.
+- `Hey`, baby, it's cool.
+- `Hey`, beautiful girls!
+- `Hey`, be fuckin' nice.
+- `Hey`, can i have this?
+- `Hey`, can you hear me?
+- `Hey`, chief, you copy?
+- `Hey`, did he hurt you?
+- `Hey`, do i look crazy?
+- `Hey`, fella, you fell.
+- `Hey`, get back inside.
+- `Hey`, give me a break!
+- `Hey`, i got no choice.
+- `Hey`, i got something.
+- `Hey`, i'm not dressed.
+- `Hey`, it doesn't work?
+- `Hey`, it's just a job.
+- `Hey`, it's thor again.
+- `Hey`, it works for me.
+- `Hey`--i wanna *scoop*!
+- `Hey` karl, guess what.
+                 

@@ -1,0 +1,86 @@
+---
+title: "hates in a sentence | hates example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hates"
+---
+- 'cause he `hates` you.
+- He `hates` fat people.
+- She `hates` me, louis.
+- She `hates` surprises.
+- He `hates` all my race.
+- He `hates` oliver stone.
+- She `hates` all freshmen.
+- That's why she `hates` me.
+- The lord `hates` a loafer.
+- `Hates` us mostly, i guess.
+- He `hates` my fuckin' guts.
+- 2... - she `hates` it there.
+- Fbi fucking `hates` the cia.
+- Hammond `hates` inspections.
+- He `hates` being confronted.
+- George, kristina `hates` you.
+- He `hates` when people stare.
+- It is for that he `hates` me.
+- Oh, he `hates` ghost stories.
+- Coach `hates` me, doesn't she?
+- He `hates` this sort of thing.
+- He `hates` when i'm that good.
+- I don't think she `hates` her.
+- Quite frankly, he `hates` you.
+- That boy `hates` asian people.
+- Do you think lorna `hates` her?
+- Even more than he `hates` selma?
+- Everybody `hates` the messenger.
+- Everybody `hates` you right now.
+- Everyone `hates` being helpless.
+- You know how he `hates` it here.
+- I just think, like, he `hates` me.
+- Grierson `hates` people being late.
+- He `hates` being prodded and poked.
+- In all probability, he `hates` you.
+- Johnnie `hates` me like i hate him!
+- He `hates` to have to wear uniforms.
+- She `hates` smokers are you kidding?
+- Yeah, well... you- she `hates` jews.
+- Do you think god `hates` the english?
+- She `hates` him as much as you do.
+- A guy `hates` a girl to come on strong.
+- I'm going as a guy who `hates` parties.
+- The girl i love, she `hates` "heaven."
+- Cause he `hates` me....he `hates` me so much.
+- Beat the shit out of someone who `hates` you.
+- But he `hates` me, so he won't deal directly.
+- Or maybe just someone who `hates` scientists.
+- Abby: her vital signs are strong, he `hates` me.
+- There's no way a son of mine `hates` funky town.
+- He `hates` group unity so he gets everyone at it.
+- I always feel like everybody secretly `hates` me.
+- She just `hates` anybody who isn't afraid of her.
+- She `hates` you with the fire of a thousand suns .
+- C'mon, ray, everyone `hates` the army during basic.
+- And homer `hates` you more than anything in the world.
+- But she `hates`, more than anything, take him, airshot!
+- `Hates` everybody that has anything that he can't have.
+- Look, if it helps, bud `hates` himself for what he did.
+- Naturally, the pig `hates` me for every tory i've saved.
+- His favorite thing is star wars, and he `hates` star wars.
+- My mom `hates` for me to smoke, so she made me bud-brownies.
+- He probably `hates` my guts, but i did the best thing for him.
+- Krusty clearly `hates` being there, is my daughter in the key?
+- Everyone `hates` you, i bet monroe my team's gonna win eyeballs!
+- If she `hates` me for the rest of my life, take down the gate!
+- _ now, this boy says he `hates` all-girl itchy & scratchy, dr. d.r.
+- It's a damn good thing you don't know how much he `hates` your guts.
+- The man that kills me, i want him to do it because he `hates` my guts.
+- No, to destroy batman we must first turn him into what he `hates` most.
+- You're not terribly good at taking care of h... she already `hates` me.
+- For the same reason -- 'cause he `hates` you, 'cause of what you are.
+- I don't know why she `hates` me so much... yeah, we talked about sex, too.
+- She just `hates` when i sit around watching movies and 'not contributing.'
+- He doesn't like my friends--he-- what makes you think he `hates` you, judy?
+- The local population `hates` us and we don't know we'll get through it somehow.
+- My dad loves the idea of having a dog around, but `hates` the fact he lives inside.
+- The little creep `hates` it that eric actually does what the company hired him to do.
+- Everybody still `hates` each other, but they know how to hide it better, or something...
+                 

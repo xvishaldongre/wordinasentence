@@ -1,0 +1,107 @@
+---
+title: "airport in a sentence | airport example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "airport"
+---
+- `Airport`, hotel, show.
+- I was at the `airport`.
+- So - why the `airport`?
+- Bought at the `airport`.
+- ♪ `airport` hotel ♪ wait.
+- Meet me at the `airport`.
+- A locker at the `airport`?
+- Anything at the `airport`?
+- Just get to the `airport`.
+- `Airport`, hotel, show.
+- Put a guy at the `airport`?
+- Who lives at the `airport`.
+- `Airport` shuttle, june 7th.
+- The `airport` is over there!
+- What's the `airport` number?
+- That's for the `airport`.
+- I'm at the `airport` in nice.
+- What `airport` would you use.
+- I mean `airport`, hotel, show.
+- ...out at the `airport`... no?
+- The `airport` howard johnsons!
+- He just left for the `airport`.
+- To the `airport`, if you could.
+- Can i take you to the `airport`?
+- He'll meet you at the `airport`.
+- I came right from the `airport`.
+- I don't know, `airport` i guess.
+- All right, say "`airport` ho-jo."
+- He came right from the `airport`.
+- We're headed to the `airport` now.
+- It's waiting at heathrow `airport`.
+- When you called, from the `airport`.
+- How are you getting to the `airport`?
+- Remember the victim at the `airport`.
+- Taking my boyfriend to the `airport`.
+- Don't you want to go to the `airport`?
+- Right by the `airport` -- oh, amber...
+- At the `airport` - that's where it was.
+- I don't wanna be taken to an `airport`.
+- He picks up packages from the `airport`.
+- I want a plane waiting at the `airport`.
+- I have to get to the `airport`... claire.
+- We met a few years ago, at the `airport`?
+- We're going to take them to the `airport`.
+- Now c'mon, i'll drive you to the `airport`.
+- The `airport`... no, look out, short round!
+- They'll be waiting for us at the `airport`.
+- You are now eight miles from the `airport`.
+- You saw her in the `airport` and then here?
+- I was just about to leave for the `airport`.
+- Didn't you tell me he left for the `airport`?
+- We could stop at the hilton by the `airport`.
+- Yeah, why don't ya take a... `airport` ho-jo!
+- I've got relatives on the `airport` right now!
+- No, no, no, no, no <u>after</u> the `airport`.
+- That goes to the expressway for the `airport`.
+- Why didn't moe green meet us at the `airport`?
+- About an `airport`...before everything happened.
+- I checked the bag at the `airport`, when i came.
+- I say we go to the `airport` and get on a plane.
+- They consider this to be the `airport` hospital.
+- Will the hospital equipment be at the `airport`?
+- The `airport`'s going to be crawling with police.
+- Would you follow <u>her</u> through an `airport`?
+- I'll have `airport` limousine here in a half hour.
+- Then multiply it by every `airport` in the country.
+- Santos' gonna drive us to the san antonio `airport`.
+- At the `airport`, there in one of those gift shops...
+- I'd left the car in the parking lot at the `airport`.
+- They drove her and the kids to north tahoe `airport`.
+- Escort detective carter to the `airport` -- thank you.
+- In a locker at the `airport`, waiting to be picked up.
+- Ruth mchibbon offered to pick you up at the `airport`.
+- I'm taking her to the `airport` a few minutes from now.
+- Jack -- no, you dump the van, meet me at the `airport`.
+- Or do you think you can find the `airport` by yourself?
+- Mom - they're sending a bus to take us to the `airport`.
+- I think he'll be waiting for us at the `airport` not yet.
+- "but i'm gonna go trash an `airport` with captain america.
+- But you still have to show him the money at the `airport`.
+- How much do you think an `airport` security system goes for?
+- They insist they wanna go with meeting him at the `airport`.
+- There's an all- night car-wash in the `airport` service area.
+- What's this i hear at the `airport`� hammond's not even here?
+- But i'm gonna go trashing the `airport` with captain america!"
+- I've heard you have a refugee center at the `airport` stadium?
+- Leave now; there's a car waiting to take you to the `airport`.
+- I had a courier job -- picking up a package from the `airport`.
+- Nicolet and dargus stop me at the `airport` and mark the bills.
+- Well, it's been real, an `airport` pickup during surge pricing?
+- What do i do with my free afternoon, walk you to the `airport`?
+- Even after a little vacation, they hassled him at the `airport`.
+- Check every hotel in l.a. start with the ones near the `airport`.
+- They're questioning vaughan about an accident near the `airport`.
+- Just say you were hitchhiking to the `airport` and i picked you up.
+- There's a car waiting for you outside to take you to the `airport`.
+- All the guy at `airport` customs wanted to know was "who shot j.r.?"
+- Just the same, you call the `airport` and let me hear you tell them.
+- So the entire sixty mile ride back to the `airport`, we don't speak.
+- He was showin' me how the `airport` bus is comin' in, like that, sal.
+                 

@@ -1,0 +1,66 @@
+---
+title: "treasure in a sentence | treasure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "treasure"
+---
+- What's the `treasure`?
+- Wow, a `treasure` map!
+- I found the `treasure`!
+- I will `treasure` this.
+- If there's a `treasure`.
+- No `treasure` maps, huh?
+- You found my `treasure`?
+- Harry's `treasure` chest?
+- It looks like `treasure`.
+- I don't see no `treasure`.
+- It's the micro-`treasure`!
+- No, it's a `treasure` map.
+- She's a `treasure` she is.
+- Do not seek the `treasure`!
+- The man's a `treasure` trove.
+- Greater than `treasure`, usul.
+- I've got a `treasure` to find.
+- I will `treasure` this forever.
+- You digging for buried `treasure`?
+- I should have been your `treasure`.
+- Is if you found a certain `treasure`.
+- It's the `treasure`, that's what it is.
+- The `treasure` chest was in his office.
+- You mean we're going `treasure` hunting.
+- It's like he was their little `treasure`.
+- You found a real `treasure` for me, terri.
+- You have touched the forbidden `treasure`!
+- If i find the `treasure`, will i win a prize?
+- You really think there's a `treasure` inside?
+- I brought my `treasure` box for show-and-tell.
+- Plenty `treasure` inside... jimmy seen it once.
+- Then that's where i'm going `treasure` hunting.
+- We got but four days to get to that `treasure`!
+- Guiding others to a `treasure` i cannot possess.
+- Yeah, but we still haven't found any `treasure`.
+- It's a piece of the `treasure` of isla de muerta.
+- What do you think... we weren't burying `treasure`.
+- What happened to "i'll `treasure` whatever you do?"
+- My mom says the `treasure`'s somewhere in the school.
+- The way to free you from the curse of the `treasure`.
+- Right, right, in a big underground `treasure` chamber.
+- You know lloyd, the real `treasure` is our friendship.
+- He's got a parrot on his shoulder, buries `treasure`...
+- Just find the buried `treasure`, and you're a millionaire.
+- Maybe the pirate who buried this `treasure` chest made it.
+- Maybe the `treasure`'s a chest full of apples and bananas!
+- Viens, jean-louis -- we're going to have a `treasure` hunt.
+- Uh, frankly, i - well i spilled my guts about the `treasure`.
+- What're you gonna do with your share of the `treasure`, pete?
+- But i still feel i deserve more than you do of this `treasure`.
+- ...that our little `treasure` here has a bellyful of microfilm?
+- Hey, wes, what kind of `treasure` you figure these people buried?
+- ♪ is home to chaos ♪ let me guess, you didn't find any `treasure` today.
+- [chuckles] okay bart, because we `treasure` you too, broke into our house.
+- If you can figure out how to open it there's supposed to be a `treasure` inside.
+- I may not be an explorer, or an adventurer, or a `treasure` hunter, or a gunfighter!
+- She's just a bundle of energy, a real `treasure`... then i guess her case is closed.
+- You want to go on your sick, little `treasure` hunt then go ahead, but mark me absent.
+- For them to protect it like this, you just know there's got to be `treasure` down there.
+                 

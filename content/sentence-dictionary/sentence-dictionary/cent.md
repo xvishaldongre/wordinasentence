@@ -1,0 +1,60 @@
+---
+title: "cent in a sentence | cent example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cent"
+---
+- What's '`cent`' anne?'
+- You won't get a `cent`.
+- Down to the `cent`.$900.
+- Seventy-five per `cent`.
+- En location, cinq `cent`.
+- The usual ten per `cent`?
+- My twenty-five per `cent`.
+- Irs can't touch one `cent`.
+- It's just the three `cent`.
+- It's not the ten per `cent`.
+- He's not paying you one `cent`!
+- But for that deal - not a `cent`.
+- I don't have a `cent` to my name.
+- Seventy-one per `cent` said "no."
+- We only got fifteen-`cent` loafs.
+- This here's a fifteen-`cent` loaf.
+- Them wasn't two-for-a-`cent` candy.
+- Yeah... a hundred per `cent` cotton.
+- What'm i gonna do with half a `cent`?
+- People don't much use the three-`cent`.
+- So now i don't have a `cent` to my name.
+- You're going to return every `cent` of it!
+- Fifty per `cent` to a so-called duchess!...
+- In louisville it was seventy-five per `cent`.
+- Oh, perfect -- a 75 per `cent` family affair.
+- Worth every `cent` of the 10 million dollar-s.
+- I'd say my game is about twenty per `cent` off.
+- Twenty- nine `cent` hotdogs... total control now.
+- We're 98 per `cent` certain mitchell was murdered.
+- Say, honey, you look a million per `cent` better.
+- He's got a million dollar arm and a five `cent` head.
+- Every `cent` of it, and it still was less than we owe.
+- Hautman's blue-winged teal got the twenty-nine `cent`.
+- Twenty per `cent` of that is yours if ya stick with us.
+- So if you'll just write me a check for my ten per `cent`.
+- Which practically means, ninety per `cent` of the voters.
+- You haven't paid me one `cent` in child support, alimony.
+- Not a `cent`, i swear to god, i swear on my mother's eyes.
+- Grandfather left him twenty per `cent` of a tobacco company.
+- I didn't know that .. <u>one hundred fucking per `cent`</u>!
+- She'll want to cash in on as many fifty-`cent` words as poss.
+- Actually, it's probably more like $143.80 and one-half `cent`.
+- I receive 30 per `cent` just for finance and legal protection.
+- Time-warner has a 40 per `cent` stake in gary's set-top device.
+- Will you just -- all right -- thirty-five, and not a `cent` more!
+- Daddy threatened to cut me off without a `cent`, but i don't care.
+- Make sure to check in with max, he'll give you the 25 `cent` tour.
+- I want you to put every `cent` you've got into our stock, you hear?
+- A guy can't propose to a girl without a `cent` in the world, can he?
+- I can see all the naked women i want, and it doesn't cost me a `cent`.
+- For that i get seventy-five per `cent` return on my money -- if you win.
+- My importing methods are as safe as these things can be, about five per `cent` loss.
+- They can't be bothered collecting half a `cent` from your paycheck anymore than you could.
+                 

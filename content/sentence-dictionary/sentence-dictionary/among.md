@@ -1,0 +1,79 @@
+---
+title: "among in a sentence | among example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "among"
+---
+- A joke `among` my peers.
+- She's `among` the missing.
+- `Among` other things, yeah.
+- Call me `among` the blessed.
+- Any favourite `among` the 22?
+- You stay `among` the officers.
+- The luckiest `among` the lucky.
+- There are those `among` us bye!
+- `Among` so many quiet qualities.
+- He was the first man `among` us.
+- Now you're `among` the immortals.
+- ...i can't wait to be `among` you.
+- My mother and sister `among` them.
+- So much for honor `among` thieves.
+- Is your friend's name `among` them?
+- Distribute them `among` the tellers.
+- His body wasn't `among` the victims.
+- Nyssa was not `among` them, i trust.
+- When i am sure i am `among` friends.
+- Enemies when she was `among` friends.
+- Of glazed eyes out there `among` you.
+- I see thufir hawat `among` the captives.
+- Increaseth the transgressors `among` men.
+- We are blessed to count ourselves `among` them.
+- You're one `among` my many jailers, aren't you?
+- A little misunderstanding `among` my associates.
+- Truly you belong here with us `among` the clouds.
+- They're `among` the best divisions the british have.
+- But it wasn't easy... being `among` them... gallatin!
+- Jesus of nazareth found the holy `among` the profane.
+- Tonight we're having a little party `among` ourselves.
+- If i can't be safe `among` my own kind, where can i be?
+- Soul holds a special place `among` the infinity stones.
+- Eve harrington will be `among` them... was she that bad?
+- But my dear child, i am most at home `among` working men.
+- Couldn't be a mouthful of teeth `among` the bunch of 'em.
+- I say, he shall: go to; make a mutiny `among` my guests?!
+- I just hope you understand you're `among` good people here.
+- It taught you, `among` other things, the value of patience.
+- The rabbit is correct and clearly the smartest `among` you.
+- The -- folks or people, what's the difference `among` friends?
+- The french will protect the officer class `among` the english.
+- The general log said the crew were fighting `among` themselves.
+- Chief `among` them clarke's newfound evangelical, whoa, whoa, whoa.
+- He has his wife's jewelry hidden in `among` his clothes over there.
+- I got a crazy plan, but only the craziest `among` us can pull it off.
+- Well, why didn't you list that `among` our assets in the first place?
+- Sir, were you aware at any time of the use of alcohol `among` the crew.
+- A republican is a man who strives to create equality `among` all classes.
+- I will not tolerate this infighting `among` the staff, i warn you that...
+- Marriage is - funny... fleet encourages marriages `among` flight officers.
+- Some feared restlessness `among` the dead you know, the old superstitions.
+- We find, in the valley, it makes for better happiness `among` the natives.
+- But you were `among` the british, they were your friends - why betray them?
+- I am noticing an unusally high number of glazed eyes out there `among` you.
+- Lord leondegrance is my only ally `among` the barons and the great knights.
+- He isn't meant to live on earth, `among` us... you should know this, johana.
+- Or is ambition only a virtue `among` the nobles, a fault for the rest of us?
+- Every bit as tough -- and we have a 60 percent drop-out rate `among` the men.
+- Then, in thirty or forty years, she'll take her place `among` the artisans...
+- ...'winner of the golden globe and the edward r. murrow award `among` others.'
+- I am not certain such speculations are included `among` your duties, lieutenant.
+- Tells you how old it is, `among` other things, usually more important with reds.
+- If you're `among` the best in the navy, i tremble for the security of this country.
+- Suppose mrs. thorwald's wedding ring was `among` the jewelry he has in the handbag.
+- All the while your true enemy could very well be considered already here `among` you.
+- I thing maybe i should just give everything away and go live `among` the poor people.
+- There's no connection at all `among` these places, or the computers would've nailed it!
+- You can't take a bill no one knows anything about and discuss it `among` ninety-six men.
+- You invite us to live `among` you, in an atmosphere of equality we've never known before.
+- You are paul muad'dib, and your mother shall be a sayyadina `among` us.... we welcome you.
+- You know, i used to live like robinson crusoe -- shipwrecked `among` eight million people.
+                 

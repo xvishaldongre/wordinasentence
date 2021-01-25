@@ -1,0 +1,88 @@
+---
+title: "particular in a sentence | particular example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "particular"
+---
+- Any `particular` brand?
+- No `particular` reason.
+- Any bit in `particular`?
+- Any `particular` reason?
+- Nowhere in `particular`.
+- Anyplace in `particular`?
+- That's very `particular`.
+- Well, who in `particular`?
+- But no one in `particular`.
+- Anyone `particular` in mind?
+- Seeing anyone in `particular`?
+- The hatchery, in `particular`?
+- Well... anywhere in `particular`?
+- Yes... your `particular` approach.
+- And for my feelings in `particular`!
+- In `particular` alexander walker, did.
+- Looking for something in `particular`?
+- No `particular` reason... nice day, huh?
+- But i'm trying to not be too `particular`.
+- Do you have any `particular` choice of girl?
+- I took `particular` care not to freeze them.
+- You're a private available but `particular`.
+- Did it have some `particular` value or power?
+- Are you looking for something in `particular`?
+- There's one, a `particular` pebble in my shoe.
+- I'm just saying, not in this `particular` case.
+- Do you have any `particular` reason to say that?
+- He's blanked out on that one `particular` point.
+- I'm kin to everyone, and no one in `particular`.
+- Ok, ok... for these prices don't be `particular`.
+- Is there anything `particular` you're looking for?
+- Well, no, i don't reside anywhere in `particular`.
+- Why did you break into that `particular` building?
+- I'm pretty `particular` about whom my wife marries.
+- Is there anything in `particular` you want to know?
+- You don't want to mess with that `particular` breed.
+- Yes, did you call us here for any `particular` reason?
+- This one in `particular` speaks to me, do you know?
+- Did he have any `particular` problems that you knew of?
+- Nothing `particular` the matter with him, they tell me.
+- What do you think he meant, this `particular` incident?
+- You sure you're up to this `particular` murder mission?
+- A native is someone who is born in a `particular` place.
+- I know how much jim in `particular` meant to you, ethan.
+- With `particular` emphasis on the cranial and oral areas.
+- He likes to read... did he mention anyone in `particular`?
+- Sir, the president does not call this `particular` number.
+- Please note i did not identify any one in `particular`.
+- Your `particular` assignment requires a special talent.
+- Any `particular` reason you didn't give him my blue letter?
+- Is there any `particular` reason we're not out of here yet?!
+- Be with someone who needs everyone and no one in `particular`?
+- Nothing in `particular`, just putting it away for a rainy day.
+- Frederick, why are you so interested in this `particular` case?
+- All the corpses were badly mutilated in a very `particular` way.
+- Fortunately, i've found a way around that `particular` obstacle.
+- It seems a `particular` patient of yours has captured his fancy.
+- Let's face it, in your `particular` field, you're the top minds.
+- It's difficult because you're sellin' it to a `particular` group.
+- Crossing the border this time of night they're a bit `particular`.
+- I will hire someone who is most qualified for this `particular` job.
+- I mean, is there any place in `particular` where we can drop you off?
+- You said they wanted to get into some `particular` safety deposit box?
+- Something that made a `particular` sound when you put it down on the bar.
+- They'll all be there and we don't have to appear at any `particular` time.
+- We have a situation on our hands that requires your `particular` expertise.
+- Anyway, on this `particular` day toby's dad up and falls into the machinery.
+- I've always had a rather elaborate funeral in mind, with `particular` hymns.
+- This `particular` store is where they do a lot of jewelry making and repair.
+- Well, we've been expecting this `particular` shipment for the past two years.
+- Of each `particular` thing, ask: what is it, in itself, what is its nature...?
+- Don't know that i have... should i know about you for anythin' in `particular`?
+- We will no longer have that `particular` stick with which to threaten the farmers.
+- I feel that somehow my parents never prepared me to make this `particular` decision.
+- Fok yu and fok yu two...are we strolling down memory lane for any `particular` reason?
+- There's a wonderful smell about iowa -- very `particular` to this part of the country.
+- Can you recall any `particular` incident that relates to mr. kramer's care of his child?
+- It doesn't and you won't, and the lunatics are not going to run this `particular` asylum.
+- There was one play in `particular`, a beautiful, grim study of war called "journey's end".
+- I've walked across a stage a number of times, without exciting any `particular` response...
+- One: how did a celebrated life of the mind bring me to this `particular` switching station?
+                 

@@ -1,0 +1,107 @@
+---
+title: "done in a sentence | done example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "done"
+---
+- Barry said its `done`.
+- Damn right i'm `done`.
+- Did you get it `done`?
+- `Done` too much of it.
+- He's `done` it before.
+- I'd `done` everything.
+- If i hadn't `done` it.
+- I like it well `done`.
+- It couldn't be `done`.
+- It needs to be `done`.
+- It's what they `done`!
+- I've seen that `done`.
+- Let's get this `done`.
+- No harm `done`, ma'am.
+- Oh�what have i `done`?
+- She's `done` the math.
+- Sir, we're not `done`.
+- They'll get it `done`.
+- They're almost `done`.
+- This is a `done` deal.
+- "well `done`," cactus.
+- With what i've `done`.
+- You are `done`, james.
+- You `done` it already.
+- You're not `done` yet.
+- After what i've `done`.
+- After what they `done`?
+- I'm `done` running.
+- But the work is `done`.
+- But what have i `done`?
+- `Done` like a champion.
+- Everything i've `done`.
+- Guard, i'm `done` here.
+- He hasn't `done` bundy.
+- I could've `done` that.
+- I'd `done` "show boat."
+- I'm almost `done`, sir.
+- I'm `done` helping you.
+- I'm `done` with vienna.
+- I should've `done` him!
+- It isn't `done`, i say!
+- It's `done`, it's over.
+- It's well `done` stuff.
+- I've already `done` it.
+- I've `done` bad things.
+- "more" or "all `done`"?
+- No, no, i'm not `done`!
+- No -- well, i'm `done`.
+- She's `done` it before.
+- That's how it's `done`.
+- The moment i am `done`.
+- They've `done` a c.a.t.
+- This is already `done`.
+- Well `done`, commander.
+- Well `done`, mr. scott.
+- Well `done`, mr. spock.
+- We've `done` it before.
+- What has tuttle `done`?
+- What have i `done` now?
+- You `done` this before?
+- You `done` wound me up!
+- You've `done` it again?
+- Ah, well `done`, team 2.
+- All `done` with mirrors.
+- What had you `done`?
+- Are we `done` for today?
+- Been there, `done` that.
+- Easier said than `done`.
+- Ever `done` this before?
+- For what they've `done`.
+- Have i ever `done` time?
+- He's `done` this before.
+- Hip hip... - and `done`.
+- I'm `done` with her now.
+- I'm `done` with prisons.
+- I'm not `done` with you.
+- It's `done` with, royce.
+- It's gettin' `done` sid.
+- I've `done` it all, man.
+- I've `done` my homework.
+- I've `done` that before.
+- I've `done` things, max.
+- I've `done` this before.
+- Otherwise, we're `done`.
+- Our work is `done` here.
+- Our work is `done`, lou.
+- Shouldnt've `done` that.
+- That's it, we're `done`.
+- Then consider it `done`.
+- This is how it's `done`.
+- We're about `done` here.
+- We've all `done` things.
+- What i've always `done`.
+- What's he `done` to you?
+- What you've just `done`?
+- You've `done` it before.
+- You've `done` very well.
+- No damage was `done`.
+- And you're `done`, buddy.
+- But you've `done` enough.
+                 

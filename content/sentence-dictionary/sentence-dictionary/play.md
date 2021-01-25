@@ -1,0 +1,107 @@
+---
+title: "play in a sentence | play example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "play"
+---
+- Come on, let's `play`.
+- Don't `play` anything!
+- Don't `play` innocent.
+- Go ahead, `play` dumb!
+- I could hardly `play`.
+- I'd rather not `play`.
+- I saw you `play`, man.
+- I used to `play` ball.
+- I've seen that `play`.
+- I wanna `play` a game.
+- Now can we `play` d&d?
+- Now we `play` round 2.
+- `Play` along with him.
+- See the knicks `play`.
+- That's not the `play`.
+- We can't `play` today.
+- We can't `play` today?
+- We'll `play` thursday.
+- What about the `play`?
+- You do want to `play`?
+- You `play` the father.
+- You `play` the violin?
+- You `play` with dolls.
+- All work and no `play`?
+- Did you see the `play`?
+- Do you like the `play`?
+- Figaro is a bad `play`.
+- He can `play` tomorrow.
+- How does it `play` out?
+- How do you `play` that?
+- I can `play` the piano?
+- I don't `play` tragedy.
+- I don't want to `play`.
+- I mean, you can `play`.
+- In a `play` or musical.
+- Is that how you `play`?
+- I won't `play` tonight.
+- Then that's our `play`.
+- We `play` by the rules.
+- Who's gonna `play` you?
+- Work hard, `play` hard!
+- You going to `play` it?
+- You `play`--left field.
+- All i ever do is `play`.
+- You `play` cricket?.
+- Are you ready to `play`?
+- Did you like the `play`?
+- Did you `play` recently?
+- Do you `play` the piano?
+- Go back again... `play`.
+- He wouldn't `play` ball.
+- I don't `play` that way.
+- I'm workin' on a `play`.
+- I wrote my `play` on it.
+- No signs of foul `play`.
+- `Play` something, grace.
+- `Play` the goddamn tape.
+- `Play` them the message.
+- So don't `play` with me.
+- So you `play` the piano.
+- This `play` is about us!
+- Turnabout's fair `play`.
+- Want to `play` the game?
+- We can make that `play`.
+- Well, i `play` the tuba.
+- We should `play` a game.
+- Will you `play` with me?
+- You ever `play` chicken?
+- You have to `play`, sid.
+- You'll `play` salome?
+- Back again... and `play`.
+- Did you `play` in a band?
+- Did you `play` the game?!
+- Do you `play` the market?
+- Hey, i don't `play` that.
+- I also `play` racketball.
+- I'll `play` ball with ye.
+- I'm proud of this `play`.
+- I wanna `play` some klob.
+- Joanna loves this `play`.
+- John, `play` the sinatra.
+- Now, is it a good `play`?
+- Oh, have we got a `play`!
+- `Play` "as time goes by."
+- `Play` it for us, please.
+- Please `play` without me.
+- So, you wanna `play` huh?
+- They `play` pretty rough.
+- What team you `play` for?
+- Yeah, come on, `play` it.
+- You `play` an instrument?
+- At least we got to `play`.
+- But it wasn't foul `play`.
+- Can you `play` that thing?
+- Don't `play` games... ugh.
+- Don't `play` with me, son.
+- How do you `play` reality.
+- It doesn't `play` anymore.
+- I used to `play` it alone.
+- `Play` fair with them, ed.
+                 

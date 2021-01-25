@@ -1,0 +1,86 @@
+---
+title: "creature in a sentence | creature example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "creature"
+---
+- `Creature` of the night.
+- The `creature` is hungry.
+- A... human like `creature`?
+- The `creature` with it.
+- Yeah...a made-up `creature`.
+- Satan is not some `creature`.
+- That `creature` helps no one.
+- I am a `creature` of darkness.
+- How do we locate the `creature`?
+- This is all the same `creature`.
+- To have stopped this `creature`?
+- What kind of `creature` is this?
+- It's a picture of the `creature`.
+- Such a small and weak `creature`.
+- She's very tired, poor `creature`.
+- This `creature` will never evolve.
+- This is a warm-blooded `creature`.
+- Jacques is a `creature` of the sea.
+- You're a very mysterious `creature`.
+- Oh, you strange -- strange `creature`.
+- She tries to shoo the `creature` away.
+- If we want to kill the `creature`, yes.
+- Wambli is a rare and sacred `creature`.
+- You're a fey `creature` with mad ideas.
+- He must mean after "slime `creature` 3".
+- They're all linked, like one `creature`?
+- Are we talkin, about the same `creature`?
+- But this -- `creature` is a special case.
+- She won't remember the `creature` she was.
+- No mortal weapons can kill this `creature`.
+- Turning selfish a `creature` like chiren.
+- No less a `creature` than the lindfarne worm.
+- On the staircase is a zombie-fied `creature`.
+- We cannot let this `creature` command wonkru.
+- You're a funny little `creature`, flaemmchen.
+- Your princess is really a winning `creature`.
+- I figure every `creature` deserves a warm meal.
+- That this majestic `creature` has a gentle soul.
+- It drives every living `creature` in sanctum mad.
+- One worthy of such a magnificent `creature`: popo.
+- She's the most incredible `creature` i've ever seen.
+- Soon the `creature` will come for you, even here.
+- A strange and wonderful `creature` to the rest of you.
+- It means literally "small but intelligent `creature`".
+- Saved him before the `creature` could finish his work.
+- When a `creature` dies, the force it generated remains.
+- You are the most desirable `creature` that ever walked.
+- "a `creature` that gestates inside a living human host."
+- ...look down in pity... ...from this `creature` of god!!!
+- I can assure you, there is no such `creature` in my genes.
+- I am a `creature` like no other and i will not be commoned!
+- Mister president, man is an amazingly adaptable `creature`.
+- So the `creature`'s gonna feed wherever the most bones are.
+- ...found no physical evidence of the `creature` you describe.
+- That these maladies can migrate from the smallest `creature`.
+- You'll stalk the streets of london a `creature` of the night.
+- She said that every living `creature` on this earth dies alone.
+- You feel it like no other `creature` because you are a vampire.
+- I have a thing about drinking from the anus of another `creature`.
+- So after we kill the `creature` we'll begin a search for the nest.
+- The perfect `creature` he loved for all those y... ... except one.
+- The universe is a living `creature`, like you and me, madmartigan.
+- We're trying to help you, you silly `creature`, sit in that chair!
+- I'll deal with this other `creature`... willful `creature`, that one...
+- It concerns the existence of every last `creature` who lives on earth.
+- My own purpose is to save this exceptional `creature` from mutilation.
+- No, it doesn't make it right, but i stopped that `creature`, didn't i?
+- That already makes him the strongest `creature` in the whole universe.
+- We're trapped in this ice and bedeviled by some sort of... `creature`.
+- You're not such a `creature` of the ooze that you'd hurt an unarmed man.
+- This `creature` is far too unique on every level to be some lost dinosaur.
+- I'm not trained to deal with a monster, a supernatural `creature` like that.
+- The next is of a frankenstein-esque `creature` carrying a woman in its arms.
+- You think she took everything from you, no `creature` should be that jacked.
+- The puling, pallid `creature` you were before was truly something disgusting.
+- Your archeological theories have no bearing on the disposition of this `creature`.
+- Hey look, somebody has to have his hands free to lock the `creature` in the lifeboat!
+- Do you realize that a `creature` like this could lay as many as a dozen eggs at a time!
+- When a `creature` shows too much independent thought we remove them from the gene pool.
+                 

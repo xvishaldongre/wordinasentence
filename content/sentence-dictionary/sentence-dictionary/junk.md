@@ -1,0 +1,55 @@
+---
+title: "junk in a sentence | junk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "junk"
+---
+- I know what `junk` is.
+- Running a `junk` yard.
+- Ever see so much `junk`?
+- I don't eat `junk` food.
+- `Junk` the nuclear subs!
+- Look at all this `junk`.
+- I like to look at `junk`.
+- My wonderful `junk` yard.
+- Throw out all this `junk`.
+- God, what a piece of `junk`.
+- Adult education is such `junk`!
+- Let's `junk` the medals, elmer.
+- What are watchin' this `junk` for?
+- I take pictures of a lot of `junk`.
+- We definitely want it to have `junk`.
+- Sits in that chair, he's outta `junk`.
+- He found him in a `junk` pile ... luke!
+- She knows every neat `junk` food place.
+- Where does one man get all this `junk`?
+- I told you not to buy that hunk of `junk`!
+- Slaves -- get this `junk` out of my sight.
+- Then he suddenly gets up, he's got `junk`.
+- Look at all that other `junk` that's on tv.
+- I just know you got more in you than `junk`.
+- This is just `junk` i have for sale or trade.
+- That heap of `junk` will never leave the ground!
+- How do you know so much about this `junk`, plato?
+- I learned the `junk` business in the can, paulie.
+- Put all that `junk` behind her... you had a plan!
+- Chewie, let's see what this piece of `junk` can do.
+- When you're on `junk` you have only one worry: scoring.
+- Why don't you take a half day and clean this `junk` up?
+- Why are you wasting time on this burned-out street `junk`?
+- Don't got patience to suffer you children and this monkey `junk`.
+- Well, it's very impressive but you built this `junk` for nothing.
+- The mystery and dreams you find in a `junk` yard- i'm a `junk` yard.
+- Well... there's a lot of `junk` in his system for such an old man.
+- We're looking for highly passive humans dang dumb piece of `junk`.
+- I make at least two `junk` connections at that table in the corner.
+- Bree, show me any sense to -- arlyn was a junkie; i'm not on `junk`!
+- Momma say she need a bag 'a yours, none of that store-bought `junk`.
+- This condescending `junk` makes suicide seem like a cool thing to do.
+- Maybe they realized that they live in a `junk` pile in the middle of space.
+- Do you know if these grenades are the blow-off-your-`junk` kind or the gas kind?
+- They've got so many stores and stuff and `junk` full of crap, i can't believe it.
+- You see, a while back, we were walking down the yellow brick road, and -- ...`junk`!
+- ...going places, good `junk` bond department, you got the financing on that syndicam deal.
+- Not ready yet, looking like a `junk` yard- only thing, what i go after, i want to go after.
+                 

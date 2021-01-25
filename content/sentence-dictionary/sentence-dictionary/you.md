@@ -1,0 +1,107 @@
+---
+title: "you in a sentence | you example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "you"
+---
+- As real as `you` wish.
+- As soon as `you` want.
+- As `you` already said.
+- As `you` wish, master.
+- At least `you` walked.
+- A "t." `you`'re right.
+- Bad news, `you` crazy?
+- Barb, `you` wanna try?
+- Barnes, `you`'re dead!
+- Because it's in `you`.
+- Because of `you`, man.
+- Because `you` buckled.
+- Because `you`'d laugh.
+- Because `you`'re nuts.
+- Because `you` said so.
+- Because `you` want to.
+- Because `you` wish it.
+- Been busy, have `you`.
+- "before i kill `you`."
+- Bela, are `you` ready?
+- Bikes, it's all `you`.
+- Bill, how do `you` do?
+- Billy, are `you` okay?
+- Bishop, goddamn `you`!
+- Both of `you` shut up.
+- Both, see `you` later.
+- Brian told `you` that?
+- Bruce, are `you` okay?
+- But -- are `you` sure?
+- But because `you` did.
+- But can't `you` see...
+- But couldn't `you`...?
+- ...but he found `you`.
+- But he got `you` here.
+- But he sent `you` all.
+- But how do `you` know?
+- But it's all `you` do.
+- But...i've seen `you`.
+- But now `you`'re here.
+- But oh, no, not `you`.
+- But we did want `you`.
+- But what can `you` do?
+- But when `you`'re not.
+- But `you` are wounded!
+- But `you` blew us off.
+- But `you` can't...`you`.
+- But `you` did promise.
+- But `you` don't agree?
+- But `you` get to live.
+- But `you` gotta do it.
+- But `you` know, liz...
+- But `you` let him off.
+- But `you`'re a coward.
+- But `you`'re a doctor.
+- But `you`'re my child!
+- But `you`'re no pinup.
+- But `you`'re not luke.
+- But `you`'re the gods!
+- But... `you` see, i...
+- By god, `you` know it.
+- Calmer than `you` are.
+- Can all of `you` work?
+- Can i come with `you`?
+- Can i help `you` pack?
+- Can i help `you`, sir?
+- Can i see `you` again?
+- Can i see `you` later?
+- Can i tell `you` more?
+- Can i walk `you` home?
+- Can't see `you` today.
+- Can't `you` go higher?
+- Can't `you` just quit?
+- Can't `you` stop that?
+- Can `you` believe it?!
+- Can `you` check again?
+- Can `you` create life?
+- Can `you` do anything?
+- Can `you` find it yet?
+- Can `you` follow them?
+- Can `you` get back ok?
+- Can `you` get us home?
+- Can `you` handle that?
+- Can `you` hear me now?
+- Can `you` locate them?
+- Can `you` love a fool?
+- Can `you` move at all?
+- Can `you` run an i.d.?
+- Can `you` see alright?
+- Can `you` set that up?
+- Can `you` talk to her?
+- Can `you` tell me why?
+- Can `you` walk or not?
+- Careful -- hey, `you`!
+- Catch him, `you` fool!
+- 'cause he hates `you`.
+- 'cause it wants `you`.
+- 'cause `you` know him?
+- ...cause `you` said...
+- Children `you` raised.
+- Christ, look at `you`.
+                 

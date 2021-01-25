@@ -1,0 +1,58 @@
+---
+title: "commit in a sentence | commit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "commit"
+---
+- What crime did you `commit`.
+- I'll `commit` that to memory.
+- Sharks don't `commit` murder.
+- They didn't `commit` suicide.
+- Might as well `commit` the crime.
+- Afraid she might `commit` suicide?
+- I mean, you `commit` to a wedding.
+- Maybe she didn't `commit` suicide.
+- Wynant's tried to `commit` suicide.
+- It's you who can't `commit` to anything!
+- Here to help you `commit` internet crime.
+- I here and now `commit` myself to daring!
+- What makes you think i won't `commit` two?
+- Would she `commit` a crime over a new sax?
+- Did frank tell you to `commit` these crimes?
+- Have i pulled the lever to `commit` genocide?
+- He'd be happy if he could help *`commit`* me!
+- From the wolf with which to `commit` genocide.
+- I was already prepared to `commit` one murder.
+- People who `commit` suicide don't talk about it.
+- Except, you're willing `commit` murder with them.
+- I'd hate to `commit` myself without my compass...
+- I want him to `commit` his stock to us this morning.
+- We love we `commit` his body to the depths of space.
+- Anybody could `commit` suicide, if he felt low enough.
+- The one crime i would never `commit` is pickpocketing.
+- I talk to guys like you, and i want to `commit` suicide.
+- We `commit` no violence, unless... a strange collection.
+- You think people ever `commit` suicide out of happiness?
+- Seeker diyoza, you will never `commit` they're a liability.
+- A person doesn't `commit` an act of violence out of nowhere.
+- I cannot `commit` treason, if i have never been his subject!
+- Hey... man: then we hereby `commit` these souls to the deep.
+- There, armed with a quill of my own, i'll `commit` it to paper!
+- You're saying you were put away for a crime you didn't `commit`?
+- I hear depressing news like this and i want to `commit` genocide!
+- Money isn't the only reason people `commit` murder, miss braslow.
+- Because i found out for certain that he didn't `commit` the murders.
+- I suggest you `commit` to the training, the nature of your research.
+- That was the first time you attempted to `commit` suicide, wasn't it?
+- You know he's gonna `commit` that bomber staight to the tree of souls.
+- In fact, you've just taken an oath that you would not `commit` perjury.
+- Well, i'm not going to `commit` economic suicide on that flimsy evidence.
+- But, no, these guys show anyway, and `commit` murder upon federal officers.
+- He decides to `commit` suicide in protest against the state of civilization.
+- I don't think i can give absolution to a man who's about to `commit` suicide.
+- ...supposedly trying to clear his name of a crime he knows he didn't `commit`.
+- You `commit` this incredible breach of ethics and you act as if i'm nitpicking.
+- From your knowledge of mitchell, would you say he would be likely to `commit` suicide?
+- You wanna kill yourself, that it, you looking to `commit` some kind of divine suicide?
+- Power-control killers usually fantasize about their actions long before they `commit` them.
+                 

@@ -1,0 +1,69 @@
+---
+title: "champagne in a sentence | champagne example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "champagne"
+---
+- Want some `champagne`?
+- Will `champagne` help?
+- He ordered `champagne`.
+- Let's have `champagne`!
+- The `champagne`'s fine.
+- What about `champagne`?
+- `Champagne` on the rocks.
+- One `champagne` cocktail.
+- Gibby gave me `champagne`.
+- I have ordered `champagne`.
+- Put down the `champagne`.
+- Some `champagne`, miss flaemm?
+- A `champagne` cocktail, please.
+- A glass of `champagne`, please.
+- How much does `champagne` cost?
+- Watered down `champagne` punch?
+- `Champagne` and a tin of caviar.
+- I don't think we have `champagne`.
+- Just take your `champagne` and go.
+- This is <u>french</u> `champagne`.
+- Two `champagne` cocktails, please.
+- Can you use a bottle of `champagne`?
+- The finest, and cognac, `champagne`.
+- Along with two bottles of `champagne`.
+- You need one glass of `champagne`.
+- `Champagne`, caviar, whatever you want.
+- Have a glass of `champagne`... or six...
+- Send up a bottle of crystal `champagne`.
+- Would you like a little more `champagne`?
+- I want to see that moon in the `champagne`.
+- Baccarat, roulette, and `champagne` buffet."
+- Here here... more `champagne`, your majesty?
+- I forgot to bring the `champagne`, mr. johnny.
+- You know `champagne` makes me do crazy things.
+- Well, let's go have some `champagne`, shall we?
+- `Champagne`, caviar, i think you've been over it.
+- I wish we had some `champagne` to wrap it around.
+- Just somebody delivering a bottle of `champagne`.
+- You wouldn't even sip `champagne` at our wedding.
+- I gotta go... and i don't really like `champagne`.
+- `Champagne` for mouthwash when you brush your teeth!
+- Because they bring out the flavor of the `champagne`.
+- Vandamm: how about a little `champagne` before we go?
+- There's always `champagne` on ice, and plenty of caviar.
+- The closest i ever came to `champagne` was in a newsreel.
+- From what i read i thought `champagne` was a strong drink.
+- Good...i thought you'd break out the `champagne`.... good.
+- It's going to be ok. can i get you a glass of `champagne`?
+- But something has changed me--and it isn't the `champagne`.
+- They buy my caviar, drink my `champagne`, lose to my house.
+- You're the one with the `champagne` wishes and caviar dreams.
+- Nine months from today, i will be in medellin sipping `champagne`.
+- Hi, i'm out drinking `champagne` and roses... and i'm really happy.
+- When you marry `champagne`, clo-clo, you can't trade it in for beer.
+- Just a soupcon of lemon... ...it improves the flavor with `champagne`.
+- When a man says no to `champagne`, he says no to life and that no man must ever do.
+- Caviar and `champagne` may mean nothing to you, but to me -- they mean a great deal.
+- Nothing unusual about mr. sheldon's leaving, buster--you can tell by the `champagne`.
+- I bet you a bottle of french `champagne` he tells us the baton story inside ten minutes.
+- Help yourself to a glass of this n.y. state `champagne` - that's what my husband buys me.
+- It's always good luck to launch something with `champagne`; a battleship... or an evening.
+- I was brought up on goat's milk, i had a ration of vodka in the army, and now `champagne`.
+                 

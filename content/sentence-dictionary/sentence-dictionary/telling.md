@@ -1,0 +1,107 @@
+---
+title: "telling in a sentence | telling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "telling"
+---
+- I ain't `telling` you.
+- I'm not `telling` you!
+- I'm not `telling` you.
+- I'm `telling` you now.
+- No, i'm `telling` you.
+- So you�re `telling` me.
+- They was `telling` him.
+- You're `telling` a lie.
+- I'm `telling` myself to.
+- I'm `telling` the truth.
+- I'm `telling` the truth.
+- Look, i'm `telling` you.
+- Thanks for `telling` me.
+- Boy, you're `telling` me.
+- He's `telling` the truth!
+- He's `telling` the truth.
+- I am `telling` the truth.
+- I'm not `telling` anyone.
+- I'm `telling` you casper.
+- I'm <u>`telling`</u> you.
+- It's like `telling` fibs.
+- We're `telling` your mom.
+- You're `telling` me dick.
+- You're `telling` me that?
+- Because i'm `telling` you.
+- Don't go `telling` anyone.
+- I'm `telling` you goodbye.
+- I'm `telling` you i won't.
+- I was `telling` the truth.
+- Now that i'm `telling` it.
+- Stop `telling` him things!
+- What are you `telling` me?
+- What you `telling` us for?
+- How about you `telling` me?
+- I'm not `telling` you, man.
+- I'm `telling` you it isn't.
+- I'm `telling` you it's not.
+- Thank you for `telling` me.
+- Who's `telling` this story?
+- You're `telling` the truth.
+- Are you `telling` the truth?
+- If he's `telling` the truth.
+- I'm just `telling` you that.
+- I'm not `telling` you, mate.
+- I'm `telling` ya, it's over.
+- I'm `telling` you he's dirt.
+- I'm `telling` you he's here.
+- I'm `telling` you i am, joe.
+- I'm `telling` you i'm broke.
+- I'm `telling` you the truth.
+- I'm `telling` you you can't.
+- I'm `telling` you your life!
+- What are you `telling` them?
+- He's not `telling` the truth.
+- I'm `telling` you, it's real.
+- I'm `telling` you this s.o.b.
+- I'm `telling` you, you will !
+- That's why i'm `telling` you!
+- Try `telling` them our names.
+- What aren't you `telling` me?
+- Yeah, we're just `telling`...
+- By you `telling` me in person?
+- Emori was `telling` the truth.
+- I appreciate you `telling` me.
+- I couldn't face `telling` you.
+- I'm `telling` you as a friend.
+- I'm `telling` you... bullshit.
+- I'm `telling` you, i saw it...
+- Look, i am `telling` you, man.
+- Sir, he's `telling` the truth.
+- That's him, i'm `telling` you.
+- That's what i'm `telling` you!
+- That's what i'm `telling` you.
+- Why are you `telling` me this?
+- Why are you `telling` fibs?
+- I'm `telling` you, it's peaked.
+- I'm `telling` you, i was there.
+- It's over, i'm `telling` you...
+- So everyone keeps `telling` me.
+- Soul, i'm `telling` you, lotte.
+- That we're `telling` the truth.
+- Who is -- who is `telling` you?
+- Why are you `telling` him that.
+- You're `telling` me your truth.
+- He's `telling` you you're going!
+- I'm `telling` you it's not that.
+- I'm `telling` you, it will work.
+- I'm `telling` you that's my car!
+- It is, i'm `telling` you it is!!
+- Listen to me: i'm `telling` you.
+- Maybe she's `telling` the truth.
+- Now, what are they `telling` us?
+- She's not `telling` us anything.
+- That's what you're `telling` me.
+- That's what you're `telling` me?
+- I feel stupid `telling` you this.
+- If she's `telling` you the truth.
+- I'm never `telling` you anything.
+- I'm not `telling` you what to do.
+- I'm `telling` you it's a forgery.
+                 

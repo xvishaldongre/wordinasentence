@@ -1,0 +1,103 @@
+---
+title: "reasons in a sentence | reasons example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reasons"
+---
+- There are no `reasons`.
+- Oh, the usual `reasons`.
+- I had my `reasons`, louis.
+- Not for `reasons` unknown.
+- We all have our `reasons`.
+- I could give you `reasons`.
+- But for different `reasons`.
+- I'm explaining my `reasons`.
+- My mother had her `reasons`.
+- That's one of the `reasons`.
+- There are lots of `reasons`.
+- But i have selfish `reasons`.
+- There are a lot of `reasons`.
+- What are the other `reasons`?
+- I guess you have your `reasons`.
+- First of all, economic `reasons`.
+- I came up here for two `reasons`.
+- One of the `reasons` is prudence.
+- All sound `reasons` for matrimony.
+- He just said he had good `reasons`.
+- You paid me for a lot of `reasons`.
+- I understand the business `reasons`.
+- Oh, i'm sure you had your `reasons`.
+- I had my `reasons`, but nobody cared.
+- Tch, w-well, for a million `reasons`.
+- Look, linda, there're fifty `reasons`.
+- Well, they're all excellent `reasons`.
+- I could give you a dozen good `reasons`.
+- I mean the `reasons` for my coming here.
+- I took it off you for obvious `reasons`.
+- Well, for the same `reasons` we do, sir.
+- Boss, you don't need `reasons` to hit me.
+- He had to step down for health `reasons`.
+- Let's hear your `reasons`, mrs. robinson.
+- There's two `reasons` a man rejects help.
+- I don't know if obsessions have `reasons`.
+- Who need `reasons` when you've got heroin?
+- I understand the <i>business</i> `reasons`.
+- Oh, lots of `reasons`, most of them boring.
+- That's one of the `reasons` why i love you.
+- I don't give a fuck what your `reasons` are.
+- Most of the cost is due to safety `reasons`.
+- Pretty much the same `reasons` i was crying.
+- Same `reasons` they wanted your father dead.
+- I can only speculate as to the `reasons` why.
+- She is-- but not for the `reasons` i thought.
+- That's one of the `reasons` we have a lawyer.
+- The `reasons` for finding jacqueline changed.
+- Is that for personal or professional `reasons`?
+- Dalton, scott, they've got their `reasons`; rev.
+- I'm here for the same `reasons` as you, i guess.
+- There are `reasons` for the way we do things here.
+- A device like this was one of the `reasons` i left.
+- It's one of the `reasons` we came to arkadia first.
+- It's one of the `reasons` we came to arkadia first.
+- `Reasons` pg&e thinks it shouldn't go to -- counts?
+- There seem to be lots of `reasons` why i shouldn't.
+- We'll be judged for the `reasons` that we did them.
+- Well, sir, like i said, for the same `reasons` we do.
+- If you don't want to take it for personal `reasons`...
+- Their `reasons` to want us dead were the same as ours.
+- I'd like to have you hear his side of it his `reasons`.
+- In paris a vampire has to be clever for many `reasons`.
+- Believe me, the da will come up with plenty of `reasons`.
+- I feel glued to my seat for `reasons` i don't understand.
+- Tyler... not an option, for the most obvious of `reasons`.
+- For `reasons` i cannot fathom the omaticaya have chosen you.
+- For whatever `reasons` i thought you might be more receptive.
+- I ain't givin' you fuckin' excuses, i'm givin' you `reasons`.
+- She's out here for her own `reasons`, god knows what they are.
+- They're allowed, but i don't like 'em...for obvious `reasons`.
+- Folks come to alaska for a real short list of `reasons`: money.
+- He doesn't think it's god, but for different `reasons` than me.
+- There are a lot of `reasons` what happens when octavia wakes up?
+- Oh, they have `reasons`... there's a lot of confusion these days.
+- Oh let's see -- wait a minute, well, i can think of two `reasons`.
+- Perhaps for his own `reasons` he entangled me in this... situation.
+- Well, many `reasons`, actually... why wasn't she getting oxygen...?
+- Next, lisa helped gil, for that most romantic of `reasons`: inertia.
+- That was one of the `reasons` they asked me to join originally, yes.
+- So for those `reasons`, you're going to trial against clay shaw, chief?
+- For these `reasons` i am opposed to removing the other ovary, as a rule.
+- Happy, for `reasons` there isn't time to go into--it's got to be miller!
+- It's over becuase...for all the the right `reasons` i hope, what i said.
+- Beverly, there were many `reasons` why you and i... you want some advice?
+- ...and was subsequently set for self-destruct by you for `reasons` unknown.
+- I mean, a blond hair could be on that gunnel for a <u>lot</u> of `reasons`.
+- That road--and those orinco trucks-- are the two main `reasons` it's there.
+- For `reasons` which you can't know, you must have no part in what will happen.
+- I couldn't do it at work cause of security or at home for -- obvious `reasons`.
+- It got to the point where i couldn't remember any of the `reasons` i loved him.
+- One of the `reasons` i love you, marty, is that you're almost as crazy as i am.
+- Well, besides cooties and other medical `reasons`, they're not in the cool crowd.
+- And when i have your word that only the guilty the wrong things for the right `reasons`.
+- One of the `reasons` i was a great salesman, was i never made a promise i couldn't keep.
+- But i'm a firm believer in doing something for your own `reasons`, not someone else ' s .
+                 

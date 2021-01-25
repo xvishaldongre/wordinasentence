@@ -1,0 +1,91 @@
+---
+title: "belongs in a sentence | belongs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "belongs"
+---
+- He `belongs` to me now.
+- His ass `belongs` to me.
+- This all `belongs` to me.
+- Your ass `belongs` to me.
+- It `belongs` to all of us.
+- It `belongs` to my father.
+- She `belongs` to all of us.
+- She `belongs` to the cause.
+- Stop, that `belongs` to me!
+- Here, this `belongs` to you.
+- It `belongs` to bob's uncle.
+- This `belongs` to the people.
+- What `belongs` to the people?
+- But the rest `belongs` to you.
+- He `belongs` to somebody else.
+- The gun `belongs` in quantico.
+- This man `belongs` in hospital.
+- I think this... `belongs` to me.
+- `Belongs` to a feller named moss.
+- I know where the blame `belongs`.
+- It `belongs` to vincent bastaldi.
+- That's where he `belongs` anyways.
+- You sure it `belongs` to his wife?
+- She coined it, it `belongs` to her.
+- That land `belongs` to the natives!
+- The money `belongs` to us, not him!
+- Neither of us really `belongs` here.
+- This man `belongs` to the commander.
+- That `belongs` to my friend's sister.
+- That land `belongs` to the strongest.
+- You know my loyalty `belongs` to you.
+- Back in your head, where he `belongs`.
+- What we have `belongs` to all of us.
+- Even if we decide he `belongs` in jail?
+- It `belongs` to the british government.
+- Place the blame where it `belongs`, no.
+- He `belongs` with those reptiles, louis.
+- Hell, no, `belongs` to my girl's sister.
+- His cell number `belongs` to the smiths.
+- So i guess this fellow `belongs` to you.
+- It `belongs` to the man you took it from.
+- She `belongs` to his stupid country club.
+- This exodus ship `belongs` to all of you.
+- The other, we believe, `belongs` to brill.
+- The lawyer; questadt, he `belongs` to roth.
+- If you have information, it `belongs` to us.
+- Just tell me who the bank card `belongs` to.
+- Why leave when the city `belongs` to me now?
+- Once we make it evidence, it `belongs` to us.
+- In a dictatorship, art `belongs` to the party.
+- You mean, you know who this baby `belongs` to?
+- I'll put it in paul's room, where it `belongs`.
+- The coming age `belongs` to us, not the humans!
+- The house `belongs` to walter and pamela smith.
+- The last word always `belongs` to the mountain.
+- Get used to it, 'cause it `belongs` to you now.'
+- That little fucker `belongs` in the smithsonian.
+- It now `belongs` to you, according to baltus.
+- The world `belongs` to the fucking dogs and cats.
+- Er, technically that plunder `belongs` to the town.
+- You said it `belongs` to... beautiful but dangerous.
+- Michael myers is in hell, buried, where he `belongs`.
+- `Belongs` to the guy they got patrolling the pipeline.
+- Here, driver, take this lady back where she `belongs`.
+- I'm going to throw it in the sewer where it `belongs`.
+- The man you're steppin' on `belongs` to me and my partner.
+- An enquiry will place the responsibility where it `belongs`.
+- That kid `belongs` under a circus tent, not flippin' burgers.
+- We start to shoot tomorrow and then it `belongs` to <u>us</u>.
+- Chairman mao wants you to feel that china `belongs` to you now.
+- A place `belongs` to those who bring light to it, don't you agree.
+- Look, murders aside, riddick `belongs` in the asshole hall of fame.
+- The voice you're about to hear `belongs` to china's military chief.
+- We have to find he rebels... what we're carrying `belongs` to them.
+- The voice you're about to hear `belongs` to the chinese military chief.
+- But you have a piece of property that still `belongs` to this newspaper.
+- She wants all the money up there... ... on the screen where it `belongs`.
+- Now the world `belongs` to me... now begins two million years of darkness!!
+- You're not really giving anything that `belongs` to you, that you care about.
+- Drew's going to step aside -- it's time to put this person where he `belongs`.
+- You know, the liberals act like idealism `belongs` to them, but it's not true.
+- How come we're stuck in... you can't steal something that `belongs` to all of us.
+- How dare you... you don�t know this tape `belongs` to my brother, do you, mr lombard?
+- We come to a roadblock, they'll run the car, find out in five seconds who it `belongs` to.
+                 

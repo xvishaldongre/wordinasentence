@@ -1,0 +1,57 @@
+---
+title: "beam in a sentence | beam example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "beam"
+---
+- There's another `beam`!
+- Activating power `beam`!
+- No word since `beam`-in.
+- General jim `beam`, then.
+- Stand by, tractor `beam`!
+- The sun `beam` won't work.
+- Why don't we `beam` it up?
+- `Beam` up spock and dr. mccoy.
+- We don't have a tractor `beam`.
+- We have to get off this `beam`!
+- `Beam` them directly to sickbay.
+- We will be happy to `beam` down.
+- Amidships starboard at the `beam`.
+- It's called a transporter `beam`...
+- Prisoners are at `beam` coordinates.
+- The weight of the `beam`, oh, my god.
+- Meaning you can't even `beam` us back?
+- Sandy, can you home in on that `beam`?
+- The `beam` of light catches junior's face.
+- The transporter `beam` is non-operational.
+- Steady track, they look like `beam` riders.
+- Tractor `beam` strength lessening, captain.
+- Section 4236... close enough to `beam` down?
+- Some way to `beam` us the hell out of dodge?
+- That's what you do when you're hit a-`beam`.
+- You left spacedock without a tractor `beam`?
+- When he does, we could `beam` him out... hmm?
+- Independently targeting particle-`beam` phalanx.
+- Request permission to `beam` aboard immediately.
+- Yori, steer us over the `beam`, right next to it.
+- I'm going to check on the `beam` connection, yori.
+- They also found my two `beam` scale in the garage.
+- Captain, we have been seized by a tractor `beam`...!
+- If you start tearing up i promise to `beam` you out.
+- Power surge... the transmission `beam`'s too strong!
+- A laser capable of emitting a `beam` of pure anti-matter.
+- We have to `beam` in next to the reactor room, not in it.
+- Just give us your coordinates and we'll `beam` you aboard.
+- The molecules themselves are suspended in the laser `beam`.
+- Decloak the holo-ship and engage a tractor `beam`, mister worf.
+- I used it to `beam` out most of the bone fragments from his brain.
+- Even if we could lock onto the hostages, we couldn't `beam` them up.
+- If you wanted to, say, `beam` down a signal to send a ship off course?
+- ♪ someday, sippin' on jim `beam`, ok ♪ red dress, intelligent expression.
+- I came this close to being called moon child, or moon `beam` or something.
+- You have the coordinates to `beam` up genesis... captain... we're waiting.
+- The `beam` of this laser can be regulated to one millionth of a millimeter.
+- Give me what i want -- and i'll consider it... `beam` the vulcan up -- and we talk.
+- He's established a security field around the control room... can you `beam` him off?
+- If he tries to get away with warp drive, he's really in for a shock... tractor `beam`, aye!
+                 

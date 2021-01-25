@@ -1,0 +1,107 @@
+---
+title: "pulled in a sentence | pulled example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pulled"
+---
+- They `pulled` you out.
+- I `pulled` my gun once.
+- She was `pulled` under.
+- We `pulled` the detail.
+- I just `pulled` in here.
+- Which you `pulled`, hard!
+- Somebody `pulled` my tail.
+- You want us `pulled` over?
+- I `pulled` the kill switch.
+- You really `pulled` it off.
+- You `pulled` people out?
+- Well, you `pulled` this off.
+- You fucking `pulled` it off!
+- He `pulled` it on rorschach .
+- That chinaman `pulled` a gun.
+- But you still `pulled` it off.
+- Geneva just `pulled` the plug.
+- I almost `pulled` the trigger.
+- But i `pulled` you out, rennie.
+- I `pulled` in to have it fixed.
+- `Pulled` the chair out for you.
+- Then he must have `pulled` her.
+- Which one `pulled` the trigger?
+- I just fucking `pulled` in here!
+- I `pulled` your record corporal.
+- Your pilot `pulled` a gun on me.
+- A limousine has just `pulled` up.
+- I `pulled` them guys off of here.
+- I think i `pulled` my quadriceps.
+- `Pulled` someone into your dream?
+- Somebody `pulled` the fire alarm.
+- Said he `pulled` hundreds of jobs.
+- `Pulled` me straight to the bottom.
+- After the shit you've just `pulled`?
+- Have you `pulled` yourself together?
+- Mr. henry `pulled` that job in 1965.
+- I just `pulled` and it - it came off.
+- Just `pulled` the old match gag, see!
+- Someone must've `pulled` the records.
+- Why is it `pulled` down half an inch?
+- But the bridge has been `pulled` down!
+- Now tell me why you `pulled` the plug.
+- Only because i got `pulled` out early.
+- `Pulled` left, rolled out, underneath.
+- So b58/732 was `pulled` in by mistake.
+- I `pulled` the trigger, but it was you.
+- I remember once i had a tooth `pulled`.
+- ...jobs he'd `pulled`, women he fucked.
+- `Pulled` your files before i came down.
+- You `pulled` me in somehow, didn't you?
+- He just `pulled` me over to the bed.
+- Whoever `pulled` this caper is tomorrow.
+- I've already `pulled` twelve hours today.
+- They `pulled` a mind-scramble on us, man!
+- The war `pulled` poetry out of some of us.
+- Cagney couldn't have `pulled` a sweeter job.
+- The evidence of every scam we ever `pulled`.
+- Have i `pulled` the lever to commit genocide?
+- Reality `pulled` out of her five minutes ago.
+- They just `pulled` him out of the east river.
+- ♪ they `pulled` will's body out of the water.
+- When we `pulled` him out, it was on his face.
+- But the wisdom tooth will have to be `pulled`?
+- He `pulled` his knife and i got to mine first.
+- I `pulled` mickey and dreyer off the minimart.
+- `Pulled` your file because of various factors.
+- After we `pulled` him out of the city of light.
+- He must have `pulled` the control rod too fast.
+- I just `pulled` over... have i broken any laws?
+- I just saw somebody `pulled` out of a dumpster.
+- Yeah, but what if some nut `pulled` gun on you?
+- The harder i pushed, the more you `pulled` away.
+- Her legs `pulled` apart in a kind of sexual pose.
+- How come you `pulled` in back of this fruitstand?
+- I `pulled` a hustle once and got out of the draft.
+- I thought i was dead when ya `pulled` that dagger!
+- My `pulled` pork banh mi keeps baby in the cradle.
+- When they `pulled` me out, i wasn't a cop anymore.
+- If i had `pulled` the trigger, sybok would be dead.
+- Oh, someone `pulled` a b&e on dr. gaskell's closet.
+- Only one guy in <u>history</u> ever `pulled` it off.
+- Really `pulled` the wool over everybody's eyes, huh?
+- I'm sorry gibbons, you `pulled` up a shark this time.
+- I `pulled` into your garage till i could get a spare.
+- When you put mine in on sanctum, you `pulled` me over.
+- But y-you `pulled` yourself back together a little bit.
+- He `pulled` us over as we left the riviera tennis club.
+- If you reach out, you could get `pulled` over yourself.
+- When we got here, you just topped and `pulled` her out.
+- Forensics `pulled` over a hundred sets of prints inside.
+- Her bathtub `pulled` a fast one -- tried to eat the kid.
+- They've finally `pulled` the wool over everybody's eyes!
+- Well, i guess i woulda at least `pulled` my pistol an...
+- He `pulled` 4 kids back into the ship, you turned him in.
+- I had me a wee bout -- but dr. mccoy `pulled` me through.
+- I'm telling you i've `pulled` out everything in the safe.
+- Follow him or i'll have you `pulled` off 'badge of honor.'
+- She's `pulled` herself out of a pretty rough neighborhood.
+- ♪ well, homer `pulled` a lot of sodas ♪ i liked that body.
+- Ya `pulled` down ya pants an' let him have it, didn't ya!!
+                 

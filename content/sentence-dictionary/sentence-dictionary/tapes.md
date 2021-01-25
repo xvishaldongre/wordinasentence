@@ -1,0 +1,94 @@
+---
+title: "tapes in a sentence | tapes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tapes"
+---
+- Give me those `tapes`.
+- I love making `tapes`.
+- They took the `tapes`.
+- Where are the `tapes`?
+- These `tapes` are gold.
+- What about the `tapes`?
+- You know which `tapes`!
+- The `tapes` are the key.
+- Or the creedence `tapes`.
+- Turn the `tapes` back on.
+- You made those `tapes`...
+- Did you bring the `tapes`?
+- I want to see the `tapes`.
+- Now give me those `tapes`.
+- Now show me those `tapes`.
+- Raymond, grab the `tapes`.
+- There were no dupe `tapes`.
+- Couple of creedence `tapes`.
+- Pull up the keyhole `tapes`.
+- Do you have chromium `tapes`?
+- He `tapes` their mouths shut.
+- You know how my `tapes` sell.
+- I'm not giving 'em my `tapes`!
+- Where are the `tapes`, graham?
+- I already made you two `tapes`.
+- May i have the `tapes`, bruce ?
+- Yes, but i've seen the `tapes`.
+- The `tapes` document everything.
+- Did you make one of those `tapes`?
+- I've got a pocket full of `tapes`.
+- Why's he been sending you `tapes`?
+- You want the `tapes` for yourself.
+- I'll send you some `tapes` too man.
+- At least you still have the `tapes`.
+- If i do the `tapes` become evidence.
+- Those cameras, you keep the `tapes`?
+- We gotta know where the `tapes` are.
+- I've heard your `tapes` on the phone.
+- Why do i have to pick up the `tapes`.
+- If you don't we'll destroy the `tapes`.
+- I review the `tapes`, i find your story.
+- Another filled up three two hour `tapes`.
+- You actually listen to all those `tapes`?
+- Dude, why do you think i keep her `tapes`?
+- You come to peddle me some `tapes`, lenny?
+- All our `tapes` are transferred to the sub.
+- The `tapes` give us leverage with bastaldi.
+- We don't need the `tapes` -- you wanna bet?
+- I thought i'd listen to some of the `tapes`.
+- I mean, rent, and `tapes` and this equipment.
+- Is it the grandest of all the park's `tapes` ?
+- He just sits around and looks at these `tapes`.
+- I thought you could trick me for those `tapes`.
+- No, these are the `tapes` from the living room.
+- 1 wish was rewinding that huge pile of `tapes`."
+- I've seen `tapes` of you bowling on the circuit.
+- They're going to destroy the `tapes` on live tv.
+- This looks like another one of your mix `tapes`.
+- We have `tapes` in here that go back six months.
+- Someday we've got to start transcribing the `tapes`.
+- So you thought that made it okay to steal my `tapes`?
+- We'll know for sure when we get the security `tapes`.
+- You have to rewind the `tapes` before returning them!
+- You've gotta destroy every last one of those `tapes`.
+- I'd be bugging myself, edgar ... who'd get the `tapes`?
+- Look at the `tapes`, there is only one date on each label.
+- Ease off on those `tapes`, and let's see how much it bleeds.
+- I had three jerkoffs trying to return your `tapes` last month.
+- I have no idea - it's full of files and documents and `tapes`.
+- I was telling him about how you always have the latest `tapes`.
+- When they put me on hold, to talk to you...they play the `tapes`.
+- You watch old `tapes` of the ballgame, i'll fill you in... later.
+- Are these `tapes` of you having sex with these girls or something?
+- So we're gonna destroy the master `tapes` we need more money, kal.
+- No apartment, no special stores with western food and video `tapes`.
+- They're just `tapes` that he makes so he can sit around and get off.
+- They said it would be okay if... those audition `tapes` i sent out...
+- Maybe if we gave the `tapes` back -- we still have to get out of here.
+- If they had taken us by surprise they would have gotten the `tapes` back.
+- Mr. weiss was very generous in turning over some video `tapes` to the fbi.
+- Right, yeah -- everybody's making audition `tapes` for that real tv thing.
+- John, as a lawyer, you should know that those `tapes` are private property.
+- What you're experiencing is a free-form delusion based on our memory `tapes`.
+- Besides, we don't know the city and-- i promised bonanno i'd destroy the `tapes`.
+- Can i see some of the other `tapes` to get an idea of what -- that depends on you.
+- If you ever want to get those `tapes`, meet me in one hour at grant park near the statue.
+- I will never give up my `tapes` to a bunch of kennedy-loving harvard democrat cocksuckers!
+                 

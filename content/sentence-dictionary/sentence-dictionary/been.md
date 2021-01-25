@@ -1,0 +1,107 @@
+---
+title: "been in a sentence | been example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "been"
+---
+- `Been` busy, have you.
+- `Been` punished, yeah?
+- Blood has `been` shed.
+- But have never `been`?
+- Delmar's `been` saved!
+- Has he `been` prepped?
+- Have `been` destroyed.
+- Have you `been` there?
+- He's `been` destroyed.
+- He's `been` in before.
+- He's `been` past mars?
+- Hey, where you `been`?
+- How's your day `been`?
+- How you `been`, ellis?
+- I `been` out with men.
+- I `been` watching you.
+- I have `been` blessed.
+- I musta `been` stoned.
+- It has `been` decided.
+- It hasn't `been` easy.
+- It's `been` a delight.
+- It's `been` beautiful.
+- It's `been` destroyed.
+- It's `been` four days!
+- It's `been` recharged.
+- It's `been` six years.
+- It's `been` some time.
+- It's `been` two years.
+- I've `been` a bad boy.
+- I've `been` all right.
+- I've `been` disavowed.
+- I've `been` faking it.
+- I've `been` in hiding.
+- I've `been` negligent.
+- I've `been` saving it!
+- I've `been` saving it.
+- I've `been` so lonely.
+- I've `been` taking it.
+- She's `been` alive...?
+- She's `been` arrested.
+- That coulda `been` it.
+- They've `been` tested.
+- We've `been` attacked.
+- We've `been` so lucky.
+- Whaddya `been` so far?
+- What you `been` doing?
+- What you `been` up to?
+- Where have you `been`?
+- Where have you `been`?
+- Where you `been`, man?
+- Where you guys `been`?
+- Who's `been` creeping?
+- You `been` in a fight?
+- You `been` to the bar?
+- You never have `been`.
+- You've `been` outside?
+- You've `been` perfect.
+- I have `been` hurt.
+- I have `been` sick.
+- It's `been` opened.
+- `Been` one all my life.
+- But i've `been` honest.
+- Ever `been` to westsea?
+- Has he `been` out long?
+- Have `been` exposed to.
+- Have we `been` invited?
+- He coulda `been` white.
+- He's `been` restrained.
+- He's `been` shot a lot.
+- How long has it `been`?
+- How long i `been` here?
+- I `been` mindin' pearl.
+- I'd have `been` here...
+- I'd've `been` here too.
+- I have `been` thinking.
+- It's all `been` denied.
+- It's `been` 19 minutes.
+- It's `been` 30 minutes.
+- It's `been` a long day.
+- It's `been` a pleasure.
+- It's `been` doing that.
+- It's `been` everything.
+- It's `been` good to me.
+- It's `been` six months.
+- It's only `been` a day.
+- It�s `been` a long day.
+- I've `been` back twice.
+- I've `been` down there.
+- I've `been` everything.
+- I've `been` hogging it.
+- I've `been` humming it.
+- I've `been` hypnotized?
+- I've `been` on the job.
+- I've `been` over there.
+- I've `been` railroaded.
+- I've `been` so selfish.
+- I've `been` thinking...
+- I've `been` to chicago.
+- I've `been` up to here.
+- I've just `been` there.
+                 

@@ -1,0 +1,79 @@
+---
+title: "birth in a sentence | birth example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "birth"
+---
+- Agnes has that `birth`.
+- I think it was `birth`.
+- I was a breach `birth`.
+- You are `birth` of... what?
+- `Birth` control's important.
+- Language exists from `birth`.
+- From `birth`, he was not wanted.
+- I'm giving `birth` in three months.
+- They eat each other before `birth`!
+- A `birth` certificate is enough?
+- She can't even remember the `birth`.
+- We'll need our `birth` certificates.
+- He's imbecile, no doubt from `birth`.
+- That makes his `birth` sign... virgo!
+- The pill will be for `birth` control.
+- I mean, the woman gave `birth` to you.
+- The blood of a woman is `birth`, life.
+- Did you see their `birth` certificates?
+- He has a `birth` mark on his right arm.
+- I believe we are witnessing my `birth`.
+- Just be back for the `birth`, rob hall.
+- She is not your `birth` mother, is she?
+- I know what's on my `birth` certificate.
+- Just, be back for the `birth`, rob hall.
+- She sounds like a muppet giving `birth`.
+- This has been planned from your `birth`.
+- Might you have a `birth` certificate, mr.
+- First they told me he had died at `birth`.
+- She was giving `birth` in the fucking car.
+- Yeah, she went blind giving `birth` to me.
+- Have your children been deaf since `birth`?
+- Her and steve kendall were pinned at `birth`.
+- I thought you meant the time of your `birth`.
+- In july 1996, jan gave `birth` to a baby girl.
+- You went to the room to help with the `birth`.
+- Congratulations on the `birth` of your son.
+- It'll happen at the exact time of your `birth`.
+- A son that he and his wife gave away at `birth`.
+- Are you sure your parents are your `birth` parents?
+- Considering you destroyed the planet of your `birth`.
+- He uses his personality as a form of `birth` control.
+- There's no way your `birth` father can be o positive.
+- Esther, do you think she's using... ...`birth` control?
+- Date of `birth`, november the fourth nineteen-sixty-two.
+- I had no mother... and my father abandoned me at `birth`.
+- For `birth` defects and correct them before they are born.
+- There is no `birth` certificate, nothing from the hospital.
+- The season of evil begins with the `birth` of the new year.
+- Wherefore railest thou on thy `birth` the heaven and earth?
+- How could she have a baby and know nothing of sex or `birth`?
+- The young stay in the `birth` environment, that's conclusive!
+- Probably have a copy of my `birth` certificate...my apartment.
+- The fact is they probably didn't even need me for this `birth`.
+- Every year, the death rate lags further behind the `birth` rate.
+- So, i'd love to know your `birth` sign; it effects how people bet.
+- The messenger said this is both proof homer, i found my `birth` mom!
+- From now on, nothing but water at every meal -- virgin `birth` -- ha!
+- Since `birth` and heaven and earth all three do meet in thee at once.
+- Then he figured out the `birth` records in church hill... _answer_ me.
+- I know it starts with a `birth` certificate... you know how easy it is.
+- My `birth` sign is water bearer, twenty-fifth day in the month of janus.
+- Ahh, complications during child `birth`, she died two days after vada was born.
+- `Birth`, illness, grief, old age, poverty, pain, death -- these are surferings.
+- She's just an infinitely patient, the disciples are taught our ways from `birth`.
+- [off her blank look] they've got your name and date of `birth` for identification.
+- Even if it did, at least my mom didn't give `birth` to me while she was on lsd.
+- Apparently, he sent madame le floch there last year, and she gave `birth` to twins.
+- I guess when i nearly died giving `birth` to you--that shows how much i don't care!
+- You raise them from `birth` to believe you're gods we need the rope to get back up.
+- Sometimes i forget your `birth` anniversary, they're gonna raise me like a flag.
+- I have everything... last testaments... `birth` certificates, death certificates... deeds.
+- They take the `birth` certificate of some- one who died young and use it to get legit i.d.
+                 

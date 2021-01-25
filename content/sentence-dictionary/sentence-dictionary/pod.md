@@ -1,0 +1,63 @@
+---
+title: "pod in a sentence | pod example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pod"
+---
+- I can't find my `pod`.
+- Sir, a `pod` launched.
+- The `pod`'s away, sir.
+- You launch that `pod`.
+- We're all `pod` people?
+- He's powering the `pod`.
+- Opening `pod` bay doors.
+- Sir... a `pod` launched.
+- He keeps it in the `pod`.
+- I'm thinking cargo `pod`.
+- Let me `pod` you, my dear.
+- `Pod` bay is decompressed.
+- Rabbit, fire up the `pod`.
+- My goofy hibernation `pod`.
+- My `pod`'s more complicated.
+- There isn't an escape `pod`.
+- What if a `pod` breaks down?
+- From my `pod` and trashed it!
+- 4... - she's taking the `pod`.
+- Including hibernation `pod` 1498.
+- I've hacked into an escape `pod`.
+- There's an escape `pod`, you idiot.
+- Three people, three `pod` failures.
+- Who said i'll re-enter in the `pod`?
+- You are free to open `pod` bay doors.
+- You can crash at my `pod`, i mean pad.
+- Can we use it to land the `pod` or not?
+- Teb, reset the `pod`, we're going back.
+- Look, mr. burns, the `pod` was her idea.
+- Isn't there an escape `pod` on this ship?
+- Hal, have `pod` arms secure the component.
+- There's only room on that `pod` for seven.
+- Then the `pod` can take me down to get her.
+- One, `pod` one, this is ark station medical.
+- You will not be taking our `pod` today, sir.
+- No matter what happens, you launch that `pod`.
+- If we fail, she'll take the ship's escape `pod`.
+- `Pod` one, `pod` one, this is ark station medical.
+- What do i do if my hibernation `pod` malfunctions?
+- You want me to get a 130-year-old escape `pod` no.
+- The transmission from the escape `pod` is complete.
+- Crew `pod` room access requires special authorization.
+- I think something went wrong with my hibernation `pod`.
+- Once a `pod` is open, what do you mean the stone's here?
+- You came down here in a `pod` i was trying to help him.
+- You should stay in the `pod` and run a full diagnostic check.
+- Abby on radio: `pod` one, `pod` one, this is ark station medical.
+- An espresso `pod` machine, gabriel said jordan studied the texts.
+- How do we know they're not going to use the `pod` for themselves?
+- You know i saw a `pod` of whales when i was coming up the bridge.
+- You just want whatever's in that `pod`... we can't just wait around.
+- If there is a `pod` inside him, we'll find it, and bring it out for study.
+- Let's radio that shuttle `pod` you launched -- better yet, let's go get it.
+- Now i got enough air and supplies to make another complete orbit in the `pod`!
+- And if dr. tsing is right about this, i'm afraid you were already `pod` people.
+- If we can pinpoint my mom's location, then the `pod` can take me down to get her.
+                 

@@ -1,0 +1,62 @@
+---
+title: "tries in a sentence | tries example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tries"
+---
+- Took me three `tries`.
+- He `tries` to act cool.
+- He `tries` to hold her.
+- He `tries` to do everything...
+- She always `tries` to be proper.
+- If anyone `tries` to wake me...
+- He `tries` to pull me down with him.
+- What if someone `tries` to steal it?
+- She `tries` to shoo the creature away.
+- He gently `tries` to move miller aside.
+- Cooper, shoot anyone who `tries` to defect.
+- I guess everyone `tries` it, sooner of later.
+- What if octavia `tries`... come on, hurry up!
+- Anybody `tries` to board, we'll know about it.
+- He still `tries` popping up all over the place.
+- If he `tries` speaking to you, what's he doing?
+- I'll stay up here in case he `tries` to escape.
+- That was your only real hit in like 75 `tries`.
+- I fear only that you might hurt him if he `tries`.
+- Anyone who `tries` to stop that [door opens] don't.
+- If anyone `tries` to come in, tell 'em we're closed.
+- Barbara sees this girl, `tries` to help her, perhaps.
+- Some guy `tries` to rape me -- and you side with him!
+- If anyone `tries` to get in here -- i've got rope.
+- Are you this hard on everyone who `tries` to help you?
+- But when he `tries` to rescue a woman, he's gone soft.
+- He... he `tries` to take the heads... they will not pass.
+- So when a man `tries` to rescue another man, he's a hero.
+- They'd use me as a lesson to anyone who `tries` to leave.
+- They'll pinch him the first place he `tries` to spend it.
+- If he `tries` to run, feel free to dissuade him... oh, no.
+- Maureen `tries` her best to detach herself from the movie.
+- She's such a good-hearted little thing and `tries` so hard.
+- Then this colonel `tries` to make it sound like nothing.
+- Breeze makes a nasal grunt as he `tries` to suppress a snigger.
+- He actually `tries` to give me a thematic and apperception test.
+- If anyone `tries` to get around your security, nice one, murphy.
+- Jesus, guy `tries` to make a commitment and he's gotta eat shit.
+- Sit up back an' if anybody `tries` to climb up--let 'im have it.
+- He `tries` to act tough, but there's a look in his eyes that... .
+- If she `tries` to turn me in, i'll name her ass as my accessory.
+- Let's get going before that thing `tries` to eat the car or something.
+- As if a guy's a fucking pervert because he `tries` to go down on himself.
+- If a member of the aryan brothers `tries` to cut in on your distribution?
+- She `tries` to blow up a computer factory, but she got shot and arrested.
+- Bottom line: she `tries` to blackmail us, we drop her out a higher window.
+- ...give him a shot at runnin' a casino and he `tries` to talk you out of it.
+- We put a watch on this pemberton, somebody `tries` to grab him... whoa, jim.
+- When the jury sees this - no matter what cutler `tries`, they'll convict him.
+- If another fella `tries` to take that perch away from him, he lets him have it.
+- If he `tries` to run, feel free to dissuade him until he can't piss standing up.
+- You're putting up barriers against anyone who `tries` to probe your conscience.
+- I was doing the lambada with her and the guy freaks, he breaks my arm, `tries` to kill me.
+- If he `tries` to get away with warp drive, he's really in for a shock... tractor beam, aye!
+- Tell him if he ever `tries` to see her again i'll take off another and another and another!
+                 

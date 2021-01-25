@@ -1,0 +1,107 @@
+---
+title: "dark in a sentence | dark example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dark"
+---
+- How many `dark` tiles?
+- It is `dark` and cold.
+- It was getting `dark`.
+- Not while it's `dark`.
+- "the great `dark` sea.
+- The woods were `dark`.
+- We work in the `dark`.
+- You have until `dark`.
+- I am the `dark` master!
+- It's `dark` down there.
+- Killed by a `dark` elf.
+- It's getting `dark`.
+- Everything seems `dark`.
+- Generally around `dark`.
+- He's in the `dark` room.
+- Soon, `dark` eyes, soon.
+- The `dark` side beckons.
+- Doesn't noir mean `dark`?
+- It's so `dark` and empty.
+- It was too `dark`, daddy.
+- The `dark` side are they.
+- You afraid of the `dark`?
+- I was his `dark` pope.
+- Boy, i live in the `dark`.
+- I'm totally in the `dark`.
+- It's gonna be `dark` soon.
+- It's pitch `dark` in here!
+- That doesn't sound `dark`.
+- The `dark` prince is here.
+- The `dark` side, you know?
+- The way out of the `dark`.
+- Welcome to the `dark` net.
+- We shared a `dark` secret.
+- Like a thief in the `dark`.
+- Will she be `dark` or fair?
+- Braided hair -- very `dark`.
+- I leave before `dark` comes.
+- It's just... getting `dark`.
+- No going to the `dark` side.
+- Ooh, she has a `dark` side."
+- Whatever it is, it's `dark`.
+- Ever been in the `dark` mill?
+- Gonna get pretty `dark` soon.
+- I mean, it was really `dark`.
+- I'm not afraid of the `dark`.
+- It's getting `dark` and cold.
+- It's kind of `dark` - uh-huh.
+- The `dark` year broke us all.
+- The `dark` year, cannibalism.
+- It's sexier in the `dark`.
+- But there's no `dark` anymore.
+- It's so `dark` in there, jake.
+- One ... big... `dark`... room.
+- The hans call me `dark` cloud.
+- The leader of the `dark` ones?
+- Why does it need to be `dark`?
+- You're a `dark` horse, ripley.
+- But i like the `dark` gray one.
+- He knows two: both `dark` hair.
+- I have been to the `dark` side.
+- It's -- it's `dark` and creepy!
+- No one comes here after `dark`.
+- Why she might have gone `dark`.
+- An' you know in the `dark` mill?
+- It's like riddles in the `dark`.
+- Like i said: shot in the `dark`.
+- Maybe he's scared of the `dark`.
+- Practically glows in the `dark`.
+- Sheidheda, the `dark` commander.
+- So we going soon as it's `dark`.
+- So... what's your `dark` secret?
+- Voices from an old `dark` house!
+- Give yourself to the `dark` side.
+- They couldn't tell in the `dark`.
+- This will keep it `dark` for you.
+- We gotta get there before `dark`.
+- We got to get back before `dark`.
+- Why is it winter now, and `dark`?
+- Abby: two dead kids, `dark` tiles.
+- But we're both mad at `dark` town.
+- I can see in the `dark`, you know.
+- I'm completely in the `dark` here.
+- Not afraid of the `dark`, are you?
+- Not after it begins to get `dark`.
+- Sorry, it was `dark`, now come on.
+- Then the signal went `dark` again.
+- Big build, square jaw, `dark` hair.
+- Floating through a `dark` blue sky.
+- I saw two green eyes in the `dark`.
+- No one is allowed out after `dark`.
+- One who doesn't glow in the `dark`.
+- Probably waiting until it's `dark`.
+- The sea is lovely, `dark` and deep.
+- We should go before it gets `dark`.
+- What are you, scared of the `dark`?
+- You'll never find it in the `dark`.
+- At the end of a long, `dark` tunnel.
+- Do you have any deep `dark` secrets?
+- I mean it was `dark` outside and in.
+- In the `dark`... where i join him...
+                 

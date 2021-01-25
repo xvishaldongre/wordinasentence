@@ -1,0 +1,71 @@
+---
+title: "sacrifice in a sentence | sacrifice example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sacrifice"
+---
+- I call that `sacrifice`.
+- `Sacrifice` han and leia?
+- Make that kind of `sacrifice`.
+- My `sacrifice` is for nothing.
+- Thank you for your `sacrifice`.
+- The stone demands a `sacrifice`.
+- His `sacrifice` will be worthless.
+- To cast you out, to `sacrifice` you?
+- You've made your `sacrifice`, danny.
+- Their `sacrifice` is why we are here.
+- This is a `sacrifice` i need to make.
+- What `sacrifice` do you want from me?
+- I can't `sacrifice` my people anymore.
+- Isn't that worth a little `sacrifice`?
+- It's idiotic to `sacrifice` oneself...
+- The solution is to `sacrifice` yourself?
+- I have no desire to `sacrifice` myself...
+- Let us appease you with this `sacrifice`.
+- Victory stands on the back of `sacrifice`.
+- When she was willing to `sacrifice` us all?
+- Who can inspire people to self-`sacrifice`.
+- How many more are you willing to `sacrifice`?
+- I can't `sacrifice` the few to save the many.
+- I am forced to sell it at a great `sacrifice`.
+- You thought it wise to `sacrifice` yourselves?
+- `Sacrifice` the girl to take out the terrorist?
+- Their `sacrifice` will be a blessing to us all.
+- Which of you is willing to make that `sacrifice`?
+- It's a `sacrifice` we all ought to be glad to make.
+- So they `sacrifice` themselves willingly do nothing?
+- It's not just you making the `sacrifice` here, honey.
+- Mr. lemkin, i want to thank you for your `sacrifice`.
+- I like you because you'll `sacrifice` anything to win.
+- I can't believe he would make such a `sacrifice` for us.
+- In the road to survival, there is always `sacrifice` logan.
+- They decided to `sacrifice` a few lives for the difference.
+- You invited them to get naked and `sacrifice` a small goat.
+- I mean, why do you always have to be the one to `sacrifice`?
+- Why - well, i� guess we'll just have to `sacrifice` the bank.
+- People would `sacrifice` everything just to lend a helping hand.
+- `Sacrifice` yourself on the altar of dignity and even the score.
+- Universal scales tip toward balance because of your `sacrifice`.
+- I wonder if that hurt her, my not letting her `sacrifice` for me?
+- It's time for you to `sacrifice` dante said we could leave, right?
+- You were willing to `sacrifice` a hundred thousand francs for her.
+- I hate to be pragmatic, but they'll `sacrifice` pawns before kings.
+- Our people are just not gonna `sacrifice` in major numbers for war.
+- To make a `sacrifice` that i'm not the love crystal is whole once more.
+- ♪ you're willing to `sacrifice` our love... ♪ she's watching over camp.
+- It's a political `sacrifice`, that neither would be coming back with me.
+- But sometimes you have to `sacrifice` a few that this letter reaches you.
+- The high muckey-mucks dolled up all aztec-like for the human `sacrifice`.
+- ...umm...listen, i'm sorry...you had to `sacrifice` your entire vacation.
+- For a good game of horseshoes i would always `sacrifice` fame and acclaim.
+- In the flame where you can summon don't let their `sacrifice` go to waste.
+- Bullocks... and because of your wife's `sacrifice`, we need to collect this.
+- Four long, hard weeks of `sacrifice` for my country... for my people... for you.
+- He believes it so blindly that he's going to `sacrifice` his life to save yours.
+- If you don't take me after all these years of `sacrifice`, i'll never forgive you!!
+- They need to `sacrifice` something, y'know, appease the gods of war -- mars, jupiter.
+- Francis, nothing will replace your sons but helping us will justify their `sacrifice`.
+- That's sweet, viktor, but i couldn't let you do that -- make that kind of `sacrifice`.
+- You know, `sacrifice` virgins and stuff... what do you do if you're a satanist, anyway?
+- But we will `sacrifice` our lives for his i believe there's something you're forgetting.
+                 

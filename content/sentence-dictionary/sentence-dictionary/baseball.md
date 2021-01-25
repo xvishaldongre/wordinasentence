@@ -1,0 +1,82 @@
+---
+title: "baseball in a sentence | baseball example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "baseball"
+---
+- Do you like `baseball`?
+- I-i-i had a `baseball`.
+- The `baseball` is mine.
+- To integrate `baseball`.
+- I don't follow `baseball`.
+- 'who can play `baseball`?'
+- We bought `baseball` cards.
+- No `baseball` diamonds, red.
+- What's wrong with `baseball`?
+- _ do you even like `baseball`?
+- You can't have the `baseball`!
+- Selling all my `baseball` cards.
+- Steel pipes and `baseball` bats.
+- You follow the `baseball` games?
+- I coach the `baseball` team, too.
+- What's so great about `baseball`?
+- They have a killer `baseball` team.
+- It's a carlton fisk `baseball` card.
+- It's my entire `baseball` collection.
+- We'll drink beer and talk `baseball`.
+- I'm not playing anymore `baseball`.
+- Daddy, come up and sing the `baseball`.
+- I want you to have my `baseball` cards!
+- We'll just sell another `baseball` card.
+- You'll probably get the `baseball` team.
+- `Baseball` bats� that's just for openers.
+- I don't really follow `baseball` anymore.
+- You gave up `baseball` to be a bank teller?
+- We look like ourselves at a `baseball` game.
+- We look like ourselves in a `baseball` game.
+- You must have a `baseball` bat or something.
+- When we re-enlist i'll teach them `baseball`!
+- You're not entitled to the fuckin' `baseball`!
+- `Baseball`'s my racket, and i'm sticking to it.
+- Real effective security... you like `baseball`?
+- There's a `baseball` lesson in there somewhere.
+- There's no relation between sex and `baseball`.
+- This `baseball` player you're going out with...
+- What could be dangerous about a `baseball` game?
+- A `baseball` game isn't worth the risk, my friend.
+- Hope it don't freeze out our `baseball` game today!
+- What about the `baseball` bat jane saw in his shed?
+- You know who used to have a `baseball` bat like that?
+- Also for sports like `baseball` it can be an advantage.
+- Somebody ought to crack that guy with a `baseball` bat.
+- The team was good, the best fucking team in `baseball`.
+- `Baseball`'s a good stepping stone for things like that.
+- Still like getting hit in the back with a `baseball` bat.
+- The pingala is the nostril used for throwing a `baseball`.
+- Yeah, considerin' they was usin' my head for a `baseball`!
+- I got six waiters standing in back listening to `baseball`.
+- I wanted you to be the best `baseball` player in the world.
+- Well, seems like zanuck's got himself a `baseball` picture.
+- No, jor-el, the `baseball` player that came from porto rico.
+- She's going out with this `baseball` player -- greg barnett.
+- I d-don't think japs ought'a be allowed to p-play `baseball`.
+- Believe in christ or i'll hit your head with a `baseball` bat.
+- I mean, even before you threatened me with the `baseball` bat.
+- I went to high school with you...you played `baseball`, right?
+- You're talking about giving up `baseball` to be a bank teller.
+- They left me a brewery and a `baseball` team--and other things.
+- John willoughby, long john willoughby they called me in `baseball`.
+- He got a scholarship to play `baseball` in college already, man.
+- It ain't possible that `baseball`'s not enough anymore, is it, crash?
+- They were arguin' about `baseball`, then all of 'em started fightin'.
+- I don't fall in love with grown men who collect `baseball` cards!!
+- You know what, i can play `baseball` with my brothers when i'm bigger.
+- Tell me truly..." you can go to `baseball` games with all the dead players.
+- Patkin was a tribute to `baseball`... look, guys--i'm a man, i got needs too.
+- Now, anne, you remember how much it cost to get rid of that `baseball` player?
+- Maybe she could get you the `baseball` scholarship, and i could help and-- see!
+- He likes `baseball` more than i do... you see how nice things are when we go slow?
+- You made me look like an idiot -- i believe somebody owes me ten dollars -- `baseball`?
+- Y'know i'm starting to like this game--`baseball`'s a helluva good way to make a living.
+- Why, as soon as it comes out it's all a fake, you'll be washed up in `baseball`, won't you?
+                 

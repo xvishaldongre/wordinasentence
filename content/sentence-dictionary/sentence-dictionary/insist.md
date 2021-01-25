@@ -1,0 +1,64 @@
+---
+title: "insist in a sentence | insist example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "insist"
+---
+- I'll `insist` upon it.
+- I must `insist`, sire.
+- Okay, if you `insist`.
+- I `insist` on the best.
+- In fact, i `insist` on it.
+- Why do you `insist` on it!
+- Certainly, if you `insist`.
+- If you `insist` on details.
+- Mention it, don't `insist`.
+- All right - if you `insist`.
+- I `insist` that you have it.
+- I must `insist` you try some.
+- I must `insist` that you leave.
+- Brutal frankness, if you `insist`.
+- I accept, but i `insist` on a wager.
+- I `insist` you get rid of that bomb.
+- I'm sorry, sir, but i must `insist`.
+- Only if you `insist` on fighting it.
+- I `insist`, it is the least we can do.
+- You `insist` on calling all the shots.
+- I'm afraid i have to `insist` you leave.
+- You must see a doctor, i `insist` on it.
+- Dr. duvall i `insist` you test the laser.
+- I `insist`--and a beaker for mr. marlowe.
+- I'm afraid major strasser would `insist`.
+- My only company will be a.i., i `insist`.
+- He says they `insist` on outside opinions.
+- You can `insist` on being better prepared.
+- Yet the data banks `insist` we fired: twice.
+- Cal `insist` on lugging this thing everywhere.
+- Calvin, i `insist` i be allowed to capture it!
+- "otherwise, we'd `insist` on your being here."
+- We're going to `insist` they take a statement.
+- Why do you `insist` on making me repeat myself?
+- Cornelius, why do you `insist` on provoking him?
+- Otherwise, it'll be necessary for us to `insist`.
+- Not as long as you `insist` on living in the past!
+- Chance - if you `insist` on dragging this matter on...
+- I `insist` on being told exactly what you have in mind.
+- Now i'm going to be a little bit of a tyrant--i `insist`.
+- Now we `insist` it's a public place... a bar, a restaurant.
+- Doctors, if you please - - i have to `insist` we get moving.
+- They `insist` they wanna go with meeting him at the airport.
+- My psychiatrist didn't `insist` that i stay on my medication.
+- Well, it isn't much, but if you `insist`, here's this week's.
+- Why do you `insist` upon pressing... who knew she was pregnant?
+- Santos, why in hell do you `insist` on playin' this stupid game?
+- Do you still `insist` that this was your idea and your idea alone?
+- I `insist` upon being put down at the austrian ambassador's house.
+- ...`insist` on making it difficult for life to survive on this planet.
+- Billy ansel will `insist` that you were driving fifty-one miles an hour.
+- On the other hand, since you `insist`, if you offered me a cold lemonade.
+- If you `insist` on being an idiot, i'm not going to waste time coaxing you.
+- Unfortunately, my train is about to leave, and i really must `insist` you disembark.
+- I'm trying to get us into the next century and you `insist` on this medieval nonsense.
+- The prince and the count always `insist` on everyone being healthy before they're broken.
+- `Insist` it has to be a public place: a bar or restaurant at the height of the dinner hour.
+                 

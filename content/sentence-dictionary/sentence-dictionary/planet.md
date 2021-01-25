@@ -1,0 +1,107 @@
+---
+title: "planet in a sentence | planet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "planet"
+---
+- From another `planet`.
+- Alpha's not a `planet`.
+- I got my `planet` back.
+- No, morag's a `planet`.
+- We're on `planet` beta.
+- You are on my `planet`!
+- `Planet` and connection?
+- The earth is a `planet`.
+- What `planet` do you from?
+- I hate the `planet` uranus.
+- On a `planet` called morag.
+- The `planet`'s primary use.
+- This `planet` sucks anyway.
+- Made off its first `planet`?
+- We destroy another `planet`?
+- The genesis `planet` is gone.
+- I can't stay on this `planet`.
+- So what's our `planet` called?
+- Any more ideas animal `planet`?
+- Are we caring for the `planet`?
+- Dr. marcus, it's your `planet`.
+- For how long without a `planet`?
+- Just synthesize it- `planet` 10?
+- The closest `planet` to us, now.
+- The `planet` superman came from.
+- We are going to this "`planet`."
+- A `planet` in federation space...
+- It's really a beautiful `planet`.
+- So this is the `planet` houston .
+- They seem native to the `planet`.
+- This `planet` is aging in surges.
+- We are taking over your `planet`.
+- Why have you come to my `planet`?
+- Long live... what's your `planet`?
+- Now, so, this is our new `planet`.
+- We were happy on my home `planet`.
+- Captain, i've scanned the `planet`.
+- Consider it a quarantined `planet`.
+- I got a `planet` check on that bug.
+- Just as on your home `planet`, sir.
+- Plasma, ma'am... from the `planet`.
+- The hell happened to this `planet`?
+- There's a `planet`, straight ahead.
+- The son of jor-el on this `planet`?
+- This `planet` is destroying itself!
+- Vaporize the whole damn `planet`--?
+- What do we know about the `planet`?
+- And "yes" to `planet` before profit.
+- Boys and girls, meet `planet` alpha.
+- Everything left the `planet`, right?
+- From a `planet` that wasn't on fire.
+- Life must be peachy on `planet` ted.
+- On "the `planet` of galactic peace?"
+- They never made it off the `planet`.
+- They're trying to save the `planet`.
+- <u>terrible</u> name for a `planet`.
+- What are you, from another `planet`?
+- You want your pills, which `planet`?
+- But there is a way off this `planet`.
+- But we're not on my `planet`, are we?
+- "on which `planet` would you rather?"
+- There's one `planet` we can't get to.
+- To our `planet` while we were asleep.
+- We're setting sail for `planet` beta.
+- You can't just - on which `planet`...?
+- You like this `planet` better, miller?
+- A `planet` where apes evolved from men.
+- Because you murdered half the `planet`.
+- Cooling down the `planet` a tad cranky.
+- "it just landed on the wrong `planet`."
+- They went looking for another `planet`.
+- 45 minutes to get you off this `planet`.
+- That's lie, um, the earth is a `planet`.
+- They are likely to destroy the `planet`.
+- Destroy every `planet` in the system.
+- And soon it'll be a `planet` of the apes.
+- I might as well be from another `planet`.
+- Safe to say, we're on the wrong `planet`.
+- The `planet` has been totally blown away!
+- I can see no other hope for your `planet`.
+- I was watching animal `planet`, satisfied?
+- Mr. data, scan the `planet` for lifeforms.
+- That the `planet` blew up on may 23, 1937.
+- It was in this story in the daily `planet`.
+- One of thirty or so, all over the `planet`.
+- The most unique life form on this `planet`.
+- They don't even exist on the same `planet`.
+- We have to get thee hell off this `planet`!
+- We must evacuate this `planet` immediately!
+- Your `planet` was on the brink of collapse.
+- Hundreds of your people meet `planet` alpha.
+- It concerns all the people on your `planet`.
+- Leaving the `planet` simmering in radiation.
+- Rico, tell'em to glass this goddam `planet`.
+- Don't panic... to move you off this `planet`.
+- How about you find us a `planet` with a beach?
+- I don't care what `planet` you're standing on.
+- The result is you're as cold as this `planet`.
+- They went looking for another `planet` to tap.
+- I find i've had quite enough of `planet` earth.
+                 

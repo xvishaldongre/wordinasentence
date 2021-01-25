@@ -1,0 +1,75 @@
+---
+title: "royal in a sentence | royal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "royal"
+---
+- `Royal` victory party?
+- With the `royal` navy.
+- Your `royal` highness.
+- Your `royal` highness?
+- He'll occupy the `royal` suite.
+- I'll give you the `royal` tour.
+- We only got `royal` crown cola.
+- What's her `royal` holiness want?
+- `Royal` pains, suits, white collar.
+- Of the saudi arabian `royal` family.
+- He is `royal` blood, the same as you.
+- I expected to go to the vancouver `royal`.
+- What's your business in port `royal`, 'mr.
+- Where are you staying in vancouver `royal`.
+- He usually plays with a `royal` or a cadenza.
+- I take your place for the `royal` inspection.
+- You made too many demands on the `royal` ear.
+- "meet me `royal` academy five tonight mother."
+- We have the same blood, clarke, `royal` blood.
+- Used to be the `royal` family�s, now it�s mine.
+- The governing laws of agrabah by `royal` decree.
+- I am a member of the `royal` geographical society.
+- We are bound for port `royal`, not isla de muerta.
+- Catch me at the vancouver `royal` if it's important.
+- Along the way, i threw my gun into the `royal` river.
+- The entire `royal` family will be there to honor you.
+- Two fifty-three, five-- we'll take the `royal` suite!
+- British `royal` organisation for lasting liquid years.
+- May i present her `royal` highness princess anastasia!
+- He's a vat grown ninja, the `royal` family's bodyguard.
+- Have you contacted the british home and the `royal` hospital?
+- One `royal` pupil and the whole of vienna will come flocking.
+- Three years after the `royal` wedding, the king abdicated.
+- Naturally it's not the `royal` suite... well, we're back home.
+- The `royal` family and senior members of the household, ma'am.
+- You see the top yardarm, now look to the- the `royal`...studs?
+- Let's you live in a penthouse, on top of the vancouver `royal`.
+- Moonby, 4th battalion, `royal` australian regiment, task force.
+- Well, yes, in austria where be conducted the `royal` orchestra.
+- I expect sir larry is choking on his `royal` chamber pot by now.
+- In wilmington they killed a `royal` magistrate and two redcoats.
+- Wintermute's mainframe is centred in the `royal` family's villa.
+- I will now sell four copies of cats and dogs by the `royal` trux.
+- `Royal` sense of adventure that's been in my family for centuries.
+- All `royal` family members have an implanted tracking chip in them.
+- Now, let's see -- do you know the center garden at the palais `royal`?
+- Well, he was a fellow of the `royal` zoological society ... any ideas?
+- Now, time for some r and r. you're invited to the `royal` victory party!
+- Well, mr. renton, i see that you attended the `royal` edinburgh college.
+- You ordered all members of the `royal` family to attend you at balmoral.
+- The `royal` family of britain are the wealthiest landowners in the world.
+- [in chinese] the `royal` family knows we built this in the hull of a ship.
+- Yes, i spoke to both the british home and `royal` hospital for incurables.
+- I have come to negotiate the cessation of hostilities against port `royal`.
+- So did i, till i hit 19 and found i had all the `royal` habits and no throne.
+- People say anastasia was the only member of the `royal` family to escape alive.
+- Elizabeth, we will be landing in port `royal` soon, and beginning our new lives.
+- The only explanation for the `royal` treatment is he did give them radar secrets.
+- We'll invite the king of england - hell, we'll get the whole `royal` family along!
+- Still you serve him loyally -- though people hurl rotten eggs at his `royal` emblem.
+- All i can say to you is take your hammer and sickle and get out of that `royal` suite!
+- But i deployed the `royal` guards according to your previous -- i am king, d'artagnan.
+- I have thought of calling for a `royal` commission to "investigate" the new legislation.
+- See, after you're done with the `royal` navy, you'll have a bit of a problem: the h.m.s.
+- When he heard, the prince of wales threw the bust from the window of the `royal` gallery.
+- Home of the `royal` family and the mainframe of the computer entity we know as wintermute.
+- I have ordered a drill of the `royal` guard for midnight, and must be clear-headed for it.
+- See the cartouche there, it's the official `royal` seal of seti the first, i'm sure of it.
+                 

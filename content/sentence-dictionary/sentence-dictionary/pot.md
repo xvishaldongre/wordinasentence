@@ -1,0 +1,69 @@
+---
+title: "pot in a sentence | pot example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pot"
+---
+- Comes in a big...`pot`.
+- Everybody smokes `pot`.
+- I am the melting `pot`.
+- Perhaps a `pot` of ink?
+- I want to buy some `pot`.
+- England is going to `pot`.
+- I'll call the whole `pot`.
+- I can't put him in the `pot`.
+- I grow some `pot` down there.
+- It's definitely in the `pot`!
+- Now shit or get off the `pot`.
+- I made a fresh `pot` of coffee.
+- Do you have a `pot` or a bucket?
+- When buying `pot` was... scuzzy.
+- Blondie -- get that smudge `pot`.
+- Hey, look... put it in the `pot`.
+- The grauman's chinese `pot` bust.
+- We gotta whole `pot` inna kitchen.
+- You and your porridge-`pot` heart!
+- I should shit or get off the `pot`.
+- Um, that was a chicken `pot` `pot` pie.
+- Well he missed a great `pot` of stew!
+- Why have you never tried `pot`, ever?
+- You should shit or get off the `pot`.
+- From your old-school `pot` connection.
+- In the `pot`, i have got a good dinner.
+- Out of the stew `pot` and into the fire.
+- The `pot`'s callin' the kettle maniacal.
+- You know, `pot` calling the kettle black.
+- Yeah, you should shit or get off the `pot`.
+- Cold war, cold war two: pol `pot`'s revenge.
+- Bang on this `pot` to scare the possums away.
+- I'm glad <u>i</u> didn't win the first `pot`.
+- How the room's a boiling `pot` of sugar water.
+- 'kings and sixes the `pot` affixes'... poetry.
+- Mary -- what would you do with a `pot` o' gold?
+- See, i was thinking, jellyfish `pot` pie it is.
+- Your mother and i had a very... you sell `pot`.
+- If i ever won a `pot` that large the boat would sink.
+- It looks like a big pair of breasts and a `pot` belly.
+- Your kid was down around diver's cover again, smoking `pot`.
+- ♪ i know there's a `pot` of gold for me ♪ she wants you dead.
+- I expect sir larry is choking on his royal chamber `pot` by now.
+- They ain't got a `pot` to piss in or a window to throw it out of.
+- He says, "why you crackers always gotta find my mother fuckin' `pot`?
+- I'll go out and get a hen and have it picked and ready for the `pot`.
+- Then, anybody gets close, look, i don't have a problem with `pot`.
+- She said her friends smoked `pot` and drank -- how long have you known?
+- Yeah, sure i could use a `pot` of hot coffee and a few packs of camels.
+- I generally make a fresh `pot` ever week even if there's some left over.
+- Last night i read rudy the story of winnie the pooh and the honey `pot`.
+- Why can't we have `pot` roast or stroganoff or even a little london broil?
+- ♪ mommy shark, doo-doo-doo-doo-doo-doo ♪ but `pot` is for cheeches... and chongs.
+- Someone said, "man, ain't no fire down here except under that `pot` of chitlins."
+- They're still doing a lot of yelling and `pot`-smoking but nothing to worry about.
+- You know, babe brother's wife just dumps greens in the `pot` without washing them.
+- Why can't you call right, you bone- headed, pig-eared, lop-eared, `pot`- bellied� yes!
+- It's a sacrilege having that pre-columbian `pot` in the center of the coffee table.
+- Know what happened: he stuck his nose in that honey `pot` once too often and got stung.
+- So, my buddy 'nesto and me i'm labeled "lunch snacks," but people use me to store `pot`.
+- I just bought it brand new from a used-car lot, and the steering goes to the `pot` on me!
+- Fender compound -- kitchen -- [flashback] ten minutes ago make us a `pot` of coffee, edna.
+                 

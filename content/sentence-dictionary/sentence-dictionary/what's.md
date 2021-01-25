@@ -1,0 +1,107 @@
+---
+title: "what's in a sentence | what's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "what's"
+---
+- Before... `what's` up?
+- Boy-- so `what's` new?
+- But `what's` all this?
+- But `what's` happened?
+- Eh, `what's` all this?
+- Er, `what's` his name?
+- Hey `what's` going on?
+- Hey `what's` with you?
+- It's `what's` in mine.
+- Now `what's` her name?
+- Raven, `what's` wrong?
+- See `what's` going on.
+- So `what's` happening?
+- So `what's` in a name?
+- So `what's` that mean?
+- So, `what's` the news?
+- So `what's` the point?
+- So `what's` your name?
+- Terry, `what's` wrong?
+- That's `what's` wrong.
+- We'll see `what's` up.
+- `what's` all this for?
+- `what's` an algorithm?
+- `what's` "anarchy 99"?
+- `what's` an immigrant?
+- `what's` 'cent' anne?'
+- ... `what's` going on?
+- `what's` going on bud?
+- `what's` going on now?
+- `what's` gonna happen?
+- `what's` got into you?
+- `what's` he, a sheikh?
+- `what's` he doing now?
+- `what's` he gonna say?
+- `what's` he look like?
+- `what's` he payin' ya?
+- `what's` his demeanor?
+- `what's` in it for me?
+- `what's` in it for us?
+- `what's` in the box???
+- `what's` in your head.
+- `what's` in your head.
+- `what's` it all about?
+- `what's` it look like?
+- `what's` life, anyway?
+- `what's` mine is mine.
+- `what's` nels' number?
+- `what's` one more day?
+- `what's` on thursdays?
+- `what's` on your mind?
+- `what's` our timeline?
+- `what's` she gonna do?
+- `what's` so important?
+- `what's` stopping you?
+- `what's` that, a gram?
+- `what's` that make me?
+- `what's` that, peanut?
+- `what's` that to miss?
+- `what's` that, walter?
+- `what's` that you say?
+- `what's` the bad news?
+- `what's` the big deal?
+- `what's` the big idea?
+- `what's` the big rush?
+- `what's` the occasion?
+- `what's` the password?
+- ...`what's` the point?
+- `what's` the position?
+- `what's` the question?
+- `what's` the recovery?
+- `what's` there to see?
+- `what's` the surprise?
+- `what's` the thinking?
+- `what's` the treasure?
+- `what's` this one eat?
+- `what's` through here?
+- `what's` up with that?
+- `what's` with charlie?
+- `what's` with the dip?
+- `what's` with the lie?
+- `what's` with you two?
+- `what's` wrong, chief?
+- `what's` wrong, danny?
+- `what's` wrong, ellen?
+- `what's` wrong, honey?
+- `what's` wrong, jimmy?
+- `what's` wrong, monty?
+- `what's` wrong, moses?
+- `what's` wrong, trash?
+- ...`what's` your name?
+- `what's` your opinion?
+- `what's` your passion?
+- `what's` your problem?
+- `what's` your subject?
+- Yes, hal, `what's` up?
+- Yo, `what's` with you?
+- Aaah, `what's` the use?
+- `what's` that mean?
+- `what's` this ... ?
+- `what's` your name?
+                 

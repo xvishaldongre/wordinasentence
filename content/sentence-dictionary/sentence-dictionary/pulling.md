@@ -1,0 +1,82 @@
+---
+title: "pulling in a sentence | pulling example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pulling"
+---
+- By `pulling` my hair?!
+- I'm `pulling`, damnit!
+- I'm `pulling` the plug.
+- `Pulling` strings again.
+- Are you `pulling` my leg?
+- It's `pulling` me deeper!
+- Not `pulling` against me.
+- Start `pulling` it apart!
+- ...i'm `pulling` up, yuri.
+- I'm `pulling` up right now.
+- I'm `pulling` you off duty.
+- He's not `pulling` his quota.
+- I'm `pulling` the green wire.
+- West foxhole `pulling` ba.
+- I'm `pulling` him out of this.
+- Why are you `pulling` my dick?
+- I'm `pulling` back the curtain.
+- You're `pulling` your hips out.
+- Like, it's like `pulling` weeds.
+- The mayor's car is `pulling` up.
+- They're `pulling` loomis' account.
+- I mean `pulling` a stunt like that.
+- Keep `pulling`... away from the ship.
+- I said i was `pulling` an all-nighter.
+- Not just for... for `pulling` me back.
+- I think thorwald's `pulling` out tonight.
+- Me `pulling` a can off some moron's fist.
+- Someone's `pulling` your chain, as usual.
+- There was something... `pulling` me back.
+- I'll be right over there `pulling` for you.
+- But you were `pulling` your hips last night.
+- Don't throw that away by `pulling` this one.
+- `Pulling` out the tooth, man, that was nuts!
+- At least i wouldn't be `pulling` the trigger.
+- I heard someone `pulling` in behind the house.
+- <i></i> they're `pulling` the plug at nine am.
+- She dreamed they were `pulling` the plug on me.
+- We're `pulling` it like a zipper across space...
+- Joe, you're not `pulling` one of your old tricks.
+- `Pulling` that last control rod's not a bad idea.
+- The train's `pulling` into the station right now.
+- We can do it... no -- keep `pulling`, it's moving!
+- Nice though, `pulling` back her hood as we drive by.
+- `Pulling` the plug from the ground is not an option.
+- Don't want you `pulling` any weapons out of your fur.
+- You're not `pulling` a mid-life crisis on us, are you?
+- I'm the only goddamn person in there `pulling` for you.
+- It was like a magnet or something `pulling` on my board.
+- Like `pulling` teeth to get you to do a little box step.
+- It's `pulling` out of vietnam without a right wing revolt.
+- Like you're... you're `pulling` away from me or something.
+- Fleet's `pulling` the battle group back to safe distance...
+- The big silver guys `pulling` on those big silver things...
+- Sheila catches sight of theo `pulling` into the parking lot.
+- The weird thing is... all i knew, she was `pulling` away.
+- I'll bet that old mustang's `pulling` into new york right now.
+- A month ago you were `pulling` these two apart at the courthouse.
+- Aw, now, doggone it, ernie, don't you start `pulling` that stuff.
+- Is bending down, `pulling` a tray of sausage rolls into the oven.
+- Sometimes, yeah... `pulling` in two different directions at once.
+- He fumbles at your head like a freshman `pulling` at a panty girdle.
+- For `pulling` a 210-pound man out of a burning barrack in saudi arabia.
+- They're `pulling` out our children's brains and filling them with trash!
+- Me and you been `pulling` colored folk out the water more'n twenty years!
+- And the scrubbers reverse, `pulling` in outside air sir, are you all right?
+- Millions of creatures, each with his assigned task, all `pulling` together!
+- Either way, come saturday morning -- i'm `pulling` you the hell out of there.
+- I don't mind `pulling` me own cart, but not someone else's, know what i mean.
+- I'm `pulling` out of next wednesday's tv bout 'cause i can't make the weight.
+- Seems like i'm always `pulling` you out of some goddamn toilet or other, doesn't it?
+- Started `pulling` out her stitches, mr. president... you'll be stuck up here, raven.
+- He's `pulling` a 211 with a "trucker", who happens to be packing a cop issue h&k 9mm.
+- Powell, has it occured to you he could be one of the terrorists, `pulling` your chain?
+- This hungarian tells me the whole bunch was `pulling` stumps for turkey the next' day.
+- I dreamed of running up to a door, kicking it in, `pulling` my gun and yelling 'freeze!'
+                 

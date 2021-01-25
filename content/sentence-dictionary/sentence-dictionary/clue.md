@@ -1,0 +1,60 @@
+---
+title: "clue in a sentence | clue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "clue"
+---
+- Danny: another `clue`?
+- I discovered a `clue`.
+- I don't have a `clue`.
+- Listen, it is a `clue`.
+- He said it was a `clue`?
+- That was my `clue`, you see.
+- Yours i don't have a `clue`.
+- Ann, you don't have a `clue`.
+- But they don't have a `clue`.
+- The letter's our only `clue`.
+- Every `clue` he ever followed.
+- I don't have a `clue` anymore.
+- I got no `clue` where she stays.
+- There could be a `clue` at the bottom.
+- Because it's the next `clue`, that's why.
+- I mean, that's got to be a `clue`, right?
+- That's probably where the next `clue` is.
+- A laser drill any `clue` as to what it is?
+- Bullet holes are usually a big `clue`.
+- Gosh, you didn't mention the big `clue`...
+- Just stand here and wait to catch a `clue`?
+- Or careers... `clue`... snakes and ladders?
+- You don't have the slightest fucking `clue`.
+- It's a `clue` that tells us... to keep going.
+- This one `clue` tells us three distinct facts.
+- She's no idea what she's playing, not a `clue`.
+- Because the parents... they don't have a `clue`.
+- He's the lamest `clue` i've ever had in my life.
+- Leonard, you don't have a `clue` what's going on.
+- The radiation is not an anomaly, it's the `clue`.
+- You don't have a `clue` what you're into, do you?
+- That shows me already that you don't have a `clue`.
+- You don't have a fucking `clue` about anything else!
+- Our only `clue` is these initials next to the corpse.
+- You haven't got a `clue` what's wrong with that girl.
+- Maybe that'll give us a `clue` on how to get you back.
+- Oh, what about the important `clue` the police missed?
+- The poor girl has no `clue` what you're talking about.
+- Danny: we just have to figure out what the `clue` meant.
+- I'm tellin' ya, we can't play `clue` with just two people.
+- She's always working so hard and -- let me give you a `clue`.
+- You have no idea -- not a `clue` -- what came before that?
+- What if you have the foggiest `clue` as to where the queen is?
+- People think democracy is freedom but they don't have a `clue`.
+- I presume they have no `clue` as to where she's gone, mrs. lane?
+- You'd think my uncle would have left a `clue`, a note, something...
+- Twenty-four hours from now we won't have a `clue` where the captain is.
+- I would think it's some type of `clue` as to where he's going to kill next?
+- You know, if you ever got me, you wouldn't have a `clue` what to do with me.
+- Sometimes what a child says or fantasizes will give a `clue` to what ails him.
+- The key -- the key -- the `clue` -- what does this man recall on his death bed?
+- You're a cocky seventeen year-old and you don't have a `clue` what the stakes are.
+- I can say whatever the fuck i want and you won't have a `clue`, you fucking retard.
+                 

@@ -1,0 +1,86 @@
+---
+title: "wet in a sentence | wet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wet"
+---
+- I'm not a `wet` nurse.
+- `Wet` behind the ears.
+- Yeah, it's just `wet`.
+- Because they got `wet`.
+- My hair's getting `wet`!
+- Why was the floor `wet`?
+- Don't `wet` your diapers.
+- I'm gonna `wet` my pants.
+- It's `wet` and miserable.
+- They'll `wet` their pants.
+- I need the main `wet`-wall.
+- I only `wet` him down once.
+- You look like a `wet` kiss.
+- Do something, `wet` panther!
+- In cutoffs, a `wet` t-shirt.
+- I just got my mustache `wet`.
+- Baby doesn't like to be `wet`.
+- Let me `wet` my whistle, baby.
+- Let me `wet` my whistle, baby.
+- Bit right through a `wet` suit.
+- ...i guess i've been all `wet`.
+- `Wet` paint and no telephone yet.
+- Mm, in a horizontal and `wet` way!
+- This is our `wet` dream come true.
+- Have to get these `wet` things off.
+- Well, you've been `wet` to the skin.
+- Yeah -- the grass was kind of `wet`.
+- Brother, were we all `wet` about you!
+- I don't know why the floor was `wet`!
+- I might just give you big `wet` kiss.
+- I rode her hard and put her up `wet`.
+- Your hand's all `wet` and it's shaky.
+- Feels like it might have gotten `wet`.
+- I-i-i'm w-w-`wet`... well, shoot, man!
+- The paint's still `wet` for god's sake.
+- I've -- i've gotten your suit all `wet`.
+- There's no point both of us getting `wet`.
+- Crash, i get `wet` just thinking about you.
+- I said when i think about you, i get `wet`.
+- I was a knot in the middle of a `wet` rope.
+- `Wet` a towel and wrap it around your head.
+- Nubile, blonde, `wet` with desire, schwartz.
+- Okay, i just didn't wanna get my hair `wet`.
+- Take a big `wet` bite out of my ass is what.
+- This is like my every `wet` dream come true.
+- Brad - i'm cold, i'm `wet`, and plain scared.
+- I'm an electrician, not a `wet` nurse, y'know.
+- Let's face it, harry, the vette gets 'em `wet`.
+- Just gonna try and get my beak `wet` real quick.
+- These lips are `wet` and ready to get frostbite.
+- You're not gonna get `wet` standing here, moron!
+- Whereas "`wet` 'n' wild" is an emotional journey.
+- We get `wet`, we freeze to death in a couple hours.
+- Did you know you have a `wet` spot on your shoulder?
+- So...if the hull's impregnable why are my feet `wet`?
+- We're having a `wet` bikini contest, and you just won.
+- Soft and `wet`, by the artist formerly known as prince.
+- The great thing -- they just kept you `wet` all day.
+- It is like trying to a pick a lock with a `wet` herring.
+- But the next time you `wet` your bed, have 'em spank you.
+- Relax in our pile of `wet` dead leaves i don't know, okay?
+- So maybe just try to knock it down with some `wet` leaves.
+- We're gonna get them `wet` unless we find a sonoco station.
+- "in times of peril, you, um... you're not even getting `wet`.
+- 'after i hear back from you, i might send you something `wet`.
+- Tell me, would i have to pay a `wet` rag as much as i pay you?
+- Because you could rip my arm off and beat me with the `wet` end.
+- She wouldn't let him go to the bathroom made him `wet` his pants.
+- With a thirty-five inch bustline in a `wet` t-shirt with no bra...
+- But as i haven't got any spit... care to `wet` your whistle, marcus?
+- I'm gonna hop in the tub and get all `wet`, and slippery, and soapy.
+- Do you wanna look like you been rode hard and put away `wet` at my age?
+- If things get `wet`, we're going to need someone who can handle that end.
+- There's just something about the heat and the `wet` that's calming you know?
+- My undies, cause, you can't get this picture off on time i'm gonna' `wet` myself.
+- Yeah, i was all `wet` about your idea man... well, thanks for being so generous...
+- She was dirty and `wet`... how was your sister after you pulled her out of the water?
+- I've been inside the beltway fourteen years, and i feel like i just got my feet `wet`.
+- I'm sorry, about this... you mean, the guy who turned blue and <u>`wet`</u> himself... ?
+                 

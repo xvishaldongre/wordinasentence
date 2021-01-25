@@ -1,0 +1,59 @@
+---
+title: "empire in a sentence | empire example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "empire"
+---
+- We was like the roman `empire`.
+- A parting gift from the `empire`.
+- Off the top of the `empire` state.
+- A man with an `empire` at his feet.
+- We want the `empire` for ourselves.
+- Now, he's in charge of the `empire`.
+- The `empire` has already beat us out.
+- On top of the `empire` state building.
+- He sees a city where i see an `empire`.
+- It became part of the ottoman `empire`.
+- Oh yes, our evil `empire` has collapsed!
+- The perfect place to spread my `empire`.
+- The `empire` must have gotten here first.
+- The `empire` won't look for you out here.
+- That's where he started his `empire` building.
+- I don't want your silly billion dollar `empire`?
+- The corleone family was like the roman `empire`.
+- Your fathered owned the entire "heaven" `empire`.
+- I'm not at the top of the `empire` state building.
+- It's the fall of the roman `empire`, are you blind?
+- The `empire` state in fog means something, don't it?
+- Who wasn't trying to expand his `empire` into egypt.
+- I will create an `empire` that history cannot ignore.
+- Then i'll put them to work rebuilding my `empire`.
+- If the `empire` had a new weapon that could do this...
+- The `empire` has grown bold in its disregard of the...
+- You're looking at the owners of a 50,000 acre `empire`.
+- At the top of the `empire` state building -- i told you.
+- Johnnie walker also rode the wave of the british `empire`.
+- The `empire` considers this a matter of internal security.
+- They met at the `empire` state building, only they didn't.
+- The whole of the british `empire` was built on cups of tea.
+- The way i see it is this: the british `empire` was an ideal.
+- The fall of the british `empire`, the cold war, the internet.
+- Then remember, you are the heir to a billion dollar `empire`.
+- Which did you like better: jedi or the `empire` strikes back.
+- The word is that soon he is to be king of the middle `empire`.
+- Today, america is the roman `empire` and new york is rome itself.
+- Warp drive transformed a bunch of romulan thugs into an `empire`.
+- It's like you were never seventeen and the head of a media `empire`.
+- "on top of the `empire` state building at sunset on valentine's day."
+- The next minute you're the owner of this whole pornographic `empire`.
+- You don't just inherit it overnight like a gazillion dollar `empire`.
+- Listen -- i mean i just saw the needle of the `empire` state building.
+- Alexandretta... of course... on the pilgrim trail from the eastern `empire`.
+- All the power of the `empire` can't find them... do you know where they are?
+- But he has no love for the `empire`, that much i know ... can you trust him?
+- A pity he didn't live to see how, from humble beginnings, i created an `empire`.
+- He could see a couple of shows and visit the top of the `empire` state building.
+- .... we are a free station and do not fall under the jurisdiction of the `empire`.
+- Say 6 g's, but if i get the permit it'll be as solid as the `empire` state building.
+- All they could do was build the `empire`, knowing that someday it would all be yours.
+                 

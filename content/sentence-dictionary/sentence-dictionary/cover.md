@@ -1,0 +1,107 @@
+---
+title: "cover in a sentence | cover example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cover"
+---
+- `Cover` the perimeter!
+- I'll `cover` the back.
+- `Cover` yourself in it.
+- Hicks, `cover` our ass.
+- We'll `cover` it later.
+- We'll `cover` the $800.
+- `Cover` your eyes, newt.
+- Insurance'll `cover` it.
+- Just `cover` the spread.
+- Take hold of the `cover`.
+- This is just our `cover`.
+- That ought to `cover` it.
+- We always `cover` our ass.
+- We'll `cover` your escape!
+- And... everyone `cover` up.
+- What does that `cover`?
+- `Cover` your ears, darling.
+- Doesn't `cover` everything.
+- Just `cover` the fucker up.
+- Kawakita, `cover` the rear.
+- We `cover` it like this.
+- `Cover` up that transmitter!
+- Just `cover` wood, maverick.
+- They don't `cover` cosmetic.
+- Those `cover` most everyone.
+- I don't have no damn `cover`.
+- That's a big area to `cover`.
+- Coma, you `cover` the cannons!
+- I hoped that would `cover` me.
+- My insurance won't `cover` it.
+- This story they won't `cover`.
+- To `cover` up for the culling?
+- We can `cover` twice the area.
+- We `cover` the bank, whatever.
+- We need to `cover` our tracks.
+- Can you `cover` me for an hour?
+- `Cover` me, kid, while i mount.
+- Griff, ford, `cover` the flank!
+- So you can do an album `cover`?
+- That'll `cover` us if it flops.
+- Don juanism is just a `cover`...
+- I'm going to use a `cover` name.
+- It's a lot of ground to `cover`.
+- Wild doesn't exactly `cover` it.
+- But nothing makeup won't `cover`.
+- It could be a `cover`, i suppose.
+- Can you give me `cover`, mister b?
+- Don't judge a book by its `cover`.
+- That's a lot of ground to `cover`.
+- There'll be no `cover`-up of this.
+- We got a lot of ground to `cover`.
+- We need to get out and `cover` it.
+- You didn't see the `cover` though.
+- I already have the perfect `cover`.
+- I'll `cover` you through rehearsal.
+- We split up to `cover` more ground.
+- How many murders did you `cover` up?
+- If it's a `cover`, it's a great one.
+- Okay, sir...but where's the `cover`?
+- Read the inscription on the `cover`!
+- We separated to `cover` more ground.
+- Why don't you `cover` it up, walter!
+- And our picture on the front `cover`.
+- Got to split up, `cover` more ground.
+- Not enough to `cover` a bet that big.
+- This should `cover` what you lent me.
+- We have to take `cover` from the fog.
+- Why don't you `cover` it up walter...
+- Admissions no longer `cover` overhead.
+- Get in the turret, and you `cover` us.
+- If i'm wrong then my `cover` is blown.
+- Non-lethal, just to `cover` one's ass.
+- They had him on the `cover` of 'time'.
+- This should `cover` it, auggie-doggie.
+- We can't `cover` any ground like this.
+- We have to `cover` both possibilities.
+- We've got some "red-flags" to `cover`.
+- You do not want me to do your `cover`.
+- Help me with this hold `cover`, willya?
+- If she runs, then it's a `cover` story.
+- I'm not going to `cover` for you, bill.
+- Made sure to `cover` up all his tracks.
+- I was working a drug ring, deep `cover`.
+- The one with cheryl ladd on the `cover`.
+- We'd `cover` more ground if we split up.
+- We need to take `cover` and wait it out.
+- Don't judge a comic book by it's `cover`.
+- If you want to go, i'll `cover` this end.
+- Let's just split up, `cover` more ground.
+- Maybe to have someone to `cover` for him.
+- Memo e-7 on top will `cover` the details.
+- My insurance does not `cover` pms enough!
+- Yllo go to lab two and `cover` out backs.
+- Did you put the `cover` on that cage, mom?
+- Do you have anything to `cover` the wound?
+- How you can he helpful, we'll `cover` you.
+- It's all about burn time and cloud `cover`.
+- That `cover` cannot be violated in any way.
+- They only `cover` one fifty in incidentals.
+- They were on the `cover` of women's health.
+                 

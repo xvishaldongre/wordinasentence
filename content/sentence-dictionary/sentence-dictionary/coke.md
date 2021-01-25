@@ -1,0 +1,70 @@
+---
+title: "coke in a sentence | coke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "coke"
+---
+- Or have a diet `coke`.
+- Do you have any `coke`?
+- He snagged this `coke`.
+- This is drexl's `coke`?
+- You don't drink `coke`.
+- Because of that `coke`?!
+- I could go for a `coke`.
+- Winners don't do `coke`.
+- Would you like a `coke`?
+- You supplied the `coke`.
+- You want another `coke`?
+- Not a `coke` or anything?
+- A `coke`, if they have it?
+- Don't drink all the `coke`.
+- I'll... have another `coke`.
+- It doesn't look like `coke`.
+- It doesn't smell like `coke`.
+- Would you like a diet `coke`?
+- Could i get a `coke` for mickey?
+- I love `coke` and jack daniel's.
+- You got something on the `coke`?
+- You got something on the `coke`?
+- Cheeseburger and a cherry `coke`.
+- That `coke` was yours, wasn't it?
+- You don't have any `coke`, do you?
+- A `coke` or a perrier or something?
+- Is that all the `coke` in the place?
+- It was her `coke` i got busted with.
+- Would you like a `coke` or something?
+- How he used to put `coke` on his dick.
+- Did you say a cherry or `coke` slurpee?
+- Alright... what'll it be: `coke`, pepsi?
+- Do you want a `coke` or something, reba?
+- Suppose i could get a `coke` while i do?
+- You've got a helluva lotta `coke` there, man!
+- ♪ `coke` is right there with you ♪ never mind.
+- Colonel, shoot the lock off the `coke` machine.
+- We'll cook up some soup and put it in a `coke`.
+- Before you ask there's nothing new on the `coke`.
+- Just get me a `coke` and don't argue with me, ok?
+- Then their asses lucked out and found that `coke`.
+- That wasn't the kind of `coke` i was talking about.
+- I've heard you've got the best `coke` in the states.
+- Do you have any idea how much fuckin' `coke` you got?
+- I figured kids would still be drinking `coke` in 1982.
+- I'm producing the `coke` commercials for the playoffs.
+- Help you access right above judd nelson and new `coke`.
+- Out blood oughta be fizzin' like a warm, shook- up `coke`.
+- Show me another buffet's gonna offer you `coke` and pepsi!
+- I'm not running out and getting that piece of shit a `coke`.
+- I'll have one more `coke`... do you want another `coke`, stacy?
+- I'm going to need two more banana- splits and a cherry `coke`!
+- Oh yeah, and he was wired on `coke` when you stopped his clock.
+- Diego, i want you to calmly tell them where the fucking `coke` is.
+- I put the `coke` in the false bottoms and take it through customs.
+- No, i'm not talking about the thing, i'm talking about new `coke`.
+- So you gotta get him to admit on tape that he's buying this `coke`.
+- This is clarence's `coke` and clarence can do whatever he wants with it.
+- Guess who's been buying `coke` from him for the last five and half years?
+- The amount of `coke` we got on you means capital punishment in some states.
+- You still after the `coke` that walked out of that blood bath in the harbor?
+- One thing bothers me... that kid they dropped off had `coke` and heroin in him.
+- With all that `coke`, they'll be ready - which brings me to sunny spot number two.
+                 

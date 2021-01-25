@@ -1,0 +1,7 @@
+---
+title: "swivels in a sentence | swivels example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "swivels"
+---
+## Unfortunately, we have no example sentences for swivels                 

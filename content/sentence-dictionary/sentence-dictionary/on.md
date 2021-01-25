@@ -1,0 +1,107 @@
+---
+title: "on in a sentence | on example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "on"
+---
+- Ask them `on` western.
+- Attack `on` my orders!
+- Backed up `on` floppy.
+- Barnett `on` the wire.
+- [beep beep] come `on`.
+- Blood's `on` the butt.
+- Can i count `on` that?
+- Chancellor `on` de.
+- Clarke... helmet `on`.
+- Clarke: `on` my way.
+- Coffee `on` the stove.
+- Come `on`... back off!
+- Come `on` back to bed.
+- Come `on`, big fellow!
+- Come `on`, children...
+- Come `on`, close them.
+- Come `on`, goddamn it!
+- Come `on` grace, move!
+- Come `on`, i'll drive.
+- Come `on`, i'm buying.
+- Come `on`, i need you.
+- Come `on`... is it?...
+- Come `on`, let's move.
+- Come `on`, let's play.
+- Come `on`, let's ride.
+- Come `on`, let's rock.
+- Come `on`, little one.
+- Come `on`, mr lombard.
+- Come `on`, step `on` up.
+- Come `on`, try harder.
+- Come `on`, we're late.
+- Come `on`, we're next.
+- Com'`on`, just say it.
+- Danny, come `on` back.
+- Depends `on` the mind.
+- Did you put that `on`?
+- Doesn't work `on` you.
+- Don't focus `on` them.
+- Don't hang `on` to me.
+- Don't hang up `on` me.
+- Don't know `on` a map.
+- Doug, come `on`, mate.
+- Dream `on`, desperado.
+- Everyone else `on` me.
+- Flame `on`, flame off.
+- Get `on` with it then.
+- Go easy `on` jay bird.
+- Go easy `on` me, guys.
+- Go get your load `on`.
+- Go, go, go, come `on`!
+- Go head `on`, breaker.
+- Going `on`... like...?
+- Going `on` right here.
+- Go `on`, go `on`, go `on`.
+- Go `on` home, loretta.
+- Go `on`, i'll be fine!
+- Go `on`, you're tired.
+- Guess i'm `on` a roll.
+- Had your name `on` it.
+- Hang `on` a sec, john.
+- Hang `on` mrs. pierce.
+- Hang `on`, sweetheart.
+- Have a suck `on` that.
+- He is evil `on` earth!
+- He's moved `on` to tv.
+- He's not `on` the map.
+- He was `on` the phone.
+- Hey, josie, hold `on`.
+- Hey what's going `on`?
+- Hold `on`, little man.
+- I broke him `on` that.
+- I can't go `on` alone.
+- I go up `on` missions.
+- I have eyes `on` loki.
+- I like it `on` my own.
+- I'll go `on` the dole.
+- I'm counting `on` you.
+- I meant `on` the post.
+- I'm not `on` the raft.
+- I'm sort of `on` hold.
+- I'm working `on` it...
+- I'm working `on` that.
+- In town `on` business?
+- I put some decaf `on`.
+- I saw you `on` c-span.
+- Is jumped `on` by one.
+- Is ruiz `on` the list?
+- Is she `on` the phone?
+- I swear `on` the kids.
+- It fell `on` my groin.
+- I took off `on` tisch.
+- It said "fbi" `on` it.
+- It's `on` the college.
+- It's over `on` the tv.
+- It's such a turn-`on`.
+- It was `on` the table.
+- I've got my face `on`.
+- I've got to move `on`.
+- I was `on` a camp out.
+- I was `on` the bridge.
+                 

@@ -1,0 +1,107 @@
+---
+title: "same in a sentence | same example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "same"
+---
+- I feel the `same` way.
+- I'm the `same` person!
+- In the `same` country.
+- It's the `same` story.
+- It's the `same` stuff?
+- It's the `same` thing!
+- It's the `same` thing.
+- Jake's the `same` way.
+- `Same` as an hour ago.
+- `Same` thing you want.
+- `Same` time next week?
+- `Same` with maranzano.
+- 's exactly the `same`.
+- Was it the `same` cat?
+- We are not the `same`.
+- Camels, `same` as me...
+- Helps me do the `same`.
+- He won't be the `same`.
+- I feel the `same`, sir.
+- I might say the `same`.
+- In the `same` elevator.
+- Is in the `same` place.
+- Is it the `same` dream?
+- It's not the `same` ...
+- It's the `same` vessel?
+- `Same` nose, `same` hair.
+- `Same` schedule's okay.
+- `Same` thing, isn't it?
+- Thanks just the `same`.
+- That's the `same` guy!!
+- The exact `same` sound.
+- They're all the `same`!
+- They're all the `same`.
+- With the `same` friend?
+- You're just the `same`!
+- All the `same`, why him?
+- Almost the `same` thing.
+- Are all jews the `same`?
+- But he's not the `same`.
+- But it's not the `same`.
+- Hey, `same` like always.
+- Hope you're the `same`."
+- I ain't the `same`, ned.
+- I feel the `same` thing.
+- It's exactly the `same`.
+- It's not the `same` guy.
+- Lunch, `same` as always.
+- My ass ain't the `same`.
+- `Same` as everyone else.
+- `Same` old dreamer, too.
+- `Same` tattoos as yours.
+- `Same` time, `same` place.
+- The `same` as my father.
+- The `same` thing as you.
+- The `same` thing you do.
+- The smell is the `same`.
+- We got the `same` thing.
+- We think the `same` way.
+- But not the `same` thing.
+- He was always the `same`.
+- I'd react the `same` way.
+- I'll give you the `same`.
+- Is that the `same` thing?
+- It is the `same` concept.
+- It's all the `same` here.
+- It's all the `same` news.
+- It's the `same` as usual.
+- I wish i felt the `same`.
+- `Same` color and texture.
+- `Same`, more of the `same`.
+- `Same` principle, i mean.
+- So it's never the `same`.
+- Thank you all the `same`.
+- The `same` old, `same` old.
+- The `same` way you do it.
+- The `same`, your majesty.
+- They're about the `same`.
+- They're still the `same`.
+- They're the `same` thing.
+- Twenty-two; `same` as us.
+- We're on the `same` side!
+- We're on the `same` side.
+- We're on the `same` team.
+- We want the `same` thing.
+- You should do the `same`.
+- Always the `same` old you.
+- But it ends up the `same`.
+- But so much is the `same`.
+- Customers in `same` hotel.
+- He'd do the `same` for me.
+- I need more of the `same`.
+- It always ends the `same`.
+- It's all the `same` to me.
+- It's not the `same` thing.
+- It's the `same` prevision.
+- Just the `same`, though...
+- Mccool's that `same` rank.
+- My people just the `same`.
+- No -- he's not the `same`.
+- `Same` as we -- they pray.
+                 

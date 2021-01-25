@@ -1,0 +1,58 @@
+---
+title: "kirk in a sentence | kirk example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "kirk"
+---
+- Spock, this is `kirk`.
+- Admiral `kirk`, my god!
+- It was `kirk` i needed.
+- Thank you, captain `kirk`.
+- Captain, i need jim `kirk`.
+- Now it's your turn, `kirk`.
+- Did you meet captain `kirk`?
+- Standing by, captain `kirk`.
+- You will find a way, `kirk`.
+- Captain `kirk` was your host!
+- It made `kirk` willing to die.
+- Spock... `kirk` to enterprise.
+- Your men did kill `kirk`'s son.
+- Oh, i'm sorry, `kirk`'s tum-tum.
+- Defensive pattern `kirk` epsilon.
+- Don't mention it, captain `kirk`.
+- `Kirk`, i must have your thoughts.
+- The crystals got `kirk` a new job.
+- Best speed to regula i. `kirk` out.
+- I will speak with you alone, `kirk`.
+- We demand the extradition of `kirk`!
+- I could use some of those for `kirk`.
+- `Kirk`, let's get this party rockin'.
+- Admiral `kirk`'s orders are confirmed.
+- Captain `kirk` was only doing his duty!
+- Spare me your human platitudes, `kirk`.
+- Put him in the brig with captain `kirk`.
+- James t. `kirk`, captain of the enterprise.
+- `Kirk`, you are still alive -- my old friend...
+- `Kirk` crawled over these and made his way to me.
+- Captain `kirk`, i so much want your understanding.
+- ` `kirk`, bathed with sweat, suddenly shudders in pain.
+- `Kirk`-unit, <u>why</u> do you not disclose information?
+- Would admiral `kirk` have access to such information?
+- I really must congratulate you on writing `kirk` back in.
+- Admiral `kirk` calling captain esteban or lieutenant saavik.
+- Then, instead of watching gilligan, we'd watch captain `kirk`.
+- <u>admiral</u> `kirk` never bothered to check on our progress.
+- He touches `kirk` with gentleness as jim recovers, opens his eyes.
+- The same people moving in but if `kirk` and luann can afford it...
+- Conceived by `kirk`'s son and test detonated by the admiral himself!
+- You understand that we have lost all contact with captain `kirk`...?
+- The vessel chimera was registered to the dobbins `kirk` line, halifax.
+- Captain `kirk`, i'd be honored if you would give the order to get underway.
+- Captain -- this is the starship enterprise, captain james `kirk` commanding.
+- See how <u>admiral `kirk`</u> requited her devotion -- she's dead as earth!
+- Now we come to the architect of this tragic affair, captain james tiberius `kirk`.
+- We could hear the screams all the way to the transporter room -- i'm admiral `kirk`...
+- "to be or not to be, that is the question" which preoccupies our people, captain `kirk`.
+- Yes, i was... you missed the point, then and now... only his body was "in death," `kirk`!
+- You realize, sir, that they will attempt to contact admiral `kirk` and confirm the order.
+                 

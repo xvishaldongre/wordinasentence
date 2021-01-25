@@ -1,0 +1,88 @@
+---
+title: "threat in a sentence | threat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "threat"
+---
+- Did i hear a `threat`?
+- Octavia is a `threat`.
+- _ isaac was a `threat`.
+- Sounds like a `threat`.
+- And, if it's a `threat`.
+- What is that a `threat`?
+- He sees me as a `threat`.
+- Octavia's not a `threat`.
+- She's clearly a `threat`.
+- Wasn't deemed a `threat`.
+- The borg `threat` is over.
+- Maybe they were a `threat`.
+- Nothing there but `threat`.
+- Custom-made terror `threat`.
+- They pose a `threat` to you.
+- They'll see it as a `threat`.
+- I'm no `threat` without a gun.
+- Is that a `threat`, detective?
+- There's been a death `threat`.
+- The `threat`'s inside the walls.
+- Madi is not a `threat` to octavia.
+- Oh, 'cause you're such a `threat`.
+- I have heard ramses' final `threat`.
+- The people there are not a `threat`.
+- _ what if the `threat` doesn't work?
+- We just got a bomb `threat` upstairs.
+- When it's a `threat`, you'll know it.
+- Does the `threat` board show anything?
+- He poses absolutely no `threat` to us.
+- We think the grounders are a `threat`.
+- Told the ba'ku we were a `threat`...
+- We shouldn't take this `threat` lightly.
+- That's not a `threat`, that's a fact.
+- I'd just like to keep the `threat` alive.
+- Jordan, they won't see you as a `threat`.
+- Right now, biggest `threat` to us is you.
+- Now let's talk about the outside `threat`.
+- If this is another type of `threat`, i don't...
+- You and i just living will always be a `threat`.
+- This `threat` this... thing that took your son...
+- Why does everything you say sound like a `threat`?
+- The biggest `threat` they face is from the reapers.
+- Once you give him a soul, he stops being a `threat`.
+- Isaac, a null, these people aren't a `threat` to him.
+- The `threat` of counter invasion no longer exists?
+- Ok, we make the `threat` from up here on the lasercom.
+- What do you say we call in a bomb `threat` for houston.
+- No, no, it's not a `threat`, i've explained all of that.
+- I don't feel it's as big a `threat` as you think it is...
+- You can survive anything but steel against your `threat`.
+- I just don't think they pose a `threat` to us, that's all.
+- This could indicate a new romulan `threat` in this sector.
+- I don't need bullets, monster... but i gotta be a `threat`.
+- Because she was a `threat` to everything and everyone i know.
+- The `threat` from the irish is greatly exaggerated, i'm sure.
+- I need to know what he has and how to neutralize any `threat`.
+- Now, since you're clearly only a `threat` to yourself killing.
+- Right now, <i>your</i> presence is creating more of a `threat`.
+- It's a territorial `threat` display, do not run or he'll charge.
+- Of his making the `threat` of nuc1ear terrorism has been quelled.
+- Of a `threat` to human survival, grief shows itself in funny ways.
+- Of a `threat` to human survival, you got the same treatment i did.
+- To him, adam is just a `threat` to the terror he holds over others.
+- You will not be unaware of the `threat` now posed by republicanism.
+- In fact, now that i'm no longer a `threat`, we're very good friends.
+- Train hard and remember, sir, we shouldn't take this `threat` lightly.
+- You know how certain circles would find it--the knowledge--a `threat`.
+- There's a `threat` outside these walls-- the ship has been compromised.
+- You don't think the `threat` of rape would be used to leverage the men?
+- I hope you noticed how coolly i behaved under the `threat` of discovery.
+- You've become a significant `threat` to the national security structure.
+- When henry makes a `threat` like that, people tend to take him seriously.
+- You present an ongoing `threat`, both to this convent and to yourself.
+- But the `threat` was called in for the federal building across the street.
+- Then it saw all people as a `threat`, not just the ones on the other side.
+- Sometimes we can't tell which technologies pose the `threat` of a monopoly.
+- That the `threat` which we perceived was not of his wish, or of his making.
+- "`threat` to assassinate president kennedy in dallas, texas, november 22-23.
+- President clear moon and the regional fbi feel he made good on that `threat`.
+- I'm assuming the cave-in begins with the `threat` of litigation from big tobacco.
+- The soldier villain who fights the hero with his hands, and then there's the real `threat`.
+                 

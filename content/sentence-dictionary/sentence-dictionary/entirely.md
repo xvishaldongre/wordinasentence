@@ -1,0 +1,68 @@
+---
+title: "entirely in a sentence | entirely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "entirely"
+---
+- It's `entirely` mutual.
+- It's up to you `entirely`.
+- [pained grunt] `entirely`.
+- It is `entirely` up to you.
+- I've `entirely` lost count.
+- That's not `entirely` true.
+- That's not `entirely` true.
+- It's not `entirely` my fault.
+- We've lost our way `entirely`.
+- It's not `entirely` your fault.
+- `Entirely` too much like myself.
+- `Entirely` unnecessary, captain.
+- The report is `entirely` untrue.
+- That's `entirely` understandable.
+- That's not `entirely` true, will.
+- But it's new, it's `entirely` new.
+- They'll ease up, almost `entirely`.
+- Well, that's `entirely` your fault.
+- I'm not `entirely` certain, captain.
+- It was `entirely` simone's decision.
+- They have another purpose `entirely`.
+- He considers himself `entirely` reman.
+- I'm here on another matter `entirely`.
+- I'm not `entirely` an idiot, you know.
+- In his case, it's `entirely` emotional.
+- Have you thought this `entirely` through?
+- That i `entirely` prefer them to people."
+- Even then i didn't believe you `entirely`.
+- Well, that's not `entirely` true, barnett.
+- Completely, `entirely`, suffocatingly safe.
+- I think you'd be `entirely` justified, sir.
+- You cut me out of episode two `entirely`!..
+- Energy of a type `entirely` un- known to me.
+- The selection process was `entirely` random.
+- I don't think that's `entirely` true, grover.
+- To learn that we're not `entirely` safe here.
+- You couldn't have been `entirely` unprepared.
+- You're moving in `entirely` different worlds.
+- Because distilling was almost `entirely` stopped.
+- Australia is `entirely` peopled with criminals.
+- They're spending `entirely` too much time together.
+- Someone from another world--so `entirely` different.
+- In theory, climate engineering is `entirely` feasible.
+- Rose, you are just `entirely` too uncritical of people.
+- You're not `entirely` cool with what happened last night.
+- Doesn't seem `entirely` safe, leaving your car keys around?
+- But then i realized it was something `entirely` different...
+- Looks like your hugo hasn't been `entirely` honest with you.
+- Captain renault, are you `entirely` certain which side you're on?
+- It's an `entirely` different pathway and we still got a ways to go.
+- [enola] you do know you've `entirely` ruined phase three of my plan?
+- Miss sherman, he's asking you back, but it's `entirely` your choice.
+- I just have a hunch... well, it isn't `entirely` a hunch... our minds?
+- Because you didn't realize russians use an `entirely` different alphabet.
+- It's an `entirely` different kind of flying...<u>all</u> <u>together</u>!!!
+- It's not a question of supposed to, it's an `entirely` personal decision...
+- Devoted `entirely` to the interests of all the john does all over the country.
+- That's not `entirely` -- you're breaking up with me because i'm too -- blonde?
+- I gather that your efforts on the official level were not `entirely` successful.
+- I have to tell you, mozart is not `entirely` to be trusted alone with young ladies.
+- It's almost...almost, uhhh, `entirely` wholly interdependent, if you know what i mean.
+                 

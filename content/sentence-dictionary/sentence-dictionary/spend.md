@@ -1,0 +1,107 @@
+---
+title: "spend in a sentence | spend example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "spend"
+---
+- Did i `spend` too much?
+- `Spend` the night there.
+- So `spend` the night here.
+- ...maybe `spend` the night?
+- `Spend` as much as you want.
+- I'll `spend` it how i choose.
+- Don't `spend` any money on me.
+- Then let's `spend` some money.
+- Where'd you `spend` last night?
+- How much do you wish to `spend`?
+- I hear you got money to `spend`.
+- They `spend` two days in chains.
+- Don't `spend` all day down there.
+- How did you `spend` the night?...
+- I have a lot of money to `spend`.
+- I `spend` a lot of time on e-bay.
+- You `spend` the afternoon in bed?
+- `Spend` time with your family.
+- Don't `spend` it all in one place.
+- I'm going to `spend` <u>money</u>.
+- `Spend` a year in the peace corps.
+- Tom, let's `spend` the night here.
+- Well, how do you `spend` your day?
+- You `spend` time with your family?
+- You `spend` too much time up here.
+- I get to `spend` some time... here.
+- `Spend` it on your trip to katmandu.
+- He'll `spend` the money to make sure.
+- How i `spend` my every solitary hour?
+- `Spend` the rest of my life spending.
+- We can do it, `spend` it on the move.
+- You can afford to `spend` some money.
+- Don't `spend` too much time searching.
+- Every zloty i earn we `spend` on food!
+- Marge and i `spend` hours speculating.
+- I `spend` three hours a day practicing.
+- I wish i could `spend` more time at it.
+- `Spend` some time trying to be parents.
+- We're gonna `spend` a lot of time here.
+- You didn't `spend` it <u>all</u> didja?
+- I hope we can `spend` time together.
+- I have to `spend` every winter in kauai.
+- I think i should `spend` the night here.
+- I want you to `spend` some time with me.
+- `Spend` the mili- tary budgetfor peace!'
+- We `spend` looking at our stupid phones.
+- The spot we picked to `spend` the winter.
+- Bruce, i want to `spend` my life with you.
+- He ever... `spend` the night, whatsisname?
+- We still gonna `spend` christmas together?
+- You can't `spend` two years in vietnam ...
+- You didn't have to `spend` your money -- ?
+- Not the best way to `spend` your first day.
+- `Spend` my days beheading country bumpkins?
+- ...who `spend` all of his money on his face?
+- Would you have me `spend` my life all alone?
+- All right- you'll `spend` your nights inside.
+- He is supposed to `spend` some time with you.
+- Hey, i don't want `spend` the night out here!
+- After getting to `spend` the night with robin?
+- I'd like to `spend` a night with you in a bed.
+- Because every dollar that we `spend` is a vote.
+- I `spend` a lot of money to keep the cops cool.
+- I think that we should `spend` some time apart.
+- `Spend` a little time with our target audience.
+- That we could `spend` christmas somewhere else?
+- What better way could i `spend` it than on you?
+- Do me a favor, `spend` your night on oxygen.
+- `Spend` it on drugs and i'll pull your hair out.
+- I don't `spend` much time looking out the window.
+- Hey, i've got it, i may as well `spend` it, right?
+- I suggest you `spend` some hours before the glass.
+- Maybe he just needed a place to `spend` the night?
+- Maybe that's why we `spend` so much time together.
+- They're trying to make me `spend` the summer here.
+- And the more time i `spend` here, what should i do?
+- Why's he `spend` all his time chasing after me?
+- Baby, i'm going to `spend` the morning at the mall.
+- It was just a real fine way to `spend` my birthday.
+- We can't `spend` your life chasing after fantasies.
+- Why `spend` your life making someone else's dreams?
+- How much time do they get to `spend` with their dad?
+- It's just an excuse for us to `spend` time with you.
+- Part of my reward is that i be around to `spend` it.
+- Then you must `spend` your life answering questions.
+- You can't begin to `spend` all the money you've got.
+- You were sent here to make money, not to `spend` it.
+- You... you wouldn't want to `spend` the day with me?
+- Now that's no way to `spend` your hard- earned money!
+- We'll `spend` an hour with "nymphos without pants"...
+- We'll `spend` the rest of our lives trying to forget.
+- Your parents `spend` a lot of money to send you here.
+- How do you `spend` six figures in less than six hours?
+- I `spend` most of my waking hours dwelling on my lies.
+- They'd rather `spend` our lives than risk their ships.
+- You `spend` all your time just learning stuff, huh?
+- But i don't want to `spend` the next ten years in jail.
+- The commission don't decide how i `spend` my honeymoon.
+- You hoped to `spend` the rest of your life with him?
+- It's been nice of you to `spend` this much time with me.
+                 

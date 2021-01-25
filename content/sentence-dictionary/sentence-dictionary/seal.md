@@ -1,0 +1,60 @@
+---
+title: "seal in a sentence | seal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "seal"
+---
+- `Seal` everything now!
+- We have a hard `seal`.
+- `Seal` that tunnel now!
+- They're gonna `seal` it.
+- We shall `seal` our vow.
+- `Seal` off the 50th floor!
+- `Seal` them all, every one!
+- Finn: `seal` any openings.
+- We must have blown a `seal`.
+- Elsa, don't cross the `seal`.
+- They `seal` off all the cells.
+- We need to `seal` the corridor.
+- That would `seal` the system off.
+- We'll `seal` your promise with...
+- Hard `seal` lockdown in t-minus...
+- Navy `seal` turned terrorist chef.
+- ...we're gonna `seal` that tunnel!
+- So we're gonna `seal` the place up.
+- Ngabo did not have the state `seal`.
+- Airborne ranger, maybe a navy `seal`.
+- That's the second containment `seal`.
+- Major, we've gotta `seal` that tunnel!
+- [jaha's voice] confirm the hard `seal`.
+- Horace'll perform like a trained `seal`.
+- No, i had to `seal` off a whole section.
+- `Seal` the deal with a hillbilly handshake.
+- `Seal` the doors, begin the launch protocol.
+- You've reached the first containment `seal`.
+- Could you `seal` it over with hot pitch, clive?
+- Octavia: hey, spacewalker, and `seal` the door.
+- Guess who they hired to `seal` up the place?
+- We `seal` juvenile records until they're deceased.
+- Worf, take your men and `seal` off main engineering.
+- I'll meet you behind the `seal` tank in half an hour.
+- She was something they called a navy `seal`, okay, mom.
+- Hard `seal` lockdown in t-minus 30 minutes and counting.
+- `Seal` off that entire deck with emergency force fields.
+- If you're watching this, kiddo... `seal` the whole floor.
+- Mr. hoover himself pinned the `seal` of honor right here!
+- To `seal` off her trade with europe, what has it cost you?
+- I didn't know they taught thoracic surgery in `seal` training.
+- If i can do that to a navy `seal`, what's gonna happen to you?
+- No hair tonics, no cologne, `seal` all our food in plastic bags.
+- Could have won him a fraternity paddle with a white house `seal`.
+- Would you blow the `seal` on the emergency hatch so i can come in?
+- Been crawling around like a `seal` out here... couldn't be possible.
+- I don't care if you've got the good housekeeping `seal` of approval...
+- If you're not out of there soon, i have got to `seal` the... forty-seven.
+- We'd better `seal` off the lower maintenance level; at least trap it there.
+- The first thing we do is put a remote sentry in the tunnel and `seal` that door.
+- Why can't we get inside the right hull, `seal` up the doors and blow the walkways?
+- See the cartouche there, it's the official royal `seal` of seti the first, i'm sure of it.
+- He said you were a navy `seal` and a decorated hero she gave me an hour to get you all out.
+                 

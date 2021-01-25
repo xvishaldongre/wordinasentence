@@ -1,0 +1,107 @@
+---
+title: "started in a sentence | started example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "started"
+---
+- Get the car `started`.
+- It's hardly `started`.
+- `Started` an oil fire.
+- Well you `started` it.
+- Beth `started` talking.
+- Blockhead `started` it!
+- Don't get me `started`.
+- Ever since i `started`.
+- He won't get `started`!
+- It's already `started`.
+- I've just `started` it.
+- Just getting `started`.
+- Momma `started` crying.
+- She `started` laughing.
+- `Started` this morning.
+- _ getting him `started`.
+- How'd you get `started`?
+- I have to get `started`.
+- Ok. let's get `started`.
+- Shit, we just `started`.
+- <u>who</u> `started` it?
+- You mean it's `started`?
+- You `started` what time?
+- Finish what we `started`?
+- I `started` slow, though.
+- Look, you `started` this.
+- `Started` in kansas city.
+- Then let's get `started`.
+- We `started` without you.
+- When the party `started`.
+- Finish what you `started`.
+- I `started` seeing things.
+- I `started` to feel happy.
+- It `started` in this room.
+- We'd better get `started`.
+- We `started` this, george.
+- Before he `started` to run.
+- Haven't you even `started`?
+- Have you even `started` it?
+- He just `started` shooting!
+- I'm just getting `started`.
+- I think i `started` a fire.
+- It `started` two years ago.
+- It `started` with gibarian.
+- It was `started` by an a.i.
+- So we better get `started`.
+- This is where it `started`.
+- He `started` carrying a gun.
+- Sandra `started` without us.
+- You `started` la resistance?
+- Anxious to get `started`.
+- And then we'll get `started`.
+- Caesar `started` managing it.
+- Finish what my son `started`.
+- If you want to get `started`.
+- I guess we can get `started`.
+- I `started` a fight with him.
+- Let's get this day `started`.
+- Maybe he `started` taking it.
+- Nobody knew who `started` it.
+- Ok. well let's get `started`.
+- She `started` the extraction.
+- Then he `started` hitting me.
+- When he `started` seeing you.
+- But... how do i get `started`?
+- Get that helicopter `started`.
+- He `started` it fall semester.
+- How do you think it `started`?
+- It `started` when i got upset.
+- She `started` the whole thing.
+- Tell me you have it `started`.
+- The fire `started` down there.
+- We're back where we `started`.
+- We wouldn't have `started` it.
+- Don't get me `started` on that.
+- Fine, then let's get `started`.
+- I guess it `started` back home.
+- I'll get `started` on number 5.
+- Let's finish what we `started`.
+- ... so i `started` tailing him.
+- Until they all `started` dying.
+- Was, uh, `started` in the '50s.
+- We `started` over, you can too.
+- We were just getting `started`.
+- A <u>man</u> `started` the fire.
+- Has raven `started` her descent?
+- I even `started` ushering there.
+- I haven't `started` till monday.
+- I just `started` to feel guilty.
+- Maybe it `started` out that way.
+- You're the one who `started` it.
+- He `started` making his whiskies.
+- I `started` talkin' all honestly.
+- I `started` them golden warriors.
+- I think it `started` in the wind.
+- I wanna finish what we `started`.
+- Might even have a fire `started`.
+- Shit, i `started` to get worried.
+- So i `started` going to a shrink.
+- When can you and i get `started`?
+                 

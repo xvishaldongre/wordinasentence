@@ -1,0 +1,107 @@
+---
+title: "ball in a sentence | ball example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ball"
+---
+- Chair, cup and `ball`.
+- I used to play `ball`.
+- Lemme see your `ball`.
+- Well, a `ball` player.
+- You like `ball` games?
+- I can't find my `ball`.
+- I said pass the `ball`!
+- The `ball`... continue.
+- With a wrecking `ball`.
+- Fuck you, grease-`ball`!
+- He wouldn't play `ball`.
+- I'll play `ball` with ye.
+- Concentrate on the `ball`.
+- Gimme the god damn `ball`!
+- I was just playing `ball`.
+- My `ball`, i lost my `ball`.
+- Picture '`ball` of fire.'"
+- She will be at the `ball`.
+- Ya-hoo, let's'play `ball`!
+- Come on, let's play `ball`!
+- Joshugan is got the `ball`.
+- She hears the space `ball`.
+- The eight `ball` challenge?
+- Well, you'll have a `ball`.
+- I am preparing for a `ball`!
+- Koyomi, pass her the `ball`!
+- So why'd you give up `ball`?
+- That's the red `ball` alarm.
+- Where'd you get this `ball`?
+- `Ball`'s in your court, hunt.
+- Cougar, you're on the `ball`.
+- Or a muthafucking air `ball`.
+- So, he's playing hard `ball`.
+- So, how's pro-`ball`, europe?
+- Take your `ball` and get out.
+- Too busy playin' `ball`, huh?
+- Where does the `ball` bounce?
+- You only brought one `ball`?!
+- Have a `ball`, it's his money.
+- Just throw me the `ball`, diz.
+- See ya around the `ball` park.
+- Space `ball`, 2 million and 2.
+- I'm gettin' the `ball` rollin'.
+- I never saw him playing `ball`.
+- Now, are you gonna play `ball`?
+- We've got powder but no `ball`!
+- You learn to follow the `ball`.
+- Half hour till the `ball` drops.
+- He was where the `ball` bounced.
+- I usta be deadly at half-`ball`.
+- What's his favorite `ball` team?
+- You know what a mixer `ball` is?
+- Breeze, give him his `ball` back!
+- I don't know which `ball`'s mine.
+- I'm a fucking `ball`-buster i am.
+- Just don't drop the `ball`, okay?
+- Just keep your eye on the `ball`.
+- Mm hm... two `ball`, side pocket.
+- Rick, hit the `ball` easier, son.
+- The `ball` is in richter's court.
+- We sound like us having a `ball`.
+- They go to a `ball` game together.
+- A bunch of `ball`-washing bastards!
+- Ah, come on, lemme see your `ball`.
+- `Ball`'s in your court, mr. mccloy.
+- Three pennies and a `ball` of lint.
+- Did you want to play `ball` with us?
+- Don't look at the `ball`, look at me.
+- Keep your eyes on the `ball`, mister.
+- Why the hell am i back in "a" `ball`?
+- Get a higher arc on the `ball`, jamie.
+- Are we going to get the `ball` rolling?
+- At a `ball`, everyone watches the king!
+- Never gonna throw a `ball` in the pros.
+- You hit that `ball` pretty good, walsh.
+- You're such a `ball`-breaker sometimes.
+- It's a fucking soccer `ball`, you idiot.
+- Quarterback case diggs takes the `ball`.
+- What does it say in your crystal `ball`?
+- I close the damn store... for one `ball`!
+- This is just a whole 'nother `ball` game!
+- Time to get my bowling `ball` re drilled.
+- Why don't we watch the `ball` game later?
+- You'll be able to watch the `ball` games.
+- Didn't buy that mirror `ball` for nothin'.
+- Haven't seen a `ball` like that since '69.
+- This guy's a first `ball` fastball hitter.
+- You show them crawfords how to play `ball`.
+- He was watching a `ball` game on television.
+- I said a masked `ball`, not a costume party.
+- It's gonna leave a scuff mark on the `ball`.
+- This is a whole different `ball` game, erin.
+- Here she is, cinderella back from the `ball`.
+- Money, jewels, a very big `ball` of string...
+- Two plastic `ball` pens - one black, one red.
+- Find the photo of ivy after the flower `ball`.
+- Where's the funky `ball` with the green light?
+- You hit the `ball` pretty good for a fourteen.
+- George `ball`'s got a conference room at state.
+- Maybe i should have left the `ball` in the car.
+                 

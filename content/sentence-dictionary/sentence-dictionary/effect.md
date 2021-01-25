@@ -1,0 +1,81 @@
+---
+title: "effect in a sentence | effect example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "effect"
+---
+- Quantum zeno `effect`.
+- `Effect` revolution.
+- Was an `effect` of that.
+- For the artistic `effect`.
+- Or words to that `effect`.
+- I'll tell you the `effect`!
+- It's just a sound `effect`.
+- Side `effect` of the serum.
+- Greenhouse `effect` affects.
+- In `effect`, i'm already dead.
+- Cockroach protocol in `effect`.
+- How fast does it take `effect`?
+- Our princess has that `effect`.
+- How long will the `effect` last?
+- Radiation has no `effect` on us.
+- We could put that into `effect`!
+- Our vaccine may have no `effect`!
+- Emergency lockdown is in `effect`.
+- Flushing me with an audio `effect`.
+- So what did i have an `effect` on ?
+- Blockade goes into `effect` at dawn.
+- It's called the anniversary `effect`.
+- Its `effect` on the host has changed.
+- I have this `effect` on lots of women.
+- Prime protection protocol in `effect`.
+- Long enough for me to see the `effect`.
+- It'll start to take `effect` in 9 hours.
+- But you won't get that splatter `effect`.
+- Funny how i have that `effect` on people.
+- The kill order goes into `effect` at dawn.
+- I didn't think it would `effect` me so much.
+- The side `effect` of that medication come on!
+- Either way you still get the desired `effect`.
+- It probably wouldn't have any `effect` on him.
+- It's only principle is the butterfly `effect`.
+- The surprise `effect` is ninety percent of it.
+- What did your son <u>say</u> to that `effect`?
+- And the toxin from the seaweed had no `effect`.
+- Being a cop has such a warm `effect` on people.
+- But what about the `effect` of the other terms?
+- I read your paper on the quantum zeno `effect`.
+- It might `effect` the course of my entire life.
+- It's not going to `effect` any ongoing efforts.
+- How do we know it'll `effect` their biochemistry?
+- Then move not, while my prayer's `effect` i take.
+- Class one quarantine protocols are now in `effect`.
+- Does anyone know what the quantum zeno `effect` is?
+- Exactly what changes are you trying to `effect`?
+- You are saying, in `effect`, that this is a forgery?
+- But from the inside now i can actually `effect` change.
+- Then if you would please sign a paper to that `effect`.
+- No, i just like the `effect` a tape recorder has on you.
+- What `effect` do you think this would have on an infant?
+- These things are not a matter of cause and `effect`, neo.
+- First ivy had an intoxicating `effect` on both dick and me.
+- Got some kind of snowball `effect` goin' here or somethin'.
+- Well, the cumulative `effect` is not good, let me tell you.
+- I know what i saw and it wasn't a fucking "optical `effect`!"
+- We'll keep roadblocks and curfew in `effect` through the night.
+- Absolutely no `effect` upon my... americans can be fat and poor.
+- He developed his own theory that he called the calisto `effect`.
+- It's a side `effect` of jumping to a slower time-dilated planet.
+- What you need to worry about is countering the mountain `effect`.
+- I'm studying the `effect` of negative reinforcement on esp ability.
+- If they were in suspended animation, wouldn't that `effect` the scan?
+- The shouting is a temporary side- `effect` of the unfreezing process.
+- The anomaly has a similar `effect` on the plants here, hello, simpsons.
+- The work i was supposed to do... might have had some positive `effect`.
+- I didn't realize the rules went into `effect` before we entered safeway.
+- Don't for one minute think that you had any `effect` whatsoever on my panties.
+- However, for you, there is a more perilous `effect` to the kentucky gag order...
+- I was thinking, "nancy wheeler, the general anesthetic will take `effect` shortly.
+- Maybe requiring us to come together in this way was, in `effect`, part of the plan.
+- What you saw could have been an optical `effect` caused by gravitational distortion.
+                 

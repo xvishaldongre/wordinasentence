@@ -1,0 +1,61 @@
+---
+title: "clown in a sentence | clown example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "clown"
+---
+- Who's the `clown` now?
+- Everybody is a `clown`!
+- So who is this `clown`?
+- Get this `clown` trained.
+- I'm an honorable `clown`?
+- I'm not a circus `clown`.
+- Cornball `clown` pictures?
+- Yes, he is like a `clown`.
+- Hmm, that poor `clown` man.
+- Of the krusty the `clown` show.
+- The `clown`'s house- like that.
+- Where did you get this `clown`?
+- Who's the fucking `clown` now?!
+- Where did you find this `clown`?
+- Grown man dressed like a `clown`.
+- Where'd you get the `clown` suit?
+- Those `clown` pictures on the walls!
+- Neuvich, the `clown` of the crusades.
+- Well, the `clown` is always harmless.
+- Look at you, you-you're such a `clown`.
+- For the first time, i was a real `clown`.
+- I can `clown` the pants off these losers.
+- He was a `clown`, if it's any consolation.
+- I'm just some big `clown` to you, ain't i?
+- A `clown` with a bird and a rising death toll.
+- Still wasting your time with this `clown`, eh?
+- You look like a `clown` in that stupid jacket.
+- Kid, i'm a tv `clown` to so many wishing wells.
+- You're a `clown` who kills--but you're a `clown`.
+- Evolution has made you a `clown`-- with a cigar.
+- Is there room on that train for one more `clown`?
+- The greatest tv `clown` i've ever had the honor to know.
+- This `clown` almost blew mission security on the street.
+- You've been shaking your ass like an unemployed `clown`.
+- Wait for that `clown` to fall through the skylight on me?
+- And if we're gonna do this, you're a, you're a tv `clown`.
+- I'm sure there's a dozen teachers better than this `clown`.
+- "the orb becomes like a star, but i'm a circus `clown` now.
+- `Clown` fleas, high wire fleas, fleas on parade... carousel.
+- Marge spends all her time taking care of that needy `clown`.
+- Those cia boys couldn't find a `clown` in a field of cactus.
+- You dead-ass, `clown`-faced fuck, of course it fucking hurts!
+- When you ride cross-country in a `clown` car, you learn a lot.
+- Only thing you'll get from that `clown` is a faster way to die.
+- For what it's worth now, harold ryan, the `clown`, gives his sacred word.
+- Look, you little `clown`, do you know how many people i've hired for you?
+- Get your stuff together, get back in that `clown` car and get out of here.
+- It's saying, "obsolete, obsolete, obsolete," and, "`clown`, `clown`, `clown`."
+- "i love krusty because i'm a class `clown` we can change things peacefully.
+- Gale shoulda aired that bit first, she's the one who found this `clown` laplante!
+- You compare yourself to einstein; your colleagues compare you to bozo the `clown`.
+- I seem to remember a crabby old bastard in a crummy `clown` suit running the place.
+- That mind is now asking itself, cleverly and fairly, "is harold ryan really a `clown`?"
+- Well, bart, how does it feel to be trolled, memed, giffed, you sound like a... tv `clown`.
+                 

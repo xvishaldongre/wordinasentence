@@ -1,0 +1,107 @@
+---
+title: "back in a sentence | back example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "back"
+---
+- `Back` is in new york.
+- `Back` me up, heather.
+- `Back` to high school.
+- `Back` to the village.
+- `Back` to your places.
+- Be `back` in a minute.
+- Boy: they're `back`!
+- Bring it `back` alive.
+- Bryan, i'll be `back`.
+- But they'll be `back`.
+- Call me `back` in ten.
+- Can i see your `back`?
+- Can't she come `back`?
+- Can you get `back` ok?
+- Come `back` here, kid!
+- Come `back` here, you.
+- Come `back` ... jabez!
+- Come on... `back` off!
+- Come on `back` to bed.
+- Danny, come on `back`.
+- Do we throw it `back`?
+- Dude, get `back` here!
+- Everybody stay `back`.
+- Freezer in the `back`.
+- Get `back` here, rool!
+- Get right `back` here.
+- Give him `back` to me!
+- Give it `back` to him.
+- Give me `back` my hat!
+- Give me `back` my son!
+- Go `back` if you want.
+- Go `back` to bulgaria.
+- Hello, this is `back`.
+- Hope, get `back` here.
+- I am not going `back`.
+- I'd better get `back`.
+- I'd like to go `back`.
+- I have to come `back`.
+- "i have to go `back`."
+- I just hurt my `back`.
+- I'll bring you `back`.
+- I'll cover the `back`.
+- I'm getting it `back`.
+- I'm going `back` home.
+- I'm going `back` to...
+- I'm not coming `back`!
+- I'm not coming `back`.
+- I'm not coming `back`!
+- I'm taking you `back`.
+- I only saw his `back`.
+- I want my lamp `back`.
+- I want my life `back`!
+- I want my life `back`.
+- I want our boy `back`.
+- Kevin's coming `back`!
+- Learn to fight `back`.
+- Maybe he'll be `back`.
+- Now i want her `back`.
+- Now think `back` hard.
+- Okay, we're `back` in.
+- Only two steps `back`?
+- Put that stuff `back`!
+- Put the man `back` on.
+- Something `back` home?
+- Stand `back` everyone!
+- Take me `back`, craig.
+- Take the rover `back`.
+- The power's `back` up!
+- They're coming `back`!
+- They're coming `back`.
+- To get my life `back`.
+- Until you come `back`.
+- Way `back` there, man.
+- Welcome `back`, buddy.
+- We'll be right `back`.
+- We'll call you `back`.
+- We'll get madi `back`.
+- We're `back` in paris.
+- We're going `back` in.
+- What if i come `back`?
+- When'd you get `back`?
+- Who went `back` there?
+- Why'd you come `back`?
+- You brought me `back`.
+- You can't come `back`.
+- You don't come `back`.
+- You got it `back`, eh?
+- You have to go `back`.
+- You held `back` stern.
+- You're `back` with us.
+- All of you, get `back`!
+- I will come `back`.
+- Why are you `back`?
+- Are they coming `back`?
+- `Back` at the fishbowl?
+- `Back` away, `back` away.
+- "`back` in four weeks."
+- `Back` in through here.
+- `Back` it down, johnny!
+- `Back` then we did not.
+                 

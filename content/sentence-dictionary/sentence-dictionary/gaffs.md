@@ -1,0 +1,7 @@
+---
+title: "gaffs in a sentence | gaffs example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gaffs"
+---
+## Unfortunately, we have no example sentences for gaffs                 

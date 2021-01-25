@@ -1,0 +1,107 @@
+---
+title: "cure in a sentence | cure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cure"
+---
+- I'm eating its `cure`.
+- I'm sorry... a `cure`?
+- To complete my `cure`.
+- And this is the `cure`.
+- In finding us a `cure`.
+- Or a `cure` for cancer?
+- For your miracle `cure`?
+- I want you to `cure` me.
+- It could kill, not `cure`.
+- I think i can `cure` them.
+- Now we `cure` you with it.
+- That's your miracle `cure`?
+- How close are we to a `cure`?
+- It's just like it's a `cure`.
+- It's just like it's a `cure`.
+- I've never heard of a `cure`.
+- They can't `cure` everything.
+- They were going to `cure` me.
+- We go home and find a `cure`.
+- You said it would `cure` her.
+- One day they'll find a `cure`.
+- That means we have the `cure`.
+- The `cure`'s not working, tom.
+- I didn't know how to `cure` it.
+- If there's a `cure`, he has it.
+- Now when do i start the `cure`?
+- I didn't know how to `cure` her.
+- I thought they might `cure` her.
+- Mccreary knows about the `cure`.
+- You can also describe its `cure`.
+- If i die, the `cure` dies with me.
+- Clarke sent me here for the `cure`.
+- "the great `cure` for lycanthropy!"
+- After that, we `cure` everyone else.
+- They can `cure` anything these days.
+- A `cure` for aids, a `cure` for cancer?
+- Octavia will come back with a `cure`.
+- The `cure` before we get eaten alive.
+- There is no `cure`... let's find out.
+- They even `cure` nonsense, miss betsy.
+- My friend reed's working on a `cure`...
+- One day they'll find a `cure` for aids.
+- You wanted the `cure` all for yourself!
+- Like a sickness and its `cure` together.
+- To find a `cure` for you and the others.
+- To make sure the `cure` actually worked.
+- Utah is not exactly a `cure` for boredom.
+- I aim to `cure` ya of your wickedness.
+- Honestly... new doc's working on a `cure`.
+- And not how to find a `cure` for my people.
+- I can care for you, but i can't `cure` you.
+- The `cure` was nothing short of miraculous.
+- A little homeopathic `cure` for the willies.
+- Death is the only `cure` for people like me.
+- I'll help you find a `cure` when i get back.
+- We'll find a great doctor, he'll `cure` you.
+- All i know is, abby found a `cure`, let's go.
+- Diyoza didn't tell mccreary about the `cure`.
+- Honey, nobody's trying to `cure` you -- yeah.
+- But then, i start looking at him as the `cure`.
+- If i don't find a `cure` soon, are you kidding?
+- My friend reed's working on a `cure`...i think.
+- Apparently this doctor was unable to `cure` you.
+- But then i started looking at him as the `cure`.
+- Doctors that are people can't `cure` everything.
+- To `cure` one disease, or to `cure` every disease?
+- But it's a pity you haven't found the `cure` yet.
+- Nothing that a few mega-vitamins couldn't `cure`.
+- The only `cure` is to get down the mountain fast.
+- The only `cure` is to get down the mountain, fast.
+- My suspicion is that the only `cure` is true love."
+- So you can find a `cure` -- they'd name it after you?
+- You're trying to convince me to `cure` your illness .
+- You wanted the disease in order to peddle the `cure`.
+- That sounds like a symptom of madness; not its `cure`.
+- Before we kill her or `cure` her.. ..in the building...
+- I am making headway on a `cure`, - extra whipped cream.
+- If she still won't `cure` us... sherri, more fortissimo.
+- She's telling them about the `cure`, because i'm afraid.
+- In false hope we might be able to secretly find a `cure`.
+- Our people, i still can't believe you helped `cure` them.
+- The one in which you wrote about the `cure` for drinking.
+- When i discovered this ancient `cure` i knew who to go to.
+- It's the only way i'll be able to find a `cure` for myself.
+- So scientists can come back and study it and find a `cure`.
+- The irony is, i could probably `cure` every vampire but him.
+- You've been acting strange ever since i gave you the `cure`.
+- He's even found a `cure` for the early stages of the disease.
+- You guys trying to `cure` the headache by cutting off the head.
+- I been working with mice, y'know, trying to come up with a `cure`.
+- I'm still looking for a `cure`, why would i agree to an alliance - mom!
+- We get out of this alive, maybe i'll take that miracle `cure` of yours.
+- It's the very danger itself that makes the `cure` possible, mr. holland.
+- You thought he should be using it to `cure` cancer, not making millions.
+- I kill chimera at biocyte and he's sitting on a `cure` without a disease.
+- But in either case you've got less than nine hours to kill her or `cure` her.
+- Well, without a `cure` for the virus, we're nothing more than digestives anyway.
+- I don't know about this, man -- gonna try and od whistler on a retroviral `cure`.
+- God would not have given him such gifts if they were not meant for georgina's `cure`.
+- Whistler and i were working on a `cure` when -- who better to usher in the blood tide?
+                 

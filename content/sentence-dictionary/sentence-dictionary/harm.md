@@ -1,0 +1,105 @@
+---
+title: "harm in a sentence | harm example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "harm"
+---
+- I bring you no `harm`.
+- Keep them from `harm`.
+- No `harm` done, ma'am.
+- So where's the `harm`?
+- We mean you no `harm`.
+- Did he `harm` the girl?
+- It will not `harm` you.
+- Don't `harm` the vessel!
+- I won't `harm` anyone...
+- Nobody meant any `harm`.
+- What `harm` could it do?
+- I mean you no `harm`.
+- She can't do me no `harm`.
+- Who'd want to `harm` joey?
+- You didn't mean no `harm`.
+- He did no `harm` to anyone.
+- I said, i mean no `harm`...
+- I figured what's the `harm`.
+- No physical `harm` intended!
+- Probably he means no `harm`.
+- The child cannot `harm` you.
+- Gustus would never `harm` me.
+- It can't do you any `harm`...
+- Please, i mean you no `harm`.
+- Is send kids into `harm`'s way.
+- I can't explain it... no `harm`.
+- Please, rose, what's the `harm`?
+- We can't let her `harm` herself.
+- What would have been the `harm`?
+- Make sure no `harm` comes to you.
+- No `harm` will come to the child.
+- So i want to do him grave `harm`.
+- I don't think they mean us `harm`.
+- No one will dare `harm` you again.
+- There's no `harm` done, all right?
+- I never put myself in `harm`'s way.
+- No `harm` in your coming to see us.
+- So much for, "first, do no `harm`."
+- Come, there is no `harm` in a drink.
+- They could do more `harm` than good.
+- I sought only not to `harm` you, sir.
+- It does no `harm` and authors like it.
+- ...what has she done to `harm` you...?
+- And i will never let anyone `harm` you.
+- As long as i don't `harm` your friends?
+- I'm afraid some `harm` may come to her.
+- Take this... so nothing will `harm` you.
+- Do you think i would let them `harm` you?
+- He would have done more `harm` than good.
+- I'm concerned about `harm` to my patient.
+- Yes -- when their troubles can `harm` them.
+- I am an old man and can do no one any `harm`.
+- Some more make-up wouldn't do you any `harm`.
+- The `harm` in asking is that tom will say no.
+- Would'st you `harm` one who comes to aid you?
+- We put him away where he can do you no `harm`.
+- I guess we ended up doing more `harm` than good.
+- It can't `harm` you... you know i love the dark.
+- It you `harm` michael, i will let my anger loose.
+- It's just a book, no `harm` ever came from a book.
+- The son of iniquity be powerless to `harm` her.
+- He could actually do musical `harm` to the princess!
+- It wouldn't really do you any `harm` to skip a meal.
+- Carla jean... carla jean, i will not `harm` your man.
+- We do not wish to do `harm` to our brothers in uniform.
+- So... first off, i'm so sorry i put you in `harm`'s way.
+- It won't do any `harm`, though - to find out where he is.
+- No `harm` admitting i fell in love with the sound of you.
+- We think these russians want to do `harm` to our country.
+- But, as long as i govern the horseman, he cannot `harm` me.
+- I don't want either of us to come to any `harm` - please...
+- I may have done irreparable `harm` to my eyesight, and why?
+- I guess if you're spending time together, what's the `harm`?
+- I wouldn't want you to `harm` anybody -- or destroy anything.
+- Now, no `harm`'s come to you... and i aim to keep it that way.
+- Do you think they would `harm` an innocent man, for any reason?
+- Your husband had the opportunity to remove you from `harm`'s way.
+- But she doesn't mean any `harm`, she just wants to attract, attention.
+- I meant no `harm`, it was the only place where i could find cardboard.
+- But in such a deranged state he could `harm` himself, or perhaps others.
+- There's no one you can think of that would want to `harm` your daughter?
+- I see they're all signed in for the same role as me... well, no `harm` done.
+- So your buddies at starcourt, what `harm` can come from telling me your name?
+- You must break when the strain becomes too great, or you will `harm` yourself.
+- You don't have the stomach to `harm` her, but you've got the money to shut her up.
+- I don't suppose there would be any `harm` in my meeting your... patient, mr. treves.
+- Look, i'm only against the possibility of doing your daughter more `harm` than good.
+- The `harm` done to the music students who used the device �� it was not by accident.
+- They're all into that karma crap: `if i don't `harm` nobody, nobody harms me' stuff.
+- She's such a good-hearted thing, there isn't an ounce of `harm` or malice in her.
+- I'm afraid that no physical `harm` must come to him as long as he inhabits the vessel.
+- If an adversary demands parlay, you can do them no `harm` until the parlay is complete.
+- Of course, with election coming, that might do you a lot of `harm`, but just as you say.
+- But she doesn't mean any `harm` and it'll break the children's hearts, they all love her.
+- I can tell you that we're not in the military and that we intend no `harm` to the whales.
+- Between you and me, no one in the world could do musical `harm` to the princess elizabeth.
+- Nice little chappie that wouldn't `harm` a fly ... everybody picking on the little fellow.
+- Well... if the knight be already dead; what `harm` is there in... borrowing a thing or two?
+                 

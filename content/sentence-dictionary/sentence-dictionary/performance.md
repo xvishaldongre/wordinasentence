@@ -1,0 +1,62 @@
+---
+title: "performance in a sentence | performance example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "performance"
+---
+- A repeat `performance`.
+- I mean the `performance`.
+- This is no `performance`.
+- An eye -- for `performance`.
+- An understudy's `performance`.
+- I've seen every `performance`.
+- I'll come to the `performance`.
+- They were `performance` pieces.
+- It is time for the `performance`.
+- Excellent `performance`, my friend.
+- The `performance` is tomorrow night!
+- The `performance` is tomorrow night.
+- I'm doing my `performance` right now.
+- Your all set for the `performance`?
+- Out of nowhere - gives a `performance`!
+- Have you really seen every `performance`?
+- Just on superficial `performance` things.
+- You've seen the play every `performance`?
+- Hey, look-- nice `performance` back there.
+- It wasn't reading, it was a `performance`.
+- The men thoroughly enjoy the `performance`.
+- You'll give the `performance` of your life.
+- Have you forgotten there is a `performance`?
+- Individual `performance` is only part of it.
+- Is that what's affecting your `performance`?
+- But it's still miss channing's `performance`.
+- No, you gave a very convincing `performance`.
+- Dress rehearsal at four, `performance` at 8:30.
+- We're having everyone up after the `performance`.
+- What was your `performance` about this afternoon?
+- What we need is a space for real `performance` art.
+- I hoped the challenge would improve your `performance`.
+- I feel it will add more credibility to my `performance`.
+- One isolated pretty good `performance` by an understudy.
+- You couldn't possibly want me off tonight's `performance`..
+- Thank her for her superb `performance` as mrs. townsend.
+- I'd like anything miss channing played... every `performance`?
+- Last week at the `performance` of carmen i played a sour note.
+- You're bothered by your `performance` on the <u>kobayashi maru</u>.
+- All i ask is that you give me the `performance` what took you so long?
+- Besides; i am most impressed with your `performance` in this -- crises.
+- I hadn't done a study of how group fear affects individual `performance`.
+- I remember slumping on the bed, his `performance` had given me a bad jolt.
+- Apparently, the only `performance` that'll satisfy you is when i play dead.
+- So, if he needs it, i help mantini's `performance` a bit, give him an edge.
+- The playwright doesn't make the `performance` - and it doesn't just happen!
+- Try and get your boss to write a note about your `performance` on the job.
+- Once a `performance` is committed to film, the blood and bones are gone anyway.
+- See that if the `performance` is genuine, it doesn't matter if the actor is real.
+- Always the `performance` -- every day the `performance` -- time for the `performance`.
+- I am the only person capable of evaluating the `performance` of the gravity drive.
+- Pathological states can induce abnormal strength, accelerated motor `performance`.
+- She shows all the symptoms: the hyperactivity; the temper; her `performance` in math.
+- I'd like to talk with you about doing some `performance` poetry here....a weekly thing.
+- She wants to know if you're coming to her little coffeehouse `performance` on saturday.
+                 

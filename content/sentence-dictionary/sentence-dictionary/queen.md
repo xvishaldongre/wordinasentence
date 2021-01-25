@@ -1,0 +1,107 @@
+---
+title: "queen in a sentence | queen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "queen"
+---
+- Does the `queen` live?
+- The new `queen` lives.
+- I'm not a drag `queen`.
+- `Queen` of the rodents?
+- The `queen` forbids it.
+- The `queen` of england?
+- You will be my `queen`.
+- I mean, the red `queen`?
+- The ice `queen` is dead.
+- You look like a `queen`.
+- You were a drag `queen`.
+- I'm the `queen` of typos.
+- She's the scream `queen`.
+- You want a dairy `queen`?
+- Is it a king or a `queen`?
+- The fairy `queen` told me.
+- The `queen` has consented?
+- Blodreina, the red `queen`.
+- Doesn't she become `queen`?
+- `Queen` elizabeth is a man!
+- The `queen`'s not fighting.
+- This time as their `queen`.
+- It's the `queen`'s decision.
+- I was named for `queen` nia.
+- Not for the `queen` herself!
+- <u>mommy</u> is the `queen`!
+- I'd treat you like a `queen`.
+- I have spoken to the `queen`.
+- What about a `queen` to love?
+- When the `queen` commands it.
+- You're the `queen` of stroke!
+- Clarke of skaikru, my `queen`.
+- He would make her his `queen`.
+- Is that the `queen`'s request?
+- `Queen` nia moves against you.
+- Sheena, `queen` of the jungle.
+- Sir gahalt, answer the `queen`.
+- What i do, i do for my `queen`.
+- That's why they made me `queen`.
+- I have a message for `queen` nia.
+- I need me a short little `queen`.
+- `Queen` bavmorda transformed her.
+- Into the hands of the ice `queen`.
+- The old `queen` did it on purpose.
+- Don't waste time with your `queen`.
+- One more step and the `queen` dies.
+- Take this `queen` to meet her fate.
+- Their `queen` wants clarke's power.
+- She was a `queen` around the casino.
+- Sorsha, `queen` bavmorda's daughter.
+- Why are you dressed like a `queen`!?
+- I came down at the `queen`'s request.
+- Or your `queen`, fight for your clan.
+- `Queen` nia of azgeda, don't look up.
+- You could have won with your `queen`.
+- You ever see `queen` elizabeth sleep?
+- Listen, `queen` collie, i have a code.
+- Shut up, goodies from the ice `queen`.
+- The ice `queen` doesn't make mistakes.
+- Then you take out the enemy's `queen`.
+- She was the `queen` of the netherlands.
+- The exact same fate as the ice `queen`.
+- The `queen` mother sucks cocks in hell!
+- Always ready to protect his `queen`.
+- Does this look like the "`queen` mary"??
+- You're talking to the prom `queen`, eva.
+- Laurustinus, and `queen` anne's lace.
+- `Queen` cherlindrea will know what to do.
+- You been talking about the `queen` again?
+- You so do not deserve to be prom `queen`.
+- Who would do anything for her `queen`, uh!
+- You know the `queen`'s riding tomorrow?
+- Do i look like some kind of gossip `queen`?
+- Harry, i said don't 'dress like a `queen`'!
+- `Queen` esther from the bible, or st. joan?
+- Remember when you were `queen` of the prom?
+- So, are you a... you're a drag `queen` now?
+- Whose `queen` believed she knew my secrets.
+- Will you defy your father and your `queen`?
+- I want to get passage booked on the `queen`.
+- You look like a prom `queen` when you smile.
+- You're becoming the `queen` of hot and cold.
+- And picture `queen` nia's face at the center.
+- The `queen` never lets them out of her sight.
+- Don't act as if i were the `queen` mother.
+- A strong and grateful ally in the ice `queen`.
+- I think she may try and kill your red `queen`.
+- Marge, this is `queen` chanté, my son is four.
+- O, then, i see `queen` mab hath been with you.
+- The good, little knight by his `queen`'s side.
+- Treat your woman like a `queen`, i always say.
+- The `queen` -- every which way, doesn't it?
+- With all that dough you'll live like a `queen`.
+- But your red `queen` doesn't seem like the type.
+- I suppose it all goes back to `queen` elizabeth.
+- Josie--you make a really beautiful prom `queen`.
+- "oh, then i see `queen` mab hath been with you!"
+- The `queen` wishes to publish an account of him.
+- The red `queen` will reign over where is my son?
+- The thing is not to move your `queen` too early.
+                 

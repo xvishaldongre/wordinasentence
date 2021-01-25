@@ -1,0 +1,51 @@
+---
+title: "Germans in a sentence | Germans example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Germans"
+---
+- The `germans` were here.
+- Yes, so did the `germans`.
+- Laughing is for `germans` only.
+- The `germans` can't match it?
+- We have to stop the `germans` now!
+- The `germans` know where dunbar is.
+- Brits, arabs, hungarians, `germans`.
+- Struggling with a pair of `germans`.
+- Cutting down the advancing `germans`.
+- The `germans` were all over this area.
+- You know how that impresses `germans`?
+- The `germans` wore gray, you wore blue.
+- British in india, `germans` with rwanda.
+- Scans the `germans` with his binoculars.
+- The `germans` are advancing on kharkhov.
+- The `germans` have outlawed miracles.
+- The `germans` are dropping men on bomb sites.
+- You do it like the `germans` in world war ii.
+- The `germans` will freeze to death, please god.
+- To the `germans`, it meant tiller of the earth.
+- The `germans` and the french are gearing up.
+- When the `germans` march out, i'll wear it again.
+- The british with india, the `germans` with rwanda.
+- I don't understand the `germans`' relationship with music.
+- To the `germans` that last will be just a minor annoyance.
+- Besides, every truce we make with the `germans` they break!
+- Although i believe that to be true of a number of `germans`.
+- So i ask you - why the hell did we give up on the `germans`?
+- But of course, that was the day the `germans` marched into paris.
+- The `germans` have two companies less than three miles from here.
+- Why would the `germans` invent a bullet that doesn't kill people?
+- You're only allowed to shoot at `germans`, that's one of the rules.
+- By burying it, and then reporting that the `germans` had captured it.
+- Oh, we `germans` must get used to all climates, from russia to the sahara.
+- The `germans`'ll be here pretty soon now, and they'll come looking for you.
+- The whole country's crawling with bandits and `germans` and god knows what.
+- After the `germans` win the war you'll make me the gauleiter of zinzinnati.
+- The `germans` will search high and low, i promise you, they'll never notice it.
+- The slavs have been fighting the `germans` and the russians for a thousand years.
+- Are you one of those people who cannot imagine the `germans` in their beloved paris?
+- We wander around, looking for him until the `germans` pick us off, one after another.
+- I met with falco, and the senators have agreed to call for a truce with the `germans`.
+- Honey, did you know that the albatross was captured by the `germans` during world war ii?
+- This is the question, emmi, to all `germans`: why did the jews need saving in this country?
+                 

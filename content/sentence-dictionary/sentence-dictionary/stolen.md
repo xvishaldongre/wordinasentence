@@ -1,0 +1,81 @@
+---
+title: "stolen in a sentence | stolen example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stolen"
+---
+- The case was `stolen`?
+- Our guns were `stolen`.
+- `Stolen` from the firm.
+- He hasn't `stolen` it yet.
+- The contract was `stolen`.
+- This is a `stolen` season.
+- My luggage's been `stolen`.
+- ...also, my rug was `stolen`.
+- And their guns were `stolen`.
+- It's probably `stolen` anyway.
+- I've `stolen` two cars before.
+- Panhandler of `stolen` dreams.
+- Have you ever `stolen` anything?
+- Possession of a `stolen` shovel.
+- 'thought those all got `stolen`.
+- You didn't ask what was `stolen`.
+- They have `stolen` state property.
+- We traffic in `stolen` technology.
+- Your wallet was `stolen` at a bar.
+- The camera was `stolen` anyway.
+- Everything you've `stolen` from us.
+- I was driving a `stolen` car-- how!
+- I mean if you knew it were `stolen`.
+- Seems he's `stolen` money from them.
+- The car was just reported `stolen`.
+- What else of mine have you `stolen`?
+- You fucking know it's been `stolen`!
+- Do you think i've `stolen`... my car?
+- What was it they claimed was `stolen`?
+- ...and incidentally, in a `stolen` car.
+- And their guns were `stolen` last night.
+- I always knew you had `stolen` the sword!
+- My house, my money, my truck -- `stolen`!
+- I thought all your equipment got `stolen`.
+- I don't know it was `stolen` until i got here.
+- There's no law against stealing `stolen` money.
+- ...charged with drunk driving with a `stolen` car.
+- Sounds like what's been `stolen` are your manners.
+- It's the kind of money nobody ever reports `stolen`.
+- `Stolen` phone cards and two-ways is what you sayin'.
+- You're trying to kidnap what i've rightfully `stolen`.
+- Because i let a... copy of a painting the get `stolen`?
+- Well, if something was `stolen`, i should know about it.
+- It appears, sir, that someone has `stolen` the batsignal.
+- My purse has been `stolen` -- the plans of war are in it.
+- I understand that, but i had my wallet `stolen` last night.
+- We don't need to get pulled over because of a `stolen` car.
+- You can cut the shit, asshole-- did you report it `stolen`?
+- Jane mckenna had a black book; when she died it was `stolen`.
+- They wouldn't have found me if you hadn't `stolen` the sword.
+- So you haven't got a contract to get `stolen` or so forth.
+- Mary has `stolen` our files and is sending them back to people.
+- Probably a mixture of gases, no doubt `stolen` from the army ...
+- You could've bought a dozen farms with the money we've `stolen`.
+- My opinion, terrorists... what's the scoop on that `stolen` unit?
+- Thinks he's some player cuz he hustles dope and `stolen` hubcaps.
+- Missoula's reporting the refrigerator truck as a `stolen` vehicle.
+- You mean magical like the rock that was `stolen` from that village?
+- Didn't wanna lose more toys, you shouldn't have `stolen` from nancy.
+- If <u>you</u> don't have a problem with me reporting this gun `stolen`.
+- I heard some girl got her ass whooped and jacket `stolen` earlier today.
+- Well, certainly that's a possibility, dude-- it's been `stolen`, walter!
+- Eight bodies have been `stolen` in new york within the last eighteen months.
+- This problem with diego, the `stolen` car, the jail, is very silly business.
+- We got a guy who swears his car was `stolen` by a suspect identical to doucet.
+- Did you catch him trying to steal something, or find he had `stolen` something?
+- An ogre named blackheart has killed the last stag unicorn and `stolen` his horn.
+- They ordered an autopsy and discovered her body had been `stolen` from the morgue.
+- `Stolen` switch car, they leave it running at the curb, looks parked from a distance.
+- [beep] our guns were `stolen`, nearly 50 of them, - yeah, we just have to shut it again.
+- She must have `stolen` his keys, altered the signal- that's no batlight, it's a birdcall.
+- Half the punters who come in are using `stolen` money, drug money, they haven't earned it.
+- I just thought that-- hey, idiot -- i've got `stolen` wheels and a `stolen` radio in the car.
+- Jack came out of a bank he just robbed in pasadena, couldn't get his `stolen` car to start.
+                 

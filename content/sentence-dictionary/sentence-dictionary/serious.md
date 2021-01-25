@@ -1,0 +1,107 @@
+---
+title: "serious in a sentence | serious example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "serious"
+---
+- Caesar, i'm `serious`.
+- I'm fucking `serious`.
+- I'm `serious`, clarke.
+- I'm totally `serious`!
+- No, i'm `serious` man.
+- No, no, i'm `serious`.
+- No, this is `serious`.
+- That's very `serious`.
+- That was so `serious`.
+- Very-- very `serious`?
+- Come on, i'm `serious`.
+- I mean, be `serious`...
+- I'm `serious`, bellamy.
+- I'm `serious`, frances.
+- I need to be `serious`.
+- It's nothing `serious`.
+- No i'm being `serious`!
+- No, it's not `serious`.
+- Says i'm too `serious`.
+- So am i. i'm `serious`.
+- This is `serious`, son.
+- This must be `serious`.
+- What are you `serious`?
+- You can't be `serious`!
+- You can't be `serious`.
+- You can't be `serious`?
+- You're being `serious`?
+- He's dead `serious`.
+- Are you being `serious`?
+- I'm semi-`serious` here.
+- Of course i'm `serious`.
+- They can't be `serious`.
+- This is `serious`, okay?
+- Are you really `serious`?
+- I'm completely `serious`.
+- I'm `serious` about this.
+- I'm `serious`, all right.
+- It's that `serious`, huh?
+- Jesus, they're `serious`.
+- Kevin, this is `serious`!
+- My god, you're `serious`.
+- Peter... is it `serious`?
+- Peter, this is `serious`.
+- When he got `serious`?
+- But be `serious`, darling.
+- Is that a `serious` offer?
+- This is getting `serious`.
+- Adele... are you `serious`?
+- We're pretty `serious`.
+- Claude, man, i'm `serious`.
+- I'm the `serious` one here.
+- It has `serious` potential.
+- Oh man, you're `serious`...
+- Ok. yeah but i'm `serious`.
+- That's how `serious` it is.
+- Vince is fuckin' `serious`!
+- Why can't you be `serious`?
+- Are you `serious` right now?
+- Are you `serious` with this?
+- Cal, you can't be `serious`!
+- How `serious` is the damage?
+- I'm being `serious` here....
+- I'm being `serious`, though.
+- I need someone -- `serious`.
+- It is `serious`, mrs. ramos.
+- It must be `serious`, swana.
+- Look, this is `serious` now.
+- Max, i'm `serious`, shut up!
+- So am i. i'm `serious` here.
+- These are `serious` charges.
+- They'll have `serious` guns.
+- This is some `serious` shit.
+- You think she was `serious`?
+- Andy, you can't be `serious`.
+- But, this could be `serious`.
+- Gee, that's very `serious`...
+- I'm `serious`... yeah, right.
+- This is `serious` shit, okay?
+- You are in `serious` trouble.
+- You're `serious`, aren't you?
+- I hope it's nothing `serious`.
+- Let's get `serious`... peachy.
+- Listen, i'm `serious`-- do ya?
+- Surely you can't be `serious`.
+- Think white and get `serious`.
+- I am a very `serious` gardener.
+- I guess it's getting `serious`.
+- I realized he wasn't `serious`.
+- I think you know i'm `serious`.
+- It's nothing `serious`, really.
+- `Serious` about gabriel, kiddo.
+- She could make `serious` money!
+- Come on, richard, i'm `serious`.
+- Oh, `serious` questions tonight.
+- You getting `serious` on me now?
+- Come on, guys, i'm-i'm `serious`.
+- He has to see `serious` i am now.
+- I'm `serious`, man, he's whacked.
+- I was `serious` before, you know.
+- Just how `serious` is it, doctor?
+                 

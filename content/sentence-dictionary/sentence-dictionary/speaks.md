@@ -1,0 +1,51 @@
+---
+title: "speaks in a sentence | speaks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "speaks"
+---
+- Inez `speaks` a little.
+- She `speaks` trig, too.
+- Who `speaks` that name!
+- [man `speaks`] _ hope...
+- He only `speaks` russian?
+- I don't think he `speaks`.
+- She still `speaks` of you.
+- The little piggie `speaks`.
+- This `speaks` of his return.
+- He always `speaks` the truth.
+- He `speaks` to us from there.
+- Now she `speaks` perfect english!
+- Jesus `speaks` to me in my dreams.
+- My father hardly `speaks` english.
+- The boy `speaks` english, you know.
+- Fuck you so `speaks` the court jester.
+- He `speaks`, but... it's all gibberish.
+- I don't even think he `speaks` english.
+- I think it `speaks` trans-historically.
+- Indra can say that she `speaks` for heda.
+- Sounds like you `speaks` from experience.
+- Well, it pretty much `speaks` for itself.
+- Your arm `speaks` louder than your tongue.
+- She `speaks`: o, speak again, bright angel!
+- When he `speaks`, he doesn't make any sense.
+- He `speaks` about himself in the third person?
+- It is a conduit through which the lord `speaks` to us.
+- This one in particular `speaks` to me, do you know?
+- He `speaks` english, please tell me you heard all that.
+- When he `speaks`, i feel like he's speaking only to me.
+- [octavia `speaks` trigedasleng] i will irradiate level 5.
+- [man `speaks` trigedasleng] seconds before i was going to.
+- This grail tablet `speaks` of deserts and mountains and canyons.
+- Some high class gold digger who `speaks` french better than i do?
+- Maybe i should work on that girl joyce, she `speaks` the language.
+- Well, i'm sure that `speaks` very well of you and for your parents.
+- But he never writes, `speaks`, or does any propaganda for the russians.
+- I thought it might be more effective to find someone who `speaks` zulu.
+- Ask him why your name hasn't been in "muhammad `speaks`" in over a year?
+- Isn't there someone in indiana who `speaks` russian that... do i know you?
+- The legend `speaks` of a master warrior who lives on the planet phaedos...
+- [`speaks` trigedasleng] your infected mechanic... she sounds like a muppet.
+- Because somehow, you're the closest person who `speaks` russian, hello, madi.
+- In a play, if more than one person `speaks` at the same time, it's just noise.
+                 

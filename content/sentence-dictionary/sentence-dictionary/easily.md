@@ -1,0 +1,74 @@
+---
+title: "easily in a sentence | easily example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "easily"
+---
+- I don't scare `easily`.
+- We'll make it `easily`.
+- Heirs tire `easily`.
+- I'm not `easily` shocked.
+- That's `easily` arranged.
+- I don't scare that `easily`.
+- Sure, i've done it `easily`.
+- You must get bored `easily`.
+- You're very `easily` amused.
+- A situation `easily` remedied.
+- That can `easily` be arranged.
+- I can handle this lot `easily`!
+- I can explain it pretty `easily`.
+- They're very `easily` influenced.
+- The illusion is `easily` explained.
+- `Easily` spoken... defend ourselves.
+- I told you i'm not `easily` shocked.
+- You said it popped out too `easily`.
+- But then you make friends so `easily`.
+- The probe would neutralize us `easily`.
+- You can't escape from me that `easily`.
+- Actually, i don't make friends `easily`.
+- Hey, are you gonna give up that `easily`?
+- Do we shrug those off, just that `easily`?
+- You can turn everything around so `easily`.
+- You think you can replace that so `easily`?
+- You're too `easily` impressed with yourself.
+- Some of the prisoners are `easily` disturbed.
+- There's `easily` a hundred-thousand in there.
+- It's amazing how `easily` the scalp comes off.
+- Who could've killed him just as `easily` as us.
+- Bonita, you shouldn't be discouraged so `easily`.
+- Just give me some time to let lila down `easily`.
+- Wish i could burn the calories off that `easily`.
+- It�s all too `easily` discredited, you understand.
+- It could just as `easily` have been me in that box.
+- It does not come off as `easily` as the young ones.
+- Probably couldn't move too `easily` on the surface.
+- Well, we montoyas have never taken defeat `easily`.
+- `Easily` they flow ... quick to join you in a fight.
+- Let's hope the null guards are more `easily` swayed.
+- She could blind me as `easily` as the night the day.
+- The guy's got all this `easily` negotiable property.
+- `Easily` said... the raven passed this way hours ago.
+- Anyway, i'm surprised alan got the policy so `easily`.
+- The killer could `easily` be female -- basic instinct.
+- That you were willing to come along so `easily`, i mean.
+- ♪ and if you could hold me tight ♪ i don't scare `easily`.
+- Not at all -- let me show you how `easily` it can be done.
+- This epidemic could `easily` spread to our base, dr. floyd.
+- We scientists are too `easily` ignored -- or misunderstood.
+- Your father said this could `easily` add a minute to my dive.
+- So someone `easily` could have come in the room and killed the...
+- Where culture and commerce blend together that much more `easily`.
+- It only looks pure because blood washes so `easily` from its blade.
+- I want you do deal with agnes as speedily and as `easily` as possible.
+- Louise thinks it will `easily` take another month to get ready for that.
+- Everything flows from that, and what doesn't... can be `easily` purchased.
+- Barring an unforeseen problem you should reach it `easily` on the last day.
+- First i couldn't feel it, but now i feel it `easily`, it's like a little acorn.
+- They have a compulsion to boast, these people... do you spook `easily`, starling?
+- I could `easily` arrange... you are quite right, treves, this is an exceptional case.
+- How does a man get to a place where he can say, 'throw those lives away,' so `easily`?
+- I could have `easily` assumed that you didn't want to because you were having an affair.
+- No, it's... it's nothing, it's... jeanne, you've been badly wounded... not so... `easily`.
+- Now there's a couple even remarking about your sign, and see how `easily` you forgot them?
+- You're not someone who lies very `easily`... so it's obvious when you do... at least to me.
+                 

@@ -1,0 +1,107 @@
+---
+title: "or in a sentence | or example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "or"
+---
+- Big piece `or` little?
+- Can you walk `or` not?
+- Cash `or` check, jazz?
+- Coffee `or` something?
+- Did he `or` didn't he?
+- Dreams `or` no dreams?
+- Evan... `or` maverick.
+- Fast and `or` furious.
+- Give `or` take a year.
+- He did `or` he didn't?
+- Is he cool `or` angry?
+- Is it just you `or`...
+- Is she `or` isn't she?
+- Is that good `or` bad?
+- Like larry `or` swede.
+- Madrid `or` barcelona?
+- Manual `or` automatic?
+- Max firepower `or`...?
+- Maybe 50 feet `or` so.
+- Meant lord `or` ruler.
+- Me `or` the bear trap?
+- No calls, in `or` out.
+- One year `or` one day?
+- `Or` am, i should say.
+- `Or` arrived with her.
+- `Or` a three-bagger...
+- `Or` be disintegrated.
+- `Or` could you change?
+- `Or` face destruction.
+- `Or` george jefferson.
+- `Or` get electrocuted.
+- `Or` get sick and die?
+- `Or` have a diet coke.
+- `Or` he never made it.
+- `Or` if he's moved on.
+- `Or` in dreams either.
+- ...`or` is he married?
+- `Or` is she in a coma?
+- `Or` is that okay now?
+- `Or` it'll never stop.
+- `Or` no coffee at all.
+- `Or` should i say dna?
+- `Or` some nice lesbos.
+- `Or` so my momma says.
+- `Or` strung seashells.
+- `Or` uninvited guests.
+- `Or` was it bryn mawr?
+- `Or` we could do that.
+- ..`or` whatever i did.
+- `Or` working an angle.
+- `Or` wouldn't, anyway.
+- `Or` would talk to me.
+- Plymouth `or` boodles.
+- P.m. a.m -- `or` p.m.?
+- Poet `or` philosopher?
+- Renault `or` yourself?
+- Rommel `or` something.
+- Roses `or` carnations.
+- Take it `or` leave it.
+- The sun `or` the fire!
+- They're hot `or` moms.
+- Thirty meters `or` so.
+- Three `or` four times.
+- Two `or` three nights.
+- We gonna run `or` not?
+- White, `or` deep pink.
+- With `or` without 'em.
+- You coming, `or` what?
+- You eat, `or` you die.
+- A dress `or` something.
+- A skirt `or` something.
+- A supply room `or` two?
+- Back up, `or` she dies.
+- Bad bulb `or` no power.
+- Business `or` personal?
+- Business `or` pleasure?
+- Can she see me, `or`...
+- Can you do it `or` not?
+- Get quiet `or` get out.
+- Him `or` the president.
+- Hit him `or` something.
+- Ibuprofen `or` aspirin?
+- In a day `or` two, yes.
+- In a play `or` musical.
+- In ten words `or` less?
+- Is that deep `or` what?
+- Is that good, `or` bad?
+- Like sonar, `or` radar.
+- Molly, truth `or` dare?
+- "more" `or` "all done"?
+- Not rude `or` anything.
+- Now shut up, `or` walk.
+- Only for pee `or` poop.
+- `Or` a cure for cancer?
+- `Or` a man's mentality.
+- `Or` am i being obtuse?
+- `Or` believe, i'll bet.
+- `Or` buckingham palace.
+- `Or` do you have a job?
+- `Or` do you want a guy?
+                 

@@ -1,0 +1,107 @@
+---
+title: "afford in a sentence | afford example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "afford"
+---
+- I can't `afford` that.
+- You can't `afford` it.
+- How can we `afford` it?
+- We can `afford` it now.
+- We can't `afford` that.
+- We can't `afford` this.
+- You can't `afford` one?
+- I just can't `afford` it.
+- You couldn't `afford` it.
+- I can't `afford` that.
+- It's all i could `afford`.
+- I can't `afford` no better.
+- Well, we can't `afford` it.
+- Because i can't `afford` it.
+- Can you `afford` this place?
+- I can `afford` it, you know.
+- Only if you can `afford` it.
+- We can't `afford` a new car.
+- When i can `afford` to lose.
+- More than you could `afford`.
+- We can't `afford` any of that.
+- We can't `afford` a stalemate.
+- You can't `afford` to be weak.
+- You couldn't `afford` a timex?
+- Can't `afford` to take chances.
+- I can't `afford` civility, sir.
+- I can't `afford` to be curious.
+- I can't `afford` to get caught.
+- We can't <u>`afford`</u> a war.
+- All right-so we can `afford` it.
+- I can't `afford` slack, brigman.
+- I can't `afford` to lose my job.
+- I can't `afford` to miss a game.
+- I don't think i can `afford` it.
+- We can't `afford` mercy, either.
+- We couldn't even `afford` worms.
+- But i can't `afford` it any more.
+- I don't think he can `afford` to.
+- I can't `afford` dirt in this town.
+- It is all his majesty can `afford`.
+- We can't `afford` to lose any more.
+- But my dad could never `afford` one.
+- Could `afford` a bracelet like that.
+- I can't `afford` to make exceptions.
+- We can't `afford` any more upheaval.
+- We can't `afford` to rank the joint.
+- We couldn't `afford` any more props.
+- He got a fee - what i could `afford`.
+- The company can't `afford` the power.
+- You can `afford` to spend some money.
+- I can't `afford` this place by myself.
+- I can't `afford` this stuff right now.
+- I can't `afford` to give her anything.
+- We really couldn't `afford` this trip.
+- At least he can `afford` a decent gift.
+- How long can i `afford` to stay closed?
+- I can't `afford` to film this nonsense!
+- I can't <u>`afford`</u> to settle down!
+- Only make bets i can't `afford` to lose.
+- We can't `afford` to have a fed onto us.
+- You can't `afford` to be seen anyplace.
+- We can't `afford` a babysitter every day.
+- You can't `afford` to leave that hanging.
+- We can't `afford` to let her find out.
+- Are you sure you can `afford` twenty-five?
+- They're expensive but you can `afford` it.
+- God, i can't even `afford` my <u>phone</u>.
+- Guys who can `afford` two hundred thousand.
+- I can't `afford` stuff like this right now.
+- Why do you think i can't `afford` a lawyer?
+- Can she `afford` a good one is the question.
+- Oh, my god, there's a place we can `afford`.
+- But i can't `afford` to start all over again.
+- It might `afford` you a great deal of relief.
+- I've told you: i can't `afford` to garage it.
+- We can't `afford` to expose our game too much.
+- I mean, if you can `afford` to lose some money.
+- No, we can't `afford` to lose that much oxygen.
+- I can't exactly `afford` that kind of equipment.
+- I knew there was a reason i could `afford` this.
+- Lowell, i can't `afford` -- ...to talk about it.
+- There's places -- we can't `afford` to be wrong!
+- You've just made a war that you cannot `afford`.
+- I can't `afford` to throw money away on a doctor.
+- Maybe that's all the iraqis could `afford`, okay?
+- What can you buy that you can't already `afford`?
+- I cannot `afford` the piano if you mean me to pay.
+- My woman can't `afford` it; my homey ain't got it.
+- Well, because we could no longer `afford` damn it.
+- Sheriff, i can't `afford` not to fish toni... sure.
+- We can't `afford` <u>any delays</u> on this project!
+- It will always `afford` me great pleasure to see you.
+- They can `afford` to waste all the time in the world.
+- Bill, after this deal, you'll be able to `afford` one.
+- I couldn't even `afford` to pay a lawyer to defend me.
+- You better `afford` your own brand of misery, charlie.
+- Equality's the one thing the bosses can't `afford`.
+- And i told you we couldn't `afford` to buy another one.
+- I can't `afford` not to be looked on as a reliable man.
+- If you don't - can you still `afford` to go to harvard?
+                 

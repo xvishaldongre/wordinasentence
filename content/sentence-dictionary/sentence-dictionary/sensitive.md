@@ -1,0 +1,67 @@
+---
+title: "sensitive in a sentence | sensitive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sensitive"
+---
+- He's a `sensitive` kid.
+- I'm way to `sensitive`.
+- You're too `sensitive`.
+- Jasper's so `sensitive`.
+- You're far too `sensitive`.
+- `Sensitive` -- what is that?
+- Chauncey is so `sensitive`...
+- God, you two are `sensitive`.
+- Be `sensitive` to her feelings.
+- Why so `sensitive`, harrington?
+- So what makes you so `sensitive`?
+- You can see why it's `sensitive`?
+- Men are very `sensitive`, you know.
+- That must mean i'm `sensitive` too.
+- You don't, don't be so `sensitive`.
+- Don't be so goddamn `sensitive`.
+- Jack's sort of `sensitive`, i guess.
+- I'm a lot more touch `sensitive` too.
+- He's very shy... and very `sensitive`.
+- I know someone else who's `sensitive`.
+- They go for `sensitive` studs like me.
+- Yes, they're `sensitive` to questions.
+- It's more `sensitive` than a joy-stick.
+- They don't want all that `sensitive` shit.
+- Whatever it was it was highly `sensitive`.
+- Unless the message was somehow `sensitive`?
+- Why are you so `sensitive` all of a sudden?
+- It's still a very `sensitive` memory for me.
+- Dwarves be very `sensitive` about their feet.
+- Okay, i'm a little `sensitive` about my hair.
+- But who does he trust with `sensitive` matters?
+- Jim, he's `sensitive` - he needs more from you.
+- Wow, you rock stars are really `sensitive`, huh?
+- They'll really go for a `sensitive` guy like you!
+- Well, you'll get it, skin as `sensitive` as yours.
+- I'm incredibly `sensitive` about my fucking figure.
+- Yeah, the `sensitive` guy-thing never worked for me.
+- But also, i felt a real `sensitive` feeling from you.
+- I'm very `sensitive` about being related to reptiles.
+- Karl's real `sensitive` about having his picture made.
+- No... and you're supposed to be `sensitive` and sharp.
+- Except will, because he is really `sensitive` about it.
+- It's not about a nice girl who meets a `sensitive` boy.
+- Don't be so `sensitive`, pops, let's keep this friendly.
+- Hmmm... you look like you were a very `sensitive` child.
+- So alive and spontaneous and passionate and `sensitive`.
+- I didn't realize you were so `sensitive` to bob's feelings.
+- You almost destroyed the most `sensitive` deal of my career!
+- We had become `sensitive` to changes in the rhythm of the logs.
+- `Sensitive` is when you can tell how people feel without asking.
+- Because race has always been a `sensitive` issue in this country.
+- I dunno... they're very `sensitive` at work about all this stuff.
+- And... you can only tell it's the right girl if you're `sensitive`.
+- You have such a `sensitive` little heart that it throbs for anything.
+- You show me your `sensitive` side, then you turn into a total asshole!
+- The 1000 c infrared `sensitive` film must be handled in total darkness.
+- Now you know as much as we do .. c'mon, chief, if it's `sensitive`, tell me ..
+- Still, this was a `sensitive` issue for me and i wanted to thank you personally.
+- Out steamroller methods are getting too hard to your `sensitive` soul, is that it, joe?
+- We did manage to pull any `sensitive` equipment and material out of our safehouse wreckage.
+                 

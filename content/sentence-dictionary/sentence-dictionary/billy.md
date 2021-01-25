@@ -1,0 +1,107 @@
+---
+title: "billy in a sentence | billy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "billy"
+---
+- `Billy`, are you okay?
+- `Billy`, listen to me.
+- `Billy`'s bringing it.
+- Looking good, `billy`.
+- Please, `billy`... el!
+- Thanks, uncle `billy`.
+- `Billy` had alibis too.
+- Come on, uncle `billy`!
+- I believe you, `billy`.
+- Let's hope so, `billy`.
+- Must be `billy`'s girl.
+- I'm not a fool, `billy`.
+- It's go time, `billy`-b.
+- Look again, `billy`-boy.
+- No more shines, `billy`.
+- `Billy` baird's the name.
+- How old are you, `billy`?
+- Make a hole, `billy`-boy.
+- We still got `billy` bob.
+- You've talked to `billy`?
+- `Billy`, come on, stop it.
+- `Billy`, that's too early.
+- Find `billy` and stop him.
+- Hey, `billy`, stop cryin'.
+- `Billy`, what's the matter?
+- Sit down a moment, `billy`.
+- `Billy`... - i break things.
+- `Billy`, it's gonna be okay.
+- Easy, `billy`, just open it.
+- Get more names from `billy`.
+- How 'bout this `billy` snow?
+- What is this, uncle `billy`?
+- Ah, jeez, `billy`... careful!
+- Not just against `billy`.
+- Are you okay... oh `billy`...
+- Good boy, thank you, `billy`.
+- Hey, nice outfit `billy` bob.
+- Why did you do that, `billy`?
+- `Billy`, do you have to smoke?
+- Got to see pop, uncle `billy`.
+- Joanna says she loves `billy`.
+- No cubs over fifteen, `billy`!
+- What's got `billy` so spooked?
+- A crank call to `billy` graham?
+- `Billy`, `billy`, get up, please.
+- What do you have here, `billy`?
+- What's not your fault, `billy`?
+- Would you take care of `billy`?
+- Yeah, `billy` sherbert, please.
+- `Billy`, get up, please, please.
+- I'm... hell, `billy`, i'm sorry.
+- Isn't that right, uncle `billy`?
+- What've you got here, a `billy`?
+- `Billy`, i can't talk to you now.
+- `Billy`'s got it all figured out.
+- I've got `billy` to take care of.
+- That's what `billy` wanted to do.
+- You lost your mom... no, `billy`.
+- `Billy` loomis and stu macher did.
+- ♪ hey, hey, hey ♪ `billy`.
+- Just fine, `billy` boy, just fine.
+- The `billy`/stu thing�s been done.
+- We're hardly unique here, `billy`.
+- You didn't even ask about `billy`.
+- `Billy` was doing something to her.
+- `Billy`, you don't have to do this.
+- Do you really think `billy` did it?
+- Hey, the driver knows `billy` idol.
+- Now listen, it's hands off `billy`.
+- Son, here's a life lesson: `billy`.
+- Yeah, `billy`, who's your buyer?...
+- Ronnie and `billy` were right there.
+- That was `billy` ansel on the phone.
+- There is no fair in turkey, `billy`.
+- Your name's `billy`, `billy` hargrove.
+- `Billy`, don't eat with your fingers.
+- `Billy`, please, i'm max, i'm your...
+- `Billy` prince is asking you to prom.
+- Here `billy`.. a weapon against evil.
+- I don't know `billy` but i'm hurtin'.
+- Is `billy` going to be there tonight?
+- It wasn't `billy`, i didn't know him.
+- She wanted to know all about `billy`.
+- We can't go to `billy`, take it easy.
+- Would you like a cup of tea, `billy`?
+- You want me to take care of `billy`?!
+- Ganz and `billy` got my girl, rosalie.
+- We're gonna have to keep you, `billy`.
+- You been wearing rubbers, `billy`-boy?
+- You heard `billy` -- shut the fuck up.
+- `Billy`, make sure nyah's not followed.
+- You must try to talk about it, `billy`.
+- `Billy` and his penis don't deserve you.
+- `Billy` prince is asking me to the prom.
+- Into a cash-blasting fire hose: `billy`.
+- Thank you `billy`, from the baby and me.
+- `Billy` loved to see his kids in the bus.
+- `Billy`... you want to, like... you know?
+- You are going to...call me uncle `billy`?
+- `Billy` - you'll just make yourself crazy.
+                 

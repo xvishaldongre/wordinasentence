@@ -1,0 +1,54 @@
+---
+title: "Neil in a sentence | Neil example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Neil"
+---
+- I don't see how, o'`neil`.
+- Is that correct, o'`neil`?
+- Blank faces here, o'`neil`.
+- It's `neil` prescott's car.
+- Only if you call me `neil`.
+- You are in the cage, o'`neil`.
+- Those are cool reeboks, `neil`.
+- `Neil`, thank you for your help.
+- `Neil`, you know you want to act.
+- What d'you want me to do, `neil`?
+- `Neil`, how are you gonna do this?
+- Permission to evaporate, o'`neil`.
+- You made a liar out of me, `neil`!
+- Not doin' them very fine, o'`neil`.
+- This is just a test case, o'`neil`.
+- Damn it, `neil`, the name is nuwanda.
+- The others already told me, o'`neil`.
+- What's our go-to-shit plan, o'`neil`?
+- Ah, but i am seeing the world, `neil`.
+- People think i'm stepping out on `neil`.
+- So do i. i used to be like them, `neil`.
+- O'`neil`... show us where you are, chief.
+- Why didn't you shoot the woman, o'`neil`?
+- You'll get everything you want, o'`neil`.
+- `Neil`, do you believe in other realities?
+- `Neil`'s still having a bad time at school.
+- You're the analyst for east china, o'`neil`.
+- `Neil` -- what -- he's staying with a friend.
+- `Neil`, you could have burned the house down!
+- You'll try what we tell you to try, o'`neil`.
+- `Neil`, goddamn it, you're not five years old!
+- You can't live a life for someone else, `neil`.
+- You think we should go easy on women, o'`neil`?
+- `Neil`, please -- that's precisely what they need.
+- `Neil`, you're not gonna... from my father and nolan.
+- The calls were listed to `neil` prescott -- sidney's father.
+- It's okay, `neil`, really... beforen i make a busy-ness deal.
+- Motherachrist... ah, c'mon... sir... aw, what is this... o'`neil`.
+- An american named `neil` armstrong is going to walk on the moon.
+- `Neil`, how are you gonna be in a play if your father won't let you?
+- Listen `neil`, i appreciate your interest in me but i'm not like you.
+- Father, i-- `neil`, you are going to quit this ridiculous play immediately.
+- `Neil`, don't leave the back doors open -- i don't want holly near the pool.
+- You know how sometimes `neil` bugs you and you just get up and walk away from him?
+- I can make this wall without -- don't have to use it, o'`neil`, but it's gotta go out.
+- No, see, `neil`, if you're fucking with one of my friends, then you're fucking with me.
+- Like i'm going to pay twenty bucks to see `neil` moynihan in some band that i helped start.
+                 

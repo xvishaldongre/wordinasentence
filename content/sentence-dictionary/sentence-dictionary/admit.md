@@ -1,0 +1,107 @@
+---
+title: "admit in a sentence | admit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "admit"
+---
+- 'least you `admit` it.
+- I'd never `admit` that.
+- `Admit` it, you need me.
+- But you gotta `admit`...
+- Just `admit` it, caesar.
+- Peter... --`admit` what?
+- You `admit` it's stupid.
+- Yes, i'll `admit` it.
+- I `admit` it, i'm scared.
+- You `admit` you're lying?
+- Just `admit` you're wrong.
+- Oh, so now you `admit` it?
+- I `admit`, i can be bought.
+- Well, yes, i `admit` it is.
+- I `admit` he is very clever.
+- I `admit` it - i was scared!
+- I `admit` this is...unusual.
+- I'm the first to `admit` it.
+- I `admit` i handled it badly.
+- I `admit` it: i'm prejudiced.
+- I'll `admit` it's a weakness.
+- Oh come on, brad, `admit` it.
+- Sounds like crap, `admit` it.
+- So you `admit` you just lied?
+- You can `admit` it, josephine.
+- A narcissist doesn't `admit` it.
+- I must `admit`, this is amazing.
+- No, i don't `admit` it's stupid.
+- So you `admit` there is someone!
+- You can `admit` that, can't you?
+- I have to `admit` i was skeptical.
+- I'll `admit` to criminal insanity.
+- You should `admit` your situation.
+- I `admit` i don't know where he is.
+- You must `admit` i have good taste.
+- `Admit` it, it was a little awesome.
+- `Admit` that you killed your friend.
+- I gotta `admit`, you're one of them.
+- Maybe more than you want to `admit`.
+- No, because you won't `admit` to it.
+- You gotta `admit`, they do love him.
+- Not at all ashamed to `admit` it.
+- No, i gotta `admit` this is peculiar.
+- Let's `admit` we struck out this month.
+- Alright, i `admit` it, you had me there.
+- I `admit` not being anxious to find out.
+- You must `admit`, she is rather mannish.
+- `Admit` it, even you've thought about it.
+- I `admit` it -- you are better than i am.
+- I'm the oldest, and she won't `admit` it.
+- But what happened to charlotte `admit` it.
+- I `admit`, i know nothing of your culture.
+- I `admit`, that's a very hard thing to do.
+- I have to `admit` it: i'm a perfectionist.
+- Well, i tried, you got to `admit` i tried.
+- You `admit` that we're great cooks, right?
+- You caught me off guard, i must `admit`...
+- I'll `admit` i was worried when max called.
+- More nerve than the doctor, i must `admit`.
+- Well, i'm glad to hear somebody `admit` it.
+- But you have to `admit` he's not too bright.
+- I hate to `admit` it, no, nothing like that.
+- It's hard to `admit` when you've been wrong.
+- Well then `admit` it, it's a work of genius.
+- Well, you got to `admit` we come a long way.
+- You're the dread pirate roberts; `admit` it.
+- You've got to `admit` it would be a novelty.
+- Do you think she'd `admit` to the conception?
+- I have to `admit`, i am so totally turned on.
+- I'll `admit` it's confusing from the outside.
+- No, but i have to `admit` i thought about it.
+- So, then you `admit` it's kind of impressive.
+- You'll have to `admit` she had four husbands.
+- You try to frighten me, sir, `admit` so, sir.
+- C'mon now, `admit` it, you were kinda naughty.
+- I have to `admit`, i always felt... different.
+- Then you `admit` -- because you're not unique.
+- Well, i `admit` that outfit isn't very modest.
+- You `admit` to me you do not love your fiance?
+- I `admit` nothing without talking to my lawyer.
+- `Admit` it, this is the street where love lives.
+- Gotta `admit`, you guys are - two in four dozen.
+- There, i `admit` it, can i get back to work now?
+- Hey, i'm the first one to `admit` when i'm wrong.
+- I got to `admit` it's not what i thought it'd be.
+- Of course, one must `admit` he has great courage.
+- You stand up straight and `admit` you're special.
+- But i have to `admit`, i'm not terribly surprised.
+- I think we're more alike than you want to `admit`.
+- It will likely be a dormant program, i `admit` it.
+- Stop toying with me and just `admit` what you are.
+- You got to `admit` it makes more sense than a war.
+- I have to `admit` you really have a beautiful home.
+- Okay, i will `admit` it: ours is an illegal hookup.
+- Well, i'll `admit` i don't see any flies on her yet.
+- First, `admit` to yourself that it sounds intriguing.
+- I was always too shy to `admit` how much i liked you.
+- Maybe we have more in common than you care to `admit`.
+- Do you freely `admit` to the charges made against you ?
+- I mean, you know, at least i `admit` that i don't know.
+                 

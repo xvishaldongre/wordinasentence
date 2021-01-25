@@ -1,0 +1,68 @@
+---
+title: "mob in a sentence | mob example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mob"
+---
+- The <u>`mob`</u>, bobby!
+- Walking out on the `mob`.
+- We'll crucify that `mob`.
+- Oh, that `mob` downstairs.
+- What about the `mob`, dave?
+- Then the `mob` iced him.
+- Those fucking `mob` assholes.
+- You can't reason with a `mob`.
+- He's brought in the heavy `mob`.
+- A bagman in dallas for the `mob`.
+- My people, and the russian `mob`.
+- |you launder money for the `mob`.
+- Could the `mob` wreck the autopsy?
+- There are <u>always</u> `mob` ties.
+- You borrowed money from the `mob`?!
+- Chick was outright killed by a `mob`.
+- The `mob` contact was johnny roselli.
+- If i can find a `mob` that'll risk it.
+- So you're not just talkin' `mob` guys.
+- Well, not quite a blood-thirsty `mob`.
+- The fbi thinks there might be `mob` ties.
+- A `mob` boss cannot do and let people know.
+- Still running playback money for the `mob`.
+- Ruby's all `mob`, knows oswald, sets him up.
+- He's probably putting together a lynch `mob`.
+- You are asking me to help you fuck the `mob`.
+- We just lost our heads and acted like a `mob`.
+- The fbi started looking into `mob` connections.
+- I pay back the `mob`, let's hope we don't need it.
+- Might i ask why you no longer work for the `mob` ?
+- You son of a bitch, you just created a lynch `mob`.
+- Haven't you got any confidential stuff on that `mob`?
+- The `mob` stole the trucks and smashed everything up.
+- Sometimes played two a day when i was in shea's `mob`.
+- Could the `mob` send oswald to russia and get him back?
+- But soon as our money runs out, they'll `mob` the place.
+- Look, i run some slots down in west bend for a `mob` here.
+- Only that you were one of the finest hit men in the `mob`.
+- I brought the `mob` lawyer right away like you asked, boss.
+- ♪ ten years a `mob` boss, hits and whacks ♪ feeling better?
+- A couple of peons for the `mob` and... who were the victims?
+- Could the `mob` influence the national media to go to sleep?
+- He played the `mob` guy that turned snitch in "the cyclone".
+- Could the `mob` appoint the warren commission to cover it up?
+- That opera `mob` is about to break into the mad song from "lucia.
+- Not more than a year ago, a `mob` hung a man for stealing a horse.
+- I hear a `mob`: unemployed, drunkards, vagabonds... the world's dregs.
+- "there once was a man named cobb, who kept semple away from the `mob`.
+- Remember when we sat on that `mob` guy, that chef, for like six months?
+- Since when has the `mob` used anything but .38's for hits, up close?
+- It takes a `mob` of guys like you and enough money to make 'em look good.
+- See what's so important that a `mob` guy has to lock it away in his safe.
+- So i gotta think you're either working the mace or playing the jug `mob`.
+- Your boyfriend was accosted by an angry `mob`, and he needs to be hugged.
+- He killed them to pay off a debt to 'the `mob`' or something lame like that.
+- The `mob` wouldn't have the guts or the power for something of this magnitude.
+- Coppers figured he laundered money for the `mob` before getting into real estate.
+- Steering a poor dope up blind alleys for that grafting taylor `mob` is low enough.
+- Sometimes the `mob` does that to teach guys a lesson, if they blow a job or something.
+- He was first locked up at eleven and was doing hits for `mob` bosses when he was sixteen.
+- I have to consider, i mean, as the `mob` guy, this is another man's wife i'm sleeping with.
+                 

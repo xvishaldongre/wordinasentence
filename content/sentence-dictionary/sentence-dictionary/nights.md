@@ -1,0 +1,98 @@
+---
+title: "nights in a sentence | nights example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nights"
+---
+- Two or three `nights`.
+- Four five `nights` ago.
+- Four `nights` in a row?
+- How about his `nights`?
+- I can't sleep `nights`.
+- It's only two `nights`.
+- For two lonely `nights`.
+- It's got me up `nights`.
+- Three `nights`, two days.
+- We all have bad `nights`.
+- Local 15, monday `nights`.
+- All the other `nights`?
+- But only on monday `nights`.
+- I ride around `nights` mostly.
+- Two fuckin' days and `nights`!
+- Five full `nights`... days too?
+- I'm working `nights` this week.
+- Linda doesn't come in `nights`.
+- So i decided to works `nights`.
+- She worked `nights` for a month.
+- Two `nights` later i was robbed.
+- ♪ and work `nights` at the plant.
+- Most `nights` you wake up crying.
+- Two are dead now in two `nights`.
+- You want to work uptown `nights`?
+- In case we want to switch `nights`.
+- Last night, two `nights` ago, three?
+- That you've had a your wild `nights`.
+- The first few `nights` in a new host.
+- I'm sure it's keeping you up `nights`.
+- Two more `nights` in this lunar cycle.
+- The killing cold of `nights`, i'm tarik.
+- You don't... three `nights`... two days.
+- Where you've been spending your `nights`?
+- Fine, then how many `nights` home is that?
+- My life started when mac went on `nights`.
+- Swing by first methodist tuesday `nights`.
+- Three `nights` charleston, south carolina.
+- Now what am i gonna do on tuesday `nights`?
+- You want me to show up late a few `nights`?
+- Go, girl, seek happy `nights` to happy days.
+- All right- you'll spend your `nights` inside.
+- I've got the grands for two `nights`, charlie.
+- The `nights` are always so peaceful and quiet.
+- I miss hanging out with you on school `nights`.
+- I was doing the pentagon scene few `nights` ago.
+- I can't eat the same thing two `nights` in a row.
+- Then there's the high school on friday' `nights`.
+- But i'll have to sleep on it a couple of `nights`.
+- Gave me a couple of rough `nights`, i'll tell you .
+- I play two hundred `nights` a year with you, frank.
+- Spends his `nights` at the kuala lumpur yacht club.
+- Not bad for a man who hasn't slept in four `nights`.
+- I like it on the `nights` when he ain't at our house.
+- I seem to remember some pretty good `nights` on jp ii.
+- It will take her many `nights` to die, perhaps yeaars.
+- A few `nights` before my heart surgery rebecca woke me.
+- I've been awake for too long -- three or four `nights`.
+- Mostly i remember...the `nights` when we were together.
+- How many days and `nights` do you have to go... ...here?
+- She never stays in the same place two `nights` in a row.
+- I love tofu burgers, rainy `nights`, and riding bareback.
+- You know he's not supposed to work two `nights` in a row.
+- It must be one of the worst `nights` we have had this winter.
+- I have to stand out here and watch them six `nights` a week.
+- On the dark `nights` � on the stormy `nights` -- you can hear him.
+- Sometimes the boys patrol the fences, especially dance `nights`.
+- What kind of meds do you chase with `nights` in a cadaver drawer?
+- At `nights` -- they had a band -- i danced on the hotel patio.
+- Before you know it, the roads are closed... the `nights` get long.
+- What you do with her after i'm gone doesn't keep me awake `nights`.
+- Four `nights` ago, there was a huge power outage, we're splitting up.
+- There are 18,250 `nights` in the next 50 years... because i realized.
+- Many, many days and `nights`... how long will it take you to get home?
+- Black `nights`, fucking black `nights`, when you want to howl like a dog.
+- You'll like the warm fire upon the hearth, and the long, long `nights`.
+- Wanna thank them for all my sundays, and of course my monday `nights` too.
+- He visits his ladies on tuesday and thursday `nights` and saturday mornings.
+- I'm doing a quick follow-up on a bus accident took place a few `nights` ago.
+- Three `nights` ago one of them managed to break into the tyrell corporation.
+- Most of my friends can stay out until 11 on school `nights` and 1 on weekends!
+- Five `nights` ago, he found this paratrooper caught in a tree with a broken leg.
+- Now how'm i supposed to do that when i'm not in here most mornings and `nights`?
+- What matters to me is we've got the six easiest `nights` we've had in ten years.
+- Then there's `nights` i wake up screaming and i look over and ray's in my bed.
+- One of these `nights` you'll wake up and find a junkie tearing your bedroom apart.
+- Vivian, may i point out five more `nights` at three hundred a night is only 1,500.
+- Now, i don't want to quit these people but they can't have all my days and `nights` too.
+- I've heard of married couples who deliberately spend occasional `nights` in cheap hotels.
+- Last `nights` victim, christie eastman was found in a warehouse on the outskirts of town.
+- I mean, uh, you know, this semester i'm taking a, a class, you know, three `nights` a week.
+                 

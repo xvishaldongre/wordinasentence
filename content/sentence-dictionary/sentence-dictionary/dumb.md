@@ -1,0 +1,107 @@
+---
+title: "dumb in a sentence | dumb example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dumb"
+---
+- Go ahead, play `dumb`!
+- [sobbing] `dumb` luck.
+- They're `dumb` things.
+- This is really `dumb`.
+- You are <u>`dumb`</u>!
+- Fletch, this is `dumb`.
+- Had to be `dumb` panic.
+- Talk about `dumb` luck.
+- You're a `dumb` guinea.
+- `Dumb` jew motherfucker.
+- How `dumb` you gotta be?
+- Hulk was `dumb` as shit.
+- Listen, you `dumb` fuck!
+- You `dumb` motherfucker!
+- You `dumb` motherfucker.
+- He's so `dumb` sometimes.
+- He was just plain `dumb`.
+- I ain't that `dumb`, mama.
+- She was weak and `dumb`...
+- You must think i'm `dumb`.
+- `Dumb` things to find love.
+- He couldn't be that `dumb`.
+- They're `dumb`, somebody...
+- I'm not as `dumb` as i look.
+- Not wrong, `dumb` ass, wong!
+- How `dumb` do you think i am?
+- That's a `dumb` thing to say.
+- How `dumb` do you think i am ?
+- I'm not as `dumb` as you look.
+- No, you `dumb` son of a bitch.
+- Acting `dumb` doesn�t suit you!
+- You asked `dumb` questions.
+- Because i was `dumb` and angry.
+- I'll be your `dumb` decoy duck.
+- That was a `dumb` thing to say.
+- Well, then ask her, `dumb` ass.
+- Are you happy, you `dumb` bitch?
+- Don't stand there `dumb`... go !
+- I think proms are pretty `dumb`.
+- They're a bunch of `dumb` fucks.
+- Use your head, you `dumb` bitch!
+- Ya `dumb` goons, come back here!
+- You think all models are `dumb`.
+- You think i'm `dumb`, don't you?
+- You think it's `dumb` of course.
+- In some ways, she's awful `dumb`.
+- It was a `dumb`-fuck thing to do.
+- Just the `dumb` fucking truckers.
+- Sissy, don't play `dumb` with me!
+- So `dumb`, in fact, that i can't.
+- That's "cristo," you `dumb` shit.
+- Don't play `dumb` with me, mickey.
+- It's a `dumb` little thing anyway.
+- It's just a `dumb` game they play.
+- It was only a `dumb` call-in show.
+- You `dumb` ass, it's babe brother.
+- You really are one `dumb` asshole.
+- Come on, you `dumb` son of a bitch.
+- He's just a deaf and `dumb` indian!
+- They're not that `dumb`, after all.
+- Trying to help people isn't `dumb`.
+- But our `dumb` tv is not a smart tv.
+- I've had these `dumb` dreams lately.
+- That `dumb` immigrant'll flop on me.
+- Yeah, most cops are pretty `dumb`...
+- Adam...`dumb` question, but humor me.
+- Cause i don't take acme `dumb` pills.
+- He thinks shows like this are `dumb`.
+- I'm not as `dumb` as i act, you know.
+- You a `dumb`-ass simple motherfucker.
+- You `dumb` bastard, i got it for you.
+- You `dumb` jarhead motherf-- lindsey!
+- `Dumb` monkey-ass had a pistol on him.
+- This is `dumb`, let's find that chick.
+- You're selfish, not to mention `dumb`.
+- But that was a `dumb`-ass pass to toni.
+- The `dumb` schmuck took the wrong turn.
+- What `dumb` favor do you want me to do?
+- I'd have to be really `dumb` to do that.
+- My ass be `dumb`, but i'm not a dumbass.
+- You `dumb` bastard, you waited too long.
+- You're stubborn... `dumb`, but stubborn.
+- I know it was bad, it was bad and `dumb`.
+- No one could be that `dumb` with numbers.
+- Of course i killed them, you `dumb` fuck.
+- Yeah, or d, it's a `dumb` fucking idea...
+- It doesn't exactly play like `dumb` panic.
+- You know, he's not as `dumb` as i thought.
+- But vitone is only nine, and `dumb`-witted.
+- I called those highway patrol `dumb` fucks.
+- It's not because i think you're too `dumb`.
+- Oh god, what did you say, you `dumb` bitch?
+- You see -- then why does she act so `dumb`?
+- I'm not a `dumb`- smart college boy anymore.
+- Now stop playing `dumb` and show me the shu!
+- Goddamn `dumb` sonofabitch... you fucked her!
+- I still think this whole idea is `dumb`, pop.
+- No... you're not a `dumb` fuck, are you, del?
+- Because i'd rather shoot a "`dumb`" jump shot?
+- How can i ask superman such a `dumb` question.
+                 

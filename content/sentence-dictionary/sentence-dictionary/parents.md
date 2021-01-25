@@ -1,0 +1,107 @@
+---
+title: "parents in a sentence | parents example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "parents"
+---
+- I know your `parents`.
+- I mean your `parents`.
+- I met their `parents`.
+- My `parents` are dead.
+- My `parents` are here.
+- His `parents` are away.
+- His `parents` are rich.
+- Just like my `parents`.
+- You have two `parents`.
+- Your `parents` met her.
+- Are your `parents` home?
+- By finding my `parents`.
+- I've upset my `parents`.
+- My `parents` thought so.
+- What about my `parents`?
+- You killed my `parents`.
+- Your `parents` split up.
+- Are your `parents` alive?
+- Go over to my `parents`'.
+- Live with your `parents`?
+- My `parents` are avenged.
+- `Parents` heard from her?
+- `Parents` still together?
+- They're not my `parents`.
+- What about her `parents`?
+- What about his `parents`?
+- Where are your `parents`?
+- A boy kills his `parents`.
+- Are your `parents` living?
+- Have you met my `parents`?
+- His `parents` aren't home.
+- It's about your `parents`.
+- It was my `parents`' idea.
+- My `parents` got divorced.
+- My `parents` have money...
+- My `parents` know i'm out.
+- My `parents` never let me.
+- My `parents` took me home.
+- To your `parents`, i hope?
+- You guys are my `parents`.
+- Your `parents`'d kill you.
+- And my `parents` were gone.
+- Those are my `parents`.
+- Do you love your `parents`?
+- His `parents` took his car.
+- I have very rich `parents`.
+- My `parents` are divorced.'
+- My `parents` left it to me.
+- My `parents` were divorced.
+- Nicole burnell's `parents`.
+- `Parents`, brother, sister.
+- You know how `parents` are?
+- Your `parents` are waiting.
+- Your `parents` of relation?
+- Her `parents` want her back.
+- I miss my `parents` so much.
+- `Parents` hate your smoking.
+- She lives with my `parents`.
+- Your `parents` are divorced?
+- Aren't your `parents` asleep?
+- Did you notify the `parents`?
+- I'll call george's `parents`.
+- I'm sorry about my `parents`.
+- My `parents` are from poland.
+- My `parents` are out of town.
+- Some of their `parents`, too.
+- What are your `parents` like?
+- Your `parents` know about it?
+- I do have `parents`, you know.
+- I'm going to see my `parents`.
+- Jean, your `parents` are here.
+- My `parents` are totally anal.
+- What were your `parents` like?
+- Your `parents` are downstairs.
+- All our `parents` are weirdoes.
+- What did your `parents` do?
+- His `parents` are both at work.
+- My `parents` were missionaries.
+- `Parents` died when she was 13.
+- Thanks to your `parents`' love.
+- You're `parents` at that party?
+- And their `parents` before them.
+- I lie to my `parents` every day.
+- I thought my `parents` loved me.
+- Richard talked to his `parents`.
+- They're not my `parents`, helen.
+- What happened to your `parents`?
+- After your `parents` passed away?
+- They don't call my `parents`?
+- But my `parents` chose otherwise.
+- Dan's `parents` were pushing him.
+- Did his `parents` attend to that?
+- His `parents` are at his bedside.
+- It pissed off a lot of `parents`.
+- It's a present from my `parents`.
+- It's the `parents`' fault really.
+- My `parents` are gonna murder me!
+- My `parents` don't do it anymore.
+- My `parents` had great chemistry.
+- Our `parents`... when do i start?
+                 

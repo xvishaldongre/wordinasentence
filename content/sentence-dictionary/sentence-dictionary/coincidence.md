@@ -1,0 +1,64 @@
+---
+title: "coincidence in a sentence | coincidence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "coincidence"
+---
+- It's no `coincidence`.
+- Still a `coincidence`.
+- It's all `coincidence`.
+- It was a `coincidence`.
+- No, just `coincidence`.
+- Is that a `coincidence`?
+- This is a `coincidence`.
+- Funny `coincidence`, huh?
+- It's not a `coincidence`.
+- The rest is `coincidence`.
+- Isn't that a `coincidence`.
+- Isn't this a `coincidence`.
+- That's not a `coincidence`.
+- It can't be a `coincidence`.
+- Now there's a `coincidence`.
+- No such thing as `coincidence`.
+- Zerelda, it's no `coincidence`.
+- Do you believe in `coincidence`?
+- Maybe that's just `coincidence`.
+- That's no `coincidence`, clarke.
+- Yeah, it's just a `coincidence`.
+- Isn't that quite a `coincidence`?
+- It can't just be a `coincidence`.
+- That's a hell of a `coincidence`.
+- This can't be just `coincidence`.
+- Well, isn't this a `coincidence`.
+- You think this is a `coincidence`?
+- What a `coincidence`, i am someone!
+- Sounds like an amazing `coincidence`.
+- It's got to be a `coincidence`, right?
+- Well, it certainly is a `coincidence`.
+- It can't just be a `coincidence`, hopper.
+- It's not a pattern, it's a `coincidence`.
+- No point running away from `coincidence`.
+- Well, miss henried, what a `coincidence`.
+- That can't just be a random `coincidence`.
+- It's all, what, some big `coincidence`?
+- That would have been quite a `coincidence`.
+- You've made a science out of `coincidence`.
+- But that must just be a `coincidence`, right?
+- It's kind of a funny `coincidence`, isn't it?
+- There's no such thing as a bad `coincidence`.
+- By a curious `coincidence`, it's my day off, too.
+- Well it's just kind of a `coincidence`, isn't it?
+- By a strange `coincidence`, i was thinking of you.
+- I can't believe this is a `coincidence`, mr. cole.
+- We both know that that timing was no `coincidence`.
+- Well, hey, isn't that a one-in-a million `coincidence`.
+- But i don't think it's a `coincidence` you share a name.
+- It would be too wild a `coincidence` for somebody else to...
+- Does that strike you as a fantastic `coincidence`, or is it just me?
+- What a `coincidence`, cause i was just thinking about you, too, jack.
+- Hopefully next time, the two of you will involve us hell of a `coincidence`.
+- The woman at my dry cleaners believes there's no such thing as `coincidence`.
+- A `coincidence` you should run into the very man you've been ducking all week!
+- ♪ talking to the bear sure beats therapy ♪ i mean, this can't be a `coincidence`.
+- Cosmic `coincidence` and all that crap... whyn't you kill me and find another cab.
+                 

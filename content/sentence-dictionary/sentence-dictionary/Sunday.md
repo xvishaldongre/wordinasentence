@@ -1,0 +1,102 @@
+---
+title: "Sunday in a sentence | Sunday example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sunday"
+---
+- Every second `sunday`.
+- Piety is for `sunday`!
+- We argued on `sunday`.
+- We'll move in `sunday`.
+- Oh yeah, `sunday` night.
+- At 7:30 `sunday` morning?
+- How about `sunday` night?
+- I won't be here `sunday`.
+- Okay, try me on `sunday`.
+- It can wait till `sunday`.
+- Nicky comes on `sunday`'s.
+- A piece of pie on `sunday`.
+- Now get your `sunday`'s on.
+- Then they lost on `sunday`.
+- Actually, i'm free `sunday`.
+- At greenwich, come `sunday`.
+- No, not here... maybe `sunday`?
+- Hey, what about `sunday` dinner?
+- I'll bring him in on a `sunday`.
+- It's the `sunday` painter in me.
+- It was on a `sunday`, wasn't it?
+- Look, it can wait till `sunday`.
+- Saving it for the `sunday` times.
+- He was murdered last `sunday`.
+- Come to my house `sunday` morning.
+- My dad won't be back til `sunday`.
+- Did you see the ad we ran `sunday`?
+- It is to be expected on a `sunday`.
+- I'll be at the observatory `sunday`.
+- Something to do on a `sunday` night.
+- That ain't till `sunday` morning.
+- I told you, man, super bowl `sunday`.
+- It was a `sunday`... that explains it.
+- Wednesday, friday, `sunday`, saturday.
+- All day saturday, and all day `sunday`.
+- It's `sunday`, we're gonna have dinner.
+- You said a `sunday`, not easter `sunday`.
+- You will be taking `sunday` off, then...
+- Let him eat three full pages on `sunday`.
+- I've managed to every `sunday` of my life.
+- You usually don't work on `sunday`, major?
+- For that i'd kill a nun on easter `sunday`.
+- Mom, i made an ornament at `sunday` school.
+- So you're goin' to the gophers on `sunday`?
+- We're just having a quiet `sunday` at home.
+- Perry white and his `sunday` magazine exposes.
+- Mom and dad won't be back until `sunday` night.
+- Oh -- `sunday` is good for me to meet your folks.
+- I invited marlon and rita for a barbeque `sunday`.
+- We're lootin' this burg six ways through `sunday`.
+- Well, nobody said `sunday` school kids were geniuses.
+- You get it the first and third `sunday` of the month.
+- Your kid brother got married last `sunday`, eh, marty?
+- All week long, i can't wait till `sunday`, when we sing.
+- I got him to arrange some bach for my `sunday` concerts.
+- Anne wants to make sure you come over for dinner `sunday`.
+- I'll just say i'm counting dirty words for `sunday` school.
+- `Sunday` night at the devils game, i'm driving the zamboni.
+- They showed this prison movie to my youth group on `sunday`.
+- Lisa, you're really bringing down the first `sunday` of lent.
+- No, we're fixin' to go fishing down the etowah next `sunday`.
+- We'll go to church and get you baptized, tomorrow's `sunday`.
+- Now the expo runs all weekend so i won't be back til `sunday`.
+- They got services every `sunday` right there in the mess hall.
+- I can't wait until next `sunday`, when the choir performs again.
+- I doubt if a few bombs would wake up dawn on a `sunday` morning.
+- I'll need the official release orders on my desk `sunday` night.
+- How 'bout i come next `sunday` and watch the super bowl with you?
+- I didn't run into you and i bet they're not your `sunday` clothes.
+- Is that what the guy in the `sunday` school suit is doing outside?
+- He could've spent all day saturday with gould, and all day `sunday`.
+- No visitin' 'cept holidays and `sunday` -- and no womenfolk anytime.
+- What about that squat bar you showed me, is that open on a `sunday`?
+- The one who got married `sunday`, that was my little brother, nickie.
+- They'll know they're not going to see everything on `sunday` night...
+- Well, as my mother says at `sunday` dinner, "come and get it," bitch!
+- So i was telling you, my kid brother nickie got married last `sunday`.
+- Yeah, i'm going to be out of the office from 1:30 to 3:00 on `sunday`.
+- I've got on my `sunday` bonnet and i'm going to church with my husband.
+- All day the idea of a family `sunday` dinner's been coming into my head.
+- The first time i showed it, in 1940, was the `sunday` my first wife died.
+- You could have worn one of those big, floppy woman's easter `sunday` hats.
+- Tell us about it... y-y-y-yes... was it your idea to visit her on `sunday`?
+- Listen, adele, the reason i called, that party is today instead of `sunday`.
+- While they deserved it, i still went to confession the following `sunday`.
+- Your dad will be back on `sunday`, so i've put elizabeth in charge until then.
+- They don't teach that at `sunday` school or at the whittier community playhouse!
+- I, uh... haven't been to `sunday` school in years... you want to know what it is?
+- Every `sunday` i'll buy you a new bonnet - steve, dear, please forget all of this.
+- ...cigarette girls... and naturally - he was writing a special `sunday` piece on...?
+- Considering that the paper is three months old and this isn't `sunday` -- no thank you.
+- `Sunday`, but... and when is she due back from that groinecologist's convention anyway?
+- Me and the lads went down there `sunday` evening, we weren't discovered till the monday.
+- It's a stone killer-diller get-down get-it-on and twice-on-`sunday` super mutha computer.
+- We had to pip all of big mama's hundred laying hens and go to church all day on `sunday`.
+                 

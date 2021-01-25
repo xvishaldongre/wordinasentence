@@ -1,0 +1,107 @@
+---
+title: "protect in a sentence | protect example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "protect"
+---
+- I can't `protect` you.
+- May god `protect` you.
+- They'll `protect` you.
+- Will you `protect` us.
+- Let's `protect` jasper.
+- One you must `protect`.
+- Allah will `protect` me.
+- Nobody can `protect` me.
+- To `protect` his people.
+- Trying to `protect` you.
+- We gotta `protect` jean.
+- Help me to `protect` her.
+- I got a lot to `protect`.
+- `Protect` the other kids.
+- `Protect` your commander!
+- To `protect` your sister.
+- We got sand to `protect`.
+- You have to `protect` it.
+- You `protect` your child.
+- But you must `protect` me!
+- How do you `protect` them?
+- I can `protect` my virtue.
+- Locked up to `protect` us.
+- `Protect` yourself, rummy.
+- You going to `protect` me?
+- You have to `protect` him.
+- You'd lie to `protect` him.
+- You've got to `protect` me!
+- Can no longer `protect` you.
+- Can no longer `protect` you.
+- I'll `protect` you from her.
+- I want to `protect` the boy.
+- The flame will `protect` me.
+- The flame will `protect` me.
+- To `protect` the time stone.
+- We had to `protect` bellamy.
+- We must `protect` ourselves.
+- He can `protect` us, claudia.
+- I didn't `protect` him, lady.
+- I'll `protect` you, dollface.
+- ...`protect` your sources...!
+- The ai will `protect` itself.
+- Then we have to `protect` it.
+- The police can `protect` you.
+- To `protect` their territory.
+- We gotta `protect` ourselves.
+- I can't `protect` you anymore.
+- I promised i'd `protect` them.
+- It's to `protect` the species.
+- I've got asta to `protect` me.
+- I was trying to `protect` you.
+- `Protect` life... until death.
+- That was sent to `protect` us.
+- You had to `protect` yourself.
+- A car-- you can't `protect` me.
+- I just had to `protect` myself.
+- I'll be there to `protect` you.
+- I'll `protect` it with my life.
+- I wanted to... to `protect` me.
+- My mission is to `protect` you.
+- To `protect` herself from what?
+- I must `protect` my virgin ears.
+- I'm gonna `protect` those pilots.
+- To `protect` the child you loved?
+- You `protect` your child tonight.
+- A man's got to `protect` his home.
+- I am trying to `protect` you, man!
+- Just wanted to `protect` you, nan.
+- No, i want to `protect` the stone.
+- `Protect` mine when they get here.
+- They have the future to `protect`.
+- To `protect` me from who, exactly?
+- We got to `protect` him full time.
+- What do we have to `protect` them?
+- You said that you'd `protect` her.
+- You were supposed to `protect` us.
+- All you did to `protect` me, faith?
+- Clarke was trying to `protect` you.
+- God `protect` you, honeythorn gump.
+- Helmet on to `protect` your memory.
+- I `protect` and i feed and i teach!
+- I was trying to `protect` you guys.
+- Stay here and let us `protect` you.
+- That army was sent to `protect` us.
+- They just `protect` me from myself.
+- Who will `protect` me when you die?
+- Asgard was supposed to `protect` us.
+- He said he knew how to `protect` us.
+- Jade will be there to `protect` you.
+- Raven, i came here to `protect` him.
+- That's why i can help `protect` you.
+- There's no reason to `protect` it...
+- I don't need you to `protect` me.
+- Honour and `protect` all blacksmiths.
+- I did this for you, to `protect` you.
+- I'll `protect` you from the faithful.
+- I'm trying to `protect` you, octavia.
+- It is my job to `protect` my country.
+- To `protect` against solar radiation.
+- And i will `protect` you with my life.
+                 

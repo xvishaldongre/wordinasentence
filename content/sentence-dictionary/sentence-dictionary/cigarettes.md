@@ -1,0 +1,89 @@
+---
+title: "cigarettes in a sentence | cigarettes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "cigarettes"
+---
+- I got your `cigarettes`.
+- It was the `cigarettes`.
+- Where are my `cigarettes`?
+- `Cigarettes` and beer rule!
+- Give her some `cigarettes`.
+- One packet of `cigarettes`.
+- Three hundred `cigarettes`!
+- You bring the `cigarettes`?
+- Can we stop for `cigarettes`?
+- I've no fucking `cigarettes`.
+- He put `cigarettes` out on me.
+- God, i hate these `cigarettes`!
+- It's cheaper than `cigarettes`.
+- Then find me some `cigarettes`.
+- I do not want those `cigarettes`.
+- I never touch french `cigarettes`.
+- I'm just gonna get my `cigarettes`.
+- Can i have one of your `cigarettes`?
+- I never touch american `cigarettes`.
+- No `cigarettes`, no drugs, no booze.
+- I used to smoke raleigh `cigarettes`.
+- Contraband `cigarettes` on that island!
+- I didn't sell `cigarettes` to any kids!
+- I thought you were out of `cigarettes`.
+- Someone who smokes french `cigarettes`.
+- Yeah, some creep stole my `cigarettes`!
+- That's what `cigarettes` are for...?
+- She won't give me any more `cigarettes`!
+- Your father put `cigarettes` out on you?
+- I haven't even got any `cigarettes` left!
+- But i didn't sell `cigarettes` to any kid!
+- I'd like one of your `cigarettes`, please.
+- They burned her breasts with `cigarettes`.
+- But i didn't sell `cigarettes` to any kids!
+- Shit - i forgot to pick up the `cigarettes`.
+- `Cigarettes` kill more patriots than bullets.
+- Do you really want to buy those `cigarettes`?
+- We stay off hard liquor, `cigarettes`... sir?
+- I thought you never sold `cigarettes` to kids.
+- You shouldn't even carry `cigarettes` on board!
+- I got fined for selling `cigarettes` to a minor.
+- Is that where you met the man with `cigarettes`?
+- Well, it isn't "`cigarettes` are bad for you"...
+- How 'bout springing a pack of `cigarettes` loose?
+- We're with the bureau of `cigarettes` and chicks!
+- Yeah, but i didn't sell `cigarettes` to any kids!
+- Saunders, i've lit `cigarettes` - big game fishing.
+- Unless you want to stub `cigarettes` out on my arm.
+- First off, he tells me to stop smoking `cigarettes`.
+- `Cigarettes`, candy bars... pcp, crack... "materiel"?
+- C'mon, let's smoke one of the `cigarettes` right now.
+- How about three hundred `cigarettes` for yourself?
+- Well they found out `cigarettes` give you lung cancer.
+- Patients are rationed to one pack of `cigarettes` a day.
+- Why don't you give him some of your `cigarettes` instead?
+- Smoking the low-tar `cigarettes`, shaving the bikini line.
+- Give those `cigarettes` back now, and buy some gum instead.
+- In my absence, try not to sell `cigarettes` to any newborns.
+- Let me just go, uh, get some space `cigarettes` 46 days ago.
+- Sharing my `cigarettes` between... - fifth and sixth period.
+- Do you still want the peanut butter, bread and `cigarettes` ?
+- Let's say that's the truck; it's full of `cigarettes`, right?
+- That wouldn't be the `cigarettes` you took us for last night?
+- Even brought me some cartons of `cigarettes` from time to time.
+- Two packs of `cigarettes` say they don't get out of the forest.
+- First, get yourself a hundred `cigarettes` for the kraut guards.
+- This is where the emphysema patients come to sneak `cigarettes`.
+- Did you know you shouldn't light three `cigarettes` with a match?
+- Up to my asshole in anger, living off the vitamins in `cigarettes`?
+- Like it could disguise itself as anything... a pack of `cigarettes`?
+- Two packs of `cigarettes` say dunbar never gets out of the compound.
+- Don't forget, you owe rick's a hundred cartons of american `cigarettes`.
+- I'm tryin' to look out for you... you got something against `cigarettes`?
+- I don't want to deal with a guy that sells `cigarettes` to a five-year-old.
+- We did it with the best intentions... will you send me some `cigarettes`, please?
+- Kate... you only smoked three `cigarettes` through the entire state of mississippi.
+- They oughta put some kind of warning on these cans, like they do with `cigarettes`.
+- I don't have enough indignities in my life-people start throwing `cigarettes` at me!
+- We don't let go, you s... naw, i've seen what that can do to a pack of `cigarettes`.
+- You don't want to hear that i got `cigarettes` put out on me when i was a little kid.
+- The chocolate and `cigarettes` you brought in - you lose that as you are now convicted.
+- Well, if you won't let me smoke grass, then at least i'll go get myself some `cigarettes`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "it in a sentence | it example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "it"
+---
+- As long as `it` takes.
+- As well as `it` could.
+- Aw, i appreciate `it`.
+- Beautiful, isn't `it`?
+- Beautiful, isn�t `it`?
+- Because i choose `it`.
+- Because `it` pays off.
+- Because `it`'s absurd.
+- Because `it`'s in you.
+- Because `it`'s my job.
+- Because `it` will not!
+- Because you wish `it`.
+- Bellamy, this is `it`.
+- Ben: just let `it` go!
+- Better bring `it` all.
+- Better eat `it` quick.
+- Better enjoy `it` now.
+- Bikes, `it`'s all you.
+- Billy's bringing `it`.
+- Bloody big if `it` is.
+- Bring `it` back alive.
+- But he's part of `it`.
+- But i covered `it` up.
+- But i don't have `it`.
+- But i had to end `it`.
+- But i like to do `it`.
+- But `it` can be risky.
+- But `it` can't happen.
+- But `it` could happen.
+- But `it` has pictures.
+- But `it` is different.
+- But `it`'s all you do.
+- But `it`'s bad enough.
+- But `it`'s impossible.
+- But `it`'s not enough!
+- But `it`'s not enough.
+- But, `it`'s not is `it`?
+- But `it`'s not, jimmy.
+- But `it`'s 'ok'... oh.
+- But `it`'s so obvious.
+- But `it` takes longer.
+- But `it` was business!
+- But `it` was horrible.
+- But `it` was my fault.
+- But `it` was too late.
+- But maybe that's `it`.
+- But nobody knows `it`.
+- But wasn't `it` funny?
+- But we can erase `it`.
+- But we can erase `it`.
+- But we civilized `it`.
+- But what does `it` do?
+- But what if `it` does?
+- But why did i do `it`?
+- But you gotta do `it`.
+- By god, you know `it`.
+- Call `it` our theater.
+- Can `it` be destroyed?
+- Can `it` be that easy?
+- Can't `it` wait, then?
+- Can you believe `it`?!
+- Can you find `it` yet?
+- Careful, `it`'s heavy.
+- Carl, `it`'s a jungle.
+- Cashiers'll know `it`.
+- 'cause `it`'s organic.
+- 'cause `it` wants you.
+- Cause `it` won't work.
+- Chipping away at `it`.
+- Christ, `it`'s ho-jon!
+- Clarke: `it`'s true.
+- Clarke, you made `it`.
+- Come on, goddamn `it`!
+- Come on... is `it`?...
+- Coming to secure `it`.
+- Com'on, just say `it`.
+- Control, `it`'s reese.
+- Could `it` be spock's?
+- Couldn't believe `it`.
+- Could we try `it` now?
+- Damn right i did `it`.
+- Did `it` go like that?
+- Did `it` stop finally?
+- Didn't even deny `it`.
+- Did you ever see `it`?
+- Did you get `it` done?
+- Did you get `it`, too?
+- Did you give him `it`?
+- Did you lose `it` all?
+- Does `it` have a name?
+- Do `it` for the paper.
+- Done too much of `it`.
+- Don't do `it`, evelyn.
+- Don't do `it`, norman!
+- Don't do `it`, please.
+- Don’t ﬁre that's `it`?
+- Don't give `it` to me.
+- Don't make me do `it`.
+- Don't screw with `it`.
+- Don't sweat `it`, man.
+                 

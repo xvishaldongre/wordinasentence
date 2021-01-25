@@ -1,0 +1,87 @@
+---
+title: "hidden in a sentence | hidden example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hidden"
+---
+- Know what is `hidden`.
+- I think we're `hidden`.
+- `Hidden` talents george.
+- Keep this stuff `hidden`.
+- I have `hidden` your keys.
+- It was very well�`hidden`.
+- Take the `hidden` passage.
+- I told you to stay `hidden`!
+- These machines are `hidden`.
+- What is the `hidden` agenda?
+- He <u>hasn't</u> `hidden` it.
+- She's got a `hidden` pitbull.
+- Letters `hidden` up her chimney.
+- The diary was `hidden` too well.
+- Does that have a `hidden` meaning?
+- He had it `hidden` in the dresser!
+- The jump drive is `hidden` inside.
+- You had a `hidden` agenda, though.
+- Maybe it was `hidden` in something.
+- Their bases are very well `hidden`.
+- I know where the traps are `hidden`.
+- You know much that is `hidden` o tim.
+- "three things cannot long be `hidden`.
+- `Hidden` fortress, children of paradise.
+- If she wants to stay `hidden`, she will.
+- There may be a few more things `hidden`.
+- Who would know where they were `hidden`?
+- I want to know why he keeps that `hidden`.
+- The apes will be `hidden` from the public.
+- Are there any `hidden` rooms or staircases?
+- Somebody wanted the place to stay `hidden`.
+- Do we simply ask him where he's `hidden` it?
+- Look what we found `hidden` in your bedroom.
+- An extra memory port, a `hidden` transponder.
+- The best-`hidden` secrets are in plain sight.
+- They're communicating with a `hidden` signal.
+- I haven't lived life -- i've `hidden` from it.
+- I'm seeing something that was always `hidden`.
+- Business, best `hidden` is `hidden` best at night.
+- Classified ads in the paper with `hidden` codes.
+- She's got stiletto heels `hidden` in those keds.
+- The machine should be `hidden` from the examiner.
+- But we need to know where the bones were `hidden`.
+- The inmates managed to keep her `hidden` for days.
+- They probably took her to find the `hidden` bases...
+- Ann, in life one has to be aware of `hidden` agendas.
+- Do you have some `hidden` talent i should know about?
+- .. where's the body, and <u>why's he `hidden` it</u>?
+- But she is the only link between us and the `hidden` bases.
+- It was so well `hidden`, you didn't even know it was there.
+- I thought i told you to stay `hidden` behind the couch, cat!
+- That which has been `hidden` in darkness is now in the light.
+- I bet they have tons of incredible shoes `hidden` in the back.
+- We have to keep this `hidden` until we figure it out ourselves.
+- But you don't have `hidden` motives for feeling that way, right?
+- She probably took him a loaf of bread with a saw `hidden` in it.
+- You have `hidden` talent bubbling inside you, look at that house.
+- You have to get so far `hidden` away that you never see sunlight.
+- "but don't forget there is a second force `hidden` in the forest."
+- He has his wife's jewelry `hidden` in among his clothes over there.
+- She could have `hidden` a machine gun in here if she had wanted to.
+- Behind every ridiculous statement is always `hidden` the true cause.
+- If you're possessed, you can't reveal anything satan wants `hidden`.
+- [gasps] things we'd `hidden` from ourselves, the van houtens, of course.
+- Where the early pharaohs were said to have `hidden` the wealth of egypt.
+- To float in a dream that keeps a .promise half-`hidden` in its shadows.-.?
+- He will be `hidden` somewhere out here, probably somewhere low, in the crowd.
+- Your father left us nothing but a legacy of bad debts `hidden` by a good name.
+- I just hope she doesn't turn out to be a `hidden` hotcha character, that's all.
+- Then they'd find your deeper, `hidden` criminal selves... how will it stand up?
+- A `hidden` observatory beneath the temple of the sun i know you're not a killer.
+- She's from paradise island, which is, like, this `hidden` island please come in.
+- Especially since i've heard how much you like to watch... on the `hidden` camera.
+- Three hundred kilos of white lady `hidden` inside a giant bust of abraham lincoln.
+- I keep a couple of my dad's porno books `hidden` in my desk for emergency reference.
+- Her mother kept her `hidden` for almost 16 years, always following her master's voice.
+- I assume you must have `hidden` a device in one of the missiles i hurled into the sun!
+- It's possible that graham has `hidden` motives for disliking therapy and/or therapists.
+- This place gives me the creeps, `hidden` away like this - no contact with civilization.
+- They kept it `hidden` from me all day so they wouldn't have to close down the movie house.
+                 

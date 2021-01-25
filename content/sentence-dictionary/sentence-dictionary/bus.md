@@ -1,0 +1,107 @@
+---
+title: "bus in a sentence | bus example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bus"
+---
+- He got hit by a `bus`.
+- I see the `bus` is in.
+- I stared at the `bus`.
+- Just get on the `bus`.
+- Long wait for a `bus`?
+- Mr. kaplan said `bus`.
+- Our own special `bus`.
+- Was the `bus` on time?
+- Waiting for the `bus`.
+- It was a `bus` accident.
+- That `bus` we picked up.
+- Took `bus`, most of way.
+- No, he got hit by a `bus`.
+- We have a `bus` to mexico.
+- When does the `bus` leave?
+- You gonna miss your `bus`.
+- You missed the `bus`, too.
+- He's big as a bloody `bus`!
+- Then he got hit by a `bus`.
+- I hired you to `bus` tables.
+- Risa, i serviced that `bus`.
+- You know, at the `bus` stop.
+- Here's your `bus` ticket.
+- How many people in the `bus`?
+- I wasn't waiting for a `bus`.
+- This `bus` is too depressing.
+- We're on a `bus` with chicks.
+- Why not drown him in a `bus`?
+- You need money for the `bus`?
+- Stay away from that `bus`.
+- I shoulda stayed on the `bus`.
+- Like you `bus` driver to dere?
+- The `bus` was late, wasn't it?
+- Uh... is this the right `bus`?
+- Where's the `bus` to new york?
+- ...are you waiting for a `bus`?
+- It's me, the girl on the `bus`!
+- What time does the `bus` leave?
+- Thanks, but i'll take the `bus`.
+- Haps, railroad, `bus` timetables?
+- Let's get them back in the `bus`.
+- The `bus` stopped in los angeles.
+- Then why go to the `bus` station?
+- Tomorrow morning, i'm on a `bus`.
+- She can't drive the `bus` anymore.
+- What am i, a retired `bus` driver?
+- Why did we have to leave the `bus`?
+- Because the `bus` went off the road.
+- I mean, who rides the `bus` anymore?
+- I've been trained as a `bus` driver.
+- The `bus`'ll pick you up over there.
+- You got a `bus` that goes to mexico?
+- ♪ each day this `bus` ♪ you got this.
+- Everyone wants to meet the `bus` boy.
+- How come you didn't catch your `bus`?
+- I -- suzie -- you sabotaged the `bus`!
+- Now, the `bus` will be here on monday.
+- Why did you stay on the `bus`, walter?
+- When your husband get hit by the `bus`?
+- I'll give you a scoop... of short `bus`.
+- I was on that `bus`�i told them to wait!
+- Notice something funny about that `bus`?
+- What time is the next `bus` to new york?
+- You want some bum in the `bus` terminal?
+- Ain't gonna have my girl ridin' no `bus`.
+- Billy loved to see his kids in the `bus`.
+- `Bus` is all gassed up and ready to roll.
+- Chief, i swear, we tore that `bus` apart.
+- I'm going to take a `bus` to my sister's.
+- The school `bus` will be here any minute!
+- _ we sang "wheels on the `bus`" together.
+- Did we pass an abandoned school `bus` yet?
+- Go back to the `bus` and reroute the call.
+- Hey, is there a `bus` station around here?
+- In coach it is like the `bus` to giterama.
+- In the price of a `bus` fare in sao paulo.
+- She's not in her room... get on the `bus`.
+- Was anyone waiting for the `bus` with you?
+- Can i sit beside you on the `bus` tomorrow?
+- I'll be coming with the five o'clock `bus`.
+- It's not just the chip, it has a pci `bus`.
+- The cool kids sit in the back of the `bus`.
+- C'mon, i'll get you home... -- took a `bus`.
+- Than why don't you talk to the `bus` driver?
+- Tomorrow i'm going to put sean on the `bus`.
+- Because i was driving behind the `bus`, mary.
+- Do you drive a short beer `bus` or something?
+- Oh, the `bus` has been leaking oil for miles.
+- The view moves to the rear door of the `bus`.
+- You get back, and i'll wait here for a `bus`.
+- You're gonna walk outta here with `bus` fare.
+- I'll catch the last `bus` leaving at midnight.
+- In front of harrison's, he got hit by a `bus`.
+- They just won't come on the `bus`, that's all.
+- Sue came on the `bus` with dreams of hollywood.
+- That she was wearing it when the `bus` crashed?
+- The `bus` depot here has a western union thing.
+- Airports, train stations, `bus` station are out.
+- I found the car at the miami `bus` terminal.
+- The ottos always waited for the `bus` with bear.
+                 

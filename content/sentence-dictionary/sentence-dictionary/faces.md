@@ -1,0 +1,76 @@
+---
+title: "faces in a sentence | faces example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "faces"
+---
+- No more false `faces`.
+- They have noble `faces`.
+- They didn't have `faces`.
+- We've seen their `faces`.
+- Scarred their own `faces`?
+- Blank `faces` here, o'neil.
+- No long `faces`, all right?
+- You should see your `faces`.
+- I can't forget their `faces`.
+- Put on your innocent `faces`.
+- Do you ever see their `faces`?
+- I can see it in their `faces`.
+- My place `faces` a truck street.
+- What's with all the new `faces`?
+- White people with black `faces`.
+- I can't wait to see your `faces`.
+- Look at those `faces` back there.
+- So let's put on our mean `faces`.
+- We blacked our hands and `faces`.
+- Anyway, he's seen our `faces`.
+- Rubbing the palace in our `faces`.
+- Some `faces` you just don't forget.
+- Blood was pouring out of their `faces`.
+- I'm-- oh, why are you making those `faces`?
+- What do you recognize, names or `faces`?
+- You should have seen the look on your `faces`.
+- I don't recognize half the `faces` at meetings.
+- You saw the `faces` of her guards we need that.
+- Do you think you have a good memory for `faces`?
+- If you see a few new `faces`, don't get jumpy...
+- Some people got `faces` that stick in your mind.
+- New `faces` are so much more interesting to draw.
+- I'll need a room over there that `faces` this way.
+- Of my kids with ketchup on their `faces` "adorbs."
+- Their `faces` are familiar--but not to each other.
+- Seeing their `faces` every day uh, problems i have!
+- There's no buttons, and the camera only `faces` you.
+- God, what i wouldn't give to see their stupid `faces`.
+- The look on their `faces` when one walks into the room.
+- Look at yourself, they have names for `faces` like that.
+- I swear i see him ten times a week--in a hundred `faces`.
+- She `faces` east so she has an excuse to wear the shades.
+- I have sat in this room and seen the `faces` of newcomers.
+- So, rain or shine, we will all have smiles on our `faces`.
+- `Faces` behind glass, right in the face with his chain.
+- He's pissing in our `faces` again and we're just taking it.
+- To be honest, when i'm working, i don't look at `faces` much.
+- I guess i've got one of those `faces` you can't help believing.
+- They fucked around with it, and the torah melted their `faces`.
+- _ even though they say something's not addictive, their `faces`.
+- I mean, can you imagine their `faces` just don't hit the fuel cell.
+- It's better than not believing it their `faces` are inches apart.
+- I'm not ... you don't half slam the door in people's `faces`, do you?
+- Men have two `faces`: one that laughs and one that cries ... go away!
+- Same `faces` - same instruments - - and here's your valentine's card.
+- Paul, my little ceramic penguin in the study always `faces` due south.
+- Seeing their `faces` every day is just gonna we can't just let them die.
+- The people at the bank, you should see their `faces` when i walk in there.
+- Just think, we'll never have to see any of these creepy `faces` ever again.
+- I don't understand all this mumbo jumbo and the funny looks on your `faces`.
+- ... so when your dad said, "i never want to see your "f-'in' `faces` again!"
+- I enjoyed seeing the shock on their poor `faces` when they realized who i was.
+- More tanks... ryan lot's of them the fear on their `faces` turns to resignation.
+- Take my advice and get him out of town before this thing explodes in our `faces`!
+- You're really terrific, you know what i mean --linnea rolls over and `faces` him.
+- At the rate you two are going, we'll have to leave the country to save our `faces`.
+- We wear so many goddam masks after a while they get stuck to our `faces`, you know?
+- All i know is, the next day they had really high fevers, and their `faces` got very fat.
+- Who all ended up wearing candles for `faces`... swayzak's up to his ass in this somehow.
+                 

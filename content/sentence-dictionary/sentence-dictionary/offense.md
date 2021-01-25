@@ -1,0 +1,60 @@
+---
+title: "offense in a sentence | offense example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "offense"
+---
+- I'll take no `offense`.
+- An indictable `offense`.
+- No `offense`, obviously.
+- They may take `offense`.
+- Take no `offense` trevor.
+- I didn't mean no `offense`.
+- So no `offense` but thanks.
+- I want to know no `offense`.
+- No `offense` to the old man.
+- The best defense is `offense`.
+- Who would take `offense` to that?
+- No `offense`, sweetheart: fuck you.
+- No `offense`, where is master titus?
+- Some fag, no `offense` - absolutely.
+- No `offense`, but i'm gonna get even.
+- No `offense`, but i've seen you fight.
+- I'm sure mr. gordon meant no `offense`.
+- There's gonna be a big `offense` any time.
+- No `offense`, but you know what i'm saying?
+- No `offense`, but you're sister is without.
+- No `offense`, but you're a very earthly being.
+- No `offense`, but you're pretty out of it now.
+- But the bet defense is a good `offense`, right?
+- I don't talk about it, you know... no `offense`.
+- I'm warning you -- it'll be a federal `offense`.
+- No `offense`, sir, but why wouldn't he just run?
+- They sort of got me on shit detail, no `offense`.
+- First `offense` burglary -- -- probably two-fifty.
+- This thing's an `offense` to mechanics everywhere.
+- Alex, my man, it's time to play a little `offense`.
+- No `offense`, marcus, but i'm keeping the job woods?
+- I have taken out everything that could give `offense`.
+- No `offense`, but why'd they partner me with a rookie?
+- Lady, resisting arrest is a serious criminal `offense`.
+- Refusal to pay alimony is a jailable `offense`, fletch.
+- Yeah, well, no `offense`, but becca wasn't a god either.
+- You'd take no `offense` if we called you dela for short?
+- No `offense`, man, but i think you're on something nasty.
+- No `offense`, professor tripp, but you look sorta crappy.
+- No `offense`, but all i ever need... are these... and this.
+- No `offense`, or anything, but it's kind of hard to swallow.
+- <i></i> no `offense`, stu, but on your own you're kinda vanilla.
+- No `offense`, boss, but they might find you a little disgusting.
+- [no `offense`, but i'm sorry that your profession needs to exist.]
+- I don't mean any `offense`... but what are you doing mixed up in all this?
+- Six-six-two, no `offense`, but i already went over all this with the cops.
+- Look at yourself, joe, no `offense`, but frankly, you're beginning to smell.
+- He busted me, third `offense`, gave me a choice: work for him or do fifteen long.
+- Mrs. mulwray, it's a very serious `offense` pointing that at an officer of the law.
+- That's because -- no `offense`, laurie, but it was silk spectre i had the crush on.
+- This is a federal `offense`, i got kidnapping, armed robbery, they're gonna bury me!
+- You're dead when they do this and when those dirty yanks go to sleep -- no `offense`.
+- No `offense`, but if that's a woman, it looks like she's been beaten with an ugly stick.
+                 

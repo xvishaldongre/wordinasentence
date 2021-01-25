@@ -1,0 +1,62 @@
+---
+title: "sale in a sentence | sale example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sale"
+---
+- Lips still for `sale`?
+- For the rummage `sale`.
+- You made a good `sale`.
+- Did you tell 'em my `sale`?
+- You missed a fucking `sale`.
+- I got it at a rummage `sale`.
+- We'll just have a bake `sale`.
+- I got it out of rummage `sale`.
+- I thought it wasn't for `sale`.
+- It's better than a good `sale`.
+- For `sale` there and then, like.
+- I'm helping him with the `sale`.
+- Why should the `sale` not stick?
+- It's not for `sale` at any price.
+- Outlawing the `sale` of cannabis.
+- You have any biscuits for `sale`?
+- Yeah, we can have a garage `sale`.
+- Are you suggesting i am for `sale`?
+- I think the lady just made a `sale`.
+- I closed a `sale` today, without len.
+- If you like them, they're for `sale`.
+- Even on `sale` that stuff's a fortune.
+- This morning at seymour's garage `sale`.
+- This place is like a scumbag yard `sale`.
+- What's so wonderful if i lost the `sale`?
+- Umm... that's not officially for `sale`...
+- It's a... how could i tell 'em your `sale`?
+- Happen to know where there's one for `sale`.
+- It's sprawl-mart's huge black friday `sale`.
+- This is just junk i have for `sale` or trade.
+- Wow, girl, you just made a hundred-dollar `sale`.
+- So, i noticed a "for `sale`" sign out in your yard.
+- You have to believe me, i had no idea -- for `sale`?
+- I found out about the garage `sale` down at bluestar.
+- Me and my bunch hit a dealer in the middle of a `sale`.
+- We tried the big vaporware number, gary, it's no-`sale`.
+- That transference, barter or `sale` is attested by a deed.
+- You were entrusted with more than a mere `sale` of jewelry.
+- Twenty-nine ninety-five on `sale` at goldbaum's tv and radio.
+- Guess it wasn't a garage `sale` as much as it was a bake `sale`.
+- But you've a pension, haven't you, from the `sale` of his books?
+- Jumble `sale` on in watford, they'll be up at the crack of dawn.
+- I know i've seen that g- string stuff for `sale` someplace around.
+- Yes... good, good... we also provide 24-hour after-`sale` service.
+- After dinner, i want you to pick out your toys for the yard `sale`.
+- Ninety percent our `sale`, we're paying to the office for the leads.
+- You know rach, discount mart is having a `sale` on halloween costumes.
+- Jews can no longer own businesses, sir, that's why this one's for `sale`.
+- I don't have a tel...i'll tell 'em your `sale` when they bring in the leads.
+- We are having a `sale` on some items over here -- sixty five... jeez louise!
+- Sec filing... for the `sale` of the cbs corporation to westinghouse corporation.
+- All that i'm telling you: that one thing you can tell them it's a remarkable `sale`.
+- They're all for `sale`, but none of 'em would be if they weren't desperate for the money.
+- He got the car in a trade for his old pick-up and some food...no bill of `sale` or nothing.
+- I may have one hindu 78 from the twenties in my collection, but it's not really for `sale`.
+                 

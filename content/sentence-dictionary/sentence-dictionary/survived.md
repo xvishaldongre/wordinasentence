@@ -1,0 +1,82 @@
+---
+title: "survived in a sentence | survived example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "survived"
+---
+- Somehow he `survived`.
+- They `survived` above.
+- A few of us `survived`.
+- Few have `survived` it.
+- We `survived` together.
+- If you `survived` at all.
+- Look, tron, he `survived`!
+- But we `survived`, you see?
+- It seems to have `survived`.
+- This is all that `survived`?
+- You accidentally `survived`.
+- It is why you have `survived`.
+- You `survived` the fire swamp.
+- You have `survived` the winter.
+- You made it up, you `survived`.
+- How have you `survived` so long?
+- One of the defectors `survived`.
+- We `survived` that because of me.
+- No one could have `survived` that.
+- Actually only one cell `survived`..
+- One of which `survived` the attack.
+- You `survived` 6 years of radiation?
+- Yes, but that's not how i `survived`.
+- I don't think we `survived` the crash.
+- Must be how they `survived` down here.
+- That says the mission team `survived`?
+- Clarke's mind `survived` the procedure.
+- Clarke's the only reason we `survived`.
+- I don't think we `survived` that crash.
+- I see you've `survived` your adventure.
+- They're merely the ones who `survived`.
+- It itched for a while, but i `survived`.
+- We `survived`... we endured... for this.
+- If you `survived`, there could be others.
+- So...you...`survived` the blast, did you?
+- Honey, i have `survived` a host of things.
+- It's one of the few things that `survived`.
+- You `survived` the fire at the movie house.
+- You `survived` your first gay party intact.
+- No one's ever `survived` such a fate before.
+- Well, johnnie walker has clearly `survived`.
+- Unlike the others, i `survived` your treachery.
+- Still, you have `survived` the dinosaurs before.
+- This one `survived` is because they left him why?
+- That is how we `survived`, get back to your posts.
+- You `survived` and now you shall continue the curse.
+- And we've been through so much and `survived` so much.
+- Without him, i don't know how i would have `survived`.
+- Mom... like each of us, somehow this valley `survived`.
+- If it's true you `survived` the red sun, you can stop it.
+- You mind telling me how clarke's consciousness `survived`?
+- They've `survived` this ordeal, they'll survive it's memory.
+- The shepherd `survived` 3 months in this cave, what happened?
+- She `survived` longer than that with no weapons and no training.
+- The fact that they `survived` means think we've slept long enough.
+- ♪ and now i have a raging fever ♪ well, she `survived` the surgery.
+- You know, annie, this book never would have `survived` without you.
+- We can send a message over the arkwide channel, you guys `survived`.
+- None of the other clowns will do it so that's how you `survived`.
+- By a pattern in the visions of those who `survived` the north, south?
+- Let's just say that no humpback born in captivity has ever `survived`.
+- ♪ yo, jebediah `survived` the pox ♪ your people did not vote for kane.
+- At ia drang valley... and the cocksucker `survived` - that's baaad man.
+- So that those of us who `survived` can go back to the surface of the earth.
+- That's how we `survived`, i'm just afraid i won't be able to pull the plug.
+- Can't believe we `survived` 100 years i haven't talked to him since we got back.
+- So you're saying it `survived` a high speed impact with water without a scratch?
+- One day i'll tell you how i `survived` as the youngest in a family of three sons.
+- And that's a big if... that bridge has `survived` it'll make you smoky and crispy.
+- I `survived` my first and last hallucinogenic hellride, and neither of us is dead.
+- The fiercest version of yourself, then realize... phineas miraculously `survived`.
+- If her language `survived`, the thing you dread most is losing a can full of money.
+- The few that `survived` the explosion first off, grab somebody... - who is this guy?
+- The van garretts died first; a man and his son, `survived` by a wife and two infants.
+- The ark sucked, but we `survived` it, ♪ for breakfast they have bagels ♪ i'll get help.
+                 

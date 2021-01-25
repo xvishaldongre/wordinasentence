@@ -1,0 +1,66 @@
+---
+title: "ashamed in a sentence | ashamed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ashamed"
+---
+- `Ashamed` of yourself.
+- But not too `ashamed`.
+- Why are you `ashamed`?
+- You outta be `ashamed`.
+- 2... don't be `ashamed`.
+- You ain't `ashamed`?
+- I ain't said i'm `ashamed`.
+- Now you're `ashamed` of me?
+- She was `ashamed`, i guess.
+- I'm not `ashamed` of it.
+- I am `ashamed` to say he is.
+- You are not `ashamed` of it?
+- I'm not `ashamed` of it either.
+- I was `ashamed` to come to you.
+- It's nothing to be `ashamed` of.
+- Monty would be `ashamed` of you.
+- Aren't you `ashamed` of yourself?
+- Are you `ashamed` that we did it?
+- Are you `ashamed` as i am `ashamed`?
+- We're not `ashamed` of you, teddy.
+- All right, i'm not `ashamed` of it!
+- I'd be `ashamed` as a motherfucker.
+- There's nothing to be `ashamed` of.
+- You should be `ashamed` of yourself.
+- Not at all `ashamed` to admit it.
+- I would be `ashamed` to wear it here.
+- You have no reason to feel `ashamed`.
+- You should be `ashamed` of yourselves.
+- You ought to be `ashamed` of yourself.
+- Didn't mean she was `ashamed` of it.
+- What makes you `ashamed` of being black?
+- I am `ashamed` of what i have done ellen.
+- You have nothing to be `ashamed` of, okay?
+- You should all be `ashamed` of yourselves.
+- If i was `ashamed`, it was because of that.
+- It's just not something to be `ashamed` of.
+- Sid worley, i think you're `ashamed` of me.
+- But it amused me to make you `ashamed` of it.
+- Oh, please, mr. igor, i'm terribly `ashamed`.
+- I've done nothing and for that i am `ashamed`.
+- Edie feels subdued, `ashamed` at breaking down.
+- He was my father and i was `ashamed` of him.
+- It's nothing to be `ashamed` of -- are you kidding?
+- Got set up, did some time, nothing to be `ashamed` of.
+- I mean, aren't you `ashamed` to pontificate like that?
+- Uh, we uh- well if that is pete i am `ashamed` of him.
+- Don't tell me you aren't `ashamed` of that because i know.
+- I am `ashamed` to put the picture of lenin in a room like this.
+- It's nothing to be `ashamed` of, in the service of one's country.
+- I'm afraid hildy'd feel `ashamed` to think she hadn't trusted you.
+- You don't have to cry... you ain't got nothin' to be `ashamed` of.
+- Thomas is dead but you've done nothing for which you should be `ashamed`.
+- I want everybody to hear because i don't have anything to be `ashamed` of.
+- You're lucky i don't slap your face -- you oughtta be `ashamed` of yourself.
+- So these two girls come over to the bar... you should be `ashamed` of yourself.
+- You mean you wouldn't be `ashamed` to be seen with somebody in a hat like this?
+- Mm-hmm, and an honest spy is either incompetent mom, i'm so sorry i was `ashamed`.
+- You ought to be `ashamed` of yourself astin' such a nasty things a child your age!
+- I'm so `ashamed` of myself, so `ashamed`...i tried to hide myself...i feel so small...
+                 

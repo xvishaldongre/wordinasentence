@@ -1,0 +1,107 @@
+---
+title: "fly in a sentence | fly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fly"
+---
+- Aspirin... `fly` head.
+- Doesn't need to `fly`.
+- `Fly` with me tonight.
+- Ikran will `fly` well.
+- I will `fly` with you.
+- Wouldn't hurt a `fly`.
+- `Fly` us over the edge.
+- Get her ready to `fly`.
+- God, i'd love to `fly`.
+- That's not gonna `fly`.
+- They can `fly` us home.
+- You ever `fly` an f-14?
+- I can't `fly` like that.
+- If i could `fly` at all.
+- Let's `fly`, antoinette!
+- The spider or the `fly`?
+- This is "`fly` with us?"
+- Can you `fly` that thing.
+- Everybody wants to `fly`.
+- If you want, i can `fly`.
+- It doesn't `fly` with me.
+- Not unless you can `fly`.
+- Can i `fly` it now, mommy!
+- He taught me how to `fly`.
+- I want to `fly` jets, sir!
+- We set the bomb and `fly`.
+- We used to `fly` together.
+- Do i know how to `fly`?
+- If you `fly` me up there...
+- Mark wouldn't hurt a `fly`.
+- Shut up and `fly` straight!
+- That ship will never `fly`.
+- You can't `fly` this plane!
+- You used to `fly` together!
+- We `fly` them, you `fly` them.
+- Why drive when we can `fly`?
+- You can `fly` it, can't you?
+- You think i shouldn't `fly`.
+- `Fly`, `fly`, spread the words.
+- He's taking up `fly` fishing.
+- I'm going to `fly` out today.
+- You can `fly` away from here.
+- But johnny... you can't `fly`.
+- Can anyone here `fly` a plane?
+- He'll swat you like any `fly`.
+- My grandmother wants to `fly`.
+- She just wanted to `fly` away.
+- We `fly` for freeside at dawn.
+- You could `fly` down tomorrow.
+- They couldn't `fly` anyhow.
+- Even you can't `fly` that fast!
+- For your little story to `fly`.
+- It can't `fly` in this weather.
+- I'll `fly` you over to pasadena.
+- She's willing to `fly` anywhere.
+- We `fly` to honolulu in silence.
+- Because you were afraid to `fly`.
+- Look at those view numbers `fly`.
+- Who the fuck taught you to `fly`?
+- You `fly` home and get some rest.
+- You know how to `fly` this thing?
+- Even if it weren't, why `fly`?
+- Birds `fly` to the stars, i guess.
+- Can we go `fly` over central park?
+- I'll stay here and `fly` the ship.
+- They're going to `fly` everywhere.
+- You wanna `fly` out there with me?
+- `Fly` south -- hook up with adrian?
+- Honey, some folks just can't `fly`.
+- I can't even `fly` out of a window!
+- I need the id to `fly` with my gun.
+- Look, they need a machine to `fly`.
+- You could just `fly` over the wall.
+- But johnny...you <u>can't `fly`</u>.
+- Can't be that hard to `fly` a plane.
+- Geoffrey has to `fly` back to cairo.
+- I'll never `fly` this airline again!
+- The stealth eagle is about to `fly`.
+- Do you want me to `fly` up after you?
+- I don't know how to `fly` this thing.
+- I'll `fly` it in myself if i have to.
+- I've got to `fly` to boston tomorrow.
+- Just the `fly` in the ointment, hans.
+- They'll all `fly`, but -- oh, shit...
+- You're going to `fly` the helicopter.
+- Boy, they sure `fly` nice, don't they?
+- But you don't need your legs to `fly`.
+- `Fly` back to school, little starling.
+- I didn't know you could `fly` a plane.
+- I'm gonna `fly` outta my fuckin' mind.
+- Shoot the damned things as they `fly`.
+- So they have no one to `fly` the ship.
+- Wonder why he doesn't `fly` both ways.
+- `Fly` to kansas and woo little dorothy.
+- From there you can `fly` back to paris.
+- I'm trudy, i `fly` all the scientzoids.
+- Tighter 'n a bulls ass in `fly` season.
+- Big butt... you know, can't `fly` coach.
+- Can you `fly` this airplane and land it?
+- Doors don't `fly` open for guys like us.
+                 

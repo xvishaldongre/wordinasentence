@@ -1,0 +1,72 @@
+---
+title: "wallet in a sentence | wallet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wallet"
+---
+- He took your `wallet`?
+- They took my `wallet`.
+- Where's your `wallet`?
+- Where�s your `wallet`?
+- Ray check his `wallet`.
+- Have you got a `wallet`?
+- Kept it in his `wallet`.
+- He took derek's `wallet`!
+- He touched your `wallet`!
+- Hey, where's my `wallet`?
+- I have it in my `wallet`.
+- Let me see that `wallet`.
+- Have you seen my `wallet`?
+- I left my `wallet` at home.
+- I'll put it in my `wallet`.
+- I think i lost my `wallet`.
+- Sorry i forgot my `wallet`.
+- What color is the `wallet`?
+- I couldn't find my `wallet`.
+- The wolf of `wallet` street?
+- Wait-- you have my `wallet`.
+- Yeah, my `wallet`'s gone, too.
+- What happened to your `wallet`?
+- You gotta get me that `wallet`.
+- May be please have the `wallet`.
+- Because... where�s your `wallet`?
+- Don't worry, we got the `wallet`.
+- Where's bruce baldwin's `wallet`?
+- He was identified by his `wallet`.
+- Sure you don't want your `wallet`?
+- Your `wallet` was stolen at a bar.
+- Hands him his `wallet` and badge...
+- I found your `wallet` the other day.
+- The wedding bands are in my `wallet`.
+- Got it right here in my `wallet`... what?
+- They took my `wallet`, money... all of it.
+- You want a lock to carry in your `wallet`?
+- That'll break moe's heart and his `wallet`.
+- `Wallet`, cash, i.d... what else did he get?
+- But, bruce, don't keep it in your `wallet`!...
+- You wanna take it out of your `wallet`, please?
+- You wrote it down and kept it in your `wallet`?
+- Can i see your `wallet` and your ticket, please?
+- Look, you can have my `wallet`... a tag on your toe.
+- No, he tossed the `wallet`, but he kept the license.
+- They lifted my `wallet` to make it look like a robbery.
+- Exfil opens the pocket -- -- cyber ops lifts the `wallet`.
+- Now let me pull your `wallet` up madi, i don't want a war.
+- He was attacked, and his `wallet` and his watch were taken.
+- Homer, we're placing this tracking device in your `wallet`.
+- "if i never found a `wallet`, i would always give it back."
+- I understand that, but i had my `wallet` stolen last night.
+- I mean, it's... uh... uh... where do you keep your `wallet`?
+- So what if ling ling kept the cash and returned the `wallet`?
+- I had just cashed a traveler's check and put it in my `wallet`.
+- Here, bruce, here's the check... and, oh, bruce, here's your `wallet`.
+- I haven't had the `wallet` for that, so i sort of live bottle to bottle.
+- Okay, so they were in your `wallet`, and you left your `wallet` somewhere.
+- There was no `wallet`... but he was still wearing a watch and two rings.
+- Sami, tomorrow you lift a `wallet` from someone who looks like one of us.
+- Takes the tv, the vcr, some other shit and leaves his `wallet` on the floor.
+- I don't know what you're talking about -- but is this mr. baldwin's `wallet`?
+- In one room a man loses his `wallet` and in another room a man loses-- his head.
+- Listen to me, very carefully, take your `wallet` out, just touch it on the corners.
+- What you see, son, is a man who never measured success by the size of a man's `wallet`.
+                 

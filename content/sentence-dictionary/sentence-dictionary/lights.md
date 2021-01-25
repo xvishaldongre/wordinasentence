@@ -1,0 +1,107 @@
+---
+title: "lights in a sentence | lights example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "lights"
+---
+- The `lights` went out.
+- Hit the `lights` again.
+- Lucky with the `lights`.
+- Dump him at the `lights`.
+- I can't use any `lights`.
+- The `lights` are with me.
+- Why are the `lights` off?
+- Turn left at the `lights`.
+- Willy -- hit the `lights`.
+- Headache, nausea, `lights`?
+- Somebody shut his `lights`.
+- Don�t jump any red `lights`.
+- I'm turning on the `lights`.
+- Let's head for the `lights`.
+- Turn on navigation `lights`.
+- I am in a room with `lights`.
+- Did you leave the `lights` on?
+- I got lucky with the `lights`.
+- What happened to the `lights`?
+- Why aren't there any `lights`?
+- Just checking out the `lights`.
+- There's no `lights` back there.
+- They're afraid of the `lights`.
+- You better put on the `lights`.
+- Fuckin' `lights` and everything!
+- Should we turn off the `lights`?
+- Andy, hit the `lights`, will you?
+- Because the `lights` are all out.
+- With those camera `lights` and...
+- All right, hit those `lights` too.
+- Can we turn on some more `lights`?
+- Don't turn on the `lights`, sugar.
+- I hit the `lights` and she freaks.
+- I'm gonna turn your `lights` down.
+- Over there are the marfa `lights`.
+- With the `lights` and, uh... yeah!
+- He was in his cell at `lights` out.
+- Then i would turn the `lights` off.
+- Get the presents and do the `lights`.
+- Maybe they saw our `lights` and left.
+- Those `lights`... what are you doing?
+- Yes, through... through the `lights`.
+- The `lights` coming up over the water.
+- Mom, first the `lights`, then the wall?
+- The others will just be house `lights`.
+- The planes can't land without `lights`.
+- We had to take off the helmet `lights`.
+- We've got some indicator `lights` here.
+- Aren't there any `lights` in this place?
+- Do you want the `lights` off, or-- - on.
+- `Lights` out, see you at dinner kitties.
+- Now give back the `lights`, potato head.
+- It is `lights` and music, gaiety and joy.
+- Put out all runway `lights` except niner.
+- Running `lights`, stealing stretchers...!
+- The `lights` come up, you pull the switch.
+- We see the `lights`... what's your twenty?
+- Green `lights` and white lines all the way.
+- Would you like me to turn the `lights` out?
+- Nobody's got their porch `lights` on anymore.
+- Just... all the `lights` out... must be asleep.
+- Say phillip, want to see the northern `lights`?
+- Turn on the damn `lights`, or i cut this guy...
+- I had to sleep with the `lights` on for a month.
+- Weird sounds, things moving, `lights` going off.
+- I want you to come in till i get the `lights` on.
+- Sheriff, will you kindly extinguish the `lights`?
+- Just get around so your `lights` are on the hatch.
+- My mom, she said the `lights` speak when it comes.
+- Cabin, mast, net `lights`, picking `lights`... maybe.
+- I thought there'd be casinos and `lights` and stuff.
+- Well, i guess it's safe to put on some `lights` now.
+- The `lights` were flashing on and off, mister turkle.
+- They don't seem so bright with all the city `lights`.
+- Wanna make the colored `lights` go around and around?
+- Ann-- at night, there were `lights`--we both saw them.
+- Because i don't feel safe until i get the `lights` on.
+- He can communicate with us by blinking these `lights`.
+- I think you testified <u>all</u> the `lights` were on.
+- I know they need people to work the `lights` and stuff.
+- I have to go there to the end... you'll see my `lights`.
+- <i>him!</i> i'll bet he sleeps with all the `lights` on.
+- "the night the `lights` went out in georgia" came on.
+- Did somebody leave the `lights` on at the softball field?
+- So everybody huddles together till the `lights` burn out?
+- Then why are you sitting here with half the `lights` off?
+- Next time i'll have film stock that doesn't need `lights`.
+- The digital conveyor was christmas `lights`... decorations.
+- Why, she `lights` up like a firefly whenever you're around.
+- The chanting -- the `lights` -- everything blurred together.
+- And i saw a bunch of `lights` and machines and shit in there.
+- First off, get the `lights` back on and the air conditioning.
+- I've not popped the popcorn, the `lights` are not turned down.
+- The fact that there weren't any `lights` made it so... god!
+- Will, that's not his body, because he's in the `lights`, right?
+- Tomorrow, we will bring some `lights` and also hang some fabric.
+- Maybe if we had some music - - how do you dim these `lights`?
+- Maintenance `lights` down there oughta be enough to do the trick.
+- You better watch your mouth, man, or i'll punch your `lights` out.
+- You forgot the motion sensor `lights` on the back of the building.
+                 

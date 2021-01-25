@@ -1,0 +1,107 @@
+---
+title: "pool in a sentence | pool example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pool"
+---
+- Yeah, there's a `pool`.
+- An embolism in a `pool`.
+- I... fell in the `pool`.
+- I shoot straight `pool`.
+- Not cleaning the `pool`.
+- `Pool` cue's part of me.
+- Shoot `pool`, fast eddie.
+- You a good `pool` player.
+- He didn't die in a `pool`.
+- I'm shootin' `pool`, fats.
+- All they saw was the `pool`.
+- He -- he hustles `pool`?
+- Hey, give me the `pool` cue.
+- I came to play `pool`, fats.
+- That's a great `pool` there.
+- Your friends use the `pool`.
+- A `pool` of possible victims.
+- C'mon let's go to the `pool`.
+- Gamble money on `pool` games?
+- It's a nice `pool`, isn't it?
+- Remember me, from the `pool`?
+- We got a `pool` going on you.
+- Coming to the `pool` for a swim?
+- Harry -� anyone skim the `pool`?
+- I don't play `pool`, mr. felson.
+- Mom says to clean up the `pool`.
+- Your friends use the `pool` too.
+- He's out by the `pool` right now.
+- I traded her in on a `pool` game.
+- Oh, zen gardens, infinity `pool`?
+- You got yourself a `pool` player.
+- You know mom, like in the `pool`.
+- There's an indoor swimming `pool`!
+- After you finish digging my `pool`.
+- Shit, it ain't hard to play `pool`.
+- But john was with him at the `pool`?
+- `Pool` on the roof must have a leak.
+- Their gene `pool` is rarely diluted.
+- ...you shoot a great game of `pool`.
+- Into a `pool` of nail polish remover.
+- He brought a gun onto the `pool` deck.
+- How did you get him out of the `pool`?
+- I thought we came here to play `pool`.
+- Well, you shoot big-time `pool`, fats.
+- He got onto the `pool` deck with a gun.
+- Wouldn't you like to get in the `pool`?
+- You could have a `pool` to cool off in.
+- In the `pool` at our house in sao paulo.
+- We all chip into a `pool` and make bets.
+- We were thinking of putting in a `pool`.
+- Yo, remember from the `pool`, that girl?
+- Look, you wanna hustle `pool`, don't you?
+- There must be some kind of office `pool`.
+- You got a `pool` cue, balls on the table.
+- What kind of straight `pool` game you like?
+- When you found me yesterday, at the `pool`.
+- By the way, i'm not much of a `pool` player.
+- Since the snake that ate three `pool` balls.
+- There ain't no water in the swimmin' `pool`.
+- We used to shoot `pool` together in rangoon.
+- Just shooting `pool`, getting drunk together.
+- He must have driven through a `pool` of blood.
+- I was in the `pool` when the gravity gave out.
+- Maybe i was over at charlie's shooting `pool`.
+- See you later, shortie--i'm off to the `pool`.
+- Your mother hasn't been keeping up the `pool`.
+- I've had my people put together a talent `pool`.
+- Like ester williams' `pool` they start sweating.
+- If you ask for something, ask for a `pool` table.
+- The `pool` game is over when fats says it's over.
+- Basically that you're part of the same car `pool`.
+- You know, it's a -- `pool` cue's got nerves in it.
+- Quit acting like a geriatric and get in the `pool`.
+- That happened while i swam the length of my `pool`.
+- It said in the paper he drowned in a swimming `pool`.
+- She was swimming at the ymca `pool` when it happened.
+- This boy is the greatest `pool` hustler you ever saw.
+- Fats, let's you and i shoot a game of straight `pool`.
+- His twenty-seven year old daughter and the `pool` boy.
+- I don't feel right... no, i see her around the `pool`.
+- Call the motor `pool` and authorise personal transport.
+- I think we'll take our tea down by the swimming `pool`.
+- Before he finds her in a `pool` of her own vomit uh-huh.
+- Chutney could hear them all the way in the `pool` house.
+- Find a `pool` of calm water and throw the sword into it.
+- Hey, the eight ball, it's missing from the `pool` table.
+- I never swim myself, so the `pool` tends to go to waste.
+- Come up here to play straight `pool` with minnesota fats?
+- Those `pool` tables are the slabs they lay the stiffs on.
+- We'll be swimming laps in the same `pool` jean harlow did.
+- If it doesn't have a `pool`, we're looking for a new place.
+- You got any straight `pool` shooters in this here poolroom?
+- You grabbed a kid at francis public `pool` in the west end.
+- Come to think of it, there is a good `pool` that's the plan.
+- We'd have to get one of those sliding covers for the `pool`.
+- Do you still have that kiddie `pool` we bobbed for apples in?
+- Good, have 'em down at stenner's old `pool` hall before 3:00.
+- It's like not seeing the goodyear blimp in a swimming `pool`.
+- Shoulda' felt up tammy in the `pool`, that time... me, right?
+- Whyn't ya stretch out on the `pool` table for a couple hours.
+                 

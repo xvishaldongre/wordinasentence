@@ -1,0 +1,7 @@
+---
+title: "heralded in a sentence | heralded example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heralded"
+---
+## Unfortunately, we have no example sentences for heralded                 

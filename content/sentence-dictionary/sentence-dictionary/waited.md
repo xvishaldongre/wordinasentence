@@ -1,0 +1,102 @@
+---
+title: "waited in a sentence | waited example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "waited"
+---
+- I 'm glad you `waited`.
+- I `waited` for so long.
+- I just `waited` for you.
+- Lucky for you i `waited`.
+- You've `waited` too long.
+- I've `waited` long enough.
+- So i `waited` to tell you.
+- `Waited` too long, hon...?
+- Couldn't you have `waited`?
+- I wished i hadn't `waited`.
+- We've `waited` long enough.
+- Aren't you glad we `waited`?
+- I `waited` up till midnight.
+- I have `waited` long for you.
+- She `waited` here for him?
+- They `waited` for us to cross.
+- I `waited` until you were well.
+- That's why you `waited` for me.
+- You `waited` all night to call?
+- Haven't we `waited` forever... ?
+- I `waited` another four minutes.
+- I have `waited` forever for this.
+- Gloria -- i've `waited` for years.
+- I've `waited` seven years already!
+- Me and her `waited` for our daddy.
+- We `waited` for you... hours, jim.
+- I `waited` for forty- five minutes.
+- We've `waited` as long as possible.
+- You could�ve `waited` for me inside.
+- You `waited` til tonight to tell me?
+- It would be best if he `waited` here.
+- I `waited` outside till she went out.
+- I `waited` for lenny before i watched.
+- From the first time you `waited` on me.
+- He could've `waited` more than 10 days.
+- If i'd `waited` a day, two days... hmm.
+- He's `waited` for it, inhumanly patient.
+- You dumb bastard, you `waited` too long.
+- I've `waited` twenty years for this call.
+- I have `waited` too long, fought too hard.
+- I've `waited` half a lifetime to say this.
+- I would have fucking `waited`... you okay?
+- Yeah, i know... sir, you `waited` on line.
+- Fine -- i've `waited` over three centuries.
+- He's `waited` his whole life for this break.
+- The other guy, roach, `waited` in the truck.
+- Yesterday i `waited` six hours in the lobby!
+- Forget it jen, i've `waited` a year for this.
+- I could have `waited` until he ate your head.
+- Christ, the soldier ran off there and `waited`!
+- The ottos always `waited` for the bus with bear.
+- I have `waited` for you, my son, for a long time.
+- I'm on my way -- he `waited` for you three hours!
+- It `waited` all this time and it came for him....
+- I `waited` and `waited` for you to say something.
+- He `waited` on the southeast ridge, on the balcony.
+- Haven't we `waited` long enough to get this scumbag?
+- I can't believe you `waited` for the wedding to run.
+- Alex, you don't know how long i've `waited` for this.
+- I know it's a long shot, if we `waited`... oh, my god.
+- I `waited` all yesterday afternoon and all last night.
+- I `waited`... and `waited`... and `waited`... you're right.
+- You've `waited` a long time for this chance, haven't you?
+- They `waited` until everyone was on shift-leave to do this.
+- When i walked out, i `waited` ten minutes outside your door.
+- I `waited` to get your autograph, but you never came outside.
+- In the time you `waited` to follow me into the anomaly, hello?
+- I `waited` until i was insane and then i walked into the bank.
+- Thank god i `waited`, or i never would have gotten it on tape.
+- He knows i love this, although why it couldn't have `waited`...
+- Went to this guy's house in el monte, and i `waited` for him.
+- Men worked for santa anna down there, `waited` out the civil war.
+- We've all of us `waited` too long to have the homecoming spoiled.
+- We `waited` for him to get upstairs and he got out of the window.
+- All that time i `waited` to go on a cruise, and you went without me.
+- Dutiful citizens, you have something which i have `waited` years for.
+- ...i `waited` -- i listened -- but the applause didn't come -- nothing.
+- Whatever it is he wants - he's `waited` three hundred years to have it.
+- Then i fixed supper for my husband and `waited` until -- i don't remember.
+- When i walked out, i `waited` <u>ten</u> <u>minutes</u> outside your door.
+- I'll bet you're glad i `waited` until the last day to have this conversation.
+- A delay now would be more costly than when you `waited` to evacuate the cities!
+- If i was going to bust you i wouldn't have `waited` until after you killed jake.
+- You made love to me -- what, to pass the time as you `waited` for him to strike?
+- I wonder if you'd mind if we `waited` for him here, mister winston... no dead body.
+- I would've liked it if you `waited` until the two of you were on more solid ground.
+- Marge, you should have `waited`, didn't peter tell you i'd come by and pick you up?
+- I've `waited` a long time for this chance to go, and you're not going to stop me now.
+- They finally got back to the base, made their report, and `waited` for the war to end.
+- You shoulda `waited` fer me to git her out -- loose like she is, he kin run her crazy.
+- Well, you `waited` for good reason, and you proposed to christine for some good reason.
+- Your aunt connie and i `waited` for you to have some lunch, but now it's all dried out.
+- I've `waited` my whole life for this job, but i don't have a shot in hell of getting it.
+- Some guy in a truck -- he `waited` till i was alone, then he followed me, like, two miles.
+- You `waited` for the right man the first time, why didn't you wait for the right man again?
+                 

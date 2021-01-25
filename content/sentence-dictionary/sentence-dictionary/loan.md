@@ -1,0 +1,65 @@
+---
+title: "loan in a sentence | loan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "loan"
+---
+- Can you `loan` me a 20?
+- We're good to `loan` in.
+- `Loan` sharks or whatever.
+- Somebody `loan` it to you?
+- Commercial `loan` division.
+- I'll `loan` you a raincoat.
+- On your outstanding `loan`.
+- Thanks for the `loan`, man.
+- I will `loan` you the money.
+- Are you refinancing a `loan`?
+- Did your father take a `loan`?
+- That's right, a `loan` officer.
+- The bailey building and `loan`.
+- Why should i `loan` you my car?
+- A small `loan` would be welcome.
+- I got him on `loan` from disney.
+- How would i get a `loan`, anyway?
+- Old building and `loan` pal, huh .
+- Yesterday, you were a `loan` shark.
+- My father's `loan` papers are missing.
+- How much was the original `loan` again?
+- On `loan` from colonel doolittle, is it?
+- All i know is the bank called our `loan`.
+- Well, what about the building and `loan`?
+- I'm talking about the building and `loan`.
+- I took a `loan` on my car and my computer.
+- Where did the building and `loan` move to?
+- You're worried about recouping the `loan`.
+- Did you find the victims' `loan` agreements?
+- This time next year i'll be a `loan` officer.
+- Maybe you can ask him to `loan` you the money.
+- He'd rather have the `loan` payed, you know that.
+- I `loan` a little money out, settle some arguments.
+- You think that story's gonna make me `loan` you money?
+- Try our luck with a straight corporate `loan` out here.
+- Seriously, is there any chance you could manage a `loan`?
+- `Loan` monies are given to baltus the last day each month.
+- I took a one-week `loan` from fat tony for a hundred grand.
+- I'm gonna enjoy this ... here, i'll even `loan` you my badge.
+- Big o was always there with a smile or a `loan` or a free drink.
+- I need a two week escrow and i'm already approved for the `loan`.
+- Mister cool hand here is the soft heart in our `loan` department.
+- Is that why your brother braved coming here to ask you for a `loan`?
+- Colonel doolittle pulled the strings, and put me on `loan` to the r.a.f.
+- But i'm gonna have to take outta `loan` inna bank eight thousand dollars.
+- I thought i might be able to save my fucking house with an equity `loan`.
+- The house had to go on the market to insure the `loan` on the london flat.
+- Yes--but i didn't give it to him-- he asked for a `loan` of it, didn't he?
+- Now, if you're interested in giving us a home `loan`, i will sit back down.
+- That savings and `loan`, hell, they never even saw it coming, but maybe i can.
+- You have to understand the `loan` shark's in business the same as anybody else.
+- Why he ever started this cheap, penny-ante building and `loan`, i'll never know.
+- Maxie had me hook up a `loan`-back with him, through an austrian passbook account.
+- Some'll charge you more'n that, go as high as six for five on a short-term `loan`.
+- I don't want you to get too excited... these are on `loan`... however... what's that?
+- I'm going to `loan` you out to sam goldwyn to make a picture called "come and get it."
+- No, but, wade, see, i was bringin' you this deal for you to `loan` me the money to put in.
+- We meet him with corporate papers, inquiring about a corporate `loan` for start up capital.
+                 

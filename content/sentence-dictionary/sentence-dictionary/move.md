@@ -1,0 +1,107 @@
+---
+title: "move in a sentence | move example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "move"
+---
+- Can you `move` at all?
+- Come on grace, `move`!
+- Come on, let's `move`.
+- Don't `move` a muscle.
+- Don't `move` the baby!
+- Everybody, `move` out.
+- I can't `move` my arm.
+- I `move` faster alone.
+- In an old `move` once.
+- It's the smart `move`.
+- I've got to `move` on.
+- Let's get a `move` on.
+- `Move` it, spunkmeyer.
+- `Move` out of the way!
+- `Move` to some island.
+- Pink, let's `move` on.
+- Prepare to `move` out!
+- They're on the `move`.
+- We got to `move` fast.
+- We have to `move` now.
+- We have to `move` now.
+- We should `move`, now.
+- Your `move`, my liege.
+- You want me to `move`?
+- Finn, you can't `move`.
+- I can't `move` anymore.
+- I can't `move` my arms.
+- I can't `move` to tidy.
+- I don't want to `move`.
+- I'm sorry -- `move` on.
+- It's an obvious `move`.
+- It's time to `move` on.
+- It was built to `move`.
+- Let's `move` out girls.
+- Make it `move` already!
+- `Move`, get outta here!
+- `Move` it, dirtbag... !
+- `Move` out of the cage.
+- Now i've got to `move`.
+- Now, `move` it, people!
+- Please don't `move` me.
+- "sorry, time to `move`.
+- ... we could `move` on.
+- We'll `move` in sunday.
+- What's our next `move`?
+- When can we `move` him?
+- Why don't we `move` on?
+- You better `move` back.
+- Agreed--let's `move` it.
+- Best we `move` that pig.
+- Can we `move` in closer?
+- Can you `move` your arm?
+- Forget it, `move` aside!
+- Get her ready to `move`.
+- Guys, we have to `move`!
+- It's your `move`, miles.
+- Let her make her `move`.
+- Let's `move` cautiously.
+- Says he wants to `move`.
+- Second squad, `move` up.
+- See if we can `move` it.
+- Smooth `move`, hot-shot.
+- That's the wrong `move`.
+- They do `move` in herds!
+- They `move`, they bleed.
+- Who gets them to `move`?
+- You just `move` in here?
+- You must `move` quickly.
+- You want to `move` back?
+- And plan our next `move`.
+- Can you `move` your toes?
+- Come on, get a `move` on.
+- Don't `move`, any of you.
+- [enola] `move` the chest!
+- He's right, let's `move`.
+- I can't `move` to canada.
+- I saw the curtain `move`.
+- Is it safe to `move` her?
+- I think we should `move`.
+- Keep going, he'll `move`.
+- `Move`, `move`, `move`, `move`!
+- Okay, jason, your `move`.
+- Package is on the `move`.
+- So we better `move` fast.
+- We'll `move` when you do.
+- We're on the `move`, man.
+- We've got to `move` fast.
+- What's your first `move`?
+- When did you `move` back?
+- You can `move` your foot.
+- You `move` into my house.
+- Alright, let's `move` out!
+- `Move` to long island.
+- But i have to `move`, son.
+- But i've got to `move` on.
+- Come on, we got to `move`.
+- Could i ask you to `move`?
+- Don't `move`, you fuckers.
+- Everyone else `move`, now.
+- He let me... don't `move`!
+                 

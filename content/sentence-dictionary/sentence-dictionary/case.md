@@ -1,0 +1,107 @@
+---
+title: "case in a sentence | case example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "case"
+---
+- I got the `case` file.
+- In `case` of a scrape.
+- Of the lechter `case`.
+- State your `case`, mr.
+- That's not the `case`.
+- The `case` was stolen?
+- The gun's in `case`!!!
+- There was this `case`.
+- The tewkesbury `case`.
+- This is a sexy `case`.
+- You are a head `case`.
+- How's the `case` going?
+- I know i have a `case`.
+- In `case` of emergency!
+- In `case` she wakes up.
+- In `case` you die, too?
+- In her `case` it isn't.
+- In our `case`, forever.
+- In that `case`... no...
+- In that `case`, purple.
+- I remember this `case`.
+- It's not a good `case`.
+- It was a famous `case`.
+- Then, close the `case`.
+- This `case` is closed.'
+- Wasn�t this his `case`?
+- Well, in that `case`...
+- Get off my `case`, mayo.
+- How's the `case` coming?
+- I'm dropping the `case`.
+- I'm in town on a `case`.
+- In this `case`, i can't.
+- Is it an ongoing `case`?
+- It's a very good `case`.
+- The `case` is all yours.
+- Then give me the `case`.
+- Tom, this is our `case`.
+- Worst `case`, no school.
+- You got no `case`, john.
+- Bad `case` of puppy love?
+- But he's a basket `case`.
+- `Case` and casket closed.
+- His `case` got dismissed.
+- In that `case`, i accept.
+- Put the gun down, `case`.
+- 's gotta make the `case`.
+- She knows it's my `case`?
+- The `case` could be made.
+- This `case` just got hot.
+- This is a complex `case`.
+- `Case`... are you alright?
+- I have to try this `case`.
+- I'm declining this `case`.
+- _ in `case` you're hungry.
+- In `case` you use the gas.
+- It's a beauty of a `case`.
+- Let us examine the `case`.
+- Rorschach's on the `case`.
+- She needs a `case` worker.
+- Sounds like a good `case`.
+- `Case` daddy don't like me.
+- Get off his `case` sweetie.
+- Her `case` is too advanced.
+- In `case` you�ve forgotten.
+- It was a `case` of amnesia.
+- It would prove your `case`.
+- My wife is a mental `case`.
+- The `case` of phineas gage.
+- Then we can win the `case`.
+- This wasn't my `case`, lee.
+- We let them buy the `case`.
+- Wow, this `case` is closed.
+- A `case` that makes careers.
+- Am i on that `case`, sir...?
+- An odd selection, mr `case`.
+- But that was not the `case`.
+- Did you request this `case`?
+- Ever handle a serial `case`?
+- Hand over the `case`, stark.
+- I'm not some charity `case`.
+- I'm prosecuting this `case`.
+- In a worst-`case` scenario .
+- In `case` <u>who</u> checks?
+- In `case` you couldn't tell.
+- In my `case` it's necessary.
+- It's a cut and dried `case`.
+- I've been on another `case`.
+- I wish it wasn't the `case`.
+- Just in `case` there's silk.
+- Not in this `case`, my dear.
+- Report on the `case` so far.
+- But in this `case` - by fire.
+- Eddie, what's in that `case`?
+- He's a pyjama `case`, really.
+- I'm going to win this `case`.
+- I'm sorry... a mental `case`?
+- I never, ever, drop a `case`.
+- Inspire what, in this `case`?
+- In that `case`, i permit you.
+- In that `case` you can do it.
+                 

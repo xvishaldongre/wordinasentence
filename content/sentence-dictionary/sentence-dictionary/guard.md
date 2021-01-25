@@ -1,0 +1,107 @@
+---
+title: "guard in a sentence | guard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "guard"
+---
+- Coast `guard` station.
+- `Guard` the shoreline.
+- `Guard`, to the front.
+- He was a nice `guard`.
+- Isn't there a `guard`?
+- The `guard` is coming.
+- `Guard`, i'm done here.
+- Kegan will `guard` you.
+- I want a `guard` on you.
+- Shot one -- the `guard`.
+- Wait a minute - `guard`!
+- Check the `guard` towers?
+- Jesus, rudy -- `guard`!!!
+- My dad was chief `guard`.
+- Chief `guard` closes door.
+- She can `guard` the house.
+- The coast `guard` 'eagle'.
+- You two, `guard` the door.
+- Stay on your `guard`, jack.
+- Chief `guard` turns to alex.
+- So, just `guard` the stairs?
+- Well, the `guard` woke me up.
+- You can't just hit a `guard`.
+- Band leader or prison `guard`?
+- So we'll `guard` her together.
+- `Guard` her with your life, boy.
+- The mounties `guard` the border.
+- They said i assaulted a `guard`.
+- Well, they go to `guard` school.
+- What am i -- a security `guard`?
+- Why was the `guard` chasing you?
+- You and i will `guard` the fire.
+- And the other's her body `guard`.
+- Did you notify the coast `guard`?
+- I want to knock her `guard` down.
+- Put it in the `guard`'s barracks.
+- We got no one left to `guard` it!
+- You say this `guard` is armed.
+- 'cause "`guard`" sounds too weird.
+- Clint is putting a `guard` on you.
+- It's the `guard` in the storeroom.
+- I want you to put a `guard` on me.
+- She has one body `guard` with her.
+- There's a `guard` outside my door!
+- How'd that guy get to be a `guard`?
+- I heard the stories in the `guard`.
+- Thirty men `guard` the castle gate.
+- All right ... send them the `guard`.
+- 'hadda call in the national `guard`.
+- I'll send a `guard` detail with you.
+- Now stay here and `guard` the money.
+- I stand outside and `guard` the door.
+- Only members of the `guard` get guns.
+- You want to be in the `guard` or not?
+- A border `guard` responded to the apb.
+- I want this man under 24-hour `guard`.
+- I want you to be sort of a... `guard`.
+- Now you're needed at the `guard` post.
+- Set a `guard` detail to check on rose.
+- The `guard` is leading the evacuation.
+- They'll think i'm josephine's `guard`.
+- And double the `guard` at the dropship.
+- Every room, every `guard`, every thing.
+- Get your big gun and `guard` the shore.
+- I had to come here under armed `guard`.
+- I'll `guard` them and you with my life.
+- Maybe we should call the coast `guard`.
+- No `guard` rail there, it's easy to do.
+- You think you're `guard` material, kid?
+- I'm going to put a `guard` on your door.
+- The coast `guard` has our last position.
+- You'd have a `guard` on your front door.
+- Went to `guard` the ship with the others.
+- With the guns that the `guard` bring down.
+- You caught me off `guard`, i must admit...
+- He's got her up in the room, under `guard`.
+- He was one of the `guard`'s nomak attacked.
+- If the commander wants volunteers, `guard`.
+- Put on the `guard`'s uniform and take this.
+- Go ahead and put the `guard` back up, letty.
+- Maybe the `guard` will make a man out of him.
+- The `guard` had an automatic... ... what... ?
+- The man's policies, just get off the `guard`.
+- The national `guard` is on duty at the gates.
+- When the `guard` come down and commandeer no!
+- Be careful, daniel, don't let up your `guard`.
+- Harper's a `guard` and a better shot than you.
+- I gotta stay here and `guard` the parking lot.
+- Standing `guard` over the old castle, are you?
+- You've seen that no one's here to `guard` him.
+- Smart move, leaving that `guard` jacket inside.
+- The next day, the coast `guard` found me alone.
+- A `guard` grabbed me before i could find eugene.
+- Chief `guard` moves to table with his clipboard.
+- I suppose we might catch them off their `guard`.
+- Walked right through the gate, past the `guard`.
+- You'll have to stay here and `guard` the horses.
+- It's not like i was on `guard` duty or something.
+- The guns are locked, but the `guard` has the key.
+- Like i was something to be... her `guard` went up.
+                 

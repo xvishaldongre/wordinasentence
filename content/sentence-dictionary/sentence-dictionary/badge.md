@@ -1,0 +1,68 @@
+---
+title: "badge in a sentence | badge example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "badge"
+---
+- Your father's `badge`?
+- His hat an his `badge`.
+- Joliet `badge`, snyder.
+- Let me see your `badge`.
+- You got your id `badge` in.
+- That `badge`-- charley wade.
+- So whatta you want a `badge`?
+- Ma'am, can i see your `badge`?
+- They're gonna want your `badge`.
+- Hands him his wallet and `badge`...
+- What's your miami pd `badge` number?
+- Turn in your `badge` and your collar.
+- I'll need your `badge` and your weapon.
+- You ever heard of a `badge` named wade?
+- `Badge` or no `badge`, i'll kick your ass.
+- I think i'll take off my `badge` as well.
+- Maybe not lapd, but definitely a `badge`.
+- All these years hiding behind his `badge`.
+- I won't unlock the master collector `badge`.
+- That `badge` is just the `badge` of your company.
+- You don't have a `badge`, he won't talk to you.
+- The word is a `badge` for her failures at school.
+- Girl one of these fools has an fbi `badge` on him!
+- I think i should get a merit `badge` or somethin'.
+- J. edgar's greatest fear: a female with a `badge`.
+- ...`badge` someday, then you can ask the questions.
+- This `badge` doesn't mean that i am a peace officer.
+- He's the technical advisor on '`badge` of honor,' sir.
+- Uh, you were supposed to be issued a security `badge`.
+- You could have just flashed him your `badge`, you know?
+- The `badge` in my pocket says "detective," same as yours.
+- That's why every `badge` back home wanted to nail him.
+- Follow him or i'll have you pulled off '`badge` of honor.'
+- How do you feel, agent then why do i still have a `badge`?
+- We just gave him a `badge` and a whistle for his birthday.
+- When i wear this `badge` you treat me like a man of the law.
+- I'm gonna enjoy this ... here, i'll even loan you my `badge`.
+- It's the mark of the patriot, and i'll wear it like a `badge`.
+- Well fine then, go ahead, pull your `badge` and do your thing.
+- Now gimme your `badge` and gun and i'll show you how it's done.
+- Real amazin' how far a gun and a `badge` can carry some cats...
+- He flashed his `badge` to half the bar when he bought his drink.
+- Flash your little gold `badge`, on your command, chancellor kane.
+- A sadist with a `badge` looking to rope me in to a suicide mission.
+- This `badge` is not an old newspaper you can cast down on the desk.
+- We're there to watch and take `badge` numbers... well, act like it.
+- He said to tell you to turn your `badge` in and clean out your office.
+- Possession alone will cost you six months, not to mention your `badge`.
+- From your tucker bag next thursday, name and `badge` number, both of you!
+- If i were ever caught in there, i'd lose my `badge` inside of ten minutes!
+- N'they brought back, his hat, his <u>`badge`</u>, an his <u>timeclock</u>.
+- All those clowns ever had going for 'em was a gun and a `badge`... bullshit.
+- You criticized the deputy director to his face and you still have a `badge`?
+- Look, whatever daitz told you, nobody wanted to strip richard of his `badge`.
+- Christ, everybody thinks life's a holiday or somethin' when you got a `badge`.
+- Hey, i'm a performer, an artist, i even unlocked the "skin unlocking" `badge`.
+- Mind that shrapnel dawn thrusts a brass regimental hat `badge` in bill's face.
+- All it was wearing was a big old masonic ring and a rio county sheriffs `badge`.
+- There are people in this world who don't think a police `badge` is a `badge` of honor.
+- Oh, he's got that shiny `badge` an' all, but nah -- he's just a merc and i'm just a payday.
+- Okay, i'm telling you, it was a one-time... to unlock the amazon warehouse whizzer `badge`.
+                 

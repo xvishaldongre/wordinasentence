@@ -1,0 +1,107 @@
+---
+title: "next in a sentence | next example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "next"
+---
+- Come on, we're `next`.
+- I live `next` door ...
+- I'm the `next` of kin.
+- `Next` thing you know!
+- `Next` to your father?
+- `Next` week's episode.
+- `Next` you'll be sick.
+- Pull up `next` to him!
+- Same time `next` week?
+- Sitting `next` to you.
+- Take the `next` right.
+- The `next` best thing.
+- Try again `next` year.
+- Uh, maybe `next` time.
+- We're its `next` meal.
+- Who's gonna be `next`?
+- You're `next`, norman.
+- Your very `next` role.
+- But the `next` time ...
+- Give me `next` quarter.
+- I'll do it `next` time.
+- It's the `next` street.
+- Kelly's `next`, gloria.
+- `Next` game, ten bucks.
+- `Next` summer's had it.
+- `Next` time it's on me.
+- `Next` to it is a rock.
+- Ohh... - what's `next`?
+- Probably `next` friday.
+- See you `next` weekend?
+- The `next` one is ours.
+- Weekend after `next`...
+- What about `next` time?
+- What's our `next` move?
+- Where do you go `next`?
+- Where's the `next` one?
+- Alex sits `next` to him.
+- Arkadia could be `next`.
+- Better luck `next` time.
+- Happiness in the `next`.
+- In the `next` two weeks?
+- Look at the `next` line.
+- May you find the `next`.
+- `Next` channel, darling.
+- `Next` day, he was dead.
+- `Next` to you i'm clean.
+- Send in the `next` girl.
+- The `next` face, please.
+- This is my `next` movie.
+- When's the `next` jumbo?
+- Your `next` life, maybe.
+- You want to be `next`?
+- 14. the `next` commander?
+- Ahh, maybe `next` summer.
+- All right, what's `next`?
+- And plan our `next` move.
+- Besides your `next` hype?
+- Can you come `next` door?
+- Christmas is `next` week.
+- Doesn't that come `next`?
+- Fifteen... what's `next`?
+- I have no `next` picture.
+- I'll see you `next` year.
+- In the `next` 15 minutes.
+- Isn't it due `next` week?
+- `Next` time, do it again.
+- `Next` time, phone ahead.
+- `Next` to the water tank.
+- `Next` week "east lynne."
+- Probably the `next` meal.
+- That `next` moment: what?
+- There's kids `next` door!
+- We live `next` to a lake.
+- What do you mean, `next`?
+- What's your `next` class?
+- When is the `next` train?
+- When's your `next` round?
+- And i wonder who's `next`.
+- You're `next` webster.
+- Before the `next` session.
+- Bring in the `next` group.
+- I'm moving in `next` week.
+- I'm not his `next` of kin.
+- In the `next` two minutes?
+- It's the `next` gold rush.
+- I will see it `next` time.
+- Jesus christ, what `next`?
+- Maybe `next` year, oliver.
+- `Next` time, call... well.
+- `Next` time, he might not.
+- `Next` time i flatten him!
+- `Next` time i'll be ready.
+- `Next` to a grocery store.
+- `Next`, you dial a number.
+- No, no, no... `next` week.
+- Proceed to `next` reading.
+- The `next` plane, officer.
+- We'll do it `next` monday.
+- We see you `next` harvest.
+- What's that `next` to him?
+                 

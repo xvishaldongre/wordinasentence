@@ -1,0 +1,107 @@
+---
+title: "family in a sentence | family example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "family"
+---
+- Big `family`... small?
+- [enola] your `family`.
+- It's a `family` motto.
+- Ok, a `family` matter.
+- Peace in the `family`.
+- Their `family` owns...
+- They're like `family`.
+- To kill your `family`!
+- To leave his `family`?
+- Uh... `family` friend.
+- We were your `family`.
+- Where's your `family`?
+- You've got a `family`.
+- A man needs a `family`.
+- Do you have a `family`?
+- Her `family`'s furious.
+- I haven't any `family`.
+- It's a `family` prayer.
+- Mine and my `family`�s!
+- One big happy `family`.
+- Our `family`'s waiting.
+- She had a new `family`.
+- Such a lovely `family`.
+- The partridge `family`?
+- We're `family`, caesar.
+- Whattaya mean `family`?
+- Where is your `family`?
+- Your `family` there...?
+- A death in the `family`.
+- `Family`... why, indeed?
+- For our `family`'s sake.
+- Friends of the `family`.
+- How about your `family`?
+- I have a `family`, mary.
+- I'll kill your `family`.
+- Is my `family` here yet?
+- It runs in the `family`.
+- Mitchell's ... `family`.
+- Nice `family`, are they?
+- Raised a `family` there.
+- Stay with your `family`?
+- That's my `family`, kay.
+- We're not your `family`.
+- You're my `family`, dad.
+- You're my `family`, too.
+- Go back to your `family`.
+- How about `family`, bart?
+- How's the `family`, okay?
+- I didn't have a `family`.
+- I lied about my `family`.
+- I'm practically `family`.
+- In the `family` business.
+- Is our `family` activity.
+- It's a `family` heirloom.
+- My whole `family`'s sick.
+- No `family` to take care.
+- This is not his `family`.
+- We'll always be `family`.
+- What about your `family`?
+- What does my `family` do?
+- You are my `family`, too.
+- Your `family` sent cards.
+- Your `family`, your boys.
+- After all, she's `family`.
+- Do you have `family` here?
+- Got a `family` back there?
+- He had no `family` either.
+- How many in your `family`?
+- Like part of the `family`.
+- Runs in the `family`, sir.
+- This is a `family` matter!
+- Your `family` just met me.
+- A `family` secret, leonard.
+- I come from a big `family`.
+- I forget, yes, my `family`.
+- Is he `family`, oh, my god.
+- It can be our `family` day.
+- It's just the `family` now.
+- Just a `family` discussion.
+- My `family` lives in miami.
+- My `family`'s in the clear.
+- No... you got any `family`?
+- Stay away from my `family`!
+- Take care of your `family`.
+- This `family` is so fucked!
+- Up at the `family` reunion.
+- What do i tell my `family`?
+- Definitely not his `family`.
+- Have you told your `family`?
+- I feel bad for his `family`.
+- I had to go see my `family`.
+- I have to call his `family`.
+- I know madi's your `family`.
+- It must run in the `family`.
+- I want... a `family`, ellie.
+- Moving is a `family` affair.
+- My `family` is on that ship.
+- Tell my `family` i love 'em.
+- We do this for our `family`.
+- Well, we did in my `family`!
+                 

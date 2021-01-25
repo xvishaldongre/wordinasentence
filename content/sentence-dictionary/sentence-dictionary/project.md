@@ -1,0 +1,107 @@
+---
+title: "project in a sentence | project example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "project"
+---
+- What kind of `project`?
+- Just a little `project`.
+- Banister's pet `project`.
+- Can you `project` its course?
+- But, this is `project` mayhem.
+- On a `project` called goliath.
+- `Project` exodus is under way.
+- How's your `project` coming?
+- That's why i left the `project`.
+- What kind of personal `project`?
+- I thought that was your `project`.
+- Our `project` leader has vanished.
+- Want to see my `project` for miss.
+- You've activated `project` exodus?
+- But what about that math `project`?
+- `Project` vulcan is about to begin.
+- When do you deliver your `project`?
+- Good luck on your `project`, doctor.
+- Good luck on your `project`, doctor.
+- Out building `project` in indonesia?
+- That's my `project` when i get back.
+- I have to work on my video `project`!
+- Apparently, this `project` is--unique.
+- I thought i was her passion `project`.
+- You mean, like, blair witch `project`?
+- He was killed serving `project` mayhem.
+- What do you `project` for this year?
+- He was highly valuable to the `project`.
+- On your little, secret family `project`?
+- What exactly is your `project`, vaughan?
+- It's a personal `project` i'm working on.
+- Another crafts `project` gone out of hand?
+- I need to talk to you about the `project`.
+- But, in `project` mayhem, we have no names.
+- Why wasn't i told about "`project` mayhem?"
+- I have a school `project` on... sea turtles.
+- Since when is `project` mayhem about murder?
+- Are you doing some kind of science `project`?
+- See, i've been working on a little `project`.
+- The first rule of `project` -- where's tyler?
+- Well, there's a lot riding on this `project`.
+- Good -- that's what i was trying to `project`.
+- I couldn't let him interfere with my `project`.
+- It'll be a big `project`, as you might imagine.
+- I've uncovered the details on `project` vulcan.
+- What `project` looms on the horizon, walter?
+- Now, can you `project` the course of the ribbon?
+- What do you want to know about `project` mayhem?
+- Don't you want the name of the housing `project`?
+- The prospero `project` was started by my husband.
+- [machinery whirring] `project` exodus than you do.
+- Well, it'll be a `project` we can work on together.
+- I've got over four years invested in this `project`.
+- We can't afford <u>any delays</u> on this `project`!
+- I've decided to make you a special `project` of mine.
+- That you would uncover the truth about the `project`.
+- You hold in your hand the power to end the `project`.
+- Bean might take a look at my computer `project` today.
+- How the hell is fred supposed to `project` a hologram?
+- Your arboreal preservation `project` in south america.
+- I was born in a city housing `project` in the bronx ok?
+- Implementing `project` exodus are unimaginably difficult.
+- I've got another `project` i wasn't gonna tell you about.
+- `Project` parabolic course to avoid entering neutral zone.
+- Just wanted to know how the flatworms `project` was coming.
+- You know just as much about `project` mayhem as anybody else.
+- I'm hoping to get a grant for this one `project` on teenagers.
+- But i haven't even shown you my biology `project`... that's it.
+- I'm mighty tired and i think this crazy `project` screw that.
+- I predict that your next `project` will be an outstanding success!
+- Oh, just a personal `project` like anyone else's personal `project`.
+- Request security procedure and access to `project` genesis summary.
+- Speaking of which -- this is the `project` i'd like you to do next.
+- To fully understand that, and to live that... that is my `project`.
+- Back in the day, i was hank's partner in a `project` called goliath.
+- Uhura, any response from starfleet on our `project` genesis inquiries?
+- Find out what part virtucon plays in something called `project` vulcan.
+- ...the state has allocated the enclosed funds for your library `project`."
+- An enormous amount of money changed hands to get control of this `project`.
+- His `project` was terminated this morning... never heard of a double-cross?
+- I seem to remember something about a history `project` that's due tomorrow.
+- You'd better have your biology `project` ready or i'm phoning your parents.
+- Now it's out of the basements and there's a name for it -- `project` mayhem.
+- I mean, how did you ever come up with the idea to do this ... this `project`?
+- Just when i'm nearing the fruition of my `project`, big bird flies into town.
+- Darling emma -- yes, we: the true genius behind the prospero `project` ... you.
+- But then she got promoted to `project` engineer on this thing, couple years ago.
+- 'sides, they tagged the rhinos for the migration `project`, so they're protected.
+- You're finally the perfect woman for him... because you're his science `project`.
+- I know i haven't been all that supportive of this `project`, but i've come around.
+- I need to find this technician, or anyone else who knows about `project` manticore.
+- Known as transference, where you `project` your feelings he was protecting himself.
+- My husband had been working on something he called, the `project` for the children.
+- Our `project` leader believes that tomb to be located within the city of venice, italy.
+- You're finally the perfect woman for him...because you're his <u>science `project`</u>.
+- Now, mr. chekov, let us review: you say you have no details of `project` 'genesis' ?
+- When we were young men in the military, your father and i were recruited for a `project`.
+- Anyway, it turns out the genius behind the whole `project` is your neighbor, jim williams.
+- It'll `project` the route through the sewer system onto the inside of the glass as you go.
+- I'm outlining a new writing `project`, and eh... physically, it's not a very demanding job.
+                 

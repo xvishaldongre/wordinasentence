@@ -1,0 +1,76 @@
+---
+title: "knocked in a sentence | knocked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "knocked"
+---
+- I'm all `knocked` out.
+- Life `knocked` me back.
+- He's just `knocked` out.
+- I've been `knocked` out.
+- 'musta `knocked` her up.
+- I `knocked` several times.
+- They `knocked` out my tooth!
+- You almost `knocked` me down.
+- The driver got `knocked` cold.
+- Well, he `knocked` at the door.
+- You `knocked` out a guys teeth.
+- Somethin' `knocked` us off-lane.
+- ♪ he `knocked` her off a railing.
+- Quake `knocked` you off your feet.
+- The little guys got `knocked` off.
+- If his girlfriend was `knocked` up.
+- `Knocked` his head plumb to squash.
+- `Knocked` up the family's daughter.
+- He `knocked` me out the sonofabitch.
+- We got `knocked` out pretty quickly.
+- Who robbed us and `knocked` you out?
+- You did not answer when i `knocked`.
+- But i haven't been `knocked` out yet.
+- He might have `knocked` his head off.
+- He `knocked` out his teeth... blood...
+- They `knocked` out the external feeds.
+- We found him `knocked` out in the can.
+- You tell the boy who `knocked` you up?
+- This thing has just `knocked` me silly.
+- You `knocked` her up and then left her!
+- I never `knocked` over any armored- car.
+- Must have been `knocked` out in the crash.
+- That's what `knocked` the phones out, too.
+- Get `knocked` down, get to the dropship now.
+- `Knocked` the gun right out ... she's coming.
+- Man, that weed `knocked` christine on her ass.
+- Would it have helped if i'd `knocked` him down?
+- Maybe a collection somewhere got `knocked` over.
+- I shoulda `knocked` him out earlier, sonofabitch.
+- They've `knocked` out the damn automation center.
+- You're going to get the wind `knocked` out of you.
+- Where were you the afternoon she was `knocked` off?
+- I slept with him and he `knocked` off a hundred bucks.
+- You `knocked` the fucking casket over, for chrissakes!
+- `Knocked` around for a couple of months after the army.
+- Yessir, you coulda `knocked` me over with a mack truck.
+- Bumped into the fridge, and `knocked` the suckers loose.
+- When i saw it, you could'a `knocked` me over with a pin.
+- They sure `knocked` the stuffings out of you, didn't they?
+- Well, you have `knocked` me for a hell of a loop, old man.
+- Well, sir, you could'a `knocked` me over with a mack truck.
+- In the vending machine `knocked` down a 3 musketeers bar, too.
+- You could have `knocked` me down with a feather -- selectman -- me.
+- After you got `knocked` up, my mother didn't want me to talk to you.
+- She took it off acme the night she and r.k. maroon `knocked` him off.
+- I `knocked` into something the other day... what happened to your toe?
+- Rumor was she was `knocked` up and didn't even know who the father was.
+- I tell you, son, this thing really came along and `knocked` my wind out.
+- If he was `knocked` out in the can how could be walking across the lobby?
+- Almost got `knocked` out of the sky over big k. what happened to your eye ?
+- Your boyfriend let me in, i just `knocked` on the door -- what do you want?
+- Always looked like you was just `knocked` out in love... was real nice to see.
+- Maybe your little boyfriend's got mutant sperms and he `knocked` you up twice!
+- I ... it was terrible, i leaned over, and accidentally `knocked` her, out -- dad!
+- He `knocked` me off a building just when i was starting to feel good about myself.
+- The minute we sell out to maranzano, that bastard is gonna have you `knocked` off.
+- ...well, it didn't make him happy... obviously the fall must have `knocked` him out.
+- I `knocked` off the aglet, as soon as i get a passable version of skywire we're there.
+- I `knocked` on your door - no one home, so i followed the music .. have you been here long?
+                 

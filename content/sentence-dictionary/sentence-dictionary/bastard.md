@@ -1,0 +1,107 @@
+---
+title: "bastard in a sentence | bastard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bastard"
+---
+- You `bastard`... rich.
+- You fucking `bastard`!
+- You fucking `bastard`.
+- Cocky little `bastard`.
+- Come on, you `bastard`!
+- Come on, you `bastard`.
+- That fucking `bastard`!
+- ...you crazy `bastard`.
+- Where is this `bastard`?
+- Who hired the `bastard`?
+- You fucking `bastard`...
+- You merciless `bastard`!
+- You two faced `bastard`.
+- You worthless `bastard`.
+- `Bastard` bit my chopper.
+- He's a selfish `bastard`.
+- I'll kill that `bastard`!
+- You're a lying `bastard`!
+- Agile `bastard`, isn't he?
+- `Bastard` piece of shit...
+- `Bastard`, sneak, quitter.
+- `Bastard` the hell he did.
+- Kill the little `bastard`.
+- Let her go, you `bastard`!
+- You're one sick `bastard`.
+- `Bastard` didn't even show.
+- He was a crooked `bastard`.
+- I'll shred the `bastard`!!!
+- I want that `bastard` dead!
+- When did the `bastard` die?
+- You cocky little `bastard`.
+- Tie this `bastard`, too.
+- Kaufman's a lying `bastard`!
+- That slimy little `bastard`!
+- Every `bastard` like him.
+- I can't stand that `bastard`.
+- I'll kill you, you `bastard`!
+- Michael, you lousy `bastard`!
+- Shut the little `bastard` up!
+- That's good... you `bastard`!
+- You're one fucking `bastard`!
+- You scurvy shyster `bastard`!
+- `Bastard`'s name was "church".
+- The `bastard` deserves to die.
+- Why not, you stupid `bastard`?
+- Don't even do it, ya `bastard`.
+- I am you, you little `bastard`.
+- I bit the `bastard`'s nose off.
+- The dirty yellow rat `bastard`.
+- You're bluffing, you `bastard`!
+- Hard to pin that `bastard` down.
+- Hey, the `bastard`'s got my gun.
+- Um, i'm ten, you bald `bastard`!
+- Why did you save that `bastard`?
+- You tortured him, you `bastard`.
+- You want me to be the `bastard`.
+- Hockney was just a bad `bastard`.
+- I still think you're a `bastard`.
+- Old `bastard` hears us, i'm sure.
+- What's the `bastard` really like?
+- You `bastard` -- don't mourn him.
+- You lousy, coldhearted `bastard`.
+- `Bastard`'s got his high beams on.
+- Close in and we got the `bastard`.
+- Get rid of the `bastard` for good.
+- Tribuus -- execute that `bastard`.
+- You're a filthy, rotten `bastard`.
+- But the `bastard` won't turn it on.
+- I hate that mickey mouse `bastard`.
+- I want this `bastard` brought down.
+- You `bastard`, i was believing you!
+- You two timing psychotic `bastard`.
+- That fucking sick fucking `bastard`!
+- You're one fuckin' `bastard`, merle.
+- I remember the old `bastard`'s liver!
+- Where'd you go, you little `bastard`?
+- You dumb `bastard`, i got it for you.
+- Go on, do me in you `bastard` cowards.
+- What about that rock island `bastard`?
+- "all that's missing is your `bastard`."
+- `Bastard`... sheila, don't go anywhere.
+- He'll get them to reopen the `bastard`.
+- Poor `bastard` never knew what hit him.
+- The `bastard` son of a hundred maniacs.
+- It's that rat `bastard` from pittsburgh.
+- That `bastard` won't get away with this!
+- You are a rotten `bastard`, that's what!
+- You be careful of that little `bastard`.
+- You dumb `bastard`, you waited too long.
+- But i said i was sorry.... you `bastard`.
+- Die, you `bastard`... no... look at that!
+- Like the old `bastard` is here right now!
+- The `bastard` gave him your home address.
+- We just gotta catch the `bastard`, right?
+- Well, at least the `bastard` can't climb.
+- Well, we're gonna uninvent the `bastard`.
+- Goddamned ryan, fuck the little `bastard`.
+- I'm gonna bust that `bastard` in one play.
+- I told you that `bastard` said, "help us!"
+- Those two `bastard`, they smiled at me.
+                 

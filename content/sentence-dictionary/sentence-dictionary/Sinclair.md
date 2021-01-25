@@ -1,0 +1,54 @@
+---
+title: "Sinclair in a sentence | Sinclair example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sinclair"
+---
+- At ease, `sinclair`.
+- No, not miss `sinclair`.
+- We'll stay on `sinclair`.
+- Jacapo `sinclair` is dead.
+- My name is lydia `sinclair`.
+- `Sinclair`: i want immunity.
+- `Sinclair` will give you up.
+- `Sinclair`: hang on, raven.
+- `Sinclair`, i need your help.
+- Would that be miss `sinclair`?
+- `Sinclair`, what are you up to?
+- It could be jacapo `sinclair` hey!
+- Talk to `sinclair` in engineering.
+- Kane, lincoln, `sinclair`, it's ok.
+- And i think `sinclair`'s part of it.
+- `Sinclair` thinks i can do no wrong.
+- My brother, lucas charles `sinclair`?
+- Jaha: `sinclair`, has the war begun?
+- Hal... hal `sinclair`... your co- star.
+- How i saved `sinclair`'s ass on the ark?
+- `Sinclair` and i are the only ones left.
+- He told `sinclair` to wait two days right?
+- I know how you feel, clarke... `sinclair`.
+- _ let `sinclair` know that i said excuse me.
+- Ok. `sinclair` recruited me into engineering.
+- Keeping an eye on `sinclair` was an easy call.
+- Gavriel... and now pike's locked up `sinclair`.
+- You want to laminate miss `sinclair`'s card?...
+- `Sinclair` doesn't know what he's talking about.
+- `Sinclair`, if you can hear me and can't respond.
+- `Sinclair`: whi brings us to stage 3… landing.
+- It's not an adventure, clarke, jaha: `sinclair`.
+- `Sinclair` said it would be around here somewhere.
+- `Sinclair`: sir, we’ve run every scenario twice.
+- `Sinclair`: dr. griffin, you should look at this.
+- Parry, it's lydia `sinclair` - our membership winner.
+- `Sinclair` on speaker: this is a restricted channel.
+- `Sinclair` is rerouting power and air to the mess hall.
+- But, as much as i hate to say it, float you, `sinclair`.
+- Let `sinclair` know that i said we came to an agreement.
+- `Sinclair` still has teams hail, commander of the blood.
+- Really hard, you better get me that date now, `sinclair`.
+- `Sinclair`, my mentor on the ark, we both know where they are.
+- Pike just sentenced lincoln and `sinclair` to death alongside kane.
+- Pike just sentenced lincoln and `sinclair` to death go save us all.
+- We must've caught `sinclair` right next to our acrobat, there is a flea?
+- According to `sinclair`, even if we sent a signal down, the wristbands so, you want my help?
+                 

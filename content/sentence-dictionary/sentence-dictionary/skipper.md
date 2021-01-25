@@ -1,0 +1,60 @@
+---
+title: "skipper in a sentence | skipper example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "skipper"
+---
+- Come again, `skipper`?
+- What is it, `skipper`?
+- Can't do it, `skipper`.
+- Goddam it, `skipper`...
+- What course, `skipper`?
+- He can't do it, `skipper`.
+- Have any notion, `skipper`?
+- It's the screws, `skipper`.
+- Isn't that right, `skipper`?
+- His name is `skipper`, dad...
+- I'll report to the `skipper`.
+- I'm going out there, `skipper`.
+- `Skipper`, sorry to bother you.
+- There's no one here, `skipper`.
+- With all due respect, `skipper`.
+- Have him report to the `skipper`.
+- Scared the hell out of `skipper`.
+- `Skipper`, they mean to board us.
+- Goose give him a break, `skipper`.
+- That's not what `skipper` thought.
+- How's that sound to you, `skipper`?
+- Hey, it looks like... the `skipper`.
+- You think `skipper` and alice do it?
+- Yeah, the `skipper` always was lucky.
+- `Skipper` called us out of the rigging.
+- `Skipper`, you gotta help me... justin.
+- Excuse me, `skipper` what about time...?
+- Everything green on my boards, `skipper`.
+- `Skipper` - could you take a look here...?
+- `Skipper`, justin just activated the door.
+- You better get down here quick, `skipper`.
+- How much you figure that's worth, `skipper`?
+- What you gonna do with your share, `skipper`?
+- But <u>they're</u> not `skipper` neilsen's son!
+- She never lost a race while you were `skipper`.
+- You've got to let us try, `skipper` -- `skipper`!
+- Thought you were going to washington, `skipper`.
+- That is the point... and `skipper`'ll slip off the hook.
+- They thought <u>you</u> could re- place the `skipper`?
+- Maybe we can... `skipper`, is there a snorkel on this sub?
+- `Skipper`, you're picking up seaweed -- or whatever it is.
+- Some party boat `skipper` who's killed a few sharks... ha.
+- The `skipper` and three others just made it to a lifeboat.
+- Peters... `skipper`... can anybody hear me... crystallized.
+- Ever occur to you there's somebody else on that boat, `skipper`?
+- We gotta get 'im outta here before `skipper` sees him like this.
+- You know the best thing about being a `skipper` is the worst thing.
+- `Skipper`, uh, the crew is pretty much doing group boot over the side.
+- I gotta get out of here... `skipper`, please... you're not going to die!
+- But, `skipper`, cougar's been picked for top gun...he's the best of the best!
+- I guess `skipper` neilsen re- tired before you enrolled at the academy, didn't he?
+- He'll be alright, soon as all the gorillas go home... `skipper`, you can't do this!
+- The stuff we passed through -- that looked like seaweed -- what's wrong, `skipper`?
+                 

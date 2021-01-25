@@ -1,0 +1,8 @@
+---
+title: "tenderizing in a sentence | tenderizing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tenderizing"
+---
+- You've been over-`tenderizing` your meat, again.
+                 

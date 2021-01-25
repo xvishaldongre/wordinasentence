@@ -1,0 +1,107 @@
+---
+title: "admiral in a sentence | admiral example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "admiral"
+---
+- Just lucky, `admiral`.
+- What is it, `admiral`?
+- `Admiral` kirk, my god!
+- `Admiral` -- on screen.
+- In progress, `admiral`.
+- Shore leave, `admiral`.
+- Time's up, `admiral`...
+- `Admiral` on the bridge!
+- 10,000 m.s.l., `admiral`.
+- About 60 feet, `admiral`.
+- `Admiral`, this is spock.
+- From yourself, `admiral`.
+- Give the word, `admiral`.
+- Status report, `admiral`!
+- Yes, `admiral` .... soon.
+- So you join us, `admiral`.
+- Welcome aboard, `admiral`.
+- Any suggestions, `admiral`?
+- This is strange, `admiral`.
+- `Admiral`, we're in position.
+- `Admiral`, you'll be trapped!
+- Right on schedule, `admiral`.
+- You still remember, `admiral`.
+- I'll bear it in mind, `admiral`.
+- My sister's youngest, `admiral`.
+- That would be futile, `admiral`.
+- You wanted to see me, `admiral`?
+- Erased... that's true, `admiral`.
+- A distinct possibility, `admiral`.
+- `Admiral`, i asked you a question.
+- It is still regulation, `admiral`.
+- `Admiral`, it's the enterprise.
+- `Admiral`, may i ask you a question?
+- I give you sixty seconds, `admiral`.
+- Ready to engage computer, `admiral`.
+- ... what were you saying, `admiral`?
+- `Admiral` on the bridge -- try again.
+- `Admiral`, this is lieutenant saavik.
+- I won't let you move them, `admiral`.
+- `Admiral`, i am receiving whale songs.
+- `Admiral` kirk's orders are confirmed.
+- Asteroids don't concern me, `admiral`.
+- We can launch a third wave, `admiral`.
+- `Admiral`, i've been hoping to see you.
+- You're in command now, `admiral` piett.
+- There are two more prisoners, `admiral`.
+- 10 seconds, `admiral`; 5 - 4 - 3 - 2 - 1.
+- `Admiral` donald...bill... mr. president.
+- `Admiral`, you must wait one damn minute.
+- I've given you no word to keep, `admiral`.
+- Well, how badly do you want it, `admiral`?
+- Your self-restraint puzzles me, `admiral`.
+- `Admiral`, you have to put me on that ship.
+- I mean to avenge myself upon you, `admiral`.
+- He wants romeo for ned and the `admiral`'s men.
+- Spock... `admiral`, if we were to assume these.
+- There's a first time for everything, `admiral`.
+- You won't get another chance at this, `admiral`.
+- `Admiral`, i have a signal closing on the whales.
+- `Admiral`... what's the status of the borg fleet?
+- What about the rest of the inspection, `admiral`?
+- Mr. scott cannot give me exact figures, `admiral`.
+- `Admiral`, i've got to take the mains off the line.
+- `Admiral`, may i suggest that dr. mccoy is correct.
+- I'd be grateful, `admiral`, if you'd give the word.
+- My father is a rear `admiral` in the seventh fleet.
+- `Admiral`, this is an almost totally new enterprise.
+- ... `admiral`, what's going to happen to enterprise?
+- Based, i am told, on your recommendation, `admiral`.
+- `Admiral` dougherty will not be joining us for diner.
+- `Admiral` - how am i going to handle all that weight?
+- `Admiral` roebuck: you know commander bond, don't you?
+- `Admiral` -- i've replaced the klingon food packs.
+- Don't fail me again, `admiral`, i've had quite enough!
+- I believe you'll find everything shipshape, `admiral`.
+- Lieutenant, the `admiral` is aware of the regulations.
+- Uhura, patch me in -- `admiral`, they're reducing speed.
+- Would `admiral` kirk have access to such information?
+- Marooned on ceti alpha v. he's completely mad, `admiral`.
+- We think her day is over... `admiral`, i don't understand.
+- `Admiral` dougherty wants to know why we haven't left yet...
+- `Admiral` kirk calling captain esteban or lieutenant saavik.
+- I'd still like a vulcan there, if possible... no, `admiral`.
+- Give me a chance -- `admiral`, your young friend is mistaken.
+- Which will require twenty more hours at minimum, `admiral`...
+- Like all living beings, `admiral` each according to his gifts.
+- <u>`admiral`</u> kirk never bothered to check on our progress.
+- As i indicated, `admiral`, that thought had not occurred to me.
+- `Admiral`, there is no response from the grissom on any channel.
+- We have a fighter screen up, in case we are attacked, `admiral`.
+- We've lost sight from land days ago... god be with us `admiral`.
+- After that, `admiral`, we'll be visible -- and dead in the water.
+- I have an urgent commpic from space lab regula i for the `admiral`.
+- John paul jones... you don't understand a thing, do you, `admiral`?
+- `Admiral`, i'd like to continue my work on the ship until you leave.
+- Conceived by kirk's son and test detonated by the `admiral` himself!
+- Dr. weir, `admiral` hollis would like to see you as soon as possible.
+- Would you rather be ravished by a pirate or a british rear `admiral`?
+- The engines, `admiral`: they've yet to be even tested at warp power.
+- You've brought the federation into the middle of a blood feud, `admiral`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "OK in a sentence | OK example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "OK"
+---
+- But everything's `ok`?
+- But it's '`ok`'... oh.
+- Can you get back `ok`?
+- Did i do my part `ok`?
+- Don't be a hero, `ok`?
+- Everyone's `ok`. lisa?
+- Hey, hey, you're `ok`.
+- I'm fine are you `ok`?
+- I think he'll be `ok`.
+- It's not `ok` with me.
+- It's `ok`. costa rica!
+- It's `ok`, i got this.
+- It's `ok`, sweetheart.
+- It's `ok` to ask that.
+- It's `ok`. we're safe.
+- It's `ok`. you did it.
+- Jasper... - it's `ok`.
+- Louise, trust me `ok`?
+- Louise, trust me `ok`?
+- Octavia, are you `ok`?
+- `Ok`, a family matter.
+- `Ok`. close your eyes.
+- `Ok`. do what he says.
+- `Ok`, i will... later.
+- `Ok`. let's try again.
+- `Ok`. no more talking.
+- `Ok` not your imports.
+- `Ok`. we're safe here.
+- `Ok`. you can do this.
+- `Ok`. you six with me.
+- _ raven, are you `ok`?
+- This is my tent, `ok`?
+- What do i, uh... `ok`.
+- Yeah, `ok`. we'll see.
+- You're `ok`. attagirl.
+- You're `ok`. - _ - oh.
+- You think that's `ok`?
+- Abby: `ok`, how deep?
+- Don't get killed, `ok`?
+- I'm `ok`. you're right.
+- It's `ok`. no fighting.
+- It's `ok`. ooh, purdue.
+- It's `ok` to be scared.
+- It's `ok` to be scared.
+- It's `ok`. who are you?
+- It's `ok`. you're safe.
+- I will find jack, `ok`?
+- Knife out of you, `ok`?
+- Oh, `ok`. hello walter.
+- `Ok`. come on, picasso.
+- `Ok`. have a good trip.
+- `Ok`, how did you know?
+- `Ok`. let's open it up.
+- `Ok`. `ok`. just breathe.
+- `Ok`, slow down louise.
+- `Ok`, take me with you.
+- `Ok`. we're coming out.
+- `Ok`. we were betrayed.
+- `Ok`. what's your name?
+- `Ok`. you're connected.
+- That's `ok`. that's `ok`.
+- Um... yeah, `ok`. sure.
+- You are safe now, `ok`?
+- You're `ok`. you're `ok`.
+- You’re `ok`. you’re `ok`.
+- You're `ok`. you're `ok`.
+- I'll see you soon, `ok`?
+- I'm `ok`. just shoot me.
+- It's `ok`, i'll get him.
+- It's `ok`, it's alright.
+- It's `ok`, raven, don't.
+- It's `ok`. what is that?
+- It's `ok`. you're lying.
+- John, it's `ok`. murphy!
+- Just listen to me, `ok`?
+- Maybe i was wrong, `ok`?
+- Miller and jackson `ok`?
+- `Ok`, but not too smart.
+- `Ok`. _ come on, clarke.
+- `Ok`. echo's with emori.
+- `Ok`. how do we do this?
+- `Ok`, it's safe to talk.
+- `Ok`. let's get started.
+- `Ok`, `ok`...take it easy.
+- `Ok`. rcs valve... open.
+- `Ok`, whatever you want.
+- `Ok`. you can still run!
+- `Ok`� skip it, einstein.
+- Report back to me, `ok`?
+- Tell me everyone's `ok`.
+- That's `ok`. no, listen.
+- The pods check out `ok`.
+- We're `ok`. everyone `ok`?
+- What i have to do, `ok`?
+- You've got to run, `ok`?
+- Are you going to be `ok`?
+- Are you sure you're `ok`?
+- ....change subject, `ok`?
+- Clarke, it's `ok`. hello.
+- Everything `ok` in there?
+                 

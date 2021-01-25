@@ -1,0 +1,74 @@
+---
+title: "loser in a sentence | loser example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "loser"
+---
+- Sounds like a `loser`.
+- You are not a `loser`.
+- I'm not a sore `loser`.
+- I'm the fuckin `loser`.
+- Nice guy but a `loser`.
+- The `loser` is nothing.
+- Don't be a sore `loser`.
+- `Loser` goes home alone!
+- Oh, he's such a `loser`!
+- `Loser` sails home alone.
+- He's not a `loser` at all!
+- I said you were a `loser`!
+- The `loser` ran off alone.
+- I ain't no goddamn `loser`.
+- What a `loser` she must be.
+- What's the matter, `loser`?
+- Yeah, she's a total `loser`.
+- You're not a `loser`, eddie.
+- You treat me like a `loser`.
+- Eddie, you're a born `loser`.
+- I spoiled the little `loser`!
+- This kid looks like a `loser`.
+- We forgot to call the `loser`!
+- I think you're still a `loser`.
+- I was such a `loser` back then.
+- He looks like a fuckin' `loser`.
+- Even robert e. lee was a `loser`.
+- I want ya to stop bein' a `loser`.
+- Sarah, do you think i'm a `loser`?
+- Who said anything about "`loser`?"
+- You always were a `loser`, plissken.
+- Where do you get this word "`loser`?"
+- Hey -- my sister's a friggin' `loser`.
+- He uses people and -- he was a `loser`.
+- With that complete `loser` oh my god!
+- `Loser`... oh yeah he was a `loser` alright.
+- You really think i'm a `loser`, don't you?
+- Being a selfish `loser` was your only move.
+- Goes out with that `loser` patrick bateman.
+- Means i got confidence that he's a `loser`.
+- You picked a `loser`, i just don't have it.
+- What kind of `loser` gets fired after one day?!
+- The `loser` must do whatever the winner pleases.
+- Because bobby is a `loser`, you said so yourself.
+- So what is milhouse's `loser` dad doing with them?
+- Why don't you ditch that `loser` husband of yours?
+- This ed martin character is a complete `loser`.
+- I guess he turned out to be kind of a `loser`, huh?
+- The `loser` has to keep american clean, how's that?
+- Are you such a `loser` you can't tell when you've won?
+- Lately i've been feeling like... well... like a `loser`.
+- You get busted again, you go back in a two-tine `loser`.
+- You were a `loser`, dad, but at least you had integrity.
+- Go, go, go, or i'll call you both ubers back to `loser` town.
+- I knew you were a `loser` the first night i laid eyes on you.
+- Being reminded what a `loser` you are every time you screw up.
+- I've got some news for you, mr. x, you're a three time `loser`.
+- Are you so much a fucking `loser`, you can't tell when you've won?
+- Everybody else saw me as a `loser` with a big chip on his shoulder.
+- Well, in that case, this place is a `loser` the drone doesn't count.
+- You happen to be about only one-half `loser` -- the other half, winner.
+- Well, i always thought my dad was a big fat `loser` beautiful, isn't it?
+- That's not wh... you taught my child that i am some limp dick <u>`loser`</u>.
+- The thing is, cameron -- i'm at the mercy of a particularly hideous breed of `loser`.
+- The real kicker is, for the first time in my life-- the first time--i feel like a `loser`.
+- Because you're a `loser`, and in some warped way this gives you a momentary sense of worth.
+- If you were a `loser` would they have been able to find a donor with an exact tissue match?
+                 

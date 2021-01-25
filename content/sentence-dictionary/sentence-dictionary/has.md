@@ -1,0 +1,107 @@
+---
+title: "has in a sentence | has example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "has"
+---
+- Blood `has` been shed.
+- But it `has` pictures.
+- But no one `has` keys.
+- But there `has` to be.
+- Everybody `has` those.
+- `Has` alerted customs.
+- `Has` anyone seen her?
+- `Has` he been prepped?
+- `Has` her pain abated?
+- `Has` ray come in yet?
+- `Has` tom come in yet?
+- He `has` a cop's face.
+- He `has` a little dog.
+- He `has` good teeth...
+- He `has` grown strong.
+- He `has` his doubts...
+- He `has` his uses too.
+- He `has` no heartbeat!
+- He `has` -- something.
+- He `has` to touch her.
+- He `has` to wear them.
+- I mean it `has` style.
+- It `has` a broken leg!
+- It `has` been decided.
+- It `has` come to be...
+- It `has` come to pass.
+- It `has` it's moments.
+- It `has` some history.
+- It `has` to be daniel.
+- Jordan `has` a theory.
+- Nothing `has` changed.
+- Our son `has` friends.
+- Sanctum `has` lost us.
+- She `has` agoraphobia.
+- She `has` superpowers.
+- Simon `has` a new pet.
+- Size `has` no meaning.
+- Somebody `has` to die.
+- Someone `has` to stay.
+- So what `has` changed?
+- The fog `has` cleared.
+- The man `has` friends.
+- Which of you `has` it?
+- Your enemy `has` guns.
+- A girl `has` to fit in.
+- Agnes `has` that birth.
+- As mother `has` proven.
+- But he `has` long hair!
+- 'daddy `has` to go now.
+- Everybody `has` a past.
+- Every county `has` one.
+- Everyone `has` foibles.
+- `Has` he been out long?
+- `Has` he hinted around?
+- `Has` met with success.
+- `Has` roger spoken yet?
+- `Has` sue got it right?
+- He `has` an air bubble.
+- He `has` a power-- why?
+- He `has` educated feet.
+- He `has` lost his mind.
+- He `has` lots of disks.
+- He `has` no such thing!
+- He `has` proven useful.
+- He `has` to be on foot.
+- He `has` to be stopped.
+- He `has` to destroy it.
+- He `has` to go, samuel.
+- How long `has` it been?
+- Indra `has` a weakness.
+- It `has` to be cleaned.
+- It `has` to be the lab.
+- It `has` too many gaps.
+- Life `has` betrayed us.
+- Lisa `has` a boyfriend?
+- Lopsang `has` the rope.
+- Madam `has` slept well?
+- Nothing `has` happened.
+- Our luck `has` changed.
+- She `has` a richebourg?
+- She `has` lots of maps.
+- She `has` spoken to me.
+- Someone `has` seen her.
+- Someone `has` to go in.
+- Still `has` their soul.
+- That ship `has` sailed.
+- That time `has` passed.
+- The man `has` no shame.
+- There `has` to be more.
+- This `has` got to stop!
+- This `has` got to stop.
+- Unless she `has` nerve.
+- Well, it `has` buttons.
+- What `has` tuttle done?
+- Yes, always `has` been.
+- Yours `has` just begun!
+- Your victim `has` died.
+- He `has` a daughter.
+- He `has` sex appeal.
+- That day `has` come.
+                 

@@ -1,0 +1,107 @@
+---
+title: "yours in a sentence | yours example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yours"
+---
+- I can't, it's `yours`.
+- I'll tell you `yours`.
+- It's not even `yours`.
+- Now she's all `yours`.
+- Oh, daddy ate `yours`.
+- Starting with `yours`.
+- The bar's all `yours`.
+- The choice is `yours`.
+- When it's not `yours`.
+- Yeah, and for `yours`.
+- Yep, it's all `yours`.
+- You think `yours` did?
+- All of this is `yours`.
+- Neither is `yours`.
+- He a friend of `yours`?
+- Is this `yours`, larry?
+- It's all `yours`, baby.
+- Least of all - `yours`.
+- That choice is `yours`.
+- This is really `yours`?
+- _ - this one's `yours`.
+- This should be `yours`.
+- Well, what was `yours`?
+- Yeah ... well, `yours`.
+- `Yours` has just begun!
+- `Yours` to answer them.
+- Always `yours`, octavia.
+- And then that's `yours`.
+- Don't assign me `yours`.
+- Friends of `yours`, huh?
+- How much air in `yours`?
+- I'd rather hear `yours`.
+- I'm begging for `yours`.
+- I took `yours` from you.
+- I will never be `yours`.
+- Now let me save `yours`.
+- Same tattoos as `yours`.
+- She'll never be `yours`!
+- That picture of `yours`.
+- That's why it's `yours`.
+- The case is all `yours`.
+- These rooms are `yours`.
+- They're all `yours`, al.
+- `Yours`, or the turkeys?
+- Ahh, she will be `yours`.
+- I'm a big fan of `yours`.
+- I take it that's `yours`.
+- I thought it was `yours`.
+- No, he's ruining `yours`.
+- This a friend of `yours`?
+- Those things are `yours`.
+- You keep `yours` on milo.
+- `Yours`, always, darling.
+- `Yours` are so confident.
+- `Yours` is falling apart.
+- `Yours`, mine, all of it.
+- I'll drink to `yours`.
+- Now the job's `yours`.
+- Did you hear it's `yours`?
+- He's a big fan of `yours`.
+- He's all `yours`, colonel.
+- He saw you moving `yours`.
+- How's that dog of `yours`?
+- I believe this is `yours`.
+- I think he's `yours`, now.
+- I thought it was `yours`."
+- It's all `yours`, heather.
+- Maybe mine, maybe `yours`.
+- Nothing, but it's `yours`.
+- Story of `yours` straight.
+- That ten grand of `yours`.
+- This is `yours`... we can.
+- Tristan, he's all `yours`.
+- Which building is `yours`?
+- Don't like `yours` neither.
+- Friends of `yours` michael.
+- God's ways are not `yours`.
+- Go to that girl of `yours`.
+- He bought a boy of `yours`.
+- He's half `yours`, partner.
+- How would you like `yours`?
+- Is she a friend of `yours`?
+- It will be `yours` someday.
+- Just as you are in `yours`.
+- Little rum in `yours`, too?
+- Not as bad as `yours`, pal.
+- Officer: friend of `yours`?
+- Or `yours` for that matter?
+- Thanks, i like `yours` too.
+- That `yours`, mrs. mckenna?
+- Was he a friend of `yours`?
+- What did you do to `yours`?
+- A friend of `yours` is here.
+- Everything i got is `yours`.
+- Good luck with `yours`, kit.
+- I hope `yours` is okay, too.
+- I'll be with you on `yours`.
+- My fault as much as `yours`.
+- The choice is `yours`, heda.
+- The kill is `yours`, clarke.
+                 

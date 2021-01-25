@@ -1,0 +1,107 @@
+---
+title: "rules in a sentence | rules example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rules"
+---
+- Following the `rules`.
+- I make my own `rules`.
+- So, there are `rules`.
+- There were no `rules`.
+- A couple other `rules`.
+- I told you the `rules`.
+- Policemen have `rules`.
+- We play by the `rules`.
+- What about the `rules`?
+- Don't be stupid `rules`.
+- They aren't our `rules`.
+- We make our own `rules`.
+- Who'll make the `rules`?
+- You know the `rules`.
+- Because it's the `rules`!
+- But you know the `rules`.
+- I don't make the `rules`.
+- It's against the `rules`.
+- Lincoln knew our `rules`.
+- You knew the `rules`, ok?
+- You'll learn the `rules`.
+- Mobile infantery `rules` !
+- That's the ground `rules`.
+- The `rules` are the `rules`.
+- You have too many `rules`.
+- Don't quote `rules`, harry!
+- I don't play those `rules`.
+- `Rules` are for fools, man!
+- _ the `rules` have changed.
+- Whose `rules` do i live by?
+- You must learn the `rules`.
+- I broke the `rules` for you.
+- I make the `rules` as i go!!
+- Them `rules` ain't for *us*.
+- Fuck the `rules` of the game!
+- I didn't make up the `rules`.
+- My money my risk, my `rules`.
+- Still playing by the `rules`.
+- These are the ground `rules`.
+- Our dimension has `rules`.
+- I -- i don't make the `rules`.
+- It has `rules` and objectives.
+- Keeps on changing the `rules`.
+- `Rules` are made to be broken.
+- Those are the fucking `rules`.
+- I don't give any `rules`, nick.
+- Isn't that against the `rules`?
+- Same `rules` for everyone, sir.
+- We have to play by the `rules`.
+- Your school has `rules`, right?
+- You've got to obey the `rules`.
+- I thought there were no `rules`.
+- `Rules` are `rules`, mr. lombardo.
+- You mean we learn the `rules`...
+- Who makes those `rules`, huh?
+- I got to lay some ground `rules`.
+- We followed the `rules` of order.
+- Are there `rules` and regulations?
+- Besides, it's against the `rules`.
+- That's not playing by the `rules`.
+- _ we need to follow their `rules`.
+- They're *outrageous*, them `rules`!
+- You do know the `rules`, don't you?
+- You say there should be no `rules`.
+- I thought you played by the `rules`.
+- Mr. henderson, you know the `rules`.
+- Sorry, scott, but `rules` are `rules`.
+- He showed me how to bend the `rules`.
+- Remember, `rules` of engagement jane.
+- They got stringent hyg- iene `rules`.
+- We've got to find the posted `rules`.
+- Ahm... you abide by `rules` like that?
+- I don't care about the posted `rules`.
+- We're not playing by the same `rules`.
+- You're not playing by the `rules` ben.
+- Your father's `rules` no longer apply.
+- At least masseria plays by the `rules`.
+- Guess we shoulda played by the `rules`.
+- We makin' our *own* `rules`, every day.
+- *we* the ones who make up them `rules`.
+- You gotta die -- those are the `rules`.
+- But you broke the spirit of the `rules`.
+- It's the `rules` and i gotta follow 'em.
+- First you break our school board `rules`.
+- It said to follow all the posted `rules`.
+- The basic grammatical `rules` of robbing.
+- There's gonna be a couple ground `rules`.
+- They know the `rules`... that's the deal.
+- Following `rules` isn't how you win a war.
+- I've never been one to follow the `rules`.
+- Maybe it still has to play by the `rules`.
+- The `rules` are quite clear on that point.
+- You knew what the `rules` were on the ark.
+- Other people's `rules` don't mean shit.
+- Quite right, but we still make the `rules`.
+- The `rules` of engagement are not flexible.
+- One you join with us and follow our `rules`.
+- We can't just keep playing by their `rules`.
+- You change partners, you change the `rules`.
+- That has always been the `rules` of the game.
+                 

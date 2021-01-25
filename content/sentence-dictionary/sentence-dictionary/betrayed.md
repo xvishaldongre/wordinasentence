@@ -1,0 +1,62 @@
+---
+title: "betrayed in a sentence | betrayed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "betrayed"
+---
+- But she `betrayed` me.
+- I have `betrayed` you.
+- You `betrayed` us all.
+- You've `betrayed` me.'
+- It's me `betrayed` him.
+- Life has `betrayed` us.
+- Ok. we were `betrayed`.
+- You `betrayed` me, madi.
+- You `betrayed` us, bart.
+- You're `betrayed` shiva.
+- Brolly's been `betrayed`!
+- You `betrayed` me, indra.
+- He's `betrayed` the class.
+- I am alone and `betrayed`.
+- I `betrayed` your brother.
+- The british `betrayed` me.
+- You `betrayed` me, charlie.
+- The bureau's `betrayed` us...
+- She'll think i `betrayed` her.
+- That i `betrayed` the british?
+- Your ambassadors `betrayed` you.
+- Father, i have `betrayed` my family.
+- She `betrayed` me and tried to kill us.
+- Worse, you `betrayed` your own wang.
+- `Betrayed` by lou and, uh, the other guy.
+- Sometimes you think they've `betrayed` you.
+- Your feelings have now `betrayed` her, too.
+- He killed himself after they `betrayed` him.
+- He's killed your husband and `betrayed` you.
+- I feel `betrayed`, abandoned and humiliated.
+- Wouldn't be the first time she `betrayed` us.
+- One cannot be `betrayed` if one has no people.
+- You've `betrayed` the federation - all of you.
+- When i kissed you i `betrayed` the russian ideal.
+- I told you what would happen if you `betrayed` me.
+- It was only a slaughter because you `betrayed` us.
+- These clothes, the way you `betrayed` us to cadogan.
+- You told me vader `betrayed` and murdered my father.
+- You `betrayed` the one person who still believes in you.
+- I don't know... it'll sound like we... `betrayed` her...?
+- We both have been `betrayed` and imprisoned by our own people.
+- And she knows that you `betrayed` her number two is the kicker.
+- Awful sorry i `betrayed` you fellas; must be my hogwallop blood.
+- He will let them feel you have `betrayed` them for the good life.
+- He said if it vanished, he'd know it was ... you who `betrayed` him.
+- It was her desire that if she should ever fall, they `betrayed` you.
+- Ask yourself: isn't it max shreck who manipulated and `betrayed` you?
+- Remember that time you `betrayed` me this new body's got some rhythm.
+- The way they `betrayed` him... -- we needed cohesion to move forward.
+- Tell william parrish how you `betrayed` him at a secret board meeting.
+- You know, if you fill up a leaf blower with paint, i `betrayed` blodreina.
+- Once they do, ♪ if you're so tired of moving slow ♪ you `betrayed` russell.
+- The son who had `betrayed` and burned him so thoroughly seemed a obvious choice.
+- You `betrayed` the duke, stole his wife and took his castle, now no one trusts you.
+- I couldn't sleep so i thought i'd scream `betrayed` by a kiss, sucking pods of bitterness.
+                 

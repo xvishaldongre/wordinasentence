@@ -1,0 +1,104 @@
+---
+title: "surely in a sentence | surely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "surely"
+---
+- `Surely` her father...
+- `Surely` she is older?
+- `Surely` you knew that.
+- `Surely`, come right in.
+- But `surely` you know...?
+- First name terms, `surely`!
+- I `surely` do miss that hat.
+- `Surely` -- i wouldn't know.
+- `Surely` it's worth a brownie.
+- `Surely` you can't be serious.
+- The bug is enchanted `surely`.
+- You loved your wife, `surely`.
+- `Surely` you know what you have.
+- They will `surely` kill us here.
+- As `surely` as if it were my own!
+- `Surely` you've seen a man naked.
+- `Surely` that's worth a few louis.
+- `Surely` you knew this was coming.
+- `Surely` you've heard the stories?
+- But han and leia will `surely` die.
+- `Surely` he would have found a way!
+- `Surely` you don't take their word?
+- But, `surely`, we are safe in tibet.
+- Marge, `surely` you want me to stay.
+- `Surely` you can be more specific...
+- `Surely` you're not suggesting... no.
+- Their cruelty `surely` will wreck me.
+- You're not venturing alone, `surely`.
+- Cal, `surely` you remember mr. dawson.
+- `Surely` i have made my meaning plain.
+- `Surely`, the mute is a false prophet.
+- `Surely` you can do anything you want.
+- `Surely` you can drink more than that.
+- `Surely` you'll grant me a final word.
+- Oh, `surely` one can have a tiny touch.
+- `Surely` you must know why you're here.
+- Yeah, well, it `surely` worked for him.
+- Not from me, `surely`... god protect me.
+- `Surely` some here would prefer to live.
+- `Surely`, you didn't think i wanted you?
+- Well, i `surely` know what a quadrant is!
+- Chance, `surely` you must have paid taxes?
+- `Surely` it's all been a terrible mistake.
+- `Surely` nurses aren't afraid of the dark?
+- `Surely` you can understand why i'm upset.
+- ♪ they'll `surely` come to hate you ♪ yes.
+- `Surely` you believe in living dangerously.
+- `Surely` there must be something you can do.
+- But `surely`, our mission has not failed -- ?
+- `Surely` there's still time for a compromise.
+- `Surely` you can choose more elevated themes?
+- `Surely` it must be coming back to you by now?
+- `Surely` you don't think beverly was involved!
+- `Surely` there are... more appropriate shelters.
+- `Surely` they've disposed of these boots by now.
+- But `surely` you must know -- because i love you.
+- Our marriage is a business just as `surely` as...
+- `Surely` as a good christian you understand that!
+- We're not here to talk about the weather, `surely`.
+- God is `surely` smiling down upon us tonight, dudes.
+- You didn't come to talk about the weather, `surely`.
+- `Surely` somebody... maybe she doesn't speak english.
+- Those men know you have it just as `surely` as we do.
+- If it was up to you, `surely` that is worth something.
+- `Surely` you are not threatening an old friend, toddy.
+- `Surely`, you�d have divorced him if he disgusted you?
+- `Surely` there must be a shelter somewhere in this city.
+- We could use a good german composer in vienna, `surely`?
+- Why `surely`, mr. president, there must be some mistake.
+- I know it as `surely` as you're sitting here, sweetheart.
+- `Surely` a master-thief like you can tell the difference.
+- `Surely` it is for the gentlemen to decide when to stop...
+- That would destroy us as `surely` as a british victory.
+- `Surely` this is not how you repay their gratitude, kal-el.
+- `Surely` you are familiar with this practice, mary clarence.
+- By golly, i'm `surely` glad to see that you're not really sore.
+- But this is not a matter which can be settled tonight, `surely`?
+- `Surely` you have, but in my defense, not just someone, reapers.
+- `Surely` the odd confluence of events hasn't escaped you, clarice.
+- `Surely` you know the one who made you... who made us what we are?
+- Most `surely` that was a nice lady to give a ring to a little girl.
+- I don't care much about the rest, but i `surely` will miss that bay.
+- But `surely` here, we can instill a justice system - our anniversary?
+- It would kill us just as `surely` even if we set it off in your country.
+- `Surely` a sorcerer of the sauce pan can make rabbit taste like venison.
+- But, bishop, `surely` you realize -- this is a most dangerous neighborhood.
+- Miss gallagher, `surely` you must perform some function here at the hospital.
+- `Surely`, you're not suggesting we dispense-- the question is, do we need her?
+- `Surely` st. michael had so fine a blade when he drove the serpent from heaven.
+- `Surely` he kept his notes -- his private papers and records in some other place?
+- But if he does not come from another planet, then `surely` he sprang from our own.
+- But `surely` rogers isn't -- as always, your keen powers of perception astound me.
+- But `surely` the emperor didn't mean to prohibit dancing when it's part of the story.
+- But `surely`, professor, you don't intend we disregard the more... philosophical works.
+- Others have had similar actions and they have failed just as `surely` as you will fail.
+- Slowly but `surely`, ultraviolet rays would pour in, increasing the risk of skin cancer.
+- `Surely` you can think of somewhere else to take one of your chippies for a quick getaway.
+                 

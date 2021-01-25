@@ -1,0 +1,107 @@
+---
+title: "man in a sentence | man example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "man"
+---
+- Ask away, sweet `man`.
+- Because of you, `man`.
+- Blow the `man` down...
+- Bob was a grown `man`.
+- Bunny lebowski, `man`.
+- Can we help the `man`?
+- Don't sweat it, `man`.
+- Drake's coming, `man`!
+- Drink up, young `man`.
+- Fast and loose, `man`.
+- Fuck that shit, `man`.
+- Good night, old `man`.
+- Good thing in a `man`.
+- Had a dead `man` once.
+- Happy birthday, `man`.
+- He is a capable `man`.
+- He's a peculiar `man`.
+- He's the ladies `man`.
+- He was a modest `man`.
+- His father is a `man`.
+- Hold on, little `man`.
+- How are you, my `man`.
+- I always get my `man`.
+- I am a `man` of peace.
+- I came through, `man`.
+- I don’t know, `man`.
+- I got punished, `man`.
+- I got some acid `man`.
+- I got the right `man`.
+- I love you, old `man`.
+- I love you too, `man`.
+- I'm a dangerous `man`!
+- I'm a dangerous `man`.
+- I'm no longer a `man`!
+- I'm the `man` to sell.
+- I never met the `man`.
+- I saw you play, `man`.
+- It's all money, `man`.
+- It's game over, `man`.
+- It's `man` to `man` now.
+- It's what i do, `man`.
+- Jungle `man` fix jane.
+- Just a confused `man`.
+- Just do it, old `man`.
+- Just get me in, `man`.
+- Just the `man` i need.
+- Lad, i'm a busy `man`.
+- Look, `man` i'm sorry.
+- `Man`: check it out.
+- `Man`: hold it down!
+- `Man`: hold your fire.
+- `Man`: is that kane?
+- `Man`, listen to that.
+- `Man`, that's far out!
+- `Man` they got pissed.
+- `Man` to `man`, i'm not.
+- `Man`: what is that?
+- `Man`, you look great.
+- Mutual support, `man`!
+- Nah... you okay `man`?
+- No, i'm serious `man`.
+- No, it's weird, `man`.
+- Oh, come, `man`, come.
+- Oh, he's a sick `man`.
+- Oh `man`, i gotta pee.
+- Oh, screw that, `man`.
+- Put the `man` back on.
+- Sadie was not a `man`!
+- Sammy was a con `man`.
+- So why should a `man`?
+- "stand by your `man`".
+- That guy's sad, `man`.
+- That little old `man`.
+- That `man` over there.
+- That's alright, `man`.
+- That's freedom, `man`.
+- The `man` has friends.
+- The `man` was a cheat.
+- Then i'm a rich `man`.
+- The old `man` is dead.
+- The phone call, `man`.
+- They're waitin' `man`.
+- This `man` had a life.
+- Was he the idea `man`?
+- Way back there, `man`.
+- We're all dead, `man`.
+- What little old `man`?
+- Where's the old `man`?
+- Where you been, `man`?
+- You are a lucky `man`.
+- You're fascist, `man`.
+- You're hurtin', `man`!
+- You're my `man`, pete.
+- You're tough, j-`man`.
+- Your `man` might live.
+- Your right-hand `man`.
+- Ain't your call, `man`.
+- All but one `man` died?
+- A `man` isn't property!
+- A `man` i used to know.
+                 

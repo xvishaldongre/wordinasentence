@@ -1,0 +1,107 @@
+---
+title: "bay in a sentence | bay example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bay"
+---
+- Starboard window `bay`.
+- Opening pod `bay` doors.
+- Avril `bay`, thereabouts.
+- Into san francisco `bay`?
+- That jump into the `bay`!
+- Pod `bay` is decompressed.
+- There's the docking `bay`.
+- Laughing: `bay` 12, please.
+- Lock down the hangar `bay`.
+- Not the `bay` city rollers!
+- She... went into the `bay`.
+- Don't you like bodega `bay`?
+- Got a house in oyster `bay`.
+- No power to the `bay` doors.
+- Oh, you know the `bay` area!
+- Opening docking `bay` doors.
+- An island called tower `bay`.
+- He's inside the hangar `bay`.
+- My suit's in the cargo `bay`.
+- Right across the `bay` there.
+- <u>botany `bay`</u> -- oh no!
+- I've got the sick `bay` ready.
+- You... ...fell into the `bay`.
+- Backup man from the east `bay`.
+- Scotty, how long is this `bay`?
+- East docking `bay` door opening.
+- Sir, the hangar `bay` is secure.
+- We go down to the torpedo `bay`.
+- I spend a lot of time on e-`bay`.
+- It won't drop from the bomb `bay`.
+- This is merely our greeting `bay`.
+- What are you doing in bodega `bay`?
+- I'm taking this bunch to sick `bay`.
+- Computer: missile `bay` airlock open.
+- We can stop by sick `bay` on the way.
+- You are free to open pod `bay` doors.
+- You'll never make it out of the `bay`.
+- Chase: sir, the hangar `bay` is secure.
+- I like bodega `bay` as well as any man.
+- There was someone in the service `bay`.
+- The van ryan family created blue `bay`.
+- We're almost back to the docking `bay`.
+- But you can't explode in the bomb `bay`.
+- Crossed the `bay` bridge and here i was.
+- I'm in the hudson `bay` company's store.
+- Pelican `bay`, where you guys hooked up.
+- She's a great one, a sweet little `bay`.
+- Especially if you're over near the `bay`.
+- I borrowed it from the maintenance `bay`.
+- Just across the `bay`, at the fuel depot.
+- There's a computer upstairs in med `bay`.
+- To the hangar `bay` so i can go get my...
+- Punks think `bay` of pigs is an herbal tea.
+- That's what keeps the grim reaper at `bay`.
+- There's a lot of spare time in bodega `bay`.
+- Then what are you doing here in bodega `bay`?
+- But i've never fallen into san francisco `bay`.
+- Could they still be alive in the service `bay`?
+- He's down checking a buoy in the `bay` channel.
+- We still got access to the docking `bay` doors?
+- In cuba, track 1 was the `bay` of pigs invasion.
+- It smells like the `bay` of pigs all over again.
+- Geordi... prepare the shuttle- `bay` for arrivals.
+- Bring me the `bay` scallops with mercury poisoning.
+- Cia and the military fucked us on the `bay` of pigs.
+- ... you mentioned the "`bay` of pigs" several times.
+- Lincoln's here because of a disturbance in sick `bay`.
+- The one who lives in the white house across the `bay`?
+- Two days after the `bay` of pigs, kennedy called me in.
+- Wrote it in the waiting room of the hudson `bay` store.
+- I'm going down to the hibernation `bay`, check our pods.
+- It's a precaution... why don't you run down to the `bay`.
+- The barretts from rubicon `bay` came by in a new speedboat.
+- Why don't we all go for an evening cruise around the `bay`?
+- That'll take you right around the `bay` to their front door.
+- When you jumped in the `bay`, you didn't know where you were.
+- If you are in honduras, come to the `bay` islands and visit us.
+- I was wondering what's such dynamite in this `bay` of pigs story?
+- But i told you, i don't think we can get the bomb `bay` doors open.
+- It's the only way they can redeem themselves for the `bay` of pigs.
+- You remember that little girl walked out of our talk at blue `bay`?
+- I don't care much about the rest, but i surely will miss that `bay`.
+- Well, i hate to say this, but i think the bomb `bay` doors are stuck.
+- I can get power to this module and sub-`bay` if i remote these busses.
+- [panting] you'll need this battery to open up the door to the `bay`.
+- They wandered into san francisco `bay` as calves and were brought here.
+- They sent me to the `bay` of bloody islands "for the good of my health."
+- You ain't no bourgeois nigger like those paper panthers across the `bay`.
+- 'course, you could get yourself a boat, cut right across the `bay` with it.
+- I didn't even know there were many crows in bodega `bay` this time of year.
+- Now, while keepin' them at `bay`, he finds the guy he was supposed to kill.
+- The line i get on this guy, is that he's done half the women in blue `bay`.
+- You are not to detonate, repeat, you are not to detonate in the bomb `bay`.
+- `Bay` area's become quite a hornet's nest in terms of subversive activities.
+- I had to take him out and -- i put him in a barrel and sunk him in the `bay`.
+- You dropped the ball on `bay` of pigs -- you must think i'm blind and stupid.
+- Straight through town, stay on your left, right around the `bay` to the front door.
+- Say the president believes it's going to open up the whole `bay` of pigs thing again.
+- We have to keep our enemies at `bay` or our whole program is gonna go down the tubes.
+- Rather than spend the war in a french prison hulk in hudson `bay`, they'd fight to the end.
+                 

@@ -1,0 +1,73 @@
+---
+title: "shopping in a sentence | shopping example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shopping"
+---
+- Doing some `shopping`?
+- I'll do the `shopping`.
+- Yeah, we're `shopping`.
+- Yeah, a `shopping` mall.
+- A broadway `shopping` bag.
+- I'm going food-`shopping`.
+- Oh, did you go `shopping`?
+- I need this for `shopping`.
+- We're going `shopping` -- !
+- You know, a `shopping` mall?
+- I have some `shopping` to do.
+- I choose to be `shopping`.
+- We're going grocery `shopping`.
+- Put this in your `shopping` bag.
+- Quite a little `shopping` spree.
+- Guy to follow the `shopping` bag.
+- I have to go lingerie `shopping`.
+- She took you `shopping` for a tie?
+- I have to do some `shopping` alone.
+- To the cucamonga `shopping` center.
+- I ate breakfast and went `shopping`.
+- She even does the `shopping` network.
+- I'm just going in to do my `shopping`.
+- Well, how about the `shopping` center?
+- Do you suppose she went out `shopping`?
+- And now we have to go grocery `shopping`.
+- I done my `shopping` in seoul last night.
+- I'm just doing some christmas `shopping`.
+- The money's in a broadway `shopping` bag.
+- Hon', do you mind taking tessa `shopping`?
+- I promised allison i'd go `shopping` with her.
+- Now, i'm `shopping` for aqua salmon wallpaper.
+- You've never been `shopping` before, have you?
+- And monetizing via `shopping` and social media.
+- Dana bought it when we went antique `shopping`.
+- She's a tarot card reader at a `shopping` mall.
+- Evelyn, you don't want to go `shopping` with us?
+- I have to go in once a week for `shopping` anyway.
+- Pinky's records and disc in the `shopping` center.
+- He disappeared on his second `shopping` expedition.
+- The white guy takes the `shopping` bag and they go.
+- In between you can take mom `shopping` and to lunch.
+- No... just, you know, `shopping` with my girlfriends.
+- You're `shopping` for bear traps with jonathan byers.
+- For a while i was chief therapist in a `shopping` mall.
+- She bursts in, grabs the `shopping` bag, and takes off.
+- Only the skills i had were `shopping` and making friends.
+- I was `shopping` for a new top i thought steve might like.
+- Out `shopping` -- you're bleeding, dad -- where's your mom?
+- We're out in the westgate `shopping` center in enid, oklahoma.
+- I�i did it once; actually went `shopping` without a body-guard.
+- Freaked me out so bad i hid in a `shopping` cart for four hours.
+- `Shopping` for ruth's dress and that, that engagement dinner.
+- They don't care, they're tearing it down for a `shopping` centre.
+- I had this place, i was doing all the `shopping`, all the cooking.
+- I haven't even looked at it yet, it's still in the `shopping` bag.
+- Over there, i'll just be `shopping` in a language i don't even know.
+- Which is why they all stopped `shopping` at their, uh, mom-and-pops.
+- Put the money in a `shopping` bag and hand it to someone i meet here.
+- I have to go over to the town this morning and do a lot of `shopping`.
+- Well, you know... you know, i've got to do some `shopping` afterwards.
+- Old man christian wasn't about to go `shopping` for a snuff film himself.
+- Here's the `shopping` list and $3,000 which should take care of everything.
+- Ladies of your standing don�t learn to pick locks between `shopping` trips.
+- Whatever... well i got the tires rotated, i went `shopping`, and i made dinner.
+- If i saw a way to walk off with a `shopping` bag full of money, would i take it?
+                 

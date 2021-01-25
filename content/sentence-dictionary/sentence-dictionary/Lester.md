@@ -1,0 +1,61 @@
+---
+title: "Lester in a sentence | Lester example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lester"
+---
+- `Lester`'s on his way.
+- Mr. `lester` townsend?
+- Yeah, is this `lester`?
+- I blew it, dr. `lester`.
+- `Lester`'s left felicia.
+- Shut the door, `lester`.
+- We're late for `lester`.
+- I am the devil, `lester`.
+- Not at all, dr. `lester`.
+- `Lester`: look after them.
+- `Lester`, it just happened.
+- Why don't you see `lester`?
+- Did `lester` know about him?
+- Yes, of course, dr. `lester`.
+- `Lester` - he called you here.
+- On the way to `lester`'s house.
+- Dr. `lester`, i have a question.
+- `Lester`... she's not here, sam.
+- Mr. `lester` townsend of unipo?
+- [`lester`] he got in the tunnels.
+- `Lester` just wouldn't let me go.
+- `Lester`, you're a miserable man.
+- `Lester` did the business, not me.
+- ...using `lester` townsend's house.
+- I really care for `lester`, don't i?
+- `Lester` does what he says he'll do.
+- I have an interview with mr. `lester`.
+- Oh, fuck, `lester`, how should i know?
+- I certainly wouldn't tell `lester`.
+- Besides, dr. `lester` will see you now.
+- `Lester` clark jr. my ex-partner's son.
+- No, i blew it, i blew it with `lester`.
+- You're lying about one thing, `lester`.
+- You say things are great with `lester`.
+- You're driving me up the wall, `lester`.
+- Craig stole maxine from me, dr. `lester`.
+- Where will i find mr. `lester` townsend?
+- All right, so where is `lester` clark now?
+- I've been with `lester` since i was a kid.
+- `Lester`: give mr. kaplan a drink, leonard.
+- Think what you have time to think, `lester`.
+- Will you page mr. `lester` townsend, please?
+- I don't either, `lester`, i swear to you i don't.
+- You don't have a speech impediment, dr. `lester`.
+- Actually, my name is craig schwartz, dr. `lester`.
+- Dr. `lester`, i don't know what you're talking about.
+- Dr. `lester`, would you point me toward the restroom?
+- `Lester`, this is my friend jill and this is johnny pope.
+- Look, `lester`... are you unhappy with me about something?
+- I'll just tell `lester` we were smoking a couple of joints.
+- Oh, about six weeks now... `lester` -- well, he's very sweet.
+- Lindsey, `lester`'s barking again and getting on my nerves again.
+- Somewhere she really likes you, `lester`, and it's not just the bread.
+- I just want to see `lester` with me and that cunt in the same room tonight.
+                 

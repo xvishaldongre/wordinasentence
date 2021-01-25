@@ -1,0 +1,107 @@
+---
+title: "wants in a sentence | wants example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wants"
+---
+- 'cause it `wants` you.
+- He `wants` to come in.
+- He `wants` to help us.
+- He `wants` to kill us!
+- He `wants` to kill us.
+- He `wants` to see you.
+- He `wants` to talk ya.
+- I think he `wants` me.
+- I `wants` to get paid.
+- Nobody `wants` to die.
+- Nygel `wants` me to...
+- She `wants` a divorce.
+- She `wants` a picture.
+- Susan `wants` to come.
+- Swat `wants` to go in.
+- That chick `wants` me.
+- That's all he `wants`!
+- Thomas `wants` advice?
+- Who `wants` a hot dog?
+- Abbott `wants` to talk.
+- Alie `wants` the flame.
+- He `wants` to talk.
+- Arthur `wants` to quit!
+- Courtland `wants` to...
+- Herb `wants` to see me?
+- He `wants` an accident.
+- He `wants` finn to die.
+- He `wants` his answers.
+- He `wants` to clean up.
+- He `wants` to kill him.
+- He `wants` to kill you?
+- He `wants` to meet you.
+- He `wants` to show now.
+- He `wants` your throne.
+- He `wants` your wisdom.
+- I'm the one he `wants`.
+- Nobody ever `wants` me!
+- That boy `wants` me to.
+- That's what he `wants`.
+- That's what it `wants`.
+- `Wants` to be an actor.
+- Warden `wants` to talk.
+- Wherever he `wants` to.
+- Who `wants` an old wig?
+- Who `wants` me to stop?
+- Another `wants` a check.
+- He can if he `wants` to.
+- He `wants` to apologise.
+- He `wants` to be famous.
+- He `wants` to be killed.
+- He `wants` us to follow.
+- He `wants` you with him.
+- Imhotep `wants` it back.
+- It's what eddie `wants`.
+- Now she `wants` to talk.
+- Pay him what he `wants`.
+- Says he `wants` to move.
+- She `wants` to kill you.
+- She `wants` to lay down.
+- She `wants` to meet you.
+- This is what he `wants`.
+- Uh, who `wants` to know?
+- `Wants` to see it again.
+- Who `wants` fruit salad?
+- Who `wants` to be first?
+- You have modest `wants`.
+- Everybody `wants` to fly.
+- Everyone `wants` quality.
+- Exactly what she `wants`.
+- Harold ryan `wants` chow!
+- He takes what he `wants`.
+- He `wants` it on exhibit.
+- He `wants` me to testify?
+- He `wants` to apply here.
+- He `wants` to carry them.
+- He `wants` to see us now.
+- I said, who `wants` cake?
+- Kuato `wants` to see you.
+- Now it `wants` to eat me.
+- Now she `wants` to shoot.
+- Okay, who `wants` a card?
+- She `wants` to come back.
+- Sooze `wants` to see him.
+- The turk `wants` to talk!
+- What he `wants` us to do.
+- Who `wants` to be famous?
+- Who `wants` to divide us.
+- You know she `wants` out.
+- Al `wants` to talk to you!
+- But he `wants` me to come!
+- Caesar `wants` me to stay.
+- Find something he `wants`.
+- Give her what she `wants`.
+- He says he `wants` it now.
+- He `wants` a lot of money.
+- He `wants` to belittle me.
+- He `wants` to give her...?
+- He `wants` to meet at six.
+- He `wants` to talk to you.
+- He `wants` us to find him.
+                 

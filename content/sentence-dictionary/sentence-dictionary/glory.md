@@ -1,0 +1,67 @@
+---
+title: "glory in a sentence | glory example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "glory"
+---
+- Is this my `glory`, sir?
+- Or for the `glory` of you!
+- For money, and for `glory`.
+- I did "what price `glory`?"
+- For `glory` and grace of me.
+- For the `glory` and grace...
+- You call this... `glory`...?
+- To exalt you in your `glory`.
+- With dave it was the `glory`.
+- You're covering us in `glory`!
+- You seek `glory` for yourself.
+- For the greater `glory` of you.
+- Fortune and `glory`... oh really?
+- `Glory` and praise to the primes.
+- You soldiers get all the `glory`.
+- For me it was the `glory` of rome.
+- I flat don't like the guy, `glory`.
+- Is it for his `glory`, or for yours?
+- For the `glory` and grace of sanctum.
+- For the `glory` and grace of sanctum.
+- For the `glory` and grace of the primes.
+- You should `glory` in your animal nature.
+- It's time this gearjammer rode to `glory`.
+- How i'm going to bask in reflected `glory`!
+- For the `glory` and the grace of the primes!
+- This is victory, jeanne, this is... `glory`!
+- Awards, `glory` ... well... how have you been?
+- It has brought him as much trouble as `glory`.
+- This ship is going down in a blaze of `glory`!
+- By the `glory` and grace of the primes, is mine.
+- Eight more, between you and everlasting `glory`.
+- Oh, sweet `glory` hallelujah... what's she doing?
+- Peace and love for the grace and `glory` of sanctum.
+- He�d never have killed himself when `glory` beckoned.
+- I'm telling you -- and the `glory`, don't forget that.
+- I wish nothing but `glory` for the kingdom of agrabah.
+- Flattened out on your butt, swimmin' around in `glory`.
+- I'll drive, then -- we'll go out in a blaze of `glory`!
+- For the `glory` and greatness of primes, don't stand up.
+- 6 of them spent trying to reach the pretty light `glory`?
+- The young beautiful hitler, who danced his way to `glory`.
+- There's no `glory` to it, but there are those that like it.
+- Intel has its own `glory`, lieutenant -- no matter how subtle.
+- I'll use the profits to restore charenton to her former `glory`.
+- Don't you want to spread your wings and flap your way to `glory`?
+- You're gonna get killed chasing after your damn fortune and `glory`!
+- The `glory` boys just want to finish their report so they can go home.
+- Are the `glory` boys actually showing interest in investigation's work?
+- Of course, if it serves the `glory` and the grace of the primes... wow.
+- It's tom sharp and two other fellers -- oh, `glory` -- where's my pants?
+- The south lost the civil war, but they still seem to get all the `glory`.
+- Kid, you take the `glory` and the good intentions and i'll take the reward.
+- Then we'll let the governor in on the capture -- share the `glory` with him.
+- ♪ he drivin' a drop top cadillac ♪ for the `glory` and the grace of the primes.
+- At my meetin's i used to get the girls `glory`-shoutin' till they about passed out.
+- You'll be drinking your own piss... for the `glory` of spain... and admiral colon...!
+- We call it treatin' your friends right, and not bein' a pig for every scrap of `glory`.
+- All he wanted was a comeback... that last `glory`... ed, you've got to snap out of this.
+- ♪ they're gonna regret it, though, big time, when they don't get to share in my `glory`.
+- Finding that stone could've gotten you all the fortune and `glory` you were talking about.
+                 

@@ -1,0 +1,66 @@
+---
+title: "gear in a sentence | gear example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gear"
+---
+- The money, the `gear`!
+- Chicks love the `gear`.
+- I never rent my `gear`.
+- What about all the `gear`?
+- Everybody grab your `gear`!
+- He's come into some `gear`.
+- Quentin, how's your `gear`?
+- Yeah, it's `gear` on a girl.
+- All right -- get your `gear`.
+- Well... you want your `gear`?
+- What's he doing to my `gear`?
+- I swear i'm not a `gear` snob.
+- Not to mention half my `gear`.
+- Have you got any `gear` on you?
+- The `gear` from the chopper.
+- Open it up, 5th `gear`, 5th `gear`!
+- My `gear` is busted up pretty bad.
+- Back in your murder `gear` already.
+- You don't want to load `gear`, huh?
+- All your `gear` is back at wilder's.
+- Fifth - stand on it, 5th `gear`, go!
+- Go help with the rest of the `gear`.
+- Good, now get your goddamned `gear`.
+- It's a hundred degrees... ...`gear`?
+- But this `gear`'s probably biometric.
+- Slide the stick into first `gear`.
+- Hey, ok if gordy uses your old `gear`?
+- You guys are packing some heavy `gear`.
+- Grab your `gear` and meet at raven's gate in 5.
+- Get your field `gear`, take stuff for overnight.
+- So just get your `gear` off and get up to control.
+- First thing we gotta do is get you some new `gear`.
+- Tell them the `gear` is down and we're ready to land.
+- Well... then may you rent me your `gear` for the day?
+- Why don't you show me some `gear` before you get hurt.
+- It throws one out of `gear`.... let me finish my work...
+- If it's alright, i'm gonna pick up the rest of my `gear`.
+- I'll go pack our bags, get the `gear`, be back in an hour.
+- Just drop this fuckin' donut shit, and gather your `gear`.
+- Which anyone coulda taken out of my `gear` on the chopper.
+- Let's see... that was second `gear`..kay shifts into third.
+- That'll give ya phones, cages, blackboards and ticker `gear`.
+- Well, remember, pack as much `gear` as you can into the rover.
+- Or are little `gear` trains and circuit boards under your skin?
+- I have been buying `gear` off one of them for a couple of years.
+- Not only does he not carry my `gear`, we have to carry his `gear`.
+- In the most velour tracksuit there could be, i'll get the `gear`.
+- Just to dock, which means we won't have enough now get my `gear`.
+- You want to stow this `gear` or you want me to use it for ballast?
+- 125% authentic git-toe `gear` when you want to be git-toed fabulous.
+- Stay late at your work tomorrow night and i'll bring you the `gear`.
+- Come on -- let's go above and see how they're coming with the `gear`.
+- Steering wheel... `gear` shift... dashboard... police... eh... police.
+- It's got food, water, recording `gear`, anything you need for covert spying.
+- Yes, but it's more likely that the tolerances on our testing `gear` are too low.
+- Yeah, that was honza's idea, i had to buy him a few beers in return for the `gear`.
+- If we had some of the climbing `gear` and i realized i have no idea it doesn't matter.
+- Have your men `gear` up the edicon system at a twenty-year ratio in fractions of fives.
+- If you hadn't been gassing about hoagie.... maybe the `gear` crapped out.... we lost it....
+                 

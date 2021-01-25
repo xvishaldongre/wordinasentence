@@ -1,0 +1,107 @@
+---
+title: "phone in a sentence | phone example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "phone"
+---
+- Do you have a `phone`?
+- Give her your `phone`.
+- He was on the `phone`.
+- I also have a `phone`.
+- Is she on the `phone`?
+- `Phone` call, clarice.
+- Put that `phone` down!
+- That infernal `phone`!
+- The `phone` call, man.
+- Can i use your `phone`?
+- I don't have a `phone`.
+- It's your `phone`, sir.
+- May i use your `phone`?
+- Our first `phone` call!
+- `Phone` for you, hildy.
+- Put her on the `phone`.
+- The guy on the `phone`.
+- There's a `phone` here.
+- Yes, that `phone` call.
+- Because it's my `phone`.
+- Gregor's cell `phone`...
+- I gotta use the `phone`.
+- Let me use your `phone`.
+- Oh -- that `phone` call!
+- Oh, that `phone` call...
+- There's no cell `phone`.
+- Who smashed the `phone`?
+- You have a cell `phone`?
+- You have a `phone` call.
+- You said a cell `phone`?
+- "can i use your `phone`?"
+- Don't answer the `phone`.
+- How bout my `phone` line?
+- I'll `phone` him at noon.
+- Just get off the `phone`!
+- Never answer the `phone`.
+- Next time, `phone` ahead.
+- `Phone` didn't wake them.
+- Put a tap on her `phone`.
+- Soon as we get a `phone`.
+- Take the goddamn `phone`.
+- They smashed the `phone`.
+- We talked on the `phone`.
+- Your `phone` messages.
+- Don't wait by the `phone`.
+- Give me that `phone` back.
+- Give them my home `phone`.
+- Got a `phone` in that van?
+- He doesn't have a `phone`.
+- He's using a cell `phone`.
+- I'd want a public `phone`.
+- I have to use the `phone`.
+- I just had a `phone` call.
+- I need to use the `phone`.
+- I need to use the `phone`?
+- I told you on the `phone`.
+- Pham, your `phone` is out!
+- The `phone` made me do it!
+- The `phone`'s in the back.
+- This is my `phone` number!
+- Woman [over `phone`]: yes?
+- All the ugly `phone` calls?
+- Can i use your sat `phone`?
+- Did you jiggle the `phone`?
+- Get me hank on the `phone`.
+- Give me the `phone`, quick.
+- He was just on the `phone`.
+- How did he hack my `phone`?
+- I hate playing `phone` tag!
+- I love not using a `phone`.
+- I never pick up my `phone`.
+- Oh, man, my `phone`'s dead.
+- One `phone` call every day.
+- That was al on the `phone`.
+- The `phone` just went dead.
+- Your `phone` isn't working.
+- A redcap in a `phone` booth?
+- Go to the `phone`... - okay.
+- Have a look at your `phone`.
+- He's talking on the `phone`.
+- How'd you unlock my `phone`?
+- I called a `phone` sex line.
+- I gotta make a `phone` call.
+- I intercepted `phone` calls.
+- I'm not good on the `phone`.
+- I'm waiting for the `phone`.
+- In his cell `phone` holster.
+- I've got to use the `phone`.
+- Man: [on `phone`] yes, sir.
+- Michael, i'm on the `phone`.
+- Mike: you do have a `phone`.
+- Mookie, get offa da `phone`.
+- On screen the `phone` rings.
+- Put the `phone` down, mason.
+- She's going to `phone` back.
+- The number's by the `phone`.
+- Who was that on the `phone`?
+- You've got a <u>`phone`</u>?
+- Alright, stay on the `phone`.
+- Annie, paul's on the `phone`!
+                 

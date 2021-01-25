@@ -1,0 +1,69 @@
+---
+title: "offering in a sentence | offering example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "offering"
+---
+- For `offering` to come.
+- `Offering` it for debate.
+- What are they `offering`?
+- They're `offering`... and?
+- He's `offering` you new york.
+- How about a peace `offering`?
+- Are you `offering` me a bribe?
+- There is no public `offering`.
+- An `offering` to the gods, huh?
+- I'm `offering` you the same.
+- Are you `offering` us something?
+- My `offering` was going missing?
+- `Offering` you their every favor.
+- They are `offering` us something.
+- Is `offering` advanced technology.
+- You're `offering` me an acting job?
+- Do you know what they're `offering`?
+- I'm just `offering` a place to stay.
+- We're still in the `offering` grove.
+- I'm `offering` you a way out of here.
+- I even wrote to him, `offering` my help.
+- I'm `offering` you a chance to save it.
+- I'm `offering` you the knicks and chicks.
+- <i></i> how much is mcdonald's `offering`?
+- The commander's `offering` to take councillor.
+- I'm `offering` you the chance to call this off.
+- That's all the commitment you're `offering` me?
+- A null infant rescued from the `offering` grove.
+- Your `offering` is accepted with love and light.
+- If i may, sir... what exactly are you `offering`?
+- Look, i appreciate what you're `offering`, but no.
+- Clarke, yesterday, you were `offering` it up say it!
+- Something they should be thanking me for `offering`?
+- She's `offering` all of wonkru hello, mr. chancellor.
+- You're `offering` a deal because you've got no proof.
+- Today, i'm `offering` you a lousy job at a lousy wage.
+- By `offering` the skaikru a seat the data says it does.
+- I knew it, soon as i saw they were `offering` a reward.
+- Homer, we're `offering` you a promotion death to primes!
+- I'm `offering` you ten grand plus expenses to do my wife.
+- The railroad men come through, `offering` to buy up land.
+- By `offering` cuba to the russians as a consolation prize?
+- So, whatever it is that you're `offering`, we're not into it.
+- Hey, i am `offering` you immortality, - easy, easy, easy, easy.
+- Please join us in the `offering` grounds - steve, listen to me.
+- You said you supposed so, but i wasn't `offering` it for debate.
+- Look, this is why i came up with the idea of you `offering` him a job.
+- The identity of the person `offering` the bounty was never established.
+- If reed's right, then this little trip will double our stock `offering`.
+- I'm `offering` skaikru the chance [coughing] ooh, what's this crank for?
+- She laid down in the `offering` grove a year later, i just need more power.
+- You're `offering` me ten grand in cash but you can't afford a decent place.
+- A week later this gallery calls me up: "somebody's `offering` us the drawing.
+- Do you know what they're `offering` for three days to close down main street?
+- I'll need some kind of peace `offering`... can i get the drawings from his cell?
+- I'm `offering` a half a million dollars worth of white for two hundred thousand.
+- My man, i speak to you solely as a comrade in arms `offering` unconditional aid.
+- It's a votive `offering` for a lady who was cured just when she was dying of fever.
+- Somewhere where his family are `offering` a thirty grand reward for information, so on.
+- Sooner or later they're gonna get around to `offering` me a plea deal, and you know that.
+- I'm `offering` you a three year contract at twenty thousand dollars a year, starting today.
+- Some believe a person in this very town kneels before lucifer, `offering` death as tribute.
+                 

@@ -1,0 +1,107 @@
+---
+title: "east in a sentence | east example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "east"
+---
+- Raven: `east` is, too.
+- Sun rises in the `east`.
+- `East` coast, ivy league.
+- Next week "`east` lynne."
+- Direction's `east` coming!
+- `East` is the nuclear site.
+- On the lower `east` side...
+- Park avenue and `east` 2nd.
+- Coming out of the nor'`east`.
+- `East` seventy-fourth street.
+- Heavy weather `east` of here.
+- Movement in the `east` woods.
+- Suite 610 in the `east` wing.
+- Four to the lower `east` side.
+- Um, yeah, thirty miles `east`.
+- South-`east` ridge as well.
+- Backup man from the `east` bay.
+- Do you know the `east` village?
+- I made a few calls back `east`.
+- We are uh...`east` of the city.
+- `East` docking bay door opening.
+- Your friends are `east` of here.
+- Banditos on the `east` perimeter!
+- So you're going back `east`, huh?
+- The `east` side is always faster.
+- The far `east` meets the mid-west!
+- `East` river drive and 73rd street.
+- I'm moving to the `east` side soon.
+- I think i'm gonna move back `east`.
+- When you exit, head `east` on 10th.
+- Who killed the witch of the `east`?
+- The address is 1921 north `east` 23.
+- I repeat, hostiles on `east` unit 12.
+- Finn: ere’s an ocean to the `east`.
+- I want to go to an `east` coast school!
+- West becomes `east`, all things change.
+- It is the `east`, and juliet is the sun.
+- You'll be heading `east` from here, huh?
+- Anyway, i called some friends back `east`.
+- Call him up in `east` st. louis, penelope.
+- There's a place two blocks `east` of here.
+- You're the analyst for `east` china, o'neil.
+- Did you talk to the police in `east` proctor?
+- There's a dry river bed fifteen miles `east`.
+- They just pulled him out of the `east` river.
+- Then, when the show went `east` - i went `east`.
+- Turn `east` on 32 and look for hooper's ranch.
+- To the `east`, beyond the lising sun... cathay?
+- From `east` to west, we shouldn't have to, wait.
+- Seven o'clock tomorrow night, at the `east` dock.
+- The entire `east` coast, the satellites are down.
+- `East` above the river heading for the eagle pass?
+- He went to the hotel ambassador `east` in chicago.
+- She's going to `east` st. louis--to visit an aunt.
+- She's importing stuff from all over the mid-`east`.
+- Well my cousin fred met this dame from back `east`.
+- What happens to your apartment on the `east` river?
+- ...you are due at the ambassador `east` in chicago.
+- General greely says it looks like the middle `east`.
+- You make me sound like the father in "`east` lynne."
+- The sun rises in the `east`, and it sets in the west.
+- You got the `east` block, west block, administration.
+- One more mangled body to the `east` river, coming up !
+- Say, we're supposed to be traveling `east`, aren't we?
+- That was her sister -- the wicked witch of the `east`.
+- Now, he knew there was a city with an oasis due `east`.
+- People say it's the safest block in the `east` village.
+- Were you thinking of personally driving me back `east`?
+- Listen, charles, this is my friend rob from back `east`.
+- They run routes mostly `east`, retail stuff, warehouses.
+- Why a feller like that don't come `east` to do a play...
+- Here's the story on that `east` 19th street murder spree.
+- She faces `east` so she has an excuse to wear the shades.
+- The entire `east` wing will be evacuated within the hour.
+- Why would you drive an hour out to `east` jesus, nowhere?
+- You -- oh, you mean -- yeah, `east` lansing and ann arbor.
+- He's in `east` st. louis with his mother--visiting an aunt.
+- See, running coors beer `east` of texas is what bothers me.
+- Lisa blair, 26 `east` 7th st., apartment 16, 555-4817, boom!
+- Most of europe, the middle `east` and asia are battle ready.
+- No, but he heard firing, just `east`, less that a kilometer.
+- The uso show is a mile `east` of here, just over that ridge.
+- I tell you, we're going west, and shanghai is `east` of here!
+- There's a report here from every state along the `east` coast.
+- I myself witnessed some form of mass neurosis in `east` proctor.
+- Nah, `east` village poseur was grosser than the dude in the park.
+- I'm actually, uh, between... well, who represents you back `east`?
+- The river at this point is the most dangerous on the `east` coast.
+- Which would be located not far to the `east` of the anubis statue.
+- Suspect's family is headed `east` on calverton.... we hope so, son.
+- The only faster way up is the `east` face and it's smooth as glass.
+- This kid, this package boy could bring down the whole `east` coast.
+- I used to teach zoology in a little fresh�water college back `east`.
+- Just come for my day's pay owing and to tell you i'm heading `east`.
+- Lotta rich women back there... what you gonna do back there, `east`?
+- You've heard the rumours they're going to resettle us in the `east`?
+- They got through the shield moving `east` you got yourself a mechanic.
+- We've picked up something outside the base in zone one, moving `east`.
+- He dropped out of sight during the war, and i'd heard he'd gone `east`.
+- If the feds get those disks, the `east` coast is gonna take a hit, too.
+                 

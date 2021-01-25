@@ -1,0 +1,66 @@
+---
+title: "hid in a sentence | hid example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hid"
+---
+- You think he `hid` it?
+- So you `hid` the truth.
+- Where's it `hid`, honey?
+- Where's the money `hid`.
+- Where's the money `hid`?
+- She `hid` it in the cave.
+- But you `hid` the details!
+- If we knew where he `hid` it.
+- She `hid` it from us, doctor.
+- That's why she `hid` me away.
+- They `hid` in a broom closet!
+- Where have you got him `hid`?
+- `Hid` by day--fought by night.
+- I didn't beat it; i `hid` from it.
+- Assume there is something to `hid`.
+- Guess that's why he `hid` it there.
+- I `hid` 'em so you wouldn't be mad.
+- She probably `hid` it at her place.
+- Just show me where you `hid` it unh!
+- _ and look what i `hid` in the apple.
+- We could have `hid` it in the fridge.
+- I had 'em `hid` in the foreign section.
+- I `hid` my skills so as not to hurt you.
+- It's where i `hid` every time we played.
+- I sneaked in and `hid` till she finished.
+- Just tell me now; where's the money `hid`?
+- My deranged mama's `hid` the keys to my car.
+- O serpent heart `hid` with a flowering face.
+- The money that reggie `hid`... whaddya want?
+- While my mother `hid` with me in the cellar.
+- You `hid` the wastepaper basket in her room.
+- And `hid` it in another contestant's luggage.
+- When the fleimkepas came, they `hid` you?
+- But you can't `hid` from me, little princess.
+- It's where i `hid` every time that we played.
+- Was there ever a saint who `hid` in the church?
+- They `hid` my car-- do you even know these kids?
+- I thought it was my father so i `hid` behind the tree.
+- Yes, i have seen that, and i told you why i `hid` them.
+- Then swear you won't never tell where that money's `hid`.
+- Great, but listen, i need to know where you `hid` the adm?
+- Who do you think `hid` your sword where you would find it?
+- You `hid` the gettysburg address and i make losers happen.
+- In the spirit of friendship and harmony, that's why i `hid`.
+- But just before he was attacked, he `hid` it... uncle terrence.
+- Freaked me out so bad i `hid` in a shopping cart for four hours.
+- We `hid` it in the last place the men in this family would look.
+- She says you told her that i asked you where that money was `hid`.
+- He `hid` in one of those purple plastic tunnels and didn't come out.
+- Everybody in town knows about the money jake kept `hid` in the house.
+- I `hid` outside in the hall till the maid came to turn down your bed.
+- Your sexual tastes were something that you `hid` from miss lawson?
+- How come you got that stickknife `hid` in your bed-blankets, preacher?
+- You deliberately `hid` this from me we're still on the same team, right?
+- They buried their treasures, drew maps, and `hid` the maps in puzzle boxes.
+- What about the time we `hid` the missing heiress in the sauerkraut factory?
+- Then they founded yoyodyne propulsion systems and `hid` there for... what?
+- And you need to get used to half rations so lisa `hid` the diary - that's not our cat.
+- [keep it `hid` till we get her] down in the basement-- there is a secret vault [there].
+                 

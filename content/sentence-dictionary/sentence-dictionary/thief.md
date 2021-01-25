@@ -1,0 +1,93 @@
+---
+title: "thief in a sentence | thief example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thief"
+---
+- I'm a hood, a `thief`.
+- The tool of a `thief`.
+- `Thief` in the palace.
+- `Thief` in the palace?
+- Okay, you're a `thief`.
+- '`thief` in the night?'
+- You're a great `thief`.
+- Anyway, he was a `thief`.
+- A `thief` for the masses.
+- Do i look like a `thief`?
+- He's a `thief` of hearts!
+- You're already a `thief`.
+- Second he's not a `thief`.
+- Like a `thief` in the dark.
+- You - calling me a `thief`?
+- You mean, you're a `thief`?
+- You're the package `thief`?
+- Hawk, you're a great `thief`.
+- I hear you're a good `thief`.
+- I'll never live as a `thief`!
+- What do i need a `thief` for?
+- You're a liar, and a `thief`.
+- But you can't marry a `thief`?
+- Eh, bien -- i am not a `thief`.
+- I never played a jewel `thief`.
+- He's a `thief`--he's a criminal.
+- You think that you're a `thief`?
+- And the man is clearly a `thief`.
+- He's nothing but a lying `thief`.
+- You callin' me a `thief`, my man?
+- He said you're cute for a `thief`.
+- The guy's a `thief`, he took my...
+- ...you're not a very good `thief`.
+- You were one incredible `thief`...
+- Cultural artifact `thief`, nothing.
+- `Thief`, i think, is more accurate.
+- I am a professional fucking `thief`.
+- Of course not, that swedish `thief`!
+- So i wasn't cut out to be a `thief`.
+- Yes, master-`thief`, i can see that.
+- Steal an apple, and you're a `thief`.
+- That jewel `thief` movie, for example.
+- I'm also a criminal and a hotel `thief`.
+- The one where you're that jewel `thief`.
+- He sure loved having a `thief` for a kid.
+- How could a street `thief` have all that?
+- I'm an exceptional `thief`, mrs. mcclane.
+- Take your hand out of my pocket, `thief`!
+- A man i knew to be a `thief` and a forger?
+- It came to me like a `thief` in the night!
+- I hear he followed the `thief` to the yus'.
+- You can be a `thief` and have a conscience.
+- I myself would take it and run like a `thief`.
+- It seems that he was a `thief` and an imposter.
+- The liar and the `thief` the deal was no weapons.
+- You're acting like a first- year fuckin' `thief`.
+- I was a `thief`, so they think i'd be good at that.
+- You can be a `thief` and have a conscience: not me.
+- It is keeping a very capable `thief` off the street..
+- Maybe the `thief` thought you had something valuable.
+- Surely a master-`thief` like you can tell the difference.
+- A `thief` this good could handle the sensors in the rooms.
+- I am not a `thief`... and all i'm asking for is the truth.
+- I'm lonesome so i'm a `thief`, a fornicator, a whore-monger.
+- Humm -- humm, but you must go to jail, baron, you're a `thief`.
+- I assume i'm meant to be some sort of `thief`-to catch-a-`thief`..
+- He told me he was only pretending to be a `thief` to see the city.
+- Petty `thief`, six months imprisonment kingston penitentiary, 1937.
+- You mis'able little sneak `thief`... you got light fingers, everett.
+- ...i'm a car `thief`, a drunk driver, and i murdered a man for revenge.
+- You made it sound as if i was recruiting her for her skills as a `thief`.
+- You're saying the `thief` wants us to think it's mac but it's really not.
+- But now you must go yesterday i was a `thief` -- but now, -- so -- i know.
+- We picked up a professional car `thief` in the shape of olivia newton-john!
+- You wouldn't be the first successful `thief` to become a patron of the arts.
+- If the `thief` returns it, i'm sure sir te will pursue the matter no further.
+- Pay some `thief`'s salary while he thinks up new ways to shake the money tree?
+- She used to say it was a `thief` -- stealing away her life, an hour at a time...
+- After all your posturing, all your speeches...you're nothing but a common `thief`.
+- ...compton with a fifty-six-year- old petty `thief` -- woman named simone hawkins.
+- Fifteen years ago, but he was a good `thief` anyway, the cops wouldn't let him go legit.
+- This `thief`... it very unusual... maybe the murderer and the `thief` are one and the same.
+- All of your children are delinquent, mrs. little, and one, at least, malcolm is a `thief`.
+- A little trick i picked up at the car `thief` retirement home ... what the hell's that -- ?
+- Like, if shauna's best friend tiffany comes on to me, what do you know of his `thief` wife?
+- If that is your so-called "flask," how would i have it unless i was, in fact, a `thief`?
+                 

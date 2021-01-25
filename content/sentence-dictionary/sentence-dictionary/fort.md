@@ -1,0 +1,54 @@
+---
+title: "fort in a sentence | fort example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fort"
+---
+- I love `fort` holland.
+- ...`fort` william henry.
+- I never played `fort` sumter.
+- `Fort` hancock, texas, please.
+- Try the `fort` laramie treaty.
+- As you did at `fort` wilderness?
+- The `fort` needs a girl like you.
+- What's the `fort` laramie treaty?
+- Green berets, out of `fort` bragg.
+- Hold the `fort` down, will ya, fellas!
+- I will march the 33rd to `fort` edward.
+- Do we really need to repair this `fort`?
+- Some sort of to-do up at the `fort`, eh?
+- You've got a brother in `fort` mcmurray.
+- `Fort` and lake george are downhill of it.
+- Some shit about the `fort` laramie treaty.
+- `Fort` leavenworth - ten years later - day.
+- My master requires the `fort` be destroyed.
+- At `fort` william henry under colonel munro.
+- Come on, pete, you ran the px at `fort` dix.
+- If they do not arrive, the `fort` will fall.
+- St. michael's church, `fort` walton, kansas.
+- Gillette, bring a squad down from the `fort`!
+- I ought to have you whipped from this `fort`!
+- It was `fort` sumter they fired on- you rest.
+- Then you're assigned to `fort` william henry?
+- Yeah, i'm not leavin, this `fort` for nothin'.
+- Anyone caught leavin' the `fort` could be shot.
+- He marched the 33rd to `fort` edward two days ago.
+- You realize what would happen if this `fort` fell?
+- Father, tell me what happened at `fort` wilderness?
+- How do you really know there's gold in `fort` knox?
+- I'm taking half a cohort and restocking that `fort`.
+- Tell him we are leaving men here -- to build a `fort`.
+- Times gone, `fort` holland was a `fort`...now, no longer.
+- Our biological warfare lab is in `fort` detrick, maryland.
+- That's even more romantic than what you said at `fort` dix.
+- You don't need to go... ...to `fort` mcgruder in his truck.
+- If we're going to virginia, why don't we drop by `fort` knox?
+- I was to rendezvous with them in albany and escort them to the `fort`.
+- That mythical community you're supposed to come from -- `fort` wayne'?
+- Not with enough certainty to outweigh british interests in this `fort`.
+- Remember that damned overland you two thought up in '62 to hit `fort` louis?
+- I know a great deal more about what goes on at `fort` holland than you'd think.
+- Okay -- perfect timing as ever -- hold the `fort` for a second will you, martin?
+- Did you know that arnold left the entire defenses of this `fort` in complete disrepair?
+- A french & indian army out of `fort` carillon's heading south to war against the english.
+                 

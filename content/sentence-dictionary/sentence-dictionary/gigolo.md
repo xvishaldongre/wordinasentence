@@ -1,0 +1,9 @@
+---
+title: "gigolo in a sentence | gigolo example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gigolo"
+---
+- He's probably a `gigolo`.
+- You talk as if he were a `gigolo`�or something.
+                 

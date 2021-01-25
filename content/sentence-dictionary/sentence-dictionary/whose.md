@@ -1,0 +1,107 @@
+---
+title: "whose in a sentence | whose example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "whose"
+---
+- `Whose` money is this?
+- `Whose` room was this?
+- `Whose` burying ground?
+- `Whose` castle is this?
+- `Whose` fault was that?
+- `Whose` statue is that?
+- `Whose` voice was that?
+- `Whose` woman was this?
+- With `whose` testimony?
+- Or upon `whose` watch...
+- `Whose` rooms are those?
+- `Whose` side are you on?
+- How- `whose` idea was it?
+- Let's see `whose` around.
+- So `whose` route is this?
+- `Whose` orders are these?
+- `Whose` show was this on?
+- `Whose` fault is that?
+- `Whose` orders were those?
+- `Whose` blood is that, jay?
+- `Whose` number do you need?
+- `Whose` rules do i live by?
+- `Whose` op sec's got a leak?
+- `Whose` place is this again?
+- `Whose` ratings were higher?
+- `Whose` tuba is that anyway?
+- A man `whose` life was empty!
+- For `whose` good, supposedly?
+- I didn't know `whose` it was.
+- You know `whose` fault it is.
+- Or in `whose` <u>employ</u>...
+- Or upon `whose` watch... fine.
+- Well, `whose` side are you on?
+- `Whose` eyes are they testing?
+- You know `whose` fault it was?
+- `Whose` side are you on anyway?
+- `Whose` side are you on really?
+- On `whose` authority, corporal ?
+- Yeah, and `whose` fault is that?
+- Yeah, but `whose` point of view?
+- Okay, guess `whose` boat this is.
+- `Whose` side are you on, cauchon?
+- Can you tell me `whose`... no, no.
+- I just didn't know `whose` it was.
+- I'm the one `whose` ass he kicked.
+- One `whose` worth lies far within.
+- We don't know `whose` money it is!
+- `Whose` apartment is this, anyway?
+- Does it say `whose` taxes they are?
+- I saw a man `whose` life was empty.
+- `Whose` blood you got all over you?
+- `Whose` truth are you talking about?
+- `Whose` wearing the coconut bra now?
+- Clarke... `whose` sweatshirt is that?
+- `Whose` "catcher in the rye" is this?
+- `Whose` childhood friends were these?
+- `Whose` gonna notify his next of kin?
+- First they didn't know `whose` it was.
+- Jesus christ, `whose` side are you on?
+- Jesus, rolfe, `whose` side are you on?
+- Then `whose` name is it registered in?
+- They'll never know `whose` leak it is.
+- This is an idea `whose` time has come.
+- `Whose` choice was it to be here today?
+- `Whose` been talking about these things?
+- `Whose` son this is, `whose` wife that is.
+- From somebody `whose` body you stole aah!
+- Plus some guys `whose` food i don't like.
+- `Whose` title doesn't appear on the bill?
+- I said, <u>`whose` number do you need</u>?
+- You don't even know `whose` knife that is.
+- `Whose` fault is it that no one comes here?
+- `Whose` queen believed she knew my secrets.
+- If it's not your fault, `whose` fault is it?
+- I don't think it's me `whose` head is fucked.
+- Remember `whose` office this was back in '63?
+- Someone `whose` discretion can be relied upon.
+- The guy `whose` hair i do has his own tv show.
+- `Whose` parents' brains you've turned to mush.
+- Any dead `whose` brains are intact will revive.
+- `Whose` people are you defending here, lincoln?
+- Does that look like a man `whose` life is empty?
+- I know `whose` blood you need, to end the curse.
+- Something to keep your hands busy `whose` is it?
+- Geologists `whose` hands aren't all chewed up...?
+- I guess you know by this time `whose` gun it was?
+- Why goose, `whose` butt did you kiss to get here?
+- I give a shit `whose` fault it was, you're payin'!
+- `Whose` face would you have if you had your choice?
+- But defying those `whose` approval we seek the most.
+- _ it's hard to keep track of `whose` side you're on.
+- Maybe... but you're the one `whose` ass is dragging.
+- Not the actor -- `whose` name is george, by the way.
+- Shift the guilt to men `whose` pensions are secured.
+- `Whose` lives you have taken to extend your own, no.
+- Oh, ah... you know that guy in `whose` camper they...
+- I want the next thing smoking and i don't care `whose`.
+- We need to work together... you know `whose` hero i am?
+- But there's always somebody `whose` interest's at stake.
+- `Whose` neck shall i stand on, to make me feel superior?
+                 

@@ -1,0 +1,107 @@
+---
+title: "burned in a sentence | burned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "burned"
+---
+- He's horribly `burned`.
+- Magicians get `burned`.
+- People get `burned` up.
+- You `burned` the score?
+- Ever `burned` magnesium?
+- They `burned` her alive.
+- And i `burned` it to ash.
+- Don't get `burned`, daphne.
+- You just `burned` the desk.
+- He `burned` her at the stake.
+- I `burned` 300 of your people.
+- I `burned` the christmas tree.
+- Railroad `burned` him out too.
+- They `burned` up in the crash.
+- Well, try not to get `burned`.
+- I hope to god i'm not `burned`.
+- I think i `burned` my gun hand!
+- `Burned` a village to the ground.
+- Then you'll get `burned` and die.
+- There's silk in the sky `burned`.
+- You know i `burned` all his shit.
+- [door closes] `burned` who, honey?
+- They `burned` off during re-entry.
+- You've `burned` your bridges, man.
+- It's just someone `burned` me once.
+- Let's just say he `burned` me once.
+- I didn't get `burned`, two cops did.
+- Thrown clear when the boat `burned`.
+- You `burned` an american flag today.
+- Because you `burned` the farm, don't.
+- But the place `burned` to the ground.
+- I saved you from being `burned` alive.
+- And her wind chime store `burned` down.
+- Did you order our houses `burned` down?
+- I think we've `burned` off enough fuel.
+- What the fuck you mean you `burned` it?
+- You were `burned` by some organic acid.
+- Then you `burned` the farm - not me.
+- I accidentally `burned` down this house.
+- No, i don't, i uh... it got `burned` up.
+- He got pretty `burned` at chappaquiddick.
+- They were all `burned` up from the bombs.
+- This place is about to get `burned` down.
+- You desecrated it, it had to be `burned`.
+- They `burned` her breasts with cigarettes.
+- A fire `burned` through most of our oxygen.
+- Four dead santas and some `burned`-up cash.
+- They've `burned` through the outer shields.
+- Whyn't you get it dry cleaned and `burned`.
+- They `burned` the table in '78 for firewood.
+- We overheated and `burned` out a whole cell.
+- I thought you said krueger `burned` to death.
+- Neil, you could have `burned` the house down!
+- Heard they `burned` up in that fire yesterday.
+- I'm still alive, only i'm very badly `burned`.
+- You've `burned` our food, the shade -- the rum!
+- You `burned` my brother alive in a ring of fire.
+- Were you `burned` by acid, or something like that?
+- Bulbs `burned` out, nobody bothered to replace 'em.
+- He will be `burned` pursuant to statutes of health.
+- One of those `burned` me on "the return of chandu."
+- Chalamar, funkadelic, i `burned` his turntables too.
+- I just want to help catch the guy that `burned` tim.
+- You `burned` yourself to death by lighting the fart!
+- But don't come hollerin' to me when you get `burned`.
+- Spacewalker `burned` 3 months of oxygen from the ark.
+- Then, then, after i `burned` up your brother, jazz...
+- Everything in the car got the shit `burned` out of it.
+- They don't get `burned` by the sun bouncing off the snow.
+- Then you better get in the water, before you get `burned`.
+- Why are you wasting time on this `burned`-out street junk?
+- Something about a matching serial number that got `burned`.
+- The mall `burned` down and, like, killed a bunch of people.
+- Not a bad trick for a murderer -- you said you `burned` yours?
+- So the way you see it, two crack heads `burned` themselves up?
+- I tore it up and `burned` it -- it stank so strong of hellfire.
+- ...all i remember is how she loved the bottom of `burned` bread.
+- I flooded my school... and i `burned` down that pervert's house.
+- They've `burned` him, dipped him in nuclear waste -- eight times.
+- _ ♪ hear, hear ♪ for a valley that `burned` to the ground, anyway.
+- But the fires that killed those guys never really `burned` up much.
+- If this thing is `burned` out, friggin' horace will ground my butt.
+- The rodger young just `burned` up... what's your problem now, lieutenant ?
+- You -- you `burned` up the island, for a one-time chance at being spotted?
+- But if he ever chooses sides against the clan again, he `burned` the bible.
+- If you don't fasten these correctly they could open and you'd get `burned`.
+- My guess is these images were `burned` into your brain when you were young.
+- Because that's where he `burned` them up, the child laborers from his mills!
+- You're the one who `burned` it could be any of the commanders or all of them.
+- What was the name of that kid at anzio, the one who got his face `burned` off?
+- Every time i ever got `burned` buying weed, i always knew the guy wasn't right.
+- Now.... according to the file, krueger was `burned` to death in a fire in 1968.
+- The son who had betrayed and `burned` him so thoroughly seemed a obvious choice.
+- The only thing worse than my people being `burned` alive the lighting looks nice.
+- Like it never happened... another couple of good men get `burned` up for their city?
+- That damned, rusty, radiator, bout `burned` the skin off my legs each time i passed.
+- But there've got to be a few sparks of sweet humanity left in this `burned`-out burg.
+- Camp i was in once, they `burned` it out--the deputies an' some of them poolroom fellas.
+- I got this guy who should know tells me buy hewlitt packard but i been `burned` on tips.
+- With connections all over the world easy-bake ovens `burned` down your house, no, we don't.
+                 

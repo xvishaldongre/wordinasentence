@@ -1,0 +1,55 @@
+---
+title: "scan in a sentence | scan example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "scan"
+---
+- Initiate ocular `scan` mode.
+- Sandy, `scan` the whole sky.
+- Did you get your `scan` done?
+- Uhura, `scan` for the whales.
+- `Scan` the duplicate's memories.
+- `Scan` the duplicate's memories.
+- Starck, any luck with the bio-`scan`?
+- Something's wrong with the bio-`scan`.
+- Do <u>not</u> return `scan`, mr. spock!
+- Intermitant failure in `scan` mode "r".
+- She won't show up on any type of `scan`.
+- Mr. data, `scan` the planet for lifeforms.
+- A ship, how about a passive radiation `scan`?
+- We can `scan` the atmosphere from the bridge.
+- Bones... can you give me a quadrant bi-`scan`?
+- Starck, i want you to repeat the bio-`scan`...
+- Their retinas will `scan` to unlock everything.
+- What do you want with our `scan`-proof lockers?
+- Elaine, ask rok for a field interference `scan`.
+- Entering my `scan` now... newberry, get a photo.
+- ...i ran the bio-`scan` with the dna/rna filter.
+- Your `scan` doesn't show the internal structure.
+- Please `scan` your id to confirm luggage delivery.
+- Take another `scan` of my little joy- boy outside.
+- Tell them to `scan` the observatory for trilithium.
+- We'll have to get closer for a more detailed `scan`.
+- There's not enough radiation to throw off the `scan`.
+- Christ yes, i went in for a cancer `scan` first thing.
+- Short range `scan`, mr. chekov... on screen, mr. sulu.
+- Did you go to the doctor, did you get a `scan` done?
+- I can reconfigure the `scan` for c-12, amylase proteins.
+- `Scan` for shield impacts and stand by photon torpedoes.
+- `Scan` -- she has some hemorrhaging... what about grace?
+- My deal with job was subject to a successful boot `scan`.
+- There's only one thing it could be... short range `scan`.
+- You'll do shit work, `scan`, crack copyrights, whatever i want.
+- Side-`scan` is showing a big return, but i don't see anything yet.
+- If they were in suspended animation, wouldn't that effect the `scan`?
+- Mr. chekov, i need pre-approach `scan`... take the science station, please.
+- To assist you i have retro-fitted your helmets with new opti-`scan` devices.
+- Mr. scott, all power to the weapons systems -- `scan` for vessels in pursuit!
+- They had me howling on the `scan` grid, but they never asked me any questions.
+- They `scan` <u>every</u> phonecall for target words like "bomb" or "president".
+- Lord vader, our ships have completed their `scan` of the area and found nothing.
+- Full sensor `scan`, mr. spock; they can't expect us <u>not</u> to look them over now!
+- People, if you don't let the spyder `scan` you, we'll have to come in and arrest you.
+- According to the geo-`scan`, this may be the safest area for the next few kilometers...
+- ... and i want you to start cleaning the equipment out of the `scan`- shielded compartments.
+                 

@@ -1,0 +1,107 @@
+---
+title: "ways in a sentence | ways example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ways"
+---
+- But, i have my `ways`.
+- So many `ways` to die.
+- Try some other `ways`.
+- It's a long `ways` yet.
+- There are `ways`, dude.
+- Three `ways`, i figured.
+- Can't have it both `ways`.
+- Fifty million four `ways`.
+- Hi-iii... men have `ways`.
+- God's `ways` are not yours.
+- There's `ways` around that.
+- We went our separate `ways`.
+- May i walk with you a `ways`?
+- Peace is made is such `ways`.
+- There are `ways` around that.
+- We go our separate `ways`.
+- There are other `ways` to see.
+- If you don't... after a `ways`.
+- It really does cut both `ways`.
+- Slaves are made in such `ways`!
+- I got `ways`, lenny, i got `ways`.
+- I got `ways` of making her talk.
+- In some small `ways`, lightning.
+- This is wrong in so many `ways`.
+- What's that divided four `ways`?
+- How many `ways` can a man say no.
+- In some `ways`, she's awful dumb.
+- Oh, i'm more modern in my `ways`.
+- They pay me back in other `ways`.
+- You were my equal in many `ways`.
+- But you can't have it both `ways`.
+- Different `ways` to do it, though.
+- You'll find the `ways`, miss mary.
+- One of the `ways` is not giving up.
+- There's lots of `ways` we can help.
+- There's a number of `ways` i can go.
+- They connect in unimaginable `ways`.
+- Well, there's several `ways` to go .
+- Who are you to challenge our `ways`?
+- You saved my life in alot of `ways`.
+- I'd end up a widow in two `ways`.
+- That dyin's gonna be done two `ways`.
+- These things can go different `ways`.
+- You think our `ways` are harsh, what?
+- But my `ways` were too slow for him...
+- They're set in their `ways`, you know?
+- Wonder why he doesn't fly both `ways`.
+- He has `ways` of communicating, robert.
+- It's a `ways` from here, but reachable.
+- `Ways` to get your girlfriend into bed?
+- Well, it can really only go two `ways`.
+- Think... and know the `ways` of man.
+- I can think of worse `ways` to go-- yes.
+- More `ways` to gamble on life and death.
+- Take it down the road a `ways` and back.
+- We have `ways` of digging out knowledge.
+- Do the sith know the `ways` of the force?
+- He would've found easier `ways` to do it.
+- I'm just running out of `ways` to use it.
+- The good lord works in mysterious `ways`.
+- You stay certain, certain in your `ways`.
+- Hell, japan is a long `ways` from alabama.
+- Then i guess this is where we part `ways`.
+- There's a million `ways` to die out there.
+- Only two `ways` i know to leave here early.
+- Are you trained in the `ways` of the desert?
+- Some people grow up and change their `ways`.
+- There's gotta be other `ways` to get it out.
+- And now she's looking for `ways` to leave us.
+- He shall know your `ways` as if born to them.
+- I know at least a dozen `ways` to get horses.
+- In many `ways` i am so much older than he is.
+- In many `ways` you're a lot like your father.
+- The animal might behave in unexpected `ways`.
+- Course they got more sophisticated `ways` now.
+- He helped countless people in similar `ways`.'
+- In many `ways`, bob's big boy never left, sir.
+- Now, there's two `ways` we can play this hand.
+- We got two `ways` here, my way or the highway.
+- You're both stupid in your own special `ways`.
+- You've got to find healthier `ways` to unwind.
+- All the different `ways` that i could kill you.
+- Because there's about 50 different `ways` yeah.
+- No, in a lot of `ways` things are better now...
+- Perhaps i can find new `ways` to motivate them.
+- There are only two `ways` out of this building.
+- We'll get to london and go our separate `ways`.
+- We are old comrades--at a parting of the `ways`.
+- We're wedded in the deepest and strongest `ways`.
+- What i'm proposing is... we split it four `ways`.
+- What other `ways` are there to get illegal films?
+- I mean she inspires me in `ways` sherry never has.
+- Not enough to split five `ways` kind of a nothing?
+- Only she made me see the error of my `ways` an'...
+- Pacifica, california... that's a long `ways` away.
+- The good lord works his revenge in strange `ways`.
+- This boy from west side, plays tackle both `ways`.
+- We're lootin' this burg six `ways` through sunday.
+- You got your `ways` to affect change, i have mine.
+- Here's mike's partner, in more `ways` than one.
+                 

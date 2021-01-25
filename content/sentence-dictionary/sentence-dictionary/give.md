@@ -1,0 +1,107 @@
+---
+title: "give in a sentence | give example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "give"
+---
+- Did you `give` him it?
+- Don't `give` it to me.
+- Drop and `give` me 50!
+- `Give` 'em some stiff.
+- `Give` her some water.
+- `Give` her your dress.
+- `Give` her your phone.
+- `Give` him back to me!
+- `Give` him the trophy.
+- `Give` it a rest yllo.
+- `Give` it back to him.
+- `Give` it to her, dad.
+- `Give` it to me, sami.
+- `Give` it up, d'amour.
+- `Give` it up quaritch.
+- `Give` madi the flame.
+- `Give` me a cigarette.
+- `Give` me a duff, moe.
+- `Give` me another one.
+- `Give` me back my hat!
+- `Give` me back my son!
+- `Give` me some credit.
+- `Give` me some gossip.
+- `Give` me the address.
+- `Give` me the big'uns.
+- `Give` me the science.
+- `Give` me the whiskey.
+- `Give` me those tapes.
+- `Give` me two-hundred.
+- `Give` me your jacket!
+- `Give` me your phaser.
+- `Give` me your toupee.
+- `Give` or take a year.
+- `Give` the guy a shot.
+- "got to `give` it up!"
+- Here, `give` it to me.
+- I can `give` you five.
+- I don't `give` a damn.
+- I don't `give` a fuck!
+- I don't `give` a fuck.
+- I don't `give` a shit!
+- I don't `give` a shit.
+- I `give` you my heart.
+- I had to `give` it up.
+- I'll `give` him money.
+- I'll `give` it a shot.
+- I'll `give` it to you.
+- I'll `give` them that.
+- I'll `give` you a job.
+- I'll `give` you a tip.
+- I'll `give` you girls.
+- I said `give` me time.
+- Just `give` it to me!!
+- Just `give` me a hand.
+- Just `give` me a kiss.
+- Just `give` me a pass.
+- Just `give` me my due.
+- Kit `give` me nothin'.
+- Now `give` me a towel.
+- Oh, `give` me a break!
+- Oh, `give` me a break.
+- Sure, sure, `give` go.
+- We must not `give` up.
+- What i can `give` you.
+- Why not `give` it all?
+- Yeah, i `give` a shit.
+- You `give` 'em elvis!!
+- You `give` me a drink.
+- You `give` them money.
+- You'll `give` this up?
+- I'll `give` to you.
+- Damn, man, i `give` up.
+- Did i `give` it to you?
+- Did you `give` me this?
+- Did you `give`... yeah.
+- Don't `give` up on her.
+- `Give` her your helmet.
+- `Give` it a little gas.
+- `Give` it a try, homie.
+- `Give` magua new heart.
+- `Give` me a suit, okay?
+- `Give` me back control.
+- `Give` me back my comb.
+- `Give` me five minutes.
+- `Give` me my book back!
+- `Give` me my sin again.
+- `Give` me next quarter.
+- `Give` me six at least.
+- `Give` me some bourbon.
+- `Give` me some comfort?
+- `Give` me the address!!
+- `Give` me the bad news.
+- `Give` me the one lead.
+- `Give` me two- hundred.
+- `Give` that back to me.
+- `Give` them to refugio.
+- `Give` this to mrs. wu.
+- `Give` you nose bleeds?
+- Greer won't `give` out.
+- Hey, `give` me a break!
+                 

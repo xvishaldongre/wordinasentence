@@ -1,0 +1,107 @@
+---
+title: "sleeping in a sentence | sleeping example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sleeping"
+---
+- People are `sleeping`.
+- She's, uh, `sleeping`.
+- Is it `sleeping`, dude?
+- No, she was `sleeping`.
+- `Sleeping` in the back.
+- How's `sleeping` beauty?
+- Is she `sleeping` or...?
+- I took `sleeping` pills.
+- The kids are `sleeping`.
+- Um, he's `sleeping` now.
+- Where�s nick `sleeping`?
+- You `sleeping` with her?
+- I'm `sleeping` with rita.
+- Isn't he `sleeping` here?
+- They're `sleeping`, miss.
+- Having trouble `sleeping`?
+- I haven't been `sleeping`.
+- I have trouble `sleeping`.
+- I'm `sleeping` in my room.
+- In my bedroom, `sleeping`.
+- This is my `sleeping` bag.
+- Well, he's `sleeping` now.
+- You know, he's `sleeping`.
+- Come on, `sleeping` beauty.
+- Are you `sleeping` with her?
+- Well, maybe he's `sleeping`.
+- You have trouble `sleeping`?
+- Lunch time `sleeping` beauty.
+- He's `sleeping` in the church.
+- I'm not `sleeping` well... ...
+- I'm sure he wasn't `sleeping`.
+- Quit `sleeping` in the garden!
+- You're `sleeping` in a tuxedo.
+- He's probably still `sleeping`.
+- Is our `sleeping` army uncaged?
+- This boy is `sleeping` outside.
+- You should be `sleeping`, baby.
+- Ever try forty `sleeping` pills?
+- But i'm sure he's not `sleeping`.
+- I'm not used to `sleeping` alone.
+- You were `sleeping` like teacher.
+- And she wakes her `sleeping` army?
+- I been `sleeping` for three years!
+- Not planning on `sleeping` at all.
+- She was `sleeping` with everybody.
+- The `sleeping` together is better.
+- Why did you take `sleeping` pills?
+- It emits a cloud of `sleeping` gas.
+- Leave me alone when i'm `sleeping`.
+- The `sleeping` prisoners are green.
+- This is where you'll be `sleeping`.
+- We're `sleeping` in a bed together.
+- While you children were `sleeping`.
+- Nobody's gonna catch him `sleeping`.
+- Or `sleeping`, from the looks of it?
+- She's `sleeping` like a baby stella.
+- Because i took some `sleeping` pills.
+- No `sleeping` pills, no razor blades.
+- Then you're `sleeping` with dreiberg?
+- You planning on `sleeping` out there?
+- But my `sleeping` is really fucked up.
+- Jesus, you're `sleeping` with the guy.
+- Yeah, i'm gonna start `sleeping` here.
+- Don't want to waste no time `sleeping`.
+- Had trouble `sleeping` last night, sir.
+- I imagine he must be inside `sleeping`.
+- We've been <u>`sleeping`</u> down here.
+- You're `sleeping` with her, aren't you?
+- You `sleeping` all right in that house?
+- I'd be safer `sleeping` with that snake.
+- Night jobs -- while you were `sleeping`.
+- I'm not `sleeping`, just closing my eyes.
+- She could be under sedatives, `sleeping`.
+- I think he was `sleeping` with wendy, too.
+- It's not like i'm `sleeping` with the guy!
+- You wrote that you had trouble `sleeping`.
+- He looks as if he's `sleeping`, doesn't he?
+- I've got a few `sleeping` bags you can use.
+- I'm going to take care of `sleeping` beauty.
+- It's will, he's... aw, `sleeping` in church.
+- Pushing the guy `sleeping` next to you away.
+- It's been customized for `sleeping` capacity.
+- What if -- because he takes `sleeping` pills.
+- Come on `sleeping` beauty, time to go to work.
+- [enola] we should think about `sleeping` soon.
+- She's `sleeping` now, i mean -- can i come in?
+- You're not `sleeping` with this stuff, are you?
+- I haven't been doing a lot of `sleeping` lately.
+- We've worked hard, `sleeping` for so many years.
+- Whilst you were `sleeping`, i fetched your ring.
+- You're thinking of `sleeping` with mark tonight?
+- You took all those `sleeping` pills -- remember?
+- He was `sleeping` on the front porch when i left.
+- You know the expression, let `sleeping` dogs lie?
+- ♪ an invisible man `sleeping` in your bed ♪ hands!
+- Don't think i haven't noticed your not `sleeping`.
+- He thinks it's very cold to be `sleeping` outside.
+- I don't know what the `sleeping` arrangements are.
+- Like the navy crewman -- harry was `sleeping` then.
+- How would we handle the `sleeping` arrangements?
+                 

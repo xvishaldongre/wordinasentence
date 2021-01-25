@@ -1,0 +1,74 @@
+---
+title: "intelligence in a sentence | intelligence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "intelligence"
+---
+- It has an `intelligence`.
+- Do they show `intelligence`?
+- `Intelligence` or stupidity?
+- ...metro `intelligence` cop.
+- An artificial `intelligence`.
+- Of artificial `intelligence`."
+- How good's your `intelligence`?
+- Our `intelligence` was correct.
+- A non-terrestrial `intelligence`.
+- Yeah, his lack of `intelligence`.
+- The office of naval `intelligence`.
+- You mean artificial `intelligence`?
+- Because it insults my `intelligence`.
+- Central `intelligence` agency -- c.i.a.
+- `Intelligence`... ambition... desire...
+- It's just you don't have `intelligence`.
+- Now, you're insulting my `intelligence`.
+- As you can see the `intelligence` is soft.
+- Elegant proof of `intelligence`, isn't it ?
+- He was probably in military `intelligence`.
+- Quasi-fascistic `intelligence` organization.
+- That's military `intelligence`... oh, carl !
+- At a tactic that insults their `intelligence`.
+- In `intelligence`, they're assumed to be fake.
+- I was <u>appealing</u> to their `intelligence`.
+- Then you get your `intelligence` from snitches?
+- Like goblins with `intelligence` scores of zero.
+- That the computer has artificial `intelligence`.
+- You're a career `intelligence` officer, shermin.
+- What do the boys around `intelligence` think?
+- The message doesn't show a lack of `intelligence`.
+- That not only did an artificial `intelligence` hey.
+- Navy `intelligence` got something to do with it too.
+- Only `intelligence` people can come and go like that.
+- Our own `intelligence` capability -- to fix the leaks?
+- This is basil exposition, from british `intelligence`.
+- Your diligence and `intelligence` and perseverance.
+- Artificial `intelligence` hasn't taken over your brain?
+- They show extreme `intelligence`, even problem solving.
+- I'd say he was probably getting `intelligence` training.
+- You were the head of the national `intelligence` agency!
+- More money in `intelligence` on their side of the border.
+- This is basil exposition, chief of british `intelligence`.
+- An unknown form of energy of great `intelligence` and power.
+- ...central... `intelligence`... agency... where in government?
+- `Intelligence` reports the soviets are having the same problem.
+- According to military `intelligence`, it'll be random and light.
+- You handle more than eighty percent of the `intelligence` workload.
+- Hello, austin, this is basil exposition from british `intelligence`.
+- Maybe it is alive in a way...some sort of electronic `intelligence`.
+- The whole kit and caboodle of 'em are british `intelligence` agents.
+- We have free will and `intelligence` -- which god allegedly gave us....
+- Their `intelligence` has in no way been proven comparable to ours -- yeah.
+- The whole u.s. `intelligence` community is mixed in with the covert activities.
+- I bring order to chaos... you are the guiding `intelligence` behind the borg...?
+- That there isn't a creative `intelligence` at work -- nothing miraculous about it.
+- Her basic `intelligence` is probably above average, maybe quite a bit above average.
+- I sit on top of the greatest `intelligence` gathering organization in human history.
+- There was a young student, exceptionally gifted, possessing of great `intelligence`.
+- Mr. shaw, have you ever been a contract agent with the central `intelligence` agency?
+- I hardly think either species would have the `intelligence` to launch a massed attack.
+- But don't keep saying you're innocent; it insults my `intelligence` and makes me angry.
+- We have recent `intelligence` that a soviet nuclear submarine has docked at cienfuegos.
+- I have a theory that their ability to vocalize is the key to their social `intelligence`.
+- Knowing your work with machine `intelligence`, was that... you guys look scared, actually.
+- `Intelligence` may not be the right word... that it acquires `intelligence` from its victims?
+- Starfleet `intelligence` was only able to provide a partial account of his military record.
+                 

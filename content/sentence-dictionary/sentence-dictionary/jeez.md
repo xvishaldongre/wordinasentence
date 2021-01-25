@@ -1,0 +1,54 @@
+---
+title: "jeez in a sentence | jeez example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jeez"
+---
+- `Jeez`, poor ronnie...
+- `Jeez`, you scared me.
+- `Jeez`, you're pathetic.
+- Hey, `jeez` are you okay?
+- `Jeez`, look at that guy.
+- `Jeez`, that old fat man.
+- `Jeez`, i didn't catch it.
+- `Jeez`, what do you think?
+- `Jeez`, what's that smell?
+- `Jeez`, mom, stop trippin'.
+- `Jeez`, give me some credit.
+- `Jeez`... that sounds awful.
+- Ah, `jeez`, billy... careful!
+- `Jeez`, what's the difference?
+- `Jeez`, look where this is set!
+- `Jeez`, and i never heard of him.
+- `Jeez`, louise, tapped the phone?
+- `Jeez`, i've never owned anything.
+- `Jeez`, you're like a broken record.
+- `Jeez`, louise, that wasn't very nice.
+- Madi... now i'd like to invite `jeez`.
+- Oh, `jeez`, i wish you could see this.
+- `Jeez`, right, then why don't i do drugs?
+- `Jeez` it's getting awful crowded in there.
+- Oh, `jeez`... - and into your parents' car.
+- `Jeez`, she used to say i was the lucky one.
+- `Jeez`, we musta killed a million already...!
+- `Jeez`, what is your problem all of a sudden?
+- `Jeez`, ray, fourth and forty, throw the bomb.
+- `Jeez` -- this is where you used to live, huh?
+- `Jeez`, it all looks like bad late-night cable.
+- `Jeez`, it's been since, what, kenny's wedding.
+- `Jeez`, mrs. raymond, that was eleven years ago.
+- Ah `jeez`... christ... no, doofus... blow it out!
+- `Jeez`... it's too early in the morning for this.
+- Well, eileen...`jeez`, that's hard for me to say.
+- All right, first, let's just clarify that... `jeez`.
+- Well, `jeez`, you're reading his biography, aren't you?
+- That was great - `jeez`, thanks again for cooking all this.
+- I haven't seen you since the wedding, `jeez`, you look great.
+- `Jeez`, that thing... can't you... aren't you forgetting something?
+- `Jeez`, i don't know where you're ever going to find a guy like that.
+- I'll tell you the truth, brandt, i don't remember most of it.--`jeez`!
+- `Jeez`, you know, i can remember hustling an old man for a dime a game.
+- We are having a sale on some items over here -- sixty five... `jeez` louise!
+- `Jeez`, i hope you haven't been telling people what's going to happen to them.
+- `Jeez`, for a guy with a ton of clocks, you sure don't pay much attention to time.
+                 

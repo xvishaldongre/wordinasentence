@@ -1,0 +1,65 @@
+---
+title: "ships in a sentence | ships example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ships"
+---
+- You never sent the `ships`.
+- Two `ships` decloaking, sir!
+- Boeman, the `ships` not here.
+- My squadron `ships` out tomorrow.
+- `Ships` that pass in the night...
+- The surface `ships` will be back.
+- I'll send my four fastest `ships`.
+- When are the recovery `ships` due?
+- Look, the `ships` are clearing out.
+- There are a lot of command `ships`.
+- Did you know he lost all his `ships`?
+- There's fewer `ships`, cleaner water.
+- We have no more exodus `ships`, sir.
+- There were no other `ships` present.
+- There are no other `ships` in the system.
+- Three patrol `ships` are heading our way.
+- Listen colon, these are my `ships`, right?
+- We're tracking 26 `ships` inbound to cuba.
+- I've got to dust these `ships` for your dad.
+- There must be other `ships` in the quadrant.
+- The `ships` are bearing at 3-1-0 mark 2-1-5.
+- We can horsetrade with khruschev on `ships`.
+- He never had one... except aboard my `ships`!
+- There... were no other `ships` in the sector.
+- Years ago, hundreds of `ships` went down here.
+- An awful lot of `ships` wrecked on those rocks.
+- The `ships` are gaining... may i get the check?
+- Dead men, like sunken `ships`, can tell no stories.
+- More `ships` keep arriving, fifteen in total so far.
+- There was a spark and both `ships` were incinerated.
+- We got two `ships` and a large assortment of morons.
+- They'd rather spend our lives than risk their `ships`.
+- We're receiving reports that the `ships` are stopping!
+- We'll all be cruisin' around in space `ships` ... good.
+- I have a full working knowledge of the `ships` operations.
+- Seventeen `ships` destroyed, we don't know how many got away.
+- The record clearly there were no other `ships` in the sector.
+- Captain, there are five borg `ships` closing in on our position.
+- Commander, i'm showing two son'a `ships` on an intercept course.
+- Ensign sulu, try generating a subspace field around the `ships`.
+- Everything's quiet now -- no `ships`, no divers, no electricity.
+- Our pursuit `ships` have sighted the millennium falcon, my lord.
+- Sensors are not picking up any `ships` coming from the surface...
+- My people weren't taking any pictures from those slave `ships`, man.
+- No satellites, no `ships`, no armies, no ground defenses of any kind.
+- Keep a weather eye open for passing `ships`, and our chances are fair.
+- There you'll be, with two lovely `ships` on your hands, and what to do?
+- The sub has positioned itself between the pierce and the soviet `ships`.
+- There's nothing they like better than to attach themselves to `ships`.
+- Two `ships` that pass in the night should always buy each other breakfast.
+- We're only alive because i knew something about these `ships` that he didn't.
+- Lord vader, our `ships` have completed their scan of the area and found nothing.
+- We've destroyed forty-seven borg `ships` so far... and only lost fifteen of our own.
+- And the way they've done that is basically bartering and bargaining with the `ships`.
+- It would have taken a thousand `ships` with a lot more fire power than i've ever seen...
+- Pirates from sumatra want the cargo; smugglers from thailand and burma want the `ships`.
+- "was this the face that launched a thousand `ships` and burnt the topless towers of ilium?"
+- 'cause you get armed boarders climbing into soviet `ships`, shots being fired across bows...
+                 

@@ -1,0 +1,51 @@
+---
+title: "diamond in a sentence | diamond example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "diamond"
+---
+- `Diamond` in the rough.
+- Where's that `diamond`!
+- A `diamond` in the rough.
+- A `diamond` 'cyclone' chip.
+- The `diamond` in the rough.
+- Good evening, miss `diamond`.
+- He's a `diamond` in the rough.
+- ♪ gonna buy you a `diamond` ring.
+- Nelson eddy, then legs `diamond`.
+- Ever seen an uncut `diamond`, studs?
+- My god was `diamond` and black light.
+- `Diamond` in the rough does not exist.
+- I greased him up on the `diamond` run.
+- I put the `diamond` in my coat pocket.
+- Rose, tell us more about the `diamond`.
+- It was a `diamond` and you swallowed it.
+- ...double `diamond`... baby, i know it is.
+- I even had to pawn my `diamond` ring then.
+- It's a black `diamond` trail... you think?
+- I know it's not a `diamond` but -- hold on...
+- You bring me the rough but never a `diamond`.
+- He's going to steal the giant white `diamond`.
+- But it's like finding a `diamond` in the desert.
+- He said maybe you were a `diamond` in the rough.
+- It's not like she'd fed ex a six carat `diamond`.
+- They call it le coeur de la mer, the -- `diamond`.
+- So the `diamond` had to've gone down with the ship.
+- A very rare `diamond`, called the heart of the ocean.
+- Today it would be worth more than the hope `diamond`.
+- Bustin' in and bustin' out of a `diamond` wholesaler's.
+- Gee, mom, do you think maybe he's a `diamond` smuggler?
+- I had that `diamond` checked at three different places.
+- I'm at bleeker's getting an appraisal on that `diamond`.
+- You remember that platinum watch with the `diamond` numbers?
+- You have any previous entertainment experience, miss `diamond`?
+- Well, you didn't get your prince, and there goes your `diamond`.
+- So hand over the `diamond`, garden gal, or i turn you into mulch.
+- That goddam `diamond` stud earring that cost me a fucking fortune.
+- His cryo-suit uses `diamond` enhanced lasers to keep him at zero degrees.
+- This time they wanted to pinch him for some `diamond` burglary in antwerp.
+- What about that `diamond` wrist watch she had on�she can raise some money on that?
+- Along with the invitation, the king sent the `diamond` pendant, from the piglet.
+- I was little and slim but hard as `diamond` -- a duty machine -- no rest, no stopping.
+- If your grandma is who she says she is, she was wearing the `diamond` the day titanic sank.
+                 

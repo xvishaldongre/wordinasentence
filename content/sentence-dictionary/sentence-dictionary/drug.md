@@ -1,0 +1,107 @@
+---
+title: "drug in a sentence | drug example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "drug"
+---
+- I don't need a `drug`.
+- She's a `drug` addict.
+- The truthsayer `drug`?
+- They were `drug` buys.
+- The `drug` is evidence.
+- Does it act as a `drug`?
+- I don't do `drug` humor!
+- It's not `drug`-induced.
+- * this is a `drug` deal?!
+- Were you a `drug` addict?
+- They messed up the `drug`.
+- You mean the `drug` money?
+- [beat] works like a `drug`.
+- But there's no more `drug`.
+- Their loads are poly-`drug`.
+- He's a goddamn `drug` dealer!
+- I don't have a `drug` problem.
+- This is a big ass `drug` deal!
+- A damn near perfect `drug`.
+- Cocaine is a rich man's `drug`.
+- From your `drug` dealer friend.
+- He did beat the `drug`, though.
+- Maybe he's going to `drug` her?
+- They said he's a `drug` dealer.
+- Why the hell did you `drug` me?
+- I'd say it's not `drug`-induced.
+- It acts as a `drug` on the body?
+- Easy..... `drug` evasion with....
+- It's a fucking `drug` rehab farm.
+- I thought it was the `drug` store.
+- Not if he overdosed on the `drug`.
+- She's on every `drug` know to man.
+- What if he didn't need the `drug`?
+- A `drug` counselor or a `drug` dealer?
+- How long till the `drug` wears off ?
+- It's like the truthsayer `drug`.....
+- Mom and dad are having a `drug` war.
+- You'll report me for `drug` evasion.
+- For the `drug` to leave their system.
+- I'm no `drug` dealer, what you think.
+- You have a `drug` problem, all right?
+- Your `drug`-sniffing dog is in rehab.
+- They put him in a `drug`-induced coma.
+- For control of the prison `drug` trade?
+- I don't venerate `drug` dealers, roger.
+- I `drug` in a cot, if you want to stay.
+- In fact, they think it's `drug` related.
+- I was working a `drug` ring, deep cover.
+- Must be delayed effects of the `drug`...
+- You work for a `drug` dealer too, monty.
+- Freedom is a `drug`, much like any other.
+- She's involved with these `drug` dealers.
+- An irs investigator with a `drug` problem?
+- If the `drug` is here, we must destroy it.
+- It must have interfered with the `drug` oh.
+- "oh, i don't hang out with `drug` dealers."
+- You don't exactly look like `drug` dealers.
+- I think frank is killing `drug` dealers and.
+- It's a amusing anecdote about a `drug` deal.
+- They're rich `drug` addicts and celebrities.
+- I have to walk him till the `drug` wears off.
+- We both have to go to `drug` awareness night!
+- Hide whatever that new `drug` is you have.
+- I thought you were giving up that `drug` shit.
+- Shouldn't a `drug` that powerful be destroyed?
+- He's on a new `drug` called zbh, or "daydream".
+- The real `drug` was shipped out of the country.
+- ...this `drug` testing is driving my guys nuts.
+- The psychedelic `drug` market is big these days.
+- Looks like we're in the middle of the `drug` war.
+- I don't pick up people in `drug` stores every day.
+- I think we may have found our mexican `drug` czar.
+- That all these `drug` middlemen have clean records?
+- My staff tells me it's been mostly `drug` pushers...
+- What would a law firm want from the new `drug` czar?
+- A `drug` dealer... a `drug` dealing pederast, actually.
+- Even like pimps and `drug` dealers and all that shit?
+- Oh, it's a shame there's no `drug` for hurt feelings.
+- Now you want me to help you with some big `drug` deal.
+- Putney `drug`--you boys might want to have a look at it.
+- From what i understand, the eye- witness is a `drug` user.
+- So naturally, he covers prostitution and the `drug` trade.
+- They wanted a `drug` that increased aggressive tendencies.
+- The government inserts itself into all `drug` transactions.
+- According to your records when did you prescribe the `drug`?
+- Buddy, nobody knows about your condition, or your `drug` use.
+- I'm breaking the `drug` story and i got the chief red-handed.
+- You want to know how to do a `drug` deal, you watch scarface!
+- Michael, you represent `drug` dealers, not civil libertarians.
+- They put me back on that `drug` they're giving the other vets.
+- A `drug` dealer shot to death and a woman with her legs broken.
+- A `drug` dealer shot to death and a woman with her legs broken.
+- Missed a `drug` shooting while you were dicking around in there.
+- About mccluskey being linked with sollozzo in the `drug` rackets.
+- But the `drug` i have find in his urine is solving all mysteries.
+- Guy scores dope and dollar from ripping off other `drug` dealers.
+- Bob thomas has secretly been talking to a european `drug` company.
+- Do the rival gangs compete for control of the prison `drug` trade?
+- I'd say about eighty percent of them were at least `drug` related.
+- Once the `drug` is out of his system, he'll be ok. save me, jesus!
+                 

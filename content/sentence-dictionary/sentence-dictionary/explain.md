@@ -1,0 +1,107 @@
+---
+title: "explain in a sentence | explain example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "explain"
+---
+- `Explain` it so i can.
+- I can't `explain` now.
+- I'd like to `explain`.
+- I intend to `explain`.
+- Let me `explain`- bye.
+- I'll `explain` someday.
+- It's hard to `explain`.
+- It�s hard to `explain`.
+- Raven, i can `explain`.
+- Then `explain` octavia.
+- You're gonna `explain`.
+- I'll `explain` it later.
+- That would `explain` it.
+- Then `explain` it to me.
+- You `explain` it to him.
+- You `explain` it, vicki.
+- So `explain` it away?
+- `Explain` how that works.
+- `Explain` that one to me.
+- `Explain` them to ho-jon.
+- How do we `explain` that?
+- I can't `explain` it now.
+- I...i can't `explain` it.
+- I'll `explain` it to you.
+- I'll `explain` to mother.
+- _ luna, let us `explain`.
+- Officer, i can `explain`.
+- Please, let me `explain`.
+- Yeah, `explain` it to me.
+- You did `explain`, lenny.
+- *you* `explain` it to me.
+- You need to `explain` it.
+- Don't ask me to `explain`!
+- Don't `explain`, sidney...
+- How do you `explain` that?
+- I'll `explain` everything.
+- I'll `explain` on the way.
+- We can `explain`, colonel.
+- Will you let me `explain`!
+- You wanna `explain` that?!
+- Albert `explain` it to him.
+- How does he `explain` that?
+- I'll `explain` it tomorrow!
+- I'll let jenkins `explain`.
+- Look, i'll `explain` later.
+- So, `explain` the telegram.
+- Victor, `explain` yourself.
+- We'll `explain` everything.
+- We'll `explain` on the way.
+- ...how do we `explain` that?
+- ...how do we `explain` that?
+- I have no time to `explain`.
+- I'll `explain` later, hurry!
+- Than for me to `explain` it.
+- You don't have to `explain`.
+- Don't ask me to `explain` it.
+- I can't `explain` it.....but.
+- I can't `explain` it, robert.
+- I... eh... can't `explain`...
+- I'll `explain` it on the way.
+- I'll `explain` the situation.
+- I'm only trying to `explain`.
+- Jesse, you `explain` to lyla.
+- Let me `explain` something...
+- So i can `explain` it better.
+- Stay, and how do i `explain`?
+- There's nothing to `explain`.
+- There's no time to `explain`.
+- To `explain` our arrangement?
+- Would you let me `explain`...
+- How do you `explain` that?
+- I can `explain` everything ...
+- I can `explain` that, hartman.
+- I must go `explain` to them...
+- It's rather hard to `explain`.
+- So how do you `explain` wells?
+- Steve's going to `explain` it.
+- You have nothing to `explain`.
+- I can `explain`... fair enough.
+- It's... it's hard to `explain`.
+- Next, `explain` the vocabulary.
+- Then how do you `explain` this?
+- This will `explain` everything.
+- Why can't we just `explain` it?
+- How do we `explain` <u>that</u>?
+- I asked you to let me `explain`.
+- I can't `explain` it... no harm.
+- I'll `explain` everything later.
+- I'll `explain` that in a minute.
+- I'll `explain` what a palate is.
+- Just go `explain` the situation.
+- Just take it easy and `explain`.
+- Now, `explain` everything to me.
+- That's supposed to `explain` it?
+- Well, let me just `explain` why.
+- I can `explain` it pretty easily.
+- I don’t have time to `explain`.
+- I don't know how to `explain` it.
+- Look, let me `explain` something.
+- Please, honey, i can't `explain`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "weeks in a sentence | weeks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weeks"
+---
+- It's in a few `weeks`.
+- We're on in 3 `weeks`.
+- "back in four `weeks`."
+- Guy's six `weeks` over.
+- Just for a few `weeks`.
+- Six `weeks` and no sex?
+- Three `weeks` at least.
+- Two `weeks`, i'm going.
+- Could take `weeks`, sir.
+- He missed three `weeks`.
+- In the next two `weeks`?
+- That would take `weeks`.
+- A couple of `weeks` back.
+- A year and three `weeks`.
+- Give me two more `weeks`.
+- Maybe one or two `weeks`.
+- Three `weeks`, i believe.
+- You lasted eight `weeks`.
+- A couple of `weeks` maybe.
+- Four more `weeks` and out.
+- He died three `weeks` ago.
+- He'll quit in two `weeks`.
+- Hudson: four more `weeks`.
+- I'd say about two `weeks`.
+- Two `weeks` from tomorrow.
+- Wait two or three `weeks`.
+- Was it worth two `weeks`?
+- A couple of `weeks`, maybe.
+- I haven't slept in `weeks`.
+- It's been over two `weeks`.
+- Not just every six `weeks`.
+- Oh, it must be two `weeks`.
+- Six `weeks`, counting post.
+- Two `weeks` and three days.
+- Up to six `weeks`, i think.
+- Would take the fbi `weeks`.
+- You owe me for two `weeks`.
+- Fifty ladies in two `weeks`.
+- Five more `weeks` of school.
+- He hasn't called in `weeks`.
+- I ain't seen him in `weeks`.
+- I couldn't wait two `weeks`!
+- Just the last three `weeks`.
+- A couple of `weeks`, i think.
+- ♪ new episode in two `weeks`.
+- Oh, two `weeks`, maybe three.
+- Three `weeks` on a troopship.
+- Two `weeks` if you have to...
+- You've said that for `weeks`.
+- For a window of three `weeks`.
+- It's been about three `weeks`?
+- Last medcheck two `weeks` ago.
+- Seemed like `weeks` and `weeks`.
+- That cost me two `weeks`' pay.
+- They can stay for two `weeks`.
+- You said that two `weeks` ago.
+- Sixteen `weeks` is a long time.
+- That night, couple `weeks` ago.
+- We'll be broke in four `weeks`.
+- You'll be occupied for `weeks`.
+- I've been after him for `weeks`.
+- Just say "back in four `weeks`."
+- Mit is not fascist, two `weeks`.
+- Two `weeks` to turn this around.
+- Exactly three `weeks` to the day.
+- He was inna hospital two `weeks`.
+- In rome, about three `weeks` ago.
+- I've been on my back two `weeks`.
+- Six `weeks` he'll be sucking gas.
+- Six `weeks` off does a body good.
+- Why not try it for a few `weeks`?
+- Years, three `weeks` and one day.
+- You got two `weeks` to set it up.
+- Been waiting two `weeks` for this.
+- Could last for days, even `weeks`.
+- I bargained for about two `weeks`.
+- I had an abortion two `weeks` ago.
+- I'll be gone two or three `weeks`.
+- It opens in nine `weeks` in tulsa.
+- I've been feeling low for `weeks`.
+- I've been throwing up for `weeks`.
+- The play's in a couple of `weeks`.
+- They want to start in two `weeks`.
+- We haven't eaten in three `weeks`!
+- But he'll be okay in a few `weeks`.
+- I haven't seen him for two `weeks`.
+- I'm gettin' married in six `weeks`.
+- Odd about him the last few `weeks`?
+- That's two `weeks` from thursday...
+- To make me wretched in two `weeks`.
+- You've been good for two `weeks`...
+- But, joe - three `weeks` in florida!
+- Well, you're three `weeks` too late!
+- You haven't been around for `weeks`.
+- You want dna, that can take `weeks`.
+- Erin, you've been here three `weeks`.
+- I don't know ... three, four `weeks`.
+- I nagged jurek for `weeks` and `weeks`.
+- I saw una o'conner a few `weeks` ago.
+- Probably no longer than four `weeks`.
+                 

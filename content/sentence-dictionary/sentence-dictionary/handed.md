@@ -1,0 +1,55 @@
+---
+title: "handed in a sentence | handed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "handed"
+---
+- I am not left-`handed`.
+- Mitchell's `handed` it.
+- -- i am short-`handed`.
+- You `handed` out the money.
+- Now i `handed` them the pen.
+- Remember he's left-`handed`.
+- I am not left-`handed` either.
+- You just `handed` us a new one.
+- I could've `handed` you to them.
+- I want to duel him left-`handed`.
+- They `handed` you to your sister.
+- What do you mean, i `handed` her?
+- Woogie, i caught you red-`handed`.
+- Left-`handed`, he was <u>funny</u>.
+- You big, open-`handed`, generous guy.
+- A right-`handed` fella, to be precise.
+- You're left-`handed`, aren't you, paul?
+- I `handed` it to him on a silver platter.
+- We make it, or we go back empty `handed`.
+- He `handed` the whole thing back to kross!
+- I feel like i've been `handed` a new life.
+- We'd be going in short-`handed`, you know?
+- I didn't sign up to go home empty `handed`.
+- `Handed` down through countless generations.
+- I would've `handed` it to her if she wanted.
+- When she did show up, it was empty-`handed`.
+- I caught you red-`handed`, mister ambassador.
+- Carlos `handed` over �1,000 to get rid of him.
+- Had to take on another fire bare- `handed`, huh?
+- I always get it twisted because i'm left-`handed`.
+- I take a left-`handed` view of life, i've got to.
+- Last saturday we `handed` out over two hundred meals.
+- ♪ he's a hairy-`handed` gent ♪ fiery death from above.
+- When i return home empty-`handed`, many shall mourn.
+- You know, the people you `handed` over raven, i'm sorry.
+- You want everything `handed` to you on a silver platter.
+- I told you to cut that out before we `handed` in the tape!
+- I'm breaking the drug story and i got the chief red-`handed`.
+- Don't do that...sooner or later you'll be left empty-`handed`.
+- Blond, right-`handed`, really strong, wears a size eleven shoe.
+- Er, no... is there any reason you'd want a left-`handed` child?
+- Lay off, i said -- if you don't want your head `handed` to you.
+- If we stop the drugs, we don't even have to catch him red-`handed`.
+- Wait a minute, i haven't `handed` over punishing privileges to you yet!
+- The watch chain was `handed` over.... ...with a slight delay...to the police.
+- Fuckin' shiva `handed` him a million dollars, told him "sign the deal," he wouldn't sign.
+- Roderick wasn't in so i just kept my mouth good and shut and `handed` over that envelope.
+- I'm staying with you -- we live our lives by these unspoken rules that are `handed` to us.
+                 

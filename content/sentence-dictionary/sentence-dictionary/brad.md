@@ -1,0 +1,79 @@
+---
+title: "brad in a sentence | brad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "brad"
+---
+- I'm afraid so, `brad`.
+- She called you `brad`?
+- She's so nice, `brad`.
+- I'm still hungry, `brad`.
+- My name is `brad` majors.
+- Ready for dinner, `brad`?
+- Oh `brad`, i'm frightened.
+- Leave the crying to `brad`.
+- When do i get to see `brad`?
+- Oh come on, `brad`, admit it.
+- Clean that counter off `brad`.
+- Hey, `brad`... how's it going?
+- Promise you won't tell `brad`.
+- Do you have any tattoos `brad`.
+- It's simpler than that, `brad`.
+- `Brad`'s probably asleep by now.
+- Don't worry, `brad` - i'll live.
+- I know what you told me, `brad`.
+- I'm really sorry for her, `brad`.
+- `Brad`, can i talk to you a minute?
+- Uh, no, i didn't know that, `brad`.
+- `Brad` and i are watching the house.
+- `Brad`, please lets get out of here.
+- I should be with my people... `brad`!
+- With `brad` 'the dreamboat' kovitsky.
+- `Brad` says you're being a real cooze.
+- `Brad` you're pretty enough to be one.
+- God, how shallow do you think `brad` is?
+- I think it's dunn & <u>`brad`</u>street.
+- `Brad` is not a good name for a cocktail.
+- In the middle of it, she calls me `brad`.
+- Were those flowers really for me, `brad`?
+- `Brad`'ll probably get just what he needs.
+- We've got to, `brad`, everyone's watching.
+- Even `brad` wouldn't stick around for this.
+- I don't want to talk about it here, `brad`.
+- `Brad` - i'm cold, i'm wet, and plain scared.
+- The question is, does `brad` want to see you?
+- `Brad`, i really fuckin' hate mcdonald's, man.
+- Turns out she thought i was `brad` michaelson.
+- I'm janet majors and this is my husband `brad`.
+- So who's this `brad` guy i've been set up with?
+- Can i just 'peep in' on `brad` before i go home?
+- `Brad` probably has some trunks you can borrow...
+- This isn't the junior chamber of commerce `brad`.
+- `Brad` has deep feelings of hostility towards you.
+- I recommend you send `brad` to them for treatment!
+- Oh `brad` - mmmm - oh yes, my darling - what if...
+- That's why `brad` thinks he's god's gift to women.
+- He manufactures staples and industrial `brad`-tacks.
+- It does make a difference to you - rector's, `brad`?
+- Maybe i'm just happy to see my friend, `brad` there.
+- I'm `brad` majors and this is my fiancee, janet vice.
+- We've been hearing some bad things about you, `brad`.
+- Isn't that `brad` and janet majors sitting down front?
+- It'll be our first foreign war in fifty years, `brad`.
+- You beast, you monster, what have you done with `brad`?
+- She was supposed to meet `brad` michaelson in a bedroom.
+- Now he works for your government, doesn't he, `brad`?
+- Darling, i've been thinking about our little `brad` problem?
+- I could see `brad`'s face before me and my mind screamed no!
+- Oh `brad`, `brad` my darling, how could i have done this to you?
+- It's just that `brad`...my husband...is not... very well and...
+- Look, `brad`, i've been trying to think of a way to tell you this.
+- I'm going over to georgie's, `brad` - you know, georgie, don't you?
+- It may be a surprise to you, `brad`, but i want to do it the right way.
+- I don't have any money now but i'ii get it...i will for you, `brad`.
+- I'm engaged to `brad` just the same as betty monroe was to ralph hapschatt.
+- I can't tell her she's wrong, because she isn't wrong - `brad`, you are drunk.
+- If only `brad` could have found it within his heart to say these things to me.
+- I'll tell you what i'll do, `brad` - i'll get drunk, too - maybe that'll help.
+- When they get back - she was going to leave you anyway - i don't think so, `brad`.
+                 

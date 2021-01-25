@@ -1,0 +1,77 @@
+---
+title: "victims in a sentence | victims example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "victims"
+---
+- Any military `victims`?
+- He filmed his `victims`.
+- I've seen your `victims`.
+- His `victims` aren't random.
+- Totally unrelated `victims`.
+- Why the two extra `victims`?
+- A pool of possible `victims`.
+- Are they all shark `victims`?
+- These women are all `victims`.
+- `Victims` are pronounced here.
+- How many `victims` are up there?
+- ...one for each of your `victims`.
+- Their vampire `victims` don't die.
+- His body wasn't among the `victims`.
+- Have you taken any human `victims` yet?
+- Seen by her very `victims`, i might add.
+- She was one of harold speck's `victims`.
+- Have you ever seen any of your `victims`?
+- Did you find the `victims`' loan agreements?
+- Let this thing turn us into <u>`victims`</u>?
+- Tell me, did he kill his little `victims` too?
+- We haven't been able to connect the `victims`.
+- Animal hairs were found all over the `victims`.
+- This ward is reserved for air- crash `victims`.
+- Ligature strangulation, just like his `victims`.
+- Plus the `victims` weren't random solid citizens.
+- He kept his `victims`' hands and feet as mementos.
+- I guess i ought to stop seeing woman as `victims`.
+- We are the `victims` of a pocket-picking pandemic.
+- What is the common thread between these `victims`?
+- You got your predators and you got your `victims`.
+- How do the fu-cang-long usually kill their `victims`?
+- A lot of 'missing swimmers' are really shark `victims`.
+- Found one of the missing `victims` from that boat deal.
+- ...taken from the bloodstained corpses of the `victims`.
+- We found traces of adhesive around the `victims` mouths.
+- We must uncover the reason these `victims` were targeted.
+- I cannot proceed without examining the previous `victims`.
+- Meaning, it looks like his `victims` are chosen at random.
+- Well, all wars do - say, all wars have innocent `victims`.
+- We still haven't found a connection between the `victims`.
+- I'm working with one of the `victims` outta brooklyn north.
+- A couple of peons for the mob and... who were the `victims`?
+- At first, no one will know why the `victims` are being killed.
+- Do you know any of the `victims`... you're calling me a crank?
+- The killer is choosing his `victims` as they die in the script!
+- Pretend you're a missionary saving a colony of cootie `victims`.
+- He thinks he's real smart, laughs at us, laughs at his `victims`.
+- It's what bianchi and buono injected into one of their `victims`.
+- The rest of the time we're out working with the cholera `victims`.
+- Two of the `victims` had their eyes gouged out, another punctured.
+- They take it for granted that it's just another of wynant's `victims`.
+- Earlier in the day the `victims` received anonymous passes to the movie.
+- Yep, you and me: `victims` of a rotten, corrupt, cor- rupt, rotten world.
+- Sometimes `victims` of tragedies are subject to the brain's replay system.
+- Imagine yourself one of his `victims`, realizing your life is in his hands.
+- Like sex crime `victims`, underwear inside-out, bound with electrical tape.
+- The girls are being treated as `victims`, said police sergeant amos milburn.
+- Two nihilistic fashion `victims` who make a lot of noise but don't say much.
+- We, as your `victims`, have to walk the earth until your curse is lifted.
+- All his `victims` are women... his obsession is women, he lives to hunt women.
+- Do you know, i don't ever feel comfortable on these sort of things...`victims`?
+- Not the `victims`, not the families of the `victims`, he doesn't talk about them.
+- Chat jargon for moving from fantasy to real `victims`: "i went live last month."
+- Dahmer carried the head of one of his `victims` in a bowling bag for over a week.
+- The police are fond of bringing their `victims` to the outskirts of this village.
+- Typical profile, usually losers, nobodies that're afraid to confront their `victims`.
+- A cord, nylon, you can tell by the indentation signature -- again, like his `victims`.
+- And, how many `victims` are buried without reprisal while guilty men roam our streets?
+- Intelligence may not be the right word... that it acquires intelligence from its `victims`?
+                 

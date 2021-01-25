@@ -1,0 +1,58 @@
+---
+title: "sounded in a sentence | sounded example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sounded"
+---
+- It `sounded` familiar.
+- `Sounded` like "gate."
+- She `sounded` strong...
+- It `sounded` like a bell.
+- It `sounded` like brenda.
+- It `sounded` like you did.
+- [he `sounded` strong to me.
+- Actually, he `sounded` nice.
+- Hey -- the bell's `sounded`.
+- He `sounded` a lot like that.
+- He `sounded` young, but cool.
+- That's just how it `sounded`.
+- She `sounded` pretty wound up.
+- Who said he `sounded` russian?
+- It `sounded` like a pick-up line.
+- I knew that voice `sounded` familiar.
+- I'm telling you, you `sounded` great.
+- It `sounded` as if you said no charge.
+- I didn't mean it the way it `sounded`...
+- I didn't mean that the way it `sounded`.
+- Yeah, i think you `sounded` pretty good.
+- Yeah, it `sounded` better in the moment.
+- I mean that's how it `sounded` in my head.
+- I thought gretchen `sounded` kind of cool.
+- It `sounded` like it came from the courtyard.
+- It `sounded` like a number one tune all right.
+- Wait, i didn't mean that the way it `sounded`.
+- But the way you did it then `sounded` so phony.
+- Skip on to the fire swamp -- that `sounded` good.
+- `Sounded` lame as soon as it came out of my mouth.
+- `Sounded` like he just went berserk, fucking loco.
+- That `sounded` unbelievable, what you were playing.
+- The dialogue `sounded` forced when i read it aloud.
+- He said i `sounded` like a young cannonball adderley.
+- It `sounded` like he and caesar don't like each other.
+- `Sounded` pretty cold... and why was an exception made?
+- Yeah, i just picked the one that `sounded` the easiest.
+- I dunno, that lady `sounded` pretty sure... that's good.
+- Really, sara, i... gee, grady, that `sounded` so heartfelt.
+- You just... look different than you `sounded` on the phone.
+- I have no idea what you just said, but it `sounded` real nice.
+- The woman who left that message for you `sounded` very disturbed.
+- She `sounded` more ... pissed off -- angry -- than upset or afraid.
+- I don't really know, but it `sounded` distinguished, like, didn't it?
+- Crabtree said it `sounded` like something james would be messed up in.
+- It sure as hell `sounded` like they were sitting up and taking notice.
+- You sound just `sounded` just like your mother...she told great stories.
+- Just `sounded` like an old gal havin' a good time to me... you ready to dance?
+- But "split city" `sounded` like it might have have something to do with divorce.
+- Sure--he was cooked the night i `sounded` off like a fool and spilled the whole works!
+- What were you doing hiding in that alley, running off when the superhero alarm `sounded`...
+                 

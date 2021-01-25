@@ -1,0 +1,60 @@
+---
+title: "settled in a sentence | settled example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "settled"
+---
+- We're never `settled`.
+- Let's call it `settled`.
+- `Settled` him right down.
+- I'm glad that's `settled`!
+- I thought it was `settled`.
+- How `settled` can things get?
+- I hope everything is `settled`.
+- You're just not a `settled` folk.
+- Course, she `settled` down nicely.
+- Good good, then it's all `settled`.
+- Call me as soon as you're `settled`.
+- Dear old bert's `settled` everything.
+- I'd love to see her wind up `settled`.
+- You all `settled` an' comfortable now?
+- Well, thank goodness, that's `settled`.
+- But i'll call you when we get `settled`.
+- They're already all `settled` in, frank.
+- That's gone, but i `settled` for reality.
+- The matter has been `settled` out of court.
+- There's `settled` folks, and there's nomads.
+- Well, anyway, we've got "saunders" `settled`.
+- Looks like this case'll be `settled` in no time.
+- Now, now, your mother has not `settled` in here.
+- He wouldn't have `settled` for a squatters' camp.
+- I believe this can be `settled` by a simple vote.
+- I woulda `settled` for pawning one of them shoes.
+- Shouldn't you wait till your lawsuit's `settled`?
+- Well, i'm sure glad that's `settled`, aren't you?
+- Some problems cannot be `settled` without one.
+- You know these doctors could have `settled` out of court.
+- It's not quite... the kids aren't really `settled` in yet.
+- Now that that's `settled`, why not make the game a foursome?
+- In six months, he'll be happy, `settled`, successful... only.
+- But this is not a matter which can be `settled` tonight, surely?
+- Now i've just about `settled` on mores, as you probably noticed?
+- Now we know that some problems cannot be `settled` with a sword.
+- But that's a long time off... of course... that's `settled` then.
+- I `settled` it, she dropped the complaint... any other questions?
+- This can't be `settled` any other way now...i'll take full blame.
+- After you get `settled` we can... ninety-three, including the sauna.
+- Who `settled` this area for a dutch cracker-trading company, or do i?
+- I'm `settled` now, above a saloon, it's true, but... walk up a flight.
+- You don't hardly get `settled` till you're frettin' to git home again.
+- I figure 'til we get `settled` we can just move around month to month...
+- You know, `settled` down somewhere with a kid or two, a nice steady job.
+- Look at all this beautiful food, so lovingly prepared... we `settled` this.
+- Don't run off -- like everything's `settled` the minute you make up your mind.
+- After this has opened, when everything's `settled` down, you and i are going away.
+- You have the cutest nose i've� now let's get this `settled`� of course i am stewart.
+- It's time i `settled` downand i don't know a nicer lady to settle down with than you.
+- All will be `settled` as we go it is customary to make a little speech on the first day.
+- I know, honey, an' just as soon as we get `settled` al's gonna set out an' look for him.
+- The picards that fought at trafalgar, the picards that `settled` the first martian colony.
+                 

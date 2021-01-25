@@ -1,0 +1,53 @@
+---
+title: "handled in a sentence | handled example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "handled"
+---
+- Anyways, it's `handled`.
+- _ you `handled` that well.
+- I admit i `handled` it badly.
+- I don't like being `handled`.
+- I've `handled` sharks before.
+- So mitchell had `handled` it.
+- They `handled` both envelopes.
+- Ever `handled` an outboard boat?
+- You jus' asking to be `handled`!
+- I like the way you `handled` that.
+- Look, everything can be `handled`.
+- Pearl-`handled` .25 automatic, uh?
+- I'm interested in who `handled` it.
+- This has to be `handled` delicately.
+- Brandon `handled` the money envelope.
+- Ferrie `handled` a lot of the training.
+- There's no indication you `handled` it.
+- Has anyone else `handled` it except you?
+- Well, i panicked, but then i `handled` it.
+- I've `handled` runaway cases like it before.
+- If it's `handled`, why do you still have nothing.
+- Because the way you `handled` this, octavia, wait.
+- So many of the faithful haven't `handled` it well.
+- Uh, he `handled` rackets, and i carried the balls.
+- I'm saying i `handled` my responsibilities like a man.
+- I'm familiar with how a formal negotiation is `handled`.
+- He `handled` the transplant, the vocal implant, everything.
+- No matter what else happens, i've got the sofa issue `handled`.
+- I got this picture of a silver `handled` gun tucked in his pants.
+- Think about california -- and how things might be `handled` there.
+- Grandad and i, we're - we're makin' sure this gets `handled` right.
+- Will be `handled` back in -- my debrief -- what are you doing here?
+- You `handled` yourself well in the cave what are you talking about?
+- ...he gave me a little pearl-`handled` .38 for out first anniversary.
+- The 1000 c infrared sensitive film must be `handled` in total darkness.
+- I honestly don't know how i would have `handled` all this if i were you.
+- You know, ma'am, you remind me of a pearl-`handled` pistol i once owned.
+- Or he might have been carrying a silver `handled` gun tucked in his pants.
+- If a deal loses money that's not so bad either if it's `handled` right.
+- He's `handled` a lotta pitchers whose records were better than one and six.
+- Susan, listen to me: you `handled` that insect almost as much as siri... no.
+- ♪ circus laughter, there's no greater high ♪ i thought you said it was `handled`.
+- He can handle the work, he can handle the pressure and he's obviously `handled` you.
+- I want to know at least one problem is being `handled` competently in my absence.
+- Freckle face, if i ever `handled` a minor felon like that, it'd be all over the papers.
+- I `handled` enough of those red pills to put everybody in new jersey asleep for the winter.
+                 

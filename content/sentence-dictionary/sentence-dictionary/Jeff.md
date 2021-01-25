@@ -1,0 +1,91 @@
+---
+title: "Jeff in a sentence | Jeff example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Jeff"
+---
+- Fran -- hello, `jeff`.
+- This is doyle, `jeff`.
+- Call you later, `jeff`.
+- `Jeff`, they're coming.
+- That's too bad, `jeff`.
+- I've got to run, `jeff`.
+- `Jeff` you have company!
+- That's bullshit, `jeff`!
+- I'll run it down, `jeff`.
+- I did a bad thing, `jeff`.
+- No, but-- `jeff` lebowski.
+- What are we doing, `jeff`?
+- I can't marry jerry `jeff`.
+- Where are we going, `jeff`?
+- You're not a robot, `jeff`!
+- No one does nothing, `jeff`.
+- Oh, `jeff`, give me a break.
+- `Jeff` wigand, michael moore.
+- Forget about new york, `jeff`.
+- I appreciate all that, `jeff`.
+- Why should i stay here, `jeff`?
+- You'll miss your train, `jeff`.
+- You're that kind of man, `jeff`.
+- Do you want to sit there, `jeff`?
+- `Jeff`, would you go in with her?
+- You don't have to tell me `jeff`.
+- I'm not doing it anywhere, `jeff`.
+- `Jeff`, call the fbi right away...
+- Well, `jeff` put that out himself.
+- `Jeff` -- the word is "everything."
+- Why do you keep calling me, `jeff`?
+- Oh, erica, this is my friend `jeff`.
+- Why is everything about you, `jeff`?
+- `Jeff`--wait--they want you to speak!
+- That's the name of `jeff`'s magazine.
+- You let me go four years ago, `jeff`.
+- `Jeff` -- isn't it time you came home?
+- You're still a police officer, `jeff`.
+- It was really nice meeting you, `jeff`.
+- I think `jeff` bridges is getting tired.
+- It is something really important, `jeff`?
+- It might save some of the pieces, `jeff`.
+- Were you going somewhere tonight, `jeff`?
+- Maybe jerry `jeff` sent the heat after us.
+- I'll bet the butler's name wasn't "`jeff`."
+- Meet the boys-- `jeff`--this is mr. taylor.
+- I'm trying to communicate how i feel, `jeff`.
+- When `jeff` gets through with taylor-- quiet!
+- I'm `jeff` talley, the bristo chief of police.
+- `Jeff` likes to argue for the sake of arguing.
+- Shall we go now, `jeff`, and get it over with?
+- Then... you're in a state of conflict, `jeff`.
+- Why, printer's ink runs in your veins, `jeff`.
+- You want to know what your problem is, `jeff`?
+- All right, we'll take `jeff` with us-- how nice.
+- Let's not start on that again, `jeff` -- please.
+- Mister brooks has had shows in new york, `jeff`.
+- We had this dude, `jeff` baxter, he was a puker.
+- You've got a lot to lean about homicide, `jeff`.
+- `Jeff` -- wives don't nag anymore -- they discuss.
+- What's going through your mind right here, `jeff`?
+- Indo-china -- `jeff` predicted it would go sky-high.
+- Now, lisa -- `jeff` -- if you could only see yourself.
+- I'm afraid we've got some things to discuss here, `jeff`.
+- Here, here, susan--this is `jeff` smith-- our new senator.
+- Saunders--it's going to go pretty bad for `jeff` tomorrow.
+- `Jeff`, do you think a murderer would let you see all that?
+- When `jeff` gets through with taylor, pop-- i beg your pardon?
+- Went off down to mexico or something... you remember `jeff` rawson?
+- Seven... `jeff`'s a premiere golfer... what are you, a two handicap?
+- `Jeff`, don't you think sooze should go to new york and, uh, you know.
+- Where's all the regulars, crazy `jeff` cava, the todd sisters, indian joe?
+- Look, `jeff` -- we had two wonderful months this summer -- and that was it.
+- You know, does he tell you about how, uh, `jeff`, pony, started the band...?
+- Let's get something straight, `jeff` -- i never asked you to leave your wife.
+- You the duff that didn't come up with his end when little `jeff` was sent up?
+- `Jeff` -- if anybody walked in here, i don't think they'd believe what they see.
+- `Jeff`, you don't have to be deliberately repulsive just to impress me i'm wrong.
+- Here, `jeff`, i'll advance it for you.-- fine introduction to the nation's capital!
+- I don't know how to say this, `jeff`, except to just say it right out, so i'll say it.
+- `Jeff`, `jeff`, if you want to be alone with pony, you know, that's, that's fine with us.
+- Well, it sort of got to be--from `jeff` just pullin' splinters and things-- a pet shop?
+- Chick-- `jeff`--meet mr. cook and mr. griffith-- members of our state headquarters here.
+- You know, i'm supposed to go home and go to sleep and when i wake up, what'll i be, `jeff`?
+                 

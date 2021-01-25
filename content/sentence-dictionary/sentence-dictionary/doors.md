@@ -1,0 +1,107 @@
+---
+title: "doors in a sentence | doors example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "doors"
+---
+- I'll lock the `doors`.
+- Then open the `doors`!
+- All `doors` are secure.
+- Jack, open the `doors`.
+- These `doors` function?
+- It's got `doors`, diane.
+- Opening pod bay `doors`.
+- Lock the fucking `doors`.
+- Closing the outer `doors`.
+- Do not open these `doors`.
+- Monroe, close the `doors`.
+- Please secure all `doors`.
+- All we have is the `doors`.
+- There are no other `doors`.
+- No power to the bay `doors`.
+- Opening docking bay `doors`.
+- Right through those `doors`.
+- Tonight we open new `doors`.
+- Where are we on the `doors`?
+- It's one of the fire `doors`.
+- You should lock your `doors`.
+- And so, he opened the `doors`.
+- Luthor -- and garbage `doors`.
+- These `doors` are solid steel.
+- The <u>`doors`</u>, mr. scott!
+- We can't just open the `doors`.
+- I had to widen a few `doors`.
+- She called it opening new `doors`.
+- The shield `doors` must be closed.
+- Do you like fucking out of `doors`?
+- Hard to find `doors` in this place.
+- Bathrooms with `doors` clarke, stop!
+- Can you open the shuttlebay `doors`?
+- `Doors` that should never be opened.
+- It will be, why do you need `doors`?
+- I will if you let the `doors` close.
+- There are two `doors` to your house.
+- We'll be forced to shut the `doors`.
+- You sure those `doors` will be open?
+- You are free to open pod bay `doors`.
+- Dad, they come in through the `doors`.
+- Hal, check all airlock `doors` secure.
+- With orlando opening the `doors`, ooh!
+- Keys, however, are to lock the `doors`.
+- Lock the `doors` and call your husband.
+- `Doors` don't fly open for guys like us.
+- Get back behind the containment `doors`.
+- Just block the `doors`, any way you can.
+- Leaving the other two `doors` wide open.
+- That's why the sealant on the `doors`...
+- `Doors` from a church in new hampshire...
+- We've secured the `doors` on both levels.
+- Instead of sealing, the `doors` all opened.
+- That's why you have `doors`, mr. president.
+- We'll have to board up the bedroom `doors`.
+- If you're talking exclusively about `doors`.
+- Seal the `doors`, begin the launch protocol.
+- Spent the last few days knocking on `doors`.
+- Those `doors` were down... which means this.
+- The `doors` won't open until we're equalized!
+- So be here when the `doors` open at 6:00 a.m.!
+- If we lock the `doors`, maybe the grounders no.
+- The containment codes to keep the `doors` open.
+- The `doors` and walls are monitored, mrs. peel.
+- The `doors` off the place and come in shooting.
+- We still got access to the docking bay `doors`?
+- You gotta know the stalls ain't got no `doors`.
+- And... and now-- the section `doors` are sealed.
+- It opens some `doors` and it doesn't open others.
+- Yes, unless they figured out how to open `doors`.
+- A soon as they open the intake `doors`, we attack.
+- He'll shut the `doors` before he gives up control.
+- The enemy thinks it's safe behind its `doors`, up.
+- I just stand there... looking at the `doors`...
+- The way i figure it, `doors` are made to be opened.
+- That means the alarm's off and the `doors` are open.
+- Even... event..." we could blow the `doors` manually.
+- I did my time on door-to-`doors`, and walking a beat.
+- They would've opened the `doors` and kline's a swine!
+- Then i got scared, george, and closed the `doors`.
+- I'll see you two `doors` down from your place at 11:00.
+- It won't take long for them to get through the `doors`.
+- We have to get out quickly before the fire `doors` fall!
+- Well, why can't you just lock the `doors` and go to bed?
+- These pan pizzas have opened up the `doors` to heaven?
+- Entry through the `doors` or vents triggers instant alarm.
+- However many `doors` you lock, someone will always get in.
+- The way we lock these `doors` at night, you can't get out.
+- She told me that tonight we were going to open new `doors`.
+- They don't know our procedures so just... open the `doors`.
+- ...and open the french `doors` and go on the balcony -- yes.
+- There's no way we can get to you with the fire `doors` down.
+- So anyway, they closed the `doors`, and she starts to scream.
+- Which of these `doors` here lead up to the security level?
+- I mean, lakeview high just closed its `doors` for good, right?
+- Since when do you go about slipping notes under men's `doors`?
+- From now on, your `doors` will be locked during sleeping hours.
+- This is one of the fire `doors`... is there another way around?
+- Did you ever consider that some `doors` are locked for a reason?
+- If it gets any worse, i hope we don't have to close the `doors`.
+                 

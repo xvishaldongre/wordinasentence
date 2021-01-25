@@ -1,0 +1,54 @@
+---
+title: "sexy in a sentence | sexy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sexy"
+---
+- This is a `sexy` case.
+- You know, `sexy` stuff.
+- I love your `sexy` talk.
+- You are extremely `sexy`.
+- Bring on the `sexy` stews!
+- Hey, marty-- `sexy` cardy.
+- Oh, i get it, she's `sexy`.
+- No, i didn't forget "`sexy`".
+- Don't you love my `sexy` body?!
+- Hairy women are kind of `sexy`.
+- Time dilation is `sexy` as hell.
+- Vince... you are so damn `sexy`.
+- God, but i love that `sexy` talk.
+- I think they make you look `sexy`.
+- Still seeing that `sexy` french gal?
+- `Sexy` little split tail, like you say.
+- I thought they were kinda `sexy`, myself.
+- But i told my wife i said, "`sexy` marge."
+- God, it's `sexy` when you get all sciency.
+- In europe women find older men very `sexy`.
+- You really think i look `sexy` in this smock?
+- Finally, the `sexy` story of tony roma's ribs.
+- Maybe it doesn't sound very `sexy` but it was.
+- You'll feel `sexy` in lingerie and it'll show.
+- You're absolutely the most `sexy` thing alive.
+- But i turned it down, the part wasn't `sexy` enough.
+- I'm looking at a beautiful, fabulous, `sexy` woman.
+- Deception isn't something i personally consider `sexy`.
+- The human race deserves to transcend incredibly `sexy`.
+- Very `sexy` -- but -- there's a lot of it out there.
+- When she's gone, i get the p's, oh... that is so `sexy`.
+- It's- you know, you used to think that i was very `sexy`.
+- No `sexy` young cop for you unless you shampoo your hair.
+- They're already using their blood, "beauty versus `sexy`."
+- When we get into the clearing, i'll turn on my `sexy` moves.
+- My visual style is very erotic, `sexy`, how do you say - hot?
+- A dress, elegant but `sexy`, something grace kelly would wear.
+- Probably nuthin', but that's why it's such a `sexy` way to go.
+- [sighs] ♪ so `sexy`, so snuggable ♪ i've got to get out of here.
+- Maybe it was eating all those rabbits that made you `sexy`, rose.
+- The hip, cool, `sexy` thing was getting old... what's with the look?
+- Traipse downstairs in your `sexy` little underthings and check it out?
+- No, it sounds very `sexy` -- did you just stay by the sink all that time?
+- Maybe the kid, that pheenom who just did that hot new `sexy` madonna video.
+- There may... ♪ so, good riddance to tv ♪ our risk of death is `sexy` to you?
+- It's `sexy` that we were like a married couple, griping and overly-familiar and bored.
+- Get her one of dose... sleep 'n eat, one of dem slinky, `sexy`, little foxy... too bad.
+                 

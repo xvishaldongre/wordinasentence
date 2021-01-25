@@ -1,0 +1,107 @@
+---
+title: "read in a sentence | read example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "read"
+---
+- But i `read` a manual.
+- Check your `read`-out.
+- Do you like to `read`?
+- He can `read` italian.
+- I can't `read`, ma'am.
+- I haven't `read` that.
+- I `read` a lot myself.
+- I `read` you, captain.
+- I've `read` your work.
+- I want to `read` them!
+- Just what i've `read`.
+- Mommy `read` it to ne.
+- `Read` on, young john.
+- `Read` the newspapers.
+- Shall i `read` to you?
+- Then you've `read` it?
+- Will you `read` to me?
+- You `read` me, brewer?
+- You `read` my fortune.
+- You `read` that wrong.
+- You want to `read` it?
+- Anybody want to `read`?
+- Can you `read` my mind?
+- Do you `read` me, bomb?
+- I can `read` it to you.
+- I can `read`, remember?
+- I did `read` that, yes.
+- I don't want to `read`.
+- I `read` for that part.
+- I've `read` your tests.
+- Please `read` it aloud.
+- `Read` marcus aurelius.
+- `Read` six crises, bob.
+- `Read` some good books.
+- Why can't i `read` you?
+- Yep, i can `read`, too.
+- Yes, we can `read` him.
+- Alright, `read` my lips.
+- Can you `read` 'em jack?
+- Can you `read` it to me?
+- Clarke, you `read` this?
+- Eat alone, gotta `read`.
+- Have you `read` toynbee?
+- I'd love to `read` that.
+- I mean, i `read`, but...
+- I'm sorry you `read` it.
+- Now `read` me something.
+- Sure ... can you `read`?
+- Well, for one, i `read`.
+- Where'd you `read` that?
+- Wow... `read` something.
+- Yes, and i've `read` it.
+- You know i `read` a lot.
+- Bishop, do you `read` me?
+- Clarke, do you `read` me?
+- Did you `read` her mind ?
+- Did you `read` it to her?
+- I never `read` the paper.
+- I `read` about this, man.
+- I `read` to blind people.
+- I've `read` all about it.
+- I've `read` your profile.
+- I've `read` your stories.
+- Jesus, jack can't `read`.
+- Martin, do you `read` me?
+- Maybe i should `read` it.
+- Or can't you guys `read`?
+- `Read` <i>mein kampf</i>?
+- Talby, can you `read` me?
+- They'll `read` our minds!
+- Want to `read` any books?
+- We all want to `read` it.
+- Yeah, i `read` your book.
+- You don't `read`, do you?
+- You just `read` the copy.
+- Ain't you `read` about it?
+- Bandit two, you `read` me?
+- Ben likes to be `read` to.
+- C'mon, i `read` your book.
+- Did she `read` the script?
+- Don't `read` it - sign it!
+- Harbor air, do you `read`?
+- He must `read` constantly.
+- I can hardly `read` these.
+- I'd have `read` your book.
+- ...i don't `read` so good.
+- I don't `read` the papers.
+- I `read` your white paper.
+- I recommend you `read` it.
+- I see you `read` the book.
+- I take it she `read` well.
+- I think i can `read` this.
+- I've `read` all your work.
+- My vife greta, she `read`.
+- `Read` about this one guy.
+- To hear them `read` torah.
+- What novel did you `read`.
+- Where did you `read` that?
+- Will you `read` it for me?
+- Yeah, i `read` about that.
+                 

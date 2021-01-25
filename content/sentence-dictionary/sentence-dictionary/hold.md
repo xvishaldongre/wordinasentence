@@ -1,0 +1,107 @@
+---
+title: "hold in a sentence | hold example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hold"
+---
+- Hey, josie, `hold` on.
+- `Hold` course, laredo!
+- `Hold` it right there.
+- `Hold` on, little man.
+- `Hold` out your hands.
+- `Hold` still, damn it!
+- `Hold` this, will you?
+- `Hold` your pantyhose.
+- I'm sort of on `hold`.
+- Man: `hold` it down!
+- Man: `hold` your fire.
+- Okay, okay, `hold` on.
+- The cage won't `hold`.
+- Will you `hold` still?
+- Yeah, `hold` the line.
+- Gabriel... - `hold` on.
+- He tries to `hold` her.
+- `Hold` it a day for me?
+- I'm not -- `hold` on...
+- Jason: `hold` on, okay?
+- Looks like a `hold`-up!
+- Ml, `hold` this for me.
+- Now `hold` on a second.
+- Paris - just `hold` me.
+- Sweets, i can't `hold`.
+- Try an' `hold` it, man.
+- You can `hold` me down.
+- Alfred, `hold` my calls.
+- All right, `hold` still.
+- Can you `hold`, sir -- ?
+- Danger `hold` you to me.
+- Here, `hold` that, dear.
+- `Hold` it, just `hold` it.
+- `Hold` on a second here.
+- `Hold` on tight, abby.
+- `Hold` your horses, man.
+- How can they `hold` her?
+- How'd the kid `hold` up?
+- I can't `hold` them off!
+- I don't know, `hold` on.
+- Indra, `hold` your fire!
+- I tried to `hold` him...
+- I will `hold` the truth.
+- Just `hold` on a minute.
+- Just `hold` your breath.
+- Just to `hold` it again.
+- Okay, okay... `hold` on.
+- Take `hold` of yourself.
+- We will `hold` them off.
+- You could- it'll `hold`!
+- But i don't -- `hold` it.
+- Don't `hold` me so tight.
+- Don't `hold` your breath.
+- Get a `hold` of yourself!
+- Get a `hold` of yourself.
+- He can `hold` his ground!
+- `Hold` on a minute, dear.
+- `Hold` on- minor setback.
+- `Hold` the stella, fella.
+- `Hold` this to the wound.
+- `Hold` those, `hold` those.
+- I'll get a `hold` of you.
+- I'm gonna `hold` it open.
+- I ordered to `hold` fire.
+- It's not gonna `hold` us.
+- I've got it -- `hold` on!
+- I wanna `hold` onto them.
+- I won't `hold` my breath.
+- Jack, `hold` on a minute.
+- John, `hold` on a second.
+- Just `hold` on buddy boy.
+- Just `hold` that thought.
+- Just, `hold` your ground.
+- Man: `hold` out your arm.
+- Okay, `hold` on, `hold` on.
+- Take `hold` of the cover.
+- To `hold` an entire mind.
+- Wait, `hold` on a second.
+- Wait, `hold` on, `hold` on.
+- We can't `hold` them off.
+- We can't `hold` them off.
+- Will these boards `hold`?
+- Will you `hold` the keys?
+- All right, just `hold` on!
+- Command says we `hold` st.
+- Everybody `hold` on tight.
+- He can't `hold` you jesse.
+- `Hold` on a second, chief.
+- `Hold` on for two seconds.
+- `Hold` onto your potatoes!
+- `Hold` out your right arm.
+- `Hold` up there, sergeant.
+- I can't get `hold` of him.
+- I think that'll `hold` it.
+- Just `hold` on, all right?
+- Just `hold` onto the rope.
+- Of which we `hold` a copy.
+- Or you can `hold` the gun.
+- The sutures didn't `hold`.
+- They can't `hold` us here.
+                 

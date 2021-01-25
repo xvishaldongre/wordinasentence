@@ -1,0 +1,107 @@
+---
+title: "hi in a sentence | hi example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hi"
+---
+- Dog eat dog, `hi`-yes.
+- E. - `hi`, sweetheart.
+- `Hi`, gale, any leads?
+- `Hi`, i'm andy warhol.
+- `Hi`, i'm sueleen gay.
+- `Hi` mark, cindy, ben.
+- `Hi`, this is ed wood.
+- Inez, this is -- `hi`.
+- Look, i... `hi` honey.
+- `Hi`, allison -- daddy!
+- `Hi`, i'm peter parker.
+- `Hi`, it's me... hello.
+- `Hi`, naomi, it's joel.
+- `Hi`, wanna ride bikes?
+- `Hi`-yo, just desserts!
+- Nowhere... `hi`, daddy.
+- Sergeant lovejoy, `hi`.
+- Tell him i said "`hi`".
+- Uh, `hi`.... `hi`, marty.
+- Yeah, yes, `hi`, hello.
+- `Hi`, how'd your day go?
+- `Hi`, i'm dave caldwell.
+- `Hi`, laurie, what's up?
+- `Hi`, mrs. boatwright...
+- "`hi`, my name's ginger.
+- `Hi`, my name's lindner.
+- `Hi` weird and tiny huh?
+- Just wanted to say `hi`.
+- Listen... `hi`, it's me.
+- Say `hi` to bill for me.
+- Say `hi` to henry and...
+- `Hi`, doll, what's wrong?
+- `Hi`, honey, how's donna?
+- `Hi`, i'm harry renquist.
+- `Hi`, i'm-i'm tony lacey.
+- `Hi` there... you... huh?
+- `Hi`... what's your name?
+- `Hi` ya doin' there, ike?
+- It's ok. ..sorry... `hi`.
+- Tell egghead i said `hi`.
+- You can't say `hi` to me?
+- H and g. `hi` and goodbye.
+- `Hi`-iii... men have ways.
+- `Hi`, i'm erin brockovich.
+- `Hi`, there my pee and em.
+- Oh, `hi`... `hi`, it's me...
+- This is, uh.... `hi`, eve!
+- You wanna say `hi` to him?
+- `Hi`, aaron...what's doing?
+- `Hi` again, how's it going?
+- `Hi`, are you craig's wife?
+- `Hi` frances, got a minute?
+- `Hi`, it's nice to see you.
+- `Hi` there, little brother.
+- `Hi`... where are my shoes?
+- `Hi`, where's mrs. stanwyk?
+- Oh, `hi` -- how was dinner?
+- Room service...`hi`, sarah.
+- Say `hi` to colin for me.
+- Say `hi` to rob and carrie.
+- Um, `hi`, i'm ted peloquin.
+- Eventually, it does... `hi`.
+- `Hi`... `hi`... oh, he's fine!
+- `Hi`...i'm dr. weintraub....
+- `Hi`, lindsey, this is paul.
+- `Hi` there...can i help you?
+- I just thought i'd say `hi`.
+- You want to say `hi` to him?
+- Anyway, my number is... `hi`.
+- `Hi` everyone, door was open.
+- `Hi`, it's, um... it's nancy.
+- `Hi` i was in the laundromat.
+- `Hi`, rosalind, this is erin.
+- `Hi`... what's going on here?
+- I suppose that means "`hi`" ?
+- <u>wonderful</u> scr... `hi`.
+- `Hi`, annie, laurie... fun-ny.
+- `Hi`, i'm here to pick up ben.
+- `Hi`, now what does that mean?
+- `Hi`, want to take up dancing?
+- I just stopped in to say `hi`.
+- It's okay with me, `hi` kevin.
+- Shari, ray feels -- `hi`, mom.
+- `Hi`, daddy, what do you think?
+- `Hi`, santa claus, how are you.
+- `Hi`, you don't look very well.
+- Oh `hi`, what can i do for you?
+- `Hi`...do you work with my aunt?
+- `Hi`, guys, what you been up to?
+- `Hi`, i'm detective mark dargus.
+- `Hi`, you must be benny hammond.
+- I just -- stan... c'mon... `hi`.
+- Oh, `hi`, duane, how's it goin'?
+- Will you come in and say "`hi`"?
+- `Hi`, kathleen, i'm just working.
+- So mr. mcallister, he -- oh `hi`.
+- Wanna say `hi` to my better half?
+- Well tell her i said "`hi`" back.
+- Barry i'm fine, `hi`, how are you?
+- Come on, relax... `hi`...`hi` there.
+                 

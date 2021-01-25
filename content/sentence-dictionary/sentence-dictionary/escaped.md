@@ -1,0 +1,68 @@
+---
+title: "escaped in a sentence | escaped example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "escaped"
+---
+- You have not `escaped`.
+- No one's ever `escaped`.
+- Daughter `escaped` again.
+- Lestat `escaped` the fire!
+- Oh, so the bitch `escaped`.
+- Aiding an `escaped` criminal!
+- He called the day he `escaped`.
+- One of 'em must have `escaped`.
+- You could've `escaped` anytime!
+- We `escaped` in the last moment.
+- He `escaped`... show me the pigs.
+- What do you mean he's `escaped`?!
+- No man has ever `escaped` the web.
+- I bet she `escaped` from pennhurst.
+- How you `escaped` from the grounders.
+- I'll make it look like you `escaped`.
+- You think he'll... korda `escaped`.
+- He `escaped` from custody after 4 days.
+- That's how he `escaped` the fire... no.
+- He `escaped` through the secret passage.
+- O'brien `escaped` and could be on his way!
+- Michael myers has `escaped` from ridgemont.
+- No one has ever `escaped` from rura penthe.
+- You are an `escaped` prisoner of the reich.
+- I `escaped` with only one thing on my mind .
+- I think you've just `escaped` for the moment.
+- They heard about `escaped` prisoner on radio.
+- There were no witnesses, no `escaped` lunatic.
+- Maybe we can find it clarke `escaped`... quiet.
+- Mcmurphy killed two attendants and `escaped`...
+- You `escaped` from a locked room six years ago.
+- Someone else you think `escaped` us, like frank?
+- Yesterday in the woods, he could've `escaped`, no.
+- Then the party `escaped` into the sewers, next.
+- There are 3 `escaped` killers in this compound now.
+- I'm surprised you never `escaped` from the mountain.
+- Indentured servants, freed slaves... `escaped` slaves.
+- This monster `escaped` from cryo- prison this morning.
+- Gravity hadn't been restored by the time they `escaped`.
+- Yeah, but we `escaped` having to take care of old people.
+- The police report said an `escaped` lunatic attacked them.
+- He `escaped` to california and got picked up in long beach.
+- They look like they `escaped` from a frederick's catalogue.
+- The youngest about the same age you were when you `escaped`.
+- A little boy that has `escaped` from his nurse and-- tell me.
+- Earl williams has `escaped` -- cooley, i want to talk to you.
+- They were setting up his extradition when he `escaped` again.
+- Who knows what poison those `escaped` prisoners are spreading.
+- It `escaped` from the lab before we could finish the experiment.
+- Is it true mcmurphy killed two attendants and `escaped` yesterday?
+- Surely the odd confluence of events hasn't `escaped` you, clarice.
+- Enterprise has disobeyed orders and harbors two `escaped` convicts.
+- Who only `escaped` death in this arena because man: i say we float him.
+- Now hustle and write me a story from the point of view of the `escaped` man.
+- Did you ever think, did you think, after he `escaped`, he would come after you?
+- Locked him in room but he `escaped` us and jumped ship during night at singapore.
+- If he's `escaped` we'd have the national guard, cops'd be crawling through sewers.
+- I've been out there patrolling he `escaped`, and i'm pretty sure he's a baby demogorgon.
+- Already `escaped` once from the max-slam facility on -- we just keep him locked up forever?
+- He `escaped` from a concentration camp and the nazis have been chasing him all over europe.
+- It's possible that a burst of gravity waves `escaped` from the core, distorting space-time.
+                 

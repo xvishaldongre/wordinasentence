@@ -1,0 +1,107 @@
+---
+title: "bullshit in a sentence | bullshit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bullshit"
+---
+- I swear... `bullshit`!
+- It was all `bullshit`.
+- Mama... oh `bullshit`.
+- That is so `bullshit`!
+- That's all `bullshit`.
+- That's cop `bullshit`.
+- This is so `bullshit`.
+- With `bullshit` money.
+- A `bullshit` president!
+- Cynicism is `bullshit`.
+- It's commie `bullshit`!
+- See this `bullshit`...?
+- That's `bullshit`, son.
+- That scotch `bullshit`?
+- This is all `bullshit`.
+- No, it's not `bullshit`.
+- That is such `bullshit`.
+- That's `bullshit`, jeff!
+- That's `bullshit`, leon.
+- That's total `bullshit`.
+- This is `bullshit`, man.
+- This is such `bullshit`!
+- This is such `bullshit`.
+- This rope is `bullshit`.
+- What is this `bullshit`?
+- `Bullshit` it's cosmetic!
+- Let's cut the `bullshit`.
+- No, really... `bullshit`.
+- They - that's `bullshit`.
+- You know that `bullshit`.
+- `Bullshit`, it's foregone.
+- Don't `bullshit` me, joey.
+- Don't `bullshit` me, paul.
+- Listen to this `bullshit`.
+- That's fucking `bullshit`.
+- This is <u>`bullshit`</u>.
+- `Bullshit`, you killed him.
+- Can you just... `bullshit`.
+- Now that's `bullshit`, lee.
+- That's `bullshit`, sheriff!
+- This is `bullshit`, george.
+- This is fucking `bullshit`!
+- You know that's `bullshit`.
+- All there is is `bullshit` .
+- Don't `bullshit` me, george.
+- Don't fuckin' `bullshit` me!
+- I'm sick of your `bullshit`!
+- It's just a `bullshit` word.
+- Of rent i do not `bullshit`.
+- This is complete `bullshit`.
+- What if it's not `bullshit`?
+- A lot of fatherly `bullshit`?
+- `Bullshit` it's not accesory.
+- Come on, don't `bullshit` me.
+- Don't `bullshit` me, laurant!
+- Fuck your `bullshit` pieties!
+- Don't give me that `bullshit`.
+- I'm telling you... `bullshit`.
+- It's pure `bullshit`, sweetie.
+- I wouldn't `bullshit` you kid!
+- Oh, man... this is `bullshit`!
+- That's total utter `bullshit`.
+- That's your "rep." `bullshit`.
+- The storybooks are `bullshit`.
+- This is a bunch of `bullshit`.
+- Unfortunately it's `bullshit`.
+- What kinda `bullshit` is this?
+- Cease fire with the `bullshit`.
+- I'll tell you about `bullshit`.
+- I think that you're `bullshit`.
+- It's some political `bullshit`.
+- No, it's not `bullshit`, nancy.
+- Sling the `bullshit` elsewhere.
+- I'm sick of your `bullshit`.
+- Aw, `bullshit`, you heard wrong.
+- But it's really good `bullshit`.
+- Goddamned small town `bullshit`.
+- I'm too old for this `bullshit`.
+- It's just `bullshit` right here.
+- My kid -- `bullshit`, you don't.
+- No man, this is such `bullshit`!
+- So i wrote the `bullshit` essay.
+- What kind of `bullshit` is that?
+- You're a monument of `bullshit`.
+- [in foreign language] `bullshit`.
+- Now i'm not gonna `bullshit` you.
+- Don't `bullshit` me around, janey.
+- I hate this overpriced `bullshit`!
+- Isn't that your `bullshit` saying?
+- Not that `bullshit` about melanie.
+- Stop saying that, it's `bullshit`.
+- That's `bullshit` and i'll betcha!
+- That's `bullshit` and you know it!
+- You can't believe this `bullshit`.
+- You want to talk about `bullshit`?
+- Don't bore me with that `bullshit`.
+- Fuckin' `bullshit` is right, in'it?
+- Fuckin' `bullshit` is what this is.
+- I always thought it was `bullshit`.
+- Oh, don't `bullshit` a bullshitter.
+                 

@@ -1,0 +1,107 @@
+---
+title: "burn in a sentence | burn example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "burn"
+---
+- `Burn` the damn thing!
+- I.e., money to `burn`.
+- `Burn` 'em down, i say!
+- Did you see him `burn`?
+- There's a flash-`burn`.
+- You should `burn` them.
+- `Burn` it to a fine ash.
+- But you let them `burn`.
+- We'll `burn` the hangar.
+- No, i'm gonna `burn` you.
+- And they `burn` with them.
+- It says "money to `burn`".
+- They `burn` many villages.
+- They'll `burn` it all down.
+- They were gonna `burn` you?
+- Grounders `burn` their dead.
+- You `burn` in hell for that.
+- A witch, a witch, `burn` her!
+- Relax, `burn`, he's my guest.
+- Why would you `burn` a bible?
+- You `burn` time in the vault.
+- You promised you'd `burn` it.
+- Did you `burn` another kettle?
+- Listed it as "`burn` residue."
+- You might `burn` your fingers.
+- You want me to `burn` my book?
+- Agnes you won't `burn` in hell.
+- Do you want to `burn` to death?
+- They can `burn` for all i care.
+- They give you copies to `burn`.
+- Did you see that sucker `burn`?!
+- General webb can `burn` in hell.
+- He tried to `burn` dunbar to us.
+- Looks like you `burn` after all.
+- Why do they `burn` the villages?
+- I don't care if i `burn` in hell.
+- Once we're free, you will `burn`.
+- The last `burn` was two days ago.
+- These are a bunch of `burn`-outs.
+- They'll still `burn` it all down.
+- Try and `burn` through the ropes.
+- You `burn`, you pine, you perish?
+- We can't keep delaying the `burn`.
+- Whatiya `burn` in this thing, "v"?
+- Ethan, you <u>can't</u> `burn` out.
+- I don't care if you `burn` in hell.
+- I mean until we start to `burn` up.
+- Water doesn't `burn`... never mind.
+- You're going to `burn` up in those.
+- Let's `burn` that lab to the ground.
+- I'll `burn` in hell for all eternity.
+- I need it to `burn` these things off.
+- I propose we `burn` it to the ground.
+- So if you want me to `burn` it, fine.
+- We'll `burn` this fuckin' place down!
+- `Burn`'s wetware matches her software!
+- Their bodies `burn` night and day now.
+- Well, yeah, to `burn` them to a crisp.
+- All my manuscripts -- just `burn` them.
+- At too steep an angle, we'll `burn` up.
+- `Burn` the passport and keep the money.
+- If we make a mistake., he'll `burn` us.
+- I had a better idea, we'll `burn` them.
+- `Burn` the map and retrieve the key.
+- `Burn` the bitch who killed your mother.
+- Fuel injectors that `burn` people alive.
+- It is not for us to `burn` her, my lord.
+- Just `burn` them out...clean ...forever.
+- Right before we `burn` him at the stake.
+- Slow it, you'll `burn` your mouth again.
+- You deserve to `burn` for killing priya.
+- You didn't have to `burn` down the farm.
+- We'll blow up the place...`burn` it down.
+- We've gotta `burn` the rain forest, pops.
+- You heard of a hacker called acid `burn`?
+- A three-second `burn` to port, on my mark.
+- I think we oughta `burn` him on suspicion.
+- You're gonna `burn` just like your friend.
+- To forget, we have to start the `burn`.
+- What do you `burn`, apart from witches?
+- Explosion must of come after a slow `burn`.
+- High-intensity arcs will `burn`, submerged.
+- How many buildings does she have to `burn`?
+- It's all about `burn` time and cloud cover.
+- `Burn` a few heretics, sell some indulgences?
+- Do they still `burn` their dead or something?
+- If you `burn`, it'll crawl out of the flames.
+- Main rocket `burn` in 3, 2... no, no, no, no.
+- Your real commanders would've let you `burn`.
+- `Burn` the forest and we'll hide in the swamp.
+- Now hold on, you dumb... we got to `burn` 'em.
+- Now i'll `burn` in hell because i hate him.
+- "is it better to `burn` out than to fade away?"
+- "my tonsils won't `burn`� as life's corners i .
+- We can't just let them `burn` themselves alive.
+- He says he has gasoline set to `burn` the place.
+- I think i'll have to go out and `burn` them off.
+- Or i will `burn` your asses and snort the ashes.
+- You wouldn't think a car would `burn` like that.
+- They'll `burn` mount vernon and they'll hang you!
+                 

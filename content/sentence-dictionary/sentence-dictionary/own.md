@@ -1,0 +1,107 @@
+---
+title: "own in a sentence | own example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "own"
+---
+- Cochran�s `own` words.
+- For my `own` learning.
+- For your `own` safety.
+- From my `own` fishery.
+- Got plans of my `own`.
+- I dig my `own` graves.
+- I got my `own` fences.
+- I like it on my `own`.
+- I make my `own` rules.
+- I've got my `own` car.
+- Not eve my `own` life.
+- Our `own` special bus.
+- Sources of your `own`?
+- This is my `own` idea.
+- To his `own` daughter?
+- Wear my `own` clothes.
+- You are on your `own`?
+- 24 hours on your `own`.
+- Do your `own` mingling.
+- He had his `own` style.
+- I'll do it on my `own`.
+- Mind your `own` meal...
+- My `own` wife included.
+- They're on their `own`.
+- We `own` a ship, dodge.
+- We're on our `own` now.
+- With a few of my `own`.
+- You get ya `own` stuff.
+- You `own` a home there?
+- You `own` a hotel, sir?
+- You're your `own` baby.
+- But i do `own` a maniac.
+- Damn mind of it's `own`.
+- Does his `own` printing.
+- Get a car of your `own`.
+- Getting her `own` ideas.
+- Got a mind of her `own`.
+- Had my `own` think tank.
+- Her `own` movie theatre.
+- He's one of their `own`.
+- I have my `own` company.
+- I have my `own` warrant.
+- I'll do my `own` typing!
+- I'm-i'm my `own` person.
+- I'm my <u>`own`</u> man.
+- In their `own` language?
+- I stay in my `own` yard.
+- I've got my `own` movie.
+- I've got my `own` ropes.
+- My `own` self-interests.
+- Our `own` ray gallagher.
+- She her `own`, you know?
+- So... you on your `own`.
+- Starting with his `own`.
+- We kind of `own` horses.
+- Well, to each his `own`.
+- We make our `own` rules.
+- Your life is your `own`.
+- Your `own` company even.
+- "bring your `own` boobs."
+- Build our `own` compound.
+- Cutting off my `own` ear?
+- Eyes on your `own` belly!
+- For your `own` amusement?
+- Got their `own` language.
+- Got your `own` sign, huh?
+- He didn't `own` up to it.
+- I don't `own` this place.
+- I know my `own` capacity.
+- I live in my `own` house.
+- It's coming on its `own`.
+- It's for your `own` good.
+- Lets you `own` a cruiser.
+- Mind your `own` business.
+- Not on my `own` beat, no.
+- On your `own` a lot, huh?
+- Outpost doesn't `own` em.
+- Paid for my `own` ticket.
+- Return to our `own` time?
+- Starting with your `own`.
+- This is on my `own` time.
+- To save their `own` skin.
+- We could build our `own`.
+- We'll make our `own` fog.
+- We start our `own` class?
+- With her `own` free will.
+- You don't `own` this man!
+- Your `own` gas cooker?
+- He dugged his `own` grave.
+- He has a cat of his `own`.
+- He loves in his `own` way.
+- I always do my `own` work.
+- I came to him on my `own`.
+- I create nothing; i `own`.
+- I deal with my `own` shit.
+- I done that my `own` self.
+- I don't `own` no shotguns.
+- I love them like my `own`.
+- I'm not on my `own`, am i?
+- I'm on my `own` countdown.
+                 

@@ -1,0 +1,97 @@
+---
+title: "ordered in a sentence | ordered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ordered"
+---
+- Who `ordered` the tea?
+- You `ordered` it here?
+- Do as i have `ordered`!
+- He `ordered` champagne.
+- Cappuccino as `ordered`.
+- What have you `ordered`?
+- I `ordered` a czech girl.
+- I `ordered` to hold fire.
+- Look, i `ordered` coffee.
+- You `ordered` a winnebago?
+- I had `ordered` some books.
+- I have `ordered` champagne.
+- She `ordered` them special.
+- Who `ordered` this retreat?!
+- I `ordered` no interruptions.
+- I've been `ordered` into bed.
+- I also `ordered` some food ...
+- Just what the doctor `ordered`.
+- Just what the doctor `ordered`.
+- I've `ordered` nothing from you.
+- Reporting as `ordered`, captain.
+- I have `ordered` conscriptions...
+- `Ordered` this the day i met you.
+- Ya see, i `ordered` that special.
+- I was `ordered` to by the captain.
+- We've been `ordered` to - trouble?
+- I `ordered` moe's mail-order bride.
+- I just `ordered` some more vitamins.
+- I `ordered` you to defend this ship.
+- We've been `ordered` to investigate.
+- Have you `ordered` tea or a cocktail?
+- I `ordered` six already this morning!
+- The commander `ordered` me not to be.
+- Do you have the component i `ordered`?
+- I've `ordered` them to keep searching.
+- I know what you `ordered`, i was there!
+- I can't believe he `ordered` white wine.
+- I thought he `ordered` us to ignore them.
+- Maybe he never `ordered` the weapon, lou.
+- So...it was john that `ordered` you here?
+- I've `ordered` him to join us three times.
+- To "do you have the component i `ordered`?"
+- You `ordered` trikru to clean up the blood.
+- As you know, he `ordered` you to stand down.
+- Hundred dollar fine and `ordered` to desist.
+- I `ordered` that winnebago you always wanted!
+- There you are, boss, just like you `ordered`.
+- Dunois... was it you who `ordered` the attack?
+- But the captain `ordered` you hard to starboard.
+- Johnny came in here, he `ordered` bread from me.
+- Mr. chekov, i `ordered` spock's quarters sealed!
+- Koessler `ordered` it as part of your evaluation.
+- Oh my god, he just `ordered` a giant glass of milk!
+- The only thing i `ordered` by mistake is the guests.
+- There's an autopsy `ordered` at bellevue immediately.
+- Will we...be able to get who `ordered` it out of them?
+- Yo, we're a midseason replacement, `ordered` 12 shows.
+- Willard, g-4 headquarters, reporting as `ordered`, sir.
+- Awhile back he `ordered` some bibles- -i've brought them.
+- Yesterday she `ordered` us to march on the valley, - bra!
+- You know, i think i... `ordered` some just the other day.
+- And because you were also `ordered` we'll use emori again.
+- Springfield, it was my no-good kid that `ordered` your wife.
+- Does miss channing know we `ordered` domestic gin by mistake?
+- I told him koessler had `ordered` the report, kept it secret.
+- That you've packed your bags and `ordered` the car and - yes.
+- You `ordered` him to run, i promised that you'd be cool, okay?
+- Jeanne... the king has `ordered` us not to ride with you anymore.
+- I'm counting on it... we've been `ordered` to head to sector 3274.
+- If fired upon, tell our fighters that they are `ordered` to engage.
+- The hutu army have come and `ordered` us all of us out of the hotel.
+- In the old days, jimmy would have `ordered` doubles and eaten it all.
+- I'd lose my deposit, besides, i've already `ordered` the ammunition...
+- You `ordered` all members of the royal family to attend you at balmoral.
+- All this time you were leading me on -- i think that's what you `ordered`.
+- I will only issue such instructions when `ordered` to by the president.
+- The council has `ordered` that no one but the science team goes to genesis!
+- When you `ordered` a pie it came with a little plastic madonna in the middle?
+- As so `ordered` by russell prime, then we need to make the host uninhabitable.
+- No, see, he always `ordered` a bottle of dom perignon when he was ready to go.
+- So you have no absolute proof that sergeant pinback `ordered` you to detonate.
+- I `ordered` him positioned in a spot of complete safety, far from the fighting.
+- They `ordered` an autopsy and discovered her body had been stolen from the morgue.
+- You could say we represent the <u>un</u>official view of a well-`ordered` society.
+- Agent mulder -- agent scully says it was she who `ordered` you out of the building.
+- After all, it was you who `ordered` this specimen, received it here, and paid for it.
+- A further impediment is that the army garrison has been `ordered` to move on from liberty.
+- I have `ordered` a drill of the royal guard for midnight, and must be clear-headed for it.
+- We've been `ordered` to escort you through federation space to your meeting place on earth.
+- Alert transporter room -- enterprise to reliant: you are `ordered` to surrender your vessel.
+                 

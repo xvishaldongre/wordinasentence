@@ -1,0 +1,107 @@
+---
+title: "and in a sentence | and example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "and"
+---
+- Assault `and` battery?
+- Assholes `and` elbows!
+- Bellamy `and` octavia?
+- Be quiet `and` listen.
+- Between 75% `and` 80%.
+- Bialystock `and` blum.
+- Chair, cup `and` ball.
+- Clients come `and` go.
+- Codfish `and` cockles!
+- Criminals `and` fools.
+- Doctors `and` lawyers.
+- Drop `and` give me 50!
+- Echoes `and` memories.
+- Ethel `and` bert lane.
+- Fast `and` loose, man.
+- Fast `and` or furious.
+- Fenster `and` hockney?
+- Fifth `and` mayflower.
+- First `and` only blow.
+- For rape `and` murder.
+- Frustrated `and` sick.
+- Full stop `and` fire !
+- Gammon `and` trotters!
+- Good men, `and` brave.
+- Go out `and` find her!
+- Hear me `and` rejoice.
+- He drops in `and` out.
+- He took me in `and`...
+- His mommy `and` daddy?
+- I bark `and` he bites!
+- I could stay `and` go.
+- I heard you `and` mom.
+- ..i'm fine..`and` you?
+- I'm sorry, `and` legs.
+- It is dark `and` cold.
+- It was nip `and` tuck.
+- Jellyfish `and` chips.
+- Legs, butt `and` hair.
+- Like you `and` gordon?
+- Look at me `and` rick.
+- Loud `and` clear, doc.
+- Loud `and` clear, kid.
+- Margo `and` her money.
+- Me `and` jack kerouac.
+- Me `and` my big mouth.
+- Mom `and` i got plans.
+- Mr. `and` mrs. majors.
+- My meat `and` two veg.
+- Nice `and` gooey, too.
+- Now you `and` david...
+- Oh...`and` who is it!?
+- Oh, black `and` white?
+- Oh... this `and` that.
+- Onwards `and` upwards!
+- Or get sick `and` die?
+- Orson welles `and` me.
+- Over `and` out, helen.
+- Pride `and` prejudice.
+- ...quick in `and` out.
+- Ringing `and` buzzing.
+- Rum `and` ice, please.
+- Say it, out `and` out.
+- See `and` raise 1,000.
+- 'sex `and` paychecks.'
+- Shh... over `and` out.
+- Shit `and` fried eggs.
+- Shrimp `and` lobsters.
+- Shut up `and` get out.
+- Shut up `and` tell me.
+- Sit down..`and` drink.
+- So cold `and` distant.
+- So i went `and` asked.
+- So profound `and` fat.
+- Stensland `and` meeks.
+- Stole `and` tole lies.
+- Stripes `and` circles.
+- Take the van `and` go.
+- Thanks, `and` goodbye.
+- That, `and` showering.
+- That's my ma `and` pa.
+- The drugs `and` stuff.
+- The yellow `and` pink.
+- They hit me `and` ran.
+- They tried `and` died.
+- This car -- `and` you.
+- "tied `and` tethered".
+- Travis `and` bob head.
+- Try four `and` a half.
+- Two `and` a half days?
+- Uh, watch `and` learn.
+- Valiant `and` valiant?
+- Walker `and` williams.
+- Warren beatty `and`...
+- Washington `and` holt.
+- Wash up `and` go home.
+- Well try `and` get it.
+- What fire `and` music?
+- What is it `and` why?
+- Yeah, `and` dangerous.
+- Yeah, `and` for yours.
+                 

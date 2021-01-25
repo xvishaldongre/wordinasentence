@@ -1,0 +1,7 @@
+---
+title: "hexed in a sentence | hexed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "hexed"
+---
+## Unfortunately, we have no example sentences for hexed                 

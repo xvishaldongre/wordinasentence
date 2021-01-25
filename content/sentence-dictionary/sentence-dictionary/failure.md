@@ -1,0 +1,74 @@
+---
+title: "failure in a sentence | failure example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "failure"
+---
+- I was not a `failure`.
+- It's not the `failure`.
+- He was a `failure`, too.
+- It's a system `failure`.
+- I've no fear of `failure`.
+- You think i'm a `failure`!
+- Progressive organ `failure`.
+- Some kind of power `failure`.
+- You're not a `failure`, dick.
+- Now his `failure` is complete.
+- Catastrophic systems `failure`.
+- I know how they reward `failure`.
+- I, i, i can't invest in `failure`.
+- But the experiment was a `failure`.
+- 1 need people who prevent `failure`.
+- `Failure` in the actuator mechanism.
+- Remember your `failure` at the tree!
+- If you consider `failure` experience.
+- Even your vision board is a `failure`.
+- Catastrophic systems `failure` in 15...
+- Intermitant `failure` in scan mode "r".
+- Tonight, you trigger a power `failure`.
+- According to you i'm a sexual `failure`.
+- Every `failure`'s a burnt out processor.
+- Well, who wants to cook for a `failure`?
+- A mission-critical `failure` is imminent.
+- I consider it less my `failure` than his.
+- I just couldn't tell you i'm a `failure`.
+- My fpc shows another impending `failure`.
+- This is not a man who tolerate `failure`.
+- You could not live with your own `failure`.
+- It's ok; i'm sorry i called you a `failure`.
+- Ah, she has the look of `failure` right there.
+- Anybody in any business can predict `failure`.
+- Like me -- but on a grander scale of `failure`.
+- Every attempt to fight them has ended in `failure`.
+- So she won't be a complete `failure` in this world.
+- No one wants another `failure` right now, god knows.
+- She is very young -- i have an old habit of `failure`.
+- "`failure` is the fog through which we glimpse triumph."
+- That it's okay to be a `failure`, because it's not okay!
+- I don't really need it, because i'm cloaked in `failure`.
+- Forget it, the main thing-- --did you call me a `failure`?
+- I'd call that a total `failure` to reach mission objective.
+- Inertia ... stalin and the cold war... a `failure` of nerve.
+- Oh, any engineer worth his salt knows to plan for `failure`.
+- Shows an impending `failure` of the antenna orientation unit.
+- That's all just ways of people justifying their own `failure`.
+- War is a `failure` of everything, i got to stop procrastinating.
+- I'm projecting total systems `failure` in a little under four hours.
+- Total system `failure`, - but if she's out of the way... - game over.
+- It's not because of georgina -- because of dr. macfarlane's `failure`?
+- Geez, i -- `failure` to deliver a blue letter is grounds for dismissal.
+- It might please you to know that i was a `failure` as a wife and mother.
+- You were the first hibernation `failure` in the history of space travel.
+- I know you did, frank, but i assure you there was an impending `failure`.
+- This place is reacting to you, or the source of their greatest `failure`.
+- But is hayes really going to start his watch with such a public `failure`?
+- But that stuff we ran up in the lab wasn't a complete `failure` after all.
+- If you push him into something, if you ride him-- he won't be a `failure`!
+- They were designed to fall automatically in a system `failure` -- what doors?
+- A confession of `failure` for every one of you who ends up in the stripy hole.
+- I feel like it was a `failure` of the imagination on our part naming you jonah.
+- So, you were a `failure` at the longest, most important relationship in your life.
+- I am being sunk by a society that demands success, when all i can offer is `failure`.
+- Let this be a reminder to you all that this organization will not tolerate `failure`.
+- I won't see this happen to him-- i won't see you make him feel like a `failure` too!
+                 

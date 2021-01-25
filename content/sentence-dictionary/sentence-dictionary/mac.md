@@ -1,0 +1,80 @@
+---
+title: "mac in a sentence | mac example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mac"
+---
+- How about a big `mac`?
+- How's your war, `mac`?
+- Sorry, `mac`, i can't.
+- This is the new `mac`.
+- Just ignore her, `mac`.
+- `Mac`, can you hear me?
+- `Mac`'s really unhappy.
+- Weeds will grow, `mac`.
+- Pretty nasty out, `mac`.
+- This is for you , `mac`.
+- How is it looking, `mac`?
+- He's `mac` all over again.
+- How bad did `mac` get you?
+- How ya gettin' out, `mac`?
+- `Mac`, that was wonderful.
+- Someone better tell `mac`.
+- What's your jigsaw, `mac`?
+- `Mac` threw cobb out again.
+- Remember this beach, `mac`?
+- Who wants `mac` and cheese?
+- I'm not talking about `mac`.
+- `Mac` looks at taylor - `mac`.
+- "`mac`, throw the grenades!"
+- The joint's not open, `mac`.
+- W-w-w-what is it, m-m-`mac`?
+- You only want one big `mac`?
+- `Mac`'s a fantastic director.
+- Shhh... where ya goin', `mac`?
+- `Mac`... let's get out of here.
+- What kind of war is this `mac`?
+- Come on -- not someone -- `mac`.
+- Do you feel anything yet, `mac`?
+- I'll tell you something `mac`...
+- The best ones always copy `mac`.
+- Wh-wh-where ya going, m-m-`mac`?
+- We at `mac` have a trial to go to!
+- What are they doing now, `mac`?
+- Well you did the right thing `mac`.
+- I need to see him now... hey, `mac`.
+- `Mac`, where the hell is that pump!!
+- `Mac`, you take care of the details.
+- I hear you `mac` and i appreciate it.
+- `Mac`'s a pretty great director, joe.
+- C'mon, we can always sneak a big `mac`.
+- Because you know `mac` thinks she's god.
+- Sending `mac` out on a little recon work.
+- Used to be a guy named `mac`-- something.
+- My life started when `mac` went on nights.
+- Missing chili, absence of `mac` and cheese!
+- Oh, `mac` ran up this little crowd-pleaser.
+- Problem is it seems `mac` blew a few fuses.
+- Does anyone want some more `mac` and cheese?
+- Imagine `mac` shrunk to two-and-a-half feet.
+- Yeah, take us back to the dumbwaiter, `mac`.
+- Yes `mac`, but the guests are requesting it.
+- For `mac`, and joe, and the rest of the guys.
+- Sounds like you've been talking to `mac` too much.
+- Well `mac` knew the score even if aunt ella didn't.
+- `Mac`, did you ever find out who molly went off with?
+- `Mac`, what about the suit compartments on this level?
+- You didn't do anything to the monitors, did you `mac`?
+- If king and country call, `mac`, you go as soon as i will.
+- I heard the drum and fife yesterday, `mac`, marching past.
+- My...wings... `mac`, you really earned your wings this flight.
+- I don't know how you managed to hack into my `mac`, but: bravo.
+- `Mac`, i need you to help us out with a little technical problem.
+- `Mac` went back in and got his shotgun but they was way ahead of him.
+- `Mac`, tomorra mornin' when you shape the men put terry in the loft.
+- She said, 'i know you love me, `mac`, but you've never loved me enough.'
+- You're saying the thief wants us to think it's `mac` but it's really not.
+- I just thought, you know, we'd sneak a big `mac` on mommy, like we used to.
+- `Mac`, you know that nice urn by the front door, the one i got up in stillwater?
+- Just a reminder we have fabulous cuisine available -- `mac`, i have a favor to ask you.
+                 

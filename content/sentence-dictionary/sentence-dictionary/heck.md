@@ -1,0 +1,62 @@
+---
+title: "heck in a sentence | heck example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heck"
+---
+- Who the `heck`'re you?
+- `Heck`, you don't know!
+- Get the `heck` in there!
+- `Heck`, i know that mom!
+- ...the `heck` d'ya mean?
+- What the `heck` is this?
+- What the `heck` d'ya mean?
+- What the `heck` is this?!!
+- That's a `heck` of a drive.
+- What the `heck` are these?!
+- What the `heck` they doin'?
+- He sure as `heck` does that.
+- Well, how the `heck` are ya?
+- What the `heck` do you mean?
+- What the `heck` have i done?
+- What the `heck` is up there?
+- What the `heck` are those for?
+- What the `heck` are you doing?
+- Because i sure as `heck` am not.
+- Geez, what the `heck`'re you?...
+- What the `heck` are you playing?
+- What the `heck`'s wrong with it!
+- `Heck`, even our dogs up and die.
+- How the `heck` <u>are</u> you...?
+- We've been on a `heck` of a roll.
+- What the `heck`'s she doin', lou?
+- What the `heck` were you thinkin'?
+- It's a limited - a `heck` of a lot.
+- `Heck` of a way to treat a taxpayer.
+- What the `heck`'re you talkin' about?
+- `Heck`, didn't you ever watch macgyver?
+- Fuck that, i mean, the `heck` with that.
+- `Heck`, it's been such a long time, mike.
+- `Heck`, it might even swallow us up whole.
+- `Heck`, you're silly with it, aintcha boys?
+- Wade, what the `heck`'re you talkin' about?
+- I don't know what the `heck` they do with 'em.
+- We should try, but it is one `heck` of a risk.
+- You don't think he's mixed up in - `heck`, yah.
+- We should try, but it is one `heck` of a rescue.
+- This is gonna be one `heck` of the match tonight.
+- Well, `heck`, i'll tell you anything you want to know.
+- I'm getting one `heck` of a glare off your dress there.
+- I had a `heck` of time getting these drapes from my mom.
+- Oh that's right -- they squished him... `heck` of a guy.
+- `Heck`, i'd probably skip my own birthday party for a date.
+- `Heck`, it'll probably clear up once we drive around the corner.
+- You've worked hard on this story -- `heck`, you broke it for us!
+- Because i kept asking my husband where the `heck` could junior be?
+- Unicorn -- a kind of animal -- u-n-i-c-o-r-n-... what in `heck`'s that?
+- `Heck`, if i'm only gettin' bank interest, i'd look for complete security.
+- Now i'm thinking i should just give up, serve out my term, what the `heck`?
+- This was s'posed to be a no-rough stuff-type deal - we need more - the `heck` d'ya mean?
+- Well... `heck`, this is the first time i ever saw the customer high-pressure the salesman!
+- When it comes to it, what the `heck` is it your business what they do, this boy and girl...
+                 

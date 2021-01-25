@@ -1,0 +1,107 @@
+---
+title: "people in a sentence | people example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "people"
+---
+- But `people` get lost.
+- Does he have `people`?
+- He hates fat `people`.
+- I did for my `people`.
+- I hate these `people`.
+- I know these `people`.
+- I like these `people`.
+- I'll tell my `people`.
+- I'm not rich `people`.
+- I saved some `people`.
+- I tore `people` apart.
+- I wanna help `people`.
+- Let these `people` go.
+- Lots of `people` were.
+- Mostly young `people`.
+- Our `people` know you.
+- `People` are sleeping.
+- `People` can hear you.
+- `People` can see this.
+- `People` get obsessed.
+- `People` love me here.
+- `People` need to know.
+- `People` of the world!
+- `People` put money in.
+- `People` smile, right?
+- `People` throw stones.
+- `People` without cars.
+- `People` won't notice.
+- Pierce meets `people`.
+- Some `people` like it.
+- Stop scaring `people`.
+- Ten seconds, `people`.
+- The `people`'s friend.
+- These earth `people` .
+- They're good `people`.
+- They're just `people`.
+- They're nice `people`!
+- They're your `people`.
+- Those are my `people`.
+- To save your `people`.
+- Two minutes, `people`.
+- Um, too many `people`?
+- What kind of `people`?
+- Where are my `people`?
+- You despised `people`.
+- You killed 6 `people`.
+- You know the `people`.
+- You `people` are sick.
+- You `people` need you.
+- Your kind of `people`.
+- A lot of `people` died.
+- And so are my `people`.
+- So are my `people`.
+- Bring my `people` home.
+- Head 'em out, `people`.
+- Hell is other `people`.
+- Help `people`, i guess.
+- His `people` will care.
+- Humpbacked - `people`.?
+- I like you `people` ...
+- It killed two `people`.
+- Like starving `people`?
+- Look at these `people`.
+- Lots of `people` do it.
+- More `people` will die.
+- Now let my `people` go.
+- Now, move it, `people`!
+- Now you're my `people`.
+- Octavia is my `people`.
+- On your feet, `people`!
+- Our `people` are there.
+- `People` are suffering.
+- `People` get burned up.
+- `People` have patterns.
+- `People` love that guy.
+- `People` love westerns.
+- `People` make mistakes.
+- Seven million `people`.
+- Six `people` mutilated?
+- Then half the `people`.
+- The `people` loved her.
+- These are our `people`.
+- They have our `people`.
+- They lost 400 `people`.
+- This was your `people`.
+- We need these `people`.
+- We're all pod `people`?
+- Were they bad `people`?
+- What will `people` say?
+- Who are these `people`?
+- Who are these `people`?
+- With how many `people`?
+- You find `people` jobs?
+- You `people` are crazy!
+- You `people` baffle me.
+- Your `people` are safe.
+- A god to these `people`!
+- A lot of `people` don't.
+- And gather our `people`.
+- Apone: steady, `people`.
+                 

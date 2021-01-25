@@ -1,0 +1,52 @@
+---
+title: "Ned in a sentence | Ned example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Ned"
+---
+- `Ned` is wrong for it.
+- `Ned`, i seen... death.
+- I ain't the same, `ned`.
+- Give it a rest `ned`, huh?
+- `Ned`... is that you, `ned`?
+- Now, you hear that, `ned`?
+- I'll have `ned` write it up.
+- This is your version, `ned`.
+- Why would anybody kill `ned`?
+- He's clear of the horse, `ned`.
+- You don't agree with that, `ned`?
+- So, `ned` flanders gets into heaven.
+- [music stops] i found out from `ned`.
+- Alice, this is jack, marcie and `ned`.
+- `Ned`, i swear i knew nothing of this!
+- We done stuff before for money, `ned`.
+- You don't have to patronize me, `ned`.
+- Well, i ain't like that no more, `ned`.
+- It wasn't only that--`ned` was in a jam.
+- Shit, `ned`, this ain't the time to quit.
+- Now `ned`'s a hell of a shot with a rifle.
+- `Ned`�i know�i know the speech is excellent.
+- And i have them move you away `ned` flanders.
+- `Ned` an' the kid, my partners, are they... ?
+- He wants romeo for `ned` and the admiral's men.
+- I guess we'll catch him before... `ned`'s share?
+- By america's `ned` flanders to the north, canada.
+- Nobody didn't kill `ned`, he went south yesterday.
+- Uh, `ned` flanders, you have been a sinner, please.
+- `Ned` is gonna do whatever he wants to do, you know.
+- I seen the angel of death `ned`, an' i seen the river.
+- Didn't give us nothin' but his own name... `ned` roundtree.
+- I ain't blamin' her, `ned`, i ain't holdin' it against her.
+- `Ned`, don't pay no mind to what the kid said about the money.
+- It didn't seem to matter--i didn't care-- --until he roped `ned` in.
+- `Ned` flanders, i swear to you i will use every ounce of skill nerd.
+- I leave the scene in your safe keeping, `ned`, i have a sonnet to write.
+- Oh, `ned`, i'm scared of dyin'... well, that's good now, ain't it, bill?
+- But `ned` alleyn and the admiral's men have the playing of it as the rose.
+- We'll take `ned` his share together so you don't figure i run off with it.
+- This here money, take my share an' `ned`'s an' leave it with my youngsters.
+- 6-day hike through sandstorm country okay, `ned`, look, god is the love, are you kidding?
+- Shit, `ned`, if we're lucky, we could kill him by nightfall... or maybe tomorrow morning.
+- He was making him... answer questions... and beating him up... and then... `ned` just died.
+- We are in desperate want of a mercutio, `ned`, a young nobleman of verona viola de lesseps.
+                 

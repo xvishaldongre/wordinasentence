@@ -1,0 +1,103 @@
+---
+title: "thoughts in a sentence | thoughts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thoughts"
+---
+- Process my `thoughts`.
+- I have some `thoughts`.
+- Shifting for `thoughts`.
+- By reading my `thoughts`?
+- Having second `thoughts`?
+- Penny for your `thoughts`.
+- Penny for your `thoughts`?
+- Any `thoughts` on that one?
+- I have no inner `thoughts`.
+- Who needs these `thoughts`?
+- A franc for your `thoughts`.
+- I have bad `thoughts` on it.
+- All my `thoughts` are on them.
+- Any `thoughts` on casting yet?
+- I had impure `thoughts` really?
+- Full of useless `thoughts`, eh?"
+- Uh, happy `thoughts`, et cetera.
+- Yes, your `thoughts` betray you.
+- You're thinking deep `thoughts`.
+- Who doesn't have such `thoughts`?
+- I've no `thoughts` on the subject.
+- Kirk, i must have your `thoughts`.
+- Any new `thoughts` on what you did?
+- Don't be sorry for your `thoughts`.
+- My `thoughts` go haywire sometimes.
+- No more `thoughts` from your asses.
+- Your `thoughts` betray you, father.
+- You read my `thoughts`, mr. holland.
+- The bad `thoughts` would go away.
+- Any further `thoughts` on the subject?
+- A penny for your `thoughts`, mon cheri.
+- I never had that many first `thoughts`.
+- I only wanted to be in your `thoughts`.
+- I think maybe i have second `thoughts`.
+- I only molested you in my `thoughts` ...
+- Taking your `thoughts` in hand, huh... ?
+- I have intrusive `thoughts` all the time.
+- Let thy `thoughts` be guided you know it.
+- "`thoughts` that lie too deep for tears."
+- Too bad you can't control your `thoughts`.
+- Bloom, worlds are turned on such `thoughts`!
+- He was roman, okay, think pretty `thoughts`!
+- I'd like to hear your `thoughts` on the war.
+- I have `thoughts` of my own once in a while.
+- Look at us finishing each other's `thoughts`.
+- Oh, there's a lot of dark `thoughts` in there.
+- Let thy `thoughts` be guided i think i hear it!
+- Susie, you're very much in my `thoughts` today.
+- You really do have those `thoughts`, don't you?
+- You shouldn't even be having `thoughts` like...
+- It's one of those `thoughts` you keep to yourself.
+- There are three `thoughts` that immediately occur.
+- We don't need to think bad `thoughts`, do we mama?
+- Yeah, well keep your filthy `thoughts` to yourself.
+- Contamination versus irradiation... your `thoughts`?
+- I've had a lot of bad `thoughts` since my daddy died.
+- It's easy enough to read the `thoughts` of a newcomer.
+- I'd have second `thoughts` on that, but then i know 'em.
+- You... downloaded... my `thoughts`, my memories, even...
+- You actually address yourself by name in your `thoughts`?
+- I'm trying to think really profound `thoughts`, but i can't.
+- Because, i'm having `thoughts` i hardly know what to do with.
+- Maybe it's not my place to speculate on his private `thoughts`.
+- Yes, when i was younger i had `thoughts` about public office...
+- Been known to give a few people second `thoughts` about the job.
+- It diminishes our lives, you read our `thoughts` sergeant miller?
+- You need to think about good `thoughts` while you're still a boy.
+- You want to tell me what, if any, real `thoughts` you had lately?
+- I mean, if you're having second `thoughts`, my offer still stands.
+- Those `thoughts` about my cousin elena -- they were just `thoughts`.
+- I have these strange `thoughts`, i don't know where they come from.
+- To bring myself into your `thoughts` - so i could be as we are now.
+- Make it clear to the people of arkadia your `thoughts` are chemical.
+- To exchange our `thoughts` - what does a russian know about business?
+- Have you had any more `thoughts` about what you'd like to be doing now?
+- No one will notice unless they have such `thoughts` in the first place.
+- For the first time in my life i began to know really violent `thoughts`.
+- I'm sick of my own complaints ... got to get me a new set of `thoughts`.
+- "i wish that i could find a way; to speak my `thoughts` on mother's day.
+- "the quotations when engraved upon the memory give you good `thoughts`."
+- I watched your mind work, heard your dirty `thoughts` -- it was the mall.
+- You mean you didn't have any gay `thoughts` when you were my age... andrew.
+- Any `thoughts` on why anybody'd be growing corn in the middle of the desert?
+- Eight years alone with my `thoughts` i got to remind myself what a real man is.
+- Anythin' interestin' in the world come out of somebody's weird `thoughts`, sailor.
+- Lula, sometimes i gotta admit, you come up with some weird `thoughts`... shhhhh...
+- Sometimes -- tell me something, honestly, you ever have second `thoughts` about us?
+- Exactly because i know this is a time when you need to be alone with your `thoughts`.
+- I knew i was in a woman's `thoughts` when i was shooting it out with those assassins.
+- Gentle stuff like talking, sharing `thoughts` and ideas, secrets and past experiences.
+- In case you have any second `thoughts`, there is nothing more powerful than the truth.
+- They come and go as naked as the day god created them... do they have such `thoughts`?
+- He thinks it's because you have second `thoughts` about his ability to stop the rebels.
+- Purge these wicked `thoughts` of yours on paper; maybe they'll govern you less in life.
+- He opened up for her a whole beautiful world full of knowledge and `thoughts` and ideals.
+- All this day an unaccustomed spirit lifts me above the ground with cheerful `thoughts`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "went in a sentence | went example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "went"
+---
+- He `went` to the john.
+- I am the great `went`.
+- I know you `went` out.
+- I nearly `went` crazy.
+- It all `went` so fast.
+- It almost `went` well.
+- I `went` camping once.
+- I `went` for the head.
+- I `went` to her house.
+- I `went` to holy name.
+- I `went` with seymour.
+- Others `went` further.
+- She `went` to the spa.
+- So i `went` and asked.
+- The lights `went` out.
+- The plane `went` down.
+- Who `went` back there?
+- You `went` for a walk.
+- You `went` to berkley?
+- About where she `went`.
+- He `went` in mr. grant.
+- He `went` through here.
+- It all `went` sideways.
+- It `went` well tonight.
+- I `went` back to sleep.
+- I `went` by for backup.
+- I `went` out to delmar.
+- I `went` to confession.
+- I `went` to go see him.
+- I `went` to the movies.
+- I `went` to your place.
+- My brother `went` here.
+- She `went` crazy, rose.
+- Something `went` wrong.
+- `Went` to college, huh?
+- `Went` to south dakota.
+- When you `went` down...
+- You `went` by the book?
+- You `went` underground.
+- Conan `went` to harvard.
+- Finally `went` bankrupt.
+- He `went` for my weapon.
+- He `went` off someplace.
+- He `went` to the garage.
+- I know where she `went`.
+- It `went` over her head.
+- It `went` right through.
+- I `went` as a detective.
+- I `went` down to tahiti.
+- I `went` out last night.
+- Lucy `went` to the cops!
+- The gun just `went` off.
+- Tommy `went` to see him.
+- What `went` on in there?
+- When you `went` running.
+- You `went` out with her?
+- You `went` to my father?
+- You `went` to the party?
+- He `went` straight to it.
+- I just `went` for a walk.
+- It `went` horribly wrong.
+- I `went` looking for you.
+- I `went` out on the boat.
+- I `went` to uc san diego.
+- She `went` up by herself.
+- That's the way it `went`.
+- The place `went` apeshit.
+- They `went` after castro.
+- They `went` off together.
+- `Went` there like a fool.
+- `Went` to the state fair.
+- We `went` about together.
+- We `went` to the funeral.
+- Where i `went` to school.
+- Where <u>they</u> `went`.
+- You know where he `went`?
+- Your contract `went` out.
+- You `went` to university?
+- It all `went` to shit.
+- Dad, i'm so glad i `went`.
+- Frank, he `went` off, too.
+- He `went` south yesterday.
+- He `went` through my room.
+- He `went` to find the man.
+- I thought you `went` home.
+- It `went` well, i thought.
+- I `went` because you `went`.
+- I `went` to enough dances.
+- I `went` to public school.
+- Maybe agnes `went` to him.
+- She `went` up to her room.
+- So you `went` underground?
+- Tell 'em i `went` fishin'!
+- Then you `went` freelance?
+- `Went` out before service.
+- `Went` to school with him.
+- We `went` out a few times.
+- What `went` on back there?
+- Your suit `went` over big.
+- You `went` about together?
+                 

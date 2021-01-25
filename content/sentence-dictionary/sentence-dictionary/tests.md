@@ -1,0 +1,81 @@
+---
+title: "tests in a sentence | tests example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "tests"
+---
+- 'ban the atom `tests`!
+- Six months of `tests`.
+- Then you have `tests`.
+- I've read your `tests`.
+- Waiting for dna `tests`.
+- There are no `tests`, ellie.
+- When do we take the `tests`?
+- The `tests` came back fine.
+- My stuff while he runs `tests`.
+- Maybe we could run some `tests`.
+- They're just simple `tests`, nan.
+- Did we get those dna `tests` back?
+- Kaminsky's `tests` are impossible.
+- Without more `tests`, experiments.
+- Anything abnormal in those `tests`.
+- Can you think of any other `tests`?
+- Application, psych-`tests`: m.m.p.i.
+- Have they done blood `tests` on him?
+- I have to study it, run some `tests`.
+- I took three pregnancy `tests` today.
+- Let's see what the blood `tests` say.
+- Maybe the `tests` were right, marrow.
+- Right after we get the blood `tests`.
+- We'll see how your blood `tests` look.
+- We're waiting for the sperm `tests`...
+- I'd like to have them run some `tests`.
+- I kinda get nervous when i take `tests`.
+- We... we're gonna continue to run `tests`.
+- Take the silly `tests`, fill out the forms.
+- Forget the `tests`, you shoulda just asked me.
+- It's always the assholes that pass the `tests`.
+- Dr. redfield just wants to give you some `tests`.
+- I should have done more, run more `tests` -- reed.
+- I've got some toxin build-up `tests` still to run.
+- I was waiting for the doctors to run some `tests`.
+- They don't know... they've gotta run more `tests`.
+- They had everyone start taking those psych `tests`.
+- We could go down and get our blood `tests` tomorrow.
+- After a long day of turing `tests`, you gotta unwind.
+- Oh i don't know, i think the `tests` work pretty well.
+- But we'll run the `tests`, and we'll see what comes up.
+- Field commanders, _ anything abnormal in those `tests`.
+- They're doing `tests`, that's why i'm home from school.
+- We need to run `tests` to see the extent of the damage.
+- Yeah, well, i was always crap at `tests`, so... please.
+- Actually, these `tests` weren't available twenty years ago.
+- Hebron for a few days, run lots of `tests`, charge a bundle.
+- I'll run some preliminary `tests`, see what we can rule out.
+- There's a three-day wait - blood `tests`, things like that...
+- Now, we still have loads of `tests` to run, now we have faith.
+- Your average rolls royce doesn't have to pass as many `tests`.
+- How did you even generate enough pee for three pregnancy `tests`?
+- We need to do some `tests`...i'd like to ask you a few questions.
+- That sonofabitch `tests` my quaker patience to the breaking point.
+- They can run some blood `tests` on it, someone has to stay up here.
+- We can monitor the cloud's approach and observe the `tests` from here.
+- We've used them before on atomic `tests`... odd- looking, aren't they?
+- I'm still running `tests`, but his system it's just like the simulator.
+- Now lay back we need to do some `tests` and i have some questions... 30?
+- If he had his way, i'd be stuck in the hospital, running `tests` all day.
+- These are just more sophisticated audiometry `tests` than i can run here.
+- We can extract dna and start running `tests` on the extrapolator program.
+- He's just been fingerprinted, and i'll run these blood `tests` right away.
+- I just risked my life for a network that `tests` my face with focus groups.
+- We have to find him, run `tests`, determine if the polymerization is stable.
+- She's been sedated for a few hours and the doctors are still running `tests`.
+- We're running `tests` to see if we can get an equally strong positive reaction.
+- To the best of your recollection, were you sober when you performed the `tests`?
+- If there's nothing wrong with me then why does he want me to come back for `tests`?!
+- There are few more sensory and motor reflex `tests` we need to run, so take it easy.
+- Yes, mother ... because harold `tests` thy father's will is no reason to admire him.
+- An area that has been exposed to dozens of nuclear `tests` over the last thirty years.
+- Once the `tests` come back, is there someone i can reach in your office for the results?
+- He called, and... his `tests` show that shu's gun fired the bullet that killed jimmy chin.
+                 

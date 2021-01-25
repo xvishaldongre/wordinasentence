@@ -1,0 +1,107 @@
+---
+title: "yet in a sentence | yet example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yet"
+---
+- Can you find it `yet`?
+- Did you sign up `yet`?
+- Do you see them `yet`?
+- Got that desert `yet`.
+- Has ray come in `yet`?
+- Has tom come in `yet`?
+- He got his deer `yet`?
+- I don't have it `yet`.
+- I'm not sure, `yet`...
+- Is she… not `yet`.
+- Kip's not clear `yet`.
+- No -- no -- not `yet`.
+- Not for a while `yet`.
+- Not `yet`, i'm afraid.
+- She's not home, `yet`.
+- We millionaires `yet`?
+- We're not there `yet`.
+- `Yet` still you doubt.
+- `Yet` you look so sad.
+- You have a date `yet`?
+- You're not done `yet`.
+- `Yet`, here we are.
+- `Yet` here you are.
+- `Yet`, you're here.
+- ... are we there `yet`?
+- _ - are we there `yet`?
+- But, he's... not `yet`.
+- But i'm not sure `yet`.
+- Did you tell him `yet`?
+- Don't leave just `yet`.
+- Don't you get it `yet`?
+- Gotten your mail `yet`?
+- Has roger spoken `yet`?
+- Have they called `yet`?
+- He�s not through `yet`.
+- I can't... not `yet`...
+- I haven't got it `yet`.
+- I haven't won it `yet`.
+- I'm not finished `yet`.
+- Is this finished `yet`?
+- It hasn't opened `yet`?
+- It's a long ways `yet`.
+- It's not my time `yet`.
+- Max, have i lied `yet`?
+- My time isn't up `yet`.
+- No confirmation, `yet`.
+- No, not `yet`, not `yet`.
+- No, sweetie, not `yet`.
+- Not `yet`, mister worf.
+- So, you a moonie `yet`?
+- Still no contact `yet`.
+- They're not home `yet`.
+- They're not open `yet`?
+- You're not ready `yet`.
+- `Yet` you fired him.
+- Are we having fun `yet`?
+- Are you `yet` breathing?
+- Can't really tell `yet`.
+- Can't you feel it `yet`?
+- Has he checked in `yet`?
+- He's not that old `yet`.
+- I haven't brushed `yet`.
+- I haven't decided `yet`.
+- Is my family here `yet`?
+- It's not finished `yet`.
+- Made up your mind `yet`?
+- Not `yet`... about time!
+- Our time's not up `yet`.
+- She hasn't thawed `yet`.
+- So, we having fun `yet`?
+- That was the best `yet`.
+- We don't have one `yet`.
+- You can't kill me `yet`.
+- You can't open it `yet`.
+- You reach anybody `yet`?
+- `Yet` he attacked us.
+- Anybody get to you `yet`?
+- Anything from them `yet`?
+- Are you pretending `yet`?
+- Don't say anything `yet`.
+- Do we have an army `yet`?
+- Haven't hit bottom `yet`.
+- Have you broken it `yet`?
+- I don't know where `yet`.
+- I'm not interested `yet`.
+- I'm not old enough `yet`.
+- It is not `yet` near day.
+- It's not breakfast `yet`.
+- It's not connected `yet`.
+- Made your million, `yet`?
+- Nothing's happened `yet`!
+- Talk her out of it `yet`?
+- That it's not over `yet`.
+- The car's no there `yet`?
+- The date's not set `yet`.
+- The guy ain't here `yet`.
+- Those toenails dry `yet`?
+- We don't know that `yet`.
+- We haven't done it `yet`.
+- We're not finished `yet`.
+                 

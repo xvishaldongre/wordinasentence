@@ -1,0 +1,107 @@
+---
+title: "as in a sentence | as example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "as"
+---
+- `As` if i didn't know.
+- `As` large `as` castles.
+- `As` long `as` i'm here.
+- `As` long `as` it takes.
+- `As` much `as` possible.
+- `As` much `as` possible?
+- `As` part of his plan.
+- `As` part of the crew.
+- `As` real `as` you wish.
+- `As` soon `as` possible.
+- `As` soon `as` they can.
+- `As` soon `as` you want.
+- `As` well `as` it could.
+- `As` you already said.
+- `As` you wish, master.
+- "b" `as` in balthazar.
+- Blonde `as` a new mop.
+- Business `as` usual...
+- Did `as` of last week.
+- Empty `as` a football.
+- Far `as` you go where?
+- Hot `as` hell in here.
+- I'm a agent `as` well.
+- I'm `as` broke `as` you.
+- I suspected `as` much.
+- It was `as` he said...
+- Just `as` he promised.
+- Just `as` well, lenny.
+- No -- not `as` a rule.
+- Pretty `as` a picture.
+- Same `as` an hour ago.
+- So do `as` i tell you.
+- To love `as` you love.
+- Trained `as` you were?
+- We attack `as` a team.
+- Were `as` good `as` her.
+- When, `as` i recall...
+- Am i `as` good `as` they?
+- `As` a sane person.
+- Shallow, `as` well?
+- A pleasure `as` always.
+- `As` a "test," alright?
+- `As` beautiful `as` that?
+- `As` close `as` we can.
+- `As` far `as` the office.
+- `As` for example, what?
+- `As` god `as` my witness!
+- `As` if it's that easy.
+- `As` in "free, gratis."
+- `As` long `as` i have to.
+- `As` many `as` they want.
+- `As` mother has proven.
+- Camels, same `as` me...
+- Do `as` i have ordered!
+- Down front `as` always.
+- Educate me `as` to why.
+- Going out `as` friends.
+- He `as` a photographer.
+- Him `as` the other guy.
+- I'm here `as` a friend.
+- I said not `as` a rule.
+- I thought `as` a child.
+- It's tight `as` a drum.
+- Just `as` badly `as` you.
+- Koros, `as` in...koros?
+- Lisa counts `as` floor.
+- Long `as` charlie says.
+- Might `as` well use us.
+- Not `as` rough `as` some.
+- Not `as` silly `as` some.
+- Or just `as` worthless.
+- Right `as` always, sir.
+- Soon `as` i rest a bit.
+- So you do `as` i say...
+- Steady `as` she goes...
+- We're good `as` inside.
+- What, `as` a sales rep?
+- You just do `as` i say.
+- You knew me `as` a kid.
+- You used me `as` bait?!
+- Almost `as` good `as` you.
+- `As` a diversion tactic?
+- `As` a matter of fact...
+- `As` brave `as` my father.
+- `As` does what you fear.
+- `As` do i, enola holmes.
+- `As` fast `as` they could.
+- `As` little `as` possible.
+- `As` long `as` we have to.
+- `As` much `as` for a lord?
+- `As` much `as` you do now.
+- `As` much `as` you've got.
+- `As` per our discussion.
+- `As` soon `as` i can walk.
+- `As` soon `as` i get back.
+- `As` the ex used to say.
+- `As` usual you're wrong.
+- `As` you prefer, squire.
+- `As` your mother said...
+- `As` you wish, princess.
+                 

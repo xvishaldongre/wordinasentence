@@ -1,0 +1,59 @@
+---
+title: "options in a sentence | options example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "options"
+---
+- First strike `options`.
+- I weighed my `options`.
+- No good `options` left?
+- What are his `options`?
+- Tried all the `options`?
+- There are other `options`.
+- There are always `options`.
+- There's no other `options`.
+- We have an `options` paper.
+- There are so many `options`.
+- ere are no more `options`.
+- I had to limit your `options`.
+- I'm gonna pursue some `options`.
+- We have two `options` here, jim.
+- We've both run out of `options`.
+- And we're discussing all `options`.
+- But i don't have any other `options`.
+- Finally there were no `options` left.
+- Let's just review our `options` here.
+- Hardin... you have two `options` here.
+- Just considering our `options`... sir.
+- No clues, no strategies, no `options`.
+- Please -- what are my other `options`?
+- A long-term contract with no `options`.
+- No, no, no, there's no other `options`.
+- Those are the `options` she's given us.
+- We'll have to re-consider our `options`.
+- We have a variety of affordable `options`.
+- I ask you for `options` you give me bullshit.
+- But one of those `options` i let her get to me.
+- Today's therapist has many effective `options`.
+- I want an `options` paper on this in 20 minutes.
+- Are there any other `options` with the tesseract?
+- If you want, i can help you look at your `options`.
+- I think maybe i have more `options` than i thought.
+- This time, look around and consider your `options`.
+- We'll borrow your thirty million to buy those `options`.
+- Well, i think it's good to keep all your `options` open.
+- Jaha: from where i stand, we have two `options`… - ok. stop.
+- Because if you didn't, we have a variety of affordable `options`.
+- Didn't know -- who i was when the `options` he bought took a bath.
+- The moment you returned from the battle your `options` were clear.
+- The kid's still got, oh, 96 to 97 thousand, depending on the `options`.
+- Well, it's not like we've got a hell of a lot of `options`... run for it?
+- Chandler takes the `options` paper, waves off lee, and reads it as she talks.
+- The way i see it, you have two `options`... including my son, are already dead.
+- I don't know -- i guess what i need is a lawyer, find out what my `options` are.
+- Well, that's an appealing offer, but...considering the `options`... you go back.
+- I mean, when you looked at all the other `options`... it just seemed sorta obvious.
+- We lock 'em up together in there, kick 'em in the ass til they come up with `options`.
+- Now while you fill out the questionnaire, i'll familiarize you with some of our `options`.
+- We need to come with `options` other than air strikes so we have some sort of choice here.
+                 

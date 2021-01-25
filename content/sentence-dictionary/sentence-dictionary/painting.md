@@ -1,0 +1,70 @@
+---
+title: "painting in a sentence | painting example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "painting"
+---
+- Look at my `painting`.
+- I hate this `painting`.
+- It was that `painting`.
+- You sold my `painting`!
+- Hey, zoey, the `painting`.
+- In eye of that `painting`.
+- Get on with the `painting`.
+- Like in a church `painting`.
+- The whole thing � `painting`.
+- They're `painting` the walls.
+- Hey, that `painting` in there...
+- So shut up and keep `painting`..
+- You, you all saw the `painting`!
+- Do you guys feel like `painting`?
+- I wanna make a `painting` of you.
+- I think you're `painting` too fast.
+- Did you actually do this `painting`?
+- You want me to pick up a `painting`?
+- Wait -- i want to see the `painting`.
+- You, are still doing your `painting`?
+- There was a `painting` that came down.
+- You're gonna keep `painting` aren't you?
+- I'm thinking about `painting` the kitchen.
+- I was looking at that `painting` upstairs.
+- That `painting` cost $60,000 10 years ago.
+- This `painting` isn't the original, is it?
+- Why is this `painting` hanging upside-down?
+- That's the same guy who did this `painting`.
+- Now she's spray- `painting` our building?
+- I've gone back to my first love... `painting`.
+- There's a very famous `painting` by titian.
+- Naa.. no, i wanted to make a `painting` of you.
+- While octavia was `painting` her face with blood.
+- Singing on stage and `painting` in your spare time.
+- Tell amy, i love her `painting`, it's on my wall.
+- All you need is to buy some oils and start `painting`.
+- Mr. bixler, how come you're `painting` this old house?
+- There's something very familiar about this `painting`.
+- Because i let a... copy of a `painting` the get stolen?
+- You look as beautiful as that `painting` i just bought.
+- It's like we're living in the `painting` over our couch.
+- I'm going to spend my time oil `painting`, please help us!
+- Found out the hautmans are entering a `painting` this year.
+- I'm not `painting` the fu --, i'm not `painting` the ashtray.
+- But sadly, you didn't bring me here to talk about `painting`.
+- I'm going to give up `painting` and start playing music again.
+- You pick up the `painting`, you pay for it with this debit card.
+- It's a `painting` i'm restoring for the new byzantine exhibition.
+- Hello, mr. macdougal, i'm gin, would you steal a `painting` with me?
+- I do carpentry, too, `painting`, almost any odd job around the house.
+- There was this picture of her `painting` easter eggs or something.
+- I think you're `painting` the picture a little darker than it is, really.
+- Yet you presume to know so much about me because of a `painting` you saw.
+- I was thinking about what you said to me the other day, about my `painting`.
+- Is this some fucked up idea of art, putting someone else's name to a `painting`?
+- If i can't trust you to pick up a `painting`, how can i trust you about the mask?
+- Yes, but as a black painter � oh, that's a "leonardo's greatest hits" `painting`.
+- If there ain't no war, you can punch out, go home, and take up oil `painting`.
+- The good lord didn't give you that vision just for `painting` pretty pictures.
+- I've never seen a `painting` that captures the beauty of the ocean at this moment.
+- You're jo- whatta yuh kid- what did you do, grow up in a norman rockwell `painting`?
+- I felt like he could've painted it, or maybe someone else was `painting` it instead of me.
+- At the museum today i could have sworn that terrible `painting` of vigo looked right at me.
+                 

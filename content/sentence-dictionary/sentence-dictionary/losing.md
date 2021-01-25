@@ -1,0 +1,107 @@
+---
+title: "losing in a sentence | losing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "losing"
+---
+- He's `losing` it, too.
+- I feared `losing` you.
+- I'm `losing` my blood!
+- I'm `losing` my faith.
+- She was `losing` it...
+- The `losing` the jobs.
+- Are you `losing` money?
+- He was `losing` weight.
+- After `losing` all hope.
+- Beth you're `losing` it.
+- He's `losing` his teeth.
+- I'm `losing` everything.
+- `Losing` is complicated.
+- And i'm `losing` my mind.
+- Huey, you're `losing` me.
+- I'm not `losing` the bet.
+- I think i'm `losing` you.
+- Man, she's `losing` it...
+- They're `losing` the war.
+- We were `losing` the war.
+- I'm not `losing` it again!
+- What would he be `losing`?
+- You're `losing` your mind.
+- There's no `losing` it.
+- I must be `losing` my mind.
+- Robert, we're `losing` her.
+- You're `losing` it, damone.
+- You're `losing` it, laurie.
+- You're `losing` your blood?
+- I feel like i'm `losing` it.
+- They're `losing` one mother.
+- We're `losing` atmosphere...
+- ...for `losing` track of you.
+- Maybe i'm `losing` my mind...
+- Almost like `losing` a friend.
+- But i can't take the `losing`.
+- I'm afraid we're `losing` him.
+- I must be `losing` my finesse.
+- She's `losing` too much blood.
+- T. i'm not `losing` her again.
+- Well of course, he's `losing`.
+- We're `losing` the pattern...!
+- You're not `losing` your mind.
+- I'm `losing` all my concepts...
+- We are `losing` dorsal shields.
+- We're not `losing` anyone else.
+- You must think i like `losing`.
+- You're `losing` sleep over her?
+- You're playing a `losing` game.
+- But i'm not `losing` anyone else.
+- "dummy 6" keeps `losing` his arm.
+- I feel like i'm `losing` my mind.
+- `Losing` my son almost killed me.
+- How they goin', `losing` preacher?
+- I'm `losing` my faith in humanity.
+- My god, crawford's `losing` it...!
+- Redeem yourself for `losing` rose.
+- The prospect of `losing` my child.
+- We're `losing` the war, aren't we.
+- Man, you're `losing` your audience.
+- People in camp were `losing` focus.
+- You're not `losing` trust, are you?
+- You want to risk `losing` our head?
+- I'm not `losing` any more men today.
+- We're `losing` our favorite teacher.
+- There's no winning and `losing` here.
+- I'm not `losing` any sleep over it.
+- It's `losing` your spiritual virginity.
+- Maybe i'm `losing` interest in my book.
+- You're upset about `losing` the whales.
+- That's why you're `losing` your bet?
+- `Losing` temper, we don't want you here.
+- He's `losing` his grip - you can get out.
+- We're `losing` air faster than i thought.
+- She's afraid of `losing` her blood supply.
+- You could do with `losing` a pound or two.
+- I find i'm terribly afraid of `losing` you.
+- I'm `losing` control, but that's all right.
+- The `losing` puppeteer bows out graciously.
+- We're a breath away from `losing` this war.
+- Yeah... without `losing` a single follower.
+- He's already `losing` control of his vitals.
+- If you give in now you might start `losing`.
+- Anything to avoid `losing` the german market.
+- In the arena, i won't be `losing` a daughter.
+- Figured it was worth `losing` a finger or two.
+- Here i thought i was the one `losing` my mind.
+- I'm not `losing` my life over some greedy pig.
+- She's not afraid of `losing` her son, you see.
+- What's worse than `losing` five million bucks?
+- You're not `losing` your hold on him, are you?
+- And i don't blame you for `losing` faith in me.
+- No trouble `losing` when you got a good excuse.
+- We're `losing` pressure in the flotation tanks.
+- We're `losing` something without you being here.
+- Big billy's team was `losing` and he was on base.
+- Don't lose that money without `losing` your life.
+- Midge, what did you mean, there's no `losing` it?
+- That's the best excuse in the world for `losing`.
+- They all went through the pain of `losing` power.
+                 

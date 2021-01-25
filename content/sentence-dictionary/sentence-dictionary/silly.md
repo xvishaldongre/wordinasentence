@@ -1,0 +1,107 @@
+---
+title: "silly in a sentence | silly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "silly"
+---
+- `Silly` looking bunch.
+- `Silly`, `silly`, `silly`.
+- That's a `silly` joke.
+- You're a `silly` girl.
+- Don't be `silly`, dawn.
+- It was very `silly`....
+- I was fooling, `silly`.
+- Not as `silly` as some.
+- Roger, this is `silly`.
+- You think it's `silly`.
+- Don't be bloody `silly`.
+- Don't be `silly`, cyril.
+- Don't be `silly`, hanna.
+- Oh, no ... it's `silly`.
+- Rasczak... `silly` name.
+- Don't be `silly`, alfred.
+- Don't be `silly`, caesar.
+- I know it sounds `silly`.
+- Now you're being `silly`.
+- Oh now, don't be `silly`.
+- But that's `silly`, child.
+- Don't do anything `silly`.
+- My turn to be `silly` now.
+- They'd look `silly` on me.
+- But you do look so `silly`.
+- Don't be `silly`...i'm old.
+- It just...it seems `silly`.
+- Of course it's me, `silly`.
+- That seems awfully `silly`.
+- Does this room look `silly`?
+- I'll play your `silly` game.
+- Look, i bore myself `silly`.
+- Of course, don�t be `silly`.
+- Why does that sound `silly`?
+- He was `silly` and obnoxious.
+- I'm about to be very `silly`.
+- Oh, don't be `silly`, walter.
+- That's a pretty `silly` game.
+- I behaved like a `silly` girl.
+- Just to make him look `silly`!
+- You've made my dreams `silly`.
+- It's this `silly` game he plays.
+- Mary clarence, don't be `silly`.
+- Those are your clothes, `silly`.
+- Well, it was a `silly` question.
+- My daddy doesn't hit me, `silly`.
+- That's a `silly` remark isn't it?
+- They're in the ignition, `silly`.
+- You think i'm `silly`, don't you?
+- You wear them of course, `silly`.
+- Drink this and stop being `silly`.
+- I'm not a `silly` carhop any more.
+- Michael, come on, don't be `silly`.
+- That `silly`-ass look on your face.
+- It's `silly` of me to argue about it.
+- We didn't send for you, `silly` girl.
+- Will you stop being `silly`, stewart?
+- Finally, putty could be `silly` again.
+- I know, it's pretty `silly`, isn't it?
+- Personally, i think it's `silly`, too.
+- So, you see how `silly` that rumor is?
+- Stop acting like a `silly` little fag!
+- You can do anything you like, `silly`.
+- All this talk about love, it's `silly`.
+- Don't you see how `silly` you're being?
+- It's `silly` of you to be apprehensive.
+- Maybe that sounds `silly` to you but...
+- Oh--you `silly` people and your things.
+- This thing has just knocked me `silly`.
+- It just seems `silly` ... me lying here.
+- You're so clean and you--this is `silly`.
+- I hope he clears up this `silly` business.
+- I know they're not funny, they're `silly`.
+- Now come on - you're acting `silly` -- oh!
+- A `silly` eastern superstition, i'm afraid.
+- Heck, you're `silly` with it, aintcha boys?
+- No, `silly` - i'm still in school you know.
+- Take the `silly` tests, fill out the forms.
+- I am not a doll...i' m not `silly` and cute.
+- What kind of a `silly` thing was that to do?
+- Why are you wearing that `silly` costume?
+- Don't be `silly` -- he would not do anything.
+- Don't be `silly`, i'm the best in the county.
+- We're not exactly `silly` with time, you know.
+- Let's make love, you `silly`, hairy little man.
+- I don't want your `silly` billion dollar empire?
+- Football, chess, maybe even a `silly` video game.
+- Janey, haven't you learned that `silly` tune yet?
+- Oh, no, no, don't be... tsch... don't be `silly`.
+- Don't be `silly`, you have whole worlds to fathom.
+- `Silly`, there's nothing in there to be afraid of.
+- I just need some time... that's just plain `silly`.
+- It sounds `silly` but i know we were meant to meet.
+- No, really i -- don't be `silly`, anyone can dance.
+- Scorch marks... looks like they used `silly` putty.
+- `Silly`, isn't it - there's nothing to worry about.
+- Tell me that it's `silly` of me to be apprehensive.
+- He sits there all he time, doing some `silly` opera.
+- I know it's a `silly` thing for me to ask you, but .
+- You think this whole business is `silly`, don't you?
+                 

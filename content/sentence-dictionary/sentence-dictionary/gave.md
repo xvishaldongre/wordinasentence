@@ -1,0 +1,107 @@
+---
+title: "gave in a sentence | gave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gave"
+---
+- `Gave` away the store.
+- Harry `gave` it to me.
+- He `gave` me his card.
+- He `gave` you his eye?
+- I `gave` clear orders.
+- I `gave` you a chance.
+- I `gave` you an order!
+- I `gave` you an order.
+- I `gave` you function.
+- She `gave` me the key.
+- They `gave` me a call.
+- They `gave` me a deal.
+- They `gave` me a list.
+- They `gave` me things.
+- Who `gave` you a job ?
+- You `gave` the orders!
+- He `gave` it to us.
+- I `gave` it to you.
+- But i `gave` it to you!
+- `Gave` him the battery.
+- He `gave` it to thanos.
+- He `gave` these to you?
+- I `gave` at the office.
+- I `gave` 'em the money.
+- Junior `gave` it to me.
+- Milton `gave` it voice.
+- One i `gave` him, yeah.
+- So i `gave` him to you.
+- Some `gave` me a dress.
+- They `gave` us our boy.
+- Tod `gave` me the slip.
+- And `gave` me real meds.
+- `Gave` it to my brother.
+- I `gave` it back to her.
+- I `gave` it to the poor.
+- Lawford `gave` it to me.
+- She `gave` me the brush.
+- She `gave` you an order.
+- Someone `gave` it to me.
+- They `gave` us the book.
+- We `gave` luna a choice.
+- You `gave` it to sir te.
+- You `gave` me no choice.
+- You `gave` it to him.
+- A runner `gave` it to me.
+- But i `gave` her my word.
+- But i `gave` you 6 doses.
+- He `gave` me a fuckin' a?
+- I always `gave` you that.
+- I `gave` him the address.
+- I `gave` him two dollars.
+- I `gave` up my body hair!
+- I `gave` you my dog tags.
+- I `gave` you two hundred.
+- I just `gave` up smoking.
+- She `gave` us a bad part.
+- Someone `gave` them guns.
+- That's what he `gave` me.
+- The army `gave` you that?
+- They `gave` it all to us.
+- They `gave` me a mission.
+- They `gave` you a pardon!
+- Who `gave` you this idea?
+- You `gave` him the money?
+- You `gave` them morpheus.
+- You `gave` them the tape?
+- You `gave` then absinthe?
+- Gibby `gave` me champagne.
+- God `gave` you ten thumbs.
+- He `gave` me a great deal.
+- He `gave` me five dollars.
+- He `gave` you another one.
+- I `gave` him both barrels.
+- I just `gave` him my card.
+- Murphy `gave` her a break.
+- My friend `gave` it to me.
+- The machine `gave` me two.
+- They `gave` me life, mama.
+- What `gave` you that idea?
+- Who `gave` you that horse?
+- Who `gave` you this idea ?
+- I `gave` him this new face.
+- I `gave` you my card there.
+- I just `gave`-- yeah, sure.
+- I think i `gave` it to her.
+- She `gave` me the evil eye.
+- She never `gave` me a tape.
+- They `gave` me this palace.
+- We `gave` you lots of help.
+- What if i `gave` you forty?
+- Wolfi, who `gave` you this?
+- You `gave` me five minutes.
+- You `gave` us <u>names</u>?
+- Again, jaha `gave` it to me.
+- Bruce `gave` him a sedative.
+- He `gave` it to you, archie.
+- He `gave` me a prescription.
+- I `gave` him what he wanted.
+- I `gave` you a direct order.
+- I `gave` you my time, bitch.
+                 

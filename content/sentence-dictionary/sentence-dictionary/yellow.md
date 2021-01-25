@@ -1,0 +1,89 @@
+---
+title: "yellow in a sentence | yellow example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yellow"
+---
+- The `yellow` and pink.
+- In the `yellow` ribbon.
+- Not `yellow`, cautious.
+- A nice, bright `yellow`!
+- Or maybe a `yellow` cab?
+- Little `yellow` bastards.
+- `Yellow` means go, kimmy.
+- Damn these `yellow`-jackets!
+- Weren't you ever a `yellow`?
+- `Yellow` means go, kimberly.
+- I think you're just `yellow`.
+- Come on, you `yellow`-bellies!
+- I call him the "`yellow` man".
+- `Yellow`'s a bad color for me.
+- The dirty `yellow` rat bastard.
+- `Yellow` bird... is gonna sing.
+- I saw the `yellow` man come out.
+- Arabs, `yellow` people, whatever.
+- How the hell do you feel `yellow`?
+- The `yellow` stripe, that's a nine.
+- With a `yellow` streak up the back.
+- Be thankful you're not mr. `yellow`.
+- Yell... `yellow` sandals, - come on.
+- Come on, come on, you `yellow` belly.
+- The thing with the `yellow` ribbon...
+- Ah... `yellow`, let's paint it `yellow`.
+- When in doubt, pull the `yellow` wire.
+- He has a future in `yellow` journalism.
+- You're a disgrace to that `yellow` belt!
+- But i think the `yellow` man is on drugs.
+- What we need... is richard `yellow` bird.
+- When blue and `yellow` meet in the west."
+- I don't know one man with a `yellow` bedroom.
+- Red menace, `yellow` fever, green revolution.
+- When blue meets `yellow`... you already have.
+- You getting into bed to think about `yellow`?
+- Keep talking, `yellow` bird... red deer table!
+- ...outside all you need is the `yellow` pages.
+- We use the kind in the green and `yellow` box.
+- Five-hundred dollars worth of roses...`yellow`.
+- So 'tie a `yellow` ribbon' sounds a little flat.
+- Mom, i mean dad... we use the green and `yellow`.
+- "we'll settle this at midnight on `yellow` hill."
+- Cures anything but a `yellow` streak down the back.
+- He had the same exact `yellow` pattern on his butt.
+- Thanks.. you gotta push the little `yellow` button...
+- Wear a pink jacket with a `yellow` streak up the back?
+- It had a long tongue, teeth this big and `yellow` eyes.
+- Usually they die id they're, you know, really `yellow`.
+- When you get through with blue and `yellow`, then what?
+- What do i do, then, look in the bleedin' `yellow` pages?
+- When blue meets `yellow` in the west... - what happened?
+- Now you follow the `yellow` egg... <u>that</u> direction.
+- The silver cat feeds when blue meets `yellow` in the west.
+- The silver cat feeds when blue meets `yellow` in the west."
+- There's an old saying, when in doubt, cut the `yellow` wire.
+- But where is the one who came last night -- all in `yellow`?!
+- `Yellow` bird committed suicide at three o'clock this morning.
+- Yeah, eddie, it's not like you got an ad in the `yellow` pages.
+- ...the `yellow` ribbon, but who, who'd profit from <u>that</u>...
+- Alright, once we get to the `yellow` band, we're going to regroup.
+- He's driving around in a `yellow` convertible, for christ's sakes.
+- In the `yellow` room, where the music's playing and the ladies are?
+- You run a `yellow` light <u>just</u> as a car comes out of nowhere.
+- Huge, grande, with `yellow` eyes, all this hair, it killed serafine!
+- I'm going to change and we'll meet for a drink in the `yellow` room.
+- I mean, most of 'em just sleep all the time and get kind of `yellow`.
+- I saw the `yellow` man go into frank's building, laughing with frank.
+- Hope he kills all the bugs before the `yellow` dot gets to the red one.
+- You: striking redhead with `yellow` dress, pearl necklace, brown shoes.
+- I tracked it down in the library's catalogue of national `yellow` pages.
+- You're very funny -- `yellow` room where they dance -- where downstairs?
+- We just... ♪ and there's ice and snow ♪ i think it's turning my skin `yellow`.
+- I should paint a small area... why do people think `yellow` is gender- neutral?
+- I tried to borrow a gun from chad, but-- because i was `yellow`, i guess-- why?
+- See, it's very easy for a fighter to accidentally hurt -- yo' `yellow`, old man.
+- She had an engagement in the `yellow` room at five o'clock -- she was in a hurry.
+- You're <u>do-in</u>' yourself...in this `yellow` prison with steel-belted radials.
+- You see, a while back, we were walking down the `yellow` brick road, and -- ...junk!
+- It's like that thing with the `yellow` ribbon... ...where is the back end coming from?
+- My wife's hair is a wonderful golden `yellow`, and this time of year it gets even lighter.
+- I guess so... that kind'a money'd get us a long way down that `yellow` brick road... hey...
+                 

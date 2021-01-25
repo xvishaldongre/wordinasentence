@@ -1,0 +1,107 @@
+---
+title: "upon in a sentence | upon example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "upon"
+---
+- I'll insist `upon` it.
+- Or `upon` whose watch...
+- Maybe once `upon` a time.
+- With dust, `upon` the air?
+- I. i took it `upon` myself.
+- Like a dream `upon` waking.
+- Or you will be fired `upon`.
+- They are a plague `upon` us.
+- Or `upon` whose watch... fine.
+- What do you look `upon` her as?
+- Let your light return `upon` us.
+- That depends `upon` your motive.
+- What do you base this `upon`?
+- You stumbled `upon` an opportunity.
+- We came `upon` your construction.
+- Let the bride feast `upon` her visage.
+- That you came `upon` carl by accident.
+- The time of the prophecy is `upon` us!
+- Millions `upon` millions `upon` millions!
+- Once `upon` a time, maguna went to bed.
+- So this responsibility falls `upon` me.
+- Insisted `upon` returning there at once.
+- Please don't hesitate to call `upon` me.
+- So, this responsibility falls `upon` me.
+- `Upon` you depends this princess's life.
+- What battalions will you call `upon`?
+- ♪ in this cloud `upon` love ♪ just do it.
+- The future of freedonia rests `upon` you.
+- Age is a limit we impose `upon` ourselves.
+- A pack of blessings light `upon` thy back.
+- Fortunately, i took it `upon` myself - what?
+- I'll call `upon` you to do a service for me.
+- I mean to avenge myself `upon` you, admiral.
+- See how she leans her cheek `upon` her hand.
+- `Upon` the center, wheel to the left- about!
+- Does anyone care to touch `upon` this further?
+- Once `upon` a time, a little girl went to bed.
+- Someone whose discretion can be relied `upon`.
+- Brings `upon` the final evolution of a species.
+- I happened `upon` something that might help us.
+- Once `upon` a time i was a hell of an engineer.
+- Twilight is `upon` me and soon night must fall.
+- And a song someone sings once `upon` a december.
+- I depend `upon` you to restrain his... excesses.
+- I saw a flash, then darkness descended `upon` me.
+- ... `upon` this your servant, regan teresa macneil.
+- God is surely smiling down `upon` us tonight, dudes.
+- I've been piling lie `upon` lie what happened to you?
+- Ok. well, the fates are smiling `upon` you, my friend.
+- `Upon` her death, sybok and i were raised as brothers.
+- Your excellency, the eyes of the world are `upon` you.
+- I fired `upon` the horseman and the bullet did nothing.
+- You must prevail `upon` him not to attempt the journey.
+- You receive a hundred thousand dollars `upon` delivery.
+- `Upon` my word, sir, i think you have acted very coolly.
+- Should you happen `upon` anything that might be relevant.
+- The ones whose burden you took `upon` your own shoulders.
+- He insists `upon` running a bank on so flimsy a thing as .
+- They'll detect you `upon` re-entry in an emergency vessel!
+- Please prepare to deliver genesis to us `upon` our arrival.
+- Here be the death weapon; the unicorn's blood dry `upon` it.
+- Deeds, you haven't yet touched `upon` a most important thing.
+- To avoid bringing disgrace `upon` a clean and honorable state!
+- It is in my power to confer a very signal honor `upon` you.
+- Why do you insist `upon` pressing... who knew she was pregnant?
+- Your brother stumbled `upon` adonis�s little secret, didn�t he?
+- Absolutely no effect `upon` my... americans can be fat and poor.
+- Feast your eyes `upon` the exoskeleton of the barbaric hornitor!
+- Now the itching becomes burning... heat, `upon` heat, `upon` heat.
+- The preysing company has fallon `upon` evil days, very evil days.
+- I insist `upon` being put down at the austrian ambassador's house.
+- If fired `upon`, tell our fighters that they are ordered to engage.
+- To put it delicately her care imposes a financial burden `upon` me.
+- Once `upon` a time there was a prince, who was being driven around...
+- You try to take the tavern, i call `upon` the armies of the 12 clans.
+- I hope his fucking ass rots in the sea and is shit `upon` by the fish.
+- O that i were a glove `upon` that hand, that i might touch that cheek.
+- You'll like the warm fire `upon` the hearth, and the long, long nights.
+- "the quotations when engraved `upon` the memory give you good thoughts."
+- But, no, these guys show anyway, and commit murder `upon` federal officers.
+- By my count, i was your mother much `upon` these years, you are now a maid.
+- Yes, then, you're saying that you <u>haven't</u> bid `upon` these drawings.
+- Is an occasion necessary for a father to dote `upon` his daughter with gifts?
+- But, `upon` reflection... we've decided to expand our zone of comfort with you.
+- One need only consume it and the spirit of his ancestors will settle `upon` him.
+- But remember, "whoever resists authority will bring judgement `upon` themselves."
+- Nicky, i let my butterflies die once `upon` a time and it's never stopped hurting.
+- Repeat any of it and you'll simply bestow the title of 'paranoid' `upon` yourself.
+- Would it be imposing too much `upon` you if i asked you to do a little work today?
+- I have taken it `upon` myself to spearhead the jim cunningham defence campaign.
+- Or is that just something i've wished `upon` him to make things simpler for myself?
+- As you were captured in my diocese, the duty of conducting the trial falls `upon` me.
+- I just hope that it doesn't come roiling back `upon` you like some dreadful undertow.
+- An accident which, conveniently, came hard `upon` your dismissal from united pictures.
+- I expect that `upon` completion of my military service i will be joinin' said ministry.
+- I know absolutely nothing of war -- and i am still totally dependent `upon` my generals.
+- Every now and again, depending `upon` favorable weather of course, they make the journey.
+- I don't think a mother should depend so much `upon` her children for her rewards in life.
+- If anyone does anything that wasn't agreed `upon`, clarke, raven, miller, niylah, jordan.
+- Society nods its head at any horror the american teenager can think to bring `upon` itself.
+                 

@@ -1,0 +1,101 @@
+---
+title: "Norman in a sentence | Norman example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Norman"
+---
+- Don't do it, `norman`!
+- `Norman`, don't do it!
+- She's lying, `norman`.
+- You're next, `norman`.
+- Your name is `norman`.
+- What's wrong, `norman`?
+- You did that, `norman`.
+- Don't pull it, `norman`.
+- No, it's okay, `norman`.
+- `Norman`, where are you?
+- You heard him, `norman`.
+- Leave me alone, `norman`.
+- She's cracking, `norman`.
+- Don't bother me, `norman`.
+- But it wasn't me, `norman`.
+- Listen, `norman`, i want...
+- Of course she did, `norman`.
+- You can't stop it, `norman`.
+- I've read it twice, `norman`.
+- `Norman` cay is not a person.
+- You press a button, `norman`.
+- Do yourself a favor, `norman`.
+- How are you feeling, `norman`?
+- I've got heads here, `norman`.
+- Jerry isn't hostile, `norman`.
+- Beth -- promise what, `norman`?
+- Don't get hysterical, `norman`.
+- It's not fast enough, `norman`.
+- What does `norman` already know?
+- You're a psychologist, `norman`.
+- `Norman` rockwell's 'homecoming.'
+- `Norman`, come here, look at this.
+- `Norman` found them dead together.
+- I'm not fucking with you, `norman`.
+- I'm not scaring you, am i `norman`?
+- Look, would you -- c'mon, `norman`.
+- `Norman`, you have to look at this!
+- Just one of `norman`'s many secrets.
+- She told me what you said, `norman`.
+- She was there, `norman`, she was.
+- I promise -- but i have to, `norman`.
+- `Norman`... harvey says he's amazing.
+- Edmunds, do you have a 20 on `norman`?
+- Look, it's either him or us, `norman`.
+- `Norman`, you are so funny about that.
+- What if it takes 20 minutes, `norman`?
+- Whatever happened to `norman` rockwell?
+- But mr. `norman` said -- you need a cut.
+- Like, i can smell your sheets, `norman`.
+- You're frightened, aren't you, `norman`?
+- I mean, did `norman` bates have a motive?
+- Look, `norman`, i'm not the shampoo girl.
+- `Norman`, i wouldn't leave you out there.
+- This is what i'm talking about, `norman`.
+- Get `norman`, i want everyone ready to go.
+- I -- oh please, don't shrink me, `norman`.
+- There's a u.s. navy car outside, `norman`.
+- "but i don't want to go swimming, `norman`.
+- I think it scared the hell out of `norman`.
+- `Norman`, i know how it looks, but-- right.
+- `Norman` thinks we shouldn't be going down.
+- Nothing that `norman` doesn't already know.
+- Ok. mister stansfield, `norman` stansfield.
+- Sweetheart-- `norman`, this isn't about you.
+- What's that -- mistake number two, `norman`?
+- You know the dea knows about `norman`'s cay.
+- You want to put him on your couch, `norman`.
+- Do it, `norman`, it's the only choice we have.
+- Don't gimme that psychology bullshit, `norman`.
+- I wonder where `norman` bates does his hermiting?
+- Madame curie, jonas salk, `norman` spencer... yep.
+- You're not afraid of the water, are you, `norman`?
+- Except that cable is a thousand feet long, `norman`.
+- 70 percent of the earth's surface is water, `norman`.
+- No one was in the office, and... `norman` took a wife?
+- Ted o � we need indians for a `norman` steele western.
+- You want to tell me you saw `norman` bates' mother.
+- I helped `norman` pick out the dress she was buried in.
+- I don't understand, `norman` -- why would they call you?
+- I didn't mean... beth -- nobody said... `norman`... what?
+- Stan covered up the pills and i had it out with `norman`.
+- `Norman` was telling me the dream house is finally finished.
+- I guess sidney's been puttin' the screws to ya, huh, `norman`?
+- Okay, `norman`, listen, i really want to talk about this at home.
+- If the subs aren't here yet, sir -- `norman`, get out of there now!
+- I've tried twice before, `norman`, why wouldn't i try a third time?
+- We stood right there -- we never even had a conversation, `norman`.
+- Gimme a second -- i'm trying to keep balance with -- c'mon, `norman`!
+- It's just like swimming, `norman`... you know how to swim, don't you?
+- I'm not thinking about myself -- no, `norman`, i'm thinking about you.
+- I mean, jesus, `norman`, just a dying man's last words and wishes, no big deal.
+- You mean that old woman i saw sittin' in the window wasn't `norman` bates' mother?
+- You're jo- whatta yuh kid- what did you do, grow up in a `norman` rockwell painting?
+- If i hadn't stopped by here before school, the painters would have-- don't i, `norman`?
+                 

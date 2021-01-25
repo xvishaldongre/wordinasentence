@@ -1,0 +1,107 @@
+---
+title: "movie in a sentence | movie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "movie"
+---
+- A story for a `movie`.
+- For the `movie` sound.
+- He missed the `movie`.
+- I'd watch the `movie`.
+- I saw it in a `movie`.
+- It's `movie` dialogue!
+- Just like the `movie`.
+- Oz is in that `movie`.
+- When do `movie` shoot?
+- You're a `movie` buff?
+- I'm going to a `movie`.
+- Maybe see a `movie`...?
+- Not in the `movie` biz.
+- The `movie`'s starting!
+- You bring a `movie`.
+- Her own `movie` theatre.
+- He works on the `movie`.
+- Hey, i saw that `movie`.
+- How's the `movie` going?
+- I ain't no `movie` star.
+- It's this gross `movie`.
+- I've got my own `movie`.
+- Just some scary `movie`.
+- Sell the `movie` rights.
+- This is my next `movie`.
+- Tonight's `movie` night.
+- You were a `movie` star!
+- It sounds like a `movie`.
+- I want to rent a `movie`.
+- I'm thinking of a `movie`.
+- Oz is in that one `movie`.
+- So, did you buy a `movie`?
+- Watch the `movie`, donnie.
+- But it'll stop the `movie`.
+- I wish it was your `movie`!
+- Maybe i'll catch a `movie`.
+- Men never get this `movie`.
+- Sam took them to a `movie`.
+- Think of it like a `movie`.
+- Why don't we see a `movie`?
+- You want to rent a `movie`.
+- But in the `movie` he lives.
+- But this is a porno `movie`.
+- Can i watch my damn `movie`?
+- Except that isn't a `movie`.
+- Fixed up like `movie` stars.
+- I'm in the `movie` business.
+- That's a `movie`, you moron.
+- What was your `movie` about?
+- You don't know that `movie`?
+- You wanna be a `movie` star?
+- I mean, for a horror `movie`.
+- Life's one great big `movie`.
+- Then don't watch the `movie`.
+- What about my `movie` rights?
+- Yeah, uh, what's the `movie`?
+- You've seen only one `movie`?
+- A `movie` star from hollywood.
+- Any `movie` stars buried here?
+- I'm going to a `movie`, kiddo.
+- Maybe, we'll go see a `movie`.
+- Our `movie`'s a hit and a lie.
+- Take her to a `movie` tonight.
+- Terrance and phillip `movie`?!
+- Thanks for the `movie`, randy.
+- That's the `movie` i came for.
+- Yeah, well, i saw the `movie`.
+- You don't mean a `movie` star?
+- Your dad was making a `movie`.
+- Do you want to go to a `movie`?
+- Like in footloose, the `movie`?
+- The `movie` that just came out.
+- This `movie`'s gonna be famous!
+- Within the `movie` has changed.
+- You ever see any `movie` stars?
+- You're watching an old `movie`.
+- It's just like a horror `movie`.
+- It's the premise of the `movie`.
+- That's from your `movie`, right?
+- That was a good fuckin' `movie`.
+- The `movie` hasn't been spoiled.
+- There's no noah in this `movie`.
+- The whole `movie` depends on it.
+- You're going to bury my `movie`.
+- Are you watching a porno `movie`?
+- But what happened to the `movie`?
+- I thought you was a `movie` star.
+- Like glenn close in that `movie`.
+- Remember, this is only a `movie`.
+- Saw your `movie` the other night.
+- That's an audrey hepburn `movie`.
+- Who's your favorite `movie` star?
+- You mean like, `movie` trilogies?
+- You're the guys from the `movie`!
+- I love to get pie after a `movie`.
+- Let me recommend a `movie` to you.
+- That `movie` makes me feel guilty.
+- The `movie`'s about <u>purity</u>.
+- We have to see this `movie`, dude!
+- We're watching the `movie`, harry.
+                 

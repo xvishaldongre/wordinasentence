@@ -1,0 +1,107 @@
+---
+title: "ought in a sentence | ought example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ought"
+---
+- That `ought` to be fun.
+- Well, it `ought` to be.
+- He `ought` to know that.
+- `Ought` to cool you off.
+- This `ought` to be good.
+- You `ought` to know why.
+- By friday i `ought` to...
+- I `ought` to be starting.
+- I `ought` to know better.
+- They `ought` to hang him.
+- You `ought` to be in bed.
+- You `ought` to know that.
+- You `ought` to stay over.
+- Maybe they `ought` to see.
+- Maybe we `ought` to leave.
+- That `ought` to cover it.
+- I think we `ought` to walk.
+- They `ought` to be curious.
+- We `ought` to be suing him.
+- Boy, you `ought` to grow up.
+- I figure we `ought` to camp.
+- I `ought` to get some sleep.
+- I `ought` to wring her neck!
+- So they `ought` to even out.
+- Well, that `ought` to do it.
+- You `ought` to have that ...
+- I `ought` to smack your face!
+- You `ought` to file a report.
+- He `ought` to put him in here.
+- The dead `ought` to be buried.
+- You `ought` to have a checkup.
+- You `ought` to see mr. leland.
+- But it `ought` to be organized.
+- I `ought` to have it taken out.
+- I think you `ought` to see him.
+- Maybe we `ought` to ask stella.
+- You `ought` to be more careful.
+- You `ought` to see my backhand.
+- Bruce `ought` to be back by now.
+- Guess that `ought` to hold good.
+- I `ought` to tell you something.
+- Maybe i `ought` to go out there.
+- Maybe we `ought` to grow beards.
+- Maybe you `ought` to buy me one.
+- You `ought` to try it some time.
+- Because� you `ought` to know why.
+- Daniel, you `ought` to be in bed.
+- He `ought` to be here any minute.
+- I `ought` to fire you, bienstock.
+- I `ought` to know more about you.
+- Maybe i `ought` to call somebody.
+- Two boxes of double-`ought` buck.
+- You kids `ought` to go up to bed.
+- You `ought` to dress less square.
+- I `ought` to break your damn neck.
+- Maybe you `ought` to see a doctor.
+- Perhaps i `ought` to cultivate it.
+- She `ought` to be here any minute.
+- That `ought`'a help the situation.
+- You `ought` to hear perverts talk.
+- I just thought you `ought` to know.
+- I `ought` to be after twenty years.
+- I `ought` to have my head examined!
+- I `ought` to write a book about it.
+- I think i `ought` to be going, sir.
+- Poor thing, you `ought` to get out.
+- We `ought` to fire his whining ass.
+- You `ought` to stop protecting him.
+- Babe `ought` to get him drunk again.
+- I `ought` to be back within an hour.
+- I `ought` to be getting home anyway.
+- I `ought` to charge you by the mile.
+- I really `ought` to be getting home.
+- I think you `ought` to tell me that.
+- We `ought` to be clear of them soon.
+- We `ought` to try and carry dorothy.
+- You `ought` to let me kick them out.
+- Er... perhaps we `ought` to stop now.
+- I feel i `ought` to take care of her.
+- I just thought i `ought` to tell you.
+- She `ought` to have the co-ordinates.
+- We `ought` to find a more flat place.
+- You `ought` to get rid of those dogs.
+- You `ought` to know when i'm serious.
+- You `ought` to put a bandage on that.
+- You `ought` to take up crap shooting.
+- I think we `ought` to get out of here.
+- Sam, i think i `ought` to tell you ...
+- Vie `ought` to keep in touch with him.
+- We `ought` to kick their asses anyway.
+- You `ought` to come hear our preacher.
+- I kind of thought i `ought` to be here.
+- I `ought` to call the police right now!
+- Maybe we `ought` to call it off, sonny.
+- Now i think you `ought` to go to sleep.
+- Perhaps we `ought` to celebrate, irene.
+- So the shell `ought` to have gone over?
+- Those three `ought` to be in cathedral.
+- We `ought` to start camping again, dad.
+- You know what we `ought` to do tonight?
+                 

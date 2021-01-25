@@ -1,0 +1,56 @@
+---
+title: "serial in a sentence | serial example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "serial"
+---
+- Definitely a `serial`.
+- `Serial` killer killed.
+- `Serial` numbers removed.
+- Are you a `serial` killer?
+- Ever handle a `serial` case?
+- She could be a `serial` killer.
+- `Serial` number, 21-31-2841-262.
+- The pathology of a `serial` killer.
+- Why imitate a dead `serial` killer?
+- You're bothering the `serial` killer.
+- "name, rank and `serial`," mr. ortega.
+- What about your rank or `serial` number?
+- Who are you, the `serial` killer police?
+- The worst `serial` killer in history - who?
+- But i can't read their `serial` numbers here.
+- I'm on the `serial` killer case, need to talk.
+- No, `serial` killer, wisconsin in the fifties.
+- `Serial` killer is not really accurate, ma'am.
+- Aren't most `serial` killers seemingly harmless?
+- Now there's _two_ `serial` killers on the loose.
+- Most `serial` killers keep some sort of trophies.
+- This thing's full name, rank and `serial` number.
+- No `serial` numbers and never been used... how much?
+- Do we have a `serial` killer on the loose in the city?
+- I always thought it was the work of a `serial` killer.
+- I need you to file a `serial` number off a wheelchair.
+- `Serial` killing is irrational and rigid and compulsive.
+- They never made a match on the shotgun `serial` numbers.
+- Boy, you people sure do make fuss over a `serial` killer.
+- Uh, excuse me... are you by any chance a `serial` killer?
+- Something about a matching `serial` number that got burned.
+- `Serial` killers tend to hunt within their own ethnic group.
+- So now we got a huge guy theory and `serial` crusher theory.
+- Anybody in this department ever worked a `serial` killer case?
+- Low came up with the concept of a `serial` killer's signature.
+- Stick her name up in neon, there's still no `serial` kil- ler!
+- You didn't say `serial` killer and i didn't say `serial` killer.
+- The second `serial` killer killed in the manner of his killings.
+- Hey, dad, did you ever see "henry, portrait of a `serial` killer?"
+- She is a writer, writing best selling books about `serial` killing.
+- Was i ever told to state my name rank and `serial` number for the record?
+- We're not ruling out the possib- ility of three copycat `serial` killers.
+- I have to assume the `serial` numbers on the bowl and cylinder correspond.
+- You're about to defend the most notorious `serial` killer in american history.
+- How come `serial` killers have two names, but lone gunman assassins have three.
+- Most `serial` killers are attractive--slightly off white males in their twenties.
+- There's an estimated 270 `serial` killers currently active in the us at any given time.
+- Hey, tabloids paid ted bundy - famous `serial` killer - half a million for his interview.
+- He did three as the boston strangler just to tell us a copycat `serial` killer was at work.
+                 

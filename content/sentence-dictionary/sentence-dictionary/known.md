@@ -1,0 +1,107 @@
+---
+title: "known in a sentence | known example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "known"
+---
+- I might of `known` it.
+- I should have `known`.
+- I should've `known`...
+- I so wish i'd `known`.
+- I've always `known`...
+- No `known` photograph.
+- That's a `known` fact.
+- We would have `known`.
+- You've always `known`.
+- Then let it be `known`.
+- He never woulda `known`.
+- She would've `known` it.
+- You've `known` him long?
+- A fed, i shoulda `known`.
+- All my life i've `known`.
+- Glad to have `known` you.
+- He's pretty well `known`.
+- I've always `known` that.
+- I've `known` him forever.
+- Never really `known` why.
+- You'd never have `known`.
+- You've always `known`.
+- Have you `known` her long?
+- Have you `known` him long?
+- How long have you `known`?
+- I've `known` you too long.
+- Otherwise `known` as hell.
+- Wouldn't have `known` you.
+- But you're `known` so much.
+- I should've `known` better.
+- You've always `known` that.
+- Ever since i've `known` you.
+- It's been `known` to happen.
+- It's what we're `known` for!
+- I�ve `known` for five years.
+- None that i've ever `known`.
+- Oh god, if only i'd `known`.
+- Oh wow, i should've `known`.
+- We've `known` him for years.
+- You have never `known` love.
+- A guy as well `known` as you?
+- Also `known` as madman mundt.
+- By what name are you `known`?
+- I've `known` you a long time.
+- She should've `known` better.
+- What should you have `known`?
+- How long have you `known` her?
+- How long have you `known` him?
+- I mean, you `known` this city.
+- I've never `known` it to fail.
+- Must have `known` i was broke.
+- She must have `known` someone.
+- Somehow...i've always `known`.
+- Your secret is `known`, is it?
+- I feel i've always `known` you.
+- I feel i've `known` you before.
+- I've `known` you fifteen years.
+- `Known` that since i was a kid.
+- A `known` associate of hank pym.
+- Have you `known` this all along?
+- He has to be `known`, reachable.
+- How many women have you `known`?
+- I `known` joe since i was a kid.
+- I've `known` a lot of everybody.
+- I've `known` this man for years.
+- I've `known` too many spaniards.
+- You're too well `known`, wladek.
+- How long have you `known` hoagie?
+- I'll need a last `known` address.
+- I've `known` you for a long time.
+- I don't care to have that `known`.
+- If they're good, they get `known`.
+- I've `known` him since cub scouts.
+- I wish i'd `known` you were going.
+- Sollozzo is `known` as "the turk."
+- Would you have `known` if she had?
+- Have you ever `known` me not to be.
+- He's pretty well `known` down here.
+- I should have `known` it all along.
+- I should have `known` it was weird.
+- I should have `known`, shouldn't i?
+- I've run every test `known` to man.
+- Otherwise `known` as... yeah, yeah.
+- So how long have you `known` eddie?
+- You've always `known` what's right.
+- You've `known` me five years elmer.
+- Best damned woman i've ever `known`.
+- Could i be `known` as paul muad'dib?
+- Have you ever `known` peace, clarke?
+- He's `known` as a top narcotics man.
+- How long have you `known` my father?
+- I�ve `known` that girl all her life.
+- `Known` her since she was this high.
+- Have you ever `known` such low class?
+- I feel like i've `known` you forever.
+- It's one of maybe five `known` copies.
+- Lesser `known` but equally horrifying.
+- You must have `known` it would happen.
+- You've only `known` jake a few months.
+- How long you and me `known` each other?
+                 

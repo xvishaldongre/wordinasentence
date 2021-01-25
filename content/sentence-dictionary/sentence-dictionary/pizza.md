@@ -1,0 +1,62 @@
+---
+title: "pizza in a sentence | pizza example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pizza"
+---
+- Hey, it's `pizza` day.
+- It's good `pizza`, huh?
+- Thanks for the `pizza`.
+- Ah, yesterday's `pizza`.
+- This is one hot `pizza`!
+- I didn't eat any `pizza`.
+- From now on, no more `pizza`!
+- Have you been eating `pizza`?
+- I bought `pizza` and macaroni.
+- I'll bring you back a `pizza`.
+- I gotta pay for the `pizza` ...
+- Needs some `pizza` in his diet.
+- `Pizza` in bed, we'll have fun.
+- We can talk, i'll get a `pizza`.
+- I'm not giving him <u>`pizza`</u>.
+- Sal - you didn't eat any `pizza`!?
+- That wasn't sliced from a `pizza`?
+- I'm going to go pick up the `pizza`.
+- `Pizza` slice, for her unborn child.
+- Do i look like i want a tiny `pizza`?
+- Or maybe just phone out for a `pizza`?
+- Ask her if we can have `pizza` tonight.
+- There's a `pizza` place over on market.
+- Guess it wasn't the `pizza` delivery guy.
+- Good, i mean, i thought possibly a `pizza`.
+- ♪ give me `pizza`, give me pasta ♪ whatever.
+- Those bastards -- they poisoned the `pizza`!
+- Burnfield, `pizza` and puke capital of the world.
+- Dad never judged a `pizza` by where it came from.
+- There's a `pizza` welcome lunch in twenty minutes.
+- Where'm i goinna get a `pizza` this time o' night?
+- He had to be dead... oh, my dear god... a `pizza`?!
+- Fuck you, fuck `pizza`, and fuck frank sinatra, too.
+- Good journalism ain't paying the `pizza` man, toots.
+- Why can't i get a whole `pizza` and slice it myself?
+- Nothing better than getting a slice of `pizza`, right?
+- I want to get some `pizza` ... some stuff like that ...
+- I'm trying to organize a boycott of sal's `pizza` joint.
+- What would you say to dinner at, uh, oh, `pizza` planet?
+- Sal -- i don't know where i'm gonna find a `pizza` joint open.
+- We're gonna call domino's and have'm deliver a bigass `pizza`.
+- Can i bring you something back to eat--a falafal, some `pizza`?
+- Hell, i can't do that to you -- you can have her for a `pizza`.
+- You have no idea, and i'll tell you all about it, like hawaiian `pizza`.
+- `Pizza`, and i been jones-in' for a `pizza` ever since we left st. bernard's.
+- Anybody want a slice of `pizza` and i can't do anything that will hurt them.
+- We're gonna sit around here all night eating `pizza` and telling stories!
+- China i need a taking care of, not `hey how bout a `pizza` after class babe'.
+- You remember that `pizza` place, joe's on tenth street maybe fifteen years ago?
+- I'm sure he thought she'd sit there for three days eating `pizza` and watching tv.
+- I just thought i'd go home and have some cold `pizza` - because i got some plans - why?
+- We would like to extend an invitation oh, why didn't i put on my `pizza`-eating gloves?
+- I'm doin' what i can ... now i gotta pay for the `pizza` ... where are the marked bills?
+- Plus we have these really fun `pizza` study groups, and we go to-these all county meets.
+- Well finish all your meetin' people and get back here now -- and bring a `pizza` with you.
+                 

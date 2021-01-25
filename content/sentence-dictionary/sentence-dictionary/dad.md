@@ -1,0 +1,107 @@
+---
+title: "dad in a sentence | dad example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dad"
+---
+- `Dad`, check this out.
+- `Dad`, get your stuff.
+- `Dad`'s home, already?
+- `Dad`'s is over there.
+- Did dickie's `dad` go?
+- Give it to her, `dad`.
+- How many times, `dad`?
+- I gotta go now, `dad`.
+- I love you too, `dad`.
+- I'm going after `dad`.
+- I'm right here, `dad`.
+- It's not magic, `dad`.
+- It was so real, `dad`.
+- I've got to go, `dad`.
+- My boat's neat, `dad`!
+- My `dad`'s down there!
+- Screw what `dad` says!
+- To wave at your `dad`?
+- Watch your leg, `dad`.
+- What about your `dad`?
+- Are mom and `dad` here?
+- `Dad`'s knee was going.
+- `Dad`, this is amazing.
+- `Dad`, this is jessica.
+- `Dad`, what's going on?
+- Did you reach my `dad`?
+- I didn't know my `dad`.
+- It's gonna work, `dad`.
+- It's your house, `dad`.
+- I was talking to `dad`.
+- Maybe my `dad`'s right.
+- Mom, do you miss `dad`?
+- My `dad`'s still there.
+- My `dad` was like that.
+- Nice to see you, `dad`.
+- She's a miracle, `dad`.
+- There were rats, `dad`.
+- Yeah, my `dad`'s great.
+- You betcher ass, `dad`.
+- Your `dad`'d love that.
+- You sold `dad`'s ranch!
+- Anything for you, `dad`.
+- "`dad` ate all the pie."
+- `Dad` can't get out now.
+- `Dad`, i am begging you.
+- `Dad`, look what i drew.
+- `Dad` would be so proud.
+- Gee, your `dad`'s smart.
+- Get out of there, `dad`!
+- Her `dad`'s out of town.
+- I'm trying to be, `dad`.
+- I never knew you, `dad`.
+- It belonged to my `dad`.
+- It's not the gas, `dad`!
+- It's on the left, `dad`.
+- It�s complicated, `dad`.
+- My `dad`'s a lobsterman.
+- My `dad`'s a watchmaker.
+- What would my `dad` say?
+- When `dad` was eighteen.
+- Why not religion, `dad`?
+- You did all right `dad`.
+- You going to tell `dad`?
+- You got my `dad` killed.
+- You're my family, `dad`.
+- A meteorite, `dad`, look!
+- Are you all right, `dad`?
+- But `dad`, it's the news.
+- Bye `dad`, i'll miss you.
+- Could you get your `dad`?
+- `Dad` -- eleven o'clock!!
+- `Dad`, get me outta here.
+- `Dad`, you're bleeding...
+- Did `dad` have a brother?
+- His `dad` is still alive.
+- I'll be right out, `dad`.
+- It's `dad`'s grail diary.
+- It's on the table, `dad`.
+- My `dad` was chief guard.
+- Nothing to do with `dad`.
+- Please, `dad`, won't you?
+- Tell me about your `dad`!
+- What did you find, `dad`?
+- What do you think, `dad`?
+- What's the matter, `dad`?
+- What would you do, `dad`?
+- Where you staying, `dad`?
+- You're not my real `dad`.
+- `Dad` got some german jam.
+- `Dad`, i'm so glad i went.
+- `Dad`, i'm sorry.... what?
+- `Dad`, this is ridiculous.
+- `Dad`, what are you doing?
+- `Dad`, what's your status?
+- `Dad`, you seen the drill?
+- Especially not your `dad`.
+- Go ahead, tell her, `dad`.
+- I don't want a car, `dad`.
+- I know, think back, `dad`.
+- I'm going to go see `dad`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "father in a sentence | father example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "father"
+---
+- `Father`'s not strong.
+- `Father` was a doctor.
+- Good marrow, `father`!
+- His `father` is a man.
+- I'm your `father`, dr.
+- Is your `father` here?
+- It's his `father` sir.
+- It was her `father`'s.
+- My `father` loves you.
+- My `father` taught me.
+- Next to your `father`?
+- Surely her `father`...
+- They're my `father`'s.
+- They shot my `father`.
+- This is your `father`.
+- Tiger woods' `father`.
+- You and your `father`.
+- You play the `father`.
+- Your `father` is dead.
+- Your `father` is home.
+- Your `father` perhaps?
+- Your `father`'s badge?
+- Your `father` the cop.
+- Didn't have a `father`?
+- Did you hear, `father`?
+- Don't call me `father`.
+- Do your thing `father`.
+- `Father`, are you okay?
+- Good morning, `father`.
+- He's not your `father`.
+- He wasn't his `father`.
+- Idolizing her `father`.
+- It�s my `father`�s pin.
+- Much like his `father`.
+- My `father`'s dead too.
+- My `father` was a jedi!
+- Never knew my `father`.
+- So did your `father`...
+- This was my `father`'s.
+- Visit from my `father`.
+- Was your `father` shot?
+- What about my `father`?
+- What about my `father`?
+- You hate your `father`.
+- You killed my `father`.
+- You mean your `father`?
+- You're not my `father`!
+- Your `father` did know.
+- Your `father` did that.
+- You save your `father`!
+- His `father`'s dead.
+- As brave as my `father`.
+- Booties for my `father`.
+- But i'm also a `father`.
+- Dead hero `father` rule.
+- Did you see my `father`?
+- Do you know my `father`?
+- `Father` didn't make it.
+- "`father` of the bride."
+- Hello, `father` donigan!
+- He's no `father` to you.
+- I could be her `father`.
+- I'm still your `father`.
+- I saw my `father` today.
+- Is *your* `father` dead?
+- It is alright, `father`.
+- I worship your `father`.
+- Just like your `father`.
+- Like `father`, like son.
+- My `father` is a genius.
+- My `father` was a pilot.
+- No, i mean the `father`!
+- Smart like his `father`.
+- That's `father`, aubrey.
+- The same as my `father`.
+- They know your `father`.
+- This is for my `father`!
+- This is for my `father`.
+- Was your `father` there?
+- What'd your `father` do?
+- What's your `father` do?
+- You loved your `father`?
+- You went to my `father`?
+- His `father` is here.
+- How is your `father`?
+- The `father` replies?
+- Because of your `father`.
+- But my `father` was navy.
+- Carolyn lewis's `father`.
+- Did you kill my `father`?
+- Did you know my `father`?
+- For your `father`'s sake?
+- Go home to your `father`.
+- He's her baby's `father`!
+- He's my `father`, millie.
+- Hit me for your `father`.
+- If your `father` is dead.
+- I just told the `father`.
+- I never knew my `father`.
+- I remember your `father`.
+                 

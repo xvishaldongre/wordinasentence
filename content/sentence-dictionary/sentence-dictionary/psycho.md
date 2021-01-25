@@ -1,0 +1,71 @@
+---
+title: "psycho in a sentence | psycho example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "psycho"
+---
+- You're not a `psycho`!
+- You're a sick `psycho`!
+- He's a fucking `psycho`.
+- ...i'm not the `psycho`.
+- You're fucking `psycho`.
+- You're on `psycho` leave.
+- She's probably a `psycho`.
+- He's in the `psycho`'s bedroom!
+- Where did you go, `psycho`-boy?
+- Let's check out her `psycho` ex.
+- What kind of `psycho` does that?
+- You really think she's `psycho`?
+- But there's this <u>`psycho`</u>.
+- He's a `psycho`-cokehead- hitman.
+- I've unleashed a `psycho` on her.
+- Man, that damn `psycho` paint...!
+- Get off my bed, you sick `psycho`!
+- It's some `psycho` killer groupie.
+- I was jacqueline's `psycho`-analyst.
+- Some `psycho` stole that dude's car.
+- Because this guy's a fucking `psycho`.
+- What are you babbling about, `psycho`?
+- With the whole american `psycho` vibe.
+- Keep the change, you son of a `psycho`!
+- Actually, no, she's a complete `psycho`.
+- Mine is a bitch and yours is a `psycho`.
+- Anybody ever catch that fucking `psycho`?
+- Don't you think that's a little `psycho`?
+- If i shaved it, i looked like a `psycho`.
+- You got some balls goin' after that `psycho`.
+- Somebody...is a sick, fingerpainting `psycho`.
+- That `psycho` got exactly what she deserved...
+- Would you cut the `psycho` babble bullshit, mom.
+- You know how i feel about that fucking `psycho`.
+- You're implying i'm some kinda `psycho` criminal?
+- That sick piece of shit was a stone cold `psycho`.
+- Isn't he that `psycho` who's been spying on my sister?
+- No question, mrs. bruce is a `psycho`-bitch from hell.
+- Patient exhibits symptoms of `psycho` neural overload.
+- From-the-movie-mary-brown, trailer park bible `psycho`?
+- I don't know why they let a `psycho` even go to school!
+- If mom's a `psycho`, scotty will still be ok, won't he?
+- There gonna be `psycho` shit, i'm the one that does it.
+- Probably because they know a `psycho` when they hear one.
+- So, you're the `psycho` that designed this murder maze, huh?
+- Mom, there's a `psycho` i have to deal with <u>every day</u>.
+- Let's arm ourselves to the teeth and kick this `psycho`'s butt.
+- Maybe she freaked out when you went all `psycho` on the `psycho`.
+- We just thought... how many times i told you, no `psycho` shit.
+- Because you'll freak out and act like a total `psycho` about it.
+- If i can discover the location i'll call you -- he's a `psycho`!
+- Some `psycho` who's out there capping people with some cop's gun.
+- So some `psycho` wire-freak gets to keep running around-- uh unh.
+- Hey, lenny, you duck-faced `psycho`, you had one of our wristbands.
+- Then she gets busted and it's like... sorry kid, your mom's a `psycho`.
+- I know the words... fucking `psycho` fucking bullshit, that's the words.
+- If you're deaf, read my lips...i don't need a `psycho` following me today.
+- There's no telling what this new anti semitic `psycho` santa is capable of.
+- There's a `psycho` out there killing people with my gun and i'm gonna get him.
+- I still can't square the `psycho` smarts of whoever did iris with those two cops.
+- I think you're a lying, back-stabbing `psycho` bitch, and one day you'll kill me.
+- But that place is huge and we don't know where this `psycho` thing is -- let's do it.
+- Those two `psycho` cops are on a slash-and-burn to find the tape and cover their tracks.
+- You're strapped into an implant chair, and i'm monitoring you at a `psycho`-probe console.
+                 

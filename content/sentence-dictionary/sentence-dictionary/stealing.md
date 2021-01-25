@@ -1,0 +1,89 @@
+---
+title: "stealing in a sentence | stealing example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stealing"
+---
+- `Stealing` to survive?
+- For `stealing` a horse!
+- For `stealing` blankets.
+- For `stealing` blankets?
+- `Stealing`'s got harder.
+- He's `stealing` christmas!
+- Must be `stealing` hearts.
+- `Stealing` the eiffel tower?
+- They're `stealing` our ship!
+- To bungle `stealing` a safe?
+- They're `stealing` my chopper!
+- `Stealing` food from benny?
+- You've been `stealing` from me.
+- He's `stealing` from you, oskar.
+- I can't believe we're `stealing`.
+- I've seen you `stealing` from me.
+- I am arrested for `stealing` cars.
+- He's accused of `stealing` a watch.
+- I've been `stealing` it for a year.
+- So you were `stealing` their honey.
+- We are not `stealing` my mom's car.
+- For `stealing` medicine to save you.
+- These cars are `stealing` our lives.
+- `Stealing` pumpkins, soaping windows.
+- For everything but `stealing` cars ...
+- I can't be `stealing` it again, can i?
+- I like knowing who i'm `stealing` from.
+- `Stealing` electricity from a lamp post.
+- I can't believe we're `stealing` a plane.
+- Running lights, `stealing` stretchers...!
+- I mean i'm not `stealing` the fucking car.
+- There's nothing in there worth `stealing`!
+- You're `stealing` my money for my own good!
+- He has been `stealing` ladies' purses again.
+- It was just an impulse, `stealing` my purse.
+- Are you guys `stealing` for other people now?
+- Caught some son-of-a-bitch `stealing` my bike.
+- There's no law against `stealing` stolen money.
+- They're `stealing` from your town's power grid.
+- What you're doing is `stealing` people's minds.
+- They're `stealing`... they're `stealing` our ship!
+- The best thing is i'm `stealing` it from you.
+- Spending the day catching poor people `stealing`.
+- What're you guys doing here-- `stealing` my girl?
+- They're `stealing` papers right out of his office.
+- On the ark, you floated people for `stealing` food.
+- Of `stealing` that money to feed her gambling habit.
+- He's been `stealing` my cats to experiment on [them].
+- In `stealing` life-giving medicine from wonkru, we win!
+- Say, what did you have to do with `stealing` that body?
+- You've been caught `stealing` in the commander's woods.
+- Dammit, man, it appears someone is `stealing` your ship!
+- I guess we're not counting lying, `stealing` and murder.
+- Like a little girl, you thought `stealing` would be fun?
+- Sorta like `stealing` cars and selling'm for parts, huh?
+- `Stealing`'s `stealing`, we might as well get what we need.
+- She's probably `stealing` the money to pay for an abortion.
+- Your friend was caught `stealing` they've got us surrounded.
+- That's why we had to go to all that trouble of `stealing` it.
+- Don't tell me you suspect judge ramsey of `stealing` the body.
+- Needs tinsel i'd never hear the end of it for `stealing` that.
+- Of course he's `stealing` from me, we're in business together.
+- It's somehow connected with the worm that's `stealing` the money.
+- Said some kids are `stealing` the gnomes out of his garden again.
+- Like executing people for `stealing` you know that means you suck.
+- Not more than a year ago, a mob hung a man for `stealing` a horse.
+- Perhaps now you realize how difficult `stealing` fire from the gods?
+- I felt so bad about `stealing` the camera, i hadn't even used it yet.
+- A kid came in one morning and started `stealing` things from the store.
+- Christoph was `stealing` every piece of code he could get his hands on.
+- Your friends `stealing` food, going through trash behind a supermarket?
+- Okay, there's more, stan -- maybe if you stopped `stealing` their panties.
+- `Stealing` the cattle was just to pull us out...this here's a murder raid...
+- `Stealing` tickets, switching bodies...it is <u>so</u> <u>irresponsible</u>.
+- We're only `stealing` from the war criminal billionaires who own this place.
+- You started the week `stealing` the sforza and you ended it swiping the codex.
+- She'll stroke out, i'll download, you were down here `stealing` what i bled for.
+- She used to say it was a thief -- `stealing` away her life, an hour at a time...
+- I get myself half-killed for you -- and you reward me by `stealing` my assignments.
+- See you're still `stealing` the sailors from the sea -- i'll see you soon -- dinosaurs.
+- [beep] how about we pass the time by you telling us this is not like `stealing` blankets.
+- The boy is updating, he's strategy `stealing`... well, he didn't show up for work today...
+                 

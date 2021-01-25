@@ -1,0 +1,107 @@
+---
+title: "talked in a sentence | talked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "talked"
+---
+- But he never `talked`.
+- I `talked` to barzini.
+- Just `talked`, is all.
+- You `talked` about it?
+- You `talked` to gozer?
+- You `talked` to wendy?
+- I just `talked` to her.
+- I just `talked` to him!
+- I just `talked` to him.
+- I `talked` to this guy.
+- I `talked` to victoria.
+- I `talked` you into it.
+- I've `talked` nonsense.
+- Like we `talked` about?
+- Like we `talked` about!
+- `Talked` him out of it.
+- `Talked` like you, too.
+- We `talked` about this.
+- What we `talked` about.
+- He `talked` to me today.
+- I `talked` to him gordo.
+- Someone you `talked` to?
+- We barely even `talked`.
+- We `talked` him into it.
+- You `talked` to bellamy.
+- You `talked` to stifler?
+- Guess he `talked` to you.
+- Have you `talked` to her?
+- I `talked` to laura, rob.
+- I `talked` to miss simms.
+- I `talked` you into this?
+- She `talked` him into it.
+- We `talked` on the phone.
+- Who have you `talked` to?
+- You `talked` to his wife?
+- You've `talked` to billy?
+- Have you `talked` to eric?
+- I think i `talked` to him.
+- `Talked` all the time too.
+- We haven't `talked` a lot.
+- We haven't `talked` since.
+- We've `talked` about this.
+- He `talked` to you himself?
+- I'd `talked` to him before.
+- I `talked` a man back once.
+- I `talked` to andy kaufman!
+- I `talked` to pony earlier.
+- You `talked` to her lately?
+- Have you `talked` to cotton?
+- I can be `talked` out of it.
+- I `talked` to foreal, diego.
+- We `talked` about restraint.
+- We `talked` about the video.
+- We `talked` for a few hours.
+- You haven't `talked` to him.
+- Claire, we `talked` about it.
+- Glenn `talked` you out of it.
+- Has anybody `talked` to them?
+- I'd rather you just `talked`.
+- I `talked` to colonel diyoza.
+- I `talked` to him last night.
+- I've `talked` to your father.
+- We sat and `talked`, addison.
+- Yeah, i `talked` to your mom.
+- Yes you `talked` to new york?
+- You `talked` to her about me.
+- He `talked` about demons, huh?
+- Indra, we `talked` about this.
+- What we `talked` about before?
+- Who `talked` you into it, kay?
+- But we never `talked` about it.
+- Have you `talked` to triplette?
+- Hey, we've `talked` about this.
+- I `talked` to her this morning.
+- I `talked` to her two days ago.
+- I `talked` to him, it was real.
+- Maybe someone saw and `talked`.
+- What has she `talked` you into?
+- Yes, we `talked` to mr. maroon.
+- You `talked` to nice guy eddie?
+- Has anybody `talked` about that?
+- How many men have i `talked` to?
+- I heard how you `talked` to him.
+- Remember what we `talked` about?
+- Richard `talked` to his parents.
+- We've `talked` enough, benjamin.
+- Who was it that you `talked` to?
+- Worse since she `talked` to him.
+- Worse since she `talked` to who?
+- Darling, i `talked` to millicent.
+- He never `talked` to you, did he?
+- I just `talked` to her on monday.
+- I thought we `talked` about that.
+- `Talked` to her this afternoon...
+- We both `talked` to her, michael.
+- Cameraman: we `talked` about this.
+- Have i `talked` to him about this?
+- Haven't `talked` to him in -- 911.
+- Have you `talked` to tom about it?
+- He `talked` to the new york times?
+                 

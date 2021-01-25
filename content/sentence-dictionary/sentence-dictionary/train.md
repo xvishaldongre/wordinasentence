@@ -1,0 +1,107 @@
+---
+title: "train in a sentence | train example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "train"
+---
+- No, dear, the `train`.
+- Sounds like a `train`.
+- That's a `train`, son.
+- I'll be on the `train`.
+- Met her on the `train`.
+- We'll miss the `train`.
+- Do you see that `train`?
+- He got hit by a `train`.
+- I hear a `train` coming.
+- I'll be on that `train`.
+- You can't go by `train`.
+- Now it's time to `train`.
+- When is the next `train`?
+- He will be on the `train`.
+- The `train` will be going.
+- Your private `train`, sir.
+- Only warriors `train` here.
+- But i got a `train` to make.
+- He's on a `train` to moscow.
+- I'll catch the `train` back.
+- Looks like a `train` ticket.
+- On the nine o'clock `train`.
+- There'll be another `train`.
+- `Train`'s a little unsteady.
+- `Train` your young tibetans.
+- What if i miss that `train`?
+- When does the `train` leave?
+- How far does this `train` go?
+- I'll meet you at the `train`?
+- Now just get off the `train`.
+- Then i've a `train` to catch.
+- Depends what `train` i get on.
+- Look, there's another `train`.
+- Of course he's on the `train`!
+- Of course he's on the `train`.
+- `Train` your fire on the door.
+- What time is the next `train`?
+- A girl you meet on the `train`.
+- You could `train` someone else.
+- You'll miss your `train`, jeff.
+- Yes -- i will be on the `train`.
+- Your daddy was hit by a `train`.
+- An hour from the `train` station.
+- I assumed because of the `train`.
+- If you lose, you help us `train`.
+- I'm taking the `train`... jersey?
+- It is not long 'till the `train`.
+- Somebody threw him off a `train`.
+- You're going to miss the `train`.
+- I'm not ready to die on a `train`.
+- Now i can buy the fuckin' `train`.
+- On the `train`, i mean, of course.
+- You're going to miss your `train`!
+- "checking every northbound `train`.
+- I got me my electric `train`, mama.
+- I thought you'd missed the `train`.
+- Mama said you was hit by a `train`!
+- <u>that's</u> how they `train` you!
+- What happens if i miss the `train`?
+- You heading to the `train` station?
+- Ethan...kittridge is on the `train`.
+- I guess i better get to the `train`.
+- What time's sailor's `train` get in?
+- ♪ paula wants me to `train` with her.
+- That's why we won't take the `train`.
+- Why can't he marry us on the `train`?
+- You're supposed to `train` her voice.
+- Couldn't we just have taken a `train`?
+- Here, it will be cold on that `train`.
+- That's following a `train` of thought.
+- Where were you sitting on the `train`?
+- Had two marriages, both `train`-wrecks.
+- He left yesterday on the night `train`.
+- If you `train` yourself to look for it.
+- She's just a girl i met on the `train`.
+- You ever seen a `train` run on a woman?
+- It's how we `train` them to be warriors.
+- Mother is coming with us on the `train`.
+- She passed last year in a `train` wreck.
+- Wake up, young lady, that's our `train`.
+- Bruce is making the nine o'clock `train`.
+- [station master] this `train` must leave.
+- `Train` goes at four minutes past twelve.
+- Could you tell me when's the next `train`?
+- So, what, uh, what `train` are you taking?
+- We're supposed to `train` together, right?
+- And `train` with them and with no one else.
+- I'm taking the nine o'clock `train`, hildy.
+- Nobody -- i think i'm gonna `train` myself.
+- Now the `train` leaves-- spanish passports?
+- Somebody mitchell picked up on the `train`.
+- I don't see why we have to take the `train`.
+- I just don't want margo to miss her `train`.
+- [police commander] he's not on this `train`.
+- We could take the six o'clock `train`, hildy.
+- You'll think you've been fucked by a `train`.
+- I thought of it when i saw you on the `train`.
+- I use them to `train` him not to rip up paper.
+- My plant manager is somewhere on this `train`.
+- Tell me about the day you got off the `train`.
+                 

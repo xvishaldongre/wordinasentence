@@ -1,0 +1,107 @@
+---
+title: "ship in a sentence | ship example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ship"
+---
+- I must meet my `ship`.
+- Just us on the `ship`.
+- This is an urm `ship`?
+- This `ship` is fucked.
+- Trying to jump `ship`.
+- Bring her to my `ship`.
+- I'm flying this `ship`.
+- It was an alien `ship`.
+- I want off this `ship`.
+- My `ship` is your `ship`.
+- Take the exodus `ship`.
+- That `ship` has sailed.
+- Their `ship` is so big.
+- This is our `ship` now.
+- Vader's on that `ship`.
+- We'll sweep the `ship`.
+- We own a `ship`, dodge.
+- Why the `ship` crashed.
+- Back to the `ship`, huh?
+- I can handle the `ship`.
+- I recognize this `ship`.
+- I saw your `ship` crash.
+- Look, this is my `ship`.
+- Must be a mining `ship`.
+- The heart of the `ship`.
+- This is a mining `ship`.
+- This `ship` killed them.
+- Transport `ship` secure.
+- What a beautiful `ship`!
+- What's my `ship` called?
+- When we saw that `ship`.
+- Where's the borg `ship`?
+- Who's flying the `ship`?
+- About the `ship`... am i?
+- But this `ship` knew, dj.
+- I didn't lose the `ship`.
+- It's still in the `ship`?
+- The bowels of the `ship`.
+- There's a special `ship`.
+- The `ship`'s real enough.
+- This is a working `ship`.
+- Where did this `ship` go?
+- 412 people on this `ship`.
+- A schematic of the `ship`.
+- Can't get your `ship` out?
+- Her mom was on the `ship`.
+- Just get us to the `ship`!
+- Let's get off thsi `ship`.
+- No vendettas on my `ship`.
+- On their transport `ship`.
+- Trudy, fire up the `ship`.
+- You got yourself a `ship`.
+- Because i knew that `ship`!
+- Being on the exodus `ship`.
+- Escort him onto the `ship`.
+- If it was a `ship` she hit.
+- I'm captain of this `ship`.
+- Sarris' `ship` h37c closer?
+- Take the exodus `ship` now.
+- That'll blow the `ship` up.
+- That `ship` will never fly.
+- There's beer on the `ship`.
+- Transport `ship` is secure.
+- Unauthorized `ship` launch.
+- Will we get another `ship`?
+- Everybody on the `ship` now!
+- I can't get off this `ship`.
+- I'll get you to your `ship`.
+- I'm staying with the `ship`.
+- Maybe it's the wrong `ship`.
+- My family is on that `ship`.
+- Right into the space `ship`!
+- [`ship`'s horn blasts] baby.
+- The captain on a `ship` can.
+- They're stealing our `ship`!
+- We got the damn `ship` back.
+- You saved the `ship`, spock.
+- ...and your expensive `ship`.
+- Head to the transport `ship`.
+- Is the `ship` going to sink??
+- It'll flood the whole `ship`!
+- Return to `ship` immediately.
+- She said the `ship` was evil.
+- The ex-`ship` news' reporter.
+- The `ship` needs its captain.
+- We're taking over the `ship`!
+- You sent them to that `ship`.
+- An exodus `ship` was launched.
+- He has a very powerful `ship`.
+- I hear he runs a tight `ship`.
+- Just like a ghost `ship`, huh?
+- On a passenger `ship` in 1953?
+- She torpedoed gorkon's `ship`.
+- The bow...front of the `ship`.
+- The `ship` is under attack...!
+- The `ship`'s good as finished.
+- We need the other drop-`ship`.
+- We're going to steal a `ship`?
+- _ we use the `ship`'s hemosep.
+- ...with every `ship` they had.
+                 

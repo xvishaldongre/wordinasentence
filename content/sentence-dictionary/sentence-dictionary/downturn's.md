@@ -1,0 +1,7 @@
+---
+title: "downturn's in a sentence | downturn's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "downturn's"
+---
+## Unfortunately, we have no example sentences for downturn's                 

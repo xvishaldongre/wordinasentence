@@ -1,0 +1,7 @@
+---
+title: "gelatinous in a sentence | gelatinous example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "gelatinous"
+---
+## Unfortunately, we have no example sentences for gelatinous                 

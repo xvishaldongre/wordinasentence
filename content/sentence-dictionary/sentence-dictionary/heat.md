@@ -1,0 +1,107 @@
+---
+title: "heat in a sentence | heat example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "heat"
+---
+- What, the `heat` here?
+- But we had `heat` baby.
+- `Heat` fried the wires.
+- Up here this is `heat`.
+- He's looking for `heat`.
+- It's the fucking `heat`.
+- Not this kind of `heat`.
+- Under `heat` properties.
+- It says "may have `heat`.
+- It's kicking some `heat`.
+- Let's turn up the `heat`.
+- I'll get the `heat` going.
+- They love `heat`, the sun.
+- This `heat` makes me tired.
+- Walked, in all that `heat`?
+- Ya know, i hate the `heat`.
+- I don't need any `heat`.
+- They got `heat` in michigan.
+- You know, i hate the `heat`.
+- Doesn't the `heat` bother you?
+- I never seen `heat` like this!
+- It's just this `heat` i think.
+- Mind if i turn on some `heat`?
+- Or maybe it's just the `heat`.
+- ...still don't feel no `heat`.
+- Sir, `heat` shields at maximum!
+- There's `heat` coming the door.
+- What say we turn up the `heat`?
+- There's too much `heat` on carl.
+- I can feel the `heat` on my legs.
+- This cool the `heat` off you any?
+- Yeah, man, but it's a dry `heat`.
+- All this `heat` we've been havin'.
+- `Heat` and chemical reactions.
+- Ben: get together for body `heat`.
+- `Heat` stroke is your idea of fun?
+- No `heat`, no flame, no explosion.
+- That means they sense body `heat`.
+- Took 'em out with a `heat` seeker.
+- How long will it take to `heat` it?
+- We've taken worse `heat` than this.
+- Awright, meat, give him your `heat`.
+- Don't you ever `heat` that stuff up.
+- ...i don't feel `heat` from the name.
+- There's two `heat` spots on the roof.
+- You said i'm bringin' `heat` on you?!
+- I'd feel better if we had some `heat`.
+- We can't push old pete in this `heat`.
+- There's a lot of `heat` on you already.
+- `Heat` make people do some crazy things.
+- You can `heat` them up and eat with him.
+- Mad like a dog in `heat`, i bet you were.
+- To fry... to cook over direct `heat`, oh!
+- But don't have the time to `heat` them up?
+- Maybe jerry jeff sent the `heat` after us.
+- That's a nice piece of `heat` right there.
+- What do you do for `heat` in this barrack?
+- Wow, it's really throwing off some `heat`.
+- Put a little `heat` under it, will you?
+- If this thing burns us, i take that `heat`.
+- The poor whore's suffocating in the `heat`.
+- I'm turning the `heat` on in my car tonight.
+- Just make sure you `heat` up some real food.
+- Can't take the `heat`, get outta the kitchen.
+- I mean, the `heat` he brought down is murder!
+- Man, it costs a fortune to `heat` this place.
+- Yes, like rain and sun, like cold and `heat`.
+- Don't you think we should turn off the `heat`?
+- It's when the `heat` is so bad, dogs go crazy.
+- You brought down so much fuckin' `heat` on me.
+- But i can `heat` some up for you if you'd like.
+- Just to `heat` enough water to wash this stuff!
+- With the iris closed, i can't `heat` the metal.
+- I guess the `heat`'s sweating off the wallpaper.
+- No `heat`, no gas--sis, this is some nifty idea!
+- Tony: jarvis, target extremis `heat` signatures.
+- Looks like we're in a dead `heat` after one hole.
+- You think you're the one to apply some `heat`?
+- I'm peter -- i'm ray -- okay, let's `heat` 'em up!
+- They're right under the primary `heat` exchangers.
+- But how can you carry on a discussion in this `heat`?
+- You can `heat` them up and -- nobody ever beat me up.
+- You can't take the `heat`, get out of the smokehouse.
+- Captain, we can't see her, but she gives off `heat`...
+- John, please-- i think this `heat` is making me crazy.
+- They put the `heat` on, my man, just like you're doing.
+- But it's always been under the `heat` lamp all dried out.
+- It's a high-efficiency filter and `heat` exchange system.
+- Your intentions are noble, but no diesel fuel for `heat`.
+- There must be some kind of thermal `heat` source down here.
+- You better `heat` up that miracle * you were talking about.
+- We have to surround it with as much body `heat` as possible.
+- Maybe the organisms like the `heat`, that's why they built...
+- That's nice, but we can't dodge this kind of `heat` for long.
+- This `heat` is much hotter than what they got in michigan.
+- I've got two `heat` signatures breaking through the tree line.
+- We saw it in the lawrence kasdan double-bill with body `heat`.
+- Why--i--er thought with all this `heat` turned on i'd hide it.
+- I think this `heat`'s getting to you the way you're rambling on.
+- Now the itching becomes burning... `heat`, upon `heat`, upon `heat`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "is in a sentence | is example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "is"
+---
+- Assume this `is` true.
+- Back `is` in new york.
+- Beauty `is` skin deep.
+- Bellamy `is` all that.
+- Bellamy, this `is` it.
+- Bloody big if it `is`.
+- Buff `is` funny, okay?
+- Business `is` booming.
+- But her name `is` max.
+- But i think this `is`.
+- But it `is` different.
+- But, it's not `is` it?
+- But my life `is` good.
+- But my name `is` adam.
+- But the time `is` now.
+- But this `is` a party.
+- But this `is`... yeah.
+- Cal knows who he `is`.
+- Calliope `is` in here.
+- Captain rhodes `is`...
+- Carson dyle `is` dead.
+- Casper, where `is` he?
+- Claire `is` your wife?
+- Clarke, `is` that you?
+- Claymore `is` rebuilt.
+- Come on... `is` it?...
+- Connor, `is` that you?
+- Conrad, where `is` he?
+- Conspiracy `is` right.
+- Craig `is` in trouble.
+- Dad's `is` over there.
+- Damn, this `is` sweet.
+- David, what `is` that?
+- Death `is` god's will!
+- Dialysis `is` working.
+- Diego `is` my brother.
+- Diego `is` my partner.
+- Dirt `is` a violation.
+- Doctor, he `is` awake.
+- Do you think she `is`?
+- Earth `is` survivable.
+- Echo, this `is` wrong.
+- El `is` one of us now.
+- Everyone `is` looking.
+- Everything `is` wrong.
+- First watch `is` over.
+- Flamm: this `is` 1055.
+- Football `is` my life.
+- For us, it `is` cheap.
+- Four hundred `is` bid.
+- German, `is` that you?
+- "god `is` great," yes?
+- Gondorff `is` federal.
+- Gregor, `is` that you?
+- Guess what today `is`?
+- He `is` a capable man.
+- He `is` a good godson.
+- He `is` doing so well.
+- He `is` evil on earth!
+- He `is` here, my lord.
+- He `is`, mr. torrance.
+- He `is` not one of us.
+- He `is` our only hope.
+- He `is` the situation.
+- He `is` very thorough.
+- He just-- yes it `is`.
+- Hello, this `is` back.
+- Her brother `is` here.
+- Her name `is` charlie.
+- Her name `is` kristen.
+- Her oil pan `is` shot.
+- Hesitation `is` death.
+- Hey, there she `is`...
+- His father `is` a man.
+- His name `is` chigurh.
+- His name `is` lincoln.
+- His name `is` maurice.
+- His name `is` michael.
+- His name `is` redfoot.
+- Hi, this `is` ed wood.
+- Hmm... what `is` this?
+- How far away `is` she?
+- How far `is` amarillo?
+- How hard `is` it to...
+- How `is` gideon today?
+- How `is` mr. gardiner?
+- How `is` richie doing?
+- How `is` that justice?
+- How `is` the old girl?
+- How long `is` a while?
+- How old `is` your boy?
+- Hun -- this `is` anna.
+- I don't know, `is` it?
+- I don't think he `is`.
+- _ i know what it `is`.
+- I know what junk `is`.
+- I know what that `is`.
+- I know what this `is`.
+- I'm curious, `is` all.
+- Indra, what `is` this?
+                 

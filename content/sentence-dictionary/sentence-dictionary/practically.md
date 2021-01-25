@@ -1,0 +1,87 @@
+---
+title: "practically in a sentence | practically example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "practically"
+---
+- I `practically` forgot.
+- It's `practically` set.
+- It's `practically` gone.
+- I'm `practically` family.
+- You're `practically` naked!
+- You're `practically` family.
+- He `practically` lived there.
+- Into `practically` a new bar.
+- It's `practically` my office.
+- They're `practically` on us .
+- She's `practically` tone-deaf.
+- They're `practically` animals.
+- He's `practically` dead already.
+- It's `practically` living alone.
+- Now, that's `practically` uncut.
+- `Practically` glows in the dark.
+- Dealing... what's '`practically`'?
+- The kid's `practically` in a coma.
+- I'm `practically` goin' in reverse.
+- It changes `practically` every day.
+- `Practically` an obsession of your.
+- The man `practically` has clemency.
+- God, i `practically` love you, josh!
+- Impersonating `practically` anybody.
+- I `practically` threw myself at him.
+- That makes us `practically` related.
+- Extremis is `practically` stabilised.
+- They `practically` own south america.
+- So you're `practically` finished, huh?
+- Well, they're `practically` invisible.
+- You and yorgi are `practically` twins.
+- You're `practically` out of liquor.
+- Doctors are `practically` never at home.
+- Italian is `practically` the same thing.
+- They're `practically` all the same, sir.
+- Well, the story's `practically` finished.
+- You -- you -- well, you `practically` did!
+- You could `practically` see into my window.
+- Your father `practically` owns the company.
+- It's all there, sir, `practically` verbatim.
+- It's `practically` stamped on your forehead.
+- She just `practically` asked you for a date.
+- I can `practically` see how they're doin' it.
+- Our boats `practically` kissed in the harbor.
+- You `practically` live at the goddamn clinic.
+- You're `practically` an institution around here.
+- I can `practically` taste the water in my throat.
+- It's `practically` an american ritual, mr. white!
+- My experience with real life is `practically` nil.
+- You `practically` bribed him with your erector set.
+- We're `practically` goddamned royalty, ragazzo mio!!
+- You know, that cheese is `practically` all chemicals.
+- I may need you to go to work `practically` immediately.
+- Someone who's `practically` a piece of <u>evidence</u>?
+- He laughed so hard he `practically` burst a blood vessel.
+- I thought about it for `practically` the entire flight...
+- Something on the news about it `practically` every night.
+- Which `practically` means, ninety per cent of the voters.
+- God, peggy, you're so unformed you're `practically` fetal.
+- So `practically` everything say is going to sound strange.
+- You heard penguin, he was `practically` begging me to show.
+- Jesus, skinny, i done `practically` every damn thing myself.
+- Planes fall from the sky for `practically` no reason at all.
+- Dude, we were `practically` made... take us right to kennedy.
+- He has managed to alienate `practically` the whole of vienna.
+- You can do `practically` the whole deal at your local kinko's.
+- I thought this was `practically` a done deal -- joe, cut it out.
+- You breathe in smoke, gas fumes, and earn `practically` nothing.
+- Little ol' eggs, pigeon eggs, that's all, fish eggs `practically`.
+- We `practically` paying him for the privilege of playing his club.
+- He `practically` proposed when he found out we had the same dermatologist.
+- I went to this spa in germany, a sanitarium `practically`, up on this mountain.
+- We `practically` compromised our whole operation to save your puckered old ass!
+- I mean, christ, it was rush hour and the traffic's `practically` standing still.
+- It's three thousand feet, `practically` straight down to the floor of the valley.
+- When i told woody and the brass about this coup, they `practically` shit a brick.
+- We think they were looking for something- they `practically` tore the place apart.
+- I'm raising our kids `practically` by myself, while you're running all over the world.
+- I doubt you even remember outpost 1.0 -- you'd have to start `practically` from scratch.
+- You're scientists all i know - they say it's as big as a house and `practically` red hot.
+                 

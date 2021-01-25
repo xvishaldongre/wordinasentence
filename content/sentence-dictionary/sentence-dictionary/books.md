@@ -1,0 +1,107 @@
+---
+title: "books in a sentence | books example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "books"
+---
+- No, not comic `books`.
+- We have other `books`.
+- We won't keep `books`.
+- Read some good `books`.
+- Who does these `books`?
+- I've seen it in `books`.
+- Kay had all his `books`.
+- Risks and comic `books`.
+- What's all them `books`?
+- But, sir... what `books`?
+- For your goddamn `books`.
+- Of `books`, gallop girls.
+- To talk about my `books`.
+- Want to read any `books`?
+- What are all them `books`?
+- I had ordered some `books`.
+- Karl has some cool `books`.
+- Oh, i own all your `books`.
+- Oh, you've read my `books`.
+- Somehow i imagined `books`.
+- You can learn from `books`.
+- `Books` don't mean anything.
+- I'm chasing picture `books`.
+- I read both of your `books`.
+- Outside of `books` and maps.
+- I have read every... `books`?
+- These `books` are my paddles.
+- Where are my goddamn `books`?
+- You got any `books` in there?
+- Did you read all them `books`?
+- I forgot my `books` at school.
+- The guy in your comic `books`.
+- Did you read all these `books`?
+- Do you sell comic `books` here?
+- I'll let you hit those `books`.
+- Diane takes care of the `books`.
+- Meyer just finished the `books`.
+- No really good elephant `books`.
+- Did i ever keep the `books` here?
+- I'll send you some comic `books`.
+- I thought the `books` were blank?
+- It's one for the history `books`.
+- So what `books` have you written?
+- D'you bring those crayola `books`?
+- I helped him cook the `books`, ed.
+- Some `books` miss johnson gave me.
+- Ain't all these white man's `books`?
+- But comic `books` are main business.
+- I aim for you to have these `books`.
+- I came back for some of the `books`.
+- I don't watch tv and i hate `books`.
+- Those are my `books`, and here am i.
+- Any `books` you like to read for fun?
+- Four hundred a week, off the `books`.
+- How many `books` have you sold, gale?
+- I ain't got nothing but them `books`.
+- I've read quite a few of his `books`.
+- Seeing as how i've read your `books`.
+- There seem to be quite a few `books`.
+- 41 `books`, and i never saw it coming.
+- Have you read all these `books`, will?
+- I hide these as i hide all my `books`.
+- I've read quite a few of your `books`.
+- Movies, `books`, restaurants, friends?
+- People sure like those misery `books`.
+- What are you doing with those `books`?
+- Where?- that's what the `books` say...
+- You should see all the `books` he has.
+- Did you know all the `books` are blank?
+- His journals, letters, maps, `books`...
+- On the `books` everything looks kosher.
+- What have my `books` got to do with it?
+- `Books`, cassettes, magazines, anything?
+- I don't even like his `books` that much.
+- Irregularities in my `books`, they said.
+- "the 100 greatest `books` ever written."
+- The pta doesn't ban `books` from school.
+- We add to a "chain" of previous `books`.
+- What about the rest of my comic `books`?
+- I'll carry a copy of one of your `books`.
+- Life's too slippery for `books`, clarice.
+- .most of these `books` will tell you how!
+- No one believes kurtzweil or his `books`.
+- Those `books`'ll never leave this office.
+- Why not put that in your `books` as well?
+- He still writing those crime porn `books`?
+- Honey... ...my `books` used to be perfect.
+- I don't either, but it sure sells `books`.
+- I got addicted to agatha christie `books`.
+- It's not about the quality of the `books`.
+- So when i left, she gave me these `books`.
+- Townsend, he had some of father's `books`.
+- You already have five `books` checked out.
+- You lied to me about those school `books`.
+- Because, growing up, `books` were my world.
+- Not like `books` or literature or anything.
+- Now the fight's off the `books` altogether.
+- You can look at all my `books` you want to.
+- 'cause our history `books` end in the 1930s.
+- History `books` are first onto the bonfires.
+                 

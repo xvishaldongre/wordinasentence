@@ -1,0 +1,107 @@
+---
+title: "weak in a sentence | weak example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "weak"
+---
+- Does this look `weak`?
+- My hand is too `weak`.
+- But they're not `weak`.
+- Don't want `weak` legs.
+- My voice is, is `weak`.
+- Signal's pretty `weak`.
+- Her pulse is too `weak`.
+- His pulse is too `weak`.
+- Satan is the `weak` one.
+- I'm just `weak`, i guess.
+- You're too `weak`, frank.
+- She was `weak` and dumb...
+- Wishes are for the `weak`.
+- Amanda wasn't `weak`, okay?
+- A word only the `weak` use.
+- I've got this `weak` heart.
+- Nick... sal is very `weak`.
+- Only `weak` men stop there.
+- But you're as `weak` as her.
+- Ok, last night i was `weak`.
+- His memory is getting `weak`.
+- Nothing but a `weak` vaccine.
+- You must think i'm so `weak`.
+- But i've got a `weak` stomach.
+- He's `weak`, he's incompetent.
+- I ain't sayin' i ain't `weak`?
+- Who's `weak` now, big brother?
+- You can't afford to be `weak`.
+- `Weak` men follow their orders.
+- If i look `weak` now, it's over.
+- That's how `weak` my hands went.
+- Every opponent has a `weak` spot.
+- Frank's a real `weak` little kid.
+- Such a small and `weak` creature.
+- This makes special k look `weak`.
+- Nix has got to have a `weak` spot.
+- I've got a `weak` signal over there.
+- I'm just `weak`, sister; i'm so `weak`.
+- You know i don't mean they're `weak`.
+- Everybody's got a fucking `weak` spot.
+- Wha... is this turnout `weak` or what?
+- But you're `weak` for hiding from them.
+- Sleep is for the `weak`, mr. president.
+- You will be hungry, you will be `weak`.
+- Unite with someone as `weak` as you?
+- But he was too `weak` to climb the pass.
+- The strong prey on the `weak` down here.
+- They say this strife has made us `weak`.
+- This one's as `weak` as cricket pee-pee.
+- His pulse is `weak`, and he's burning up.
+- I'm not `weak`, get out of my sight, cage.
+- Because you believe the commander is `weak`?
+- So what do you pick such `weak` sisters for?
+- Yes, an astonishing power over `weak` minds.
+- His vital signs are `weak` and getting weaker.
+- I'm afraid our hand is pretty `weak`, captain.
+- Mom, your heart rate's `weak` - we lost comms.
+- Well, i guess you caught me at a `weak` moment.
+- I'm flattered, tootso, does that make me `weak`?
+- Man, all it got to do is find their `weak` spot.
+- By that time i'll be too `weak` to win the title.
+- Don't think i'm `weak`, just because i'm a woman.
+- The ice nation did what lexa was too `weak` to do.
+- Austria was `weak`, and it's neighbors were strong.
+- But our hero had just one `weak` link in his chain.
+- But i think `weak` legs ain't bad sometimes, y'know.
+- She's too `weak` for another bone marrow extraction.
+- Sometimes, when i feel `weak`, i have these...visions.
+- When clarke killed-- [crying] you're `weak`, pathetic.
+- You point me to a `weak` spot, mens mea fiat mens tua.
+- Things turned out to be as we thought; leon was `weak`.
+- It looks like there might be a `weak` spot in the bathroom.
+- Looks at miller, sees him growing `weak`, starting to sway.
+- You're too `weak` to do what now has to be done, thank you.
+- I made you look `weak` at mount weather, do you hear someone?
+- She's been the `weak` tit on this mama cat since the beginning.
+- If we do see it... fighting each other only makes us `weak`.
+- The `weak`, the `weak` have got to have somebody to fight for them.
+- I been watchin' the movies -- studyin' -- he ain't `weak` nowhere.
+- Steve's `weak`, immoral and a liar but he's still a real nice guy.
+- The `weak` ones are these 'people' who can't speak their own minds.
+- I'm old, i'm `weak`, my strength is gone -- it's a prison, you idiot!
+- Lucky for me, there was one gullible schlub you people are so `weak`.
+- A `weak` vaccine against the virus agent scully has been infected with.
+- I-uh, love is, uh, is too `weak` a word for what... well, i certainly...
+- If i may make a suggestion... we have different `weak` spots than you do.
+- On account of you're cold as snow an' don't have no `weak` nerve nor fear.
+- The dark commander took her over, you say having feelings makes me `weak`.
+- My life has been chock full of people with complications and `weak`- nesses.
+- You built a machine that can find anybody's `weak` spot, just like you said.
+- I - uh - have this `weak` feeling in my knees -- i don't know who you are.
+- It's definitely `weak` but i have a feeling if we do enough of it we'll be okay.
+- Men have the courtesy to punish the `weak`, but women love punishing the strong.
+- Why does a `weak` person have to go out and find a strong person... to hang onto?
+- If i hand out 5,000 flyers, i get all the turkey shreds put it here, no `weak` spots.
+- Could you really abandon the `weak` and the needy merely to fulfill some selfish dream.
+- You were too `weak` to do what had to be done, and they've begun their launch protocol.
+- Did he mention an irreparab- ly `weak` vein in the further reaches of your famous brain?
+- In category b is everyone who wants to be in category a, but are too afraid, too `weak`..!
+- How many innocent lives have you sacrificed, whenever she uses her powers, she gets `weak`.
+                 

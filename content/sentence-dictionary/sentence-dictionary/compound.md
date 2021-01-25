@@ -1,0 +1,53 @@
+---
+title: "compound in a sentence | compound example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "compound"
+---
+- It's like a `compound`.
+- Build our own `compound`.
+- We `compound` each other.
+- You build us a `compound`.
+- Of the words "our `compound`."
+- Inside 4th brigade `compound` ?
+- He lives in a judicial `compound`.
+- They help us build our `compound`.
+- So we can build our own `compound`.
+- Within the `compound` will be fine.
+- A `compound` organic-metallic alloy.
+- It won't get our `compound` built.
+- To discuss building them a `compound`.
+- He's still in the `compound`, isn't he?
+- How did they get inside the `compound`?
+- Scott, get this back to the `compound`.
+- Take my horse and go to the `compound`.
+- He sent us out to the fender `compound`.
+- But the sword could be in his `compound`.
+- The `compound` has to be kept cold... no...
+- Is not going to get this `compound` running.
+- The children of gabriel are in the `compound`.
+- We'll search everywhere inside the `compound`.
+- Stole a car, leading us through the `compound`.
+- We'll need a lot of commotion on the `compound`.
+- Each number probably corresponds to a `compound`.
+- I don't need to `compound` the problem with women.
+- There are 3 escaped killers in this `compound` now.
+- Me... she took a group to the second `compound` site.
+- Are feared dead after they set their `compound` ablaze.
+- He said you went to the protected `compound` yes, you are.
+- Then you throw price out into the `compound`, nice and loud.
+- An experimental `compound` the romulans have been working on.
+- You just want to know so you until our `compound` gets built.
+- We help them build the new `compound`, you've read the studies.
+- Two packs of cigarettes say dunbar never gets out of the `compound`.
+- Aren't you a little afraid to turn the stoolie loose on that `compound`?
+- The one your friend without the leg is smuggling all over the `compound`.
+- No animals outside the `compound`, and most certainly not without a leash.
+- Cigliuti `compound` -- master bedroom -- next </b> cigliuti sits up in bed.
+- But when we woke you to clear the ground for our `compound`, without killing everyone.
+- Looking for some foreign `compound` in the blood of that alien you dropped the other day.
+- We have a special forces squadron out of thailand surrounding the `compound` as we speak.
+- Fender `compound` -- kitchen -- [flashback] ten minutes ago make us a pot of coffee, edna.
+- If you do anything like that again, we don't need them to help us build our own `compound`.
+- I thank god every day that i did not `compound` my sinful life by the stain of a murder.
+                 

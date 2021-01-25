@@ -1,0 +1,89 @@
+---
+title: "x in a sentence | x example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "x"
+---
+- Mr. `x` is a demagogue.
+- The `x`-men are weirdos.
+- I'm minister malcolm `x`.
+- `X`, y, and z, follow me.
+- I've got your `x`-men 134!
+- I'll take your `x`-men 134!
+- Like... like professor `x`.
+- What sort of name is "`x`"?
+- Find your "`x`" and shut up.
+- I found the in `x` s payment.
+- They've closed the `x`-files.
+- It's not about the money, `x`!
+- I would say that the `x` is...
+- Number one, locate the p.i.`x`.
+- Darlin', this is `x`-file stuff!
+- Oh, i forgot my `x`-ray glasses.
+- One big lousy `x` like our flat.
+- Say hello to malcolm `x` for me.
+- Mr. `x`, i was out there tonight.
+- Do they have an `x`-rated channel?
+- Well, let's wait for the `x`-rays.
+- All i know is "`x`" marks the spot.
+- Oh, and i found dr. `x`, thank you.
+- '`x`' department special operations.
+- `X`-ray vision, things of that sort.
+- Mr. `x`, i won't make you out a liar.
+- Triple `x`-rated interactive fantasy?
+- Three `x`' s. you're wrong about that.
+- This is good work, `x`, damn fine work.
+- Crude and defiant as always, triple `x`.
+- Cut the crap, `x`, i saw you down there.
+- I've booked you in for a chest `x`-ray .
+- What about this `x`-ray vision of yours?
+- Have you been `x`-rayed recently, martin?
+- He was an `x`-ray technician or something.
+- Looked like some shit from the `x`- files.
+- Malcolm `x`'s widow was on the line today.
+- "war machine rox" with an "`x`," all caps.
+- If that was the r, i'd love to see the `x`.
+- "death at the double `x` ranch" - ra- a-nch.
+- That cat number two has an `x`-ray eyepatch.
+- Has the wing confirmed holding at `x`-points?
+- Don't even bother, `x` man, i'm not your type.
+- Not everyone can have `x`-ray vision, you know.
+- You've done your job, `x`, head back to prague.
+- Cornballs from jersey on `x`. feelin' the effex.
+- What's with that "`x`" on the back of your head?
+- Mr. malcolm `x`, why do you teach black supremacy?
+- Don't look at me, `x`, she handles all the details.
+- I figure from the `x`-ray it ain't just the spleen.
+- Yes, a fistula too small to show up on the `x`-rays.
+- I got no interest in you, xavier, or your... `x`-men.
+- We could be like the fuckin `x`-rated "wonder twins"!
+- An `x`-class solar flare has begun what's wrong with me?
+- I signs with an "`x`" my mom would know how to save him.
+- Save the speeches for malcom `x`. i just wanna get laid.
+- Here we've got a purported `x`-ray, dr. lechter's surgery.
+- I'll send wilson up to take you for `x`-rays, mr. gardiner.
+- Just place an `x` in the appropriate place on the lifeline.
+- When interpol found the `x`-rays, there was mild jubilation.
+- It was the only movie up to that time rated `x` for violence.
+- His lungs got so black they couldn't find 'em with an `x`-ray.
+- I've got some news for you, mr. `x`, you're a three time loser.
+- Oh, i forgot to tell you, they're prescription `x`-ray glasses.
+- It doesn't make sense to `x`-ray your bags coming off the plane.
+- So maybe you should tattoo another couple of `x`'s on your head.
+- `X` -- that's what it ought to say there on that goddam headstone.
+- I'm going to send you to the hospital to have a few `x`-rays taken.
+- I'm pretty familiar with the school and i've never seen that "`x`".
+- Thought you bought the farm down there, `x`. glad as hell to see you.
+- Don't make me question my own judgment, `x`. i guess you got my e-mail.
+- Oh, i'll bet you he has a babe with him right out of a triple-`x` video.
+- The `x`-5 unit is a new top-secret biological weapon, a manmade virus...
+- All right, lieutenant, give me a name and specifics, i'll have the `x`.o.
+- Would we have radium and `x`-rays without someone first dreaming we could?
+- All packages are screened, `x`-rayed and then hand-searched for explosives.
+- Supposed to be getting some giant `x`- ray machines to run the trucks through.
+- The bank has an expensive security system; metal detectors and `x`-ray machines.
+- It appears to be a heavy fluid of some sort... it blocks the `x`-rays... close...
+- We have soldiers on board, e-`x` grunts, the baddest of the bad...and their weapons?
+- It purports to be the `x`-ray of dr. l... ...standard issue... a fellow with five fingers.
+- That's were two lines cross -- forming an `x`. oh, an tv a minute and already an attitude.
+                 

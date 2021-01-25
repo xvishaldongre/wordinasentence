@@ -1,0 +1,8 @@
+---
+title: "andante in a sentence | andante example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "andante"
+---
+- Second movement, `andante`!
+                 

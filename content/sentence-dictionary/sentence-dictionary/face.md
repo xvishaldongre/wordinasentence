@@ -1,0 +1,107 @@
+---
+title: "face in a sentence | face example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "face"
+---
+- Cheer up, neck `face`.
+- Don't hurt the `face`!
+- Ellie's `face` clouds.
+- Grenade in the `face`.
+- He has a cop's `face`.
+- ♪ in her `face` ♪ now.
+- I've got my `face` on.
+- I've seen your `face`.
+- Jim gordon his `face`.
+- Let me see his `face`.
+- Or `face` destruction.
+- To `face` that future.
+- You got a baby `face`.
+- You have to `face` it.
+- And that's your `face`.
+- Did you see his `face`?
+- I don't like ya `face`.
+- I have to `face` facts.
+- I'll smack your `face`.
+- I never saw his `face`.
+- I saw it on his `face`.
+- Let's `face` the truth.
+- Not touching my `face`.
+- So why the long `face`?
+- Such a nice `face` too.
+- That `face` goes there.
+- To your `face`, anyway.
+- Get it out of my `face`.
+- Go and wash your `face`.
+- I didn't see his `face`.
+- If you saw his `face`...
+- I laughed in his `face`.
+- I never forget a `face`!
+- I never forget a `face`.
+- It didn't have a `face`?
+- It's all over my `face`.
+- It shows on your `face`.
+- I will `face` my fear...
+- Man, get outa my `face`.
+- Seen that `face` before.
+- Shoot 'em in the `face`.
+- Take it at `face` value.
+- That `face`, goes there.
+- The look on your `face`!
+- The next `face`, please.
+- We never see his `face`!
+- With a `face` like this?
+- You just `face` planted!
+- _ and my blocking `face`.
+- `Face` it, z, we're lost!
+- Get that outta my `face`.
+- I don't like your `face`.
+- I have five `face` holes.
+- I want to be your `face`.
+- Let her `face` the world.
+- Now let's `face` it here.
+- That's a <u>`face`</u>???
+- <u>this</u> is my `face`!
+- What the `face` value is.
+- You don't like my `face`?
+- You never see his `face`.
+- Your `face` is new to me.
+- Allie, look at his `face`.
+- Alvy, uh, let's `face` it.
+- `Face` it, freedom failed.
+- Get out of my `face`, man!
+- Givin' me his mean `face`.
+- Golden `face` has friends.
+- ...her `face` is careworn.
+- He's got no `face` for me.
+- His `face` doesn't change.
+- How can i ever `face` him?
+- I'd never seen his `face`.
+- I saw your `face`, mulder.
+- It's all over your `face`.
+- It's really a nice `face`.
+- Look at my `face`, jackie.
+- My `face` will just be me.
+- That raven work `face` on?
+- We'll smash his `face` in.
+- You got that, shit `face`?
+- Your windows `face` south.
+- Did you see bryan's `face`?
+- Did you see his *`face`*--?
+- I am pink in my `face`, no?
+- I gave him this new `face`.
+- I never noticed his `face`.
+- In the `face` of the enemy.
+- I seen your fucking `face`.
+- Maybe not to your `face`...
+- Tore your `face` right off!
+- `Face` a court- martial?
+- Blow up right in our `face`.
+- He slaps alex in the `face`.
+- I have to go `face` to `face`.
+- My `face` tell you all that?
+- She'll kick your `face` off!
+- What's wrong with my `face`?
+- You don't want to `face` it.
+- <b>shut your fucking `face`!!
+                 

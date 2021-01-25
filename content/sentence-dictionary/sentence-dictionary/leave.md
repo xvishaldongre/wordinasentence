@@ -1,0 +1,107 @@
+---
+title: "leave in a sentence | leave example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "leave"
+---
+- Don't `leave` so soon.
+- Don't let him `leave`.
+- How do i `leave` here?
+- I have to `leave` now.
+- I...i have to `leave`.
+- I `leave` that to god.
+- I'm gonna `leave` now.
+- I need you to `leave`.
+- I say we `leave` here.
+- I want you to `leave`.
+- Just `leave` it alone.
+- Just `leave` me alone!
+- Just `leave` me alone.
+- Least you can `leave`.
+- `Leave` a girl behind?
+- `Leave` it to the men.
+- `Leave` the handcuffs.
+- `Leave` the light off.
+- `Leave` them out here.
+- `Leave` the work here.
+- `Leave` us all behind.
+- Let's `leave` them be.
+- No, `leave` her alone!
+- So when do we `leave`?
+- So you better `leave`.
+- Take it or `leave` it.
+- Theo turns to `leave`.
+- To `leave` his family?
+- We can't just `leave`.
+- We can't `leave` here.
+- We got to `leave` him.
+- We `leave` this place.
+- We should `leave` too.
+- Why should we `leave`?
+- Why�d we ever `leave`?
+- You could `leave` him.
+- You `leave` her alone.
+- You've got to `leave`.
+- Zoey: just `leave` it.
+- Can't `leave` the desk.
+- Do not `leave` me here.
+- Don't `leave` just yet.
+- Eric, `leave` it alone.
+- I `leave` extras, miss.
+- I'll `leave` it to you.
+- I'll `leave` right now.
+- I should `leave` today.
+- I tried to `leave` him.
+- It's who i `leave` out.
+- I want to `leave` fast.
+- I was about to `leave`.
+- I was asked to `leave`.
+- Just `leave` her alone.
+- Just `leave` me behind.
+- `Leave` him alone, tim.
+- `Leave` him, he's dead.
+- `Leave` it where it is.
+- `Leave` me alone, jude.
+- `Leave` me alone, wick!
+- `Leave` me out of this.
+- `Leave` the butter out?
+- `Leave` the rifle here.
+- `Leave` us your number.
+- `Leave` you in the zoo.
+- Let's `leave` it alone.
+- She didn't `leave` you!
+- Shore `leave`, admiral.
+- So you need to `leave`.
+- Then i'll `leave` thee.
+- Then `leave` her to me.
+- To `leave` my--my note.
+- We have to `leave` now.
+- Well i want to `leave`.
+- We should `leave` soon.
+- Why did you `leave` me?
+- You can't just `leave`.
+- You could `leave` town.
+- You decided to `leave`.
+- You're on `leave`, man.
+- You want me to `leave`?
+- If i try to `leave`?
+- Now you can `leave`.
+- You saw him `leave`?
+- Can't you `leave` it be?
+- Don't `leave` me, buddy.
+- Dunwitty, don't `leave`.
+- For now, we `leave` him.
+- He couldn't `leave` her.
+- He won't let us `leave`!
+- He wouldn't `leave` her.
+- I don't want to `leave`.
+- I `leave` it to you, mr.
+- I told you to `leave`.
+- I won't let you `leave`!
+- Just...`leave` it alone.
+- Just `leave` them alone.
+- Just `leave` them there.
+- `Leave` her alone, chip.
+- `Leave` her ficus alone.
+- `Leave` her out of this.
+                 

@@ -1,0 +1,107 @@
+---
+title: "quit in a sentence | quit example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "quit"
+---
+- Can't you just `quit`?
+- I just `quit` smoking.
+- I know when to `quit`.
+- I `quit` the business.
+- Never `quit` a winner.
+- `Quit` fuckin' around.
+- `Quit` fucking around.
+- `Quit` kidding around.
+- `Quit` messing around!
+- That maid just `quit`.
+- You could just `quit`.
+- Tell them i `quit`.
+- Arthur wants to `quit`!
+- If i `quit`, what then?
+- I had to `quit`, midge.
+- I told you -- i `quit`.
+- `Quit` screwin' around!
+- `Quit` screwing around.
+- You just up and `quit`.
+- Are you going to `quit`?
+- `Quit` using your words!
+- So i was, then i `quit`.
+- Then why did you `quit`?
+- What a way to `quit`.
+- I gotta `quit` right now.
+- I should `quit` this job.
+- My last bodyguard `quit`.
+- They `quit` this morning.
+- We can't have you `quit`.
+- You two better `quit` it.
+- He'll `quit` in two weeks.
+- If i `quit` now, they win.
+- My assistant `quit` today.
+- `Quit` while you're ahead.
+- She `quit` this afternoon.
+- That's why i don't `quit`.
+- The cook `quit` yesterday.
+- When'd you `quit` smoking?
+- Why don't you just `quit`?
+- You don't like it, `quit`.
+- Because i `quit` breathing.
+- I `quit` smoking, didn't i?
+- Tom, `quit` fucking around.
+- You can't `quit` on me now.
+- You think i should `quit`?!
+- You wish you hadn't `quit`?
+- You've `quit` the force.
+- I never asked you to `quit`!
+- I thought you `quit` school.
+- Taylor -- `quit` riding him.
+- Hank, `quit` screwing around.
+- I can `quit` whenever i want.
+- I don't know if i can `quit`.
+- I `quit` two days ago, brian.
+- `Quit` messing around, drake.
+- `Quit` worryin' about elaine.
+- `Quit` pacing, you big ox.
+- I can't `quit` until you `quit`.
+- Oh, when'd you `quit` smoking?
+- `Quit` sleeping in the garden!
+- There... it seems to `quit`...
+- Come on, `quit` fucking around.
+- Do you have to `quit` the play?
+- I `quit` that acting shit, man.
+- `Quit` acting all squeezed out.
+- `Quit` lookin' at me like that!
+- Will you `quit` moving around?!
+- You should `quit` making waves.
+- Believe me, i'm going to `quit`!
+- Do you really want me to `quit`?
+- `Quit` while you're ahead, okay?
+- `Quit` worrying about everthing.
+- You want me to `quit` the show?!
+- You don't know how to `quit`?
+- But i think you better `quit` it.
+- Give me a minute and i'll `quit`.
+- Answer them and `quit` kicking me!
+- Don't listen to 'em, don't `quit`.
+- I don't know... or you can `quit`.
+- I don't `quit` and neither do you.
+- Peace and `quit` is for libraries.
+- `Quit` trying to hold on so tight.
+- Shut your mouth and `quit` crying!
+- Unless - have you `quit` your job?
+- When you `quit` hollywood, i mean.
+- You better `quit` pushing me, pal.
+- You never did know when to `quit`.
+- Actually, i'm not sure if i `quit`.
+- But rose... you better `quit` that.
+- Doc won't `quit`, been up 36 hours.
+- I can't `quit` and leave you alone.
+- I need to `quit` right this minute.
+- Oh, `quit` your whining and pay up.
+- `Quit` complaining; we're in space.
+- Wants a $2 raise - or he'll `quit`.
+- I'll `quit`, maybe you should start.
+- Say, if i had ten bucks, i'd `quit`.
+- The tv won't `quit` with that stuff.
+- "hit it and `quit` it" by funkadelic.
+- We were so close, we couldn't `quit`.
+                 

@@ -1,0 +1,7 @@
+---
+title: "ghostwritten in a sentence | ghostwritten example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ghostwritten"
+---
+## Unfortunately, we have no example sentences for ghostwritten                 

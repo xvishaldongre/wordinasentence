@@ -1,0 +1,61 @@
+---
+title: "reporter in a sentence | reporter example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reporter"
+---
+- I'm a `reporter`, sam.
+- With a real `reporter`.
+- He was a war `reporter`.
+- You're not a `reporter`.
+- I'm a veteran `reporter`.
+- I am just such a `reporter`.
+- Of all things, a `reporter`!
+- I'm not just some `reporter`.
+- The ex-ship news' `reporter`.
+- The cost-efficient `reporter`.
+- Male `reporter`: hey, mr stark.
+- You're still a good `reporter`.
+- Ask, you're the girl `reporter`.
+- Mr. lounds, you're a `reporter`.
+- Get your mind off the `reporter`.
+- A `reporter`'s work is never done.
+- Yeah, well... you're a `reporter`.
+- You call yourself a `reporter`?
+- Geller...you wanna be a `reporter`?
+- Aw, come on, vicki, i'm a `reporter`.
+- I am the `reporter` or the architect.
+- I want to send a `reporter` to miami.
+- She's the star `reporter` on the mail.
+- This is roy ostrey, he's a `reporter`.
+- Are you the `reporter` or the architect?
+- I'm glad you hit that `reporter`, stewart.
+- Geller, you don't want a `reporter`'s life.
+- Then why didn't you talk to the `reporter`?
+- I want to be a human being, not a `reporter`.
+- I thought you were an editor, not a `reporter`?
+- You get to see some funny ones as a `reporter`.
+- I'm a `reporter` with the <i>new york times</i>.
+- You're the first `reporter` in here for two hours.
+- It's because i'm an intrepid girl `reporter`, jimmy.
+- I'm a `reporter`, john, an experienced professional...
+- Our man even arrived before the "chronicle" `reporter`.
+- You are a `reporter` for one of those dirty newspapers.
+- It has been alleged - yes� do you call yourself a `reporter`?
+- Mother, i promise you that he won't be a `reporter` much longer.
+- Imagine wasting a great `reporter` - -- uh, reporters -- on this.
+- `Reporter`: each bottle proudly displays kilmarnock as its origin.
+- What did you expect, that you would make star `reporter` in a month?
+- I never heard your name or read it in variety or the `reporter` or anyplace.
+- Well, if she's gonna write fiction, there's nothing like being a `reporter`.
+- Say, i've been a `reporter` twenty years and never heard any hooey like that.
+- Did you know that there was a <i>new york times</i> `reporter` there that night?
+- I'm what you made me -- a cheap `reporter` who'd give up her soul for a story!...
+- It would have worked if you'd been satisfied with just being editor and `reporter`.
+- Well, i'm sorry to see a good `reporter` go blooey� let me know when you're quitting.
+- How does a `reporter` in central america learn that gandhi was born in porbandar anyway?
+- For the first time i'm beginning to feel like a fucking `reporter`-- woodward, i got a tip.
+- Her beauty worked against her when she started as a `reporter` in louisville, her hometown.
+- I can take care of myself and i'm getting the story every high school `reporter` dreams of.
+- If paris goes kablooey i want the best `reporter` i've got right there in the middle of it.
+                 

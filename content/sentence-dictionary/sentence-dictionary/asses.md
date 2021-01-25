@@ -1,0 +1,70 @@
+---
+title: "asses in a sentence | asses example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "asses"
+---
+- Saving our `asses` again.
+- All your `asses` are safe.
+- Get off your `asses` and go.
+- Then it's our `asses`, isn't it?
+- Kicks the cops' `asses` some more.
+- We're gonna save our `asses` here!
+- No more thoughts from your `asses`.
+- And she's about to save our `asses`.
+- They're busy covering their `asses`.
+- Wait around on your `asses` all day.
+- Jesus, i gotta save all your `asses`.
+- Or i'll article 15 both your `asses`.
+- Tell 'em to get their `asses` up here!
+- They'll be on our `asses` from now on.
+- We ought to kick their `asses` anyway.
+- Five years ago we got our `asses` beat.
+- They're workin' their `asses` off here.
+- Five years ago, we got our `asses` beat.
+- Look, we kicked their `asses` last time.
+- Ya don't have ta be hard `asses`, do ya?
+- Our `asses` won't be worth a plug nickel.
+- And kick your sorry `asses` back to russia.
+- ...but we just got our `asses` kicked, pal!
+- We can already kick the disciples' `asses`.
+- You people were screaming your `asses` off.
+- He starts kickin' all the cops' `asses`.
+- Let's do it, an' get our `asses` outta here.
+- We gotta get our `asses` into mexico tonight.
+- He'll kick our `asses` from here to cleveland.
+- I say we go over there and kick their `asses`.
+- The damn thing is going to have our `asses`....
+- Or i will burn your `asses` and snort the ashes.
+- We tried to murder someone to cover our `asses`!
+- Our `asses` gonna be in a sling if we get caught.
+- Then their `asses` lucked out and found that coke.
+- Get your `asses` to the transport ship now let's go!
+- I gotta kick `asses` sometimes to make it run right.
+- Pretty sophisticated for half-`asses` mountain boys.
+- Let's just stick out thumbs up our `asses` and twirl.
+- Got to figure we're still kicking their `asses` in the war.
+- My brother has to look up old people's `asses` all day long.
+- Hamilton, you're going to have to cover our `asses` as we cross.
+- Those guys are walking around with their heads up their `asses`.
+- Even if they do get out of kuwait we ought to kick their `asses`.
+- Should be kissing our `asses` for being allowed that's borrowing.
+- Their `asses` are here, but their fuckin' heads are still in sicily.
+- Currently, the king pin is a very large-type pole stuck up our `asses`.
+- If we get our hands on those shit `asses`, we're talking payback time.
+- Dragging our `asses` through the swamps in search of some worm-eaten boat?
+- If there was a god, `asses` wouldn't be at the perfect height for kicking.
+- Take my advice, when dealing with these fbi tight-`asses`, go by the book.
+- Just a lot of half `asses`, so the tendency's been not to stretch yourself.
+- With a little effort, i really think we can nail their `asses` to the wall.
+- Four army colonels, medals up their `asses`, are standing on the other side.
+- They just want to cover their `asses` or meet girls or tear each other down.
+- Call morris and them and get the band together and just party our `asses` off.
+- I suggest you watch your own `asses` cause barnes gonna be down on all of 'em.
+- Fu sheng's going on r&r, you don't want to send their `asses` out on an ambush.
+- They wanted to stuff me in levenworth to cover their `asses` on a botched assignment.
+- I bet both our `asses` bobby peru done murdered all kinds of people, and meant it, too.
+- They got a couple of crackers working there don't know their `asses` from their elbows.
+- Because, if the british got off their `asses` and came up here, now, we would be smashed.
+- If he is, half the town has seen us take him out for dinner like a couple of jack-`asses`.
+                 

@@ -1,0 +1,107 @@
+---
+title: "where's in a sentence | where's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "where's"
+---
+- Hey, `where's` claude?
+- I... `where's` louise?
+- Say, `where's` mother?
+- So `where's` buckaroo?
+- So `where's` plissken?
+- So `where's` the harm?
+- Uh, `where's` the box?
+- `where's` dr. arroway?
+- `where's` emily, hank?
+- `where's` he holed in?
+- `where's` her husband?
+- `where's` mundt, fink?
+- `where's` my daughter?
+- `where's` my day book?
+- `where's` my paycheck?
+- `where's` my schedule?
+- `where's` that deputy?
+- `where's` that lizard?
+- `where's` the chopper?
+- `where's` the dog now?
+- `where's` the hot ass?
+- `where's` the manager?
+- `where's` the old man?
+- `where's` the subject?
+- `where's` the victory?
+- `where's` the village?
+- `where's` the... what?
+- `where's` what i want?
+- `where's` your family?
+- `where's` your friend?
+- `where's` your helmet?
+- `where's` your master?
+- `where's` your missus?
+- `where's` your monkey?
+- `where's` your mother?
+- `where's` your wallet?
+- Yo, `where's` the "d"?
+- But `where's` my money?
+- But `where's` your hat?
+- Flynn... `where's` ram?
+- Hey, `where's` melanie?
+- Karen, `where's` nancy?
+- Lynette, `where's` sid?
+- Max, `where's` kristen?
+- Monty, `where's` raven?
+- Now `where's` the baby?
+- So `where's` the money?
+- So `where's` the party?
+- `where's` chili palmer?
+- `where's` doctor mccoy?
+- `where's` erica mother?
+- `where's` flanders now?
+- `where's` he taking us?
+- `where's` mr maccarron?
+- `where's` mrs. baldwin?
+- `where's` mrs. moebius?
+- `where's` mum's amends?
+- `where's` my damn ammo?
+- `where's` my parachute?
+- `where's` my secretary?
+- `where's` rose, anyhow?
+- `where's` star, david?!
+- `where's` that bellows?
+- `where's` that diamond!
+- `where's` the backpack?
+- `where's` the bathroom?
+- `where's` the elevator?
+- `where's` the girl now?
+- `where's` the lab coat?
+- `where's` the mandarin?
+- `where's` the medicine?
+- `where's` the next one?
+- `where's` the old lady?
+- `where's` the restroom?
+- `where's` the sarge...?
+- `where's` the surprise?
+- `where's` the want ads?
+- `where's` your back-up?
+- `where's` your brother?
+- `where's` your husband?
+- `where's` your journal?
+- `where's` your lithium?
+- `where's` your manners?
+- `where's` your old man?
+- `where's` your partner?
+- `where's` your uniform?
+- You, `where's` wanheda?
+- `where's` the knife?
+- Casper, `where's` telly.
+- Jackson, `where's` finn?
+- Jesus, `where's` hallie?
+- Now `where's` she goin'?
+- Say, `where's` the wife?
+- So...`where's` my truck?
+- Then `where's` the chip.
+- Well, `where's` he from?
+- `where's` everyone else?
+- `where's` he gonna turn?
+- `where's` it hid, honey?
+- `where's` jack's pistol?
+                 

@@ -1,0 +1,59 @@
+---
+title: "thy in a sentence | thy example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "thy"
+---
+- `Thy` juliet is alive.
+- Hallowed be `thy` name.
+- I will kiss `thy` lips.
+- Grave where `thy` victory?
+- I take thee at `thy` word.
+- Sweet love, renew `thy` force!
+- Speakest thou from `thy` heart?
+- At `thy` good heart's oppression.
+- It matters not, he is `thy` king!
+- What is `thy` bidding, my master?
+- What is `thy` bidding, my master?
+- As in "death, where is `thy` sting?"
+- Oh death where is `thy` sting-a-ling?
+- I pay `thy` poverty, and not `thy` will.
+- Let `thy` soul be healed what you say?
+- Let `thy` thoughts be guided you know it.
+- A pack of blessings light upon `thy` back.
+- What, then, didst thou in `thy` mind have?
+- I thought `thy` disposition better tempered!
+- Let `thy` spirit you know what we're saying!
+- `Thy` love read by rote and could not spell.
+- Let `thy` thoughts be guided i think i hear it!
+- A thousand times the worse, to want `thy` light.
+- Remember that i see into `thy` soul as god sees.
+- The world is not `thy` friend, nor the worlds law.
+- Thou must find `thy` peace at the center, richard.
+- The exchange of `thy` love's faithful vow for mine.
+- So am i. `thy` father will have to know of `thy` lying.
+- "the exchange of `thy` love's faithful vow for mine."
+- "thou shall not covet `thy` neighbour�s wife", ethan.
+- Thou art as hot a jack in `thy` mood as any in verona.
+- I'll send my letters to `thy` lord post haste to mantua.
+- I thank thee o lord that in `thy` ... come on you pansy!
+- Whatever happened to that old saying "love `thy` neighbor."
+- Wherefore railest thou on `thy` birth the heaven and earth?
+- Let `thy` spirit let `thy` soul be healed you know, i just might!
+- ♪ hallowed be `thy` ♪ jasper: you'll never get to the kill switch.
+- I would thou hadst my bones, and i `thy` news: i pray thee, speak.
+- `Thy` kingdom come, `thy` will be done, on earth as it is in heaven.
+- He said, "take up `thy` task, and know ye the path of contentment."
+- As sweet repose and rest come to `thy` heart as that within my breast.
+- Affliction is enamoured of `thy` parts, and thou art wedded to calamity.
+- The law that threatened death becomes `thy` friend and turns it to exile.
+- It is some meteor that the sun exhales to light thee on `thy` way to mantua.
+- Your majesty by and by i come to cease `thy` strife and leave me to my grief.
+- 'tis but `thy` name that is my enemy; thou art thyself, though not a montague.
+- Instruct `thy` son and he shall refresh thee and shall give delight to `thy` soul.
+- "i know `thy` works and `thy` labour and how thou canst not bear them that are evil.
+- Yes, mother ... because harold tests `thy` father's will is no reason to admire him.
+- O romeo, doff `thy` name, and for that name which is no part of thee take all myself.
+- "�all my fortunes at `thy` foot i'll lay, and follow thee my lord throughout the world."
+- If thou lose hope being weary in the days of distress, `thy` strength shall be diminished.
+                 

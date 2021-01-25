@@ -1,0 +1,107 @@
+---
+title: "sir in a sentence | sir example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sir"
+---
+- Aye `sir`, coding now.
+- Blue eyes, yes, `sir`.
+- Can i help you, `sir`?
+- Comms are down, `sir`.
+- Did you decide, `sir`?
+- Do you hear me, `sir`!
+- Gee, would you, `sir`?
+- Gillmer: sorry, `sir`.
+- Go right ahead, `sir`.
+- Happy new year, `sir`.
+- Hardly a worry, `sir`.
+- He's got a gun, `sir`.
+- I'd like to go, `sir`.
+- I know it well, `sir`.
+- I'm doing okay, `sir`.
+- I'm frightened, `sir`.
+- I'm your valet, `sir`.
+- Is it a charge, `sir`?
+- Is this a test, `sir`?
+- It's all right, `sir`.
+- It's his father `sir`.
+- It's important, `sir`!
+- May i help you, `sir`?
+- Naturally i am, `sir`.
+- Never gets old, `sir`.
+- No need, `sir` my i.d.
+- No, `sir`, we did not.
+- No, `sir`, you do not.
+- Not in america, `sir`.
+- Port thrusters, `sir`.
+- Right this way, `sir`.
+- `Sir`, allow me to go.
+- `Sir`, a pod launched.
+- `Sir`, we're not done.
+- `Sir`, yes it is, `sir`.
+- `Sir`, you were right.
+- Son of a bitch, `sir`.
+- Thank you, kind `sir`.
+- That's correct, `sir`!
+- That's correct, `sir`.
+- The pod's away, `sir`.
+- They just left, `sir`.
+- This is `sir` wilfred.
+- Well, `sir`, i putter.
+- Which maneuver, `sir`?
+- Why, certainly, `sir`.
+- Why do you ask, `sir`?
+- Yes, `sir`, commander.
+- Yes, `sir` -- ma'am...
+- Yes, thank you, `sir`.
+- You did say it, `sir`.
+- You're all set, `sir`.
+- Your new chair, `sir`.
+- Actually, `sir`-- look.
+- Anna: i'll wait, `sir`.
+- A practical man, `sir`.
+- At your service, `sir`.
+- But, `sir`, he wasn't.
+- But, `sir`... missus...
+- Cool your boots, `sir`.
+- Direct hit - no, `sir`.
+- Eight forty-two, `sir`.
+- Everything okay, `sir`?
+- Exactly correct, `sir`.
+- Good day to you, `sir`.
+- I feel the same, `sir`.
+- I have the silo, `sir`.
+- I'll break them, `sir`.
+- I'll try anyway, `sir`.
+- I'm almost done, `sir`.
+- I'm an irishman, `sir`.
+- It's going slow, `sir`.
+- It's your phone, `sir`.
+- It was in latin, `sir`.
+- I wanted to win, `sir`.
+- I wish you luck, `sir`.
+- Just one moment, `sir`.
+- Look at my foot, `sir`!
+- Major bell here, `sir`.
+- May i help you, `sir`?
+- Mayo, zack mayo, `sir`!
+- Mustn't do that, `sir`.
+- My name is lorl, `sir`.
+- Never mind the '`sir`'.
+- ... no response, `sir`.
+- No `sir`, it's unusual.
+- No, `sir`, none at all.
+- No, `sir`, no response.
+- No, `sir`, not raining.
+- No `sir`, we're closed.
+- No, `sir`, you did not.
+- No you couldn't, `sir`.
+- On your command, `sir`.
+- On your command, `sir`.
+- Pardon the hour, `sir`.
+- Right as always, `sir`.
+- Say it, brother, `sir`.
+- `Sir`, he's very upset.
+- `Sir`, i need a moment.
+- `Sir`, i took the call.
+                 

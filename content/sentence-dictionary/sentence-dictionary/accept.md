@@ -1,0 +1,107 @@
+---
+title: "accept in a sentence | accept example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "accept"
+---
+- I `accept` your terms.
+- I don't `accept` that.
+- I won't `accept` that.
+- I won't `accept` this!
+- Please `accept` these.
+- Very well, i `accept`.
+- I did not `accept` any.
+- I wouldn't `accept` it.
+- Don't `accept` any more.
+- `Accept` no substitutes.
+- Of course i `accept`.
+- Do you `accept` the risk?
+- In that case, i `accept`.
+- I will not `accept` this!
+- I do not `accept` excuses.
+- ...do not `accept` charity.
+- Do you `accept` this honor?
+- Please `accept` our thanks.
+- To `accept` your surrender.
+- `Accept` what's done, louis.
+- I... `accept` your proposal!
+- I `accept` your resignation.
+- I `accept` your generosity...
+- Please, please `accept` this.
+- Still can't `accept` it, huh?
+- I `accept` your challenge.
+- Why don't we `accept`, animal?
+- I'll `accept` your resignation.
+- Yes, i'll `accept` the charges.
+- Of course i'm going to `accept`!
+- They trust me, they `accept` me.
+- Sonofabitch wouldn't `accept` it.
+- You do `accept` frinkcoin, right?
+- `Accept` what's happened, michael.
+- But wudan does not `accept` women.
+- He ever `accept` cash for a favor?
+- I would `accept` that as an axiom.
+- Michelle cannot possibly `accept`!
+- But i hope you `accept` my apology.
+- Do you `accept` princess jasmine...
+- Do you think they'd `accept` these?
+- `Accept` the invite, stay the night.
+- I `accept`, but i insist on a wager.
+- We can't `accept` this extravagance.
+- The grounders will never `accept` it.
+- No, no, no, i couldn't `accept` a gift.
+- Your calabrian friend, i will `accept`.
+- That are unable to `accept` what can be.
+- I appreciate it, but i don't `accept` it.
+- I leave for deeside -- i do not `accept`.
+- I would never force you to `accept` this.
+- Not one of the 12 clans will `accept` it.
+- What you cannot do is `accept` injustice.
+- If it's true, they'll have to `accept` it.
+- I still can't `accept` the world as it is!
+- Please `accept` my sympathy for your loss.
+- She knew you would `accept` her challenge.
+- I can `accept` that, it comes with the job.
+- I think she will `accept`, but i'm not sure.
+- We `accept` mastercard and american express.
+- Hey, i know this is hard to `accept`, okay.
+- If you `accept`, that would make three of us.
+- Unless you are going to `accept` twenty quid.
+- Either fight the way things are or `accept` it.
+- He couldn't `accept` that it's all meaningless.
+- Do you `accept` anyone of the jewish persuasion?
+- I `accept` there's not much you can do about it.
+- If i could `accept` the offer right now, i would.
+- I guarantee he will `accept` that amount from me.
+- Its very nice of ted but... we can't `accept` it.
+- I am prepared to `accept` the terms, mr. newcombe.
+- I broke the rules and i `accept` the consequences.
+- I'd like to `accept` the transfer - am i too late?
+- I suspect he'll `accept` his payment in publicity.
+- There are three vows that every nun must `accept`.
+- Can you `accept` this mission, and keep it private?
+- He'll either back me up or `accept` my resignation.
+- I'll `accept` any currency except the albanian lek.
+- This new policy will be for our people to `accept`.
+- Well, we will `accept` these charming little gifts.
+- If the institution is your life, <u>`accept`</u> it.
+- Is your commander going to `accept` the outcome, no!
+- No, that's the point - he won't `accept` your favor!
+- Sooner or later you're going to have to `accept` it.
+- If you pull that lever, - do you `accept` this honor?
+- I see someone who doesn't `accept` the world as it is.
+- The only arrangement i'll `accept` is full investment.
+- They deplore the incident, but `accept` our apologies.
+- V'ger never intended to `accept` a transmitted signal.
+- We'd be delighted to `accept` your gracious invitation.
+- `Accept` the fruit of my first quest as my wedding gift.
+- Do not `accept` anything he attempts to hold out to you.
+- ...do you `accept` the lord jesus christ as your savior?
+- I can either fight the way things are, or `accept` them.
+- It just never seemed possible, and i had to `accept` it.
+- We need to `accept` that they have spies inside sanctum.
+- If you `accept`, let me know a golden day with their dad.
+- I'm sorry, madam, we don't `accept` gratuities in the uk.
+- Please `accept` my apology for not having done so sooner.
+- Sometimes my thinking is a little muddy, i `accept` that.
+                 

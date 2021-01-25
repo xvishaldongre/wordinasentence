@@ -1,0 +1,64 @@
+---
+title: "officers in a sentence | officers example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "officers"
+---
+- What is it, `officers`?
+- `Officers` to main gate.
+- We're police `officers`.
+- There's no `officers` here.
+- You stay among the `officers`.
+- Two `officers` will escort you.
+- What can we do for you, `officers`?
+- We got two `officers` in the hospital.
+- Allow me to consult with my `officers`.
+- I hear you 've been seeking `officers`?
+- `Officers` aren't like you and me, man.
+- They are threatening police `officers`.
+- Did you shoot the `officers` in question?
+- I want you to take these `officers`... sir?
+- Deck four, captain; `officers`' quarters...!
+- One of the finest men, and `officers`, alive.
+- The other `officers` will be here any minute!
+- We only have eight `officers` on duty, chief.
+- Sucked in `officers` from all over the county.
+- Two `officers` have been assigned to the case.
+- Did one of the `officers` work you over a little?
+- I'm loathe to kill my brother `officers`, edmund.
+- `Officers`, `officers` what can i do for you today?
+- I want to address the `officers`, all the `officers`.
+- What do you want with those two medical `officers`?
+- You gripe to me, i gripe to my superior `officers`.
+- Eight thousand, five hundred, soldiers and `officers`.
+- We applied for `officers`' training together, remember?
+- I've had a couple hispanic `officers` casing it all day.
+- I asked the `officers` if you had committed some crime...
+- `Officers`, there's your killer, do your duty, arrest him!
+- We're all in this together, as law enforcement `officers`.
+- The `officers`' club with a steam room and a massage maybe?
+- My father was one of the `officers` in the plot against hitler.
+- Just two single police `officers` working a very dangerous case.
+- Sir, i've had my `officers` search this train from top to bottom.
+- There's `officers` positioned and waiting to move in a block away.
+- Anti-american radicals who have killed federal `officers` out here!
+- If that's your position, then eighteen of your `officers` will die.
+- Jean-luc picard... my `officers` doctor crusher and counselor troi.
+- Ordinarily, of course, we never put `officers` up with enlisted men.
+- You don't remember assaulting a police officer...several `officers`?
+- There was a dinner last night, two hundred lapd `officers` were there.
+- But meanwhile perhaps you'd like to meet some of your fellow `officers`.
+- Then, have one of your `officers` drive him home - i'll see to the rest.
+- We have more `officers` created by congress than we know what to do with.
+- Marriage is - funny... fleet encourages marriages among flight `officers`.
+- But, no, these guys show anyway, and commit murder upon federal `officers`.
+- `Officers`, i've never said the p-word out loud, much less written it down!
+- Texans take it very personal when ya kill their law enforcement `officers`.
+- `Officers` in toluca lake just found an affluent couple...completely gutted.
+- Call comes, and evacuation `officers` meet them at pre-arranged departure areas.
+- I've also drafted a letter to families of `officers` killed in the line of duty.
+- Mysteriously my fellow `officers` discovered ten pounds of heroin in my cruiser.
+- If what you're saying is true, then why would he have killed two police `officers`?
+- Because they have hardly any uniforms, they designate `officers` with colored ribbons.
+- We need medical `officers` for short- arm inspection starting the first afternoon out.
+                 

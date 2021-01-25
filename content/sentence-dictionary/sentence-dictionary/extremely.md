@@ -1,0 +1,72 @@
+---
+title: "extremely in a sentence | extremely example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "extremely"
+---
+- How `extremely` clever.
+- You are `extremely` sexy.
+- He's `extremely` generous.
+- I am `extremely` grateful.
+- I'm `extremely` skeptical.
+- It was `extremely` stupid.
+- My contact is `extremely` shy.
+- You are both `extremely` loud.
+- We're running `extremely` late.
+- `Extremely` unfortunate maneuver.
+- I listened `extremely` carefully.
+- Those are `extremely` harsh terms.
+- I'm `extremely` worried about that.
+- You've been `extremely` patient.
+- Landing zone is `extremely` hostile.
+- The kid is ugly -- `extremely` ugly.
+- They're `extremely` aggressive birds.
+- Wow... you look `extremely` beautiful.
+- Was `extremely` impressed by my father.
+- That's an `extremely` negative response.
+- They're armed and `extremely` dangerous.
+- I'm `extremely` upset about it, benjamin.
+- I've had an `extremely` bad day, octavius.
+- Not at all cowardly, `extremely` practical.
+- They tell me it is `extremely` instructive.
+- Well... she's an `extremely` jealous person.
+- What it did to them it did `extremely` fast.
+- We were `extremely` close until i dropped out.
+- Jason bourne is armed and `extremely` dangerous.
+- Classic, yet `extremely` sexual, don't you think?
+- It could be `extremely` useful to jog his memory.
+- Some of those branches are `extremely` capricious.
+- I must confess, however, to being `extremely` naive.
+- I thought those long flashbacks were `extremely` good.
+- My dear francis, you do seem `extremely` uncomfortable.
+- It�s `extremely` important to my investigation... a hunch.
+- Lisa's an `extremely` valuable member of the skywire team.
+- This is an `extremely` dangerous direction, mr. president.
+- "it looked `extremely` rocky for the boston nine that day."
+- It's `extremely` dangerous, and i've never done that before.
+- I know it's `extremely` cruel to waken anyone at such an hour.
+- We must be `extremely` careful what goods we take in exchange.
+- Thank you marcel, for that... `extremely` redundant explanation.
+- You have to ask nicely 'cause i've had an `extremely` rough day.
+- You're gifted and `extremely` determined, but... it's not up to me.
+- This is an `extremely` difficult and paranoid time in human history.
+- Because in spite of his race, this man is `extremely` valuable to me.
+- To browse your seditious, dangerous, and `extremely` banned bookshelves.
+- ...but i'm afraid you have put her in an `extremely` dangerous situation.
+- Oh, but with the army behind you, you could become `extremely` political.
+- You'll forgive me but all the excitement has left me `extremely` parched.
+- Yes, but the very end, when he actually died, that was `extremely` sudden.
+- For a guy about to try his first dom perignon, you are `extremely` uptight.
+- It's `extremely` unlikely that they had any idea what they were looking at.
+- Yes, i get `extremely` emotional when assholes put bullets in my mailbox...!
+- I must tell you in all honesty that i'm `extremely` dubious about the results.
+- It was terrifying, convincing, automatic, and `extremely` simple to understand.
+- Your contributions to the museum over the years have been `extremely` generous.
+- It's been the subject of an `extremely` heated debate on the internet for years.
+- She was asking about you earlier, rick, in a way that made me `extremely` jealous.
+- It's `extremely` complicated, and i'd rather not talk about it in my fragile state.
+- An `extremely` realistic nightmare brought on by what's been happening in this town.
+- This is an `extremely` complex case, and we have a lot of fancy theories floating around.
+- I think this will be `extremely` useful, a good way for us to absorb some of your methods.
+- There's no telling what he was involved in, and the matter may be `extremely` confidential.
+                 

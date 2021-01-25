@@ -1,0 +1,53 @@
+---
+title: "fence in a sentence | fence example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "fence"
+---
+- The power to the `fence`.
+- This `fence`...it's so...
+- Well, he's on the `fence`.
+- Eh, he's got a low `fence`.
+- He was behind that `fence`.
+- This `fence` is high-tensile.
+- There's no riding the `fence`.
+- Be advised, the `fence` is live.
+- There's the `fence`... now what?
+- They're gonna torch the `fence`.
+- My foot went through the `fence`.
+- Ok. ok. let's not `fence` around ...
+- Someone let them through the `fence`.
+- Which means i gotta `fence` it for two.
+- Always playing both sides of the `fence`.
+- Ladies and gentlemen, the `fence` is hot.
+- My `fence` in san francisco ... 305-4410.
+- No warning signs, no `fence`, no nothing.
+- Every summer the `fence` had to be repaired.
+- What kind of people have a radiation `fence`?
+- Been fixin' to build me `fence` one of these days.
+- There was a deer on the other side of the `fence`.
+- Tim, you're going to have to let go of the `fence`.
+- You don't think -- worked both sides of the `fence`.
+- The `fence` starts here, and goes all the way around.
+- I could probably `fence` this for three or four grand.
+- The full fifty mile of perimeter `fence` are in place?
+- Fenster and mcmanus have a `fence` set to take the stuff.
+- They were walking along the `fence` past the soccer field.
+- I'm trying to work for god's sake... you get a new `fence`.
+- Day-day, if you don't hop that `fence` i'mma throw you over.
+- Even nedry knew better than to mess with the raptor `fence`.
+- You don't really belong on this side of the `fence`, you know.
+- But it's the closest thing they stock to my side of the `fence`.
+- He developed evidence you were working both sides of the `fence`.
+- I was learning to `fence`, to fight, anything anyone would teach me.
+- My first case as a rookie, two brothers climbed a `fence` at the zoo.
+- So you were here when they were doing the work on the boundary `fence`?
+- You've got to go over the back `fence` and i'll meet you on the corner.
+- Because it came rushing at me from behind this `fence`, and i... clarke?
+- Why, if you tore one picket off of your neighbor's `fence` he'd sue you!
+- One come out here once an' i clipped him from behin' with a `fence` stake.
+- You learn to sort of block it out, you know, like cops `fence` off a crime scene.
+- Putting up another `fence`, five metres on the other side of the one that's there.
+- I threw it over stephen king's `fence` if raven finds out where we are, upside down.
+- Sold it to mister laplante, the `fence`, who's now trying to blackmail poor john.
+                 

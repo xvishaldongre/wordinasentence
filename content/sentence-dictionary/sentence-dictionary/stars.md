@@ -1,0 +1,107 @@
+---
+title: "stars in a sentence | stars example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stars"
+---
+- Rock `stars` everywhere.
+- The `stars` are perfect.
+- What's with the `stars`?
+- Then i defy you, `stars`!
+- Underneath the `stars`...
+- It must be in the `stars`.
+- Looking up at the `stars`.
+- They're like film `stars`.
+- My head is in the `stars`."
+- Fixed up like movie `stars`.
+- Rabbit sees <u>`stars`</u>!'
+- You're getting four `stars`.
+- An algorithm gives us `stars`.
+- Any movie `stars` buried here?
+- Boy, look at all those `stars`.
+- Great `stars` have great pride.
+- You ever see any movie `stars`?
+- Humanity's flight to the `stars`.
+- I used to look for `stars` alone.
+- Writers, directors, porn `stars`.
+- Birds fly to the `stars`, i guess.
+- Hey, i'm map to the `stars` eddie.
+- The `stars` are shining right now.
+- They are little `stars` and birds.
+- He made me see the `stars` ... why?
+- Spreckled with uncountable `stars`.
+- You seem fascinated by the `stars`.
+- In an hour there will be no `stars`.
+- He was bigger than ten movie `stars`.
+- I can give you `stars`, i know i can.
+- Movie `stars` never pick up the check.
+- I use girls who look like movie `stars`.
+- `Stars` need bigger and bigger audiences.
+- Shvartze jazz musicians and movie `stars`.
+- I'm getting five `stars` in all my classes.
+- See what's happening to them - the `stars`.
+- He made all-`stars` in high school, you know.
+- She fucks fighters and rock and roll `stars`.
+- Lies are like `stars`... they always come out.
+- How to navigate using the `stars`, how to hunt.
+- With plastic surgery to look like movie `stars`.
+- Wow, you rock `stars` are really sensitive, huh?
+- And brought his people safely across the `stars`.
+- We're all descendants of the same `stars`, ellie.
+- He couldn't find the `stars`, so he stole my comb.
+- `Stars` and garters, are you really so ridiculous?
+- They're so remote - cold - beautiful, the `stars`.
+- We came across the `stars` to save the human race.
+- Dope, liquor, hookers that look like movie `stars`.
+- ...the fault, dear brutus, is not in our `stars`...
+- We were like two `stars` in the same constellation.
+- Hey... ♪ reach the `stars` ♪ i don't know about you.
+- Well, he sort of pitches for the cosmic all-`stars`.
+- Hey there ...you with the `stars` in your eyes... hi.
+- See any `stars`, politicians, deliver any babies yet?
+- They treat us like we're hollywood `stars` over here.
+- Perhaps the `stars` hold the answer to your questions.
+- You'll be seeing `stars` in a minute, miss teschmacher.
+- You need to date more rock `stars`, baby girl, you know?
+- "`stars` align and forests wakes, it's time to run away."
+- We always had movie `stars` but they used to be our `stars`.
+- You'll look that way till the `stars` fall from heaven.
+- Are these our two `stars`, sitting here in front of my nose?
+- Still reaching for the `stars`, with the world on your back.
+- I miss you more, multiplied by all the `stars` in our galaxy.
+- So you're still that little boy looking for shooting `stars`.
+- Try not to look at the `stars`... keep your eyes on the ship.
+- We are alone - but look at the `stars` and never feel lonely.
+- When i was a boy, one night, i saw a thousand shooting `stars`.
+- The `stars` whisper back to men the future course of events.
+- In the universe i saw we're not exactly the `stars` of the show.
+- The fault, dear brutus, is not in our `stars`, but in ourselves.
+- "the fault, dear david, is not in ourselves but in our `stars`."
+- When the `stars` align and the forest wakes, tell me about this.
+- Do you remember the last time you and i danced under the `stars`?
+- There are over four hundred billion `stars` out there -- i'm not.
+- We've had four presidents who stayed here, lots of movie `stars`.
+- Before then, we thought we were the only people in all the `stars`.
+- Doubt that the `stars` are fire, doubt that the sun doth move will!
+- On the bottom put seek asylum where the `stars` shine on betlemska.
+- I was trying to tell people that god is in your heart, zero `stars`.
+- In between the `stars`, it's seething with light and gasses and dust.
+- The `stars`... there's no right or wrong in them, they're just there.
+- Barbara stanwyck, susan hayward - of course, they're just movie `stars`.
+- If you reach for the `stars`, you're bound to get -- mm-jack, pull over.
+- Nasir khan: it's a demigod kind of a status that film `stars` have here.
+- There was a time you looked at the `stars` and dreamed of what might be.
+- Well, how about those old romantic movies with those great `stars`, huh?
+- They were children of our leading citizens, `stars` of the football team.
+- Okay, um, there'll be a choreographer to the `stars` and, oh no -- no way.
+- ...i mean, she knows all the music, and pop `stars`, and clothes and stuff.
+- I'm afraid it's been a long time since the white legions roamed the `stars`.
+- I need to learn how to dance how to navigate using the `stars`, how to hunt.
+- Well, i am reaching for the `stars` i can hear the fluid filling up in them.
+- No engines, no computers, just the wind, the sea and the `stars` to guide you.
+- Our leaders aren't presidents anymore -- they're pop `stars` and screen idols.
+- "when `stars` align and the forest wakes, but peace is a foreign concept here.
+- A ship brought us across the `stars` you weren't scared she was gonna hurt you.
+- But it sounds hot, and we wanted to get all our `stars` lined up in case it is.
+- "the brightness of her cheek would shame those `stars` as daylight doth a lamp.
+                 

@@ -1,0 +1,107 @@
+---
+title: "such in a sentence | such example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "such"
+---
+- Don't be `such` wimps.
+- I did no `such` thing!
+- I'm `such` an asshole.
+- It's `such` a turn-on.
+- No `such` thing, baby.
+- `Such` an immense joy.
+- This is `such` a fuss.
+- This is `such` a mess.
+- You are `such` a nerd.
+- You're `such` a swine!
+- I had `such` hopes.
+- Don't be `such` a baby!
+- Don't be `such` a baby.
+- Don't talk `such` bunk!
+- He has no `such` thing!
+- He's `such` a nice guy.
+- I said no `such` thing.
+- `Such` a lovely family.
+- `Such` a nice face too.
+- `Such` a simple matter.
+- Ugh, `such` high hopes.
+- You're `such` a dingus.
+- You're `such` a kidder.
+- You're `such` a retard!
+- You're...`such` a wimp.
+- Don't be `such` a pansy.
+- Don't be `such` a pussy.
+- I'll do no `such` thing.
+- It's just `such` a mess.
+- I've been `such` a fool.
+- Oh, he's `such` a loser!
+- `Such` a beautiful view.
+- `Such` hair, `such` mouth!
+- That is `such` bullshit.
+- There's no `such` thing!
+- There's no `such` thing.
+- This is `such` bullshit!
+- This is `such` bullshit.
+- We made `such` advances.
+- You're in `such` a mess.
+- He was `such` a dork!
+- I am in `such` deep shit.
+- I have `such` a headache.
+- I made no `such` promise.
+- It's `such` a dank smell.
+- It's `such` a great song.
+- It's `such` a sweet nose.
+- Not `such` a good friend.
+- `Such` a curious species.
+- There is no `such` thing.
+- This is `such` a mistake.
+- Was there `such` a thing?
+- We were `such` dumbasses.
+- You're in `such` a hurry.
+- You're `such` a dumbhead.
+- You're `such` a fuck-ass.
+- You're `such` an asshole.
+- Am i like `such` a fellow?
+- Don't be `such` a hardass.
+- Don't be `such` a killjoy.
+- Frances, i'm `such` a cad.
+- I feel like `such` a jerk.
+- I think no `such` a thing.
+- I will do no `such` thing.
+- Octavia's `such` a badass.
+- `Such` a good boy you are!
+- `Such` a terrible dream...
+- We have no `such` program!
+- Who'd make `such` a thing?
+- You'll do no `such` thing.
+- You're `such` a great mom?
+- ...you're `such` a puzzle.
+- Don't be in `such` a hurry.
+- Homie, i was `such` a jerk.
+- Hush up `such` talk, jabez!
+- If there is `such` a thing.
+- Is he always `such` an ass?
+- Is that `such` a bad thing?
+- It's `such` a simple thing.
+- It's `such` a strange name!
+- No `such` thing, old buddy.
+- She's `such` a bitch- agh!!
+- ...`such` a pleasant sound.
+- You guys are `such` babies.
+- How can i stop `such` a man?
+- I am just `such` a reporter.
+- I feel like `such` an idiot.
+- I had `such` an awful dream.
+- I never met `such` a person.
+- In `such` stormy conditions.
+- It's `such` a weird feeling.
+- I've never seen `such` crap.
+- Oh, you are `such` a maroon!
+- She has `such` a good heart.
+- `Such` a quaint little tune.
+- Who would do `such` a thing?
+- You are `such` a sweetheart.
+- You have `such` a cosy body.
+- You're `such` a good friend.
+- You're `such` a smart aleck!
+                 

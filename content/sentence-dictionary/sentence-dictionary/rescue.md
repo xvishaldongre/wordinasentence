@@ -1,0 +1,86 @@
+---
+title: "rescue in a sentence | rescue example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rescue"
+---
+- Let's go `rescue` him.
+- It's a `rescue` mission.
+- You came to `rescue` me?
+- We've got to `rescue` him.
+- He's a `rescue` technician.
+- Lewis lane to the `rescue`!
+- Stop trying to `rescue` me.
+- This is a `rescue` mission.
+- We're here to `rescue` you!
+- We were gonna `rescue` them.
+- Somebody call for a `rescue`?
+- Bridge, cancel `rescue` teams.
+- No, you fool, a `rescue` line.
+- Tell me this is a `rescue` op.
+- To `rescue` the people we love.
+- You call this a `rescue` party?
+- Ok, ok. ms. ivy to the `rescue`.
+- Come to the `rescue` again i see.
+- He's come to `rescue` me, father.
+- It's not your job to `rescue` me.
+- You will `rescue` my wife hold it.
+- No, we're here to... `rescue` them.
+- If we run, who's gonna `rescue` them?
+- We're a `rescue` unit, not assassins.
+- We've got the `rescue` ship on radar.
+- She's a `rescue` and uneasy around men.
+- But we are there to `rescue` our people.
+- Look, i didn't come here to `rescue` you.
+- Oh, i hope part two is about my `rescue`.
+- The `rescue` ship can find us here right?
+- That's a long time to wait for a `rescue`.
+- We're in no condition to mount a `rescue`.
+- Henry, the pen -- it's a `rescue`, old boy.
+- That someone could `rescue` you from grief.
+- You have to go `rescue` all those people...
+- If we contact a `rescue` ship we'll need it.
+- You're both with the mountain `rescue` team?
+- So there never was a phase two `rescue` team?
+- We want a `rescue` operation mounted tonight.
+- "...to `rescue` the crew and salvage the ship."
+- I'll co-ordinate the `rescue` efforts from here.
+- Our mission was to `rescue` you and return home.
+- We should try, but it is one heck of a `rescue`.
+- What kind of raggedy-ass `rescue` you call this?
+- On my way down to coordinate search and `rescue`!
+- On my way down to coordinate search and `rescue`.
+- I thought you were coordinating search and `rescue`?
+- Rico ignored the mission objective to `rescue` you...
+- But when he tries to `rescue` a woman, he's gone soft.
+- Who turned her back on us when we came to `rescue` you.
+- `Rescue` her and aunty o, - what the hell are you doing?
+- Chief, sir -- `rescue` team won't be here for 15 minutes.
+- So when a man tries to `rescue` another man, he's a hero.
+- We use the chaos of the evacuation to `rescue` our people.
+- You're not picking a fight, you're coming to her `rescue`.
+- He might delay the `rescue` ... and that would be too late.
+- When they `rescue` him, they see he's built two synagogues.
+- They attempted to `rescue` a supply shuttle bound for titan.
+- Yesterday, i heard somebody wants to sue the `rescue` squad.
+- A gang of local thugs managed to `rescue` him from the gallows.
+- How long after we're declared overdue can we expect a `rescue`?
+- You want me to `rescue` her from the gorgeous hell that is l.a.
+- You can't get approval to `rescue` a kitten from a tree after tehran.
+- Inform the klingons we are on a `rescue` mission... shields activated!
+- I reprogrammed the simulation so it was possible to `rescue` the ship.
+- I was gonna `rescue` his old man, but i couldn't find the poor bastard.
+- There's some juicy colonists' daughters we gotta `rescue` from virginity.
+- If challenged, our fighters are to state that they are on a `rescue` mission.
+- From what i can make out he bought the boy to `rescue` him from further abuse.
+- Learn that there was one more thing he had to do to make the `rescue` complete.
+- There's some juicy colonists' daughters we have to `rescue` from their virginity.
+- So, you're telling me that merrill poisoned your farm, we're here to `rescue` you.
+- Given a malfunction, how would a `rescue` team get you out if the doors won't open?
+- And if that means negotiating... then tell me there's a `rescue` operation underway.
+- Paul, i've sent my soldiers to `rescue` the lady prime minister, she'll need a room.
+- Princess, has it ever occurred to you that they're <u>not going to `rescue` you</u>?
+- When we get artoo's message to them, you think they'll try to `rescue` the princess?
+- You can't send a search and `rescue` team out there alone and expect them to succeed.
+- We want the ark to think or praying for a 12-year-old psychopath to come to our `rescue`.
+                 

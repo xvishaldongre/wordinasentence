@@ -1,0 +1,107 @@
+---
+title: "care in a sentence | care example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "care"
+---
+- `Care` to have a look?
+- He just didn't `care`.
+- I `care` about clarke.
+- I `care` for you, too.
+- I do `care` about you!
+- I don't `care` anyway.
+- I mean i don't `care`.
+- Like i fucking `care`?
+- Take `care` of my son.
+- Take `care`, you hear?
+- They `care` about you.
+- Victor, have a `care`!
+- Why should you `care`?
+- Why would they `care`?
+- Yeah, we don't `care`.
+- You didn't `care` how.
+- You just don't `care`!
+- Because i don't `care`.
+- But i `care` about you.
+- `Care` for some suchi?.
+- Do you `care` about me?
+- He'll `care` all right.
+- His people will `care`.
+- I `care` about michael.
+- I couldn't `care` less.
+- I don't `care` anymore.
+- I don't `care` for b.s.
+- I don't `care` for him.
+- I don't `care`, philip.
+- I'll take `care` of it.
+- I'll take `care` of ya.
+- I said i didn't `care`.
+- Like you really `care`.
+- She takes `care` of me.
+- Take `care` of charley.
+- Take `care` of dorothy.
+- Take `care` of our boy.
+- Take good `care` of it.
+- We took `care` of that.
+- What's he `care` about?
+- Why do you `care`, huh?
+- You just didn't `care`.
+- You take `care`, dorie.
+- But nicky didn't `care`.
+- Fucked if i `care`, man.
+- He'll take `care` of it.
+- He wouldn't `care` then.
+- I don't `care` about me.
+- I don't `care` to guess.
+- I'll take `care` of her.
+- I'll take `care` of him.
+- I'll take `care` of you.
+- I'm your `care` partner.
+- I took `care` of it all.
+- It's all i `care` about.
+- I <u>did</u> `care` how.
+- I want him in my `care`.
+- Now i just don't `care`.
+- Ricky's taken `care` of.
+- Take `care` of business.
+- Take `care` of the girl.
+- Take `care` of your kid.
+- Take `care` of yourself.
+- Then what do you `care`?
+- We'll take `care` of it.
+- Taking `care` of you.
+- Because i `care` for you.
+- Better take `care` of it.
+- By my heel, i `care` not.
+- Foster's taken `care` of.
+- Good -- take good `care`.
+- He needs hospital `care`.
+- I can take `care` of you.
+- I don't `care` about her.
+- I don't `care` who he is.
+- I don't `care` who it is.
+- I'll take `care` of madi.
+- I'll take `care` of that.
+- I'll take `care` of them.
+- I'll take `care` of this.
+- I'm always `care`-- whoa!
+- I take `care` of my boys.
+- It's all taken `care` of.
+- Let me take `care` of it.
+- No family to take `care`.
+- Since when do you `care`?
+- So why should you `care`?
+- So you just don't `care`.
+- We `care` about you, too.
+- Well, take `care`, chief.
+- We'll take `care` of him.
+- Whadda <u>you</u> `care`?
+- What do you `care` about?
+- Why... should you `care`?
+- You'll take `care` of it.
+- You'll take `care` of it?
+- But we took `care` of him.
+- I can take `care` of that.
+- I `care` about the school.
+- I don't `care` about that.
+                 

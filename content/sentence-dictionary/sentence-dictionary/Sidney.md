@@ -1,0 +1,92 @@
+---
+title: "Sidney in a sentence | Sidney example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Sidney"
+---
+- So you think `sidney`.
+- It�s perfect, `sidney`.
+- `Sidney` j. mussburger.
+- What does `sidney` say?
+- I know you do, `sidney`.
+- Not "we", `sidney`, you!
+- `Sidney`, what happened?
+- You knew `sidney`'s mom?
+- Appreciate that, `sidney`.
+- Don't explain, `sidney`...
+- Keeping my eye on `sidney`.
+- Where is `sidney`'s father?
+- For instance, take `sidney`.
+- Say hello to `sidney` falco.
+- `Sidney`, i know you by now.
+- `Sidney` remains optimistic.
+- `Sidney`, i know human nature.
+- Did `sidney` tell you about it?
+- `Sidney`, you ran fast or what?
+- Do you think it's over `sidney`?
+- `Sidney`: i don't understand him.
+- `Sidney` is hanging on by threads.
+- That's `sidney` prescott's mother.
+- Do you like scary movies, `sidney`?
+- Nice to finally meet you, `sidney`.
+- But i don't need an uncle, `sidney`.
+- Do little `sidney` a favor: squeeze!
+- I'm not a man, `sidney`, i'm - yeah!
+- It's good to see you again `sidney`.
+- I'm sorry for you, too, `sidney`.
+- Jesus christ `sidney`, what happened?
+- `Sidney`, can i talk to you a minute?
+- I'll be seeing you real soon `sidney`.
+- Have you located `sidney`'s father?
+- So you knew `sidney` prescott's mother.
+- Wrong, this issue is `sidney` prescott!
+- What made you think it was `sidney`?
+- Maybe you should talk to `sidney` winch.
+- What if `sidney` killed casey and steve?
+- { a click } i only her you too, `sidney`.
+- I thought we were talking about `sidney`?
+- Why would `sidney` want to be with steve?
+- Cause i'm gonna keep calling you `sidney`.
+- I wish i could help in some way, `sidney`.
+- Maybe `sidney` wouldn't have sex with him.
+- He was with `sidney` when she was attacked.
+- I told you, i don't know where `sidney` is.
+- I've had three straight washouts, `sidney`.
+- Well these friends don't have to, `sidney`.
+- When you're friends with `sidney`, you die!
+- "`sidney`, i got a nasty little problem here."
+- `Sidney`, you were right -- the boy's a dilly.
+- What were you doing out at `sidney`'s tonight?
+- `Sidney`...i...i don't do this sort of thing...
+- You're touchy, `sidney` - don't be so touchy...
+- I mean, they even told `sidney` how they did it!
+- My name is `sidney` winch, and - captain morton.
+- It's nice, `sidney`, that you give me this tip...
+- So what made you change your mind about `sidney`?
+- At the bar - `sidney`... is frank d'angelo around?
+- Don't you want to know how you can help, `sidney`?
+- Who the hell is he to do this to my family, `sidney`?
+- Maybe... do you think you could do something, `sidney`?
+- Cause face it `sidney`, in this world, the bad guys win!
+- But they've moved on- -they're getting closer to `sidney`.
+- `Sidney` said you crawled through her window last night too?
+- The calls were listed to neil prescott -- `sidney`'s father.
+- She'd have been so happy, `sidney`, to know we'd be together.
+- Dewey, personal lives and pasts aside, this is about `sidney`.
+- I guess `sidney`'s been puttin' the screws to ya, huh, norman?
+- `Sidney` looks at him long and hard, a smile slowly appearing.
+- It's mother, `sidney`, now be a good girl and turn on the news.
+- `Sidney` courtney, the financial editor of the washington post.
+- The killer leaves a newspaper clipping at each murder, `sidney`.
+- `Sidney`, do you have any idea how he could've gotten your number?
+- Take a look at them and see who's wild... don't go wild, `sidney`.
+- People magazine won't stop calling but other than that... `sidney`.
+- `Sidney`, did you hear the story about the cloak-and-suitor who -- ?
+- Even if there was a third killer, `sidney` doesn't know about it.
+- But as i've explained to `sidney`, without proof, there's just no story.
+- `Sidney`, perhaps we should leave this to - ...and what's that, my dear?
+- How do i know their voices are -- always hard being friends with you, `sidney`.
+- Match me, `sidney`... everyone knows manny davis... ...except mrs. manny davis.
+- Inside of six months - ...but you did it for greed, `sidney` - and that's pathetic.
+- Yeah, but, if i'm not mistaken, you said in your book that `sidney` got it wrong before.
+                 

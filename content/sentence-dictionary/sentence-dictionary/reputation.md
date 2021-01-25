@@ -1,0 +1,72 @@
+---
+title: "reputation in a sentence | reputation example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "reputation"
+---
+- Forget his `reputation`.
+- I'd stake my `reputation`.
+- But i have no `reputation`.
+- It'll ruin my `reputation`.
+- My `reputation` is at stake.
+- My `reputation` precedes me.
+- My `reputation`, past repair.
+- A man acquires a `reputation`.
+- Bandidos, injuns-- `reputation`?
+- I have a `reputation` to uphold.
+- Your `reputation` does you honor.
+- Seems my `reputation` precedes me.
+- This could make your `reputation`.
+- This is not about my `reputation`!
+- He's got a tremendous `reputation`.
+- You're getting a great `reputation`.
+- Your `reputation` is secure, scotty.
+- Your `reputation` is getting trashed.
+- He has a `reputation` for being tough.
+- Do they have any `reputation` for drugs?
+- I do know you, at least by `reputation`.
+- It is, thomas, but of good `reputation`.
+- You've got a `reputation` to think about.
+- That would ruin your `reputation` how?
+- He has a bit of a `reputation`, hasn't he?
+- My `reputation` seems to have preceded me.
+- But you said you have the worst `reputation`.
+- I rather be in jail then lose my `reputation`!
+- That `reputation` of his isn't going anywhere.
+- I think i know how to restore your `reputation`.
+- You're always so worried about your `reputation`.
+- Afraid i'm ruining your `reputation`, m'sieu laval?
+- My concern is for the `reputation` of the monarchy.
+- They gonna blame me, and there goes my `reputation`.
+- That's true, you're getting a hell of a `reputation`.
+- That was because of... the `reputation` the gang had.
+- He's got a `reputation` for doing all his -- why good?
+- How does a guy like that get this sudden `reputation`?
+- It's bad for my `reputation` -- it's bad for business.
+- You know, you've got a nasty `reputation`, mr. gittes.
+- Can you imagine what this would do for my `reputation`?
+- He's been ridin' my coattails, smearing my `reputation`.
+- How else can i keep my `reputation` as a miracle worker?
+- He's an old fashioned patrone with the worst `reputation`.
+- So you know our `reputation` for integrity and objectivity.
+- But with yu's `reputation`, i can't just go in and accuse her.
+- The bank's `reputation` wouldn't be worth a nickel after that.
+- You have a `reputation` as someone who gets what she wants.
+- You know this road got a bad `reputation`, eladio-- eladio cruz.
+- I will then do everything i can to destroy your `reputation`.
+- You do have a `reputation`, so i'll choose my words carefully.
+- If you make a `reputation` with this case, it'll be at my expense.
+- I will stake my `reputation` that barnes didn't kill those guards.
+- Look, i knew your father, he had a helluva `reputation` on this job.
+- I hope you'll judge him by his progress here, and not his past `reputation`.
+- I wouldn't hesitate one instant to ruin <u>your</u> `reputation`--like that!
+- All right, but remember, if you damage the fuhrer's `reputation`, i kill you.
+- They think ya cute for a while, but then ya getta `reputation` an' watch out.
+- Herr laszlo, you have a `reputation` for eloquence which i can now understand.
+- I can't see outpost putting its `reputation` in the hands of people like that.
+- To have her wrested from beneath me now -- and place my `reputation` at stake?
+- That won't improve your `reputation` any, and it's not very flattering to me either.
+- You see, j.j., where i get my `reputation` for being the best-informed man in washington.
+- In this business, your life and your `reputation` are more often than not one and the same.
+- I put myself on the line for you, my `reputation`, and you're making me look like an idiot.
+                 

@@ -1,0 +1,107 @@
+---
+title: "shoes in a sentence | shoes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "shoes"
+---
+- Collected `shoes` too?
+- ... my `shoes`... umm.
+- She had white `shoes`.
+- These are fast `shoes`.
+- What about the `shoes`?
+- Where are your `shoes`?
+- In fucking ugly `shoes`.
+- Let me get some `shoes`.
+- She got those `shoes`...
+- These `shoes` are itchy.
+- They weren't my `shoes`.
+- Tie his `shoes` for him.
+- Go for the `shoes` first.
+- I didn't rent it `shoes`.
+- Big feet -- large `shoes`.
+- Put yo'self in my `shoes`.
+- What color are my `shoes`?
+- Hi... where are my `shoes`?
+- Listen, forget the `shoes`.
+- Everyone wore those `shoes`.
+- Me, wearing my good `shoes`.
+- One pair of italian `shoes`.
+- Put on each other's `shoes`.
+- It's these goddamned `shoes`.
+- That work with these `shoes`.
+- Your `shoes` are so heavy.
+- Dolores, give me your `shoes`.
+- I hope these are your `shoes`.
+- I just have to get my `shoes`.
+- I'm gonna take my `shoes` off.
+- I shine the officer's `shoes`.
+- To be in each other's `shoes`.
+- How you doing on those `shoes`?
+- I can't find my soccer `shoes`.
+- Nick, your `shoes` are soaking.
+- Not to try to fill his `shoes`.
+- You seen my snake-skin `shoes`?
+- Bobby, your `shoes` are soaking!
+- That's some big `shoes` to fill.
+- We're here for cassie's `shoes`!
+- We're here for cassie's `shoes`.
+- You could step into his `shoes`.
+- Did you pack your soccer `shoes`?
+- He wants to step into my `shoes`!
+- Maybe something about my `shoes`?
+- Yeah, but he was wearing `shoes`!
+- Are you gonna steal my `shoes` now?
+- It's much better than your `shoes`.
+- <u>give</u> <u>me your `shoes`</u>!
+- I... stole... your... fancy `shoes`?
+- Dignan, those aren't running `shoes`.
+- Come on, your `shoes` are in the hail.
+- Now i feel guilty i stole his `shoes`.
+- When you die, can i have your `shoes`?
+- How come you're not wearing my `shoes`?
+- `Shoes`, if you want to know the truth.
+- Those `shoes` were twenty five dollars.
+- I'm turning in my running `shoes` to you.
+- I say no shirt, no `shoes`, no salvation.
+- The heels on these `shoes` are grotesque.
+- The heels on these `shoes` are very large.
+- Your `shoes` have lace holes but no laces.
+- Did you know he didn't have his `shoes` on?
+- It's these soft `shoes` i wear for my back.
+- I would be, too, if i were in your `shoes`.
+- I bet it was the guy with the prada `shoes`.
+- We ran out without my `shoes` and the floor.
+- Your <u>`shoes`</u> cost a thousand dollars?
+- I just can't find `shoes` that's comfortable.
+- No, no, honey... first the `shoes` and socks.
+- Running `shoes`, jogging `shoes`, tennis `shoes`.
+- These is the worst `shoes` i own for walkin'.
+- I can also take his shirts, `shoes` and coats.
+- I gotta get something, i gotta get ...`shoes`?
+- I'm not in his `shoes`, so leave me out of it.
+- I'm not... now, where are those `shoes`... ...
+- "not the collar, mary," he said, "my `shoes`."
+- She wore black `shoes` with pointy white tips.
+- How are you gonna make it without your `shoes`?
+- But i had to buy the `shoes` and the pocketbook.
+- But it is difficult to fill the `shoes` of shen.
+- I'm late... and you have to put your `shoes` on.
+- They come in all sizes honey, just like `shoes`.
+- I saw it clear as breasts and blue suede `shoes`.
+- I woulda settled for pawning one of them `shoes`.
+- I saw a poor monk without `shoes` so i gave him some.
+- Need any more, you can always get it off his `shoes`.
+- I'm really gonna have to scramble to fill his `shoes`.
+- I wouldn't want to be in that wally's `shoes` tonight.
+- Last week you came over with blood on your `shoes`.
+- I'm gonna wander over and look at some `shoes`... fine.
+- It took you, what, seven hours to buy a pair of `shoes`?
+- Next time try putting on `shoes`-- it's <u>freezing</u>.
+- `Shoes`... nine time out of ten, it's an electric razor.
+- But it's just the different `shoes` that keep on walking.
+- If you were in his `shoes` would you take one of us home?
+- The `shoes` were delivered to ... an island in hyde park.
+- What i know is what i see: a nigger woman hauling `shoes`.
+- How was i supposed to know what kind of `shoes` you had on?
+- Definitely killing each other, ♪ except for my `shoes` ♪ no!
+                 

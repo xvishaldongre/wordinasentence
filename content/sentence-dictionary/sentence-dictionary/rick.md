@@ -1,0 +1,92 @@
+---
+title: "rick in a sentence | rick example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "rick"
+---
+- Look at me and `rick`.
+- `Rick`, i'm concerned.
+- That's the old `rick`!
+- Or what, ranger `rick`?
+- `Rick`, don't be a fool.
+- Debbie's marrying `rick`.
+- `Rick`... debbie is mine.
+- You must help me, `rick`.
+- Cole, i'm marrying `rick`.
+- How do you do, mr. `rick`?
+- What happened with `rick`?
+- You're late again, `rick`.
+- Goodnight, monsieur `rick`.
+- I'll see you later, `rick`.
+- Oh, thank you, herr `rick`.
+- Okay, `rick`, all finished.
+- She was with `rick` derris.
+- Everybody comes to `rick`'s.
+- Bob and `rick` are in denver.
+- I don't think i will, `rick`.
+- `Rick`, get on the jib sheet.
+- Tonight he'll be at `rick`'s.
+- Believe me, `rick`, it's true.
+- Not unless you call me `rick`.
+- `Rick`, i want to talk to you.
+- You didn't send him to `rick`?
+- Can i tell you a story, `rick`?
+- He came from paris with `rick`.
+- I am so upset, monsieur `rick`.
+- I thought he was called `rick`?
+- I feel like i'm spying on `rick`.
+- `Rick`, hit the ball easier, son.
+- `Rick`'s looking all over for you.
+- `Rick`, i really think i'm in love.
+- `Rick` deckard: do you want a drink?
+- `Rick`, what's the big announcement?
+- Finally realized `rick`'s a jerk, huh?
+- `Rick`, i want to cut through the b.s.
+- `Rick`, marriage will be good for you.
+- Oh, no, `rick` never -- -- hello, ilsa.
+- `Rick`, i'll put my cards on the table.
+- He is a difficult customer, that `rick`.
+- `Rick`, laszlo must never reach america.
+- That doesn't mean it was `rick`'s party.
+- `Rick`'s wouldn't be `rick`'s without them.
+- That makes `rick` a citizen of the world.
+- Ilene, `rick` promised... of course you do.
+- Victor, why don't you tell me about `rick`?
+- You're fucked, `rick`--are you fucking nuts?
+- The `rick` i knew in paris, i could tell him.
+- `Rick`, have you got these letters of transit?
+- `Rick` is completely neutral about everything.
+- `Rick` stayed later after school with kristen.
+- Monsieur `rick`, may i get you a cup of coffee?
+- `Rick`'s got an important announcement to make.
+- I didn't rob... `rick`, i'm going to flag a cab.
+- Well, you are in pretty good shape, herr `rick`.
+- Get going, `rick`... you're late enough as it is.
+- One hears a great deal about `rick` in casablanca.
+- Well, you were asking about `rick` and here he is.
+- Alright, i think i see salvation... `rick`, please.
+- Monsieur `rick`, what kind of man is captain renault?
+- Mademoiselle, you are in `rick`'s and `rick` is -- `rick`?
+- You see, major, you have nothing to worry about `rick`.
+- There's no time for this bullshit... no problem, `rick`.
+- `Rick`, there's going to be some excitement here tonight.
+- `Rick`, this is major heinrich strasser of the third reich.
+- As far as they're concerned the only good `rick` is a dead `rick`.
+- `Rick`, that is the first time i have ever seen you so impressed.
+- You know, like `rick` thieson and kevin speck and those burn-outs.
+- I know you're as unhappy as i am about debbie's marriage to `rick`.
+- You could have `rick` drive down cunningham road and look for them.
+- Monsieur `rick`, i -- yes, well, everybody in casablanca has problems.
+- `Rick`, i'm sick and tired of having you -- don't listen to him, sacha.
+- Don't forget, you owe `rick`'s a hundred cartons of american cigarettes.
+- I have already heard about this cafe, and also about mr. `rick` himself.
+- Well then, perhaps you also oh, you've already met `rick`, mademoiselle?
+- If `rick` has the letters, he's much too smart to let you find them there.
+- You are a very cynical person, `rick`, if you'll forgive me for saying so.
+- Well, `rick`, you're not only a sentimentalist, but you've become a patriot.
+- Can someone please tell `rick` that he is not the only sigma chi with a big penis?
+- Excuse me, monsieur `rick`, but a gentleman inside has won twenty thousand francs.
+- She was asking about you earlier, `rick`, in a way that made me extremely jealous.
+- If i were you, i'd worry less about the shower and more about `rick`'s bachelor party.
+- Who else but an all-loving, omnipotent being `rick` schaeffer at the department of energy.
+                 

@@ -1,0 +1,107 @@
+---
+title: "building in a sentence | building example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "building"
+---
+- It's their `building`.
+- That's the `building`.
+- I was in the `building`!
+- Not <u>a `building`</u>!
+- ... see that `building`?
+- The `building` and what?
+- We were `building` this.
+- What're they `building`?
+- You sold the `building`.
+- A residential `building`.
+- Are you `building` an al?
+- We've been `building` it.
+- Is the `building` on fire?
+- Knows what i'm `building`.
+- Which `building` is yours?
+- General assembly `building`.
+- He's not in this `building`.
+- I was... `building` a house.
+- Lots of `building` going on.
+- What is that old `building`?
+- Which one's your `building`?
+- So, who is in the `building`?
+- That tall, bright `building`.
+- The `building` on the corner.
+- This is the minos `building`?
+- Do you work in the `building`?
+- Elvis has left the `building`.
+- I think the `building`'s okay.
+- ...it's a tenement `building`.
+- I was `building` a doggy door.
+- On the back of the `building`.
+- They own the whole `building`.
+- This `building` is not secure.
+- This `building` isn't a house.
+- We are `building` a life here.
+- Need to get in that `building`?
+- Not sell it -- what `building`?
+- The bailey `building` and loan.
+- The `building`'s 600 feet high.
+- The criminal courts `building`.
+- Why not the federal `building`?
+- You want to see the `building`?
+- How'd you get in the `building`?
+- I'm a `building` superintendent.
+- Inc., mertin-flemmer `building`.
+- She's still `building` the bomb.
+- The american gardens `building`.
+- They must be `building` the emp.
+- You want to see the `building`?.
+- Last `building` before the river.
+- So why nuke the `building`, hans?
+- Tendencies inside the `building`.
+- There a story in that `building`?
+- We must shut down the `building`.
+- He's `building` it to stop eleven.
+- Ids `building`, the big glass one.
+- I'm just `building` up to it, dad.
+- Old `building` and loan pal, huh .
+- The `building` blocks of his body.
+- A `building` isn't as light as air.
+- I'll just run into that `building`.
+- In `building` our radiation shield.
+- Well, team `building` is important.
+- Would still be `building` the wall.
+- He said he was `building` something.
+- He was `building` his fucking porch.
+- It's a big `building` with patients.
+- Out `building` project in indonesia?
+- That you were `building` the tunnel.
+- This `building` was full of lawyers.
+- And here i am `building` one for you.
+- Blow up a `building` and blame a nut.
+- I'm `building` a damn tone generator.
+- That's why you bombed the `building`.
+- We're in a giant concrete `building`.
+- Why don't i check out the `building`?
+- But, he's gonna jump off a `building`!
+- Did you get crushed by the `building`?
+- Farming, hunting, `building` shelters.
+- I burnt down the chemistry `building`.
+- Leading that team `building` exercise.
+- On top of the empire state `building`.
+- Son of a `building` block, it's woody!
+- There's no smoking in this `building`.
+- To discuss `building` them a compound.
+- Why don't we tear the `building` down!
+- Have been geotagged to this `building`.
+- It's my `building` he's jumping off of!
+- What's that long `building` over there?
+- Your friend lives in a fine `building`.
+- It's all been `building` up to this sid.
+- She was working on `building` something.
+- Tell them elvis has left the `building`.
+- There're thirty cops in this `building`.
+- Adam, your bozman `building` is a beauty.
+- Everyone in this `building` is saying it.
+- Well, what about the `building` and loan?
+- I'm talking about the `building` and loan.
+- Jason: how many floors is this `building`?
+- Maybe he's `building` a bomb...just like-!
+                 

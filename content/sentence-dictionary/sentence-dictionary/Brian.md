@@ -1,0 +1,69 @@
+---
+title: "Brian in a sentence | Brian example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Brian"
+---
+- `Brian` told you that?
+- ...`brian` hurt his foot.
+- `Brian` kirkland, please.
+- He's a killer, `brian`...
+- I know you cold, `brian`.
+- You look like... `brian`.
+- It isn't a spark, `brian`.
+- People can change `brian`.
+- There's `brian` and marty.
+- Uh, i'm `brian` mccaffrey.
+- `Brian`, he's coming around!
+- Marty's a good man, `brian`.
+- `Brian` -- -- see ya tonight.
+- I quit two days ago, `brian`.
+- Why'd you come here, `brian`?
+- Look, `brian`, a photographer.
+- No need to be modest, `brian`.
+- What do you say, `brian`, huh?
+- `Brian` get him out of the car.
+- It was some guy called `brian`.
+- When's `brian` coming for the tv?
+- `Brian` i want him out of our car!
+- `Brian`, let me come to the point.
+- You're smarter than that, `brian`.
+- Why don't you take a rest, `brian`?
+- That's not what it's about, `brian`.
+- You gotta tell a story too, `brian`.
+- I think you're gonna find out, `brian`.
+- It took your dad, didn't it `brian`?
+- `Brian`, look -- thanks for the insight.
+- I don't want to be your friend, `brian`.
+- Stephen's not staying here now, `brian`.
+- They were for the fucking boat, `brian`.
+- What the fuck is wrong with you `brian`!?
+- Go back to the car and keep `brian` there.
+- I'm really sorry that i hurt you, `brian`.
+- Listen to it, `brian`... jump when i say...
+- Peter breck's already been cast as `brian`.
+- `Brian`, do you always have to be so stupid?
+- It's adcox, he's -- i don't know, `brian`...
+- Lisa versus `brian`, winner gets first chair.
+- Not such a far walk after all, is it, `brian`?
+- Just this year, "`brian`'s sound spectrum".
+- `Brian` mccaffrey... oh this is really a treat.
+- In a word, `brian`, what is this job all about?
+- You said you wanted to know something, `brian`.
+- `Brian`... that's very kind of you mr griffiths...?
+- Well `brian`, i guess you can say it's arson now...
+- What did you feel, `brian`, when you first got there?
+- Hell it don't... ...hand me `brian`'s map there adele.
+- I'm sorry -- i mean, i'm... `brian` -- i've got to go.
+- Oh, i love you adam -- i mean alex -- er, peter -- `brian`.
+- I'm a huge fan of what you did to save that woman, `brian`.
+- Phillip, we've been tricked and ambushed by the conan o'`brian` show!!
+- The world does turn once in awhile `brian`, even without your permission.
+- `Brian` cruikshank -- it would serve me right if i got stuck with that one.
+- One case of scotch, you're getting cheap in your old age, `brian`... not likely.
+- You know, i've got a perfect little spot here for "`brian` mccaffrey, fireman"...
+- Oh jesus christ... after it took your dad... the fire... did it look at you `brian`?
+- So, i'm signing us all up for a month `brian`, that was perfect... for second chair.
+- Mr. mccaffrey... not every job in the fire department comes with a tombstone, `brian`.
+- Marky, ricky, danny, terry, mikey, davey, timmy, tommy, joey, robby, johnny, and `brian`.
+                 

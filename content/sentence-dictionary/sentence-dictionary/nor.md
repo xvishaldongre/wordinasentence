@@ -1,0 +1,64 @@
+---
+title: "nor in a sentence | nor example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "nor"
+---
+- `Nor` quincy, i guess.
+- `Nor` i, on the second.
+- Neither more `nor` less.
+- `Nor` did you, i noticed.
+- `Nor` you me, i've noticed.
+- I did not break `nor` enter.
+- Coming out of the `nor`'east.
+- I didn't when ... `nor` where.
+- I neither enjoy `nor` dislike.
+- `Nor` is where i put my mouth.
+- Yet cannot love `nor` write it.
+- But i see no asian `nor` fusion.
+- `Nor` do i think he ever will be.
+- `Nor` am i a marrie lady, captain.
+- `Nor` am i exceeding any speed limits.
+- Never caught the gypsies `nor` the horse.
+- `Nor` did i come here to pick up his hat.
+- `Nor` will i, till my bride is beside me.
+- I've had no sons to lose, `nor` daughters.
+- `Nor` will addison dewitt and his poison pen!
+- Neither god `nor` man's got nothin' on me now!
+- I believe she is not crazy, `nor` is she lying.
+- Neither snow `nor` sleet, `nor` dark of night ...
+- You will never age for me, `nor` fade, `nor` die.
+- It was neither a valid concept `nor` a valid fact.
+- `Nor` patience to suffer your primitive tribalism.
+- The world is not thy friend, `nor` the worlds law.
+- We are neither madmen `nor` sadists, gentlemen.
+- No...`nor` build bonfires...`nor` beat drums neither.
+- `Nor` did he ask me every day if i would marry him.
+- My name is neither buljanoff, iranoff, `nor` kopalski.
+- Neither my wife `nor` i will attempt to leave krypton.
+- Hell, alice, they ain't loafers `nor` tramps `nor` bad men.
+- The boy, i deduce, would not, `nor` would his father have.
+- No, not yet, senator paine--not hide `nor` hair of the man.
+- This is not north carolina, not south carolina `nor` kentucky.
+- I don't know what the hell... ...your concern `nor` your fight.
+- I'm not your judge... `nor` have i any desire to witness the trial.
+- From men, the whooping crane has received neither love `nor` respect.
+- My dear fellow, it's neither your business to ask, `nor` mine to tell.
+- `Nor` are you to return to santo domingo or any of the other colonies.
+- The usual motivation doesn't apply to him, `nor` the way he uses them.
+- Did your momma tell ye never to take food `nor` drink from the wee folk?
+- I will have no dealings with the grand duchess `nor` her representative.
+- On account of you're cold as snow an' don't have no weak nerve `nor` fear.
+- '...and so, sid, the future does not belong to such as i -- `nor` even you.
+- I'll bet anything he won't go to town `nor` he won't ride out on the range.
+- We're here to prove to them that they're neither invincible `nor` superior.
+- I don't like your possessive attitude, `nor` your hints of secret knowledge.
+- `Nor` grampaw neither...`nor` methuselah neither...i can whup you to a frazzle.
+- That's true ... wars aren't won with terrorism, neither wars `nor` revolutions.
+- I can't have you do that, `nor` can i have you hanging around the lobby all day.
+- Ripley was handling some business for me, `nor` does mr ripley want to marry me.
+- People cannot be taken away, madame, neither a hundred and sixty million `nor` one.
+- Look, mush, you're the guv'`nor` here, i can see that, i'm on your manor now, right.
+- It is `nor` hand, `nor` foot, `nor` arm, `nor` face, `nor` any other part belonging to a man.
+- I'm neither machine `nor` man... but a perfect fusion of the two... and better than either.
+                 

@@ -1,0 +1,52 @@
+---
+title: "ambassador in a sentence | ambassador example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "ambassador"
+---
+- Good night, `ambassador`.
+- Now, mister `ambassador`.
+- What is it, `ambassador`?
+- Send to `ambassador` sarek.
+- Sorry, comrade `ambassador`.
+- Goodbye, mister `ambassador`.
+- We can call our `ambassador`.
+- Indeed you have, `ambassador`.
+- All right, mister `ambassador`!
+- Please be calm, `ambassador` de sade.
+- `Ambassador` usak demanded that he see you.
+- I need a doctor... what�s the `ambassador`?
+- Friedman lives with you at the `ambassador`?
+- `Ambassador` trentino, i am indeed honored...
+- I caught you red-handed, mister `ambassador`.
+- What about that waitress at the `ambassador`?
+- Ilio manzetti...former `ambassador` to france.
+- I beg your indulgence, `ambassador`, but it is.
+- We have nothing on him, `ambassador` skrapinov.
+- Good heavens, `ambassador` -- what has happened?
+- `Ambassador`, i -- i had no idea you were here...
+- Can you get me into the `ambassador`'s reception?
+- He went to the hotel `ambassador` east in chicago.
+- I need to know where the `ambassador` is gonna be.
+- Just me... martin�s gone back to the `ambassador`.
+- The pay off was, you get to be `ambassador`, or...
+- ...you are due at the `ambassador` east in chicago.
+- Oh, yes, of course, `ambassador` o'grady... o'grady.
+- I believe i can find you a place at the `ambassador`.
+- Was ma there the last time we played the `ambassador`?
+- The iraqi `ambassador` is claiming it's just an exercise.
+- I worked with `ambassador` han and his family for ten years.
+- Son of the american `ambassador` and a banker - good enough?
+- We need an `ambassador` from the 13th clan sorry, blodreina.
+- Was signing the memorandum on vietnam with `ambassador` lodge.
+- `Ambassador` to <u>togo</u>, somethin', <u>i</u> dunno... he...
+- Too bad, man, that blows my chance to be `ambassador` to france.
+- I insist upon being put down at the austrian `ambassador`'s house.
+- They sent for the `ambassador`'s personal chinese investigator type.
+- But your excellency -- the `ambassador` is here on a friendly visit...
+- We got the sheraton, the `ambassador`, or the holiday inn on sixtieth.
+- `Ambassador`, let me assure you that the fbi has made this a top priority.
+- If you want the `ambassador`'s daughter back alive, listen and do not talk.
+- Mister `ambassador`, what on earth possessed your country to build this weapon?
+- The daughter of the chinese `ambassador` has been kidnapped and they asked for help.
+                 

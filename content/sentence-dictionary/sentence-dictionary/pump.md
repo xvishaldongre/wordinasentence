@@ -1,0 +1,56 @@
+---
+title: "pump in a sentence | pump example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pump"
+---
+- Is it just the `pump`?
+- Water `pump`'s busted.
+- You want me to `pump`?
+- Can i help `pump` the gas?
+- `Pump` it up by about 40%.
+- They had to `pump` it out.
+- That `pump` was full of money.
+- I'm not gonna `pump` her heart.
+- I'm not gonna `pump` her heart.
+- I need you to `pump` her heart.
+- I need you to `pump` her heart.
+- Have to `pump` her steady, s'all.
+- They `pump` out 150 videos a week.
+- Yes, airshot, `pump` that air gun!
+- Fo' i `pump` this glock in yo' ass!
+- Mac, where the hell is that `pump`!!
+- We're not gonna be able to `pump` it!
+- Why, then is my `pump` well flowered.
+- Hours to `pump` fresh air into a room.
+- You should be able to hear the `pump`.
+- One swedish-made penis enlarger `pump`.
+- It's something in that hydraulic `pump`.
+- We can't `pump` poison gas all over them!
+- Millimeter `pump`-action grenade launcher.
+- Tell me or i'll `pump` two right in your face.
+- Strap you down and `pump` the nature out of you?
+- `Pump` in two liters of pure oxygen, please henry.
+- That's like buying clothes at the `pump` n' munch.
+- We lure him on land and `pump` him with the drugs.
+- You know, the old `pump` isn't what it used to be.
+- We can't `pump` poison gas down into the cooling unit!
+- To dump the fuel you have to close the circuit for the `pump`.
+- You `pump` it out and re-seam the hull, she'll be good as new.
+- Here, you put your hand under the water and i'll `pump` for you.
+- I'd like an invicta 12-gauge `pump` with the twenty-inch barrel.
+- When i was a boy back on the farm i used to `pump` my own water.
+- Abby made me `pump` ontari's heart she saved me from a dateless prom.
+- There'd been earlier attempts to `pump` carbon dioxide into deep sea.
+- We're filtering at the `pump`, i think we should arm the entire unit.
+- There wasn't enough oxygen in those red cells to `pump` life into a flea.
+- If they'd only invent some kind of a `pump` for that -- you can't leave yet.
+- ... <u>snow!</u> now i'll `pump` it up... ... and you just turn the handles.
+- Fine, but the others better come back soon all right, `pump` the brakes, jhorts.
+- Let my heart do its job, my king, and `pump` me empty... you are that and much more.
+- Heather... you watch on your phone or a gas `pump`, i was only gone for a few seconds.
+- One credit card receipt for swedish- made penis enlarger `pump`, signed austin powers.
+- One warranty card for swedish-made penis enlarger `pump`, filled out by austin powers.
+- What do you want her to do--bring the poor old jaguars back to life with a bicycle `pump`?
+- There would be only one way to get the oil out of the caspian and `pump` it to the world...
+                 

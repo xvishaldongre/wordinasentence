@@ -1,0 +1,56 @@
+---
+title: "bound in a sentence | bound example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "bound"
+---
+- Remember, you're `bound`.
+- She's `bound` to be upset.
+- Where are you `bound` for?
+- He's `bound` to get caught.
+- He's `bound` to be somewhere.
+- They're `bound` to try again.
+- Mine were `bound`, remember?
+- Somebody is `bound` to hear it.
+- You're `bound` by law to follow.
+- May i ask, where are you `bound`?
+- They're `bound` to ask questions.
+- They was a `bound`'ry to us then.
+- He's `bound` to find out sometime.
+- But there are `bound` to be others.
+- The first fun's `bound` to be rough.
+- He's `bound` to slip up sooner or later.
+- There's `bound` to be enough change in there.
+- We were `bound` to get around to it sometime.
+- It's `bound` to happen when a man works alone!
+- Sid 6.7 is no longer `bound` by his programming.
+- We are `bound` for port royal, not isla de muerta.
+- Because - monster as i was - i was `bound` by laws.
+- But this best, i am `bound` to say, was bad enough.
+- I suppose it was `bound` to happen sooner or later.
+- Honor- `bound` to expand the frontiers of knowledge.
+- My son's college `bound` with or without basketball.
+- I believed in you... you are `bound` by an oath, father.
+- You're `bound` to be qualified for at least one of them.
+- The emperor and i are `bound` by the threads of the fates.
+- Venza's such a nut job, we're `bound` to pick him up soon.
+- They attempted to rescue a supply shuttle `bound` for titan.
+- I was `bound` to another's system by a soul i once possessed.
+- You're `bound` to pound the quivering lips of my venus mound!
+- Was ever book containing such vile matter's so fairly `bound`?
+- Conklin had these guys wound so tight they were `bound` to snap.
+- Now that i have a track record, studios are `bound` to hire me!
+- Each is `bound` in genuine premium leather with 22 carat gold accents.
+- If you reach for the stars, you're `bound` to get -- mm-jack, pull over.
+- I was hell-`bound`, yes that's what they say satan was waiting it's true!
+- That, a coupla perks, and you can leap tall buildings in a single `bound`.
+- Like sex crime victims, underwear inside-out, `bound` with electrical tape.
+- They're `bound` to find out about this place, too - you must get away at once.
+- Ugly... a couple of thousand years they've been `bound` by these little rules.
+- Any one who is not afraid is `bound` to do something foolish, and `bound` to die.
+- You think he'll let us in, we got snoopy and the muscle-`bound` asshole with us?
+- You are a lover; borrow cupid's wings, and soar with them above a common `bound`.
+- A man may need to do that, and find it amusing; but a girl is `bound` by other laws.
+- Once that crane starts moving...well, it's `bound` to provoke some kind of response.
+- The type of intestinal fortitude it must take... to keep a man `bound` for a full year.
+                 

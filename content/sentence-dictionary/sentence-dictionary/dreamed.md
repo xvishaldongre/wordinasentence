@@ -1,0 +1,59 @@
+---
+title: "dreamed in a sentence | dreamed example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "dreamed"
+---
+- Everything i `dreamed`.
+- Everything i `dreamed`.
+- `Dreamed` of space travel.
+- Maybe i `dreamed` it all up.
+- Than you've ever `dreamed` of.
+- Because i have `dreamed` of him.
+- I've `dreamed` of your coming...
+- I `dreamed` about this game, fat man.
+- I `dreamed` it would smell like this.
+- I `dreamed` of him too... merlin lives!
+- Really, i never `dreamed` ... oh, sure.
+- "she's real because you `dreamed` her?"
+- I `dreamed` about your house last night.
+- I have never `dreamed` of merlin before.
+- You saw wonders you'd only `dreamed` of.
+- This is what i've always `dreamed` about.
+- You `dreamed` about what was up there.
+- More money than you ever `dreamed`, roger.
+- I `dreamed` my whole life of legalized weed.
+- But...it's just a house i've `dreamed` about.
+- He's got scams you haven't even `dreamed` of.
+- She `dreamed` they were pulling the plug on me.
+- I think you might of `dreamed` this one, anthony.
+- I `dreamed` that i... that i killed you and danny.
+- I `dreamed` about her before i even went to rekall.
+- I never `dreamed` that spoilers really hurt people.
+- Physical, mental prowess you've never `dreamed` of.
+- I never `dreamed` anyone would hear me back there...
+- Those white things have taken all i had or `dreamed`.
+- My daughter's always `dreamed` of bein' a cheerleader.
+- I've `dreamed` of nothing else since i was a small boy.
+- I've won enough money to do what i've always `dreamed`.
+- You never `dreamed` about being popular- you already were.
+- Moe, i never `dreamed` you were capable of such a sweet thing.
+- I've `dreamed` about it, sure, but i never really thought about it.
+- Oh golly, oh just what i've always `dreamed` of, dirty phone calls.
+- Oh my god, i've `dreamed` about this ever since i was a little girl.
+- I never knew you `dreamed` of working in a grocery store bank branch.
+- I've always `dreamed` of being the kind of family woman: clarke, stop.
+- Sweet jesus i never `dreamed` i'd be glad to see central park at night.
+- He's talked people into doing things they never would have `dreamed` of.
+- There was a time you looked at the stars and `dreamed` of what might be.
+- I just wanted to give you the wedding, the life you always `dreamed` of...
+- Greater pain than you ever `dreamed` of in the worst time of your sickness.
+- She `dreamed` this would happen... you got a sane explanation for what he did?
+- "and i hope life treats you kind and i hope you have all you `dreamed` of offffff.
+- I `dreamed` about always being warm... stay a while.... that's hard to imagine....
+- He always `dreamed` about moving to tahiti -- living in a hut and becoming a beach-bum.
+- I've `dreamed` of it for years, but your movie made me realize i've got to take action.
+- The whole idea of god was `dreamed` up by a silly animal with a small brain called man.
+- I `dreamed` he got hit by a car and you and mr. crandall buried him in the pet sematary.
+- I `dreamed` of running up to a door, kicking it in, pulling my gun and yelling 'freeze!'
+                 

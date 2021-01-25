@@ -1,0 +1,54 @@
+---
+title: "impressive in a sentence | impressive example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "impressive"
+---
+- That was `impressive`.
+- But mildly `impressive`.
+- Dorsia, how `impressive`!
+- It's really `impressive`.
+- Pretty `impressive`, huh?
+- Very `impressive` resume.
+- `Impressive`, aren't they?
+- `Impressive` -- is it not?
+- Oh, `impressive` wingspan.
+- Wow, that is `impressive`.
+- Oh, it's very `impressive`.
+- Pretty `impressive`, right?
+- That's pretty `impressive`.
+- Very `impressive` ceremony.
+- Yes, uh, very `impressive`.
+- It was totally `impressive`.
+- Your resume is `impressive`.
+- That was pretty `impressive`.
+- You think that's `impressive`.
+- They had `impressive` security.
+- This is `impressive`, gentlemen.
+- Your `impressive` parlor tricks.
+- It's quite an `impressive` virus.
+- It was a very `impressive` offer.
+- The recovery is very `impressive`.
+- `Impressive` man that's wyatt earp.
+- It's pretty `impressive`, isn't it?
+- Very `impressive` operation, fletch.
+- It was pretty `impressive`, actually.
+- Wanna hear something more `impressive`?
+- So, then you admit it's kind of `impressive`.
+- Your research laboratory is most `impressive`...
+- You'll have a very `impressive` scar to prove it.
+- Pretty `impressive` huh?...don't let it scare you.
+- My dear, you don't know how `impressive` i could be.
+- These are very `impressive` résumés for 22-year-olds.
+- "in absentia luci, tenebrae vinciunt..." `impressive`.
+- It's still `impressive` by my standards: my name's john.
+- You've each demonstrated `impressive` devotion to the shepherd.
+- Some of the pieces in your collection here are very `impressive`.
+- Well, it's very `impressive` but you built this junk for nothing.
+- Very, very `impressive`... no,... like a worthy adversary, wesley.
+- This is gonna be bela's laboratory, so it should be real `impressive`!
+- I mean, he never asked me why i was a hooker, and that was `impressive`.
+- I must say, professor your knowledge of engineering is most `impressive`.
+- He seems like a leader -- very `impressive`, self-control...that's what's so strange.
+- Of course, it would have been even more `impressive` if you actually knew where he was.
+                 

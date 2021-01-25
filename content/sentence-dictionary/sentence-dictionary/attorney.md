@@ -1,0 +1,100 @@
+---
+title: "attorney in a sentence | attorney example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attorney"
+---
+- I'm a civil `attorney`.
+- I'm not his `attorney`.
+- A crystal city `attorney`.
+- I'm calling an `attorney`.
+- Ms. bonafante's `attorney`.
+- `Attorney` for the plaintiff?
+- Because, i'm your `attorney`.
+- He needs to hire an `attorney`.
+- Thomas franklin, an `attorney`.
+- Why would i need an `attorney`?
+- Oh, you're his `attorney`, too...?
+- 20 million, plus `attorney`'s fees.
+- That's `attorney` client privilege.
+- The u.s. `attorney`... who is this?
+- This is our `attorney`, gerta rauss.
+- Working for the district `attorney`.
+- You have the right to an `attorney`.
+- `Attorney` of record for jabez stone.
+- Hell, you're the district `attorney`.
+- Licensed `attorney` or family member?
+- Shall we call the `attorney` general?
+- I mean, about the power of `attorney`.
+- Welcome, district `attorney` garrison.
+- I called the state `attorney`'s office.
+- Tell it to the u.s. `attorney`, lounds!
+- But he works for the `attorney` general.
+- Have your `attorney` contact me at once.
+- I'm an `attorney` with seth, silverberg.
+- Mike's our `attorney` general down here.
+- You're not my `attorney` yet, mr. cedar.
+- Give me the district `attorney`'s office.
+- He was rex rexroth's personal `attorney`.
+- I'm an `attorney` on trial before the bar.
+- Oh, you're the great joe's `attorney` now?
+- Sure, but i ain't the `attorney`� hang up.
+- You got a ten year old `attorney`, bernie?
+- I'm the `attorney` for the corleone family.
+- But even <u>after</u> you had an `attorney`.
+- Are you invoking `attorney`/client privilege.
+- He's the top defense `attorney` in the state.
+- If you wanna contact my `attorney`... police.
+- Who got the power of `attorney` from him !
+- As your `attorney`, i advise you not to worry.
+- I am not a pretend `attorney`, yes, marge, yes.
+- I followed her today to an `attorney`'s office.
+- My father's put me in touch with an `attorney`.
+- If you persist, i'll meet you with my `attorney`.
+- Legal problems, you gotta have a good `attorney`.
+- Perhaps you should consider hiring an `attorney`.
+- I'm an assistant district `attorney`, ms. tramell.
+- Vincent <u>farrell</u>, assistant u.s. `attorney`.
+- Raymond, i'm the only criminal `attorney` you have.
+- I need an `attorney` and you're the only one i know.
+- I told them you wouldn't want an `attorney` present.
+- Listen, john, you better double my `attorney`'s fee.
+- My `attorney` should have brought that our in court.
+- He's an estate `attorney` -- and he's very expensive.
+- Do you know an `attorney` by the name of dean andrews?
+- Miss braslow -- i'm district `attorney` john cardenas.
+- As your `attorney`, i advise you to drive at top speed.
+- She called the consumer...the `attorney`, i don't know.
+- The district `attorney` gives his men advice like that?
+- Bugging the district `attorney`'s office of new orleans!
+- You're s'posed to be an <u>`attorney`</u> for chrissake!
+- Being an `attorney` for you will be a very simple affair.
+- Oh jake, this is state's `attorney` bronson and his wife.
+- What would joanne braslow need with an estate `attorney`?
+- Sally hayes is not a bitch - she's a damn fine `attorney`!
+- From the `attorney` general's office, everyone, stand down.
+- I'm an `attorney`, you're a barber; you don't know anything.
+- The `attorney` gen...they said we have three days... monday.
+- What else did the district `attorney`'s office tell you to say?
+- A week's gone by and we haven't got the power of `attorney` yet!
+- Because i told her you were the best criminal `attorney` we have.
+- You're assuming the district `attorney` is going to file charges.
+- Call the palmdale city `attorney` for a telephonic search warrant.
+- Who wants an `attorney` who gets the hiccups when she gets nervous?
+- My `attorney` understands this concept, despite his racial handicap.
+- You know who the `attorney` is for the archdiocese, eddie concannon.
+- I want you to understand that this man at the wheel is my `attorney`!
+- You wanna ask me questions, you could talk to my `attorney`, miss o'day.
+- Unless... maybe lombardo's `attorney` was saving the affair for the trial.
+- As your `attorney`, i advise you to tell me where you put the goddamn mescaline.
+- Clearly, i am here, but only as an individual, i'm not the `attorney` of record.
+- Don't forget that paul's a promising young `attorney` who loves you very much...
+- But, it seemed a bit heavy for the thing we were trying to protect: my `attorney`.
+- Dan kelly, in the district `attorney`'s office, will probably help us out, quietly.
+- Deeds, but if you'll give me your power of `attorney` we'll take care of everything.
+- You can call your husband or your `attorney`, but sam is spending the summer with me.
+- You plan to be a criminal defense `attorney`, know this going in: everybody's guilty.
+- If you believe this is murder, it is the crown `attorney` you have to talk to, not me.
+- I don't know, the `attorney` gen... the...some consumer office, um... who did she call?
+- You don't really believe what the district `attorney` is saying about miss lawson, do you?
+                 

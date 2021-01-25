@@ -1,0 +1,61 @@
+---
+title: "stroke in a sentence | stroke example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stroke"
+---
+- I may have a `stroke`.
+- I'm having a `stroke`.
+- Sort of like a `stroke`.
+- It's all in the `stroke`.
+- One `stroke` took the head.
+- Try a more gentle `stroke`.
+- Your father had a `stroke`.
+- Bob, the guy had a `stroke`!
+- You're the queen of `stroke`!
+- That was a `stroke` of genius.
+- You'll get a `stroke` arguing.
+- Go ahead, now, honey - `stroke`.
+- It could give him a new `stroke`.
+- `Stroke` those keys, jelly green.
+- `Stroke` those keys, jolly green.
+- Heat `stroke` is your idea of fun?
+- I'm-i'm-i'm gonna have a `stroke`.
+- How to improve your breast `stroke`?
+- Now we kill two birds at one `stroke`.
+- Had a `stroke` but he's recovered okay.
+- Then your `stroke` came this summer.
+- Jesus christ, i'm gonna have a `stroke`.
+- I thought the proofreader had a `stroke`.
+- Brain hemorrhaging leads to `stroke`, mmm.
+- I thought john was going to have a `stroke`.
+- Our future lies in the `stroke` of your pen.
+- I need to work on my ground `stroke` a little.
+- Kinda lost the old filter with her last `stroke`.
+- One car accident, two heart attacks and a `stroke`.
+- Or, as i always called it -- "`stroke` the salami!"
+- Since my `stroke`, i am often overcome with nostalgia.
+- But her brain stem shows evidence of a massive `stroke`.
+- I ran a key check on every `stroke` nedry entered today.
+- Shall we say the "`stroke` of midnight" no pun intended?
+- With a light, quick `stroke` church will not be canceled.
+- Then, minutes after they left, he suffered a `stroke`.
+- Everybody else is buying the minor `stroke`' story... fine.
+- Same as always -- glub-glub, bubble-bubble, `stroke`-`stroke`.
+- He - he - had a `stroke`- just before ellie died - of cancer.
+- Well why don't you take your pants off and `stroke` it for me?
+- I am actor, he is actor, although he is an actor `stroke` musician.
+- Well... well... oh... right... you know, ever since the `stroke`...
+- Yes, `stroke` it right along the maxillary and precaudal vertebrae.
+- I plan to have a `stroke` from the amount of msg that's in this food.
+- Or we could congratulate ourselves on a marvelous `stroke` of good fortune.
+- I predict that the world will end at the `stroke` of midnight on new year's eve.
+- Okay, now i'm using that quick mouse `stroke` here and here, where is blodreina?
+- She'll `stroke` out, i'll download, you were down here stealing what i bled for.
+- But the important thing--and this was the genius of the `stroke`--*it means votes*!
+- Whatever was killed in your `stroke` appears to have short-circuited this mechanism.
+- Although after you had that nasty `stroke` the last time, i had to go after him myself.
+- It begins as a first-person account of a guy taking care of his father after a `stroke`.
+- Well, start by going on television and saying that he's had a mild `stroke`... like how?
+- Like the tip o'your nose, and if i `stroke` your teeth or your kneecaps... you get excited.
+                 

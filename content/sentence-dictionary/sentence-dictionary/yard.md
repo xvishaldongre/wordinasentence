@@ -1,0 +1,74 @@
+---
+title: "yard in a sentence | yard example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "yard"
+---
+- Running a junk `yard`.
+- I stay in my own `yard`.
+- Stay out of your `yard`.
+- My wonderful junk `yard`.
+- See ya at the `yard`, meat.
+- Twin chestnuts in the `yard`.
+- We're out of our back `yard`.
+- Some even come into the `yard`.
+- Probably out in the back `yard`.
+- Ever sat on the fifty `yard` line?
+- Know it, and go on out the `yard`.
+- I don't sell my work by the `yard`!
+- Like being back in the `yard`, huh?
+- I'm saying they came into my `yard`.
+- I was just coming out on the `yard`.
+- Most of the `yard` we'll just level.
+- We should put it in bleeker's `yard`.
+- The `yard` was big with lots of grass.
+- Pickings are pretty slim in the `yard`.
+- I... what's all this dirt in the `yard`?
+- He walks up to her on lunch `yard` today.
+- This place is like a scumbag `yard` sale.
+- He'll limp around the `yard` up at folsom.
+- I'll be buried in my `yard` next to barbara.
+- You should keep him away from our `yard`.
+- I know it like you know your own back `yard`.
+- That grass out in the `yard`'s all growed up.
+- Yeah--thousands, and right in my back `yard`.
+- Well, then, what can i do for scotland `yard`?
+- The place seems more a farm than an inn-`yard`.
+- Are the clothes thrown out onto the front `yard`?
+- Even... even that old refrigerator in the `yard`.
+- Scotland `yard`, interpol, every dutch authority.
+- But i will see you smile from the `yard` arm, sir.
+- Next time, remind me to do this out in the `yard`.
+- I saw someone standing in mr. riddle's back `yard`.
+- I thought i'd burn 'em up and get the `yard` clean.
+- So, i noticed a "for sale" sign out in your `yard`.
+- We'll have us a little book barbecue in the `yard`.
+- When who- i was there paul d...there in the `yard`.
+- Getting the `yard` all fixed up for your party, amy.
+- Guy mowing his `yard`, couple of kids playing hoops.
+- He was working in the `yard` -- hammering something.
+- It runs from shack to shack clear around the `yard`.
+- We'll have a brief chat and he'll finish the `yard`.
+- I don't take a shower in the middle of the `yard`.
+- He took that dog and staked him out in the back `yard`.
+- These bushes follow the wall into the neighbor's `yard`.
+- We have a dozen concussive just hanging out in my `yard`?
+- Rose, that scruffy-looking man is out in the `yard` again.
+- Inspector dave taylor - scotland `yard` ...can i have a word?
+- I used to sneak in their `yard` and steal their strawberries.
+- Why don't you go on out to the `yard`, have yourself a smoke?
+- I want every man lined up out here in the `yard` on the double!
+- Sir, if i may -- dean fulton... my fowl have polluted the `yard`.
+- I should have caught you at the boat `yard` when you got off work.
+- The mystery and dreams you find in a junk `yard`- i'm a junk `yard`.
+- After dinner, i want you to pick out your toys for the `yard` sale.
+- Mommy's a little amped up - didn't get her `yard` time this morning.
+- Whatever it is, it comes from outside this house, outside the `yard`.
+- When the baby is born, we'll go out in my back `yard` and wave to you.
+- If you had what you wanted at home why did you sneak into their `yard`?
+- Florida has more rich chicks per square `yard` than any resort spot in the world.
+- Hey, why don't you just keep your room and we'll put the baby in the back `yard`.
+- So i never leave this house and i watch over the `yard` so it can't happen again ...
+- Gotta run over to the `yard` and see if i can find a hose like this one, or close enough.
+- Not ready yet, looking like a junk `yard`- only thing, what i go after, i want to go after.
+                 

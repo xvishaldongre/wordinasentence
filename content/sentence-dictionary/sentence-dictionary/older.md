@@ -1,0 +1,107 @@
+---
+title: "older in a sentence | older example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "older"
+---
+- Surely she is `older`?
+- A year `older` than you?
+- He was a little `older`.
+- Man's `older` than sand.
+- Was it an `older` model?
+- You'll only get `older`.
+- You're `older` than him.
+- I got five years `older`.
+- Wait till you're `older`.
+- Another man, much `older`.
+- Is tong `older` than ming?
+- Maybe when you're `older`.
+- Oh, she `older` than that.
+- Sister `older` or younger?
+- I'm `older` than hell, boy.
+- I thought you'd be `older`.
+- How come you're not `older`?
+- I'm much `older` than three.
+- A few years `older`, perhaps.
+- I don't mind getting `older`.
+- Maybe he likes `older` women.
+- I got to say you look `older`.
+- Is your niece `older` than 12?
+- Is there an `older` james gang?
+- "`older`" is <u>really</u> old.
+- Does he have an `older` brother?
+- I plan on getting a lot `older`.
+- Look, you're my `older` brother.
+- The `older` ones, they were okay.
+- Angels don't get any `older`, son.
+- But i know you're getting `older`.
+- I think ming is `older` than tong.
+- She's an attractive `older` woman.
+- I say, maybe you were born `older`.
+- It's getting `older` by the second.
+- I've got a son, too...he's `older`.
+- Well, not <i>that</i> much `older`.
+- A little `older` than paloma is now.
+- He was a few years `older` than you.
+- Maybe you were born `older`, george.
+- Right away, before i get any `older`.
+- We weren't much `older` than they are.
+- The `older` one wanted head of the cdc.
+- You can't trust the `older` generation.
+- You grow `older` but you don't grow up.
+- No, i mean someone considerably `older`.
+- To a handsome, `older` gentleman's head.
+- You get `older`, you nhave other things.
+- You'll always be `older` than me, father.
+- He can make up his mind when he's `older`.
+- He was thirty-four years `older` than you.
+- She's probably ten years `older` than you.
+- You're my `older` brother, and i love you.
+- But as one gets `older`, one fears subside.
+- In europe women find `older` men very sexy.
+- As one grows `older`, one yearns for family.
+- Well when you get `older`, you just have to.
+- When you get `older` your priorities change.
+- I have eight `older` sisters and one brother.
+- In many ways i am so much `older` than he is.
+- I'm `older` now'n he ever was by twenty years.
+- Why don't you wait till he's a little `older`?
+- You'll learn as you get a little `older`, jim.
+- You're thirteen months `older` than me, frank.
+- You're a cantankerous one, `older` brother.
+- I was just thinking you could make her `older`.
+- It's really tough when your parents get `older`.
+- And there were some `older` kids picking on will.
+- I guess living up here makes people look `older`.
+- And think that, you know, the `older`, the better.
+- Ayuh--they get `older` as you go toward the middle.
+- How come we never heard of the `older` james gang?"
+- Looks like she's a little `older` than you thought.
+- Mike, i'm your `older` brother; i was stepped over!
+- As i've gotten `older`, except for pearl harbor day.
+- Because it means the tree is `older` than the house.
+- The `older` generation won't have any problem with it.
+- Mummy wasn't much `older` than me when she got married.
+- I'm appreciably `older` than you, but my health is good.
+- She's not allowed to date until her `older` sister does.
+- These are `older` women just dressed up to look young...
+- When i was `older`, i learned many things from him here.
+- A very simple set-up: an `older` woman who is well-to-do.
+- You have grown `older` and your chin has grown balder.
+- Hey, did you hear that finch had sex with an `older` woman?
+- Yeah, this song's `older` than me, if you can believe that.
+- Yes, sir, you look a little `older` without your clothes on.
+- Well then, when you get `older` you can do something about it.
+- But what you learn as you get `older` is, there ain't no truth.
+- I appreciate an `older` woman who has a commitment to her body.
+- I've always been attracted to `older` women... what's the rush?
+- Maybe `older` -- hold on -- -- dating the crash at least that old.
+- The `older` one is janet, she's nine, and the younger one is morgan.
+- What i need is an `older` man, something with class, a little style.
+- When i think of all the fuss about `older` men fancying young girls.
+- They getting `older` now and i can't take care of 'em like i used to.
+- It's hard to make me feel `older` than i am, yes, sir, mr. chancellor.
+- If i'm right, there is a reason this warning label says "18 or `older`."
+- I guess it was too much to ask that it would somebody `older`...and maler.
+- You were the built `older` guy with the black trans and the big... really?
+                 

@@ -1,0 +1,104 @@
+---
+title: "pounds in a sentence | pounds example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pounds"
+---
+- Must weigh 30 `pounds`.
+- Three hundred `pounds`!
+- Seventy `pounds` a tube.
+- Three thousand `pounds`.
+- Bench-presses 350 `pounds`.
+- He must weigh 300 `pounds`.
+- What ten thousand `pounds`?
+- When i have fifty `pounds`.
+- A couples thousand `pounds`.
+- What's another ten `pounds`?
+- Twenty, twenty-fire `pounds`.
+- They cost fifty `pounds` each!
+- Two `pounds`, fourteen ounces.
+- Can you live on sixty `pounds`?
+- Have you gained a few `pounds`?
+- How many `pounds` i gotta lose?
+- I deal in u.s. `pounds`, friend.
+- I've got eight hundred `pounds`.
+- 25 `pounds` or 25 pence in fours.
+- Four hundred and eleven `pounds`.
+- Seven `pounds`, eight, i suppose.
+- That's a hundred `pounds` a week.
+- Twenty-five `pounds` in each bag.
+- Twenty `pounds` on delivery wait!
+- You're still eight `pounds` over.
+- I'll bet he's gained ten `pounds`.
+- If it's sixty `pounds`, it's three.
+- Than thirty-seven million `pounds`?
+- That's six hundred `pounds`, harry.
+- You keep the ten thousand `pounds`.
+- We pay twenty `pounds` a manuscript.
+- Dad must've had forty `pounds` on me.
+- We'll start you off with 60 `pounds`.
+- You must have put on twenty `pounds`.
+- That's two hundred and fifty `pounds`.
+- What does she weight, eighty `pounds`?
+- A signazoid's eleven thousand `pounds`.
+- Cried a lot and gained twenty `pounds`.
+- You could stand to shed a few `pounds`.
+- You paid two hundred `pounds` for this?
+- I gave you three `pounds` a month since.
+- He weighs two- hundred-and-thirty `pounds`.
+- She's 54 years old and weighs 240 `pounds`.
+- That milk only weighs about seven `pounds`.
+- I lost ten `pounds` in rome alex, are you....
+- Two hundred `pounds` is what you paid for it.
+- Mr. henslowe, will you lend me fifty `pounds`?
+- This is not worth eight `pounds`, mrs. clifton.
+- Fifty `pounds`, will, for the poet of true love.
+- In the real world that pane weighs 200 `pounds`.
+- Nineteen and a half `pounds`, not counting ammo.
+- Sorry, boys, i don't have two thousand `pounds`.
+- For fifty `pounds` my hired player days are over.
+- Six foot one, strongly built, about 190 `pounds`.
+- You're thin, i'm about forty `pounds` overweight.
+- I'll pay you five `pounds` to swap clothes with me.
+- I lost six `pounds`... then what was good about it?
+- I weigh a hundred and eighty-two `pounds` stripped.
+- You know you melted 200 `pounds` of ice in 8 hours.
+- A standard visit would run you about fifty `pounds`.
+- She could make you drop three `pounds` in one class.
+- You're looking at twenty `pounds` of high explosive!
+- Two thousand, one hundred and thirty- three `pounds`.
+- I would pay one hundred `pounds` just to see him hang.
+- Then i see you inside eating ten `pounds` of macaroni.
+- I mean, gordon must weigh a good four hundred `pounds`.
+- I will give you one hundred `pounds` to spare his life.
+- Where would a two-bit ex-cop get 18 `pounds` of heroin?
+- Who buys classified reports for three million `pounds`.
+- A fire in this place would give us ten thousand `pounds`.
+- They are mature humpbacks, weighing 45,000 `pounds` each.
+- This kid is six foot two, two hundred and forty `pounds`.
+- Well she must've packed on a few `pounds` over the years.
+- You went to pembroke and got five `pounds` two weeks ago.
+- I heard on tv, "catwoman is thought to weigh 140 `pounds`."
+- A sweaty-toothed madman with a stare that `pounds` my brain.
+- The last time i was really happy i put on twenty-five `pounds`.
+- Homie wouldn't have dropped me if i hadn't put on a few `pounds`.
+- I've got like three `pounds` of underwire here ... jen please ...
+- Ten cents a hundred `pounds` on everything that moves in and out.
+- That's another hundred - twenty-five `pounds` notes of the realm.
+- I feel like someone just took a million `pounds` off my shoulders.
+- I accept your note for near two hundred `pounds`, and what do i find?
+- We'll be loaded with 2,000 `pounds` of bombs and 1,500 `pounds` of fuel.
+- Sixty three `pounds` consumed per capita, up from twenty seven in 1960.
+- In fact, i think i might've put on a couple of `pounds` since i got here.
+- The night he got clipped, eighteen `pounds` of mickey's heroin went missing.
+- Did you know that the average person produces three `pounds` of garbage a day?
+- Mysteriously my fellow officers discovered ten `pounds` of heroin in my cruiser.
+- The guy that took the head was about six-seven, and maybe three-hundred `pounds`.
+- But you know, you shit out a bunch of kids, you're going to put on a few `pounds`.
+- I... ...trying to offer you the respect that your... why is she eight `pounds` over?
+- Direct, but then you're looking at the wrong end of nine hundred and twelve `pounds`.
+- Right after you change your wardrobe, your personality and drop about thirty `pounds`.
+- Best has promised to pay off the four thousand `pounds` which is bothering your uncle so.
+- Carl says if i lose ten `pounds`, he'll take me to the university of maryland fall mixer.
+- There's no way we're gonna hide a few thousand `pounds` of gold from the coastguard here.
+                 

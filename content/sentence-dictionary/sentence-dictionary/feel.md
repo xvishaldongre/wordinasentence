@@ -1,0 +1,107 @@
+---
+title: "feel in a sentence | feel example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feel"
+---
+- Don't you `feel` well?
+- `Feel` her heart beat.
+- `Feel` it in my bones.
+- He's gonna `feel` bad.
+- Honest, i `feel` fine.
+- How do you `feel` now?
+- I can `feel` the cold.
+- I do `feel` something.
+- I `feel` almost human.
+- I `feel`... confident.
+- I `feel` good anyways.
+- I `feel` like dancin'.
+- I `feel` like dancing!
+- I `feel` like dancing.
+- I `feel` like driving.
+- I `feel` like they do.
+- I `feel` really weird.
+- I `feel` sure of this.
+- I `feel` the same way.
+- I `feel` very strange.
+- I know how you `feel`.
+- I know how you `feel`.
+- I speak what i `feel`.
+- Makes you `feel` good?
+- Nice to `feel` needed.
+- So, how do you `feel`?
+- Yeah, you `feel` that?
+- You can't `feel` that.
+- You `feel` it, though.
+- You have to `feel` it.
+- You know how i `feel`.
+- You know how i `feel`?
+- ...because i `feel` it.
+- Don't `feel` that much.
+- Don't i `feel` special?
+- Do you `feel` anything?
+- Do you `feel` anything?
+- Do you `feel` that way?
+- Do you `feel` up to it?
+- `Feel` her strong legs.
+- `Feel` like a nightcap?
+- `Feel` like i'm reborn.
+- `Feel` like practicing?
+- Finally i `feel` happy.
+- Finally, i `feel` seen.
+- How does it `feel`, mr.
+- How's it `feel`, tommy?
+- I can `feel` your pain.
+- I can't `feel` my body.
+- I can't `feel` my hand.
+- I can't `feel` my legs.
+- I did `feel` something.
+- I don't `feel` like it.
+- I don't `feel` so good.
+- I don't `feel` so good?
+- I don't `feel` so well.
+- I `feel` all right too.
+- I `feel` like an idiot.
+- I `feel` lucky tonight.
+- I... `feel`.... pretty.
+- I `feel` really stupid.
+- I `feel` safer already.
+- I `feel` sorry for him.
+- I `feel` sorry for you.
+- I `feel` terrible, hon.
+- I `feel` terrible, rob.
+- I `feel` the same, sir.
+- I `feel` young, doctor.
+- I... how do you `feel`?
+- I just `feel` so horny.
+- I know how they `feel`.
+- I make you `feel` good.
+- Is that how you `feel`?
+- Just how do you `feel`?
+- Make you `feel` strong?
+- Oh, no, i `feel` great.
+- Really, i `feel` weepy.
+- Says she can `feel` it.
+- That can't `feel` good.
+- ....to `feel` yourself.
+- You `feel` bad for ava?
+- You `feel` you know me.
+- Alan-one... `feel` what?
+- I `feel` lucky, too.
+- I know how i `feel`.
+- And we'll `feel` better.
+- Can't you `feel` it yet?
+- Did you `feel` anything?
+- Don't you `feel` breezy.
+- Do you `feel` all right?
+- Do you `feel` comforted?
+- Do you `feel` like that?
+- `Feel` a little foolish?
+- `Feel` better than this?
+- `Feel` free to lie down.
+- `Feel` free to speak up.
+- He won't `feel` a thing.
+- How do you `feel`, dell?
+- How do you `feel`, jack?
+- How real does it `feel`?
+                 

@@ -1,0 +1,58 @@
+---
+title: "Lois in a sentence | Lois example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Lois"
+---
+- What does `lois` know?
+- Gee, i'm sorry, `lois`.
+- `Lois`, you're amazing.
+- Get the picture, `lois`?
+- You're the best, `lois`.
+- `Lois` i have a question.
+- What did adam tell `lois`?
+- `Lois`, what are you doing?
+- `Lois` will stay with them.
+- But all men like me, `lois`.
+- What're you writing, `lois`?
+- Why, `lois`, i didn't know .
+- `Lois`, the kickback story...
+- You think i would hurt `lois`?!
+- Does `lois` know about this yet?
+- `Lois` calls out to the balcony.
+- You know there are pill, `lois`.
+- I'm gonna do it for sweet `lois`.
+- `Lois`, i really don't see why -- .
+- `Lois`, i've got to hand it to you.
+- Tell `lois` that nothing... micheal?
+- But you deserve the vacation, `lois`.
+- You and `lois`, you get all the action.
+- I'll take care of it if you want, `lois`.
+- `Lois` just wants to hear it from micheal.
+- `Lois`, someday -- oh, i'm not blaming you.
+- `Lois` is a mess and micheal's really upset.
+- Clark kent, i'd like you to meet `lois` lane.
+- Now you listen to me, `lois` lane, let it go.
+- How come you get all the good stories, `lois`?
+- You're good, but `lois` is the best we've got.
+- They seemed sure it was either alice or `lois`.
+- But tonight -- i mean, anything you want, `lois`.
+- I don't think we're being treated fairly, `lois`.
+- It isn't worth getting a heart attack over, `lois`.
+- For `lois` and the kids, for my brother, for franco.
+- I'm talking about `lois` having relaxed her anxiety.
+- `Lois` huggins says that's proper, oh, thank you, amy.
+- Oh, you're a great writer, `lois`, nobody doubts that.
+- It wasn't any fun up there with just `lois` and superman.
+- You are going to tell `lois` that it was all an accident.
+- I don't know, `lois`, but i do know a fraud when i hear one.
+- `Lois`, you sure you wouldn't rather do this in the morning?
+- You can go back to bed...or `lois` might let you go swimming.
+- `Lois`, take kent there and introduce him around it does, huh?
+- `Lois`, you should see what the inside of your lungs look like.
+- `Lois` is doing an interview with superman about his peace mission .
+- `Lois`, have you ever fallen for a guy and he's not like other guys .
+- You've been under a lot of pressure lately - no, of course not, `lois`.
+- Any second now, its -- really `lois`, we've got to stop meeting this -- superman!
+- `Lois`, i don't have the vaguest idea -- as usual -- what you're -- and you weren't.
+                 

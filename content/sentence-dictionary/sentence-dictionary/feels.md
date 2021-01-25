@@ -1,0 +1,107 @@
+---
+title: "feels in a sentence | feels example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "feels"
+---
+- I know how he `feels`.
+- I know how it `feels`.
+- It `feels` so.. .real.
+- It just `feels` right.
+- Now that `feels` good.
+- Oh, pity `feels` good.
+- `Feels` like yesterday.
+- I hope it `feels` good.
+- Imagine how he `feels`.
+- It `feels` like breath.
+- The air `feels` chunky.
+- Ahh, that `feels` great.
+- He `feels` no different.
+- Mmmm, that `feels` good.
+- Something `feels` wrong.
+- That `feels` real to me.
+- The earth `feels` junky.
+- Bart clearly `feels` bad.
+- He `feels` a little warm.
+- Oh god, it `feels` great!
+- Is that how larry `feels`?
+- Now i know how it `feels`.
+- You know how that `feels`?
+- As much as he `feels` like.
+- `Feels` great... fuckin' a!
+- It `feels` fine now, jabez.
+- No -- it `feels` wonderful.
+- Oh, it still `feels` weird.
+- So you know how it `feels`?
+- This `feels`... incestuous.
+- You hope what `feels` good?
+- `Feels` so good to lie here.
+- Now you know how it `feels`.
+- At least it `feels` that way.
+- `Feels` different doesn't it?
+- He says he `feels` safe here.
+- How come it `feels` the same?
+- If that's what `feels` right.
+- The air `feels` so different.
+- `Feels` like that, doesn't it?
+- Good... that `feels` so great.
+- I know how scary that `feels`.
+- Shari, ray `feels` -- hi, mom.
+- I know it, and it `feels` good.
+- I mean, it `feels` like i have.
+- Mostly it `feels` like driving.
+- Tell me how it `feels` exactly.
+- <u>ask</u> her how she `feels`.
+- `Feels` like a cigarette lighter.
+- I know how it `feels` to be dead.
+- It `feels` like you're in france.
+- `Feels` like warm apple pie, dude.
+- God, that `feels` so fucking good.
+- I like how it `feels` not to feel.
+- It `feels` a little confined here.
+- It `feels` really... good... here.
+- She `feels` you are her only hope.
+- Do you know what that `feels` like?
+- I sure know what that `feels` like.
+- My heart `feels` like an alligator!
+- Ninotchka `feels` more comfortable.
+- Tell her i hope she `feels` better.
+- He says he `feels` no pain, my lord.
+- Now it `feels` like it's everywhere.
+- He `feels` tremendous loss and guilt.
+- Right now it `feels` like ten, but...
+- You know how that `feels`, don't you?
+- But in my heart... this `feels` wrong.
+- `Feels` like it might have gotten wet.
+- I hope it `feels` so good to be right.
+- It `feels` wrong, jack... like a trap.
+- Not all... but it `feels` like a kiss.
+- She says he `feels` like he's burning.
+- Do i know what loneliness `feels` like?
+- No one i know `feels` ... close to you.
+- Everyone `feels` that way about someone.
+- In the back...`feels` like an arrowhead.
+- It `feels` good to be on the right side.
+- Oh, your skin `feels` so soft and silky.
+- Well, now you know what it `feels` like.
+- This `feels` utterly fantastic, ryan.
+- `Feels` like a monday night, don't it...?
+- I almost remember what that `feels` like.
+- Oh, it `feels` like my joints are rusted.
+- Sometimes, the world `feels` like a cage.
+- What do you care who `feels` me up, jake?
+- Because it `feels` really incredibly good.
+- It `feels` good to let it out, doesn't it?
+- You call whenever it `feels` right to you.
+- This is how it `feels` to be irrelevant.
+- It `feels` like how being in love should be.
+- She `feels` she's in danger from the others.
+- Who `feels` he hasn't gotten what he's owed.
+- Blood temperature `feels` like high eighties.
+- Christ, my head `feels` like a split coconut.
+- It just `feels` good to me when i imagine it.
+- Look, i'm just tellin' you how tommy `feels`.
+- My client `feels` sufficiently dispassionate.
+- Now, i know it `feels` like all hope is lost.
+- When i'm alone, it `feels` like someone else.
+                 

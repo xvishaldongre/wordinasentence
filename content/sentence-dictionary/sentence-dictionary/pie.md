@@ -1,0 +1,87 @@
+---
+title: "pie in a sentence | pie example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "pie"
+---
+- I hate jo berry `pie`.
+- That `pie` was too hot.
+- The `pie`'s way better.
+- "dad ate all the `pie`."
+- Yeah, i want some `pie`.
+- Not very far, honey-`pie`.
+- A piece of `pie` on sunday.
+- But i ate your mom's `pie`.
+- How about you, cutie `pie`?
+- That's good, sweetie `pie`.
+- You have to try this `pie`.
+- How about some ginger `pie`?
+- Shut your `pie` hole, jimmy.
+- Here's your `pie`, sebastian.
+- Oat straw tea and ginger `pie`.
+- Well, hello there, honey-`pie`.
+- It's as american as apple `pie`.
+- Before you put them in the `pie`.
+- Oh, i made dad a blueberry `pie`.
+- Would you like to get some `pie`?
+- A slice of pecan `pie`, right?
+- A venison `pie` as big as a house.
+- Did you bring the `pie` and punch?
+- Feels like warm apple `pie`, dude.
+- How to steal filling from a `pie`.
+- I love to get `pie` after a movie.
+- Jill, you're a real sweetie `pie`.
+- Slices of `pie` all around, mabel!
+- Would you like a bite of my `pie`?
+- ♪ bye bye miss american `pie` ♪ no!
+- I don't care how good her `pie` is.
+- A slice of `pie` for all my friends!
+- Let me have some apple `pie`, helen.
+- Tell 'em we'll have `pie` and punch.
+- For dessert, i made blackberry `pie`.
+- How much is the lemon meringue `pie`?
+- She's as american as apple `pie` too.
+- They make his balls smell like `pie`.
+- Um, that was a chicken pot pot `pie`.
+- We're not gonna have `pie` and punch!
+- He use to be such a sweetie `pie`!
+- Apple `pie`... mcdonald's or homemade?
+- Before the end, we will share a `pie`.
+- The boys and i will take a large `pie`.
+- Oh lloyd, you gotta taste my mom's `pie`!
+- ♪ four and 20 blackbirds baked in a `pie`.
+- "`pie` clearly hits face of stunt double"?
+- Meat loaf, apple `pie` and a cup of coffee.
+- I haven't had a key lime `pie` in ten years.
+- Are you sure you don't want a jo berry `pie`?
+- ♪ bye bye miss american `pie` ♪ - where's jane?
+- See, i was thinking, jellyfish pot `pie` it is.
+- After all that humble `pie`... just some coffee.
+- She made the best shepherd's `pie` i ever tasted.
+- You be sure and thank maisie for this fine `pie`.
+- We been thicker'n molasses `pie` since law school.
+- I was thinking of making a `pie` for dinner tonight.
+- "one `pie` to the groin won't do damage," they said.
+- Now ladies, the secrets to a great `pie` is the crust.
+- Now tell me if that isn't the best `pie` you ever ate.
+- Right now i just need to finish my `pie` and get home.
+- Do you like to eat `pie` after you've seen a good movie?
+- I know the darkness and cruelty of nature, sweetie `pie`.
+- I am going to be as gentle as `pie`--as lemon meringue `pie`.
+- By next year, you're my sweety-`pie`" and i'm "coochie-coo".
+- You know, baxter, you're a real cutie-`pie` -- yes, you are.
+- Tell me you don't want a slice of that `pie` right over there.
+- She only wants to do it because her sweetie `pie`'s the teacher.
+- So i'm eating humble `pie` this month - please print me an item."
+- There was a certain difference of opinion concerning a venison `pie`.
+- This power is divided amongst you, me, and others like cuts in a `pie`.
+- If you're here then we'll go to the corner and have some coffee and `pie`.
+- Okay then, i'm gonna walk over to that counter and get us some fucking `pie`.
+- When you ordered a `pie` it came with a little plastic madonna in the middle?
+- The secret to a great flaky `pie` crust comes from less flour and more...what?
+- The password is... more people will come if they think there'll be `pie` and punch!
+- ♪ bye bye miss american `pie`... ♪ from the u.s. department of energy - leave me alone!
+- You want three big macs, two chocolate shakes, two orders of fries, and an apple `pie`.
+- I'll take three big macs, two chocolate shakes, two orders of fries, and an apple `pie`.
+- 'cause i never got it straightened up; made the push, made the moves... ...`pie` in the sky?
+                 

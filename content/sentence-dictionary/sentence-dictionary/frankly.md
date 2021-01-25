@@ -1,0 +1,79 @@
+---
+title: "frankly in a sentence | frankly example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "frankly"
+---
+- `Frankly`, i'm shocked.
+- And, `frankly`, i'm glad.
+- `Frankly`, i am redundant.
+- `Frankly`, sir, it stinks.
+- `Frankly`, i don't remember.
+- `Frankly`, i'm disappointed.
+- `Frankly`, it's not my area.
+- And, quite `frankly`, so am i.
+- `Frankly`, kid--are you goofy?
+- No, it's not, quite `frankly`.
+- Quite `frankly`, he hates you.
+- `Frankly`, yes, to my surprise.
+- `Frankly`, i'm amazed is worked.
+- `Frankly` that's how i remember it.
+- `Frankly`, those guys weird me out.
+- And, `frankly`, i envy them as well.
+- Listen, i'd like to, but `frankly`..
+- May i speak `frankly`, mrs. mulwray?
+- `Frankly`, this looks kind of stupid.
+- It makes me want to vomit, `frankly`.
+- `Frankly`, scarlet, i don't give a damn!
+- Then quite `frankly`, sam, it kills him.
+- `Frankly`, i'm offended at the accusation.
+- Now, i have stated my side very `frankly`.
+- Quite `frankly` ... it could have been you.
+- Do you mind if i ask you something `frankly`?
+- `Frankly`, carl, i can't see giving much more.
+- `Frankly`, i think this place is a bit boring.
+- `Frankly`, son, you lost me on that last hill.
+- `Frankly`, treves, it's not what i'd expected.
+- Mr. president, may i speak `frankly` with you?
+- It makes their life..well, `frankly`... a joke.
+- `Frankly` sir, you look a little like my father.
+- `Frankly`, it even fails as an exercise in craft.
+- But, you know, `frankly` george, you were the best.
+- `Frankly` you really saved my a... my neck tonight.
+- `Frankly`, i can't spare a real agent right now.
+- I, uh -- i `frankly` don't even want to talk about it.
+- You looked so exhausted, `frankly`, we didn't wake you.
+- But `frankly`, those methods pale - it wasn't his fault?
+- `Frankly`, i think you deserve everything that's coming.
+- `Frankly`, doris'd be better off with the county defender.
+- Then... may i speak quite `frankly` with you, mr. hillyer?
+- `Frankly`, this isn't the best tine for her to be told.
+- With this mind-numbing and `frankly` boorish mating ritual.
+- `Frankly`, j.j., i don't think you got the cards to blitz me.
+- Uh, `frankly`, i - well i spilled my guts about the treasure.
+- I didn't get a cable or a call or a note or, `frankly`, a fart.
+- I know we banned this play, but `frankly` i can't remember why.
+- `Frankly`, she's getting rather annoyed with me you're not sure?
+- I'm `frankly` surprised he still has use of his motor functions.
+- Though `frankly`, at times i was unsure of who was leading whom.
+- `Frankly`, dear, we wondered what you intend to do with our baby?
+- `Frankly` i don't know what i'd have done without you on this one.
+- `Frankly`, i'm grateful we have a little muscle right about now.
+- I've never said this before, but `frankly` i thought anthony was dead.
+- I'm a little in shock, quite `frankly`... why are you doing this to me?
+- `Frankly`, i think the odds are slightly in your favor at hand fighting.
+- `Frankly`, the queen's rather upset at the recent spate of bad publicity.
+- `Frankly`, we're sending you because your crimes a lot faster with a motor.
+- I did the forum with marge and, `frankly`, once is enough in anyone's life.
+- Because i read the papers and `frankly`, i don't think you'll last the week.
+- Look at yourself, joe, no offense, but `frankly`, you're beginning to smell.
+- `Frankly`, in a very few moments, this is going to be no place for a lady.
+- With my brain and your, well, `frankly`, brawn, the possibilities are staggering.
+- `Frankly`, ted, i'd be much happier if jerry was just a cold, emotionless intellect.
+- `Frankly`, my dear, i didn't expect anything like this from a nice level-headed girl.
+- `Frankly`, once you've seen superman in action, niagara falls tends to leave you cold.
+- I'd like to say, `frankly` and off the record, that i resent the bureau's presence here.
+- In fact, we may be able to help -- in ways that, `frankly`, you couldn't possibly imagine.
+- I feel i can speak to you `frankly`... you know what i was talking to you about last night?
+- The point is, this girl, you know, the one that i like, i mean, it's exhausting, `frankly`.
+                 

@@ -1,0 +1,81 @@
+---
+title: "stake in a sentence | stake example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "stake"
+---
+- I need you to `stake` me.
+- Bart's soul is at `stake`.
+- I'd `stake` my reputation.
+- Max offered to `stake` me.
+- My reputation is at `stake`.
+- He burned her at the `stake`.
+- You realize what is at `stake`?
+- Don't you see what's at `stake`?
+- I know what's at `stake` here...
+- There are lives at `stake` here.
+- Much is at `stake`... my god... .
+- No one is burning at the `stake`.
+- Our child's safety is at `stake`.
+- Our very lives can be at `stake`.
+- The woman's health is at `stake`.
+- If i'm going in, i want a `stake`.
+- There�s too much at `stake`, ethan.
+- I need a `stake`, a bundle, a grand.
+- More than your writing's at `stake`.
+- Fate of the world at `stake`, adrian.
+- Butch, our whole lives are at `stake`!
+- Follow starling, `stake` out starling.
+- Right before we burn him at the `stake`.
+- The future of the country is at `stake`.
+- They must understand what is at `stake`.
+- Maybe you should flog him at the `stake`?
+- There's more at `stake` than ever before.
+- Much more than her life is at `stake`.
+- That was before i knew what was at `stake`.
+- I�m well aware of your `stake` in this, 007.
+- Well, this big `stake`'s got to be big by now.
+- Gotta start doing something i got a `stake` in.
+- Evolution-of- the-species-at-`stake` threatened.
+- I'm going to `stake` out frank's place tomorrow.
+- You know what i've got at `stake` with this paper.
+- Hey, you think i don't know what's at `stake` here?
+- All i need's a `stake` and a chance -- i don't know.
+- Why don't you just drive a `stake` through my heart?
+- Why the hell didn't you tell us this was at `stake`!
+- That the fate of the entire human race is at `stake`.
+- To stop simone from burning me at the `stake`, - god.
+- ♪ every smile you fake every claim you `stake` ♪ uh...
+- I'm putting a `stake` together, get something started.
+- There's a lot more at `stake` here than what you want.
+- But would you `stake` your life, that's the question...
+- But there's always somebody whose interest's at `stake`.
+- Hey... not when the end of the human race is at `stake`.
+- I don't think you quite understand what's at `stake` here.
+- We'll have an apb out while we `stake` out the restaurant.
+- Sure, you just blindfold him first and tie him to a `stake`.
+- When you get to the one you'll use, you just `stake` it out.
+- But the rest of you will burn at the `stake` for your crimes.
+- Except this time there's more than your damned ego at `stake`.
+- I'm going to `stake` out frank's place tomorrow with a camera.
+- Time-warner has a 40 per cent `stake` in gary's set-top device.
+- If there was so much at `stake` -- spock would have found a way!
+- Get yourself a good sharp `stake` and drive it through his heart.
+- I will `stake` my reputation that barnes didn't kill those guards.
+- They're burning russell at the `stake` tonight, out of this church.
+- I'm like i said, i got a pretty good idea of what's at `stake` here.
+- Since all it is is a drop, the welshman's got nothing at `stake`.
+- Then the call finally comes, and it's a whole fuckin, city at= `stake`?
+- Yours is a very powerful and important firm -- it has a lot at `stake`.
+- Burning a man at the `stake` farewell, instagram, facebook and nextdoor.
+- When he saw his brother in the hearing room, he knew what was at `stake`.
+- One come out here once an' i clipped him from behin' with a fence `stake`.
+- How about -- i think so... would you be willing to `stake` your life on it?
+- It's not overselling it to say that the fate of the universe is at `stake`.
+- To have her wrested from beneath me now -- and place my reputation at `stake`?
+- Full disclosure, i invited you not when the end of the human race is at `stake`.
+- ♪ michael, take the carpool lane ♪ the fate of the entire human race is at `stake`.
+- That's because you never had the guts to go out into the world and `stake` your claim.
+- We know you've been through a lot but there's more than your feelings at `stake` here.
+- There is so much more at `stake` here than you know, is very, very valuable to you all.
+                 

@@ -1,0 +1,107 @@
+---
+title: "you're in a sentence | you're example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "you're"
+---
+- A "t." `you're` right.
+- Barnes, `you're` dead!
+- Because `you're` nuts.
+- But now `you're` here.
+- But when `you're` not.
+- But `you're` a coward.
+- But `you're` a doctor.
+- But `you're` my child!
+- But `you're` no pinup.
+- But `you're` not luke.
+- But `you're` the gods!
+- David, `you're` drunk.
+- Do what `you're` told.
+- Doyle, `you're` awful.
+- El, `you're` bleeding.
+- Go on, `you're` tired.
+- Grimes, `you're` dead!
+- He says `you're` dead.
+- Hey, hey, `you're` ok.
+- Hey, `you're` limping.
+- Hey, `you're` melting.
+- I guess `you're` okay.
+- I hope `you're` happy!
+- I hope `you're` happy.
+- I hope `you're` right.
+- I know `you're` there.
+- I know `you're` tired!
+- I know `you're` upset.
+- I mean, `you're` okay.
+- I'm glad `you're` not.
+- I'm sure `you're` not.
+- I said `you're` fired.
+- I think `you're` cute.
+- Joel, `you're` a liar.
+- Kurtz, `you're` drunk.
+- Like `you're` perfect.
+- No, `you're` his wife.
+- No, `you're` tripping.
+- Oh `you're` good, ted.
+- Oh, `you're` pretty...
+- Oh, `you're` so smart.
+- Phillip, `you're` mad!
+- Simon, `you're` broke.
+- So far `you're` great.
+- So, `you're` a righty?
+- So `you're` not a cop.
+- Sure... `you're` sure?
+- Tessa, `you're` drunk.
+- The hell `you're` not.
+- Then `you're` perfect.
+- Then `you're` staying.
+- Uh... `you're` insane.
+- What, `you're` afraid?
+- Yeah, `you're` coming.
+- Yeah `you're` working.
+- Yes -- `you're` right.
+- `you're` a cocksucker!
+- `you're` acting weird.
+- `you're` a drunk fool.
+- `you're` a fast mover.
+- `you're` a fool, babe.
+- `you're` afraid of me.
+- `you're` a great date.
+- `you're` a guest here?
+- `you're` a life coach.
+- `you're` a life saver.
+- `you're` a life-saver.
+- `you're` all scumbags.
+- `you're` all set, sir.
+- `you're` almost there.
+- `you're` a lousy shot.
+- `you're` already late.
+- `you're` always alone.
+- `you're` always happy.
+- `you're` a movie buff?
+- `you're` a mug, clive.
+- `you're` an accessory.
+- `you're` a nightblood.
+- `you're` a nincompoop.
+- `you're` a real buddy.
+- `you're` a real sport.
+- `you're` a silly girl.
+- `you're` a sure thing!
+- `you're` a sweetheart.
+- `you're` a vegetarian?
+- `you're` a week early.
+- `you're` a workaholic.
+- `you're` back with us.
+- `you're` barely alive.
+- `you're` being stupid.
+- `you're` being unfair.
+- `you're` betraying us?
+- `you're` better at it.
+- `you're` bobby, right?
+- `you're` body's dying.
+- `you're` both screwed.
+- `you're` chuck noland.
+- `you're` crazy, burke.
+- `you're` dorothy boyd.
+- `you're` duty to what?
+                 

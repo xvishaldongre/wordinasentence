@@ -1,0 +1,107 @@
+---
+title: "attention in a sentence | attention example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "attention"
+---
+- `Attention` all units.
+- `Attention` all guards.
+- Did he pay `attention`?
+- I'm paying `attention`.
+- Try to pay `attention`.
+- You paying `attention`?
+- Angelo, pay `attention`.
+- I need your `attention`.
+- To get your `attention`.
+- Man: `attention`, please.
+- Now pay `attention`, 007.
+- Pay no `attention` to it.
+- Pay no `attention` to me.
+- Your `attention`, please.
+- `Attention`, all citizens.
+- : `attention`, all citizens.
+- Computer voice: `attention`.
+- I mean, you pay `attention`.
+- Not paying `attention`, huh?
+- Now try and pay `attention`.
+- That'll get his `attention`.
+- You were paying `attention`.
+- Don't pay `attention` to him.
+- Need medical `attention`, eh?
+- Pay close `attention` to this.
+- She needs medical `attention`.
+- We paid `attention` in school.
+- You have my `attention`, rose.
+- Do i have your `attention` now?
+- Getting your `attention`, paco.
+- Pay `attention` to women, leon.
+- People stop paying `attention`.
+- She won't risk the `attention`.
+- What am i, made of `attention`?
+- Damn it, monty, pay `attention`.
+- Don't pay any `attention` to me.
+- He doesn't want any `attention`.
+- It won't require my `attention`.
+- Now look, pay `attention` to me.
+- Who pays any `attention` to him?
+- Always desperate for `attention`.
+- Don't pay any `attention` to her.
+- Don't pay any `attention` to him.
+- Finally paying `attention` to me.
+- Pay no `attention` to this swine.
+- Some people like the `attention`.
+- That's a nice `attention` getter.
+- Woman on intercom: `attention`.
+- You want to pay some `attention`?
+- And you're not paying `attention`.
+- `Attention`, faculty and students.
+- Negative `attention` is `attention`.
+- Now pay close `attention` to this.
+- Can you pay some `attention` to me?
+- Don't pay `attention` to him, stew.
+- Goose turn around, pay `attention`.
+- You're not even paying `attention`.
+- Now will you please pay `attention`.
+- Oh, don't pay any `attention` to me.
+- She paid `attention` the first time.
+- So why do i want his `attention` now?
+- We got two men need `attention` here.
+- All right now, pay `attention` please.
+- I just wanted to get your `attention`.
+- I'm not paying any `attention` to him.
+- I said his heart, not his `attention`.
+- You have to pay `attention` to a girl.
+- You'll see him if you pay `attention`.
+- Can't be attracting `attention`, right?
+- I want your full `attention`, starling.
+- Pay no `attention`, they're impossible.
+- Because he wants to attract `attention`.
+- But on our honeymoon i paid `attention`.
+- Really, i wouldn't pay much `attention`.
+- Then, you have their strict `attention`.
+- Yeah, the ladies do ask for `attention`.
+- You don't secretly want the `attention`?
+- He might even pay some `attention` to me.
+- There's a way to get a guy's `attention`.
+- You pay great `attention` to small things.
+- `Attention` students, then why are you here?
+- Because i was not really paying `attention`.
+- If only i'd paid `attention` to my feelings.
+- Nobody comes... nobody pays any `attention`.
+- Okay, i just wanted to get your `attention`.
+- Probably embarrassed by all the `attention`.
+- That soldier requires immediate `attention`.
+- When you say things, people pay `attention`.
+- You don't have to pay any `attention` to me.
+- You wouldn't... pay `attention`, mr. watson.
+- I'm sorry it had to come to your `attention`.
+- Then too i should have paid more `attention`.
+- To pull our `attention` away from the palace.
+- We have already attracted enough `attention`.
+- Well, the public `attention` it would attract.
+- Without medical `attention`, i'm gonna die.
+- It's just my stupid way of getting `attention`!
+- This is ridiculous, i need medical `attention`!
+- You got the `attention` of the crowd, legate...
+- That mr. marsh paid less `attention` to you?
+                 

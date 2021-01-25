@@ -1,0 +1,107 @@
+---
+title: "locked in a sentence | locked example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "locked"
+---
+- Is that door `locked`?
+- Keep it `locked` down.
+- `Locked` safe in here.
+- The door was `locked`.
+- Who `locked` the door?
+- But you're `locked` in.
+- I'm still `locked` out.
+- That room was `locked`.
+- We've got him `locked`!
+- Not 'till it's `locked`.
+- They `locked` the hatch.
+- Its muscles are `locked`.
+- They `locked` me up here.
+- Why isn't he `locked` up?
+- You `locked` yourself in.
+- Checked and `locked`, sir.
+- Is the course `locked` in?
+- `Locked` up to protect us.
+- Said you `locked` them up.
+- We're `locked` on mig one.
+- With this guy `locked` in?
+- I think he's `locked` on us.
+- It's `locked` on the inside.
+- So she's kept `locked` away.
+- We're `locked` into albania.
+- `Locked` me in here with him.
+- So i `locked` him in his room!
+- Terminal guidance `locked` in.
+- I can't be `locked` up anymore.
+- It's all `locked` safe in here.
+- I was `locked` out of the flat.
+- This convent is `locked` solid.
+- We got it `locked` in the sock.
+- Even after they `locked` you up?
+- I...i'm sorry i `locked` you up.
+- Let's get it `locked` down here!
+- We are `locked` and loaded here.
+- But, you're like a `locked` safe.
+- I'm `locked` in the laundry room!
+- Keep all entrances `locked` down.
+- Which one, this door is `locked` !
+- Be sure you keep the door `locked`.
+- Those people `locked` my people up.
+- Wouldn't they normally be `locked`?
+- You `locked` out of your apartment?
+- He's been `locked` up for six years.
+- Lotta tradition `locked` up in here.
+- She's `locked` me out of everything.
+- Your soul is `locked` up inside you.
+- I can't keep him `locked` up forever.
+- I don't think you `locked` your door.
+- I `locked` him in here... do nothing?
+- `Locked` me out of my missile system.
+- The door was `locked` from your side.
+- Maybe he got `locked` in the bathroom.
+- We can't keep him `locked` up forever.
+- Family members are `locked` into roles.
+- This door will always be kept `locked`.
+- You mean the time you're `locked` away?
+- `Locked` up in a cell next to sheidheda.
+- Shut down and `locked` by the attorneys.
+- I guess i deserve that `locked` door too.
+- I thought they `locked` you in your room.
+- What if we `locked` him out here with us?
+- You've been `locked` inside for 26 years.
+- I got you `locked` right between the eyes.
+- 'cause eddie woulda `locked` him up by now!
+- They `locked` me under the floor oh, right.
+- Try and stay here, keep your door `locked`.
+- Craig's had me `locked` up in the apartment.
+- I'm the one who `locked` the weapons system.
+- Miller, on radio: cargo `locked` and loaded?
+- My mom just `locked` my dad out in the snow.
+- So bad when you `locked` me up in that cave.
+- Suspicious bastards got them all `locked` up.
+- Why would she keep this memory `locked` away?
+- She `locked` me out of the bedroom last night.
+- You can't keep me `locked` up in here forever.
+- Gavriel... and now pike's `locked` up sinclair.
+- You escaped from a `locked` room six years ago.
+- And still, its true power remains `locked` away.
+- Curled up on the landing like love `locked` out!
+- Everything on this module is `locked` and sealed.
+- I thought i got all you guinea hoods `locked` up.
+- I thought you were `locked` up- surprise, luther.
+- So i'm gonna give you the facts they're `locked`.
+- The guns are `locked`, but the guard has the key.
+- You were pretty little when they `locked` him up.
+- His father was the chancellor that `locked` us up.
+- When he told you raven `locked` you we don't fail?
+- It's not that easy after you've been `locked` away.
+- Nothing but a wide world o' pain `locked` in there.
+- From when jaha `locked` me in the lighthouse bunker.
+- I need what's `locked` inside your grandma's memory.
+- Man, you been `locked` up too long, everybody conks.
+- Still completely `locked` out of the missile system.
+- What good's the world `locked` in a season of death.
+- Yes, sir - raymond - lock it - and keep it `locked`.
+- 4 more space-`locked` generations, _ i'm a commander.
+- Myers has been `locked` up since before she was born.
+                 

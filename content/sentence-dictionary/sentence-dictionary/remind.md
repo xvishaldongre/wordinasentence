@@ -1,0 +1,107 @@
+---
+title: "remind in a sentence | remind example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "remind"
+---
+- Let these `remind` you.
+- You had to `remind` me?
+- You `remind` me of him.
+- They `remind` me of you.
+- It'll `remind` me of you.
+- You `remind` me every day!
+- You `remind` them of that.
+- The girl i `remind` you of.
+- To `remind` us we're alive.
+- You `remind` me of someone.
+- You `remind` me of my uncle.
+- `Remind` me to get a divorce.
+- What does he `remind` you of?
+- Because i `remind` you of her.
+- Because i `remind` you of her?
+- Perhaps you could `remind` me.
+- You `remind` him of a... maya.
+- It's just gonna `remind` me no.
+- You `remind` me of your father.
+- `Remind` me to lodge a protest...
+- You know what you `remind` me of?
+- Because i `remind` you of someone?
+- `Remind` me of what i'm dying for.
+- `Remind` me why i keep doing this.
+- You `remind` me so much of nathan.
+- They get to `remind` us who's boss.
+- Do you know what you `remind` me of?
+- He `remind` you of that guy, tillman?
+- He says they `remind` him who he his.
+- `Remind` her what's really happening.
+- `Remind` our families we still exist.
+- `Remind` me to pick up a lotto ticket.
+- You really do `remind` me of my uncle.
+- You `remind` me of my daddy, you know?
+- `Remind` me again why i pay you people?
+- Yeah, ya kinda `remind` me of the rock.
+- I'll call thelma and `remind` her, okay?
+- Let me `remind` you who is the new race.
+- `Remind` me not to go to lunch with you.
+- You `remind` me of a puppy i used to have.
+- You `remind` me of someone i used to know.
+- You `remind` me of myself when i was young.
+- Okay, okay, don't say i didn't `remind` you.
+- `Remind` her what life was like without you.
+- `Remind` me-- put some butter on it--or ice?
+- Every time they look at me i `remind` them...
+- Jon, you're starting to `remind` me -- of me.
+- I will, and you `remind` me of the same thing.
+- Might i `remind` you this was your brainstorm.
+- Which, apparently, you want to `remind` me of.
+- Well maybe we don't need to `remind` her of it.
+- `Remind` me sometime to regale you with my lear.
+- That's gonna `remind` you of what i been sayin'.
+- Perhaps i need to `remind` you of your situation.
+- To fix life support, if you didn't `remind` me.
+- Jim, leave me - i'm finished... don't `remind` me.
+- Let me `remind` you, this is an evil rehab center.
+- Next time, `remind` me to do this out in the yard.
+- He called me again at eight to `remind` me to come.
+- Let's go `remind` the others what we promised them.
+- `Remind` me of that when i'm filing for bankruptcy.
+- Do i need to `remind` you what happened to his wife?
+- No weirdly...you `remind` me of someone... divinely?
+- You got that part in that movie... don't `remind` me.
+- Because you `remind` me of all the dumb things i said.
+- `Remind` me again how long we gotta wait - i guess so.
+- I know what i'm here for-you don't need to `remind` me.
+- `Remind` me to explain to you the concept of human ego.
+- It should be enough to `remind` you france is the enemy.
+- `Remind` me to talk to your mother about the dress code.
+- The one that was supposed to `remind` us we were romans?
+- Things that `remind` you how beautiful the world can be.
+- Do you want to `remind` those few in the senate who have?
+- `Remind` her we've got those theater tickets for tonight.
+- `Remind` me to ask you about the love life of an octupus.
+- You `remind` him of that fact, and he resents you for it.
+- If you forget, there's always someone to `remind` you.
+- Just gonna `remind` me of what i did godspeed, my friends.
+- Not `remind` him of piles of dead people wearing uniforms.
+- Perhaps you'll be so kind as to `remind` me of her name...
+- Do i have to `remind` you that your wedding is in six days?
+- Once i'm out of here, i'll `remind` you of the best parts.
+- But let me `remind` you that this treatment is... experimental.
+- Do i have to `remind` everyone that in two days, we'll all be dead.
+- Must i `remind` you that he is wearing a costume, not a uniform?...
+- John... then i must `remind` you that those spirits sanctum raiders!
+- You are going to `remind` me that logic alone dictates your actions.
+- Miss braslow, i'd like to `remind` you that you are still under oath.
+- Now, if you guys were really friends, you'd `remind` her to take these.
+- You'd want to `remind` them that treadstone is a training organization.
+- I'd like to `remind` you again, this isn't an opera or a musical comedy.
+- You know, ma'am, you `remind` me of a pearl-handled pistol i once owned.
+- Any problems, you `remind` them those chains of commands end at one place.
+- `Remind` me to tell you about when i looked into the heart of an artichoke.
+- To `remind` us of the poor, of those who must endure without enough to eat.
+- You `remind` me so much of nathan plus so much of my little mongrel doggie.
+- I `remind` you, senor colon, that you are in no position to bargain with me.
+- I was going to `remind` you of nothing, least of all that which you know well.
+- May i `remind` the captain that if a starship enters the zone -- aye, captain.
+- I'm supposed to `remind` you to call him on all of caiman's expense p.o.'s.
+                 

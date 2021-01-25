@@ -1,0 +1,58 @@
+---
+title: "goodnight in a sentence | goodnight example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "goodnight"
+---
+- Well `goodnight`, boy.
+- `Goodnight`, mr. ansel.
+- `Goodnight`, mrs doyle.
+- `Goodnight`, old buddy.
+- `Goodnight`, you idiot.
+- You mean "`goodnight`."
+- `Goodnight`, mr. philby.
+- `Goodnight`-- zack...
+- `Goodnight` little house.
+- `Goodnight`, mr. wilkins.
+- Say `goodnight`, carjack.
+- Thank you.. .`goodnight`.
+- Well... `goodnight`, son.
+- `Goodnight`, mrs. watchit.
+- `Goodnight` to you, susan.
+- `Goodnight`, monsieur rick.
+- `Goodnight`, mr. carpenter.
+- `Goodnight`, mrs de moraes.
+- `Goodnight`, mrs. pilletti.
+- `Goodnight` to you all now.
+- Here you go... `goodnight`.
+- I'll say `goodnight` again.
+- Say "`goodnight`" to sandy.
+- Say `goodnight` to sam for me.
+- I'm sorry, bill -- `goodnight`.
+- Mr. carpenter, i-- `goodnight`.
+- I have to go now... `goodnight`.
+- - uh - i guess, '`goodnight`'.
+- My name is... `goodnight`, nicole.
+- Well -- this would be `goodnight`.
+- Oh -- hello-- `goodnight`, my dear.
+- `Goodnight` sweet prince, parting is .
+- So calm down, chick--and--`goodnight`.
+- Frankie, johnny wants to say `goodnight`.
+- `Goodnight`, ike, we're all going to bed.
+- If that farmer ever caught me�`goodnight`!
+- Come on, everybody say `goodnight` to daddy.
+- Eve, if you'll let me, i can -- `goodnight`!
+- Um, he kissed me `goodnight` and that was it.
+- One�two�three�four�five `goodnight`, mr. warne.
+- We'll finish it tomorrow... `goodnight`, bobby.
+- When she was eight years old, she... `goodnight`.
+- If you need me, i'll be -- `goodnight`, miss wells.
+- We... he walked me home and... we said `goodnight`.
+- `Goodnight` pearl, sleep tight; and don't let the bedbugs bite.
+- `Goodnight`, senator-- well, goodbye, sir--and thank you again.
+- Say `goodnight` to your friend and join me by those back tables.
+- You're all right now -- it's very late -- `goodnight`, kringelein.
+- Oh, and they messed up your kitchen pretty good, too... `goodnight`.
+- That's just the sorta thing parents tell their kids: "`goodnight` honey.
+- This is about another murder �� a woman at fifty second street `goodnight`, mary.
+                 

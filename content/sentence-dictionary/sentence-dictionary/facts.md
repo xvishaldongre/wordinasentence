@@ -1,0 +1,72 @@
+---
+title: "facts in a sentence | facts example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "facts"
+---
+- `Facts`, `facts`, `facts`.
+- `Facts`, dr. nebbleman.
+- I have to face `facts`.
+- I told you the `facts`!
+- What `facts` are those?
+- You want `facts`, bill?
+- `Facts` of life and all.
+- Just giving the `facts`.
+- I only deal with `facts`.
+- Just the `facts`, general.
+- Just give them the `facts`.
+- I know the `facts`, mr. kane.
+- I need `facts`, not opinions.
+- The `facts` are i got played.
+- Come on, get with the `facts`.
+- Unless we know all the `facts`.
+- Let's examine the `facts` on it.
+- We gotta face some `facts` here.
+- I've told you a thousand `facts`.
+- Just getting my `facts` straight.
+- But you can't ignore these `facts`!
+- We should be given all the `facts`.
+- I'm just trying to get some `facts`.
+- Let's examine the `facts`, shall we?
+- Can you face some unpleasant `facts`?
+- I tell the `facts` the way i see them.
+- All the `facts` and none of the flavor.
+- A clean deduction from observed `facts`.
+- I just want to double check the `facts`.
+- Well, we don't have all the `facts` yet.
+- He abandoned us -- those are the `facts`.
+- I think the `facts` speak for themselves.
+- Someone in possession of all the `facts`.
+- <u>`facts`</u>, close the case, cavalier.
+- Yet, `facts` don't distract from hope.
+- You being me `facts` and i'll act on them.
+- If you fabricate your `facts`, you get fired.
+- This one clue tells us three distinct `facts`.
+- No -- we're from strange `facts` and mysteries.
+- Shit, the press doesn't care about the `facts`.
+- You're full of interesting `facts`, aren't you?
+- So i'm gonna give you the `facts` they're locked.
+- All the `facts` you need are right in front of you.
+- Because the `facts` could be misconstrued as murder.
+- Don't rush to judgement until all the `facts` are in.
+- I'm just bringing the `facts` to your attention, sir.
+- To hell with your voices -- it's time to face `facts`!
+- Yeah, well i go on `facts`, not recommendations, okay?
+- But if you want `facts`, indy, i have none to give you.
+- I thought it was important for you to know the `facts`.
+- You seek `facts`, when it would be better to seek truth.
+- Oh, but making up the `facts` as you go along is ethical?
+- I merely want you to authenticate certain `facts` for him.
+- I'm not saying anything, harry, i'm just stating the `facts`.
+- Nightmares, tears, b... those aren't the `facts` that matter.
+- So, did you set 'em all straight on the ugly `facts` of life?
+- All i have to do is risk my life providing you with these `facts`.
+- Nothing fancy, just the plain, hard `facts`... tell it like it is.
+- She's an adult, mrs. hillyer, i was merely giving her the `facts`.
+- We have no evidence - just a theory that happens to fit the `facts`...
+- I was the only guy who disagreed with the `facts`, and i had brain damage.
+- The people i know want `facts`, the kinds of things an insider would know.
+- It means he feels safer about your "guesses" than most other peoples `facts`.
+- The scholars of the day used them to record `facts` and enlighten the public.
+- I prob'ly ain't precisely got all the `facts` straight, but it's about what they said.
+                 

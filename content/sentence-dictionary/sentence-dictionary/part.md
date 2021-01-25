@@ -1,0 +1,107 @@
+---
+title: "part in a sentence | part example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "part"
+---
+- As `part` of his plan.
+- As `part` of the crew.
+- But he's `part` of it.
+- Did i do my `part` ok?
+- He must do his `part`.
+- Listen to this `part`.
+- "no" to which `part`??
+- `Part` of the program.
+- `Part` of the scenery.
+- So that was my `part`?
+- What `part` of russia?
+- Which `part` is that ?
+- You've got the `part`!
+- You've got the `part`.
+- Are you `part` of this?
+- Best `part` of the job.
+- Here's the best `part`.
+- He's `part` of the mix.
+- I can't get the `part`.
+- I read for that `part`.
+- Now's the fun `part`...
+- On a `part`-time basis.
+- `Part` of... with them?
+- So you're `part` of it.
+- That's the best `part`!
+- That's the best `part`.
+- That's the easy `part`.
+- That's the hard `part`.
+- This is `part` of mine.
+- Don't write that `part`.
+- I'll do the `part` mute!
+- Is sandy `part` of this?
+- It's `part` of her game.
+- Like maybe a big `part`?
+- Pool cue's `part` of me.
+- That's all `part` of it.
+- That's the weird `part`.
+- The hard `part` is over.
+- The `part` where we win!
+- .. we got a body `part`.
+- What's the "bad" `part`?
+- You have another `part`?
+- You're `part` of a cult.
+- A `part` she left behind.
+- Death's a `part` of life.
+- I'd kill for that `part`.
+- Is there a `part` for me?
+- It�s `part` of some plan.
+- I wanted no `part` of it.
+- I want no `part` of this!
+- `Part` of it hit her ear.
+- `Part` of your education.
+- Rache can do that `part`.
+- Sex is only `part` of it.
+- She gave us a bad `part`.
+- ...that `part` up to you.
+- That's only `part` of it.
+- That's `part` of the job!
+- The somebody else `part`?
+- They were a `part` of me.
+- This is the funny `part`.
+- What is the chief `part`?
+- Yeah, we got that `part`.
+- But that was `part` of it?
+- I also wrote one `part`...
+- It was `part` of the deal.
+- Let me handle this `part`.
+- Like `part` of the family.
+- That `part` of me is dead.
+- That's `part` of the deal.
+- Utah's `part` of my route.
+- You can be a `part` of it!
+- All `part` of the business.
+- That's the best `part`.
+- But that's simone's `part`.
+- Friday the 13th, `part` 20.
+- How can you `part` with it?
+- I have to dress the `part`!
+- Is this `part` of the test?
+- It's `part` of the wedding.
+- It's `part` of who you are.
+- It was `part` of a job-lot.
+- Oh, that's the best `part`.
+- `Part` that counts, anyway.
+- Played the `part` too well.
+- She isn't a `part` of this.
+- Shit, she was `part` of it!
+- That's the original `part`.
+- The last `part`'s the best.
+- They're `part` of the team.
+- This is my favorite `part`.
+- This is `part` of the game!
+- To be `part` of the fabric.
+- We need to get that `part`.
+- What's the weirdest `part`?
+- With the `part` rubbed off.
+- You did the hardest `part`.
+- Be `part` of your world.
+- Consider him a `part` of me.
+- He's only one `part` of sid.
+                 

@@ -1,0 +1,58 @@
+---
+title: "Agnes in a sentence | Agnes example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Agnes"
+---
+- `Agnes` has that birth.
+- `Agnes`, you're stupid.
+- `Agnes` what did she do?
+- `Agnes`, you're ugly!...
+- `Agnes`, can you hear me?
+- Maybe `agnes` went to him.
+- Definitely not `agnes`.
+- Thankyou `agnes`, thankyou.
+- `Agnes` your mother is dead.
+- `Agnes`, how are babies born?
+- `Agnes`, who did this to you?
+- What kind of trouble `agnes`?
+- `Agnes` you won't burn in hell.
+- I believe `agnes` is different.
+- Alright `agnes`... it's alright.
+- `Agnes`, did you love your mother?
+- Who knew about `agnes`' pregnancy?
+- `Agnes` i've been commanded by god.
+- `Agnes`, what happened to the baby?
+- I don't remember where `agnes` was.
+- You've got to eat something `agnes`.
+- No-one knew about `agnes`' pregnancy.
+- She... `agnes`, i don't believe that.
+- Sister anne, which was `agnes`' room?
+- I hate him... `agnes` who did you see?
+- I think mary `agnes` could kill someone.
+- Stay away from me... `agnes`... `agnes`...
+- No not yet `agnes`, very soon but not yet.
+- `Agnes` dear, heaven is not a place where...
+- When would `agnes` have conceived the child?
+- `Agnes`, i'm here because i want to help you.
+- `Agnes`... look at the statues, they're thin.
+- `Agnes` ... wait a minute... `agnes` slow down.
+- Do you think `agnes` is still attached to god?
+- If we want to hire a psychiatrist for `agnes`.
+- But it does make all the difference to `agnes`.
+- `Agnes`, oh `agnes`, `agnes` i want you to do something.
+- `Agnes`, i don't believe you know nothing about sex...
+- I never saw `agnes` until she set foot in this convent.
+- No... `agnes` it had nothing to do with the hand of god.
+- `Agnes`... everyone's unhappy, you're unhappy aren't you?
+- `Agnes`, it has come to my attention that you have stopped eating.
+- Believe me, i've done everything possible short of asking `agnes`.
+- No wonder... wait... `agnes`... `agnes` how do you feel about babies?
+- `Agnes`, have you ever loved another man... other than, jesus christ?
+- A mistake... it was a mistake... `agnes`, how did your mother get you?
+- I want you do deal with `agnes` as speedily and as easily as possible.
+- Everything that `agnes` has done is explainable from modern psychiatry.
+- Alright `agnes`, i want you to see your room as you saw it on that night.
+- `Agnes`... have you ever thought of leaving the convent for something else?
+- Oh `agnes`, oh `agnes`, it's alright, it's alright, it's alright, it's alright, i love you.
+                 

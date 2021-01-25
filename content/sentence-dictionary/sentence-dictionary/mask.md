@@ -1,0 +1,103 @@
+---
+title: "mask in a sentence | mask example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "mask"
+---
+- The guy in the `mask`?
+- Gotta de-ice my `mask`.
+- Death `mask` means dead.
+- I'm here for the `mask`.
+- Just put your `mask` on.
+- He always wears a `mask`.
+- I gotta de-ice my `mask`.
+- The empress death `mask`.
+- Why do you wear a `mask`?
+- The big `mask` was better.
+- Don't wear a `mask`, eddie.
+- I got "d" ice in my `mask`.
+- She threw up in her `mask`.
+- We have to `mask` the odor!
+- Who is this, in the `mask`?
+- Why do you wear the `mask`?
+- She aspirated into her `mask`?
+- Then why hide behind a `mask`?
+- No refund on the `mask`, y'know.
+- She threw up in her `mask`, yes.
+- We get the `mask` i'll tell you.
+- Just take off the fucking `mask`!
+- That's where the `mask` comes in.
+- Jack, please take that `mask` off.
+- Pity i can't see behind the `mask`.
+- Put on the `mask`, turn on the gas.
+- Say it: she threw up in her `mask`.
+- You got to get that `mask` working.
+- The face decays, the `mask` doesn't.
+- You were the man in the iron `mask`.
+- I admire that in a man with a `mask`.
+- Man: look at that, the oxygen `mask`.
+- Without the `mask` it doesn't matter.
+- Before the `mask` goes back to taiwan.
+- Unless they're trying to `mask` jesus!
+- Why, it's like hiding behind a `mask`.
+- Show miss vale why you wear the `mask`.
+- I got really big and i had my `mask` on.
+- Yeah, you gotta get that `mask` working.
+- I have to see machine without his `mask`.
+- You don't get the `mask` code unless i go.
+- He wears a `mask` so none may see his face.
+- When are you going to take off that `mask`?
+- You remember that nut in the hockey `mask`?
+- Rule number one - never take off the `mask`!
+- Why don't you take your `mask` off for once!
+- You've got the `mask`, why don't we have him?
+- So the `mask` is part of the down payment too.
+- You're going to keep the `mask` and turn me in.
+- A blacksmith came and they put me into the `mask`.
+- Ha, ha - who are you to be talking about a `mask`?
+- No matter what happens, never take off the `mask`!
+- A ghost `mask`, a cellular phone -- not much there.
+- He had a white `mask`, he stalked the baby-sitters.
+- He has to run a loop to `mask` our troop movements.
+- You've been wearing a `mask` ever since we met you.
+- I'm not- throw up that ridiculous superficial `mask`.
+- Sometimes a story is a `mask` for a covert operation.
+- The freak in the gas `mask` -- oh, i'll bet you have.
+- I wear this `mask` not for concealment but protection.
+- The other took off his gloves and `mask` to treat him.
+- She'd aspirated vomitus into her `mask`... tell me one?
+- That ghost `mask` is sold at both kroger's and walmart.
+- The `mask` is because you think it might be...catching?
+- The `mask` is terrifying... especially when unexpected.
+- He shows up with his `mask` on, leaves with his `mask` on.
+- He's frightened, exhausted -- and the `mask` is familiar.
+- He was wearing a `mask`... but i saw the cut on his wrist.
+- I've worn this `mask` so long, i couldn't sleep without it.
+- The combination of your human body and that inhuman `mask`.
+- ♪ you don't pull the `mask` off that old lone ranger ♪ bob?
+- He might be using the planet's rings to `mask` his approach.
+- No, i wouldn't go in one of those places with a gas `mask` on.
+- One kiss and you could lift the `mask` from his lifeless face.
+- So, why don't you lift up that face `mask` and give me a kiss?
+- Why would anyone `mask` the true meaning of their message kiss?
+- For that you get the machete...the `mask`...the whole damn thing.
+- I know... my girlfriends all dumped me after i put on the `mask`.
+- On a man in overalls wearing a white `mask` dragging a headstone?
+- The `mask` is an artifact from a sport outlawed in twenty-twelve.
+- You must be wearing a `mask` you're laughing so hard behind it larry.
+- Guy gets in my cab wearing a catcher's `mask`, i think he's a ballplayer.
+- No one goes around in a stupid `mask`, hacking innocent people to death.
+- You're to wear this `mask` at the venice carnival, and wait to be contacted.
+- Even if you could get into the museum, the `mask` bas its own security system.
+- You give me the `mask` security code, i steal the `mask`, you get a finders fee.
+- I think you're jealous that i'm a genuine freak, and you have to wear a `mask`!
+- Let me ask you, this `mask`, when they made it--was the old bitch dead or alive?
+- If i can't trust you to pick up a painting, how can i trust you about the `mask`?
+- Now, you all think i'm a bad guy, ♪ they can beg and they can plead ♪ his `mask`!
+- Her stately branches have shaded our town's weddings, i don't think it was a `mask`.
+- You seriously think you saw a guy in a `mask` i'd hoped to catch you it don't matter.
+- The other performer... it has to be that monster you use... the man in the `mask`.
+- Explain that some jerk in a `mask` and costume fought a mad scientist with four tentacles?
+- ♪ you don't pull the `mask` off that old lone ranger ♪ hannah, you just got your son back.
+- As for you, phillippe... back to the prison you shall go, and into the `mask` you hate.
+                 

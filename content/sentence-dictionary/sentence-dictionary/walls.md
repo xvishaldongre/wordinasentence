@@ -1,0 +1,98 @@
+---
+title: "walls in a sentence | walls example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "walls"
+---
+- Photos on the `walls`?
+- The `walls` of jericho.
+- Thin `walls`, remember?
+- Just behind the `walls`.
+- Out of the `walls`, okay?
+- These `walls` do not lie!
+- I can see through `walls`.
+- A spy inside their `walls`.
+- Outside the palace `walls`.
+- Don't bump into any `walls`.
+- The `walls` are steel, right?
+- They're painting the `walls`.
+- Behold the `walls` of jericho!
+- In the boards, in the `walls`.
+- Reinforced steel core `walls`.
+- You can't draw on the `walls`.
+- Look at those `walls` up ahead!
+- There's nothing on the `walls`.
+- And everyone within its `walls`.
+- In the `walls`, under the floor.
+- The threat's inside the `walls`.
+- They're comin' outta the `walls`.
+- The `walls` here are just so thin.
+- They're comin' out of the `walls`.
+- Look at the `walls` in the closets.
+- She goes through `walls` and stuff?
+- We have a spy inside their `walls`.
+- Like, you can't draw on the `walls`.
+- Those clown pictures on the `walls`!
+- To tear down the `walls` of jericho.
+- `Walls` won't stop what's out there.
+- More `walls`, more bars, more guards.
+- The `walls` of jericho are toppling."
+- You know, there's shit on the `walls`.
+- You're the one talking to the `walls`!
+- But i tell you these `walls` are funny.
+- He's washing down the bathroom `walls`.
+- It's coming out of the goddamn `walls`!
+- Sitting behind these very same `walls`.
+- Is that the `walls` of jericho going up?
+- No white-`walls`, sir, there's a war on.
+- He built that gate and these damn `walls`.
+- It'll last longer than these `walls` will.
+- Or finn would hide behind these `walls`?
+- They're coming out of the goddamn `walls`!
+- Don't stop till you get behind your `walls`.
+- Jesus, tom `walls`, that crazy motherfucker.
+- The sick bastard licked those `walls` clean.
+- And drew on the `walls` with captain america.
+- Banging into `walls`, getting lost, whatever.
+- Is that why there are more men on the `walls`?
+- Who cares what psychiatrists write on `walls`?
+- No, but-- you ever see her talk to the `walls`?
+- Octavia: `walls` won't stop what's out there.
+- The doors and `walls` are monitored, mrs. peel.
+- I can use the metal `walls` as giant conductors.
+- And, writing on the `walls` happens all the time.
+- `Walls` and borders, unguarded, will be attacked.
+- I've got nobody to work sixteen xray with `walls`.
+- Maybe they'll hang it on the `walls` here one day.
+- Where would we be safer than behind these `walls`?
+- Now that horror has invaded these sacred `walls`.
+- To us it means no `walls`, no speed limits, no jails.
+- You could whisper it through the `walls` of your cell.
+- You know all that �if these `walls` could talk� stuff?
+- Dragging his metal hook along the `walls`, i can do it.
+- The `walls` have ears, we landed with that number, too.
+- Do you mind taking those things off the `walls` of jericho?
+- You're classic... you're why cavemen chiseled on `walls`...
+- This crazy, creepy cat, who walks through `walls` and stuff.
+- You think that suit is how she goes through `walls` and stuff?
+- Once we breach the `walls`, help yourself to all you can carry.
+- Tearing down the `walls` between us to recognize we are one people.
+- On the `walls` -- they meant the animals when they said, "we did it."
+- Like this crazy, creepy cat who like, walks through `walls` and stuff.
+- The stone `walls` were high and i'd scrape my knees as i climbed over.
+- I've taken vows to live my life within these `walls`; not outside them.
+- There's a threat outside these `walls`-- the ship has been compromised.
+- It contained no images -- just empty space and `walls` of perfect symmetry.
+- What's interesting about the way i live is what goes on inside the `walls`.
+- After that, mamma was so mad, i tell you, pasta was bouncing off the `walls`.
+- Well, your daddy went to germany and drew on the `walls` with captain america.
+- They don't have anything except four `walls` and a roof, and that's all we need.
+- The burns were all lit in outlets surrounded by double firebreaks in the `walls`.
+- From what i hear through the `walls`, you got something going for you every night.
+- You have to look like there's nothing wrong, we caught outside your `walls` today.
+- You got the fake blood splattered all over the `walls`, you got your torture tools...
+- Why not just let see how safe his gates and `walls` keep him when his past comes calling?
+- Without graveyard mccreary, sauce on the `walls`, the ceiling, under homer's fingernails.
+- My job is to protect this country from its enemies, and its enemies are inside the `walls`.
+- No one wants those fuckin' assholes behind their `walls`, dealin' with 'em day in, day out.
+                 

@@ -1,0 +1,76 @@
+---
+title: "wondered in a sentence | wondered example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "wondered"
+---
+- I just `wondered`... no.
+- I have `wondered` though.
+- I've `wondered` that myself.
+- Just `wondered`... what happens?
+- I `wondered` why they gave me up.
+- `Wondered` where you'd gotten to.
+- I `wondered` if i'd see you again.
+- I always `wondered` about that too.
+- Yes, we `wondered` what it was too.
+- I've often `wondered` how you do it.
+- I `wondered` what happened to her...
+- I `wondered` if she was still around.
+- I always `wondered` why you never did.
+- Sir, i've always `wondered`... why sue?
+- `Wondered` why i wasn't telling her.
+- I - ah - `wondered` if you could help us.
+- You never `wondered` what happened to me?
+- I always <u>`wondered`</u> what it took...
+- I always `wondered` what happened with us.
+- I just `wondered` what was wrong with him.
+- I `wondered` about your different accents.
+- I `wondered` if you were ever coming back.
+- I `wondered` if i could wait that long.
+- I just `wondered` if it would surprise you.
+- I `wondered` about them, for so many years.
+- `Wondered` if i knew where you was staying.
+- I `wondered` who'd been giving me a bad name.
+- I `wondered` if i had made a terrible mistake.
+- Sir, i've always `wondered`... why <u>sue</u>?
+- I always `wondered` what the world would be like.
+- I was just passing by and `wondered` how you were.
+- I `wondered` if i looked like them, acted like them.
+- Oh, nothing--only i `wondered` why you suspected him.
+- Have you ever `wondered` what it's like to have flesh?
+- I just `wondered` if you had gone over my speech, ben.
+- I must say that i've `wondered` -- does she sleep here?
+- I always `wondered` what went on at those lodge meetings.
+- I'm not buggin' you about coming home, i just `wondered`.
+- I `wondered` if you'd care to go to the park tomorrow.
+- I always `wondered` why she wouldn't let aunty o train me.
+- I was just curious--you don't do it well, so i `wondered`.
+- We `wondered` about the discoloration so he ran a spectro.
+- I know you like these things; `wondered` if you wanted them?
+- I've always `wondered` if there was someone else in the cab.
+- Rosita �� i have `wondered` -� pedro is waiting for me, too.
+- Have you ever `wondered` why cbs news has the highest ratings?
+- Your "sixth sense"- i've always `wondered` where it came from.
+- I `wondered` when you might ring the bell again, officer white.
+- I'm sorry, but i just `wondered` -- one of you must be mistaken.
+- I've always `wondered` what patrick swayze is like in real life.
+- I `wondered`, without the booze, if you would want to come home.
+- Frankly, dear, we `wondered` what you intend to do with our baby?
+- I `wondered` if you could find out anything about what's happening.
+- I `wondered` about it a hundred times, if it really was an accident.
+- I always `wondered` if my freshman russian class would come in handy.
+- I always `wondered` what you religious types did with your free time.
+- `Wondered` why you came on to me like that when you gave me the look.
+- I `wondered` how long it would be before we'd get to be alone together.
+- Well, i admire your optimism, and i just `wondered` if it was regional.
+- I've always `wondered` why someone would believe in something like that.
+- I `wondered`, as i sat there... how many other things i'd forgotten."
+- I've `wondered`, diz--maybe this don quixote's got the jump on all of us.
+- I've always `wondered` whether they slept together before they got married.
+- I `wondered` if you had ever seen this film or this woman... ...right here.
+- Ever `wondered` why jenny greenteeth said you needed the fastest steed on earth?
+- I heard you working in here and i just `wondered` if you'd like a cup of coffee?
+- Today, for the first time, i've even `wondered` whether he might have killed freddie.
+- I've `wondered`--maybe it's a curse to go through life wised up like you and me-- okay.
+- Well, i just `wondered` 'cause being from out or town i wouldn't be able to make anything.
+                 

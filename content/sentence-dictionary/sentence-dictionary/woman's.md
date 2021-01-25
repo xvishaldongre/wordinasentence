@@ -1,0 +1,65 @@
+---
+title: "woman's in a sentence | woman's example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "woman's"
+---
+- A `woman's` intuition.
+- The `woman's` unstable.
+- So the `woman's` married.
+- That `woman's` a monster.
+- Go to the `woman's` group.
+- He's a `woman's` director.
+- ....with a `woman's` touch.
+- Do i hear a `woman's` voice?
+- It is every `woman's` problem.
+- The `woman's` cool, i promise.
+- This `woman's` an institution.
+- The `woman's` supposed to stop.
+- War is not a `woman's` problem.
+- For ruining this `woman's` life?
+- It just needs a `woman's` touch.
+- The `woman's` health is at stake.
+- The `woman's` surrounded by fools!
+- Can i have that `woman's` passport?
+- That `woman's` gonna call the cops.
+- That `woman's` laugh creeps me out.
+- It's a hat, comrade, a `woman's` hat.
+- They help moisturize a `woman's` skin.
+- Never send a boy to do a `woman's` job.
+- Take care of that `woman's` name for me.
+- What about a battered `woman's` shelter?
+- You ever look at another `woman's` tits?
+- The `woman's` obviously in love with him.
+- Y'ever been in love with a `woman's` ass?
+- Not that it couldn't use a `woman's` touch.
+- It needs a `woman's` heart -- no, bruce, dear.
+- The `woman's` session has lots of lively debate.
+- It's made itself look like the `woman's` dead husband.
+- I'll never forget the look on that poor `woman's` face.
+- It's the most important step in a `woman's` life, isn't it?
+- No negative effects on a `woman's` health in any way, maya?
+- Why would rats want to eat a poor old `woman's` fertilizer?
+- All this, this is a `woman's` version of what you would like.
+- Any `woman's` crazy to feel about a man the way i do about you.
+- I went to this reform school and lived at this `woman's` house.
+- You take pleasure in coming into a `woman's` bedroom and you come.
+- Some `woman's` composed a hymn to replace the star spangled banner.
+- I did not know it was so dangerous to look into a `woman's` bedroom.
+- The wisdom of old would be mine - a `woman's` much better than wine!
+- The wisdom of old would be mine - a `woman's` much better than wine.
+- They will make fun of you for listening to an old `woman's` stories?
+- A mountain curved like a `woman's` back, a plateau the shape of an ear.
+- I didn't expect pink and lacy, but this isn't exactly a `woman's` room.
+- You could have worn one of those big, floppy `woman's` easter sunday hats.
+- Call it my `woman's` intuition if you will, but i've never trusted neatness.
+- I'll bet a person could learn a lot by getting into that `woman's` apartment.
+- I never knew it was so dangerous to hide in a `woman's` room when she's alone.
+- Tell me how a single one of you is worth a single hair on that `woman's` head.
+- To so many things i want to be for bill... funny business, a `woman's` career.
+- I am not an aristocrat, as you are... but i must still respect a `woman's` duties.
+- I can walk in a `woman's` room and know three times as much about her as a man would.
+- I knew i was in a `woman's` thoughts when i was shooting it out with those assassins.
+- We can save this young `woman's` life, and imprison a parasite -- all in one gesture.
+- They became werewolves on the lunar cycle because it corresponded to the `woman's` cycle.
+                 

@@ -1,0 +1,107 @@
+---
+title: "Danny in a sentence | Danny example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "Danny"
+---
+- `Danny`: another clue?
+- `Danny`, come on back.
+- `Danny`: thanks a lot.
+- Mike: thanks, `danny`.
+- Okay `danny`, you win.
+- What's wrong, `danny`?
+- `Danny`: what the fuck?
+- `Danny`, where are you?
+- Good shooting, `danny`!
+- I'm afraid so, `danny`.
+- This is `danny` witwer.
+- Zoey: come on, `danny`!
+- `Danny`, where are you?!
+- Hey `danny`, you coming?
+- How did `danny` fall in?
+- Who is "`danny` terrio?"
+- `Danny`: i can't even see.
+- My name is `danny` witwer.
+- One, watch `danny` witwer.
+- What do you have, `danny`?
+- `Danny`, come on over here.
+- `Danny`: true, but so what?
+- Sound good to you, `danny`?
+- How do you like it, `danny`?
+- `Danny`... home of the brave.
+- I buy bottled for my `danny`.
+- What are you hiding, `danny`?
+- `Danny`, go downstairs -- now!
+- Everybody has a hero, `danny`.
+- Please open the door, `danny`.
+- Amanda: `danny`, get back here.
+- Amanda: `danny`, where are you?
+- `Danny`: hold the door, please.
+- They found `danny` zorn's body.
+- `Danny` zorn, what was that?
+- `Danny`: yeah, we all got boxes.
+- `Danny`, can you get them for us?
+- `Danny`, it's not what you think.
+- `Danny` that ain't even worth ...
+- `Danny`... what's the matter, hon?
+- Into the great wide open, `danny`!
+- `Danny`, i'm trying to -- save you.
+- It's me, `danny`...`danny` balint...?
+- Oh `danny`, how'd you find me here?
+- You've made your sacrifice, `danny`.
+- `Danny` khan drowns in lake michigan.
+- `Danny`: oh, my god, this is awesome.
+- They front-loaded it, right, `danny`?
+- `Danny`, tell me what you're thinking.
+- Sure, `danny`, it will be lots of fun.
+- `Danny`, i don't like this fuckin' guy.
+- You called `danny` 'doc' twice just now.
+- `Danny`: well, it's probably really deep.
+- I know what you feel for `danny` is real.
+- Hank says `danny`'s moved to new york.
+- `Danny`, he isn't gonna find out it's you.
+- `Danny` kept talking about a games master.
+- `Danny`: think about it for a second, okay?
+- `Danny`, you're just going to have to wait!
+- `Danny`: guys, there are more coasters here.
+- Ah, jesus, `danny`... what were you thinking?
+- Hey, i hung out with `danny`, pony's manager.
+- You went into the room `danny` said - to 237?
+- `Danny` padilla from the sentinel, that crowd.
+- `Danny`, tell me this is something we can use.
+- `Danny` that's a real _bonehead_ thing to say!
+- `Danny`: that's got to be the key to the door.
+- Me and `danny` been friends since we were six.
+- She's got a great dog named for `danny` ainge.
+- `Danny`: dude, we're not supposed to use force.
+- `Danny` slepstrini is a chip off the old block.
+- You think i made a choice, of `danny` over you.
+- `Danny`, what makes you think you know all this?
+- You got someone else to think about now, `danny`.
+- `Danny`: no, i just know how to have fun, i guess.
+- I dreamed that i... that i killed you and `danny`.
+- `Danny`: guys, we need to focus and find the clues.
+- Did the appearance of `danny`'s imaginary friend...?
+- `Danny`: anything that looks like a puzzle or a code.
+- Fucking `danny`, man... she's been giving me the eye.
+- `Danny`, what the hell are you trying to do out there?
+- It's friday.... `danny`, please, we don't want to know.
+- `Danny`: we just have to figure out what the clue meant.
+- You've got a comeback for everything, don't you, `danny`?
+- `Danny`, the night we met, you said the name ilio manzetti.
+- `Danny`: you just have to escape before the clock runs out.
+- Mommy saying, 'wake up, wake up, wake up `danny`, wake up.'
+- Did you know that `danny` ainge was drafted by the blue jays?
+- Listen to me.... that's what i'm trying to find out, `danny`.
+- Do you know why i don't hear any of those things, `danny`?
+- I'm quite sure there is nothing physically wrong with `danny`.
+- I'm sorry, `danny`, but they're only accepting the best pilots.
+- She wasn't here when i brought `danny` home from -- leave the boy.
+- `Danny`: you're not going to solve anything by sitting on your ass.
+- I'm sorry `danny`, but i'll have to give you the full tour later on.
+- `Danny` always said i see things with my emotions instead of my eyes.
+- `Danny` "chickenshit" flynne trying to go large right under our noses.
+- This is `danny` and ralph, they own the dino raphael salon in detroit.
+- The jews are...a poison in the human well.... `danny`, what about the jews?
+- I'm the only person i know that likes `danny` ainge, outside of celtic fans.
+                 

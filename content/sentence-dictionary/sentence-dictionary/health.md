@@ -1,0 +1,92 @@
+---
+title: "health in a sentence | health example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "health"
+---
+- Her spiritual `health`.
+- It's for your `health`.
+- It's this `health` farm.
+- To your `health`, frank.
+- Bad for your `health` anyway.
+- It's better for your `health`.
+- Clean as the board of `health`.
+- I'm taking care of my `health`!
+- In his `health`, don't need it.
+- The county `health` department.
+- Use it in the best of `health`.
+- How's the rest of your `health`?
+- You're in perfect `health`, jim.
+- I'm concerned about her `health`.
+- No, my `health` doesn't allow it.
+- The woman's `health` is at stake.
+- I just wanted to gage my `health`.
+- Outside is good for your `health`.
+- Yeah, they're bad for your `health`.
+- I mean, i've still got my `health`...
+- Somebody's worried about my `health`.
+- Isn't that dangerous to your `health`?
+- His `health` isn't very good, you know.
+- He had to step down for `health` reasons.
+- I'm afraid that his `health` is not good.
+- A gentleman does not discuss his `health`.
+- I have to nurse my enemy back to `health`.
+- Good `health`, good food, and good company.
+- The `health` and welfare benefits are good.
+- They were on the cover of women's `health`.
+- Had to get away for his `health`, i suppose.
+- I'm just worried about your `health`, larry.
+- This stuff is hazardous to your `health`.
+- They say smokin' is bad for your `health`.
+- They don't give two fucks about your `health`.
+- This is cannabinoid `health`, and i am its face.
+- I don't give a damn about her spiritual `health`.
+- This place could get hazardous for your `health`.
+- Your `health`... sticking out of his ass... yeah!
+- Not even if it gives you a clean bill of `health`?
+- And, you seem in excellent `health`, your highness.
+- He will be burned pursuant to statutes of `health`.
+- Maybe we can get the kids government `health` care.
+- Numerous `health` code violations in my restaurant.
+- Oh, i got three kids, and they've all got `health`.
+- I wish everyone would stop commenting on my `health`.
+- For saving your life and nursing you back to `health`.
+- Under the circumstances your overall `health` is good.
+- It's my father's failing `health` that's upsetting her.
+- I'm appreciably older than you, but my `health` is good.
+- In sickness and in `health`, through good times and bad.
+- Gotta keep walking, man, and it's good for your `health`.
+- I was wondering where you got that glow of good `health`.
+- Sparazza was in failing `health` and looking for a donor.
+- What about our medical coverage; what about our `health`?
+- You know, `health` insurance, dental plan, paid vacation.
+- That's good, because my `health` ain't what it used to be.
+- If what you say about the farm is true, free `health` care.
+- No negative effects on a woman's `health` in any way, maya?
+- Children's `health` care will be cut from workers' benefits.
+- Sir, you're in canada now, where your `health` care is free.
+- You didn't think i'd sell that `health` restaurant, did you?
+- That's at the manhattan `health` center... we get it at work.
+- You see, a perfect body in perfect `health` is the rule here.
+- I'm going to have to report you to the department of `health`.
+- They sent me off to the bahamas "for the good of my `health`."
+- Why do you think i'm telling you this, frank--for my `health`?
+- They're more interested in your daughter's `health` -- and yours.
+- My wife still has `health` insurance and gets to see the children.
+- So we thought we'd take the day off to nurse her back to `health`.
+- I bribed the minister of `health` to have you transferred to kigali.
+- So this brother of yours is hazardous to the `health` of your dates?
+- They gave me a clean bill of `health` and then booted me the hell out.
+- They sent me to the bay of bloody islands "for the good of my `health`."
+- Because i heard in `health` class that pregnancy often results in an infant.
+- I'm going to be drinking my own `health` when he's gone the way of the dodo.
+- It's a lousy job, but - the only reason i stay is for the `health` benefits.
+- For richer, for poorer, in sickness and in `health`, 'til death do they part.
+- You drag that coconut around for your `health`, or do you know how to use it?
+- Is he endangering his `health`, because if you tell me he is, i'll get him out.
+- I know it's hard for you being in here, but it is for the good of your `health`.
+- You must have to be in some kind of perfect `health` to get that kind of policy.
+- You seen wandering about in good `health` could've proved fatal to miss kendall.
+- I hear the `health` department is going to close this joint for selling dirty beer.
+- I understand they've had a bad run of luck, `health`-wise, and they have my sympathies.
+                 

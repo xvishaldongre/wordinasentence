@@ -1,0 +1,86 @@
+---
+title: "sal in a sentence | sal example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "sal"
+---
+- Don't come in `sal`'s.
+- It's not socks, `sal`.
+- `Sal`, i want my money.
+- `Sal`, you're gonna die!
+- I can't go either, `sal`.
+- It's getting cold, `sal`.
+- Yeah... `sal` is with me.
+- What about `sal`'s mother!
+- Nick... `sal` is very weak.
+- `Sal`... listen to me, `sal`!
+- `Sal`, i'm sorry about this.
+- You're a `sal` mineo indian.
+- Hey, `sal` ... how you doin'?
+- Listen to me -- forget `sal`!
+- `Sal`, can you do me a favor?
+- Doctor, this is `sal` talkin'.
+- Morehouse and `sal` are short.
+- Okay, `sal` ... what do we do?
+- `Sal` wanted to go to wyoming.
+- Went over to `sal`'s got this.
+- How come you're not at `sal`'s?
+- Stop being such a bitch, `sal`.
+- `Sal` pays you, you should work.
+- As soon as you're hitched, `sal`.
+- `Sal`... `sal`... naturale, oh boy!
+- You know what `sal`'s got now?...
+- `Sal` - you didn't eat any pizza!?
+- If i come out `sal` will kill them.
+- I got a name - `sal` boca, brooklyn.
+- You have to think about this, `sal`.
+- Angela, i just heard `sal` was alive.
+- Look, `sal`'s in back with the girls.
+- When was the last time you saw `sal`?
+- Delivery from `sal`'s famous pizzeria.
+- I betcha `sal` asked you first anyhow.
+- Okay, you're right... what about `sal`?
+- It's your first major league game `sal`.
+- `Sal`, just this once, do me that solid.
+- All `sal` wants to do is hide the salami.
+- `Sal`'s famous pizzeria is here for good.
+- `Sal`'s in a dream and he won't come out.
+- Do you remember anything else about `sal`?
+- You just sit quiet and we'll handle `sal`.
+- Hey, angela, `sal` and i go back a long way.
+- I've been working on `sal` since dawn, nick.
+- `Sal`, just do me a favor, leave jade alone.
+- So `sal` isn't goin' back to prison, no way.
+- Okay ... okay ... all right, `sal`, it's okay.
+- I mean forget `sal`... `sal` can't take it, nick.
+- `Sal`'s got... one arm, nick, and... that's it.
+- Oh he's a sweetheart, `sal`, you know i love him.
+- I don't forget about `sal` and the boom boom room.
+- `Sal`... goddamn it, `sal`, don't you know anything?
+- You gonna open up another `sal`'s famous pizzeria?
+- ... armed robbery ... let `sal` come out, take a look.
+- I can't control it, `sal` - let'em say what they want.
+- Damn, `sal`, put some more cheese on that motherfucker.
+- `Sal`, tom, the boss says he'll come in a separate car.
+- I'm trying to organize a boycott of `sal`'s pizza joint.
+- Over `sal`, the way he talks and the way he looks at you.
+- He saved `sal`'s... what merle liked, he liked things right...
+- I just want to say how sorry i am about `sal` and about merle.
+- `Sal`, how come you ain't got no brothers up on the wall here?
+- `Sal` -- i don't know where i'm gonna find a pizza joint open.
+- Anything happens to me - one move - and `sal` gives it to them.
+- I'm here with `sal` and eight other people ... and we're dyin'!
+- You got me and `sal` on tv ... we're entertainment you sell, right?
+- I don't want nobody in there, nobody spending good money in `sal`'s.
+- He was showin' me how the airport bus is comin' in, like that, `sal`.
+- Don't worry about it, `sal` - it'll be all right ... they're great ...
+- Y'know i'm sorry 'bout `sal`'s famous pizzeria, but i gotta live, too.
+- You think if `sal` and me have cut their throats we're gonna let you out?
+- `Sal`, i don't care if you fire me this exact minute, leave my sister alone.
+- If they put you in the pit, `sal`, you're gonna die... `sal`, do you understand?
+- Jade, you don't know this, but i'm organizing a boycott of `sal`'s famous pizzeria.
+- `Sal` and me are getting a jet, we're going to algeria - i'll write you from there.
+- It's not gonna be the same, but whatever it's gonna be we're all gonna do it, `sal`.
+- So what's gonna persuade montoya to change off `sal` maguda running his deliveries...?
+- I swear to god... on my salary, i'm not gonna be any hero... `sal`, get 'em in the vault.
+                 

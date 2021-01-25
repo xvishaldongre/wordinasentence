@@ -1,0 +1,60 @@
+---
+title: "jesse in a sentence | jesse example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "jesse"
+---
+- I'm `jesse` now, lisa.
+- You heard me, `jesse`.
+- I am so sorry, `jesse`.
+- `Jesse`, are you awake?
+- `Jesse`, we're outlaws.
+- Where is `jesse` james?
+- "`jesse` woodson james."
+- Something wrong, `jesse`?
+- He can't hold you `jesse`.
+- `Jesse`, god - what happened?
+- `Jesse`, you explain to lyla.
+- `Jesse`, we got to have a word.
+- There's a `jesse` on the phone.
+- True stories of `jesse` james."
+- You miss it, don't you `jesse`?
+- Don't have much choice, `jesse`.
+- Don't tell anyone, okay `jesse`?
+- I'm the better soldier, `jesse`.
+- Oh, you were talking to `jesse`.
+- You're just upset about `jesse`.
+- So it's over at `jesse`'s office?
+- The dea was driving `jesse`'s car.
+- `Jesse`, don't take that, hit back!
+- We're all so proud of you, `jesse`.
+- We ain't partners any more, `jesse`?
+- Listen, `jesse`, we've got a problem.
+- Well, no, `jesse`, it was the bank's.
+- What the -- it's fine by me, `jesse`.
+- I wouldn't pay `jesse` no mind at all.
+- Do you even have a girlfriend, `jesse`?
+- `Jesse`, please, let's talk about this!
+- Nuh-huh ... `jesse`, is that your hand?
+- Oh, god, `jesse` - i know you're there!
+- I'd just as soon kill you, `jesse` james.
+- All we have to do is straighten out `jesse`.
+- Yeah, i mean you're coming unglued, `jesse`.
+- You were little `jesse` james when you left.
+- I killed my mother and a old boy name `jesse` dixon.
+- You do want to hurt thaddeus rains, don't you `jesse`?
+- I hope you don't mind, `jesse` james told me your name.
+- `Jesse` james never yelled at folk... open the damn safe!
+- Thanks, dewey, but i was thinking i'd pull `jesse` off...
+- `Jesse` observes the transaction booth and earl start to leave.
+- All right, `jesse`, we'll play it your way, under one condition.
+- You planning on being a bachelor your whole life, `jesse` james?
+- I'm upset too, zee, but `jesse` and cole know what they're doing.
+- All i want is my share, which i guess is... what's your offer, `jesse`?
+- Washington is full of cornpone country pussy -- just ask `jesse` jackson.
+- Maybe we can reason with `jesse`, give him a third in exchange for the tape.
+- Friends don't squeal on friends, that's not what `jesse` segundo is all about.
+- Weren't for `jesse` james, this gang wouldn't be able to find a goat's ass with a stick.
+- As long as people think `jesse`'s still riding, we will never get the respect we deserve.
+- No, `jesse`, your problem is you're always doing stuff before i'm finished figuring it out.
+                 

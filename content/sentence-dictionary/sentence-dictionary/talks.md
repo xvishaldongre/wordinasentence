@@ -1,0 +1,90 @@
+---
+title: "talks in a sentence | talks example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "talks"
+---
+- But she `talks` a lot.
+- Got his peace `talks`.
+- No one `talks` to cops.
+- She `talks` to herself.
+- Who `talks` like this?!
+- She `talks` in her sleep.
+- You and your pep `talks`.
+- She `talks` a lot of shit.
+- Nobody `talks` to children!
+- Then let him `talks` to me.
+- He likes the way he `talks`.
+- That's how god `talks` to me.
+- You're the one he `talks` to.
+- I sure like the way he `talks`.
+- The war chief `talks` too loud.
+- Oh, tv never `talks` to just me.
+- She's down... she `talks` to me.
+- `Talks` like a baptist preacher.
+- The way she `talks`, for example.
+- God, he hardly even `talks` anymore.
+- I read because no one `talks` to me.
+- It's the way he `talks` to the fire.
+- All anyone `talks` about is the wind.
+- I want to know everyone he `talks` to.
+- Once in a while he even `talks` to me.
+- You are all your father `talks` about.
+- If anybody `talks` to you, tell them...
+- It's just that nobody `talks` about it.
+- He `talks` about them like they're real.
+- I can feel it in the way he `talks` to me.
+- She `talks` a great deal and smiles a lot.
+- All he `talks` about is those japanese gals.
+- Everybody `talks` about how rotten kids act.
+- If he `talks` to me, i think he'll leave you.
+- It `talks` about our sinful nature, you know?
+- He `talks` about women as if they were cattle.
+- China has asked for immediate `talks` at the un.
+- Dan's just an ordinary guy, but he `talks` to me.
+- He's a good boy, miss -- he just `talks` that way.
+- Nobody, nobody, `talks` about my friends that way.
+- Nobody `talks` about it that much except the jews.
+- It's just nice to meet a man who `talks` like that.
+- Now i'm kurtz' own disciple -- i listen he `talks`.
+- You know, he's spitting on my neck when he `talks`.
+- You know she `talks` to everybody, and not just him.
+- But nobody smooth-`talks` his way into my assignment.
+- Sorry, but i like the way he looks and `talks` to me.
+- He likes the way i talk and i like the way he `talks`.
+- I can't live with a man who only `talks` about the wind.
+- I don't like the way he looks at you and `talks` to you.
+- Nothing is gonna stop us nobody ever `talks` about that.
+- I've never seen it, but he `talks` about it all the time.
+- Over sal, the way he `talks` and the way he looks at you.
+- He hardly ever `talks` and when he does it's in that tone!
+- He tends to spit when he `talks` about products liability.
+- Money `talks`, bullshit walks, whether you like it or not.
+- You're the only one in the family who still `talks` to me.
+- My wife `talks` to his wife about what shift i'm gonna take?
+- Let's go see professor barnhardt and find out how he `talks`.
+- He walks in the rain, without his hat, and `talks` to himself.
+- Gee, he `talks` like he's violating a moral issue sitting here.
+- Remember, pay attention to how she `talks` about foley, her tone.
+- He just sits there and laughs and `talks` to himself and counts it.
+- He keeps mumbling, poking himself in the eye when he `talks` to me.
+- If he `talks`, or writes a note or whatever, he's gonna turn us in.
+- If he `talks`, or writes a note, or whatever, he's gonna turn us in.
+- Tom jefferson is one of those people who `talks` big and acts small.
+- So, you know how in cosmos, carl sagan `talks` about other dimensions?
+- Well, these are slum kids, i was a slum kid, everybody `talks` like that.
+- He didn't realize that nobody who `talks` such a good game ever plays one.
+- Aah, he's a bottlebaby, he `talks` to himself, the joke of the neighborhood.
+- Chandler takes the options paper, waves off lee, and reads it as she `talks`.
+- Gabriel says that you went in and you came back, but nobody `talks` about it.
+- Hardly anyone even `talks` to me unless it's to say something that's not nice.
+- That man with her -� he doesn't make her laugh �� he just sits and `talks`.
+- For a man who `talks` a great deal, it's amazing how unenlightening you can be.
+- Watch out for her, george; she `talks` refinement, but she has a barbarous soul!
+- Anyone `talks` to this guy's an asshole... what, they beat you with a rubber bat?
+- Anybody that `talks` about women as much as you do probably can't get it up anyway.
+- Putting on that millionaire act - and that phony accent - nobody `talks` like that!
+- He `talks` to me as a son; as his successor, but the old man thinks he'll live forever.
+- He `talks`, he `talks` a good game, look at the board, and it's me, john, it's me... moss.
+- He will talk to me before he `talks` to-- if the others found her, that means she's safe.
+                 

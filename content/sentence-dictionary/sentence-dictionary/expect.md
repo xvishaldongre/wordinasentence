@@ -1,0 +1,107 @@
+---
+title: "expect in a sentence | expect example sentences"
+date: 2021-01-20T19:57:50+05:30
+draft: falses
+summary: "expect"
+---
+- They `expect` results.
+- They'll `expect` that.
+- What did you `expect`.
+- What did you `expect`?
+- `Expect` nothing fancy.
+- I... didn't `expect`...
+- I `expect` you shortly.
+- I `expect` you to come.
+- You `expect` more what?
+- I don't `expect` you to.
+- It's what they `expect`.
+- They didn't `expect` it.
+- What'd you'all `expect`?
+- What would you `expect`?
+- You can't `expect` that.
+- What do you `expect`?
+- I didn't `expect` anyone.
+- I would `expect` he does.
+- I don't `expect` anything.
+- I don't `expect` him back.
+- I try not to `expect` you.
+- What else do you `expect`?
+- But hey, what'd i `expect`?
+- I `expect` you'll like her.
+- Look, what do you `expect`?
+- They'll `expect` us to run.
+- But i `expect` some answers.
+- Don't `expect` two presents.
+- Not to `expect` you tonight.
+- What'd you `expect` to hear?
+- You `expect` me to buy this?
+- You `expect` me to lie down?
+- I `expect` a lot from me.
+- I `expect` more from you.
+- I didn't `expect` to see you.
+- I `expect` to be compensated.
+- I `expect` you to follow her.
+- I wouldn't `expect` too much.
+- We don't `expect` resistance.
+- What do you `expect` to find?
+- What d'you `expect` me to do?
+- Didn't `expect` you to answer.
+- I didn't `expect` you so soon.
+- We don't even `expect` thanks.
+- What do you `expect` me to do?
+- What the hell do you `expect`?
+- What time do they `expect` us?
+- When can we `expect` you back?
+- Don't `expect` to like it here.
+- How did he `expect` to do that?
+- How do you `expect` to do that?
+- Just tell us what you `expect`.
+- One doesn't `expect` an answer.
+- Powers, i `expect` them to die.
+- What did you `expect` me to do?
+- What do you `expect` me to say?
+- What the hell did you `expect`?
+- Who did you `expect` numb nuts?
+- You `expect` too much from him.
+- You `expect` us to... hey, hey.
+- Calloway, you `expect` too much.
+- I did not know what to `expect`.
+- I didn't `expect` that he would.
+- I didn't `expect` you this soon.
+- My wife told me to `expect` you.
+- Oh, i don't `expect` it to last.
+- Pretty much what you'd `expect`.
+- We have to `expect` retaliation.
+- Wouldn't `expect` anything else.
+- You `expect` me to believe that?
+- You `expect` us to believe that?
+- What people `expect` from me.
+- But don't `expect` me to like it.
+- Didn't `expect` we'd already met.
+- Do you `expect` me to believe...?
+- He'll `expect` to see both of us.
+- How do you `expect` to get there?
+- I `expect` so- it's from my wife.
+- I `expect` to hear from you soon.
+- So what'd you `expect` from m.j.?
+- So you `expect` us to follow you?
+- What do they `expect` you to say?
+- When can we `expect` containment?
+- When may i `expect` the cleaners?
+- I definitely didn't `expect` this.
+- I don't `expect` you'd understand.
+- I don't `expect` you to follow me.
+- I'll `expect` you to be courteous.
+- So, when can we `expect` you back?
+- Tell the hospital to `expect` her.
+- What did you `expect`, glamor boy?
+- What did you `expect`, lieutenant?
+- You `expect` me to pimp madeleine?
+- Do you `expect` me to believe that?
+- Hey, don't `expect` me to save you.
+- I didn't `expect` to see you again.
+- I didn't `expect` you back so soon.
+- I don't `expect` to live that long.
+- I don't `expect` you to believe me.
+- I don't `expect` you to understand.
+                 
